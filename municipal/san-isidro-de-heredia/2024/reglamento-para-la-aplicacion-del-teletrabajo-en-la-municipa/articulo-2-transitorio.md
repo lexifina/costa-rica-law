@@ -1,0 +1,2 @@
+Transitorio II.-La Alcaldía Municipal contará con un plazo de tres meses para aprobar un Plan de Seguridad Informática para esta modalidad de trabajo en concreto o para incorporar regulaciones específicas al plan de seguridad existente. Dicho plan deberá contar de previo con el visto bueno por parte del Departamento de Servicios Informáticos y la Comisión de Tecnologías de Información de la Municipalidad.
+San Isidro de Heredia, 01 de febrero de 2024.-Secretaría del Concejo Municipa

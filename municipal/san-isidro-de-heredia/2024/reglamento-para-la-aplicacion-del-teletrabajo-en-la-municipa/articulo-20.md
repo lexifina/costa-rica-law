@@ -1,0 +1,1 @@
+Artículo 20.-Aseguramiento. Las personas teletrabajadoras de la Municipalidad de San Isidro están protegidas por la Póliza de Riesgos del Trabajo que tiene la institución, siempre que se encuentren ejerciendo las labores propias de su cargo.

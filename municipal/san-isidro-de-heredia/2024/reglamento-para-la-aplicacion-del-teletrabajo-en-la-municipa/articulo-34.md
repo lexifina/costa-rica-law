@@ -1,0 +1,1 @@
+Artículo 34.-Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta de conformidad con lo previsto en el artículo 43 del Código Municipal. Lo aquí dispuesto podrá someterse a reformas parciales o integrales en cualquier momento con fundamento en el mismo numeral.

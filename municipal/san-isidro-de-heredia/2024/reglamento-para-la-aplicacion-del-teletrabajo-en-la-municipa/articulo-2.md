@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento será aplicable únicamente a aquellas relaciones de servicio que se fundamenten en un contrato laboral donde se tenga como patrono a la Municipalidad de San Isidro de Heredia. Las regulaciones aquí contenidas serán vinculantes tanto para el personal municipal como para las jerarquías administrativas y políticas.

@@ -1,0 +1,1 @@
+Artículo 6º-Prevalencia del interés público. Cuando por condiciones particulares del puesto o eventos de naturaleza extraordinaria esta modalidad de trabajo riña con el interés público, cualquier decisión administrativa debe ir orientada a la satisfacción de este último por sobre el interés particular.
