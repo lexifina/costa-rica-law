@@ -1,2 +1,0 @@
-Artículo 3°.- Se instruye a los jerarcas de la Administración Pública Central y se insta a los jerarcas de la Administración Pública Descentralizada, para que, en coordinación con las respectivas jefaturas, tomen las disposiciones administrativas necesarias para dar seguimiento al trabajo que realizan las personas teletrabajadoras, mediante medidas de control que permitan acreditar las diferentes tareas que realizan durante su jornada laboral.
-En caso de algún incumplimiento, se tomen las acciones disciplinarias correspondientes.
