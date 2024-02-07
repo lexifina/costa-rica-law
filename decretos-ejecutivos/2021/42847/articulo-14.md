@@ -211,6 +211,11 @@ En el caso de estar inscrito como Especialista en Cirugía General, se requerir�
 14.49 Especialidad Médica en Ortopedia y Traumatología.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Ortopedia y Traumatología, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa debe contemplar y garantizar la aprobación de un (1) año en Ortopedia Pediátrica.
+Se reconoce como sinónimos de esta especialidad el siguiente término:
+(*)Cirugía Ortopédica
+Requisitos específicos:
+Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Ortopedia y Traumatología, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad. Este programa debe contemplar y garantizar la aprobación de un (1) año en Ortopedia Pediátrica.
+(*)(Así adicionada la definición anterior mediante sesión ordinaria N° 2024-02.07 del 7 de febrero de 2024)
 14.50 Especialidad Médica en Otorrinolaringología y Cirugía de Cabeza y Cuello.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Otorrinolaringología y Cirugía de Cabeza y Cuello, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
