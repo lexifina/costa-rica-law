@@ -1,0 +1,5 @@
+ARTÍCULO 34
+a. El presente Convenio sólo se aplicará de pleno derecho a los territorios metropolitanos de los países contratantes;
+b. Si un país desea su aplicación en sus colonias, protectorados, territorios de ultramar y territorios bajo soberanía o mandato, su intención se mencionará en el propio instrumento de ratificación o será objeto de una notificación escrita dirigida al Gobierno francés, que se depositará en los archivos de ese Gobierno.
+Si se opta por este procedimiento, el Gobierno francés transmitirá a los Gobiernos de los países signatarios y adherentes una copia certificada conforme de la notificación, indicando la fecha en que la recibió;
+c. Las exposiciones que comprendan únicamente los productos de la metrópoli y de las colonias, protectorados, territorios de ultramar y territorios bajo soberanía o mandato, se considerarán exposiciones nacionales y, por consiguiente, no contempladas en el presente Convenio, sin que haya que determinar si dicho Convenio se ha extendido a esos territorios.

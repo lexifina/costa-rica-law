@@ -1,0 +1,2 @@
+ARTÍCULO 36
+El presente Convenio surtirá efecto, para los países contratantes que hayan participado en el primer depósito de las ratificaciones, un mes después de la fecha del acta. Para los países que posteriormente la ratifiquen o se adhieran a ella, así como para las colonias, protectorados, territorios de ultramar y territorios bajo soberanía o mandato no mencionados en los instrumentos de ratificación, el Convenio surtirá efecto un mes después de la fecha de recepción de las notificaciones previstas en los artículos 33, párrafo d ; 34, párrafo b ; 35, párrafo b.

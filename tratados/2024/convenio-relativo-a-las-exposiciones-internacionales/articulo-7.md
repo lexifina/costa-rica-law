@@ -1,0 +1,3 @@
+ARTÍCULO 7
+Cuando se organice una exposición que responda a las características de las manifestaciones definidas en el artículo 1 en un país no adherente al presente Convenio, los países contratantes, antes de aceptar la invitación a dicha exposición, solicitarán la opinión de la Oficina Internacional.
+No darán su adhesión a la exposición proyectada si no presenta las mismas garantías que las exigidas por el presente Convenio o al menos garantías suficientes. En caso de simultaneidad de fecha entre una exposición organizada por un país contratante y la organizada por un país no contratante, los demás países contratantes darán preferiblemente, salvo circunstancias excepcionales, su adhesión a la primera.

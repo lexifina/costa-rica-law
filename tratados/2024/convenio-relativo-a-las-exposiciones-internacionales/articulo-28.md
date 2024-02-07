@@ -1,0 +1,4 @@
+ARTÍCULO 28
+La participación en una exposición es libre o está sujeta a una admisión previa. La participación es libre, cuando todos los objetos pueden ser admitidos a la exposición siempre que el expositor haya suscrito a su debido tiempo el boletín de adhesión y cumpla las condiciones generales para dicha adhesión.
+La participación estará sujeta a una admisión previa, cuando el reglamento general disponga que los objetos que deban figurar en la exposición deben cumplir determinadas condiciones especiales, como la buena fabricación o la originalidad.
+En tal caso, el reglamento dará a conocer los procedimientos que haya adoptado el país organizador para efectuar la admisión de los objetos en su sección nacional, a fin de permitir a los países invitados referirse a ellos. Cada país conserva la facultad de aplicar estos procedimientos según su apreciación.

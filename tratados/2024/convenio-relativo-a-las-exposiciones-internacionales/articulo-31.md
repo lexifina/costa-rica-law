@@ -1,0 +1,2 @@
+ARTÍCULO 31
+El palmares de la Exposición se registrará en la Oficina Internacional. Los ganadores solo podrán hacer uso de los premios concedidos si, después del premio, indican el título exacto de la exposición. Estarán autorizados a añadir a esta mención el monograma de la Oficina Internacional. La Oficina Internacional de las Exposiciones dará a conocer a la Oficina Internacional de la Propiedad Industrial en Berna, las exposiciones registradas y le hará llegar los palmares.

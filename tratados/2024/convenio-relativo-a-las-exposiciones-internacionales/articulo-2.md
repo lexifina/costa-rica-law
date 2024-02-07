@@ -1,0 +1,4 @@
+ARTÍCULO 2
+Una exposición es general cuando comprende los productos de la actividad humana pertenecientes a varios sectores de la producción o cuando se organiza con el fin de resaltar el conjunto de los progresos realizados en un ámbito determinado, como la higiene, las artes aplicadas, la comodidad moderna, el desarrollo colonial, etc.
+Es especial cuando sólo se interesa por una ciencia aplicada (electricidad, óptica, química, etc.), una sola técnica (textil, fundición, artes gráficas, etc.), una sola materia prima (cueros y pieles, seda, níquel, etc.), una sola necesidad elemental (calefacción, alimentación, transporte, etc.).
+Una clasificación de las exposiciones será elaborada por la Oficina Internacional prevista en el artículo 10, que servirá de base para determinar las profesiones y los objetos que puedan tener lugar en una exposición especial en virtud del párrafo anterior. Esta lista podrá revisarse anualmente.
