@@ -1,0 +1,1 @@
+Transitorio II. Los expedientes de transferencias con terceros privados que se hayan suscrito con anterioridad a la entrada en vigencia del presente reglamento y que se encuentren en ejecución, se podrá realizar desembolsos adicionales en los casos que así lo autorice la Contraloría General de la República.

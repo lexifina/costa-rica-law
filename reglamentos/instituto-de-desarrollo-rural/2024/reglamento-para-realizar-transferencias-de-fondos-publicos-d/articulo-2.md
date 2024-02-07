@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Los lineamientos establecidos en este reglamento serán de aplicación general y obligatorio para todas las instancias del Instituto, relacionadas con la formulación, gestión, ejecución y fiscalización de convenios de transferencias de fondos públicos. -------------------------------------------------

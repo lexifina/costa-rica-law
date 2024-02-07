@@ -1,0 +1,5 @@
+Artículo 6. De la Presidencia Ejecutiva. En el marco del presente Reglamento, son funciones de la Presidencia Ejecutiva las siguientes: --------------------------
+a) Recibir y presentar a la Junta Directiva los expedientes de los proyectos que se ejecutarán por medio de convenios de transferencia de fondos públicos, según la recomendación previa del Fondo de Desarrollo Rural y de la Dirección de Desarrollo Rural. --------------------------------------------------------
+b) Suscribir mediante firma los convenios, y adendas, en su calidad de representante legal del Inder, cuando así lo autorice la Junta Directiva. ---------
+c) Presidir los actos protocolarios de firma de aquellos convenios que demanden su presencia. -------
+d) Definir en los casos que sea procedente por el tipo de proyecto a ejecutar, los casos en los cuales los estudios técnicos, tanto legal como de otra materia, sean realizados por dependencias diferentes a las regionales. En cada caso deberá constar la justificación respectiva para este proceder. ----------

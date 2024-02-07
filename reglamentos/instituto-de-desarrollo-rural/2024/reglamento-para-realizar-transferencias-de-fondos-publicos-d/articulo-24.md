@@ -1,0 +1,1 @@
+Artículo 24. Procedencia de la Adenda. La adenda de cualquier convenio marco o específico de transferencia de fondos públicos se podrá realizar solamente en los casos de convenios vigentes al momento de ser conocidos por la Junta Directiva y será procedente cuando se requiera la ampliación, modificación o prorroga, de las cláusulas del convenio. ---------------------------

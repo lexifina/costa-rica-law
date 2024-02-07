@@ -1,0 +1,7 @@
+Artículo 9. De Administración y Finanzas. En el marco del presente Reglamento, son funciones de Administración y Finanzas las siguientes:-------
+a) Emitir y realizar las acciones tendientes a que se cumplan los lineamientos generales para el adecuado control y seguimiento del uso y manejo de recursos públicos transferidos ----------------------
+b) Emitir las certificaciones que hagan constar que los recursos presupuestarios se encuentran autorizados en el presupuesto institucional. ------------------------
+c) Ejecutar, conforme el acuerdo de Junta Directiva y la solicitud de la oficina encargada, los desembolsos o transferencias de los recursos financieros, con los que Inder se compromete para cumplir el convenio de transferencia. -----------
+d) Emitir opinión técnica de los informes financieros, que entregan tanto trimestral como final, las Oficinas de Desarrollo Territorial en relación con los receptores de recursos del INDER.-----------------
+e) Dar seguimiento, fiscalización y control de la liquidación financiera del proyecto. En caso de requerir subsanaciones se deben requerir a la instancia correspondiente con el fin que las presenten en un plazo máximo de 5 días hábiles. -----------------------------------------------------------------------------------
+f) Mantener por medio de la Unidad de Tesorería un control de las transferencias realizadas fondos públicos. -------------------------------------------------------------

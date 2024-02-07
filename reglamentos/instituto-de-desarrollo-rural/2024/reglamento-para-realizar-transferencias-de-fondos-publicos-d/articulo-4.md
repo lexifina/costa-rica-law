@@ -1,0 +1,1 @@
+Artículo 4: Ámbito de Aplicación. Este reglamento es aplicable a todas las transferencias de fondos públicos que pretenda realizar el Instituto de Desarrollo Rural con el fin de cumplir con los fines públicos establecidos en la Ley N°9036 y su Reglamento. ---------------------------------------------------------

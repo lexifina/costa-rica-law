@@ -1,0 +1,2 @@
+Artículo 34. De los recursos financieros no ejecutados. Finalizado el convenio por conclusión normal o anticipada, el receptor deberá trasladar al Inder los recursos no ejecutados o sobrantes en la ejecución del convenio los cuales consisten en el capital existente junto con los intereses generados, en un plazo no mayor a tres días hábiles.
+En caso de no cumplir con lo indicado en el párrafo anterior, se procederá según lo estipulado en el capítulo sobre incumplimientos.

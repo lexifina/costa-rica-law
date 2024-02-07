@@ -1,0 +1,10 @@
+Artículo 11. De la Región de Desarrollo. En el marco del presente Reglamento, son funciones de la Región de Desarrollo las siguientes: --------------------------
+a) Elaborar en coordinación con la Oficina Territorial la propuesta de Convenios y adendas de Fondos públicos -------------------------------------------
+b) Proponer al Fondo de Desarrollo Rural ajustes en el reglamento o manuales según su aplicación práctica en las regiones y los territorios. ---------------------
+c) Revisar, recomendar y remitir al Fondo de Desarrollo Rural los expedientes de proyectos a ejecutar con fondos públicos por medio de la suscripción de convenios.
+d) Implementar y participar en la ejecución de los mecanismos de control y seguimiento, para garantizar el adecuado uso de los fondos públicos transferidos. -------------------------------------------------
+e) Dar seguimiento a los convenios de transferencias de fondos públicos mediante la revisión de los informes técnicos y financieros respectivos y remitirlos a las unidades centrales correspondientes para su análisis y valoración. -------------------------------------------------------------------------------
+f) Coordinar y conducir los actos protocolarios de firma de convenios que así lo requieran. -------------
+g) Recomendar la continuidad o modificación de los convenios de transferencia de fondos públicos con base en la valoración de los informes de avance y los resultados de la ejecución.--------------------
+h) Promover los ajustes o medidas correspondientes para asegurar la eficiente ejecución de proyectos contenidos en los respectivos convenios, que se encuentran incluidos en el Plan Operativo Institucional, así como, las modificaciones que se requieran según las necesidades que se presenten de proyectos que se ejecuten bajo esa modalidad. --------------------------------------
+i) Establecer y ejecutar las regulaciones sobre la fiscalización y el control de los fondos públicos otorgados para la ejecución de proyectos según las cláusulas establecidas en el convenio correspondiente. ----------------------------------------

@@ -1,0 +1,2 @@
+DE LOS CONVENIO MARCO
+Artículo 14. Procedencia del convenio marco. El convenio marco procede cuando se pretenda plasmar en un documento relaciones de cooperación y definir compromisos generales entre las partes suscribientes. Se plantean líneas generales de cooperación en las diversas áreas del conocimiento relacionadas con los fines y competencias del Inder, establecidas en la Ley N°9036. --------

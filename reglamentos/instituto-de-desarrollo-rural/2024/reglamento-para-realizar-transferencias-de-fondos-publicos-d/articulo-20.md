@@ -1,0 +1,2 @@
+CONTROL, SEGUIMIENTO Y FISCALIZACIÓN DEL CONVENIO DE TRANSFERENCIA DE FONDOS PÚBLICOS
+Artículo 20. El seguimiento y la fiscalización del Convenio, estará a cargo de las personas responsables de realizar el control, seguimiento, fiscalización e inspección y del cumplimiento del convenio según las cláusulas del mismo, y se hará de acuerdo al cronograma de actividades y plan de inversión del proyecto ejecutado con fondos públicos. --------------------------------------------

@@ -1,0 +1,9 @@
+Artículo 13. Obligaciones de los receptores de fondos públicos. ----------------
+En el marco de la presente normativa se establecen como obligaciones de los receptores de fondos públicos, las siguientes: ---------------------------------------
+a) Utilizar los recursos otorgados por el Inder única y exclusivamente para los fines establecidos en el convenio, según las condiciones establecidas en dicho instrumento. No resulta posible la utilización de los fondos transferidos para ejecutar un fin diferente, aunque el mismo también sea público. -------
+b) Asumir la responsabilidad del control técnico de la obra a desarrollar, así como la responsabilidad administrativa por las compras que se realicen para el proyecto, para lo cual debe aplicar lo que establece al respecto la Ley General de Contratación Pública y su Reglamento. ---------------------------
+c) Designar al responsable para la suscripción del Convenio, así como para la ejecución, seguimiento y fiscalización del proyecto. -------------------------------
+d) Planificar, ejecutar y supervisar las actividades necesarias para el desarrollo de los proyectos que han sido aprobados por parte del Inder, según las condiciones establecidas en los convenios, así como la modificación y adenda según corresponda. ----------------------------------------------------------------
+e) Efectuar un control permanente durante la ejecución de la obra, asegurando la calidad de las mismas de conformidad con las especificaciones técnicas del proyecto y de acuerdo al cronograma establecido. ----------------------------------
+f) Elaborar y presentar al Inder informes técnicos y financieros mensuales de conformidad con lo estipulado en el convenio y en el presente Reglamento, sobre las actividades y resultados del mismo.
+g) Realizar Ia respectiva recepción de obras, conforme a lo establecido en la normativa vigente asegurándose técnicamente de la correcta ejecución. --------
