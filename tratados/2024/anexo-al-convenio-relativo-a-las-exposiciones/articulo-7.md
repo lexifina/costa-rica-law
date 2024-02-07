@@ -1,0 +1,12 @@
+Artículo 7
+No se percibirán derechos de importación, no se aplicarán prohibiciones o restricciones a la importación y, si se ha concedido la importación temporal, no se exigirá la reexportación en los casos siguientes, siempre que el valor
+(página 31)
+total y la cantidad de las mercancías sean razonables, a juicio de las autoridades aduaneras del país de importación, teniendo en cuenta la naturaleza de la exposición, el número de visitantes y la importancia de la participación del expositor:
+a) Muestras pequeñas (excepto bebidas alcohólicas, tabaco y combustibles) representativas de las mercancías extranjeras expuestas en la exposición, incluidas las muestras de alimentos y bebidas, importados como tales u obtenidos en la exposición a partir de mercancías importadas a granel, siempre que:
+i) se trate de productos extranjeros suministrados gratuitamente y que sirvan únicamente para distribuciones gratuitas al público en la exposición para ser utilizados o consumidos por las personas a las que hayan sido distribuidos;
+ii) dichos productos sean identificables como muestras de carácter publicitario de escasa denominación;
+iii) no se presten a la comercialización y, en su caso, se envasen en cantidades claramente menores que las contenidas en el envase más pequeño vendido al detalle;
+iv) las muestras de productos alimenticios y bebidas que no se distribuyan en los embalajes de conformidad con el inciso iii) se consuman en el momento de la exposición.
+b) Muestras importadas que son utilizadas o consumidas por los Miembros de los jurados de la exposición para apreciar y juzgar los objetos expuestos, bajo reserva de la presentación de una certificación del Comisionado General de Sección, que mencione la naturaleza y la cantidad de los objetos consumidos durante dicha apreciación y tal juicio.
+c) Mercancías importadas únicamente para su demostración, o para la demostración de máquinas y aparatos extranjeros presentados en la exposición, que se consumen o destruyen durante dichas demostraciones.
+d) Impresos, catálogos, folletos, promociones, carteles, calendarios (ilustrados o no) y fotografías sin enmarcar, destinados manifiestamente a ser utilizados como publicidad para las mercancías extranjeras presentadas en la exposición siempre que se trate de productos extranjeros suministrados gratuitamente y que sirvan únicamente para distribuciones gratuitas al público en el lugar de la exposición.

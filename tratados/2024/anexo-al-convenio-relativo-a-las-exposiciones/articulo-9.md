@@ -1,0 +1,4 @@
+Artículo 9
+a) Tanto a la entrada como a la salida, la verificación y el despacho de aduana de las mercancías que vayan a ser o hayan sido presentadas o utilizadas en una exposición se efectuarán, en la medida de lo posible y oportuno, en los lugares de dicha exposición.
+b) Cada Parte contratante se esforzará, en todos los casos en que lo estime conveniente, tomando en cuenta la importancia de la exposición, por abrir, durante un período razonable, una oficina de aduana en el lugar de la exposición organizada en su territorio
+c) La reexportación de mercancías admitidas en importación temporal podrá efectuarse en una o varias veces y por cualquier oficina de aduana abierta para dichas operaciones, incluso si es diferente de la aduana de importación, salvo si el importador se compromete, para beneficiarse de un procedimiento simplificado, reexportar las mercancías por la oficina de importación.
