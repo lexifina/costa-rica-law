@@ -16,3 +16,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 1 | 2019-08-19 | la propia norma |
 | 2 | 2021-09-06 | Reglamento 33 (2021-09-06) |
 | 3 | 2022-01-20 | Reglamento 2 (2022-01-20) |
+| 4 | 2024-02-07 | SINALEVI (sin norma nombrada) |
