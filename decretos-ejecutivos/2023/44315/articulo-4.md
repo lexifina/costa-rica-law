@@ -1,0 +1,2 @@
+Artículo 4°-Esterilidad de las instalaciones en los Puestos Fronterizos Terrestres.
+1.- En aras de garantizar la mayor eficiencia y transparencia en el ejercicio de los controles respectivos, las zonas primarias ubicadas dentro de las instalaciones de los puestos fronterizos terrestres son zonas públicas de acceso restringido. En consecuencia, el ingreso y permanencia de personas, mercancías y vehículos de cualquier tipo, deberá vincularse con las operaciones de ingreso o egreso del país.

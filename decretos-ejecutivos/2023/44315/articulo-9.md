@@ -1,0 +1,2 @@
+Artículo 9°-Interés Público y Nacional.
+1.- De conformidad con el artículo 14 de la Ley N° 9154 del 03 de julio de 2013, se declara de interés público y nacional la gestión de los puestos fronterizos terrestres desde un enfoque de gestión coordinada de fronteras, en concordancia con los más altos estándares internacionales de facilitación del comercio y como mecanismo indispensable para una gestión eficaz y eficiente de las operaciones fronterizas.

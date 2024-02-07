@@ -1,0 +1,2 @@
+Artículo 8°-Coordinación para el cumplimiento de los fines propuestos.
+1. Los entes y órganos públicos que ejercen controles y funciones en los puestos fronterizos terrestres, dentro del marco de sus competencias, deberán coadyuvar con COMEX en la elaboración de la proyección de gastos anuales, de acuerdo con el límite de gasto autorizado y comunicado por el Ministerio de Hacienda, para solventar las necesidades de los puestos fronterizos terrestres.
