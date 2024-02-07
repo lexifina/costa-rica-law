@@ -1,4 +1,3 @@
-ARTÍCULO 23
-La sección nacional de un país sólo puede incluir los objetos pertenecientes a ese país.
-No obstante, podrá incluir, con la autorización del Comisionado o del Delegado del país interesado, un objeto perteneciente a otro país, siempre que sólo sirva para completar la instalación, que no influya en la atribución de la recompensa al objeto principal, y que, como tal, no se beneficia de ninguna recompensa.
-Se considera que pertenecen a la industria y a la agricultura de un país los objetos que han sido extraídos de su suelo, recogidos o fabricados en su territorio.
+Artículo 23
+1) El reglamento general de una exposición deberá indicar si, independientemente de los certificados de participación que puedan concederse, se concederán o no recompensas a los participantes. En caso de que se prevean recompensas, su atribución podrá limitarse a determinadas categorías.
+2) Antes de la apertura de la exposición, cualquier participante podrá declarar que desea mantenerse al margen de la atribución de recompensas.

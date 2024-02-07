@@ -1,2 +1,7 @@
-ARTÍCULO 36
-El presente Convenio surtirá efecto, para los países contratantes que hayan participado en el primer depósito de las ratificaciones, un mes después de la fecha del acta. Para los países que posteriormente la ratifiquen o se adhieran a ella, así como para las colonias, protectorados, territorios de ultramar y territorios bajo soberanía o mandato no mencionados en los instrumentos de ratificación, el Convenio surtirá efecto un mes después de la fecha de recepción de las notificaciones previstas en los artículos 33, párrafo d ; 34, párrafo b ; 35, párrafo b.
+Artículo 36
+El gobierno de la República Francesa notifica a los gobiernos de los Estados Partes en el presente Convenio y a la Oficina Internacional de las Exposiciones:
+a) la entrada en vigor de las enmiendas, de conformidad con el Artículo 33,
+b) las adhesiones, de conformidad con el Artículo 35;
+c) las denuncias, de conformidad con el Artículo 37;
+d) las reservas formuladas en aplicación del párrafo 5 del Artículo 34;
+e) la posible expiración del Convenio.

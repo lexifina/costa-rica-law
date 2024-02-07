@@ -1,2 +1,2 @@
-ARTÍCULO 32
-La Oficina Internacional elaborará normas modelo en las que se fijarán las condiciones generales de composición y funcionamiento de los grupos y se determinará el modo de atribución de los premios. Se recomendará su adopción a los países organizadores.
+Artículo 32
+El presupuesto anual de la Oficina será fijado por la asamblea general en las condiciones previstas en el párrafo 3 del Artículo 28. En él se tienen en cuenta las reservas financieras de la Oficina, los ingresos de todo tipo y los saldos deudores y acreedores arrastrados de ejercicios anteriores. Los gastos de la Oficina serán sufragados por esas fuentes y por las cotizaciones de las Partes contratantes, según el número de cuotas que les incumban en aplicación de las decisiones de la asamblea general.

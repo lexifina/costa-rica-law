@@ -1,2 +1,2 @@
-ARTÍCULO 17
-En una exposición general, la Administración no podrá percibir ningún impuesto por los lugares cubiertos y descubiertos previstos en el programa de la Exposición y atribuidos a cada país participante.
+Artículo 17
+En una exposición sólo se considerarán nacionales y, en consecuencia, sólo podrán designarse con esta denominación las secciones constituidas bajo la autoridad de los comisionados generales nombrados de conformidad con el Artículo 13 por los gobiernos de los Estados participantes. Una sección nacional comprende todos los expositores del Estado de que se trate, pero no los concesionarios.

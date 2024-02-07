@@ -1,6 +1,2 @@
-TÍTULO IV
-OBLIGACIONES DEL PAÍS QUE INVITA Y DE LOS PAÍSES
-PARTICIPANTES
-ARTÍCULO 15
-El Gobierno que invita a una exposición internacional debe nombrar un Comisionado del Gobierno o un Delegado encargado de representarlo y garantizar el cumplimiento de los compromisos contraídos con los participantes extranjeros. Además, el Comisionado o el Delegado deberá adoptar todas las medidas necesarias para la salvaguardia material de los objetos expuestos.
-(página 7)
+Artículo 15
+En una exposición universal, ni el gobierno anfitrión, ni las autoridades locales, ni los organizadores de la exposición, podrán percibir un alquiler o una tarifa fija por los lugares asignados a los gobiernos participantes (con excepción de un alquiler para los espacios construidos con arreglo a la excepción prevista en el apartado 1 del artículo 14). En caso de que un impuesto inmobiliario sea exigible, según la legislación vigente en el Estado anfitrión, este será a cargo de los organizadores. Sólo podrán ser objeto de remuneración los servicios efectivamente prestados en aplicación de los reglamentos aprobados por la Oficina.

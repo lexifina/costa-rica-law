@@ -1,5 +1,2 @@
-ARTÍCULO 35
-a. Después de la entrada en vigor del presente Convenio, cualquier país no signatario podrá adherirse a él en cualquier momento.
-b. A tal efecto, notificará por escrito y por vía diplomática al Gobierno francés su adhesión, que se depositará en los archivos de ese Gobierno.
-c. El Gobierno francés transmitirá inmediatamente a los Gobiernos de los países signatarios y adherentes copia certificada conforme de la notificación, indicando la fecha en que se haya recibido.
-(página 14)
+Artículo 35
+El presente Convenio estará abierto a la adhesión de cualquier Estado, ya sea miembro de la Organización de las Naciones Unidas o no miembro de la ONU, que sea parte del estatuto de la Corte Internacional de Justicia o miembro de una institución especializada de las Naciones Unidas, o miembro de la Agencia Internacional de la Energía Atómica y, por otra parte, de cualquier otro Estado cuya solicitud de adhesión sea aprobada por una mayoría de dos tercios de las Partes contratantes con derecho de voto en la asamblea general de la Oficina. Los instrumentos de adhesión se depositarán ante el gobierno de la República Francesa y surtirán efecto en la fecha de su depósito.

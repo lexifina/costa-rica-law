@@ -1,5 +1,7 @@
-ARTÍCULO 6
-Cuando varios países compitan entre sí para organizar una exposición internacional, se procederá a un intercambio de opiniones con el fin de determinar el país que obtendrá el privilegio de la organización.
-A falta de acuerdo, solicitarán el arbitraje de la Oficina Internacional, que tomará en cuenta las consideraciones invocadas y en particular las
-(página 4)
-razones especiales de carácter histórico o moral, el período transcurrido desde la última exposición y el número de eventos ya organizados por los países competidores.
+TÍTULO III
+Registro
+Artículo 6
+1) El gobierno de una Parte Contratante en cuyo territorio se proyecte una exposición (en lo sucesivo denominado el gobierno anfitrión), deberá dirigir a la Oficina una solicitud para obtener su registro indicando las medidas legislativas, reglamentarias o financieras que prevea con motivo de esta exposición. El gobierno de un Estado no contratante que desee obtener el registro de una exposición podrá igualmente dirigir una solicitud a la Oficina, siempre que se comprometa a respetar para dicha exposición las disposiciones de los Títulos I, II, III y IV de este Convenio y los reglamentos promulgados para su aplicación.
+2) La solicitud de registro debe ser presentada por el gobierno encargado de las relaciones internacionales del lugar en que se proyecta la exposición (en lo sucesivo denominado el gobierno anfitrión), incluso en el caso de que dicho gobierno no sea el organizador de la exposición.
+3) La Oficina determinará por sus reglamentos obligatorios el plazo máximo para retener la fecha de una exposición y el plazo mínimo para la presentación de la solicitud de registro; precisará los documentos que deberán acompañar a tal solicitud. También establece, mediante reglamento obligatorio, el monto de las contribuciones exigidas para sufragar los gastos de examen de la solicitud.
+4) El registro sólo se concederá si la exposición cumple las condiciones fijadas por el presente Convenio y los reglamentos establecidos por la Oficina.

@@ -1,11 +1,7 @@
-ARTÍCULO 30
-Las recompensas se dividen en cinco categorías:
-1° Grandes premios;
-2° Diplomas de honor
-3° Medallas de oro
-(página 12)
-4° Medallas de plata
-5° Medallas de bronce
-Además, a propuesta de los expositores premiados o de los miembros del jurado, se podrán conceder títulos a sus colaboradores o cooperadores.
-La calidad de miembro del jurado podrá ser mencionada por el titular de esta función en todos los casos en que los expositores estén autorizados a recordar sus recompensas.
-La calificación de «fuera de concurso» está ahora prohibida tanto para los miembros del jurado como para los expositores que han solicitado permanecer al margen de la atribución de las recompensas.
+Artículo 30
+1) La Comisión ejecutiva estará compuesta por delegados de los gobiernos de doce Partes contratantes a razón de uno para cada uno de ellos.
+2) La Comisión ejecutiva
+a) establece y mantiene al día una clasificación de las actividades humanas susceptibles de ser incluidas en una exposición;
+b) examina toda solicitud de registro de una exposición y la somete, con su criterio, a la aprobación de la asamblea general;
+c) desempeña las funciones que le encomiende la asamblea general;
+d) puede solicitar la opinión de las demás comisiones.

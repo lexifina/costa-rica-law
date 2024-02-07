@@ -1,5 +1,5 @@
-Artículo 2 : Una exposición es general cuando comprende los productos de la actividad humana pertenecientes a varios sectores de la producción o cuando se organiza con el fin de resaltar el conjunto de los progresos realizados en un ámbito determinado, como la higiene, las artes aplicadas, la comodidad moderna, el desarrollo colonial, etc.
-Es especial cuando sólo se interesa por una sola técnica aplicada (electricidad, óptica, química, etc.), una sola técnica (textil, fundición, artes gráficas, etc.), una sola materia prima (cueros y pieles, seda, níquel, etc.), una sola necesidad elemental (calefacción, alimentación, transporte, etc.) ; y no debe tener pabellones nacionales.
-(página 3)
-Será elaborado por la Oficina Internacional prevista en el artículo 10, una clasificación de las Exposiciones que servirá de base para determinar las profesiones y los objetos que puedan tener lugar en una exposición especial en virtud del párrafo anterior. Esta lista podrá revisarse anualmente.
-(Así reformado por el artículo 1° del Protocolo al Convenio relativo a las Exposiciones Internacionales, aprobado mediante el Tratado Internacional N° 10443 del 1° de febrero del 2024)
+Artículo 2
+El presente Convenio se aplicará a todas las exposiciones internacionales, con excepción de:
+a) exposiciones de menos de tres semanas
+b) exposiciones de Bellas Artes;
+c) exposiciones principalmente comerciales

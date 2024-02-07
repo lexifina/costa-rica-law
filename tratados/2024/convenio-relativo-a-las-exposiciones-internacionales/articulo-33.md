@@ -1,11 +1,8 @@
-TÍTULO VI
-DISPOSICIONES
-FINALES
-ARTÍCULO 33
-El presente Convenio será ratificado.
-a. Cada Gobierno, en cuanto esté listo para depositar las ratificaciones, informará de ello al Gobierno de Francia. Una vez que siete Gobiernos se hayan declarado dispuestos a efectuar ese depósito, se procederá a ello en el mes siguiente a la recepción de la última declaración por el Gobierno francés y en la fecha fijada por dicho Gobierno.
-b. Las ratificaciones se depositarán en los archivos del Gobierno de Francia.
-(página 13)
-c. El depósito de las ratificaciones se hará constar en un acta firmada por los representantes de los países que participen en ella y por el Ministro de Relaciones Exteriores de la República Francesa.
-d. El Gobierno de los países signatarios que no hayan podido depositar el instrumento de ratificación en las condiciones previstas en el párrafo a) del presente artículo podrán hacerlo posteriormente mediante notificación escrita dirigida al Gobierno de la República francesa acompañada del instrumento de ratificación.
-e. Copia certificada conforme del acta relativa al primer depósito de ratificación y de las notificaciones mencionadas en el párrafo anterior será entregada inmediatamente por el Gobierno francés y por la vía diplomática, a los Gobiernos que hayan firmado el presente Convenio o se hayan adherido a él. En el caso mencionado en el párrafo anterior, el Gobierno francés dará a conocer al mismo tiempo la fecha en que haya recibido la notificación.
+Artículo 33
+1) Cualquier Parte contratante podrá proponer un proyecto de enmienda al presente Convenio.
+El texto de dicho proyecto y las razones que lo hayan motivado se remitirán al secretario general, que los comunicará lo antes posible a las demás Partes contratantes.
+2) El proyecto de enmienda propuesto se incluirá en el orden del día de la sesión ordinaria o de una sesión extraordinaria de la asamblea general que se celebre al menos tres meses después de la fecha de su envío por el secretario general.
+3) Todo proyecto de enmienda adoptado por la asamblea general en las condiciones previstas en el párrafo anterior y en el Artículo 28 será sometido por el gobierno de la República Francesa a la aceptación de todas las Partes contratantes. Entrará en vigor para todas estas Partes en la fecha en que las cuatro quintas partes hayan notificado su aceptación al gobierno de la República Francesa. Sin embargo, no obstante lo dispuesto anteriormente, todo proyecto de enmienda al presente párrafo, al Artículo 16 relativo al régimen aduanero o al anexo previsto en dicho artículo, no entrará en vigor hasta la fecha en que todas las Partes contratantes hayan notificado su aceptación al gobierno de la República Francesa.
+4) Toda Parte contratante que desee formular una reserva para aceptar una enmienda comunicará a la Oficina los términos de la reserva prevista. La asamblea general decidirá sobre la admisibilidad de dicha reserva. La asamblea general debe aceptar las reservas que tenderían a salvaguardar situaciones adquiridas en materia de exposiciones y rechazar las que tendrían por efecto crear situaciones privilegiadas. Si se acepta la reserva, la Parte que la presentó figurará entre las que hayan aceptado la enmienda para el cálculo de la mayoría de las cuatro quintas partes mencionadas anteriormente. Si se rechaza, la Parte proponente optará por rechazar la enmienda o aceptarla sin reservas.
+(página 21)
+5) Cuando la enmienda entre en vigor, en las condiciones previstas en el tercer párrafo del presente artículo, toda Parte contratante que se haya negado a aceptarla podrá, si lo considera conveniente, invocar las disposiciones del artículo 37 infra.
