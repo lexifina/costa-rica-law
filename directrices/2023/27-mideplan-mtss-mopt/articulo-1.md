@@ -1,4 +1,5 @@
 N° 027 MIDEPLAN-MTSS-MOPT
+(Nota de Sinalevi: Mediante el artículo 1° de la directriz N° 035-MIDEPLAN-MTSS-MOPT del 7 de febrero del 2024, se acordó ampliar y prorrogar la presente norma hasta el 31 de diciembre de 2024. Asimismo, se incluyen los siguientes cantones de la provincia de Heredia: Santo Domingo, San Pablo, Heredia, Belén, San Joaquín, Santa Bárbara, San Isidro y San Rafael.)
 EL PRESIDENTE DE LA REPÚBLICA,
 LA MINISTRA A.l. DE PLANIFICACIÓN NACIONAL
 Y POLÍTICA ECONÓMICA Y LOS MINISTROS DE
