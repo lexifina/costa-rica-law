@@ -15,3 +15,4 @@ Obligatoriedad para los grandes contribuyentes nacionales de presentar los estad
 | --- | --- | --- |
 | 1 | 2014-11-18 | la propia norma |
 | 2 | 2015-08-18 | Resolución 26 (2015-08-18) |
+| 3 | 2024-02-07 | Resolución 2 (2024-02-07) |
