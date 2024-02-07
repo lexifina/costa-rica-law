@@ -1,0 +1,2 @@
+ARTÍCULO 2. El artículo 10 del Convenio del 22 de noviembre de 1928 se completa con la disposición siguiente:
+« Cuando el puesto de Director esté vacante, el Consejo de la Oficina Internacional de las Exposiciones elegirá por mayoría absoluta un Director de una nacionalidad de un país adherente al Convenio. El Director será nombrado por un número de años determinado por el reglamento interior. Su remuneración será fijada por el Consejo a propuesta de la Comisión de Presupuestos. »
