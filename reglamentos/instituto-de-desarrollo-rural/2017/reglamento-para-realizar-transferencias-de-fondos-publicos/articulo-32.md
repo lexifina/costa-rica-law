@@ -1,2 +1,0 @@
-Artículo 32.—Aplicación supletoria. En todo lo que no resuelva este capítulo, se aplicará supletoriamente la Ley Nacional de Emergencias y Prevención del Riesgo (N° 8488), la Ley General de la Administración Pública o cualquier otra norma atinente. Cuando se aplique el presente régimen de excepción deberá apegarse a lo estipulado en la Ley de Control Interno o cualquier otra normativa conexa y aplicable en materia de fiscalización.
-(Así adicionado en sesión N° 35 del 18 de agosto de 2020)

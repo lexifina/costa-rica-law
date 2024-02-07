@@ -1,2 +1,0 @@
-Artículo 33.—Aprobación de la Contraloría General de la Republica y vigencia de los instrumentos. El procedimiento sustitutivo, protocolo, lineamiento o cualquier otro instrumento aprobado por la junta directiva para la atención de una emergencia declarada por el Poder Ejecutivo, de previo a su ejecución deberá ser autorizado por la Contraloría General de la Republica y se mantendrá vigente durante el tiempo en que se mantenga activa la declaratoria de emergencia decretada por el Poder Ejecutivo.
-(Así adicionado en sesión N° 35 del 18 de agosto de 2020)

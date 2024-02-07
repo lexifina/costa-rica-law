@@ -1,2 +1,0 @@
-Artículo 31.—Formas de aplicar la flexibilización. Para flexibilizar el articulado del presente reglamento, la Administración deberá someter ante la junta directiva los procedimientos sustitutivos, protocolos, lineamientos o cualquier otro instrumento que sea necesario y técnicamente motivado para enfrentar los embates de una emergencia declarada por el Poder Ejecutivo.
-(Así adicionado en sesión N° 35 del 18 de agosto de 2020)
