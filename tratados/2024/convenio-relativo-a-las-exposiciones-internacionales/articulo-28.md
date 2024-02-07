@@ -7,6 +7,7 @@ b) establecimiento y modificación de reglamentos;
 c) aprobación del presupuesto y del monto de las cotizaciones anuales de las Partes contratantes;
 d) autorización para modificar las fechas de apertura y cierre de una exposición en las condiciones previstas en el Artículo 4 supra;
 e) registro de una exposición en el territorio de un Estado no miembro en caso de competencia con una exposición en el territorio de una Parte contratante;
+(Nota de Sinalevi: Mediante el artículo VI de las Enmiendas al Convenio relativo a las Exposiciones Internacionales, aprobado mediante el Tratado Internacional N° 10443 del 1° de febrero del 2024 se ordena adicionar después de la palabra « registrada» añadir las palabras « o reconocida. No obstante al no coincidir la reforma la misma no pudo ser realizada)
 f) reducción de los intervalos previstos en el Artículo 5 del presente Convenio;
 g) aceptación de las reservas a una enmienda presentada por una Parte contratante; dicha enmienda deberá ser aprobada, en aplicación del artículo 33, por mayoría de 4/5 o por unanimidad, según los casos;
 h) aprobación de cualquier proyecto de acuerdo internacional;
