@@ -10,4 +10,5 @@ Artículo 73. Son funciones y atribuciones del Decano de Sede:
 9. Ejercer la representación de la Universidad Técnica Nacional, cuando haya sido comisionado por la Rectoría para el ejercicio de esa función.
 10. Ejercer la facultad de vigilancia superior con relación al desempeño laboral de todos los funcionarios de la Sede.
 11. Delegar sus atribuciones en los responsables de área o en otros funcionarios de la Sede, salvo cuando su intervención personal sea obligatoria.
-12. Elevar al Rector un Informe trimestral de labores así como un informe sobre los proyectos y necesidades de la Sede. 13. Asesorar al Rector en todo lo que este le requiriese.
+12. Elevar al Rector un Informe trimestral de labores así como un informe sobre los proyectos y necesidades de la Sede.
+13. Asesorar al Rector en todo lo que este le requiriese.
