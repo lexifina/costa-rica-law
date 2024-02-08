@@ -1,0 +1,5 @@
+ARTÍCULO 21- Régimen sancionatorio para los funcionarios públicos. Incurrirá en causal de responsabilidad administrativa, el servidor público que cometa o participe en la comisión de las siguientes conductas:
+a) Realizar actos de represalia laboral en los términos del artículo 3, inciso 5), contra las personas protegidas por esta ley o colaboren para ello.
+b) Impedir o intentar impedir, directa o indirectamente, la presentación o tramitación de denuncias por presunta comisión de un acto de corrupción, así como impedir, intentar impedir o entorpecer el testimonio en el curso de una investigación penal o administrativa.
+c) Incumplir el deber de mantener la confidencialidad de la identidad de las personas denunciantes, en los términos previstos en la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004.
+Las faltas indicadas serán sancionadas conforme a lo dispuesto en los artículos 39, 40, 41, 43 y 44 de la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004.

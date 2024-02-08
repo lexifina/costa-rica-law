@@ -1,0 +1,7 @@
+ARTÍCULO 12- Medidas cautelares. En esa misma vía, ante los juzgados de trabajo, a través del procedimiento especial sumario previsto en los artículos 540 y siguientes del Código de Trabajo, la persona denunciante o testigo de actos de corrupción podrá solicitar el dictado de medidas cautelares. Entre otras medidas, se podrán ordenar las siguientes medidas:
+a) Hacer cesar la perturbación.
+b) No interferir en el uso y disfrute de los instrumentos de trabajo puestos a disposición de la persona denunciante o testigo afectada.
+c) Suspender la ejecución de actos administrativos, en caso del sector público, que puedan conllevar un perjuicio a los funcionarios protegidos.
+d) Reubicar provisionalmente, trasladar o permutar en su cargo, o en forma excepcional separar temporalmente del cargo con goce de salario al empleado de quien emana la amenaza o represalia, o al denunciante o testigo que está siendo objeto de amenazas o represalias en caso de que esta sea la mejor medida para O garantizar sus derechos. El plazo de reubicación provisional se podrá extender, en caso de ser necesario y conforme a la valoración del juez, hasta que adquiera firmeza la resolución final en el proceso administrativo y el eventual proceso que pueda incoarse en la Jurisdicción Contencioso Administrativa o Laboral derivado, penal o cualquiera de los anteriores.
+e) Reinstalar a la persona despedida.
+f) Cualquier otra medida cautelar que defina el juez.

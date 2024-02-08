@@ -1,0 +1,5 @@
+ARTÍCULO 31- Reforma del artículo 14 de la Ley 8720, Protección a Víctimas, Testigos y Demás Sujetos Intervinientes en el Proceso Penal, Reformas y Adición al Código Procesal Penal y al Código Penal, de 4 de marzo del 2009
+Se reforma el artículo 14 de la Ley 8720, Ley de Protección a Víctimas, Testigos y demás Sujetos Intervinientes en el Proceso Penal, Reformas y Adición al Código Procesal Penal y al Código Penal, de 4 de marzo de 2009. El texto es el siguiente:
+Artículo 14- Deber de colaboración de las autoridades
+La víctima del delito tendrá prioridad en la atención de sus necesidades de atención a la salud o frente a trámites o gestiones en cualquier dependencia del Estado, relacionada con su condición.
+Las autoridades públicas también están obligadas a colaborar con la Oficina de Atención a la Víctima del Delito del Ministerio Público, debiéndose resolver en el plazo máximo de tres días hábiles sus solicitudes relacionadas con medidas de protección o atención para la persona bajo protección, así como a tomar las medidas para que exista confidencialidad respecto de la información relacionada con el cumplimiento de las funciones de esta Ley.
