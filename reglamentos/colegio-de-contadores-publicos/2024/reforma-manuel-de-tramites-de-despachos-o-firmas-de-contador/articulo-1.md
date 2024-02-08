@@ -1,0 +1,6 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+MODIFICACIÓN AL MANUAL DE TRÁMITES DE DESPACHOS O FIRMAS DE CONTADORES PÚBLICOS
+El Colegio de Contadores Públicos de Costa Rica por acuerdo de la Junta Directiva N° 28-1-2024.SE.1 del 23 de enero 2024, acuerda modificar el apartado N° 30 del "Manual de Trámites de Despachos o Firmas de Contadores Públicos", quedando de la siguiente forma:
+Apartado 30: Pago fraccionado: El Despacho o Firma de Contadores Públicos podrá optar por pagar la cuota de la licencia de forma mensual al inicio de cada mes, con opciones de pago fraccionados hasta 12 meses, con un recargo del 1% sobre el monto a pagar. El plazo de pago escogido, no podrá en ningún caso sobrepasar el año calendario.
+La solicitud debe hacerse por escrito ante del Departamento Financiero Administrativo del Colegio y será aprobado con el visto bueno de la Dirección Ejecutiva. Dicha solicitud deberá solicitarla a más tardar el último día hábil del mes de febrero de cada año, si la presentara después de esa fecha se le aplicará la multa correspondiente y posteriormente el recargo.
+Si existieran nuevos atrasos en el pago de fraccionado se volverá a aplicar la multa correspondiente sobre la fracción no pagada al inicio de cada mes, según lo estipulado en el artículo N° 76 del Reglamento a la Ley N° 1038 del Colegio de Contadores Públicos de Costa Rica.
