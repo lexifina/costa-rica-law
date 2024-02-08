@@ -34,5 +34,9 @@ b. Oferente externo: Toda aquella persona que se encuentre interesado en partici
 26) Requisitos especiales: Aquellos que se incluyen excepcionalmente en el pedimento de personal, con el fin de satisfacer necesidades específicas del puesto de trabajo y que no alteran de manera significativa los requisitos del Manual Descriptivo de Clases de Puestos.
 27) Parámetros adicionales para selección. Se trata de aquellos atestados presentados por quienes participan dentro de un concurso que resultan adicionales a los requisitos de admisibilidad con la intención de obtener mejores puntajes al momento de la evaluación.
 28) Ascenso: Promoción de un funcionario (a) a otro puesto de mayor dificultad, complejidad y responsabilidad a las del nivel del cargo de su procedencia.
-29) Traslado: Es el paso de un funcionario (a) regular de un puesto a otro del mismo nivel salarial.
-30) Permuta: El intercambio de plazas de igual clase y un mismo nivel salarial entre dos funcionarios (as) regulares con la anuencia de estos y de las respectivas jefaturas, siempre y cuando cumpla con los requisitos respectivos.
+29) Traslado: Es el paso de un funcionario (a) regular de un puesto a otro del mismo nivel salarial dentro o fuera de la institución.
+(Así reformado el inciso anterior mediante sesión N° 009-2024 del 08 de febrero de 2024)
+30) Permuta: El intercambio de plazas de igual clase y un mismo nivel salarial entre dos funcionarios (as) regulares con la anuencia de estos y de las respectivas jefaturas, siempre y cuando cumpla con los requisitos respectivos. Podrá aplicarse tanto a lo interno como a lo externo de la organización.
+(Así reformado el inciso anterior mediante sesión N° 009-2024 del 08 de febrero de 2024)
+31) Sistema de selección: Se refiere al sistema a utilizarse dentro de cada concurso de conformidad con las previsiones del artículo 17 del Reglamento a la Ley Marco de Empleo Público.
+(Así adicionadi el inciso anterior mediante sesión N° 009-2024 del 08 de febrero de 2024)

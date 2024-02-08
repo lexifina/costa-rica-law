@@ -8,4 +8,5 @@ f) Requisitos específicos.
 g) Donde y como se recibirá la oferta.
 h) Periodo de recepción de ofertas con referencia expresa de la fecha de apertura y cierre, así como del respectivo horario.
 i) Indicación de los documentos de indispensable presentación.
-j) Salario Base.
+j) Salario base o salario global, según corresponda.
+(Así reformado el inciso anterior mediante sesión N° 009-2024 del 08 de febrero de 2024)

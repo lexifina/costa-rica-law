@@ -2,6 +2,8 @@ Artículo 4º-Órganos competentes en materia de concursos. La tramitación y re
 A. Alcaldía Municipal: Será responsable de lo siguiente:
 a) Nombrar al personal municipal que derive de los procedimientos de reclutamiento y selección, ascensos, traslados y permuta con excepción del puesto de Auditor (a) Interno y Secretaria Municipal.
 b) Resolver en última instancia las apelaciones que se realicen al concurso.
+c) Ante las solicitudes de requerimiento de personal que se presenten por parte de las jefaturas y tomando en cuenta las necesidades propias nacidas de la Alcaldía Municipal, esta deberá remitir la solicitud de apertura de procedimiento al Departamento de Recursos Humanos llevando a cabo la programación y priorización tomando en cuenta las necesidades institucionales y de la comunidad.
+(Así adicionado el inciso anterior mediante sesión N° 009-2024 del 08 de febrero de 2024)
 B. Departamento de Recursos Humanos: Será responsable de lo siguiente:
 a) Ejercer, dirigir y supervisar las actividades técnicas propias de su competencia vinculada con el presente Reglamento, con el fin de lograr una adecuada implementación de lo dispuesto.
 b) Verificar que los procedimientos efectuados en la aplicación del presente Reglamento cumplan con los principios de control interno, publicidad, transparencia, igualdad y objetividad.
