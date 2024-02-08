@@ -10,6 +10,8 @@ Se encuentran dentro de esa previsión:
 6) Las denunciantes y los denunciantes de hostigamiento sexual, tal como se establece en la Ley N.º 7476, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, de 3 de febrero de 1995.
 7) Las personas trabajadoras indicadas en el artículo 620 de este Código.
 8) Quienes gocen de algún fuero semejante mediante ley, normas especiales o instrumento colectivo de trabajo.
+9) Las personas denunciantes y testigos, de conformidad con lo establecido en la Ley de Promoción de Denuncias y Protección de las Personas Denunciantes y Testigos de Actos de Corrupción contra Represalias Laborales.
+(Así adicionado el inciso anterior por el artículo 27 de la Ley de protección de las personas denunciantes y testigos de actos de corrupción contra represalias laborales, N° 10437 del 29 de enero de 2024)
 La tutela del debido proceso podrá demandarse en esta vía, cuando se inobserve respecto de las personas aforadas a que se refiere este artículo.
 También, podrán impugnarse en la vía sumarísima prevista en esta sección, los casos de discriminación por cualquier causa, en contra de trabajadores o trabajadoras, que tengan lugar en el trabajo o con ocasión de él.
-(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)
