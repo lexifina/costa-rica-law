@@ -1,0 +1,2 @@
+Artículo 6º-Valor nominal. Para los valores estandarizados el valor nominal mínimo del TPTRI será de (doscientos cincuenta mil colones exactos) con múltiplos de 60.000,00 (cincuenta mil colones exactos) para las denominaciones en colones y de $l .000,00 (mil dólares estadounidenses exactos) tanto para el valor nominal mínimo como los múltiplos de las denominaciones en dólares.
+Asimismo, la Tesorería Nacional para los valores no estandarizados podrá fijar montos mínimos y múltiplos para colocar los TPTRI, mediante resolución o circular de inversiones directas.

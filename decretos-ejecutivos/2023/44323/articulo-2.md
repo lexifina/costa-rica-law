@@ -1,0 +1,1 @@
+Artículo 2º-Forma de Emisión. El TPTRI podrá ser emitido de forma estandarizada y desmaterializada. Asimismo, sin detrimento de lo anterior, la Tesorería Nacional podrá realizar emisiones desestandarizadas y/o materializadas, lo cual se llevará a cabo a través de los sistemas informáticos disponibles para tales efectos.

@@ -1,0 +1,1 @@
+Artículo 5º-Denominación. El TPTRI se cancelará y denominará en colones costarricenses, dólares estadounidenses o cualquier otra moneda según defina el Ministerio de Hacienda por medio de la Tesorería Nacional para cada emisión.

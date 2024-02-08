@@ -1,0 +1,17 @@
+N° 44323 -H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las atribuciones que les confieren los artículos 140, inciso 3), 146 y 185 de la Constitución Política; artículos 27 numeral I y 28 párrafo 2) inciso b) de la Ley General de la Administración Pública, N° 6227, del 02 de mayo de 1978, publicada en el Alcance N° 90 a La Gaceta N° 102 del 30 de mayo de 1978, artículos 58, 60, 61 inciso j) y 89 de la Ley de Administración Financiera de la República y Presupuestos Públicos, N° 8131, del 18 de setiembre del 2001, publicada en La Gaceta N° 198 del 16 de octubre del 2001 artículo 6 de la Ley de Reestructuración de [a Deuda Pública, Ley N° 8299 publicada en el Alcance N° 62 de la Gaceta N° 167 del 2 de setiembre del 2002.
+Considerando:
+.-Que los artículos 59 al 89 de la Ley de Administración Financiera de la República y Presupuestos Públicos, N° 8131, así como el artículo 6 de la Ley de Reestructuración de la Deuda, Ley N° 8299, establecen competencias específicas para el Ministerio de Hacienda, a través de la Tesorería Nacional, en cuanto a la colocación de instrumentos de deuda pública, con el fin de captar recursos necesarios para solventar las necesidades de financiamiento interno del país, y -específicamente el artículo 6 de cita, establece el procedimiento de compra de los títulos valores del Gobierno Central (GC) y del Banco Central de Costa Rica.
+II.-Que la Tesorería Nacional del Ministerio de Hacienda, es el órgano competente para efectuar la colocación de Títulos de Propiedad de Bonos Deuda Interna del Gobierno Central, para lo cual pone a disposición del mercado financiero, distintos instrumentos utilizados para la captación de recursos, a corto, mediano y largo plazo.
+III.-Que, para propiciar la colocación de títulos a mayor plazo, es necesario ofrecer a los inversionistas nuevos instrumentos financieros que les permitan diversificar sus portafolios de inversión y disponer de un flujo de intereses acorde con las condiciones vigentes del mercado, ajustables periódicamente.
+IV.-Que, según la Estrategia del Endeudamiento Público del año 2022 al 2027, el portafolio del Ministerio de Hacienda incluirá Títulos Valores a tasa variable que propicien los objetivos de la gestión de la deuda y permitan ajustes en el servicio de la deuda interna, según las condiciones del mercado.
+V.-Que la Tasa de Referencia Interbancaria (TRI) es un índice que se creó con el objetivo de contar con más y mejor información sobre el costo de captación del dinero en el Sistema Financiero costarricense, a efecto de que sirva de referencia para el establecimiento de tasas de interés de operaciones de crédito en colones y en dólares en el mercado, así como en captaciones. Por tanto,
+Decretan:
+AUTORIZACIÓN AL MINISTERIO DE HACIENDA A
+TRAVÉS DE LA TESORERÍA NACIONAL PARA LA
+EMISIÓN DE TÍTULOS DE PROPIEDAD TASA
+DE REFERENCIA INTERBANCARIA (TPTRI)
+Artículo 1º-Título de Propiedad Tasa De Referencia Interbancaria. El Ministerio de Hacienda a través de la Tesorería Nacional podrá emitir Títulos de Propiedad Tasa de Referencia Interbancaria, en adelante denominado T PTRI, destinado a constituirse en un nuevo instrumento de colocación con una tasa cupón ajustable periódicamente, mediante el cual podrá captar recursos del mercado financiero, permitiendo a los inversionistas diversificar su portafolio de inversión.
+El título TPTRI será amortizable en tractos previos a su fecha de vencimiento, o en su totalidad al vencer el título valor y reconocerá cupones de interés semestrales.
