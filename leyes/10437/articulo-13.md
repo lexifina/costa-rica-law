@@ -1,0 +1,1 @@
+ARTÍCULO 13- Indemnización. Cuando se compruebe la represalia laboral, mediante sentencia, la persona denunciante o testigo tendrá derecho a ser indemnizada por los daños y perjuicios, si han sido acreditados, que se le hayan causado, conforme a lo dispuesto en el artículo 545 de la Ley 2, Código de Trabajo, de 27 de agosto de 1943.

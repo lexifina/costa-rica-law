@@ -1,0 +1,4 @@
+ARTÍCULO 25- Destino de las multas. Los recursos provenientes de la recaudación de las multas pecuniarias impuestas como sanción por la infracción prevista en el artículo 20 de esta ley, así como los intereses que dichas multas generen, serán destinadas de la siguiente manera:
+a) Un cincuenta por ciento (50%) a la Procuraduría General de la República, Área Procuraduría de Ética Pública, para su Programa de Prevención, Detección y Combate de la Corrupción, para cumplir con las funciones que le encarga la presente ley.
+b) El cincuenta por ciento (50%) restante será asignado a la Unidad Especializada en Materia Laboral, del Departamento de Defensores Públicos del Poder Judicial.
+Estos recursos no se encuentran sujetos a lo dispuesto en el título IV, O Responsabilidad Fiscal de la República, de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.

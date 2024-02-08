@@ -1,0 +1,2 @@
+ARTÍCULO 16- Asistencia legal gratuita. La persona denunciante y testigo tendrá derecho a asistencia legal gratuita, costeada por el Estado, para la tutela de sus derechos laborales, en los términos establecidos en el artículo 454 de la Ley 2, Código de Trabajo, de 27 de agosto de 1943.
+Las personas protegidas por la presente ley no estarán sometidas al límite económico definido en el numeral 454, para gozar del derecho al patrocinio letrado gratuito.

@@ -1,0 +1,1 @@
+ARTÍCULO 22- Otras responsabilidades Adicionalmente, quien cometa las conductas descritas en el artículo anterior podrá incurrir en responsabilidad penal por cualquier delito aplicable y responsabilidad civil, según corresponda.
