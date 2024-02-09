@@ -1,1 +1,0 @@
-Artículo 16.—De los recursos. El sujeto pasivo que no esté de acuerdo con el nuevo valor notificado, según lo establecido en el artículo anterior, tendrá derecho a interponer los recursos establecidos en el artículo 19 de la Ley del Impuesto sobre Bienes Inmuebles y artículo 33 de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 30.—Deber de información. Para la correcta administración del tributo, en todos los trámites y en las diferentes etapas de gestión del impuesto, las municipalidades deben proporcionarle al contribuyente toda la asesoría e información necesaria.

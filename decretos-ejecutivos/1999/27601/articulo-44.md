@@ -1,1 +1,0 @@
-Artículo 44.—Sobre las constancias de pago del tributo. La certificación de estar al día en el pago del impuesto, requerida para los documentos públicos sujetos de inscripción en el Registro Público, debe mencionar la identificación del inmueble, el valor registrado y cualquier otro dato que requiera el interesado a disposición de la Municipalidad.

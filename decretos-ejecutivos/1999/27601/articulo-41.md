@@ -1,1 +1,0 @@
-Artículo 41.—De los interéses. La municipalidad publicará en el Diario Oficial "La Gaceta", en forma anual, el porcentaje correspondiente de los intereses a cobrar. Dicho porcentaje lo calculará la municipalidad sin sobrepasar en 15 puntos la tasa básica pasiva dictada por el Banco Central de Costa Rica, vigente el día en que el Concejo Municipal determine el porcentaje.

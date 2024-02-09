@@ -1,1 +1,0 @@
-Artículo 31.—No presentacion de la declaracion de bienes. En el caso que el sujeto pasivo no presente la declaración de bienes en el período establecido al efecto, la administración tributaria tendrá la potestad de modificar el valor de los inmuebles, a través de una valoración general o individual de los inmuebles sin declarar, (valoración de oficio).
