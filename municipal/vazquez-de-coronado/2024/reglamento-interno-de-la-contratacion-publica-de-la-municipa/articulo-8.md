@@ -1,0 +1,1 @@
+Artículo 8°-Solicitud de materiales. Los distintos departamentos utilizarán el formulario denominado "Solicitud de Materiales de Bodega", para gestionar el pedido de sus necesidades a la Proveeduría. Este deberá indicar la siguiente información: código de bodega, descripción de artículos, cantidad solicitada, fecha, departamento solicitante.

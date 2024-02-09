@@ -1,0 +1,1 @@
+Artículo 13.-Requisitos previos. El área solicitante del bien o servicio deberá de contar por parte de la Dirección Financiera, certificado de contenido y la asignación presupuestaria respecto al objeto contractual, de previo a la presentación de la decisión inicial o solicitud de contratación la Proveeduría, pondrá en ejecución dicho requerimiento.

@@ -1,0 +1,4 @@
+SECCIÓN III
+Recursos
+Artículo 32.-Recursos de objeción al pliego de condiciones ante la Contraloría General de la República. Cuando se presente un Recurso de Objeción al pliego de condiciones, cuya resolución sea competencia de la CGR, la Proveeduría, a instancia de dicho ente, remitirá dentro del plazo conferido para tal efecto, el expediente de la contratación incluido el criterio de la administración en cuanto a la impugnación presentada. La Proveeduría, si así fuere procedente, solicitará a la unidad solicitante o a cualquier otra dependencia toda la información que se requiera con el fin de satisfacer el pedido del órgano contralor.
+La unidad a la que se le hubiese requerido criterio, deberá remitir dentro de tres días siguientes a la Proveeduría, la información solicitada. Corresponde a la jefatura de la Proveeduría, suscribir el oficio de respuesta del recurso interpuesto, salvo que la CGR expresamente disponga algo diferente.

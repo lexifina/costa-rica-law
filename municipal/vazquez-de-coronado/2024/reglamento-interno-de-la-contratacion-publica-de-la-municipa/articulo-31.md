@@ -1,0 +1,6 @@
+SECCIÓN II
+Garantías
+Artículo 31.-Disposiciones sobre garantías de cumplimiento y colaterales. Se aplicarán las reglas que al efecto establecen la LGCP y el RLGCP. Resulta posible satisfacer las garantías del pliego de condiciones, en efectivo o mediante los instrumentos financieros autorizados por el Ordenamiento Jurídico.
+En el pliego de condiciones establecerá el porcentaje y demás condiciones propias de las garantías de cumplimiento y colaterales, las mismas deberán ser presentadas en la Tesorería Municipal, y comunicadas con la oferta, en el registro digital unificado,
+Es competencia de la Tesorería Municipal, en coordinación con la Proveeduría, autorizar la devolución de las garantías de cumplimiento y colaterales. La garantía de cumplimiento será devuelta a solicitud del interesado, dentro de los veinte días hábiles siguientes a la fecha en que la Administración haya recibido de forma definitiva y a satisfacción el objeto contractual.
+Para el caso de otras garantías o retenciones serán devueltas, dentro del plazo de veinte días hábiles siguientes a la fecha en que la Administración haya recibido de forma definitiva y a satisfacción el objeto contractual o conforme lo establezca la Administración en el pliego respectivo.

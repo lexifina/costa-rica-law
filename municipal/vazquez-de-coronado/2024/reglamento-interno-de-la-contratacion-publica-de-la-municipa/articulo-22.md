@@ -1,0 +1,2 @@
+Artículo 22.-Recepción de ofertas. Las ofertas deberán presentarse sistema digital unificado, a más tardar en la fecha y hora señaladas en dicho sistema, conforme el formato que establezca esa herramienta tecnológica, conteniendo todos
+los archivos en los formatos en el pliego de condiciones, para la recepción y apertura. Deberá estar acompañada de los demás documentos y atestados solicitados por el pliego de condiciones.

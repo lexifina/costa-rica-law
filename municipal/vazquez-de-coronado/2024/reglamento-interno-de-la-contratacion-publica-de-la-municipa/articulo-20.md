@@ -1,0 +1,1 @@
+Artículo 20.-Invitación a participar. La Proveeduría, será la encargada de dar la divulgación del pliego de condiciones y especificaciones técnicas, según los parámetros establecidos por el Sistema Unificado de Compras Públicas.
