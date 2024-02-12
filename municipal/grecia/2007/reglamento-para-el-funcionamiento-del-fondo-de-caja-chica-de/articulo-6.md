@@ -1,1 +1,0 @@
-Artículo 6º—Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno variar el fondo establecido a este fondo, según solicitud escrita y justificada que haga la Hacienda Municipal o en su defecto el Alcalde Municipal, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

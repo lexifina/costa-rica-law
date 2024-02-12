@@ -1,1 +1,0 @@
-Artículo 34.—Por ningún motivo se aceptará el fraccionamiento ilícito en las compras de caja chica.

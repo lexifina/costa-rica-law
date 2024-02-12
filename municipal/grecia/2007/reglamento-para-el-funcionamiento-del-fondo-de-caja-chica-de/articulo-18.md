@@ -1,1 +1,0 @@
-Artículo 18.—El monto de lo gastado no podrá exceder el monto autorizado en el vale de la caja chica. De presentarse está situación el funcionario o nombre de quien se giró el vale debe asumir el gasto diferencial resultante sin que la Municipalidad quede obligada a reintegrarle esta suma.
