@@ -1,0 +1,1 @@
+Artículo 9°-Las solicitudes de las dependencias administrativas municipales serán resueltas por la Secretaría del Concejo y en días no hábiles o fuera del horario ordinario serán resueltas por el Concejo Municipal. Las solicitudes de instituciones u órganos externos serán resueltas por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 14.-Cuando se trasladen activos del salón de sesiones a otra dependencia u oficina de manera permanente, se deberá llenar la boleta correspondiente del traslado de activos, tramitada ante la Secretaría del Concejo Municipal y las instancias correspondientes.

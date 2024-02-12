@@ -1,0 +1,1 @@
+Artículo 12.-El horario de uso será en días y horas hábiles, será, de lunes a viernes de 07:30 a.m. a 04:00 p.m., necesitándose una autorización expresa del Concejo Municipal para el uso fuera del horario.

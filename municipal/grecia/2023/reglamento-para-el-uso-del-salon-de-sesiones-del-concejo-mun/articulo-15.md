@@ -1,0 +1,3 @@
+Artículo 15.-Si se requiere el uso del sistema de microfonía y audio del salón, se deberá coordinar con la Secretaría del Concejo para brindar las instrucciones de su uso con la adecuada antelación, por lo que se debe de indicar quién será la persona responsable del uso y manipulación del mismo durante el desarrollo de la actividad o quedará a cargo de la persona que haya solicitado el salón.
+El presente Reglamento para el Uso del Salón de Sesiones del Concejo Municipal de la Municipalidad de Grecia, entrará a regir a partir del día de su publicación en el Diario Oficial La Gaceta.
+Se derogan todas las disposiciones y acuerdos aprobados con anterioridad por el Concejo Municipal que contravengan al presente reglamento.

@@ -1,0 +1,5 @@
+Artículo 5°-Controles generales de uso del salón:
+a) El préstamo del Salón se realizará mediante solicitud formal por escrito o medio electrónico oficial ante la Secretaría del Concejo, para el trámite correspondiente.
+b) No se podrán retirar del Salón de Sesiones, sillas, mesas, curules, micrófonos, pizarras, equipos de cómputo, muebles, electrodomésticos, aparatos telefónicos, retratos, así como cualquier otro activo que se encuentre dentro de éste, sin que medie permiso expreso y por escrito ante la Secretaría del Concejo Municipal. Lo anterior, en relación con un posible retiro o préstamo temporal.
+d) Las actividades o eventos podrán suspenderse, por alteración del orden, y por no sujetarse a los presentes lineamientos. El personal de seguridad podrá tomar las medidas necesarias, en uso de las atribuciones que les confiere la ley. La situación que se presente debe ser descrita en la bitácora de incidencias.
+e) La Secretaría del Concejo establecerá las medidas de control necesarias, para el funcionamiento de las actividades y eventos programados exclusivamente por las áreas y órganos internos de la Municipalidad.
