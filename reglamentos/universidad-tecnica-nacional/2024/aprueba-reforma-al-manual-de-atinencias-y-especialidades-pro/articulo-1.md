@@ -1,0 +1,9 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional comunica:
+I.-La modificación las Atinencias de nivel técnico y profesional para el subproceso de Contratación Administrativa; Registro de Proveedores, las atinencias de nivel técnico y profesional para el subproceso de Control y Seguimiento; Almacenamiento y Distribución; Logística; y las atinencias de nivel gerencial para el proceso de Planificación en el "Manual de Atinencias y Especialidades Profesionales del Sector Administrativo de la Universidad Técnica" mediante Acuerdo N° 9-2-2024 de la Sesión Ordinaria N° 2-2024, Artículo 16, celebrada el jueves 25 de enero de 2024.
+(Nota de Sinalevi: Por tener articulado propio la modificación al Manual de Atinencias y Especialidades Profesionales del Sector Administrativo de la Universidad Técnica debe consultarse en el sistema de forma independiente:)
+II.-La reforma tanto en el apartado de atinencias de la carrera de Ingeniería del Software (ISW) como de las atinencias de apartado de la carrera de Ingeniería en Salud Ocupacional y Ambiente (ISOA) del "Manual de Atinencias y Especialidades Docentes de la Universidad Técnica" mediante Acuerdo N° 9-2-2024 de la Sesión Ordinaria No. 2-2024, Artículo 16, celebrada el jueves 25 de enero de 2024.
+(Nota de Sinalevi: Por tener articulado propio la modificación al "Manual de Atinencias y Especialidades Docentes de la Universidad Técnica" debe consultarse en el sistema de forma independiente:)
+Las reformas a los Manuales anteriores rigen a partir de su publicación.
+El tanto Manual de Atinencias y Especialidades Profesionales del Sector Administrativo de la Universidad Técnica como el Manual de Atinencias y Especialidades Docentes de la Universidad Técnica en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección "Normativa Universitaria".
