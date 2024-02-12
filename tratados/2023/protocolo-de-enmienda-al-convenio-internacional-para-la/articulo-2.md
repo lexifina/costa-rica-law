@@ -1,0 +1,14 @@
+Artículo 2
+Los Artículos II y III del Convenio se enmendarán del siguiente modo:
+"Artículo II
+Ninguna disposición de este Convenio perjudicará los derechos, jurisdicción y obligaciones de los Estados en el marco del derecho internacional. Este Convenio se interpretará y aplicará de un modo coherente con el derecho internacional.
+Artículo III
+1. Las Partes contratantes convienen en establecer y mantener una Comisión, que se conocerá con el nombre de Comisión Internacional para la Conservación del Atún del Atlántico, en lo sucesivo denominada "la Comisión", la cual se encargará de alcanzar los objetivos estipulados en este Convenio. Cada Parte contratante será un Miembro de la Comisión.
+2. Cada Miembro de la Comisión estará representado en la Comisión por no más de tres delegados, quienes podrán ser auxiliados por técnicos y asesores.
+3. Las decisiones de la Comisión se tomarán por consenso, como norma general. Excepto si se especifica lo contrario en este Convenio, si no puede alcanzarse dicho consenso, las decisiones se tomarán por mayoría de dos tercios de los Miembros de la Comisión que estén presentes y que emitan un voto positivo o negativo; cada Miembro de la Comisión tendrá un voto. Los dos tercios de todos los Miembros de la Comisión constituirán cuórum.
+4. La Comisión se reunirá en sesión ordinaria cada dos años. Podrán convocarse reuniones extraordinarias en cualquier momento, a petición de la mayoría de todos los Miembros de la Comisión o por decisión del Consejo establecido en virtud del Artículo VI.
+5. La Comisión, en su primera reunión, y después en cada reunión ordinaria, elegirá de entre las Partes contratantes un Presidente, un Vicepresidente primero y un Vicepresidente segundo quienes podrán ser reelegidos por una sola vez.
+6. Las reuniones de la Comisión y de sus órganos auxiliares serán públicas, excepto cuando la Comisión decida otra cosa.
+7. Los idiomas oficiales de la Comisión serán el español, el francés y el inglés.
+8. La Comisión tendrá capacidad para aprobar el reglamento interno y el reglamento financiero que sean necesarios para el ejercicio de sus funciones.
+9. La Comisión presentará a los Miembros de la Comisión, cada dos años, un informe de sus actividades y sus conclusiones y además informará, a cualquier Miembro de la Comisión, cuando se le solicite, de todos los asuntos relacionados con los objetivos del presente Convenio."
