@@ -1,0 +1,1 @@
+ARTÍCULO 3-La República de Costa Rica entiende que lo dispuesto en el artículo 3, referente a "recursos genéticos", no comprende los recursos genéticos como tales los materiales bioquímicos y genéticos humanos.

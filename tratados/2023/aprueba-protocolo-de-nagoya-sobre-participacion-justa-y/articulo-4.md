@@ -1,0 +1,1 @@
+ARTÍCULO 4-La República de Costa Rica entiende que lo dispuesto en el artículo 3, referente al "ámbito de aplicación", no comprende los recursos genéticos ni el conocimiento tradicional asociado a estos, cuando provenga de los pueblos indígenas que no hayan dado su consentimiento previo e informado.

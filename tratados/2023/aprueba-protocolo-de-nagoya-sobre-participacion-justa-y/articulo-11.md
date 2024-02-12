@@ -1,0 +1,1 @@
+ARTÍCULO 11-La República de Costa Rica entiende que lo dispuesto en el artículo 12, sobre las "cláusulas contractuales modelo", estas deben considerar las particularidades de cada uno de los recursos genéticos y de los conocimientos asociados, así como de los pueblos indígenas de la Parte y las diferentes formas de organización que estos representen.

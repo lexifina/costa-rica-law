@@ -1,0 +1,1 @@
+ARTÍCULO 6-La República de Costa Rica entiende que lo dispuesto en el artículo 12, sobre las "comunidades indígenas y locales pertinentes", se refiere a los pueblos indígenas y a las comunidades locales que se puedan ver afectadas, en alguna medida, por el acceso o las pretensiones de acceso a sus recursos genéticos.

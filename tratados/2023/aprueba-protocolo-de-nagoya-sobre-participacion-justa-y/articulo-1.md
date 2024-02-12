@@ -1,0 +1,38 @@
+N° 10372
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 44415 del 12 de febrero de 2024, Costa Rica ratificó la presente norma.)
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+APROBACIÓN DEL PROTOCOLO DE NAGOYA SOBRE PARTICIPACIÓN
+JUSTA Y EQUITATIVA EN LOS BENEFICIOS QUE SE DERIVEN DE SU
+UTILIZACIÓN AL CONVENIO SOBRE DIVERSIDAD BIOLÓGICA Y SU ANEXO
+ARTÍCULO 1- Se aprueba, en cada una de sus partes, el Protocolo de Nagoya sobre Acceso a los Recursos Genéticos y Participación Justa y Equitativa en los Beneficios que se Deriven de su Utilización al Convenio sobre la Diversidad Biológica y su Anexo, adoptado el 29 de octubre de 2010, en la Décima Reunión de la Conferencia de las Partes, celebrada en Nagoya, Japón. El texto es el siguiente:
+Aprobación del Protocolo de Nagoya sobre Participación Justa y Equitativa
+en los Beneficios que se Deriven de su Utilización al Convenio sobre
+Diversidad Biológica y su Anexo
+Las Partes en el presente Protocolo,
+Siendo Partes en el Convenio sobre la Diversidad Biológica, en lo sucesivo "el Convenio",
+Recordando que la participación justa y equitativa en los beneficios que se deriven de la utilización de los recursos genéticos es uno de los tres objetivos fundamentales del Convenio, y reconociendo que este Protocolo persigue la aplicación de este objetivo dentro del Convenio
+Reafirmando los derechos soberanos de los Estados sobre sus recursos naturales y de conformidad con las disposiciones del Convenio,
+Recordando además el artículo 15 del Convenio,
+Reconociendo la importante contribución de la transferencia de tecnología y la cooperación al desarrollo sostenible, para crear capacidad de investigación e innovación que añada valor a los recursos genéticos en los países en desarrollo, conforme a los artículos 16 y 19 del Convenio,
+Reconociendo que la conciencia pública acerca del valor económico de los ecosistemas y la diversidad biológica y que la distribución justa y equitativa de su valor económico con los custodios de la diversidad biológica son los principales incentivos para la conservación de la diversidad biológica y la utilización sostenible de sus componentes,
+Conscientes de la potencial contribución del acceso y la participación en los beneficios a la conservación y utilización sostenible de la diversidad biológica, la reducción de la pobreza y la sostenibilidad ambiental, contribuyendo por ende a alcanzar los Objetivos de Desarrollo del Milenio,
+Conscientes de los vínculos entre el acceso a los recursos genéticos y la participación justa y equitativa en los beneficios que se deriven de la utilización de dichos recursos,
+Reconociendo la importancia de proporcionar seguridad jurídica respecto al acceso a los recursos genéticos y la participación justa y equitativa en los beneficios que se deriven de su utilización,
+Reconociendo además la importancia de fomentar la equidad y justicia en las negociaciones de las condiciones mutuamente acordadas entre los proveedores y los usuarios de recursos genéticos,
+Reconociendo asimismo la función decisiva que desempeña la mujer en el acceso y la participación en los beneficios y afirmando la necesidad de que la mujer participe plenamente en todos los niveles de la formulación y aplicación de políticas para la conservación de la diversidad biológica,
+Decididas a seguir apoyando la aplicación efectiva de las disposiciones sobre acceso y participación en los beneficios del Convenio,
+Reconociendo que se requiere una solución innovadora para abordar la participación justa y equitativa en los beneficios que se deriven de la utilización de los recursos genéticos y los conocimientos tradicionales asociados a los recursos genéticos que se producen en situaciones transfronterizas o para los que no es posible otorgar y obtener consentimiento fundamentado previo,
+Reconociendo la importancia de los recursos genéticos para la seguridad alimentaria, la salud pública, la conservación de la diversidad biológica y la mitigación del cambio climático y la adaptación a este,
+Reconociendo la naturaleza especial de la diversidad biológica agrícola, sus características y problemas distintivos, que requieren soluciones específicas,
+Reconociendo la interdependencia de todos los países respecto a los recursos genéticos para la alimentación y la agricultura, así como su naturaleza especial e importancia para lograr la seguridad alimentaria en todo el mundo y para el desarrollo sostenible de la agricultura en el contexto de la reducción de la pobreza y el cambio climático, y reconociendo el rol fundamental del Tratado Internacional sobre los Recursos Fitogenéticos para la Alimentación y la Agricultura y la Comisión de Recursos Genéticos para la Alimentación y la Agricultura de la FAO al respecto, Teniendo en cuenta el Reglamento Sanitario Internacional (2005) de la Organización Mundial de la Salud y la importancia de asegurar el acceso a los patógenos humanos a los fines de la preparación y respuesta en relación con la salud pública,
+Reconociendo la labor en curso en otros foros internacionales en relación con el acceso y la participación en los beneficios,
+Recordando el Sistema Multilateral de Acceso y Distribución de los Beneficios establecido en el marco del Tratado Internacional sobre Recursos Fitogenéticos para la Alimentación y la Agricultura desarrollado en armonía con el Convenio, Reconociendo que los instrumentos internacionales relacionados con el acceso y la participación en los beneficios deben apoyarse mutuamente con miras a alcanzar los objetivos del Convenio,
+Recordando la importancia del artículo 8 j) del Convenio en relación con los conocimientos tradicionales asociados a recursos genéticos y la participación justa y equitativa en los beneficios que se deriven de la utilización de dichos conocimientos,
+Tomando nota de la interrelación entre los recursos genéticos y los conocimientos tradicionales, su naturaleza inseparable para las comunidades indígenas y locales y de la importancia de los conocimientos tradicionales para la conservación de la diversidad biológica y la utilización sostenible de sus componentes y para los medios de vida sostenibles de estas comunidades,
+Reconociendo la diversidad de circunstancias en que las comunidades indígenas y locales tienen o poseen conocimientos tradicionales asociados a recursos genéticos,
+Conscientes de que el derecho a identificar a los titulares legítimos de los conocimientos tradicionales asociados a recursos genéticos dentro de sus comunidades corresponde a las comunidades indígenas y locales,
+Reconociendo además las circunstancias únicas en que los países poseen conocimientos tradicionales asociados a recursos genéticos, ya sea orales, documentados o de alguna otra forma, reflejando una rica herencia cultural pertinente para la conservación y utilización sostenible de la diversidad biológica, Tomando nota de la Declaración de las Naciones Unidas sobre los Derechos de los Pueblos Indígenas, y
+Afirmando que nada de lo contenido en este Protocolo se interpretará en el sentido de que menoscaba o suprime los derechos existentes de las comunidades indígenas y locales,
+Han acordado lo siguiente:
+(Nota de Sinalevi: Por tener articulado propio el Protocolo de Nagoya sobre Participación Justa y Equitativa en los Beneficios que se Deriven de su Utilización al Convenio sobre Diversidad Biológica y su Anexo deben ser consultados en el sistema de forma independiente)

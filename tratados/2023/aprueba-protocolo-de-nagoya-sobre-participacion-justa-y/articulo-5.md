@@ -1,0 +1,1 @@
+ARTÍCULO 5-La República de Costa Rica entiende que lo dispuesto en el artículo 12 sobre la "ley consuetudinaria", cuando se trata de pueblos indígenas o comunidades locales, se debe interpretar que se refiere a las costumbres, independientemente de si estas constituyen ley. Esto, en estricto apego al Convenio 169 de la Organización Internacional del Trabajo.

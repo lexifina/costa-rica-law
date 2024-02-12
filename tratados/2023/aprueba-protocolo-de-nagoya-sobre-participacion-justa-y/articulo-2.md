@@ -1,0 +1,1 @@
+ARTÍCULO 2-La República de Costa Rica entiende que cuando en este Protocolo se hace referencia a "comunidades indígenas" se hace referencia a "pueblos indígenas", que corresponde al término internacionalmente consensuado.
