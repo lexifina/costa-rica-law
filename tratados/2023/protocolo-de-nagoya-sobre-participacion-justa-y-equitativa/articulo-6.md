@@ -1,0 +1,18 @@
+ARTÍCULO 6
+ACCESO A LOS RECURSOS GENÉTICOS
+1. En el ejercicio de los derechos soberanos sobre los recursos naturales, y sujeto a la legislación o los requisitos reglamentarios nacionales sobre acceso y participación en los beneficios, el acceso a los recursos genéticos para su utilización estará sujeto al consentimiento fundamentado previo de la Parte que aporta dichos recursos que es el país de origen de dichos recursos o una Parte que haya adquirido los recursos genéticos conforme al Convenio, a menos que dicha Parte determine otra cosa.
+2. Conforme a las leyes nacionales, cada Parte adoptará medidas, según proceda, con miras a asegurar que se obtenga el consentimiento fundamentado previo o la aprobación y participación de las comunidades indígenas(*) y locales para el acceso a los recursos genéticos cuando estas tengan el derecho establecido a otorgar acceso a dichos recursos.
+(Nota de Sinalevi: Mediante el artículo 2 de la ley N° 10372 del 14 de noviembre del 2023 que aprobó el Protocolo de Nagoya sobre participación justa y equitativa en los beneficios que se deriven de su utilización al Convenio sobre diversidad biológica y su anexo se estableció lo siguiente: “La República de Costa Rica entiende que cuando en este Protocolo se hace referencia a "comunidades indígenas" se hace referencia a "pueblos indígenas", que corresponde al término internacionalmente consensuado”.)
+3. De conformidad con el párrafo 1 supra, cada Parte que requiera consentimiento fundamentado previo adoptará las medidas legislativas, administrativas o de política necesaria, según proceda, para:
+a) Proporcionar seguridad jurídica, claridad y transparencia en su legislación o requisitos reglamentarios nacionales de acceso y participación en los beneficios;
+b) Proporcionar normas y procedimientos justos y no arbitrarios sobre el acceso a los recursos genéticos;
+c) Proporcionar información sobre cómo solicitar el consentimiento fundamentado previo;
+d) Conceder una decisión por escrito clara y transparente de una autoridad nacional competente, de manera eficiente en relación con los costos y dentro de un plazo razonable;
+e) Disponer que se emita al momento del acceso un permiso o su equivalente como prueba de la decisión de otorgar el consentimiento fundamentado previo y de que se han establecido condiciones mutuamente acordadas, y notificar al Centro de Intercambio de Información sobre Acceso y Participación en los Beneficios;
+f) Según proceda y sujeto a la legislación nacional, establecer criterios y/o procesos para obtener el consentimiento fundamentado previo o la aprobación y participación de las comunidades indígenas(*) y locales para el acceso a los recursos genéticos; y
+(Nota de Sinalevi: Mediante el artículo 2 de la ley N° 10372 del 14 de noviembre del 2023 que aprobó el Protocolo de Nagoya sobre participación justa y equitativa en los beneficios que se deriven de su utilización al Convenio sobre diversidad biológica y su anexo se estableció lo siguiente: “La República de Costa Rica entiende que cuando en este Protocolo se hace referencia a "comunidades indígenas" se hace referencia a "pueblos indígenas", que corresponde al término internacionalmente consensuado”.)
+g) Establecer normas y procedimientos claros para requerir y establecer condiciones mutuamente acordadas. Dichas condiciones se establecerán por escrito y pueden incluir, entre otras cosas:
+i) Una cláusula sobre resolución de controversias;
+ii) Condiciones sobre participación en los beneficios, incluso en relación con los derechos de propiedad intelectual;
+iii) Condiciones para la utilización subsiguiente por un tercero, si la hubiera; y
+iv) Condiciones sobre cambio en la intención, cuando proceda.

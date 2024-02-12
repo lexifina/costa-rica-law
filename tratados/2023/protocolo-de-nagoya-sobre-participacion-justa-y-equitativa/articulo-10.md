@@ -1,0 +1,4 @@
+ARTÍCULO 10
+MECANISMO MUNDIAL MULTILATERAL DE
+PARTICIPACIÓN EN LOS BENEFICIOS
+Las Partes considerarán la necesidad de contar con un mecanismo mundial multilateral de participación en los beneficios, y con modalidades para este, para abordar la participación justa y equitativa en los beneficios que se deriven de la utilización de los recursos genéticos y los conocimientos tradicionales asociados a los recursos genéticos que se producen en situaciones transfronterizas o en las que no es posible otorgar y obtener consentimiento fundamentado previo. Los beneficios compartidos por los usuarios de recursos genéticos y conocimientos tradicionales asociados a recursos genéticos a través de este mecanismo se utilizarán para apoyar la conservación de la diversidad biológica y la utilización sostenible de sus componentes a nivel mundial.

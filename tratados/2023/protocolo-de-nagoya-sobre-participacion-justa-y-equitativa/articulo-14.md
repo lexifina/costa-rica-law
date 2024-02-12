@@ -1,0 +1,18 @@
+ARTÍCULO 14
+EL CENTRO DE INTERCAMBIO DE INFORMACIÓN SOBRE
+ACCESO Y PARTICIPACIÓN EN LOS BENEFICIOS E
+INTERCAMBIO DE INFORMACIÓN
+1. Queda establecido un Centro de Intercambio de Información sobre Acceso y Participación en los Beneficios como parte del mecanismo de facilitación al que se hace referencia en el párrafo 3 del artículo 18 del Convenio. Será un medio para compartir información relacionada con el acceso y la participación en los beneficios.
+En particular, facilitará el acceso a la información pertinente para la aplicación del presente Protocolo proporcionada por cada Parte.
+2. Sin perjuicio de la protección de la información confidencial, cada Parte proporcionará al Centro de Intercambio de Información sobre Acceso y Participación en los Beneficios toda la información requerida en virtud del presente Protocolo, así como la información requerida conforme a las decisiones adoptadas por la Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo. Dicha información incluirá:
+a) Medidas legislativas, administrativas y de política sobre acceso y participación en los beneficios;
+b) Información acerca del punto focal nacional y la autoridad o autoridades nacionales competentes; y
+c) Permisos o su equivalente, emitidos en el momento del acceso como prueba de la decisión de otorgar el consentimiento fundamentado previo y de que se han establecido condiciones mutuamente acordadas.
+3. La información adicional, si la hubiera y según proceda, puede incluir:
+a) Autoridades competentes pertinentes de las comunidades indígenas(*) y locales, e información según se decida;
+(Nota de Sinalevi: Mediante el artículo 2 de la ley N° 10372 del 14 de noviembre del 2023 que aprobó el Protocolo de Nagoya sobre participación justa y equitativa en los beneficios que se deriven de su utilización al Convenio sobre diversidad biológica y su anexo se estableció lo siguiente: “La República de Costa Rica entiende que cuando en este Protocolo se hace referencia a "comunidades indígenas" se hace referencia a "pueblos indígenas", que corresponde al término internacionalmente consensuado”.)
+b) Cláusulas contractuales modelo;
+c) Métodos e instrumentos desarrollados para vigilar los recursos genéticos; y
+d) Códigos de conducta y prácticas óptimas.
+4. La Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo, en su primera reunión, examinará las modalidades de funcionamiento del Centro de Intercambio de Información sobre Acceso y Participación en los Beneficios, incluidos los informes sobre sus actividades, adoptará decisiones respecto de esas modalidades y las mantendrá en examen en lo sucesivo.
+(Nota de Sinalevi: Mediante el artículo 7 de la ley N° 10372 del 14 de noviembre del 2023 que aprobó el Protocolo de Nagoya sobre participación justa y equitativa en los beneficios que se deriven de su utilización al Convenio sobre diversidad biológica y su anexo se estableció lo siguiente: “La República de Costa Rica entiende que lo dispuesto en el artículo 14, en lo que se refiere a: "Sin perjuicio de la protección de la información confidencial, cada Parte proporcionará al Centro de Intercambio de Información sobre Acceso y Participación en los Beneficios toda la información requerida en virtud del presente Protocolo, así como la información requerida conforme a las decisiones adoptadas por la Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo.", debe interpretarse que la información que provenga de los recursos genéticos y los conocimientos tradicionales asociados no debe ser confidencial para los pueblos indígenas y las comunidades locales que hayan dado su autorización”)

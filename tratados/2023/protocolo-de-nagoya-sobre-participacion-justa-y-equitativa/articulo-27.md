@@ -1,0 +1,5 @@
+ARTÍCULO 27
+ÓRGANOS SUBSIDIARIOS
+1. Cualquier órgano subsidiario establecido por el Convenio o en virtud de este podrá prestar servicios a este Protocolo, incluso mediante una decisión de la Conferencia de las Partes que actúa como reunión de las Partes en el presente Protocolo. Toda decisión a este respecto especificará las tareas que habrán de llevarse a cabo.
+2. Las Partes en el Convenio que no sean Partes en el presente Protocolo podrán participar en calidad de observadores en los debates de las reuniones de los órganos subsidiarios del presente Protocolo. Cuando un órgano subsidiario del Convenio actúe como órgano subsidiario de este Protocolo, las decisiones relativas a este sólo serán adoptadas por las Partes en este Protocolo.
+3. Cuando un órgano subsidiario del Convenio desempeñe sus funciones en relación con cuestiones relativas al presente Protocolo, los miembros de la mesa de ese órgano subsidiario que representen a Partes en el Convenio que, en ese momento, no sean Partes en este Protocolo, serán reemplazados por miembros que serán elegidos las Partes en este Protocolo y entre las mismas.

@@ -1,0 +1,6 @@
+ARTÍCULO 8
+CONSIDERACIONES ESPECIALES
+Al elaborar y aplicar su legislación o requisitos reglamentarios sobre acceso y participación en los beneficios, cada Parte:
+a) Creará condiciones para promover y alentar la investigación que contribuya a la conservación y utilización sostenible de la diversidad biológica, particularmente en los países en desarrollo, incluyendo mediante medidas simplificadas de acceso para fines de investigación de índole no comercial, teniendo en cuenta la necesidad de abordar el cambio de intención para dicha investigación;
+b) Prestará debida atención a los casos de emergencias presentes o inminentes que creen amenazas o daños para la salud humana, animal o vegetal, según se determine nacional o internacionalmente. Las Partes pueden tener en cuenta la necesidad de acceso expeditivo a los recursos genéticos y de una participación justa y equitativa y expeditiva en los beneficios que se deriven del uso de dichos recursos genéticos, incluido el acceso a tratamientos asequibles para los necesitados, especialmente en los países en desarrollo;
+c) Considerará la importancia de los recursos genéticos para la alimentación y la agricultura y el rol especial que cumplen para la seguridad alimentaria.
