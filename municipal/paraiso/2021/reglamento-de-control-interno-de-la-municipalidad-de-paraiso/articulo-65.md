@@ -1,3 +1,2 @@
-ARTÍCULO 65: ACTUALIZACION DE DISPOSICIONES INTERNAS
-El Departamento de Control Interno, en un plazo no mayor de seis meses, deberá realizar las gestiones necesarias para garantizar la actualización de los Manuales de Procedimientos y demás normativa interna, con el fin de garantizar la aplicabilidad del presente reglamento, previa asignación de los recursos que se consideren necesarios para este fin.
-Se extiende la presente al ser las once horas con quince minutos del día 18 del mes de agosto del año 2021 a solicitud del interesado.
+Artículo 65: Actualización de Disposiciones Internas. El Departamento de Control Interno, revisará cada año y comunicará si es necesario la actualización de los Manuales de Procedimientos y de más normativa interna, con el fin de garantizar la aplicabilidad del presente reglamento, previa asignación de los recursos que se consideren necesarios para este fin.
+(Así reformado mediante sesión N° 303 del 13 de agosto de 2024)

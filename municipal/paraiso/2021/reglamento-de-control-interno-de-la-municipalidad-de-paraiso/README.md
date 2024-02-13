@@ -14,3 +14,4 @@ Reglamento de control interno de la Municipalidad de Paraíso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-05 | la propia norma |
+| 2 | 2024-02-13 | Reglamento municipal 303 (2024-02-13) |

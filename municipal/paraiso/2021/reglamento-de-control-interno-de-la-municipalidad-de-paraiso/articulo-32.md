@@ -1,2 +1,2 @@
-ARTÍCULO 32: DEL MANUAL DE FUNCIONAMIENTO DEL SISTEMA ESPECÍFICO DE VALORACIÓN DE RIESGO INSTITUCIONAL
-Todas las actuaciones de los titulares subordinados y los funcionarios municipales, relacionadas con el Sistema Específico de Valoración de Riesgo Institucional, deberán ajustarse a lo que establece el Manual para el Establecimiento y Funcionamiento del Sistema Específico de Valoración de Riesgo Institucional.
+Artículo 32: Herramientas de Funcionamiento del Sistema Específico de Valoración de Riesgo Institucional: Todas las actuaciones de los titulares subordinados y los funcionarios municipales, relacionadas con el Sistema Específico de Valoración de Riesgo Institucional, deberán ajustarse a las herramientas para Establecimiento y Funcionamiento del Sistema Específico de Valoración de Riesgo Institucional.
+(Así reformado mediante sesión N° 303-2024 del 13 de febrero de 2024)
