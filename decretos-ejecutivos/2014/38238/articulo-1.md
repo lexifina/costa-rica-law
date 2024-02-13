@@ -17,6 +17,7 @@ Decretan:
 El siguiente:
 Reglamento para la Ordenación Horaria
 de la Circulación de Vehículos Pesados
+(Nota de Sinalevi: Mediante el punto 1° de la resolución N° 000238 del 13 de febrero del 2024, se acordó: "suspender de manera temporal la ordenación horaria de la circulación de vehículos pesados entre las 4:30 p.m. y las 6:30 p.m. únicamente en las rutas 1, 3, 27 y 32, ello amparado en razones de seguridad, dinámica de la logística del transporte terrestre y del portuario, lo anterior, sin perjuicio de revocar esta suspensión en cualquier momento, en caso de que se considere que su impacto en la vialidad es negativo")
 (Nota de Sinalevi: Mediante resolución N° 2024-00166 del 5 de febrero del 2024, se acordó revocar la resolución N° 2022-001349 del 17 de octubre del 2022, la cual suspendió con carácter temporal y excepcional la aplicación del presente numeral. Asimismo, en la norma antes referida se ordenó que a partir del 12 de febrero del 2024, el presente artículo vuelve a cobrar su vigencia)
 Artículo 1º-Restricción vehicular. Todo vehículo automotor de carga, con un peso superior al máximo permitido para el vehículo tipo C2+ (6 toneladas), según el Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga, Decreto Ejecutivo N° 31363-MOPT, no debe circular, de lunes a viernes, en el horario y rutas estipuladas en el siguiente cuadro:
 [imagen]
