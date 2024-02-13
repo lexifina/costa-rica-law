@@ -1,1 +1,0 @@
-Transitorio II. Para garantizar el cumplimiento de los plazos establecidos en la Ley para Mejorar la Lucha contra el Fraude Fiscal, la Dirección Nacional de Notariado tendrá plazo hasta el 30 de junio de 2018 para la construcción de la consulta automática indicada en el artículo 25 de este reglamento.

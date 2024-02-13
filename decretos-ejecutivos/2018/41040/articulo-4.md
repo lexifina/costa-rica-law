@@ -1,5 +1,0 @@
-Artículo 4.-Excluidos del suministro de información: Se encuentran excluidos de presentar la información establecida en el Capítulo II de la Ley para Mejorar la Lucha contra el Fraude Fiscal:
-a) Las sociedades cuyas acciones se cotizan en un mercado de valores organizado ya sea nacional o extranjero. En la resolución conjunta de alcance general a que se refiere el artículo 8 del presente reglamento se establecerán los requisitos necesarios para la aplicación de esta exclusión.
-b) Los fideicomisos públicos.
-c) En relación con sus depositantes, las entidades financieras supervisadas por la Superintendencia General de Entidades Financieras, y las personas jurídicas, estructuras jurídicas y administradores de recursos de terceros, autorizados, regulados y supervisados por la Superintendencia General de Valores o la Superintendencia General de Pensiones, en lo que corresponde a sus clientes e inversionistas.
-d) El Poder Ejecutivo, Poder Legislativo, Poder Judicial, Tribunal Supremo de Elecciones, entidades públicas centralizadas, descentralizadas, autónomas, semiautónomas y embajadas.

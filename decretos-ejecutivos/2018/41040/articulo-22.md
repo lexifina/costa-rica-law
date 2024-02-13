@@ -1,2 +1,0 @@
-Artículo 22.-Lista de incumplidores. Vencido los plazos estipulados en el artículo anterior para que los sujetos obligados suministren la información al Registro de Transparencia y Beneficiarios Finales, el Banco Central de Costa Rica debe generar una lista de incumplidores.
-La lista será suministrada a través de una funcionalidad que para esos fines desarrollará el Banco Central de Costa Rica y tendrán acceso la Dirección General de Tributación, el Instituto Costarricense sobre Drogas, el Registro Nacional y los notarios públicos.

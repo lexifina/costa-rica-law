@@ -1,1 +1,0 @@
-Transitorio I. Las entidades públicas obligadas al suministro de información relativa a la identificación de personas físicas o jurídicas, señaladas en el artículo 17 de este reglamento, tendrán plazo hasta el 30 de junio de 2018 para desarrollar los sistemas tecnológicos, ajustes o cambios necesarios para cumplir con los requerimientos que defina el Banco Central de Costa Rica.
