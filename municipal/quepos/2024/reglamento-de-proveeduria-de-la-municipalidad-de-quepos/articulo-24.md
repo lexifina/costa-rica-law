@@ -1,0 +1,3 @@
+Artículo 24.-Formalización contractual. Salvo en los casos que la ley lo contemple, se podrá formalizar la contratación por medio de una Orden de Pedido, para lo cual deberá tomar en cuenta las respectivas resoluciones de la adjudicación y lo establecido en el pliego de condiciones.
+Los contratos derivados producto de los procedimientos de contratación pública, así como todas las Órdenes de Pedido que se emitan de contratos perfeccionados deberán suscribirse desde la Alcaldía.
+En el caso de requerir refrendo interno, este estará a cargo de la Asesoría Jurídica de la Municipalidad, y se regula por lo indicado en El Reglamento de Refrendos de las Contrataciones de la Administración Pública.
