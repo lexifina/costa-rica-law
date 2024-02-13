@@ -15,3 +15,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico de l
 | --- | --- | --- |
 | 1 | 2013-06-13 | la propia norma |
 | 2 | 2023-05-23 | Reglamento municipal 160 (2023-05-23) |
+| 3 | 2024-02-13 | Reglamento municipal 198 (2024-02-13) |

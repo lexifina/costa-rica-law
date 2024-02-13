@@ -1,3 +1,3 @@
-Artículo 22.—Trámite Municipal. La Plataforma de Servicios recibirá la solicitud, constatará que la solicitud esté debidamente cumplimentada y estén adjuntados todos los requisitos indicados en el artículo siguiente; la pasará al Departamento de Patentes y Licencias Municipales, encargado de de completar la solicitud con el permiso de funcionamiento y la declaratoria de interés turístico, según corresponda; y de convocar a la Comisión Administrativa.
-La Comisión rendirá un dictamen sobre cada solicitud, describiendo el tipo de actividad, duración y monto de impuesto, el cual presentará ante el Concejo Municipal.
-El Concejo resolverá las solicitudes mediante acuerdo de mayoría simple, con base el dictamen de la Comisión.
+Artículo 22.-Trámite interno municipal. La solicitud de licencia temporal para el expendio de bebidas con contenido alcohólico para fiestas cívicas, populares, ferias, turnos y afines a ser explotadas sobre espacio público municipal, será aprobada por el Concejo Municipal mediante acuerdo de mayoría simple.
+El acuerdo será comunicado al solicitante y al Proceso de Patentes. Este último fiscalizará que los requisitos se cumplen, el correcto desarrollo de la actividad y realizará el cobro del impuesto según el artículo 24 siguiente.
+(Así reformado mediante sesión N°198-2024 del 13 de febrero de 2024)
