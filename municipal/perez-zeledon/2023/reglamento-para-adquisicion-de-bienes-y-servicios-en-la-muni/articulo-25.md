@@ -1,0 +1,2 @@
+Artículo 25.-Multas. Las multas aplican por defectos en la ejecución del contrato y para que su aplicación resulte procedente deben estar tipificadas en el pliego de condiciones. El monto máximo a cobrar es del 25% del total adjudicado y para su aplicación no se requiere la demostración del daño o perjuicio. El cobro de la aplicación de la multa se hará a las retenciones del precio o bien a los saldos pendientes de pago.
+(Así adicionado mediante sesión N° 216- 2024 del 13 de febrero del 2024)

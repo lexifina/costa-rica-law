@@ -20,3 +20,5 @@ s. Podrá realizar audiencias previas abiertas, presenciales o virtuales, a fin 
 t. Asistir a las convocatorias de la Equipo Técnica de Adjudicaciones.
 u. Realizar la fiscalización contractual.
 v. Elaborar un informe técnico y remitirlo de manera inmediata a la Proveeduría Municipal, donde consten los atrasos e incumplimientos en la recepción de los bienes o servicios durante o después de la ejecución.
+w) Coordinar con la Bodega Municipal, la existencia de inventario, según el bien que se vaya a adquirir, por lo que deberá adjuntar a la solicitud bienes y/o servicios en el SICOP, una constancia de verificación de existencia en los inventarios en el SICOP emitida por el Bodeguero Municipal.
+(Así adicionado el inciso anterior mediante sesión N° 216- 2024 del 13 de febrero del 2024)

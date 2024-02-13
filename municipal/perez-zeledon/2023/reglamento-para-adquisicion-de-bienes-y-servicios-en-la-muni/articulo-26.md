@@ -1,0 +1,2 @@
+Artículo 26.-Cláusula Penal. La cláusula penal procede en casos de ejecución tardía o prematura de las obligaciones y debe estar definida en el cartel. El monto máximo a cobrar es del 25% del total adjudicado y para su aplicación no será necesaria la demostración del daño o perjuicio. El cobro de la aplicación de la multa se hará a las retenciones del precio o bien a los saldos pendientes de pago.
+(Así adicionado mediante sesión N° 216- 2024 del 13 de febrero del 2024)

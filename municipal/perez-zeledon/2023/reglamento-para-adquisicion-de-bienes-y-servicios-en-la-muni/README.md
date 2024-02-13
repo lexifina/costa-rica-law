@@ -14,3 +14,4 @@ Reglamento para adquisición de bienes y servicios en la Municipalidad de Pérez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-08 | la propia norma |
+| 2 | 2024-02-13 | Reglamento municipal 216 (2024-02-13) |
