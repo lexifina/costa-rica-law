@@ -1,0 +1,2 @@
+Artículo 90.-Prohibición de Solicitar y Aceptar Regalos y Otros Beneficios. Los funcionarios municipales tienen terminantemente prohibido solicitar y aceptar, directa o indirectamente, regalos, comisiones, premios, donaciones que están prohibidas por la legislación, dádivas, favores, propinas o beneficios de cualquier tipo o valor económico, ofrecidos o entregados, en razón o con ocasión del desempeño de su cargo público.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

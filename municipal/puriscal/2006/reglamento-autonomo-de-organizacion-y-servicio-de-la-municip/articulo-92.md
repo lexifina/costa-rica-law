@@ -1,0 +1,2 @@
+Artículo 92.-Regalos del personal a cargo. Los funcionarios municipales en desempeño de cargos de jefatura, incluso en forma transitoria, no deberán dar ni recibir regalos, invitaciones o atenciones sociales del personal a su cargo, fuera del convencionalismo social, que puedan dar motivo razonable a que un observador dude de su imparcialidad en el ejercicio de las funciones de supervisión y disciplina que les corresponden respecto a éstos.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

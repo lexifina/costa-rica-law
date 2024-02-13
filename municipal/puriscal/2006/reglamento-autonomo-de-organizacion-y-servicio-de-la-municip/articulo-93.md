@@ -1,0 +1,2 @@
+Artículo 93.-Invitaciones, Agradecimientos, Eventos Recreativos, Comidas y Otras Atenciones Sociales. Los funcionarios municipales deberán rechazar cualquier tipo de invitación a agradecimientos, eventos recreativos, comidas y otras atenciones similares que se les hayan dirigido con motivo u ocasión del desempeño de su cargo público, que puedan interpretarse como intentos de influir sobre su independencia e integridad en el ejercicio de las funciones a su cargo.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

@@ -1,0 +1,2 @@
+Artículo 112.-Manejo de información privada de colaboradores. Las jefaturas no pueden divulgar ni utilizar para otros fines la información privada, que le ha sido revelada por sus colaboradores en las solicitudes de excusa o las consultas con fines preventivos que le han sido formuladas por éstos. La prohibición citada aplica para todo funcionario municipal que debido al ejercicio del cargo conozca de la información privada revelada en los términos indicados.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

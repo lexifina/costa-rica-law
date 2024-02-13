@@ -1,0 +1,2 @@
+Artículo 114.-Incompatibilidades para la Contratación Pública. Las autoridades a cargo de los procesos de contratación pública deberán adoptar las medidas de verificación necesarias, para evitar violaciones al régimen de prohibiciones establecido en la Ley de General de Contratación Pública, conforme al Título I Disposiciones Generales, Capítulo V Régimen de Prohibiciones.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

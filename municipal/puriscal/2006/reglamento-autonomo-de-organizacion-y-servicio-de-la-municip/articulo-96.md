@@ -1,0 +1,2 @@
+Artículo 96.-Relaciones y actos inconvenientes. Los funcionarios municipales no deberán establecer interés o relaciones con personas físicas o jurídicas, que sean razonablemente inconvenientes o incompatibles con su cargo, con las atribuciones y funciones que tengan asignadas, así como evitar actuaciones que puedan dar motivo de duda razonable de que sus relaciones sociales, de negocios, de familia o de amistad influyen en alguna forma en sus labores debido a su cargo.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)

@@ -1,0 +1,2 @@
+Artículo 91.-Obsequios Dirigidos a Familiares. Los funcionarios municipales deberán adoptar todas las medidas que, razonablemente, sean necesarias para garantizar que su círculo familiar, conformado por las personas ligadas por parentesco de consanguinidad o afinidad hasta tercer grado inclusive, no reciba ningún regalo o beneficio entregado con motivo u ocasión del desempeño de sus funciones y cumplir con su deber de denunciarlos cuando tenga conocimiento de este tipo de ofrecimientos.
+(Así adicionado mediante sesión ordinaria N° 302 del 13 de febrero del 2024)
