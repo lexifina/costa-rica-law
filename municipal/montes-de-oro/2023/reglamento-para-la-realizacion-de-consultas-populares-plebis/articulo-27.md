@@ -1,0 +1,1 @@
+Artículo 27.-De la destitución de los suplentes. El Plebiscito de revocatoria del mandato podrá extenderse a los Alcaldes Suplentes, para lo cual se requerirá del acuerdo de tres cuartas partes de los regidores. En tal caso, la pregunta sobre la destitución de los suplentes se hará independientemente de la del Alcalde propietario.

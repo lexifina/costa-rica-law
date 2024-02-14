@@ -1,0 +1,1 @@
+Artículo 20.-De la documentación electoral. El Concejo Municipal, deberá acatar las disposiciones del Tribunal Supremo de Elecciones en cuanto a las seguridades básicas, en la confección y manejo de la documentación electoral que sea necesaria.

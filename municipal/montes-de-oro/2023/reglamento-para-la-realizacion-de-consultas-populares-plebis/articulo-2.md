@@ -1,0 +1,1 @@
+Artículo 2º-Plebiscito. Es la consulta popular mediante la cual los habitantes del cantón de Montes de Oro se pronuncian sobre un asunto de trascendencia regional, o se manifiestan sobre la revocatoria del mandato del Alcalde Municipal.
