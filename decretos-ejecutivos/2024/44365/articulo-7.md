@@ -1,0 +1,1 @@
+Artículo 7°-Organización y Desempeño. La Comisión desempeñará sus funciones en acatamiento de las normas establecidas en el Capítulo Tercero del Título Segundo de la Ley General de la Administración Pública, referente a los órganos colegiados.
