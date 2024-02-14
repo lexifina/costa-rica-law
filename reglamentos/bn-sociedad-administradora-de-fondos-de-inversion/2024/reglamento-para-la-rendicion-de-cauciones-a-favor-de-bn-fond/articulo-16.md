@@ -1,0 +1,1 @@
+Artículo 16°. -Cálculo de la caución en el nivel B. Quienes desempeñen puestos clasificados dentro del nivel B, que corresponde a los puestos de Gerencias de línea y Gestor/Gestora de Portafolios deberán de rendir una caución equivalente a tres y medio salarios base.

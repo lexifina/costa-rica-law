@@ -1,0 +1,1 @@
+Artículo 18°. -Cálculo de la caución en el nivel D. Quienes desempeñen puestos clasificados dentro del nivel D según lo establecido en el artículo 10°, deberán de rendir una caución equivalente a uno y medio salarios base.

@@ -1,0 +1,1 @@
+Artículo 13°. -Ajuste de la caución. La persona caucionante que por algún motivo sea trasladada de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad deberá ajustar la caución conforme a la nueva situación en función de lo establecido en el artículo 5° del presente reglamento.

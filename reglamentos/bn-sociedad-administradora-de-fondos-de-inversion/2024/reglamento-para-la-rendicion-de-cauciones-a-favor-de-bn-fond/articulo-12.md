@@ -1,0 +1,1 @@
+Artículo 12°. -Simultaneidad de funciones sujetas a caución. La persona que, en su obligación a caucionar, se le asigne temporalmente una función que genere ese mismo deber, caucionará una sola vez y por el monto de mayor valor.

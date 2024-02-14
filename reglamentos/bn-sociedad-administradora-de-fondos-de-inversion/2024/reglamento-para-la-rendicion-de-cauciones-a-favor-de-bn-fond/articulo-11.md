@@ -1,0 +1,5 @@
+Artículo 11°. -Revisión del listado de personas con la obligación de caucionar. Por resolución razonada la Gerencia General en calidad de Alta Administración de BN Fondos, previo estudio que al respecto elabore el proceso de Talento Humano, podrá identificar la necesidad de caucionar que existe para un puesto o función adicional a los ya contemplados, lo cual deberá ser sometido aprobación por la Junta Directiva de BN Fondos para que quede debidamente formalizado; una vez quede esto en firme será comunicado a la persona para cumplir con la respectiva obligación.
+Una vez al año la Unidad de Talento Humano revisará el listado de personal con la obligación de caucionar según lo establecido en los artículos anteriores, para lo cual deberá de considerar, entre otros aspectos:
+a. La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
+c. El nivel de la responsabilidad y el monto.

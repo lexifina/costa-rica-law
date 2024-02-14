@@ -1,0 +1,1 @@
+Artículo 9º-Caucionantes del nivel C. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen puestos de Jefatura cuando por la atención de sus funciones recauden, custodien o administren fondos y valores públicos.

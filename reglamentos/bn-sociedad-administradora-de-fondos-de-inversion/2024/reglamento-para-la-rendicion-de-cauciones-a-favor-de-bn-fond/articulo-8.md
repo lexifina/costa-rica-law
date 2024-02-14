@@ -1,0 +1,1 @@
+Artículo 8º-Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, quienes ocupen los puestos de Gerencias de línea, así como la persona a cargo de la Gestión de Portafolios.

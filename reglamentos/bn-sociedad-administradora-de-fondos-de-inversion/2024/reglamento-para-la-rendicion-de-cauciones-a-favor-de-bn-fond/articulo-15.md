@@ -1,0 +1,1 @@
+Artículo 15°. -Cálculo de la caución en el nivel A. El puesto de Gerencia General deberá rendir una caución de cinco salarios base, el puesto de Auditor Interno/Auditora Interna una caución de tres salarios base.
