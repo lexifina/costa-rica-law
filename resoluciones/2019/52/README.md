@@ -14,3 +14,4 @@ Procedimiento y requisitos para inscripción en el registro de productos agropec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-05 | la propia norma |
+| 2 | 2024-02-14 | Resolución 3 (2024-02-14) |
