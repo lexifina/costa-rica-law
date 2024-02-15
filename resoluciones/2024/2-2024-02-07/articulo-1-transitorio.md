@@ -1,0 +1,2 @@
+Transitorio Único. Tratándose de los contribuyentes que declaren cuota tributaria igual a cero o base imponible negativa para el período fiscal 2023, deberán suministrar los informes sobre los estados financieros auditados por Contador Público Autorizado en un plazo de tres meses posterior a la fecha de vencimiento del plazo para presentar la declaración del impuesto sobre las utilidades.
+<span style='font-family:"Arial",sans-serif; </body>
