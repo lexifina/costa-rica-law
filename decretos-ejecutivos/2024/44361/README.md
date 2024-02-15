@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-07 | la propia norma |
+| 2 | 2024-02-15 | Decreto Ejecutivo 44384 (2024-02-15) |
