@@ -1,0 +1,1 @@
+Artículo 24.-Conflictos, consultas y contratiempos. El superior inmediato deberá abordar de manera proactiva los conflictos, consultas y contratiempos que le hagan saber los usuarios, teletrabajadores y demás funcionarios de la municipalidad, en el desarrollo del teletrabajo.

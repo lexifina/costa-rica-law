@@ -1,0 +1,1 @@
+Artículo 23.-Espacio físico. El superior inmediato deberá facilitar un espacio físico a la persona teletrabajadora en la dependencia a su cargo, cuando se requiera su presencia física en el centro de trabajo.

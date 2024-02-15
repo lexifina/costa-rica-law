@@ -1,0 +1,1 @@
+Artículo 22.-Actividades de control. Las personas teletrabajadoras deberán presentar el formulario "Informe diario de actividades realizadas en teletrabajo" en el que deberán detallar las actividades realizadas, el grado de avance de estas y adjuntar evidencia que compruebe la realización de dichas actividades.
