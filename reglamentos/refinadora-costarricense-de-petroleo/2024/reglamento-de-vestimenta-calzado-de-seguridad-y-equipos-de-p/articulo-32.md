@@ -1,0 +1,2 @@
+Artículo 32.-Cualquier persona trabajadora podrá denunciar, tanto ante el Comité Auxiliar de Salud Ocupacional de su Centro de Trabajo en primera instancia, como ante la Comisión Central de Salud Ocupacional, por escrito y con al menos un testigo, el incumplimiento a este Reglamento, por parte de las personas trabajadoras, Titulares Subordinadas.
+La Comisión respectiva hará del conocimiento de la Gerencia de Área, la Gerencia General o la Presidencia, según corresponda, la denuncia para lo que concierna.

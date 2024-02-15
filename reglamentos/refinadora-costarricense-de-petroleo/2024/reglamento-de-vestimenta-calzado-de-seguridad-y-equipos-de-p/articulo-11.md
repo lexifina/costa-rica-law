@@ -1,0 +1,1 @@
+Artículo 11.-La persona trabajadora debe utilizar correctamente el equipo de protección personal, las herramientas, equipo y maquinaria que les sean asignados para su desempeño según sea el tipo de trabajo y riesgo asociado al que se expone, asimismo deberá velar por el buen mantenimiento de estos.

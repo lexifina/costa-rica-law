@@ -1,0 +1,1 @@
+Artículo 33.-La persona trabajadora que incumpla con el uso de la vestimenta, calzado de seguridad y equipos de protección personal en el trabajo, está sujeto a las siguientes sanciones, establecidas en la Sección VI del Régimen sancionatorio regulado en la Convención Colectiva de la Empresa vigente previo cumplimiento del debido proceso.

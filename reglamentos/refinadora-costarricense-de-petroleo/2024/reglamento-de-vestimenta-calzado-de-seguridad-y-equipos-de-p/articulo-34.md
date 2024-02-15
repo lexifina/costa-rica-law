@@ -1,0 +1,1 @@
+Artículo 34.-En atención al Artículo 82 de la Convención Colectiva Los acuerdos, órdenes y resoluciones que tome la Comisión Central de Salud Ocupacional y Comités en materia de su competencia, deberán ser amparada a la Convención Colectiva, Leyes, Decretos y Reglamentos vigentes en esta materia; y serán de carácter obligatorio para las personas trabajadoras y la Empresa.

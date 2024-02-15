@@ -1,0 +1,2 @@
+Artículo 38.-La interpretación de los Artículos del presente Reglamento, quedan a cargo de la Comisión Central de Salud Ocupacional de RECOPE S. A.
+En caso de no existir coincidencia de posición, entre la Representación Patronal y la Representación de Trabajadores de la Comisión, se tramitará ante el Consejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social, de acuerdo con lo previsto en la Convención Colectiva vigente.

@@ -1,0 +1,1 @@
+Artículo 4º-En atención a lo regulado en la materia en la Convención Colectiva de Trabajo, la Empresa y SITRAPEQUIA se obligan al cumplimiento del presente Reglamento. La Empresa se compromete a disponer lo pertinente para que las personas trabajadoras cumplan con las obligaciones aquí contraídas.

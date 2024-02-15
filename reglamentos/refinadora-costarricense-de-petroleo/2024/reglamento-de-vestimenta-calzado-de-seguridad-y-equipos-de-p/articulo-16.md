@@ -1,0 +1,2 @@
+Artículo 16.-La Unidad de seguridad y salud ocupacional, es el responsable de suministrar un listado a la Unidad de Almacén, de los puestos de trabajo que, de acuerdo con los riesgos asociados a sus labores, deben recibir anualmente un segundo par de calzado de seguridad.
+La entrega del segundo par será tramitada por los Titulares Subordinados o del Superior Inmediato, según corresponda la entrega anual que se encuentre registrada en los sistemas de control interno de la Unidad de Almacén.

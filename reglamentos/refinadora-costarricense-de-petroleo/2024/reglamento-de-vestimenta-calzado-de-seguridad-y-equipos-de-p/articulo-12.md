@@ -1,0 +1,5 @@
+CAPÍTULO III
+De la entrega de la vestimenta, calzado de seguridad
+y equipos de protección personal a las personas
+trabajadoras de Recope S. A.
+Artículo 12.-Es obligatorio el análisis de riesgos laborales previo al desarrollo de los trabajos en la empresa, por parte de las personas Titulares Subordinadas y Superior inmediato del personal competente de la Unidad de seguridad y salud ocupacional, según les corresponda por sus especialidades profesionales y/o técnicas en la materia, para la aplicación de las medidas de prevención y control correspondientes para evitar accidentes y enfermedades de trabajo. En caso de requerirse el equipo de protección personal, como última medida para minimizar los mismos, se debe gestionar en la Unidad de Almacén, para las personas trabajadoras, la vestimenta, el calzado de seguridad y el equipo de protección personal que corresponda, en caso de ser un equipo especial y/o específico, que no se encuentre en el stock en forma permanente, se deberá gestionar los trámites administrativos para su adquisición, por parte del Titular Subordinado, de la dependencia que lo requiere; atendiendo lo señalado en este reglamento.
