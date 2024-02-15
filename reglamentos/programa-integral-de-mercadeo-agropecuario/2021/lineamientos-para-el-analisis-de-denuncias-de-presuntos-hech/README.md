@@ -14,3 +14,4 @@ Lineamientos para el análisis de denuncias de presuntos hechos irregulares pres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-18 | la propia norma |
+| 2 | 2024-02-15 | Reglamento 4 (2024-02-15) |
