@@ -1,6 +1,6 @@
-(Suspendida)
+(Anulada)
 N° 43704-JP-MEIC
-(Nota de Sinalevi: Mediante resolución N° 5294 del 9 de noviembre de 2023, el Tribunal Contencioso Administrativo y Civil de Hacienda, Segundo Circuito Judicial, San José, Goicoechea, ordenó suspender los efectos del presente decreto ejecutivo y se ordena al Presidente y Ministro del ramo, que se abstengan de perturbar el ejercicio profesional de los promoventes hasta tanto se resuelva en sentencia con el proceso de conocimiento.)
+(Nota de Sinalevi: Mediante resolución N° 5294 del 9 de noviembre de 2023, el Tribunal Contencioso Administrativo y Civil de Hacienda, Segundo Circuito Judicial, San José, Goicoechea, ordenó suspender los efectos del presente decreto ejecutivo y se ordena al Presidente de la República y Ministro del ramo, que se abstengan de perturbar el ejercicio profesional de los promoventes hasta tanto se resuelva en sentencia con el proceso de conocimiento. Posteriormente, mediante resolución N° 00958 del 16 de febrero de 2024, del Tribunal Contencioso Administrativo y Civil de Hacienda, se anuló esta norma.)
 EL PRESIDENTE DE LA REPÚBLICA,
 Y LOS MINISTROS DE JUSTICIA Y PAZ,
 Y DE ECONOMÍA, INDUSTRIA Y COMERCIO
@@ -58,7 +58,7 @@ d) En los procesos de reclamos por derechos difusos o derechos colectivos, los h
 "Artículo 19.-Honorarios en procesos de cuantía inestimable. Los honorarios por este tipo de procesos podrán ser de doscientos cuarenta y dos mil colones".
 "Artículo 20.-Cobertura de los honorarios: Todos los honorarios anteriores incluyen las labores profesionales por los recursos ordinarios e incidentes, hasta segunda instancia. Si se formaliza recurso de casación los honorarios serán acordados por las partes, pudiendo emplear como monto de referencia la suma de seiscientos cinco mil colones".
 "Artículo 21.-Procesos Monitorios: Los honorarios podrán ser del cincuenta por ciento (50%) de la Tarifa de Referencia y deberán cancelarse de la siguiente manera:
-(…)
+(.)
 c) El último veinticinco por ciento (25%) con el remate o con la aprobación de la liquidación, si no hay bienes. Los honorarios totales podrán ser de sesenta mil quinientos colones. En caso de la terminación anticipada del proceso, sin perjuicio de lo que resultare de acuerdo a la cuantía del juicio, los honorarios podrán ser de sesenta mil quinientos colones, no serán divisibles y se pagarán en un solo acto. En caso de llegarse a terminación anticipada del proceso por conciliación, mediación o transacción podrá pagarse la tarifa completa para este upo de procesos, es decir, el cincuenta por ciento (50%) de la Tarifa de Referencia".
 "Artículo 22.-Procesos de Ejecución: Los honorarios podrán ser del cincuenta por ciento (50%) de la Tarifa de Referencia, y se pagarán de la siguiente manera:
 (...)
@@ -116,17 +116,17 @@ El Abogado(a) del actor civil podrá cobrar honorarios por esta acción de acuer
 "Artículo 59.-Autenticación de firmas: Toda autenticación de firma podrá devengar un honorario de dieciocho mil ciento cincuenta colones".
 "Artículo 60.-Por la gestión para obtener constancias de entradas y salidas del país los honorarios por cada documento podrán ser de sesenta mil quinientos colones".
 "Artículo 61.-Pago de honorarios y deber de información. Al Notario(a) Público(a) podrá cancelársele los honorarios conforme lo dispone el artículo 67 del presente Arancel.
-(…)"
+(.)"
 "Artículo 63.-Retribución mediante pago de hora. El pago por horas en servicios notariales será procedente cuando el acto, contrato o asesoría no se encuentren contemplados en el presente Arancel. También procederá el pago por horas cuando el Notario (a) deba realizar trámites o desplazamientos de carácter extraordinario. El monto de referencia por hora podrá ser de noventa mil setecientos cincuenta colones".
 "Artículo 65.-Casos no previstos. En casos no previstos en este Arancel, los honorarios podrán ser de ciento veintiún mil colones".
 "Artículo 71.-Actos o contratos complejos. Los actos o contratos complejos podrán generar recargo del cincuenta por ciento (50%) adicional de la tarifa respectiva, pero en este caso deberá constar convenio escrito.
-(…)"
+(.)"
 "Artículo 74.-Tarifa de Referencia para labores notariales: Por los actos jurídicos o contratos que autorice el Notario (a), devengará honorarios de acuerdo con su cuantía, valor real o estimación total, con un monto de referencia de sesenta mil quinientos colones, según la tarifa de referencia que se indica a continuación, sin perjuicio de otras que se fijaren en el presente Arancel.
 (...)"
 "Artículo 75.-Mitad de la Tarifa de Referencia. El porcentaje general fijo podrá reducirse a la mitad, con un monto de referencia de sesenta mil quinientos colones en los siguientes casos:
 (...)"
 "Artículo 76.-Cuarta parte de la Tarifa General: Los honorarios podrán ser del veinticinco por ciento (25%) de la Tarifa de Referencia, con un monto de referencia de sesenta mil quinientos colones por cada finca, según su cuantía, valor real o estimación; en los siguientes casos:
-(…)"
+(.)"
 "Artículo 77.-Actos o contratos varios: Como referencia podrán tener el monto de sesenta mil quinientos colones, las siguientes formalizaciones de actos o contratos:
 (...)"
 "Artículo78.-Arrendamientos y Subarrendamientos. Si los arrendamientos y subarrendamientos de inmuebles se formalizan en escritura pública, los honorarios de acuerdo a la Tarifa de Referencia podrán ser calculados sobre el valor del arrendamiento de un año, con un monto de referencia de sesenta mil quinientos colones".

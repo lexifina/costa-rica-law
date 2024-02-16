@@ -15,3 +15,4 @@ Reforma Arancel de honorarios por servicios profesionales de abogacía y notaria
 | --- | --- | --- |
 | 1 | 2022-10-19 | la propia norma |
 | 2 | 2023-11-09 | SINALEVI (sin norma nombrada) |
+| 3 | 2024-02-16 | SINALEVI (sin norma nombrada) |
