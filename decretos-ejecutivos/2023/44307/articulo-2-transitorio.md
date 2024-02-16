@@ -1,0 +1,1 @@
+TRANSITORIO II. El administrado que hubiese iniciado los trámites de solicitud o de renovación del permiso de habilitación, antes de la entrada en vigor del presente decreto ejecutivo, puede continuar con el proceso bajo las condiciones vigentes al momento de iniciado el trámite.

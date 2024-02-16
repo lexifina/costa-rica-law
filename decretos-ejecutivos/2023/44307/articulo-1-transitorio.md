@@ -1,0 +1,1 @@
+TRANSITORIO I. Los servicios de salud que obtuvieron un permiso de habilitación antes de la entrada en rigor del presente decreto ejecutivo pueden mantener dicho permiso por el tiempo que les fue extendida, debiendo adaptar sus condiciones de su establecimiento a las disposiciones de este decreto previo a renovar el permiso.
