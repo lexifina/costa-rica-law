@@ -16,3 +16,4 @@ Arancel de honorarios por servicios profesionales de abogacía y notariado
 | 1 | 2019-02-01 | la propia norma |
 | 2 | 2019-05-22 | Decreto Ejecutivo 41930 (2019-05-22) |
 | 3 | 2022-09-14 | Decreto Ejecutivo 43704 (2022-09-14) |
+| 4 | 2024-02-16 | SINALEVI (sin norma nombrada) |

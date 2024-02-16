@@ -2,6 +2,6 @@ TÍTULO IV
 Disposiciones generales para notarias y notarios
 CAPÍTULO I
 De la contratación de notarios y notarias públicos
-Artículo 61.-Pago de honorarios y deber de información. Al Notario(a) Público(a) podrá cancelársele los honorarios conforme lo dispone el artículo 67 del presente Arancel.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022)
+Artículo 61.- Pago de honorarios y deber de información. Al Notario(a) Público(a) debe cancelársele los honorarios conforme lo dispone el artículo 67 del presente Arancel.
+(Mediante el artículo 1° del decreto ejecutivo N° 43704 del 14 de setiembre de 2022, se reformaba el párrafo anterior. Posteriormente, mediante resolución N° 5294 del 9 de noviembre de 2023, el Tribunal Contencioso Administrativo y Civil de Hacienda, Segundo Circuito Judicial, San José, Goicoechea, ordenó suspender los efectos del indicado decreto ejecutivo N° 43704 del 14 de setiembre de 2022 y se ordena al Presidente de la República y Ministro del ramo, que se abstengan de perturbar el ejercicio profesional de los promoventes hasta tanto se resuelva en sentencia con el proceso de conocimiento. Posteriormente, mediante resolución N° 00958 del 16 de febrero de 2024, del Tribunal Contencioso Administrativo y Civil de Hacienda, anuló la reforma operada por decreto ejecutivo N° 43704 del 14 de setiembre de 2022, ya citado. Por lo tanto, el párrafo anterior recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo 43704 del 14 de setiembre de 2022)
 Es deber del Notario(a) advertir e informar al usuario(a), sobre el monto de sus honorarios desde el inicio de la contratación de sus servicios y previo a la realización del acto o contrato solicitado.
