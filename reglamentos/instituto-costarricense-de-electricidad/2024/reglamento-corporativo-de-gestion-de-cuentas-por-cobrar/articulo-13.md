@@ -1,0 +1,1 @@
+Artículo 13.-Deben gestionar la cartera para los clientes físicos y jurídicos, segmento masivo. En lo que respecta a los clientes empresariales y gobierno, se abordará para los casos que aplique, según el lineamiento de cobro para clientes empresariales, dada la naturaleza del segmento.

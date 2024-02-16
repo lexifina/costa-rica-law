@@ -1,0 +1,1 @@
+Artículo 12.-Deben comunicar de forma oportuna a la empresa GCGICE S. A. y a los órganos de dirección que tienen una función decisoria y resolutoria en cada empresa, en caso de existir aspectos de fuerza mayor que limiten el cumplimiento de la asignación de cuentas en cobro administrativo o judicial del plan de trabajo establecido.

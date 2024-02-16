@@ -1,0 +1,1 @@
+Artículo 18.-Deben gestionar con las dependencias respectivas de ICE, CNFL y RACSA la homologación contable de cuentas que hayan finalizado el proceso de cobro administrativo llevado a cabo por la empresa GCGICE S. A.

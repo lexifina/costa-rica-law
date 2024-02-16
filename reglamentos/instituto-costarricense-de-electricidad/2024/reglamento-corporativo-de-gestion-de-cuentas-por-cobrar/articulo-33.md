@@ -1,0 +1,1 @@
+Artículo 33.-Derogatoria. Se deja sin efecto el documento normativo Reglamento Gestión Cuentas por Cobrar código 72.00.001.2023, versión 1, aprobada por el Consejo Directivo según artículo 6° del capítulo II del acta firme de la sesión 6592 del 12 de setiembre del 2023.

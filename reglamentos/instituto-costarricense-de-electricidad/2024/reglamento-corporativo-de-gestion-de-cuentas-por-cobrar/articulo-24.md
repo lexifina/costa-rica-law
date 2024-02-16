@@ -1,0 +1,1 @@
+Artículo 24.-Debe esperar la finalización de todas las etapas del proceso judicial y notificar oficialmente el resultado de la gestión por los medios establecidos a la empresa que solicitó la recuperación de la cuenta.

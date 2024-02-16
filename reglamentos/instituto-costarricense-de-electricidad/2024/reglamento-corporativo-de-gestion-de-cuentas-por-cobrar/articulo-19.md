@@ -1,0 +1,1 @@
+Artículo 19.-Deben gestionar una sola certificación integral por cliente hasta tanto, se concluya el proceso de todas las deudas de servicios inactivos que se encuentran en la gestión de Cobro Administrativo por parte de la empresa GCGICE S. A.

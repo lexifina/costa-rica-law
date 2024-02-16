@@ -1,0 +1,1 @@
+Artículo 27.-Debe dar el seguimiento respectivo a aquellas cuentas por cobrar interpuestas en sede judicial a efectos de informar el resultado. En caso que resultare infructuoso el proceso de recuperación deberá presentar un informe detallado que justifique la no recuperabilidad.
