@@ -1,0 +1,4 @@
+Artículo 32.- De la continuidad de la comparecencia:
+La comparecencia se llevará a cabo sin interrupciones, durante las comparecencias consecutivas que sean necesarias para su terminación.
+En casos excepcionales se podrán suspender únicamente cuando medie una causa suficientemente justificada, acreditada por la propia Administración o por las partes, cuando deba resolverse alguna gestión que por su naturaleza afecte su continuación, cuando sea necesario practicar alguna diligencia fuera del lugar de la comparecencia, cuando durante su desarrollo se produjeren alteraciones sustanciales al procedimiento que deban ser corregidas como requisito para su continuación, cuando medie una afectación a la salud a una de las partes, debidamente justificada.
+De conformidad con lo establecido en el artículo 685 del Código de Trabajo, el procedimiento administrativo continuará hasta el dictado de la resolución, aún y cuando la persona denunciada renuncie o se jubile.

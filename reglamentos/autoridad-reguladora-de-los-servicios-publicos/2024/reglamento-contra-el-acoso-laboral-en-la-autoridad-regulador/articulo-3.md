@@ -1,0 +1,3 @@
+Artículo 3.- Áreas responsables de la prevención
+La Dirección de Recursos Humanos de la ARESEP y la Unidad de Recursos Humanos de la Superintendencia de Telecomunicaciones, desarrollarán acciones preventivas y educativas para sensibilizar a los funcionarios en los temas sobre los conflictos laborales en general y de las conductas de acoso laboral en particular, derivadas de la legislación vigente en esta materia en Costa Rica. Lo anterior mediante información virtual, correos electrónicos, afiches, charlas, seminarios o talleres.
+Esta temática también deberá ser incluida dentro del programa de inducción para las personas servidoras de nuevo ingreso.

@@ -1,0 +1,3 @@
+Artículo 24.- Instrucción al Órgano Director del Procedimiento Administrativo
+El Órgano Decisor, remitirá al Órgano Director del Procedimiento Administrativo la instrucción formal para realizar el debido proceso de conformidad con lo establecido en la Ley General de la Administración Pública para el procedimiento ordinario, este Reglamento y normativa interna concordante, con expreso y claro detalle de los elementos denunciados.
+Junto con la instrucción se remitirá toda la prueba documental aportada en la denuncia y se hará indicación de la prueba testimonial que se estime pertinente por parte de la Administración o que haya sido mencionada directa, tácita o sucintamente en la denuncia.

@@ -1,0 +1,8 @@
+CAPÍTULO IV
+MODALIDADES DE ACOSO LABORAL
+Artículo 9.- Modalidades de acoso laboral
+Se consideran modalidades de acoso laboral las siguientes:
+a) Acoso laboral vertical descendente: El acoso vertical descendente se da cuando el acoso laboral proviene de una persona que ostenta mayor poder que la persona acosada o, dicho de otra manera, lo constituyen aquellas acciones provenientes de personas en puestos de jefatura, que, de manera abusiva, desmesurada, perversa o ambas, realicen este tipo de conductas, con el objetivo de que la víctima deje su trabajo. La jefatura puede utilizar también personas trabajadoras para ejecutar las actividades de acoso laboral, sin que aparezca en forma directa.
+b) Acoso laboral vertical ascendente: Es el acoso laboral que se realiza entre quienes ocupan puestos subalternos respecto de la persona victimizada que figura como su jefatura inmediata o mediata, a través de intromisiones en su vida privada, cuestionamientos infundados y de mala fe sobre su estilo de gestión, sobre su capacidad intelectual y profesional, estilo de liderazgo y sobre su pertinencia para ejercer el puesto que ostenta.
+c) Acoso laboral horizontal: Se da cuando el acoso laboral proviene de una persona que ocupa la misma posición jerárquica que la persona acosada, el acoso laboral se da entre iguales en la jerarquía institucional.
+d) Acoso laboral mixto: Es el acoso laboral que proviene del asocio de la jerarquía y una o más personas y, se ejerce contra una persona o varias personas trabajadoras o viceversa, de forma que puede considerarse que el acoso laboral mixto puede ser también al mismo tiempo ascendente, descendente u horizontal.

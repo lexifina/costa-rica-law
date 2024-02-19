@@ -1,0 +1,4 @@
+Artículo 2.- Alcance
+El presente reglamento es de acatamiento obligatorio para todas las personas funcionarias de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado. Igualmente rige para el personal contratado que presta servicios en las instalaciones de las Instituciones cuando sean víctimas de acoso laboral por parte de alguna persona funcionaria. Igualmente aplica si la conducta se realiza fuera del horario de trabajo, si estas ocurren entre las personas funcionarias de la institución y con ocasión del ejercicio del cargo.
+Si al acoso laboral proviene de una persona que no es funcionaria de la Institución, como puede ser un contratista, el evento debe también reportarse a Recursos Humanos para que se atienda el caso por lo medidos establecidos en la contratación.
+Para efectos de este reglamento, cuando se hace alusión al cargo, puesto o condición de una persona, debe entenderse que se hace sin distinción o discriminación de género.
