@@ -1,0 +1,2 @@
+Artículo 4°. Ámbito de aplicación
+El presente reglamento rige para todas las personas funcionarias de la Aresep y de la Sutel, independientemente del tipo de relaciones entre compañeros y compañeras de trabajo, o como en aquellas que se generen entre el personal regular y las personas que laboran en la Institución, bajo las distintas modalidades de trabajo, sea con proveedores, contratistas y visitantes, practicantes quienes deberán ser informados respecto a la protección que se brinda por medio de este reglamento.

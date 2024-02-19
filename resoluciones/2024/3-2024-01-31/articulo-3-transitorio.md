@@ -1,0 +1,1 @@
+III. Recursos Humanos iniciará un proceso de divulgación y capacitación acerca del presente reglamento para todo el personal de la institución, dentro de los dos primeros meses posteriores a la publicación de este reglamento.

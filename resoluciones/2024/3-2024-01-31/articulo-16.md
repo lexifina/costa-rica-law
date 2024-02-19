@@ -1,0 +1,3 @@
+Artículo 16°. Garantías para la persona denunciante y los testigos
+Quien denuncie actos de hostigamiento o acoso sexual en su contra o que haya comparecido como testigo en otro procedimiento; no sufrirá, por esas circunstancias, perjuicio en cuanto a la relación de empleo, independientemente de su modalidad, con la Autoridad Reguladora o con la Sutel.
+Quien formule una denuncia por hostigamiento o acoso sexual solo podrá ser despedido por causa justificada originada en falta grave a los deberes derivados del contrato laboral, según lo establecido en los artículos 81, 369 y 410 del Código de Trabajo. De presentarse una de estas causales, se deberá tramitar el despido ante la Dirección Nacional de Inspección del Trabajo, donde deberá demostrar la existencia de la falta.

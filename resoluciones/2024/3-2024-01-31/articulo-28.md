@@ -1,0 +1,4 @@
+Artículo 28°. Sobre el expediente administrativo
+El expediente administrativo contendrá como mínimo toda la documentación relativa a la denuncia interpuesta, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes y las constancias de notificación.
+Además, se deberá encontrar foliado con numeración consecutiva y en la carátula se hará el señalamiento de confidencial.
+El expediente podrá ser consultado única y exclusivamente por las partes y sus abogados debidamente identificados y autorizados, por las personas trabajadoras que tengan a cargo su custodia y por los órganos de seguimiento, todo en garantía al principio de confidencialidad, el cual debe ser respetado y cumplido por cualquier persona trabajadora que, con motivo de su cargo, llegare a tener conocimiento del expediente.

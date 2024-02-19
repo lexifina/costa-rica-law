@@ -1,0 +1,2 @@
+Artículo 13°. De las represalias
+Queda prohibido tomar o participar de cualquier tipo de represalia contra la persona que realice la denuncia, haya testificado o participado de cualquier manera en el proceso de investigación o resolución del caso de denuncia por acoso u hostigamiento sexual. El realizar esta acción puede generar una sanción disciplinaria previa realización del proceso disciplinario correspondiente.

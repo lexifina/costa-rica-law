@@ -1,0 +1,7 @@
+Artículo 8°. Deberes del Órgano decisor
+El órgano decisor es el Regulador General de la Aresep o en su ausencia el Regulador o Reguladora General Adjunta; o el Consejo de la Sutel según corresponda, salvo que la persona denunciada sea quien ocupa el cargo de auditor o subauditor, o miembro del Consejo de la Sutel, en cuyo caso el órgano decisor será la Junta Directiva. Además de los contenidos en la Ley General de la Administración Pública, Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia y en este reglamento, corresponde al órgano decisor:
+a) Nombrar al órgano director.
+b) Dictar la resolución final del procedimiento.
+c) Comunicar a la Defensoría de los Habitantes de la República sobre la presentación de la denuncia y del resultado final del procedimiento una vez firme la resolución final.
+En caso de que la denuncia sea contra el (la) Regulador (a) General o contra cualquier miembro de la Junta Directiva, ésta elevará la denuncia al conocimiento del Consejo de Gobierno. En caso de que la denuncia sea contra algún Miembro del Consejo de la Sutel, ésta elevará la denuncia a cualquier miembro de la Junta Directiva de la Aresep. En caso de que la denuncia sea contra el/la auditor(a) o el/la subauditor(a), ésta elevará la denuncia al conocimiento de la Junta Directiva.
+Cuando la resolución final sea dictada por el órgano decisor de la Autoridad Reguladora de los Servicios Públicos o su órgano desconcentrado, en esta se resolverá expresamente, de haberse ordenado, sobre las medidas cautelares.

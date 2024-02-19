@@ -1,0 +1,2 @@
+Artículo 27°. Recursos
+Contra la resolución final del procedimiento, cabrá recurso de reposición. El recurso de reposición se interpondrá ante el órgano decisor, dentro del plazo de tres días hábiles, contados a partir del día hábil siguiente a la notificación de la resolución final del procedimiento, en los términos que establece el artículo 346 de la Ley General de la Administración Pública. En caso de una sanción de despido sin responsabilidad patronal el plazo para impugnar será de 5 días hábiles.

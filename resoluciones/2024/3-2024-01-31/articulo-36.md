@@ -1,0 +1,2 @@
+Artículo 36°. Registro actualizado de sanciones.
+La institución a través de Recursos Humanos mantendrá un registro actualizado de las sanciones en firme por conductas de hostigamiento sexual en el expediente respectivo. Este registro podrá ser consultado por cualquier persona interesada, resguardando la identidad, los datos personales y cualquier otra información sensible de las víctimas. La información se mantendrá en el registro por un plazo de diez años, a partir de la firmeza de la respectiva sanción.

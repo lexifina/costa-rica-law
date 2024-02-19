@@ -1,0 +1,1 @@
+II. Deróguense los acuerdos, lineamientos, procedimientos y demás instrumentos que se opongan a las modificaciones aprobadas. La Administración deberá emitir el o los procedimiento(s) e instrumentos necesarios para la operacionalización de las modificaciones aprobadas, en un plazo máximo de 12 meses, contados a partir de la publicación de este reglamento.
