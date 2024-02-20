@@ -1,0 +1,10 @@
+N° 10444
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+LEY PARA GARANTIZAR EL SERVICIO DE AUTOBÚS PARA LOS USUARIOS
+ARTÍCULO 1.- Se adiciona el transitorio XXV a la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012. El texto es el siguiente:
+Transitorio XXV.- Para efectos de la prestación del servicio de transporte público, en relación con la vida útil de las unidades, se autoriza, por única vez, que las unidades modalidad autobús de ruta regular, modelos 2007 y 2008, puedan ser utilizadas en el servicio de transporte público y circular hasta por un año a partir de la entrada en vigencia de la presente ley. Esta norma es de aplicación única y exclusiva para las empresas autobuseras clasificadas como micro, pequeñas y medianas, según la clasificación de la Autoridad Reguladora de los Servicios Públicos (Aresep) y las cooperativas del sector de transporte público ubicadas en esas clasificaciones. El ente encargado de realizar la inspección técnica vehicular deberá verificar de previo el cumplimiento de los requisitos técnicos de la flota del transporte público que circule bajo esta habilitación. Las unidades de transporte que sobrepasen los quince años de antigüedad, y se acojan al plazo adicional establecido en el presente transitorio, deberán realizar la inspección técnica vehicular cada cuatro meses y cumplir con las condiciones de accesibilidad establecidas en la Ley 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, y su reglamento.
+Durante la vigencia de la presente norma transitoria, tanto el Consejo de Transporte Público como la Autoridad Reguladora de los Servicios Públicos tendrán por autorizada la operación de las unidades cubiertas por esta disposición, para todos los aspectos operativos, tarifarios y legales.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los treinta y un días del mes de enero del año dos mil veinticuatro.
