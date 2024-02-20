@@ -1,0 +1,1 @@
+Artículo 213. Promoción de los Programas de Renovación por iniciativa pública o privada. Los proyectos de renovación urbana podrán ser promovidos en las áreas de renovación, por la municipalidad, instituciones públicas, una SPEM, desarrolladores inmobiliarios y particulares en general, o cualquier combinación de los anteriores actores.

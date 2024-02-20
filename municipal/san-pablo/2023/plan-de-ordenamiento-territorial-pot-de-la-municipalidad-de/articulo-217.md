@@ -1,0 +1,1 @@
+Artículo 217. Aval Técnico-Legal de los Programas de Renovación Urbana. El aval técnico-legal del Programa de Renovación Urbana, de conformidad con las tipologías contempladas en el presente Reglamento, deberá ser otorgado por el Departamento de Ordenamiento Territorial y la Asesoría Jurídica de la Municipalidad, respectivamente.

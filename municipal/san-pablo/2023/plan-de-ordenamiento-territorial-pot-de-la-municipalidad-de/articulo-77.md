@@ -1,0 +1,1 @@
+Artículo 77. Modificación y Transformación de Operaciones Urbanas Complejas. Para la modificación y transformación de operaciones urbanas complejas, se aplicará lo indicado en los artículos 67 y 68 del POT, los cuales hacen referencia a la modificación y transformación de urbanizaciones.

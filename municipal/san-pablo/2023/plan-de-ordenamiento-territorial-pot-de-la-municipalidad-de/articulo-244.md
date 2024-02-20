@@ -1,0 +1,8 @@
+Artículo 244. Aceras. Toda persona que desee transformar un terreno clasificado como suelo urbanizable en suelo urbanizado, deberá construir su propia acera, como parte de las obligaciones correspondientes a la habilitación urbana del predio, de conformidad con lo dispuesto en el artículo 84 del Código municipal. En todas las operaciones de transformación de suelo contempladas en el POT, se deberán respetarlas siguientes disposiciones en lo referente a la construcción de aceras:
+a) El acabado y diseño de las aceras se regirá con las disposiciones estipuladas en el Reglamento de Construcciones del POT.
+b) Las aceras deberán ser firmes, continuas, sin obstáculos. Esto incluye la Los cuadrantes de las urbanizaciones serán realizados según una proporción continuidad entre predios.
+c) El diseño de la acera deberá garantizar el desplazamiento de personas con discapacidad de conformidad con lo preceptuado en la ley 7600.
+d) Si el acceso a un predio se encuentra en un nivel inferior al de la calzada, se deberá respetar la altura de la acera, y dirigir la pendiente hacia el predio, colocando un sistema de drenaje longitudinal, como una cuneta auxiliar.
+e) Cuando se da el caso de una acera en medio de una zona verde, como en un parque, la obra deberá tener una pendiente hacia ambos lados.
+f) En proyectos urbanísticos con fines comerciales, de servicios o mixtos el ancho de la acera deberá ser de tres metros como mínimo.
+g) Las aceras deberán contar con los elementos para garantizar la movilidad inclusiva de conformidad con los dispuesto por la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley N°7600, y su Reglamento.

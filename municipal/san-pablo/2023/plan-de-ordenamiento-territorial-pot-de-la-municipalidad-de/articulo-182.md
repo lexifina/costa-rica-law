@@ -1,0 +1,1 @@
+Artículo 182. Sanciones. Sin perjuicio de las sanciones indicadas en el artículo 22 del Reglamento de Construcciones del INVU, los profesionales, propietarios, empresas o contratistas que incumplan las disposiciones del POT, estarán sujetos a ser sancionados, en los términos indicados en los artículos 24 y 25 de este Reglamento.

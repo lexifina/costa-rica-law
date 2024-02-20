@@ -1,0 +1,2 @@
+Artículo 220. Fiscalización de los Proyectos de Renovación Urbana. La fiscalización técnica-constructiva de los Proyectos de Renovación Urbana, se deberá realizar de forma obligatoria, para asegurar el cumplimiento de los objetivos propuestos en los proyectos de renovación urbana, durante todo el periodo de ejecución de las obras.
+Dicha fiscalización, conforme lo establecido en el artículo 22 del POT, corresponderá al Departamento de Ordenamiento Territorial de la municipalidad.

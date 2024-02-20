@@ -1,0 +1,2 @@
+Subsección décima: Zonificación concurrente en un mismo predio.
+Artículo 156. Resolución de oficio en casos de concurrencia de zonas o subzonas en un mismo predio. La municipalidad, por medio del otorgamiento del certificado del uso de suelo, definirá las condiciones en las que se debe resolver los casos de concurrencia, tomando en consideración el uso o actividad solicitada por el interesado,de conformidad con los criterios de resolución indicados en la presente subsección.

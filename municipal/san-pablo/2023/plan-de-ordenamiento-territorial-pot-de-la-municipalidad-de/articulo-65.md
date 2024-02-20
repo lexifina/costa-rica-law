@@ -1,0 +1,1 @@
+Artículo 65. Fraccionamiento con Fines Urbanísticos. Toda operación de fraccionamiento que no cumpla con las características definidas en el artículo anterior será considerada como un fraccionamiento con fines urbanísticos.

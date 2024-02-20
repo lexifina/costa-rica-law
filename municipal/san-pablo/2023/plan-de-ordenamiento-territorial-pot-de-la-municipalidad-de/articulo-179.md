@@ -1,0 +1,2 @@
+Artículo 179. Edificaciones de Uso Mixto. El uso mixto es una propiedad inherente al régimen de zonificación, y conforme a las disposiciones del artículo 104 del POT,s e encuentra generalizado en todo el territorio local, y se aplica conforme a los parámetros específicos definidos para cada zona, en el capítulo cuarto del POT. Las edificaciones en el cantón podrán albergar todos los usos que sean conformes a la zonificación en que se ubique el inmueble, y deberán respetar los parámetros
+urbanísticos definidos para la zona o subzona correspondiente.

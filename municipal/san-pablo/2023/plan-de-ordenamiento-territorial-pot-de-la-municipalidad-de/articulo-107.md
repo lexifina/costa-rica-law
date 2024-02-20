@@ -1,0 +1,4 @@
+Artículo 107. Ubicación y Configuración. Las áreas de parques, juegos infantiles y tras facilidades comunales, se deberán ubicar y configurar de la siguiente manera:
+a) Contiguo a áreas públicas preexistentes si las hubiere.
+b) Concentradas equidistantemente de las viviendas si es posible, o a distancias no mayores a doscientos metros de la vivienda más alejada, según la distancia medida sobre y a lo largo de la calle, para áreas de juegos infantiles y en sitios en los cuales no se deban cruzar rutas nacionales, para poder llegar a dichas áreas desde las viviendas a las que se les brinde el servicio.
+c) Deberán tener como mínimo dos frentes a vías públicas, o encontrarse en los centros de los cuadrantes, siempre y cuando los predios circundantes presenten un mínimo de 30% de permeabilidad visual en cada uno de los frentes.

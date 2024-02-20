@@ -1,0 +1,1 @@
+Artículo 241. Alcance de la normativa relativa a Calzadas y Aceras. El derecho de vía de las carreteras y de los caminos públicos será el que indique el MOPT o la municipalidad, según corresponda, pero las características geométricas de calzada y aceras se regirán por lo establecido en este reglamento.

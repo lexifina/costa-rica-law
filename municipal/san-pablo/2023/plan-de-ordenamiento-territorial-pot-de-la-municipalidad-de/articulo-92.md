@@ -1,0 +1,2 @@
+Artículo 92. Telecomunicaciones. La construcción de la red telefónica principal, cuyo diseño aprobará en cada caso la Superintendencia de Telecomunicaciones (SUTEL), podrá hacerse con las empresas que brindan el servicio en el mercado.
+En el proyecto deben estar contemplados los dispositivos de distribución telefónica e internet, cuya ubicación deberá ser consultada a la SUTEL durante la fase de anteproyecto, a fin de que se reserven los espacios necesarios.

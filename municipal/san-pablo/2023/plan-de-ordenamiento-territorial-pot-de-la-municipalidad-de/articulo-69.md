@@ -1,0 +1,1 @@
+Artículo 69. Determinación de Usos en Parcelas Resultantes. De conformidad con el modelo de ocupación de suelo establecido en el POT de San Pablo, la distribución de los usos permitidos en las parcelas se determinará de conformidad con los parámetros establecidos en las fichas incluidas en el capítulo cuarto de este Reglamento.

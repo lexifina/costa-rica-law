@@ -1,0 +1,1 @@
+Artículo 28. Accesibilidad al Espacio Público. Los parques, jardines, alamedas y calles públicas son de libre acceso a todas las personas, los que al usarlos tienen la obligación de conservarlos en el mejor estado posible.

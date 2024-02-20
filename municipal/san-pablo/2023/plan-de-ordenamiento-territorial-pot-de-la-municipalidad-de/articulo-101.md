@@ -1,0 +1,1 @@
+Artículo 101. Firmeza del Avalúo. El avalúo se considerará firme a todos sus efectos 3 días después de notificado al interesado, sin perjuicio de los recursos dispuestos en el artículo 171 del Código Municipal.

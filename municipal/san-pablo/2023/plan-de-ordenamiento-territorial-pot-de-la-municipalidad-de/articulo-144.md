@@ -1,0 +1,5 @@
+Subsección Sexta. ZonaMixta Residencial SubUrbana (MRS).
+Artículo 144. Clasificación de la Zona Mixta Residencial SubUrbano. La zonificacióncorrespondiente se deberá aplicar en el distrito primero, a los predios edificados y no edificados correspondientes a dicha zona, identificada en el Mapa de Zonificación con la sigla MRS. Esta zona se subdivide a su vez en dos subzonas, en consideración de la naturaleza de los predios ubicados en dicha zonificación:
+a) Zona Mixta Residencial Suburbano Tipo 1 (MRS-1): Por medio de esta subcategoría se delimitan los predios no construidos ubicados en esta zona, loscuales presentan oportunidades significativas de mejora para el tejido urbano existente, y en consideración de lo anterior, ofrecen más posibilidades para la articulación de usos mixtos compatibles con el uso residencial, que la subzona tipo 2.
+b) Zona Mixta Residencial Suburbano Tipo 2 (MRS-2): En esta subcategoría se incluyen los predios construidos ubicados en dicha zona, como consecuencia de los proyectos de urbanización y condominios previamente realizados
+en el cantón.

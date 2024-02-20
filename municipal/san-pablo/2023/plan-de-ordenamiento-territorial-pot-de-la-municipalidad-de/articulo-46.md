@@ -1,0 +1,1 @@
+Artículo 46. Principio de uso Racional del Suelo. El suelo, como recurso escaso, debe ser aprovechado de forma eficiente y eficaz. Con base en lo anterior, se deben considerar las características propias del mismo en función de su ubicación y situación al momento de definir su categorización.

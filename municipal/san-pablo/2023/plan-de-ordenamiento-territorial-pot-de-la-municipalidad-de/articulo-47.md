@@ -1,0 +1,1 @@
+Artículo 47. Clasificación del Suelo Aplicable al Cantón de San Pablo. La clasificación del suelo, definido conforme a las categorías generales reconocidas en la Ley de Planificación Urbana, y los mecanismos establecidos para transformarlo, instrumentan la gestión del suelo, conforme a los principios y lineamientos definidos en los artículos 5 y 6 del POT.

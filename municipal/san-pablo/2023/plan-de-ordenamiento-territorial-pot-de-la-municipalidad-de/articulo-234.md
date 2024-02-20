@@ -1,0 +1,3 @@
+SECCIÓN TERCERA. ESTACIONAMIENTO EN VÍA PÚBLICAS.
+Estas plazas deberán de ubicarse equidistantemente a un ? de la distancia total de la calle medida desde las esquinas, utilizando los criterios establecidos en el artículo 231 de este Reglamento. Estas plazas deberán de estar debidamente señaladas para su identificación.
+Artículo 234. Parqueos para motocicletas. Los parqueos para motocicletas podrán ubicarse a lo largo de la franja de parqueos sobre la vía pública, respetando las distancias y ubicaciones indicadas en el artículo 231 del POT. La cantidad de parqueos para motocicletas sobre una calle no podrán superar el 20% de las plazas disponibles para vehículos de 4 ruedas.

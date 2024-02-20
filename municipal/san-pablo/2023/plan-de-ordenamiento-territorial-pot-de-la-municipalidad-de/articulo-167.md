@@ -1,0 +1,1 @@
+Artículo 167. Recursos. De conformidad con lo indicado en el artículo 171 del Código Municipal, los certificados de uso de suelo spodrán ser sometidos a los recursos de revocatoria y apelación en subsidio, en caso de inconformidad con lo resuelto en un primer término por parte de las autoridades municipales.

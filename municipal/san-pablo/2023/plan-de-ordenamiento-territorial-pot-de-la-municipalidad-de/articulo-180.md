@@ -1,0 +1,2 @@
+Artículo 180. Proyectos bajo el Régimen de Propiedad en Condominio. Las construcciones edificadas o incorporadas al Régimen de Propiedad en Condominio se rigen en lo que respecta a su diseño interno y régimen de propiedad, por las disposiciones de la Ley Reguladora de la Propiedad en Condominio y su Reglamento.
+De forma complementaria a lo indicado, se deberán aplicar las disposiciones de la sección tercera del capítulo tercero del POT.

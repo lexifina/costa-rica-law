@@ -1,0 +1,3 @@
+SECCIÓN TERCERA: RÉGIMEN DE EXCEPCIÓN A LAS DISPOSICIONES
+SOBRE EDIFICACIONES DE LA NORMATIVA INVU
+Artículo 183. Parámetros urbanísticos aplicables a todas las edificaciones. Para determinar la cobertura, antejardín, retiros, patios de luz/iluminación/ventilación y alturas, de cada edificación, la municipalidad deberá aplicar las disposiciones incluidas en el capítulo cuarto del POT, referidas al régimen de zonificación, al momento de otorgar la licencia constructiva. Quedan derogadas, por lo tanto, las disposiciones sobre dichos parámetros incluidas en los capítulos VI, VIII, IX, XI, XII, XIII, XIV y XV del Reglamento de Construcciones del INVU.

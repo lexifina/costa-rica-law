@@ -1,0 +1,2 @@
+SECCIÓN QUINTA. ÁREAS DE CONTROL ESPECIAL
+Artículo 172. Prevalencia de la Norma Local en materia constructiva. De conformidad con las competencias en materia de planificación urbano-territorial otorgada a las municipalidades por el artículo 15 de la Ley de Planificación Urbana, se dispone que toda aquella normativa de alcance nacional o regional que contradiga lo dispuesto en el presente capítulo, no será aplicable, por estar tácitamente derogada en favor de la prevalencia de la normativa local, incluida en el POT.

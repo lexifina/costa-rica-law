@@ -1,0 +1,1 @@
+Artículo 120. Edificabilidad Mínima. Como resultado de la aplicación del índice de edificabilidad e índice de ocupación, el total de metros cuadrados otorgados a un predio no podrá ser inferior al área mínima de una unidad de vivienda, conforme a lo establecido en en el Reglamento de Construcciones del INVU.

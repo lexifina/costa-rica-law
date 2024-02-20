@@ -1,0 +1,1 @@
+Artículo 95. Consolidación del Dominio Municipal por uso Público. Los terrenos que obligatoriamente deben cederse al dominio municipal, de conformidad con las disposiciones del POT, por el hecho de estar entregados al uso público, forman parte de los bienes de dominio público.

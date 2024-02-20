@@ -1,0 +1,1 @@
+Artículo 184. Construcciones en Urbanizaciones. Las disposiciones sobre usos permitidos, cambios de uso de suelo, otorgamiento de patentes en urbanizaciones, contempladas en el Reglamento de Construcciones del INVU, quedan derogadas en favor de las disposiciones incluidas en el capítulo tercero del POT, así como la normativa local complementaria, aprobada por la municipalidad.

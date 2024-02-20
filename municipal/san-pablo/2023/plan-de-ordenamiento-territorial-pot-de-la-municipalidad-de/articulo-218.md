@@ -1,0 +1,2 @@
+Artículo 218. Aplicación de instrumentos de Gestión de suelo en Proyectos de Renovación Urbana. En los proyectos de renovación se podrá hacer uso de los instrumentos de gestión del suelo incluidos en el POT y en los reglamentos
+complementarios al POT, que serán promovidos y aprobados por la municipalidad, con el objetivo de promover la inversión y ejecución de las obras proyectadas. Lo anterior en estricto apego al Capitulo Sexto de la Ley de Planificación Urbana y en especial al Artículo 53 de la misma.

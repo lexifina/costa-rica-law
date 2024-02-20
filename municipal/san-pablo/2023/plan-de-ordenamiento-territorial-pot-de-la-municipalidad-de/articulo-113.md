@@ -1,0 +1,4 @@
+CAPÍTULO CUARTO. ZONIFICACIÓN
+SECCIÓN PRIMERA. DELIMITACIÓN DEL USO MIXTO EN EL TERRITORIO
+LOCAL
+Artículo 113. Generalización del Uso Mixto en el Cantón de San Pablo. De conformidad con los principios, conceptos y lineamientos de ordenamiento territorial establecidos en el Capítulo Primero del POT, se reconoce la importancia y necesidad de promover el uso mixto de forma generalizada en el cantón de San Pablo. Lo anterior, como requisito fundamental para la transformación del modelo actual de ocupación de suelo predominantemente residencial, por un nuevo modelo que promueva una ocupación funcional y heterogénea del territorio, en la cual la diversidad de usos facilite la articulación del tejido urbano existente, reduzca de forma significativa la necesidad de desplazamientos vehiculares de corta y mediana distancia, y promueva la diversificación de oportunidades de empleo en el cantón.

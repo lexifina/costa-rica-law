@@ -1,0 +1,1 @@
+Artículo 82. Parcelamiento con Fines Agrícolas o Forestales. El parcelamiento con fines agrícolas, pecuarios y forestales solo será permitido en suelo no urbanizable, de conformidad con lo dispuesto en el artículo 44 y 45 del POT.

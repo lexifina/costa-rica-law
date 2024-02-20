@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO. MAPA OFICIAL
+SECCIÓN PRIMERA. INTERPRETACIÓN Y APLICACIÓN DEL MAPA
+OFICIAL
+Artículo 26. Objeto. El presente capítulo regula lo concerniente al mapa oficial, el cual de conformidad con lo dispuesto en el artículo 42 de la Ley de Planificación Urbana, se define como el mapa o conjunto de mapas que de forma expresa indica los trazados de vías públicas y áreas de reserva para usos y servicios comunales, sean aquellas áreas de calles, plazas, jardines, parques u otros espacios abiertos de uso público y general. Se incluye en el Mapa Oficial, identificado como anexo primero del POT, las áreas entregadas al uso público, como aquellas demarcadas preventivamente, incluidas las continuidades viales y las áreas de reserva futura para equipamientos, propuestas para la consolidación del tejido urbano existente.

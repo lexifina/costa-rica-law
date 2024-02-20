@@ -1,0 +1,1 @@
+Artículo 84. Dimensiones de Servidumbres con Fines Agrícolas o Forestales. Las servidumbres para acceder a las parcelas agrícolas o forestales serán de un ancho mínimo de 7 metros y deberán estar dentro de las parcelas en forma total o en partes proporcionales.

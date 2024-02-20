@@ -1,0 +1,4 @@
+Artículo 118. Parámetros de Fraccionamiento. Los parámetros de fraccionamiento incluyen las siguientes variables, asociados a la transformación del predio:
+a) Frente del Predio o Lote: Corresponde a la colindancia frontal del predio, el cual se identifica como el lado de la propiedad que colinda o se ubica frente a calle pública.
+En caso de que el predio tenga dos o más frentes hacia calle pública, ambos frentes deberán cumplir con el parámetro establecido.
+b) Superficie de Lote (SL): Se refiere al área mínima que debe ocupar cada predio resultante de las operaciones de fraccionamiento y urbanización, así como de los proyectos sometidos al régimen de propiedad en condominio, cuando éstos sean realizados bajo la modalidad de condominio horizontal, o conforme a aquellas modalidades en donde el condómino es propietario exclusivo de un terreno propio, de conformidad con el artículo 46 del Reglamento a la Ley Reguladora de la Propiedad en Condominio.

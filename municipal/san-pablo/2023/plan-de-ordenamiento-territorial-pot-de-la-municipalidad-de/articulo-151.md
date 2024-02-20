@@ -1,0 +1,2 @@
+Artículo 151. Obras permitidas en Zonas de Protección Forestal. Por la naturaleza de estas zonas y las reservas legales que pesan sobre ellas, solo se permitirán las obras que expresamente se indican en el artículo 33 bis y 33 ter de la Ley Forestal, sus reformas y la reglamentación que emita el Estado para estos efectos.
+Los interesados en realizar las mismas, deberán someterse a los procedimientos administrativos que se definan a efectos de obtener autorización para realizar obras en zonas de protección forestal.

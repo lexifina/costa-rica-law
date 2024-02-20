@@ -1,0 +1,1 @@
+Artículo 170. Áreas de Renovación Urbana. De conformidad con el artículo 52 de la Ley de Planificación Urbana, se establece en el mapa de zonificación del POT, las Áreas de Renovación Urbana, sobre las cuales se aplicarán las disposiciones especiales contempladas en el capítulo sexto del presente reglamento.

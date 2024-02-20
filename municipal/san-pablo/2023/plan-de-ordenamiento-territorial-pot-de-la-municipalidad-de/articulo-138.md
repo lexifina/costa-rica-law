@@ -1,0 +1,4 @@
+Subsección Tercera: Zona Mixta Centro de Empleo (MCE)
+Artículo 138. Clasificación de la Zona Mixta Centro de Empleo. La zonificación correspondiente se deberá aplicar en el distrito segundo, a los predios edificados y no edificados correspondientes a dicha zona, identificada en el Mapa de Zonificación con la sigla MCE. Esta zona se subdivide a su vez en las siguientes subzonas, en consideración de su ubicación e intensidad de usos:
+a) Zona Mixta Centro de Empleo Tipo 1(MCE-1): Por medio de esta subzona se delimitan los predios ubicados sobre la ruta nacional 3, eje vial de importancia regional, situación que permite usos más intensivos (incluido usos industriales).
+b) Zona Mixta Centro de Empleo Tipo 2(MCE-2): En esta subzona se incluyen lospredios ubicados entre la vía del ferrocarril, la quebrada Gertrudis y el río Bermúdez, los cuales presentan condiciones favorables para promover usos complementarios mixtos, generadores de impactos leves o moderados.

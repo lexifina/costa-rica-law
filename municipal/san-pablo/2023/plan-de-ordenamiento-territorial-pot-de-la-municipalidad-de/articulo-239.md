@@ -1,0 +1,7 @@
+SECCIÓN CUARTA. CONFIGURACIÓN Y DISEÑO GEOMÉTRICO DEL
+ESPACIOPÚBLICO
+Artículo 239. Obligación de preservar la continuidad del tejido urbano. Cuando se pretenda transformar un predio que se encuentre en una relación de colindancia con otros predios previamente transformados, el proyecto deberá aplicar los siguientes criterios de integración espacial con el tejido urbano y la trama natural, según corresponda:
+a) La integración al tejido urbano se debe dar por medio de vías públicas, accesos, áreas verdes o espacios que promuevan la vinculación espacial de las diferentes reconfiguraciones prediales con los espacios urbanos existentes, promoviendo una adecuada integración visual, física y funcional del proyecto.
+b) En la medida de lo posible, el acceso de los nuevos desarrollos deberá ubicarse frente a ríos, parques, plazas de congregación, y cualquier otro espacio público o natural.
+c) En caso de desarrollos contiguos a ríos o quebradas, estos se deberán separar de los cuerpos de agua por medio de una vía pública ya sea mediante sendas peatonales, ciclísticas, vehiculares o combinaciones de ambas y la zona de protección de conformidad con lo establecido en el artículo 33 de la Ley Forestal.
+d) Cuando se urbanicen terrenos contiguos a una vía de acceso restringido, existente o proyectada, ha de separarse el tránsito propio del desarrollo en cuestión al de dicha vía por medio de calles marginales.

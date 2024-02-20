@@ -1,0 +1,3 @@
+Artículo 243. Disposiciones aplicables a todos los tipos de vías. A partir de la presentación del anteproyecto por parte del interesado, la Municipalidad emitirá recomendaciones y formulará observaciones al mismo con el fin de que sean
+consideradas por los interesados en el diseño del proyecto. Las observaciones y recomendaciones serán formuladas a partir de los criterios enunciados en el artículo anterior.
+En el caso de urbanizaciones en cuyo diseño se utilice más de un 20% del terreno para vías públicas, Municipalidad podrá exigir modificaciones si el diseño no fuere el adecuado, previa resolución justificada emitida por la Dirección de Control Urbano, para lo cual se deberá solicitar el criterio de los departamentos técnicos correspondientes.

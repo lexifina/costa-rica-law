@@ -1,0 +1,5 @@
+Artículo 253. Diseño de intervenciones viales prioritarias. Para el tratamiento de las catorce intervenciones viales más problemáticas, las cuales han sido incluidas en el Mapa de intervenciones viales prioritarias correspondiente al anexo décimo primero del POT, se definen los siguientes criterios generales de diseño:
+a) Deberá procurarse solucionar dichas intersecciones a nivel por medio del ensanchamiento de las vías y la realización de glorietas por lo que deberá priorizarse la compra de suelo en torno a estas antes que las soluciones a desnivel.
+b) De ser necesario realizar soluciones a desnivel, deberá priorizarse realizar el diseño y ejecución de dichas intervenciones bajo el nivel actual, con el fin de provocar el menor impacto al paisaje urbano.
+c) Estas obras deberán en todo momento incluir la incorporación de jardineras y áreas verdes con sistemas de riego para su mantenimiento y de esta forma mejorar el paisaje urbano y reducir su impacto visual.
+d) El diseño de estas obras deberá en todo momento tomar en cuenta el paso de peatones y bicicletas el cual no podrá ser eliminado bajo ninguna circunstancia.

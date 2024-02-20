@@ -1,0 +1,2 @@
+Artículo 35. Naturaleza de las Continuidades Viales. Las continuidades viales constituyen reserva de dominio público, para la ampliación futura de la red vial cantonal.
+En razón de lo anterior, no se consideran calles públicas, y por lo tanto, no le son aplicables las disposiciones sobre segregación o transformación de suelo frente a calle pública, en el tanto no sean habilitadas como consecuencia de dichos procesos, e incorporadas de forma definitiva al dominio público municipal.
