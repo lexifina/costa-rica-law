@@ -1,1 +1,0 @@
-Artículo 21.—Si al realizar un arqueo resultara un faltante, la Persona Encargada de la Caja Chica deberá suplirlo con sus propios recursos en un plazo máximo de veinticuatro horas después de que éste haya sido detectado. En estos casos se iniciará una investigación para conocer la verdad de los hechos.

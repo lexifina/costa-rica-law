@@ -1,1 +1,0 @@
-Artículo 5º—Si la persona encargada de la caja chica se ausenta de la Institución por vacaciones, permiso temporal con o sin goce de salario, caso fortuito o de fuerza mayor, el fondo se trasladará temporalmente a la Persona que designe la Dirección de Administración Interna, en coordinación con la Jefatura de la Sección de Contabilidad y Finanzas.

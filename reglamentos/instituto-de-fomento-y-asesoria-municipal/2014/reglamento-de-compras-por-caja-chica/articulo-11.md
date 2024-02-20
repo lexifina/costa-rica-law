@@ -1,4 +1,0 @@
-De las compras
-Artículo 11.—La adquisición de Bienes y Servicios por medio de este fondo, se hará cuando se trate de compras menores, pero en ningún caso las compras podrán ser superiores al límite establecido por la Junta Directiva en artículo 4°.
-Excepcionalmente y previa justificación, por parte del titular de la Dirección Ejecutiva, o la persona que en su ausencia quede debidamente acreditado por éste, podrá adquirirse por medio de caja chica bienes y servicios, de forma urgente, para atender alguna actividad de capacitación y lograr el cumplimiento de los fines de la actividad de capacitación siempre que estos bienes y servicios no correspondan a los servicios profesionales o técnicos de quienes impartan la actividad de capacitación.
-(Así reformado mediante sesión extraordinaria N° 4372 del 3 de febrero del 2016)

@@ -1,2 +1,0 @@
-Artículo 10.—El encargado de la caja chica preparará el reembolso correspondiente en los formularios diseñados al efecto, indicando el número de factura, la fecha, el monto, la Dirección o Sección que efectuó el gasto, número de la solicitud de Caja Chica, el detalle del servicio, el bien adquirido y la partida presupuestaria utilizada.
-Este reembolso deberá ser aprobado por el superior inmediato del encargado de la caja chica.
