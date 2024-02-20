@@ -9,4 +9,5 @@ USO Y CUSTODIA DE FIRMA DIGITAL
 EN LA MUNICIPALIDAD DE POÁS
 CAPÍTULO I
 Disposiciones generales
-Artículo 1°-Objetivo: el presente Reglamento tiene por objeto regular el uso de los certificados digitales, la compra del certificado firma digital para las personas funcionarias, incluidos los Regidores propietarios y suplentes del Concejo Municipal, y la custodia de dichas herramientas tecnológicas.
+Artículo 1°-Objetivo: el presente Reglamento tiene por objeto regular el uso de los certificados digitales, la compra del certificado firma digital para las personas funcionarias, incluidos los Regidores propietarios-suplentes y Síndicos Propietarios del Concejo Municipal, y la custodia de dichas herramientas tecnológicas.
+(Así reformado mediante sesión N° 198-2024 del 20 de febrero de 2024)
