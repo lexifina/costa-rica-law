@@ -16,3 +16,4 @@ Instructivo para la elaboración de tablas de plazos de conservación y cifrado 
 | 2 | 2022-05-03 | Circular 76 (2022-05-03) |
 | 3 | 2023-02-01 | Circular 26 (2023-02-01) |
 | 4 | 2023-02-07 | Circular 26 (2023-02-07) |
+| 5 | 2024-02-20 | Circular 43 (2024-02-20) |
