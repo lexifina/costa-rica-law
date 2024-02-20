@@ -1,1 +1,0 @@
-Artículo 21.—El funcionario responsable del Adelanto de Fondos deberá reintegrar las sumas sobrantes en la Tesorería; contará para ello con un plazo de dos días hábiles a partir de la finalización de la actividad.

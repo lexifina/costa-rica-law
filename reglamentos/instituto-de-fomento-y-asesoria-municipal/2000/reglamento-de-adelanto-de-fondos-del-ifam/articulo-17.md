@@ -1,1 +1,0 @@
-Artículo 17.—La comprobación de falsedad de los documentos o el ocultamiento de información en los datos incluidos en la liquidación, se considerará falta grave y hará incurrir al responsable en las sanciones previstas en el artículo 158 inciso c) del Reglamento Autónomo de Organización y Servicio del IFAM, sin perjuicio de las demás responsabilidades en que hubiese incurrido.

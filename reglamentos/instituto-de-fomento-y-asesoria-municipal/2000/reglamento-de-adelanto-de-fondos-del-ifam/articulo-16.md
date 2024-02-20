@@ -1,2 +1,0 @@
-Artículo 16.—La Sección de Contabilidad y Finanzas contará con un plazo de ocho días para pronunciarse sobre la liquidación. De previo a la aceptación de la liquidación del Adelanto de Fondos, verificará que únicamente se incluyan en la misma los bienes y servicios inicialmente autorizados, salvo modificaciones debidamente justificadas y autorizadas.
-De haberse incurrido en gastos ajenos a los que motivaron el Adelanto de Fondos, se requerirá la autorización de la Dirección Ejecutiva, previa presentación de la evidencia que demuestre la validez de sus justificaciones.

@@ -1,2 +1,0 @@
-Artículo 5(1)°—Las contrataciones para adquisición de bienes y servicios que se promuevan con Adelanto de Fondos, deberán respaldarse en las disposiciones de la Administración del IFAM pudiendo tomarse, a juicio de la Administración, una póliza de seguro para dinero en tránsito.
-(1)Modificado con fundamento en el oficio DGA-USI-2098 (12691) de fecha 20 de diciembre de 2010 de la Contraloría General de la República.

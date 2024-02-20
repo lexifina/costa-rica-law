@@ -1,1 +1,0 @@
-Artículo 19.—Serán susceptibles de liquidación únicamente aquellos gastos reconocidos para la atención de los participantes e instructores incluidos dentro de la lista original de asistencia, salvo situaciones imprevistas debidamente justificadas y, en su caso, autorizadas por el jefe inmediato.

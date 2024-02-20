@@ -1,1 +1,0 @@
-Artículo 10.—De toda la gestión de compra de bienes y servicios por medio de Adelanto de Fondos deberá dejar los documentos que respalden esa gestión en el expediente que debe levantarse del adelanto de fondos y presentarse ante la Sección de Contabilidad y Finanzas.
