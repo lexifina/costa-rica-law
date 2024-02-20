@@ -1,0 +1,2 @@
+Artículo 2°-Habilitación.
+Según acuerdo del Concejo Municipal, tomado en el artículo N° 11, capítulo XII de la Sesión Ordinaria N° 39-2023 del martes 26 de setiembre del 2023, el Concejo Municipal del Cantón Central de Alajuela habilitó a la Municipalidad de Alajuela para que, a través de la administración1, se brinde el beneficio tributario de exención, por lo que ordenó reglamentarlo, en los términos expuestos en el artículo 9 de la Ley 10359.

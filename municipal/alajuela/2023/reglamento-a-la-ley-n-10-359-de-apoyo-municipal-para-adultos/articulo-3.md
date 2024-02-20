@@ -1,0 +1,2 @@
+Artículo 3°-Sujeto pasivo.
+Serán sujetos pasivos de la aplicación de la exención aquellas personas contribuyentes del Cantón Central de Alajuela, mayores de 65 años, en condición de pobreza o pobreza extrema debidamente registrados en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), de conformidad los estudios del Instituto Mixto de Ayuda Social (IMAS), como Ente Rector en la materia.
