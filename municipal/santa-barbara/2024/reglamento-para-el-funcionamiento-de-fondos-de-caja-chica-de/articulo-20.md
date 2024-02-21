@@ -1,0 +1,1 @@
+Artículo 20.-Devoluciones. Cuando la compra no se realice, el funcionario deberá reintegrar de inmediato el dinero anticipado. La no compra deberá justificarse debidamente y contar con el aval del superior inmediato.

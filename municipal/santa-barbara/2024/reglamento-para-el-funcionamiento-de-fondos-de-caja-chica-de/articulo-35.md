@@ -1,0 +1,1 @@
+Artículo 35.-Monto a partir del cual se hace el reintegro al fondo. Se confeccionarán reintegros de Caja Chica cuando los gastos superen el 50% del fondo fijo, esto con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

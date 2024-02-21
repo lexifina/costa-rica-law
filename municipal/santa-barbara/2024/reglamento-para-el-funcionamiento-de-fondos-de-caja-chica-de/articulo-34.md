@@ -1,0 +1,1 @@
+Artículo 34.-Plazo para el reintegro. El Encargado del Fondo contará con un plazo de tres días hábiles para realizar el reintegro. Así mismo deberá tramitar con la mayor diligencia los reintegros con tal de que se mantenga una adecuada rotación y el fondo no llegue a agotarse.

@@ -1,0 +1,1 @@
+Artículo 38.-Bienes y servicios existentes. Por ningún motivo se tramitarán las adquisiciones o compras de bienes y servicios cuando la bodega municipal mantenga existencias de los artículos solicitados o cuando por medio de las dependencias se esté en capacidad de suministrar el artículo o brindar el servicio requerido.

@@ -1,0 +1,1 @@
+Artículo 37.-Violación del principio de legalidad. El Fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales, ni usarse para fines distintos para los que fue creado y a las autorizadas por ley o establecidas en este reglamento, normas supletorias o conexas.

@@ -1,0 +1,1 @@
+Artículo 22.-De los proveedores adscritos al régimen simplificado. Los usuarios del Fondo de Caja Chica deberán verificar previo a la adquisición de bienes o servicios, que los proveedores se encuentren adscritos a este régimen tributario.

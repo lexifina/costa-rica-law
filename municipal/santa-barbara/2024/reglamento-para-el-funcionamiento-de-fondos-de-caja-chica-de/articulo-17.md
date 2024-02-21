@@ -1,0 +1,1 @@
+Artículo 17.-Anticipos. Los adelantos de Caja Chica se otorgarán antes de la compra de los bienes y servicios definidos. En caso de existir remanente, deberá ser reintegrado de inmediato. No se autorizará un segundo anticipo a la dependencia que tenga pendiente la liquidación de algún otro anticipo. Igual aplicará en cuanto al pago de viáticos.

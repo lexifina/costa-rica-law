@@ -1,0 +1,1 @@
+Artículo 11º-Del registro de las compras por Caja Chica. Las compras efectuadas mediate Caja Chica deberán registrarse en el Sistema Digital Unificado (SICOP), dejando constancia de la totalidad de la documentación generada en relación con la compra.

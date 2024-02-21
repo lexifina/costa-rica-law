@@ -1,0 +1,1 @@
+Artículo 40.-Del fraccionamiento. Por ningún motivo podrá utilizarse la Caja Chica como un instrumento para eludir los procedimientos de contratación pública. En consecuencia, no se tramitarán por medio del fondo fijo de Caja Chica las compras que se hayan definido como artículo de uso cotidiano u ordinario.

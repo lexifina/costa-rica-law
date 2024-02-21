@@ -1,0 +1,1 @@
+Artículo 27.-Verificación y plazo para ejecutar el arqueo. Todo arqueo se realizará en presencia del Encargado de Caja Chica o quién este designe. Ante la ausencia del Encargado, el arqueo se realizará en presencia de quien lo sustituya y dos testigos, de lo cual se dejará constancia escrita. El resultado podrá verificarse nuevamente ante dudas razonables.

@@ -1,0 +1,1 @@
+Artículo 5º-Uso del Fondo de Caja Chica. El Fondo de Caja Chica se utilizará para realizar adelantos de dinero en efectivo o transferencias electrónicas con tal de cubrir los gastos menores de operación autorizados en el Presupuesto de la Municipalidad.

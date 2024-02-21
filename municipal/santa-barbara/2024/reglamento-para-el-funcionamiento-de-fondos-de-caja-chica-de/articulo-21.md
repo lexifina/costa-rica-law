@@ -1,0 +1,1 @@
+Artículo 21.-Requisitos de las facturas o comprobantes. Las facturas o recibos de las compras deberán ser emitidos a favor de la Municipalidad, ser documentos originales, legibles, autorizados o dispensados por la Dirección General de Tributación del Ministerio de Hacienda, especificar claramente el detalle de la compra o servicio y remitirse al correo institucional respectivo.

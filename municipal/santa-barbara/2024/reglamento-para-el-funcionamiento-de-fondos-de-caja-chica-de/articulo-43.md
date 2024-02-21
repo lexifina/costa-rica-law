@@ -1,0 +1,1 @@
+Artículo 43.-Registro en SICOP. Las compras a través de Caja Chica, deberán quedar debidamente registradas en el Sistema Digital Unificado (SICOP), dejando constancia de la totalidad de la documentación generada en relación con la compra realizada.

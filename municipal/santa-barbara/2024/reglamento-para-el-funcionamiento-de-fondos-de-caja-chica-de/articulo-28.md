@@ -1,0 +1,1 @@
+Artículo 28.-Reposición y depósito de dinero. Si realizado el arqueo se determina un faltante de dinero, deberá ser justificado y repuesto por el Encargado a más tardar el día natural hábil siguiente a aquel en que se encontró el faltante.

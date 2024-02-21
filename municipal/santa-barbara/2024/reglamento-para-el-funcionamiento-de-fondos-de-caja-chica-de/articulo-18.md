@@ -1,0 +1,1 @@
+Artículo 18.-De las autorizaciones de anticipos. Corresponde al Departamento de Tesorería autorizar las compras que se efectúen utilizando anticipos de la Caja Chica. Cuando las compras superen un 50% (cincuenta por ciento) del valor del anticipo, el solicitante deberá adjuntar al menos una proforma o cotización.

@@ -1,0 +1,1 @@
+Artículo 4º-Custodia del Fondo de Caja Chica. La custodia del Fondo de Caja Chica será responsabilidad de la Tesorería Municipal, que deberá actuar de conformidad con lo dispuesto por este Reglamento y demás normativa aplicable.

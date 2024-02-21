@@ -1,0 +1,1 @@
+Artículo 9º-Devoluciones. La Caja Chica recibirá devoluciones de dinero, únicamente en efectivo y en moneda nacional, sin excepción de ninguna clase. No podrán recibirse por este fondo notas de crédito o débito.

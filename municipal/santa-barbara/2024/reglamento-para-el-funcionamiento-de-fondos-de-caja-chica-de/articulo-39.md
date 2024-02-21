@@ -1,0 +1,1 @@
+Artículo 39.-Otras prohibiciones. El Encargado de la Caja Chica no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia del dinero del Fondo y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, con excepción de los casos previstos en este mismo reglamento.

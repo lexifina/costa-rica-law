@@ -1,0 +1,1 @@
+Artículo 16.-Uso del Fondo de viáticos. La suma máxima a autorizar por concepto de viáticos será el equivalente de una semana hábil de viáticos totales. De necesitarse un monto mayor deberá contarse con la aprobación de la Alcaldía.

@@ -1,0 +1,1 @@
+Artículo 8º-Variación del monto establecido al Fondo de Caja Chica. Corresponde al Concejo variar excepcionalmente el monto establecido para el Fondo de Caja Chica, ante solicitud justificada que le haga la Alcaldía. Para ello, se considerarán los criterios de la Tesorería y la Dirección Financiera.

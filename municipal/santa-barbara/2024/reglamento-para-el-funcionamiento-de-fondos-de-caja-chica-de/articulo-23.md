@@ -1,0 +1,1 @@
+Artículo 23.-Monto y cantidad autorizados. Los bienes y servicios que se adquieran mediante Caja Chica no podrán exceder el monto y la cantidad autorizados en el anticipo. En caso de ocurrir, el usuario deberá asumir el gasto diferencial resultante.
