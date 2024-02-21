@@ -1,0 +1,27 @@
+JUNTA DE PROTECCIÓN SOCIAL
+JUNTA DIRECTIVA
+La Junta Directiva de la JPS, mediante acuerdo JD- 480 correspondiente al Capítulo IV), artículo 4) de la sesión extraordinaria 52-2023, celebrada el 28 de setiembre de 2023, resuelve reformar los artículos 1, 4 y 5 del Reglamento Interno para Regular las Actividades que Ejecuten los Funcionarios de la Junta de Protección Social en Labores de Seguridad y Vigilancia e Inspección de Vendedores de Lotería.
+LA JUNTA DIRECTIVA
+ACUERDA:
+Se conoce el oficio JPS-AJ-716-2023, de fecha 01 de setiembre de 2023, suscrito por la señora Marcela Sánchez Quesada, Asesora Jurídica, que adjunta la propuesta de reforma a los artículos 1, 4 y 5 del Reglamento interno para regular actividades que ejecuten los funcionarios de la Junta de Protección Social en labores de seguridad y vigilancia e inspección de vendedores de lotería para ajustarlo a lo establecido en el artículo 54 de la Ley de Salarios de la Administración Pública N° 2166 y dar cumplimiento a la disposición 4.5 del Informe número DFOE-BIS-IAD-00005-2023 de fecha 26 de junio de 2023, denominado "Informe de Auditoría sobre el Componente de Auditoría de Remuneraciones según el Título III de la Ley No. 9635 en la Junta de Protección Social (JPS)" la División de Fiscalización Operativa y Evaluativa del Área de Fiscalización para el Desarrollo del Bienestar Social de la Contraloría General de la República y se dispone:
+A) Aprobar la siguiente reforma reglamentaria:
+"La Junta Directiva de la Junta de Protección Social, de conformidad con lo establecido en los artículos 2° y 3° de la Ley N° 8718 y el artículo 103) inciso 1) de la Ley General de la Administración Pública inciso y
+Considerando:
+1º-Que de conformidad con lo establecido en el artículo 45 de la Convención Colectiva de Trabajo, suscrita el veintitrés de diciembre del dos mil dieciséis entre la Junta de Protección Social y la Asociación Nacional de Empleados Públicos y Privados, mediante acuerdo JD-607 correspondiente al artículo VII), inciso 1) de la sesión ordinaria 23-2017 realizada el día 26 de junio del 2017 se aprobó el Reglamento interno para regular actividades que ejecuten los funcionarios de la Junta de Protección Social en labores de seguridad y vigilancia e inspección de vendedores de lotería. Este reglamento se publicó en La Gaceta N°140 del 24 de julio del 2017.
+2º-Que en el artículo 4° del citado reglamento se establece que la Junta reconocerá a los funcionarios que realicen y ejecuten labores de seguridad y vigilancia, así como de inspección de vendedores de lotería, un plus salarial calculado en un 18% del salario base como reconocimiento al riesgo inherente a su labor.
+3º-Que la Ley de Salarios de la Administración Pública N° 2166, reformada por medio de la Ley de Fortalecimiento de las Finanzas Públicas N° 9635, publicada en el Alcance N° 202 a La Gaceta N° 225 del 04 diciembre del 2018, en lo que interesa establece:
+Artículo 54.-Conversión de incentivos a montos nominales fijos. Cualquier otro incentivo o compensación existente, que a la entrada en vigencia de esta ley esté expresado en términos porcentuales, su cálculo a futuro será un monto nominal, resultante de la aplicación del porcentaje al salario base a julio de 2018.
+4º-Que se hace necesario reformar los artículos 1, 4 y 5 del Reglamento interno para regular actividades que ejecuten los funcionarios de la Junta de Protección Social en labores de seguridad y vigilancia e inspección de vendedores de lotería para ajustarlos a lo establecido en el artículo 54 de la Ley de Salarios de la Administración Pública N° 2166. Por tanto;
+SE RESUELVE
+REFORMAR LOS ARTÍCULOS 1, 4 Y 5 DEL
+REGLAMENTO INTERNO PARA REGULAR LAS
+ACTIVIDADES QUE EJECUTEN LOS FUNCIONARIOS
+DE LA JUNTA DE PROTECCIÓN SOCIAL EN LABORES
+DE SEGURIDAD Y VIGILANCIA E INSPECCIÓN DE
+VENDEDORES DE LOTERÍA
+Artículo 1º-Se reforman los artículos 1, 4 y 5 del Reglamento Interno para Regular las actividades que ejecuten los funcionarios de la Junta de Protección Social en labores de Seguridad y Vigilancia e Inspección de Vendedores de Lotería", para que en adelante se lean de la siguiente manera:
+Artículo 1º-Ámbito de aplicación. El presente reglamento será de aplicación obligatoria para el reconocimiento del plus salarial denominado "Riesgo inherente a sus labores", que se reconocerá por el ejercicio de las labores propias de seguridad y vigilancia, así como por las labores de inspección de vendedores de lotería, de conformidad con lo estipulado en el artículo 45 de la Convención Colectiva de Trabajo, suscrita el veintitrés de diciembre del dos mil dieciséis entre la Junta de Protección Social y la Asociación Nacional de Empleados Públicos y Privados.
+Artículo 4º-Del monto de reconocimiento por riesgo inherente a sus labores. El monto que la Junta reconocerá a los funcionarios que realicen y ejecuten labores de seguridad y vigilancia, así como de inspección de vendedores de lotería, corresponde al monto nominal fijo, resultante de la aplicación de un 18% al salario base de la categoría del puesto vigente a julio de 2018.
+Artículo 5º-Improcedencia del reconocimiento: La Junta no reconocerá el plus salarial denominado "Riesgo inherente a sus labores":
+- Al funcionario que realice labores administrativas por un lapso mayor a un mes.
+- Al funcionario que sea nombrado o trasladado de manera temporal o permanente a un puesto donde no realice y ejecute funciones de seguridad y vigilancia, así como labores de inspección de vendedores de lotería.
