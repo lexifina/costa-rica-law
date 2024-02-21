@@ -14,3 +14,4 @@ Reglamento para el control de fraccionamientos de la Municipalidad de Tilarán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-11 | la propia norma |
+| 2 | 2024-02-21 | Reglamento municipal 0 (2024-02-21) |
