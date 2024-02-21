@@ -226,6 +226,27 @@ c.- INTERPRETACIÓN DE DEFECTOS
 10. Ubicación no adecuada que afecta su legibilidad y/o visibilidad | | X |
 11. Fijación defectuosa | X | |
 12. Placas de matrícula sin validez legal | | X |
+(*)1.3.- Placas de matrícula y documento de identificación adicional.
+a.- Especificaciones Generales.
+Tanto las placas de matrícula como el documento de identificación adicional deben ser los emitidos por el Registro Nacional de la Propiedad y no pueden manipularse.
+Las placas de matrícula metálicas y el documento de identificación adicional deben ser sustituidos en caso de ilegibilidad o deterioro de los elementos de identificación y seguridad; así mismo en aquellos casos detectados cuya categoría no corresponda con el vehículo.
+Se debe tener en cuenta que existen placas constituidas únicamente por dígitos numéricos y otras que son alfanuméricas, en ambos casos todos sus caracteres cuentan con la misma importancia y deben resultar legibles (incluidas las leyendas "Costa Rica" y "Centroamérica"). No deben colocarse objetos que afecten la legibilidad de uno o todos sus caracteres o que impidan determinar su originalidad.
+Las placas de matrícula deben ubicarse en el lugar designado por el fabricante del vehículo para ser instaladas. Cuando el vehículo no presente una ubicación preestablecida se debe acondicionar una nueva ubicación que cumpla todos los requisitos legales.
+Nota: Este apartado será aplicable respecto al documento de identificación adicional siempre y cuando el vehículo porte las placas de matrícula con el nuevo formato de soporte metálico, ya sea por sustitución de placas defectuosas/ ilegibles, sustitución voluntaria o bien sustitución a partir de la calendarización oficial dada por el Registro Nacional de la Propiedad para su portación obligatoria.
+b.- Procedimiento.
+Mediante inspección visual se comprobará en el caso de la placa de matrícula y cuando corresponda, para el documento de identificación adicional; lo siguiente:
+- Su existencia.
+- Su originalidad.
+- Su número y tipo, según la categoría y/o carrocería del vehículo.
+- Que no existan defectos de estado que afecten su legibilidad.
+- Que no existan elementos al frente que afecten la legibilidad.
+- Si existen indicios de manipulación que afecten la determinación de la originalidad.
+- Ubicación.
+- Fijación.
+Para establecer si la legibilidad de la placa de matrícula ha sido afectada en cualquiera de sus caracteres, se verificará al leerse la letra o número si esta pueda ser determinada sin dificultad y además no tienda a confundirse.
+Entiéndase por categoría tanto la nomenclatura de la clasificación de la placa (carga liviana, taxi, vehículo histórico, etc) como en el color del soporte metálico (por ejemplo, el soporte metálico de color verde es únicamente para vehículos eléctricos que no equipen motor de combustión, etc)
+[imagen]
+(*)(Así adicionado el punto 1.3 anterior mediante sesión ordinaria 0007-24 del 21 de febrero de 2024)
 2.- Acondicionamiento Exterior, Carrocería y Chasis
 2.1.- Carrocería y chasis
 a.- ESPECIFICACIONES GENERALES
