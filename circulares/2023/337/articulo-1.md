@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR N° 337-2023
+(Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
 Asunto: Disposiciones sobre la aplicación del teletrabajo en el Centro de Conciliación y cantidad de días máximos que se puede teletrabajar.
 AL CENTRO DE CONCILIACIÓN
 SE LES HACE SABER QUE:
