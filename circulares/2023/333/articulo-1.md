@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR N° 333-2023
+(Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
 Asunto: Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Penal y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA PENAL
 SE LES HACE SABER QUE:
