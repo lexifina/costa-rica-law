@@ -4,7 +4,7 @@ La aprobación del "Manual de Atinencias y Especialidades Docentes", mediante Ac
 El manual anterior rige a partir de su publicación.
 El Manual de Atinencias y Especialidades Docentes, en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www. utn.ac.cr, sección "Normativa Universitaria".
 (Nota de Sinalevi: El presente Manual de Atinencias y Especialidades Docentes fue proporcionado por la Universidad Técnica Nacional y se transcribe a continuación:)
-(Nota de Sinalevi: El presente manual fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria N° 2-2024 del 25 de enero de 2024, publicada en La Gaceta N° 26 del 12 de febrero del 2024 y se transcribe a continuación:)
+(Nota de Sinalevi: El presente manual fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria N° 7-2024 del 22 de febrero de 2024, publicada en La Gaceta N° 52 del 19 de marzo 2024 y se transcribe a continuación:)
 Aprobado por el Consejo Universitario en la Sesión ordinaria 28-2018 del 19 de diciembre de 2018, mediante acuerdo 8-28-2018.
 Reformado mediante Acuerdos 7-9-2019, 7-10-2019, 8-10-2020, 7-11-2020, 7-12-2020, 14-13-2020 y 24-20-2020 tomados por el Consejo Universitario.
 Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión
@@ -23,6 +23,8 @@ Universitario en la Sesión Ordinaria No. 2-2024, Artículo 16, celebrada el jue
 26 del lunes 12 de febrero del 2024. "Reforma tanto en el apartado de atinencias de la carrera de Ingeniería del Software (ISW) como de las
 atinencias de apartado de la carrera de Ingeniería en Salud Ocupacional y Ambiente (ISOA) del "Manual de Atinencias y Especialidades Docentes de la
 Universidad Técnica"
+Reformado mediante Acuerdo 13 tomado por el Consejo Universitario en la
+Sesión Ordinaria No. 7-2024, celebrada el jueves 22 de febrero de 2024, a las ocho horas con treinta minutos, según el Artículo 17 del Capítulo VII. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 52 del martes 19 de marzo del 2024.
 Presentación
 El presente Manual es un instrumento de consulta, en el que se incluyen las atinencias de las disciplinas o especialidades atinentes a los cursos que conforman las estructuras curriculares de las diferentes carreras y áreas de servicios de la Universidad Técnica Nacional. La información provista pretende servir como insumo en los procesos de contratación del personal académico, mismo que requiere del análisis de las ofertas de servicios y atestados de las personas interesadas en incorporarse a la Universidad.
 En el documento, se compila el trabajo realizado por las Direcciones de las carreras y coordinaciones de áreas de servicios, quienes con sus equipos de trabajo llevaron a cabo una labor de identificación y correlación de las especialidades que son atinentes a los diferentes cursos que se imparten en cada carrera.
@@ -135,8 +137,7 @@ Atinencias para los cursos de recursos informáticos, laboratorio tecnológico:
 53. Sistemas Computacionales
 54. Sistemas de Computación
 55. Sistemas de Información
-56. Sistemas de Información con énfasis en Gestión de Proyectos Informatices
-57. Sistemas Informatices
+56. Sistemas de Información con énfasis en Gestión de Proyectos Informatices 57. Sistemas Informatices
 58. Tecnología Estratégicas de Información y Comunicación
 59. Telemática Nota Técnica:
 El curso de Laboratorio Tecnológico, se asignará a un especialista del área de Administración de Aduanas o de Comercio Internacional, por ser un curso puntual de especialidad.
@@ -14173,19 +14174,19 @@ Cabe mencionar que las atinencias del personal académico, son correlativas a lo
 Propósito
 Los cursos del Área Cultural y Deportiva, adscritos al Área de Formación Humanística, tienen como propósito la formación integral de los educandos en los diferentes ámbitos de aprendizaje que se asocian a la adquisición de conocimientos, habilidades y destrezas para su desarrollo humano y profesional. Cursos que conforman el área cultural y deportiva
 Cursos del Área Cultural Cursos del Área Deportiva
-? Comunicación visual y lenguaje ? Acondicionamiento físico publicitario ? Voleibol
-? Danza moderna ? Baloncesto
-? Movimiento creativo ? Futsala
-? Baile popular ? Fútbol básico
-? Taller de ritmo musical ? Judo
-? Cine y sus especialidades ? Atletismo
-? Taller de cine ? Natación
-? Taller de artes visuales ? Tae -bo
-integradas. ? Baile fitness
-? Teatro y sus especialidades ? Balonmano
-? Artes dramáticas ? Deportes colectivos (recreativo
-? Taller de actuación teatral. - competitivo)
-? Apreciación artística y sus ? Deportes individuales
+● Comunicación visual y lenguaje ● Acondicionamiento físico publicitario ● Voleibol
+● Danza moderna ● Baloncesto
+● Movimiento creativo ● Futsala
+● Baile popular ● Fútbol básico
+● Taller de ritmo musical ● Judo
+● Cine y sus especialidades ● Atletismo
+● Taller de cine ● Natación
+● Taller de artes visuales ● Tae -bo
+integradas. ● Baile fitness
+● Teatro y sus especialidades ● Balonmano
+● Artes dramáticas ● Deportes colectivos (recreativo
+● Taller de actuación teatral. - competitivo)
+● Apreciación artística y sus ● Deportes individuales
 especialidades (competitivo - recreativo)
 Atinencias para los cursos del área cultural
 1. Actuación
@@ -14258,3 +14259,5 @@ Sesión Ordinaria No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a la
 Reformado mediante Acuerdo 9- 2- 2024, tomado por el Consejo Universitario en la Sesión Ordinaria No. 2-2024, Artículo 16, celebrada el jueves 25 de enero de 2024, publicado en el diario oficial La Gaceta número 26 del lunes 12 de
 febrero del 2024. "Reforma tanto en el apartado de atinencias de la carrera de
 Ingeniería del Software (ISW) como de las atinencias de apartado de la carrera de Ingeniería en Salud Ocupacional y Ambiente (ISOA) del "Manual de Atinencias y Especialidades Docentes de la Universidad Técnica"
+Reformado mediante Acuerdo 13 tomado por el Consejo Universitario en la
+Sesión Ordinaria No. 7-2024, celebrada el jueves 22 de febrero de 2024, a las ocho horas con treinta minutos, según el Artículo 17 del Capítulo VII. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 52 del martes 19 de marzo del 2024.
