@@ -16,3 +16,4 @@ Reglamento de impuestos municipales del cantón de Pococí
 | 1 | 2020-11-27 | la propia norma |
 | 2 | 2023-02-06 | Reglamento municipal 10 (2023-02-06) |
 | 3 | 2023-02-16 | Reglamento municipal 13 (2023-02-16) |
+| 4 | 2024-02-22 | Reglamento municipal 13 (2024-02-22) |
