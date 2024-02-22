@@ -1,0 +1,4 @@
+Artículo 3.- Competencia. El Estado debe ser garante del acatamiento de las estrategias que promuevan el cumplimiento de los planteamientos y acciones de la Política Pública; para ello requiere del apoyo de la sociedad civil.
+En el marco de la aplicación de la Política Nacional de Seguridad: Costa Rica- Segura Plus 2023-2030, con la finalidad de darle cabal ejecución, le compete particularmente:
+1. Al Estado en su conjunto, actuar definiendo marcos institucionales facilitadores y responsabilizándose de su accionar con el propósito de disminuir los elementos multicausales y los factores de riesgo que inciden en la victimización, la comisión de delitos, así como asegurar la protección y defensa del territorio, la población, el sistema político democrático y el ciberespacio.
+2. A la sociedad civil en general y a los actores clave identificados, participar, deliberando y comprometiéndose con las decisiones adoptadas en los esquemas de proximidad con la policía.
