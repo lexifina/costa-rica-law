@@ -1,0 +1,1 @@
+Artículo 28. Responsables. Las personas encargadas del sistema institucional de gestión documental deben cumplir con todos los requisitos del manual de procedimientos para la selección documental que realicen.

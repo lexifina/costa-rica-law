@@ -1,0 +1,3 @@
+Capítulo VI
+Plazos de Conservación de Documentos.
+Artículo 21. Deber de velar por un plazo apropiado y razonable para la conservación documental. Al confeccionar las tablas de conservación, la respectiva Comisión de la materia, las oficinas administrativas productoras y la CISED, así como, el órgano que las aprueba, es decir, el Consejo Superior, deberán tomar en consideración, que sea un plazo que efectivamente garantice, por un tiempo razonable y apropiado, la conservación de los documentos que tienen valor probatorio en un eventual procedimiento administrativo o en un proceso judicial.

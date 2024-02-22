@@ -1,0 +1,1 @@
+Artículo 38. Norma supletoria. En lo no previsto expresamente en este Reglamento se aplicará supletoriamente lo dispuesto en la Ley del Sistema Nacional de Archivos y su reglamento, la Ley Orgánica del Poder Judicial, así como cualquier norma relacionada con la gestión documental.

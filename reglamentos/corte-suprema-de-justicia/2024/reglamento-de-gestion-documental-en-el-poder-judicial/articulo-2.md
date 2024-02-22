@@ -1,0 +1,1 @@
+Artículo 2. Naturaleza. El presente reglamento dispone las reglas necesarias en materia archivística para establecer mecanismos de coordinación con el fin de cumplir con los objetivos del sistema institucional de gestión documental.

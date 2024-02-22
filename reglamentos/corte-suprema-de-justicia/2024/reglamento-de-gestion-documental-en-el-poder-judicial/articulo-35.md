@@ -1,0 +1,1 @@
+Artículo 35. Normas técnicas. Se dictarán las normas técnicas necesarias sobre la administración de la información electrónica, para estos fines la autoridad reguladora deberá coordinar con la CISED, el Archivo Judicial y cualquier otra instancia que sea necesaria para cumplir con los fines que establece la ley y este reglamento y garantizar una adecuada gestión.

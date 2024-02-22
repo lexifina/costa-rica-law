@@ -1,0 +1,1 @@
+Artículo 37. Responsabilidad por incumplimiento. El incumplimiento de los procedimientos establecidos en el presente reglamento puede generar responsabilidad administrativa, para lo cual deberá seguirse el procedimiento necesario como lo ordena la normativa vigente.

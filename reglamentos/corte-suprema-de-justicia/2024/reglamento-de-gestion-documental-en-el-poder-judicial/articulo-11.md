@@ -1,0 +1,2 @@
+Artículo 11. Acceso a la información. Los documentos que se encuentren custodiados en el Archivo Judicial pueden ser consultados por las personas que cumplan con los requisitos establecidos en la legislación y el Manual de gestión documental para el acceso a la información.
+Ningún documento en custodia del Archivo Judicial puede salir de sus instalaciones o bases de datos sin la autorización de la jefatura.

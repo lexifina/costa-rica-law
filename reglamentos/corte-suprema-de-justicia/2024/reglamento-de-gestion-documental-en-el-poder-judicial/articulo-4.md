@@ -1,0 +1,4 @@
+Capítulo II
+Sistema Institucional de Gestión Documental.
+Artículo 4. Objetivo y composición del Sistema Institucional de Gestión Documental. El objetivo primordial del Sistema Institucional de Gestión Documental es lograr una adecuada gestión documental que permita a la Administración una correcta toma de decisiones, así como la protección de los derechos de los administrados y el resguardo de la memoria institucional, a fin de cumplir con los fines establecidos en la Ley del Sistema Nacional de Archivos, reglamentos y la Ley Orgánica del Poder Judicial.
+El Sistema Institucional de Gestión Documental está compuesto por la Corte Suprema de Justicia, el Consejo Superior, la Comisión Institucional de Selección y Eliminación de Documentos (CISED), el Archivo Judicial, los archivos de gestión de oficinas productoras o toda aquella dependencia que se encuentre organizada en el Poder Judicial y que produzca o custodie documentos en cualquier soporte.

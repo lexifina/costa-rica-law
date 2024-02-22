@@ -1,0 +1,1 @@
+Artículo 29. Aviso de Eliminación. Para los efectos correspondientes se debe publicar el aviso de eliminación de documentos en el Boletín Judicial y luego de ocho días hábiles se procederá con la eliminación si no existiera solicitud de devolución a los interesados dentro de ese periodo legal.

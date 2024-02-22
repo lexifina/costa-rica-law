@@ -1,0 +1,1 @@
+Artículo 31. Actas de eliminación. Es obligatorio para las personas encargadas del sistema conservar las copias de las actas de eliminación realizadas y llevar los registros necesarios, el Archivo Judicial (Central) conservará el original y se publicarán en el sitio Web del Poder Judicial.

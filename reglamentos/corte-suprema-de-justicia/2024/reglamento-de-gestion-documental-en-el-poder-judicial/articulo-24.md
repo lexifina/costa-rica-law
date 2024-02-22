@@ -1,0 +1,4 @@
+Artículo 24. Aplicación de la Tabla de Plazos de Conservación. Las Tablas de Plazos de Conservación de Documentos, rigen para la documentación en formato de papel y electrónico.
+Todas las oficinas del Poder Judicial (ámbitos Jurisdiccional, Administrativo o Auxiliar de Justicia), deben aplicar las Tablas de plazos de conservación de documentos, atendiendo los períodos de conservación que respondan a criterios técnicos, legales, científicos o de cualquier índole.
+A la Jefatura de cada oficina le corresponde mantener un equilibrio entre conservar y eliminar la documentación del Poder Judicial, además debe garantizar que la gestión documental se realice de acuerdo con la normativa vigente.
+Para el manejo adecuado de la documentación, las jefaturas deben garantizar una adecuada gestión pública y permitir el acceso oportuno a la información pública, todo en apego al ordenamiento jurídico y las normas existentes en materia archivística.

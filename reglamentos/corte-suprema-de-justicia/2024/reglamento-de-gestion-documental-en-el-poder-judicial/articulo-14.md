@@ -1,0 +1,2 @@
+Artículo 14. Condiciones de almacenamiento de la información y acceso a las instalaciones. Los archivos de gestión deben contar con un área adecuada para almacenar los expedientes y documentos de acuerdo con lo que establece la ley. Los documentos deben encontrarse ordenados y clasificados, así como custodiarse en condiciones óptimas que garanticen su conservación.
+El acceso a los archivos de gestión es restringido y se debe contar con la autorización de la persona encargada para su ingreso.

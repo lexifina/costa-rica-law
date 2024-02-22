@@ -1,0 +1,1 @@
+Artículo 9. Acceso restringido a sus instalaciones. Por razones de seguridad de la información que se custodia en el Archivo Judicial, el acceso a sus instalaciones es restringido, por lo tanto, se debe contar con la autorización de la jefatura para su ingreso.

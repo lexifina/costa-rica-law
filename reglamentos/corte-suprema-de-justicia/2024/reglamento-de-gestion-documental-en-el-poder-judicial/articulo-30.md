@@ -1,0 +1,1 @@
+Artículo 30. Destrucción del material. Los encargados del sistema institucional de gestión documental tienen la responsabilidad de garantizar que los documentos se transformen en material no legible mediante las técnicas establecidas por la administración y acordes a la sana práctica ambiental.
