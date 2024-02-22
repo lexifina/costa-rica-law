@@ -61,3 +61,4 @@ Reglamento de la Asamblea Legislativa
 | 46 | 2022-11-17 | Reglamento 99 (2022-11-17) |
 | 47 | 2023-11-13 | Reglamento 88 (2023-11-13) |
 | 48 | 2024-02-13 | Reglamento 123 (2024-02-13) |
+| 49 | 2024-02-22 | Reglamento 129 (2024-02-22) |
