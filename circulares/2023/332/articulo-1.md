@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR N° 332-2023
+(Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
 Asunto: Disposiciones sobre la aplicación del teletrabajo para las materias que componen la Jurisdicción de Familia y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN SOBRE MATERIA DE FAMILIA, PENSIONES ALIMENTARIAS, VIOLENCIA DOMÉSTICA, NIÑEZ Y ADOLESCENCIA
 SE LES HACE SABER QUE:
