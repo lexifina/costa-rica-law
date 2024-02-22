@@ -1,0 +1,1 @@
+Artículo 2º-Derogatoria. Se deroga el segundo párrafo del inciso i) y cl párrafd final del artículo 30 denominado "Retenciones en la fuente" del Reglamento de la Ley del Impuesto sobre la Renta, Decreto Ejecutivo N° 43198-H del 22 de julio de 2021
