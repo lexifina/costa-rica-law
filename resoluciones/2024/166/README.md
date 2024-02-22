@@ -15,3 +15,4 @@ Revocatoria de la resolución 2022-001349 del 17/10/2023, para implementar la ap
 | --- | --- | --- |
 | 1 | 2024-02-07 | la propia norma |
 | 2 | 2024-02-13 | Resolución 238 (2024-02-13) |
+| 3 | 2024-02-22 | Resolución 272 (2024-02-22) |
