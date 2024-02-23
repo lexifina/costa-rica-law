@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P08 Procedimiento para recurrir los actos y documentos Vers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-10 | la propia norma |
+| 2 | 2024-02-23 | Acuerdo 1 (2024-02-23) |
