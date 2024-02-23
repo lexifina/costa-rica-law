@@ -14,7 +14,7 @@ g) Desarrollar procesos de investigación para identificar áreas vulnerables en
 h) Coordinar el envío del Informe Anual de Labores de la Defensoría a ministerios, instituciones autónomas, municipalidades, organismos no gubernamentales, institucionales homologas alrededor del mundo, así como a personas interesadas tanto dentro como fuera del país.
 l) Ejecutar los acuerdos interinstitucionales e internacionales y los programas de cooperación internacional en materia de promoción y divulgación de derechos.
 i) Realizar todas aquellas otras funciones que le indique el Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
-j) Coordinar la Cátedra Nacional de Derechos Humanos, bajo la guía y dirección del Despacho del Defensor o Defensora de los Habitantes.
+j) (Derogado mediante acuerdo N° DH-A-2683-2024 del 23 de febrero del 2024)
 (Así adicionado el inciso anterior mediante acuerdo N° 2491 del 19 de agosto del 2022)
 K) Coordinar y gestionar lo referente al funcionamiento, aplicabilidad y desarrollo de la Red Interinstitucional de Transparencia de la Defensoría de los Habitantes de la República
 (Así adicionado el inciso anterior mediante acuerdo N° 2541 del 9 de diciembre de 2022)
