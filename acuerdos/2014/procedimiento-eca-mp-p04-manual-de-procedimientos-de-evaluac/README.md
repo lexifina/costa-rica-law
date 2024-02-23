@@ -19,3 +19,4 @@ Procedimiento ECA-MP-P04 Manual de procedimientos de evaluación y acreditación
 | 4 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
 | 5 | 2019-10-10 | Acuerdo 10 (2019-10-10) |
 | 6 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
+| 7 | 2024-02-23 | Acuerdo 3 (2024-02-23) |
