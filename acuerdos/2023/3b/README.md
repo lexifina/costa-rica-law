@@ -14,3 +14,4 @@ Procedimiento ECA-MC-PT20 Proceso de Transición a la norma ISO 15189:2022 (Vers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-21 | la propia norma |
+| 2 | 2024-02-23 | Acuerdo 2 (2024-02-23) |
