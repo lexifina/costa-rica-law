@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P18 Política para uso de logotipo ECA y símbolo d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-08 | la propia norma |
+| 2 | 2024-02-23 | Acuerdo 1 (2024-02-23) |
