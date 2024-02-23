@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese el inciso w) al artículo 10 del Reglamento de adquisición de bienes y servicios en la Municipalidad de Pérez Zeledón, para que se lea de la siguiente manera:
+w) Coordinar con la Bodega Municipal, la existencia de inventario, según el bien que se vaya a adquirir, por lo que deberá adjuntar a la solicitud bienes y/o servicios en el SICOP, una constancia de verificación de existencia en los inventarios en el SICOP emitida por el Bodeguero Municipal.
