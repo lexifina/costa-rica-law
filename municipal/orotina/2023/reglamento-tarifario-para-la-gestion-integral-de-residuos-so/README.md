@@ -14,3 +14,4 @@ Reglamento tarifario para la gestión integral de residuos sólidos del cantón 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-04 | la propia norma |
+| 2 | 2024-02-24 | Reglamento municipal 62 (2024-02-24) |

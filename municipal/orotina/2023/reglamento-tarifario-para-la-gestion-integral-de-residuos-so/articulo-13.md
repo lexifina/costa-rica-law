@@ -1,4 +1,4 @@
-Artículo 13.— Clasificación de las tasas comerciales del servicio de recolección según el tipo de actividad (CIIU) así como por los metros cuadrados o huella constructiva, entre otros criterios de clasificación.
+Artículo 13.- Clasificación de las tasas comerciales del servicio de recolección según el tipo de actividad (CIIU) así como por los metros cuadrados o huella constructiva, entre otros criterios de clasificación.
 Si la actividad comercial no se encuentra en la siguiente lista y es de nuevo ingreso se coloca automáticamente la categoría comercial 1.
 Cuadro 1: Clasificación de las Categorías comerciales en el servicio de residuos sólidos, según su actividad lucrativa en el cantón de Orotina.
 [imagen]
@@ -105,4 +105,6 @@ C5 | Industria Ligera (Fuera de ley de zona de Franca con manejo de residuos). |
 C5 | Industria pesada (Fuera de ley de zona de Franca con manejo de residuos). | | | Industrias extractivas: Minería, Petróleo y gas Cementeras (Cementos, cales, arcillas, yesos). Industria siderúrgica (Procesado de hierros, aceros y metales no ferrosos). Industria química (procesado de sustancias químicas: sales, ácidos, fertilizantes, plásticos, explosivos, cauchos).
 C5 | Sala de juegos de azar y apuestas tipos casinos. | 9200. | Mayor de 200. |
 Fuentes: Estudios de composición y generación de residuos sólidos Municipalidad del cantón de Orotina marzo 2020.
+Las actividades comerciales que se encuentren clasificados bajo la categoría de personas emprendedoras y microempresas por el MEIC, así como aquellas personas que se encuentren en estado de pobreza y estén inscritas y activas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), se degradarán automáticamente a la categoría comercial subsiguiente.
+(Así adicionado el párrafo anterior en sesión N° 62 del 24 de febrero de 2024)
 (Corregido el texto del presente artículo mediante Fe de Erratas y publicada en el Alcance Digital N° 254 a La Gaceta N° 235 del 19 de diciembre de 2023)
