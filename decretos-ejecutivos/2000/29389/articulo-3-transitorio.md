@@ -1,0 +1,2 @@
+Transitorio tercero.-Por un período de un año la Dirección de Seguridad Marítima y Portuaria aplicará este reglamento a los buques de pasajeros, a los que tengan una dotación mayor a diez tripulantes y todos aquellos autorizados para llevar a bordo un número mayor de diez personas.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44398 del 26 de febrero del 2024, que lo traspasó del transitorio único a transitorio tercero)

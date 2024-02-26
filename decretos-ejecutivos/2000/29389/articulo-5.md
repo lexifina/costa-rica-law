@@ -1,5 +1,8 @@
-Artículo 5.— Validez de los certificados.
+Artículo 5.- Validez de los certificados.
 a). El Certificado de Zafarrancho extendido por la Dirección de Navegación y Seguridad de la División Marítima Portuaria del Ministerio de Obras Públicas y Transportes, tendrá una vigencia de 5 (cinco) años.
-b). Para cada renovación del Certificado de Zafarrancho que otorga la Dirección de Navegación y Seguridad, el interesado deberá aprobar un curso de refrescamiento denominado “Refrescamiento Básico de Embarque”. El curso de refrescamiento mencionado anteriormente tendrá una validez de cinco años.
+b) Para cada renovación del Certificado de Zafarrancho que otorga la Dirección de Navegación y Seguridad, el interesado deberá aprobar un curso de refrescamiento denominado "Refrescamiento Básico de Embarque". El curso de refrescamiento mencionado tendrá una validez de cinco años.
+Se autoriza al Instituto Nacional de Aprendizaje, para que imparta la formación correspondiente, mediante el uso de herramientas de educación virtual y medios convergentes, quedando supeditada la aprobación del curso a una evaluación presencial individual, que permita constatar que el estudiante ha adquirido las competencias y conocimientos necesarios.
+El Instituto Nacional de Aprendizaje con la entrada en vigor del presente decreto, tendrá cuatro meses para elaborar un plan de atención, mediante el uso de herramientas de educación virtual y medios convergentes, del curso ele refrescamiento básico de embarque para pesca a pequeña escala, mediana escala y avanzada para el período 2024-2026, el cual deberá comunicar a la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes.
+(Así reformado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 44398 del 26 de febrero del 2024)
 c). A partir de la entrada en vigencia de este decreto, los títulos que emita el Instituto Nacional de Aprendizaje requeridos para el Certificado de Zafarrancho, tendrán una validez de cinco años, ya sean estos módulos individuales o programas de formación y capacitación.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 37343 del 13 de setiembre del 2012)

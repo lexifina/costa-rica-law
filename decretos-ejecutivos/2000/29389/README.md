@@ -18,3 +18,4 @@ Reglamento para la Emisión de los Certificados de Zafarrancho
 | 3 | 2012-09-13 | Decreto Ejecutivo 37343 (2012-09-13) |
 | 4 | 2015-12-17 | Decreto Ejecutivo 39413 (2015-12-17) |
 | 5 | 2016-01-25 | Decreto Ejecutivo 39459 (2016-01-25) |
+| 6 | 2024-02-26 | Decreto Ejecutivo 44398 (2024-02-26) |
