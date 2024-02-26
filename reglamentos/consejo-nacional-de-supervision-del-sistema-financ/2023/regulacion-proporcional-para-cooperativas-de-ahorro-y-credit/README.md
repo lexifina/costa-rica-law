@@ -15,3 +15,4 @@ Regulación proporcional para cooperativas de ahorro y crédito supervisadas, (a
 | --- | --- | --- |
 | 1 | 2023-07-10 | la propia norma |
 | 2 | 2023-07-17 | Reglamento 1808 (2023-07-17) |
+| 3 | 2024-02-26 | Reglamento 1845 (2024-02-26) |
