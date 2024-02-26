@@ -1,0 +1,3 @@
+Artículo 156 bis. Extinción y régimen de responsabilidad. La extinción y el régimen de responsabilidad de las Organizaciones de Consumidores se regirá por lo dispuesto en la Ley de Asociaciones, N° 218.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 220 bis al artículo 156 bis, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

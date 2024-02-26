@@ -1,3 +1,2 @@
-Artículo 148.—Sobre la condición de artesano y pequeño industrial. La condición de artesano y pequeño industrial conforme a lo establecido en la Ley y este Reglamento, deberá ser acreditada por el interesado mediante una declaración jurada simple que contenga como mínimo:
-a) Artesano: descripción de la actividad a la que se dedica.
-b) Pequeño industrial: ingreso anual.
+Artículo 148.-Reposición de producto. El número de unidades de producto que se tomen para el muestreo estadístico y que consten en el acta respectiva, deberán ser repuestas al comerciante por parte del proveedor.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 212 al artículo 148, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

@@ -1,7 +1,1 @@
-Artículo 262.- Publicidad dirigida a menores de edad, consumidores vulnerables o desfavorecidos. Los comerciantes deberán tener especial cuidado en que la publicidad dirigida a menores de. edad, consumidores vulnerables o desfavorecidos, y otros que podrían no tener la facultad de comprender la información con la cual se representan, no atente contra su dignidad y bienestar integral.
-Los comerciantes están obligados, en relación con la publicidad dirigida a menores de edad, que es difundida por medio de sus sitios de Internet o por otros medios electrónicos, a:
-a) identificar los contenidos dirigidos únicamente a adultos;
-b) adoptar las medidas necesarias para prevenir que los menores puedan acceder a bienes y servicios que por ley no son aptos para menores de edad;
-c) abstenerse de presentar a niños en situaciones peligrosas, salvo que se trate de advertencias en materia de seguridad; o en situaciones que atenten contra la ley, la moral, las buenas costumbres o el orden público;
-d) abstenerse de hacer publicidad que incentive a los menores a realizar conductas impropias, ilegales, que atenten contra su dignidad y bienestar integral, o contra el de los demás; y
-e) respetar las otras obligaciones que, en materia de publicidad dirigida a menores de edad, establece la legislación.
+Artículo 262.- Publicidad dirigida a menores de edad, consumidores vulnerables o desfavorecidos. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 198)

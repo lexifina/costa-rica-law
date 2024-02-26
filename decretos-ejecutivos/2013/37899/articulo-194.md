@@ -1,3 +1,4 @@
-SECCIÓN TERCERA
-Responsabilidad
-Artículo 194.—Régimen de responsabilidad. Los agentes económicos y los proveedores de bienes o servicios, cualquiera que sea su naturaleza jurídica, incurrirán en responsabilidad tanto por los hechos propios como por los de sus dependientes o auxiliares, permanentes o circunstanciales, aun cuando no tengan con ellos una relación laboral.
+Artículo 194- Plazo para la entrega del bien o la prestación del servicio. El comerciante deberá respetar el plazo para la entrega del bien o la prestación del servicio, de no ser así, se entenderá que ha incumplido el contrato y deberá devolverle al consumidor la suma de dinero pagada, sin ninguna deducción.
+En caso de no informar dicho plazo, se entenderá que el contrato se cumplirá dentro de las veinticuatro horas siguientes, de conformidad con lo dispuesto en el artículo 465 del Código de Comercio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 258 al artículo 194, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

@@ -1,1 +1,4 @@
-Artículo 125.—Vigencia. El periodo de vigencia del retiro será de un año, contado a partir de la fecha de la publicación mencionada en el artículo anterior.
+Artículo 125. Información sobre el expediente. Las partes, sus representantes, y los abogados, tendrán derecho en cualquier fase del procedimiento a copiar cualquier pieza del expediente, así como a pedir certificación, con las salvedades que indica el artículo 185(*) del presente reglamento. El dispositivo de almacenamiento de las copias digitales, y el costo de los timbres de las certificaciones será por cuenta del solicitante.
+(*) (Nota de Sinalevi: Léase artículo 123.)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 187 al artículo 125, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

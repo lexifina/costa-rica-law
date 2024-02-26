@@ -1,4 +1,2 @@
-SECCIÓN QUINTA
-Procedimiento de terminación anticipada
-Artículo 73.—Solicitud de terminación anticipada. Una vez iniciado el procedimiento y antes de celebrarse la comparecencia oral y privada, el agente económico investigado podrá solicitar a la COPROCOM la terminación anticipada del procedimiento.
-La solicitud de terminación anticipada no implica la aceptación de que se incurrió en una conducta ilegal y no suspenderá la investigación en curso, pero la comparecencia oral y privada no se realizará hasta tanto no se resuelva la solicitud.
+Artículo 73.-Venta de servicios. En la venta de servicios, el retracto sólo procederá en el tanto éstos no se hubieren prestado efectivamente. Si fueron pactados a tractos, el retracto sólo alcanzará la parte no realizada antes del recibo del aviso de rescisión, debiendo el comprador pagar proporcionalmente por la parte recibida.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 131 al artículo 73, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

@@ -23,3 +23,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | 8 | 2020-10-09 | Decreto Ejecutivo 42713 (2020-10-09) |
 | 9 | 2021-04-09 | Decreto Ejecutivo 42995 (2021-04-09) |
 | 10 | 2022-09-30 | Decreto Ejecutivo 43721 (2022-09-30) |
+| 11 | 2024-02-26 | Decreto Ejecutivo 44400 (2024-02-26) |

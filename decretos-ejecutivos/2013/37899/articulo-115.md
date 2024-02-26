@@ -1,4 +1,6 @@
-Artículo 115.—Principios aplicables a la publicidad. La publicidad deberá cumplir con los siguientes principios:
-a) Veracidad: La información debe corresponder a los términos o características reales del bien o servicio ofertado.
-b) Claridad: El contenido debe ser expuesto sin omitir información relevante para entender la naturaleza del bien o servicio, y no debe utilizar expresiones ambiguas.
-c) Legibilidad: La publicidad debe permitir la fácil y adecuada lectura de su contenido.
+Artículo 115.-Impedimento, excusa y recusación. Son motivos de impedimento, excusa o recusación los establecidos en la Sección III del Capítulo IV del Título I del Código Procesal Civil.
+Serán motivos de excusa para los miembros de la CNC cuando alguno de ellos sea propietario, director, representante, abogado o consultor, de algún comerciante o proveedor denunciado; así como en asuntos en los que ellos o su cónyuge, sus ascendientes o descendientes, hermanos, cuñados, tíos y sobrinos carnales, suegros, yernos, padrastros, hijastros, padres o hijos adoptivos, intervengan o sean parte de procesos ante la CNC.
+La excusa deberá ser presentada por escrito ante la CNC para ser incluida en el orden del día correspondiente.
+El procedimiento que se debe seguir en estos casos es el establecido en el Código referido.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 175 al artículo 115, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

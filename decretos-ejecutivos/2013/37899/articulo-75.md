@@ -1,5 +1,7 @@
-Artículo 75.—Potestad de la COPROCOM. Una vez recibida la propuesta, dentro de un plazo no mayor a un mes, la COPROCOM podrá:
-a) Aceptar la propuesta formulada, por considerar que cumple adecuadamente los fines de la Ley N° 7472 y este Reglamento.
-b) Rechazar la propuesta, por considerar que la resolución anticipada del caso no cumple con los fines de interés público establecidos en la Ley N° 7472 o que no es posible restablecer las condiciones competitivas en el mercado.
-c) Solicitar una nueva propuesta de compromisos por parte del administrado, cuando considere que la anterior no contrarresta los posibles efectos anticompetitivos de la conducta, pero podrían resolverse mediante otros compromisos.
-Antes de dictar esta resolución la COPROCOM podrá solicitar aclaraciones sobre las condiciones ofrecidas.
+Artículo 75.-Obligaciones del vendedor. El comerciante o proveedor contará con un plazo máximo de ocho días naturales para restituir al comprador todos los importes recibidos, de lo cual deberá extender el recibo correspondiente.
+El plazo indicado correrá desde el día siguiente a la recepción del aviso de rescisión, salvo que el comprador ya tenga en su poder las mercaderías, en cuyo caso correrá desde el día siguiente a su devolución.
+Salvo que las partes acuerden otra cosa, el reintegro se realizará en el domicilio del vendedor y en dinero efectivo.
+A las transacciones realizadas mediante comercio electrónico les aplicará lo dispuesto en el artículo 40 de la Ley 7472 y el presente reglamento. En todo caso, el derecho de retracto que le asiste al consumidor debe ser ejercido por el mismo medio que este último utilizó para manifestar su consentimiento y el reintegro de los todos los importes recibidos se realizará por el mismo medio utilizado para hacer el pago.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)
+En caso de no existir acuerdo, el consumidor podrá acudir a la CNC.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 133 al artículo 75, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

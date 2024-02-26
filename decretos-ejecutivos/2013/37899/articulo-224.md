@@ -1,4 +1,2 @@
-Artículo 224. Publicidad de la Información. El MEIC a través de la Dirección de Apoyo al Consumidor mantendrá una base de datos con información actualizada y permanente a disposición del público por medio de la página web, sobre la totalidad de los comerciantes o proveedores debidamente autorizados para la venta de los bienes, y servicios sujetos a regulación, así como la de los planes autorizados y los contratos de adhesión vendidos que lo componen.
-La Dirección de Apoyo al Consumidor deberá emitir en el plazo de ocho días hábiles las constancias o certificaciones que soliciten las a los interesados: empresas, consumidores, oficinas e instituciones.
-Lo anterior, dentro de los alcances y limitaciones que establece la LGAP y la Ley de la Protección de la Persona Frente al Tratamiento de los Datos Personales, Ley N° 8968.
+Artículo 224. Publicidad de la Información. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 160)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)

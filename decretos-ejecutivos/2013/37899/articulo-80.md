@@ -1,7 +1,5 @@
-Artículo 80.—Terminación del procedimiento. La resolución que acoja la terminación anticipada del procedimiento contendrá al menos:
-a) Indicación de las partes del procedimiento.
-b) Resumen de los hechos por los cuales se inició el procedimiento, así como los posibles efectos anticompetitivos que pueden preverse de las conductas investigadas. Lo anterior conforme a lo dispuesto en el auto de apertura.
-c) Descripción de las condiciones que debe cumplir el agente económico involucrado, con indicación de los respectivos plazos.
-d) Indicación de la forma como se verificará el cumplimiento de las condiciones, incluyendo de ser necesario, los reportes e información que deberá presentar el agente económico involucrado para esos efectos.
-e) Resumen del acuerdo que deberá publicar y sus alcances, en los casos en que proceda.
-f) En caso de que aplique, se incluirá el tipo de garantía, monto y plazo que debe rendir el agente económico investigado y plazo para constituirla.
+Artículo 80.-Variación en las condiciones contractuales. En caso de que sobrevenga una variación en las condiciones esenciales del espectáculo público; su objeto, el precio, el lugar, la fecha, el artista o representación; esto dará lugar al derecho del consumidor a la devolución íntegra del importe de lo pagado.
+Asimismo, el comerciante o proveedor, así como los demás responsables del evento, deberán informar de modo suficiente y generalizado sobre estas variaciones por los mismos medios utilizados para promover y comercializar el espectáculo público con el objetivo de que el consumidor decida si acepta o no las variaciones, siempre y cuando cuente con la autorización conforme a lo dispuesto en el numeral 227(*) del presente Reglamento. Las evidencias sobre el cumplimiento de esta obligación deberán ser remitidas al DECVP por los medios que este disponga.
+(*) (Nota de Sinalevi: Léase artículo 163 bis)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 138 al artículo 80, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

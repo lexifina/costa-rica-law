@@ -1,1 +1,6 @@
-Artículo 171.—Designación de presidente o secretario ad ínterim. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el presidente y el secretario de la comisión serán sustituidos por un presidente y un secretario ad ínterim, designando al primero necesariamente de entre los restantes miembros propietarios o que estén fungiendo como tales en la sesión.
+SECCIÓN TERCERA
+Sobre las ventas a plazo de bienes o de ejecución
+futura de servicios de bienes inmuebles
+(Derogada la sección tercera anterior por el artículo 42 del Reglamento de ventas a plazo de ejecución futura de proyectos inmobiliarios, aprobado mediante decreto ejecutivo N° 42995 del 9 de abril de 2021)
+Artículo 171.-Registro del responsable del plan. (Derogado por el artículo 42 del Reglamento de ventas a plazo de ejecución futura de proyectos inmobiliarios, aprobado mediante decreto ejecutivo N° 42995 del 9 de abril de 2021)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 235 al artículo 171, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

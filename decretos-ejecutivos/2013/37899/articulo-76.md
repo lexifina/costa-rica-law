@@ -1,6 +1,2 @@
-Artículo 76.—Criterios de valoración de la propuesta. Al evaluar la propuesta, la COPROCOM deberá considerar el daño razonablemente previsible que se atribuya a las conductas investigadas, el comportamiento del agente económico en el pasado, y la posibilidad de restablecer las condiciones competitivas en el mercado.
-Asimismo, deberá valorar si:
-a) La propuesta del agente económico investigado elimina los efectos anticompetitivos atribuibles a los hechos investigados.
-b) Los compromisos ofrecidos pueden implementarse de manera rápida y efectiva.
-c) La vigilancia del cumplimiento y de la efectividad de los compromisos es viable y eficaz.
-En todos los casos, deberá haber correspondencia entre los hechos objeto del procedimiento según el auto de apertura, los posibles efectos anticompetitivos atribuibles a las conductas que se investigan y las condiciones que se establezcan al agente económico investigado.
+Artículo 76- Recibo de los bienes y ratificación de la venta. Salvo caso de error o prueba en contrario, cuando el comprador que haya dado aviso de rescisión reciba personalmente y con posterioridad al aviso los bienes comprados, se presumirá la definitiva ratificación del negocio, teniéndose el retracto por no puesto.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 134 al artículo 76, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

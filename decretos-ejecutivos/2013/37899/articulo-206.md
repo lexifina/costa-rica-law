@@ -1,1 +1,1 @@
-Artículo 206.—Muestreo Preliminar. Procede el muestreo preliminar en aquellos casos en que no se haya determinado la necesidad de llevar a cabo un muestreo estadístico para demostrar una irregularidad. Las muestras se tomarán en la cantidad mínima necesaria.
+Artículo 206.-Muestreo Preliminar. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 142)

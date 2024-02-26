@@ -1,2 +1,2 @@
-Artículo 267.—Derogatoria. Deróguese el Decreto Ejecutivo N° 36234-MEIC del 30 de setiembre de 2010, publicado en el La Gaceta N° 211 del 1º de noviembre de 2010. Denominado Reforma Integral al Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor.
+Artículo 267.-Derogatoria. . (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 203)
 (Corrida su numeración por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017, que lo traspaso del antiguo artículo 247 al 267)

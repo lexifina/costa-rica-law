@@ -1,1 +1,1 @@
-Artículo 225.—Verificación del mercado. El MEIC a través de la Dirección de Apoyo al Consumidor podrá verificar la existencia de comerciantes y proveedores que no estén autorizados o no cumplan con los requisitos establecidos por este, quien procederá a la interposición de la denuncia ante las instancias respectivas de conformidad con la Ley y el presente reglamento.
+Artículo 225.-Verificación del mercado. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 161)

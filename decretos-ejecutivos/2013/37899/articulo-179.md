@@ -1,3 +1,6 @@
-Artículo 179.—Causales de remoción. Las causales de remoción de los miembros de las comisiones previstas en los artículos 23 y 50 de la Ley, son aplicables tanto a los miembros propietarios como a los suplentes.
-Para efectos de la causal prevista en el inciso e) de esos artículos se computarán únicamente las ausencias injustificadas.
-En caso de que para algún miembro de las comisiones se configure una causal de remoción, el Director Ejecutivo respectivo deberá comunicarlo así al Ministro con el fin de que proceda conforme con lo dispuesto en la Ley.
+Artículo 179.-Acciones legales. Sí se comprobare la venta de contratos de planes de ventas a plazo de bienes o ejecución futura de servicios en los términos regulados en el presente Capítulo sin la autorización, se procederá por parte del DECVP, según corresponda a:
+a) Interponer una denuncia ante la Comisión Nacional del Consumidor para que actúe de acuerdo con las potestades otorgadas por la Ley y este Reglamento.
+b) Denuncia al Ministerio Público.
+Asimismo, procederá a dar parte a las diferentes autoridades públicas que participan en la regulación de las actividades sujetas a la autorización de ventas a plazo de bienes y ejecución futura de servicios, tales como la Municipalidad del lugar, el Ministerio de Seguridad Pública y el Ministerio de Salud, para lo de su competencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 243 al artículo 179, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

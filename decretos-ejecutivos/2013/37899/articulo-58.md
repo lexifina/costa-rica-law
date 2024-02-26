@@ -1,6 +1,8 @@
-Artículo 58.—Análisis de la propuesta. Una vez recibida la propuesta a que se refieren los incisos c) y d) del artículo anterior, o vencido el plazo de diez días naturales, la COPROCOM, sin más trámite determinará si:
-a) Autoriza la concentración condicionada al cumplimiento de los compromisos propuestos.
-b) Condiciona su autorización al cumplimiento de compromisos distintos a los propuestos.
-c) Deniega la autorización.
-En el caso del inciso b), la COPROCOM otorgará un plazo de tres días hábiles al solicitante para manifestar su conformidad o no con las condiciones, entendiéndose el silencio del administrado como un rechazo de estas, lo que equivaldrá a la denegatoria de la autorización.
-Una vez aceptadas, las condiciones quedarán firmes, se autorizará la concentración y se ordenará su ejecución en los términos de la resolución.
+Artículo 58.-Publicidad comparativa. Sin perjuicio de los demás requisitos y condiciones que pudiesen derivarse de la normativa legal aplicable, la publicidad comparativa deberá cumplir con lo siguiente:
+a) La comparación debe basarse en datos relevantes, objetivos y verídicos, sobre los cuales exista una base razonable.
+b) La comparación deberá hacerse entre productos o servicios, similares en tipo, usos, categoría y modelo. Están exentos de lo anterior, comparaciones que se hagan para mostrar avances en la técnica o desarrollo de producto, en cuyo caso esta intención deberá ser evidente.
+c) Toda información que se brinde deberá ser objetivamente verificable, y deberá basarse en pruebas realizadas por el anunciante de previo a la primera divulgación del mensaje.
+d) La mención de productos o servicios de la competencia deberá hacerse siempre con respeto y probidad.
+e) En caso de que se comparen precios de un producto o servicio con otros similares, deberá indicarse la fecha en la cual fue obtenido el precio competidor, así como la vigencia del precio propio.
+La comparación no es admisible cuando se límite a la proclamación, superlativa o general, indiscriminada, de la superioridad de los productos propios o de la posición de la empresa en el mercado por encima de sus competidores. En la publicidad deberán indicarse los datos o las fuentes que justifiquen las declaraciones comparativas sobre datos esenciales, afines y objetivamente demostrables siempre que se comparen con otros similares, conocidos o de participación significativa en el mercado.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 116 al artículo 58, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

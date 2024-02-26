@@ -1,10 +1,1 @@
-Artículo 230.-Comprobación de la solvencia económica. Para efectos de la autorización de ventas a plazo de bienes o de ejecución futura de servicios, el MEIC, a través de la DIEM, comprobará que los responsables del plan cumplan satisfactoriamente las tres razones financieras que integran la solvencia económica según el tipo de actividad regulada de la siguiente manera:
-a) Suficiencia patrimonial: es la relación de "patrimonio / activo total" y el resultado debe ser mayor o igual a 0.20.
-b) Riesgo: es la relación de "activo total / pasivo total" y el resultado debe ser mayor o igual a 1.27.
-c) Liquidez: es la relación de "activo circulante / pasivo circulante" y el resultado debe ser mayor o igual a 1.00.
-El MEIC autorizará aquellos proyectos contenidos en los contratos de adhesión que sean respaldados por el valor de la suficiencia patrimonial, y se calcula se la siguiente forma: (((0.20 * activo total) - patrimonio) / valor promedio de los planes).
-Aquellas empresas de ventas a plazo que no cumplan cualquiera de las tres razones financieras indicadas anteriormente o que no cuenten con operaciones comerciales y, por ende, no tengan un sistema contable de al menos un año, deberán rendir una caución o garantía, que será el 0,20 del valor promedio nominal de los planes y por lo solicitado para autorizar en planes.
-Ahora bien si la cantidad de planes excede lo que cubre el valor absoluto de la suficiencia patrimonial, la solicitante deberán rendir una caución o garantía, que será el 0,20 del valor promedio nominal de los planes que no cubra la suficiencia patrimonial.
-En caso de espectáculos públicos de incumplir lo anteriormente señalado, el comerciante deberá rendir una caución o garantía por el cien por ciento (100%) del valor nominal de todos los boletos a comercializar según el plan.
-Para el caso de los espectáculos públicos se regirá por lo establecido en el artículo 233 del presente Reglamento.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+Artículo 230.-Comprobación de la solvencia económica. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 166)

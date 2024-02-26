@@ -1,6 +1,3 @@
-Artículo 249.-Información sobre los bienes y servicios. El comerciante debe proporcionar al consumidor información clara, precisa, fácilmente accesible, en un lenguaje sencillo y fácil de comprender acerca de los bienes y servicios ofrecidos, de acuerdo con la naturaleza de los bienes o servicios de que se trate, de modo que el consumidor tenga información suficiente para tomar una decisión informada, por lo que no deberá inducir a error o prestarse para interpretaciones, limitaciones o condiciones que puedan afectar la capacidad del usuario final de adquirir, acceder o usar el bien o servicio.
-Cuando proceda, esta información debe incluir los siguientes elementos:
-a) La funcionalidad de los contenidos digitales, incluidas las medidas técnicas de protección aplicables;
-b) Toda interoperabilidad relevante del contenido digital con los aparatos y programas conocidos por el comerciante o que quepa esperar razonablemente que este pueda conocer; y
-c) Los principales requisitos técnicos o contractuales, limitaciones o condiciones que puedan afectar la capacidad del consumidor de adquirir, acceder o usar el bien o servicio.
+Artículo 249.-Información sobre los bienes y servicios. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 185)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)

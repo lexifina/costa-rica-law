@@ -1,9 +1,12 @@
-Artículo 137.-Contenido de boletos o tiquetes. El comerciante deberá informar al consumidor de modo claro, veraz y suficiente, sobre todos los elementos relevantes para la adopción de una decisión de consumo informada en cuanto al evento promocionado. Entre ellos la fecha, la hora, el lugar donde se llevará a cabo, los puntos de venta o medios electrónicos para su adquisición.
-También deberá incluir al menos en los boletos o tiquetes:
-a) El precio final en los términos del artículo 93 del presente Reglamento.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
-b) Numeración e identificación del tipo de boleto.
-c) El nombre del organizador del evento.
-d) Número de cédula de persona física o jurídica, teléfono y dirección física del organizador.
-e) El nombre y la cédula de persona física o jurídica del comercializador o quien vende, el teléfono y la dirección física.
-El precio de los boletos o tiquetes deberá estar indicado de manera que no quede duda del monto final incluyendo todos los impuestos o cargos adicionales cuando correspondan.
+Artículo 137.-Constatación de posibles infracciones. Cuando en el transcurso de una inspección administrativa, se constate una posible infracción a la Ley o a este reglamento, el funcionario deberá levantar un acta en el lugar de los hechos. El acta necesariamente deberá contener lo siguiente:
+a) Lugar, fecha y hora, nombre y apellidos, condición en la cual actúa el funcionario número de cédula de identidad o documento oficial de identificación y ubicación actual de la autoridad a cargo de la diligencia.
+b) Nombre del establecimiento de que se trate, nombre de su propietario sea persona física o persona jurídica con indicación de los números de cédula correspondientes, así como la ubicación por provincia, cantón y distrito, dirección exacta en la localidad, y otros medios de comunicación tales como teléfonos fijos, móviles, correo electrónico, entre otros.
+c) Nombre y apellidos, calidades, número de cédula de identidad o documento oficial de identificación, domicilio, y otros medios de comunicación tales como teléfonos fijos, móviles, correo electrónico, ya sea del gerente, administrador, encargado o representante del establecimiento.
+d) Especificación clara y concreta del hecho.
+e) Constataciones realizadas.
+f) La infracción que se estima cometida.
+g) Firma al pie del acta por el funcionario que la levanta y al menos un testigo quien también puede ser un funcionario.
+Del acta se entregará una copia ya sea al propietario, gerente, administrador, encargado o representante del establecimiento investigado, el cual deberá acusar recibo del documento. Si no quiere o no puede hacerlo, se dejará constancia de ello en este.
+El documento así completado, junto con cualesquiera muestras y atestados adicionales que corresponda, deberá ser remitido sin dilación a la CNC.
+Si de la posible infracción identificada pueden derivarse responsabilidades penales o de otra índole, la CNC procederá de inmediato a testimoniar piezas para su remisión al Ministerio Público o a la autoridad respectiva.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 201 al artículo 137, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

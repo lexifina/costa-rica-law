@@ -1,6 +1,2 @@
-SECCIÓN CUARTA
-Procedimiento de inspección
-Artículo 63.—Procedencia. La inspección a un establecimiento comercial o industrial, prevista en el inciso g) del artículo 27 de la Ley, procederá cuando existan los siguientes supuestos:
-a) Una investigación abierta para determinar la existencia de una práctica monopolística absoluta o relativa, ya sea en fase de investigación preliminar o de instrucción del procedimiento administrativo.
-b) Indicios sobre la existencia de evidencia relevante para dicha investigación que esté en poder de uno o más agentes económicos.
-c) Peligro de que en ausencia de la inspección, esa evidencia no pueda ser incorporada a la investigación, incluyendo la posibilidad de su pérdida o destrucción.
+Artículo 63.-Suspensión o aclaración de la publicidad. La CNC es el órgano con competencia para acoger o rechazar una solicitud de medida cautelar de suspensión en materia de publicidad. Esta medida deberá ser dictada mediante resolución debidamente razonada, de conformidad con los artículos 53, 56, 61 y 71 de la Ley.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 121 al artículo 63, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

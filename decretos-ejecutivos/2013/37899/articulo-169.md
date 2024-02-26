@@ -1,10 +1,12 @@
-Artículo 169.—Facultades de los Presidentes de las comisiones. El Presidente tendrá las siguientes facultades y atribuciones:
-a) Presidir, con todas las facultades necesarias para ello, las reuniones del órgano, las que podrá suspender en cualquier momento por causa justificada;
-b) Velar porque la Comisión cumpla las leyes y reglamentos relativos a su función;
-c) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos de forma de las labores del órgano;
-d) Convocar a sesiones extraordinarias;
-e) Confeccionar el orden del día, teniendo en cuenta, en su caso, las peticiones de los demás miembros formuladas al menos con tres días de antelación;
-f) Resolver cualquier asunto en caso de empate, para cuyo caso tendrá voto de calidad;
-g) Actuar como vocero de la Comisión ante cualquier instancia;
-h) Ejecutar los acuerdos de la Comisión; y,
-i) Las demás que le asignen las leyes y los reglamentos.
+Artículo 169. Sobre la comprobación de la solvencia económica y la rendición de la garantía para los espectáculos públicos. Para la comprobación de la solvencia económica con respecto al plan de venta a plazo o ejecución futura en espectáculos públicos, el MEIC comprobará que el organizador se encuentre previamente registrado y haya suscrito un contrato con una tiquetera debidamente inscrita o registrada.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+Esta declaración jurada deberá contener el procedimiento a seguir por la tiquetera para la devolución del dinero en el caso que el espectáculo público no llegare a realizarse en los términos ofrecidos o pactados en cumplimiento de lo dispuesto en el numeral 140(*) del presente Reglamento. De no comprobarse la solvencia económica en los términos definidos en el presente artículo, el organizador deberá rendir una garantía o caución del cien por ciento (100%) del valor nominal de todos los boletos a comercializar de acuerdo con el plan.
+(*) (Nota de Sinalevi: Léase artículo 82.)
+Para los casos en que se compruebe la solvencia mediante la retención del cien por ciento (100%) de los montos pagados por la venta del espectáculo público, el organizador o promotor del evento, la boletería, las empresas adquirentes de tarjetas de crédito y débito, la entidad bancaria sujeta a supervisión prudencial no podrán estar relacionadas entre sí o constituir un grupo de interés económico.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+En caso de que el organizador o promotor solicitante no realice la venta de entradas a través de una tiquetera o plataforma de venta registrada, deberá rendir una caución del cien por ciento (100).
+En todo caso la garantía deberá rendirse conforme al artículo 232(*) del presente Reglamento.
+(*) (Nota de Sinalevi: Léase artículo 168.)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 233 al artículo 169, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

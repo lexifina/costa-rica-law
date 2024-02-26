@@ -1,1 +1,1 @@
-Artículo 214.—Verificación o control metrológico. Las verificaciones en el campo metrológico serán coordinadas con LACOMET de conformidad con la Ley N° 8279 y los demás reglamentos aplicables.
+Artículo 214.-Verificación o control metrológico. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 150)

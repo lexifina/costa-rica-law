@@ -1,1 +1,1 @@
-Artículo 215.—Incumplimiento de los deberes anteriores. La negativa de entrega, la falsedad o la inclusión de datos inexactos o incompletos, en muestras o documentos requeridos, de conformidad con esta Sección, serán sancionadas como falta grave por la CNC, sin perjuicio de las responsabilidades administrativas, civiles y penales que puedan derivarse de estas actuaciones.
+Artículo 215.-Incumplimiento de los deberes anteriores. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 151)

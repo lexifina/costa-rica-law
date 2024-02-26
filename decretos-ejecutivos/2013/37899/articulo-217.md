@@ -1,2 +1,2 @@
-Artículo 217.—Registro. Las organizaciones de consumidores se constituirán como asociaciones, conforme a la Ley de Asociaciones, Ley N° 218, y sin que se requiera que la defensa del consumidor sea su objeto exclusivo. Podrán recibir la calificación de utilidad pública una vez cumplidos los requisitos correspondientes.
-La DAC llevará un registro de organizaciones de consumidores, por lo que cada organización deberá acreditar ante ésta su debida constitución y anualmente deberá presentar un plan de trabajo que contenga las acciones y programas especializados en los derechos e intereses legítimos de los consumidores. Asimismo, deberá presentar ante esta dependencia el correspondiente informe anual de resultados.
+Artículo 217- Registro de Organizaciones de Consumidores. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 153)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)

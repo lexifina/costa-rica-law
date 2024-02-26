@@ -1,10 +1,3 @@
-Artículo 71.—Acta de la inspección. De todas las inspecciones realizadas se levantará un acta circunstanciada. En esta se hará constar:
-a) Nombre y dirección del establecimiento objeto de la inspección.
-b) Fecha y hora en que se inicie y concluya la diligencia.
-c) Número y fecha del acuerdo de la COPROCOM que ordenó la inspección y de la resolución judicial que la autorizó.
-d) Nombre y número de cédula de identidad de los funcionarios de la Unidad Técnica que participaron en la diligencia y de aquellos que los auxiliaron, con excepción de los funcionarios de la fuerza pública que los asistieron, en su caso.
-e) Nombre y cargo o empleo de la persona que fungió como encargado del establecimiento para efectos de la diligencia.
-f) Indicación de los documentos y demás información de los que se haya obtenido copia, así como las aclaraciones verbales y observaciones que se realicen sobre ellos.
-g) Observaciones realizadas por los encargados del establecimiento sobre las actuaciones de la autoridad.
-h) Firma del funcionario de la Unidad Técnica que dirigió la inspección, de otro funcionario como testigo, y del encargado del establecimiento, o en su caso la indicación de que este último se negó a firmar el acta, lo cual no le restará valor probatorio.
-Concluida la diligencia se entregará al encargado del establecimiento una copia del acta.
+Artículo 71.-Indicación del domicilio del vendedor. La factura o comprobante de compra que se entregará al comprador, deberá indicar el domicilio del vendedor o bien el lugar que éste tenga previsto para la devolución de mercaderías o para la atención de consumidores. A falta de dicha indicación se entenderá como su domicilio cualquiera de las oficinas o locales que mantenga abiertos al público, aunque sean de carácter temporal o incluso -en última instancia- el domicilio de su representante legal.
+El comerciante está obligado a notificar por un medio de comunicación de alcance nacional a todos los consumidores cualquier cambio en su domicilio, a efectos de que puedan hacer valer sus derechos.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 129 al artículo 71, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

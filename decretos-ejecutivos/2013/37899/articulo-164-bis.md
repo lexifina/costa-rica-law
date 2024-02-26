@@ -1,4 +1,5 @@
-Artículo 228 bis. Sobre la inscripción o registro de los organizadores del espectáculo público y las tiqueteras. Quienes se dediquen de modo habitual a la organización de espectáculos públicos y las tiqueteras, deberán registrarse por una única vez ante el MEIC a través de la DAC, para ello deben cumplir lo siguiente:
+Artículo 164 bis. Sobre la inscripción o registro de los organizadores del espectáculo público y las tiqueteras. Quienes se dediquen de modo habitual a la organización de espectáculos públicos y las tiqueteras, deberán registrarse por una única vez ante el MEIC, para ello deben cumplir lo siguiente:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
 a) Organizadores o promotores:
 1. Presentar debidamente lleno el Anexo EP-5: Formulario para la inscripción o registro como organizador o promotor para la ejecución futura de servicios para espectáculos públicos.
 2. Estar inscrito como patrono, trabajador independiente o en ambas modalidades ante la Caja Costarricense de Seguro Social, en cumplimiento de lo establecido en los artículos 44, 74 y 74 bis de la Ley N° 17del 22 de octubre de 1943, Ley Constitutiva Caja Costarricense de Seguro Social.
@@ -14,5 +15,7 @@ b) Tiquetera:
 6. Copia certificada o el original y una copia para su respectiva confrontación del contrato con el banco o plataforma adquirente para el procesamiento de las compras realizadas con tarjetas de crédito y débito
 El MEIC verificará que la personería jurídica indicada en el Anexo EP-6 del punto 1, se encuentre vigente, así como lo dispuesto en los puntos 2, 3 y 4 de este apartado referente a los requisitos de la tiquetera.
 El organizador y la tiquetera deben mantener actualizada la información contemplada en el presente artículo. En caso de presentarse una variación de cualquiera de los requisitos antes mencionados, deberá aportar la documentación pertinente relativa al cambio en las condiciones.
-En caso de que la venta de tiquetes o boletos se realice en el ámbito del comercio electrónico, el organizador y/o la tiquetera deben cumplir con lo establecido en el Capítulo X, sobre la protección al consumidor en el contexto del comercio electrónico.
+En caso de que la venta de tiquetes o boletos se realice en el ámbito del comercio electrónico, el organizador y/o la tiquetera deben cumplir con lo establecido en el Capítulo X(*), sobre la protección al consumidor en el contexto del comercio electrónico.
+(*) (Nota de Sinalevi: Léase capítulo IX)
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 228 bis al artículo 164 bis, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

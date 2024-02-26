@@ -1,8 +1,2 @@
-Artículo 147.—Requisitos de la denuncia. Toda denuncia deberá presentarse por medio de formulario incluido en el sistema de administración de casos y expediente digital, establecido en la página web www.consumo.go.cr; o bien por escrito firmado, en idioma español y cumplir con los siguientes requisitos mínimos:
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42713 del 9 de octubre del 2020)
-a) Datos personales del denunciante y lugar para recibir notificaciones.
-b) Relación sucinta del hecho u omisión que la motiva.
-c) Datos del proveedor contra el que se plantea la denuncia y la dirección donde puede ser notificado, o bien la sucursal o agencia donde contrató el bien o servicio.
-d) Aportar las pruebas con que cuente para el sustento de la denuncia.
-La denuncia no está sujeta a otras formalidades ni requerirá de autenticación de la firma del denunciante.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 42713 del 9 de octubre del 2020)
+Artículo 147.-Muestreo estadístico de productos perecederos. En el caso del muestreo estadístico de productos perecederos, esto es, aquellos que se descomponen o deterioran en un período de pocos días, el análisis deberá realizarse en el término máximo de cuarenta y ocho horas, y la custodia no sobrepasará tres días en condiciones adecuadas de refrigeración.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 211 al artículo 147, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

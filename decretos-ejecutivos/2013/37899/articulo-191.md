@@ -1,1 +1,4 @@
-Artículo 191.—Recursos contra las resoluciones finales. Contra las resoluciones finales o que le pongan término al proceso, dictadas por las Comisiones, sólo cabrá recurso de reposición dentro del plazo de tres días hábiles contados a partir del día hábil siguiente a la última comunicación del acto.
+Artículo 191.- Comprobante para el consumidor. Sin detrin1ento de las disposiciones del artículo anterior, el comerciante, una vez perfeccionado el contrato, estará obligado a enviar al consumidor un comprobante íntegro, preciso y duradero de la transacción.
+El comprobante podrá ser enviado por vía electrónica o por cualquier medio de comunicación acordado previamente entre las partes.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 255 al artículo 191, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

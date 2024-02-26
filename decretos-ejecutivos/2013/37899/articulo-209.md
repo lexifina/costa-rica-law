@@ -1,1 +1,1 @@
-Artículo 209.—Muestreo realizado por terceras partes. En el caso de que el muestreo lo realice un órgano u oficina de la Administración distinta de la DAC, debidamente autorizadas por el MEIC, el tercer tanto deberá ser remitido de inmediato con las firmas y los sellos incólumes sin mayor demora a la DAC y deberá acompañar la documentación idónea del cumplimiento del procedimiento anteriormente descrito.
+Artículo 209.-Muestreo realizado por terceras partes. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 145)

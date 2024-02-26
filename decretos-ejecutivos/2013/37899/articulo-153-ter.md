@@ -1,0 +1,8 @@
+Artículo 153 ter. Obligaciones de las Organizaciones de Consumidores. Son obligaciones de las organizaciones de consumidores para mantener registro activo ante la DAC, las siguientes:
+a) Informar a la DAC respecto de cualquier reforma parcial o total de sus Estatutos, conforme la Ley de asociaciones No. 218.
+b) Remitir a la DAC en los primeros 15 días hábiles del mes de enero de cada año, el Informe Anual de la ODEC con el detalle de las actividades de investigación, defensa, difusión, educación o promoción de los derechos de los consumidores realizadas durante el año anterior.
+c) Remitir a la DAC en los primeros 15 días hábiles del mes de enero de cada año el Plan de Trabajo que contenga las acciones y programas de investigación, defensa, difusión, educación o promoción de los derechos de los consumidores que desarrollará la ODEC durante el año.
+d) Informar a la DAC trimestralmente respecto de la participación en comités, consejos y mesas de trabajo como representantes de la RED ODEC. La DAC podrá solicitar ampliación de dicho informe.
+e) Participar con representante propietario o suplente, en las reuniones de la RED ODEC a las que se les convoque, salvo que medie justificación debidamente comunicada.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 217 ter al artículo 153 ter, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

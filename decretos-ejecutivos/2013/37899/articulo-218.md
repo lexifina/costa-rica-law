@@ -1,1 +1,2 @@
-Artículo 218.—De la RED de organizaciones de consumidores. Créese la RED de organizaciones de consumidores como un mecanismo de coordinación interinstitucional con las instituciones públicas u organizaciones privadas que desarrollen o puedan desarrollar acciones, programas y proyectos tendientes a promover los derechos e intereses legítimos de los consumidores.
+Artículo 218.-De la RED de organizaciones de consumidores. (Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo N° 154)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)

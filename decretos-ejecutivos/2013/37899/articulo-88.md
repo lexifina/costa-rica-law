@@ -1,8 +1,5 @@
-Artículo 88.—Derechos del consumidor. Sin perjuicio de lo establecido en tratados, convenciones internacionales de las que Costa Rica sea parte, legislación interna ordinaria, reglamentos, principios generales de derecho, usos y costumbres complementarios; son derechos fundamentales e irrenunciables del consumidor, los siguientes:
-a) La protección contra los riesgos que puedan afectar su salud, su seguridad y el medio ambiente.
-b) La protección de sus legítimos intereses económicos y sociales.
-c) El acceso a una información, veraz y oportuna, sobre los diferentes bienes y servicios, con especificación correcta de cantidad, características, composición, calidad y precio.
-d) La educación y la divulgación sobre el consumo adecuado de bienes o servicios, que aseguren la libertad de escogencia y la igualdad en la contratación.
-e) La protección administrativa y judicial contra la publicidad engañosa o abusiva, las prácticas y las cláusulas abusivas, así como los métodos comerciales desleales o que restrinjan la libre elección.
-f) Los mecanismos efectivos de acceso para la tutela administrativa y judicial de sus derechos e intereses legítimos, que conduzcan a prevenir adecuadamente, sancionar y reparar con prontitud la lesión de estos, según corresponda.
-g) Recibir el apoyo del Estado para formar grupos y organizaciones de consumidores y la oportunidad de que sus opiniones sean escuchadas en los procesos de decisión que les afecten.
+Artículo 88.-Presentación de denuncias. Las denuncias por infracción a la Ley deberán ser presentadas por escrito y en idioma español ante la CNC, utilizando cualquiera de los siguientes medios:
+a) Electrónicamente a través del sistema de expediente digital de la DAC, ubicado en www.consumo.go.cr, y completando el formulario de denuncia electrónica, el cual podrá ser firmado electrónicamente, o bien utilizando como factor de autenticación el registro previo en cuyo caso no se requerirá la firma.
+b) Personalmente mediante el llenado del formulario o documento de denuncia firmado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 146 al artículo 88, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

@@ -1,4 +1,5 @@
-SECCIÓN TERCERA
-Deber de información al consumidor
-Artículo 91.—Deber de brindar información real al consumidor. Es obligación del comerciante informar suficientemente al consumidor y de manera clara, veraz y en español de todos los elementos que incidan directamente en su decisión de consumo conforme a las disposiciones contenidas en los artículos siguientes.
-Todos los datos e informaciones al consumidor, en la publicidad, la góndola, los manuales o cualquier otro medio, deberán estar expresados en letra legible en cuanto a forma y tamaño, sin perjuicio de lo establecido en regulación específica.
+Artículo 91.-Admisibilidad, subsanación y rechazo. Cuando la denuncia sea oscura, de manera que se haga imposible establecer el hecho que la motiva, o no cumpla con los requisitos, se prevendrá al denunciante que corrija o complete los defectos, para lo cual se le otorgará un plazo no mayor a cinco días hábiles.
+De no corregirlos o completarlos en ese plazo, o bien la denuncia sea inadmisible, serán rechazadas de plano por la UTA, de conformidad con el artículo 292 de la Ley General de la Administración Pública.
+Contra la resolución que rechaza una denuncia, únicamente procede el recurso de apelación, que deberá ser interpuesto dentro del plazo de tres días hábiles, contados a partir del día hábil siguiente de la transmisión electrónica de la notificación, y éste será conocido por la CNC.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 149 al artículo 91, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

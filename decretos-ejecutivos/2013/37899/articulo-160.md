@@ -1,10 +1,5 @@
-Artículo 160.—Notificaciones. Se privilegiarán los medios de comunicación electrónica sobre las direcciones materiales. Para este caso, las partes deberán señalar un medio electrónico para atender notificaciones.
-En los casos en que no se haya señalado medio electrónico para recibir notificaciones, la notificación inicial a la parte denunciada deberá realizarse de acuerdo al siguiente orden de prelación:
-a) En el establecimiento comercial, donde se contrató el bien o servicio, o en cualquier otra agencia o sucursal de este abierta al público.
-b) En el domicilio social establecido por el Registro Público, cuando la dirección del establecimiento comercial o sus sucursales y agencias fuere imprecisa o incierta.
-c) En la dirección o medio electrónico que conste en sus facturas, contratos, publicidad o en los sitios de internet.
-d) En cualquier domicilio conocido de los representantes legales.
-En el caso de productos que se comercialicen por medios electrónicos, en la dirección o medio electrónico que consten en las plataformas de comercio electrónico o sitios de internet.
-Se producirá la notificación automática si el medio escogido por el denunciado imposibilitare la notificación; o bien si el lugar señalado permaneciere cerrado, fuere impreciso, incierto o inexistente. En caso de agotarse todas las posibilidades de notificación, se procederá al archivo del expediente administrativo.
-En lo no dispuesto en el presente artículo, aplicará de forma supletoria lo contemplado en la Ley de Notificaciones Judiciales, Ley N° 8687 del 04 de diciembre de 2008.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42713 del 9 de octubre del 2020)
+Artículo 160. Publicidad de la Información. El MEIC a través de la Dirección de Apoyo al Consumidor mantendrá una base de datos con información actualizada y permanente a disposición del público por medio de la página web, sobre la totalidad de los comerciantes o proveedores debidamente autorizados para la venta de los bienes, y servicios sujetos a regulación, así como la de los planes autorizados y los contratos de adhesión vendidos que lo componen.
+La Dirección de Apoyo al Consumidor deberá emitir en el plazo de ocho días hábiles las constancias o certificaciones que soliciten las a los interesados: empresas, consumidores, oficinas e instituciones.
+Lo anterior, dentro de los alcances y limitaciones que establece la LGAP y la Ley de la Protección de la Persona Frente al Tratamiento de los Datos Personales, Ley N° 8968.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 224 al artículo 160, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

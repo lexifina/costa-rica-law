@@ -1,5 +1,3 @@
-Artículo 84.—Pluralidad de partes. En los procedimientos en los que intervenga más de una parte se procederá de la siguiente forma:
-a) La propuesta de terminación anticipada deberá ser presentada por todos los agentes investigados.
-b) El órgano director del procedimiento trasladará la versión no confidencial de la solicitud al denunciante, si lo hubiera, por un plazo de diez días hábiles para que haga las manifestaciones que considere convenientes.
-c) Para terminar anticipadamente el procedimiento no se requerirá la aprobación o consentimiento del denunciante. Sin embargo, las manifestaciones que éste formule serán consideradas por la Comisión al tomar el acuerdo respectivo.
-El procedimiento no finalizará anticipadamente a menos que todos los agentes económicos investigados ofrezcan compromisos, y éstos sean aceptados por la Comisión.
+Artículo 84.-Sobre la responsabilidad. La responsabilidad prevista en el artículo 35 de la Ley, aplicará tanto al productor u organizador, la empresa tiquetera o plataforma de venta de entradas, los puntos de venta, y a las entidades adquirentes.
+La responsabilidad contemplada en este artículo es objetiva, por lo que no se estará al grado de diligencia o negligencia con que hayan actuado los agentes señalados, sin perjuicio de las acciones de repetición que entre ellos correspondan.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 142 al artículo 84, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

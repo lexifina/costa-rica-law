@@ -1,7 +1,2 @@
-CAPÍTULO VI
-Disposiciones comunes a la Comisión para Promover
-la Competencia y a la Comisión Nacional
-del Consumidor
-SECCIÓN PRIMERA
-Sobre las sesiones
-Artículo 168.—Designación del Presidente. El Presidente será nombrado de entre los miembros de la respectiva Comisión, por la mayoría absoluta de sus miembros, y durará en su cargo dos años, pudiendo ser reelecto.
+Artículo 168.-Sobre el tipo de garantía. Se recibirán como garantías las de cumplimiento con plazo de un año emitidas por una entidad financiera y los seguros regulados por la Superintendencia de Seguros, los cuales deben ser renovados anualmente para las empresas que tenga planes pendientes. Estas garantías deberán ser rendidas a nombre del MEIC.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 232 al artículo 168, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

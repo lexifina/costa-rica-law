@@ -1,12 +1,9 @@
-Artículo 108.—Derechos del titular durante la vigencia de la garantía. Cuando se trate de bienes de naturaleza duradera, la garantía se regirá por las siguientes disposiciones específicas:
-a) La garantía comprenderá los vicios o defectos que afecten la identidad entre lo ofrecido y lo entregado, y su correcto funcionamiento, salvo que estos se hayan informado previamente y consten por escrito, en la factura o en un documento aparte, en el momento de la contratación y el consumidor los acepte.
-b) Durante el período de vigencia de la garantía, su titular tendrá derecho como mínimo, y según corresponda a:
-1. La devolución del precio pagado.
-2. Al cambio del bien por otro de la misma especie, similares características o especificaciones técnicas, las cuales en ningún caso podrán ser inferiores a las del producto que dio lugar a la garantía.
-3. A la reparación gratuita del bien.
-c) Se entiende por consumidor al titular del bien y los sucesivos adquirentes del derecho.
-d) Cuando la garantía se satisfaga mediante la devolución del dinero, tendrá derecho al reintegro del valor efectivamente recibido por el comerciante. En el caso que corresponda, se deberán reintegrar las comisiones, los gastos de la operación, gastos asociados y los intereses.
-e) En caso de que opere la sustitución del bien, se entenderá renovada la garantía por el plazo inicialmente otorgado y correrá a partir de la entrega del bien.
-Cuando la garantía se aplique mediante la devolución del precio pagado, la sustitución o reposición del bien por otro de idénticas características, el consumidor deberá restituir el bien al comerciante con todos sus accesorios cuando así corresponda, y sin más deterioro que el normalmente previsto por el uso o disfrute.
-Si se trata de la prestación de un servicio, la garantía dará derecho al consumidor de exigir que el resultado coincida con lo ofertado. De no ser así, el consumidor podrá exigir la devolución de lo pagado o si lo prefiere, nuevamente la prestación del servicio, total o parcial, según los términos pactados. Los gastos que se ocasionen correrán por cuenta del obligado a prestar la garantía. Cuando el servicio sea de nuevo prestado como parte del cumplimiento de la garantía, esta iniciará de nuevo.
-El comerciante o proveedor que ofrece un bien o servicio queda obligado jurídicamente no sólo a lo establecido en el documento o contrato de garantía, sino también en la oferta, promoción o publicidad que realice de conformidad con los artículos 34 y 37 de la Ley, y lo dispuesto en el presente reglamento.
+CAPÍTULO V
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo Capítulo VI al Capítulo V, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)
+Disposiciones comunes a la Comisión para Promover
+la Competencia y a la Comisión Nacional
+del Consumidor
+SECCIÓN PRIMERA
+Sobre las sesiones
+Artículo 108.-Designación del Presidente. El Presidente será nombrado de entre los miembros de la respectiva Comisión, por la mayoría absoluta de sus miembros, y durará en su cargo dos años, pudiendo ser reelecto.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 168 al artículo 108, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)

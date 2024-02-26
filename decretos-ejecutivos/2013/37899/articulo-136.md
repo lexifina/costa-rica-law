@@ -1,6 +1,9 @@
-SECCIÓN OCTAVA
-Conciertos y otros espectáculos públicos
-Artículo 136.-Espectáculos públicos como prestación futura de servicios. A esta sección le serán aplicables las disposiciones contenidas en el Capítulo IX, sobre las ventas a plazo y prestación futura de servicios del presente reglamento.
-La publicidad utilizada para la promoción, comercialización u ofrecimiento del espectáculo público deberá ajustarse a los principios sobre información y publicidad dispuestos en la Ley N° 7472, su reglamento y lo dispuesto en la resolución administrativa que otorga la autorización.
-Antes de la aprobación el organizador podrá emitir publicidad del espectáculo público masivo, siempre y cuando, no se reciban dineros por parte del consumidor. Será prohibida la reserva, venta o cualquier forma de comercialización del espectáculo público de previo a su autorización mediante resolución administrativa.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43721 del 30 de setiembre del 2022)
+Artículo 136.-Propósito de las inspecciones. Las inspecciones tendrán por objeto:
+a) Ejercer un control de precios sobre aquellos bienes y servicios afectos a tales medidas, conforme al artículo 5 de la Ley y este reglamento.
+b) Verificar el correcto estado de las pesas, medidas, registradoras y demás instrumentos de medición empleados por los comerciantes, de acuerdo con los procedimientos establecidos por LACOMET o por la normativa vigente. Al detectar un instrumento defectuoso, alterado o no apto para la actividad comercial correspondiente, el funcionario que realiza la inspección deberá prevenir al comerciante su inmediata reparación o reposición. Si no se atendiera este requerimiento dentro del plazo de tres días contados a partir del día siguiente de la notificación, dicho funcionario deberá notificar a la CNC para que ésta acuerde la medida precautoria correspondiente.
+c) Velar porque todo comerciante exponga los precios debidamente actualizados de los bienes o servicios comerciales ofrecidos, conforme a las reglas previstas en la Ley y este reglamento.
+d) Instruir a quienes comercien con bienes y servicios sobre la correcta aplicación de la Ley, su reglamento y demás disposiciones conexas, a fin de favorecer el cumplimiento de sus objetivos.
+e) Verificar los productos para constatar que cumplan con las normas y reglamentaciones relativas a la salud, el ambiente, la seguridad, la calidad, entre otros.
+f) Verificar la correcta aplicación y cumplimiento de las disposiciones de la Ley y este reglamento.
+g) Ejecutar cualquier otra labor que les asigne la COPROCOM, la CNC o los restantes despachos competentes del MEIC.
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44400 del 26 de febrero del 2024, que lo traspasó del antiguo artículo 200 al artículo 136, ya que dicho decreto ejecutivo ordenó derogar el Capítulo III Promoción de la Competencia que comprende del artículo 30 al 86, así como la derogatoria de los numerales 110, 155, 164, 182, 184, 188 y 191)
