@@ -1,2 +1,0 @@
-Artículo 7°-Los anticipos de caja chica deberán liquidarse en un plazo no mayor a un día natural. Cuando se trate de viáticos y gastos de viaje, la liquidación se hará de acuerdo al reglamento de viáticos por empleados del sector público.
-Los justificantes deberán ser originales debidamente numerados, el encargado del fondo tendrá el cuidado de sellar con la leyenda “Pago de contado” y codificar según su asignación presupuestaria. No se aceptarán justificantes con tachaduras, borrones, etc., que pongan en duda la veracidad del documento.
