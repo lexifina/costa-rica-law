@@ -1,1 +1,0 @@
-Artículo 24.—Razonable y fundamentado conocimiento para asesorar. El Auditor interno debe obtener asesoramiento y ayuda competente, en caso de que carezca de los conocimientos, las aptitudes y otras competencias necesarias para cumplir apropiadamente con su labor asesora.
