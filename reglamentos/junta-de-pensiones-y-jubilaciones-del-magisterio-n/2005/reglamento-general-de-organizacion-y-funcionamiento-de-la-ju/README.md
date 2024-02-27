@@ -35,3 +35,4 @@ Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y 
 | 20 | 2022-12-01 | Reglamento 133 (2022-12-01) |
 | 21 | 2023-10-24 | Reglamento 116 (2023-10-24) |
 | 22 | 2023-12-20 | Reglamento 142 (2023-12-20) |
+| 23 | 2024-02-27 | Reglamento 22 (2024-02-27) |
