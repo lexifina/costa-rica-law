@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese un nuevo artículo al Decreto Ejecutivo N° 36659-G del 23 de mayo de 2011, publicado en el Diario Oficial La Gaceta N° 138 del 18 de julio de 2011, denominado "Reglamento para la aplicación de la Ley General de Migración y Extranjería N° 8764 a las personas menores de edad" que será el 30 Bis, cuyo texto indicará:
+"Artículo 30-Bis.-Los plazos de entrega de pasaportes y demás documentos de viaje para personas menores de edad, se regirán por lo indicado al respecto en el Reglamento de Control Migratorio, Decreto Ejecutivo N° 36769-G."
