@@ -1,0 +1,1 @@
+Artículo 5. Se invita al Poder Legislativo, al Poder Judicial, el Tribunal Supremo de Elecciones, sus dependencias y órganos auxiliares, así como al sector privado, a implementar los lineamientos técnicos emitidos por el Consejo Nacional de Personas con Discapacidad y el MlCITT, para la accesibilidad en la red de sus sitios.

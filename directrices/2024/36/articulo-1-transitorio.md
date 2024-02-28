@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. La Administración Pública Central deberán continuar aplicando la Directriz N.° 051-MTSS-MICITT "Implementación de los sitios Web accesibles en el sector público" de cita, hasta que les sean comunicados los lineamientos técnicos emitidos por el CONAPDIS y el MICITT, según lo indicado en el artículo 3 de esta Directriz.
