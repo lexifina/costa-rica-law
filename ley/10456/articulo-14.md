@@ -1,0 +1,2 @@
+ARTÍCULO 14- Autorización a los organismos ejecutores y coejecutores para que suscriban convenios interinstitucionales
+Se autoriza a los organismos ejecutores y coejecutores para que suscriban los convenios interinstitucionales necesarios para la determinación de los roles y las responsabilidades de coordinación, el cumplimiento de las condiciones para la ejecución y posterior operación, la administración y el mantenimiento de las obras y los servicios contemplados en el Proeri.
