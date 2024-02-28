@@ -1,0 +1,2 @@
+Artículo 4°- Se autoriza a las dependencias y entidades de la Administración Pública para que dispongan los recursos que consideren necesarios para auxiliar al SENASA, en la atención de la presente emergencia nacional sanitaria epidémica.
+El SENASA podrá recibir donaciones de personas, organizaciones e instituciones privadas nacionales, internacionales o extranjeras a efecto de coadyuvar en el esfuerzo del control y la erradicación de la enfermedad del Gusano Barrenador.
