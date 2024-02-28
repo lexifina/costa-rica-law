@@ -14,3 +14,4 @@ Reforma Política de Alto Nivel Gestión Integral de Riesgo y de cumplimiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-04 | la propia norma |
+| 2 | 2024-02-28 | Reglamento 6170 (2024-02-28) |
