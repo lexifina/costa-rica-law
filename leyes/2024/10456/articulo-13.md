@@ -1,0 +1,3 @@
+ARTÍCULO 13- Autorización de tala de árboles y limpieza de terrenos
+Se concede autorización, en el marco de los estudios de impacto ambiental aprobados por la Secretaría Técnica Nacional Ambiental (Setena), la tala de árboles y la limpieza de terrenos en el derecho de vía y otras áreas necesarias para el desarrollo de las obras. Las entidades competentes procesarán con prioridad y prontitud las solicitudes presentadas por los organismos ejecutores.
+Para llevar a cabo estas acciones, es imprescindible contar con los planes de compensación correspondientes que mitiguen los efectos de la tala o tala rasa.

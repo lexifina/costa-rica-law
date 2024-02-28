@@ -1,0 +1,2 @@
+ARTÍCULO 4- Provisión de fondos
+El Organismo ejecutor coordinador, los organismos ejecutores y coejecutores, como beneficiarios del programa según corresponda, deberán presupuestar y proveer con recursos institucionales propios los fondos suficientes y necesarios para la terminación de las obras que componen el Programa; si su costo final resultara mayor a lo indicado en el Plan Global de Inversiones del Programa.

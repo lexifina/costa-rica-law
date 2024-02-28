@@ -1,0 +1,2 @@
+ARTÍCULO 10- Comité Director Interinstitucional
+Se autoriza a la Junta Directiva de la Comisión Nacional para la Prevención de Riesgos y Atención de Emergencias a celebrar sesiones ampliadas con los jerarcas del Ministerio de Educación Pública, el Instituto Costarricense de Ferrocarriles, el Consejo Nacional de Vialidad y el representante de la Firma de Implementación General, quien actuará con voz pero sin voto, para apoyar en la coordinación del programa, funciones que se definirán en el Manual de Operaciones del Programa.
