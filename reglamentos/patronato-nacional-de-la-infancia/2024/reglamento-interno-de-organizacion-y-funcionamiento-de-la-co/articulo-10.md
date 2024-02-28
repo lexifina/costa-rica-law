@@ -1,0 +1,1 @@
+Artículo 10. Dietas. Las personas miembros de la Comisión Consultiva no devengaran dietas, su participación será ad honorem de conformidad con lo que establece el artículo 8 de la Ley N.-9220 y sus reformas.

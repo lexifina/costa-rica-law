@@ -1,0 +1,6 @@
+Artículo 8.- Responsabilidades y funciones de la Comisión Consultiva de la REDCUDI. Para dar cumplimiento a las funciones atribuidas en el artículo 8 de la Ley Nº 9220, la Comisión Consultiva deberá:
+a) Discutir acerca del estado de situación de los servicios de cuidado y desarrollo infantil en el país y proponer políticas públicas para mejorarlos, para lo cual podrá delegar en la Secretaría Técnica y en la Comisión Técnica Interinstitucional la elaboración de las propuestas técnicas correspondientes.
+b) Analizar y aprobar las propuestas de políticas públicas, lineamientos estratégicos, reglamentos e instrumentos técnicos interinstitucionales e intersectoriales propuestos por la Secretaría Técnica de la REDCUDI y la Comisión Técnica Interinstitucional, que impulsen el cumplimiento de los fines de la REDCUDI.
+c) Gestionar la elaboración de decretos ejecutivos para dotar de carácter vinculante a las políticas y los lineamientos estratégicos que apruebe.
+d) Discutir y aprobar propuestas de mejora al marco jurídico relativo al cuidado y el desarrollo infantil y gestionar su aprobación ante la Asamblea Legislativa.
+e) Apoyar la labor de la Secretaría Técnica de la REDCUDI para consolidar su funcionamiento y la implementación de las políticas sobre cuidado y desarrollo integral para la población objeto de la Ley Nº 9220 y sus reformas.

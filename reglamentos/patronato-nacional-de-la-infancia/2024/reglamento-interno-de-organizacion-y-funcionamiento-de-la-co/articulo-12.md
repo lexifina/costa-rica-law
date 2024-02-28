@@ -1,0 +1,4 @@
+Artículo 12.- Sesiones extraordinarias. La persona que preside la Comisión Consultiva podrá convocar a sesiones extraordinarias, de forma excepcional, para conocer de asuntos urgentes, los cuales, dadas sus implicaciones para el interés público, requieren de su atención inmediata, no pudiendo por ello esperarse a que acontezca la sesión ordinaria.
+En las sesiones extraordinarias, se conocerá única y exclusivamente lo convocado según la agenda respectiva.
+No obstante, excepcionalmente, en las sesiones extraordinarias podría conocerse un asunto ordinario, siempre y cuando se apruebe por unanimidad de las personas integrantes de la Comisión Consultiva en pleno.
+No se aplicarán los requisitos del plazo y las formalidades para la convocatoria a sesiones extraordinarias, cuando se encuentren presentes todas las personas que integran el órgano y así lo acuerden por unanimidad.

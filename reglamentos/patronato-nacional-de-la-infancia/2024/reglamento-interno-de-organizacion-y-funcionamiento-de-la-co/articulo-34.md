@@ -1,0 +1,1 @@
+Artículo 34.- Transcripción de las Actas para aprobación. Las actas de las sesiones de la Comisión Consultiva serán transcritas por la Secretaria Técnica de la REDCUDI y deberán remitirse junto con la convocatoria de las sesiones ordinarias para su conocimiento y eventual aprobación, en la siguiente sesión ordinaria.

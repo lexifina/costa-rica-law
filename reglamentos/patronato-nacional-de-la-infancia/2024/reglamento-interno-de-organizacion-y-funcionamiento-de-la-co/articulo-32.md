@@ -1,0 +1,3 @@
+Artículo 32.-Procedimiento para el seguimiento del estado de cumplimiento de los acuerdos. Todo acuerdo que dicte la Comisión Consultiva deberá indicar expresamente el nombre y cargo de la persona, o bien el nombre de la institución o instancia, designada para gestionar el cumplimiento de lo acordado, estableciendo además el plazo para esos efectos y cualquier otro detalle necesario para su gestión.
+Corresponderá a la Secretaría Técnica, llevar un control de seguimiento del estado de cumplimiento de los acuerdos, para lo cual deberá contar con un procedimiento debidamente aprobado por la Comisión Consultiva.
+En dicho procedimiento se establecerá la periodicidad en la que se deberá presentar el informe de seguimiento del estado de cumplimiento de los acuerdos tomados.

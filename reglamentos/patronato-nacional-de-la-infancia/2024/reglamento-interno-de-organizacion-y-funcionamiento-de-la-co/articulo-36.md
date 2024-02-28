@@ -1,0 +1,1 @@
+Artículo 36.- Firma de las actas. Las actas serán firmadas por quien ejerza la Presidencia de la Comisión Consultiva, la persona que funja como secretaria del órgano y por los miembros que hayan votado en contrario a un acuerdo contenido del acta.

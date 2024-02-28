@@ -1,0 +1,3 @@
+CAPITULO V
+De la gestión de la Comisión Consultiva de la REDCUDI
+Artículo 40. Mecanismo de gestión de la Comisión Consultiva de la REDCUDI. Para lograr que los órganos y las entidades que conforman la REDCUDI alcancen una efectiva articulación, la Comisión Consultiva mediante su Presidencia, se encargará de efectuar las gestiones que correspondan con el fin de dotar de carácter vinculante mediante los mecanismos legales aplicables, las propuestas sobre políticas y lineamientos estratégicos que favorezcan los objetivos de la REDCUDI que la Comisión Técnica Interinstitucional y la Secretaría Técnica de la REDCUDI le presenten.

@@ -1,0 +1,4 @@
+Artículo 7.- De las ausencias a las sesiones. Las ausencias de cualquiera de los miembros deberán ser debidamente justificadas de previo, ante la Presidencia de la Comisión Consultiva. Si se presentara alguna situación inesperada, que imposibilite comunicarse con la correspondiente antelación, la persona miembro deberá hacerla del conocimiento de la persona que ocupa la Presidencia por el medio más expedito. La justificación y no justificación de una ausencia se hará constar en el acta de la sesión respectiva.
+Serán causales de ausencia justificada, las siguientes:
+a) Por incapacidad médica extendida por la Caja Costarricense del Seguro Social.
+b) Por la atención de situaciones laborales de carácter excepcional o urgentes, debidamente valoradas previamente por la Presidencia de la Comisión Consultiva.
