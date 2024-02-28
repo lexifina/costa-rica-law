@@ -1,4 +1,0 @@
-Artículo 8º. En los casos en que la persona física o jurídica propuesto por el IMAS o la Unidad Ejecutora, presente un faltante de garantías sobre el monto a prestar (según la solicitud de faltante de garantía SOFAGA), el faltante podrá garantizarse con el FIDEICOMISO
-Para la autorización de la garantía, el FIDEICOMISARIO GARANTIZADO deberá aportar a la UNIDAD EJECUTORA, carta de solicitud del faltante de garantía, informe técnico del análisis de la solicitud de crédito, el documento SOFAGA indicando las condiciones del crédito y cualquier otra información que requiera la UNIDAD EJECUTORA.
-En los casos que se compartan garantías con el FONADE del Sistema de Banca Para el Desarrollo (SBD), se presentará los documentos establecidos y solicitados previamente por el SBD
-Cumplido lo anterior y formalizado el crédito, el FIDEICOMISARIO GARANTIZADO remitirá los documentos de formalización necesarios para que el FIDUCIARIO emita y remita la Garantía de Pago (aval).

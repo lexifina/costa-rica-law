@@ -1,1 +1,0 @@
-Artículo 33º. Plan anual de servicios de apoyo. Los Servicios de Apoyo funcionarán con un Plan Anual emitido al efecto, donde se especificarán las prioridades institucionales. La Unidad Ejecutora formulará anualmente el plan supra citado atendiendo las necesidades detectadas, por la población objetivo, y someterlo a la aprobación del Comité Director.
