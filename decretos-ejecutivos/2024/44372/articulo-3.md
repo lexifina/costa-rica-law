@@ -1,0 +1,2 @@
+Artículo 3 °- Competencias· de la Dirección de Culto: Será la dependencia encargada del cumplimiento de las gestiones contenidas en el presente reglamento, así como la regulación y aplicación de los procedimientos y otros aspectos e instrumentos necesarios para tales fines.
+Además, comunicará a su superior las observaciones que en el ejercicio de su función considere oportunas para el mejoramiento de la calidad y seguridad de la prestación de este servicio.

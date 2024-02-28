@@ -1,0 +1,6 @@
+Artículo 21 º- Requisitos para la actualización de datos de entidades religiosas inscritas ante el Ministerio de Relaciones Exteriores y Culto.
+La documentación que se solicita presentar para dicho trámite es la siguiente:
+1. Presentar la solicitud de actualización de datos establecida por la Dirección de Protocolo, la cual estará disponible en la página Web del Ministerio. La solicitud deberá completarse según las instrucciones consignadas en dicho sitio web. Deberá ser firmada por el representante legal de la entidad religiosa, cuyo poder deberá estar inscrito en el Registro Nacional de la República de Costa Rica, y vigente al momento de presentar la solicitud.
+2. En caso de presentar la documentación en forma personal por medios físicos, se deberá mostrar el documento de identidad vigente del representante legal de la entidad religiosa, para confrontar la firma consignada en la solicitud. Si la solicitud se presenta en forma electrónica, deberá contener una firma digital válida, reconocida por la autoridad certificadora autorizada.
+3. Certificación de la personería jurídica de la entidad inscrita en el Registro de Entidades Religiosas.
+4. Certificación que demuestre todos los fines establecidos en los estatutos vigentes de la entidad, emitida por el Registro Nacional o por Notario Público.

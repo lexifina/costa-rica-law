@@ -1,0 +1,5 @@
+Artículo 15º - Requisitos para la inscripción de sucursales de entidades extranjeras en el Registro de Entidades Religiosas. Para tramitar su inscripción en el Registro de Entidades Religiosas en la Dirección de Culto, las entidades religiosas extranjeras deberán cumplir con la presentación de los siguientes requisitos:
+1. Solicitud de inscripción en el formato establecido por la Dirección de Protocolo, la cual estará disponible en la página Web del Ministerio de Relaciones Exteriores y Culto.
+2. Cc1iificación de la inscripción del poder en el Registro Nacional de Costa Rica.
+3. Certificación que muestre los fines establecidos en los estatutos vigentes de la entidad a inscribir, emitida por el Registro Nacional o por Notario Público.
+Si el trámite es presentado por una persona que no es el apoderado de la entidad religiosa interesada, se deberá aportar' la solicitud con la firma del apoderado, autenticada por Notario Público, y copia certificada por Notario Público del documento de identidad.

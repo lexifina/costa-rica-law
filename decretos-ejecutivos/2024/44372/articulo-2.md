@@ -1,0 +1,1 @@
+Artículo 2° - Ámbito de aplicación: El presente reglamento, contiene las normas relativas a las gestiones de las entidades religiosas ante la Dirección de Culto, cumpliendo con la naturaleza propia de un reglamento ejecutivo, y tiene como finalidad instrumentar y complementar dichas normas, para que su aplicación sea efectiva.

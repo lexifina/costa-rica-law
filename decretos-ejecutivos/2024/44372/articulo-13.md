@@ -1,0 +1,1 @@
+Artículo 13º- Reportes. La Dirección de Culto deberá rendir un reporte trimestral ante su superior inmediato, con el detalle de la información correspondiente a los registros indicados en el artículo anterior. Asimismo, deberá rendir los informes y reportes especiales que le sean requeridos por parte de este.
