@@ -1,0 +1,1 @@
+Artículo 4.- Requisitos legales. Se deberá velar por el cumplimiento de los requisitos legales objetivos (que la pena del delito sea susceptible de la aplicación medida alterna) y subjetivos (condiciones relacionadas al imputado) para la aplicación de la medida alterna que se proponga.

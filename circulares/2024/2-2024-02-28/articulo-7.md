@@ -1,0 +1,3 @@
+Artículo 7.- Indemnización por daño social sin pretensión civil. El monto a negociar por daño social, se deberá estimar en un porcentaje razonable y proporcional al daño ocasionado. Siguiendo las siguientes reglas:
+a) En cuanto a la Procuraduría Penal, el monto del daño social será de al menos de un 30% de la afectación patrimonial o ambiental causada. En las contravenciones dicho monto no podrá ser menor de medio salario base definido en el artículo 2 de la ley 7337, de 5 de mayo de 1993.
+b) En cuanto a la Procuraduría de la Ética Pública, el daño social no podrá ser menor de medio salario base, definido en el artículo 2 de la ley 7337, de 5 de mayo de 1993.

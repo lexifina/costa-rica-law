@@ -1,0 +1,1 @@
+Artículo 2.- Autorización. Los planes reparadores pactados por los procuradores y procuradoras, de conformidad con lo dispuesto en el artículo 20 de la Ley Orgánica de la Procuraduría General de la República, previo criterio de director de Área, sea favorable o no, deberán ponerse en conocimiento del Procurador General para su resolución definitiva.

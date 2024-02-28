@@ -1,0 +1,5 @@
+Artículo 10.- Trabajo comunal. La determinación de las horas de trabajo comunal, se realizará de conformidad con los siguientes parámetros:
+a) La valoración a la luz de los principios de oportunidad, conveniencia, razonabilidad y proporcionalidad.
+b) La importancia de la afectación social, patrimonial y/o ambiental;
+c) Las condiciones personales, sociales y económicas del imputado.
+Las horas de trabajo comunal se deberán realizar en una institución pública o de bien social, de previo a su cumplimiento, el imputado deberá suscribir con alguna aseguradora debidamente autorizada, una póliza de seguro básica de accidentes nivelado en colones, u otra similar en caso de que la Institución beneficiaria así lo requiera, para atender eventuales accidentes o afectaciones en la salud de la persona imputada, a la hora de realizar el trabajo comunal. No obstante, en casos muy calificados, por razones de edad, salud del imputado, u otras que así lo justifiquen, las horas de trabajo comunal podrán reducirse, o bien condonarse.
