@@ -16,3 +16,4 @@ Aprueba Política de Alto Nivel Gestión Integral de Riesgo y el Reglamento del 
 | 1 | 2013-09-09 | la propia norma |
 | 2 | 2015-07-08 | Reglamento 5694 (2015-07-08) |
 | 3 | 2021-02-24 | Reglamento 5986 (2021-02-24) |
+| 4 | 2024-02-28 | Reglamento 6170 (2024-02-28) |
