@@ -14,3 +14,4 @@ Reglamento Autónomo de organización y Servicio de la Municipalidad de Pococí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-10 | la propia norma |
+| 2 | 2024-02-29 | Reglamento municipal 14 (2024-02-29) |

@@ -1,1 +1,2 @@
-Artículo 177. - Ante la falta de disposiciones de este reglamento aplicables a un caso determinado, deben tenerse como normas supletorias el Código Municipal, el Código de Trabajo, la Ley General de la Administración Pública, la Convención Colectiva, los Convenios Internacionales de la Organización Internacional del Trabajo, ratificados por la Asamblea Legislativa y las demás leyes y reglamentos conexos.
+Artículo 177.-Prohibición de realizar actividades privadas incompatibles. Los funcionarios municipales no podrán ofrecer o desempeñar trabajos o actividades privadas, remuneradas o no, que comprometan sus deberes y responsabilidades debido a su cargo.
+(Así adicionado en sesión N° 14 de 29 de febrero de 2024)

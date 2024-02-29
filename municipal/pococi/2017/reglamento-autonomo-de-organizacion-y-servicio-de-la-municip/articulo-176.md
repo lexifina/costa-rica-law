@@ -1,1 +1,2 @@
-Artículo 176. - Todas las quejas, peticiones, reclamos, sugerencias, entre otras intervenciones, surgidas en la relación de servicio, pero que no se circunscriba a aspectos disciplinarios, deberán ser dirigidas a los responsables de dichas dependencias, coordinadores (as) de unidad, dirección o equipos de trabajo de la municipalidad, según el caso, en forma respetuosa objetiva y comedida.
+Artículo 176.-Prohibición de aceptar dadivas. El servidor municipal tiene terminantemente prohibido solicitar y aceptar, directa o indirectamente todo tipo de dádiva en razón o con ocasión del desempeño de su cargo público o por medio de su círculo familiar, hasta tercer grado de consanguinidad inclusive.
+(Así adicionado en sesión N° 14 de 29 de febrero de 2024)

@@ -1,1 +1,2 @@
-Artículo 178. - La Municipalidad se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este reglamento, cumpliendo con lo dispuesto por el artículo 136 inciso e) de la Ley General de la Administración Pública.
+Artículo 178. Solicitud de colaboración para la institución. Los funcionarios públicos no deberán solicitar a nombre de la Municipalidad ningún servicio o trato preferente para su propio beneficio o de sus familiares.
+(Así adicionado en sesión N° 14 de 29 de febrero de 2024)

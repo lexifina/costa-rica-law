@@ -1,1 +1,2 @@
-Artículo 179. - Se derogan todas las disposiciones de igual o inferior rango que se le opongan.
+Artículo 179.-Uso de información y otros recursos propiedad de la Municipalidad. Los funcionarios municipales no deberán utilizar ningún tipo de recursos propiedad de la Municipalidad con propósitos ajenos al fin para el que están destinados. Tampoco podrán utilizar indebidamente la información que conozcan en razón o con ocasión del desempeño del cargo, sea ésta de carácter confidencial o no.
+(Así adicionado en sesión N° 14 de 29 de febrero de 2024)

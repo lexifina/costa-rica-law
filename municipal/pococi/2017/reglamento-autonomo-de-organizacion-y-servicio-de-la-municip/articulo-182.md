@@ -1,0 +1,2 @@
+Artículo 182. - Todas las quejas, peticiones, reclamos, sugerencias, entre otras intervenciones, surgidas en la relación de servicio, pero que no se circunscriba a aspectos disciplinarios, deberán ser dirigidas a los responsables de dichas dependencias, coordinadores (as) de unidad, dirección o equipos de trabajo de la municipalidad, según el caso, en forma respetuosa objetiva y comedida.
+(Así modificada su numeración en sesión N° 14 de 29 de febrero de 2024, que lo traspaso del antiguo artículo 176 al 182)
