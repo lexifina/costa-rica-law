@@ -14,3 +14,4 @@ Reglamento para las solicitudes de emisión y otorgamiento de número internacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-09 | la propia norma |
+| 2 | 2024-02-29 | Decreto Ejecutivo 44545 (2024-02-29) |
