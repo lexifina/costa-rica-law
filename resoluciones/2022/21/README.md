@@ -14,3 +14,4 @@ Metodología de fijación de tarifas para generadores privados amparados al Cap�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-04-19 | la propia norma |
+| 2 | 2024-02-29 | Resolución 5 (2024-02-29) |

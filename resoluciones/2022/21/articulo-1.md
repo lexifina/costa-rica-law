@@ -479,29 +479,33 @@ Esta propuesta metodológica aplicará para la fijación ordinaria de las tarifa
 Esta metodología será de aplicación para las plantas de generación con fuerza hidráulica y con fuerza eólica que tengan contratos renovados vigentes y que renueven contratos, y utilizará información de ambas fuentes por separado para el cálculo de cada banda respectiva. Las tarifas que resulten de la aplicación de esta metodología aplicarán a las transacciones que surjan de los contratos renovados vigentes y la renovación de contratos entre el ICE y un generador privado al amparo del capítulo I de la Ley 7200.
 Las tarifas propuestas corresponden a valores máximos y mínimos, dentro de los cuales los agentes (generadores privados de energía e ICE) acordarán el precio contractual para la venta de energía, bajo el esquema de contratación que el ICE establezca aplicable a plantas que tengan contratos renovados vigentes o plantas que renueven contratos, como por ejemplo, negociaciones individuales por planta, licitaciones o subastas por bloques de energía o potencia, o bien, cualquier otro mecanismo de recontratación que defina esa institución, los cuales deberán considerar el precio ofertado por el generador como factor para la toma de decisión en dicho proceso.
 El límite superior de las bandas tarifarias (tarifa tope) se determinará considerando el costo de explotación promedio más una desviación estándar, calculando cada tope por grupo de plantas hidroeléctricas y eólicas respectivamente con la información correspondiente a cada fuente de generación por separado.
-El límite inferior de las bandas tarifarias (tarifa piso) se determinará con base en el promedio de costo de explotación menos tres desviaciones estándar para cada grupo de plantas hidroeléctricas y eólicas respectivamente, a las cuales se pretende aplicar la metodología.
+El límite inferior de las bandas tarifarias (tarifa piso) se determinará con base en el promedio de costo de explotación menos el monto correspondiente a la cantidad de desviaciones estándar definida para cada grupo de plantas hidroeléctricas y eólicas multiplicada por la desviación estándar estimada para cada grupo de plantas hidroeléctricas y eólicas respectivamente, a las cuales se pretende aplicar la metodología.
+(Así reformado el párrafo anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 Las bandas tarifarias que se detallarán más adelante les aplicarán a las plantas de generación privada existentes con contratos renovados vigentes y para aquellas plantas que deseen renovar un contrato a partir de la entrada en vigor de esta metodología.
 De igual manera, esta metodología tarifaria podrá aplicarse para determinar la tarifa de compra-venta de energía eléctrica entre generadores privados y otros compradores diferentes al ICE; siempre que se cumpla el ordenamiento jurídico aplicable, las normativas vigentes y las consideraciones, premisas y criterios expuestos para esta metodología.
 Esta metodología sustituye la metodología "Metodología de Fijación de Tarifas para Generadores Privados Existentes (Ley 7200) que firmen un nuevo contrato de compra-venta de electricidad con el Instituto Costarricense de Electricidad (ICE)", establecida mediante resolución RJD-009-2010 y modificaciones (RJD-027-2014 y RJD-017-2016), por lo que les aplica a todas aquellas transacciones cuya tarifa se calculaba con ese marco tarifario.
 3 PROCEDIMIENTO Y FÓRMULAS
-3.1 Banda tarifaria
+3.1 Banda Tarifaria
 Se calcularán dos (2) bandas tarifarias, una aplicable a plantas eólicas y una aplicable a plantas hidroeléctricas que cumplan con los supuestos supra citados, según las siguientes fórmulas:
 3.1.1 Tarifa tope (TTf):
 [imagen]
-3.1.2 Tarifa piso (TPf):
+(*) 3.1.2 Tarifa piso (TP)
 [imagen]
 En donde:
 Ca = Costos de explotación unitarios promedios por kW contratado.
-? = Desviación estándar del costo de explotación del grupo de plantas de generación eléctrica a las cuales se pretende aplicar la metodología, respecto a su costo de explotación promedio, por kW contratado.
+? = Desviación estándar del costo de explotación del grupo de plantas de generación eléctrica a las cuales se pretende aplicar la metodología respecto a su costo de explotación promedio, por kW contratado.
+X = Cantidad de desviaciones estándar a incluir en la estimación del límite inferior de la banda tarifaria de cada grupo de plantas hidroeléctricas y eólicas a las cuales se pretende aplicar la metodología. Ver sección 3.2.4 denominada "Definición de la banda tarifaria"
 I = Inversión unitaria promedio por kW contratado.
 Xu = Factor promedio de antigüedad de las plantas.
 Ke = Costo de capital.
 H = Cantidad de horas anuales promedio que el grupo de plantas estuvo en operación generando energía para venta al ICE en los últimos 5 años.
 Fp = Factor de planta.
-f = Subíndice que indica la fuente hidroeléctrica (h) o eólica (e) para la cual se calcula la banda.
+f = Subíndice que indica la fuente hidroeléctrica (h) o eólica (e) para la cual se calcula la banda
+(*)(Así reformado el punto anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 Cada una de las variables se calculará con la información de las plantas de generación eléctrica correspondientes a cada fuente, esto quiere decir que se llevará una base de datos con información de plantas eólicas y otra base de datos con información de plantas hidroeléctricas, de tal forma que para cada variable se cuente con la información de cada grupo establecido de plantas según su fuente.
 El límite superior de las bandas tarifarias (tarifa tope) se determinará considerando el costo de explotación promedio más una desviación estándar, calculando el tope para cada grupo de plantas hidroeléctricas y eólicas respectivamente, a las cuales se pretende aplicar la metodología, con la información correspondiente a cada fuente de generación.
-El límite inferior de las bandas tarifarias (tarifa piso) se determinará con base en el promedio de costo de explotación menos tres desviaciones estándar, calculando el piso para cada grupo de plantas hidroeléctricas y eólicas respectivamente, a las cuales se pretende aplicar la metodología, con la información correspondiente a cada fuente de generación.
+El límite inferior de las bandas tarifarias (tarifa piso) se determinará con base en el promedio de costo de explotación menos el monto correspondiente a la cantidad de desviaciones estándar definida para cada grupo de plantas hidroeléctricas y eólicas multiplicada por la desviación estándar estimada para cada grupo de plantas hidroeléctricas y eólicas respectivamente, con la información correspondiente a cada fuente de generación.
+(Así reformado el párrafo anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 A continuación, se detallan el concepto, fuente de información y método de cálculo de estas variables.
 3.2 El costo anual de explotación (Ca)
 3.2.1 Concepto:
@@ -529,12 +533,20 @@ n = Cantidad de plantas por grupo.
 Para la determinación del costo de explotación promedio para cada grupo de plantas, se deben excluir los valores extremos de los costos de explotación unitario por planta esto de conformidad con el artículo 32 de la Ley 7593, para eso la Intendencia de Energía o el área encargada de fijar las tarifas deberá justificar técnicamente el criterio estadístico que se utilizará para esa exclusión.
 3.2.4 Definición de la banda tarifaria
 Se regulará el precio de venta de energía por parte de generadores privados que hayan renovado y que renueven contrato de compraventa de energía al ICE, en el marco del capítulo I de la Ley Nº 7200, mediante una banda tarifaria.
-Las principales consideraciones que se toman en cuenta para establecer la banda tarifaria son las siguientes:
+(*) Las principales consideraciones que se toman en cuenta para establecer la banda tarifaria son las siguientes:
 . Para la determinación de la banda tarifaria, se deben excluir los valores extremos de los costos de explotación, para eso la Intendencia de Energía o el área encargada de fijar las tarifas deberá justificar técnicamente el criterio estadístico que se utilizará para esa exclusión.
 . Se calcula la desviación estándar correspondiente a todos los datos utilizados para estimar el costo de explotación anual promedio por grupo.
+. Se calcula la cantidad de desviaciones estándar del conjunto de datos utilizados para estimar el costo de explotación anual promedio para cada grupo de plantas hidroeléctricas y eólicas a las cuales se pretende aplicar la metodología, dato que se incorpora en el cálculo del límite inferior de la banda tarifaria, cumpliendo el siguiente criterio.
+𝑋 = 𝑌 ? 1
+Sujeto a la restricción:
+Y > 0
+Donde,
+X = Cantidad de desviaciones estándar a incluir en la estimación del límite inferior de la banda tarifaria de cada grupo de plantas hidroeléctricas y eólicas a las cuales se pretende aplicar la metodología.
+Y = Cantidad mínima de desviaciones estándar en términos absolutos que son necesarias para que el costo de explotación anual promedio sea 0 o negativo. Estimada como el costo explotación anual promedio de cada grupo de plantas hidroeléctricas y eólicas dividida entre el valor de la desviación estándar de cada grupo de plantas hidroeléctricas y eólicas. En caso de que el resultado sea diferente a un número entero, se redondea al número entero superior.
+Si no fuera posible calcular el valor de Y, la variable "X" tomará el valor de 0.
 . El límite superior se establece utilizando el costo de explotación anual promedio de grupo más una desviación estándar (Ca𝑓 + ?).
-. El límite inferior de la banda se establece con el valor del costo de explotación anual promedio menos el valor de tres desviaciones estándar, siempre y
-cuando el resultado sea mayor o igual que cero. En el caso de que el cálculo de como resultado un límite inferior menor que cero, se tomará como valor resultante cero para establecer dicha diferencia (Ca𝑓 ? 3?).
+. El límite inferior de la banda se establece con el valor del costo de explotación anual promedio menos el monto correspondiente a la cantidad de desviaciones estándar estimada para incorporar en el límite inferior multiplicada por la desviación estándar para cada grupo de plantas hidroeléctricas y eólicas respectivamente, a las cuales se pretende aplicar la metodología (Ca𝑓 - X?).
+(*)(Así reformado el párrafo anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 3.3 El Costo de Inversión (I)
 3.3.1 Concepto:
 El costo de inversión representa los costos totales necesarios para construir una planta de generación en condiciones normales para nuestro país.
@@ -668,18 +680,21 @@ KL = Tasa libre de riesgo, la cual corresponde a una alternativa de inversión q
 PR = Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado.
 RP = Riesgo país. Es el riesgo de una inversión económica debido sólo a factores específicos y comunes de un cierto país.
 ?a = Beta apalancada de la inversión. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina "apalancada" cuando parte de la inversión se financia con deuda.
-El beta apalancado se obtiene de la siguiente fórmula:
+(*) El beta apalancado se obtiene de la siguiente fórmula:
 [imagen]
 Donde:
 ?a = Beta apalancada.
 ?d = Beta desapalancada.
-D/Kp = Relación entre deuda y capital propio (estimada por medio del apalancamiento financiero)
+D/Kp = Relación entre deuda y capital propio (se considera igual a cero).
 t = Tasa de impuesto sobre la renta.
+El valor de la deuda (D) se tomará como cero (0) dado que la metodología no incluye gastos financieros de conformidad con la normativa vigente aplicable y porque según las premisas del modelo, se trata de tarifar plantas cuyo costo de inversión inicial ya fue cubierto vía tarifas mediante anteriores contratos. Dado que el valor de la Deuda (D) es cero (0), la beta desapalancada y la beta apalancada son iguales.
+(*)(Así reformado el párrafo anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 Los parámetros que se requiere calcular para estimar la rentabilidad sobre aportes al capital son los siguientes: tasa libre de riesgo, prima por riesgo, riesgo país, beta desapalancada, relación entre deuda y capital propio, y tasa de impuesto sobre la renta. La fuente de cada uno de ellos es la siguiente:
 1. Tasa libre de riesgo (KL): Es la tasa nominal (TCMNOM) de los Bonos del Tesoro de los Estados Unidos de América (USA). Se utilizará la tasa con el mismo período de maduración al que se calcula la prima por riesgo, la cual está disponible en la página de internet de la Reserva Federal de los Estados Unidos, en la dirección de internet: http://www.federalreserve.gov/datadownload/Build.aspx?rel=H15.
 2. Prima por riesgo (PR) se empleará la variable denominada "Implied Premium (FCFE)". Riesgo país (RP) se considera el valor publicado para Costa Rica, de los datos denominados Risk Premiums for the other markets y donde el riesgo país se denomina Country Risk premium). Los valores de esta variable y el Beta desapalancado se obtendrán de la información publicada por el Dr. Aswath Damodaran, en la dirección de Internet http://www.stern.nyu.edu/~adamodar o, alternativamente, del "Ibbotson® Cost of Capital Yearbook". Si alguna de estas fuentes dejara de estar disponible, se recurrirá a otra que sea pública y confiable.
 3. La fuente de información elegida para las variables descritas en los puntos 1 y 2, será utilizada de manera consistente, en cuanto a extensión de la serie histórica (5 años), la frecuencia de las observaciones (una observación por año, correspondiente al promedio publicado) y el cálculo del promedio (promedio aritmético de las 5 observaciones correspondientes a los 5 años más recientes para los que se disponga de información). En el caso de que, para alguna(s) de las variables citadas, no sea posible para ARESEP contar con una serie histórica reciente que complete 5 observaciones anuales, se utilizará la serie histórica menor a 5 años pero que sea igual para todas las variables.
-4. Relación entre deuda y capital propio (D/Kp): Se estima con la fórmula D/Kp = Y/(1-Y), donde Y es el apalancamiento financiero. Para este cálculo se utilizará un promedio ponderado por potencia contratada de la información más reciente referente al nivel de financiamiento de cada tipo de planta privada de generación eléctrica, derivada de la contabilidad regulatoria o la que esté disponible en la Autoridad Reguladora.
+4. Relación entre deuda y capital propio (D/Kp): Se estima con la fórmula D/Kp Y/(1-Y), donde Y es el apalancamiento financiero. Para este cálculo se utilizará un promedio ponderado por potencia contratada de la información más reciente referente al nivel de financiamiento de cada tipo de planta privada de generación eléctrica, derivada de la contabilidad regulatoria o la que esté disponible en la Autoridad Reguladora. Para efectos de esta metodología se considera un valor de D=0.
+(*)(Así reformado el punto anterior mediante resolución N° RE-0005-JD-2024 del 29 de febrero del 2024)
 5. Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas con fines de lucro, correspondiente al último tracto de impuestos sobre la renta -la tasa marginal mayor-, establecida y actualizada vía decreto por el Ministerio de Hacienda.
 4 ESTRUCTURA TARIFARIA
 Para las plantas de generación eléctrica que les aplique esta metodología, las cuales fueron indicadas en el apartado de Alcance de la presente metodología, se aplicará la estructura tarifaria o la tarifa única anual que sea definida en el proceso de negociación de las adendas a los contratos renovados vigentes o recontratación por parte del ICE; en caso de una estructura tarifaria horario y/o estacional, el mismo ICE deberá establecer los parámetros aplicables en las bases de contratación o bien dejarla abierta a la presentación de ofertas de venta de parte de los generadores privados a los que les aplique esta metodología. Además, el ICE podrá definir o solicitar esa estructura por bloques de energía, todo lo anterior deberá justificarse con base en las necesidades del Sistema Eléctrico Nacional detectadas y optimización del parque de generación disponible en todo momento.
