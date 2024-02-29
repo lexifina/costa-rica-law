@@ -1,1 +1,0 @@
-Artículo 4º—La Bodega Municipal forma parte de la organización de Proveeduría Municipal. La persona coordinadora del Departamento de Proveeduría Municipal, será el superior jerárquico inmediato de todo el personal que labore en la Bodega institucional.

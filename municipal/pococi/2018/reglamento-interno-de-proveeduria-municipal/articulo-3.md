@@ -1,1 +1,0 @@
-Artículo 3º—Este Reglamento será aplicable –sin excepción-, a todos los procedimientos de contratación para adquisición de bienes y servicios, así como en los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la Municipalidad de Pococí.

@@ -1,1 +1,0 @@
-Artículo 15.—Inicio del procedimiento. Una vez que se cuente con la solicitud de compra o pedido debidamente confeccionado, con las especificaciones técnicas o términos de referencia aprobados, el contenido presupuestario correspondiente, y el cartel debidamente elaborado en los casos que así se requiera, la Proveeduría dará inicio al procedimiento de contratación respectivo.

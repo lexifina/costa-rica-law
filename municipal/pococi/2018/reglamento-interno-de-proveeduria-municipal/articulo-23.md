@@ -1,4 +1,0 @@
-SECCIÓN IV
-Procedimiento de contratación
-Artículo 23.—El cartel. Contendrá las condiciones generales de la contratación y las especificaciones técnicas. Su contenido establecerá como mínimo los requisitos establecidos en el artículo 51 del Reglamento a la Ley de Contratación Administrativa.
-23.1 El Departamento de Proveeduría será el encargado de elaborar los carteles de licitación respectivos y deberá someter la revisión de los casos de Licitaciones Públicas Nacionales y Licitaciones Abreviadas, ante la Comisión Asesora de Contratación Administrativa Municipal, dependencia que tiene un plazo de tres días hábiles para pronunciarse. En las compras de menor cuantía, gastos fijos, adquisición de bienes y servicios que están bajo la competencia de la alcaldía municipal, basta con el visto bueno del encargado de Proveeduría.
