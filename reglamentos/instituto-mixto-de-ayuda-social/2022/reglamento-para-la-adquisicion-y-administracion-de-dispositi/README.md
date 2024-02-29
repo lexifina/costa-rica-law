@@ -14,3 +14,4 @@ Reglamento para la adquisición y administración de dispositivos y servicios in
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-16 | la propia norma |
+| 2 | 2024-02-29 | Reglamento 8 (2024-02-29) |
