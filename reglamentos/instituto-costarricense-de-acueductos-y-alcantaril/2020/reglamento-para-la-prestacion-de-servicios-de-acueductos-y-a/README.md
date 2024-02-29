@@ -23,3 +23,4 @@ Reglamento para la prestación de servicios de Acueductos y Alcantarillados
 | 8 | 2023-04-18 | Reglamento 12 (2023-04-18) |
 | 9 | 2023-10-10 | Reglamento 45 (2023-10-10) |
 | 10 | 2024-01-15 | Reglamento 2 (2024-01-15) |
+| 11 | 2024-02-29 | Reglamento 7 (2024-02-29) |
