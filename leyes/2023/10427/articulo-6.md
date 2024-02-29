@@ -1,5 +1,6 @@
 Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios del Poder Judicial, para el Ejercicio Económico del 2024.
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consulta el Alcance Digital N° 245 a La Gaceta N° 229 del 11 de diciembre de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44333 del 11 de enero del 2024)
-(Modificado por el artículo 1° del decreto ejecutivo N° 44361 del 2 de febrero de 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44361(*) del 2 de febrero de 2024)
+(*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 44384 del 15 de febrero de 2024, se acordó derogar parcialmente el decreto ejecutivo N° 44361 del 2 de febrero de 2024, que modificó el presente numeral. Dejando sin efecto los movimientos presupuestarios aprobados para los programas 927 y 930 del Poder Judicial, con el fin de impedir el incumplimiento de la regla fiscal establecida en el Título IV de la Ley N° 9635, publicada en el Alcance N° 202 a La Gaceta N° 225 del 4 de diciembre de 2018.)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44374 del 14 de febrero del 2024)
