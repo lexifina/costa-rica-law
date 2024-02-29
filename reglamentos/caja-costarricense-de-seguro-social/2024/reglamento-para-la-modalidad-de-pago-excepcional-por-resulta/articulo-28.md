@@ -1,0 +1,6 @@
+CAPÍTULO VII
+Transitorio y vigencia
+Artículo N° 28.—Transitorio
+Los proyectos en curso o que hayan sido aprobados antes de la publicación de este reglamento por medio del “Instructivo Modalidad de Pago Excepcional para la Realización de Jornadas De Producción” y la normativa conexa según lo acordado por la Junta Directiva de la Institución en el artículo N°4 de la sesión N°9397, celebrada el 14 de diciembre de 2023 deben ser ejecutados según lo señalado en la norma indicada hasta por un periodo de seis meses, prorrogables hasta por seis meses más, en el tanto se realizan las gestiones por parte de las instancias competentes para la implementación del presente Reglamento para los proyectos subsecuentes.
+Una vez vencido el plazo y su prorroga, mediante acuerdo de Junta Directiva se derogará oficialmente el documento en mención, quedando únicamente vigente para su aplicación el presente reglamento como mecanismo normativo para atender los tiempos y listas de espera excedidos por medio de la modalidad de pago excepcional por resultados para la atención oportuna de las personas.
+Todas las modalidades de pago excepcional por resultados para la atención oportuna de las personas que se aprueben y ejecuten a partir de la publicación de este reglamento, quedarán sujetos a esta norma en todas sus extensiones.

@@ -1,0 +1,9 @@
+CAPÍTULO IV
+Forma de Pago
+Artículo N° 13.-Sobre la forma de pago. La modalidad de pago excepcional se cancela por medio de un monto único definido por la Caja Costarricense de Seguro Social para cada intervención sanitaria que realice la persona trabajadora fuera de la jornada ordinaria, según la atención de alertas de espera asignadas a esta modalidad en un momento determinado.
+Dicho pago queda sujeto a los resultados de la intervención realizada según lo disponga la Unidad Técnica de listas de Espera y los controles de calidad que establezca para garantizar la atención oportuna de las personas a través de esta modalidad de pago.
+La Gerencia Médica y la Unidad Técnica de Listas de Espera, son las responsables de definir los montos correspondientes a las intervenciones que se realicen bajo estas modalidades, salvaguardando la competitividad de mercado, respetando el marco de legalidad correspondiente y garantizando la continuidad y sostenibilidad en la prestación de los servicios, contarán con el apoyo de la Gerencia Financiera y de la Gerencia Administrativa.
+Los montos propuestos bajo estas modalidades de pago por resultados, en ninguna circunstancia podrán ser inferiores a los montos establecidos por ley para el pago jornadas de tiempo extraordinario según corresponda.
+La Gerencia Médica y la Unidad Técnica de Listas de Espera, con el apoyo de la Gerencia Financiera y de la Gerencia Administrativa, deben realizar como mínimo una revisión anual de los montos establecidos para esta modalidad de pago excepcional, las cuales serán aprobadas según las posibilidades financieras de la Institución en el momento.
+Corresponde a la Junta Directiva la aprobación de los montos respectivos, mismos que serán susceptibles del rebajo de las cargas sociales y tributarias de ley.
+La Gerencia Médica es la responsable de comunicar los montos aprobados por parte de la Junta Directiva, a través de los medios oficiales institucionales.
