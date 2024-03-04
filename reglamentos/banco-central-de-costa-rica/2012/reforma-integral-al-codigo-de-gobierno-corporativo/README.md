@@ -14,3 +14,4 @@ Reforma Integral al Código de Gobierno Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-27 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
