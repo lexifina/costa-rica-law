@@ -1,1 +1,0 @@
-Artículo 16. Los pagos obligatorios que imponen las leyes, tales como tributos y otros como los correspondientes a servicios públicos, se cancelarán con el visto bueno en forma individual del Jefe de la Administración de Bienes Temporales, el Director de Recursos Materiales y el Director General de Operaciones.

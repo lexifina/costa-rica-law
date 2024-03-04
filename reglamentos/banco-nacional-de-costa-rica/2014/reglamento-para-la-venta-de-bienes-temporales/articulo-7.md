@@ -1,2 +1,0 @@
-Artículo 7º—La persona designada por el Comité será la encargada de elaborar el acta de cada reunión.
-De cada una de las reuniones que celebre el Comité se levantará un acta detallando los asuntos conocidos y su resolución. Los acuerdos quedarán en firme en la reunión en que se toman sí así lo disponen por unanimidad los miembros presentes. En caso contrario, quedarán en firme en la siguiente reunión la cual deberá llevarse a cabo en las siguientes dos semanas como máximo, después de celebrada la reunión anterior.

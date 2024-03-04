@@ -1,2 +1,0 @@
-Artículo 6º—Las reuniones del Comité de Adjudicación y Gestión de Bienes Temporales se celebrarán con la frecuencia que sea necesaria y serán convocadas por cualquiera de sus miembros.
-A la convocatoria para la reunión se acompañará copia del orden del día, salvo caso de urgencia. Quedará válidamente constituido e integrado el órgano colegiado sin cumplir los requisitos referentes a la convocatoria o al orden del día cuando asistan todos sus miembros y así lo acuerden por unanimidad.
