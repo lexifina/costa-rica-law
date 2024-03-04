@@ -1,1 +1,0 @@
-Artículo 23.—Requisitos para la transformación del objeto social. Para la autorización de la transformación del objeto social de un intermediario financiero, el solicitante debe cumplir con lo dispuesto en el artículo 225 del Código de Comercio y suministrar a la SUGEF la información que se detalla en el anexo 4 de este Reglamento.

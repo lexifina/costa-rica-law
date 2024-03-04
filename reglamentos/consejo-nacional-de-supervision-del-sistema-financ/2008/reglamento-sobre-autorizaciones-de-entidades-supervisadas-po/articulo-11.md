@@ -1,2 +1,0 @@
-Artículo 11.—Vigencia de los documentos. Los documentos que acompañan la solicitud deben haber sido emitidos, como máximo, tres meses antes de la fecha de presentación de la solicitud, excepto la información financiera auditada, la cual tiene una vigencia de un año a partir de su fecha de corte.
-Asimismo, en la solicitud debe declararse que lo consignado en los documentos no ha sufrido modificaciones desde su fecha de expedición y hasta su fecha de presentación.

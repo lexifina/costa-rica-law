@@ -1,1 +1,0 @@
-Artículo 25.—Requisitos para el cambio de nombre de un intermediario financiero. Para la autorización del cambio de nombre de un intermediario financiero, el representante legal debe cumplir con lo dispuesto en los artículos 26 y 52 de este Reglamento y suministrar a la SUGEF la información detallada en el anexo 6 de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 20 Determinación del órgano resolutivo. En el caso de los actos indicados en los incisos del a) al d) del artículo 19 de este Reglamento el órgano resolutivo es el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF) y en el caso de los actos indicados en los incisos e) al i) del mismo artículo el órgano resolutivo es la SUGEF.
-(Así reformado en sesión N° 1724 del 4 de abril de 2022)

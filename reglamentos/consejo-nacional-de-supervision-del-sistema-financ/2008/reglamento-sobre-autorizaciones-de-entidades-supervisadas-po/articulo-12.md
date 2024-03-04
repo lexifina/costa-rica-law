@@ -1,1 +1,0 @@
-Artículo 12.—Documentos expedidos en el extranjero. Los documentos expedidos en el extranjero deben acompañarse de la certificación consular correspondiente. En el caso de documentos redactados en un idioma diferente al español, debe adjuntarse una traducción realizada por un traductor oficial.

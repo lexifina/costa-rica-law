@@ -1,1 +1,0 @@
-Artículo 31.—Requisitos para préstamos según el artículo 117 de la Ley 1644. Para la autorización de los préstamos a que se refiere el artículo 117 de la Ley 1644 “Ley Orgánica del Sistema Bancario Nacional”, el solicitante debe suministrar a la SUGEF la información que se detalla en el anexo 14 de este Reglamento.

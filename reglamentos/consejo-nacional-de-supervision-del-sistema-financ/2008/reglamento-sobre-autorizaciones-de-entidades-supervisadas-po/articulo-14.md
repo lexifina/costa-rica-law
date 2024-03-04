@@ -1,4 +1,0 @@
-Artículo 14.—Verificación in situ de las condiciones de seguridad física y tecnología de información. La SUGEF cuenta con el plazo de un mes, desde el momento de presentación de la solicitud, para verificar in situ las condiciones mínimas de seguridad de la infraestructura física y sobre la tecnología de información.
-Dentro del plazo para el inicio de operaciones, la entidad puede subsanar las debilidades que determine la superintendencia durante la verificación in situ.
-El plazo para el inicio de operaciones se suspende por el tiempo utilizado por la SUGEF para verificar y emitir la autorización de inicio de operaciones.
-Con fundamento en una adecuada justificación por parte de la entidad, el Supervisor responsable podrá ampliar el plazo de inicio de actividades de intermediación financiera y deberá comunicar sobre dicha ampliación al CONASSIF.

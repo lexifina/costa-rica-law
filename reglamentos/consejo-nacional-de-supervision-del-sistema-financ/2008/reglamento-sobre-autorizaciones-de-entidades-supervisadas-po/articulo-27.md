@@ -1,1 +1,0 @@
-Artículo 27.—Requisitos para la fusión de intermediarios financieros. Para la autorización de la fusión de intermediarios financieros, el solicitante debe suministrar a la SUGEF la información que se detalla en el anexo 3 de este Reglamento.

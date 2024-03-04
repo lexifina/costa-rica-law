@@ -1,2 +1,0 @@
-Artículo 6º—Coordinación entre supervisores para el trámite de solicitudes. Cuando la solicitud involucre a entidades o grupos financieros supervisados por distintos supervisores, el supervisor responsable debe coordinar con los otros supervisores involucrados, de manera que no se produzcan incongruencias, duplicación de funciones o de requerimientos de información.
-Asimismo, el supervisor responsable debe considerar, previamente, la autorización que deban otorgar otros supervisores en relación con el trámite de que se trate.

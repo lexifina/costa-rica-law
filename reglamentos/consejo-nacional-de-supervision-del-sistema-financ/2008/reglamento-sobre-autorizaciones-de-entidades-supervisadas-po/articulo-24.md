@@ -1,1 +1,0 @@
-Artículo 24.—Requisitos para la variación del capital social de un intermediario financiero. Para la autorización de la variación de capital social de un intermediario financiero, el representante legal debe suministrar a la SUGEF la información detallada en el anexo 5 de este Reglamento.
