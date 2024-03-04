@@ -16,3 +16,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Banco 
 | 1 | 2010-02-08 | la propia norma |
 | 2 | 2010-04-12 | Reglamento 18 (2010-04-12) |
 | 3 | 2011-03-14 | Reglamento 11 (2011-03-14) |
+| 4 | 2024-03-04 | Reglamento 1846 (2024-03-04) |

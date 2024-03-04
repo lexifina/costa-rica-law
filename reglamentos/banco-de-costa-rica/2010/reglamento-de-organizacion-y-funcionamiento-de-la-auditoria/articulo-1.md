@@ -21,7 +21,8 @@ Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos
 Lineamientos generales que deben observar las auditorías internas de las entidades y órganos sujetos a la fiscalización emitido por la Contraloría General de la República en la preparación de sus planes de trabajo.
 Manual de normas generales de auditoría para el sector público emitido por la Contraloría General de la República.
 Manual de normas para el ejercicio de la auditoría interna en el sector público emitido por la Contraloría General de la República.
-Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, SUGEF 8-08.
+Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF(*)
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 Manual de cumplimiento corporativo del conglomerado BCR, MAC-CIN-OFC-56-04-09.
 Definiciones:
 Administración activa: desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa, que deciden y ejecutan; incluyen al jerarca, como última instancia; desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la administración.
@@ -32,7 +33,8 @@ Bloque de legalidad: conjunto de normas con rango de ley vigentes.
 Comisión de índole multidisciplinaria: grupo de personas a quienes se les entrega un asunto para su estudio, en materia de distintas naturalezas.
 Competencias: atribución legítima para el conocimiento o resolución de un asunto; conjunto de actividades, labores o funciones, asignadas por la normativa a la auditoría interna.
 Conflicto de intereses: se origina en el momento que un funcionario recibe algún beneficio económico o personal, o participa de alguna situación que se contrapone a su cargo, y con ello comprometa su objetividad e independencia.
-Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08. Para este reglamento se denominará conglomerado BCRy corresponderá al Banco de Costa Rica y sus subsidiarias.
+Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF(*). Para este reglamento se denominará conglomerado BCRy corresponderá al Banco de Costa Rica y sus subsidiarias.
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 Cuidado profesional: propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
 Enfoque sistémico y profesional: línea de dirección para percibir la interacción entre las partes de un todo, acorde con los objetivos de la función a realizar, y desarrollado en forma competente por el auditor.
 Ente: es la institución u organización, principalmente estatal
@@ -52,12 +54,12 @@ Universo fiscalizable: es el conjunto de áreas, dependencias, servicios, proces
 Valoración del riesgo: identificación y análisis de los riesgos que enfrenta la institución, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; deben ser realizados por el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.
 Contenido
 El presente reglamento contempla los siguientes aspectos:
-Título I.—Organización de la Auditoría Interna: concepto de auditoría interna, independencia y objetividad, ubicación y estructura organizativa, la figura del auditor y subauditor internos, el personal de Auditoría, ámbito de acción, relaciones y coordinaciones.
-Título II.—Aspectos del funcionamiento de la Auditoría Interna: competencias, deberes, y potestades de los funcionarios de la actividad y otros aspectos relacionados con la actividad, entre ellos: servicios proporcionados por la Auditoría Interna, procesamiento de información, proceso de comunicación y seguimiento de resultados, y atención de denuncias por parte de la auditoría.
-Título III.—Disposiciones finales: derogatoria y vigencia.
+Título I.-Organización de la Auditoría Interna: concepto de auditoría interna, independencia y objetividad, ubicación y estructura organizativa, la figura del auditor y subauditor internos, el personal de Auditoría, ámbito de acción, relaciones y coordinaciones.
+Título II.-Aspectos del funcionamiento de la Auditoría Interna: competencias, deberes, y potestades de los funcionarios de la actividad y otros aspectos relacionados con la actividad, entre ellos: servicios proporcionados por la Auditoría Interna, procesamiento de información, proceso de comunicación y seguimiento de resultados, y atención de denuncias por parte de la auditoría.
+Título III.-Disposiciones finales: derogatoria y vigencia.
 TÍTULO I
 Organización de la Auditoría Interna
 CAPÍTULO I
 Concepto de auditoría interna
-Artículo 1º—De acuerdo con la Ley General de Control Interno, en su artículo 21 la auditoría interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
+Artículo 1º-De acuerdo con la Ley General de Control Interno, en su artículo 21 la auditoría interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
 Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y los órganos sujetos a esta Ley. Dentro de una organización, la auditoría interna proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
