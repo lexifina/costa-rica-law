@@ -15,3 +15,4 @@ Listado oficial de la Cartera de Servicio de la Superintendencia de Pensiones (S
 | --- | --- | --- |
 | 1 | 2012-04-19 | la propia norma |
 | 2 | 2014-06-03 | Acuerdo 0 (2014-06-03) |
+| 3 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
