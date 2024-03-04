@@ -14,3 +14,4 @@ Reglamento de responsabilidades y obligaciones mínimas de las sucursales bancar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-16 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
