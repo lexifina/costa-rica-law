@@ -1,1 +1,0 @@
-Artículo 34º— El relleno sanitario debe contar con puntos de control ubicados estratégicamente con el fin de verificar los posibles desplazamientos y asentamientos de terreno. En caso de existir un desplazamiento o asentamiento que implique un riesgo potencial, deberán implementarse las medidas correctivas correspondientes.

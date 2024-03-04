@@ -1,1 +1,0 @@
-Artículo 16º— Cualquier tipo de infraestructura del relleno sanitario, incluyendo las celdas de disposición de residuos deben respetar las servidumbres establecidas para líneas de conducción de combustibles, agua potable, agua para riego, energía eléctrica, aguas residuales y aguas pluviales.
