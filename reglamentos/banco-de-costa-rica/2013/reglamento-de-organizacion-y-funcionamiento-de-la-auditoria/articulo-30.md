@@ -1,4 +1,0 @@
-CAPÍTULO II
-Ejecución de estudios
-Artículo 30.—Plan de trabajo de auditoría. Las auditorias podrán ser integrales o referidas específicamente a aspectos financiero-contables, operacionales o de sistemas y estarán encaminadas, fundamentalmente, a evaluar la eficacia, eficiencia, economía y legalidad del sistema de control interno y promover su mejora.
-Para cumplir con lo anterior, los funcionarios de Auditoría Interna deben elaborar y registrar un plan para cada trabajo, que incluya el alcance, los objetivos, el tiempo, la asignación de recursos y elaboración de un programa de trabajo escrito. Estos estudios deberán ser adecuadamente supervisados por el responsable dentro de la auditoría, para asegurar el logro de sus objetivos, la calidad del mismo y el desarrollo profesional del personal.

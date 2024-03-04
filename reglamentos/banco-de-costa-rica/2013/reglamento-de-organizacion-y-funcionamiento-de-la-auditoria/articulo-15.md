@@ -1,3 +1,0 @@
-Artículo 15.—Funciones del auditor interno. El auditor Interno ejercerá sus funciones en relación con todas las gerencias y demás dependencias de la sociedad, mediante asignación de funciones a cualquier servidor idóneo bajo su dirección.
-Tanto el auditor Interno, como el personal de la auditoría deben cumplir con los requisitos de pericia y cuidado profesional establecidos en las Normas para el ejercicio de la auditoría interna en el sector público; de manera que hagan valer su competencia con independencia funcional y de criterio.
-El auditor interno ejecutará sus funciones de conformidad con el Manual de la Auditoría Interna de BCR Valores S. A.

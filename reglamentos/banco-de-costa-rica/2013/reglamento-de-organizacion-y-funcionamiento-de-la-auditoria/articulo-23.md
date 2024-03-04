@@ -1,1 +1,0 @@
-Artículo 23.—Coordinación con responsable del control presupuestario. El auditor interno establecerá la coordinación necesaria para que el responsable del control del presupuesto de la sociedad, mantenga controles asociados a la ejecución y modificaciones de los recursos presupuestarios de la Auditoría Interna.

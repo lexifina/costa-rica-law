@@ -1,2 +1,0 @@
-Artículo 41.—Prórroga en compromisos de alto riesgo. Para los compromisos de alto riesgo, a partir de la tercera solicitud de prórroga, la Administración deberá hacer de conocimiento el planteamiento a la Comisión de Auditoría. En caso de que este requisito no se cumpla, la auditoría no tramitará ninguna solicitud de prórroga.
-Para la resolución de estos casos, la auditoría aplicará lo dispuesto en el artículo 39 de este reglamento.
