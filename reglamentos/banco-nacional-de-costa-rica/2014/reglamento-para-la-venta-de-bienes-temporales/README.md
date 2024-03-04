@@ -15,3 +15,4 @@ Reglamento para la venta de bienes temporales
 | --- | --- | --- |
 | 1 | 2014-08-13 | la propia norma |
 | 2 | 2017-07-31 | Reglamento 12180 (2017-07-31) |
+| 3 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
