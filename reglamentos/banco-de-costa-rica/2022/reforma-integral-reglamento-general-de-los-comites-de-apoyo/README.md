@@ -14,3 +14,4 @@ Reforma Integral Reglamento general de los comités de apoyo a la Junta Directiv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-13 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
