@@ -16,3 +16,4 @@ Reglamento Comité Corporativo de Auditoría del Banco Crédito Agrícola de Car
 | 1 | 2013-03-20 | la propia norma |
 | 2 | 2014-03-04 | Reglamento 8730 (2014-03-04) |
 | 3 | 2016-08-30 | Reglamento 8967 (2016-08-30) |
+| 4 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
