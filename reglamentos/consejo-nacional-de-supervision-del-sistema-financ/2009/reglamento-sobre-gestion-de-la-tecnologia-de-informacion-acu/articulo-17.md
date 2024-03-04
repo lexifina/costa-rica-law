@@ -1,1 +1,0 @@
-Artículo 17.—Recursos. Contra el comunicado sobre la gestión de TI pueden interponerse los recursos ordinarios de revocatoria y/o apelación según lo dispuesto en la Ley General de la Administración Pública, dentro del plazo de ocho días hábiles contados a partir de la notificación del acto.

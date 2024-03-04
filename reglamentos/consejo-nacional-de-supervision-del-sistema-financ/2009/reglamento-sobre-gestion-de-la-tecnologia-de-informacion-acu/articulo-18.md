@@ -1,3 +1,0 @@
-Artículo 18.—Seguimiento y monitoreo por SUGEF. La SUGEF efectuará un seguimiento y monitoreo de la ejecución del Plan Correctivo-Preventivo suministrado por la entidad. Con el objeto de verificar el cumplimiento de las acciones la SUGEF podrá solicitar informes parciales y realizar verificaciones in situ.
-Las verificaciones en materia de TI se incluirán dentro de las labores ordinarias de supervisión. En casos extraordinarios la SUGEF podrá efectuar revisiones independientes previo cumplimiento de las formalidades previstas para tal efecto.
-Los informes que requiera la SUGEF deberán ser firmados por el responsable del área de TI y el gerente general de la entidad.

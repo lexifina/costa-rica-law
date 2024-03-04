@@ -1,4 +1,0 @@
-Artículo 21. Tercerización de TI
-La entidad que contrate parte o la totalidad de uno o varios procesos o servicios de TI, relacionados con el procesamiento y almacenamiento de datos, independientemente del lugar en donde se lleven a cabo esas actividades, debe mantener las bases de datos actualizadas y las aplicaciones vigentes físicamente en el territorio nacional, accesibles por la SUGEF sin ningún tipo de restricción o condición.
-La entidad supervisada es responsable de suministrar la información que le sea requerida por la SUGEF y proveer las facilidades para la ejecución de actividades de supervisión, indistintamente de que los procesos o servicios sean provistos por ella misma, otra empresa del grupo o conglomerado financiero o por un proveedor externo, o que sean llevados a cabo dentro o fuera del territorio costarricense.
-(Así reformado en sesión N° 853 del 21 de mayo de 2010)

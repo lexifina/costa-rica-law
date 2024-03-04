@@ -1,3 +1,0 @@
-Artículo 14.—Comunicado sobre la Gestión de TI y Plan Correctivo-Preventivo. La SUGEF remitirá a la entidad un informe con los principales hallazgos y la calificación sobre la gestión de TI, en el plazo de veinte días hábiles, posteriores a la recepción de los productos de la auditoría externa.
-Cuando corresponda, la SUGEF requerirá a la entidad un Plan Correctivo-Preventivo, el cual deberá presentarse a la SUGEF, en un plazo máximo de veinte días hábiles, contados a partir del día siguiente al recibo del comunicado; dicho plazo podrá prorrogarse, previa solicitud de la entidad, hasta por la mitad del plazo dispuesto.
-El formato para la presentación del Plan Correctivo-Preventivo se establece por el Superintendente conforme artículo 4 de este reglamento.

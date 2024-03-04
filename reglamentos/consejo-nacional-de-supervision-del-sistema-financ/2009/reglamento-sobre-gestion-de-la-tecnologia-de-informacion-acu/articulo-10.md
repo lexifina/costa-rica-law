@@ -1,2 +1,0 @@
-Artículo 10.—Perfil Tecnológico. La entidad debe completar el formulario de perfil tecnológico y remitirlo a la SUGEF en la forma y medio que le sea requerido por ésta, en los primeros diez días hábiles del mes de junio de cada año.
-El incumplimiento de la remisión del perfil tecnológico, dentro del plazo establecido, será considerado como una negativa a proporcionar información a la Superintendencia, y será sancionado según el artículo 155 inciso a) aparte iii), de la ley Orgánica del Banco Central de Costa Rica .
