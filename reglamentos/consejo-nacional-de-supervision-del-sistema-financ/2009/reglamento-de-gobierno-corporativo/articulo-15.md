@@ -1,3 +1,0 @@
-Artículo 15.—Política sobre el trato con los accionistas, asociados o similares. Las políticas sobre la relación con accionistas, asociados o similares, además de lo que se disponga en los estatutos o normativa aplicable, deben tener como objetivo asegurar un trato equitativo y un acceso transparente a la información sobre la entidad. Al menos las políticas se deben referir a los siguientes aspectos:
-a) Lineamientos para el acceso a la información de la entidad y participación de los accionistas, asociados o similares.
-b) Administración de los conflictos de intereses en la aprobación de transacciones que afecten a la entidad, grupo o conglomerado.

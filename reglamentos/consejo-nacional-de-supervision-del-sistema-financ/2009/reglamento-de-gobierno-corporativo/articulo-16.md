@@ -1,6 +1,0 @@
-Artículo 16.—Política de revelación y acceso a la información. Estas políticas tienen como objetivo establecer una estructura que fomente la transparencia y la confiabilidad en el suministro y acceso a la información, tanto para los clientes de la entidad, como para accionistas, órganos reguladores y público en general. A lo interno de la entidad, estas políticas deben permitir a los miembros del órgano directivo, gerencias, ejecutivos, miembros de comité de apoyo, y demás empleados o funcionarios, el suministro de la información necesaria para el adecuado desempeño de sus funciones.
-Al menos las políticas se deben referir a los siguientes aspectos:
-a) Lineamientos para asegurar que la información que genera y difunde la entidad sea oportuna, comprensible, relevante, accesible, suficiente, veraz, comparable y consistente.
-b) Difusión de información sobre las características de los productos y servicios que la entidad ofrezca.
-c) Difusión de información financiera de la entidad, y de los productos que administra, de acuerdo con lo dispuesto en el marco legal.
-d) Lineamientos para la administración de información confidencial y la limitación al uso indebido de información de carácter no público.

@@ -1,2 +1,0 @@
-Artículo 9º—Operación. Para cumplir adecuadamente con sus funciones y responsabilidades, la Junta Directiva u órgano equivalente debe reunirse con la frecuencia que le permita asegurar el seguimiento adecuado y permanente de los asuntos de la entidad, según lo establecido en la ley específica, disposiciones reglamentarias que las regulen o sus estatutos.
-Debe implementarse un proceso y un programa sobre la participación y la sucesión.

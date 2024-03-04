@@ -1,2 +1,0 @@
-TRANSITORIO III
-De conformidad con lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este Reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones.

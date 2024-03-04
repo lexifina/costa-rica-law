@@ -1,2 +1,0 @@
-Artículo 18.—Seguimiento de las Políticas de Gobierno Corporativo. Se deben establecer políticas sobre las consecuencias para los miembros del órgano directivo, gerencias, ejecutivos, miembros de comité de apoyo, y demás empleados o funcionarios, por el incumplimiento de las políticas planteadas en el Código de Gobierno Corporativo.
-En el caso de entidades que se rijan por leyes especiales, debe hacerse una revelación de los tipos de sanciones que le aplican según la normativa respectiva.
