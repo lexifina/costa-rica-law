@@ -1,1 +1,0 @@
-Artículo 36.—El auditor general tendrá la responsabilidad de establecer los lineamientos que correspondan en relación a materia de admisibilidad de denuncias para su atención por parte de la Auditoría Interna. Estos lineamientos estarán integrados como parte del Manual de la Auditoría Interna del Banco de Costa Rica.

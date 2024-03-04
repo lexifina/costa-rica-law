@@ -1,1 +1,0 @@
-Artículo 15.—Los requisitos para el nombramiento del auditor general y subauditor serán los establecidos en el punto 2.3 de los Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos, emitidos por la Contraloría General de la República.

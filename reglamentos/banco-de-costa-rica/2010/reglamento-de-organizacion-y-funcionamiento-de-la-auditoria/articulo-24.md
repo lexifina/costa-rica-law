@@ -1,1 +1,0 @@
-Artículo 24.—La Auditoría Interna podrá incorporar entre sus recursos, el uso de profesionales o técnicos de diferentes disciplinas -funcionarios o no de la institución- para que lleven a cabo labores de su especialidad, en apoyo a las labores de auditoría interna que requieran de conocimientos, técnicas u otras competencias adicionales.

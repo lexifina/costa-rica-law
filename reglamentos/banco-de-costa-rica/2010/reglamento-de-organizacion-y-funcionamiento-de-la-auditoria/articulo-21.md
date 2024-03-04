@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Relaciones y coordinaciones
-Artículo 21.—De acuerdo con la norma 2.1.5 del Manual de normas para el ejercicio de la auditoría interna, el auditor debe coordinar a lo interno de su institución la realización de los servicios de la actividad de auditoría interna, así como compartir información y coordinar actividades con la Contraloría General de la República, los auditores externos que se contraten en la institución, con otros entes u órganos de control que correspondan y con los órganos judiciales, para minimizar la duplicación de esfuerzos. Lo anterior sin que implique limitación para la efectiva actuación de la Auditoría.
