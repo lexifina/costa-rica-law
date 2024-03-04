@@ -1,2 +1,2 @@
 Transitorios
-I—El Ministerio de Educación Publica realizará la convocatorias de 1997 en I y II Ciclo de la Educación General Básica, III Ciclo de la Educación General Básica Abierta, Bachillerato de Educación Diversificada a Distancia y Bachillerato por Madurez Suficiente, con los planes de estudio, vigentes los temarios, las asignaturas las unidades didácticas, los requisitos, la valoración final de los postulantes y el número de convocatorias utilizadas durante 1996.
+I-(Derogado por el artículo 9 del decreto ejecutivo N° 44453 del 4 de marzo del 2024)

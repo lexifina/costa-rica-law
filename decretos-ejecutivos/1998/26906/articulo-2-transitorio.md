@@ -1,1 +1,1 @@
-II.—La convocatoria del mes de marzo de 1998 en el Bachillerato por Madurez Suficiente, se realizará con los planes de estudio; los temarios, las asignaturas, los requisitos y la valoración final de los postulantes, utilizados durante 1997.
+II.- (Derogado por el artículo 9 del decreto ejecutivo N° 44453 del 4 de marzo del 2024)

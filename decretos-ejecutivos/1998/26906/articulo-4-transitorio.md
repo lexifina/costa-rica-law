@@ -1,1 +1,1 @@
-IV.—Las, personas que a la vigencia de esta resolución, estén inscritas en alguno de los programas de Educación Abierta, para lo cual deben haber aprobado al menos un examen,dentro del programa, podrán continuarlo, aunque no tengan todos los requisitos personales estipulados en la presente Política y Normativa de los Programas de Educación Abierta y tendrán un plazo de tres años, para completar sus estudios.
+IV.- (Derogado por el artículo 9 del decreto ejecutivo N° 44453 del 4 de marzo del 2024)
