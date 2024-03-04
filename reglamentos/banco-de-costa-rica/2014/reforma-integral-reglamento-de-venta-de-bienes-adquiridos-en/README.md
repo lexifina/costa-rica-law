@@ -14,3 +14,4 @@ Reforma Integral Reglamento de Venta de Bienes Adquiridos en Pago de Obligacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-18 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
