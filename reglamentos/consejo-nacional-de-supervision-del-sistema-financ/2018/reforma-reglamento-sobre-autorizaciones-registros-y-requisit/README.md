@@ -14,3 +14,4 @@ Reforma Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-22 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
