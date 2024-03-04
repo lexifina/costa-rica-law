@@ -15,3 +15,4 @@ Reglamento para la organización y funcionamiento de la Auditoría Interna del B
 | --- | --- | --- |
 | 1 | 2012-01-13 | la propia norma |
 | 2 | 2020-08-19 | Reglamento 17 (2020-08-19) |
+| 3 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
