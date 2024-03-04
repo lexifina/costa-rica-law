@@ -6,9 +6,9 @@ SISTEMA FINANCIERO
 REGLAMENTO DE GOBIERNO
 CORPORATIVO
 SUGEF-SUGEVAL-SUPENSUGESE
-APROBADO POR EL CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO, MEDIANTE ARTÍCULOS 16 Y 5 DE LAS ACTAS DE LAS SESIONES 787-2009 Y 788-2009, RESPECTIVAMENTE, CELEBRADAS EL 19 DE JUNIO DEL 2009. PUBLICADO EN EL DIARIO OFICIAL “ LA GACETA ” 129 DEL 6 DE JULIO DEL 2009.
-RIGE A PARTIR DE SU PUBLICACIÓN EN EL DIARIO OFICIAL “ LA GACETA ”
-“REGLAMENTO DE GOBIERNO CORPORATIVO
+APROBADO POR EL CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO, MEDIANTE ARTÍCULOS 16 Y 5 DE LAS ACTAS DE LAS SESIONES 787-2009 Y 788-2009, RESPECTIVAMENTE, CELEBRADAS EL 19 DE JUNIO DEL 2009. PUBLICADO EN EL DIARIO OFICIAL " LA GACETA " 129 DEL 6 DE JULIO DEL 2009.
+RIGE A PARTIR DE SU PUBLICACIÓN EN EL DIARIO OFICIAL " LA GACETA "
+"REGLAMENTO DE GOBIERNO CORPORATIVO
 CAPÍTULO I. DISPOSICIONES GENERALES
 Artículo 1. Objeto
 Este Reglamento tiene por objeto establecer los órganos de gobierno que deben tener como mínimo las entidades supervisadas, así como las políticas y procedimientos que deben emitir, con el fin de asegurar la adopción de sanas prácticas de gobierno corporativo.
@@ -24,12 +24,13 @@ e) Elaboración y divulgación de un informe anual sobre el cumplimiento del reg
 f) Divulgación de la adopción del reglamento o código de gobierno corporativo.
 Artículo 3. Definiciones
 Para los propósitos de este Reglamento se entiende como:
-a) Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF , y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08.
+a) Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF (*).
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 b) Ejecutivo: Cualquier persona física que, por su función, cargo o posición en una entidad, intervenga o tenga la posibilidad de intervenir en la toma de decisiones importantes dentro de la entidad.
 c) Entidad supervisada: Aquellas bajo el ámbito de regulación del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), la Superintendencia General de Entidades Financieras (SUGEF), la Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN) y la Superintendencia General de Seguros (SUGESE).
 d) Gobierno corporativo: Conjunto de políticas, normas y órganos internos mediante los cuales se dirige y controla la gestión de una entidad. Comprende las relaciones entre los accionistas o asociados, la Junta Directiva u órgano equivalente, ejecutivos, sus comités de apoyo, las unidades de control, la gerencia y las auditorías interna y externa.
-e) Grupo financiero: Conjunto de sociedades que realizan actividades financieras, constituidas como sociedades anónimas o como entes de naturaleza cooperativa, solidarista o mutualista, sometidas a control común, gestión común o vinculación funcional, y organizado y registrado conforme lo establece la Ley 7558 y el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF , y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”.
-f) Grupo vinculado: Grupo conformado por todas las personas vinculadas por propiedad, por gestión, o ambos, según lo dispuesto en el “Reglamento sobre el grupo vinculado a la entidad” (Acuerdo SUGEF 4-04 vigente).
+e) Grupo financiero: Conjunto de sociedades que realizan actividades financieras, constituidas como sociedades anónimas o como entes de naturaleza cooperativa, solidarista o mutualista, sometidas a control común, gestión común o vinculación funcional, y organizado y registrado conforme lo establece la Ley 7558 y el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF , y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros".
+f) Grupo vinculado: Grupo conformado por todas las personas vinculadas por propiedad, por gestión, o ambos, según lo dispuesto en el "Reglamento sobre el grupo vinculado a la entidad" (Acuerdo SUGEF 4-04 vigente).
 g) Participación significativa: Se entiende como la titularidad de derechos que permitan, directa o indirectamente, ejercer el voto con al menos el diez por ciento (10%) del capital social de la entidad.
 h) Refrendar: Verificación de que cada una de las cuentas que integran los estados financieros fueron extraídos de los folios de los libros legalizados u hojas legalizadas que la entidad lleva para el registro contable de sus transacciones, así como la verificación de los importes incluidos en los estados financieros.
 i) Terceros: Cualquier persona física o jurídica que no forme parte del grupo vinculado a la entidad supervisada.
@@ -64,7 +65,7 @@ g) Aprobar el plan de continuidad de operaciones.
 h) Solicitar a la auditoría interna u órgano de control que aplique los informes sobre temas específicos, en el ámbito de su competencia e independencia funcional y de criterio, que requieran los órganos supervisores.
 i) Dar seguimiento a los informes de la auditoría interna u órgano de control que aplique relacionados con la atención, por parte de la administración, de las debilidades comunicadas por los órganos supervisores, auditores y demás entidades de fiscalización.
 j) Aprobar las políticas establecidas en el presente Reglamento, dentro de ellas las necesarias para procurar la confiabilidad de la información financiera y un adecuado ambiente de control interno de la entidad supervisada, así como las políticas de los comités de apoyo. En los casos en que aplique, se deben aprobar los procedimientos respectivos.
-k) Cumplir con sus funciones respecto a la información de los estados financieros y controles internos requeridos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”. Evaluar periódicamente sus propias prácticas de gobierno corporativo y ejecutar los cambios a medida que se hagan necesarios, lo cual debe quedar debidamente documentado.
+k) Cumplir con sus funciones respecto a la información de los estados financieros y controles internos requeridos en el "Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE". Evaluar periódicamente sus propias prácticas de gobierno corporativo y ejecutar los cambios a medida que se hagan necesarios, lo cual debe quedar debidamente documentado.
 l) Incluir o velar porque se incluya en el informe anual a la Asamblea General de Accionistas, u órgano equivalente, los aspectos relevantes de los trabajos realizados por cada uno de los comités y la cantidad de reuniones que se celebraron durante el periodo por cada comité.
 m) Mantener un registro actualizado de las políticas y decisiones acordadas en materia de gobierno corporativo.
 n) Promover una comunicación oportuna y transparente con los órganos supervisores, sobre situaciones, eventos o problemas que afecten o pudieran afectar significativamente a la entidad.
@@ -151,10 +152,10 @@ a) Propiciar la comunicación entre los miembros de la Junta Directiva u órgano
 b) Conocer y analizar los resultados de las evaluaciones de la efectividad y confiabilidad de los sistemas de información y procedimientos de control interno.
 c) Cuando exista la función de auditoría interna, proponer a la Junta Directiva u órgano equivalente los candidatos para auditor interno, excepto las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292.
 d) Dar seguimiento al cumplimiento del programa anual de trabajo de la auditoría Interna u órgano de control que aplique.
-e) Proponer a la Junta Directiva u órgano equivalente la designación de la firma auditora o el profesional independiente y las condiciones de contratación, una vez verificado el cumplimiento por parte de estos de los requisitos establecidos en el “Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
+e) Proponer a la Junta Directiva u órgano equivalente la designación de la firma auditora o el profesional independiente y las condiciones de contratación, una vez verificado el cumplimiento por parte de estos de los requisitos establecidos en el "Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE".
 f) Revisar la información financiera anual y trimestral antes de su remisión a la Junta Directiva u órgano equivalente, poniendo énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad.
 g) Revisar y trasladar a la Junta Directiva u órgano equivalente, los estados financieros anuales auditados, el informe del auditor externo, los informes complementarios y la carta de gerencia.
-h) En caso de que no se realicen los ajustes propuestos en los estados financieros auditados por el auditor externo, trasladar a la Junta Directiva u órgano equivalente un informe sobre las razones y fundamentos para no realizar tales ajustes. Este informe debe remitirse conjuntamente con los estados financieros auditados, asimismo debe presentarse firmado por el contador general y el gerente general o representante legal. En el caso de las entidades, grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras, aplica lo establecido en el artículo 10 del “Reglamento Relativo a la Información Financiera de Entidades, Grupos y Conglomerados Financieros”.
+h) En caso de que no se realicen los ajustes propuestos en los estados financieros auditados por el auditor externo, trasladar a la Junta Directiva u órgano equivalente un informe sobre las razones y fundamentos para no realizar tales ajustes. Este informe debe remitirse conjuntamente con los estados financieros auditados, asimismo debe presentarse firmado por el contador general y el gerente general o representante legal. En el caso de las entidades, grupos y conglomerados financieros supervisados por la Superintendencia General de Entidades Financieras, aplica lo establecido en el artículo 10 del "Reglamento Relativo a la Información Financiera de Entidades, Grupos y Conglomerados Financieros".
 i) Dar seguimiento a la implementación de las acciones correctivas que formulen el auditor externo, el auditor interno y la Superintendencia correspondiente.
 j) Proponer a la Junta Directiva u órgano equivalente el procedimiento de revisión y aprobación de los estados financieros internos y auditados, desde su origen hasta la aprobación por parte de los miembros del respectivo cuerpo colegiado.
 k) Velar porque se cumpla el procedimiento de aprobación de estados financieros internos y auditados.
@@ -165,7 +166,7 @@ Sección III. Comités de Apoyo
 Artículo 23. Comités de Apoyo
 La Junta Directiva u órgano equivalente o la gerencia, según corresponda, de las entidades supervisadas debe establecer los Comités de Apoyo que se requieran para la ejecución de las operaciones de la entidad, la observancia de las normativas aplicables y el ejercicio de las normas de gobierno corporativo.
 Los grupos y conglomerados financieros pueden contar con comités corporativos, para lo cual debe dejarse constancia sobre su creación y sujeción a las disposiciones corporativas en las actas de la Junta Directiva u órgano equivalente de la entidad controladora y comunicarlo a cada entidad supervisada.
-Es de observancia obligatoria por parte de la Junta Directiva u órgano equivalente o la gerencia, la integración del Comité de Cumplimiento como órgano de apoyo y vigilancia al Oficial de Cumplimiento. La integración, funciones y operación de este Comité y del Oficial de Cumplimiento se regirá por lo dispuesto en la Normativa para el Cumplimiento de la “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo” Ley 8204.
+Es de observancia obligatoria por parte de la Junta Directiva u órgano equivalente o la gerencia, la integración del Comité de Cumplimiento como órgano de apoyo y vigilancia al Oficial de Cumplimiento. La integración, funciones y operación de este Comité y del Oficial de Cumplimiento se regirá por lo dispuesto en la Normativa para el Cumplimiento de la "Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo" Ley 8204.
 Artículo 24. Idoneidad de miembros de Comités de Apoyo
 Los miembros de los comités de apoyo deben contar con el conocimiento o experiencia de acuerdo con la normativa especial aplicable y con los requisitos aprobados por la Junta Directiva u órgano equivalente. Si un miembro no cumple con los requisitos de idoneidad exigidos en la normativa vigente o en las políticas internas de la entidad, se debe proceder con su sustitución, según los lineamientos establecidos por la entidad.
 Sección IV. Reglamentos Internos y Libros de Actas
@@ -194,20 +195,20 @@ En el caso de entidades sujetas al cumplimiento de la Ley General de Control Int
 CAPÍTULO V. DISPOSICIONES FINALES
 Artículo 28. Sanciones
 El no envío de información exigido en este Reglamento dentro de los plazos establecidos, será sancionado según el marco legal que rige para cada una de las entidades supervisadas.
-Artículo 29. Modificaciones al “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN”
-a) Se modifica el nombre del Reglamento, para que en lo sucesivo se lea: “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE.”
+Artículo 29. Modificaciones al "Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN"
+a) Se modifica el nombre del Reglamento, para que en lo sucesivo se lea: "Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE."
 b) Se reforma el artículo 1 a efecto de adicionar la Superintendencia General de Seguros, cuyo texto dirá:
-“Artículo 1°. Objeto
-(…) todo ello con el objeto de procurar la confiabilidad de la información financiera provista por los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante, las Superintendencias.”
+"Artículo 1°. Objeto
+(.) todo ello con el objeto de procurar la confiabilidad de la información financiera provista por los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante, las Superintendencias."
 c) Se adiciona un Transitorio. El texto dirá:
-“Transitorio VI.
-De conformidad con lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este Reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones.”
+"Transitorio VI.
+De conformidad con lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este Reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones."
 Artículo 30. Derogatorias
 Se deroga:
-a) El Acuerdo SUGEF 12-96 “Directrices que regirán las labores de las auditorías internas en los entes fiscalizados por la Superintendencia General de Entidades Financieras (SUGEF)”, publicado en el diario oficial “ La Gaceta ” N° 231, del 2 de diciembre de 1996.
-b) Los artículos 20, 23, 24, 25, 26, 27, 28, 29 y los anexos 1-A y 1-B del “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN” y se reenumeran, los capítulos y el articulado respectivo de dicho Reglamento.
+a) El Acuerdo SUGEF 12-96 "Directrices que regirán las labores de las auditorías internas en los entes fiscalizados por la Superintendencia General de Entidades Financieras (SUGEF)", publicado en el diario oficial " La Gaceta " N° 231, del 2 de diciembre de 1996.
+b) Los artículos 20, 23, 24, 25, 26, 27, 28, 29 y los anexos 1-A y 1-B del "Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por SUGEF, SUGEVAL y SUPEN" y se reenumeran, los capítulos y el articulado respectivo de dicho Reglamento.
 Artículo 31. Vigencia
-El presente Reglamento rige a partir de su publicación en el diario oficial “ La Gaceta ”.
+El presente Reglamento rige a partir de su publicación en el diario oficial " La Gaceta ".
 TRANSITORIO I
 La Junta Directiva u órgano equivalente de las entidades supervisadas debe aprobar y publicar el código de gobierno corporativo establecido en este Reglamento, a más tardar al 30 de noviembre de 2009.
 TRANSITORIO II
@@ -218,7 +219,7 @@ ANEXO 1
 INFORME ANUAL DE GOBIERNO CORPORATIVO
 I. Encabezado
 En la página inicial del informe se debe incluir:
-a) Título “Informe Anual de Gobierno Corporativo”.
+a) Título "Informe Anual de Gobierno Corporativo".
 b) Nombre de la entidad. En el caso de que el informe se prepare para un grupo o conglomerado se debe indicar el nombre de cada una de las empresas que abarca el informe.
 c) Periodo o año del informe.
 d) Fecha de elaboración.
@@ -327,7 +328,7 @@ b. Hasta donde tengo conocimiento los estados financieros y cualquier otra infor
 c. (NOMBRE DE LA ENTIDAD ) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
 d. Se ha velado para que el Comité de Auditoría se reúna periódicamente, se lleven minutas de las reuniones y reporte con prontitud a la Junta Directiva. Asimismo han revisado y aprobado los estados financieros mensuales de la entidad.
 e. Se ha procurado la existencia de una auditoría interna con independencia de criterio.
-f. De acuerdo con lo informado por el Comité de Auditoría, se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
+f. De acuerdo con lo informado por el Comité de Auditoría, se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del "Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE".
 g. He recibido y entendido toda la información significativa que me ha suministrado el Gerente General y el Comité de Auditoría respecto a:
 i. Todas las deficiencias significativas en el diseño u operación de los controles internos, los cuales pueden tener un efecto adverso para la habilidad de la entidad de recopilar, procesar, seleccionar y reportar la información financiera.
 ii. La existencia de cualquier tipo de fraude que envuelva a gerentes u otros empleados que desempeñen un rol significativo en el control interno de la entidad.
@@ -340,9 +341,9 @@ GERENTE GENERAL
 a. Los estados financieros de (NOMBRE DE LA ENTIDAD ) no contienen ninguna aseveración falsa de un hecho material ni omiten incorporar un hecho material necesario para que las declaraciones realizadas no resulten engañosas.
 b. Los estados financieros y cualquier otra información financiera complementaria adjunta a esta declaración presentan razonablemente en todos los aspectos materiales la situación financiera de (NOMBRE DE LA ENTIDAD ) así como el resultado de sus operaciones para el periodo que termina el (FECHA).
 c. (NOMBRE DE LA ENTIDAD ) ha establecido y mantenido los controles y procedimientos efectivos y eficientes que aseguren que la información material relacionada con la entidad y sus subsidiarias consolidadas. Asimismo ha procurado contar con el personal idóneo y capacitado para manejar el control interno.
-d. Se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del “Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE”.
+d. Se ha verificado el cumplimiento de los requisitos de independencia, experiencia e idoneidad establecidos en el Capítulo II del "Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF , SUGEVAL, SUPEN y SUGESE".
 e. Se ha revelado al Comité de Auditoría, a la Junta Directiva u órgano equivalente y a los auditores externos lo siguiente:
 i. Todas las deficiencias significativas en el diseño u operación de los controles internos, los cuales pueden tener un efecto adverso para la habilidad de la entidad de recopilar, procesar, seleccionar y reportar la información financiera.
 ii. La existencia de cualquier tipo de fraude que envuelva gerentes u otros empleados que tienen un rol significativo en el control interno de la entidad.
 iii. Los cambios significativos en el control interno o en otros factores que afectaron materialmente el control interno con posterioridad a la fecha de corte de la información financiera, incluyendo cualquier acción correctiva en este mismo sentido.
-Es todo. Al ser las (HORA) horas del (DÍA) de (MES) de (AÑO). FIRMA”
+Es todo. Al ser las (HORA) horas del (DÍA) de (MES) de (AÑO). FIRMA"

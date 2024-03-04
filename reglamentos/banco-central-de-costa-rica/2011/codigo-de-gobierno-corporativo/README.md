@@ -15,3 +15,4 @@ Código de Gobierno Corporativo
 | --- | --- | --- |
 | 1 | 2012-01-25 | la propia norma |
 | 2 | 2012-09-27 | Reglamento 5563 (2012-09-27) |
+| 3 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
