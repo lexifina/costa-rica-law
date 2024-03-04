@@ -9,7 +9,8 @@ a) la entidad emisora,
 b) las empresas en las que la entidad emisora participe en su capital social,
 c) la sociedad controladora del grupo financiero al que pertenece la entidad emisora,
 d) las empresas integrantes del grupo financiero al que pertenece la entidad emisora,
-e) cualquier persona física o jurídica con participación directa o indirecta en el capital social de la entidad emisora. La participación directa o indirecta deberá determinarse según lo dispuesto en el Acuerdo SUGEF 8-08 "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros".
+e) cualquier persona física o jurídica con participación directa o indirecta en el capital social de la entidad emisora. La participación directa o indirecta deberá determinarse según lo dispuesto en el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF(*)
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 Además, que los instrumentos no estén sujetos a algún acuerdo, ya sea contractual o de otro tipo, que eleve la prelación de los derechos de cobro derivados de éstos en caso de insolvencia o liquidación.
 4) Que sean de carácter perpetuo y las disposiciones que los regulen no prevean ni den incentivos a la entidad para reembolsarlos.
 5) Que, si las disposiciones que regulan los instrumentos prevén una o más opciones de compra, el ejercicio de dichas opciones dependa exclusivamente de la voluntad del emisor:

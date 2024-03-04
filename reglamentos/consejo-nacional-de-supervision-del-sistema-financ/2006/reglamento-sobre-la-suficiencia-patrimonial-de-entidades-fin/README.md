@@ -51,3 +51,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 36 | 2023-07-25 | Reglamento 1810 (2023-07-25) |
 | 37 | 2023-10-30 | Reglamento 1830 (2023-10-30) |
 | 38 | 2023-12-04 | Reglamento 1837 (2023-12-04) |
+| 39 | 2024-03-04 | Reglamento 1846 (2024-03-04) |

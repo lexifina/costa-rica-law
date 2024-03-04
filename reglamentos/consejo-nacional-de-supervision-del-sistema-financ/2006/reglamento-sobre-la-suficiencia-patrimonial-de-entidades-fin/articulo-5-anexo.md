@@ -8,7 +8,8 @@ a) la entidad emisora o deudora,
 b) las empresas en las que la entidad emisora o deudora participe en su capital social,
 c) la sociedad controladora del grupo financiero al que pertenece la entidad emisora o acreedora,
 d) las empresas integrantes del grupo financiero al que pertenece la entidad emisora o deudora,
-e) cualquier persona física o jurídica con participación directa o indirecta en el capital social de la entidad emisora o deudora, según corresponda. La participación directa o indirecta deberá determinarse según lo dispuesto en el Acuerdo SUGEF 8-08 "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros".
+e) cualquier persona física o jurídica con participación directa o indirecta en el capital social de la entidad emisora o deudora, según corresponda. La participación directa o indirecta deberá determinarse según lo dispuesto en el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF "(*)
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 La caracterización de la entidad como deudora, se entenderá en el caso de préstamos subordinados susceptibles de ser admitidos como parte del CN2.
 Además, que los instrumentos no estén sujetos a algún acuerdo, ya sea contractual o de otro tipo, que eleve la prelación de los derechos de cobro derivados de éstos en caso de insolvencia o liquidación.
 4) Vencimiento:
@@ -28,6 +29,7 @@ b) las empresas en las que la entidad emisora o deudora participe en su capital 
 c) la empresa controladora del grupo financiero al cual pertenece la empresa emisora o acreedora,
 d) las empresas integrantes del grupo financiero al que pertenece la entidad emisora o deudora,
 e) En el caso de préstamos subordinados concedidos por cualquier persona física o jurídica con participación directa o indirecta en el capital social de la entidad deudora, no deben existir acuerdos, ya sea contractuales o de otro tipo, que resulten en la terminación anticipada del préstamo subordinado..
-La participación directa o indirecta deberá determinarse según lo dispuesto en el Acuerdo SUGEF 8-08 "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros".
+La participación directa o indirecta deberá determinarse según lo dispuesto en el "Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF "(*)
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 La caracterización de la entidad como deudora, se entenderá en el caso de préstamos subordinados susceptibles de ser admitidos como parte del CN2. Además, que la adquisición de los instrumentos o la concesión de los préstamos subordinados, según proceda, no haya sido financiada directa o indirectamente por la entidad.
 (Así adicionado en sesión N° 1663 del 17 de mayo de 2021)
