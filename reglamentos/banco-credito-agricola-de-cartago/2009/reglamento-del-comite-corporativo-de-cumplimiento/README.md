@@ -14,3 +14,4 @@ Reglamento del Comité Corporativo de Cumplimiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-04 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
