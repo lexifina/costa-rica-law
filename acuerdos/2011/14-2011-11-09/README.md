@@ -14,3 +14,4 @@ Reforma Reglamento relativo a la información financiera de entidades, grupos y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-19 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
