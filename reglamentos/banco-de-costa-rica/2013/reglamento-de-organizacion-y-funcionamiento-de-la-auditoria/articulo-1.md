@@ -3,8 +3,8 @@ BCR VALORES S. A.
 (Esta norma fue derogada por el artículo 52 del Reglamento de Organización y funcionamiento de la auditoría interna de BCR Valores S.A, aprobado mediante sesión N° 17-2020 del 5 de agosto del 2020)
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DE BCR VALORES S. A.
-I.—Propósito. Establecer un documento que contenga los lineamientos de organización y funcionamiento, acorde con la normativa que rige la labor de auditoría interna en el sector público, conforme lo establece el artículo 23 de la Ley General de Control Interno; así como también lo contemplado en las Normas para el ejercicio de la auditoría interna en el sector público.
-II.—Alcance. Este reglamento emite las normas a seguir para la organización y funcionamiento de la Auditoría Interna de BCR Valores S. A., con el objetivo de fortalecer su gestión y contribuir al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados. Este reglamento es de acatamiento obligatorio para los funcionarios de la Auditoría Interna de BCR Valores S. A.
+I.-Propósito. Establecer un documento que contenga los lineamientos de organización y funcionamiento, acorde con la normativa que rige la labor de auditoría interna en el sector público, conforme lo establece el artículo 23 de la Ley General de Control Interno; así como también lo contemplado en las Normas para el ejercicio de la auditoría interna en el sector público.
+II.-Alcance. Este reglamento emite las normas a seguir para la organización y funcionamiento de la Auditoría Interna de BCR Valores S. A., con el objetivo de fortalecer su gestión y contribuir al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados. Este reglamento es de acatamiento obligatorio para los funcionarios de la Auditoría Interna de BCR Valores S. A.
 Marco normativo. La auditoría deberá ejecutar su trabajo de conformidad con lo que establecen las siguientes regulaciones, así como las modificaciones a estas que en el futuro se emitan:
 Documentos de referencia:
 Ley General de la Administración Pública, N° 6227.
@@ -26,7 +26,7 @@ Código de ética corporativo del Conglomerado Financiero BCR, REG-GRE-ACH-94-11
 Manual de cumplimiento corporativo del Conglomerado Financiero BCR, MAC-GCU-CRE-56-04-13.
 Glosario de términos y definiciones utilizados en el Conglomerado Financiero BCR, DISP-GMC-OPP-111-11-13.
 Cualquier otra normativa aplicable que emita la Contraloría General de la República o entidades supervisoras.
-III.—Definiciones:
+III.-Definiciones:
 Administración activa: Desde el punto de vista orgánico, es el conjunto de órganos de la función administrativa, que deciden y ejecutan; incluyen al jerarca, como última instancia; desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración.
 Advertencia: Es cuando la auditoría interna llama la atención de alguien sobre alguna situación que pueda conllevar a determinadas consecuencias.
 Asesoría de auditoría: Brindar consejo o criterio sobre algún tema en el que la auditoría interna tenga competencia y conocimiento.
@@ -35,7 +35,8 @@ Bloque de legalidad: Conjunto de normas jurídicas, escritas o no escritas, a cu
 Comité de índole multidisciplinario: Comité Integrado por un grupo de profesionales de distintas disciplinas.
 Competencias: Atribución legítima para el conocimiento o resolución de un asunto; conjunto de actividades, labores o funciones, asignadas por la normativa a la auditoría interna.
 Conflicto de intereses: Circunstancia que incide en la objetividad o independencia de un funcionario al momento de realizar o dejar de hacer una función propia de su cargo, que favorezca un interés privado en detrimento del interés público.
-Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, acuerdo SUGEF 8-08. Para este reglamento se denominará conglomerado BCR y corresponderá al Banco de Costa Rica y sus subsidiarias.
+Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF(*). Para este reglamento se denominará conglomerado BCR y corresponderá al Banco de Costa Rica y sus subsidiarias.
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 Cuidado profesional: Propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
 Enfoque sistémico y profesional: Línea de dirección para percibir la interacción entre las partes de un todo, acorde con los objetivos de la función a realizar, y desarrollado en forma competente por el auditor.
 Ente: Es la institución u organización, principalmente estatal.
@@ -54,13 +55,13 @@ Titular subordinado: Funcionario de la administración activa responsable de un 
 Universo fiscalizable: Es el conjunto de áreas, dependencias, servicios, procesos, sistemas, etc. que pueden ser evaluados por la Auditoría Interna en un plazo determinado.
 Valoración del riesgo: Identificación y análisis de los riesgos que enfrenta la institución, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; deben ser realizados por el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.
 Este reglamento contempla los siguientes aspectos:
-• Título I Organización de la Auditoría Interna: -Concepto de auditoría interna, -independencia y objetividad, -ubicación y estructura organizativa, -del auditor interno, -del personal de auditoría, -ámbito de acción, -relaciones y coordinaciones.
-• Título II Funcionamiento de la Auditoría Interna: Competencias, deberes, y potestades de los funcionarios de la actividad.
-• Título III Ejecución de las labores de Auditoría Interna: Entre ellos: servicios proporcionados por la Auditoría Interna, aspectos de la ejecución de estudios, supervisión de labores, proceso de comunicación y seguimiento de las recomendaciones.
-• Título IV Disposiciones finales: Derogatoria y vigencia.
+. Título I Organización de la Auditoría Interna: -Concepto de auditoría interna, -independencia y objetividad, -ubicación y estructura organizativa, -del auditor interno, -del personal de auditoría, -ámbito de acción, -relaciones y coordinaciones.
+. Título II Funcionamiento de la Auditoría Interna: Competencias, deberes, y potestades de los funcionarios de la actividad.
+. Título III Ejecución de las labores de Auditoría Interna: Entre ellos: servicios proporcionados por la Auditoría Interna, aspectos de la ejecución de estudios, supervisión de labores, proceso de comunicación y seguimiento de las recomendaciones.
+. Título IV Disposiciones finales: Derogatoria y vigencia.
 TÍTULO I
 Organización de la Auditoría Interna
 CAPÍTULO I
 Concepto de Auditoría Interna
-Artículo 1º—Concepto funcional de la Auditoría Interna. De acuerdo con la Ley General de Control Interno, en su artículo 21 la Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
+Artículo 1º-Concepto funcional de la Auditoría Interna. De acuerdo con la Ley General de Control Interno, en su artículo 21 la Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
 Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y los órganos sujetos a esta Ley. Dentro de una organización, la Auditoría Interna proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal, técnico y a las prácticas sanas.
