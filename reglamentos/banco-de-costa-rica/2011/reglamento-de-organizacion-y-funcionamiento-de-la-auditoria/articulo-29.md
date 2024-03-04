@@ -1,1 +1,0 @@
-Artículo 29.—Los estudios especiales de auditoría estarán encaminados al examen de aspectos específicos sea a solicitud de la Junta Directiva, de cualquiera de los entes fiscalizadores del Banco, o disposiciones del auditor general.
