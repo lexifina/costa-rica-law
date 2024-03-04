@@ -1,1 +1,0 @@
-Artículo 30.—Los estudios especiales de auditoría estarán dirigidos al examen de aspectos específicos sea a solicitud de la Junta Directiva de la sociedad, de cualquiera de los entes fiscalizadores de la Corredora de Seguros, o por disposición del Auditor Interno.

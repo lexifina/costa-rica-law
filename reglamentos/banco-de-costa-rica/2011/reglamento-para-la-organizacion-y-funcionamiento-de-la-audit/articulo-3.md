@@ -1,2 +1,0 @@
-Artículo 3º—Los servidores de Auditoría Interna deberán observar las normas éticas que rigen su profesión, que se caracterizan por el respeto a los valores de integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia; sin perjuicio de otros valores que la institución promueva para guiar su actuación.
-La actuación de los servidores de la Auditoría Interna se regirá por lo establecido en los manuales internos de la Auditoría, y por las disposiciones éticas que se establezcan para los servidores del Conglomerado Financiero BCR.

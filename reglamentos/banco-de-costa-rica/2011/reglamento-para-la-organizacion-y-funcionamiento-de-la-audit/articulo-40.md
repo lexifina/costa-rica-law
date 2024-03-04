@@ -1,2 +1,0 @@
-Artículo 40.—Para los compromisos de alto riesgo, a partir de la tercera solicitud de prórroga, la Administración deberá hacer de conocimiento del Comité de Auditoría Corporativo, su planteamiento de prórroga; en caso de que este requisito no se cumpla, la Auditoría no tramitará la correspondiente solicitud.
-En la resolución de estos casos, la Auditoría aplicará lo dispuesto en el artículo 38 de este Reglamento.

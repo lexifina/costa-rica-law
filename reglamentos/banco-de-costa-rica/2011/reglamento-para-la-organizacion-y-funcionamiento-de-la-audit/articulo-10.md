@@ -1,3 +1,0 @@
-Artículo 10.—De conformidad con el artículo 23 de la Ley general de control interno, el auditor interno organizará la Auditoría Interna, considerando, entre otros, los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnicas jurídicas y sanas prácticas correspondientes.
-En función de las habilidades y competencias del recurso humano y al cumplimiento de los objetivos y metas institucionales, la Auditoría Interna se podrá organizar en áreas funcionales de trabajo, según sus necesidades. Cada área tendrá un servidor responsable de su dirección, el cual rendirá cuentas de su gestión al auditor interno.
-La descripción detallada de la organización se incorporará en los manuales internos de la Auditoría.
