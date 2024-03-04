@@ -15,3 +15,4 @@ Reglamento de organización y funcionamiento de la Auditoría Interna del Banco 
 | --- | --- | --- |
 | 1 | 2011-09-12 | la propia norma |
 | 2 | 2019-10-22 | Reglamento 48 (2019-10-22) |
+| 3 | 2024-03-04 | Reglamento 1846 (2024-03-04) |

@@ -17,7 +17,8 @@ Bloque de legalidad: conjunto de normas jurídicas, escritas o no escritas, a cu
 Comisión de índole multidisciplinaria: comisión integrada por un grupo de profesionales de distintas disciplinas.
 Competencias: atribución legítima para el conocimiento o resolución de un asunto; conjunto de actividades, labores o funciones, asignadas por la normativa a la auditoría interna.
 Conflicto de intereses: Circunstancia que incide en la objetividad o independencia de un funcionario al momento de realizar o dejar de hacer una función propia de su cargo, que favorezca un interés privado en detrimento del interés público.
-Conglomerado financiero: intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08. Para este reglamento se denominará conglomerado BCR y corresponderá al Banco de Costa Rica y sus subsidiarias.
+Conglomerado financiero: intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el Reglamento sobre autorizaciones de entidades supervisadas por la Sugef(*). Para este reglamento se denominará conglomerado BCR y corresponderá al Banco de Costa Rica y sus subsidiarias.
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba Reglamento sobre autorizaciones de entidades supervisadas por la Sugef, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, Acuerdo Sugef 8-08)
 Cuidado profesional: propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
 Enfoque sistémico y profesional: línea de dirección para percibir la interacción entre las partes de un todo, acorde con los objetivos de la función a realizar, y desarrollado en forma competente por el auditor.
 Ente: es la institución u organización, principalmente estatal.
@@ -34,13 +35,13 @@ Titular subordinado: funcionario de la administración activa responsable de un 
 Universo fiscalizable: es el conjunto de áreas, dependencias, servicios, procesos, sistemas, etc. que pueden ser evaluados por la auditoría interna en un plazo determinado.
 Valoración del riesgo: identificación y análisis de los riesgos que enfrenta la institución, tanto de fuentes internas como externas relevantes para la consecución de los objetivos; deben ser realizados por el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.
 Este reglamento contempla los siguientes aspectos:
-• Título I Organización de la Auditoría Interna: concepto de auditoría interna, independencia y objetividad, ubicación y estructura organizativa, la figura del auditor y subauditor internos, el personal de Auditoría, ámbito de acción, relaciones y coordinaciones.
-• Título II Funcionamiento de la Auditoría Interna: competencias, deberes, y potestades de los funcionarios de la actividad.
-• Título III Ejecución de las labores de auditoría interna: entre ellos: servicios proporcionados por la Auditoría Interna, aspectos de la ejecución de estudios, supervisión de labores, proceso de comunicación y seguimiento de las recomendaciones.
-• Título IV Disposiciones finales: derogatoria y vigencia.
+. Título I Organización de la Auditoría Interna: concepto de auditoría interna, independencia y objetividad, ubicación y estructura organizativa, la figura del auditor y subauditor internos, el personal de Auditoría, ámbito de acción, relaciones y coordinaciones.
+. Título II Funcionamiento de la Auditoría Interna: competencias, deberes, y potestades de los funcionarios de la actividad.
+. Título III Ejecución de las labores de auditoría interna: entre ellos: servicios proporcionados por la Auditoría Interna, aspectos de la ejecución de estudios, supervisión de labores, proceso de comunicación y seguimiento de las recomendaciones.
+. Título IV Disposiciones finales: derogatoria y vigencia.
 TÍTULO I
 Organización de la Auditoría Interna
 CAPÍTULO I
 Concepto de auditoría interna
-Artículo 1º—De acuerdo con la Ley general de control Interno, en su artículo 21 la auditoría interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
+Artículo 1º-De acuerdo con la Ley general de control Interno, en su artículo 21 la auditoría interna es la actividad independiente, objetiva y asesora, que proporciona seguridad al ente u órgano, puesto que se crea para validar y mejorar sus operaciones.
 Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección en las entidades y los órganos sujetos a esta Ley. Dentro de una organización, la auditoría interna proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.
