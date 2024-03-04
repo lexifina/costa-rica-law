@@ -14,3 +14,4 @@ Reforma Reglamento para las operaciones de crédito de última instancia en mone
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-13 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
