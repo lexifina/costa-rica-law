@@ -18,3 +18,4 @@ Reglamento para las operaciones de crédito de última instancia en moneda nacio
 | 3 | 2020-03-18 | Reglamento 5922 (2020-03-18) |
 | 4 | 2020-12-18 | Reglamento 5977 (2020-12-18) |
 | 5 | 2022-04-25 | Reglamento 1727 (2022-04-25) |
+| 6 | 2024-03-04 | Reglamento 1846 (2024-03-04) |

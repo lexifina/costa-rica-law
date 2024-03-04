@@ -14,6 +14,7 @@ j) Reglamento para juzgar la situación económica-financiera de las asociacione
 k) Reglamento sobre el grupo vinculado a la entidad, a la fecha Acuerdo-SUGEF-4-04.
 l) Reglamento para la calificación de deudores, a la fecha Acuerdo-SUGEF-1-05.
 m) Reglamento sobre la suficiencia patrimonial de entidades financieras, a la fecha Acuerdo- SUGEF 3-06.
-n) Reglamento sobre autorizaciones de entidades supervisadas por la Superintendencia General de Entidades Financieras y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, a la fecha Acuerdo SUGEF 8-08.
+n) Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF (*).
+(*)(Así modificada su denominación por el artículo 2° del Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF aprobado en sesión N° 1846-2024 del 4 de marzo del 2024. Anteriormente indicaba " Reglamento sobre autorizaciones de entidades supervisadas por la Sugef y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, acuerdo Sugef 8-08 ")
 o) Reglamento sobre la administración del riesgo de liquidez, a la fecha Acuerdo SUGEF 17-13.
 p) Regulaciones de Política Monetaria.
