@@ -14,3 +14,4 @@ Reglamento de Organización y funcionamiento de la auditoría interna de BCR Val
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-10 | la propia norma |
+| 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
