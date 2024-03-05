@@ -14,12 +14,14 @@ Línea de crédito inhabilitada temporalmente según acuerdo de Junta Directiva,
 6. Derecho sucesorio
 Dirigido a los beneficiarios de derechos sucesorios del Régimen de pensiones del Magisterio Nacional, siempre y cuando exista una resolución que apruebe su derecho y sean mayores de edad.
 Esta línea atiende requerimientos de índole personal.
-7. Línea de urgencia
-Pueden acceder a esta línea, los afiliados (as) que presenten las siguientes necesidades
+7. Línea de Urgencia
+Pueden acceder a esta línea, los afiliados (as) que presenten las siguientes necesidades:
 i. Cancelación parcial o total de deudas, que se encuentren en estado de morosidad o cobro judicial.
 ii. Cancelación parcial o total de gastos médicos para tratamientos especializados u operaciones. Estos gastos, pueden ser del afiliado (a) o de quien estime conveniente.
 iii. Reposición de bienes que haya perdido, a causa de hurto, robo o vandalismo; para lo cual, debe presentar la documentación probatoria.
 iv. Reposición de bienes parcial o total por causa de desastres naturales (inundaciones, temblores, terremotos, etc). Debe aportar certificación emitida por la autoridad competente.
+v. Problemas temporales relacionados con los pagos a los trabajadores, que experimenten una disminución parcial o total de sus salarios, situación que se evidencie mediante documentos de pago que emita su patrono.
+(Así reformado el inciso 7) anterior en sesión N° 26-2024 del 5 de marzo del 2024)
 8. Dirigida a los afiliados, que requieren cancelar gastos funerarios
 Línea de crédito inhabilitada temporalmente, según acuerdo de Junta Directiva, aprobado en sesión: 0101-2023 del 13/09/2023 Acuerdo G1.
 (Así reformado el inciso 8) anterior en sesión N° 0101 del 13 de setiembre de 2023)

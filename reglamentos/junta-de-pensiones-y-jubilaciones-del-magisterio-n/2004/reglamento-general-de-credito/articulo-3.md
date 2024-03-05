@@ -7,7 +7,8 @@ d. Línea para entidades sociales y financieras del Magisterio Nacional, según 
 e. Línea de salud 8 años.
 f. Derechos sucesorios 8 años.
 Este plazo máximo aplica sólo en aquellos casos en que el plazo de extinción del derecho sucesorio exceda de cinco años. Si dicho plazo de extinción fuera menor de cinco años, el plazo del crédito no puede superar este plazo.
-g. Línea de urgencia 7 años.
+g. Línea de urgencia 7 años. Excepto por problemas de disminución parcial o total del pago cuyo plazo máximo sería de 12 meses.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 26-2024 del 5 de marzo del 2024)
 h. Línea para servicios funerarios 5 años.
 (*) i) Línea de crédito verde: De acuerdo con el plan de inversión
 a. Paneles Solares: 8 años.
