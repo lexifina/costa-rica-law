@@ -1,1 +1,0 @@
-Artículo 5º-Se excluyen de la aplicación de esta resolución, los establecimientos de comercialización al por menor de alimentos de origen animal, excepto en lo relativo a conservar la información del establecimiento proveedor.

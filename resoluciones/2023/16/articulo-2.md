@@ -1,1 +1,0 @@
-Artículo 2º-Cuando en el procesamiento, empaque o envasado de un alimento, intervenga más de un establecimiento, se deberá identificar el último que participó, con independencia de la obligación que tienen los establecimientos de mantener la documentación correspondiente que respalde la trazabilidad de los alimentos.

@@ -1,1 +1,0 @@
-Artículo 7º-Se deja sin efecto la Resolución SENASA-DG-R031-2021 de las nueve horas y treinta minutos del veinticinco de agosto del dos mil veintiuno, publicada en el Diario Oficial La Gaceta N°171 el 06 de setiembre de 2021 y la Resolución SENASA-DG-R049-2022, publicada en el Diario Oficial La Gaceta, N° 213 el 08 de noviembre del 2022.
