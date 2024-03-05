@@ -14,3 +14,4 @@ Creación de la Comisión Nacional de Micronutrientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-10 | la propia norma |
+| 2 | 2024-03-05 | Decreto Ejecutivo 44426 (2024-03-05) |
