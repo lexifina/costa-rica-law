@@ -1,0 +1,1 @@
+Artículo 7º-El Alcalde Municipal, con la documentación pertinente, conformará expediente administrativo y conferirá a la entidad pública o privada audiencia por tres días hábiles, a fin de que dentro dicho plazo, se manifiesten como estimen pertinente.

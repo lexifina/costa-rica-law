@@ -1,0 +1,1 @@
+Artículo 4º-En el caso de sujeto privado que pretenda, transferencia de fondos presupuestarios públicos municipales, debe contar con la declaratoria de idoneidad para administrar fondos públicos emitida por el Concejo Municipal.
