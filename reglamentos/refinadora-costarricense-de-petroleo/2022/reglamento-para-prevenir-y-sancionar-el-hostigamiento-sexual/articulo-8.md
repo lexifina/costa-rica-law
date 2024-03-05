@@ -1,1 +1,0 @@
-Artículo 8º-Acciones de evaluación. La Presidencia coordinará con la Gerencia de Innovación para que, a través del Departamento de Cultura y Gestión de Cambio, lleve a cabo las acciones de análisis y evaluación, que aporten los insumos necesarios para desarrollar las acciones preventivas correspondientes contra el hostigamiento sexual.
