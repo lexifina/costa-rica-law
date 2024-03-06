@@ -14,3 +14,4 @@ Reglamento Ley de Control a Propaganda con Imagen de la Mujer
 | --- | --- | --- |
 | 1 | 1980-03-11 | la propia norma |
 | 2 | 1985-10-14 | Decreto Ejecutivo 16634 (1985-10-14) |
+| 3 | 2024-03-06 | Decreto Ejecutivo 44578 (2024-03-06) |
