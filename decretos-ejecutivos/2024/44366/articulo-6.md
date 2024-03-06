@@ -1,0 +1,1 @@
+Artículo 6º-Obligaciones de las autoridades competentes. Las instituciones públicas, dentro de su ámbito legal respectivo y con competencias específicas en la aplicación y desarrollo del PNA, deberán realizar y llevar a cabo las acciones necesarias para la debida implementación y coordinación.

@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo General. El PNA tiene como objetivo abordar la problemática de la Minería artesanal y en Pequeña Escala en el país para que desde una visión país se ejecuten acciones y metas en los temas prioritarios.
