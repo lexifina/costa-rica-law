@@ -1,0 +1,1 @@
+Artículo 3º-Deróguense los artículos 21 y 63 bis del "Reglamento de Uso de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública", Decreto Ejecutivo N° 37188-SP, del 08 de mayo del 2012.
