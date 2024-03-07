@@ -1,0 +1,1 @@
+Artículo 44.-Trámite para aplicar la obsolescencia. Para aplicar la obsolescencia a artículos de inventario tales como mobiliario y otros que, por las razones que fuera, se encuentren dañados o deteriorados, se levantará una lista con las justificaciones del caso, que se remitirá a la Contabilidad Municipal.

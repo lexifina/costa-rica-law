@@ -1,0 +1,1 @@
+Artículo 17.-Oficina responsable de calcular la depreciación, el registro y la revaluación de activos. Corresponde a la Contabilidad calcular la depreciación de los activos, registrarla y revaluarlos.

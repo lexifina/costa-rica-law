@@ -1,0 +1,1 @@
+Artículo 26.-Número de control para activos no individualizados mediante placa. La Contabilidad consignará un número de control para los activos que no requieren, no deben o no pueden ser individualizados mediante placa.

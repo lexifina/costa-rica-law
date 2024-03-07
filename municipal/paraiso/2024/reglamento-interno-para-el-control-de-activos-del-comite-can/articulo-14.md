@@ -1,0 +1,3 @@
+Artículo 14.-Trámite para recibir activos. Para proceder con la recepción de un activo recién adquirido la persona encargada de la oficina administrativa atenderá el siguiente trámite:
+a. Revisión cualitativa y cuantitativa del activo recibido contra la orden de compra y la factura, a fin de determinar si se ajusta a las características señaladas en esos documentos.
+b. Remisión a la Recepción para el trámite de pago al proveedor del bien. c. Custodiar el activo hasta el debido plaqueo y asignación a la persona responsable. d. Entregar el activo una vez recibida la orden por parte de la profesional que labora en Contabilidad.

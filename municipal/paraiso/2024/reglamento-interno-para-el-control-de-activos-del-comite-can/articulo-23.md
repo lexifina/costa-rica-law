@@ -1,0 +1,1 @@
+Artículo 23.-Descargo contable de activos, del registro auxiliar. Comprobada la pérdida de un activo sin culpa de quien lo custodiaba, la Contabilidad solicitará autorización a la Junta Directiva para que se proceda a descargar contablemente y del registro auxiliar, el bien del que se trate.

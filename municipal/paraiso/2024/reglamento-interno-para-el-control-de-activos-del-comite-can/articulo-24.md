@@ -1,0 +1,1 @@
+Artículo 24.-Obligación de entregar equipos dañados a la contabilidad de la Municipalidad. Todo equipo dañado será entregado por la persona responsable del activo, a la Proveeduría, dentro de los treinta días siguientes a la ocurrencia del daño, para que se proceda a la reparación o al desecho del bien.

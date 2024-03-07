@@ -1,0 +1,1 @@
+Artículo 19.-Obligación de llevar registro de activos por persona funcionaria. Para el control correspondiente, la Contabilidad mantendrá un registro computarizado por funcionario o funcionaria, con información del activo que permita su debida identificación.

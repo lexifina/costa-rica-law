@@ -1,0 +1,1 @@
+Artículo 9º-Obligación de velar porque los equipos mantengan su placa de identificación. La persona funcionaria velará porque los activos que le sean asignados mantengan la placa de identificación en su lugar y si por cualquier motivo la placa desapareciera o sufriera algún daño, deberá informarlo a la oficina administrativa.

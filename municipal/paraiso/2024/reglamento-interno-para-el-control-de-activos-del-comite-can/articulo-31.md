@@ -1,0 +1,1 @@
+Artículo 31.-Determinación del costo de los activos. Como factores que determinan el costo de un activo, se considerarán el valor facial, el flete, el seguro, los impuestos, los costos de instalación, si fuese necesario y, la diferencia en el tipo de cambio entre el colón y la moneda extranjera utilizada para la compra.

@@ -1,0 +1,10 @@
+CAPÍTULO IV
+De la capitalización como activo y del
+cálculo del gasto de depreciación
+Artículo 29.-Definición de la capitalización de bienes. Para definir la capitalización como activo de un bien adquirido por la Institución, se tomarán en cuenta las siguientes definiciones:
+a. Activo fijo: Bienes propiedad de la institución, que clasifican como tales de acuerdo con las Normas Internacionales de Contabilidad para el Sector Público (NIC SP), incluyendo bienes con vida útil limitada. Su costo está asignado sistemáticamente a gastos, mediante los cargos periódicos por su depreciación.
+b. Adición y mejora: Comprenden tanto unidades totalmente nuevas, como ampliaciones de las unidades antiguas y serán registradas por la Contabilidad como activos en la cuenta respectiva, ya que amplían la vida útil. En caso de duda sobre cómo ha de registrarse el activo, la Contabilidad consultará al área específica.
+c. Reparación ordinaria o extraordinaria: Pueden implicar el reemplazo de partes, o sólo reparación. Para efectos contables, todas las reparaciones y el mantenimiento preventivo que se realicen a los activos, independientemente de su monto, se registrarán como gastos ocurridos en el período en que se realicen aquellas.
+d. Sustitución: Supone el reemplazo de un bien por otro de similar calidad y características generales. El bien sustituido deberá ser retirado del registro de activos, realizando la Contabilidad el asiento de ajuste respectivo. La nueva adquisición deberá ser registrada como activo en la cuenta correspondiente.
+e. Persona usuaria de un activo fijo: Persona funcionaria al cual se entregue en custodia mobiliario, herramienta, equipo, maquinaria o vehículos para la ejecución de sus labores, en forma permanente o temporal.
+f. Vida útil: Se considerará para la capitalización de activos, la vida útil de los bienes adquiridos. En caso de que el bien tenga un costo superior, al momento indicado en el inciso inmediato anterior, pero una vida útil menor de un año, se podrá considerar su costo como un gasto, previa consulta con la Contabilidad, o en su defecto con la Dirección Administrativa.
