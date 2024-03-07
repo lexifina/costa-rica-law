@@ -1,0 +1,2 @@
+Artículo 20. Plaza de la Cultura.
+La Fundación podrá autorizar eventos y actividades por parte de terceros en la Plaza de la Cultura, con el objetivo de generar recursos para el financiamiento de los fines y objetivos de la Fundación. Para ello, la Junta Administrativa de la Fundación establecerá los procedimientos y condiciones que deberán cumplir los interesados; según lo definido en el Reglamento para el uso de las instalaciones en donde se ubica la Fundación Museos del Banco Central de Costa Rica.

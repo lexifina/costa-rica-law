@@ -1,0 +1,5 @@
+Artículo 17. Restauración de objetos.
+A partir del diagnóstico del estado de conservación de los objetos de colección y si se detectare un deterioro en algún objeto, la Fundación debe:
+a) Presentar un informe al BCCR en el que exponga con detalle las causas del deterioro y demuestre el procedimiento seguido para determinar las responsabilidades administrativas correspondientes en caso de que el deterioro no obedezca a un caso fortuito o fuerza mayor.
+b) Elaborar un plan de restauración que incluya la propuesta de tratamiento respectiva. Este plan debe comunicarse al BCCR a más tardar en el primer trimestre del año, para ser contemplado en la formulación presupuestaria oportunamente, salvo caso de urgencia debidamente fundamentado.
+El respectivo curador y el Departamento de Colecciones coordinarán con el BCCR las gestiones respectivas que cumplan la ley y el reglamento de contratación pública para la restauración de los objetos de colección. En caso de contar con presupuesto y ser aprobada, el BCCR gestionará su ejecución en conjunto con los expertos de la Fundación.
