@@ -1,0 +1,3 @@
+CAPÍTULO V.
+Normas generales de acceso y utilización de las canchas deportivas comunales generalidades.
+Artículo 16.-Derecho al acceso y uso de las instalaciones de la cancha. Pueden hacer uso de las instalaciones de las canchas, todas las personas, equipos deportivos, asociaciones deportivas, centros educativos de enseñanza de carácter público o privado o entidades que cumplan con los siguientes requisitos: Tengan como fin el fomento del deporte o la recreación. Práctica de algún tipo de deporte para los que sean aptas las canchas. Cancelen la tarifa establecida por el CCDR para el uso de las instalaciones. Actividades de carácter social y cultural que cumplan con los requisitos establecidos. Cumplan con la normativa de este reglamento.

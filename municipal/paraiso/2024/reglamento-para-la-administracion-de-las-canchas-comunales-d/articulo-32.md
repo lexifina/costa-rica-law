@@ -1,0 +1,1 @@
+Artículo 32.-Acceso gratuito a las canchas deportivas comunales. Exclusivamente tendrán acceso gratuito a las agrupaciones y equipos que presenten justificación al comité comunal y sean aprobados por estos.

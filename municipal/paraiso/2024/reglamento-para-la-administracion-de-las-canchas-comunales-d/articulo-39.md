@@ -1,0 +1,1 @@
+Artículo 39.-Son obligaciones los usuarios inscritos en cursos o actividades deportivas dentro de las Canchas. Cancelar las cuotas o tarifas establecidas, para el curso o actividad, de no ser así se le cancelará la inscripción. Participar de forma activa y siguiendo las indicaciones del encargado de impartir el curso o actividad deportiva.

@@ -1,0 +1,1 @@
+Artículo 13. Información a disposición de los interesados. El Comité Cantonal brindará por medio de su página de Facebook, o en sus oficinas información general sobre las instalaciones de las Canchas en su administración directa o indirecta.

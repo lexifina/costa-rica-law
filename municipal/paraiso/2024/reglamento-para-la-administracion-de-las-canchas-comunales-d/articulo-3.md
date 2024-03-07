@@ -1,0 +1,1 @@
+Artículo 3º-Canchas Deportivas Comunales. Las Canchas Deportivas Comunales, son propiedad de la Municipalidad, administradas por el Comité Cantonal de Deportes y Recreación con carácter recreativo y deportivo, y están destinadas a las diferentes disciplinas deportivas, principalmente de conjunto, así como actividades físicas, recreativas y de cultura en general.

@@ -1,0 +1,1 @@
+Artículo 17.-Prohibición de acceso. En el caso de que por alguna razón no se permita el acceso a las canchas a alguna entidad o usuario, solamente puede ser bajo una razón de peso y motivada por el CCDR de Paraíso y según la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 6º-Práctica del deporte. Las Canchas Deportivas Comunales, podrán ser utilizadas para el ocio, juegos estudiantiles, actividades de carácter social, además de competiciones si así se requiere y en las que las canchas sean aptas para tal fin, estas actividades deben cumplir con los requisitos pertinentes en cada caso según se requiera.

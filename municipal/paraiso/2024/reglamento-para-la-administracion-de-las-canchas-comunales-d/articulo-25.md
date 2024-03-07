@@ -1,0 +1,1 @@
+Artículo 25.-Aplicación de las normas particulares. Deberán aplicarse, además de las normas genéricas expuestas en el presente reglamento, las siguientes de forma individualizada. En caso de emergencia, los usuarios deberán evacuar las canchas.

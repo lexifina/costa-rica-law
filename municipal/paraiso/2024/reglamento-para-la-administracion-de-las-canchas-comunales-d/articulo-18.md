@@ -1,0 +1,1 @@
+Artículo 18.-Forma de acceso a las Instalaciones de las canchas deportivas comunales. El acceso a las canchas se realizará siempre por los lugares señalados para tal efecto. Se determinará algún miembro de la comunidad o del comité comunal para custodiar las llaves de la cancha.

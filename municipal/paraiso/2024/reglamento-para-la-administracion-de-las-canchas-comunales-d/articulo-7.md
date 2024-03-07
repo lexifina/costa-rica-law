@@ -1,0 +1,1 @@
+Artículo 7º-Desarrollo del reglamento. Se faculta en este debido reglamento al CCDR Paraíso, aplicar las resoluciones que vea pertinentes y oportunas, esto para tener una mejor prestación de servicio y uso por parte de los usuarios de las Canchas Comunales Deportivas y que no vayan contra lo dicho en el presente reglamento.

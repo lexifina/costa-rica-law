@@ -1,0 +1,1 @@
+Artículo 12.-Buzón de sugerencias. En las oficinas administrativas del CCDR de Paraíso, existirá un buzón de sugerencias, esto para que los usuarios realicen las mismas para la mejora del servicio brindado.

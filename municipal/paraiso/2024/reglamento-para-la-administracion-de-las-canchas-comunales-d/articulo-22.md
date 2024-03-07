@@ -1,0 +1,1 @@
+Artículo 22.-Responsabilidad daños de infraestructura. Cada usuario de las canchas deberá asumir responsabilidad por cualquier daño que se ocasione a la infraestructura o accidentes de la actividad y seguridad.

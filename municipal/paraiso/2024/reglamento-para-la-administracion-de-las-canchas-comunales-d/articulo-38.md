@@ -1,0 +1,1 @@
+Artículo 38.-Suspensión de cursos o actividades. El comité cantonal de deportes y recreación de Paraíso tendrá la potestad para suspender actividades o cursos que se vayan a realizar dentro de las canchas, con la debida justificación y en este caso se les reintegrará la tarifa pagada por las mismas.
