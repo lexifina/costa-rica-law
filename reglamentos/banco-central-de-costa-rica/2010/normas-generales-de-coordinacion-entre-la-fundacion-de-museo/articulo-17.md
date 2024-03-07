@@ -1,1 +1,0 @@
-Artículo 17.—Derogatoria. Deróguese las “Normas para la coordinación en la administración de los Museos del Banco Central de Costa Rica”, aprobadas por esta Junta Directiva en el artículo 7 del acta de la sesión 5044-2000, celebrada el 1º de agosto del 2000.

@@ -1,1 +1,0 @@
-Transitorio III.—Los aspectos regulados en esta normativa en relación con la colección de artes plásticas, entrarán en vigencia una vez que el Banco Central de Costa Rica haya trasladado oficialmente dicha colección a la Fundación, en los términos que para tal fin se establezcan por ambas instituciones.

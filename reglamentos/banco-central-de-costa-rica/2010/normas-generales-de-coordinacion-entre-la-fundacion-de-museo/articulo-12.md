@@ -1,3 +1,0 @@
-Artículo 12.—Reparaciones de los bienes inmuebles. La Fundación, de conformidad con los principios de eficiencia, economía y continuidad del servicio, podrá realizar aquellos arreglos y mantenimientos menores que requieran las instalaciones que ocupa, cuando por razones debidamente justificadas, el Banco Central no pueda solucionarlos con la urgencia que se requiera.
-La Fundación, previo a la ejecución de cualquier reparación menor, deberá informar por escrito al Banco Central su realización, salvo aquellos casos de urgencia apremiante los que se informarán por otros medios más expeditos.
-Las mejoras y las reparaciones que se realicen al amparo de esta posibilidad, quedarán a beneficio del bien.

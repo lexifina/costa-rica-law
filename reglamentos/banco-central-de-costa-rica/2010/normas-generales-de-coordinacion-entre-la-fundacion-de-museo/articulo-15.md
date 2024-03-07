@@ -1,1 +1,0 @@
-Artículo 15.—Alcance e interpretación de las normas. En lo no dispuesto en esta normativa o para su interpretación y alcance, las relaciones entre el Banco Central de Costa Rica y la Fundación se ajustarán a lo indicado en la Ley de Fundaciones y la Ley de la Fundación para Administrar los Museos del Banco Central de Costa Rica.

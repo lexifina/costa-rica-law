@@ -1,1 +1,0 @@
-Transitorio II.—La elaboración del registro de las colecciones a la que se refiere el artículo 5 iniciará con la entrada en vigencia de esta normativa, y su costo lo asumirá el Banco Central, con la guía técnica de la Fundación.

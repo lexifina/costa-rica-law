@@ -1,9 +1,0 @@
-Artículo 3º—Deberes y Responsabilidades de la Fundación. En la administración y manejo de los Museos del Banco Central de Costa Rica, la Fundación tendrá a su cargo las siguientes responsabilidades:
-a) Establecer, mantener, perfeccionar y evaluar el sistema de control interno, con el fin de garantizar el cumplimiento, suficiencia y validez de los controles operativos que velen por el logro de los objetivos y el resguardo del patrimonio bajo su administración.
-b) Remitir al Banco Central en los plazos y con el razonable detalle que se solicite, cualquier información que se considere necesaria o relevante para el cumplimiento de su deber de control global que le impone el ordenamiento jurídico.
-c) Suministrar al Banco Central cualquier otra razonable información que éste requiera para determinar el monto de la transferencia indicada en el inciso a) del artículo 2 de estas normas.
-d) Dictar políticas para la conciliación, arqueos e inventarios de las colecciones bajo su administración, así como para su adquisición, protección, divulgación, conservación y restauración, contemplando lo atinente a las políticas de seguridad y vigilancia de las instalaciones en las que operan los museos, las cuales deberán hacerse de conocimiento del Banco Central.
-e) Mantener actualizados los registros e inventarios de las colecciones, los procedimientos operativos correspondientes a todos los procesos de la Fundación y la identificación y valoración de los riesgos asociados a tales procesos, atendiendo lo dispuesto en la normativa aplicable a esta materia.
-f) Coordinar y verificar las condiciones bajo las cuales se puede realizar préstamos de objetos de colección a otras instituciones.
-g) Gestionar y cancelar los seguros requeridos para proteger adecuadamente los objetos que conforman las colecciones y los bienes inmuebles en los que opera la Fundación.
-h) Observar los principios de contratación administrativa, en la adquisición de bienes y servicios.

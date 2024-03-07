@@ -1,1 +1,0 @@
-Artículo 18.—Vigencia. Estas normas entrarán en vigencia en el momento en que adquiera firmeza su aprobación por parte de la Junta Directiva del Banco Central de Costa Rica y la Junta Directiva de la Fundación de Museos del Banco Central de Costa Rica.
