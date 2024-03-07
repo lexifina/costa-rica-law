@@ -1,0 +1,1 @@
+Artículo 9°-Garantía de quien denuncie y testifique. Ninguna persona que haya denunciado ser víctima de acoso y hostigamiento sexual en el deporte o haya comparecido como testigo alguna de las partes podrá sufrir por ello perjuicio personal. Quien divulgue información podrá ser suspendido o sancionado por la Junta Directiva del CCDR Paraíso.

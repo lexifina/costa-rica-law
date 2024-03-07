@@ -1,0 +1,1 @@
+Artículo 11.-Procedimiento en vía judicial. La víctima deberá hacer la denuncia ante la Fiscalía, paralelamente a la notificación del suceso ante la Junta Directiva, e informar sobre la resolución de la denuncia.

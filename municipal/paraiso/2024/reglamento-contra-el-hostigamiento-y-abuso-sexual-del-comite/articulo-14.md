@@ -1,0 +1,1 @@
+Artículo 14.-Sobre una denuncia falsa. Quien denuncie falsamente el acoso y hostigamiento sexual en el deporte u otra actividad referente al CCDR Paraíso, podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de difamación, la injuria o calumnia, según la Ley 4573, Código Penal, del 4 de mayo de 1970.

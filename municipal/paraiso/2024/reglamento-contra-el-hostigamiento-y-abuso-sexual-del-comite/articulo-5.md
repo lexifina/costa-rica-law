@@ -1,0 +1,1 @@
+Artículo 5°-Aplicación del proceso administrativo. El CCDR Paraíso estará en la obligación de aplicar el proceso administrativo a funcionarios administrativos y operativos del CCDR Paraíso, entrenadores y/o promotores recreativos que incumplan este Reglamento.

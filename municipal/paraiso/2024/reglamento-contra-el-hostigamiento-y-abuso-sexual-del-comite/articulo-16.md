@@ -1,0 +1,1 @@
+Artículo 16.-Causales de expulsión o despido. Cuando las pruebas sean contundentes, o la resolución de la denuncia demuestre que el acusado es culpable, éste será expulsado del CCDR Paraíso, y en caso de que haya una relación laboral será despedido o se cancelará el contrato de inmediato.

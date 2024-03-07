@@ -1,0 +1,1 @@
+Artículo 12.-Condiciones para las víctimas. El CCDR Paraíso será intermediario entre el ICODER y la víctima para ofrecerle asesoramiento, así también entre la víctima y la Municipalidad de Paraíso para ofrecer acompañamiento psicológico durante el procedimiento administrativo y judicial.

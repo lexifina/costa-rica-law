@@ -1,0 +1,1 @@
+Artículo 4°-Aplicación de este Reglamento. El presente reglamento se aplicará a todos los atletas, funcionarios del CCDR Paraíso, entrenadores y/o promotores recreativos, miembros de la Junta Directiva, usuarios de las instalaciones deportivas, público y espectadores de competencias, entrenamientos, partidos u otras actividades deportivas.
