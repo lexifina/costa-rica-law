@@ -1,0 +1,1 @@
+Artículo 22.-Acceso a zonas reservadas. Queda prohibido a los visitantes del parque el acceso a oficinas administrativas, boletería, baño de colaboradores y cualquier otra zona que se encuentre con reserva de derecho admisión.

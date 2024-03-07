@@ -1,0 +1,1 @@
+Artículo 15.-Identificación del personal. El personal encargado de prestar sus servicios para el parque deberá estar siempre debidamente identificado con el uniforme adecuado y portando un gafete con su nombre y apellido. Para esto el comité cantonal deberá brindar los elementos necesarios para que los mismos sean identificados correctamente.

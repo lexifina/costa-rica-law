@@ -1,0 +1,1 @@
+Artículo 8º-Lenguaje no discriminatorio por razón del sexo. Todos los artículos contemplados en el presente reglamento que por alguna razón hagan referencia a diferentes expresiones, sea en femenino o masculino, deberán entenderse que son referidos a ambas opciones, el lenguaje utilizado no es de ninguna manera discriminatorio.

@@ -1,0 +1,1 @@
+Artículo 6º-Práctica del deporte. El parque La Expresión, podrá ser utilizado para el ocio, juegos deportivos estudiantiles, actividades de carácter social, además de competiciones si así se requiere y en las que las instalaciones sean aptas para tal fin, mismas actividades deben cumplir con los requisitos pertinentes en cada caso que así se requieran.

@@ -1,0 +1,1 @@
+Artículo 42.-Son obligaciones de usuarios inscritos en cursos o actividades deportivas dentro del parque la Expresión. Cancelar las cuotas o tarifas establecidas, para el curso o actividad, de no ser así se le cancelará la inscripción. Participar de forma activa y siguiendo las indicaciones del encargado de impartir el curso o actividad deportiva.

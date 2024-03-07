@@ -1,0 +1,1 @@
+Artículo 41.-Suspensión de cursos o actividades. El Comité Cantonal de Deportes y Recreación de Paraíso tendrá la potestad para suspender actividades o cursos que se vayan a realizar dentro del parque, con la debida justificación y en este caso se les reintegrará la tarifa pagada por las mismas.

@@ -1,0 +1,1 @@
+Artículo 13.-Información a disposición de los interesados. El Comité Cantonal por medio de su página de Facebook, comunicaciones locales y/o en sus oficinas brindará información general sobre las instalaciones del parque La Expresión en su administración directa o indirecta.

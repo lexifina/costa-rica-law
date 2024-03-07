@@ -1,0 +1,1 @@
+Artículo 29.-Descripción. Es la instalación deportiva ubicada dentro del parque, dedicada a la práctica del baloncesto y fútbol. La misma debe ser utilizada únicamente para la práctica de estas dos disciplinas o bien, para alguna otra modalidad como zona de saltos o de lanzamientos.
