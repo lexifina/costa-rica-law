@@ -1,1 +1,0 @@
-Artículo 2º Objetivo. Este Reglamento tiene como objetivo informar a las personas cuáles son los requisitos que debe reunir para presentar una denuncia ante la Auditoria Interna del Colegio Universitario de Limón y el procedimiento que empleará este órgano fiscalizador para valorar si es procedente verificar los hechos que se denuncian.

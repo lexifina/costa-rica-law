@@ -1,1 +1,0 @@
-Artículo 12 Seguimiento. La Auditoría Interna, de acuerdo con los procedimientos establecidos, determinará los casos en que dará el seguimiento de las denuncias que remita a las diferentes unidades de la administración del Colegio Universitario de Limón, con el fin de que cumplan la obligación de atenderlas.
