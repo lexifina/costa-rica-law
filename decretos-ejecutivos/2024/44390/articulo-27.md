@@ -1,0 +1,1 @@
+Artículo 27.- Consulta de cumplimiento. El Banco Central de Costa Rica habilitará una consulta de cumplimiento, por medio de la cual el responsable del suministro de información de cada obligado podrá verificar si su representada cumplió o no, con el deber de presentar la declaración.

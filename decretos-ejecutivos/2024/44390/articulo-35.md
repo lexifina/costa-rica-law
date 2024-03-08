@@ -1,0 +1,1 @@
+Artículo 35.-Deber de confidencialidad. Los -funcionarios que tengan acceso a la información del RTBF están obligados a guardar la confidencialidad de la información durante la relación con este registro y aún después de finalizada: El incumplimiento de este deber será considerado una falta y será sancionado con lo dispuesto en la normativa interna de la respectiva institución.

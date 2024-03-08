@@ -1,0 +1,2 @@
+Artículo 23.-Las solicitudes de información. El Banco Central de Costa Rica, proveerá una funcionalidad que le permita al Ministerio de Hacienda y al Instituto Costarricense sobre Drogas solicitar la información dispuesta en el RTBF. En estos casos será necesario el liso de un certificado válido de firma digital.
+En la atención de estas solicitudes, el Banco Central de Costa Rica deberá verificar el cumplimiento de los requisitos dispuestos en los artículos 9 y 10 de la Ley 9416 y ante cualquier incumplimiento deberá rechazar la solicitud.

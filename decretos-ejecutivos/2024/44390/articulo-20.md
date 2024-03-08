@@ -1,0 +1,4 @@
+Artículo 20.-Organizaciones sin fines de lucro. Las organizaciones sin fines de lucro deberán registrarse en el RTBF, además deben proporcionar la información que permita identificar a sus beneficiarios finales y cumplir con el artículo 6 de la Ley 9416, en lo que corresponda.
+En los casos en que los donantes y destinatarios o beneficiarios de las contribuciones o donaciones, sean personas jurídicas o estructuras jurídicas, será suficiente declarar los datos que las identifiquen. Lo anterior no exime a éstos de la obligación de declarar corno sujetos obligados.
+Para efectos de este Reglamento y conforme lo establecido en la Ley 9416, el Instituto Costarricense sobre Drogas, podrá definir otras organizaciones sin fines de lucro, nacionales o internacionales, obligadas a declarar.
+En la Resolución Conjunta de Alcance General indicada en el artículo 15 del presente Reglamento, se establecerá el detalle de la información a suministrar.

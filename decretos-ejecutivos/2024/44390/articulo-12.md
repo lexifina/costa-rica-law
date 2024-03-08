@@ -1,0 +1,1 @@
+Artículo, 12.-Los beneficiarios finales en administradores ele recursos de terceros. Para los efectos de este Reglamento en atención a los tipos de obligados, se identificarán y determinarán de acuerdo con la metodología establecida en el artículo 9 del presente Reglamento.

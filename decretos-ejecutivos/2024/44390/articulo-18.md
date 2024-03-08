@@ -1,0 +1,3 @@
+Artículo 18.-Fideicomisos. Los fideicomisos deberán registrarse en el RTBF, además deben proporcionar la información que permita identificar a cada una de las partes del mismo y a cualquier otro beneficiario final.
+En el caso que el fideicomitente, el fiduciario, el fideicomisario, el protector (cuando exista) u otro beneficiario final sea un sujeto obligado, el responsable del suministro de información debe suministrar al RTBF, los datos de conformidad con las reglas establecidas en el artículo 6 de este Reglamento.
+En la Resolución Conjunta de Alcance General indicada en el artículo 15 del presente Reglamento, se establecerá el detalle de la información a suministrar.

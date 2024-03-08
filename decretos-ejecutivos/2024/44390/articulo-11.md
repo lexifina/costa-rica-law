@@ -1,0 +1,2 @@
+Artículo 11.-Los beneficiarios finales en organizaciones sin fines de lucro. Se detem1inan como beneficiarios finales a las personas físicas que ostenten un cargo dentro de la Junta Directiva, Consejo de Administración, directores o equivalente, así como el cuerpo gerencial.
+En caso de que alguno de los beneficiarios sea una entidad domiciliada en el extranjero, se aplica lo dispuesto en los artículos 13 y 14 del presente Reglamento.
