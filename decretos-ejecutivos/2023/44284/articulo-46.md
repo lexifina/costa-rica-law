@@ -1,0 +1,1 @@
+Artículo 46. - Los papeles de trabajo estarán compuestos con evidencia de tipo documental y digital, los cuales tendrán el valor de prueba suficiente, apropiada y competente, para sustentar los informes, documentos y demás productos que la Auditoría General emita en el cumplimiento de sus deberes.

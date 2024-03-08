@@ -1,0 +1,1 @@
+Artículo 64. - Sobre los resultados obtenidos del seguimiento de recomendaciones y disposiciones que realice la Auditoría General, podrá derivarse diferentes productos, sea informes de control interno, informes de relaciones de hechos y documentos de asesoría o de advertencia.

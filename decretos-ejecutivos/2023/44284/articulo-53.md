@@ -1,0 +1,3 @@
+Sección III
+De la Admisibilidad de Denuncias
+Artículo 53. - La Auditoría General recibirá las denuncias que presente toda persona debidamente identificada, en forma escrita, sobre posibles hechos irregulares respecto al uso y o manejo de fondos del patrimonio institucional, las cuales serán sometidas a un procedimiento de análisis de admisibilidad, de conformidad con lo establecido en el Manual de Normas Generales para la Recepción de Denuncias presentadas contra personas funcionarias del Ministerio de Seguridad Pública y los Lineamientos Generales para el análisis de presuntos hechos irregulares emitidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 32. - El/la Auditor (a) Interno (a) deberá definir y mantener actualizado en el Universo Auditable: los órganos, instancias, dependencias adscritas al Ministerio de Seguridad Pública y las personas físicas o jurídicas circunscritas al ámbito de acción de la Auditoría General, con fundamento en lo estipulado en la Ley General de Control Interno.

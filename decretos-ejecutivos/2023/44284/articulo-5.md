@@ -1,0 +1,1 @@
+Artículo 5. - Para el apropiado funcionamiento de la Auditoria General se contemplará el establecimiento y la actualización de su Plan Estratégico, que incluye la visión, misión, objetivos estratégicos y acciones tácticas para el cumplimiento de dichos objetivos.

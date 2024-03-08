@@ -1,0 +1,1 @@
+Artículo 30. - Los códigos de puestos asignados por Ley de Presupuesto de la República a la Auditoría General, no podrán ser distraídos y utilizados en otros cargos por parte de la Administración, sin que medie una autorización expresa del/la Auditor (a) Interno (a).

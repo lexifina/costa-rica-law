@@ -1,0 +1,1 @@
+Artículo 35. - Para gastos imprevistos y urgentes, así como para otras necesidades apremiantes, a solicitud expresa de la Auditoría General la Administración asignará un fondo de caja chica en efectivo.

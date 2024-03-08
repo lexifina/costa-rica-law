@@ -1,0 +1,1 @@
+Artículo 18. - La jornada laboral del Auditor (a) y el/la Subauditor (a) internos (as) será de tiempo completo, atendiendo las disposiciones que sobre esto contempla la Ley General de Control Interno y los lineamientos que emita el Órgano Contralor al respecto.

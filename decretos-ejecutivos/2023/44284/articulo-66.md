@@ -1,0 +1,3 @@
+Sección VI
+De las Responsabilidades y Sanciones
+Artículo. 66 - El incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el/la Auditor (a) y Subauditor (a) internos (as) y para las personas funcionarias de la Auditoría General, el/la Ministro (a), personas titulares subordinadas y demás personas funcionarias del Ministerio de Seguridad Pública. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según lo dispuesto en la Ley General de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y otra normativa interna que resulte aplicable.

@@ -1,0 +1,3 @@
+Sección II
+Independencia y Objetividad
+Artículo 6. - Las personas funcionarias de la Auditoría General deberán actuar con independencia y objetividad, confidencialidad y discreción; ética, competencia y pericia profesional; debido cuidado y educación profesional continua; así como estarse a los impedimentos asociados a los deberes y prohibiciones contempladas en la Ley General de Control Interno y demás causas de impedimento personal, contemplados en las disposiciones del ordenamiento jurídico, sean de rango legal o reglamentario, así como resoluciones, lineamientos, órdenes o circulares de órganos competentes, que regulan el quehacer de la Auditoría General.

@@ -1,0 +1,1 @@
+Artículo 16. - Para la ocupación de los cargos de Auditor (a) y de Subauditor (a) internos (as), se deberá de obedecer los requisitos establecidos por la Contraloría General de la República en la normativa respectiva, así como también los que se definan en el Manual Institucional de Clases y Cargos de la Gerencia de la Auditoría General del Ministerio de Seguridad Pública.

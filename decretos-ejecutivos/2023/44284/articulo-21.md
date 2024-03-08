@@ -1,0 +1,1 @@
+Artículo 21. - El/la Auditor (a) Interno (a) deberá establecer una programación de aseguramiento de calidad para la Auditoría General, que determine el cumplimiento real y eficiente de las funciones que le han sido encomendadas, de conformidad con la técnica profesional y las herramientas promulgadas por la Contraloría General de la República.

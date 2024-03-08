@@ -1,0 +1,1 @@
+Artículo 63. - La Auditoría General realizará las verificaciones y aplicará las pruebas que considere convenientes, para asegurarse la adecuada y oportuna implementación de las recomendaciones y disposiciones por parte de las instancias de la Administración responsables.

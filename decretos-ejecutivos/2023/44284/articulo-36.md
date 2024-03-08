@@ -1,0 +1,1 @@
+Artículo 36. - El/la Auditor (a) Interno (a) podrá solicitar a la Asesoría Jurídica del Ministerio, los servicios de asesoría y estudios jurídicos que requiera la Auditoría General, a fin de establecer y atender las necesidades de orden jurídico, conforme lo estipula la Ley General de Control Interno.

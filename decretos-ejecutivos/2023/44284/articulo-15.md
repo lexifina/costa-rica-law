@@ -1,0 +1,1 @@
+Artículo 15. - Los cargos de Auditor (a) y Subauditor (a) internos (as), deberán observar las respectivas funciones establecidas en el Manual Institucional de Clases y Cargos de la Gerencia de la Auditoría General del Ministerio de Seguridad Pública.

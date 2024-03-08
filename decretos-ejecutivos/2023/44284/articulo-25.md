@@ -1,0 +1,1 @@
+Artículo 25. - El/la Auditor (a) Interno (a) podrá periódicamente proponer al/la Jerarca, la creación de plazas y servicios que considere indispensable para el cumplimiento de su Plan Anual de Trabajo, debidamente justificado y conforme a la capacidad y disponibilidad presupuestaria del Ministerio.
