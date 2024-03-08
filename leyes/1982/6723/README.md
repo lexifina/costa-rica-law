@@ -1,6 +1,6 @@
 # Ley del Registro y Archivos Judiciales
 
-Ley N° 6723 del 1982-03-10. SINALEVI, ficha 34614: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34614&param2=113367&param3=1>.
+Ley N° 6723 del 1982-03-10. SINALEVI, ficha 34614: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34614&param2=139997&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 7 | 2012-08-21 | Ley 9055 | 2012-07-23 |
 | 5 de 7 | 2016-07-13 | Ley 9361 | 2016-06-16 |
 | 6 de 7 | 2018-05-21 | Circular 60 (2018-05-21) | 2018-05-21 |
+| 7 de 7 | 2024-03-08 | Ley 10453 | 2024-03-04 |
