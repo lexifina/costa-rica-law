@@ -1,0 +1,1 @@
+Artículo 58º. Conferencia final. Los resultados, conclusiones y recomendaciones, serán presentados ante el órgano auditado y los responsables de poner en práctica las recomendaciones, con el fin promover el intercambio y retroalimentación y determinar posibles discrepancias.

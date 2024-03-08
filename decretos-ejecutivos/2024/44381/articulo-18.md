@@ -1,0 +1,1 @@
+Artículo 18º. Pericia y cuidado profesional. El Auditor(a) Interno(a) debe cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio. Además, vigilará porque el personal bajo su cargo actúe de igual manera.

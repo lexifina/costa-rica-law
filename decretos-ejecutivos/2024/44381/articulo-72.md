@@ -1,0 +1,3 @@
+SECCIÓN VII
+Seguimiento de recomendaciones y disposiciones
+Artículo 72º. Sistema de seguimiento de recomendaciones. La Auditoría Interna, deberá establecer y mantener un sistema de seguimiento de las recomendaciones, observaciones y demás resultantes de su gestión, así como, las disposiciones emitidas por la Contraloría General de la República y demás recomendaciones dadas por las otras instituciones de control y fiscalización que correspondan, cuando sean de su conocimiento; para asegurar la oportuna, adecuada y eficaz atención por parte de la Administración Activa, sin menoscabo de la responsabilidad que a esta última le compete en la debida atención de las mismas, conforme lo establece la Ley N.° 8292 del 31 de julio del 2002, "Ley General de Control Interno".

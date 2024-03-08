@@ -1,0 +1,1 @@
+Artículo 79º. Regulaciones internas. La Auditoría Interna emitirá y mantendrá actualizados los procedimientos internos que regulen la planificación y programación, ejecución de procedimientos de verificación, comunicación de resultados, seguimiento a la implementación del plan de mejora y documentación y registros de la evaluación de la calidad.

@@ -1,0 +1,1 @@
+Artículo 46º. Control del plan de trabajo anual. La Auditoría Interna deberá ejercer un control continuo de la ejecución del plan anual de trabajo, efectuando la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.

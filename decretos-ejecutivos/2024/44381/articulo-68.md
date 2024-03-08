@@ -1,0 +1,9 @@
+Artículo 68º. Principios generales. Los siguientes principios deben ser aplicados en todas las investigaciones de presuntos hechos irregulares:
+a) Principio de legalidad. En el desarrollo de las investigaciones, las actuaciones de la Auditoría Interna estarán sometidas al ordenamiento jurídico.
+b) Principio de celeridad. La Auditoría Interna deberá ejercer su potestad de investigación dentro de un plazo razonable.
+c) Principio de independencia. La Auditoría Interna ejercerá sus funciones con total independencia funcional y de criterio, respecto del Jerarca y de los demás órganos de la Administración Activa; pudiendo establecer la estrategia, las vías de atención, las diligencias, las acciones, los mecanismos y los productos de auditoría que estime necesarios, para la atención de las gestiones en su conocimiento.
+d) Principio de objetividad. En el desarrollo de las investigaciones, la Auditoría Interna actuará con imparcialidad y neutralidad, de modo que, el análisis de los presuntos hechos irregulares, así como, la determinación de los eventuales responsables, no se vean comprometidos por intereses particulares.
+Para el cumplimiento de este principio, el auditor debe valorar tanto los elementos que sustenten una eventual responsabilidad, como aquellos que puedan eximir al presunto responsable.
+e) Principio de oficiosidad. Implica que, una vez iniciada la investigación, corresponde exclusivamente a la Auditoría Interna, promover las acciones necesarias hasta su conclusión.
+f) Eficacia: La Auditoría Interna efectuará el análisis y valoración de hechos presuntamente irregulares, de la manera más oportuna y en directa relación con el interés general y satisfacción del interés público.
+g) Eficiencia: A efectos del análisis y valoración de hechos presuntamente irregulares, la Auditoría Interna procurará utilizar de la manera más idónea, conveniente y oportuna, sus recursos y capacidad instalada, así como los de la Administración.

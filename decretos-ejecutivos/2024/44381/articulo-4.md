@@ -1,0 +1,1 @@
+Artículo 4º. Actualización del Reglamento. El Auditor(a) Interno(a) velará por la actualización del presente reglamento de conformidad con las regulaciones aplicables y propondrá al Jerarca institucional las modificaciones que estime necesarias.

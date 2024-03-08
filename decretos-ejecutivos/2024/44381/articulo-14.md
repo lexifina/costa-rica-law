@@ -1,0 +1,1 @@
+Artículo 14º. Dirección y supervisión. Corresponde al Auditor(a) Interno(a) ejercer la dirección y administración del personal de la Auditoría Interna, así como la planificación, supervisión y aprobación del trabajo desarrollado por el personal a su cargo.

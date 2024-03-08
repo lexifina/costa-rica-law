@@ -1,0 +1,2 @@
+Artículo 76º. Autoevaluación de la calidad. La Auditoría Interna realizará una vez al año una autoevaluación de la calidad, en la cual, se evaluará el aseguramiento de la calidad en el ejercicio de la Auditoría Interna para el período anual inmediato anterior según la normativa establecida por la Contraloría General de la República.
+Las evaluaciones internas de calidad deben incluir las revisiones periódicas mediante autoevaluación y las revisiones continuas del desempeño de la actividad de Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 51º. Evidencia. La recopilación de evidencia de los estudios de auditoría recabada por parte de la Auditoría Interna, se documentará por medio de papeles de trabajos técnicamente elaborados de conformidad con los procedimientos internos establecidos. La evidencia obtenida debe sustentar suficiente y competente los resultados obtenidos.

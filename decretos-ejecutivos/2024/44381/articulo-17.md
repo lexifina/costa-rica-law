@@ -1,0 +1,1 @@
+Artículo 17º. Objetividad individual. El Auditor(a) Interno(a) deberá tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia y la imagen de la Auditoría Interna.

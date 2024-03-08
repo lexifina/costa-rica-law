@@ -1,0 +1,1 @@
+Artículo 62º. Acceso a informes. Los informes de auditoría que no hacen referencia a eventuales responsabilidades una vez que adquieran firmeza, son de libre acceso por cualquier persona física o jurídica pública o privada.

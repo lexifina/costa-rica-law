@@ -1,0 +1,1 @@
+Artículo 37º. Registro presupuestario separado. El Departamento Financiero Contable del MAG, mantendrá un registro del presupuesto anual asignado a la Auditoria Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos para suministro regular al Audito Interno.

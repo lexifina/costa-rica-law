@@ -1,0 +1,1 @@
+Artículo 2º. Ámbito de aplicación. Este Reglamento es de carácter obligatorio para los funcionarios de la Auditoría Interna y para los funcionarios de la Administración Activa del Ministerio de Agricultura y Ganadería, en lo que les resulte aplicable.

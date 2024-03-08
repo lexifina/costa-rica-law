@@ -1,0 +1,1 @@
+Artículo 40º. Deberes. El Auditor(a) Interno(a) y demás funcionarios de la Auditoría Interna deberán cumplir con las obligaciones establecidas en el artículo 32 de la Ley N.º 8292 del 31 de julio del 2002, "Ley General de Control Interno", así como regulaciones conexas; conforme el marco legal y técnico.

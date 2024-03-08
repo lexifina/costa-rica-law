@@ -1,0 +1,1 @@
+Artículo 71º. Normativa interna. La Auditoría Interna, definirá y mantendrá actualizados su normativa interna, procedimientos, instructivos, formularios u otros necesarios a fin de incorporar en su gestión la resolución R-DC-102-2019, "Lineamientos generales para el análisis de presuntos hechos irregulares", de conformidad con lo señalado en esa misma resolución.

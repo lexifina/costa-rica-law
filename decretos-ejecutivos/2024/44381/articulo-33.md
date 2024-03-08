@@ -1,0 +1,1 @@
+Artículo 33º. Sobre el cumplimiento de plazos en suministro de información. El personal de la Auditoría Interna y el de las instancias fiscalizadas, tendrán responsabilidades en el cumplimiento de plazos, prórrogas y condiciones relativos al suministro, intercambio, acceso y custodia de información.

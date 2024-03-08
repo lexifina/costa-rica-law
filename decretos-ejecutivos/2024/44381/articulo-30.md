@@ -1,0 +1,1 @@
+Artículo 30º. Archivo permanente. La Auditoría Interna manejará el archivo de la información sobre las regulaciones legales y de otros, que tenga injerencia sobre su ámbito de acción y su actividad como tal, mediante los sistemas y medios impresos, digitales, electrónicos y de cualquier otra naturaleza que sobre el particular mantiene la Institución.
