@@ -1,0 +1,2 @@
+Artículo 10.-Recursos y Administración. Los costos de envío de las obras a los respectivos festivales o premios internacionales deberán ser sufragados por las personas que ostenten la autoría o los derechos de explotación de las obras.
+Los recursos económicos para cubrir los apoyos derivados del presente Reglamento, estarán determinadas por la disponibilidad del presupuesto ordinario anual del CCPC y por la aprobación del Consejo Nacional de Cinematografía.

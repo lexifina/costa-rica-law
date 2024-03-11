@@ -1,0 +1,2 @@
+Artículo 6º-Jurado Seleccionador. Para los casos en que dos 0 más obras se postulen a un mismo festival o premio internacional, el CCPC conformará un jurado seleccionador, compuesto por un mínimo de tres integrantes, que recomendará la obra seleccionada. Los miembros de este jurado deberán contar con suficientes atestados profesionales y trayectoria en el sector audiovisual costarricense o internacional.
+No podrán conformar este jurado, personas vinculadas a alguna de las obras postulantes.
