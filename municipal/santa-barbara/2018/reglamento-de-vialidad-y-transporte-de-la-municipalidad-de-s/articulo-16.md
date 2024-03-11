@@ -1,4 +1,1 @@
-Artículo 16. Recuperación de derechos viales en la red vial cantonal.
-Es responsabilidad de la Municipalidad velar por el respeto a los derechos viales del cantón, quien deberá de aplicar los procedimientos administrativos correspondientes a quien imposibilite el paso, cierre o estreche total o parcialmente una vía pública.
-Se aplicará la jerarquía vial establecida en este reglamento a la red vial del cantón de Santa Bárbara, por lo que la municipalidad deberá paulatinamente ir recuperando los derechos viales, estandarizando la medida respectiva a su jerarquía como futuras ampliaciones viales a todo plano que requiera del visado municipal tanto para segregación, remodelación, reconstrucción o construcción de edificaciones.
-Esta directriz será de acatamiento obligatorio y serán los departamentos encargados del control urbano quienes deban hacer valer esta solicitación.
+Artículo 16. Recuperación de derechos viales en la red vial cantonal. (Derogado en sesión N° 201 del 11 de marzo de 2024)

@@ -1,2 +1,1 @@
-Artículo 2. Otras definiciones.
-Para efectos del presente Reglamento también se utilizará las definiciones presentes en la Ley General de Caminos Públicos de Costa Rica, número 5060 del 22 de agosto de 1972 y sus reformas, la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, número 9078, así como del Decreto Ejecutivo 34624-MOPT y cualquier otra normativa vigente relacionada.
+Artículo 2. Otras definiciones. (Derogado en sesión N° 201 del 11 de marzo de 2024)

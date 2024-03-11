@@ -14,3 +14,4 @@ Reglamento de vialidad y transporte de la Municipalidad de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-24 | la propia norma |
+| 2 | 2024-03-11 | Reglamento municipal 201 (2024-03-11) |

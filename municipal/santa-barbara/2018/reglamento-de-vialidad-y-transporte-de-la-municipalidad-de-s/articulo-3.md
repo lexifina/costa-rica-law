@@ -1,3 +1,1 @@
-Artículo 3. Ámbito y carácter del Reglamento
-El presente reglamento es de aplicación para el cantón de Santa Bárbara, provincia de Heredia, sin perjuicio de lo que estipula y reglamenta la Ley General de Caminos Públicos (Ley Nº 5060), el “Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones” y el “Reglamento de Construcciones” del INVU.
-El “Reglamento de Vialidad en el cantón de Santa Bárbara”, establece los parámetros de aplicación para el crecimiento, desarrollo y mejoramiento de la red vial cantonal competencia de la Municipalidad, documento al que habrán de ajustarse todos los planes y proyectos en los que se definan las características de los elementos viales.
+Artículo 3. Ámbito y carácter del Reglamento. (Derogado en sesión N° 201 del 11 de marzo de 2024)

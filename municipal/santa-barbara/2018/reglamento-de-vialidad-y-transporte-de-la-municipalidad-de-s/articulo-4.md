@@ -1,2 +1,1 @@
-Artículo 4. Marco normativo
-Todo lo correspondiente a vialidad cantonal se complementa con la normativa emitida por los órganos competentes a nivel nacional, regional y local. Tales como: Ley General de Caminos Públicos, No. 5060; Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, No. 9329; Ley de Administración Vial, N° 6324; Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, No. 9078; Reglamento a la Ley 9329, decreto Nº 40137-MOPT, entre otros. Regirá lo establecido en este Plan Regulador y sus Reglamentos de Zonificación, Fraccionamientos y Urbanizaciones y el Reglamento de Construcciones.
+Artículo 4. Marco normativo. (Derogado en sesión N° 201 del 11 de marzo de 2024)
