@@ -1,2 +1,0 @@
-Artículo 4º—Recepción de Solicitudes. El Centro abrirá un período de recepción de solicitudes, para que los postulantes presenten sus obras, indicando el certamen internacional para el que optan.
-Este período, contemplará el tiempo suficiente para analizar las solicitudes recibidas y posteriormente proceder al envío oportuno de las obras seleccionadas, a los distintos festivales internacionales, lo que dependerá directamente, del momento en que se abran las convocatorias de dichos festivales y el plazo que éstos otorguen para la inscripción de proyectos.

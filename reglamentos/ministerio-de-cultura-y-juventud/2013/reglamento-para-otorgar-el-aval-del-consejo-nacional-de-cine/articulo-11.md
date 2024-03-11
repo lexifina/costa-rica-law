@@ -1,2 +1,0 @@
-Artículo 11.—Derechos de Autor. Corre bajo exclusiva responsabilidad del productor o de quien ostente el ejercicio de los derechos patrimoniales de la obra cinematográfica, cubrir el pago u obtener la cesión de los derechos de autor y cualquier otra carga por concepto de propiedad intelectual, que se requiera.
-La Dirección del Centro y el Consejo Nacional de Cinematografía, verificarán el cumplimiento de este requisito y no admitirán proyectos que irrespeten lo establecido por la Ley No. 6683, Ley de Derechos de Autor y Derechos Conexos del 14 de octubre de 1982.
