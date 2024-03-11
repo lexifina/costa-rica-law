@@ -1,0 +1,1 @@
+Artículo 21.-Las solicitudes serán analizadas por la Coordinación de la OFIM, quien de acuerdo con la disponibilidad de recursos y la fecha de solicitud definirá el momento en que se atenderá cada solicitud y la persona funcionaria encargada, de manera que pueden quedar solicitudes en lista de espera.

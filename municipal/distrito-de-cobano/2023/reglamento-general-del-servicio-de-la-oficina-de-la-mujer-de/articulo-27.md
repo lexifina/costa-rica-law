@@ -1,0 +1,1 @@
+Artículo 27.-En caso de que la persona usuaria incumpla los lineamientos para la participación a grupos e incumpla con la confidencialidad se le impedirá su participación en el o los grupos de la OFIM.

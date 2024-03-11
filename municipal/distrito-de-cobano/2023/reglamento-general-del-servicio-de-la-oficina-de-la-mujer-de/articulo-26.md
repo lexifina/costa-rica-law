@@ -1,0 +1,1 @@
+Artículo 26.-Quienes participen en los grupos deberán llenar un consentimiento informado y un compromiso ético de confidencialidad para poder participar en el grupo el cual se dará de manera física a la persona usuaria.

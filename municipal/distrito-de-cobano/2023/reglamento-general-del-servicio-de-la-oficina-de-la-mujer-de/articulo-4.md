@@ -1,0 +1,1 @@
+Artículo 4º-La OFIM del Concejo Municipal de Cóbano, contará con personal municipal necesario para brindar los servicios esenciales que se regulan en este reglamento, y podrá articular con instituciones públicas y privadas para cumplir con sus objetivos y plan de trabajo.

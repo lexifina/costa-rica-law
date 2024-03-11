@@ -1,0 +1,1 @@
+Artículo 28.-El trabajo con los grupos se realizará de forma presencial, la persona profesional a cargo del grupo llevará un control de asistencia a cada sesión y podrá elaborar constancias de participación a solicitud de la persona usuaria.

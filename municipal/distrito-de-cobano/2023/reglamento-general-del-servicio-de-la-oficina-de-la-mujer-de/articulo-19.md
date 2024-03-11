@@ -1,0 +1,1 @@
+Artículo 19.-Solicitud del servicio: Estas charlas se pueden brindar a grupos organizados, comunidades, empresas u otros del distrito de Cóbano. Además, la coordinación promoverá e impartirá capacitaciones en diferentes áreas.

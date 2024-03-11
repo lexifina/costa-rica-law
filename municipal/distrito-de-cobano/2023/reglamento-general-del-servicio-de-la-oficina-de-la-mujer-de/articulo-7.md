@@ -1,0 +1,1 @@
+Artículo 7º-El Concejo Municipal del Distrito de Cóbano y la Intendencia dispondrán para uso de la OFIM la infraestructura necesaria para brindar los servicios generales que ofrece a la población del distrito, como espacio de oficina, sala de sesiones donde se podrán realizar procesos grupales de charlas, talleres, capacitaciones, reuniones, y otras.

@@ -1,0 +1,1 @@
+Artículo 35.-La profesional o profesionales de la OFIM trabajarán con autonomía, basándose en planes estratégicos y operativos. El trabajo se evaluará por medio del cumplimiento de los objetivos. Deberá obligatoriamente rendir informes semestrales al Concejo Municipal del Distrito de Cóbano.

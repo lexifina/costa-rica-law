@@ -1,0 +1,1 @@
+Artículo 5º-Descripción profesional a cargo de la coordinación de la OFIM: De acuerdo al Manual descriptivo de puestos integral para el régimen municipal, fundamentado en el artículo 129 del Código Municipal. Este manual además de contemplar los requisitos mínimos para el puesto describe sus deberes y responsabilidades.

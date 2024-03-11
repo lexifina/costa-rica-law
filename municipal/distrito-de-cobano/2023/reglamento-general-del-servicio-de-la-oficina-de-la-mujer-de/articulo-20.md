@@ -1,0 +1,1 @@
+Artículo 20.-Medios para solicitar el servicio: Los grupos organizados, comunidades, empresas u otros del distrito de Cóbano que deseen solicitar a la OFIM charlas, talleres, cine foros u otras actividades deberán hacerlo mediante una solicitud escrita.

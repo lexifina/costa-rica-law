@@ -1,0 +1,1 @@
+Artículo 25.-Contraindicaciones: Los grupos no son recomendables para personas con trastornos mentales severos, en crisis, con ideas suicidas u homicidas o con depresiones severas. Por lo que quedarán sujeto a valoración de la coordinación su participación en los grupos. No se permite la participación de mujeres en estado de ebriedad o bajo el consumo de alguna droga.
