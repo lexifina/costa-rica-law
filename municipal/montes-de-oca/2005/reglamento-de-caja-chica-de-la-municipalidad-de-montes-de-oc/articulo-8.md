@@ -1,1 +1,0 @@
-Artículo 8°—Autorización. Los vales de Caja Chica deberán ser firmados por el funcionario autorizado para tal fin. Para efectos de validez, dicha firma deberá ser confrontada con un registro de firmas, que deberá crearse y mantenerse en custodia en los Departamento de Tesorería y de Proveeduría.

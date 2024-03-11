@@ -1,8 +1,0 @@
-Artículo 2°—Utilización de los fondos de Caja Chica. La Caja Chica se utilizará para realizar vales provisionales de dinero efectivo para reconocer los conceptos que se ajustan a las siguientes estipulaciones:
-a. Gastos de traslado, alimentación y permanencia en el territorio nacional.
-b. Erogaciones por gastos en adquisición de bienes y servicios siempre y cuando el bien sea registrado y asignado siguiendo los procedimientos de administración de inventarios, y que las compras de maquinaria, mobiliario y equipo, herramientas y suministros hayan sido debidamente proyectadas, planificadas y presupuestadas.
-c. No podrá reconocerse por este sistema gastos relativos a maquinaria, mobiliario, equipo y herramientas, salvo la compra de herramientas manuales no eléctricas, teclados y “mouses” de computadoras.
-d. No debe utilizarse cuando el valor de la compra sobrepase el límite autorizado por la Contraloría General de la República, que en la actualidad asciende a la suma de colones ¢41.300,00, según se establece en el artículo 19 del presente Reglamento.
-e. Se utiliza cuando la compra califica como urgente e imprevisible o que se determine la conveniencia y necesidad de la misma, así como por considerarse gastos menores, donde el costo administrativo de tramitarlos por otra modalidad supere los beneficios correspondientes y el visto bueno de la Dirección Financiera.
-f. No debe utilizarse cuando los bienes estén disponibles en bodega.
-g. Queda prohibido el pago de sueldos, jornales y servicios especiales sujetos a regulaciones del Código de Trabajo, Caja Costarricense de Seguro Social y otras afines.

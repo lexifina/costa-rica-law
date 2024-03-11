@@ -1,1 +1,0 @@
-Artículo 30.—Reintegro de Caja Chica. Para el reembolso del fondo de Caja Chica debe utilizarse el formulario denominado “Solicitud de Reintegro de Caja Chica”; de conformidad con lo establecido en los artículos 15 y 16 de este Reglamento.

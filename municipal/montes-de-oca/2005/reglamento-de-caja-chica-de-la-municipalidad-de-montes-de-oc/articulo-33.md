@@ -1,1 +1,0 @@
-Artículo 33.—Obligación de informar. Es obligación del Tesorero Municipal, velar porque se cumpla este reglamento y de informar de inmediato a la Alcaldía y la Auditoría Interna cualquier irregularidad que detecte en el manejo de los fondos.

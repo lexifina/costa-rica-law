@@ -1,2 +1,0 @@
-Artículo 43.—Vigencia. El presente Reglamento fue aprobado por el Concejo Municipal, mediante acuerdo Nº ------- de la sesión ordinaria Nº ----- _____celebrada el día ------ _del año 2004. El presente cuerpo normativo rige a partir de su publicación en el Diario Oficial La Gaceta.
-NOTA: Según información suministrada por la Municipalidad de Montes de Oca, este reglamento fue aprobado en sesión N° 142 de 17 de enero de 2005.
