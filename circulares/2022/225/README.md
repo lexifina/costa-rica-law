@@ -13,3 +13,4 @@ Grabación y transcripción de los acuerdos tomados en las sesiones de los difer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-07 | la propia norma |
+| 2 | 2024-03-11 | Circular 45 (2024-03-11) |
