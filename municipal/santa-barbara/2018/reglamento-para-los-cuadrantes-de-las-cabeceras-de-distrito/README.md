@@ -15,3 +15,4 @@ Reglamento para los cuadrantes de las cabeceras de Distrito habilitados mediante
 | --- | --- | --- |
 | 1 | 2018-07-24 | la propia norma |
 | 2 | 2020-01-27 | Reglamento municipal 195 (2020-01-27) |
+| 3 | 2024-03-11 | Reglamento municipal 201 (2024-03-11) |

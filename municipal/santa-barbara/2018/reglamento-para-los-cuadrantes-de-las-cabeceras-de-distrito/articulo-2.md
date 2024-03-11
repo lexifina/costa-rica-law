@@ -1,1 +1,1 @@
-Artículo 2º—Se establece únicamente en los cuadrantes de las cabeceras de distrito una “Zona de Crecimiento Urbano” según planos que se publican como anexos a este acuerdo y cuyos originales pueden ser consultados en la Municipalidad en el Departamento de Ingeniería y en el siguiente sitio web: www.santabarbara.go.cr.
+Artículo 2º-(Derogado en sesión N° 201 del 11 de marzo de 2024)
