@@ -1,2 +1,0 @@
-Artículo 3º-Se establece un fondo de Caja Chica para la Administración, así como otro independiente del de la Administración para la Unidad Técnica de Gestión Vial, cuyo monto será de tres salarios base para cada uno de los fondos de Caja Chica (Administración y Unidad Técnica de Gestión Vial), ello conforme con la Ley N° 7337, el cual podrá ser modificado por el Concejo Municipal según las necesidades futuras de la municipalidad, previo estudio elaborado por la Tesorería Municipal y avalado por el Alcalde.
-(Así reformado en sesión ordinaria Nº 51 del 10 de mayo del 2021)
