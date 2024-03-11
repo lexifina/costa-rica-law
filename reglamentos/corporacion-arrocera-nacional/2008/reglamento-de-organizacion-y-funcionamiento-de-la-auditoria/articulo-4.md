@@ -1,2 +1,0 @@
-Artículo 4º—Fundamento legal. La Auditoría Interna de la Corporación Arrocera Nacional está creada con base en lo dispuesto por su ley de creación, Ley N° 8285 y su Reglamento 4. Así como en el artículo 20 de la Ley General de Control Interno N° 8292.
-4 Reglamento a la Ley Nº 8285 de Creación de la Corporación Arrocera Nacional, Decreto Nº 32968-MAG-MEIC. Publicado el 18 de abril del 2006 en La Gaceta Nº 74.

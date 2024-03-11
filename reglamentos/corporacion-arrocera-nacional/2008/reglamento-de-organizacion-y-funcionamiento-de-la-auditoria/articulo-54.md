@@ -1,1 +1,0 @@
-Artículo 54.—Incorporación de profesionales o técnicos de diferentes disciplinas. La Auditoría Interna podrá solicitar la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.

@@ -1,1 +1,0 @@
-Artículo 11.—Prohibiciones. El Auditor Interno y los demás funcionarios de la Auditoría Interna tendrán las prohibiciones estipuladas en el artículo 34 de la Ley General de Control Interno, así como las demás que se establezcan en leyes y reglamentos internos de la institución o similares.

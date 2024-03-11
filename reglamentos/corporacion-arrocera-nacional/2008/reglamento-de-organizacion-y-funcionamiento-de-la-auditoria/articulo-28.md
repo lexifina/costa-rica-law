@@ -1,2 +1,0 @@
-Artículo 28.—Lineamientos para la presentación del plan de trabajo. El plan de trabajo se debe presentar de conformidad con los lineamientos emitidos por la Contraloría General de la República.13
-13 Véase “Lineamientos generales que deben observar las auditorías internas y las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República en la preparación de sus planes de trabajo” publicado en La Gaceta Nº 226 del 28 de noviembre de 1994.

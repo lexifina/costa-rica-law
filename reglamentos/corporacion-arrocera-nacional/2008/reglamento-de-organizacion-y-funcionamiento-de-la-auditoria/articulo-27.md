@@ -1,2 +1,0 @@
-Artículo 27.—Plan de trabajo. El Auditor Interno establecerá un plan de trabajo anual congruente con la planificación estratégica, cuyo contenido abarque todas las actividades que se deben realizar durante el año. Debe mantenerlo actualizado y se debe expresar adecuadamente en el presupuesto respectivo.
-El plan de trabajo de la actividad de Auditoría Interna debe estar basado en un proceso continuo de valoración del riesgo. En este proceso deben tenerse en cuenta los criterios de riesgo de la alta dirección y de la Junta Directiva, entre otros que se consideren necesarios.

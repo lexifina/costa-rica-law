@@ -1,2 +1,0 @@
-Artículo 70.—Atención de las denuncias presentadas ante la Auditoría Interna. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los fondos públicos o que afecten la Hacienda Pública, así como lo conceptuado en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
-El Auditor Interno determinará los procedimientos para la atención, la admisibilidad y el trámite de las denuncias que se presenten y que sean atinentes al ámbito de su competencia.

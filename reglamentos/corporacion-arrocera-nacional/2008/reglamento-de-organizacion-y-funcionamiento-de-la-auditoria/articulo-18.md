@@ -1,1 +1,0 @@
-Artículo 18.—Disciplinas. Las distintas disciplinas que sustentan el perfil de los funcionarios de la Auditoría Interna deberán concordar con su estructura y con los servicios que presta Corporación Arrocera Nacional.

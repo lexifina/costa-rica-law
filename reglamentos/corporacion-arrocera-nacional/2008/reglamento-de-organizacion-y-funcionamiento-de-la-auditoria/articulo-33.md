@@ -1,2 +1,0 @@
-Artículo 33.—Informe de fin de gestión. Al concluir su relación laboral por la causa que fuere, el auditor interno deberá presentar un informe de fin de gestión, de acuerdo con las directrices emitidas por la Contraloría General de la República 17 y, cuando proceda, por la administración activa.
-17 Véase “Directrices que deben observar los funcionarios obligados a presentar el informe final de su gestión, según lo dispuesto en el inciso e) del artículo 12 de la Ley General de Control Interno” publicadas en La Gaceta Nº 131 del 07 de julio del 2005

@@ -1,1 +1,0 @@
-Artículo 43.—Comunicación de los riesgos. Cuando el Auditor Interno demuestre fehacientemente que la falta de recursos de la Auditoría Interna propicia la ausencia de fiscalización oportuna del patrimonio institucional, debe informar a la Junta Directiva del riesgo que está asumiendo y de la eventual imputación de responsabilidad que esta situación puede generarle.

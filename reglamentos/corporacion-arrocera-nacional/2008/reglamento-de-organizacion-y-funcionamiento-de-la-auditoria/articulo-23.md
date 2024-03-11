@@ -1,4 +1,0 @@
-Artículo 23.—Garantía de inamovilidad. El Auditor Interno de Corporación Arrocera Nacional sólo podrá ser suspendido o destituido de su cargo por justa causa y por decisión emanada de la Junta Directiva, previa formación de expediente con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República.10
-10 Véase artículo 15 de la Ley Orgánica de la Contraloría General de la República, Ley Nº 7428
-Para la suspensión o destitución del Auditor Interno, se deberá cumplir lo regulado por el artículo 15 de la Ley Orgánica de la Contraloría General de la República así como lo establecido por el órgano contralor en la normativa correspondiente.11
-11 Véase “Lineamientos sobre la garantía de inamovilidad de los auditores y subauditores internos regulados en el artículo 15 de la Ley Orgánica de la Contraloría General de la República”, publicado en La Gaceta Nº 236 del 8 de diciembre del 2006

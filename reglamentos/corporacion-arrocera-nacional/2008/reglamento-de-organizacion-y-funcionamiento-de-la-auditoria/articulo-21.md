@@ -1,2 +1,0 @@
-Artículo 21.—Dependencia y regulaciones administrativas. El auditor dependerá orgánicamente de la Junta Directiva, la que establecerá las regulaciones de tipo administrativo que les serán aplicables a dichos funcionarios. Sin embargo, dichas regulaciones no deberán afectar negativamente la actividad de la Auditoría Interna, la independencia funcional y de criterio del auditor interno y su personal; en caso de duda, la Contraloría General de la República dispondrá lo correspondiente.8
-8 Véase artículo 24 de la Ley General de Control Interno
