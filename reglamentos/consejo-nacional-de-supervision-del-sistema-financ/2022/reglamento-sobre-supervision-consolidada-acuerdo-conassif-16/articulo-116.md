@@ -32,7 +32,7 @@ e. Controladoras y empresas integrantes de grupos y conglomerados financieros su
 b. Reforma al primer párrafo del artículo 2, modificación del párrafo final del artículo 29 y modificaciones a Anexos 1, 2, 4 del Reglamento de Información Financiera, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero en los artículos 6 y 5 de las actas de las sesiones 1442-2018 y 1443-2018, ambas celebradas el 11 de setiembre de 2018, en los siguientes términos:
 "Artículo 2. Alcance.
 Las disposiciones incluidas en este Reglamento son aplicables a las entidades y empresas sujetas a la supervisión de la Superintendencia General de Entidades Financieras (SUGEF), de la Superintendencia General de Valores (SUGEVAL), de la Superintendencia de Pensiones (SUPEN), de la Superintendencia General de Seguros (SUGESE), a las controladoras y entidades de los grupos y conglomerados financieros; a los fondos administrados por éstos, a los fideicomisos y fondos de administración que utilicen en la realización de actividades de intermediación financiera, así como a los emisores no financieros o vehículos de propósito especial autorizados por SUGEVAL para hacer oferta pública de valores.
-[.]"
+[...]"
 "Artículo 29. Información financiera
 [...]
 En el caso de empresas del grupo o conglomerado, las controladoras deberán presentar los estados financieros auditados de esas empresas en el mismo plazo de presentación de los estados financieros auditados de la controladora."
@@ -42,12 +42,12 @@ c. Reforma al Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF
 "SUBCUENTA
 121.99 Otros instrumentos financieros al valor razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior e incluye otros activos para negociar no comprendidas en las subcuentas anteriores.
 CUENTAS ANALÍTICAS
-[.]
+[…]
 No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
 12199M03 | Participaciones fondos inversión cerrados del país | x | x |
 12199M04 | Participaciones fondos inversión cerrados del exterior | x | x |
 12199M05 | Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados | x | x |
-[.]"
+[...]"
 2. Se adicionan las siguientes subcuentas, denominadas 123.12 Reporto tripartito posición vendedor a plazo - Recursos propios y 123.14 Operaciones Diferidas de Liquidez -Recursos propios y sus respectivas cuentas analíticas de la cuenta 123 Inversiones al Costo Amortizado, conforme con el siguiente texto:
 "123.12 Reporto y reporto tripartito posición vendedor a plazo - Recursos propios CONCEPTO: En esta subcuenta se registran los importes desembolsados por la entidad con recursos propios, para la adquisición, a través de una bolsa de valores, de reporto y reporto tripartito (recompras) con el compromiso de revenderlos en un plazo y a un precio convenido. En el caso de los reportos tripartitos, los instrumentos financieros subyacentes se mantienen en un fideicomiso de garantía, administrado por la Bolsa Nacional de Valores para garantizarle al inversionista (posición vendedora a plazo) la recuperación de lo invertido.
 Además, esta subcuenta incluye las operaciones de reporto, que consiste en un contrato u operación de crédito mediante el cual el reportador adquiere por una suma de dinero, la propiedad de instrumentos financieros y se obliga a transferir al reportado la propiedad de otros tantos instrumentos financieros de la misma especie en el plazo convenido, y contra el reembolso del mismo precio más un premio.
@@ -69,7 +69,7 @@ No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
 d. Reforma al Anexo 2: Plan de cuentas para las entidades supervisadas por SUGESE y Anexo 4: Catálogo de cuentas para las entidades supervisadas por SUGESE, del Reglamento de Información Financiera, para adicionar las siguientes subcuentas y cuentas analíticas pertenecientes a la subcuenta 1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados y a la cuenta 1.020.030 Inversiones al Costo Amortizado, conforme con el siguiente texto:
 "1.020.010.990 Otros instrumentos financieros al Valor Razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior y en otros activos para negociar no comprendidas en las anteriores subcuentas.
 CUENTAS ANALÍTICAS
-[.]
+[...]
 1.020.010.990.M.030 Participaciones fondos inversión cerrados del país
 1.020.010.990.M.040 Participaciones fondos inversión cerrados del exterior
 1.020.010.990.M.050 Ajuste por valuación de otros instrumentos financieros al valor razonable con cambios en resultados"
@@ -98,41 +98,41 @@ f. Reforma al Reglamento sobre autorizaciones de entidades supervisadas por la S
 3. Reforma al primer párrafo del artículo 2, en los siguientes términos:
 "Artículo 2. Alcance
 Este Reglamento es aplicable a las entidades supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y para las entidades que pretenden iniciar actividades de intermediación financiera en Costa Rica, dentro de estas últimas se incluyen a los bancos extranjeros que pretendan operar en Costa Rica por medio de sucursales bancarias.
-(.)"
+(...)"
 4. Reforma al segundo párrafo del artículo 4, en los siguientes términos:
-"(.)
+"(…)
 Toda solicitud debe presentarse por escrito ante la SUGEF, debe estar firmada por el representante legal de la entidad o por quien ejercerá la representación de la entidad que presenta la solicitud y cumplir con la totalidad de los requisitos establecidos en la legislación y en este Reglamento.
-(.)"
+(…)"
 5. Reforma al artículo 5, en los siguientes términos:
 "Para las solicitudes que se indican en este reglamento, el órgano supervisor responsable es la SUGEF."
 6. Reforma al segundo párrafo del artículo 8, en los siguientes términos:
-"(.)
+"(...)
 Cuando el órgano resolutivo sea el CONASSIF, la SUGEF debe remitir a éste, dentro del plazo indicado en el párrafo anterior, un dictamen previo con su recomendación sobre la solicitud, con base en la información recibida y los criterios de valoración establecidos en este Reglamento.
-(.)"
+(…)"
 7. Reforma al primer párrafo del artículo 17, en los siguientes términos:
 "En el caso de una solicitud de autorización para fusión, el Plan Operativo de Integración a que se refiere el anexo 3 de este Reglamento, debe presentarse a la SUGEF dentro del plazo de tres meses contados a partir de la fecha de comunicación de la autorización de la fusión. El Plan Operativo de Integración deberá garantizar la integración plena de las entidades participantes en un plazo de doce meses a partir de la presentación del plan de integración.
-(.)"
+(…)"
 8. Reforma al inciso a) del artículo 28, en los siguientes términos:
-"(.)
+"(…)
 a) Cuando la Ley que regula sus actividades, faculta expresamente a la entidad supervisada en el territorio costarricense a participar en el capital social de otras sociedades. La totalidad de las empresas en las que participe la entidad financiera forman parte del grupo o conglomerado financiero al que pertenezca la entidad, con excepción de lo establecido en el Reglamento sobre Supervisión Consolidada.
-(.)"
+(…)"
 9. Reforma al primer párrafo del artículo 46, en los siguientes términos:
 "La valoración de la solicitud de autorización de entidades financieras supervisadas por la SUGEF, se realiza considerando las siguientes áreas de análisis según corresponda:
-(.)"
+(...)"
 10. Reforma al inciso a) y el último párrafo del artículo 47, en los siguientes términos:
-"(.)
+"(…)
 a) Solvencia económica: El socio cuenta con un patrimonio neto que cubre el monto de los aportes de capital que le corresponde realizar para la constitución de un nuevo intermediario.
-(.)
+(...)
 No se autorizará la constitución de un nuevo intermediario cuando para alguno de sus socios, persona física, se presente en el plazo indicado cualquiera de los actos detallados en la Sección II "Antecedentes disciplinarios y judiciales" del anexo 13 de este Reglamento."
 11. Reforma al primer párrafo y los incisos a) y b) del artículo 48, en los siguientes términos:
 "Los incisos del a) al g) de esta área de análisis deben considerarse en el caso de la constitución de un nuevo intermediario financiero, y en el caso de sucursales de bancos extranjeros, corresponderán al marco de gobernanza y gestión de riesgos aprobado por el Órgano de Dirección del banco extranjero que regirá las operaciones de la sucursal bancaria costarricense.
-(.)
+(...)
 a) Proyecto de negocios: El proyecto de negocios es razonable para las características del mercado objetivo y los supuestos de participación de mercado se sustentan en proyecciones viables.
 b) Factibilidad financiera: Las proyecciones financieras para un horizonte de tres años evidencian la continuidad de las operaciones.
-(.)"
+(...)"
 12. Reforma al primer párrafo del artículo 50, en los siguientes términos:
 "Los criterios para valorar el capital de un intermediario financiero son los siguientes:
-(.)"
+(...)"
 g. Reforma al Artículo 33. Concentración de riesgo de crédito del "Reglamento sobre Administración Integral de Riesgos", Acuerdo SUGEF 2-10, conforme con el siguiente texto:
 "Artículo 33. Concentración de riesgo de crédito
 La Declaración de Apetito por Riesgo deberá establecer políticas claras para identificar, evaluar e informar sobre las concentraciones de exposiciones sujetas a riesgo de crédito para deudores individuales, así como para un grupo de interés económico y grupo vinculado a la entidad. Se debe contar con sistemas de información adecuados que permitan la identificación de los grupos de interés económico a los que pertenecen los deudores, en este último caso en tanto dicha identificación sea posible, así como políticas diferenciadas cuando un grupo de interés económico concentre un porcentaje significativo del negocio, el cual será definido por cada entidad.
@@ -165,6 +165,8 @@ Disposición final única. Entrada en vigor.
 La vigencia de este reglamento es:
 a. El Título I, II y V rigen a partir del 1ero de enero del 2023.
 b. El Capítulo I, II y III del Título III Supervisión, Organización y Funcionamiento, rigen a partir del 1ero de enero del 2023.
-c. El Capítulo IV, V y VI del Título III Supervisión, Organización y Funcionamiento, rige a partir a partir del 1ero de enero de 2024. Antes de esta fecha, las entidades financieras y los grupos o conglomerados financieros supervisados por SUGEF continúan aplicando lo dispuesto en el Reglamento sobre límites de crédito a personas individuales y grupos de interés económico, Acuerdo SUGEF 5-04, y Reglamento sobre el grupo vinculado a la entidad, Acuerdo SUGEF 4-04.
+c. El Capítulo IV, V y VI del Título III Supervisión, Organización y Funcionamiento, rige a partir del 1° de julio de 2025. Antes de esta fecha, las entidades financieras y los grupos o conglomerados financieros supervisados por Sugef continúan aplicando lo dispuesto en el Reglamento sobre límites a las operaciones activas, directas e indirectas, de una entidad supervisada, Acuerdo Sugef 4-22.
+(Así reformado el inciso anterior mediante sesión N° 1847-2024 del 11 de marzo del 2024)
 d. El Título IV rigen a partir del 1ero de enero del 2025. Antes de esta fecha, los grupos o conglomerados financieros supervisados continúan aplicando lo dispuesto en el Reglamento sobre suficiencia patrimonial de grupos y conglomerados financieros, Acuerdo SUGEF 21- 16.
-e. Título VI Información para la supervisión consolidada: rigen a partir del 1ero de enero del 2023, excepto por los incisos c, d, e, f, i del artículo 116 que rigen a partir el 1 de enero del 2024.
+e. Título VI Información para la supervisión consolidada: rige a partir del 1° de enero del 2023, excepto por los incisos c, d, e, f, i del artículo 116 que rigen a partir el 1° de julio del 2025.
+(Así reformado el inciso anterior mediante sesión N° 1847-2024 del 11 de marzo del 2024)

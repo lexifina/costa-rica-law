@@ -15,3 +15,4 @@ Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22)
 | --- | --- | --- |
 | 1 | 2022-10-18 | la propia norma |
 | 2 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
+| 3 | 2024-03-11 | Reglamento 1847 (2024-03-11) |
