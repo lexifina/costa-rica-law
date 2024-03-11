@@ -14,3 +14,4 @@ Reglamento interior para el trámite de elección y sustitución de personas int
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-04 | la propia norma |
+| 2 | 2024-03-11 | Reglamento municipal 11 (2024-03-11) |
