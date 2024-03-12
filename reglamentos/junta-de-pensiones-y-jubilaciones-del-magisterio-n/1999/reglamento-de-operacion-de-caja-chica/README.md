@@ -19,3 +19,4 @@ Reglamento de operación de caja chica
 | 4 | 2016-09-07 | Reglamento 99 (2016-09-07) |
 | 5 | 2017-04-21 | Reglamento 43 (2017-04-21) |
 | 6 | 2021-08-18 | Reglamento 92 (2021-08-18) |
+| 7 | 2024-03-12 | Reglamento 30 (2024-03-12) |
