@@ -1,0 +1,1 @@
+Artículo 19.-De las sesiones. El Comité deberá reunirse en Sesión Ordinaria una vez al mes, en el lugar, día y hora que sus miembros determinen y, en Sesión Extraordinaria, las veces que sea convocada por escrito por el (la) presidente, o en ausencia de este, por el (la) vicepresidente.

@@ -1,0 +1,1 @@
+Artículo 10.-Aportes de la Municipalidad. Los aportes de la Municipalidad y sus rendimientos para todos los efectos son recursos públicos bajo custodia del Comité Administrador del Fondo. Estos recursos estarán reflejados en un Catálogo de Cuentas, que permita identificarlos de manera unívoca y separada.

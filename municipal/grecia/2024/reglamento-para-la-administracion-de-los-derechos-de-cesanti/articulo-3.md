@@ -1,0 +1,1 @@
+Artículo 3º-Objetivos. El Comité Administrador del Fondo de Cesantía tiene como objetivo administrar los fondos de cesantía que corresponde a las personas trabajadoras al tenor de lo establecido por el artículo 37 de la Doceava Convención Colectiva, garantizando la seguridad y eficiencia del mismo.

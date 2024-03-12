@@ -1,0 +1,1 @@
+Artículo 2º-De la aplicación. Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento, son de aplicación obligatoria, para miembros nombrados en el Comité de Administración.

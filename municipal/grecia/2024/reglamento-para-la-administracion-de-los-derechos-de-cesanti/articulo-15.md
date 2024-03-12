@@ -1,0 +1,1 @@
+Artículo 15.-De los afiliados despedidos sin responsabilidad patronal o que presenten su renuncia al cargo. Los afiliados(as) que sean despedidos sin responsabilidad patronal o que presenten su renuncia al cargo, tendrán derecho a la cesantía acumulada a su favor de acuerdo con lo estipulado por el Comité.

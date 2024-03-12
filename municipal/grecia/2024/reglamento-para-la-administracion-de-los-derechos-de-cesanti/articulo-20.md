@@ -1,0 +1,1 @@
+Artículo 20.-De las Obligaciones de los miembros del Comité. Los miembros del Comité, están en la obligación de asistir a todas las sesiones del Comité a las cuales han sido convocados, además deberán participar activamente en las funciones y comités a los cuales han sido nombrados.

@@ -1,0 +1,2 @@
+Artículo 18.-De la Designación de los cargos. El Comité, en su seno, nombrará un presidente quien durará en su cargo un año en el ejercicio de sus funciones, luego de forma rotativa y alternativamente lo ejercerán los Sindicatos o la Municipalidad, debiendo nombrarse para el primer período al representante de la Municipalidad y así sucesivamente cada año.
+Asimismo, de su seno el Comité nombrará un(a) vicepresidente, un secretario (a) y un (a) tesorero (a).

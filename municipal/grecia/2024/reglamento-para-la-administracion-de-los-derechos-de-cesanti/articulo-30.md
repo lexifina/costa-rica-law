@@ -1,0 +1,1 @@
+Artículo 30.-De las disposiciones del Comité. El Comité establecerá los procedimientos para una sana administración del fondo, acorde a la legislación aplicable y vigente, siendo obligación de todos los miembros acatar las disposiciones que al efecto tome dicha Junta.

@@ -1,0 +1,2 @@
+Artículo 29.-De la cancelación de beneficios. Todo pago por concepto de los beneficios que establece este Reglamento se efectuará de acuerdo a los procedimientos dispuestos en este Reglamento.
+En el caso de que el afiliado (a) o sus beneficiarios (as) estuvieran imposibilitados para recibir los beneficios que le corresponden, el comité deberá ordenar que los pagos se entreguen a quien tenga la facultad legal para recibirlos, la cual se demostrará aportando la resolución judicial que así lo determine, debido a la existencia de imposibilidad.

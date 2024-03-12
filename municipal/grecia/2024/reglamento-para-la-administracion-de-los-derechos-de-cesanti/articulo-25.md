@@ -1,0 +1,1 @@
+Artículo 25.-De los informes anuales. El Comité, en el mes de febrero de cada año, una vez analizados y ratificados en su seno, los estados financieros auditados, al 31 de diciembre del año anterior trasladará informe al Concejo Municipal y a los afiliados, sobre las operaciones financieras del Fondo realizadas durante el período anterior.
