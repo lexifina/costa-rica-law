@@ -1,1 +1,0 @@
-ARTÍCULO 78.- Los sub-comités se reunirán ordinariamente una vez al mes, el día y hora acordados en la sesión inaugural. Sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas. El quórum se logrará con la presencia de tres de sus miembros.

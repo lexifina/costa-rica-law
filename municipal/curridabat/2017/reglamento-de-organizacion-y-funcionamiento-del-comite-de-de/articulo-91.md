@@ -1,1 +1,0 @@
-ARTÍCULO 91.- Vencido el plazo para recibir los nombres de los delegados para la asamblea, se levantará el padrón respectivo por parte de la respectiva Comisión Especial, el que deberá exhibirse en las oficinas del Comité Cantonal, así como en la Municipalidad, con no menos de siete días naturales previo a la celebración de la respectiva asamblea

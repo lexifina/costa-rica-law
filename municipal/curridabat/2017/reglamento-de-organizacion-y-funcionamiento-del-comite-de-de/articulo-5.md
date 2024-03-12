@@ -1,1 +1,0 @@
-ARTÍCULO 5.- De conformidad con el artículo 170 del Código Municipal, el Comité podrá presupuestar y destinar recursos para la ejecución directa e indirecta, según procede conforme a derecho, de los programas y proyectos que gestione y promueva. Estos deben ajustarse al Plan Operativo Anual, previamente aprobado por el Concejo.

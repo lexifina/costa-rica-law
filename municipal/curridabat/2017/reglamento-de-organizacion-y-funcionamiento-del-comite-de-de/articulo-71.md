@@ -1,1 +1,0 @@
-ARTÍCULO 71.- Los Comités comunales deberán llevar un archivo administrativo y financiero, en el que consten los informes referentes a su gestión, los que podrán ser solicitados por el Comité Cantonal en cualquier momento.

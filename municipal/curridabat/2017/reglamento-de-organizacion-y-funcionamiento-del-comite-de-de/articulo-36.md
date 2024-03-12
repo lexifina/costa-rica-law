@@ -1,1 +1,0 @@
-ARTICULO 36.- El Director (a) Administrativo(a) es un funcionario de carrera administrativa con conocimientos amplios del campo deportivo en general. Será nombrado por la Junta Directiva del Comité previo concurso por idoneidad comprobada realizado por la Oficina de Recursos Humanos de la Municipalidad.

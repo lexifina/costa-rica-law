@@ -1,2 +1,0 @@
-ARTÍCULO 18.- Cuando un miembro incurra en cualquiera de las causales indicadas en los dos artículos anteriores, la Junta Directiva, y/o quien se encuentre informado; deberá comunicarlo por escrito al Concejo Municipal, indicando las razones para hacer efectiva su sustitución.
-El Concejo Municipal, procederá de inmediato a la sustitución del miembro separado, aplicando lo dispuesto en el artículo 13 de este reglamento; previo debido proceso y mientras se realizan los procedimientos de asambleas y designaciones pertinentes.

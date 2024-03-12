@@ -1,1 +1,0 @@
-ARTÍCULO 101.- El Comité Cantonal de Deportes y Recreación podrá autorizar la realización de eventos en las instalaciones deportivas que impliquen el cobro por concepto de ingreso y venta de alimentos, siempre y cuando obtenga beneficio económico por tal autorización, para lo cual el Concejo Municipal definirá el canon en el convenio de autorización respectivo.

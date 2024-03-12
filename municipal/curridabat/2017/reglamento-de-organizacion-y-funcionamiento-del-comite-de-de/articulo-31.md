@@ -1,2 +1,0 @@
-ARTÍCULO 31.- El proyecto de acta de cada sesión deberá entregarse a los miembros de la Junta Directiva del Comité, a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas. El contratista designado para este efecto será el responsable de levantar las actas, en ellas se harán constar los acuerdos tomados.
-Las actas deberán asentarse puntualmente en el Libro de Actas debidamente autorizado por la Auditoría Municipal que al efecto llevará el Comité. El resguardo y custodia de dicho libro es competencia del Director Administrativo.

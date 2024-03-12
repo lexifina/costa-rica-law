@@ -1,1 +1,0 @@
-ARTÍCULO 74.- De la convocatoria que realice la Junta Directiva del Comité Cantonal, los Comités y sub-comités comunales enviarán dos representantes junto con un informe de las actividades realizadas.

@@ -1,1 +1,0 @@
-ARTÍCULO 100.- Por medio del convenio respectivo, se podrá autorizar el préstamo gratuito de las instalaciones y espacios físicos, cuando a criterio del Comité Cantonal resulte necesario para el desarrollo de los equipos y así sea demostrado por la asociación deportiva y recreativa respectiva, que se encuentre debidamente inscrita ante el comité cantonal.

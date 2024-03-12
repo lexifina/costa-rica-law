@@ -1,1 +1,0 @@
-ARTÍCULO 97.- La designación se realizará la segunda quincena de junio cada dos años, para lo cual se requerirá mayoría simple de los miembros del Concejo. En caso de empate en los votos obtenidos por dos o más postulantes, se realizará una nueva votación con los que resultaron empatados. De persistir el empate se elegirá al candidato de mayor edad.

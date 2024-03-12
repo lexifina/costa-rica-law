@@ -1,1 +1,0 @@
-ARTÍCULO 92.- Las distintas asociaciones y organizaciones, remitirán el estado de sus candidatos, máximo dos días antes de la celebración de la respectiva asamblea. Los postulantes quedarán debidamente registrados ante la Comisión Especial correspondiente, la cual levantará una lista que será exhibida el día de la asamblea.

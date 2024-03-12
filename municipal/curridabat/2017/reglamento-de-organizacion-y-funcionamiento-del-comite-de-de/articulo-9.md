@@ -1,2 +1,0 @@
-ARTÍCULO 9.- No podrán formar parte del Comité Cantonal, los Regidores, Síndicos, el alcalde, Vicealcaldes, Auditor, Sub-auditor, Tesorero, Contador, sus cónyuges o parientes en línea directa o colateral hasta tercer grado inclusive.
-Dicha prohibición alcanza a los integrantes de Juntas Directivas de Asociaciones de Desarrollo Comunal, Asociaciones Específicas, Asociaciones Deportivas y Comités Comunales.

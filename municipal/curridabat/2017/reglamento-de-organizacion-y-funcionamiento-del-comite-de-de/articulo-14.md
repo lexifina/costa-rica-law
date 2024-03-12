@@ -1,1 +1,0 @@
-ARTÍCULO 14.- La Junta Directiva, presentará el Plan Operativo Anual, en el plazo en la segunda semana de julio de cada año; que deberá ser aprobado por el Concejo Municipal. El Comité vigilará que su actuar se ajuste a dicho plan y será responsable de establecer controles para que los Comités y las Asociaciones lo cumplan.
