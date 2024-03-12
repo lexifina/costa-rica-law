@@ -1,1 +1,0 @@
-Artículo 56.-El Departamento de Contabilidad deberá diseñar un sistema para la implementación de mecanismos de control de ingreso y salida de activos de tecnologías de información de las oficinas municipales.

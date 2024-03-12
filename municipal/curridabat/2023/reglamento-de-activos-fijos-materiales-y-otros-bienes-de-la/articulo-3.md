@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la adquisición de los activos
-Artículo 3º-La adquisición de los activos debe realizarse conforme a la ley de la Administración Financiera de la República y la ley de la Contratación Administrativa, así como otras disposiciones conexas. Para evitar compras por concepto de sustitución del mobiliario y equipo, cuyo estado de funcionamiento sea adecuado. El Departamento de Presupuesto y la Encargada de Salud Ocupacional, deberán obtener el visto bueno previo por escrito del Director Administrativo, para este tipo de adquisiciones. Esto con el fin de realizar compras superfluas o similares.

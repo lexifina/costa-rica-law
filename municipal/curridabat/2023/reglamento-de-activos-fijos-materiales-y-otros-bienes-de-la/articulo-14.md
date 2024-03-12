@@ -1,1 +1,0 @@
-Artículo 14.-Si el documento o factura no coincide con las condiciones estipuladas en la orden de compra correspondiente, el Departamento de Proveeduría, devolverá los documentos o factura al Proveedor.

@@ -1,1 +1,0 @@
-Artículo 58.-El Departamento de Tecnologías de Información, el Departamento de Contabilidad y la Unidad de Bienes Municipales son responsables de respaldar la información que se encuentre en los activos tecnológicos que sean remitidos a la Comisión Municipal para implementación del procedimiento de desecho.

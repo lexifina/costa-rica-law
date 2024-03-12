@@ -1,1 +1,0 @@
-Artículo 67.-Para garantizar la confidencialidad e integridad de la información sensible cuando está almacenada, se deben utilizar herramientas de cifrado que protejan la información haciéndola ilegible por aquellos que no tengan la llave de cifrado.

@@ -1,2 +1,0 @@
-Artículo 21.-La Dirección, Jefatura o Encargado de Unidad deberá enviar oficio a la Dirección Administrativa con copia a la Jefatura del Departamento de Contabilidad,
-informando el motivo de la baja en el momento que suceda o se descubra el hecho que motiva la solicitud, aportando las especificaciones o características del activo y el número de activo. Este oficio deberá venir firmado por el Superior Inmediato Director, Jefatura o Encargado de Unidad, así como por el funcionario al que se le asignó como responsable del activo.

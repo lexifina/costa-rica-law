@@ -1,1 +1,0 @@
-Artículo 59.-El Departamento de Tecnologías de Información será el responsable de dictaminar los componentes y riesgos de aquellos activos que reciba el Gobierno Local en donación; con el propósito de mitigar riesgos por contaminación de las herramientas y programas tecnológicos.
