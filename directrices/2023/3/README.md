@@ -14,3 +14,4 @@ Implicaciones de la entrada en vigor de Ley 10389, denominada “Condonación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-24 | la propia norma |
+| 2 | 2024-03-12 | Directriz 1 (2024-03-12) |
