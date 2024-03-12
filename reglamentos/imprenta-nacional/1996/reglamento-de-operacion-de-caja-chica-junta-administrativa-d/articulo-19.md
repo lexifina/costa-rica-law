@@ -1,2 +1,0 @@
-Artículo 19.-Trámite para la liquidación de erogaciones no autorizadas mediante adelanto de dineros
-Si algún funcionario realiza las compras que se consignaron en el adelanto, pero, además incurre en otros pagos, debe tramitar mediante una boleta adicional, la autorización y la obtención del contenido presupuestario para incorporarlos en la liquidación. De no obtener la autorización o no contarse con contenido presupuestario, no podrá hacer uso de su liquidación y por lo tanto, deberá reintegrar el monto correspondiente a los pagos no autorizados previamente.

@@ -1,2 +1,0 @@
-Artículo 3°-Adquisiciones mediante Caja Chica. Los fondos de Caja Chica se destinarán para realizar gastos menores por la adquisición de bienes y servicios indispensables y urgentes, así como de las partidas, grupos y subpartidas presupuestarias autorizadas conforme al Clasificador por el Objeto del Gasto del Sector Público para Compras por Fondo Fijo-Caja Chica que emite la Tesorería Nacional del Ministerio de Hacienda, siempre y cuando cumpla con el requisito de indispensable o urgentes.
-(Así reformado en sesión N° 41 del 29 de noviembre de 2016)

@@ -1,2 +1,0 @@
-Artículo 22.-Plazo especial para la liquidación de dineros autorizados
-En los casos en que se realicen erogaciones de dinero sin que medie adelanto de este y se cuenta con la autorización de la Dirección Ejecutiva, se pagarán los comprobantes que tengan una antigüedad no mayor a cinco días hábiles a partir de su fecha de emisión; siempre que se cuente con contenido presupuestario.

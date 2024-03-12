@@ -1,3 +1,0 @@
-Artículo 16.-Adelantos de dinero por concepto de viáticos
-Cuando se trate de adelantos por concepto de viáticos dentro del territorio nacional, la liquidación se hará en el formulario establecido para este efecto.
-Estos adelantos deberán solicitarse a más tardar un día hábil anterior a la gira, además debe llevar el visto bueno del Departamento Financiero en cuanto al contenido presupuestario y demás requisitos establecidos en el "Reglamento de Gastos de Viaje y Transporte para Funcionarios del Estado".

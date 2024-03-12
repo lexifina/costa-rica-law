@@ -1,2 +1,0 @@
-Artículo 17.-Respaldo de pago por medio de factura comercial
-Todo pago por medio de Caja Chica, estará respaldado por una factura comercial debidamente emitida. Los casos que por razón de los servicios no existiera factura que justifique el gasto, (fotocopias, aparcamiento de vehículos, alimentación en el área metropolitana, especies fiscales, sellos de correo, gastos de transporte), se confeccionará una boleta o factura que compruebe el mismo, señalando el beneficiario, el servicio prestado, el monto correspondiente, la firma y el número de cédula del beneficiario.
