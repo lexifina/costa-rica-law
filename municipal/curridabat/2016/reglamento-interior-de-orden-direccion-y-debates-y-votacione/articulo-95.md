@@ -1,2 +1,0 @@
-CAPÍTULO XII. DE LA AUDITORÍA INTERNA
-ARTÍCULO 95. El Concejo Municipal, por votación de mayoría calificada designará un Auditor interno, por tiempo indefinido. Éste podrá ser suspendido o destituido de su cargo por causa justa siguiendo las normas y principios del debido proceso, así como cualquier ley atinente, mediante acuerdo adoptado por una votación de dos tercios del total de los miembros del Concejo Municipal.

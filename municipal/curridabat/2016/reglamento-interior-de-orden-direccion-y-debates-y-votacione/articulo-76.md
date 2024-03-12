@@ -1,1 +1,0 @@
-ARTÍCULO 76. Iniciado cada trimestre, el funcionario Municipal deberá enviar a la Secretaría Municipal los documentos de asuntos resueltos, para que estos sean enviados al archivo municipal; con nota suscrita por el Presidente en forma conjunta, de la cual remitirán copia a la Auditoria.

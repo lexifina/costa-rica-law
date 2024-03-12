@@ -1,1 +1,1 @@
-ARTÍCULO 48. Para dar cumplimiento a una de las principales funciones de la Alcaldía Municipal, el Alcalde debe coordinar con el directorio del Concejo Municipal, la presentación ante éste y la difusión pública de su programa de gobierno, a lo cual el Directorio Municipal no podrá negar el espacio necesario sea en una o varias sesiones municipales, según lo considere pertinente la Alcaldía Municipal.
+ARTÍCULO 48. Este Reglamento deroga en su totalidad cualquier otro Reglamento anterior de Orden, Dirección, Debates y Votaciones del Concejo Municipal de Curridabat.

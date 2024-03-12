@@ -16,3 +16,4 @@ Reglamento Interior de Orden, Dirección y Debates y Votaciones del Concejo Muni
 | 1 | 2016-04-27 | la propia norma |
 | 2 | 2016-05-05 | Reglamento municipal 1 (2016-05-05) |
 | 3 | 2017-10-03 | Reglamento municipal 75 (2017-10-03) |
+| 4 | 2024-03-12 | Reglamento municipal 202 (2024-03-12) |

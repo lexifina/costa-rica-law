@@ -1,1 +1,0 @@
-ARTÍCULO 67. Las sesiones de las Comisiones son públicas. No obstante, el presidente de la Comisión, por razones de oportunidad o conveniencia, podrá declarar en memorial razonado se realice en forma privada.

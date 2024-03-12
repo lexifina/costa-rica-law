@@ -1,2 +1,0 @@
-CAPÍTULO XI. DE LOS RECURSOS.
-ARTÍCULO 90. Con las salvedades establecidas en los artículos 154, 156 y 160 de Código Municipal, los acuerdos del Concejo Municipal pueden ser objetados por el Alcalde interponiendo el veto conforme lo establece el Código Municipal o por cualquier interesado mediante el Recurso de Revocatoria o el de Apelación, de conformidad con los plazos y requisitos establecidos por el Código Municipal. El interesado podrá optar por presentar solamente uno de los recursos.

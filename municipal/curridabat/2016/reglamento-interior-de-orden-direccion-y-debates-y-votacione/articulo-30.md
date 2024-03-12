@@ -1,2 +1,5 @@
-ARTÍCULO 30. Las mociones de orden sobre un asunto en discusión se podrán presentar y poner a debate tan pronto termine su exposición el miembro del Concejo que esté haciendo uso de la palabra. Las mociones de orden se conocerán en estricto orden de presentación, una vez que el orador de turno haya concluido su intervención. Se concederá la palabra al proponente y a un regidor o síndico por cada una de las fracciones políticas representadas en el Concejo, por un periodo máximo de cinco minutos cada uno, si así lo solicitan, luego de lo cual se pondrá a votación.
-Si la moción es aprobada de inmediato se ejecutará lo propuesto en ella. Luego se pondrá a discusión la moción siguiente, siempre que no sea excluyente con relación a la anteriormente aprobada, en cuyo caso se tendrá por automáticamente desechada. Sobre una moción de orden no cabe otra que pretenda posponerla.
+CAPÍTULO VIII
+DE LA SECRETARIA DEL CONCEJO MUNICIPAL.
+ARTÍCULO 30. Además de los deberes señalados en el artículo 53 del Código Municipal, la Secretaria Municipal, está obligada a cumplir los otros deberes y facultades que este Reglamento le fija.
+El nombramiento de la persona titular de la Secretaría Municipal es de resorte exclusivo del Concejo Municipal.
+El Secretario Municipal, de acuerdo con el artículo 53 del Código Municipal, sólo podrá ser suspendido o destituido de su cargo si existiera justa causa, la cual deber ser demostrada mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa del funcionario, conforme la normativa competente.

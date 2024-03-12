@@ -1,14 +1,1 @@
-CAPÍTULO V. DE LA PRESIDENCIA MUNICIPAL
-CAPÍTULO 42. Corresponde a la Presidencia Municipal, junto a las otras atribuciones conferidas en el Código Municipal, demás leyes pertinentes y en este Reglamento a continuación:
-a) Abrir, presidir, suspender y cerrar las sesiones del Concejo Municipal.
-b) Preparar el orden del día, de conformidad con lo establecido en la ley y en este reglamento, para lo cual recibirá el apoyo personal y técnico de la Secretaria Municipal.
-c) Poner a discusión y realizar las votaciones de los temas contenidos en la agenda del día de cada sesión del Concejo que preside, asimismo anunciar las resultas de los temas de la agenda.
-d) Conceder el uso de la palabra a los miembros del Concejo Municipal y la Alcaldía, así como retirarla a quien intervenga sin permiso, se exceda en sus expresiones en cuanto a la moral y las buenas costumbres, o sobrepase el tiempo reglamentado de su uso..
-e) Mantener el orden de las sesiones. Hacer retirar a aquellas personas que no guarden la compostura debida, interrumpan o impidan la celebración de la sesión municipal.
-f) Firmar junto con el titular de la Secretaria Municipal, las actas de las sesiones, una vez que se encuentren aprobadas.
-g) Nombrar a las personas que integrarán las Comisión permanentes y especiales, procurando que en todas las Comisión participen representantes de los partidos políticos representados en el Concejo y señalar el plazo en que las Comisiones especiales deben rendir sus dictámenes.
-h) Guardar la debida compostura y decoro en el uso de sus facultades y atribuciones y desempeñar el cargo dentro de las disposiciones del Código Municipal y de este Reglamento.
-i) Seleccionar aquellos asuntos que, de acuerdo con su criterio, y en lo posible en coordinación con la Alcaldía Municipal deben ser de trámite urgente por el bien del municipio.
-j) Conceder permiso a los miembros del Concejo Municipal, a los síndicos, y a los asesores, para salir temporalmente de una sesión, durante un lapso no mayor de quince minutos. Pasado este periodo el regidor o síndico que no se reintegre a la sesión perderá la dieta correspondiente, y si el asesor(a) y/o funcionarios municipales compelidos(as) a estar durante toda la sesión municipal por sus funciones, y no regresaren durante este lapso de tiempo o más, le será tramitada una sanción laboral ante el Departamento de Personal, teniéndose dicha conducta como falta grave. Igual cometerá la falta grave laboral el funcionario que habiendo sido compelido a asistir a la sesión del concejo municipal no lo haga.
-k) Autorizar y regular la entrada, dinámica y permanencia de la prensa en la sala de sesiones.
-l) Autorizar la permanencia de visitantes convocados al Concejo en las salas anexas al mismo, que son destinadas al uso de los integrantes del Gobierno Municipal, el Auditor, los asesores y los funcionarios municipales.
+ARTÍCULO 42. Durante los días en que se discuta el Presupuesto Ordinario en el Concejo Municipal, no se realizarán sesiones de ninguna Comisión, con el fin de que los regidores y síndicos puedan estudiar y analizar el proyecto de presupuesto con detenimiento.

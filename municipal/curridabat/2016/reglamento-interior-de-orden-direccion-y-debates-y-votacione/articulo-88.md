@@ -1,1 +1,0 @@
-ARTÍCULO 88. Las modificaciones presupuestarias internas, deberán ser entregadas al Presidente Municipal y a los miembros del Concejo Municipal, antes de iniciada la sesión del Concejo Municipal en la que serán conocidas.

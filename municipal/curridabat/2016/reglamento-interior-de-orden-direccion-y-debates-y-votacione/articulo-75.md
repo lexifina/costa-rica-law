@@ -1,2 +1,0 @@
-ARTÍCULO 75. Será obligación de los regidores propietarios trabajar en diversas comisiones, cuando un regidor propietario es nombrado en una comisión podrá solicitar cambiar su puesto con otro compañero de fracción, siempre y cuando cuente con el visto bueno del jefe de fracción y el Presidente Municipal. Sin embargo, debe mantener el compromiso de trabajar en otras comisiones.
-El período de nombramiento será de dos años, sin embargo podrán ser variadas las comisiones anualmente, cual es la facultad del Presidente Municipal según el Código Municipal.

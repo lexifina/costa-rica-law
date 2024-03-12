@@ -1,2 +1,9 @@
-CAPÍTULO VII. DE LA ALCALDÍA MUNICIPAL.
-ARTÍCULO 46. Además de las atribuciones y obligaciones que consigna el artículo diecisiete del Código Municipal, el Alcalde Municipal tendrá, en relación con el Concejo Municipal el deber de asistir, con voz pero sin voto, a todas las sesiones del Concejo Municipal, salvo que deba atender otras obligaciones municipales, señaladas para la misma hora de la sesión. En su ausencia, el Alcalde procurará le represente uno de los alcaldes suplentes.
+CAPÍTULO XIII
+DISPOSICIONES FINALES
+ARTÍCULO 46. Los miembros del Concejo Municipal, deberán ponerse de pie como signo de respeto y debido a la solemnidad de la ocasión en las siguientes circunstancias:
+a) Cuando se introduzca el pabellón nacional y/o los símbolos del Cantón de Curridabat
+al plenario municipal.
+b) Cuando se juramente el Directorio del Concejo Municipal.
+c) Cuando se reciban miembros de los supremos poderes.
+d) En caso de guardar silencio, por el tiempo que establezca la Presidencia Municipal, con motivo del fallecimiento de algún ciudadano.
+e) Cuando se juramenten los Concejos de Distrito y cualquier otro organismo nombrado por el Concejo Municipal.

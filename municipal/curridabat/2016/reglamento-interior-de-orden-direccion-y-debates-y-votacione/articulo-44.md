@@ -1,5 +1,3 @@
-ARTÍCULO 44. Además de los derechos y facultades que establece el artículo veintisiete del Código Municipal, los regidores tienen derecho a:
-a) Que se les otorgue el uso de la palabra, para exponer su posición sobre cada asunto que se someta al conocimiento y resolución del Concejo, por el periodo que este Reglamento fije.
-b) Solicitar que sus palabras, o las de cualquier otro miembro del Concejo municipal, el alcalde, los asesores, o cualquier otra persona que haya intervenido en una sesión, consten en el acta. Esa solicitud debe ser acatada por la Secretaría municipal, sin necesidad de acuerdo específico. Incurrirá en falta grave el funcionario de la Secretaría Municipal que no cumpla con esta obligación.
-c) Asistir libremente a cualquier sesión de las Comisión municipales ordinarias o especiales aunque no sea integrante de ellas, lo que hará con derecho a voz pero sin derecho a voto.
-La Alcaldía Municipal y los síndicos,(as) en lo conducente, tienen los mismos derechos y facultades indicados en estos incisos.
+CAPÍTULO XI
+DE LOS RECURSOS.
+ARTÍCULO 44. Los recursos contra los actos emanados del Concejo serán los que indique el Código Municipal.

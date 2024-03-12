@@ -1,1 +1,10 @@
-ARTÍCULO 9. Para iniciar sus sesiones el pleno del Concejo Municipal deberá contar con el quórum de ley. Si al momento en que el Presidente Municipal disponga iniciar la sesión no se contare con quórum, entonces procederá a sustituir a los ausentes, con el procedimiento que la ley ordena. En caso de que aún así no se lograra conformar el quórum, entonces el Presidente Municipal, una vez transcurridos los quince minutos de gracia, ordenará cerrar las puertas de la sala de sesiones e instruirá a la Secretaría Municipal que levante una nómina de los presentes, para acreditar el pago de dietas. Los regidores propietarios y suplentes y los síndicos propietarios y suplentes que no se encuentren instalados en su curul una vez concluido el minuto quince después de la hora señalada para el inicio de la sesión, se tendrán como ausentes para efectos del pago de dieta. El control de asistencia lo llevará el Presidente Municipal, con la asistencia de la Secretaria Municipal y por el medio que el Presidente considere prudente.
+ARTÍCULO 9. Las sesiones ordinarias del Concejo municipal se desarrollarán conforme al siguiente orden del día:
+- Capítulo 1º.- Revisión y aprobación de actas anteriores.-
+- Capítulo 2º.- Asuntos Urgentes de la Presidencia.
+- Capítulo 3º.- Informes, Dictámenes.
+- Capítulo 4º.- Correspondencia.
+- Capítulo 5º.- Asuntos Varios.
+- Capítulo 6º.- Mociones.
+- Capítulo 7º.- Asuntos de la Alcaldía.
+- Capítulo 8º.- Asuntos Relevantes de la Alcaldía
+El Orden del Día será remitido juntamente con la documentación de respaldo de cada sesión, a los correos electrónicos institucionales exclusivamente, que hayan sido designados para cada Regidor y Síndico, a más tardar dos horas antes del inicio de cada sesión.

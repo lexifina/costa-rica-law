@@ -1,1 +1,0 @@
-ARTÍCULO 100. El Concejo Municipal se regirá por el articulado estipulado en este reglamento, en lo dispuesto por el Código Municipal, en los acuerdos del mismo, y demás leyes, reglamentos y normas concordantes y usuales para el manejo de la materia municipal y la Ley general de la Administración Pública.
