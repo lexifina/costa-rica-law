@@ -15,3 +15,5 @@ l. Responder y atender las audiencias derivadas de los recursos tramitados ante 
 m. Resolver recurso de nueva adjudicación en suministros de bienes y servicios y de la nueva adjudicación en obra.
 n. Adoptar el acto final de toda nueva adjudicación de lo señalado en los incisos a. y b.
 o. Aprobar las suspensiones del plazo de ejecución o del contrato en procedimientos adjudicados por la Gerencia General o la Junta Directiva.
+p) Suscribir las prórrogas para dictar el acto final de todos los procesos de contratación cuyo acto final tenga que ser adoptado por la Junta Directiva del AyA.
+(Así adicionado el inciso anterior en sesión N° 10 del 12 de marzo de 2024)
