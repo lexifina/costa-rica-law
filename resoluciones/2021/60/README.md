@@ -14,3 +14,4 @@ Metodología para la fijación extraordinaria de tarifas para el servicio públi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-26 | la propia norma |
+| 2 | 2024-03-12 | Resolución 7 (2024-03-12) |
