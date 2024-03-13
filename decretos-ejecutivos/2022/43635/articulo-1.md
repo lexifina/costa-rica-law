@@ -10,7 +10,8 @@ DECRETAN:
 INTEGRACIÓN DEL CONSEJO
 DE TRANSPORTE PÚBLICO
 Artículo 1º-Se conforma la integración del Consejo de Transporte Público de la siguiente manera:
-a) Luis Amador Jiménez, portador de la cédula de identidad N° 1-0932-0986, en condición de Ministro de Obras Públicas y Transportes, quien presidirá la Junta Directiva.
+a) Mauricio Batalla Otárola, portador de la cédula de identidad N° 1-0838-0179, en condición de Ministro de Obras Públicas y Transportes, quien presidirá la Junta Directiva.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44550 del 13 de marzo de 2024)
 b) Carlos Ávila Arquín, portador de la cédula de identidad N° 1-1034-0515, Abogado del Despacho del Ministro de Obras Públicas y Transportes, como persona con experiencia y conocimiento en las materias relacionadas con el transporte público.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 43873 del 17 de enero del 2023. De acuerdo con el artículo 3° del decreto ejecutivo antes mencionado, dicha modificación empieza a regir a partir de la aceptación del cargo)
 c) Franz de los Ángeles Tattenbach Capra, portador de la cédula de identidad N° 1-06220325, en su condición de Ministro de Ambiente y Energía, quien en caso de ausencia designa como representante y suplente al señor Ronny Rodríguez Chaves, portador de la cédula de identidad N° 5-0259-0084.
