@@ -1,0 +1,11 @@
+Artículo 2°-Definiciones. Para los efectos del presente Reglamento, se entiende por:
+- Condonación: Liberación al deudor de su obligación, puede ser sobre la deuda total o parcial.
+- Exención: Libertad de que goza una persona para eximirse de una obligación.
+- Intereses: Es el cargo que se genera por el atraso en el pago por tributos Municipales.
+- Multa: Sanción que consiste en pagar una cantidad de dinero, impuesta por haber infringido una Ley.
+- Pobreza: Ingreso del capital igual o inferior a la línea de pobreza.
+- Pobreza extrema: Ingreso del capital igual o inferior al costo por capital de la Canasta Básica Alimenticia (CBA).
+- Principal: Es el monto que se cobra por un impuesto o servicio que se brinda, sin ningún tipo de recargo.
+- Recargo: Aumento de la cantidad de dinero que hay que pagar en un impuesto, cuota, deuda, entre otros.
+- Tasa: Es un tributo que debe pagar un usuario por el uso de un bien o servicio de dominio público.
+- Servicios Municipales: Hace referencia a la prestación efectiva o potencial que realizada la Municipalidad, a la ciudadanía, de aquellos servicios como por ejemplo Relección de Basura, Mantenimiento de Parques y Zonas Verdes, Aseo de Vías, Mantenimiento de Cementerio y Policía Municipal. Estos son los servicios que actualmente brinda la Municipalidad, sin embargo, queda sujeto a su ampliación o aprobación de nuevos servicios.

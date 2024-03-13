@@ -1,0 +1,3 @@
+Artículo 13.-Pérdida del beneficio. En caso de que la municipalidad, a través de sus órganos, verifique la falsedad de la información deberá iniciar las acciones legales correspondientes, para lo cual la administración tributaria municipal dictará una resolución que determina la pérdida del beneficio y el reinicio de las acciones de cobranza de los adeudos tributarios correspondientes.
+La pérdida de la condonación o exención obliga al solicitante a la cancelación de la totalidad de la deuda con los respectivos intereses y multas, sin perjuicio del inicio de las acciones legales que correspondan.
+Aprobado por el Concejo Municipal de Puriscal, mediante el Acuerdo Municipal 09-271-2023, celebrado el día 19 de septiembre del año 2023. -2da publicación-
