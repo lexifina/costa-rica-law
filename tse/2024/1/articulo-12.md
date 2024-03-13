@@ -1,0 +1,2 @@
+Artículo 12.-Tarifa telefónica por reconocer. En virtud de la naturaleza de sus cargos, a las magistraturas titulares del Tribunal Supremo de Elecciones y a las personas directoras generales se les reconocerá el monto equivalente a seis veces la tarifa del plan de telefonía móvil asignado.
+Para las demás personas servidoras que cuenten con servicio de telefonía celular autorizado por la Sección de Servicios Generales, se les cubrirá el pago de un monto mensual de hasta tres veces la tarifa del plan de telefonía móvil asignado.

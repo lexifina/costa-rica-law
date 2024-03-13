@@ -1,0 +1,8 @@
+Artículo 7°-Contrato. La confección de los contratos que se suscriban con las personas funcionarias a las cuales se les otorgue el beneficio de uso de los teléfonos celulares o tarjetas SIM será exclusiva de la Sección de Servicios Generales, dependencia que tendrá la responsabilidad de recabar las firmas correspondientes y entregar una copia del respectivo contrato a la persona funcionaria.
+El contrato de asignación que se suscriba con la persona servidora deberá contener al menos lo siguiente:
+a) Datos generales de la persona beneficiaria.
+b) Características del teléfono asignado (marca, modelo, estado y accesorios).
+c) Tipo de plan otorgado.
+d) Cláusula específica de consentimiento informado para los fines de lo dispuesto en el artículo 18 de este reglamento.
+e) Responsabilidades de la persona funcionaria con respecto al uso del equipo y consumo del servicio facilitado.
+En caso de que los teléfonos celulares o tarjetas SIM sean asignados al Departamento de Coordinación de Servicios Regionales para atender los servicios que brinda esa dependencia, o bien, al Departamento de Programas Electorales para cumplir con las labores propias de los procesos electorales o consultivos que atiende la institución, el contrato indicado en el presente artículo será suscrito por las jefaturas de esos departamentos, las cuales, a su vez, podrán requerir varios dispositivos según la necesidad institucional. Para tal efecto, deberán implementar un procedimiento especial de control para la asignación de esos activos al funcionariado a su cargo y su posterior devolución a la respectiva jefatura cuando corresponda. Dicho control deberá mantenerse actualizado y comunicarse a la Sección de Servicios Generales cuando sea requerido.

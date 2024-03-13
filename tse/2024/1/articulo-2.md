@@ -1,0 +1,11 @@
+Artículo 2°-Definiciones. Para los efectos de la presente reglamentación se establecen las siguientes definiciones:
+a) Persona beneficiaria: Persona funcionaria del Tribunal Supremo de Elecciones que gozará del beneficio del servicio de telefonía móvil.
+b) Contrato: Documento que se debe suscribir para la asignación de los servicios de tecnología móvil indicados en el artículo 1° de este reglamento.
+c) Dependencias: Unidades administrativas que conforman el organigrama del Tribunal Supremo de Elecciones, independientemente de su posición jerárquica.
+d) Personas directoras generales: Funcionariado de confianza que coordina, planifica y recomienda al superior cuando así corresponda. Tiene a su cargo una dirección general dentro de la estructura organizacional del Tribunal Supremo de Elecciones.
+e) Persona funcionaria: Persona servidora que se desempeña a las órdenes de esta Administración, según lo que prescribe el artículo 11 de la Ley General de la Administración Pública.
+f) Plan de telefonía móvil: Son los diferentes servicios que brinda la telefonía móvil, tales como: llamadas, mensajería, internet, SMS, roaming o itinerancia, dispositivos móviles -en el caso de los planes que los incluyan-, entre otros, otorgados por el Tribunal Supremo de Elecciones en el contrato suscrito con la empresa de telecomunicaciones adjudicada.
+g) Reglamento: El presente conjunto de disposiciones para regular el uso de los servicios de telefonía móvil de estos organismos electorales.
+h) Roaming o itinerancia: Servicios de telefonía celular que le permiten a la persona beneficiaria tener cobertura de voz y datos cuando se encuentre realizando sus labores en el extranjero. Para poder prestar esa facilidad, el proveedor del servicio telefónico nacional, previamente, debió acordar con otros operadores extranjeros la posibilidad del tránsito por sus redes.
+i) Tarjeta SIM: Tarjeta inteligente que se inserta en el teléfono móvil por medio de una ranura lectora o lector SIM. En ella se almacena de manera segura el número de teléfono, contactos y claves de acceso de la persona usuaria concreta en una operadora de telefonía.
+j) Tribunal: Tribunal Supremo de Elecciones, órgano colegiado integrado por las magistraturas correspondientes.

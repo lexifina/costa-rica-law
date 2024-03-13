@@ -1,0 +1,1 @@
+Artículo 23.-Derogatoria. Se deroga el "Instructivo para la Asignación, Utilización, Custodia y Control de Teléfonos Celulares, Tarjetas Sim u Otros Dispositivos Tecnológicos Similares, Contratados por el Tribunal Supremo de Elecciones para la Ejecución de Programas Electorales" publicado en La Gaceta N° 172 del 3 de setiembre del 2009.
