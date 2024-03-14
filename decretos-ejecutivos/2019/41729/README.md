@@ -14,3 +14,4 @@ Reforma Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Pú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-05-22 | la propia norma |
+| 2 | 2024-03-14 | SINALEVI (sin norma nombrada) |
