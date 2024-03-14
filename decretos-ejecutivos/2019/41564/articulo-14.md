@@ -11,3 +11,4 @@ e) Los cambios respecto al parámetro de cálculo de las anualidades serán apli
 f) Para el cálculo de anualidades, deberá reconocerse el tiempo prestado en otras instituciones estatales.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41904 del 9 de agosto de 2019)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41729 del 20 de mayo del 2019)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional Voto N° 007057 del 14 de marzo de 2024, se declaró sin lugar las acciones acumuladas, en el entendido de que las normas del decreto cuestionado se deben de aplicar únicamente a los funcionarios de las instituciones que no están excluidas de la aplicación de la Ley de Fortalecimiento de las Finanzas Públicas en la materia salarial de conformidad con lo dispuesto por la opinión consultiva nro. 2018-19511, de las 21:45 horas del 23 de noviembre de 2018, mencionada en los considerandos del presente voto).

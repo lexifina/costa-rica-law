@@ -19,3 +19,4 @@ Reglamento del Título III de la Ley Fortalecimiento de las Finanzas Públicas, 
 | 4 | 2019-08-09 | Decreto Ejecutivo 41904 (2019-08-09) |
 | 5 | 2020-01-20 | Decreto Ejecutivo 42163 (2020-01-20) |
 | 6 | 2023-02-28 | Decreto Ejecutivo 43952 (2023-02-28) |
+| 7 | 2024-03-14 | SINALEVI (sin norma nombrada) |
