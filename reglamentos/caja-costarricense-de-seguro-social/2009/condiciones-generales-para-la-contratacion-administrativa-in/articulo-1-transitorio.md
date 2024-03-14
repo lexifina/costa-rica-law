@@ -1,5 +1,0 @@
-Transitorio I.—Los procedimientos de contratación administrativa concluirán con las condiciones generales vigentes al momento del dictado de la decisión de inicio del procedimiento de compra.
-Vigencia. Rige (*) dos meses después de su publicación en el Diario Oficial La Gaceta.
-(*) (Nota: La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 10°, Acuerdo tercero de la Sesión N° 8353, celebrada el 4 de junio del año 2009, dispuso que esta normativa entrará a regir a partir del 16 de agosto del año en curso)
-Consecuentemente, se acuerda derogar las condiciones generales aprobadas en el artículo 3º de la sesión Nº 8010, celebrada el 21 de noviembre del año 2005 y sus adendas. Todas las condiciones generales dictadas por los órganos desconcentrados y no desconcentradas. Las normas complementarias del 10 de octubre de 2008 que rigen para concursos amparados en la Ley 6914 y los artículos 20, 21, 26-34, 42, 44-49, 52-54,75 del Reglamento para la Compra de Medicamentos y Materias Primas, Envases y Reactivos.
-Acuerdos firmes.
