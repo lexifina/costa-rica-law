@@ -1,0 +1,6 @@
+Artículo 5º-Pago máximo de transacciones por Caja Chica.
+El pago máximo que se puede realizar por cada transacción o solicitud, para cubrir erogaciones de determinada compra de bienes, obras o servicios, no excederá el veinte por ciento (20%) del monto del fondo fijo.
+"Artículo 6º- Ampliación del tope del monto de Caja Chica.
+En los casos en que la unidad solicitante, requiera realizar compras de bienes, obras o servicios por montos superiores al límite de gasto establecido en el artículo 4 del presente reglamento, deberá remitir la solicitud debidamente fundamentada a la Dirección Administrativa-Financiera, quien deberá verificar que la misma cumpla con los presupuestos establecidos en el artículo 12 del Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo No.43808-H.
+Una vez realizada la verificación técnica, por parte de la Dirección Administrativa-Financiera, ésta procederá a rendir un informe a la Junta Administrativa de la Imprenta Nacional, indicando si procede o no la solicitud, de la unidad solicitante, para el aumento del límite de gasto establecido en el artículo 4 de presente reglamento.
+Si el informe es aprobado por la Junta Administrativa, ordenará al Director Ejecutivo la emisión de la resolución para realizar la compra".

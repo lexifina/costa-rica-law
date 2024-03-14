@@ -1,0 +1,8 @@
+Artículo 11.- Decisión Inicial
+Toda solicitud de contratación por medio de la Caja Chica debe realizarse en un documento denominado como Decisión Inicial para compras por Caja Chica, el cual consistirá en un documento o formulario físico o digital aprobado por el funcionario autorizado mediante este reglamento. Cuando el formulario es digital, este debe cumplimentarse en el sistema AVANCE.
+En la Decisión Inicial debe acreditarse al menos lo siguiente:
+1. La procedencia de utilizar la excepción respectiva, dejando constancia de los motivos legales, técnicos y financieros que hacen de esta vía la mejor para la satisfacción del interés público, así como una descripción detallada del bien, obra o servicio que se comprará
+2. Que se cuenta con los recursos presupuestarios suficientes para enfrentar la erogación respectiva.
+3. Solicitud del Vale de Caja Chica, autorizado por el jefe de la unidad solicitante, salvo las excepciones establecidas.
+4. Aportar tres facturas proforma o cotizaciones del bien o servicio que se va a adquirir. Excepcionalmente y con justificación escrita y razonable del departamento solicitante, el responsable del Fondo de Caja Chica podrá autorizar la compra con solo una factura proforma o cotización, la que deberá ser autorizada por el jefe de la unidad solicitante.
+5. Cuando se trate de la compra de bienes (o servicios, según sea el caso), se debe acreditar que estos no se encuentren disponibles en el Almacén o que no exista una contratación en trámite para adquirirlos, excepto que se requieran con mucha urgencia y que estos no estarán disponibles a tiempo para su uso.

@@ -1,0 +1,1 @@
+Artículo 24.Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta. Este Reglamento fue aprobado por la Junta Administrativa de la Imprenta Nacional, según Acuerdo 14-03-2024 adoptado en la Sesión Ordinaria N° 6 del 12 de marzo del 2024.

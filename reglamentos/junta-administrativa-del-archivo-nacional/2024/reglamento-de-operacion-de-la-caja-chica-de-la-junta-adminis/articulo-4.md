@@ -1,0 +1,3 @@
+Artículo 4º- Fondo fijo de Caja Chica.
+La Caja Chica operará por medio de un fondo fijo, cuyo monto se establece en la suma de un millón de colones (¢1.000.000,00). Cuando sea necesario, este monto podrá ser modificado por la Junta Administrativa, previa solicitud realizada, por parte del Jefe del Departamento Financiero como responsable del control de fondos de la caja Chica. Para dicha modificación se utilizará como fundamento técnico, el Índice de Precios al Consumidor, correspondiente al año en el que se solicite el cambio en el monto.
+Dicho fondo se depositará en una cuenta corriente a nombre de la Junta Administrativa de la Imprenta Nacional.
