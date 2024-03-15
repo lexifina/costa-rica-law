@@ -1,0 +1,1 @@
+Artículo 28. Los repuestos o suministros para reparar activos o alargar la vida útil, sea electrónico o mobiliario no se consideran como activos. Sin embargo, quedará sujeto a valoración según sea el caso por parte del encargado de Almacén con apoyo de criterio técnico.

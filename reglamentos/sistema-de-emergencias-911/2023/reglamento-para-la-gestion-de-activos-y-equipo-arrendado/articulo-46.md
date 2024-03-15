@@ -1,0 +1,1 @@
+Artículo 46. Cuando se haga entrega de activos a un despacho, el 9-1-1 deberá confeccionar el "F-TI-002, Acta de entrega-retiro de equipos", la cual deberá ser firmada por representantes autorizados del 9-1-1 así como del funcionario del despacho de la institución correspondiente.

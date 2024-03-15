@@ -1,0 +1,1 @@
+Artículo 35. El funcionario responsable del activo deberá presentar al CAA el "F-FI-005, Solicitud para Absorción de Activos", cuando se presenten situaciones irregulares con la custodia de los activos, previas diligencias señaladas en el artículo anterior y adjuntando todos los documentos del caso.

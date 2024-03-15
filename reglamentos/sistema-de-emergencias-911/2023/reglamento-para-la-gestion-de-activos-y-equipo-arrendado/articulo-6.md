@@ -1,0 +1,1 @@
+Artículo 6. Todo bien propiedad del 9-1-1 deberá estar identificado con un número de activo, para lo cual el encargado del Almacén deberá fijarlo, por medio de la rotulación con placa o el grabado en relieve del número de identificación correspondiente, antes de que se proceda con la entrega del bien al funcionario responsable.

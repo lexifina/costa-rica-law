@@ -1,0 +1,1 @@
+Artículo 31. La Administración debe gestionar con personas físicas o jurídicas certificados que garanticen la disposición final de los desechos en concordancia con la normativa vigente para la protección y conservación del medio ambiente.

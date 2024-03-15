@@ -1,0 +1,1 @@
+Artículo 21. Los funcionarios que, por su cargo, tengan activos de uso común deberán mantener el registro de los movimientos o traslados de los activos en oficinas centrales, centros alternos y despachos, con el fin de asegurar su control debiendo informar al Almacén en los siguientes cinco días hábiles sobre cada movimiento mediante correo electrónico institucional.

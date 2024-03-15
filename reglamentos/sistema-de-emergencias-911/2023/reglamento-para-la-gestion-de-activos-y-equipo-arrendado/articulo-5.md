@@ -1,0 +1,1 @@
+Artículo 5. Cuando los bienes sean recibidos en el almacén, su encargado le comunicará al administrador de contrato para que este, coordine con la contraparte técnica correspondiente la verificación de las características indicadas del bien, la cual deberá quedar respaldada mediante el acta de aceptación.

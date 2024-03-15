@@ -1,0 +1,1 @@
+Artículo 47. El encargado de Logística Operativa del 9-1-1 deberá revisar, en primera instancia, el inventario anual realizado, y ser validado con la institución a la cual pertenece el despacho. De existir algún faltante o diferencia, se la comunicará al Despacho respectivo y al Coordinador de Proveeduría, para que se realice los trámites que correspondan.

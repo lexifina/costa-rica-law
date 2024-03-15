@@ -1,0 +1,1 @@
+Artículo 2. Las disposiciones establecidas en el presente reglamento, así como los procedimientos, políticas u otros, aplicables a este, son de acatamiento obligatorio para los funcionarios del 9-1-1 y de las instituciones vinculadas y articuladas, y de cualquier otra persona que de forma directa o indirecta custodie o use algún activo propiedad del 9-1-1, en lo que le competa.

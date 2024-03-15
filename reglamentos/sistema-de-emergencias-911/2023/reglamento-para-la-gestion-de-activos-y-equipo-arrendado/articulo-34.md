@@ -1,0 +1,1 @@
+Artículo 34. En caso de robo o hurto, el funcionario deberá interponer la denuncia ante el Organismo de Investigación Judicial, en un plazo máximo de 2 días hábiles siguientes a la detección del faltante y presentar copia de la denuncia a la CAA.

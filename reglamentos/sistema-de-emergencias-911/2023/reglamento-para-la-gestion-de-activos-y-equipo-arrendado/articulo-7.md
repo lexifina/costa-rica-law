@@ -1,0 +1,1 @@
+Artículo 7. En la herramienta informática para el control de activos, se registrará para cada bien su clasificación, descripción, marca, modelo, serie, vida útil, valor de rescate y número de identificación.

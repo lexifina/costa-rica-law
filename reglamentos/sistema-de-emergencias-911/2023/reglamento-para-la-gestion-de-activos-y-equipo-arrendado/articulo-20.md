@@ -1,0 +1,7 @@
+Artículo 20. Logística Operativa deberá:
+a. Establecer una adecuada comunicación con los procesos de Tecnologías de Información y Proveeduría, sobre el cambio o reposición de activos en los diferentes despachos.
+b. Recibir copia de los documentos con el detalle de los equipos asignados, retirados e instalados, así como los datos de la persona que los recibió o entregó en las instituciones, con la intención de poder incluir la revisión en visitas posteriores.
+c. Gestionar con el representante institucional autorizado la firma de la documentación correspondiente que sustenta los registros en el sistema informático interno, posterior a la revisión y confirmación del cambio de los equipos en los despachos, cuando se trate de una gestión de soporte técnico.
+d. Visitar periódicamente las instituciones articuladas y vinculadas donde el Sistema de Emergencias 9-1-1 cuente con equipos instalados, para verificar su existencia, ubicación, estado y funcionamiento.
+e. Mantener adecuada comunicación y coordinación con el proceso de Servicios Generales y el Administrador de Contrato para el caso de los equipos en arrendamiento, de manera que se posea la información requerida para hacer constar la existencia de los equipos en los diferentes despachos, así como aquellos componentes asociados a los servicios que proporcionan los proveedores de servicios de telecomunicaciones (VPN´S y líneas convencionales).
+f. Realizar inventarios físicos anualmente de todos los despachos de las instituciones adscritas y vinculadas.

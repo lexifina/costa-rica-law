@@ -1,0 +1,1 @@
+Artículo 27. El Almacén podrá reemplazar un activo con otro que cumpla con las necesidades y especificaciones técnicas, en sustitución temporal, existiendo disponibilidad y la recomendación respectiva.

@@ -1,0 +1,1 @@
+Artículo 45. De existir algún faltante o diferencia detectada en los inventarios, la Proveeduría informará al encargado de Logística Operativa para que este realice los trámites que correspondan con la institución responsable.

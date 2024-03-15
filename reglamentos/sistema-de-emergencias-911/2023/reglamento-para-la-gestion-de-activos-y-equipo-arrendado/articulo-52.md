@@ -1,0 +1,1 @@
+Artículo 52. Cualquier incumplimiento a las obligaciones y deberes contenidos en este Reglamento será sancionado de acuerdo con lo que dispone el Reglamento Autónomo de Servicio del Sistema de Emergencias 9-1-1, sin perjuicio de la responsabilidad civil o penal que pueda derivarse.

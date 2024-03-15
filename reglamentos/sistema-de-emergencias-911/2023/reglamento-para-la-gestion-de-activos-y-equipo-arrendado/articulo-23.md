@@ -1,0 +1,1 @@
+Artículo 23. El equipo de trabajo para la ejecución del inventario físico de activos anual estará conformado por el encargado del almacén y el personal designado por las unidades de Finanzas, Tecnologías de Información y Servicios Generales.

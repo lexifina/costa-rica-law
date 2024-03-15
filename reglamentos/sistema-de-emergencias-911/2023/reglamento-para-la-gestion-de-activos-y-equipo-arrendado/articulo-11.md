@@ -1,0 +1,1 @@
+Artículo 11. La Comisión Coordinadora deberá conocer y dar visto bueno mediante acuerdo, de los capítulos y artículos del presente reglamento que atañen a las responsabilidades y gestiones que corresponden a las instituciones vinculadas y articuladas.
