@@ -1,0 +1,1 @@
+Artículo 6º. En el desarrollo de las tareas llevadas a cabo por los funcionarios de Finanzas, deberán consignarse en un expediente electrónico, en que se obtengan o produzcan los distintos documentos que deberán archivarse en su expediente respectivo, con el fin de resguardar adecuadamente su conservación.

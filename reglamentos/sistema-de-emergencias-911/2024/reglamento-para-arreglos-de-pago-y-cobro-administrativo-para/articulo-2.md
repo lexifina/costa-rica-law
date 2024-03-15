@@ -1,0 +1,1 @@
+Artículo 2º. Ámbito de aplicación. Este reglamento será de aplicación obligatoria, para gestionar el cobro administrativo, extrajudicial y judicial de las obligaciones y arreglos de pago que adeuden al Sistema de Emergencias 9-1-1 por parte de los agentes de percepción, con ocasión de la recaudación y traslado de la tasa de financiamiento.

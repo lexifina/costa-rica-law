@@ -1,0 +1,2 @@
+Obligaciones del Proceso de finanzas
+Artículo 4º. Corresponde la Unidad de Finanzas implementar todas las acciones necesarias para lograr el máximo el cumplimiento de los deberes y obligaciones tributarias de los agentes de percepción, mediante el desarrollo de un conjunto de actividades, cuyo propósito es la implementación y ejecución de sistemas y procedimientos eficientes de planificación, coordinación y control. Dentro de este marco, le corresponderá todo lo relacionado con la gestión, control, seguimiento, recaudación y fiscalización de las obligaciones tributarias.
