@@ -1,0 +1,1 @@
+Artículo 10.-Informes de gestión. Las organizaciones indicadas en el artículo 4° anterior que administren inmuebles propiedad del Concejo Municipal, deberán rendir anualmente en el mes de noviembre respectivo, un informe contable y de administración sobre su gestión para ser conocido por el Concejo Municipal, quien lo analizara y de ser necesario realizara observaciones.

@@ -1,0 +1,1 @@
+Transitorio 1°-Dentro del plazo de seis meses a partir de la publicación del presente Reglamento, el Departamento de Ingeniería Municipal deberá realizar un inventario de todos los inmuebles pertenecientes Al Concejo Municipal de Distrito destinados al uso público, en el que se describirá las instalaciones o edificaciones que en ellas existan, así como su estado de conservación.

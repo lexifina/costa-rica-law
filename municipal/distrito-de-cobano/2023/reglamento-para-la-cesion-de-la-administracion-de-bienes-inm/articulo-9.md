@@ -1,0 +1,1 @@
+Artículo 9°-Normativa general de utilización. Cada organización deberá elaborar un reglamento interno de uso de las instalaciones cedidas en administración, el cual será sometido a aprobación por parte del Concejo Municipal previo a iniciar su gestión. El reglamento deberá ser colocado en un lugar visible dentro de las instalaciones para conocimiento de los usuarios del inmueble.
