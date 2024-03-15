@@ -1,0 +1,2 @@
+Artículo 8. Evaluación.
+Es la fase mediante la cual se determina la efectividad de las acciones de aprendizaje, en relación con el cumplimiento de los objetivos planteados. Dicha fase se realizará en sus diferentes niveles: reacción, aprendizaje, comportamiento y resultados; mediante la aplicación de los instrumentos técnicos vigentes, para implementar las mejoras respectivas en la fase de planificación y ejecución.

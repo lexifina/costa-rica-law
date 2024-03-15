@@ -1,0 +1,6 @@
+Artículo 18. Apoyo para participar en programas de posgrado
+En caso de programas de posgrado, de interés y prioridad institucional, podrán autorizarse total o parcialmente, por parte del Regulador General o el Consejo de la Sutel, según corresponda; sujeto en cada ciclo lectivo a respectiva disponibilidad presupuestaria y a la recomendación emitida por la Comisión ad hoc, los siguientes beneficios:
+a) El costo de la matrícula y cursos del programa de posgrado autorizado, con base en la documentación que se defina en el procedimiento. No se concederá financiamiento para cursar nuevamente materias reprobadas.
+Toda erogación se encontrará sujeta siempre, a la disponibilidad presupuestaria y a los resultados académicos de la persona funcionaria.
+b) Las horas semanales requeridas o necesarias para atender el programa de posgrado, valoradas previamente sin que ello afecte el equilibrio entre el tiempo requerido para el desempeño de sus funciones con vista en las necesidades institucionales y el requerido para atender la demanda académica. Así como el interés institucional en la formación de la persona funcionaria.
+En ningún caso el otorgamiento de este apoyo se constituirá en un derecho de la persona funcionaria beneficiaria, puede ser suspendido por caso fortuito o fuerza mayor que afectan las finanzas institucionales.

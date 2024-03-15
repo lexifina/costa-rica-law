@@ -1,0 +1,4 @@
+CAPÍTULO II
+FASES Y RESPONSABLES DE LAS ACCIONES DE APRENDIZAJE
+Artículo 6. Planificación.
+La planificación de acciones de aprendizaje institucional es la fase en la cual se realiza el diagnóstico de necesidades de aprendizaje (DNA) de las personas funcionarias, considerando las políticas institucionales, sectoriales y nacionales, los planes y objetivos institucionales, la evolución de las tareas en los puestos de trabajo, los planes remediales de desempeño, las tendencias actualizadas y buenas prácticas en materia de capacitación y desarrollo y los cambios del entorno, para agregar valor a los servicios prestados. Con base en dicho diagnóstico se identifican y priorizan las necesidades de acciones de aprendizaje y se definen los objetivos del plan respectivo para un periodo determinado, dentro del cual deberán siempre considerarse programas orientados a concientizar sobre los riesgos de corrupción inherentes al desempeño de la función pública.

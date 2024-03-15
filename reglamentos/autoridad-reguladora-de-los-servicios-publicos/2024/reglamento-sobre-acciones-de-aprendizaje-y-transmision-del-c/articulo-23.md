@@ -1,0 +1,2 @@
+Artículo 23. Acciones por incumplimiento
+En resguardo de los recursos públicos administrados por la Institución, en caso de no aprobación por inasistencia, asistencia incompleta o suspensión por parte de la persona funcionaria beneficiaria; se aplicará de requerirse, el Debido Proceso establecido en el Reglamento autónomo de relaciones de servicios entre la Autoridad Reguladora de los Servicios Públicos, su órgano desconcentrado y sus funcionarios (RAS).

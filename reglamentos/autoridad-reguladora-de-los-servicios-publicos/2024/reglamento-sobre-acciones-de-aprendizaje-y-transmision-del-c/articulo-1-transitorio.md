@@ -1,0 +1,9 @@
+Transitorio I.-
+La Administración deberá emitir el procedimiento e instrumentos indicados en el artículo 22 anterior, en un plazo máximo de 12 meses, contados a partir de la publicación de este reglamento, lo cual no es óbice para que a partir de su vigencia se aplique el presente reglamento. Los casos en trámite se concluirán con el reglamento con el que se iniciaron.
+II. Tener como respuesta a las observaciones realizadas, lo señalado en el oficio OF-0809-DRH-2023, del 31 de octubre de 2023, emitido por la Dirección de Recursos Humanos, y su anexo y agradecer la participación en este proceso.
+III. Instruir a la Secretaría de Junta Directiva notificar a quienes presentaron observaciones el oficio OF-0809-DRH-2023, del 31 de octubre de 2023, emitido por la Dirección de Recursos Humanos y su anexo.
+IV. Instruir a la Secretaría de la Junta Directiva, para que proceda con el trámite de publicación del Reglamento de Acciones de Aprendizaje y Transmisión del Conocimiento la Autoridad Reguladora de los Servicios Públicos (ARESEP) y su órgano desconcentrado (RAATC), en el diario oficial La Gaceta y en el sitio web institucional, e informar a la Junta Directiva cuando la publicación haya sido realizada.
+En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, contra la presente resolución cabe el recurso ordinario de reposición o reconsideración, el cual deberá interponerse en el plazo de tres días contados a partir del día siguiente a la notificación, y el recurso extraordinario de revisión, el cual deberá interponerse dentro de los plazos señalados en el artículo 354 de la citada ley. Ambos recursos, deberán interponerse ante la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, a quien corresponde resolverlos.
+Rige a partir de su publicación en el diario oficial La Gaceta.
+PUBLÍQUESE y NOTIFÍQUESE
+<span style='font-family:"Arial",sans-serif; </body>
