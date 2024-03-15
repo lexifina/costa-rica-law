@@ -1,0 +1,1 @@
+Artículo 5º-Recibo de denuncia: Las denuncias deben ser presentadas de forma verbal, escrita o en forma electrónica, mediante los canales establecidos por la Auditoría Interna, y por cualquier otro medio que resguarde la confidencialidad de la denuncia y que permita establecer la fecha de recepción.

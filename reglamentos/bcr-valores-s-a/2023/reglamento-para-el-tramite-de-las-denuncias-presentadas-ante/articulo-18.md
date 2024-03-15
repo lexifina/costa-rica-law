@@ -1,0 +1,1 @@
+Artículo 18.-Adición y aclaración: Contra el comunicado de resultados o informe de la investigación preliminar proceden únicamente la aclaración y la adición, en un plazo de tres días hábiles, misma que puede ser presentada ante el auditor interno; dicha solicitud, la puede realizar la Junta Directiva o el gerente general, según a quien esté dirigido el informe.
