@@ -1,0 +1,1 @@
+Artículo 6. Recepción, custodia y despacho. La recepción, custodia y entrega de materiales, y suministros deberán contar con un control de registro de ingreso, inventarios y registros de entrega (salida) por parte de la persona trabajadora encargado de bodega.

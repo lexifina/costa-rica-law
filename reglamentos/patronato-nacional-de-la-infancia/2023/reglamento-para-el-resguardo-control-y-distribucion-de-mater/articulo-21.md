@@ -1,0 +1,1 @@
+Artículo 21. Reportes de inventarios. La persona trabajadora encargada de bodega deberá efectuar revisiones periódicas valorando entradas, salidas, ajustes, entregas directas y de todos los movimientos efectuados. En caso de encontrar anomalías o incongruencias deberá reportarlo formalmente a la coordinación.

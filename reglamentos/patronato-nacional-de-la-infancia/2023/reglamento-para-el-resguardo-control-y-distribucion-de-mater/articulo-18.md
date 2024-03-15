@@ -1,0 +1,1 @@
+Artículo 18. Coordinaciones de entrega directa en Bodega Central. En caso que la dependencia decida que retirarán directamente de Bodega Central los materiales y suministros, deberá informar al Departamento de Servicios Generales, en la dirección de correo electrónica establecida para estos efectos e indicar el nombre de la persona trabajadora que realizará el retiro.

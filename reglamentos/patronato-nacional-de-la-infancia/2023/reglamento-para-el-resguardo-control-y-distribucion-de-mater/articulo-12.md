@@ -1,0 +1,1 @@
+Artículo 12. Bodegas de otras dependencias institucionales. Las bodegas de las otras dependencias estarán bajo la responsabilidad de la persona trabajadora en el cargo de Director Regional y Jefatura.

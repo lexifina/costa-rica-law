@@ -1,0 +1,1 @@
+Artículo 23. Prohibición de efectuar ajustes sin previa comunicación formal a la Jefatura. La persona trabajadora encargada de la bodega no podrá realizar ajustes de inventario sin tener la autorización respectiva de previo por parte de la persona trabajadora en el cargo de Director Regional y Jefatura

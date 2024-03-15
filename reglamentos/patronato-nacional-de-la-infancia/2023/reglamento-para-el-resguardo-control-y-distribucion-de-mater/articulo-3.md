@@ -1,0 +1,3 @@
+Artículo 3. Condiciones físicas de las bodegas. Las bodegas deberán contar de forma obligatoria de las siguientes condiciones: La construcción deberá ser en concreto u otro material que no sea acelerante al fuego y en perfecto estado de conservación y mantenimiento, que no tenga filtraciones de agua y expuestos a la entrada de agentes contaminantes, polvo y ceniza.
+Deberán contar con medidas de seguridad tales como puertas, portones, cerraduras o aldabas. Buena iluminación, lejos de fuentes aceleradores de fuego o combustión.
+En caso de que se adquiera el servicio de bodegaje por contratación pública, los detalles de las condiciones mínimas se describen en el manual del presente reglamento.

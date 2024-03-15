@@ -1,0 +1,1 @@
+Artículo 2. Resguardo de materiales y suministros. De previo a la adquisición de materiales y suministros por medio de contratación pública o por fondos de trabajo, se debe haber contemplado obligatoriamente el inmueble, espacio físico, mobiliario o lockers, donde se custodiarán los mismos y hasta que se realice la distribución, según los controles establecidos.

@@ -1,0 +1,2 @@
+Artículo 7. Reporte a la Dirección Regional y Jefatura. La persona trabajadora encargado de bodega deberá entregar un informe previo a las fechas previstas en el cronograma de compras institucionales que emite el Departamento de Proveeduría a inicios de cada año.
+Este informe del inventario actualizado, será analizado y tomado en cuenta para efectuar las solicitudes de compra, así como tomar las previsiones por eventuales modificaciones presupuestarias que sean necesarias para abastecer de forma oportuna las necesidades de la dependencia.

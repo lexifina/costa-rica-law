@@ -1,0 +1,2 @@
+Artículo 15. Acta de Recepción Definitiva. La confección de las actas de recepción definitiva corresponderá a los fiscalizadores de contrato, quienes entregarán copia del documento al encargado de bodega.
+En el caso de los suministros y materiales que ingresen a través de Bodega Central, la dependencia deberá remitir el acta de recepción original al Departamento de Servicios Generales, para que este último trámite el respectivo pago ante el Departamento de Proveeduría.

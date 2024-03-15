@@ -1,0 +1,1 @@
+Artículo 14. Entrada de materiales y suministros a bodegas de los Centros Funcionales. Todo material y suministro que adquieran los Centros Funcionales e ingresen por entrega directa se recibirán por el fiscalizador de contrato quien establecerá coordinaciones con la persona trabajadora encargada de la bodega, debiendo registrarse la entrada en los controles establecidos.

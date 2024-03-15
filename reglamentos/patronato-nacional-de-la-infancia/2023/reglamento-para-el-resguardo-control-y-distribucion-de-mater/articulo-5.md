@@ -1,0 +1,3 @@
+Artículo 5. Revisión periódica de las condiciones de las bodegas. La revisión periódica de la Bodega Central, ubicada en oficinas centrales será responsabilidad de la persona trabajadora en el cargo de Jefatura del Departamento de Servicios Generales.
+En el caso de las bodegas de las dependencias estarán bajo la responsabilidad de la persona trabajadora en el cargo de Director Regional y Jefatura según corresponda.
+La revisión de las condiciones de las bodegas y el estado de los bienes y suministros es una actividad permanente y constante en el tiempo, dado que en ellas se custodian bienes adquiridos con fondos públicos, es decir, hay una inversión pública, por tanto, cobra relevancia dentro de las actividades de control interno.

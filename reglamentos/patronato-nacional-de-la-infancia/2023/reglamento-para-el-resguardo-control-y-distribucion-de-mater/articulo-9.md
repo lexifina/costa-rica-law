@@ -1,0 +1,1 @@
+Artículo 9. Ejecutores presupuestarios. Los ejecutores presupuestarios deberán garantizar, por medio de la formulación del presupuesto y sus modificaciones, el contenido presupuestario suficiente para la ejecución al pago de alquiler de la bodega y gastos asociados a esta, cuando se cuente con ese servicio.
