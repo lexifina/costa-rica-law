@@ -9,5 +9,5 @@ g) Requisitos
 Área. El área mínima y máxima de cada lote, se regirán de acuerdo a lo establecido en el Artículo 65 del Reglamento de la Ley de la Zona Marítimo Terrestre.
 Cobertura Hasta un máximo de 60%
 Densidad De 20 a 50 habitaciones /hectárea
-Altura 2 pisos en 10 metros de altura máximo
+Altura 2 pisos 10 metros de altura máximo al punto más alto de la edificación.
 Retiros Los retiros laterales, posteriores y anteriores, se regirán de acuerdo a lo establecido en el Artículo 65 del Reglamento de la Ley de la Zona Marítimo Terrestre.

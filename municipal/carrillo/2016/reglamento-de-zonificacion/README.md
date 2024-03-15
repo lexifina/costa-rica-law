@@ -14,3 +14,4 @@ Reglamento de zonificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-07 | la propia norma |
+| 2 | 2024-03-15 | Reglamento municipal 11 (2024-03-15) |

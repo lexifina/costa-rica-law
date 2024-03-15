@@ -5,9 +5,10 @@ c) Localización. La Base para Pescadores Artesanales se ha ubicado en varios se
 d) Usos permitidos. Centros de acopio y puntos de atraque para los botes.
 e) Usos no permitidos. Empresas turísticas, actividades turísticas, viviendas y cualquier otro que no esté indicado en los permitidos.
 f) Concesiones. Deberá cumplir con los requerimientos que se establecen en la Ley No. 6043 y su Reglamento.
-g) Requisitos Área Mínimo: 300 m²
+g) Requisitos
+Área Mínimo: 300 m²
 Máximo: 5 000 m²; Cada lote
 Cobertura Hasta un máximo de 70%
 Densidad N/P
-Altura 1 piso
+Altura 1 piso en 5 metros máximo al punto más alto de la edificación.
 Retiros Los retiros laterales, posteriores y anteriores, se regirán de acuerdo a lo establecido en el Artículo 65 del Reglamento de la Ley de la Zona Marítimo Terrestre.

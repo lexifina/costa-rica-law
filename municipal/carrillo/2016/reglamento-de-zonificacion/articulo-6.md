@@ -5,9 +5,10 @@ c) Localización. El Área Núcleo para la Comunidad se ha ubicado en varios sec
 d) Usos permitidos. Instalaciones destinadas a servicios públicos, escuelas, iglesia, seguridad, bomberos, recreación y otros necesarios para el funcionamiento de los poblados o comunidades locales cuando estos existan.
 e) Usos no permitidos. Vivienda y cualquier otro que no esté indicado en los permitidos.
 f) Concesiones. Deberá cumplir con los requerimientos que se establecen la Ley No. 6043 y su Reglamento.
-g) Requisitos Área Mínimo: 200 m²
+g) Requisitos
+Área Mínimo: 200 m²
 Máximo: 5 000 m²; cada lote
 Cobertura Hasta un máximo del 50% en el caso de construcciones.
 Densidad N/A
-Altura 2 pisos en 10 metros de altura máximo
+Altura 2 pisos en 10 metros de altura máximo al punto más alto de la edificación.
 Retiros Los retiros laterales, posteriores y anteriores, se regirán de acuerdo a lo establecido en el Artículo 65 del Reglamento de la Ley de la Zona Marítimo Terrestre.
