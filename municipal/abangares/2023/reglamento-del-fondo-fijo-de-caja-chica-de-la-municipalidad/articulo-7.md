@@ -1,2 +1,0 @@
-Artículo 7º-A partir de la vigencia del presente reglamento se establece un Fondo de Caja Chica por la suma de ¢ 4.000.000.00 (Cuatro millones de colones netos); ningún pago realizado por este medio podrá superar los ¢500.000.00 (Quinientos mil colones netos).
-Las actualizaciones del fondo de caja chica y del monto de los vales se efectuarán mediante modificación al reglamento que para el efecto deberá presentar el Alcalde Municipal ante el Concejo Municipal.

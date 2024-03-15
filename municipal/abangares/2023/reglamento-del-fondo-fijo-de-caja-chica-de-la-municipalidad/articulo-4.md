@@ -1,1 +1,0 @@
-Artículo 4º-Una vez cumplidos los requisitos para el vale de caja chica, se procederá a realizar la trasferencia de la suma autorizada al funcionario municipal en su cuenta establecida como medio de pago de planilla.
