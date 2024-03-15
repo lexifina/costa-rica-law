@@ -1,1 +1,0 @@
-Artículo 12.—En el evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente de la Federación, confeccionando el respectivo recibo de ingreso. Para estos efectos se deberán realizar las revisiones pertinentes para determinar su origen. En caso de no poder determinarse la suma sobrante será liquidada al finalizar el ejercicio anual.
