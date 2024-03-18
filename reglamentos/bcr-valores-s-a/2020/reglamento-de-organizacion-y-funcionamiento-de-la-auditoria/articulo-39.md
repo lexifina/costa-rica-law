@@ -1,2 +1,0 @@
-Artículo 39
-El programa de seguimiento, tal y como lo establece la norma 206 de las Normas Generales de auditoría para el sector público y la norma 2.11.1 de las Normas para el ejercicio de la Auditoría Interna en el sector público, debe contemplar entre otros aspectos, la relevancia de las observaciones y recomendaciones informadas, la complejidad y las condiciones propias de las acciones pertinentes, los efectos e impactos de la implementación de la acción y la oportunidad del seguimiento.

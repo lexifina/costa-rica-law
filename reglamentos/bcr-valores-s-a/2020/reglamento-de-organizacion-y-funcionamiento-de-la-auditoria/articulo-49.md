@@ -1,2 +1,0 @@
-Artículo 49
-Las personas trabajadoras de la Auditoría Interna que lleven a cabo las investigaciones preliminares y confección del informe de relación de hecho u otro informe, pueden comparecer ante la autoridad interna competente en su carácter exclusivo de expertos calificados, y únicamente serán cuestionados, sobre las eventuales dudas que del informe surjan en el curso del procedimiento administrativo en el ámbito de la materia en investigación.

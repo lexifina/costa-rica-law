@@ -1,2 +1,0 @@
-Artículo 15
-El auditor interno es inamovible, salvo en el caso de que se demuestre que no cumple debidamente su cometido o que se declare en contra de alguna responsabilidad legal, en cuyo caso, para su remoción se debe proceder conforme al dictamen previo y vinculante de la Contraloría General de la República, según lo establece el artículo 15 de la Ley orgánica de la Contraloría General de la República; así como también, los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República.
