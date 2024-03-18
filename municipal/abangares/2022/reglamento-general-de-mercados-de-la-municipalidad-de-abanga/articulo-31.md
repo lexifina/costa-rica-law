@@ -1,0 +1,1 @@
+ARTÍCULO 31.- Patentes de licores. En las instalaciones del Mercado Municipal, no se concederán patentes municipales para el expendió de bebidas alcohólicas, según Ley 9047 del 25 de junio del año 2012 y su reglamento.

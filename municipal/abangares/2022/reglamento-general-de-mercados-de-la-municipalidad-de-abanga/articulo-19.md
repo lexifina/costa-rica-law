@@ -1,0 +1,1 @@
+ARTÍCULO 19.- Subarriendo. En casos como enfermedad comprobada que incapaciten de forma permanente al inquilino, u otra causa calificada de grave, la administración del Mercado en coordinación con el Alcalde o Alcaldesa podrá autorizar subarriendos.
