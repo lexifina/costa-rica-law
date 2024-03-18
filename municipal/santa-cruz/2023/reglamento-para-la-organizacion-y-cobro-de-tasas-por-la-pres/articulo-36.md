@@ -1,0 +1,2 @@
+Artículo 36° - Obstáculos para brindar el servicio. El sujeto pasivo debe garantizar que la vía frente a su propiedad donde se brinde el servicio esté libre de obstáculos, de acuerdo con lo dispuesto en los artículos 84, 85, 85 BIS, 85 TER del Código Municipal Ley 7794.
+Cuando se verifique el incumplimiento de las disposiciones anteriores, se mantendrá el cobro del servicio de Limpieza de Vías Públicas, por no ser responsabilidad de la Municipalidad, la imposibilidad material para poder brindar el servicio.

@@ -1,0 +1,1 @@
+Artículo 22° - Reclasificación de usuarios. La Municipalidad podrá realizar un estudio específico para cualquier usuario del servicio, donde se considere que la categoría asignada no es correcta o así se solicite por el contribuyente. El criterio para la reclasificación serán los criterios establecidos en el artículo 18.

@@ -1,0 +1,1 @@
+Artículo 25º- Sobre las actividades comerciales que no tengan la obligación de obtener una licencia comercial. Las actividades comerciales que se encuentren exoneradas de la obtención de una licencia municipal, se clasificarán según lo establecido en los artículos 18 y 19.
