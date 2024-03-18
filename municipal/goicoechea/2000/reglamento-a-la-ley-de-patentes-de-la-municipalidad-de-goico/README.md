@@ -14,3 +14,4 @@ Reglamento a la Ley de Patentes de la Municipalidad de Goicoechea (Ley N° 7682)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-24 | la propia norma |
+| 2 | 2024-03-18 | Reglamento municipal 12 (2024-03-18) |
