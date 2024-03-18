@@ -1,0 +1,1 @@
+Artículo 22.-Vigencia de precios de referencia. El precio de referencia no podrá tener una antigüedad mayor a seis meses, por lo que los valores referenciales con antigüedad superior deberán actualizarse antes de adoptar la decisión inicial.

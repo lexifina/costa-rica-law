@@ -1,0 +1,1 @@
+Artículo 59.- Se deroga el reglamento de caja chica de la Municipalidad de Aserrí, publicado en La Gaceta N° 123, Alcance 16, del 27 de junio del 2005, y además se deroga cualquier otra disposición reglamentaria anterior que se le oponga al presente instrumento jurídico.

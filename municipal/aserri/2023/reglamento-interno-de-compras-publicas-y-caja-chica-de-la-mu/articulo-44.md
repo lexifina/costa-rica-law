@@ -1,0 +1,1 @@
+Artículo 44.- Tope valor monetario del fondo de las cajas chicas: Se fija un monto máximo para el contenido de las cajas chicas en general equivalente a un salario y medio del salario base definido en el artículo 2° de la Ley 7337 de 05 de mayo de 1993.

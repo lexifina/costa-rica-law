@@ -1,0 +1,1 @@
+Artículo 42.- Integridad de los fondos de trabajo: El monto fijo autorizado para el flujo de los fondos de trabajo, que integran la caja chica institucional, requiere que su responsable mantenga la suma total asignada ( Dinero en efectivo, vales, facturas, tiquetes de caja, solicitudes de reintegro en trámite y otros documentos representativos del efectivo).

@@ -1,0 +1,6 @@
+SECCION II
+Procedimientos de operación de los fondos de trabajo de la caja chica
+Artículo 50.- Procedimiento de utilización de fondos de trabajo de la caja chica: A continuación, se describe el proceso que las Unidades Ejecutoras, deben realizar para hacer uso pleno de los Fondos de Trabajo de la Caja Chica:
+1-Mediante el formulario respectivo, la Unidad Ejecutora elaborará la decisión inicial que contenga la justificación y descripción de los bienes, obras o servicios requeridos, acreditando el cumplimiento de lo dispuesto del artículo 12 del Reglamento a la Ley General de Contratación Pública, el cual será firmado por el funcionario responsable por los fondos de trabajo respectivo y la autorización del encargado de presupuesto, para los fines consiguientes. además, deberá contar con el visto bueno del Alcalde Municipal o del funcionario de quien él delegue formalmente.
+2-Se confecciona el vale respectivo al funcionario responsable de la compra, quien lo suscribirá.
+3-Una vez realizada la compra, la unidad ejecutora deberá realizar el proceso de liquidación del vale y finalmente subir a SICOP toda la información del proceso respectivo, dejando constancia de la totalidad de la documentación.

@@ -1,0 +1,9 @@
+Artículo 8°-Competencias de Gestión Jurídica. El área de asesoría legal dará acompañamiento, capacitación y apoyo necesarios a la proveeduría institucional en la tramitación de las contrataciones públicas, cuando así se lo solicite formalmente. Además, tendrá a cargo las siguientes funciones:
+a. Asesorar y colaborar con el Departamento de Proveeduría en caso de duda en lo relacionado con el análisis legal de las ofertas.
+b. Elaboración del refrendo interno cuando corresponda.
+c. Evacuar los criterios legales sobre la admisibilidad o no de las ofertas recibidas en los procesos de contratación y sobre aquellos aspectos que se deba solicitar subsanación por parte de los oferentes y que sean necesarios para la emisión del acto final, verificando el cumplimiento de los aspectos legales solicitados en el pliego de condiciones, siempre que el Titular de la Proveeduría se lo solicita formalmente.
+d. Realizar el análisis legal final de acuerdo a los subsanes presentados por los oferentes, cuando así se lo solicite formalmente el Titular de la Proveeduría.
+e. Asesorar jurídicamente en cuanto a los recursos de objeción que se interponen ante la Administración, cuando así se lo solicite formalmente el Titular de la Proveeduría.
+f. Asesorar jurídicamente en cuanto a los recursos de revocatoria y apelación contra los actos de adjudicación, declaratoria de infructuoso o desierto, cuando así se lo solicite formalmente el Titular de la Proveeduría, la Alcaldía o el Concejo.
+g. Colaborar en el trámite de ejecución de las garantías de cumplimiento y colaterales.
+h. Tramitar la gestión o el procedimiento correspondiente para la aplicación de sanciones económicas o administrativas que define la LGCP, una vez que el Administrador del contrato realice el cálculo y lo haga del conocimiento del Departamento de Proveeduría.

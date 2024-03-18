@@ -1,0 +1,1 @@
+Artículo 48.- Traslado del manejo del fondo: Los traslados y sustitución del responsable de un fondo de trabajo de la caja chica deberá materializarse mediante un arqueo realizado por el tesorero municipal, debidamente firmado por ambos funcionarios, previa autorización, escrita y expresa del Alcalde Municipal.

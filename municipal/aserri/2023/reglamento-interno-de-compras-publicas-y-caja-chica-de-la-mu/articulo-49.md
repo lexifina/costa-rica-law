@@ -1,0 +1,1 @@
+Artículo 49.- En lo relativo a la compra por medio de los fondos de caja chica de activos fijos sujetos a depreciación, estos deben incluirse en el inventario, por lo que cada Unidad deberá comunicarlo a la Proveeduría, para que este proceda a actualizar el registro en el sistema.

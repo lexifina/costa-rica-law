@@ -1,0 +1,2 @@
+Artículo 36.- Plazos de contratación. En la tramitación de los procesos de contratación pública, las personas funcionarias públicas; deberán de acatar los plazos estipulados por la Proveeduría en cada una de las etapas de contratación, la Ley General de Contratación Pública, N°9986 y el Reglamento a la Ley de Contratación Pública, Decreto Ejecutivo N°43808-H.
+El no acatamiento de estos plazos, será reportado a la Alcaldía o al Concejo, según corresponda, para que se sienten las responsabilidad administrativas respectivas.

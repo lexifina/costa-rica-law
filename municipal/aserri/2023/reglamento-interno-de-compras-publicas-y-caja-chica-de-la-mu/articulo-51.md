@@ -1,0 +1,2 @@
+Artículo 51.- Adelantos: Todo desembolso de caja chica, deberá solicitarse con anticipación a su erogación, para lo cual deberá completarse el proceso indicado en el artículo anterior y respaldada por el vale respectivo.
+El mismo quedará en poder del responsable del manejo del respectivo fondo de trabajo, quien deberá mantener un registro actualizado de los adelantos entregados, de forma tal que se pueda mantener un control de estos.

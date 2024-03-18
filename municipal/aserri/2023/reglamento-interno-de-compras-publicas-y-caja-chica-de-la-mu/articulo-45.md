@@ -1,0 +1,2 @@
+Artículo 45.- Control y responsabilidad de la caja chica: El manejo de la caja chica estará a cargo del titular de la Tesorería Municipal quien es responsable directo del control de los fondos de trabajo que integran dicha caja chica.
+El titular de la Tesorería Municipal o el subalterno que este designe será el encargado de realizar y verificar la exactitud de las liquidaciones de los fondos de trabajo.
