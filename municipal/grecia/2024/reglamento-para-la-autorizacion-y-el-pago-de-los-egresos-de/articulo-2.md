@@ -1,0 +1,2 @@
+Atribuciones del Alcalde
+Artículo 2º-El Alcalde Municipal autorizará egresos por gastos fijos y la adquisición de bienes y servicios tal como lo señala el artículo 17, inciso h) del Código Municipal, sin necesidad de previa autorización del Concejo Municipal, cuando tales actos no excedan la suma del 0.5% (Cero punto cinco por ciento) del monto del presupuesto ordinario correspondiente a la Municipalidad de Grecia en el período vigente, al momento de efectuarse el egreso respectivo.

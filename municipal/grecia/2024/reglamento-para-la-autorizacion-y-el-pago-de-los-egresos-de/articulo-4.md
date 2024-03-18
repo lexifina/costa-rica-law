@@ -1,0 +1,1 @@
+Artículo 4º-En todos los demás casos no exceptuados conforme lo indica el inciso e) del artículo 13 del Código Municipal, el Alcalde Municipal debe solicitar la autorización del Concejo Municipal, previo a la realización del desembolso.

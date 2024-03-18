@@ -1,0 +1,1 @@
+Artículo 13.-El Tesorero Municipal no hará pago alguno, sin orden escrita, acuerdo municipal, resolución del Alcalde, pago por servicio, orden de compra o cualquier tipo de disposición emitida por el órgano municipal competente que lo autorice al efecto, so pena de que se le apliquen sanciones consignadas en el artículo 119 del Código Municipal.

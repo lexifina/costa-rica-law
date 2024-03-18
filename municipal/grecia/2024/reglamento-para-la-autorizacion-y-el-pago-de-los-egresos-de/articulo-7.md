@@ -1,0 +1,1 @@
+Artículo 7º-Los pagos por los egresos contemplados en los artículos anteriores, se efectuarán por medio de cheque o transferencia bancaria, contando con la firma mancomunada del Tesorero o funcionario de la Tesorería autorizado para ello, así como la firma del Alcalde y/o el Jefe del área Financiera o quien ostente el cargo en el momento de realizar el pago.

@@ -1,0 +1,1 @@
+Artículo 10.-Todo pago que se ordene debe hacerse contra la documentación de respaldo (orden de compra y orden de pago por servicios) y en ella se debe acreditar el nombre del funcionario que lo ordenó e insertarse la firma del mismo como respaldo del egreso ordenado, según lo establecido en los artículos 118 y 119 del Código Municipal.

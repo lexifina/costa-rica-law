@@ -1,0 +1,1 @@
+Artículo 14.-Las personas a las que este Reglamento hace alusión, deben rendir garantía a favor de la Municipalidad, de acuerdo al artículo 13 de la Ley 8131, Ley de Administración Financiera y Presupuestos Públicos y el reglamento interno de esta Municipalidad.
