@@ -1,1 +1,0 @@
-Artículo 8º—Garantía de la Fondos de Caja Chica. Los encargados de la custodia de los fondos de Caja Chica, de conformidad con el Reglamento sobre la Rendición de Cauciones, deberán suscribir la póliza de fidelidad y responderán por el correcto manejo de estos fondos ante sus superiores inmediatos y ante los organismos de control interno y de fiscalización.

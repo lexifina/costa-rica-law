@@ -1,1 +1,0 @@
-Artículo 6º—Establecimiento del monto. El monto de los Fondos Fijos de Caja Chica será autorizado por el Consejo de Administración. Toda modificación o ampliación que se requiera, deberá solicitarla el Gerente de área al Consejo, previo estudio de la Dirección Administrativa Financiera mediante una solicitud que justifique su necesidad.

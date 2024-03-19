@@ -1,1 +1,0 @@
-Artículo 20.—Sello de pagado. La Sección de Tesorería le estampará un sello que tenga la leyenda “Pagado con Cheque N° ----y fecha de pago”, a todas las facturas, recibos, comprobantes u otros documentos relativos a la compra de bienes y servicios que acompañan las liquidaciones de Caja Chica para su reintegro.

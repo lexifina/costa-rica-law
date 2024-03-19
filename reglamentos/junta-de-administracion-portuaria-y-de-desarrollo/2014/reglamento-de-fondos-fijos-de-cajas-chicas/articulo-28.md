@@ -1,1 +1,0 @@
-Artículo 28.—Registro contable y presupuestario. Las liquidaciones periódicas estipuladas en el artículo anterior, luego del trámite de firmas en los departamentos correspondientes pasarán a la Sección de Presupuesto, Contabilidad y Tesorería para su registro, control y reintegro correspondiente.

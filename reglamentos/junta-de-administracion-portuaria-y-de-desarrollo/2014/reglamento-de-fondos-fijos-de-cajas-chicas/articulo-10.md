@@ -1,1 +1,0 @@
-Artículo 10.—Responsable del establecimiento de controles. Las jefaturas del Departamento Financiero, Jefe de Tesorería, Jefe Administrativo de Desarrollo y Jefe de Servicios Generales, deberán establecer los controles necesarios para asegurar el cumplimiento de lo establecido en el presente Reglamento.

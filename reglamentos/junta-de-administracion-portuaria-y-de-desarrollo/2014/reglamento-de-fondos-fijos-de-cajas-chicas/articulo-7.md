@@ -1,1 +1,0 @@
-Artículo 7º—Custodia de los fondos. Cada fondo de caja chica estará bajo la custodia de un funcionario cajero, quienes serán los responsables directos del uso de estos fondos, conforme a este Reglamento. Los funcionarios serán dependientes del Jefe de la Sección de Tesorería (Limón) y en San José del Jefe Administrativo de San José.
