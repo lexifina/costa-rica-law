@@ -13,3 +13,4 @@ Actualización del "Manual de Procedimientos para la Administración y Control d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-08 | la propia norma |
+| 2 | 2024-03-19 | Circular 52 (2024-03-19) |
