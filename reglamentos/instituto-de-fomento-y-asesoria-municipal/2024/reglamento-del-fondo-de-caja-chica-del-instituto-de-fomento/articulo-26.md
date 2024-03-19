@@ -1,0 +1,2 @@
+Artículo 26.-Formalización de liquidación. La liquidación del adelanto de caja chica, queda formalizada, cuando la persona responsable del fondo de caja chica, revise todos los requisitos y otorgue el visto bueno respectivo a través del SAF, quien contará con dos días para realizar la revisión.
+La Unidad Financiera contará con un plazo de ocho días para pronunciarse sobre la liquidación de adelantos de fondos girados para la atención de actividades de capacitación.

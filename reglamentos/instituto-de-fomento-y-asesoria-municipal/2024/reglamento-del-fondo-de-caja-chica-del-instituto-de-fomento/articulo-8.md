@@ -1,0 +1,1 @@
+Artículo 8º-Devoluciones de dinero. Se recibirán devoluciones de dinero, únicamente por medio de transferencia electrónica a la cuenta que para tal efecto destine la Unidad Financiera, sin excepción de ninguna clase. Las devoluciones deberán ser efectuadas en moneda de curso legal. No podrán recibirse por este fondo notas de crédito.

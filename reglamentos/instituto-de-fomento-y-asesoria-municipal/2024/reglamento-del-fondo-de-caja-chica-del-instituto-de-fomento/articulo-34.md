@@ -1,0 +1,1 @@
+Artículo 34.-En caso de que el adelanto de fondos de caja chica sea para cubrir gastos de actividades de capacitación que no se encontraban en la programación anual, en los que se haya considerado a personas funcionarias del IFAM, estas se abstendrán de cobrar viáticos (desayunos, almuerzos, cenas o hospedajes) por los conceptos sufragados por medio del adelanto.

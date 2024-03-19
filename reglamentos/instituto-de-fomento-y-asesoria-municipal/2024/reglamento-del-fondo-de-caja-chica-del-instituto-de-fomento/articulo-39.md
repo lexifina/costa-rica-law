@@ -1,0 +1,1 @@
+Artículo 39.-Este reglamento deroga el "Reglamento de Compras por Caja Chica". También, deroga el Reglamento de Adelanto de Fondos del Instituto de Fomento y Asesoría Municipal, así como cualquier otra disposición que se oponga al Reglamento que por este medio se emite.

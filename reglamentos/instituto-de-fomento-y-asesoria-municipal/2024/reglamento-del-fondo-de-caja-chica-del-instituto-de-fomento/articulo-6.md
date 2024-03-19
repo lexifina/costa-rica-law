@@ -1,0 +1,1 @@
+Artículo 6º-Módulo de caja chica. La Unidad Financiera, es la dependencia que Administra el módulo de Caja Chica del SAF y la encargada de solicitar los ajustes que considere pertinentes; además, es la encargada de confeccionar los formularios que para mayor control se requieren y que respalden las solicitudes de adelanto de compras por caja chica y las liquidaciones.

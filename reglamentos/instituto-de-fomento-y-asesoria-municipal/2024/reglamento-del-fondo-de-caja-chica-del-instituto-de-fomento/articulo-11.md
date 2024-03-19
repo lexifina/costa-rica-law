@@ -1,0 +1,1 @@
+Artículo 11.-Ausencia de la persona encargada del fondo: Si la persona encargada de la caja chica se ausenta de la Institución por vacaciones, permiso temporal con o sin goce de salario, caso fortuito o de fuerza mayor o cualquier otro motivo, el fondo será administrado temporalmente por la persona que designe la persona titular de la Unidad Financiera.

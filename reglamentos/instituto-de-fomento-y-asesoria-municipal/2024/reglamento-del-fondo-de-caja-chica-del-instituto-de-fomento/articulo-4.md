@@ -1,0 +1,1 @@
+Artículo 4º-Transferencia de Fondos. Los montos solicitados serán depositados a la persona funcionaria que se indique en el formulario de solicitud de adelanto de caja chica autorizada para realizar la compra en la cuenta bancaria registrada en el IFAM de esa persona.

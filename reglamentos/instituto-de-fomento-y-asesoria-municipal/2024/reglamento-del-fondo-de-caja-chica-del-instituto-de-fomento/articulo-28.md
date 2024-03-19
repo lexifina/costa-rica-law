@@ -1,0 +1,1 @@
+Artículo 28.-Registro de las compras en el Sistema Digital Unificado. La persona encargada del fondo de caja chica, será responsable de registrar en el Sistema Digital Unificado (SDU-SICOP), los documentos que respaldan los adelantos de caja chica una vez que se encuentren liquidadas y debe adjuntar todo documento que respalde la compra incluyendo la respectiva justificación.

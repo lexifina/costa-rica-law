@@ -1,0 +1,1 @@
+Artículo 32.-Adelantos pendientes de liquidar. Sin excepción aquellas personas que tengan adelantos del fondo de caja chica pendientes de liquidar, al amparo de este reglamento de Caja Chica, no podrán solicitar un nuevo adelanto amparado a este reglamento hasta tanto no completen la liquidación pendiente.

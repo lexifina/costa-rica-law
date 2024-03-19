@@ -1,0 +1,1 @@
+Transitorio II.-Mientras se realizan los ajustes en el Módulo de Caja Chica, la persona responsable del fondo de caja chica de la Unidad Financiera, deberá confeccionar los procedimientos que en forma manual les permita llevar los controles establecidos en este Reglamento.

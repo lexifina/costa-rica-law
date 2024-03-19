@@ -1,0 +1,1 @@
+Transitorio I.-Dentro del plazo de seis meses contados a partir de la publicación de este Reglamento, la Unidad de Tecnologías de Información deberá realizar los ajustes que se requieran en el Módulo de Caja Chica, a fin de brindar la plataforma necesaria para implementar las disposiciones de este reglamento.

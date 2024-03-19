@@ -1,0 +1,1 @@
+Artículo 24.-Liquidación de bienes conforme solicitud. Solamente se liquidarán los adelantos de caja chica por los bienes y servicios descritos en el formulario de solicitud de adelanto de caja chica y por la cantidad que se haya indicado en ese formulario.
