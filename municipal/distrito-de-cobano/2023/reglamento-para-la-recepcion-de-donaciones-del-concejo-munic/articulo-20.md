@@ -1,0 +1,1 @@
+Artículo 20.-El área competente deberá verificar que las actividades del potencial donante (sea persona física o jurídica privada), sean licitas, y además que se encuentre al día con el pago de las obligaciones obrero patronales con la Caja costarricense de seguro social y en el pago de sus obligaciones tributarias nacionales y distritales.

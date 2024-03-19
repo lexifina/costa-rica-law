@@ -1,0 +1,1 @@
+Artículo 2El Concejo Municipal de Distrito de Cóbano, en lo sucesivo se nombrara con las siglas CMDC, de conformidad la legislación vigente, podrá aceptar donaciones de toda clase de servicios, recursos y bienes provenientes de sujetos privados.

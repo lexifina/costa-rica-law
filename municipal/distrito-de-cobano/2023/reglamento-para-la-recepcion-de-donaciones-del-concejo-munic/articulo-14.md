@@ -1,0 +1,1 @@
+Artículo 14.-Toda donación en especie o en dinero en efectivo será sometida a los respectivos procedimientos de formalización, registro contable, presupuesto y de la administración y control de bienes, por lo que una vez recibida la donación se procederá con lo que correspondas según sea la naturaleza de la donación: servicio, especie o dinero en efectivo.

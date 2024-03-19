@@ -1,0 +1,12 @@
+CONCEJO MUNICIPAL DEL DISTRITO DE CÓBANO
+REGLAMENTO PARA LA RECEPCION DE DONACIONES
+DEL CONCEJO MUNICIPAL DE DISTRITO DE COBANO
+El Concejo Municipal del Distrito de Cóbano, por acuerdo número 5.2-2023 artículo VIII, inciso b, del día treinta y uno de octubre del año dos mil veintitrés, conoció y aprobó por unanimidad, el presente Reglamento para la Recepción de Donaciones del Concejo Municipal de Distrito de Cóbano
+Considerando:
+Que el artículo 170 de la Constitución Política, así como el artículo 4 del Código Municipal reconocen la autonomía política, administrativa y financiera de las Municipalidades, suficiente para dictar disposiciones reglamentarias.
+Que de conformidad con la normativa citada el Concejo Municipal de Distrito de Cóbano en ejercicio de la potestad atribuida por la Constitución y la Ley tiene plena y exclusiva competencia para emitir reglamentos autónomos de organización y de servicio.
+Que el numeral 1 de la ley N° 6227 Ley General de la Administración Pública da la posibilidad a los entes públicos para recibir donaciones esto deriva de su carácter de persona jurídica y la doble capacidad de derecho público y privado que ostentan la Administraciones Públicas, por lo que en el tanto no haya ley expresa que lo prohíba- todo ente público se encuentra autorizado, per se, para recibir donaciones. EI numeral 4° de la citada ley dispone claramente que la actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios.
+Que en virtud de que en El Concejo Municipal de Distrito de Cóbano, no existe normativa reglamentaria que regule la recepción de donación de sujetos privados, este Concejo Municipal, en uso de las facultades que le otorga el artículo 169 de la Constitución Política y el numeral 04 del Código Municipal acuerda emitir el presente reglamento:
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-El presente reglamento es un instrumento jurídico del Concejo Municipal de Distrito de Cóbano que regula las potestades, requisitos y trámites de las intenciones de donación y donaciones y la recepción de donaciones por parte de sujetos privados a favor del concejo Municipal de distrito de Cóbano.

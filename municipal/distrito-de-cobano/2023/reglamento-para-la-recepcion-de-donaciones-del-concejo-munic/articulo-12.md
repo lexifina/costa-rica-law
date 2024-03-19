@@ -1,0 +1,1 @@
+Artículo 12.-El intendente deberá una vez conformado el expediente presentarlo ante el Concejo Municipal quien procederá a aprobar o improbar la donación. Si aprobare la donación deberá instruir al Intendente para que suscriba convenio de donación con el donante.

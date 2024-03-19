@@ -1,0 +1,1 @@
+Artículo 17.-Todo ofrecimiento de donación al CMDC en la modalidad indicada en el artículo anterior, deberá indicar de manera clara y puntual en que consiste el servicio ofrecido y las razones que originan ese ofrecimiento.

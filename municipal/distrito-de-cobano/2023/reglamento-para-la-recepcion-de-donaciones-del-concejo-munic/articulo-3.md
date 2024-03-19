@@ -1,0 +1,1 @@
+Artículo 3º-El CMDC por ser un ente público con personalidad jurídica y capacidad de derecho público y privado, podrá aceptar donaciones de personas jurídicas privadas y personas físicas, pero deberá valorar la necesidad, razonabilidad, oportunidad y conveniencia para recibir los bienes.
