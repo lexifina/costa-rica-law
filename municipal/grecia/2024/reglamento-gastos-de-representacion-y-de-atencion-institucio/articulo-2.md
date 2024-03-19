@@ -1,0 +1,1 @@
+Artículo 2°-Definición: Se entiende por gastos de representación y atención institucional, aquellas erogaciones en que incurran funcionarios autorizados en el presente reglamento, para sufragar gastos con motivo de actividades de interés municipal, a personas o representantes de entidades ajenas a la Municipalidad de Grecia.

@@ -1,0 +1,1 @@
+Artículo 8°-La Tesorería Municipal rechazará el pago de aquellas facturas que no reúnan los requisitos establecidos en los puntos 3, 4, 5, 6 y 7 de este Reglamento. Los gastos de representación y de atención deben corresponder a erogaciones ocasionales de carácter oficial, por lo tanto, quedan excluidas todas aquellas atenciones de carácter personal.
