@@ -1,0 +1,3 @@
+Artículo 47.-De la revisión.
+El Consejo procederá a hacer la revisión de los proyectos, determinando si cumplen con la información solicitada y si responden a los principios, fines y objetivos de la Ley General de la Persona Joven, y de la Política Pública de la Persona Joven.
+En el caso de cumplir con lo establecido, la Junta Directiva del Consejo de la Persona Joven autorizará la transferencia de los recursos, caso contrario, la Junta Directiva del Consejo de la Persona Joven no autorizará la transferencia. En ambos casos se deberá notificar el acuerdo correspondiente al Concejo Municipal y al Comité Cantonal de la localidad.

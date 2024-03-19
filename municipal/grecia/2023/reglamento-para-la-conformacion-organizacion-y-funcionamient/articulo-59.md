@@ -1,0 +1,2 @@
+Artículo 59.-De la información.
+La municipalidad deberá brindar al Consejo de la Persona Joven la información, documentos, aclaraciones y explicaciones que este requiera sobre el manejo de los fondos aportados por el CPJ para el proyecto del Comité.

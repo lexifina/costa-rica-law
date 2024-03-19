@@ -1,0 +1,1 @@
+Artículo 75.-Los departamentos municipales Gestión Cultural con apoyo de la secretaria del concejo brindarán todo el apoyo, orientación y acompañamiento necesarios para la elección y el buen funcionamiento del CCPJ.

@@ -1,0 +1,1 @@
+Artículo 60.-El Consejo de la Persona Joven remitirá cada año la comunicación a la municipalidad sobre el presupuesto estimado que le corresponde a cada una de ellas para la ejecución de los proyectos del Comité Cantonal del año siguiente, a fin de que la municipalidad lo incorpore en el presupuesto ordinario.

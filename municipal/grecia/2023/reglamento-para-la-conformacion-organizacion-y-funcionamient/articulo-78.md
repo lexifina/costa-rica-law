@@ -1,0 +1,5 @@
+Título IX
+Capítulo Único
+De la casa cantonal de la juventud
+Artículo 78.-La Municipalidad de Grecia podrá ceder en préstamo el uso de un bien inmueble de su propiedad al CCPJ, para el establecimiento o la construcción de la casa cantonal de la juventud respectiva, siempre que cuente con un terreno disponible y apto para ello, conforme con lo establecido en la Ley General de Persona Joven, Ley Nº 8261 y sus reformas del 5 de mayo de 2002.
+En caso de que en dicho inmueble no exista edificación alguna o la que se encuentre no cumpla con lo necesario para los objetivos establecidos en la Ley, mediante convenio de cooperación entre la Municipalidad de Grecia y el Consejo de la Persona Joven, la municipalidad podrá autorizar la construcción o remodelación de una edificación que cumpla con los requerimientos necesarios para ser usada como casa cantonal de la juventud. Dicha edificación será parte del patrimonio municipal, independientemente de la naturaleza de los recursos que se utilicen en la obra. En el convenio de cooperación respectivo se podrán desarrollar todos los alcances regulados en el Capítulo V de la Ley Nº 8261

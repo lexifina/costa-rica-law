@@ -1,0 +1,1 @@
+Artículo 68.-Entiéndase por organizaciones deportivas y recreativas aquellas asociaciones deportivas que se encuentran debidamente inscritas y vigentes ante el Registro de Asociaciones Deportivas del Instituto Costarricense del Deporte y/o el Registro Público, cuya sede y radio de acción sea el cantón de Grecia y los Comités Comunales de Deportes Distritales del cantón.

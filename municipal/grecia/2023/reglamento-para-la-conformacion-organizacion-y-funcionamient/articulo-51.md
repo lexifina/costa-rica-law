@@ -1,0 +1,2 @@
+Artículo 51.-Del superávit municipal.
+En caso de superávit en las municipalidades del dinero transferido para la ejecución de proyectos por parte del CCPJ, solo podrán ser utilizados por el CCPJ en los proyectos previamente presentados al CPJ o contemplado en el proyecto a ejecutar en el año vigente, caso contrario deberá presentarse a Junta Directiva del CPJ un nuevo proyecto para utilizar el dinero del superávit existente.

@@ -1,0 +1,1 @@
+Artículo 76.-La Municipalidad dará apoyo técnico-operativo al CCPJ, para la ejecución del proyecto ejecutado con la transferencia de recursos por parte del CPJ, y brindará el informe correspondiente al CPJ sobre el gasto presupuestario realizado.
