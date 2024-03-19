@@ -14,3 +14,4 @@ Metodología tarifaria ordinaria para el servicio de generación de energía el�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-10 | la propia norma |
+| 2 | 2024-03-19 | Resolución 12 (2024-03-19) |
