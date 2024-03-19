@@ -1,1 +1,0 @@
-II. Tener como respuesta a los opositores que participaron en la audiencia pública realizada el 30 de noviembre de 2015, lo señalado en el oficio 0031-IA-2016, del 18 de enero de 2016, que consta en el expediente OT-157-2014 y agradecer la valiosa participación de todos en este proceso.

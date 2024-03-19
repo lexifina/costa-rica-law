@@ -1,1 +1,0 @@
-IV. Instruir a la Secretaría de Junta Directiva para que proceda a realizar la respectiva publicación del “Reglamento Técnico Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, AR-PSAYA-2015”, en el diario oficial La Gaceta.
