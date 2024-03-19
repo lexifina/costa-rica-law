@@ -18,3 +18,4 @@ Estatuto de la Federación de Municipalidades de Guanacaste
 | 3 | 2009-11-07 | Reglamento 3 (2009-11-07) |
 | 4 | 2014-05-03 | Reglamento 1 (2014-05-03) |
 | 5 | 2022-05-21 | Reglamento 2 (2022-05-21) |
+| 6 | 2024-03-19 | Reglamento 1 (2024-03-19) |

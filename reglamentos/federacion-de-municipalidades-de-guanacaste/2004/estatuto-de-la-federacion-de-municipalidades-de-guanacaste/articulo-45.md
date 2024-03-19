@@ -1,8 +1,9 @@
 CAPÍTULO XVIII
 De las finanzas
 (Mediante sesión N° 03 del 7 de noviembre de 2009, se corre la numeración de este capítulo, trasladandolo del capítulo XVII al XVIII, lo anterior debido a que se adiciona un nuevo numeral 41 bis con su capítulo XVII)
-Artículo 45.—El patrimonio de la Federación estará constituido por:
-a) Los aportes que hagan las Municipalidades de conformidad con la Ley Nº 4176 del 5 de agosto de 1968 y del convenio entre la Federación y las municipalidades afiliadas, el cual establece que las mismas aportarán el 4% de los ingresos que obtenga la municipalidad por concepto de la Ley Nº 6849 del 18 de febrero de 1983 (impuesto al cemento).
+Artículo 45.-El patrimonio de la Federación estará constituido por:
+a) Los aportes que hagan las Municipalidades de conformidad con la ley No. 4176 del 05 de agosto de 1968 y del acuerdo entre la Federación y las municipalidades afiliadas, el cual establece que las mismas aportarán el 4% de los ingresos que obtenga la municipalidad por concepto de la Ley No. 6849 del 18 de febrero de 1983 (impuesto al cemento).
+(Así reformado el inciso anterior en sesión N° 01 del 19 de marzo de 2024)
 b) Los aportes que hagan las Municipalidades con jurisdicción costera, de conformidad con el artículo 59) inciso b) de la Ley Nº 6043.
 c) Los aportes que realicen dos o más Concejos Municipales de Distrito, Municipalidades y/o Federaciones afiliadas o no para un proyecto concreto en la cual les beneficie, por medio de convenio.
 d) Los bienes muebles o inmuebles que le traspasen las municipalidades conforme a la Ley.

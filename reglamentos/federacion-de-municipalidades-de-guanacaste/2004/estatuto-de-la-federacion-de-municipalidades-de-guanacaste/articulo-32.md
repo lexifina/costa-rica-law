@@ -1,6 +1,6 @@
 CAPÍTULO IX
 Atribuciones del Consejo Directivo
-Artículo 32.—Son atribuciones del Consejo Directivo:
+Artículo 32.-Son atribuciones del Consejo Directivo:
 En materia ordinaria
 a- Elaborar y aprobar el proyecto de presupuesto anual ordinario junto con La Dirección Ejecutiva, lo mismo que los extraordinarios y liquidación del ejercicio, convocar y dirigir las Asambleas Generales.
 b- Ejecutar los proyectos y acuerdos dictados por la Asamblea General.
@@ -23,6 +23,8 @@ r- Queda facultada la autorización de los convenios entre dos o más Concejos d
 s- Todas las que por analogía con los Concejos Municipales, sean de aplicación para el cumplimiento de los objetivos de esta Federación.
 T- Aprobar los Reglamentos Internos, reglamentos de trabajo, manuales.
 (Así adicionado el inciso t) anterior mediante sesión extraordinaria N° 01-2014 del 3 de mayo del 2014)
+u- Aprobar la adhesión de nuevos miembros, así como su separación.
+(Así adicionado el inciso anterior en sesión N° 01 del 19 de marzo de 2024)
 En materia económica.
 a- Aprobar la Planificación económica de la Federación.
 b- Aprobar el Presupuesto y sus modificaciones en los términos establecidos con carácter general por la legislación de régimen municipal.
@@ -32,6 +34,8 @@ e- Aprobar las operaciones de empréstito, en los términos establecidos en los 
 f- Disponer de los bienes y derechos de la Federación y adquirir los que sean necesarios para la eficiente prestación de los servicios públicos municipales, con las limitaciones establecidas en la legislación.
 g- Creación de empresas públicas o mixtas para la mejor gestión de los servicios propios de las competencias de la Federación, promoviendo, para ello, los contratos a que hubiere lugar con entidades públicas o privadas.
 h- Reglamentar el uso, arrendamiento, venta y adjudicación de lotes y demás bienes de la Federación.
-i- Autorizar y aprobar la celebración de contratos sobre concesiones y otros modos de prestación de servicios públicos intermunicipales y lo relativo a la construcción y ejecución de obras públicas; ello siempre dentro del ámbito competencial de esta Federación.
+i. Autorizar y aprobar la celebración de contratos sobre concesiones y otros modos de prestación de servicios públicos intermunicipales y lo relativo a la construcción y ejecución de obras públicas; ello siempre dentro del ámbito competencial de esta Federación.
+i bis- Definir los aportes de las Municipalidades para la Federación, con la presentación de la propuesta del Director (a) Ejecutivo (a) y el Director Financiero de La Federación de Municipalidades de Guanacaste y Upala.
+(Así adicionado el inciso anterior en sesión N° 01 del 19 de marzo de 2024)
 j- Las que por analogía con los Concejos Municipales les sean de aplicación para el cumplimiento de los objetivos de esta Federación.
 (Así reformado en sesión N° 03 del 7 de noviembre de 2009)

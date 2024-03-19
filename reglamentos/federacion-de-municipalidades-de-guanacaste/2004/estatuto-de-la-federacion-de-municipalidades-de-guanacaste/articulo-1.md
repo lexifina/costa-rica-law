@@ -9,5 +9,5 @@ TÍTULO I
 Disposiciones generales, objetivos, fines y principios
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—La Federación de Municipalidades está integrada por el conjunto de Concejos Municipales de la Provincia de Guanacaste; por el conjunto de Concejos Municipales de Distrito de Colorado de Abangares y Lepanto de la Península de Nicoya, como entidad de carácter regional sin ánimo de lucro, con personalidad jurídica propia y plena autonomía administrativa de sus bienes e ingresos.
-(Así modificada su denominación en el punto 2) de las disposiciones finales de este reglamento)
+Artículo 1º-La Federación de Municipalidades está integrada por el conjunto de Municipalidades de la Provincia de Guanacaste y Upala; por el conjunto de Concejos Municipales de Distrito de Colorado de Abangares, Lepanto, Cóbano y Paquera de la Península de Nicoya, en adelante Federación de Municipalidades de Guanacaste y Upala, como entidad de carácter regional sin ánimo de lucro, con personalidad jurídica propia y plena autonomía administrativa de sus bienes e ingresos. Además, queda a criterio de la Asamblea General autorizar la incorporación de nuevos cantones por razones de interés regional, cercanía, proyección y fortaleciendo en el quehacer municipal.
+(Así reformado en sesión N° 01 del 19 de marzo de 2024)

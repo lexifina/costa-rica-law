@@ -15,3 +15,7 @@ h. Firmar los cheques conjuntamente con el Director Ejecutivo en ausencia del Te
 (Así reformado el inciso anterior mediante sesión N° 02-2022 del 21 de mayo del 2022)
 i. Convocar a sesiones extraordinarias.
 j. Todas aquellas funciones asignadas por el consejo directivo.
+k- Ejercer la autoridad sobre la secretaria (o) del Concejo Directivo para que las actas de cada sesión realizada sean trasladas a cada uno de los miembros de la Junta Directiva una semana después de realizada la sesión.
+(Así adicionado el inciso anterior en sesión N° 01 del 19 de marzo de 2024)
+L- Fiscalizar que los acuerdos tomados en cada sesión estén trasladados y confirmados por la secretaria de Concejo Municipal con un máximo de tiempo de una semana después de realizada la sesión, con el respectivo informe y seguimiento.
+(Así adicionado el inciso anterior en sesión N° 01 del 19 de marzo de 2024)
