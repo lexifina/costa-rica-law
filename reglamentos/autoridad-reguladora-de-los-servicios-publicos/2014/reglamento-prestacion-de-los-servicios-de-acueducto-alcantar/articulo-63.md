@@ -1,2 +1,0 @@
-Artículo 63.- Publicidad de la información.
-Los prestadores deben publicar en el diario oficial La Gaceta y en los medios que consideren oportunos, todo procedimiento o requisito referido a la prestación de los servicios y sus trámites cuando estos modifiquen o crean obligaciones o derechos, junto con los instructivos, reglamentos, manuales, formularios, protocolos y demás documentos complementarios. Estos documentos deben estar ubicados en los lugares de atención al público, así como en su sitio web, si contara con uno.

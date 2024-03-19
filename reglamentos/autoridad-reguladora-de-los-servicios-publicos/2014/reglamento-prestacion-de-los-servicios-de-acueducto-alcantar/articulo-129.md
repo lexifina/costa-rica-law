@@ -1,3 +1,0 @@
-Artículo 129.- Vigencia.
-Las reformas al reglamento: “Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, AR-PSAYA- 2013”, rigen a partir de la fecha de su publicación en La Gaceta, excepto para las Asociaciones Administradoras de Sistemas de Acueductos y Alcantarillados Comunales (ASADAS) cuyas reformas les regirán en la misma fecha en que entre en vigencia para ellas, el Reglamento: “Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, ARPSAYA-2013”, publicado en el alcance N°50 a La Gaceta N° 186 del 29 de setiembre del 2014, con excepción de los plazos establecidos en los Transitorios de esta reforma.
-(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

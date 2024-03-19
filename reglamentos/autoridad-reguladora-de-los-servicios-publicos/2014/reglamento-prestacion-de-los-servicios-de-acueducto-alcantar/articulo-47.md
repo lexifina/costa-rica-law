@@ -1,2 +1,0 @@
-Artículo 47.- Servicios para actividades e instalaciones temporales.
-Los prestadores siempre que sea técnicamente factible, están obligados a suministrar los servicios de acueducto, alcantarillado e hidrantes para actividades e instalaciones temporales, siempre y cuando no afecten la calidad, continuidad y prestación óptima de los servicios brindados a sus abonados. Estos servicios deben ajustarse a lo establecido en este reglamento.

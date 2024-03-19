@@ -1,3 +1,0 @@
-Artículo 116.- Dimensionamiento de las obras que mejoren o amplíen los sistemas de acueducto y alcantarillado sanitario y la extensión de sistemas.
-El prestador deberá velar porque, en los diseños de las obras que un particular pretenda costear y ejecutar, se prevea un dimensionamiento suficiente que permita resguardar la dotación de los abonados actuales y los futuros en resguardo del interés público. Asimismo, el operador deberá velar que estas obras sean compatibles con las exigencias técnicas para procurar el abastecimiento de los hidrantes.
-(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

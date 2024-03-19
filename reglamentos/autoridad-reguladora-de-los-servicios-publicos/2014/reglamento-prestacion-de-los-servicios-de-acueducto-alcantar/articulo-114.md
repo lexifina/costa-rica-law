@@ -1,3 +1,0 @@
-Artículo 114.- Financiamiento de las extensiones de los sistemas y fuentes de abastecimiento
-Los prestadores no están en la obligación de financiar la ampliación de los sistemas de acueductos y alcantarillado sanitario, incluidas las fuentes de abastecimiento, si dichos proyectos no están contemplados en el PMYES. Para esos efectos, podrán recurrir a la participación de la inversión privada siempre que así lo determinen los estudios técnicos correspondientes que respalden su factibilidad, sin que con ello se comprometa la demanda de los abonados actuales, ni se atente contra el interés público.
-(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

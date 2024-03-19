@@ -1,4 +1,0 @@
-Artículo 97.- Ajuste del monto de la facturación de los servicios por incumplimiento de la calidad del agua.
-Los abonados del servicio de acueducto que reciban agua que incumple las normas y principios de calidad establecidas, siempre y cuando dicho incumplimiento no sea atribuible a, caso fortuito, fuerza mayor o daño a terceros; sino atribuible al prestador, durante el periodo de incumplimiento pagarán únicamente el monto correspondiente al cargo fijo, en el caso de que no exista cargo fijo, pagarán el 50% de la factura por el servicio.
-Para la aplicación del ajuste en el monto de la facturación, el abonado deberá presentar las pruebas que demuestren los hechos, y si el operador conoce de los hechos debe aplicar el no cobro de oficio a todos los abonados afectados.
-(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)
