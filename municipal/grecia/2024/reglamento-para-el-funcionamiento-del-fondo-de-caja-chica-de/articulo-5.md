@@ -1,0 +1,1 @@
+Artículo 5°-El monto máximo por vale de caja chica corresponderá al 0.50% del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, regulado en el artículo 36 de la Ley General de Contratación Pública.

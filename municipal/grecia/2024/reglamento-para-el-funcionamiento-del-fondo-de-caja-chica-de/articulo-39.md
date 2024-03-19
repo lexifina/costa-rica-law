@@ -1,0 +1,1 @@
+Artículo 39.-El Tesorero Municipal en su condición de encargado de caja chica, no podrán guardar documentos, efectivo o cheques de su propiedad particular, en los lugares destinados para la Caja Chica.

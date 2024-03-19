@@ -1,0 +1,1 @@
+Artículo 36.-No podrán hacer uso del fondo de la Caja Chica las personas que no presten servicio regular en la Municipalidad. Se autoriza a los Regidores propietarios hacer uso del fondo de caja chica cuando, en cumplimiento de sus funciones o atención de labores propias de su cargo, se requiera.

@@ -1,0 +1,1 @@
+Artículo 44.-Las sanciones que correspondan, según lo dispuesto en este reglamento, serán aplicadas por el Alcalde Municipal, de conformidad con lo que establece en esta materia, el Código Municipal, El Reglamento Interno de la Municipalidad de Grecia, el Código de Trabajo y otras normas conexas.
