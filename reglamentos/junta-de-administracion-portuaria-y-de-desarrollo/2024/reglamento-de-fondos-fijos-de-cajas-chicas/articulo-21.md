@@ -1,0 +1,2 @@
+Artículo 21.-Respaldo de reintegros.
+Todo reembolso o reintegro de caja chica deberá respaldarse con documentos originales que serán revisados en cuanto a su integridad y autenticidad y sello de revisado por control interno a efecto de que no puedan ser utilizados posteriormente.

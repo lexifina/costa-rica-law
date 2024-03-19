@@ -1,0 +1,2 @@
+Artículo 20.-Sello de cancelado del cajero (a).
+El Proceso de Tesorería le estampará un sello que tenga la Leyenda "Pagado con cheque o transferencia N°.. y fecha de pago", firmado en la liquidación del gasto y las facturas u otros documentos relativos a la compra de bienes y servicios que acompañen las liquidaciones de Caja Chica para su respectivo reintegro.

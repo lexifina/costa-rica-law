@@ -1,0 +1,3 @@
+Artículo 37.-Deber de obediencia.
+Todo funcionario a cargo del manejo de los fondos de Caja Chica tiene el deber de obedecer las órdenes superiores de conformidad con el artículo 107 de la Ley General de la administración Pública.
+Ningún funcionario, empleado o agente será relevado de responsabilidad, por haber procedido contra la ley o disposiciones reglamentarias en virtud de orden superior al pago, uso de disposición de fondos o bienes a su cuidado, o a rebajas ilegales de impuestos. En estos casos el funcionario tiene el deber de desobedecer estas órdenes conforme a lo dispuesto en el artículo 108 de la Ley General de la Administración Pública, para lo cual dejará constando por escrito, su disconformidad ante el superior.
