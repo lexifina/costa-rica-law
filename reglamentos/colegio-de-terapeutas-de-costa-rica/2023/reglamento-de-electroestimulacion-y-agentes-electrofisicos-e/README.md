@@ -14,3 +14,4 @@ Reglamento de electroestimulación y agentes electrofísicos en terapia del leng
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-03 | la propia norma |
+| 2 | 2024-03-20 | Reglamento 9 (2024-03-20) |

@@ -1,0 +1,3 @@
+Artículo 11 bis. El Colegio de Terapeutas tendrá la posibilidad de levantar un registro de instituciones, empresas o personas físicas capacitadoras extranjeras que brinden cursos aptos para cumplir con los requisitos establecidos en este Reglamento. Una vez que se cuente con dicho Registro, se pondrá a disposición de todos los agremiados.
+Los cursos impartidos por instituciones, empresas o personas extranjeras, diferentes a los contemplados en ese registro serán valorados por la Comisión profesional de Terapia del Lenguaje, de previo a ser tomado en cuenta para efectos de la certificación.
+(Así adicionado en sesión N° 0009 del 20 de marzo de 2024)
