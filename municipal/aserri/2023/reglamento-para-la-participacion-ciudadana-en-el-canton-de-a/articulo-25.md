@@ -1,0 +1,1 @@
+Artículo 25.-A las sesiones de las mesas de diálogo podrán acudir todas las personas interesadas. El voto solo lo podrán ejercer una vez por cada decisión los grupos registrados por medio de un representante para recomendar decisiones al Concejo de Distrito.

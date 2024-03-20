@@ -1,0 +1,1 @@
+Artículo 15.-Todas las sesiones del Concejo de Distrito serán públicas, pudiendo participar en ellas los (as) vecinos (as) en su calidad particular. Para tal efecto cada Concejo normará dicha participación por Acuerdo.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las Mesas de Diálogo Distritales
+Artículo 23.-Según con lo estipulado en este Reglamento, se constituirá una mesa de diálogo distrital en cada uno de los distritos del cantón de Aserrí. La comunidad de Poás, perteneciente al distrito Central, contará con su propia mesa de diálogo debido a la organización comunal y a la cantidad de población con que cuenta, lo que facilita la atención a las necesidades de sus habitantes. En otras comunidades del cantón, según su organización comunal, también podrán conformarse otras mesas de diálogo, coordinadas por el respectivo Concejo de Distrito. La Alcaldía y el respectivo Concejo de Distrito podrán conformar grupos de vecinos que apoyen la realización de la mesa de diálogo.

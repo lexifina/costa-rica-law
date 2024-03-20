@@ -1,0 +1,1 @@
+Artículo 33.-La Municipalidad podrá destinar recursos de su presupuesto anual para el proceso de implementación de los presupuestos participativos en sus cantones, cuando se haya realizado una asignación para tales efectos

@@ -1,0 +1,1 @@
+Artículo 5º-Para toda audiencia deberá contarse con una agenda previa sobre el tema o los temas a tratar, definida por el o la presidente del Concejo Municipal. Cuando se solicite una audiencia en un distrito deberá darse al Concejo de Distrito y al alcalde o alcaldesa municipal un plazo no mayor a treinta días para prepararse con respecto a los temas de la misma.

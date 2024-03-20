@@ -1,0 +1,1 @@
+Artículo 34.-El alcalde deberá presentar al Concejo Municipal, a más tardar el 30 de agosto de cada año, el proyecto de presupuesto ordinario, el cual podrá incluir los requerimientos presupuestarios presentados por la Asamblea de Concejos de Distrito.

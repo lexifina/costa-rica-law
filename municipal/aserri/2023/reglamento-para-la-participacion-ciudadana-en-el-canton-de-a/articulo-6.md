@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los concejos de distrito
+Artículo 6º-Los Concejos de Distrito quedan autorizados para celebrar reuniones con los vecinos de su circunscripción con el fin de considerar problemas comunes y proponer las soluciones adecuadas al Concejo Municipal entre otras cosas a través de la elaboración de planes locales que posibiliten el desarrollo del distrito en la forma que lo indica la Ley y este Reglamento. Los Concejos de Distrito deben promover la participación activa de los vecinos en sus sesiones. El departamento respectivo de la Municipalidad dará respuesta eficaz a las solicitudes hechas por los síndicos(as) y/o concejales.

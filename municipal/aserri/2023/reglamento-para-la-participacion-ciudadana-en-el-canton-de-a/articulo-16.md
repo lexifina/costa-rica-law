@@ -1,0 +1,1 @@
+Artículo 16.-Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes; si hubiera empate se someterá de nuevo a votación y si persistiera el empate, se decidirá por medio de la suerte.

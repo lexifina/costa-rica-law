@@ -1,0 +1,1 @@
+Artículo 22.-El Presidente del Concejo de Distrito y síndico, debe velar y coordinar las acciones pertinentes para que cualesquiera contribuciones que se ofrezcan en beneficio del distrito -cualquiera que sea su naturaleza- sean depositadas directamente en la tesorería de la Municipalidad con la debida individualización del destino que su depositante hubiera propuesto.

@@ -1,0 +1,2 @@
+Disposiciones Finales
+Artículo 35.-La Municipalidad diseñará estrategias de comunicación en las cuales se informe ampliamente a la población del cantón de las sesiones de los Concejos de Distrito, las mesas de diálogo, la realización de audiencias públicas ante el Concejo Municipal y de las consultas populares contempladas en este Reglamento. En dichas estrategias, se deberán contemplar tanto los medios más tradicionales de comunicación (impresos, radiales) como las nuevas tecnologías de información y comunicación (NTICS).
