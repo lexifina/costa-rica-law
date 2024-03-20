@@ -1,0 +1,36 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 7 del acta de la sesión 1846-2024, celebrada el 4 de marzo del 2024,
+considerando que:
+Considerandos legales y reglamentarios
+I.-En el Alcance 19 al Diario Oficial La Gaceta 28 del 12 de febrero del 2020, fue publicada la Ley de Creación del Fondo de Garantía de Depósitos y de Mecanismos de Resolución de Intermediarios Financieros, Ley 9816.
+Esta Ley tiene la finalidad de fortalecer y completar la red de seguridad financiera para contribuir a la estabilidad financiera, proteger los recursos de los pequeños ahorrantes, y promover la confianza y la competitividad del sistema financiero nacional.
+II.-La Ley 9816 crea el Fondo de Garantía de Depósitos (FGD), como un patrimonio autónomo, cuyo fin es el de garantizar, hasta cierto límite, los depósitos y ahorros que las personas físicas y jurídicas mantienen en las entidades contribuyentes a este Fondo, de conformidad con los términos y las condiciones establecidos en dicha Ley.
+III.-El artículo 6 de la Ley 9816 le asigna al Consejo Nacional de Supervisión del Sistema Financiero (Conassif), la responsabilidad de emitir la reglamentación técnica del FGD.
+En cumplimiento de lo anterior, el Conassif, mediante artículo 5 del acta de la sesión 1640-2021, celebrada el 28 de enero de 2021, dispuso en firme aprobar el Reglamento de Gestión del Fondo de Garantía de Depósitos (FGD) y de Otros Fondos de Garantía (OFG), el cual fue publicado en el Alcance 23 a La Gaceta 22 del miércoles 3 de febrero del 2021.
+Este Reglamento tiene la finalidad de establecer las normas operativas de este Fondo, en cumplimiento de lo establecido por el legislador.
+Considerando sobre la contratación
+anual de una auditoría externa
+IV.-El artículo 27 de la Ley 9816 establece la obligatoriedad de que la administración del FGD contrate anualmente una auditoría externa y publique los estados financieros auditados correspondientes a cada ejercicio fiscal.
+Adicionalmente, el Artículo 39, Auditoría externa, del Reglamento de Gestión del Fondo de Garantía de Depósitos (FGD) y de Otros Fondos de Garantía (OFG), establece que el administrador del FGD debe contratar anualmente una firma de Auditoría Externa para que evalúe y emita opinión sobre la situación financiera, los procedimientos, la gestión de riesgos, las tecnologías de información y la estructura administrativa de control interno del Fondo.
+Considerandos sobre la auditoría interna
+V.-El artículo 28 de la Ley 9816 le asigna a la Auditoría Interna del Banco Central de Costa Rica (BCCR), el deber de ejercer la auditoría interna del FGD. Esta obligación se regula en el Artículo 38, Auditoría interna, del Reglamento de Gestión del Fondo de Garantía de Depósitos (FGD) y de Otros Fondos de Garantía (OFG), donde se establece que la Auditoría Interna del BCCR debe considerar en su plan anual de auditoría, la revisión y aplicación de controles internos y de riesgos, de manera tal que se evalúe y se controle la gestión en la administración del FGD.
+VI.-La Auditoría Interna del Banco Central atiende anualmente la revisión de la ejecución de los controles internos incluyendo los de la administración de riesgos del FGD, de manera tal que se verifique el cumplimiento de estos por parte de la administración del Fondo. Este servicio que brinda la Auditoría Interna del BCCR forma parte de los gastos administrativos del FGD.
+Considerandos sobre la contratación
+de auditoría externa administrativa
+VII.-Dentro de las funciones que le asigna al administrador del FGD el Artículo 9- Funciones del administrador del Fondo de Garantía de Depósitos de la Ley 9816, se encuentra la de contratar una firma de auditores externos que evalúe y emita opinión sobre la situación financiera, los procedimientos, la gestión de riesgos, las tecnologías de la información y la estructura administrativa del Fondo. No obstante, lo anterior, el artículo mencionado no establece una periodicidad a dicha función, por lo que, en virtud de que la misma Ley ordena una auditoría externa anual de estados financieros y una auditoría interna anual, se considera necesario establecer la periodicidad de la auditoría externa administrativa.
+VIII.-La administración del FGD contrata de anualmente una firma de auditoría externa que evalúa y emite opinión sobre la situación financiera, los procedimientos, la gestión de riesgos, las tecnologías de información y la estructura administrativa de control interno del Fondo. Las acciones que se ejecutan en esta auditoría externa, de índole administrativa, son redundantes con las acciones que realiza la Auditoría Interna del BCCR.
+Por otra parte, anualmente la administración del FGD contrata una auditoría externa para elaborar los estados financieros auditados correspondientes a cada ejercicio fiscal.
+Considerando sobre la evaluación Costo-Beneficio
+que exige la Ley 8220
+IX.- La evaluación costo-beneficio de la regulación se realiza de conformidad con lo establecido en los artículos 1 y 12 de la Ley Protección al ciudadano del exceso de requisitos y trámites administrativos, Ley 8220, y en los artículos 12, 12bis, 13, 13bis y 56 al 60bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, 37045- MP-MEIC.
+Esta regulación indica que la Administración Pública debe realizar un análisis de impacto regulatorio mediante una evaluación costo-beneficio antes de emitir cualquier nueva regulación o reformar las existentes, cuando establezcan trámites, requisitos y procedimientos que deba cumplir el administrado ante la Administración.
+De dicho análisis se determinó que la regulación no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central, por lo que no se realiza este control previo.
+dispuso en firme:
+1º-Modificar el Artículo 39. Auditoría externa, del Reglamento de Gestión del Fondo de Garantía de Depósitos (FGD) y de Otros Fondos de Garantía (OFG), para que en adelante se lea de la siguiente manera:
+"Artículo 39. Auditoría externa. El administrador del FGD debe contratar anualmente una auditoría externa y publicar los estados financieros auditados correspondientes a cada ejercicio fiscal, elaborados conforme a las normas contables vigentes, y en un plazo máximo de un mes desde la recepción del informe final de la auditoría externa.
+Además, el administrador del FGD debe contratar cada dos años una firma de auditoría externa que evalúe y emita opinión sobre los procedimientos, la gestión de riesgos, las tecnologías de información y la estructura administrativa de control interno del Fondo.
+La Junta Directiva del BCCR, debe conocer y valorar los resultados de estos informes. Ambos informes se deben publicar conforme a los lineamientos que emita la Junta Directiva del BCCR."
+2º-Agregar a la norma reglamentaria detallada en el numeral 1 precedente, el Transitorio que se cita a continuación:
+"Transitorio I
+La primera auditoría externa relacionada con lo requerido en el segundo párrafo del artículo 39 de este reglamento, se realizará respecto del año 2024."
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
