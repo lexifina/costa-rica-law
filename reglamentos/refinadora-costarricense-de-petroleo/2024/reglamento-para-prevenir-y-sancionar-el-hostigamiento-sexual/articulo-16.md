@@ -1,0 +1,6 @@
+Artículo 16.-Del procedimiento administrativo. Se tramitará de conformidad con el procedimiento administrativo establecido en la Ley Contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia, Ley 7476 del 3 de febrero de 1995 y sus reformas, en este Reglamento, la Convención Colectiva de RECOPE S.A, por el Código de Trabajo y la Ley General de la Administración Pública, Ley 6227 del 02 de mayo de 1978.
+El objetivo del procedimiento es la verificación de la verdad real de los hechos denunciados que sirvan de motivo para el acto final.
+Durante el procedimiento se deberá asegurar el debido proceso, derecho de defensa y confidencialidad.
+Tanto la persona denunciante como la denunciada podrán hacerse representar por una persona profesional en derecho y/o una persona representante sindical.
+Además, podrán hacerse acompañar por una persona profesional en Psicología u otra persona de su confianza, que le brinde apoyo emocional en las diversas fases del procedimiento.
+Este procedimiento deberá completarse en el plazo máximo de tres meses, contados a partir de la interposición de la denuncia por hostigamiento sexual, a excepción de los periodos de cierre colectivos por vacaciones y asuetos del Sector Público, cuando podrán ser suspendidos los plazos o por el grado de complejidad del caso.

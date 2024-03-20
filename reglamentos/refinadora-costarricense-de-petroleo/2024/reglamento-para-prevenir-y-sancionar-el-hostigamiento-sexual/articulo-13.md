@@ -1,0 +1,2 @@
+Artículo 13.-Traslado de la denuncia. Cuando la denuncia sea recibida, el Órgano Decisor, debe admitir la denuncia en todos los casos, sin recurrir a su ratificación, ni a la investigación preliminar de los hechos e iniciará el procedimiento administrativo pertinente para averiguar la verdad real de los hechos.
+Dentro de los tres días siguientes, integrará al órgano instructor con tres de los integrantes de la Comisión Investigadora para que instruya el procedimiento de hostigamiento sexual.

@@ -1,0 +1,1 @@
+Artículo 8º-Acciones de evaluación. La Comisión de Prevención, dentro del plan y estrategia anual, propondrá una metodología para llevar a cabo las acciones de análisis y evaluación, que aporten los insumos necesarios para desarrollar las acciones preventivas correspondientes contra el hostigamiento sexual.

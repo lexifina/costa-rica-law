@@ -1,0 +1,2 @@
+Artículo 12.-Denuncias contra personas externas. Cuando la persona denunciada por hostigamiento sexual brinde servicios a RECOPE en condición de contratista o subcontratista, una vez recibida la denuncia de conformidad con lo dispuesto en el artículo 11 de este Reglamento, se le da traslado a su patrono, para que éste inicie el procedimiento de hostigamiento sexual, de conformidad con su normativa interna y la Ley 7476.
+Sin perjuicio de las acciones que pueda tomar RECOPE con base en los términos de la contratación.

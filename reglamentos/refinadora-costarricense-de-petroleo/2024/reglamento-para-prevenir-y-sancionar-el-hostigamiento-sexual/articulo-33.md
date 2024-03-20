@@ -1,0 +1,4 @@
+Artículo 33.-Derogatoria. Se deroga el Reglamento para Prevenir y Sancionar el Hostigamiento Sexual en la Refinadora Costarricense de Petróleo S.A., aprobado por la Junta Directiva de RECOPE, mediante Artículo N° 7, de la Sesión Ordinaria N° 5293-265, celebrada el miércoles 31 de marzo del 2022.
+Aprobado por la Junta Directiva de RECOPE S.A. San José, a los 05 días del mes de marzo del año 2024, sesión ordinaria N° 5397-95.
+2. Con la entrada en vigencia del Reglamento para Prevenir y Sancionar el Hostigamiento Sexual en RECOPE se deroga el anterior aprobado por la Junta Directiva de RECOPE, mediante Artículo N° 7, de la Sesión Ordinaria N° 5293-265, celebrada el miércoles 31 de marzo del 2022.
+3. Comisionar al Departamento de Comunicación y Estrategia Digital para que proceda con el trámite de publicación en el Diario Oficial La Gaceta.

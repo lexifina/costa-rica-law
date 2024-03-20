@@ -1,0 +1,1 @@
+Artículo 22.-Resolución final del procedimiento. El órgano decisor deberá resolver y notificar el procedimiento remitido por la Comisión Investigadora mediante resolución final debidamente fundamentada, durante el plazo de los diez días hábiles posteriores a la recepción del informe final.

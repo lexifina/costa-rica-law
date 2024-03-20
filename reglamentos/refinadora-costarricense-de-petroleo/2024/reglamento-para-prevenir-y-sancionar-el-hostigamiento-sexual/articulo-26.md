@@ -1,0 +1,1 @@
+Artículo 26.-Denuncias falsas. Quien denuncie hechos falsos de hostigamiento sexual podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.

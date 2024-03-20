@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento se aplicará a todas las personas que mantenga algún vínculo con la RECOPE, en cualquier nivel jerárquico, sea interno o externo. Se entenderá por personal externo, al personal tercerizado, contratista, pasantes o cualquier otra persona que presta un servicio en RECOPE o a nombre de esta, sin tener un vínculo laboral.
