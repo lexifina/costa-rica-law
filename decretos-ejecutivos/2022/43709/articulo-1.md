@@ -1,4 +1,6 @@
+(Suspendida)
 N° 43709-MOPT-MEIC
+(Mediante resolución N° 001739 del 20 de marzo de 2024, el Tribunal Contencioso Administrativo y Civil de Hacienda, suspendió los efectos del presente decreto ejecutivo)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES,
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA
