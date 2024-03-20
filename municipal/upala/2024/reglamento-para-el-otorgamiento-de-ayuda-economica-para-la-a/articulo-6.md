@@ -1,0 +1,1 @@
+Artículo 6º-Del monto de la ayuda temporal: El monto de la ayuda no será en ningún caso, mayor a la suma de un salario mínimo de un trabajador no calificado genérico fijados por el Ministerio de Trabajo y Seguridad Social. Dicho monto se adecuará de conformidad con el valor actualizado que establezca dicho Ministerio.
