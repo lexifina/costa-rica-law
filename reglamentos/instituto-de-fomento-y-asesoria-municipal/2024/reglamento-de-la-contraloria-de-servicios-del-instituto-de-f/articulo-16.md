@@ -1,0 +1,1 @@
+Artículo 16.-Informes y Recomendaciones: Los informes y recomendaciones generados por la Contraloría serán remitidos al Jerarca (Presidencia Ejecutiva) quien tendrá la autoridad para tomar las medidas necesarias con el fin de mejorar el servicio.

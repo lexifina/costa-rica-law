@@ -1,0 +1,1 @@
+Artículo 17.-Asesoría y Apoyo Técnico: La persona Contralora podrá solicitar el apoyo de todas las dependencias del IFAM, así como de cualquier persona funcionaria que considere esencial para respaldar sus labores.

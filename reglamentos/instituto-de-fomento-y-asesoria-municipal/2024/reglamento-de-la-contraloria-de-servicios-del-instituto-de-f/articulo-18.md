@@ -1,0 +1,1 @@
+Artículo 18.-Continuidad del Servicio Público: Las gestiones planteadas por las personas usuarias no afectarán de ninguna manera la continuidad, calidad y atención del servicio proporcionado por el IFAM.

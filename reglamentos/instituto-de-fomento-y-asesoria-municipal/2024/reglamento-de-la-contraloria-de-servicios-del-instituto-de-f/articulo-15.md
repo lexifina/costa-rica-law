@@ -1,0 +1,1 @@
+Artículo 15.-Suspensión de la Tramitación de Casos: La Contraloría suspenderá la investigación cuando cuente con pruebas suficientes que demuestren que el mismo asunto está siendo atendido por otra instancia administrativa o judicial competente para su resolución.

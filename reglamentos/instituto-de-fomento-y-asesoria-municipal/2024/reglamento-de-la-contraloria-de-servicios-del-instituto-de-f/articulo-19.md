@@ -1,0 +1,1 @@
+Artículo 19.-Discreción y Confidencialidad: La Contraloría está comprometida a garantizar la discreción y la confidencialidad en el uso y manejo de la información que recibe, incluyendo la contenida en la base de datos de la Contraloría.
