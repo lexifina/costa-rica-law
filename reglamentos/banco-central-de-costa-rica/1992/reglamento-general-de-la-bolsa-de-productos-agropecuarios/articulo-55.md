@@ -1,3 +1,0 @@
-Tarifa de comisiones
-Artículo 55.-De todo contrato que se celebre por intermedio de BOLPRO, esta cobrará una comisión del medio por ciento fijo a cada parte contratante sobre el valor transado. Los puestos de bolsa cobrarán como mínimo una comisión del medio por ciento sobre el valor transado, sin embargo, por encima de este porcentaje, podrán acordar con sus clientes el cobro de una tarifa mayor.
-La Junta Directiva de BOLPRO podrá modificar en cualquier tiempo, de manera general o para determinados contratos, la tarifa de comisiones dispuesta en este artículo. Estas modificaciones deberán ser comunicadas al Banco Central de Costa Rica con al menos quince días naturales de anticipación a su entrada en vigencia.

@@ -1,3 +1,0 @@
-Bienes negociables
-Artículo 3°- Podrán ser negociados en la Bolsa de Productos Agropecuarios bienes y productos de origen o destino agropecuario, de producción nacional o extranjera, y los documentos mercantiles que, de cualquier manera, representen, constituyan o concedan derechos sobre bienes, servicios o productos de la naturaleza indicada.
-No obstante lo anterior, también podrán negociarse en la Bolsa de Producto Agropecuarios cualquier tipo de bienes muebles o mercancías, de conformidad con el artículo 402 del Código de Comercio, con salvedad de aquellos valores cuya negociación se encuentre reservada para una bolsa de valores de acuerdo con dicho artículo.

@@ -1,3 +1,0 @@
-Contrato de tiau.ro con opción
-Artículo 46.-El contrato de futuro con opción representa el derecho, pero no la obligación, de una de las partes de tomar la posición resultante de la compraventa de un contrato de futuro, a un precio determinado. La parte que reciba la opción deberá pagar una prima que tendrá el carácter de arras confirmatorias. Si la opción se ejercitare dentro del plazo convenido, la prima se considerará como parte de precio de la compraventa . Si no se ejercitare, la prima será entregada a la otra parte contratante como indemnización fija de daños y perjuicios.
-El pago de las primas en estos contratos se regirá de conformidad con las disposiciones generales que emita BOLPRO, la cual será sometida a la aprobación de la Comisión Nacional de valores

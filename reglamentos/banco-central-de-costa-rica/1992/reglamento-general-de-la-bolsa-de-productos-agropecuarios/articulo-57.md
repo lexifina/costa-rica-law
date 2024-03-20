@@ -1,2 +1,0 @@
-Obligaciones de pago
-Artículo 57 .-Las obligaciones de pagar sumas de dinero en virtud de operaciones bursátiles realizadas, deberán liquidarse en la Cámara de Compensación que corresponda, al vencimiento del plazo acordado entre las partes, de acuerdo con la naturaleza de dichas operaciones. Si el día en que vence el plazo del contrato es inhábil el pago deberá realizarse en el siguiente día hábil.

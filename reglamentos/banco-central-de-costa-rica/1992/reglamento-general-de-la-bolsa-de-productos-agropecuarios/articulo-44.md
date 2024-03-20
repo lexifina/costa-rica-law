@@ -1,2 +1,0 @@
-Contrato de entrega diferida
-Artículo 44- El contrato de entrega diferida es un acuerdo de compraventa a un precio determinado de un bien o producto que no se encuentra como tal en posesión del vendedor a la fecha de la negociación, sino que se encuentra en proceso de siembra, o ya ha sido sembrado, o que se encuentra cosechado fuera del territorio nacional, y que estará a su disposición, para su entrega al vencimiento del plazo previsto en el contrato.

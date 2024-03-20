@@ -1,3 +1,0 @@
-Procedimiento
-Artículo 71 .-BOLPRO establecerá el procedimiento para la aplicación de los anteriores artículos, garantizando en todo caso, el derecho de defensa de quien se le impute la comisión de una falta que amerite sanción.
-Cuando BOLPRO advierta una falta, clara audiencia al presunto infractor por un plazo no menor de tres días ni mayor de diez días. para que se refiera a los cargos que se le imputan, aportando, en esa misma oportunidad procesal, toda la prueba de descargo de que disponga. Vencido dicho plato, BOLPRO dictará la resolución respectiva, pudiendo para ello solicitar prueba para mejor proveer.

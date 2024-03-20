@@ -1,3 +1,0 @@
-Facultades de divulgación
-Artículo 6°- Con las salvedades indicadas en la ley y aquellas que BOLPRO estime convenientes en atención a los intereses del mercado en general, BOLPRO tendrá amplias facultades para divulgar al público cualquier información relativa a las negociaciones que se realicen por su intermedio, y a los sujetos y entidades que participen en ellas.
-No obstante lo anterior, los funcionarios, directores y empleados de BOLPRO, deberán abstenerse de divulgar cualquier información, sea en procura o no de un provecho propio de tercero, mientras tal información no sea pública o sea susceptible de hacerse pública.

@@ -1,2 +1,0 @@
-Peritos
-Artículo 33 -BOLPRO mantendrá una lista de peritos autorizados, a los cuales podrán recurrir las partes interesadas para realizar negociaciones en BOLPRO, o para fundamentar una reclamación, ante la misma o ante la Cámara Arbitral, que surja en virtud de operaciones efectuadas. BOLPRO establecerá la forma y condiciones que deberán cumplir los sujetos que procuren obtener la autorización referida.

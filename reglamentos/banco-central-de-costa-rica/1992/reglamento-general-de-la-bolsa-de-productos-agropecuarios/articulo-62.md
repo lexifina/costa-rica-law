@@ -1,3 +1,0 @@
-Liquidación coactiva de las operaciones
-Artículo 62.-En el evento de que una o ambas partes no cumplan con las obligaciones derivadas de los contratos de bolsa, la Cámara de Compensación que corresponda, procederá a liquidar forzosa o coactivamente la obligación incumplida, de conformidad con los procedimientos que establezca BOLPRO para estos propósitos.
-En todo caso, la Cámara de Compensación iniciará el trámite de la liquidación forzosa, ejecutando las garantías otorgadas por la parte contratante respectiva, en respaldo de la obligación que se incumple y las del puesto de bolsa que corresponda.

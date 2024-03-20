@@ -1,2 +1,0 @@
-Márgenes y coberturas
-Artículo 47.- Para realizar contratos de disponibles para entrega a plazo de entrega diferida, de futuro y futuro con opción, las partes contratantes deberán garantizar el cumplimiento en sus obligaciones, manteniendo márgenes o coberturas, en la forma y oportunidad que establezca BOLPRO, de conformidad con las disposiciones que establezca al efecto. Estas disposiciones deberán ser comunicadas a la entidad púbica competente con al menos una semana de antelación a su entrada en vigencia.

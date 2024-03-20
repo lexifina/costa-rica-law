@@ -1,2 +1,0 @@
-Cláusula compromisoria
-Artículo 12.-Las disputas de carácter patrimonial surgidas con motivo de las transacciones comerciales efectuadas a través de BOLPRO deberán, previo sometimiento a la vía jurisdiccional, ser conocidas y resueltas por la Cámara Arbitral. Para estos efectos, en los contratos de bolsa se incluirá una cláusula compromisoria, mediante la cual se hará referencia a la expresa aceptación de las partes de esta disposición.

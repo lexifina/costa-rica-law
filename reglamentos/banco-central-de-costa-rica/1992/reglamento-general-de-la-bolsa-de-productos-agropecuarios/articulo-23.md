@@ -1,2 +1,0 @@
-Comisión de Semaneros
-Artículo 23.- La Junta Directiva de BOLPRO decidirá la constitución de una Comisión de Semaneros, encargada de establecer los precios al final del día de cada producto, bien o título negociable en BOLPRO, de acuerdo con los mecanismos que se establezcan para tal efecto. Esta Comisión estará formada por al menos dos representantes de los puestos de bolsa, nombrados por BOLPRO para cada semana. La Junta Directiva dictará las disposiciones que regulen el funcionamiento de la Comisión de Semaneros.

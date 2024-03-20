@@ -1,3 +1,0 @@
-Operaciones por cuenta propia
-Artículo 22.-Los puestos de bolsa podrán realizar operaciones por cuenta propia, de conformidad con las disposiciones generales que BOLPRO emita al efecto. En todo caso, estas disposiciones deberán procurar que los puestos de bolsa, en la realización de operaciones por cuenta propia, eviten la resolución de eventuales conflictos de interés en perjuicio de sus clientes.
-Se entenderá. para los efectos del presente reglamento, que opera por cuenta propia, el puesto que realice operaciones para sí; para sus socios; para sociedades o entidades sometidas a un mismo control. o para las personas físicas o jurídicas que directa o indirectamente. controlen la concesión.

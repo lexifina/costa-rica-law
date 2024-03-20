@@ -1,4 +1,0 @@
-CAPITULO OCTAVO
-Régimen disciplinario y de sanción
-Facultades de BOLPRO
-Artículo 65.-Corresponde a BOLPRO la fiscalización del cumplimiento de las disposiciones legales pertinentes, del presente Reglamento, de cualquier acuerdo emanado por su Junta Directiva, Gerencia General, Cámara Arbitral o Cámara de Compensación y de cualquier otro asunto que las leyes sometan a su fiscalización. Para tales efectos gozará de las potestades establecidas en la ley y en el presente Reglamento, en particular, las de sancionar a los puestos y agentes de bolsa, y a los otros sujetos autorizados que participen en las operaciones bursátiles o en su liquidación, cuando cualesquiera de ellos violenten las disposiciones legales o reglamentarias o los acuerdos referidos, o cometan una actuación irregular que perjudique o pueda perjudicar a los mercados que BOLPRO organice.

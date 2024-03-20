@@ -1,1 +1,0 @@
-Artículo 50.-Los puestos de bolsa no podrán realizar contratos cruzados por cuenta propia, sea comprando los productos, títulos o bienes que se le han confiado para su venta, o vendiendo los productos, títulos o bienes que se le han encargado para su compra.

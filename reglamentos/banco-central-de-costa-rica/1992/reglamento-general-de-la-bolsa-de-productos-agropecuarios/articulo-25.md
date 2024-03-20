@@ -1,2 +1,0 @@
-Agente de bolsa
-Artículo 25.-Son agentes de bolsa las personas físicas representantes de un puesto de bolsa a nombre de quien realizan personalmente las actividades que se les encarguen, autorizadas por BOLPRO. y que gozan de una credencial otorgada por esta última, de conformidad con el reglamento que para estos efectos se emita con fundamento en el inciso d) del artículo 400 del Código de Comercio.

@@ -1,2 +1,0 @@
-Atribuciones generales
-Artículo 5°- BOLPRO será la encargada, en los términos de la ley, el presente reglamento, y los acuerdos de carácter general que emitan sus órganos internos competentes, .de autorizar los procedimientos para la realización de negociaciones por su intermedio, autorizar los bienes, productos y títulos negociables, y los sujetos o entidades que pueden concurrir, a los mercados que BOLPRO organice, para llevar a cabo tales negociaciones.

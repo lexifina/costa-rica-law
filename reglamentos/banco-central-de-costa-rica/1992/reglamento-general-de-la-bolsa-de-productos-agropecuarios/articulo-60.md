@@ -1,2 +1,0 @@
-Cámara de Compensación
-Artículo 60.-BOLPRO operará como Cámara de Compensación de todas las operaciones que se realicen por su intermedio, entregando a cada parte el precio convenido y los bienes, productos o títulos transados. Sin embargo, BOLPRO podrá encargar, parcial o totalmente, la realización de las labores de la Cámara de Compensación, a una o varias sociedades mercantiles que fungen como Cámaras de Compensación, y que serán las únicas responsables por las actividades que se les encomienden.

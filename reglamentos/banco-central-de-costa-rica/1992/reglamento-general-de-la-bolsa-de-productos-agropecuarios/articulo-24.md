@@ -1,2 +1,0 @@
-Responsabilidad de los puestos de bolsa
-Artículo 24.-Sin perjuicio de las responsabilidades establecidas en este Reglamento, y de las que resulten de las operaciones bursátiles, los puestos de bolsa son responsables de la exactitud de los términos y condiciones de las ofertas contractuales que realicen para llevar a cabo operaciones bursátiles, por su cuenta o por cuenta ajena, y, en este último caso, de la capacidad de su representante para hacerlas.

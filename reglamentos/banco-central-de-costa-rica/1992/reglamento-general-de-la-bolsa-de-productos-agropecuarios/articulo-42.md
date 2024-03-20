@@ -1,2 +1,0 @@
-Contrato de disponible
-Artículo 42.-El contrato de disponible es un acuerdo de compraventa a un precio determinado de un producto o bien que físicamente se encuentra en el mercado y que debe ser cumplido y liquidado dentro de los ocho días hábiles siguientes a la fecha en que se concertó el acuerdo. BOLPRO podrá establecer. de manera general, un plazo de días menor para la liquidación de estos contratos.

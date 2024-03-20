@@ -1,3 +1,0 @@
-Proceso de autorización
-Artículo 30.-BOLPRO establecerá el procedimiento y los requisitos que deben cumplirse para obtener la autorización de los centros de depósito Una vez otorgada dicha autorización, el centro deberá suscribir un contrato con BOLPRO, mediante el cual se comprometa a cumplir las disposiciones y acuerdos que emita BOLPRO para estos propósitos
-En dicho contrato deberá además disponerse sobre la garantía de cumplimiento que deberá otorgar el centro de depósito ante BOLPRO, y sobre su obligación de emplear el formato de certificado de depósito que le suministre BOLPRO, para su utilización en las operaciones bursátiles.

@@ -1,3 +1,0 @@
-Límite al otorgamiento
-Artículo 19.· BOLPRO determinará el número de concesiones y la oportunidad de su adjudicación. El otorgamiento de concesiones estará regido por un principio de apertura, con el propósito de procurar la mayor participación posible en BOLPRO de interesados en realizar actividades de intermediación, considerando la diversidad de los bienes, productos y títulos que puedan negociarse.
-En todo caso, ninguna persona física o jurídica podrá, directamente o por interpósita persona, mantener control de más de una concesión de puesto de bolsa. La junta directiva establecerá las disposiciones necesarias para la aplicación de esta limitación.
