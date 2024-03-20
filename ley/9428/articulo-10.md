@@ -1,1 +1,4 @@
-ARTÍCULO 10.- Administración. Corresponde a la Dirección General de Tributación del Ministerio de Hacienda la recaudación, la administración, la fiscalización y el cobro de este tributo.
+Artículo 10- Administración. Corresponde a la Dirección General de Tributación, del Ministerio de Hacienda, la recaudación, la administración, la fiscalización y el cobro de este tributo.
+La Contraloría General de la República incluirá, en la certificación de la efectividad fiscal de los ingresos del presupuesto de la República, la estimación de recaudación de este impuesto.
+El Ministerio de Hacienda incorporará, en el presupuesto vigente, una actualización de los montos contenidos en la certificación de efectividad fiscal de los ingresos, luego del primer semestre. Esta incorporación se hará en el primer presupuesto extraordinario presentado en el segundo semestre del año, para los efectos de lo dispuesto en el artículo 11 de esta ley.
+(Así reformado por el artículo único de la Ley para la eficiencia y transparencia presupuestaria del impuesto a personas jurídicas para fortalecer los recursos dirigidos al sector seguridad, N° 10460 del 20 de marzo de 2024)
