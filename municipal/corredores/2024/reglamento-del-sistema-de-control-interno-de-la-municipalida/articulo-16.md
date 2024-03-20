@@ -1,0 +1,2 @@
+Artículo 16.-Reuniones del CICI. El CICI se reunirá al menos una vez cada trimestre de forma ordinaria y se deberá reunir de forma extraordinaria cuando sean convocados por el Coordinador del CICI, en función de las necesidades administrativas, para cumplir con el mantenimiento y fortalecimiento SIC-MC o el SEVRI-MC.
+Igualmente, podrán ser solicitadas reuniones extraordinarias por al menos tres de los miembros, o bien por el Coordinador de la UCI. La convocatoria respectiva será confirmada por el Coordinador del Comité.

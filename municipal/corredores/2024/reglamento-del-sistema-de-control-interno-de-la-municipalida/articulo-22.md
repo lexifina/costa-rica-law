@@ -1,0 +1,1 @@
+Artículo 22.-Seguimiento. Promover el cumplimiento eficiente, eficaz y oportuno de los resultados de las evaluaciones periódicas que realizan la Administración activa, la Auditoría interna, la Contraloría General de la República, la Auditoria externa y demás instituciones de control y fiscalización que correspondan.
