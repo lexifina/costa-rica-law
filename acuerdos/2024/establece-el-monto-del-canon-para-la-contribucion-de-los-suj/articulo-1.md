@@ -1,0 +1,49 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 9° del acta de la sesión 1846-2024, celebrada el 4 de marzo del 2024,
+considerando que:
+A. El Ministerio de Hacienda, como rector del Sistema de Administración Financiera del Estado y de la política fiscal, tiene a su cargo la dirección, estudio y despacho de todos los asuntos relacionados con la Hacienda Pública, garantizando que la asignación de los recursos del gasto público responda siempre a criterios de eficiencia, eficacia, calidad y transparencia.
+B. Los artículos 174 y 175 de la Ley Reguladora del Mercado de Valores, Ley 7732, establecen que los sujetos fiscalizados deben aportar al presupuesto de la Superintendencia General de Entidades Financieras (Sugef), la Superintendencia General de Valores (Sugeval), la Superintendencia de Pensiones (Supen) y la Superintendencia General de Seguros (Sugese), mediante contribuciones obligatorias.
+C. De acuerdo con lo dispuesto en el Transitorio II de la Ley 9746, que reforma la Ley 7732, se incorpora una gradualidad para incrementar el porcentaje de contribución de las entidades supervisadas al financiamiento del presupuesto de la Sugef, el cual pasa de un 20% a un 50% a razón de incrementos graduales anuales, de acuerdo con la siguiente tabla:
+Año | Aumento | Porcentaje por cobrar
+2020 (Año 1) | 0,00% | 20,00%
+2021 (Año 2) | 0,00% | 20,00%
+2022 (Año 3) | 0,00% | 20,00%
+2023 (Año 4) | 0,00% | 20,00%
+2024 (Año 5) | 7,50% | 27,50%
+2025 (Año 6) | 7,50% | 35,00%
+2026 (Año 7) | 7,50% | 42,50%
+2027 (Año 8) | 7,50% | 50,00%
+D. El artículo 15 y 15 bis de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley 7786, obliga a los sujetos que realizan alguna de las actividades descritas en esos artículos a inscribirse en la Sugef.
+E. Mediante artículo 1 de la Ley 9746, del 16 de octubre de 2019, se reforma el artículo 175 de la Ley 7732, para establecer que los sujetos obligados por los artículos 15 y 15 bis de la Ley 7786 contribuirán con un canon al presupuesto de la superintendencia.
+F. El artículo 15 bis de la Ley 7786 señala que se exceptúa de la contribución al financiamiento de los gastos efectivos en que incurra la Sugef en la labor supervisora, a los profesionales liberales, ya sea que actúen de forma individual o corporativa.
+G. De acuerdo con la modificación al artículo 175 de la Ley 7732, incluida en la Ley 9746, el canon podrá ser diferenciado, según lo defina el Consejo Nacional de Supervisión del Sistema Financiero (Conassif), en función del perfil de riesgo del sujeto supervisado, su estructura, la cantidad y el monto de sus transacciones, y su vulnerabilidad al riesgo.
+H. Mediante artículo 7, del acta de la sesión 1542-2019, celebrada el 4 de noviembre de 2019, el Conassif aprobó el Reglamento para la prevención del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, aplicable a los sujetos obligados por los artículos 15 y 15 bis de la Ley 7786, Acuerdo SUGEF 13-19, el cual establece los criterios y parámetros con base en los cuales se realiza la clasificación por tipo de sujeto obligado, considerando su tamaño, estructura, cantidad de operaciones, número de empleados, volumen transaccional y factores de exposición al riesgo de legitimación de capitales, financiamiento del terrorismo y financiamiento de la proliferación de armas de destrucción masiva (LC/FT/FPADM), en cumplimiento de lo dispuesto en la Ley 7786. Esta clasificación por tipo de sujeto obligado es necesaria para que el Conassif realice la diferenciación del canon a cobrar a los sujetos obligados.
+I. Mediante artículo 3 de la Ley 9746 se reforma el literal t) del artículo 171 de la Ley 7732, mediante el cual se dispone como una de las funciones del Conassif, establecer, vía reglamento, cánones o tarifas para trámites o servicios específicos, tales como los trámites de autorización, de conformidad con el ordenamiento jurídico. Los montos establecidos para estos cánones deberán reflejar el costo del servicio y serán transferidos al Banco Central de Costa Rica (BCCR).
+J. En sesión 1450-2018 del 8 de octubre de 2018, el Conassif aprobó el Acuerdo Sugef 1118, Reglamento para la inscripción y desinscripción ante la Sugef de los sujetos obligados que realizan alguna o algunas de las actividades descritas en los artículos 15 y 15 bis de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley 7786, en cuyos artículos 6 literal f, 7, literal a, inciso viii y 7, literal b, inciso vii, solicitan a los sujetos obligados que aporten una dirección de correo electrónico para recibir notificaciones, la cual será registrada ante la Superintendencia y que servirá a los efectos de los trámites relacionados con el cumplimiento de la contribución al presupuesto de la Superintendencia.
+K. El artículo 175 de la Ley 7732 establece que, en caso de mora, el monto de las contribuciones adeudadas devengará la tasa de interés moratoria definida en la Ley 4755, Código de Normas y Procedimientos Tributarios.
+L. Mediante el artículo 7 del acta de las sesiones 1618-2020 y 1619-2020, celebradas el 9 de noviembre de 2020 el Conassif aprobó la Metodología para el cálculo del canon para la contribución de los sujetos obligados por los artículos 15 y 15 bis de la Ley 7786, al financiamiento del presupuesto de la Sugef.
+M. El artículo 6 del Reglamento para la Contribución de los Sujetos que realicen Actividades Descritas en los Artículos 15 y 15 bis de la Ley 7786 al Financiamiento del Presupuesto de la Superintendencia General de Entidades Financieras, indica que el Conassif fijará en febrero de cada año el canon con el que contribuirá cada sujeto obligado de acuerdo con la metodología vigente, para lo cual considerará la clasificación según el tipo de sujeto obligado vigente, la cantidad de sujetos inscritos, así como los costos ejecutados por la supervisión a estos sujetos obligados, al 31 de diciembre del año anterior.
+N. Los costos ejecutados del proceso de inscripción y supervisión de los sujetos obligados por los artículos 15 y 15 bis de la Ley 7786 para el año terminado al 31 de diciembre de 2023 y el porcentaje de contribución son los siguientes:
+Rubro | Monto
+Costos directos | ¢536.864.930
+Costos de sistemas | ¢251.627.784
+Costos indirectos | ¢638.281.465
+COSTO TOTAL | ¢889.909.249
+Contribución del 27,50% | ¢392.362.899
+O. La cantidad de sujetos inscritos por tipo al 31 de diciembre de 2023, a los que se les debe realizar el cobro del canon es:
+Sujetos obligados | Cantidad | Porcentaje
+Tipo 1 | 87 | 2,01%
+Tipo 2 | 289 | 6,68%
+Tipo 3 | 3949 | 91,31%
+TOTAL | 4325 | 100%
+resolvió en firme:
+establecer y comunicar, en acatamiento de lo dispuesto en el artículo 6, Cuantificación del canon anual, del Reglamento para la Contribución de los Sujetos que realicen Actividades Descritas en los artículos 15 y 15 bis de la Ley 7786 al Financiamiento del Presupuesto de la Superintendencia General de Entidades Financieras, el monto del canon 2024, de conformidad con el siguiente detalle:
+1. De acuerdo con la aplicación de la Metodología para el cálculo del canon para la contribución de los sujetos obligados por los artículos 15 y 15 bis de la Ley 7786, al financiamiento del presupuesto de la Superintendencia General de Entidades Financieras, aprobada por el Conassif mediante las actas de las sesiones 1618-2020 y 1619-2020, celebradas el 9 de noviembre de 2020, el monto del canon por Tipo para el período 2024, es el siguiente:
+Sujetos obligados | Canon 2024
+Tipo 1 | ¢932.881,38
+Tipo 2 | ¢253.401,87
+Tipo 3 | ¢60.260,60
+Nota: colones costarricenses.
+2. El cobro del canon se gestionará sobre las cuentas indicadas por los sujetos inscritos, durante mayo de 2024. Vencido este período, en caso de que no haya sido posible ejecutar el cobro, se iniciará con el proceso de suspensión de la inscripción; y aplicarán los intereses moratorios correspondientes.
+3. Una vez iniciado el proceso de suspensión de la inscripción, el sujeto obligado podrá normalizar su situación mediante el suministro de la información solicitada por medio del sistema antes indicado y con la disposición de los recursos suficientes en la cuenta correspondiente para que se gestione el cobro automático del canon, según corresponda.
+4. A partir de la notificación de la suspensión de la inscripción por falta de pago del canon, se estará iniciando con el proceso de cobro judicial.
