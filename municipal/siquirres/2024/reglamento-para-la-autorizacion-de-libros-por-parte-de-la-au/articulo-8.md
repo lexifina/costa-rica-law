@@ -1,0 +1,1 @@
+Artículo 8º-Cantidad de folios. La cantidad de folios será la que se estime necesaria y permita por un tiempo razonable el uso del libro a autorizar, en caso, de actas de un órgano o grupo colegiados se regirán por las disposiciones, directrices y lineamientos establecidos por la Junta Administrativa del Archivo Nacional, Órgano Rector del Sistema Nacional de Archivos.

@@ -1,0 +1,1 @@
+Artículo 26.-Archivo y custodia de los folios dañados, deteriorados total o parcial. La Auditoría Interna cuando haya materializado la apertura de tomos o folios por reposición, devolverá a la unidad u órgano solicitante para su archivo y custodia respectiva los folios dañados, deteriorados total o parcialmente.

@@ -1,0 +1,1 @@
+Artículo 15.-Destrucción de libros. Los libros autorizados que no se retiren en un plazo de tres meses, contados a partir de la fecha en que se comunicó su apertura, serán destruidos, previo levantamiento de la respectiva acta de destrucción, acta que quedará en los registros de solicitudes de aperturas que lleva la Auditoría Interna.

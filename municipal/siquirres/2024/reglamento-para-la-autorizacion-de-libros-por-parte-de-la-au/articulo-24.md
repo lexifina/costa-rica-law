@@ -1,0 +1,1 @@
+Artículo 24.-Plazo para resolver. La Auditoría Interna contará con un plazo de cinco días hábiles para tramitar la solicitud. Plazo que comenzará a regir a partir de la fecha de presentación de la documentación por parte de la instancia correspondiente.

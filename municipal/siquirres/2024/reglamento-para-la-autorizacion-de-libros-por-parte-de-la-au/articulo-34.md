@@ -1,0 +1,1 @@
+Artículo 34.-Revisión y determinación de observaciones y anomalías. Si del proceso de verificación de cierre se observa algún error, omisión o anomalía antes de hacer el cierre, se deja constancia en el libro de lo sucedido; debajo de lo cual se estampa la firma del Auditor Interno o funcionario designado y el sello de la Auditoría Interna.

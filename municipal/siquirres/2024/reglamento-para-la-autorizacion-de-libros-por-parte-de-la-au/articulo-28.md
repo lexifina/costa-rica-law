@@ -1,0 +1,3 @@
+Artículo 28.-Solicitud de cierre de libro. Se recibirán para trámite de cierre aquellos libros que previamente fueron autorizados en la Auditoría Interna. La solicitud de razón de cierre de libro reunirá la siguiente información:
+- Fecha de solicitud, dependencia solicitante, tipo de libro, número de tomo del libro a cerrar, cantidad de folios que contiene, número y fecha del acta inicial y del acta final que contiene, o en su defecto registro inicial y registro final del libro a cerrar.
+- Nombre y firma del Coordinador del área que gestiona el trámite, nombre, cargo, y firma del funcionario responsable de la custodia y uso del libro.

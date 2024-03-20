@@ -1,0 +1,1 @@
+Artículo 41.-Situaciones no previstas. Ante cualquier situación no prevista en este reglamento, se le hará por escrito la consulta al Auditor Interno, para que se analice la misma y lo resuelva de acuerdo con la legislación aplicable y teniendo como finalidad la satisfacción de la necesidad de contar en forma oportuna con la información legal y oficial debidamente registrada.

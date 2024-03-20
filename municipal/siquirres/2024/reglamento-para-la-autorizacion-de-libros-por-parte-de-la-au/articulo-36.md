@@ -1,0 +1,1 @@
+Artículo 36.-Retiro del libro con razón de cierre. Una vez finalizada la fase de cierre se informa a la persona solicitante vías correspondientes para que retire el libro, por lo que una vez remitida la comunicación, la dependencia u órgano solicitante debe coordinar su retiro.
