@@ -1,0 +1,2 @@
+Artículo 50. Acto final del procedimiento. El órgano decisor del procedimiento debe, en el plazo de tres días hábiles después de recibido el informe final de recomendación, dictar el acto final del procedimiento; acogiendo o rechazando las recomendaciones dadas.
+En caso de rechazar las recomendaciones, debe indicar el motivo de su decisión conforme lo estipula la Ley General de la Administración Pública, así como, su decisión final. El acto final de recomendación debe ser notificado a todas las partes del proceso.

@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de aplicación. El presente Reglamento aplica a todas las personas que conforman la comunidad universitaria, integrada por personas servidoras académicas, administrativas y estudiantes.
+Cuando la denuncia sea presentada por una persona externa, en contra de personas servidoras académicas y administrativas en el cumplimiento de sus funciones o estudiantes en el ejercicio de sus deberes académicos, se debe remitir a la Rectoría, para que ésta, proceda conforme a lo establecido en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia.

@@ -1,0 +1,2 @@
+Artículo 28. Nombramiento en caso de recusación e inhibición. Para efectos de la Comisión Investigadora la nueva conformación se lleva a cabo con las personas suplentes.
+Cuando la persona recusada o inhibida sea quien ostente el puesto de Decano o de Director Ejecutivo se nombra al miembro suplente electo con anterioridad por la Asamblea Universitaria; para el caso del Rector, el Consejo Universitario designa la persona encargada para ostentar su puesto, tanto como primera instancia como segunda instancia.

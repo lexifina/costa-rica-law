@@ -1,0 +1,4 @@
+Artículo 18. Acceso al expediente. Solamente las partes involucradas en el proceso y sus representantes legales pueden tener acceso al expediente, a excepción de las instancias que actúen a efectos de su tramitación.
+Dichas personas pueden revisar y fotocopiar el expediente administrativo en el momento que consideren oportuno.
+Para efectos de retirar las copias, la parte interesada debe presentarse ante la Comisión Disciplinaria o ante la instancia que se encuentra resguardando el expediente a realizar la solicitud; una persona miembro de la Comisión le acompañará para el fotocopiado del material , de modo que siempre se resguarda íntegramente. El costo de las fotocopias lo debe asumir la parte interesada, conforme lo establece la Ley General de la Administración Pública (Ley N°6227).
+De igual manera, en el caso que el expediente se encuentre digitalizado, su acceso debe estar custodiado por las personas indicadas en este artículo.

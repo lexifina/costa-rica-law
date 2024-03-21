@@ -1,0 +1,1 @@
+Artículo 44 Prueba. Tanto las partes como la Comisión Investigadora del procedimiento tienen la potestad de incorporar la prueba que consideren pertinente al procedimiento. A tales efectos, el plazo máximo para su incorporación es el día de la comparecencia y debe agregarse como parte del legajo del expediente principal.

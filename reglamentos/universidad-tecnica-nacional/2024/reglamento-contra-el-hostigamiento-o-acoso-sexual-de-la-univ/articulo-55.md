@@ -1,0 +1,2 @@
+CAPÍTULO XV DISPOSICIONES FINALES
+Artículo 55. Supletoriedad. Para lo no regulado expresamente en este Reglamento, se aplica supletoriamente las disposiciones de la normativa universitaria compatible y las disposiciones de la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia, la Ley General de la Administración Pública, Ley de Notificaciones Judiciales y el Código de Trabajo. La instrucción de un procedimiento diferente al establecido en el presente reglamento es considerado un incumplimiento de deberes.

@@ -1,0 +1,1 @@
+Artículo 39. Citaciones. La Comisión Investigadora debe realizar las citaciones y notificaciones a quienes testifiquen dentro del procedimiento. La citación debe contener la fecha, hora y lugar de la comparecencia.

@@ -1,0 +1,1 @@
+Artículo 56. Denuncia falsa. Quien denuncie hostigamiento sexual falso, puede incurrir cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según lo establecido en el Código Penal.

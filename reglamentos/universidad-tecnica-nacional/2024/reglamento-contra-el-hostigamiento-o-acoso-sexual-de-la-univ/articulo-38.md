@@ -1,0 +1,1 @@
+Artículo 38. Prueba pericial. Si las partes lo desean pueden presentar pruebas periciales a efectos de que puedan corroborar o desmentir los hechos imputados y pueda llegarse al conocimiento de la verdad real de los hechos.

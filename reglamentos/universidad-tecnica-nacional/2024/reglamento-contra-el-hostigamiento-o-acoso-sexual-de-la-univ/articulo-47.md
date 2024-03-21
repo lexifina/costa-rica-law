@@ -1,0 +1,1 @@
+Artículo 47. Conclusiones. Las conclusiones pueden presentarse antes de finalizar la comparecencia o en el plazo de cinco días hábiles después de finalizada, según el criterio de la Comisión Investigadora.

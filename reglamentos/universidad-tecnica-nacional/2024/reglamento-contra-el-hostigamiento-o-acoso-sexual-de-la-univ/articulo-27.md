@@ -1,0 +1,2 @@
+Artículo 27. Consecuencias de la recusación e inhibición. Las personas o persona recusada o inhibida debe dejar de formar parte de los órganos del procedimiento y su lugar lo deben tomar las personas designadas en este Reglamento.
+Una vez que se ha realizado la nueva conformación de las instancias inhibidas o recusadas se procede a continuar con el procedimiento, retrotrayendo las actuaciones que se hayan llevado a cabo con las personas que han sido inhibidas o recusadas.

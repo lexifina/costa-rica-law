@@ -1,0 +1,1 @@
+Artículo 43. Medio de notificación. Las partes deben presentar en su primera intervención dentro del proceso un medio para recibir las notificaciones, sea un fax, correo electrónico, u otro. Y es su deber reportar cualquier cambio de medio de notificación presentado durante el procedimiento.

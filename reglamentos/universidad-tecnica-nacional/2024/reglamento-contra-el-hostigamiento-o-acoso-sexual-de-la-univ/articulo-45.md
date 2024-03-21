@@ -1,0 +1,1 @@
+Artículo 45. Citación a la audiencia. La Comisión Investigadora debe realizar en un plazo máximo de quince días hábiles posteriores a la notificación del auto de traslado, una comparecencia en la sede o dependencia donde estudia o labora la presunta víctima, la cual debe comunicarse mediante el auto de apertura.

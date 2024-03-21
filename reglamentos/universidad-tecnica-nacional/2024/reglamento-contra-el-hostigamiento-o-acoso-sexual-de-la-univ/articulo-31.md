@@ -1,0 +1,6 @@
+Artículo 31. Medios para interponer la denuncia: la denuncia puede interponerse de forma escrita u oral mediante los siguientes mecanismos:
+a. Escrita:
+i. Si es persona estudiante: por correo electrónico, al correo: denunciahostigamientosexual@utn.ac.cr administrado por Vicerrectoría de Vida Estudiantil, en cuyo caso debe enviar una fotografía o el documento escaneado legible, con firma rúbrica con tinta azul o firma digital certificada. ii. Si es persona servidora: por correo electrónico, al correo: denunciahostigamientosexualdgdh@utn.ac.cr administrado por la Dirección de Gestión de Desarrollo Humano, en cuyo caso debe enviar una fotografía o el documento escaneado legible, con firma rúbrica con tinta azul o digital digital certificada.
+iii. Mediante recepción de denuncia escrita presentada en las instancias indicadas en el Artículo 8 de este Reglamento según corresponda.
+b. Oral: Las instancias indicadas en el Artículo 8 de este Reglamento:
+i. Deben tomar la declaración a la persona denunciante. ii. Una vez recibida la denuncia por cualquiera de los medios, es obligación de quien reciba hacer traslado en el plazo máximo de un día hábil a la Comisión Disciplinaria y proceder a la confección del expediente debidamente foliado y orden cronológico.

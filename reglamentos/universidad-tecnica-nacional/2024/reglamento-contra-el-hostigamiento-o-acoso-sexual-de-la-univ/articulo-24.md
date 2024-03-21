@@ -1,0 +1,1 @@
+Artículo 24. Plazo para presentar la recusación e inhibición. La recusación e inhibición debe presentarse dentro de los primeros tres días hábiles después de haberse dictado el acto de inicio del procedimiento, ante el órgano instructor del procedimiento.

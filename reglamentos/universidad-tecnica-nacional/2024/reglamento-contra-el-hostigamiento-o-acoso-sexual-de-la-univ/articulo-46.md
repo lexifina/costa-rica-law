@@ -1,0 +1,1 @@
+Artículo 46. Audiencia. La audiencia puede ser presencial o virtual debiendo ser grabada en cualquiera de las modalidades usadas; da inicio con la presentación de las personas concurrentes y haciendo constar la fecha y hora; a tales efectos la Comisión Investigadora designa a una persona de dicho órgano para que dirija la comparecencia y culmina con la sección de conclusiones.

@@ -1,0 +1,1 @@
+Artículo 10. Comisión Investigadora contra el hostigamiento o acoso sexual. La Comisión Investigadora contra el hostigamiento o acoso sexual es el órgano instructor y la encargada de dirigir el procedimiento establecido en la presente normativa, así como, de llevar a cabo las acciones que el presente reglamento le asigne.

@@ -1,0 +1,2 @@
+Artículo 37. Declaración de parte. Las partes del procedimiento pueden declarar su versión de lo sucedido desde sus perspectivas.
+Para evitar la revictimización, las declaraciones de la presunta víctima y las de la persona aparentemente agraviante, se efectúan por separado y se evita que ambas personas se encuentren o se enfrenten; sin embargo, sus representantes legales pueden hacer escucha de las narraciones.

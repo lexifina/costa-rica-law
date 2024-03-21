@@ -1,0 +1,1 @@
+Artículo 20. Notificaciones. Lo relativo a las notificaciones se rige por lo establecido por la Ley de Notificaciones Judiciales (Ley N°8687) y las normas especiales de notificación para procedimientos establecidas en la Ley General de la Administración Pública.

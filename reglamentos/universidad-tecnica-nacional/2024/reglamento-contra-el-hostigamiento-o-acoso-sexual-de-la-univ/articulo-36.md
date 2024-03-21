@@ -1,0 +1,2 @@
+Artículo 36. Prueba testimonial. Las partes y la Comisión Investigadora del procedimiento pueden solicitar la presencia de algunas personas para que rindan declaración sobre todos o algunos de los hechos discutidos dentro del procedimiento, con la finalidad de llegar a la averiguación de la verdad real de los hechos.
+A tales efectos se pasa por turno a quienes vayan a presentar su testimonio, en el orden que la Comisión Investigadora decida y se inicia con la etapa de preguntas.

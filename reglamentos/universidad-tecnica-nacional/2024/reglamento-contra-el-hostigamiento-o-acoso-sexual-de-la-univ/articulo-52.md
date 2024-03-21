@@ -1,0 +1,1 @@
+Artículo 52. Recurso de apelación. Una vez que ha sido resuelto el recurso de revocatoria, si las partes no se encuentran de acuerdo con su resolución pueden presentar su impugnación, mediante el recurso de apelación, el cual debe presentarse ante el órgano en segunda instancia correspondiente y debe ser resuelto en el plazo de tres días hábiles.
