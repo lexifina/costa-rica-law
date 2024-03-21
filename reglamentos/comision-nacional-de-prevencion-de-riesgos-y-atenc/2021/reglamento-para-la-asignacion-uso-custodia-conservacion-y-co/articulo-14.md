@@ -1,1 +1,0 @@
-Artículo 14.-Derogatorias. Se deroga el anterior Reglamento para la asignación, uso, custodia, conservación y control de los teléfonos celulares de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias a partir de la entrada en vigencia del presente.
