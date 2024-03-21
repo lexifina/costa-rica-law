@@ -1,1 +1,0 @@
-Artículo 10.—Los funcionarios y funcionarias de esta Dependencia no deben sacar provecho de su posición, ni utilizarán influencias personales en beneficio propio o de persona alguna, física o jurídica, en la adquisición de bienes o servicios, así como hacer negocios sobre la base de vínculos familiares o intereses personales.

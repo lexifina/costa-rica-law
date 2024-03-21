@@ -1,1 +1,0 @@
-Artículo 12.—Los funcionarios y las funcionarias de la Auditoría Interna no deben sustraer, sin la debida autorización, documentación de esa Dependencia. En todo caso, siempre se deberá guardar constancia escrita, en el archivo correspondiente, de la documentación cuya salida fue autorizada.

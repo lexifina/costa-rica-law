@@ -1,1 +1,0 @@
-Artículo 4º—Compromiso: Como equipo de trabajo cada funcionario y funcionaria de esta Dependencia, debe conocer los términos establecidos en este documento, además de comprometerse a cumplir con los valores, actitudes y normas establecidas en el mismo, con el fin de que se actúe siempre de manera justa, leal, honesta e íntegra.

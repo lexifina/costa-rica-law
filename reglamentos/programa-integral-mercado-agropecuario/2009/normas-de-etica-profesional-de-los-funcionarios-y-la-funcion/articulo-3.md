@@ -1,1 +1,0 @@
-Artículo 3º—Componentes: Serán de aplicación integral e interpretación los Principios Éticos y las Reglas de Conducta enunciados en el presente documento, como los dos componentes éticos esenciales en el ejercicio de la auditoría interna.

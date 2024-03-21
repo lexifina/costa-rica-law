@@ -1,1 +1,0 @@
-Artículo 2º—Alcance: Este cuerpo normativo tiene como objetivo promover una cultura de ética en el ejercicio de la fiscalización por parte del personal de la Auditoría Interna, fundamentado en la confianza que se atribuye a esta actividad en el aseguramiento objetivo de la gestión de riesgos, control y dirección.
