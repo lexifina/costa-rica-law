@@ -1,2 +1,0 @@
-Artículo 25.—El Banco sufragará los gastos de alimentación, hospedaje y transporte necesarios cuando algún funcionario requiera viajar a lugares distintos de su centro de trabajo, en cumplimiento de labores propias de su cargo, lo anterior conforme con la reglamentación emitida por la Contraloría General de la República.
-El aporte hecho por el Banco en estos términos no constituirá parte del salario ordinario ni extraordinaria del funcionario.

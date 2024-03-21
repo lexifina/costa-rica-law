@@ -1,1 +1,0 @@
-Artículo 9°—Para asegurar el óptimo rendimiento del personal en el desempeño de sus tareas, la administración deberá emplear todos los medios lícitos que requiera promoviendo la capacitación y actualización de conocimientos, incentivando la creatividad y propiciando un buen ambiente de trabajo.

@@ -1,1 +1,0 @@
-Artículo 33.—El Banco reconocerá a sus trabajadores los días feriados que indica el artículo 147 del Código de Trabajo y los que decrete de asueto el Poder Ejecutivo. En caso de que resultare necesaria la prestación de servicios por algún funcionario durante esos días, para su pago se estará a lo dispuesto por el citado Código.

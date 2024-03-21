@@ -1,1 +1,0 @@
-Artículo 51.—El abandono injustificado del trabajo es causal de despido, cuando haya sido por dos días seguidos o tres alternos en un mes calendario. El abandono injustificado por un día se sancionará con suspensión.

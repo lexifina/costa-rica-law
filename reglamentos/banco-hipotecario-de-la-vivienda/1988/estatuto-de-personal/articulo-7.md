@@ -1,1 +1,0 @@
-Artículo 7°—El ámbito de aplicación de este Estatuto se extiende a todos los trabajadores del Banco, tanto en sus oficinas centrales como en cualesquiera otras dependencias, sucursales, oficinas o agencias que en el futuro se crearen. No obstante el Banco podrá dictar reglamentos especiales para cualquier dependencia, oficina o sección, cuando así lo estime necesario.

@@ -1,1 +1,0 @@
-Artículo 12.—El expediente será confidencial y sólo tendrán acceso a él la Junta Directiva, la Gerencia o quien ésta designe, el Auditor Interno o su delegado, el Jefe de Personal y el propio servidor. Las anotaciones que se hagan en el expediente serán comunicadas al servidor dentro de los cinco días hábiles siguientes.

@@ -1,1 +1,0 @@
-Artículo 50.—El trabajador que llegue con retrasos superiores a treinta minutos de la hora de entrada se considerará como ausente durante ese día. Sólo por excepción los superiores jerárquicos podrán justificar las llegadas tardías, las cuales, de conformidad con el inciso g) del artículo 81 del Código de Trabajo, constituyen causal de despido en casos graves.

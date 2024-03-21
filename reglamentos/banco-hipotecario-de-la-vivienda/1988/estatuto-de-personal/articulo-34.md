@@ -1,1 +1,0 @@
-Artículo 34.—Los permisos que soliciten los trabajadores para ausentarse de sus labores serán resueltos en cada una de las direcciones o jefaturas, según corresponda, tomando en consideración los intereses del Banco.

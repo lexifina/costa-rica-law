@@ -1,1 +1,0 @@
-Artículo 48.—En casos en que se pueda imponer la sanción de suspensión o despido, el Banco está obligado a seguir el procedimiento ordinario establecido en el Libro Segundo de la Ley General de la Administración Pública, salvo que el servidor acepte los hechos imputados.

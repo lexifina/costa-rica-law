@@ -1,1 +1,0 @@
-Artículo 37.—En caso de nacimiento de un hijo, se concederá al padre permiso con goce de salario hasta por dos días hábiles, salvo casos muy especiales en que la madre requiera atención especial. En estos casos la licencia será concedida hasta por otros dos días hábiles a juicio de la Gerencia General.

@@ -1,1 +1,0 @@
-Artículo 38.—En caso de enfermedad grave del cónyuge o del compañero o compañera, hijo o alguno de los padres del funcionario, la Gerencia podrá concederle permiso con o sin goce de salario durante el plazo que se estime necesario.

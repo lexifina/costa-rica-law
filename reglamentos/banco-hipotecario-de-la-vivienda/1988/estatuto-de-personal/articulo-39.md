@@ -1,1 +1,0 @@
-Artículo 39.—En caso de matrimonio, los funcionarios del Banco tendrán derecho a que se les conceda licencia con goce de salario por cinco días hábiles, licencia que será concedía por su superior inmediato.

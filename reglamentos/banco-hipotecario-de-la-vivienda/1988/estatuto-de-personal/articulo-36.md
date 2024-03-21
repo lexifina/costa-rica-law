@@ -1,1 +1,0 @@
-Artículo 36.—Si falleciere el cónyuge o un pariente de primer grado por consanguinidad, le será concedido al trabajador un permiso con goce de salario hasta por una semana. El permiso será de dos días hábiles si el pariente fallecido fuere de segundo grado.

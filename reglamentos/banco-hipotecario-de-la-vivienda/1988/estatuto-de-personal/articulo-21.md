@@ -1,2 +1,0 @@
-Artículo 21.—Para ocupar los puestos vacantes, tendrán preferencia, en igualdad de circunstancias , las personas que estén trabajando en el Banco, con más de seis meses de antigüedad y que hayan sido evaluados más que satisfactoriamente, siempre y cuando cumplan con los requisitos correspondientes a la vacante. Sin embargo, se dará prioridad a los funcionarios de la dirección u oficina donde se presente dicha vacante.
-Las plazas vacantes se anunciarán normalmente en un lugar visible para todos el personal.

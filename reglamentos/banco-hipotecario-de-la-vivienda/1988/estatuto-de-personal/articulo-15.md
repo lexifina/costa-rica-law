@@ -1,1 +1,0 @@
-Artículo 15. —Todos los trabajadores tendrán la posibilidad de ser ascendidos de puesto, de acuerdo con la capacidad y responsabilidad demostrada en la ejecución de sus funciones y las necesidades y posibilidades de la Institución.

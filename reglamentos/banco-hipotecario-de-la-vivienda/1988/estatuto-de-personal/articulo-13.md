@@ -1,2 +1,0 @@
-Artículo 13.—Las personas que actúen como jefes en cualquier dependencia del Banco están en la obligación de informar a la Gerencia de todo acto o movimiento que se refiera al personal, incluyendo los actos que afecten la disciplina o desempeño de las labores normales del Banco.
-También informarán de las ausencias, llegadas tardías, permisos, vacaciones y de cualquier otra circunstancia que a su juicio sea conveniente poner en conocimiento del superior.

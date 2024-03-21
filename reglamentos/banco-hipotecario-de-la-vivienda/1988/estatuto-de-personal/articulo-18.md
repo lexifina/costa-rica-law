@@ -1,1 +1,0 @@
-Artículo 18. —El Banco podrá contratar trabajadores a plazo fijo o para la ejecución de una obra determinada y también podrá nombrar trabajadores interinos para llenar plazas temporalmente sin titular. En estos casos regirá lo dispuesto en el o y supletoriamente lo establecido en este Estatuto, en cuanto sea aplicable.
