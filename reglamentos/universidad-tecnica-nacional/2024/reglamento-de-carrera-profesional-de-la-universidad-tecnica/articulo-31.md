@@ -1,0 +1,1 @@
+Artículo 31. Normas supletorias. En defecto de disposiciones propias de este reglamento debe tenerse como supletorias las contenidas en las normas que rigen la Carrera Profesional de las personas servidoras del Régimen del Servicio Civil y sus reformas.

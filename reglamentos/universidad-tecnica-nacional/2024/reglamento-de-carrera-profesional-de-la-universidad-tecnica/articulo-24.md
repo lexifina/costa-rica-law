@@ -1,0 +1,1 @@
+Artículo 24. Pago del incentivo de Carrera Profesional. El incentivo por Carrera Profesional para efectos de pago, es proporcional a la jornada de trabajo de la persona servidora, hasta un máximo de un tiempo completo en trabajos de una misma naturaleza y cuando desempeñe puestos de diferente naturaleza, hasta un máximo de tiempo y medio.

@@ -1,0 +1,2 @@
+Artículo 26. Personas Académicas en el Régimen de Carrera Profesional. Las personas académicas que por requisito no estén incorporados al Régimen de Carrera Académica, pueden acogerse a la Carrera Profesional siempre que cumplan con los requerimientos establecidos en el presente reglamento.
+Los factores reconocidos de las personas académicas en el Régimen de Carrera Académica, no son sujetos de reconocimiento en el Régimen de Carrera Profesional debido estos ya fueron considerados para ser acreedor de una nueva clase de puesto dentro del Régimen de Carrera Académica.

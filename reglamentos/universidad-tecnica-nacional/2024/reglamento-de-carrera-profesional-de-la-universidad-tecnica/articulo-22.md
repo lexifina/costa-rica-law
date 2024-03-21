@@ -1,0 +1,2 @@
+CAPÍTULO VI FINANCIAMIENTO
+Artículo 22. Presupuesto para la Carrera Profesional. La Universidad debe garantizar recursos económicos para el Régimen de Carrera Profesional. Con estos recursos se atiende el impacto anual de las solicitudes de ingreso al régimen y la actualización del puntaje definido. Para cada ejercicio presupuestario, el Área de Administración de Salarios e Incentivos de la Dirección de Gestión de Desarrollo Humano o la Coordinación de Gestión de Desarrollo Humano, solicita los recursos necesarios para el financiamiento de este incentivo laboral.

@@ -1,0 +1,1 @@
+Artículo 9. Fecha de rige para la incorporación. Las personas profesionales que reúnan las condiciones indicadas en el artículo 7 de este reglamento, serán acreedoras del incentivo por Carrera Profesional, a partir del primer día del siguiente mes calendario a la fecha de recibo de su solicitud por la dependencia de Desarrollo Humano respectiva.

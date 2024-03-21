@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Aplica a las personas servidoras de la Universidad Técnica Nacional con salario compuesto que no supere el monto fijado por ley para el salario global, nombradas en un puesto que requiera como mínimo el grado académico de bachiller universitario, y las personas servidoras académicas que no se encuentren en el Régimen de Carrera Académica de la institución.
