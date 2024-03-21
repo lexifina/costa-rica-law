@@ -1,0 +1,8 @@
+Artículo 29. Plazas extranjeras no aceptadas
+No serán aceptadas las plazas extranjeras en las que la Sugef confirme cualquiera de las siguientes situaciones:
+a) Se encuentren catalogadas por organismos internacionales como plazas bancarias o plazas extranjeras no colaboradoras en temas de Legitimación de Capitales, Financiamiento al Terrorismos y Financiamiento a la Proliferación de Armas de Destrucción Masiva.
+b) Promuevan o incrementen la posibilidad de realización de actividades ilícitas que pongan en riesgo la seguridad y solvencia del banco extranjero que opere en Costa Rica por medio de sucursales bancarias, de la sucursal bancaria propiamente dicha, o de alguna de las entidades integrantes del sistema financiero costarricense.
+c) Promuevan o permitan estructuras de organización del banco extranjero que no se encuentren acordes con las recomendaciones y mejores prácticas de organismos internacionales para el establecimiento de las mejoras prácticas bancarias.
+d) Revelen que la supervisión realizada por el supervisor del banco extranjero no es adecuada para los riesgos asociados con las actividades realizadas y/o existen obstáculos al ejercicio de una supervisión eficaz en base consolidada.
+e) Mediante resolución razonada, la SUGEF determine que existen otras causas que producen dudas o incertidumbre de la conveniencia de aceptar la plaza extranjera.
+La Sugef, mediante resolución motivada, señalará el rechazo de la plaza extranjera cuando esta incurra en una de las causales anteriormente listadas, tras un análisis de cada caso, de manera que ninguna de las causales será aplicada a una plaza extranjera ad-portas.

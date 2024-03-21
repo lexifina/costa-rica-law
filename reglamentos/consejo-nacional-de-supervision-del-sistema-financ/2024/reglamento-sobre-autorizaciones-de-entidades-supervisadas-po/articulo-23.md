@@ -1,0 +1,2 @@
+Artículo 23. Requisitos para la divulgación del cambio de nombre de un intermediario financiero
+Cuando la Sugef autorice el cambio de nombre de una entidad supervisada, la entidad deberá incluir en la papelería, publicidad y otras formas de difusión, la frase "Antes (Nombre anterior de la entidad)". El plazo en que debe incluirse esta aclaración será definido por el órgano resolutivo en su comunicación sobre la autorización y no podrá ser menor de seis meses.

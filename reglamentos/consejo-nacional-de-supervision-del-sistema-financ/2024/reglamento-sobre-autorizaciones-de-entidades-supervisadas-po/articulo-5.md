@@ -1,0 +1,3 @@
+Artículo 5. Memorandos de entendimiento o acuerdos de intercambio de información
+Es condición necesaria para recibir la solicitud del inicio de operaciones del banco extranjero en Costa Rica a través de su sucursal, que la SUGEF haya suscrito con el supervisor del banco extranjero memorandos de entendimiento o arreglos formales que permitan la coordinación en materia de supervisión, fiscalización, cooperación e intercambio de información entre supervisores.
+En caso de que no se llegue a suscribir el acuerdo o convenio de entendimiento, a satisfacción de la SUGEF, se comunicará esta situación al banco extranjero interesado en establecer una sucursal en Costa Rica.

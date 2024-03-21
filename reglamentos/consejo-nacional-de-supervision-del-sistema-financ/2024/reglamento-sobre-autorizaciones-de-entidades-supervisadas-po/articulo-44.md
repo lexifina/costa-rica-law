@@ -1,0 +1,7 @@
+CAPÍTULO VIII
+RECHAZOS Y REVOCACIONES
+Artículo 44. Rechazo de la solicitud
+Las situaciones indicadas en los siguientes incisos de este artículo conllevarán el rechazo de la solicitud de autorización y, consecuentemente su archivo:
+a) Cuando alguno de los miembros del Órgano de Dirección, del Órgano de Control, de los miembros del Órgano de Vigilancia (Fiscal o puesto equivalente), el Gerente o puesto equivalente, Representantes Legales, Apoderados, Auditor Interno o quien realice esta función, Oficial de Cumplimiento titular, Oficial de Cumplimiento adjunto y la(s) persona(s) física(s) (socios o beneficiarios), con un porcentaje de participación directa o indirecta igual o superior al 10% del capital social de la entidad supervisada, o que posean la mayor participación societaria cuando no exceda el porcentaje señalado, o alguna de sus partes relacionadas, se encuentre designado(a) en las listas en materia de LC/FT/FPADM, de la Organización de las naciones unidades (ONU), la Oficina de control de activos financieros extranjeros (OFAC, por sus siglas en inglés), y organismos internacionales e intergubernamentales reconocidos en materia de LC/FT/FPADM.
+b) Cuando se determine que existe alguna de las situaciones establecidas en el Artículo 141 ter de la Ley 7558,
+c) Cuando sea denegada por la Autoridad de Competencia, por constituir un proceso de concentración que atenta contra los principios de competencia, establecidos en la Ley 7472.

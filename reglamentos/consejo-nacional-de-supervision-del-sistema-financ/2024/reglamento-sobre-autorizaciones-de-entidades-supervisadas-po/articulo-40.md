@@ -1,0 +1,7 @@
+Artículo 40. Criterios para valorar el cambio de nombre
+Los criterios para valorar el cambio de nombre son los siguientes:
+a) Denominación: La denominación identifica claramente la entidad de que se trata y permite distinguirla de los nombres de otras entidades autorizadas o en trámite de autorización. Además, el uso de palabras y expresiones se ajusta a las reservadas por ley a entidades supervisadas.
+b) En el caso de entidades supervisadas, que a su vez pertenezcan a un grupo o conglomerado financiero internacional, el nombre de la entidad debe incluir el término "de Costa Rica" o "(Costa Rica)".
+c) El plan de cambio de nombre a que se refiere el Anexo 6. Autorización del cambio de denominación o cambio de nombre social, de este Reglamento es adecuado.
+d) Nombre comercial: El nombre comercial identifica y distingue a la entidad supervisada. No se autorizará el uso de nombres comerciales, marcas y otros signos distintivos que incorporen palabras o conjunto de palabras iguales o semejantes a los que utilizan las empresas que formen parte del grupo económico al que pertenece la entidad supervisada, excepto si éstas a su vez son empresas financieras extranjeras supervisadas en sus plazas de origen.
+Cuando el órgano resolutivo autorice el cambio de nombre, la papelería, publicidad y otras formas de difusión, deberá incluir la frase "Antes (Nombre anterior de la entidad)". El plazo en que debe incluirse esta aclaración será definido por el órgano resolutivo en su comunicación sobre la autorización y no podrá ser menor de seis meses.

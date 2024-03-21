@@ -1,0 +1,6 @@
+Artículo 39. Criterios para valorar el proceso de fusión
+Los criterios para valorar el proceso de fusión son los siguientes:
+a) Proyecto de Fusión: Descripción de las características, condiciones legales y económicas, y demás reglas para llevar a cabo la fusión.
+b) Suficiencia patrimonial: La suficiencia patrimonial proyectada de acuerdo con el plazo que se dispone en cada uno de los anexos de este Reglamento, evidencia el cumplimiento de las disposiciones legales y reglamentarias, por parte de la entidad supervisada resultante o prevaleciente.
+c) Plan operativo de integración: El plan operativo de integración debe garantizar la integración plena de la organización administrativa y contable, así como los procedimientos de control interno y de comunicación que garanticen la gestión de la entidad supervisada prevaleciente, en un plazo máximo de doce meses.
+d) Concentración de mercado: No hay objeción, según criterio externado por la Comisión para la Promoción de la Competencia, en las situaciones aplicables y cuando este haya sido solicitado, en el marco de lo dispuesto por el Artículo 27 bis de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley 7472 y el Reglamento del Régimen de Concentraciones del Sistema Financiero Nacional. e) Exista acuerdo de ambas entidades para proceder a fusionarse.
