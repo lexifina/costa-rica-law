@@ -1,0 +1,3 @@
+Artículo 9º-Vigencia.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Concejo Municipal de Cañas
