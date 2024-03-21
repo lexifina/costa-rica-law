@@ -1,1 +1,0 @@
-Artículo 2°—Orden de aplicación: En defecto de disposiciones en este Estatuto, se aplicará por su orden el Derecho Administrativo y sus principios y el Código de Trabajo y sus principios, éstos últimos en cuanto sean compatibles con las primeras disposiciones.

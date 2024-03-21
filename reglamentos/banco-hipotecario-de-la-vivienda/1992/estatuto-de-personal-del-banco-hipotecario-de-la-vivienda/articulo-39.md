@@ -1,2 +1,0 @@
-Artículo 39.—Asociación de servidores: El Banco, de acuerdo a sus posibilidades, procurará dar el apoyo y las facilidades necesarias para la creación, mantenimiento, desarrollo y funcionamiento de todo tipo de asociaciones de servidores reguladas por el Código de Trabajo y otras leves especiales, velando siempre que se mantenga la continuidad y eficiencia del servicio público.
-En relación con la Asociación Solidarista del BANHVI, el Banco aportará la suma correspondiente a los montos que establezca la Ley de Asociaciones Solidaristas.

@@ -1,1 +1,0 @@
-Artículo 4°—Objetivo: Este Estatuto primordialmente procurará armonizar los intereses del Banco con los de los servidores, aplicando para ello principios elementales de justicia, lógica y conveniencia.

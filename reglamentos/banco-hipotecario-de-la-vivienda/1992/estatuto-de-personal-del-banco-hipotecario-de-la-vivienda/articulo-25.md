@@ -1,3 +1,0 @@
-Artículo 25.—Viáticos: El Banco sufragará los gastos de alimentación, hospedaje y transporte necesarios cuando algún funcionario requiera viajar a lugares distintos de su centro de trabajo, en cumplimiento de labores propias de su cargo. Lo anterior conforme con la reglamentación emitida por la Contraloría General de la República.
-En casos especiales y bajo la autorización del jefe inmediato, se podrá reconocer gastos de alimentación y transporte cuando el servidor labore más de 12 (doce) horas continuas.
-El aporte hecho por el Banco en estos términos no constituirá sueldo en especie ni tampoco parte del sueldo ordinario o extraordinario del servidor.

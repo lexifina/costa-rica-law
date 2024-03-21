@@ -1,3 +1,0 @@
-Artículo 26.—Prestaciones legales: Para efectos de reconocimiento del pago de prestaciones legales, se aplicará en forma puntual, las disposiciones contenidas por el Código de Trabajo y sus reformas.
-Transitorio 1°—Esta reforma al Estatuto de Personal del Banco Hipotecario de la Vivienda, se aplicará a todos aquellos funcionarios que ingresen a esta Institución, en fecha posterior a la entrada en vigencia de esta reforma, de modo tal que a todo aquel personal nombrado con anterioridad a dicha fecha, se le respetarán los derechos adquiridos sobre la aplicación de la disposición anterior.
-(Así reformado por Acuerdo de Sesión Nº 29 del 24 de mayo de 2000)

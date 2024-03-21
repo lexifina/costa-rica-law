@@ -1,4 +1,0 @@
-Artículo 29.—Disfrute: Los servidores del Banco deberán gozar sin interrupciones de su periodo de vacaciones. Previo acuerdo con su superior inmediato, podrán fraccionar las vacaciones tomando en consideración el mutuo interés del servidor y la dependencia.
-El jefe inmediato dispondrá la época en que cada servidor disfrutara de sus vacaciones procurando hacerlo dentro de las quince semanas posteriores al día en que se cumpla el derecho a disfrutarlas. Si venciere dicho plazo sin que al servidor se le hubiera señalado la techa de disfrute de sus vacaciones, éste deberá reclamarlas por escrito.
-Las Jefaturas deberán informar a la Dirección de Recursos Humanos las fechas de disfrute de vacaciones de su personal antes de que se inicien.
-(Así reformado por Acuerdo de Sesión Nº 66 del 8 de agosto de 1995)

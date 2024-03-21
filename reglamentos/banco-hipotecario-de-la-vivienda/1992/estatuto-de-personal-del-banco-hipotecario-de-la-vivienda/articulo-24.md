@@ -1,1 +1,0 @@
-Artículo 24.—Evaluación del desempeño: (Derogado por el artículo 25 del Reglamento para la evaluación del desempeño de los funcionarios del Banco Hipotecario de la vivienda, aprobado mediante sesión N° 59-2020 del 30 de julio del 2020)

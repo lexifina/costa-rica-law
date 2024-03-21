@@ -1,1 +1,0 @@
-Artículo 31.—Días feriados: El Banco reconocerá a sus servidores los días feriados que indica el artículo 147 (ciento cuarenta y siete) del Código de Trabajo y los que decrete de asueto el Poder Ejecutivo. En caso de que resultare necesaria la prestación de servicios por algún servidor durante esos días, para su pago se estará a lo dispuesto por el citado Código.

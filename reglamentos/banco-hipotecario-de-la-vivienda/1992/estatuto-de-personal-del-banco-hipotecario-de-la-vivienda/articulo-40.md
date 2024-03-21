@@ -1,1 +1,0 @@
-Artículo 40.—Atención de consultas y sugerencias: El Banco por medio de la Dirección de Recursos Humanos atenderá todas aquellas consultas y sugerencias que desee exponer el personal de la Institución. A criterio de la Gerencia, se integrará comités Ad-hoc para la atención v solución de situaciones y asuntos específicos.

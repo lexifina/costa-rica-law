@@ -1,1 +1,0 @@
-Artículo 19.—Jornada especial: Para el Gerente, Subgerentes, Auditor y Subauditor, Directores, Jefes de Departamento y Jefes de Sección, regirá la jornada prevista por el artículo 143 (ciento cuarenta y tres) del Código de Trabajo.

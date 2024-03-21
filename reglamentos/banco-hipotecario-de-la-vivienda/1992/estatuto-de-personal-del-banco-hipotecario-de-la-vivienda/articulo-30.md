@@ -1,1 +1,0 @@
-Artículo 30.—Compensación: Los servidores que expresamente lo soliciten podrán compensar sus períodos de vacaciones siempre y cuando disfruten de tal beneficio por un mínimo de diez días hábiles. Las vacaciones podrán acumularse por una sola vez, en casos de necesidad comprobada v a solicitud del interesado.
