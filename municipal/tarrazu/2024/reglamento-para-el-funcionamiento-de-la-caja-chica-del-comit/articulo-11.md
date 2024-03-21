@@ -1,0 +1,5 @@
+Artículo 11.-Condiciones y requisitos de trámite del vale de caja chica. El vale de caja chica se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
+a. El vale de caja chica debe de emitirse en original y copia, y en el formulario debidamente numerado en forma consecutiva que será suministrado por la persona funcionaria responsable del fondo.
+b. Se presente debidamente lleno, indicando el monto exacto y los artículos o servicios por adquirir, que por este reglamento se autorizan y con la correspondiente justificación, el cual no debe contener borrones ni tachaduras.
+c. Venga acompañado de la firma y el nombre de la persona funcionaria que hará el retiro del efectivo. Constará de un vale por persona, esa persona NO tendrá acceso a un segundo vale, hasta que no liquide el primer vale.
+e. Deberá adjuntar un mínimo de tres cotizaciones, a excepción de que el bien o servicio que se necesita adquirir solamente lo ofrezca una persona o empresa.

@@ -1,0 +1,2 @@
+Artículo 18.-Arqueos. Es responsabilidad del vicepresidente, realizar arqueos del fondo de caja chica cada vez que sea necesario, del cual quedará constancia por escrito, la que se archivará en un consecutivo de control, con la firma del encargado del fondo de caja chica(tesorero), del vicepresidente que practicó el arqueo y del presidente.
+Estos arqueos deberán practicarse en forma sorpresiva y al menos una vez cada tres meses.

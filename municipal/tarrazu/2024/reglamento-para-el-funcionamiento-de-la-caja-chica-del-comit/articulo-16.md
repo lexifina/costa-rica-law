@@ -1,0 +1,1 @@
+Artículo 16.-Recursos no utilizados. Cuando por algún motivo la compra no se lleve a cabo, la persona que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para esos efectos.
