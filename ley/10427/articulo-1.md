@@ -12,3 +12,4 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA
 (Así modificado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44339 del 18 de enero del 2024)
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 10459 del 4 de marzo de 2024)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10459 del 4 de marzo de 2024)
+(Así reformado el inciso c) por el artículo 1° de la ley N° 10468 del 22 de marzo de 2024)
