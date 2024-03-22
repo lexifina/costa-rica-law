@@ -1,0 +1,10 @@
+BANCO NACIONAL DE COSTA RICA
+JUNTA DIRECTIVA GENERAL
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión No. 12.677, artículo 9º, celebrada el 30 de enero del 2024, en el cual acordó 1) aprobar el Reglamento para el ejercicio de la representación judicial y administrativa de las personas trabajadoras, miembros de la Alta Administración, Fiscalización Superior, personal de confianza y miembros de las Juntas Directivas del Conglomerado Financiero del Banco Nacional De Costa Rica (RG03CGJU01), Edición 1, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+REGLAMENTO PARA EL EJERCICIO DE LA REPRESENTACIÓN JUDICIAL Y ADMINISTRATIVA
+DE LAS PERSONAS TRABAJADORAS, MIEMBROS
+DE LA ALTA ADMINISTRACIÓN, AUDITORÍA, PERSONAL DE CONFIANZA Y MIEMBROS DE
+LAS JUNTAS DIRECTIVAS DEL CONGLOMERADO FINANCIERO DEL BANCO NACIONAL
+DE COSTA RICA
+Artículo 1º-Ámbito de aplicación. El presente Reglamento será aplicable a todos aquellos casos en los que las personas trabajadoras, los auditores y subauditores internos, los miembros de la alta administración, el personal de confianza o los miembros de las juntas directivas del Conglomerado Financiero del Banco Nacional estén siendo parte demandada o denunciada en un proceso judicial o procedimiento administrativo externo al Banco o sus subsidiarias, por acciones llevadas a cabo con ocasión del ejercicio de sus funciones y no exista un conflicto de interés entre la defensa de la persona que se trate y la defensa de los intereses del Banco Nacional de Costa Rica o de alguna de sus subsidiarias.
+Se exceptúa de dicha aplicación los procedimientos administrativos iniciados por la Contraloría General de la República, en los que se investiguen presuntas actuaciones u omisiones en el ejercicio del cargo y el procedimiento tenga naturaleza sancionatoria, donde se busque establecer la verdad real de los hechos, sobre la existencia o no de una presunta responsabilidad disciplinaria de la persona investigada.

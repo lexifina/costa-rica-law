@@ -1,0 +1,2 @@
+Transitorio I.-Los abogados que a la fecha de vigencia del presente reglamento se encontraren ejerciendo la defensa de algún funcionario están autorizados para continuar ejerciendo dicha representación hasta la finalización de los procesos o hasta que surja un posible conflicto de interés que haga imposible continuar ejerciendo la defensa.
+Atentamente.-La Uruca 12 de marzo del 2024 Proveeduría Institucional.
