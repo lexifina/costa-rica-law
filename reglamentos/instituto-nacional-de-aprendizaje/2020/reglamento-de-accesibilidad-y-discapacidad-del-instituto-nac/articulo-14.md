@@ -1,14 +1,1 @@
-Artículo 14. Deberes de la PECE
-1. Elaborar el plan de trabajo anual e informe de ejecución en el ámbito de la accesibilidad y discapacidad del CE y lo remite al SECODI.
-2. Informar y orientar al personal docente, administrativo y personas estudiantes del CE, sobre las estrategias, procedimientos u otras actividades para la concienciación y atención de personas con discapacidad y personas que requieren apoyo educativo.
-3. Referir de forma inmediata a los servicios de apoyo, el reporte de la persona que requiere apoyo educativo, en la selección para la certificación de competencias, conformación de grupos o en la ejecución de un SCFP.
-4. Convocar, cuando se requiera, a la persona estudiante, al personal de servicios de apoyo, familiares de personas con discapacidad o persona garante para la igualdad jurídica de las personas con discapacidad cuando la persona con discapacidad solicite su apoyo, a las reuniones que considere necesarias, para el análisis de situaciones sobre accesibilidad y discapacidad, de forma presencial o haciendo uso de las TIC, como mínimo tres días antes de la reunión.
-5. Plantear ante la UR correspondiente las necesidades de capacitación del personal del CE a su cargo, en el ámbito de la accesibilidad, discapacidad y apoyos educativos.
-6. Gestionar ante SECODI u otra instancia externa asesoramiento para el personal docente, administrativo y de apoyo del CE a su cargo, en torno a la aplicación de apoyos educativos.
-7. Acatar los acuerdos y disposiciones de la CIAD.
-8. Coordinar con los NFST y SECODI, cuando se requiera modificar la cantidad de personas que conforman un grupo, en función de la atención de personas con discapacidad o personas que requieran apoyos educativos.
-9. Coordinar con los NFST y SECODI cuando se requiera modificar la cantidad de horas de planeamiento a la persona docente, cuando tiene a cargo personas que requieran adaptaciones de material didáctico.
-10. Coordinar con los NFST y SECODI cuando sea necesario la modificación de la cantidad de horas del SCFP, en caso de tener personas que lo requieran.
-11. Participar en asesorías y seguimiento de labores que hace el SECODI, previamente coordinadas por la persona encargada del PRBE.
-12. Gestionar ante las instancias correspondientes las acciones necesarias para mejorar la accesibilidad del espacio físico, mobiliario, equipo y las TIC.
-13. Resolver de conformidad con el artículo 33 de este reglamento, los recursos de revocatoria, que interpongan personas estudiantes que solicitaron apoyo educativo o sus representantes legales.
+Artículo 14. Deberes de las Jefaturas de Unidades Regionales. Resolver de conformidad con el artículo 45 de este reglamento, los recursos de apelación, que interpongan personas estudiantes que solicitaron apoyo educativo o sus representantes legales, en caso de personas menores de edad. Según lo establece el Reglamento de Evaluación de los Aprendizajes en la Formación Profesional.

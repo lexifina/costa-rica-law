@@ -1,2 +1,1 @@
-Artículo 30. Firmeza de los acuerdos.
-Las actas adquieren firmeza cuando sean adoptados por la mayoría absoluta de sus miembros presentes. De lo contrario las actas se aprobarán en la siguiente sesión y hasta tanto no se apruebe el acta los acuerdos carecerán de firmeza.
+Artículo 30. Asuntos no incluidos en el orden del día Estos asuntos pueden ser incorporados a la agenda, previo acuerdo de mayoría absoluta de los asistentes de la CIAD, que declaren su urgencia.

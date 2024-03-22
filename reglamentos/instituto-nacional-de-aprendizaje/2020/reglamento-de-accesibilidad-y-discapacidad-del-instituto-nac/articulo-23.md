@@ -1,9 +1,10 @@
-Artículo 23. Funciones de la secretaría
-1. Prepara la agenda y la comunica a las personas integrantes con un mínimo de dos días hábiles de antelación.
-2. Levanta las actas de las sesiones.
-3. Envía el acta de la sesión anterior a cada persona que integra la CIAD, con un plazo mínimo de dos días hábiles antes de cada sesión.
-4. Comunica los acuerdos en firme en un plazo máximo de 10 días hábiles posteriores a la fecha de la sesión.
-5. Da seguimiento a los acuerdos tomados.
-6. Tiene al día el libro de actas debidamente foliado y en cumplimiento con las formalidades establecidas en la Ley 6227 de la Administración Pública y el procedimiento interno para el manejo de libros de actas.
-7. Tramita la correspondencia recibida y enviada.
-8. Custodia los documentos, archivos y libros de actas.
+Artículo 23. Funciones de la presidencia de la CIAD
+1. Realiza la apertura y cierre anual del libro de actas.
+2. Convoca a sesiones ordinarias o extraordinarias.
+3. Comprueba el quórum, abre, preside, suspende y levanta las sesiones.
+4. Concede la palabra en el orden solicitado.
+5. Somete a votación los asuntos de la CIAD.
+6. Llama al orden cuando el caso lo justifique.
+7. Concede permiso para ausentarse de la sesión.
+8. Firma las actas de las sesiones ordinarias y extraordinarias.
+9. La persona que ostenta la presidencia, así como la suplencia, en cuerdo con las demás personas que integran la CIAD, deberán comunicar de manera proactiva y oportuna a la Administración Superior sobre planes, programas, proyectos y servicios prioritarios. Esto con el propósito de que se brinde el apoyo correspondiente en tiempo y forma.

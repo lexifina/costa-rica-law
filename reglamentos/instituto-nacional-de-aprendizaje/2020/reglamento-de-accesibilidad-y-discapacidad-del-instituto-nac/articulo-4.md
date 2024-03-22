@@ -1,13 +1,14 @@
 Artículo 4. Siglas
 AT: Asistencia Técnica.
 CE: Centro Ejecutor.
-CESP: Comisión Especializada.
+CEED: Comisión Especializada en Empleo y Discapacidad.
 CIAD: Comisión Institucional sobre Accesibilidad y Discapacidad.
 CONAPDIS: Consejo Nacional de Personas con Discapacidad.
-CPC: Certificación por competencias.
+CDC: Certificación de competencias.
 GFST: Gestión de Formación y Servicios Tecnológicos.
 GNSA: Gestión de Normalización y Servicios de Apoyo.
 GR: Gestión Regional.
+GTIC: Gestión de Tecnologías de Información y Comunicación.
 INA: Instituto Nacional de Aprendizaje.
 JUR: Jefatura de Unidad Regional.
 NEAE: Necesidad Específica de Apoyo Educativo
@@ -17,7 +18,7 @@ PEPRBE: Persona Encargada del Proceso de Registro y Bienestar Estudiantil.
 PPE: Proceso de Planeamiento y Evaluación.
 PRBE: Proceso de Registro y Bienestar Estudiantil.
 PEPSU: Persona Encargada de Proceso de Servicio al Usuario.
-SCFP: Servicio de Capacitación y Formación Profesional
+SCFP: Servicio de Capacitación y Formación Profesional.
 SECODI: Servicio de Coordinación sobre Discapacidad
 SGT: Subgerencia Técnica.
 TIC: Tecnologías de la Información y Comunicación.

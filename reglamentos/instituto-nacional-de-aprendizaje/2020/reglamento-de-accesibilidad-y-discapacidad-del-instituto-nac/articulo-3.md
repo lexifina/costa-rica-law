@@ -1,2 +1,2 @@
 Artículo 3. Medidas y recursos
-Cada una de las dependencias institucionales incluirá en la planificación anual y presupuestaria: acciones, proyectos, medidas y recursos, que garanticen el acceso a los servicios en igualdad de oportunidades.
+Cada una de las dependencias institucionales incluirá en la planificación anual y presupuestaria: acciones, proyectos, medidas y recursos, que garanticen el acceso a los servicios en igualdad de oportunidades. La Administración deberá asegurar que se asignen los recursos presupuestarios necesarios para garantizar el cumplimiento en la atención oportuna de las personas con discapacidad.

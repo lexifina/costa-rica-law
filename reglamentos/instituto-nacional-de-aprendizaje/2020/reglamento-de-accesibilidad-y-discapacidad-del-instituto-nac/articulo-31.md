@@ -1,6 +1,2 @@
-CAPÍTULO V
-COMISIÓN ESPECIALIZADA
-Artículo 31. Conformación
-1. La persona que ejerce la jefatura de la Unidad de Recursos Humanos, es quien la coordina o a quien designe de la URH.
-2. Una persona representante de la CIAD.
-3. Una persona profesional en terapia ocupacional o en su defecto en psicología designada por la URH.
+Artículo 31. Obligación de votar
+Las personas integrantes de la CIAD deben ejercer su derecho al voto, de conformidad con lo dispuesto en los artículos 54 y 57 de la LGAP. No obstante, por decisión de la mayoría de las personas presentes, la presidencia puede postergar la votación por una sola vez, para realizarla en la siguiente sesión; en la que deberán estar presentes, los asistentes de la sesión anterior.
