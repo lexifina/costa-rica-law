@@ -1,0 +1,1 @@
+Artículo 4º-A la entrada en vigor del presente Decreto Ejecutivo, permanecerán vigentes las equivalencias otorgadas conforme al Decreto Ejecutivo N° 38849-MEIC, siempre que se mantengan las condiciones técnicas que dieron origen a la misma.

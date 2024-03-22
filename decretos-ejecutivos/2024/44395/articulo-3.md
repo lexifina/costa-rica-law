@@ -1,0 +1,1 @@
+Artículo 3º-Derogaciones. Se deroga el Decreto Ejecutivo Nº 38849-MEIC del 06 de enero de 2015, Procedimiento para demostrar equivalencia con un Reglamento Técnico de Costa Rica (RTCR), publicado en el Diario Oficial La Gaceta Nº 43 del 3 de marzo de 2015.
