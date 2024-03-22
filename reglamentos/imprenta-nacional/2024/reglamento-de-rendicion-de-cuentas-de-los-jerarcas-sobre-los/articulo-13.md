@@ -1,0 +1,5 @@
+CAPÍTULO III
+Responsabilidades y Sanciones
+Artículo 13.-Responsables: Queda bajo responsabilidad de las personas funcionarias que ocupen el puesto de Director General, Director Administrativo -Financiero, Director de Comercialización y Divulgación, Director de Producción, Jefes de Departamento, Encargados de Unidades y los funcionarios a cargo de procesos, el efectivo cumplimiento de la presente normativa.
+Asimismo, es responsabilidad de los Directores, Jefaturas de Departamento y Encargados de las Unidades y Procesos, comunicar inmediatamente al Departamento de Gestión Institucional de Recursos Humanos, sobre las reubicaciones, traslados, renuncias, y cualquier otro movimiento interno o externo, de las personas funcionarias enunciados en el artículo 3 párrafo segundo del presente Reglamento.
+(Mediante Fe de Erratas y publicada en La Gaceta N° 122 del 4 de junio del 2024, página N° 2, se corrigió la numeración de este artículo al artículo 13, debido a que se consignó por error un artículo con el N° 6, dentro del artículo N° 8 y 9. Anteriormente era el numeral 12)
