@@ -6,3 +6,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44374 del 14 de febrero del 2024)
 (Así reformado por el artículo 2° de la ley N° 10459 del 4 de marzo de 2024)
 (Así reformado por el artículo 3° de la ley N° 10459 del 4 de marzo de 2024)
+(Así reformado por el artículo 2° de la ley N° 10468 del 22 de marzo de 2024)
