@@ -1,0 +1,1 @@
+Artículo 52.-Derogatorias. Con la entrada en vigencia del presente reglamento quedan derogadas todas aquellas instrucciones, directrices, circulares y acuerdos que, en materia de contratación administrativa o contratación pública, se hubieren emitido con anterioridad.

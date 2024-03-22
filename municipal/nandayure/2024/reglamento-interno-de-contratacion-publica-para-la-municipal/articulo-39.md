@@ -1,0 +1,1 @@
+Artículo 39.-Obligada colaboración. Para el eficiente y eficaz cumplimiento de los fines de la comisión, todas las unidades administrativas de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

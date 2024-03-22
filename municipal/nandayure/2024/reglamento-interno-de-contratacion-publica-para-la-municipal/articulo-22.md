@@ -1,0 +1,1 @@
+Artículo 22.-Verificación de Prohibiciones. Cuando se hayan desarrollado las actividades establecidas en el Reglamento a la Ley de Contratación Pública, en la etapa de análisis de ofertas, la Proveeduría Municipal deberá llevar a cabo la verificación de las prohibiciones de los oferentes.
