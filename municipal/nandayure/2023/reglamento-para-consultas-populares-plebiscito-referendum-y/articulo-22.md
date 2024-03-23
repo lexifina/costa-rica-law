@@ -1,0 +1,1 @@
+Artículo 22.-Reposición del Alcalde Municipal propietario. Si el resultado de la consulta fuere la destitución del Alcalde Municipal, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá, al Alcalde por el resto del periodo según lo establece el Artículo N°14 del Código Municipal.

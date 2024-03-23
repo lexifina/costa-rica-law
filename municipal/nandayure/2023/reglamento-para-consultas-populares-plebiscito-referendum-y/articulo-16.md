@@ -1,0 +1,1 @@
+Artículo 16.-Votación y de Horario. El proceso de votación se llevará a cabo en lo conducente, según lo establecido en el Código Electoral y los mecanismos que para tal efecto haya dispuesto el Tribunal Supremo de Elecciones. El horario de la votación lo establecerá el Concejo Municipal, no pudiendo, ser inferior a seis horas ni mayor a doce horas.

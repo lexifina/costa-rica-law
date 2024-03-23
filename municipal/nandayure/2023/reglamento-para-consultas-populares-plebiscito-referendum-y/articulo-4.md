@@ -1,0 +1,1 @@
+Artículo 4º-Del Órgano Encargado o Comisión Coordinadora de la consulta popular. El Concejo Municipal deberá Nombrar una Comisión Especial, conformada por cinco miembros escogidos entre los regidores y síndicos, que se encargarán de la organización y dirección de la consulta. Esta comisión será provista de los recursos suficientes para el cumplimiento de su contenido.

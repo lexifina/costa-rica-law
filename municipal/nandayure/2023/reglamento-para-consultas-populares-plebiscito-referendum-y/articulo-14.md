@@ -1,0 +1,1 @@
+Artículo 14.-Documentación electoral, de las seguridades. El Tribunal Supremo de Elecciones asesorará a la Municipalidad en cuanto a las seguridades básicas de la confección y el manejo de la documentación electoral que sea necesaria.
