@@ -1,3 +1,0 @@
-CAPÍTULO III
-Ubicación y estructura organizativa
-Artículo 7º—Organización de la Auditoría Interna. La Auditoría Interna se organizará y funcionará conforme lo dispuesto en los artículos 23 y 24 de la Ley Nº 8292, contará con el personal asistente necesario, el que deberá poseer los requisitos profesionales idóneos para el cabal cumplimiento de sus funciones, así como los conocimientos suficientes sobre las disposiciones legales contenidos en el Régimen Municipal y la Administración Pública

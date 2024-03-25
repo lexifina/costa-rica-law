@@ -1,1 +1,0 @@
-Artículo 21.—Pericia y cuidado profesional. El personal de la Auditoría debe cumplir con los requisitos de pericia y cuidado profesional establecidos en las “Normas para el ejercicio de la auditoría interna en el Sector Público”.
