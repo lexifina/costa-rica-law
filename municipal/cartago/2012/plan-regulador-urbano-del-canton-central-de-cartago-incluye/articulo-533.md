@@ -1,0 +1,2 @@
+Artículo 533.- Libre circulación en las urbanizaciones
+Toda urbanización debe brindar libre acceso vehicular y peatonal a todos los ciudadanos mediante redes viales públicas. Lo anterior sin perjuicio de lo establecido en la Ley de Regulación de Mecanismos de Vigilancia del Acceso a Barrios Residenciales con el fin de Garantizar el Derecho a la Libertad de Tránsito, y el Reglamento Municipal respectivo, o de la normativa que eventualmente los sustituya.

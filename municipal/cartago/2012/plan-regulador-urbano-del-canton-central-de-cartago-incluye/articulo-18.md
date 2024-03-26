@@ -1,11 +1,6 @@
-Artículo 18.- Del amanzanamiento y la Lotificación
-18.1.- Del Amanzanamiento
-El tamaño y tipo de las manzanas o bloques de lotes complementara el desarrollo urbano existente, reforzando patrones histórico-culturales de emplazamiento de ocupación humana, tal es el caso del concepto de barrio, así como la provisión de espacios públicos, estacionamientos, accesos y otras facilidades conexas.
-18.2.- De la Lotificación
-El proceso de lotificación en los desarrollos urbanos, se sujetará a las siguientes condiciones:
-a. El área, el frente y la forma de los lotes se ajustarán a lo que disponga el Reglamento de Zonificación de este Plan Regulador.
-b. Frente a curvas y rotondas, el frente mínimo podrá ser de 4,00 metros siempre que el área sea la mínima establecida.
-c. El fondo del lote no será mayor de siete veces el frente. Los lotes esquineros deberán ajustarse al lote mínimo del Reglamento de Zonificación más el ancho de antejardín estipulado en el mismo reglamento, el que en todo caso no podrá ser menor de dos metros.
-d. Los linderos laterales de los lotes serán perpendiculares a la línea de cordón y caño, excepto en los casos en que las condiciones del terreno requieran de un diseño diferente.
-e. Para el diseño del sistema de tratamiento de aguas negras se aplicarán las normas establecidas por las entidades competentes, las cuales se ajustaran a los alcances de los índices de fragilidad ambiental.
-f. En todo proyecto, a tenor de condiciones de sostenibilidad ambiental y gestión de riesgo, se debe evitar el movimiento de tierras y enfatizar el diseño en función de sistemas constructivos más adecuados. En casos donde no exista otra opción constructiva, en terrenos con pendientes mayores al 15%, deberá presentarse un estudio preliminar de suelos y terraceo, para determinar el tamaño de los lotes y sus taludes. Dichos terrenos deberán ser arborizados de acuerdo con un plan aprobado por la oficina de ambiente municipal. En lotes de mayor tamaño se podrán construir más unidades de vivienda por lote, ya sean unifamiliares o multifamiliares. En este caso privarán las densidades que fije el reglamento respectivo y en su defecto se aplicará las recomendaciones contenidas en los Índices de Fragilidad Ambiental (IFA’s).
+Artículo 18.- Certificado de obra terminada
+Para las obras que hayan sido concluidas conforme a lo aprobado para elotorgamiento de la licencia, se extenderá un certificado de obra terminada, como trámite de oficio, una vez se verifique su cumplimientopor la Municipalidad. En caso de incumplimiento de la licencia municipal aprobada, se informará a los entes municipales y sectoriales encargados del suministro de servicios y otras autorizaciones para que procedan según corresponda. Se definen, según el tipo de obra y trámite, los siguientes certificados:
+18.1.- Tipos de certificado de obra terminada: Se definen según el tipo de obra y trámite, los siguientes certificados:
+a) Certificado de obra terminada para edificaciones u obras en propiedad privada
+emitido por la Dirección de Urbanismo de la Municipalidad de Cartago.
+b) Certificado de obra terminada para urbanizaciones y fraccionamientos: Emitido por el Concejo Municipal mediante acuerdo municipal expreso, que se fundamentará necesariamente en el dictamen de la Comisión de Obras Públicas y Urbanismo de la Municipalidad. Se sustentará por los criterios de las dependencias municipales pertinentes y otras instituciones involucradas.

@@ -1,6 +1,2 @@
-Artículo 66.- De las Vías Nacionales.
-De acuerdo con la Ley de Tránsito y Ley General de Caminos Púbicos, éstas se categorizan de la siguiente forma:
-a. Primarias: Son aquellas que interconectan las principales carreteras nacionales dentro del Gran Área Metropolitana y sirven de enlace, principalmente, entre los centros urbanos (cabeceras cantónales principales), aeropuertos, zonas industriales, comerciales y recreativas de importancia nacional.
-b. Secundarias. Son aquellas que sirven de enlace entre los principales centros urbanos del Área Metropolitana, no servidos por las vías primarias.
-c. Terciarias. Son aquellas que sirven de colectoras de tránsito para las vías primarias y secundarias, así como de enlace entre los centros urbanos de segundo orden (cabeceras de cantones pequeños y distritos grandes).
-d. Rutas de Travesía. Conjunto de carreteras públicas nacionales que atraviesan el cuadrante de un área urbana o de calles que unen dos secciones de carretera nacional en el área referida, de conformidad con el artículo 3º de la Ley General de Caminos Públicos. La red de rutas de travesía se establece, para hacer más expedito el tránsito en el centro de la ciudad, de norte a sur y de este a oeste.
+Artículo 66. Impedimentos para el egreso
+Los accesos a salida y las puertas de salida deben diseñarse y disponersede modo que sean claramente reconocibles. El acceso a una salida no debe ser en algún caso, a través de cocinas, almacenes, cuartos de baño, salas de trabajo, armarios, habitaciones para dormir o espacios similares, u otras salas o espacios que puedan cerrarse con llave, a menos de que el pasaje por medio de tales salas o espacios esté permitido para la ocupación por el Cuerpo de Bomberos.

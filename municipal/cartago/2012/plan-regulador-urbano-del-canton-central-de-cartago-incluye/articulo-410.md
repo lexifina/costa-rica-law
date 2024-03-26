@@ -1,0 +1,2 @@
+Artículo 410. Antenas en azoteas terrazas o techos
+Para la instalación de infraestructura de soporte de redes detelecomunicaciones en azoteas, terrazas o techos de edificaciones se debecumplir con las disposiciones establecidas en el Capítulo XX. INFRAESTRUCTURA PARA EL SOPORTE DE REDES DE TELECOMUNICACIONES del presente Reglamento; además debe contar con un estudio de capacidad soportante emitido por un profesional responsable y con el permiso de construcción otorgado por la Municipalidad.

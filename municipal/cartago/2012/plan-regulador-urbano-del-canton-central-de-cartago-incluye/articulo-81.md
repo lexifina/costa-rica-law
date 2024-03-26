@@ -1,3 +1,5 @@
-Título IX
-Reglamento de Mapa Oficial
-Artículo 81.- Objeto del Mapa Oficial. Conforme al artículo 43 de la Ley de Planificación Urbana, el Mapa Oficial, junto con los planos o el catastro que lo complemente, constituirá registro especial fehaciente sobre propiedad y afectación a dominio público de los terrenos o espacios ya entregados a usos públicos.
+Artículo 81. Cuarto de máquinas para sistema fijo de protección contra incendios
+Sin perjuicio de la normativa que establece el Cuerpo de Bomberos, el cuarto de máquinas para sistema fijo de protección contra incendios debe cumplir con las siguientes disposiciones:
+1) Separarse 15,00 m de las edificaciones.
+2) Protegerse mediante rociadores automáticos.
+Se permite que el cuarto de máquinas se encuentre a menos de 15,00 m de las edificaciones, siempre que se cuente con una barrera cortafuego con resistencia al fuego de dos horas entre el cuarto de máquinas y la edificación.

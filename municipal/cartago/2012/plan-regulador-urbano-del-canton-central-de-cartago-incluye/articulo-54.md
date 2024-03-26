@@ -1,3 +1,5 @@
-Artículo 54.- La colocación de los anuncios se sujetará, a los siguientes ordenamientos:
-a. No podrán ser adosados o pintados en los macizos de la fachada.
-b. Los colores deberán armonizar con los de la fachada del inmueble.
+Artículo 54. Medios de egreso de escaleras
+Sin perjuicio de lo establecido por el Cuerpo de Bomberos, los medios de egreso de escaleras deben ser de construcción fija permanente; cada escalera, plataforma y descanso debe ser de material no combustible.
+Las escaleras deben contar con descansos en las aberturas de las puertas. Los escalones y los descansos de las escaleras deben ser sólidos, sin perforaciones y estar libres de proyecciones o bordes que puedan causar tropiezos a los usuarios. Además, las escaleras y los descansos intermedios deben continuar sin reducciones en su ancho a lo largo de la dirección del recorrido de salida.
+Cada descanso debe tener una dimensión medida en la dirección del recorrido, que no sea menor al ancho de la escalera.
+No deben utilizarse escaleras de caracol ni escaleras de abanico a menos que esté específicamente permitido para ocupaciones individuales por parte del Cuerpo de Bomberos.

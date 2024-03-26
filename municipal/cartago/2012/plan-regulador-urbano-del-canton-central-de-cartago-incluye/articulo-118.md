@@ -1,0 +1,6 @@
+Artículo 118. Alturas de edificación
+118.1. La distancia vertical sobre la línea de construcción, entre el nivel de piso terminado y el nivel media de la cubierta del último piso, se medirá a partir del nivel del cordón de la acera en el punto media del frente del lote o del lado más alto, de acuerdo con las leyes y las normas de planificación urbana vigentes. El cálculo no considerará las chimeneas, los parapetos, los antepechos, las instalaciones de ventilación, las casetas de ascensores, los tanques de agua, los elementos mecánicos relacionados con el funcionamiento del edificio y los elementos de recreación en las terrazas superiores.
+La tabla de parámetros del presente Plan Regulador Territorial se aplicará en cuanto alturas, siempre y cuando se aplique lo siguiente:
+1) No exceder 1,5 veces el ancho promedio del derecho de vía el cual enfrente la edificación. Aquel se mide desde la línea de propiedad.
+2) La Municipalidad puede autorizar hasta 1,5 veces la distancia entre la línea de construcción de la propiedad en la acera opuesta y la línea propuesta de fachada de la edificación del proyecto; así, cuanto mayor sea el retiro del alineamiento de la construcción proyectada, mayor debe ser también la altura permitida.
+3) En caso de que el predio enfrente dos o más vías, el cálculo de la altura se realiza con base en el derecho de vía más ancho.

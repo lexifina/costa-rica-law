@@ -1,0 +1,6 @@
+Artículo 607. Proceso para revisión y aprobación del PlanProyecto
+Para la aprobación del Plan Proyecto de Renovación Urbana, se deberán aplicar los siguientes pasos en el orden que a continuación se indica:
+1) Presentación del Plan Proyecto al Concejo Municipal para su revisión y remisión a la Comisión Permanente de Obras Públicas y Urbanismo para el criterio técnico favorable o no favorable.
+2) La Comisión de Obras Municipal evaluará el plan proyecto con los criterios de los artículos 5 y 6 del presente Reglamento. En el caso de su aprobación, emitirá su visto bueno al plan proyecto en un plazo máximo de un mes calendario, para que continúe con el trámite de aprobación. En casos que impliquen la integración de calles públicas, la Comisión de Obras gestionará la aprobación del Proyecto ante la UTGVM en caso de ser vía cantonal o ante el MOPT si es vía nacional.
+3) Una vez que se cuente con el visto bueno de la Comisión Permanente de Obras Públicas, esta remitirá el plan proyecto al Concejo Municipal para su aprobación.
+4) El Concejo Municipal enviará el Plan Proyecto a valoración de la Dirección de Urbanismo del INVU y una vez retorne con su respectiva aprobación podrá aprobar o rechazar el plan proyecto para su respectiva aprobación. En caso de rechazo este será archivado.

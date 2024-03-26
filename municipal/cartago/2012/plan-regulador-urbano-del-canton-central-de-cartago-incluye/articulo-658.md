@@ -1,0 +1,3 @@
+Artículo 658.- Sobre cumplimiento de las regulaciones del Plan Regulador Territorial
+Toda infraestructura o área pública no municipal está obligada a cumplir con cualquiera de los requisitos, las regulaciones y los procedimientos administrativos de cualquiera de los Reglamentos del Plan Regulador Territorial en lo que les resulte aplicable.
+En el caso de instituciones públicas exentas del pago de impuesto de construcción, en virtud del principio de coordinación constitucional, debenpresentar los planos de construcción sellados por el CFIA, ante la Dirección de Urbanismo, con los requisitos previstos en el Plan Regulador y demás normativa aplicable.

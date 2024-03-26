@@ -1,0 +1,2 @@
+Artículo 132. Aislamiento acústico
+Los elementos construidos verticales, horizontales o inclinados que sirvan de paredes divisorias o medianeras deben contar con un índice de reducción acústica mínima de 45 dB(A). Los elementos constructivos horizontales oinclinados tales como pisos y rampas deben mantener un índice de reducción mínima de 45 dB(A) y presentar un nivel de presión acústica al impacto normalizado de 75 dB.

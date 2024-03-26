@@ -1,0 +1,2 @@
+Artículo 632.-
+En el proceso de diseño de cualquier proyecto público o privado dentro de la zona de interés histórico o arquitectónico, deberá considerar el análisis de la escena urbana de la ciudad de Cartago, así como el patrimonio construido. En este sentido, se establece la conservación del patrimonio de los bienes inmuebles ubicados en el Centro Histórico Arquitectónico dela ciudad de Cartago delimitados en el mapa de zonificación, así como todos aquellos que hayan sido incluidos en términos de Ley de Patrimonio Histórico Arquitectónico.

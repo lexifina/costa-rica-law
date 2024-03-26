@@ -1,0 +1,2 @@
+Artículo 652.- Facultades municipales
+La Oficina de Planificación Urbana en coordinación de la Dirección de Urbanismo y el Departamento de Patentes se reserva el derecho de rechazar las solicitudes de licencias para publicidad exterior, así como de limitar el número y los lugares donde se colocarán la publicidad, por razones de oportunidad y conveniencia asociadas a conceptos de paisaje e imagen urbana.

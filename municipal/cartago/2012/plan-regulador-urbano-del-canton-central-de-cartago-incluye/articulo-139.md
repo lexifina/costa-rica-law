@@ -1,0 +1,3 @@
+Artículo 139. Instalaciones de servicio en el interior de una edificación
+Todo lo relacionado con la instalación de servicios hidráulicos, mecánicos, sanitarios y eléctricos se rige por lo establecido en el CECR, el Cuerpo de Bomberos, el Reglamento para el Diseño, Construcción y Operación de Plantas de Almacenamiento y Envasado para GLP, Decreto Ejecutivo N.° 28622 y sus reformas o normativas que las sustituyan, además de las disposiciones de este Reglamento.
+El profesional responsable debe acatar las disposiciones establecidas por el CFIA en el CIHSE vigente sin perjuicio de la normativa nacional en la materia.

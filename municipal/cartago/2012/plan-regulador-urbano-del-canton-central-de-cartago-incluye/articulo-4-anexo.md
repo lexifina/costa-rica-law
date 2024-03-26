@@ -1,11 +1,2 @@
-Anexo IV
-[imagen]
-(Corregido el mapa anterior mediante Fe de erratas y publicada en el Alcance Digital N° 250 a La Gaceta N° 232 del 14 de diciembre de 2023)
-[imagen]
-(Corregido el mapa anterior mediante Fe de erratas y publicada en el Alcance Digital N° 250 a La Gaceta N° 232 del 14 de diciembre de 2023)
-[imagen]
-(Corregido el mapa anterior mediante Fe de erratas y publicada en el Alcance Digital N° 250 a La Gaceta N° 232 del 14 de diciembre de 2023)
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+Anexo 4
+(Nota de Sinalevi :En la publicación de este reglamento no aparece este anexo. No obstante, el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

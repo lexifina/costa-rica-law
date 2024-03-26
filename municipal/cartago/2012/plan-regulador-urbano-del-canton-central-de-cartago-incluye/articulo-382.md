@@ -1,0 +1,6 @@
+Artículo 382. Cálculo de estacionamientos para edificaciones para uso residencial
+Toda aquella vivienda, unidad habitacional o apartamento destinado al uso residencial; ya sean construidas de manera horizontal o vertical, en uno o más pisos, deben cumplir los siguientes requerimientos en cuanto a estacionamientos:
+1) Viviendas unifamiliares: en las viviendas unifamiliares, cuya área de lote sea de 200 m² o más, se deja un espacio para estacionamiento dentro del predio.
+2) Condominios de uso habitacional y apartamentos: en cualquier tipo de condominio con uso habitacional y en edificaciones de apartamentos, para unidades habitacionales de tres dormitorios, se debe exigir como mínimo un espacio de estacionamiento por cada dos viviendas y para los de uno y de dos dormitorios, un espacio de estacionamiento por cada cuatro viviendas.
+3) Urbanizaciones: se incluyen, para efectos de cálculo, las áreas que, al respecto, señala el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones y sus reformas.
+4) Condominios habitacionales de interés social: se incluyen, para efectos de cálculo, las áreas que al respecto señala el Reglamento a la Ley Reguladora de la Propiedad en Ley Reguladora de la Propiedad en Condominio N.° 7933 y sus reformas o normativa que lo sustituya.

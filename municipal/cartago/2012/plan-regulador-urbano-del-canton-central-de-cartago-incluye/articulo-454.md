@@ -1,0 +1,4 @@
+CAPÍTULO XXVI. OBRAS DE SUPERFICIE EN DERECHOS DE VÍA
+Artículo 454. Normativa aplicable
+Toda obra de superficie que deba construirse en vías nacionales debe cumplir con las disposiciones del Manual Especificaciones Generales parala Construcción de Caminos, Carreteras y Puentes CR-2010, Decreto Ejecutivo N.° 36388-MOPT, el Manual de Especificaciones Generales para la Conservación de Caminos, Carreteras y Puentes MCV- 2015, oficializado mediante Decreto Ejecutivo N.º 39429-MOPT y sus reformas o la normativa vigente emitida por el MOPT aplicable a la materia.
+En caso de que la obra de superficie se realice en vías cantonales, debe ajustarse a la normativa vigente municipal o a las disposiciones que dicho ente indique. Subsidiariamente, la Municipalidad puede aplicar las especificaciones que se describen como básicas en el siguiente articulado.

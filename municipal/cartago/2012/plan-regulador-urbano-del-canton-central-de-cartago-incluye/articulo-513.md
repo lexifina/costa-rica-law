@@ -1,0 +1,3 @@
+Artículo 513-Aprovechamiento maderable en predios por urbanizar
+Cuando se requiera talar árboles maderables para su aprovechamiento en predios por urbanizar, se debe cumplir con las disposiciones establecidas en el Reglamento para Trámite de Permisos y Control del Aprovechamiento Maderable en Terrenos de Uso Agropecuario,
+Sin Bosque y Situaciones Especiales en Costa Rica, Oficialización de "Sistema de Información para el control del aprovechamiento forestal (SICAF), Decreto Ejecutivo N.°38863-MINAE y sus reformas o normativa que lo sustituya.

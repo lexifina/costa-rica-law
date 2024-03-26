@@ -1,0 +1,2 @@
+Artículo 115. Antejardín frente a calle pública
+En el desarrollo de todas las construcciones debe respetarse el antejardíno retiro frontal. El ancho mínimo del antejardín debe ser de 2,00 m frente a vías cantonales y frente a vías nacionales según lo determine el MOPT con base en la Ley General de Caminos Públicos, Ley N.º 5060 y sus reformas o normativa que lo sustituya. La Municipalidad puede eximir del antejardín a aquellas construcciones que se desarrollen en las zonas urbanas o en los cuadrantes de ciudad determinadas de acuerdo con el plan regulador vigente.

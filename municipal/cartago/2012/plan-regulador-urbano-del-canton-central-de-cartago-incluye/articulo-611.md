@@ -1,0 +1,2 @@
+Artículo 611. Fiscalización del proyecto
+La fiscalización técnica-constructiva del Proyecto de Renovación Urbana estará a cargo tanto de la Dirección de Urbanismo Municipal con apoyo de las unidades técnicas competentes, como del Concejo Municipal conforme al artículo 169 de la Constitución Política y la Ley de Construcciones. Igualmente, el profesional responsable de la obra deberá fiscalizar el Proyecto de Renovación Urbana, según la normativa establecida por el Colegio Federado de Ingenieros y Arquitectos.

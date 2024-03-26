@@ -1,0 +1,2 @@
+Artículo 350. Instalaciones provisionales sobre vías públicas
+Para colocar estructuras de cualquier tipo o hacer instalaciones de carácter provisional en las vías públicas, el interesado debe obtener la previa autorización municipal o del MOPT según corresponda. Se excluyen, de esta disposición, las obras temporales para construcción de obra pública en sistemas de abastecimiento de agua potable y de saneamiento sin detrimento del deber de coordinación interinstitucional.

@@ -1,0 +1,2 @@
+Artículo 294. Accesos de vehículos
+Se debe cumplir las disposiciones sobre acceso de vehículos, indicadas en el Manual de Normas para la Habilitación de Hospitales Generales y Servicios Especiales, Decreto Ejecutivo N.° 38508-S, la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Ley N.º 7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP, Convención Interamericana Sobre la Protección de los Derechos Humanos de las Personas Mayores, Ley N°9394 y sus reformas o normativa que lo sustituya.

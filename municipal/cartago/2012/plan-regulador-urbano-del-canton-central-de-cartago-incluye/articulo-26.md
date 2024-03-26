@@ -1,4 +1,4 @@
-Artículo 26.- Incentivos:
-En los proyectos de rehabilitación urbana, la Municipalidad podrá otorgar incentivos que faciliten y promuevan la regeneración urbana. Los incentivos podrán ser cuantitativos y cualitativos, y podrán incluir los siguientes:
-a) El impuesto de construcción podrá reducirse o eliminarse.
-b) Se podrán variar los requisitos mínimos y restricciones establecidas en este Plan Regulador, previo acuerdo municipal que se sustentará en la aprobación técnica de la Comisión de Obras Públicas y Urbanismo Municipal.
+Artículo 26.- Plazos de resolución
+Toda solicitud de licencia urbanística deberá resolverse en el término de diez días hábiles contados a partir del día siguiente de su presentación, salvo que, por razones técnicas justificadas en función de la dimensión dela obra por construir, debidamente acreditadas en el expediente y notificadas al interesado, en cuyo caso se podrá prorrogar dicho plazo hasta por un máximo de veinte días hábiles adicionales.
+En cualquiera de los casos, si no se diere respuesta a la solicitud, dentro de los plazos indicados, el solicitante podrá acudir ante el superior inmediato, quien deberá responder dentro del término de cinco días hábiles y adoptar las medidas disciplinarias pertinentes.
+La prevención del faltante de algún requisito para darle trámite a la solicitud suspenderá los términos y los plazos de resolución de esta.

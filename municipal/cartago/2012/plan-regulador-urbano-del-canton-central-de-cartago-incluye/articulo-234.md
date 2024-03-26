@@ -1,0 +1,2 @@
+Artículo 234. Aguas residuales
+Las aguas residuales deben de ser tratadas según con lo dispuesto en el Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales, Decreto Ejecutivo N.° 39887- S-MINAE y el Reglamento de Vertido y Reúso de Aguas Residuales N.° 33601-MINAE-S y sus reformas o normativa que lo sustituya. Posteriormente, pueden ser dispuestas en un alcantarillado sanitario. No se permite, bajo alguna circunstancia, dar curso libre a las aguas residuales de desecho industrial.

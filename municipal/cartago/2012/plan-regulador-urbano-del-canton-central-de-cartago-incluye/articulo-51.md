@@ -1,8 +1,3 @@
-Artículo 51.- Los proyectos arquitectónicos de obras de restauración o adaptación en los inmuebles y monumentos protegidos por el presente reglamento, solo se autorizarán por la Municipalidad de Cartago en coordinación con la COSECOP , si se respetan características tipológicas originales de los mismos, tales como: proporción, altura, escala y procedimientos de construcción, elementos ornamentales y los demás que armonicen con el contexto; en consecuencia, sin la previa autorización por escrito de la Municipalidad de Cartago y de COSECOP, se prohíbe:
-a. Modificar o demoler total o parcialmente el inmueble.
-b. Reparar, modificar o alterar la composición, distribución o estructura del inmueble.
-c. Añadir o adosar a la fachada del inmueble elementos que no correspondan a las características originales del mismo, o que alteren o desvirtúen sus elementos tipológicos originales
-d. Alterar o modificar la dimensión y proporción original de los vanos de puertas y ventanas
-e. Eliminar los elementos ornamentales de los vanos de puertas y ventanas, tales como herrería, jambas, molduras entre otros.
-f. Usar recubrimientos de cualquier índole
-g. Las demás que determine este reglamento u otras disposiciones aplicables.
+Artículo 51. Superficie y cambios de nivel de los medios de egreso
+Las superficies de tránsito de los medios de egreso, que, según criterio del profesional responsable, puedan presentar condiciones que las tornen resbaladizas deben disponer de superficie antideslizante con resistencia al fuego.
+Cuando exista una diferencia de nivel mayor a 0,50 m, los cambios en el nivel deben lograrse por medio de una rampa o escalera, la cual debe cumplir con las características que establezca el Cuerpo de Bomberos.

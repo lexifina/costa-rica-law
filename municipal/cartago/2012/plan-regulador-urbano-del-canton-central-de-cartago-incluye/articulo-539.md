@@ -1,0 +1,4 @@
+Artículo 539.- Intersecciones
+En una urbanización, la distancia mínima entre dos intersecciones vehiculares debe ser de 40,00 m medidos entre las líneas del centro de las calles. Toda intersección de vías tiene una principal; las que empatencon esta deben tener una pendiente máxima del 5 % en una distancia mínima de 15,00 m fuera del derecho de vía de la principal antes del empate.
+Los niveles de calle y alcantarillado, que desemboquen en calles públicas existentes, deben ser definidos por el área de operaciones municipal en congruencia con lo existente. Si el empate es con carretera pública existente o proyectada, el urbanizador debe presentar al MOPT el perfil longitudinal para su estudio.
+En caso de que el derecho de vía lo permita, el inicio de los espacios de estacionamiento público sobre las vías no pueden quedar a menos de 100,00 m en una intersección de carreteras y de 40,00 m en el caso de calles.

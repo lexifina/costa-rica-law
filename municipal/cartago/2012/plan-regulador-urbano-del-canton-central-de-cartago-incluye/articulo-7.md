@@ -1,2 +1,2 @@
-Artículo 7.- Administración del Plan Regulador
-La administración general del Plan Regulador está a cargo de la Oficina de Planificación Urbana en coordinación con la Dirección de Urbanismo de la Municipalidad de Cartago, las que se apoyarán en todas las instancias municipales y comisiones conformadas para tal fin.
+Artículo 7.- Ámbito de aplicación
+Las disposiciones del Plan Regulador serán de aplicación y acatamiento obligatorio para todas las personas físicas y de hecho, personas jurídicas, entes públicos y privadas, en toda el área del cantón de Cartago, de la provincia de Cartago.

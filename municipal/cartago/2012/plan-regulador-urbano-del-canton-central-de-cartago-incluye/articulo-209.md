@@ -1,0 +1,4 @@
+Artículo 209. Campos deportivos
+Todas las instalaciones deportivas públicas deben contar con vestidores, guardarropa y servicios sanitarios separados para hombres y mujeres. Deben tener características tales que puedan ser utilizados por personas con discapacidad, de conformidad a lo establecido en la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N.° 7600, su Reglamento Decreto Ejecutivo N.° 26831-MP, y sus reformas o la normativa que la sustituya; además de las especificaciones técnicas reglamentarias de los organismos públicos y privados encargados de la materia.
+Los predios destinados a campos deportivos deben contar con un sistemaadecuado de drenaje pluvial.
+El profesional responsable debe acatar las disposiciones establecidas porel CIHSE vigente sin perjuicio de la normativa nacional en la materia.

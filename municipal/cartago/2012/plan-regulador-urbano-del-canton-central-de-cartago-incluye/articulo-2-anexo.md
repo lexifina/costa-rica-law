@@ -1,6 +1,2 @@
-Anexo II
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-(Corregidos los mapas anteriores mediante Fe de Erratas y publicada en el Alcance Digital N° 250 a La Gaceta N° 232 del 14 de diciembre de 2023)
+Anexo 2
+(Nota de Sinalevi: E la publicación de este reglamento no aparece este anexo. No obstante, el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

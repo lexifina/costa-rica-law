@@ -1,0 +1,5 @@
+Artículo 505.- Licencia de movimiento de tierra o escombros
+La licencia de movimiento de tierra o escombros es requerida para las obras que comprenden excavación, relleno, explanación, terraplenado, terraceo y depósito de cualquier tipo de material. Deberá ser tramitado por APC.
+Para los movimientos de tierra menores de doscientos metros cúbicos, se debe tramitar la licencia ante la Dirección de Urbanismo Municipal que coordinará con la Unidad Ambiental, así como un plan con medidas de prevención y mitigación de riesgos (Oficina de Gestión del riesgo), bajo la responsabilidad de un profesional responsable, en el que se especifiquen los elementos que utilizará para proteger los terrenos colindantes y los cauces. Del mismo modo, deberá presentarse la resolución de SETENA cuando el caso lo amerite de conformidad con la legislación ambiental.
+Para los movimientos de tierra mayores a doscientos metros cúbicos deberá aportar todo lo anterior y adicionalmente la vialidad ambiental de SETENA.
+En ningún caso se permitirán movimientos de tierra o escombros en zonas de protección señaladas en la zonificación del presente Plan Regulador Territorial.

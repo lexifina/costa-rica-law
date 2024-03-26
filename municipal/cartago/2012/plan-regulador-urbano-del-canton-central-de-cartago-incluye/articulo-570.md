@@ -1,0 +1,4 @@
+Artículo 570. Procedimiento para variación de normas
+Para la variación de las normas técnicas definidas en este Reglamento, se deben incorporar, además de las disposiciones establecidas para el Anteproyecto de Renovación Urbana en el Reglamento de Renovación Urbana, los requisitos para urbanizaciones y conjuntos residenciales, según corresponda, definidos en el presente Reglamento.
+Para la ejecución del Proyecto de Renovación Urbana se deben generar los planos constructivos, las especificaciones técnicas, realizar el trámite correspondiente mediante plataformas digitales de tramitación del CFIA y gestionar el permiso de construcción en la municipalidad en cumplimiento de lo señalado en el Reglamento de Renovación Urbana.
+Posteriormente, el profesional responsable debe gestionar el visado de la urbanización o del conjunto residencial ante la Municipalidad, el INVU y demás instituciones competentes.

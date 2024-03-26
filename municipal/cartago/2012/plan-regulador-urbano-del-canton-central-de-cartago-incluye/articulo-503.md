@@ -1,0 +1,2 @@
+Artículo 503.- Pruebas de infiltración y tránsito de contaminantes
+En los casos en que así se requiera, de conformidad con la reglamentación nacional sobre construcciones, fraccionamientos y urbanizaciones, las pruebas de infiltración y el tránsito de contaminantes se harán juntamente con los estudios preliminares y sus resultados serán aprobados por la institución respectiva. Aplica el Decreto Ejecutivo 39887-S-MINAE.

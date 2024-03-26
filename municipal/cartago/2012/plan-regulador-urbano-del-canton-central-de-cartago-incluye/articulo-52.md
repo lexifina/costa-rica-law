@@ -1,1 +1,3 @@
-Artículo 52.- La Dirección de Urbanismo de la Municipalidad de Cartago, en cualquier momento podrá ordenar la suspensión de las obras que no reúnan las condiciones requeridas conforme a la Ley y este reglamento, o cuando se ejecuten sin las autorizaciones y requisitos que señala los documentos antes mencionados.
+Artículo 52. Ancho de los medios de egreso
+Debe calcularse según la normativa que establezca el Cuerpo de Bomberos y no debe ser menor a 0,90 m. El ancho requerido para el medio de egreso de ser el mismo a lo largo del recorrido.
+Las puertas de acceso a salida que sirvan una habitación que no exceda los 6,50 m² y que no se requiera que sean accesibles para personas con impedimentos de movilidad deben tener un ancho de hoja de puerta no menor a 0,61 m.

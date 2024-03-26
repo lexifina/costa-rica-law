@@ -1,0 +1,3 @@
+Artículo 174. Comunicación visual exterior
+Toda publicidad exterior debe cumplir con lo establecido en la Ley de Construcciones N.° 833. En caso de estar ubicada en derechos de vías nacionales, deben cumplir con los requerimientos dispuestos en el Reglamento de los Derechos de Vía y Publicidad Exterior, Decreto Ejecutivo N.°29253 y sus reformas o normativa que lo sustituya, sin perjuicio de demás disposiciones emitidas por el MOPT.
+Cuando la publicidad exterior se coloque en derechos de vías cantonales, se debe cumplir con lo indicado en el Reglamento de Publicidad Exterior en este Plan Regulador Territorial.

@@ -1,0 +1,3 @@
+Artículo 543. Calles marginales a la vía férrea
+El derecho de vía de calles marginales a la vía férrea debe ser de 11,00 m. La calzada debe ser de 7,00 m de ancho, la acera de 1,20 m y la franja verde de 0,80 m en el lado de los lotes. Los 2,00 m restantes se deben ubicar del lado del ferrocarril sin acera.
+En los sitios donde se prevean calles marginales, parte del área pública por ceder a las municipalidades, se puede ubicar paralelo y colindante a la vía férrea con un ancho mínimo de 6,00 m como parque lineal, con acceso por los extremos y en donde no se permite algún tipo de construcción. Las construcciones en lotes colindantes con la vía férrea, cuando no existe calle marginal, deben guardar un retiro de construcción según el alineamiento otorgado por el INCOFER.

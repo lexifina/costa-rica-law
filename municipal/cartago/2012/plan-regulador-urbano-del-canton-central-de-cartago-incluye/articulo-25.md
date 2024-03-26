@@ -1,2 +1,2 @@
-Artículo 25.- Vigilancia y seguimiento de los proyectos de Rehabilitación Urbana:
-La vigilancia y seguimiento de los proyectos de rehabilitación urbana corresponderá a la Comisión de Obras Públicas y Urbanismo Municipal.
+Artículo 25.- Del certificado
+Una vez aprobado el permiso de construcción, la Dirección de Urbanismo emitirá un certificado del permiso de construcción, que el interesado deberá colocar en el sitio de la obra en un lugar visible. El incumplimiento de este artículo podrá sancionarse de conformidad con este Reglamento.

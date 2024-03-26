@@ -1,0 +1,2 @@
+Artículo 285. Drenajes
+Los drenajes deben estar conectados a un sistema de tratamiento de aguas residuales, cuyo afluente puede ser conectado a la red de alcantarillado sanitario. En caso de no existir red de alcantarillado sanitario, las aguas deben ser tratadas mediante plantas de tratamiento de aguas residuales; se debe cumplir con lo establecido en el Reglamentode Aprobación de Sistemas de Tratamientos de Aguas Residuales, Decreto Ejecutivo N.° 39887-S-MINAE, y sus reformas o normativa que lo sustituya.

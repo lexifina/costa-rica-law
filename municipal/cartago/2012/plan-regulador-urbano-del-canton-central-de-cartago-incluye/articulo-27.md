@@ -1,2 +1,4 @@
-Artículo 27. -Facultad remodeladora de la Municipalidad :
-De conformidad con el artículo 53 de la Ley de Planificación Urbana, para efectos de rehabilitación urbana, la Municipalidad tendrá facultades de abrir y cerrar calles, así como rectificar su trazado, así como lo correspondiente a redistribución de lotes y en general ejercer las atribuciones en esa norma jurídica.
+Artículo 27.- Vigencia de las licencias y visados
+Los permisos y los visados otorgados por la Dirección de Urbanismo, de acuerdo con el presente reglamento, tendrán una vigencia de un año desde el momento de su aprobación. Si en el año de vigencia no se han iniciado las obras, el interesado podrá solicitar una prórroga de hasta por un año a partir de la fecha del resello de planos ante el CFIA y acredite la cancelación del ajuste correspondiente del impuesto de construcción. Esta prórroga se podrá aplicar por un máximo de dos veces.
+En caso de Planes Maestros, según los define la Ley Orgánica del CFIA, el plazo de la licencia se determinará al considerar la complejidad de la obra.
+La solicitud o el visado de anteproyectos, así como el certificado de uso de suelo, no se interpretará como un permiso de construcción.

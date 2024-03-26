@@ -1,0 +1,5 @@
+Artículo 585.- De la red vial nacional
+a) Carreteras primarias: Red de rutas troncales para servir de corredores. Se caracterizan por volúmenes de tránsito relativamente altos y con una alta proporción de viajes internacionales, interprovinciales o de larga distancia.
+b) Carreteras secundarias: Rutas que conecten cabeceras cantonales importantes -no servidas por carreteras primarias- así como otros centros de población, producción o turismo, que generen una cantidad considerable de viajes interregionales o intercantonales.
+c) Carreteras terciarias: Rutas que sirven de colectoras del tránsito para las carreteras primarias y secundarias y que constituyen las vías principales para los viajes dentro de una región o entre distritos importantes.
+d) Rutas de travesía. Conjunto de carreteras públicas nacionales que atraviesan el cuadrante de un área urbana o de calles que unen dos secciones de carretera nacional en el área referida, de conformidad con el artículo 3.º de la Ley General de Caminos Públicos. La red de rutas de travesía se establece para hacer más expedito el tránsito en el centro de la ciudad, de norte a sur y de este a oeste.

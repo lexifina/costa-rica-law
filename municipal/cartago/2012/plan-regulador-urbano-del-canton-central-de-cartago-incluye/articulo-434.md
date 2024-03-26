@@ -1,0 +1,3 @@
+Artículo 434. Demoliciones
+Para toda demolición se aplican las disposiciones de la Ley de Construcciones N.º 833 y el Reglamento deConstrucciones, Decreto Ejecutivo N.° 40790-MTSS y sus reformas o su normativa que lo sustituya.
+Los escombros producto de las demoliciones deben disponerse conforme a la Ley para la Gestión Integral de Residuos N.° 8839 y su Reglamento Decreto Ejecutivo N.° 37567-S- MINAE-H y Reglamento Municipal para la Gestión Integral de los Residuos Sólidos del Cantón de Cartago, Capítulo de Manejo de Residuos Especiales y Peligrosos y sus reformas o la normativa que lo sustituya.

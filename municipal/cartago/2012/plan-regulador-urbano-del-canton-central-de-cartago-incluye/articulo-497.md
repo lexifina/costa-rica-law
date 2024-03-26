@@ -1,0 +1,5 @@
+Artículo 497.- Del entubamiento de cauces de dominio público
+Sin perjuicio de lo que resuelva la Municipalidad, el desarrollador deberá solicitar el visto bueno de la Dirección de Aguas del MINAE. En caso de obtener el visto bueno indicado, se podrán autorizar trabajos de canalización de acuerdo con estudios hidrológicos puntuales que así lo permitan, en cuyo caso el diseño de las obras hidráulicas deberá considerar un periodo de retorno de acuerdo con el estudio histórico de la zona. El estudio debe validarse por parte de SETENA y contemplar las áreas tributarias o microcuencas y las áreas de crecimiento urbano en el Reglamento de Zonificación del presente Plan Regulador Territorial.
+En ningún caso se permitirá el entubamiento de cauces de agua permanentes o intermitentes.
+En el caso de existir desfogue de aguas a otros cantones vecinos, se deberá contar con el visto bueno del área técnica del cantón respectivo.
+El área utilizada para la canalización continúa siendo inalienable según lo establecido en la Ley Forestal N.°7575, sus reformas o normativa que la sustituya.

@@ -1,5 +1,2 @@
-Título IV
-Reglamento de Rehabilitación Urbana
-Artículo 20.- Objetivo:
-Sin perjuicio de lo indicado en otros apartados de este Plan Regulador, este título regula lo concerniente a los Procesos de Regeneración Urbana que se requieran implementar en los distritos y centros urbanos del cantón de Cartago, bajo la tutela de las disposiciones normativas contenidas en el capítulo sexto de la Ley de Planificación Urbana.
-El objetivo de este Reglamento es posibilitar la intervención pública en las áreas del cantón que se encuentran decadentes, defectuosas o deterioradas, tomando en cuenta la inconveniente parcelación o edificación, la carencia de servicios y facilidades comunales, o cualquier otra condición adversa a la seguridad, salubridad, conservación del patrimonio y bienestar en general.
+Artículo 20.- Solicitud de licencia de construcción
+Para el otorgamiento de permisos municipales de construcción, de acuerdo con la zonificación del Plan Regulador, debe presentarse ante la Dirección de Urbanismo de la Municipalidad la gestión correspondiente de manera previa al inicio de la obra. Se efectuará con la presentación del formulario debidamente lleno para acreditar el cumplimiento de los demás requisitos que exige el presente reglamento y la legislación conexa.

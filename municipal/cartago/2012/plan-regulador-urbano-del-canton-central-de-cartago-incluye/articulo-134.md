@@ -1,0 +1,2 @@
+Artículo 134. Nivel de piso de la construcción
+Debe estar, por lo menos, a 0,10 m sobre el nivel del predio donde se ubique; en los sitios de reunión pública, el desnivel debe ser elevado por rampa, cuando menos en el acceso principal. En caso de que el diseño o las pendientes del predio imposibiliten las anteriores condiciones, el profesional responsable debe demostrar al departamento municipal correspondiente que no existe riesgo alguno por amenaza natural en el sitio.

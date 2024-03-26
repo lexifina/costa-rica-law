@@ -1,7 +1,7 @@
-Artículo 57.- Justificación de la propuesta de Zonificación de los Usos del Suelo.
-De conformidad con el análisis de la tierra urbanizada y urbanizable del cantón, los usos predominantes de la tierra por área son los que se describen a continuación. Dichas zonas vienen graficadas en el mapa de zonificación propuesta y los parámetros establecidos acorde a las características de cada zona y uso correspondiente se detallan en las fichas urbanísticas incluidas al final de este documento, compuestas por tablas de parámetros y de mapas con los sectores donde se aplican estos.
-Los parámetros establecidos para cada sector y recogidos en las tablas mencionadas son los siguientes:
-Uso, simbología, superficie total, densidad de viviendas por hectárea (viv/ha), superficie mínima de lote, altura máxima de la edificación, número de niveles, frente mínimo, cobertura máxima y retiros (frontal, posterior y lateral).
-El sector se define como un área donde, en toda su superficie, los parámetros antes mencionados tienen el mismo valor.
-Para establecer algunos de los parámetros como la densidad, altura máxima y número de niveles, cobertura máxima, usos, se han aplicado los lineamientos establecidos en este Plan Regulador, según la estructura de jerarquización de centros urbanos al que pertenecen los distritos que componen el cantón y los niveles de prioridad de densificación.
-Para la elaboración del mapa de zonificación propuesta, además de todos los lineamientos establecidos en las Directrices Metropolitanas que forman parte de este Plan Regulador, se han incorporado los estudios y mapas de Índice de Fragilidad Ambiental (IFA) y los estudios de Capacidad de Carga y Efectos Acumulativos aprobados por la SETENA , en la RESOLUCION N °195-2010-SETENA.
+Artículo 57. Disposiciones para medios de egreso de escaleras exteriores
+Sin perjuicio de lo establecido en materia de medios de egreso de escaleras en el presente Capítulo; las escaleras exteriores deben cumplir con los siguientes requerimientos:
+1) Las escaleras exteriores de más de 11,00 m de altura deben ser provistas con una obstrucción visual opaca de no menos de 1,22 m de altura.
+2) Estar separadas del interior de la edificación por construcciones con la clasificación de resistencia al fuego y contar con puertas auto cerrantes.
+3) Las escaleras y los descansos exteriores deben diseñarse para minimizar la acumulación de agua en la superficie.
+4) Estar abiertas, por lo menos, un 50 % sobre un lado.
+5) Estar dispuestas para restringir la acumulación de humo.

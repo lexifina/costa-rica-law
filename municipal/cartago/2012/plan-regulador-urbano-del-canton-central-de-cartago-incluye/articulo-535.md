@@ -1,0 +1,2 @@
+Artículo 535. Materiales de las vías de la urbanización
+La capa de rodamiento debe construirse según las normas sobre espesor, materiales y construcción que determine el MOPT o la Municipalidad de acuerdo con sus respectivas competencias. Estas dos instancias pueden rechazar los materiales o las especificaciones de construcción propuestos para las calzadas, cuando no estén acordes con la topografía o con el flujode tránsito previsto.

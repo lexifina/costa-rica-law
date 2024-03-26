@@ -1,1 +1,2 @@
-Artículo 83.- Categorías de Bienes Públicos Incluidas en este Reglamento. Sin que deba considerarse una categorización cerrada o exhaustiva, se incluyen las siguientes categorías de bienes públicas en este mapa oficial:
+Artículo 83. Tanque de agua para sistema fijo de protección contra incendios
+Cuando el tanque de agua sea compartido para procesos de producción, consumo humano y para uso en caso de incendio, las succiones de las bombas deben estar instaladas a diferentes alturas de manera que la reserva de agua para uso en caso de incendio siempre esté disponible y no exista la posibilidad de que se utilice en los procesos o servicios normales de la edificación.

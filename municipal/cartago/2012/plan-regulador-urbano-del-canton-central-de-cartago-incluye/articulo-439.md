@@ -1,0 +1,2 @@
+Artículo 439. Habilitación de aceras y calzadas
+Las aceras y las calzadas afectadas por el desarrollo de una construcción deben quedar habilitadas con las mejoras a la media vía que enfrenta la edificación. También, deben estar limpias y despejadas de toda clase de escombros, materiales sobrantes, andamios, ademes y cualquier otro elemento que no pertenezca a la obra terminada definitiva, en cumplimiento de los requisitos que la Municipalidad establezca para estos efectos.

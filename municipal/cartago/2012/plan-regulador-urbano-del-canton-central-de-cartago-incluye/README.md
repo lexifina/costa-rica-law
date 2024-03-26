@@ -14,3 +14,4 @@ Plan Regulador Urbano del Cantón Central de Cartago, incluye: Reglamentos: Reno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-20 | la propia norma |
+| 2 | 2024-03-26 | Reglamento municipal 317 (2024-03-26) |

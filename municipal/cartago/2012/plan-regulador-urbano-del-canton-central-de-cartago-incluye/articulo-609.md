@@ -1,0 +1,3 @@
+Artículo 609.- Proyectos de rehabilitación urbana
+Para la implementación de los planes de rehabilitación urbana, la Municipalidad en coordinación con el Estado deberá establecer los proyectos de rehabilitación urbana, que se requieran, que contendrán la programación de las actuaciones por realizar a efectos de lograr los objetivos propuestos, en las áreas señaladas, a tal efecto en el Mapa de Zonificación del Plan Regulador Territorial.
+Los proyectos de rehabilitación urbana podrán surgir por iniciativa públicao privada. En este último caso, el proyecto deberá ser aprobado por el Concejo Municipal previo dictamen técnico debidamente fundamentado.

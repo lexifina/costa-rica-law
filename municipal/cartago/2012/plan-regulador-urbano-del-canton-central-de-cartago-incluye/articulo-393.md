@@ -1,0 +1,4 @@
+Artículo 393. Ubicación
+Cuando por la ubicación o las características del predio se dificulte la provisión de los espacios requeridos para estacionamiento en la edificación, el propietario puede proveer los espacios de estacionamientorequeridos por su edificación en otro predio, previa aprobación de la municipalidad respectiva, siempre que no se exceda una distancia de 200,00 m medida a lo largo de las vías públicas entre las entradas de laedificación y el área del establecimiento.
+En el caso de que la demanda de estacionamiento correspondiente a varios usos se presente en horas o días diferentes, el espacio de estacionamiento previsto para ellos conjuntamente puede ser acreditadoen total a cada uno.
+Las disposiciones anteriores no aplican para proyectos que se encuentren bajo el régimen de propiedad en condominio.

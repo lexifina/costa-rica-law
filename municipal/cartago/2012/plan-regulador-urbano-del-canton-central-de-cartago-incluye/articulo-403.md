@@ -1,0 +1,3 @@
+Artículo 403. Uso compartido de la infraestructura
+Las administraciones públicas o privadas que diseñen y construyan infraestructuras susceptibles de ser utilizadas para el despliegue de redes públicas de telecomunicaciones, deben facilitar el uso compartido de dichas infraestructuras, siempre que no se comprometa la continuidad y la seguridad de la prestación de los servicios. En ningún caso se puede establecer un derecho preferente o exclusivo de uso compartido de la infraestructura, en beneficio de un operador de telecomunicaciones determinado, o de una red concreta de telecomunicaciones.
+El uso compartido de dicha infraestructura debe facilitarse en condiciones de igualdad, transparencia y no discriminación.

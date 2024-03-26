@@ -1,0 +1,200 @@
+Artículo 578.- Contenido referente a la zonificación de los usosdel suelo
+A continuación, se definen los diferentes contenidos propuestos para lazonificación de los usos del suelo.
+Los tamaños de lote indicados en la tabla de parámetros se aplican únicamente a lotes frente a vía pública.
+578.1.1- Zona residencial de Muy baja densidad
+Sector que la compone | S-2 (A-B).
+Usos conformes | Uso residencial de baja densidad. Ver tabla de usos (Anexo 2).
+[imagen] Usos condicionados d. Se podrán autorizar usostales como serviciospúblicos, centroscomunales, comercio básico, a) Ideas productivas del IMAS, que permiten emprendimientoproductivo individual bajo el concepto de Ideas Productivas promovidaspor el Estado m e d i a n t e el IMAS, la persona
+beneficiaria de esteprograma no requerirá la tramitación y la obtención de licencia comercial, en
+el tanto y cuanto su actividad
+sea de subsistencia atendida personalmente y en forma no empresarial. No obstante, deberá realizar el respectivo trámite ante el Departamento de Patentes para la respectiva exoneración. Pymes y actividades artesanales,siempre y cuando cumpla con los requisitos previstos en este Reglamento, así como su valoración dispuesta en el reglamento de higiene industrial del Ministerio de Salud.
+Usos institucionales, comunales y de servicios.
+Pymes y actividades artesanales sin punto de venta en alamedas y/o acceso excepcionales.
+Ver tabla de usos (Anexo 2).
+Usos no conformes | Usos residenciales de alta y media densidad (multifamiliares)e industria. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos enel artículo 586.3 inciso d.
+578.1.2.- Zona Residencial Baja Densidad (ZRBD).
+| Sector que la compone | S-3.
+| Usos conformes | Uso residencial unifamiliar
+| | Ver tabla de usos (Anexo 2).
+Usos condicionales | Se podrán autorizar usos tales como servicios públicos, centroscomunales, comercio básico de apoyo al residente, producciónartesanal inofensiva, micro y pequeñas empresas pymes, siempre y cuando estos cumplan con los correspondientes requisitos previstos en este Reglamento, principalmente, con elcomponente ambiental y previa valoración del área técnicamunicipal correspondiente. Usos institucionales, comunales y de servicios.Además de Ideas Productivas del IMAS, que permiten emprendimiento productivo, la persona beneficiaria de este programa no requerirá la tramitación y l a obtención delicencia comercial en el tanto y cuanto su actividad sea de subsistencia, atendida personalmente y en forma no empresarial. No obstante, deberá realizar el respectivo trámite ante el Departamento de Patentes para la respectiva exoneración,siempre y cuando cumpla con los requisitos previstos en este Reglamento, así como su valoración dispuesta en el reglamento de higiene industrial del Ministerio de Salud. Usos institucionales, comunales y de servicios. Pymes y actividades artesanales sin punto de venta en alamedas y/o acceso excepcionales. |
+Usos no conformes | Usos residenciales de alta y media densidad (multifamiliares), comercial, |
+| | | |
+| industrial, educación pública o privada. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos enel artículo 586.3 inciso d.
+578.1.3.- Zona Residencial Media Densidad (ZRMD).
+Sector que la compone | S-3.
+Usos conformes | Uso residencial unifamiliar y multifamiliar
+| Ver tabla de usos (Anexo 2).
+Usos condicionales | Se podrán autorizar usos tales como institucionales, servicios públicos, centros comunales, comercio básico de apoyo al residente, actividades asociadas al reciclaje, siempre y cuando estos cumplan con los correspondientes requisitos previstos en este Reglamento, principalmente, con el componente ambiental y previa valoración del área técnicamunicipal correspondiente. Además de Ideas Productivas delIMAS, que permiten emprendimiento productivo individual bajo el concepto de Ideas Productivas promovidas por el Estado mediante el IMAS, la persona beneficiaria de este programa no requerirá la tramitación y l a obtención delicencia comercial en el tanto y cuanto su actividad sea de subsistencia, atendida personalmente y en forma noempresarial. No obstante, deberá de realizar el respectivo trámite ante el Departamento dePatentes para la respectiva exoneración. Pymes y actividades artesanales, siempre y cuando cumpla con los requisitos previstos en este Reglamento, así como su valoración dispuesta en el reglamento de higiene industrial del Ministerio de Salud. Usosinstitucionales, comunales y de servicios. Pymes y actividades artesanales sin punto de venta en alamedas y/o acceso excepcionales. Ver tabla de usos (Anexo 2).
+Usos no conformes | Son todos aquellos que no sean el uso residencial, institucional ode servicios y no se puedan autorizar como uso condicional. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos enel artículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tablade parámetros para cada sector (Anexo 1).
+Nota | En casos de condominios, la finca filial puede ser inferior al lote mínimo preestablecido siempre y cuando la cobertura total de la finca matriz no sobrepase la cobertura establecida en la tabla parámetros del presente Plan Regulador Territorial. La densidad podrá aumentar entre un 10 % y hasta un 25 % de lo que permita la cobertura total de la finca matriz. Se podrá incrementar la densidad únicamente con propuestasverticales a partir de un análisis integral del contexto económico-social y ambiental. Los dos supuestos anteriores serán valorados por el equipotécnico municipal y el asesor de la Comisión de Obras Públicas, dichas propuestas serán presentadas mediante unanteproyecto por presentar en audiencia ante dicha comisión y previo trámite ante el ConcejoMunicipal.
+578.1.4.- Zona Residencial Alta Densidad (ZRAD).
+Sector que la compone | S-4.
+Usos conformes | El uso residencial unifamiliar y multifamiliar en desarrollo horizontal custodia las recomendaciones de cobertura del IFA. Ver tabla de usos (Anexo 2).
+Usos condicionales | Se podrán autorizar usos tales como servicios públicos, centros comunales, comercio básico de apoyo al residente y de servicios, siempre y cuando estos cumplan con los correspondientes requisitos previstos en este Reglamento, principalmente, con el componente ambiental, previa valoración del área técnica municipal correspondiente y el confinamiento de todo tipo de molestia asociada a la actividad. Además de Ideas Productivas del IMAS, que permiten emprendimiento productivo individual bajo el concepto de Ideas Productivas promovidaspor el Estado mediante el IMAS, la persona beneficiaria de este programa no requerirá la tramitación y l a obtención de licencia comercial en el tanto y cuanto su actividad sea de subsistencia, atendida personalmente y en forma no empresarial. No obstante, deberá de realizar el respectivo trámite ante el Departamento de Patentes para la respectiva exoneración. Pymes y actividades artesanales,
+[imagen]
+Usos no conformes | Son todos aquellos que no sean el uso residencial, institucional ode servicios y no se puedan autorizar como uso condicional. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos enel artículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros del presente Plan Regulador para cada sector (Anexo 1).
+Nota | En casos de condominios, la finca filial puede ser inferior al lotemínimo siempre y cuando la cobertura total del proyecto no sobrepase la coberturaestablecida en el Índice de Fragilidad Ambiental. Se podrá incrementar la densidad únicamente con propuestas verticales a partir de un análisis integral del contexto económico-social y ambiental. Los dos supuestos anteriores serán valorados por el equipotécnico municipal y el asesor de la Comisión de Obras Públicas. Dichas propuestas serán presentadas mediante unanteproyecto por presentar en audiencia ante dicha comisión y previo trámite ante el Concejo Municipal.
+578.1.5.- Zona Residencial Muy Alta Densidad (ZRMAD).
+Sector que la compone | S-5 (A-B)
+Usos conformes | Uso residencial multifamiliar en desarrollo horizontal custodia las recomendaciones de cobertura del IFA en la totalidad de la finca. Ver tabla de usos (Anexo 2).
+Usos condicionales | Se podrán autorizar usos tales como servicios públicos, centros comunales, comercio básico, siempre y cuando estos cumplan con los correspondientes requisitos previstos en este reglamento, principalmente con el componente ambiental, previa valoración del área técnica municipal correspondiente, y el confinamiento de todo tipo de molestia asociada a la actividad. Además de Ideas Productivas delIMAS, que permitenemprendimiento productivo individual bajo el concepto de Ideas Productivas promovidas por el Estado mediante el IMAS, la persona beneficiaria de este programa no requerirá la tramitación y l a obtención de licencia comercial en el tanto y cuanto su actividad sea de subsistencia atendidapersonalmente y en forma no empresarial. No obstante, deberá de realizar el respectivo trámite ante el Departamento dePatentes para la respectiva exoneración. Pymes y actividades artesanales,siempre y cuando cumpla con los requisitos previstosen este reglamento, así como su valoración dispuesta en el reglamento de higiene industrial del Ministerio de Salud. Usos institucionales, comunales y de
+| servicios. Pymes y actividades artesanales sin punto de venta en alamedas y/o accesos excepcionales. Ver tabla de usos (Anexo 2).
+Usos no conformes | Son todos aquellos que no sean el uso residencial y no se puedanautorizar como uso condicional. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos enel artículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1)
+Nota | En casos de condominios, la finca filial puede ser inferior al lote mínimo siempre y cuando la cobertura total del proyecto no sobrepase la cobertura establecida en el Índice de Fragilidad Ambiental. Se podrá incrementar la densidad únicamente con propuestas verticales a partir de un análisis integral del contexto económico-social y ambiental. Los dos supuestos anteriores serán valorados por el equipotécnico municipal asesor de laComisión de Obras Públicas mediante un anteproyecto a presentar en audiencia ante dicha comisión y previo trámite ante al Concejo Municipal.
+578.2.- Zonas de Uso Mixto (ZM).
+578.2.1.- Zona de uso mixto con vivienda (ZMV). Aplica la densidad de la zona de vivienda más cercana.
+Sector que la compone | S-6.1
+Objetivos | Conservar la dinámica urbana. Favorecer el uso comercial y de servicios, también, ocupados porvivienda. Consolidar zonas de actividad comercial y servicios compatibles con la vivienda.
+Usos conformes | Vivienda unifamiliar y multifamiliar vertical u horizontal, comercio y servicios. Usos relacionados con actividades comerciales, servicios públicos yprivados, que no produzcan ruido, malos olores, contaminación visual, y que atiendan las necesidades primarias de los usuarios. Además, se potenciarán los primeros niveles como uso mixto comercial. Ver tabla de usos (Anexo 2).
+[imagen] Usos condicionados e. Se incluyen, en esta categoría
+,talleres artesanales y demicro y pequeña industria inofensiva, de acuerdo con elReglamento de HigieneIndustrial y la legislación sobre pymes e ideas productivas del IMAS. Esta última permite el emprendimiento productivo individual bajo el concepto deIdeas
+Productivas promovidas por el Estado a mediante el IMAS, la persona beneficiaria de este programa no requerirá la tramitación y obtención delicencia comercial en el tantoy cuanto su actividad sea de subsistencia atendida personalmente y en formato empresarial. No obstante,deberá realizar elrespectivo trámite ante el Departamento de Patentes para
+la respectiva
+exoneración.
+La venta de agroquímicos se puede dar siempre y cuando no haya formulación por su alta contaminación y problemas deolores
+Usos no conformes | Todos aquellos que no correspondan a los usos conformes o que produzcan alteraciones ambientales o de perturbación social. Industria peligrosa, insalubre e incómoda. Todos aquellos que no sean el uso residencial y no se puedan autorizar como uso condicional. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1).
+Nota: | Lo anterior será valorado por el equipo técnico municipal de la Comisión de Obras Públicas mediante la presentación del anteproyectoen audiencia ante dicha comisión yprevio trámite ante al Concejo Municipal.
+578.2.2.- Zona de uso mixto comercial e industrial (ZMCI).
+Sector que la compone | S-3, S-6, S-7
+Objetivos | Conservar la dinámica urbana apartir de la mezcla de actividades. Favorecer la industria en espacios también ocupados por el uso comercial y de servicios. Consolidar estas zonas como los principales centros de actividad comercial y de servicios, compatibles con la industria incómoda.
+Usos conformes | Los usos comerciales y de serviciosserán los afines a los usos industriales. La venta de agroquímicos se puededar siempre y cuando no haya formulación por su alta contaminación y problemas de olores. Ver tabla de usos (Anexo 2).
+Usos condicionados | En cuanto a la industria incómoda se incluyen en esta categoría los usos complementarios al comercio para el bienestar de los trabajadores, previo análisis de las condiciones existentes en el lugar, que demuestre una ubicación adecuada con el uso comercial. Se permitirá la vivienda vertical en condominio siempre y cuando no preexista la industria peligrosa en el sitio, además se potenciará los primeros niveles como uso mixto comercial-industrial. Será avalado por el Ministerio de Salud.
+Usos no conformes | Industria peligrosa e insalubre. Vivienda Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos en elartículo 586.3 inciso d. Colegios educativos existentes
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1)
+578.3.- Zona de uso industrial (ZI)
+578.3.1 .1 Usos conexos: Para las zonas industriales del presente Plan Regulador Territorial se permitirán los usos conexos secundarios a la actividad principal para otorgar permisos siempre y cuando sea para beneficiar y satisfacer las necesidades de los empleados propios de cada proceso industrial. Deberán confinar molestias y las incompatibilidades del caso con su entorno inmediato en el entendido que prevalece el uso industrial sobre cualquier otro.
+578.3.2.- Zona de Uso Industrial Tipo A (3) (ZIA)
+Sectores que la componen |
+Objetivos | Consolidar y ubicar la industria peligrosa bajo el principio de confinar molestias dentro de los límites de la propiedad.
+Usos conformes | Industria inofensiva, incómoda y peligrosa.
+Usos no conformes | Toda actividad incompatible con la industria peligrosa.
+Usos no conformes tolerados | Agricultura y ganadería. Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1).
+578.3.3.- Zona de uso industrial tipo B (2) (ZIB)
+Sectores que la componen |
+Objetivos | Consolidar y ubicar industriaincomoda bajo el principio de confinar molestias dentro de los límites de la propiedad.
+Usos conformes | Aquellos que por su tamaño nopuedan ser ubicadas en zonas mixtas y que pretendan regirse porla ley de zona franca.
+Usos no conformes | Industria peligrosa
+Usos no conformes tolerados | Industrias peligrosas previamente establecidas. Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1).
+578.3.4.- Zona de uso industrial tipo C (1) (ZIC)
+Sectores que la componen |
+Objetivos | Consolidar y ubicar industriainofensiva e impulsar las industrias limpias de alta tecnología al promover la mixtura con el comercio y los servicios compatibles bajo el principio de confinar molestias dentro de los límites de la propiedad.
+Usos conformes | Aquellos que por su tamaño nopuedan ser ubicadas en zonas mixtas y que pretendan regirse porla ley de zona franca.
+Usos condicionados | Industria peligrosa y proyectos devivienda no asociados a los procesos industriales.
+Usos no conformes tolerados | Industrias molestas y peligrosaspreviamente establecidas.Viviendas existentes. Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector (Anexo 1).
+578.3.5.- Zona de uso público institucional (ZPI)
+578.3.5.1 Usos conexos: Para las zonas público-institucionales del presente Plan Regulador Territorial se permitirán los usos conexos secundarios a la actividad principal para otorgar permisos siempre y cuando sea para beneficiar y satisfacer las necesidades de los empleados propios de cada institución. Deberán confinar molestias y las incompatibilidades del caso con su entorno inmediato, en el entendido de que prevalece el uso público institucional sobre cualquier otro.
+Sector que la compone | S-8.
+Objetivos | Consolidar los usos institucionales que ofrecen servicios públicos ycomunales.
+Usos conformes | Aquellos que presten servicios institucionales y comunales, tales como centros de salud, educativos, seguridad, centros universitarios, bibliotecas, museos, centros de reunión, instituciones públicas, municipalidades, predios de maquinaria y equipo estatal, centros de acopio y almacenamiento e instalaciones comunales y culturales, Tribunales de Justicia, correos, telecomunicaciones, la Cruz Roja, policía, bomberos, y similares. En el caso de centros de acopio o similares, deberán seguir losrequisitos dispuestos por la UnidadAmbiental de la Municipalidad de Cartago, asimismo, en apego a lo dispuesto al Decreto 41052 o al que lo sustituya. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son aquellos que se encontraban funcionando y debidamente establecidos al entrar en vigor el presente Plan Regulador Territorial. Todos aquellos descritos en el artículo 586.3 inciso d.
+Usos condicionales | Se podrán permitir usos tales como restaurantes, sodas y servicios personales afines a los serviciosseñalados como uso conforme. Instituciones bancarias, e instalaciones recreativas, instalaciones asociadas a la movilidad y culturales como cines,teatros y similares. En el caso de centros de acopio o similares deberán seguir losrequisitos dispuestos por la UnidadAmbiental de la Municipalidad de Cartago asimismo en apego a lo dispuesto al Decreto 41052 o al que lo sustituya.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector
+578.4.- Zona de uso recreativo deportiva-productiva (ZRDP)
+[imagen]
+| para buscar encadenamientos verdes, recreativos y productivos.
+Usos conformes | Instalaciones deportivas, piscinas, gimnasios, vestidores, canchas deportivas y todas aquellas actividades que faciliten el esparcimiento espiritual, turístico, educativo-deportivo y el tránsitopeatonal. Ver tabla de usos (Anexo 2).
+Usos no conformes | Todos aquellos que no estén incluidos como uso conforme o condicional. Ver tabla de usos (Anexo 2).
+Usos condicionales | Todas aquellas facilidades que complementan el uso conforme como sodas, casetas de vigilancia, núcleos de servicios sanitarios, oficinas institucionales, actividades comunales y proyectos de vivienda verticales de tres o más pisos.
+Usos no conformes tolerados | Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tablade parámetros para cada sector.
+578.5.- Zona agropecuaria (ZAG)
+Objetivos | Preservar y consolidar la actividadagrícola, pecuaria y forestal existente o futura, bajo principios de sostenibilidad y buenas prácticas ambientales. Cumplir funciones de contención del crecimiento urbano y zonas de amortiguamiento entre las zonas de protección, así como del fortalecimiento del paisaje natural y la calidad ambiental del cantón.
+Usos conformes | Todos aquellos usos relacionados con la actividad agrícola, pecuaria y forestal y actividades complementarias: comercio de la actividad agrícola, agroindustria,bodegas agrícolas, instalaciones de riego, granjas avícolas, porcinas ybovinas. Toda actividad lucrativa deberá ser ubicada frente a calle pública. Ver tabla de usos (Anexo 2).
+[imagen] Usos condicionados Vivienda unifamiliar aislada no mayor a 200m2 de coberturatechada (siempre ligada a la actividad agropecuaria) y proyectos ecoturísticos de muy baja densidad hotelera según decreto N.° 25902, que no sobrepase el 10 % del área cobertura en fincas superiores a 2 ha.
+Podrá permitirse la vivienda delpropietario en lotes para usoagrícola o agroindustrial siempre y cuando la cobertura no sobrepase el 10% de la cobertura de la propiedad. Las viviendas, que no estén ligadas a actividad agropecuaria, deberán de igual manera ajustarse a los parámetros indicados para la zona agropecuaria en la que se ubican.
+Los usos conexos talescomo bodegas para implementos agrícolas, invernaderos, garajes para maquinaria, casa de peones (60 m2 máximo) y similares no sobrepasará el 10
+% incluida la vivienda unifamiliar (60 m2 máximo) y similares. Para tales fines se debe presentar un Plan de manejo de finca para su respectiva aprobación.
+En el caso de centros de acopio o similares deberán seguir losrequisitos dispuestos por la UnidadAmbiental de la Municipalidad de Cartago asimismo en apego a lo dispuesto al Decreto 41052 o al que lo sustituya.
+Las ventas de agroquímicos se pueden dar siempre y cuando no haya formulación por su altacontaminación y problemas deolores.
+La actividad de fuegos artificiales opólvora se regirá mediante el decreto 27502-S.
+Usos no conformes | No se permitirán urbanizaciones, condominios ni conjuntos residenciales. Industria que no seaagroindustria, comercio diferentede la actividad, ni otro uso que no se haya mencionado como uso conforme. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos en elartículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector(Anexo 1). Los lotes o las fincas y las obras existentes con dimensionesdiferentes a las señaladas no se afectarán si su segregación ocurrió antes de la vigencia de estePlan Regulador al presentar las evidencias de rigor. Para el desarrollo de actividades agropecuarias y agroindustriales con alto riesgo de contaminación ambiental, como las granjasavícolas y porcinas o aquellas que generen grandes cantidades de desechos orgánicos y/o químicos, así como los que señale el Ministerio de Salud, deberán duplicar los retiros señalados en sus obras o plantaciones. En estos
+[imagen] casos se exige el Estudio de Impacto Ambiental.
+Las actividades agroforestales en sitios de riesgo o de altas pendientes, deberán emplear técnicas adecuadas para la conservación de suelos y agua, basados en la Ley de Uso y Manejo de Conservación de Suelos.
+Las edificaciones sobre estos terrenos deberán presentar planesde manejo de finca (forestal, hídrica, buenas prácticas ambientales, erosión, paisaje,accesibilidad, manejo desechos sólidos).
+En caso de la construcción de vivienda (ligada a la actividad agropecuaria) queda sujeta a un área máxima de 200 m², el resto de la cobertura permitida en lazona será la destinada para lasedificaciones y estructuras requeridas para la actividad agropecuaria o forestal.
+La Municipalidad podrá establecer políticas para incentivar a lospropietarios a promover proyectos forestales y de mejoramiento ambiental mediante cánones que pueden pagar los vecinos de zonas urbanas beneficiados por el esfuerzo de los ocupantes de estasáreas.
+Respecto al uso residencial de muy baja densidad y la zona residencialagrícola, no ligada a la actividad agropecuaria, queda supeditada al cumplimiento de todos los parámetros establecidos en este Plan Regulador Territorial como parcela mínima agrícola frente a vía pública.
+578.6.-Zona rural (ZR)
+Objetivo | Promover el uso agropecuario y vivienda en las zonas rurales del cantón, así como emprendimientos
+Usos conformes | Todos aquellos usos relacionados con la actividad agrícola, pecuaria y forestal y actividades complementarias: comercio de la actividad agrícola, agroindustria, bodegas agrícolas, instalaciones de riego, granjas avícolas, porcinas y bovinas. Toda actividad lucrativa deberá ser ubicada frente a calle pública. Ver tabla de usos (Anexo 2).
+Usos condicionados | Vivienda unifamiliar aislada no mayor a 200m2 de cobertura techada (siempre ligada a la actividad agropecuaria). Podrá permitirse la vivienda delpropietario en lotes para usoagrícola o agroindustrial siempre y cuando la cobertura no sobrepase el 20 % de la cobertura de la propiedad. Los usos conexos talescomo bodegas para implementos agrícolas, invernaderos, garajes para maquinaria, casa de peones (60m2 máximo) y similares no sobrepasará el 20 % incluida la vivienda unifamiliar. Para tales fines se debe presentar un plan de manejo de finca para su respectiva aprobación.
+Usos no conformes | No se permitirán urbanizaciones, condominios ni conjuntos residenciales. Industria que no sea agroindustria, comercio diferente de la actividad, ni otro uso que nose haya mencionado como uso conforme. Ver tabla de usos (Anexo 2).
+Usos no conformes tolerados | Son todos aquellos descritos en el artículo 586.3 inciso d.
+Parámetros | Ver la ficha urbanística y la tabla de parámetros para cada sector(Anexo 1). Los lotes o las fincas y las obras existentes con
+[imagen] dimensiones diferentes a las señaladas no se afectarán si su segregaciónocurrió antes de la vigencia de este Plan Regulador Territorial al presentar lasevidencias de rigor.
+Para el desarrollo de actividades agropecuarias y agroindustriales con alto riesgo de contaminación ambiental, como las granjas avícolas y porcinas o aquellas que generen grandes cantidades de desechos orgánicos y/o químicos, así como los que señale el Ministerio de Salud, deberán duplicar los retiros señalados en
+sus obras o plantaciones. En estos casos, se exige el Estudio de Impacto Ambiental.
+Las actividades agroforestales en sitios de riesgo o de altas pendientes, deberán emplear técnicas adecuadas para la conservación de suelos y agua, basados en la Ley de Uso y Manejo de Conservación de Suelos.
+Las edificaciones sobre estos terrenos deberán presentar planes de manejo de finca (forestal, hídrica, buenas prácticasambientales, erosión, paisaje,accesibilidad, manejo desechos sólidos).
+En caso de la construcción de vivienda (ligada a la actividad agropecuaria) queda sujeta a un área máxima de 200 m², el resto de la cobertura permitida en la zona será la destinada para las edificaciones y las estructuras requeridas para la actividad agropecuaria o forestal. Las viviendas que no estén ligadas a actividad agropecuaria deberán, de igual manera, ajustarse a los parámetros indicados para la zona rural en la que se ubican.
+La Municipalidad podrá establecer políticas para incentivar a los propietarios a promover proyectos forestales y de mejoramiento ambiental, mediante cánones que pueden pagar los vecinos de zonasurbanas beneficiados por el esfuerzo de los ocupantes de estasáreas.
+Respecto al uso residencial de muy baja densidad y la zona residencial agrícola, no ligada a la actividad agropecuaria, queda supeditada al cumplimiento de todos los parámetros establecidos en este Plan
+[imagen]
+578.7.- Zona de protección (ZP)
+Objetivos | Al ser terrenos ubicados entre las áreas protegidas y las zonas agrícolas, se establecen zonas de amortiguamiento que se establecerán como áreas a reforestar con fines turísticos, científicos y recreativos, no aptos para el emplazamiento de infraestructuras debido a sus condiciones físico-ambientales, se destinarán a conservación, regeneración y protección de los recursos existentes, pudiendo ser en parte utilizados para la recreación y para actividades turísticas de baja densidad, según decreto N.° 25902.
+Usos conformes | Zonas de reforestación y regeneración de bosque. Centros de investigación y monitoreo afines a la zona de protección, turismo recreativo de aventura. Ver tabla de usos (Anexo 2).
+Usos condicionados | Hoteles ecoturísticos y temáticos tipo cabaña de baja densidad, zonas de camping, miradores,centros de salud recreativa o de recuperación y deportivas tiposenderismo, canopy, alpinismo, no motorizados, o instituciones públicas. Se exceptúan aquellas áreas con restricciones definidas por la legislación vigente. Para tales fines se debe presentar plan de manejo de finca para su respectiva aprobación. Parámetros por número de habitaciones según decreto N.° 25902. La actividad de fuegos artificiales opólvora se regirá mediante eldecreto 27502-S.
+Usos no conformes tolerados | Son todos aquellos descritos en elartículo 586.3 inciso d.
+Usos no conformes | Cualquiera que no sea de protección, conservación, investigación y recreación.
+Parámetros | Las obras por realizar en estaszonas deben cumplir con el trámite previo de plan de manejo de finca aprobado por la Unidad Ambiental Municipal.
+[imagen]
+578.8.- Zona de protección paisajística (ZPP)
+[imagen]
+Usos conformes | Protección, conservación, reforestación, recreación y manejo paisajístico.
+Usos condicionados | Se podrá autorizar el emplazamiento de obras de infraestructura de interés público (tanques de almacenamiento, casetas de vigilancia, caminos, servidumbres, miradores, obras deretención o similares), así comoedificios educativos, de recreación y ecoturismo, turismo rural de bajoimpacto, agricultura no extensiva con buenas prácticas ambientales previa aprobación del Plan de manejo de finca por parte de la Oficina de Planificación Urbana en coordinación con la Dirección de Urbanismo.
+Usos no conformes tolerados | Son todos aquellos descritos en el artículo 53.3.- Tipos de usos del suelo. Inciso D.
+Usos no conformes prohibidos | Cualquiera que no sea de protección, conservación y recreación o los indicados como usos conformes o no conformes tolerados.
+Parámetros | Las obras por realizar en estaszonas deberán presentar unanteproyecto ante la comisión de obras públicas y urbanismo. En estos casos, se deberán presentar estudios técnicos
+[imagen]
+578.9.- Zona de protección de ríos y quebradas (ZPRQ)
+Objetivos | Recuperar, regenerar, disfrutar y proteger todos los bordes,quebradas y riberas de ríos.
+Usos conformes | Según lo permitido en el artículo 33 bis y 33 ter de la Ley Forestal o la normativa que lo sustituya.
+Usos no conformes | Todo tipo de construcción o edificación de carácter permanenteo habitable.
+Usos condicionados | No aplica.
+Usos no conformes prohibidos | Construcciones y asentamientos informales de todo tipo.
+Parámetros | En esta zona no se permitirá algún tipo de construcción, excepto la asociada a seguridad, recreación, mobiliario urbano, tránsito peatonal y protección del usuario. La Municipalidad deberá ejecutar las gestiones pertinentes a fin de recuperar las zonas de protección de ríos y quebradas invadidas por asentamientos informales. Estos parámetros regirán en todo caso en la zona sujeta a protecciónsegún artículo 33 de la Ley Forestal N.° 7575.
+578.10.- Restricciones técnico-legales que afectan el uso de suelo
+Todo certificado de uso de suelo se da sin perjuicio de las restricciones técnico-legales o criterios emitidos por la autoridad competente, que afecten el inmueble, tales como pozos, tubos de flujo, zonas de recarga acuífera, nacientes, humedales, fallas, servidumbres eléctricas, entre otras.
+11 Restricciones técnico-legales que afectan el recurso hídrico
+En estas áreas se tendrán las siguientes regulaciones:
+a) La servidumbre de agua potable tendrá como mínimo un ancho de seis metros, pudiendo sermayor si así lo establece el Instituto costarricense de Acueductos y Alcantarillados o la entidad que brinda el servicio de abastecimiento en el cantón.
+b) Dichas áreas no podrán edificarse, pero sí podrán dedicarse a parques y juegos infantiles. El tipo de arborización deberá escogerse rigurosamente para que las raíces no afecten las tuberías. Podrían utilizarse estasáreas para efectos del artículo 40 de la Ley de Planificación Urbana,siempre que estas estén integradas a las áreas principales del parque.
+c) Para el trámite de planos constructivos de urbanizacionesafectadas por servidumbres de agua potable, deberá aportar laaprobación del anteproyecto por parte del ATA o la entidad quebrinde el servicio.
+d) En áreas de servidumbre perteneciente al ATA no podrá realizarse algún tipo de edificación. Dichas servidumbres no podrán considerarse vías públicas para efectos de segregación de propiedades, salvo que queden establecidas previamente como calles en los proyectos de urbanización.
+e) Dichas áreas podrán destinarse a la construcción de calles con las especificaciones que fije el Instituto Costarricense de AyA o la entidad que brinde el servicio.
+578.11 Restricciones técnico-legales que afectan la zona de protección por fallas geológicas
+Las zonas afectadas por cercanía a fallas geológicas activas estarán supeditadas, en su desarrollo urbano, a la elaboración de estudios técnicos especializados.
+Todo proyecto de construccióndentro de las áreas consideradas por el Plan Regulador Territorial como zonas de protección por cercanía a fallasgeológicas activas deberán garantizar que cumplen con las especificaciones del Código Sísmico. De esta manera, se determina la viabilidad de la construcción. Esto es aplicabletanto en zonas consolidadas comoen nuevos desarrollos. Para aplicarlos parámetros correspondientes (cobertura, niveles, altura máxima, etc.) al sector al que corresponden, el estudio de mitigación definirá la factibilidad, así como las medidas técnicas y constructivas necesarias para subsanar el riesgo existente. De acuerdo con el Anexo 3: Decreto N.º 32967, inciso 5.
+578.12 Restricciones técnico-legales que afectan servidumbres eléctricas
+Las áreas del cantón por las que discurran Líneas Eléctricas de Transmisión del Instituto Costarricense de Electricidad (ICE) o cualquier empresa o institución de energía tendrán las siguientes regulaciones:
+a) El área para las servidumbres eléctricas será como mínimo de seis metros o mayor, si así lo estable elICE o cualquier empresa o institución de energía según el voltaje de la línea de transmisión. En dichas áreas no se podrá edificar, pero sí podrá destinarse aparques con arbustos y árboles bajos, según el artículo 40- Ley de Planificación Urbana.
+b) El área para las servidumbres eléctricas podrá destinarse para laconstrucción de calles sean paralelas o transversales a las líneas eléctricas. En el caso de calles paralelas, el diseño será de bulevar y se deja para jardinera central la definida por el ICE o cualquier empresa o institución de energía para la debida protección de las torres. A estas, adicionalmente, deberá hacérseles las obras de protección necesarias.
+c) Los desarrollos urbanísticos afectados por servidumbres eléctricas deberán ser presentados al ICE o cualquier empresa o institución de energía mediante nivel de anteproyecto para su debida aprobación. Si se propusiera algún tipo dearborización en las servidumbres las especies, deberán indicarse en esta etapa.
+d) Toda construcción que se haga alrededor de las zonas de conducción de redes o subestaciones eléctricas deberá guardar los retiros establecidos por el ICE o cualquier empresa o institución de energía.
+e) El ICE o cualquier institución o empresa no podrá instalar redes eléctricas de alta tensión en zonaspreviamente urbanizadas. En casode ser necesario, deberán establecer el proceso de expropiación en las áreas con
+restricción para construir y coordinar de previo con la Municipalidad.
+f) El ICE y cualquier empresa o institución que instale redes eléctricas de alta tensión en zonas urbanas o urbanizables noconstruidas, deberá indemnizar a los propietarios de los lotes afectados por la instalación de dichas redes y coordinar de previocon la Municipalidad.
+De previo a cualquier instalación de redes eléctricas de alta tensión, el ICE y cualquier empresa o institución de energía deberá contar con los estudios y la autorización que aseguren la viabilidad del proyecto ambiental y sanitariamente.
+578.14.- Zona de renovación urbana (ZRU)
+Descripción | Las zonas de renovación urbana se clasifican en las siguientes subzonas: zona de regeneración urbana, zona de rehabilitación urbana, zona de interés histórico arquitectónico de patrimonio y conservación. Esta última se ubica en la Reserva de la cuenca del Río Reventado, aún y cuando se utilice la misma simbología de la ZIHA, de allí que se adjunta las siglas "CONS" para incluirlas de esta misma nomenclatura (ZIHA-CONS).
+Objetivos | Objetivo general: Proporcionar un mejor entorno urbano y ecológico a partir de reconstrucción de aceras, arborización, infraestructura de redes, movilidad y accesibilidad, en pro de la calidadde vida de los habitantes, además de obras de restauración y renovación urbana. Objetios Específicos: a. Conservación: 1.ZRU-ZIHA: Busca proteger y conservar el patrimonio histórico arquitectónico debidamente declarado bajo la Ley 7555 y realizar los expedientes correspondientes a todo el inventario patrimonial incluido en la Zona de Interés Histórico Arquitectónico. Aplica lo indicado en el Acta N° 151-08 del 15 de abril del 2008. 2.ZIHA-CONS: Busca proteger y conservar la zona declarada como Reserva Nacional del Río Reventado en el distrito de San Nicolas y Guadalupe correspondiente a los Diques de Cartago en concordancia con el decreto N°22834-MOPT-MIVAH. Zonificada en este Plan Regulador como Zona de Interés Histórico Arquitectónico de Conservanción (ZIHA-Conservación) b. Regeneración ZRU-REG: Busca aprovechar zonas urbanas deterioradas con infraestructura y servicios que puede ser potenciadas a una mayor densificación a partir de los planes estratégicos de reajuste de terrenos del MIVAH y la diversidad de usos de suelo en complemento a proyectos y oportunidades regionales tales como proyecto tren y parques regenerativos (ecológicos o urbanos). c. Rehabilitación ZRU-REH: Busca la intervención integral de asentamientos irregulares a partir de alianzas con el estado costarricense y su sistema financiero, para dotarlos de infraestructura y servicios adecuados para la seguridad y sanidad de
+| la comunidad inmersa en dicha problemática debidamente zonificada en el presente plan regulador. Dicho proceso puede implicar reubicación de dichos asentamientos.
+Parámetros | Los parámetros para aplicar serán loscorrespondientes al sector al que corresponda la zona. Ver ficha urbanística y la tabla de parámetros y actividades para cada sector.
+(*) La delimitación precisa de estas zonas se encuentra en el Mapa de Zonificación propuesta en el Plan Regulador Territorial, así como los parámetros establecidos para cada sector.
+(**) Se establecen las tablas de parámetros por distrito, así como las tablas detalladas con los usos conformes, no conformes y condicionadospara cada sector.

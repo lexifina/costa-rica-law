@@ -1,5 +1,2 @@
-Artículo 67.- De las Vías Locales.
-De acuerdo con el Plan Urbano del Cantón de Cartago, se categorizan de la siguiente forma:
-a. Primarias. Son aquellas vías que sirven para canalizar el tránsito entre los distritos de acuerdo al Mapa de Vialidad.
-b. Secundarias. Son aquellas vías que sirven para canalizar los flujos de tráfico de los barrios, hacia las vías de rango superior, de acuerdo con el Mapa de Vialidad. Estas vías, junto a las vías de rango superior, descritas anteriormente, conforman la macro trama que estructura al Cantón.
-c. c. Terciarias. Son aquellas que atienden los movimientos vehiculares dentro de los barrios. Son de continuidad limitada y de tránsito restringido.
+Artículo 67. Medios de egreso accesibles
+Los medios de egreso deben contar con áreas de refugio accesibles para personas con impedimentos de movilidad. El número de áreas de refugio accesibles y las características constructivas deben ser las establecidas por el Cuerpo de Bomberos en su normativa aplicable en la materia.

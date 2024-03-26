@@ -1,27 +1,2 @@
-Artículo 36.- Del pago de la licencia:
-Las tarifas se cobrarán por trimestre adelantado de conformidad con lo dispuesto en la ley de patentes para el Cantón Central de Cartago vigente y su reglamento, cuyos ajustes se realizarán de conformidad con el índice de inflación anual. El importe anual de los derechos correspondientes a publicidad exterior, se calculará por metro cuadrado de superficie total de rótulo, según la siguiente fórmula:
-Precio de licencia (PB x m2) x CZ x CIV x CL x CM
-Donde:
-- (PB x m2) = precio básico multiplicados por los metros cuadrados de superficie del rótulo.
-- CZ = Coeficiente de zona.
-- CIV = Coeficiente de incidencia visual.
-- CL = Coeficiente de luminosidad.
-- M = Coeficiente de movilidad.
-Para los efectos de este artículo, se entenderá como precio básico el valor monetario en que se estima el medio publicitario a colocar, el cual vendrá dado por el precio cancelado por el interesado según factura expedida por quien elabore o comercie los elementos de publicidad exterior, o en su defecto, aquel definido de oficio, o a petición del interesado, por los peritos municipales según el precio de plaza.
-36.1.- Coeficiente de zona: Existen cuatro categorías:
-- Zona I (CZ = 2,00): zona comercial, industrial o mixta.
-- Zona II (CZ = 3,00): zona residencial.
-- Zona III (CZ = 4,00): resto del cantón
-- Zona IV (CZ = 4,00): lotes baldíos en cualquiera de las tres categorías anteriores.
-36.2.- Coeficiente de incidencia visual: Existen tres categorías:
--Incidencia Visual I (CIV=1,00): rótulos adosados paralelamente a las paredes del inmueble o mobiliario urbano.
--Incidencia Visual II (CIV=3,00): rótulos adosado perpendicularmente a las paredes del inmueble o colocados sobre cubiertas, toldos, aleros, etc. (dentro de la línea de propiedad) y en mobiliario urbano.
--Incidencia Visual III (CIV=4,00 + 0,3 por metros de altura): rótulos soporte independiente del inmueble o mobiliario urbano, sean estos postes, tapias, basamentos u otras estructuras. La altura de un rótulo con soporte independiente no podrá sobrepasar un 1/3 del ancho del derecho de vía al cual enfrente, ni la distancia al predio vecino colindante podrá ser menor a la altura del rótulo.
-36.3.- Coeficiente de luminosidad: Existen tres categorías:
-- Luminosidad I (CL = 1,00): sin iluminación.
-- Luminosidad II (CL = 1,50): con iluminación.
-- Luminosidad III (CL = 2,00): con iluminación intermitente.
-36.4.- Coeficiente de movilidad: Existen tres categorías:
-- Movilidad I (CM = 1,00): el rótulo es estático.
-- Movilidad II (CM=2,00): el rótulo o parte de él está en movimiento (rotación u otros).
--Movilidad III (CM = 4,00): pantallas electrónicas.
+Artículo 36. Diseño sostenible
+El profesional responsable de la planificación, el diseño, la construcción de edificaciones y las obras de infraestructura urbana pueden utilizar principios de sostenibilidad con la finalidad de alcanzar el desarrollo social, económico, cultural y ambiental de la comunidad, que permita la evaluación y la certificación de la sostenibilidad, de edificaciones y espacios intervenidos mediante procesos constructivos.

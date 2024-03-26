@@ -1,0 +1,5 @@
+Artículo 459. Aceras en vías públicas
+Sin perjuicio de lo establecido en materia de aceras del presente reglamento, se debe cumplir lo siguiente:
+1) El tipo de material superficial por usar en las aceras debe ser aprobado por la municipalidad respectiva. Este material se coloca, de acuerdo con sus cualidades de resistencia mecánica, sobre una base o contra piso de resistencia adecuada y de conformidad con el diseño correspondiente.
+2) La subrasante o el terreno sobre el cual se construya la base se conforma según especificaciones establecidas en el proyecto.
+3) La superficie de las aceras debe tener, en todo caso, una gradiente transversal mínima de 2 % y máxima de 3 %, que baje hacia los caños o cunetas y que la limiten exteriormente. Esta superficie debe contar con un acabado antiderrapante y sin presentar escalones ni huecos que dificulten el tránsito o constituyan riesgos para los peatones. En caso de desnivel este debe ser salvado por una rampa según los requerimientos establecidos en la Ley de Igualdad de Oportunidades para personas con Discapacidad, N.º 7600 y su Reglamento Decreto Ejecutivo N.° 26831-MP y sus reformas o la normativa que los sustituya.

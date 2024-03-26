@@ -1,0 +1,4 @@
+Artículo 549. Señalización de vías públicas
+El señalamiento de vías públicas, tales como las indicaciones de altos, las flechas direccionales, la velocidad y otros señalamientos viales en la urbanización, debe ser costeado por el urbanizador en coordinación con la Municipalidad, según lo dispuesto en la Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Ley N.° 9329, sus reformas y normativa que la sustituya.
+La altura, la ubicación y demás especificaciones técnicas de los dispositivos de señalamiento vial deben cumplir con lo establecido en el Manual Centroamericano de Dispositivos Uniformes para el Control del Tránsito.
+La señalización vial debe instalarse de previo a la entrega de las áreas públicas de la urbanización a la Municipalidad.

@@ -1,7 +1,4 @@
-Artículo 87.- Otras Áreas Contempladas en este Reglamento:
-87.1.- Áreas de Reserva para Nueva Infraestructura Vial.
-Se muestran las propuestas en el Mapa de vialidad, en las tablas se especifican los anchos de las vías. Para detalles específicos ver la Tabla del Reglamento de Vialidad en los anexos de este Plan Regulador.
-87.2.- Áreas de Reserva para Ampliación de Red Vial Existente
-Se muestran en el Mapa de Vialidad. Para detalles específicos ver el Reglamento de Vialidad
-87.3.- Áreas de Reserva para Aceras y Paradas de Autobuses
-Se muestran en el Mapa Oficial. Estas son zonas en las que será necesaria la compra de terrenos privados, para ampliar significativamente el ancho de las aceras.
+Artículo 87. Red de abastecimiento de agua para hidrantes
+La red de abastecimiento de hidrantes debe cumplir con las disposiciones del Cuerpo de Bomberos. La conexión entre el hidrante y la red de tubería de agua potable no debe contar con reducciones que restrinjan el diámetro nominal libre a menos del diámetro de la tubería que abastece al hidrante.
+Las redes existentes se pueden abastecer de diámetros nominales iguales o mayores a los 0,10 m; las redes de tuberías nuevas para abastecimiento de hidrantes deben contar con un diámetro nominal no menor a 0,15 m.
+Los hidrantes deben entregar los caudales y las presiones que defina el Cuerpo de Bomberos. Cuando no exista una red de agua potable con un diámetro nominal mínimo de 0,10 m, o el acueducto no esté en capacidad de entregar el caudal requerido, se debe construir un tanque de almacenamiento de agua e instalar un hidrante de succión o toma directa al tanque según las disposiciones que establece el Cuerpo de Bomberos.

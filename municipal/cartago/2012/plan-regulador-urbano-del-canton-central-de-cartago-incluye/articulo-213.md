@@ -1,0 +1,9 @@
+Artículo 213. Edificaciones para baño
+Las edificaciones para baño deben cumplir con las disposiciones de la Leyde Igualdad de Oportunidades para Personas con Discapacidad, Ley N.° 7600, su Reglamento, Decreto Ejecutivo N.° 26831-MP y sus reformas y la normativa que lo sustituya. Además, se deben cumplir con las siguientes características:
+1) Capacidad para servicio de duchas: Para efectos de diseño, la capacidad mínima debe ser una ducha y un vestidor por cada 4 personas usuarias.
+2) Baños de vapor o de aire caliente-capacidad: La superficie de estos locales se calcula con base en 1,00 m² por casillero o vestidor, con un mínimo de 14,00 m² y una altura no menor de 3,50 m.
+3) Recubrimientos: Los pisos, los muros y los techos deben estar recubiertos de materiales lisos, impermeables y de fácil aseo. Las esquinas interiores deben ser redondeadas o achaflanadas, ya sea de tipo piso-pared, pared-pared o pared-cielo.
+4) Ventilación: El sistema de ventilación debe ser capaz de remover el volumen de aire ocho veces por hora a fin de evitar una concentración de dióxido de carbono mayor a 600 partes por millón en volumen.
+5) Iluminación: Si fuere natural, el área mínima de ventanas debe ser igual al 10 % de la superficie de piso del local. En caso de iluminación artificial, las instalaciones eléctricas han de ser selladas con empaques para impedir que la humedad ambiente penetre en tuberías y artefactos.
+6) Iluminación de emergencia: Se debe contar con iluminación de emergencia que cumpla con los requerimientos que establece el Cuerpo de Bomberos.
+7) Instalaciones hidráulicas: Los sistemas de tuberías hidráulicas y de vapor deben ubicarse en tal forma que sea fácil el acceso a ellos para registro, mantenimiento y conservación. Todas las tuberías se deben identificar con pintura de color de acuerdo con la Norma Oficial para la utilización de Colores y su Simbología, Decreto Ejecutivo N.° 12715-MEIC y sus reformas o la normativa que lo sustituya.

@@ -1,0 +1,2 @@
+Artículo 624. Modelo de reparto de cargas y beneficios
+En los Planes Proyecto de Renovación Urbana, en que se aplique el reajuste de terrenos, el gobierno municipal implementará un Modelo de Reparto de Cargas y Beneficios equitativo, de manera que los participantes, públicos o privados de la operación reciban beneficios proporcionales al aporte inicial efectuado. Dicho modelo regirá para todo el cantón.

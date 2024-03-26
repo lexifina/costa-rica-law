@@ -1,2 +1,3 @@
-Artículo 30.- Reservas de suelo:
-Las reservas mínimas para derechos de vía, áreas verdes, comunales y facilidades estarán de acuerdo con los planes y proyectos de rehabilitación urbana. Las áreas o porcentajes mínimos de esas reservas y áreas, podrán ser menores a lo establecido en este Plan Regulador en tanto la densificación propuesta en ellos sea de carácter vertical.
+Artículo 30. Sistema Métrico Decimal
+El Sistema Internacional de Unidades de Medidas es el único que se debe usar en las memorias de cálculo, en planos y en cualquier otro documento referente a construcciones. En casos de materiales fabricados según calibre especial tales como varillas, alambres o láminas, se usa el número de ese calibre para designarlos. Lo anterior de conformidad con lo establecido en la Ley Uso Exigido Sistema Internacional Unidades Medida "SI" Métrico Decimal, Ley N.° 5292 y sus reformas o la normativa que la sustituya.
+Cuando en una disposición del presente Reglamento se requiera que el resultado de un cálculo sea un número entero y el resultado de este sea un número con fracción mayor a 0,5, se debe redondear al entero superior.

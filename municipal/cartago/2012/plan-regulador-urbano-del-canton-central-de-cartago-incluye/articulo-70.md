@@ -1,5 +1,2 @@
-Artículo 70.- Ocupación del Espacio Público
-En las vías, parques y plazas de su administración, la Municipalidad podrá otorgar permisos precarios onerosos, revocables en cualquier momento por motivos de oportunidad o conveniencia, vía acuerdo del Concejo Municipal, debidamente fundamentado en criterios técnicos. Lo anterior, con el fin de propiciar el aprovechamiento de los espacios públicos con el objeto de promover el concepto de ciudad viva. Las actividades que podrán autorizarse serán: cafeterías, heladerías, floristerías, casetas de seguridad, servicios bancarios, servicios sanitarios, y mobiliario urbano, y similares.
-La decisión para este tipo de otorgamiento de permisos debe respaldarse en programas integrales de renovación y embellecimiento de la ciudad.
-En caso de vías, propuestas por el Plan Regulador, como peatonales, en su diseño se contemplarán los elementos antes mencionados.
-La Municipalidad debe definir o autorizar el diseño de la respectiva ocupación del espacio publico, diseño que deberá estar en concordancia con los parámetros del entorno urbano; y deberá ubicar en un mapa previo las zonas donde se autorizaran esas actividades.
+Artículo 70. Aberturas verticales
+Las aberturas a través de los pisos deben encerrarse con muros que constituyan barreras cortafuego, continuas de piso a piso o de piso a techo.

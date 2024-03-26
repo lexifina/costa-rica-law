@@ -1,0 +1,16 @@
+Artículo 511.- Del amanzanamiento y la lotificación
+Artículo 511.1.- Del amanzanamiento. El tamaño y el tipo de las manzanas o los bloques de lotes debe complementarse totalmente al nuevodesarrollo urbano y a la red vial pública para crear redundancia vial y reforzar patrones histórico-culturales de emplazamiento de ocupaciónhumana, así como la provisión de espacios públicos, estacionamientos, accesos y otras facilidades conexas. El área máxima de los predios bajo el proceso de amanzanamiento por calles públicas no podrá superar los 7000 metros cuadrados.
+Artículo 511.2.- De la lotificación. El proceso de lotificación en los desarrollos urbanos se sujetará a las siguientes condiciones:
+a. El área, el frente y laforma de los lotes se ajustarán a lo que dispongael Reglamento de Zonificación de este Plan Regulador Territorial.
+b. En el caso de que los amanzanamientos se utilicen para condominios deberán ajustarse al Plan Vial de la Ciudad de Cartago.
+c. Frente a curvas y rotondas, el frente mínimo podrá ser de 4,00 metros siempre que el área sea la mínima establecida.
+d. Previa autorización de la segregación no debe haber movimientode tierras.
+e. Los lotes esquineros deberán ajustarse al lote mínimo del Reglamento de Zonificación más el ancho de antejardín.
+f. Se permitirá levantar elementos sólidos superiores a 1,00 m de altura, comomedios de seguridad o privacidad en todo proyectoconstructivo, donde se pretenda cerrar el frente de la propiedad,siempre y cuando tales elementos se edifiquen en la línea de construcción y, por lo tanto, se respete el área de antejardín. Paraterrenos cuya diferencia de niveles sea mayor a 1,00 m con respecto al nivel de acera, deberá construirse algún elemento deretención.
+g. Los linderos laterales de los lotes deben tener preferiblemente un ángulo de 90° en relación con la línea de cordón y caño. Cuando las características físicas del predio no permitan esta condición, la relación puede variar, siempre que garantice la regularidad del lote.
+h. Para el diseño del sistema de tratamiento de aguas residuales seaplicarán las normas establecidas por las entidades competentes, o bien, en su defecto, las dispuestas por la viabilidad ambiental del Plan Regulador Territorial.
+i. En todo proyecto, a tenor de condiciones de sostenibilidadambiental y gestión del riesgo a desastre, se debe evitar el movimiento de tierras y enfatizar el diseño en función de sistemas constructivos adecuados al riesgo existente.
+j. Los lotes resultantes deben quedar completamente libres de cualquier tipo de afectación.
+k. Todo anteproyecto contemplará los artículos referidos al paisaje contenidos en los distintos reglamentos de este Plan Regulador Territorial y particularmente los del Reglamento de Desarrollo Sostenible.
+l. Todo lo anterior previo a obtención de licencia de construcción.
+Cuando en la lotificación se proyecte una distancia entre dos vías vehiculares mayor de 240,00 m debe subdividirse el bloque mediante un espacio abierto para producir un paso peatonal únicamente, intermedio que conecte las dos vías, con un ancho mínimo de 6,00 m. Dejar el paso peatonal con acera central de 1,20 m de ancho mínimo y confinados ambos extremos del paso peatonal con un muro de concreto según detalle y acabados que indique la Dirección de Urbanismo Municipal.

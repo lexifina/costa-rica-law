@@ -1,0 +1,3 @@
+Artículo 633.-
+El mapa zonificación definirá los límites del Centro Histórico Arquitectónico de la ciudad de Cartago. El patrimonio construido comprenderá todos aquellos bienes y/o espacios que, por sus características artísticas o históricas, sean o hayan sido afectos en términos de la Ley de Patrimonio Histórico Arquitectónico de Costa Rica (ley 7555).
+La Municipalidad, en conjunto al Centro de Investigación y Conservación del Patrimonio Cultural, creará la estrategia de restauración, rehabilitación, mantenimiento y adecuación de los inmuebles einfraestructuras con valor patrimonial en el cantón de Cartago en los términos aplicables a ley.

@@ -1,0 +1,3 @@
+Artículo 409. Franja de amortiguamiento
+Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y el mantenimiento de esta. Esta franja debe ser del 10 % de la altura de la torre medida desde el centro de su base.
+Cuando la instalación se pretenda ubicar en predios compartidos con otro susos, se deben respetar las disposiciones establecidas en el artículo sobre seguridad humana y de protección contra incendios de este Capítulo.

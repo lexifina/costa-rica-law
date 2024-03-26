@@ -1,3 +1,6 @@
-Artículo 74.- Estacionamiento en vía pública
-Los Estacionamientos en vía pública, son las plazas de estacionamiento que se sitúan sobre vía pública y pueden ser libres o sujetos a condiciones de pago mediante el sistema que defina la Municipalidad para esos efectos.
-La Municipalidad definirá lo relativo al diseño de los espacios de estacionamiento, a partir de lo dispuesto en la Ley numero 3580, Ley de Instalación de Estacionometros (Parquímetros); y el Reglamento municipal de Estacionometros.
+Artículo 74. Iluminación de emergencia
+Sin detrimento de las disposiciones del Cuerpo de Bomberos, la iluminación de emergencia se requiere en función de las actividades propias de cada edificación y debe ubicarse a lo largo de pasillos, accesos a salidas de emergencia, escaleras, descarga de escaleras y otros medios de egreso. Además, debe cumplir con las siguientes disposiciones:
+1) La iluminación debe realizarse ya sea por medio de lámparas autónomas de emergencia con batería o por luminarias ordinarias de la edificación cuando cuenten con balastro de emergencia.
+2) En los cerramientos de salida debe proveerse de un sistema de iluminación primaria permanente, que permita orientar a los ocupantes durante la evacuación de la edificación.
+3) La iluminación permanente de los cerramientos de salida debe ser continua durante el tiempo que las condiciones de ocupación requieren que los medios de egreso se encuentren disponibles.
+4) Se permiten los interruptores automáticos de iluminación mediante sensor de movimiento, siempre que los controladores de los interruptores estén equipados para operación a prueba de falla. Los temporizadores dela iluminación deben estar calibrados para una duración mínima de 15 minutos y que el sensor de movimiento sea activado por el paso de cualquier ocupante en el área servida por las unidades de iluminación

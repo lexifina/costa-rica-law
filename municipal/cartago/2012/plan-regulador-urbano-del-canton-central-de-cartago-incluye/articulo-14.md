@@ -1,2 +1,8 @@
-Artículo 14.- Pago de impuesto.
-El pago por impuesto de construcción será hasta el 1% del valor de la construcción.
+Artículo 14.- Vigencia de las licencias en propiedad privada
+La vigencia o la caducidad de las licencias se aplica según sea el caso como sigue:
+14.1. Las licencias de construcción, de urbanización y de proyectos de condominio
+Las licencias de construcción, de urbanización y de proyectos de condominio tendrán una vigencia de un año para iniciar la obra. El tiempo cuenta a partir de su otorgamiento. Si pasado un año de otorgada la licencia el administrado aún desea construir la obra, debe solicitar una nueva licencia, para lo cual debe cumplir con todos los procedimientos y los requisitos de ley. En todo caso, el administrado puede prorrogar la vigencia de la licencia otorgada por un año más, sin costo alguno y hasta tres años como máximo, siempre y cuando así lo solicite a la administración municipal antes del vencimiento de esta.
+El plazo de la licencia se extenderá, de forma automática hasta tres años,sin necesidad de prórroga, si la obra fuera iniciada con licencia vigente.
+En todo caso, al caducar la licencia o habiendo sido abandonada una obra iniciada, por más de tres años, el administrado deberá solicitar otra nueva. Deberá ajustar la obra, cuantitativa y cualitativamente, a las normativas urbanísticas vigentes en ese momento. No existirá derecho alguno adquirido o consolidado a su favor.
+14.2. Las licencias de publicidad exterior tendrán vigencia de tres años máximo a partir de su emisión.
+14.3. Los certificados de uso del suelo tendrán vigencia hasta tantono se cambie la respectiva norma de zonificación por medio de las reformas al Plan Regulador Territorial de Cartago.

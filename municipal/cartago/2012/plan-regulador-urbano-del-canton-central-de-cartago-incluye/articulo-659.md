@@ -1,0 +1,6 @@
+Artículo 659.- Obligación de inscribir áreas públicas en el caso de fraccionamientos con fines urbanísticos y urbanizaciones
+Todas las áreas de uso público deberán ser traspasadas al dominio municipal. Al tratarse de fraccionamientos con fines urbanísticos y de urbanizaciones, de previo a que la Dirección de Urbanismo Municipal otorgue los visados municipales de segregación a todos y cada uno de loslotes resultantes del proyecto urbanístico y/o fraccionamiento, la persona propietaria o ente desarrollador del proyecto urbanístico deberá traspasar las áreas públicas a la Municipalidad de Cartago.
+Ese traspaso deberá ser a título gratuito, libre de todo gravamen, y en escritura pública, que deberá debidamente inscrita ante el Registro Público.
+Previamente, la escritura deberá ser entregada al Área Jurídica Municipal para su revisión.
+El interesado deberá presentar certificaciones originales emitidas por el Registro Público, donde conste la inscripción de las relacionadas áreas públicas a nombre de la Municipalidad de Cartago.
+Consecuentemente, la Dirección de Urbanismo Municipal no otorgará los referidos visados ni aprobará permisos de construcción hasta tanto no se cumpla con la obligación dicha.

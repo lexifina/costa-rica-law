@@ -1,0 +1,3 @@
+Artículo 541. Demarcación de las ciclovías
+Los carriles de las ciclovías ubicadas en las urbanizaciones pueden ser demarcados únicamente por separación física con bordillo entre la circulación de bicicletas y la circulación de los vehículos automotores. El objetivo consiste en brindar mayor protección física a los ciclistas. Además, se podrán realizar franjas verdes donde sea viable para arborización.
+En caso de incorporar ciclovías en urbanizaciones industriales y comerciales, deben estar dentro del derecho de vía (1,5 m). En casos de que se destine el área de la calzada para uso mixto de bicicletasy automóviles, se debe señalizar de forma horizontal y vertical el uso compartido de los vehículos con las bicicletas con prioridad de paso a estas últimas.

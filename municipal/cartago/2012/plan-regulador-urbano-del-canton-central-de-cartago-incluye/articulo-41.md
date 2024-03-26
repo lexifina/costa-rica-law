@@ -1,1 +1,2 @@
-Artículo 41.- Créase una Comisión de seguimiento, control y conservación de patrimonio, en adelante COSECOP, que se conformará por personal municipal y personas interesadas en el tema de la conservación del patrimonio de Cartago (arquitectos, ingenieros, historiadores, sociólogos, antropólogos y otros). La Municipalidad de Cartago, reglamentará el funcionamiento y atribuciones de COSECOP.
+Artículo 41. Edificaciones de uso mixto
+Para el diseño y la construcción de edificaciones de uso mixto, se deben cumplir las disposiciones del presente reglamento relativas al uso permitido de cada una de sus partes.

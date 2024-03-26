@@ -1,0 +1,2 @@
+Artículo 334. Centros de atención de larga estancia para personas adultas mayores
+Para el caso de edificaciones destinadas a la atención y enseñanza de personas adultas mayores o con discapacidad que brinden atención de larga estancia para personas adultas mayores, se debe acatar lo señalado en el Reglamento para el Otorgamiento del Permiso Sanitario de Funcionamiento de los Hogares de Larga Estancia para Personas Adultas Mayores, Decreto Ejecutivo N.° 37165-S y sus reformas o normativa que lo sustituya.

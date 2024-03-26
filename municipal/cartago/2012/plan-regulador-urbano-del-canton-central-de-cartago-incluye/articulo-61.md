@@ -1,2 +1,3 @@
-Artículo 61.- Carácter e interpretación de las normas de esta reglamentación
-La Municipalidad denegará la aprobación a aquellos planes y proyectos que no se ajusten a las disposiciones contenidas en el presente reglamento. En caso que se detecten discrepancias, en cuanto a parámetros cuantitativos o cualitativos o bien especificaciones técnicas contenidas en el articulado del presente reglamento en relación con un proyecto, proyectos o bien otra disposición reglamentaria, prevalecerán lo estipulado por el primero, salvo en los casos, en que expresamente se indique lo contrario en este Reglamento.
+Artículo 61. Capacidad de los medios de egreso
+La capacidad total de los medios de egreso de cualquier piso, balcón, grada u otro espacio ocupado debe ser suficiente para la carga de ocupantes de este.
+Para calcular su capacidad en cualquier edificación, o parte de esta, se deben acatar las disposiciones del Cuerpo de Bomberos.

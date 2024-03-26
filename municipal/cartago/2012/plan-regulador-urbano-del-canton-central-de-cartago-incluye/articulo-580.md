@@ -1,0 +1,2 @@
+Artículo 580.- Carácter e interpretación de las normas de esta reglamentación
+La Municipalidad de Cartago denegará la aprobación a aquellos planes y los proyectos que no se ajustan a las disposiciones contenidas en el presente reglamento. En caso de que se detecten discrepancias en cuanto a parámetros cuantitativos, cualitativos, o bien especificaciones técnicas en relación con un proyecto, prevalecerá lo estipulado en este reglamento, salvo casos en los que se indique lo contrario.

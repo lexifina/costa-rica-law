@@ -1,0 +1,2 @@
+Artículo 530.- Obligaciones en urbanizaciones de uso residencial
+De acuerdo con lo dispuesto en el artículo 538 "Condiciones de las áreas públicas", el urbanizador debe incluir dentro de los planos constructivos una lámina completa que indique las obras a realizar y el equipamiento que se instalará. Dichas obras incluirán juegos, área de resguardo, pavimentos, aceras, vallas, arborización, terraceos, bancas y cualquier otro detalle pertinente, todo según sea del caso y la normativa aplicable.CAPÍTULO XXXVI: DEL SISTEMA VIAL DE LAS URBANIZACIONES.

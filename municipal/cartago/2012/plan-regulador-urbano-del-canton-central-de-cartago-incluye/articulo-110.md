@@ -1,0 +1,2 @@
+Artículo 110. Alineamientos de oleoductos
+Al tratarse de proyectos de construcción en predios que colinden o contengan dentro de él mismo un oleoducto, es obligatorio tramitar la solicitud de alineamiento ante RECOPE. Para ello, debe seguirse el trámite denominado Procedimiento para el otorgamiento de alineamientos respecto al Poliducto de RECOPE. El documento de alineamiento emitido debe indicar la vigencia que determine RECOPE.

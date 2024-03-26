@@ -1,0 +1,3 @@
+Artículo 528.- De los servicios comunales
+Las dos terceras partes del área pública, que corresponden a servicios comunales, deberán indicarse claramente en los planos según su tipología recreativa o comunal.
+Una vez separada el área correspondiente a parque y juegos, la tipología del resto del área se dará según lo indicado en la Comisión de Obras Públicas y Urbanismo en complemento de lo estipulado en el Reglamento de Fraccionamientos y Urbanizaciones del INVU. La prioridad o el uso pueden variarse al aprobarse los planos, de acuerdo con las necesidades socioculturales de la zona, mediante estudio previo que demuestre que el uso ya está cubierto o no se requiere.

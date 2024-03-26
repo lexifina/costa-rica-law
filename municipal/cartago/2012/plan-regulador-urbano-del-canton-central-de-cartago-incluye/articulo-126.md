@@ -1,0 +1,2 @@
+Artículo 126. Iluminación artificial
+El profesional responsable debe velar para que cada espacio cuente con la iluminación artificial y la intensidad luminosa adecuada. Lo anterior sinperjuicio de lo establecido en la Ley General de Salud, Ley N.° 5395, el Reglamento a la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Decreto Ejecutivo N.° 26831-MP y al Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, Decreto Ejecutivo N.° 36979 y sus reformas o normativas que las sustituyan.

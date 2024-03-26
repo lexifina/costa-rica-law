@@ -1,10 +1,5 @@
-Artículo 62.- Fines del Reglamento de Vialidad del cantón de Cartago
-La propuesta vial para el cantón de Cartago propuesta como Anexo de este Plan Director, busca mejorar la conectividad externa mediante la red regional (Paraíso-Coris) que propone el MOPT que discurriría por el sector sur del cantón, que se uniría a la ruta nacional 2 proporcionando la continuidad vial hacia el oeste, cruzando la zona industrial y llevando los flujos hacia el cantón de Desamparados, facilitando la conexión vehicular de oeste a este que liberaría el centro histórico y permitiría la salida y entrada de insumos en las zonas industriales.
-Internamente se busca mejorar la accesibilidad del norte del cantón con la cuadrícula central, así como las vías nacionales, en especial la ruta 2, potencializando rutas cantonales subutilizadas, creando enlaces entre vías existentes principales por medio de vías secundarias y terciarias, proponiendo dar continuidad a los tramos viales existentes y de esta manera completar la malla vial cantonal. Potenciar la ruta nacional 218, que comunica a Llano Grande y continúa hacia Goicoechea, tratándose de una ruta turística propuesta por el Plan PRUGAM.
-Por medio de las ciclovías propuestas se pretende brindar un soporte para el traslado del sector laboral, en concreto hacia las zonas industriales, que complementaría el trasporte existente, proponiendo este tipo de transporte alternativo entre los cantones de Paraíso y Tejar, y a la vez culturizar a la población en la utilización de este medio.
-Los fines del Reglamento de Vialidad son las directrices que proporcionaran a la Municipalidad y al desarrollador un panorama general de las exigencias en cuanto a planificación y diseño. Dentro de esos fines se ubican:
-Consolidar la conectividad del territorio del Cantón de Cartago en relación con los de los cantones de la Provincia en general.
-Clasificar todos los elementos de la red vial, asignando a cada uno una clase y un tipo de los establecidos en el presente reglamento
-Administrar las vías de la red vial cantonal y dictar medidas que logren la seguridad, eficiencia y equidad en su uso y disfrute.
-Considerar que los diversos elementos de la red vial ofrezcan una adecuada funcionalidad a cada tipo de vías del presente reglamento.
-Las actuaciones sobre la red vial nacional que exceda de los límites municipales deberán realizarse en coordinación conjunta entre la Municipalidad , el INVU y el MOPT.
+Artículo 62. Cantidad de medios de egreso
+Se debe contar con dos medios de egreso desde cualquier balcón, entrepiso, piso o sección de esta. Excepcionalmente, se puede contar con un único medio de egreso cuando se cumplan a cabalidad los requerimientos establecidos según la ocupación aplicable por el Cuerpo de Bomberos, así como su aprobación.
+La cantidad de medios de egreso mínima desde cualquier piso o porción de este depende de la carga de ocupantes y se calcula de la siguientemanera:
+1) Carga de ocupantes mayor de 500 personas, pero no mayor de 1000 debe ser de tres.
+2) Carga de ocupantes mayor de 1000 personas, debe ser de cuatro.

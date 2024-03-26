@@ -1,0 +1,3 @@
+Artículo 417. Normativa aplicable
+Toda obra provisional en el proceso de la construcción debe dar cumplimiento a las disposiciones aplicables establecidas en el Reglamento de Construcciones, Decreto Ejecutivo N.° 40790-MTSS y sus reformas, además de las disposiciones que indiquen el Ministerio de Trabajo y Seguridad Social.
+El profesional responsable puede utilizar, de manera voluntaria, las normas aprobadas por INTECO, que busquen asegurar la seguridad de las personas trabajadoras en la construcción. Cuando hayan sido adoptadas por un colegio profesional idóneo, el acatamiento a ellas debe ser obligatorio para el profesional responsable.

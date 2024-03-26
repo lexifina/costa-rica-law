@@ -1,0 +1,8 @@
+Artículo 490. Condiciones para urbanizar predios
+El desarrollo de urbanizaciones es permitido siempre que el predio por urbanizar cumpla con las siguientes condiciones:
+1) Tener acceso directo a vía pública.
+2) Contar con sistema de abastecimiento de agua potable, sistema de tratamiento de aguas residuales, sistema de alcantarillado pluvial, disponibilidad de servicio eléctrico y red de telecomunicaciones. En caso de no contar con los servicios descritos, el urbanizador debe costear las obras ejecutadas fuera de su propiedad para ofrecer todos los servicios.
+3) Estar libres de afectaciones o limitaciones urbanísticas, emitidas por las instituciones competentes, que impidan su aprovecha- miento; de lo contrario, que estas puedan conciliarse con la urbanización propuesta.
+Para los sistemas de abastecimiento de agua potable, sistema de tratamiento de las aguas residuales y sistema de recolección y disposición de aguas pluviales, se deben cumplir las disposiciones definidas en la Norma Técnica para Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Sistema Pluvial del AyA y sus reformas o normativa que la sustituya.
+Cuando en la colindancia del predio existan urbanizaciones ya construidas, se debe dar continuidad a la infraestructura vial mediante la integración física y funcional.
+El profesional responsable del proyecto de urbanización debe considerar, en el diseño de sitio, las condiciones naturales del área. Se considerarán no solo las del predio por desarrollar, sino también las de sus inmediaciones. Además, debe considerar las características naturales del predio o la alteración que a estas puedan ocasionar las obras por realizar.

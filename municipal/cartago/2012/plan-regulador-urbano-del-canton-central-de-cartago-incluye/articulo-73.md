@@ -1,3 +1,3 @@
-Artículo: 73.- Espacio de estacionamiento de los vehículos
-El espacio de estacionamiento de los vehículos está diferenciado por el régimen del suelo, donde se encuentran aquellos espacios de estacionamiento sobre la vía pública local y aquellos en suelo privado.
-Las disposiciones sobre estacionamiento de vehículos deben cumplir con lo establecido en el Reglamento de Construcciones Municipal y en forma supletoria el Reglamento de Construcciones del INV, y con la ubicación donde lo permita el Plan Regulador.
+Artículo 73. Resistencia al fuego de los materiales
+Los elementos estructurales y no estructurales de las edificaciones, tales como paredes exteriores portantes, paredes interiores portantes, columnas, vigas, viguetas, arcos estructuras, pisos, entrepisos y techos deben ser resistentes al fuego, según las especificaciones del Cuerpo de Bomberos.
+Cuando se requiera resistencia al fuego de los entrepisos, esta debe considerar todo el elemento de vigas, viguetas, bloques, losa de concreto y otros componentes utilizados.

@@ -1,0 +1,2 @@
+Artículo 161. Colindancia con edificaciones peligrosas
+Cuando el propietario de una edificación o predio considere amenazada su propiedad por la existencia de una edificación peligrosa o insalubre por efecto de sismo, viento, materiales o procesos peligrosos u otras causas, puede solicitar que el caso sea estudiado por técnicos de la Municipalidad o la institución competente, la cual debe tomar las medidas necesarias para eliminar el peligro si existiera.

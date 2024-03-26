@@ -1,0 +1,3 @@
+Artículo 556. Normativas urbanísticas en conjuntos residenciales y las zonas de uso mixto (con vivienda e industrial/comercial)
+Las coberturas y las densidades de los desarrollos de proyectos de conjuntosresidenciales, áreas y frentes mínimos, se regirán por lo establecido en latabla de parámetros (anexo) establecida en el presente Plan Regulador.
+Frente a calle pública o acceso excepcional de uso residencial menor a tres lotes, se podrá aplicar el área mínima de acuerdo con la tabla de parámetros del Reglamento de Zonificación siempre y cuando la topografía en términos de accesibilidad lo permitay exista un buen manejo de las aguas pluviales.

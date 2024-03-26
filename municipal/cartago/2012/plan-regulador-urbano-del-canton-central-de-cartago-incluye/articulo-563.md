@@ -1,0 +1,4 @@
+Artículo 563.- Garantías de cumplimiento de obra
+Cuando la Municipalidad autorice la segregación de lotes sin que se hayan concluido las obras de desarrollo urbano, deberá exigirse para esto la garantía que menciona el artículo 39 de la Ley de Planificación Urbana 4240.
+La garantía mencionada será determinada por el Concejo Municipal, previo dictamen de la Comisión de Obras y Urbanismo, y consistirá la transferencia de dinero en efectivo o con cheque certificado de acuerdo con la tabla de costos del proyecto. El porcentaje por considerar será igual o mayor a un 75 % y estas obras deben contener, al menos, los dispuesto en las obras de desarrollo urbano.
+Las obras de desarrollo urbano son acabados de calles en cuanto a equipamiento de áreas públicas, instalaciones de equipamiento de juegos infantiles, señalización, enzacatado y arborización, asfaltado, cerramientos y/o cualquier otra que no implique la dotación de servicios mínimos tal como electricidad y agua.

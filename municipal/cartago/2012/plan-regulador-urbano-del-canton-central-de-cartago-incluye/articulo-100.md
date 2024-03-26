@@ -1,0 +1,3 @@
+Artículo 100. El uso de las vías públicas
+Queda prohibida la colocación de cualquier elemento que obstruya el libre tránsito en la vía pública. En caso de requerirse la colocación de elementos de infraestructura pública, se debe cumplir, en relación con anchos de aceras, los requerimientos establecidos en el Reglamento a la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Decreto Ejecutivo N.° 26831 y sus reformas o la normativa que los sustituya sin perjuicio delo establecido en otras regulaciones de rango superior.
+Excepcionalmente, y solo mediante escrito con vigencia temporal extendido por la Municipalidad, puede no acatarse la prohibición establecida en este artículo.

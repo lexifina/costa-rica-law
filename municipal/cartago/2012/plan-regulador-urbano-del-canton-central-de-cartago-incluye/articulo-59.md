@@ -1,6 +1,6 @@
-Título VIII
-Del Reglamento de Vialidad
-Artículo 59.- Ámbito y carácter de estas disposiciones
-Las presentes disposiciones sobre vialidad serán de aplicación geográfica dentro de los límites del cantón de Cartago, sin perjuicio de lo que estipula y reglamenta la Ley General de Caminos Públicos (Ley Nº 5060), y de cualquier otra normativa nacional o cantonal aplicable.
-El “Reglamento de Vialidad en el cantón de Cartago”, es el documento en el que se recogen los parámetros de aplicación para el diseño y construcción de la red vial cantonal competencia de la Municipalidad , documento al que habrán de ajustarse todos los planes y proyectos en los que se definan las características de los elementos viales. En otras palabras es el conjunto de parámetros y normas para el ordenamiento y la operatividad de los sistemas de vialidad del Cantón de Cartago y en cuanto no se le opongan, de los demás cantones de la Provincia de Cartago.
-Sin embargo, por la naturaleza propia de la materia regulada y en cuanto no contravenga la normativa adoptada o que se adopte por parte de otro ayuntamiento de la provincia de Cartago en los limites de su jurisdicción, la presente reglamentación será aplicable en la circunscripción territorial de otras Municipalidad es, dado que se parte de un concepto de vialidad integral y unificado y no desintegrado.
+Artículo 59. Requisitos de pasamanos
+Sin perjuicio de las disposiciones del Cuerpo de Bomberos, los pasamanos deben cumplir con los siguientes requisitos:
+1) Colocarse siempre en ambos lados de escaleras y las rampas.
+2) Altura mínima de 0,90 m medidos desde la superficie del suelo.
+3) Los extremos de los pasamanos deben voltearse hacia la pared, el piso o deben terminar en postes.
+4) Ser continuos en la longitud total del recorrido.

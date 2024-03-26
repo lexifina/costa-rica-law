@@ -1,0 +1,4 @@
+Artículo 517. Dimensiones mínimas de lotes en urbanizaciones de uso residencial
+Cuando se pretenda realizar una urbanización, el fondo de los lotes resultantes no debe ser mayor de siete veces el frente. El frente mínimo de los lotes resultantes de la urbanización debe ser de 6,00 m; cuando los lotes enfrenten rotondas y medias rotondas, deben contar con un frente mínimo de 4 m cuando cumplan con el área mínima establecida en el presente artículo.
+Todo lote resultante debe cumplir con el área mínima; en caso de existir afectaciones producto de alineamientos, dicha área no será computable para el cálculo del área mínima correspondiente.
+En todo caso, aplicarán las dimensiones mínimas establecidas en la tabla de parámetros del Reglamento de Zonificación del presente Plan Regulador Territorial.

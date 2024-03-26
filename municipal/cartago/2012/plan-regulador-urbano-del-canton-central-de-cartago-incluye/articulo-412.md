@@ -1,0 +1,2 @@
+Artículo 412. Infraestructura para el soporte de redes de telecomunicaciones en edificaciones para uso educativo
+Cuando se requiera instalar infraestructura para el soporte de redes de telecomunicaciones en edificaciones para uso educativo, la misma no debe estar ubicada en el área destinada a superficie libre mínima y superficie construida de la edificación, según las disposiciones de EDIFICACIONES PARA USO EDUCATIVO.

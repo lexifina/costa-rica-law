@@ -1,0 +1,2 @@
+Artículo 496.- Red de alcantarillado pluvial
+Cuando se requiera aumentar la cantidad del número de lotes o unidades habitacionales para modificaciones a urbanizaciones o conjuntos residenciales, y esto implique el cambio del punto de desfogue, se debe contar con la autorización del desfogue por parte de la Municipalidad o MOPT según Decreto N°34624 - MOPT, publicado en la Gaceta N° 138 del 17 de julio del 2008, o normativa que lo sustituya.

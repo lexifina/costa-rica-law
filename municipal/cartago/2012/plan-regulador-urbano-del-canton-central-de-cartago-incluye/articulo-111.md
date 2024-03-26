@@ -1,0 +1,2 @@
+Artículo 111. Alineamientos de colectores sanitarios y líneas de conducción de agua potable
+Al tratarse de proyectos de construcción en predio que colinden o que dentro de él mismo se encuentren colectores sanitarios o líneas de conducción de agua potable, es obligatorio solicitar el alineamiento ante el operador competente. El documento de alineamiento emitido debe indicar la vigencia que determine el operador competente.

@@ -1,0 +1,5 @@
+TÍTULO VI. - REGLAMENTO DE RENOVACIÓN URBANA
+CAPÍTULO XLIII. DISPOSICIONES GENERALES
+Artículo 598.- Objetivo
+Sin perjuicio de lo indicado en otros apartados de este Plan Regulador Territorial, este título pretende regular lo concerniente a los procesos de renovación urbana que se requieran implementar en los distritos y centros urbanos,bajo la tutela de las disposiciones normativas contenidas en el capítulo sexto de la Ley de Planificación Urbana y Ley de Prevención de Riesgos y Atención de Emergencias número 8488.
+Además de posibilitar la intervención pública en las áreas del cantón quese encuentran decadentes, defectuosas, deterioradas o destruidas ya sea parcial o totalmente como consecuencia de un desastre, o bien al tomar en cuenta la inconveniente parcelación, edificación, carencia de servicios, facilidades comunales, o cualquier otra condición adversa a la seguridad,salubridad, conservación del patrimonio y bienestar en general y fijar las normas que deberán adoptarse para rehabilitar, remodelar o regenerar las áreas urbanas disfuncionales, o conservar áreas urbanas cuya intervención sea considerada estratégica.

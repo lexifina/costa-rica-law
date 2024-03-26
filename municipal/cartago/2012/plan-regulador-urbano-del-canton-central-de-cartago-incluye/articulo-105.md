@@ -1,0 +1,2 @@
+Artículo 105. Alineamientos de nacientes de agua
+Al tratarse de proyectos de construcción en predios que colinden o que dentro de él mismo se encuentren nacientes de agua, es obligatorio tramitar el dictamen de cuerpo de agua ante la Dirección de Aguas del MINAE para la determinación de afectación. En caso de que la caracterización del cuerpo de agua sea naciente permanente, es obligatorio tramitar la solicitud de alineamiento de protección en el INVU.

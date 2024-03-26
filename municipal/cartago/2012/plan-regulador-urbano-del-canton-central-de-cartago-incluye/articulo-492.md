@@ -1,0 +1,3 @@
+Artículo 492. Sistema de abastecimiento de agua potable
+Toda urbanización debe contar con un sistema de abastecimiento de agua potable, que garantice la disponibilidad del servicio, mediante la infraestructura y el equipamiento para la captación del recurso hídrico, su potabilización y distribución.
+La disponibilidad de servicio para abastecimiento de agua debe ser otorgada por el AyA, una ASADA o la Municipalidad mediante la emisión de un documento que garantice la existencia del recurso hídrico con factibilidad técnica y operativa para la producción de agua potable para elabastecimiento de todos los lotes resultantes de la urbanización.

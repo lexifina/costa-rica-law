@@ -1,0 +1,2 @@
+Artículo 641.-
+Todos los anuncios que no armonicen con el diseño y/o que desvirtúen el valor del edificio y la tipología general del entorno y que, por lo tanto, incumplan con las normas que, al respecto, establece este Reglamento, deberán ser adecuados o retirados por sus propietarios o, en su defecto, por la Dirección de Urbanismo en coordinación con la Oficina de Planificación Urbana o el Centro de Investigación y Conservación del Patrimonio Cultural.
