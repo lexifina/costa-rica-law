@@ -1,6 +1,6 @@
 # Ley General de Control del Tabaco y sus efectos nocivos en la salud
 
-Ley N° 9028 del 2012-03-22. SINALEVI, ficha 72249: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72249&param2=135471&param3=1>.
+Ley N° 9028 del 2012-03-22. SINALEVI, ficha 72249: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72249&param2=140242&param3=1>.
 
 Publicada en La Gaceta N° 61 del 2012-03-26.
 
@@ -21,3 +21,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 11 de 16 | 2021-04-01 | Resolución 5 (2021-03-05) | 2021-03-05 |
 | 12 de 16 | 2022-04-01 | Resolución 13 (2022-03-09) | 2022-03-09 |
 | 13 de 16 | 2023-04-01 | Resolución 11 (2023-03-07) | 2023-03-07 |
+| 14 de 16 | 2024-04-01 | Resolución 14 (2024-03-07) | 2024-03-07 |
