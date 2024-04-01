@@ -1,0 +1,1 @@
+Artículo 5°-La Administración Pública Central y Descentralizada, dentro de un marco de cooperación Interinstitucional, contribuirá, de acuerdo con las potestades que la legislación les atribuye, en forma prioritaria y efectiva con la agilización real de trámites vinculados a los permisos y ejecución de obras vinculadas con el Proyecto.

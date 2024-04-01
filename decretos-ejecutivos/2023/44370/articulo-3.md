@@ -1,0 +1,1 @@
+Artículo 3°-En caso de requerirse la intervención en terrenos Patrimonio Natural del Estado, el AyA, deberá atender lo dispuesto en la Ley para autorizar el aprovechamiento de agua para consumo humano y construcción de obras conexas en el Patrimonio Natural del Estado N° 9590 y su Reglamento, Decreto Ejecutivo N° 42548-MINAE del 06 de agosto de 2020.
