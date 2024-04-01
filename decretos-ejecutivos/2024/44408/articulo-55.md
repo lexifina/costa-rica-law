@@ -1,0 +1,1 @@
+Artículo 55.- En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.

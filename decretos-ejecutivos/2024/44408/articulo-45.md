@@ -1,0 +1,1 @@
+Artículo 45.-Los ministerios, las entidades públicas y sus órganos desconcentrados deberán fortalecer continuamente los procesos de planificación, ejecución, control y seguimiento de los proyectos de inversión financiados con endeudamiento público para que se gestionen de forma eficaz y eficiente, y se generen bienes y servicios de calidad y en forma oportuna.

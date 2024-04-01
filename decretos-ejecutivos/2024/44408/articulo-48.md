@@ -1,0 +1,2 @@
+Artículo 48.- Los ministerios, las entidades públicas y sus órganos desconcentrados, para el caso de los puestos excluidos del Régimen de Servicio Civil, amparados en normativa específica, contarán con el respectivo manual institucional de clases de puestos y cargos y su correspondiente nivel salarial, atendiendo principios de racionalidad y austeridad, guardando consistencia entre la estructura organizacional, ocupacional y salarial.
+Además, deberán formularse atendiendo los lineamientos generales emitidos por MIDEPLAN.

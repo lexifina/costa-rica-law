@@ -1,0 +1,1 @@
+Artículo 51.-A los puestos de servicios especiales se les aplicará el mismo sistema de clasificación y valoración utilizado para los de cargos fijos, siempre y cuando dichos puestos sean similares en propósito, resultados esperados y demás factores de clasificación.

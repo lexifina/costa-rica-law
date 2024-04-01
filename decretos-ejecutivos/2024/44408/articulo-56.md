@@ -1,0 +1,2 @@
+Artículo 56.-No se le podrá variar el propósito a las plazas de confianza.
+Además, deberán estar acorde con la estructura organizacional aprobada por el MIDEPLAN. Si en una reestructuración organizacional se elimina una unidad o área donde se ubican puestos de confianza, estos deberán ser eliminados.

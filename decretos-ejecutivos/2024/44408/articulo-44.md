@@ -1,0 +1,2 @@
+Artículo 44.-Una vez que el endeudamiento público obtenga validez jurídica, el Órgano Ejecutor deberá iniciar en un plazo no mayor a un mes, la gestión correspondiente de incorporación de los recursos provenientes del endeudamiento al Presupuesto.
+La incorporación de tales recursos se realizará en el momento en que se formule y se apruebe un Presupuesto Extraordinario de la República. Salvo que la propia Ley del empréstito modifique la ley de presupuesto ordinario y extraordinario vigente, o disponga que la incorporación se realice vía decreto ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 3°.-La Secretaría Técnica de la Autoridad Presupuestaria, en adelante STAP, con fundamento en las atribuciones legalmente conferidas, solicitará la información que resulte necesaria para el cumplimiento de sus funciones.

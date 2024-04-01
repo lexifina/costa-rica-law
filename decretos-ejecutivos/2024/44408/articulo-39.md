@@ -1,0 +1,1 @@
+Artículo 39.-Todo incremento en el costo total de los proyectos de inversión pública deberá ser asumido por el ministerio o entidad pública que lo ejecuta, dentro de la asignación presupuestaria y cumpliendo con la regla fiscal, según corresponda.

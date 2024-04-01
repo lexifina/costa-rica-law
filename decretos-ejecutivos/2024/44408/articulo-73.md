@@ -1,0 +1,1 @@
+Artículo 73.-La STAP, cuando corresponda, divulgará en la página electrónica del MH, los requisitos o trámites que deben cumplir los ministerios, las entidades públicas y sus órganos desconcentrados, para que sus gestiones o solicitudes sean atendidas.
