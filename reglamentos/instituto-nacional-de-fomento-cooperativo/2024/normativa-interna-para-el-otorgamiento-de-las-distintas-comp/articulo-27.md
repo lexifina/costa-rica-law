@@ -1,0 +1,6 @@
+Carrera profesional
+Artículo 27.-Naturaleza y objetivos. Constituye un incentivo salarial reconocido para aquellos títulos o grados académicos que no sean requisito para el puesto, así como para aquellas actividades de capacitación que no hayan sido sufragadas por instituciones públicas con el objeto de promover la formación académica dinámica y constante de los funcionarios de grado profesional que contribuya, como fin ulterior, a la prestación de los servicios del INFOCOOP de manera más eficiente. Además, para su reconocimiento se considerará la capacitación impartida y las publicaciones realizadas que sean de interés institucional.
+El reconocimiento de carrera profesional tiene como objetivos:
+a) Reconocer por medio de un estímulo económico, la superación académica de los funcionarios de nivel profesional, a fin de que cada día puedan ofrecer un mejor servicio al movimiento cooperativo nacional y al INFOCOOP.
+b) Coadyuvar en el reclutamiento y retención del talento humano para el desempeño de la función del INFOCOOP y el interés del movimiento cooperativo, procurando contar con funcionarios de nivel profesional mejor calificados, así como fomentar el interés de capacitarse y actualizarse constantemente.
+c) Promover la eficiencia en el servicio público.

@@ -1,0 +1,1 @@
+Artículo 17.-Regímenes excluyentes: Por un principio de sana administración y transparencia, los regímenes de prohibición y dedicación exclusiva son excluyentes entre sí. El funcionario del INFOCOOP que reciba alguna compensación por dedicación exclusiva, estará inhibido de recibir prohibición.

@@ -1,0 +1,1 @@
+Artículo 37.-Actualización. Corresponderá a Desarrollo Humano en coordinación con la Asesoría Jurídica, mantener actualizada en el tiempo esta normativa, para lo cual deberá estar pendiente de los cambios que se generen, las homologaciones que se apliquen para el INFOCOOP, el Salario Global y cualquier otro cambio que incida, a efecto de que tramite las reformas oportunas.

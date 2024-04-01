@@ -1,0 +1,7 @@
+Dedicación exclusiva
+Artículo 4º-De la solicitud. El funcionario que desee acogerse al Régimen de Dedicación Exclusiva y que cumpla con los siguientes requisitos, deberá solicitarlo por escrito a Desarrollo Humano, quien comprobará el cumplimiento de los requisitos y tramitará la suscripción del contrato entre el servidor y el INFOCOOP representado por el Director Ejecutivo.
+a) Ser profesional, con el grado académico de Bachiller Universitario como mínimo, de una profesión liberal. En casos de títulos obtenidos en universidades extranjeras el servidor debe aportar certificación donde conste su reconocimiento y equiparación por parte de una universidad o institución educativa costarricense autorizada para ello.
+b) Estar nombrado o designado mediante acto formal de nombramiento en propiedad, o de forma interina para desempeñar un puesto cuyo requisito de ocupación exija como mínimo el grado académico que se indica en el inciso anterior, siempre que el funcionario demuestre que cuenta con dicho requisito.
+c) Haber sido nombrado para laborar jornada completa salvo excepción del artículo 13 del Decreto Ejecutivo 42266 del 03 de febrero de 2020.
+d) Estar incorporado en el colegio profesional respectivo, lo anterior en caso de que dicha incorporación gremial exista y que la incorporación sea exigida como una condición necesaria para el ejercicio liberal de la profesión respectiva.
+e) Firmar el contrato de Dedicación Exclusiva, prórroga o addendum respectivo con el Director Ejecutivo o quien este delegue.
