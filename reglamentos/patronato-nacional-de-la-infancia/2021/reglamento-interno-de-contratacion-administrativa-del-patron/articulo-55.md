@@ -1,2 +1,0 @@
-Artículo 55
-Cuando se estime conveniente y oportuno, el Departamento de Proveeduría podrá seleccionar una contratación de arrendamiento operativo para cubrir necesidades de equipo o maquinaria, tanto con opción de compra o sin ella, considerando para tal determinación, la normativa nacional vigente, así como las posiciones consolidadas de la Contraloría General de la República en la materia, cuando existan.

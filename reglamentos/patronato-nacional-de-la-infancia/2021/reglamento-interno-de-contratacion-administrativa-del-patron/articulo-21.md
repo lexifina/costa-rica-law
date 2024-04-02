@@ -1,2 +1,0 @@
-Artículo 21
-El Departamento de Proveeduría, con el objetivo de reforzar la planificación del PANI, dará a conocer cada año, mediante circular interna, el cronograma de compras institucional, con las fechas límite, en que las Unidades Solicitantes deben tramitar sus necesidades de compra de bienes y servicios, así como el plazo máximo para el trámite de actas de recepción y facturas con cargo al periodo presupuestario vigente; estos plazos son de acatamiento obligatorio.

@@ -1,4 +1,0 @@
-Artículo 90
-Para el trámite de pago, las facturas presentadas por el contratista, deberán cumplir las disposiciones de la normativa nacional vigente en la materia y los requisitos establecidos en los instructivos que elabore el Departamento de Proveeduría para los efectos, el cartel, contrato u orden de compra respectiva.
-La factura debe ser legible, además, debe encontrarse firmada por el Ejecutor Presupuestario. Las facturas cuyo ingreso son a través de la Bodega Central deben estar firmadas por el encargado de la Bodega o a quien la jefatura del Departamento de Servicios Generales designe. El acta de recepción debe estar rubricada por el Fiscalizador de Contrato.
-De previo a iniciar la gestión de pago, se realizará el análisis del tiempo de entrega, así como el posible cobro de multas y cláusulas penales, a la luz de lo pactado en el contrato.
