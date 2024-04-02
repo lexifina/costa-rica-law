@@ -1,4 +1,6 @@
+(Suspendida)
 N° 43642-MAG-MEIC-COMEX
+(Nota de Sinalevi: Mediante resolución N° 002127 del 2 de abril del 2024, del Tribunal Contencioso Administrativo y Civil de Hacienda, Segundo Circuito Judicial, se ordenó suspender los efectos del presente decreto. Conforme el ordinal 30 del Código Procesal Contencioso Administrativo, contra este auto cabe recurso de apelación con efecto devolutivo, para ante el Tribunal de Casación de lo Contencioso-Administrativo.)
 EL PRESIDENTE DE LA REPÚBLICA,
 LA MINISTRA DE AGRICULTURA Y GANADERÍA,
 LOS MINISTROS DE ECONOMÍA, INDUSTRIA
