@@ -1,0 +1,1 @@
+Artículo 5º-Concepto de ambiente de control. Conjunto de factores del ambiente organizacional que deben establecer y mantener el jerarca, los titulares subordinados y demás funcionarios, para permitir el desarrollo de una actitud positiva y de apoyo para el control interno y para una administración escrupulosa.

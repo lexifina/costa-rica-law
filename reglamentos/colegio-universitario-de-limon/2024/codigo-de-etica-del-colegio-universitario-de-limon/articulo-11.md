@@ -1,0 +1,1 @@
+Artículo 11.-Confidencialidad y discreción sobre el trabajo. Los funcionarios de la Auditoría Interna deben mantener reserva y la discreción debidas respecto de la información obtenida durante el proceso de auditoría, y no deberá revelarla a terceros, salvo para los efectos de cumplir con requerimientos de las instancias públicas autorizadas legalmente.

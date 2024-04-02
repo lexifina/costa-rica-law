@@ -1,0 +1,2 @@
+Artículo 9º-Independencia Profesional. Los funcionarios de la Auditoría Interna ejercerán sus atribuciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la administración activa.
+Los informes elaborados deberán ser exactos y objetivos y las conclusiones, por consiguiente, deben basarse exclusivamente en las pruebas y evidencia obtenida y unificadas de acuerdo con las normas de auditoría.

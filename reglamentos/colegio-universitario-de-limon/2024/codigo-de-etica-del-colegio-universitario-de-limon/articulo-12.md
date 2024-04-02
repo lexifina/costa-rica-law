@@ -1,0 +1,1 @@
+Artículo 12.-Ética Profesional. Los funcionarios de la Auditoría Interna deben observar las normas éticas que rigen su profesión, que se caracterizan por valores como integridad, probidad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la administración promueva.

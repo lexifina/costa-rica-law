@@ -1,0 +1,1 @@
+Artículo 4º-Concepto de ambiente ético. Conjunto de factores informales en materia ética vigentes en la organización. Incluye, entre otros factores, los valores compartidos, las creencias, el clima organizacional, el estilo gerencial, los modelos de toma de decisiones, las manifestaciones verbales y los comportamientos de los diferentes miembros de la organización.

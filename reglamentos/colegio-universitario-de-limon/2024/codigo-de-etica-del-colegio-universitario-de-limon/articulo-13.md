@@ -1,0 +1,3 @@
+Artículo 13.-Pericia y debido cuidado profesional. Los trabajos deben cumplirse con pericia y con el debido cuidado profesional.
+a) Pericia: Los funcionarios de la Auditoría Interna deben reunir los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades individuales. El personal de Auditoría Interna, colectivamente, debe reunir u obtener los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades.
+b) Debido cuidado profesional: Los funcionarios de la Auditoría Interna deben cumplir su trabajo con el debido cuidado y la pericia que se esperan de un auditor interno razonablemente prudente y competente. El debido cuidado profesional no implica infalibilidad.

@@ -1,0 +1,12 @@
+Artículo 14.-Otras actitudes a tomar en cuenta por los funcionarios de la Auditoría Interna.
+a) Deben evitar relaciones razonablemente inconvenientes que puedan influir, comprometer o amenazar la capacidad del departamento de auditoría.
+b) Deberán proteger su independencia y evitar cualquier posible conflicto de intereses rechazando regalos, dádivas, comisiones o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, así como honorarios o regalías de cualquier tipo por discursos, conferencias o actividades similares, con excepción de lo permitido por la ley.
+c) No deberán aprovecharse indebidamente de los servicios que presta la institución a la que sirven, en beneficio propio, de familiares o amigos, directa o indirectamente.
+d) Demostrar y practicar una conducta moral y ética.
+e) No deberán participar directa o indirectamente en transacciones financieras, aprovechándose de información confidencial de la cual tengan conocimiento en razón de su cargo, de forma tal que ello les confiera una situación de privilegio de cualquier carácter, para sí, o para terceros, directa o indirectamente.
+f) No deberán llevar a cabo trabajos o actividades, remuneradas o no, que estén en conflicto con sus deberes y responsabilidades en la función pública, o cuyo ejercicio pueda dar motivo de duda razonable sobre la imparcialidad en la toma de decisiones que competen a la persona o a la institución que representa.
+g) No deberán solicitar o aceptar directa o indirectamente regalos, comisiones, premios, donaciones, favores, propinas o beneficios de cualquier tipo. Los presentes dados como símbolo de la amistad de un país, sean de valor artístico, cultural u otro, deben ponerse a la orden de los órganos públicos encargados de su registro y custodia dentro del mes siguiente a su recepción.
+h) Deberán excusarse de participar en actos que ocasionen conflicto de intereses. El funcionario público debe abstenerse razonablemente de participar en cualquier actividad pública, familiar o privada en general, donde pueda existir un conflicto de intereses con respecto a su investidura de servidor público, sea porque puede comprometer su criterio, ocasionar dudas sobre su imparcialidad a una persona razonablemente objetiva, entre otros.
+i) Deberán resguardar, proteger y tutelar los fondos y recursos públicos. Todo acto contrario a tal imperativo debe ser denunciado de inmediato ante las instancias correspondientes.
+j) Deberán denunciar por las vías correspondientes,
+cualquier acto de corrupción.

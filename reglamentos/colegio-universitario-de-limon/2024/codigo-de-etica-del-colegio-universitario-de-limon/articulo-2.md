@@ -1,0 +1,1 @@
+Artículo 2º-Justificación. El auditor y los funcionarios de auditoría, deben establecer y divulgar factores formales orientados a la promoción y el fortalecimiento de la ética institucional, mediante la definición y adopción de un Código de ética o similar.
