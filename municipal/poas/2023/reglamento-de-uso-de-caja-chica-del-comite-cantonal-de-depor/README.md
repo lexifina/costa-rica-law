@@ -14,3 +14,4 @@ Reglamento de uso de caja chica del Comité Cantonal de Deportes y Recreación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-31 | la propia norma |
+| 2 | 2024-04-02 | Reglamento municipal 205 (2024-04-02) |
