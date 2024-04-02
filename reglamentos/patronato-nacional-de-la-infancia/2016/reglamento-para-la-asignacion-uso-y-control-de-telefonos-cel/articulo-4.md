@@ -1,1 +1,0 @@
-Artículo 4°—De la asignación de teléfonos. La Presidencia Ejecutiva comunicará a la Gerencia de Administración la aprobación de la asignación de línea y aparato telefónico para que se realicen las coordinaciones pertinentes con el Departamento Suministro de Bienes.
