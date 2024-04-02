@@ -1,0 +1,1 @@
+Artículo 7º-Se deja sin efecto la Resolución SENASADG-R016-2023 de las ocho horas quince minutos del nueve de marzo del año dos mil veintitrés, publicada en el Diario Oficial La Gaceta N° 79 el 08 de mayo de 2023.
