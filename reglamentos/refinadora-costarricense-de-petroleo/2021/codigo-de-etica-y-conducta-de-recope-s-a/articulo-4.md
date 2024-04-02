@@ -1,7 +1,0 @@
-CAPÍTULO IV
-Incumplimiento de los deberes éticos
-Ante la presencia de un incumplimiento de las conductas estipuladas en este Código, cada una de las personas vinculadas con RECOPE tanto a lo interno (Junta Directiva, Alta Gerencia, titulares subordinados y el resto del personal) como a lo externo (clientes, proveedores, entes reguladores o de supervisión e integrantes de la sociedad civil) deben reportar dicha situación de manera inmediata.
-Las denuncias pueden presentarse directamente ante el Departamento de Cultura y Gestión del Cambio o mediante el correo electrónico confidencial etica.recope@recope.go.cr. En todos los casos las denuncias se canalizarán ante las instancias respectivas conforme a la normativa interna aplicable. Si la denuncia se presentara ante cualquier otra dependencia, ésta la canalizará debidamente respetando el deber de confidencialidad.
-Las denuncias también pueden ser presentadas ante la Auditoría Interna según los procedimientos establecidos al respecto. Si una persona que participa en el proceso de atención de denuncias, conocidas en este procedimiento, tiene algún conflicto de interés o es parte de una denuncia, ya sea como denunciante o persona implicada, deberá recusarse y ser sustituida por alguien más.
-Vigencia
-Aprobado por la Junta Directiva de RECOPE, en la Sesión Ordinaria Número 5246-218, artículo N° 4, celebrada el día siete de julio del 2021, siendo que rige a partir de su publicación en el Diario Oficial La Gaceta.
