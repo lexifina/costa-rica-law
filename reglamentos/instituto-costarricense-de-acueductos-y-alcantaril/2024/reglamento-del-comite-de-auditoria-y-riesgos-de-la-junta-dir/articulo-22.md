@@ -1,0 +1,1 @@
+ARTÍCULO 22: De los votos disidentes. Los miembros del Comité podrán hacer constar en el acta digital su voto contrario al acuerdo tomado, y los motivos que lo justifiquen, mediante lo cual quedarían exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

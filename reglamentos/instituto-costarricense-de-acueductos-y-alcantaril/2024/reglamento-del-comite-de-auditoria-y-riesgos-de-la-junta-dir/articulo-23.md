@@ -1,0 +1,5 @@
+Sección III
+De las actas
+ARTÍCULO 23: De las actas. De cada sesión, se levantará un acta digital que contendrá: la indicación de los miembros asistentes ya sea en presencia física o virtual; el lugar, hora y fecha de la sesión; el orden del día; la transcripción literal, con base en los principios constitucionales de razonabilidad y proporcionalidad y el criterio jurídico n.º PRE-J-2023-04921, de las intervenciones efectuadas en cada uno de los asuntos tratados, con indicación inicial del interventor; el texto del contenido de los acuerdos adoptados, con indicación del nombre del miembro que presentó la moción o el comentario.
+Asimismo, los nombres de los miembros que aprobaron el acuerdo o en su caso, el nombre del miembro, con indicación de las razones que motivan el voto disidente o la abstención.
+En caso de una sesión virtual, deberá indicarse, cuál de los miembros del Comité ha estado presente en forma virtual, mediante qué mecanismo tecnológico se produjo la presencia; y la identificación del lugar en que se encuentra el miembro presente virtualmente.

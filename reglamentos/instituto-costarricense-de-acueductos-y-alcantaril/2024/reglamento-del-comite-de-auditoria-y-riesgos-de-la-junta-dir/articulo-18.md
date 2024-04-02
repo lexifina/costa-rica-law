@@ -1,0 +1,4 @@
+ARTÍCULO 18: De las convocatorias. Las convocatorias de las sesiones, tanto ordinarias como extraordinarias, presenciales o virtuales, serán comunicadas por la Secretaría de Despacho de la Junta Directiva, mediante correo electrónico, previa autorización del orden del día por parte de la Presidencia del Comité.
+La convocatoria a sesiones se realizará teniendo en cuenta los siguientes parámetros:
+Al principio de cada año, el Comité aprobará un calendario de reuniones ordinarias, previa coordinación de la disponibilidad de los miembros. En caso de haber cambios en la agenda planeada, será labor de la Secretaría de Despacho de la Junta Directiva coordinar la logística necesaria.
+El orden del día, la información y expedientes de respaldo, se pondrá a consideración del Comité con mínimo tres (3) días hábiles de antelación para el caso de las sesiones ordinarias; y veinticuatro (24) horas para las sesiones extraordinarias, salvo casos de urgencia.

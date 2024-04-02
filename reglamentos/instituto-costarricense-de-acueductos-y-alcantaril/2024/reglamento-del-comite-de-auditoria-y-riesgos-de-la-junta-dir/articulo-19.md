@@ -1,0 +1,1 @@
+ARTÍCULO 19: De la sede de las sesiones. Las sesiones presenciales/virtuales ordinarias y extraordinarias deberán tener lugar en la sala de sesiones de la Junta Directiva del AyA en la sede central, excepto cuando el Comité haya acordado previamente celebrar sus sesiones en otro recinto.

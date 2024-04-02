@@ -1,0 +1,2 @@
+ARTÍCULO 4: Nombramiento del miembro independiente o externo. Mediante acuerdo, la Junta Directiva nombrará miembros especialistas en diversos campos del conocimiento ya sea independientes o externos a la organización en el Comité, con el fin de reforzar aspectos financieros, contables, de riesgos o de cualquier otra área de especialización.
+El nombramiento será por un periodo de dos años, y puede prorrogarse su nombramiento por periodos iguales o por el plazo que defina la Junta Directiva.

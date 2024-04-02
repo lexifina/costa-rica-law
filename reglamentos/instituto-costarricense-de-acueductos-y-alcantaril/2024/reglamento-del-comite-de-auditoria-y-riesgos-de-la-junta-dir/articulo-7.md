@@ -1,0 +1,1 @@
+ARTÍCULO 7: Sustitución de miembros. En caso de ausencia definitiva o temporal de uno de los miembros del Comité, la Junta Directiva designará a otro miembro para que lo sustituya por el plazo que corresponda.

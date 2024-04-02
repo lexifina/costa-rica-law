@@ -1,0 +1,1 @@
+ARTÍCULO 12: Presidencia del Comité. El Comité elegirá en su seno, por mayoría de votos al presidente, quien estará en el cargo por un periodo de un año pudiendo ser reelecto. Este nombramiento será comunicado a la Junta Directiva.
