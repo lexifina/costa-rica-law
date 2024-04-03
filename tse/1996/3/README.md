@@ -44,3 +44,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 29 | 2019-10-17 | Decreto TSE 20 (2019-10-17) |
 | 30 | 2020-12-16 | Decreto TSE 8 (2020-12-16) |
 | 31 | 2023-06-30 | Decreto TSE 6 (2023-06-30) |
+| 32 | 2024-04-03 | Decreto TSE 2 (2024-04-03) |
