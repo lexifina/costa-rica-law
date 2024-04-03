@@ -1,4 +1,4 @@
-Artículo 6°—Toda propuesta para modificar el manual descriptivo de puesto será elaborada por la DIRCH y elevada a la respectiva gerencia general de cada Entidad del Conglomerado Financiero.
-En caso de que se trate del perfil de un Puesto Clave, o que dependa directamente de la respectiva Junta Directiva, o Director de Área de la Auditoría Interna del Banco, el gerente general procederá a elevarlo a ésta, para su valoración y aprobación. Para la modificación de los perfiles de Director de Auditoría se deberá contar con la autorización del Auditor Interno.
+Artículo 6º-Toda propuesta para modificar el manual descriptivo de puesto será elaborada por la Dirección de Capital Humano y elevada a la respectiva gerencia general de cada Entidad del Conglomerado Financiero.
+En caso de que se trate del perfil del Gerente General Corporativo, los Subgerentes Generales y los Directores Generales, o que dependa directamente de la respectiva Junta Directiva, o Director de Área de la Auditoría Interna del Banco, el gerente general procederá a elevarlo a ésta, para su valoración y aprobación. Para la modificación de los perfiles de Director de Auditoría se deberá contar con la autorización del Auditor Interno a cargo.
 En el caso de los demás perfiles de puestos considerados en el Manual Descriptivo, serán aprobados a nivel de la gerencia general de cada Entidad del Conglomerado Financiero del Banco Popular y de Desarrollo Comunal.
-(Así reformado en sesión N° 5610 del 23 de enero del 2019)
+(Así reformado en sesión N° 6094 del 3 de abril de 2024)
