@@ -14,3 +14,4 @@ Reglamento interno de Investigación Profesional para la acreditación profesion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
+| 2 | 2024-04-04 | Reglamento 1 (2024-04-04) |
