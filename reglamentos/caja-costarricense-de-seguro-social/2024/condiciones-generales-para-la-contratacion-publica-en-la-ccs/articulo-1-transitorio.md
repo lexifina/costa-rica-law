@@ -1,0 +1,2 @@
+Transitorio I.-Los procedimientos de contratación administrativa y contratos iniciados, concluirán con las Condiciones Generales para contratar Bienes y Servicios en la CCSS vigentes al momento del dictado de la decisión de inicio del procedimiento de compra, entendido como la solicitud de contratación en estado completado, incluyendo la determinación de los montos de clausula penal.
+Las presentes Condiciones Generales para la Contratación Pública en la C.C.S.S rigen a partir de su publicación en el diario oficial La Gaceta.
