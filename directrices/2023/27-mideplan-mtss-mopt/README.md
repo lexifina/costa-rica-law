@@ -15,3 +15,4 @@ Instauración del teletrabajo ante la afectación por el desarrollo de proyectos
 | --- | --- | --- |
 | 1 | 2023-11-08 | la propia norma |
 | 2 | 2024-02-07 | Directriz 35 (2024-02-07) |
+| 3 | 2024-04-04 | Directriz 42 (2024-04-04) |
