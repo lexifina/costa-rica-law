@@ -14,3 +14,4 @@ Reglamento de la Comisión de Investigación Profesional Normativa del Proceso d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
+| 2 | 2024-04-04 | Reglamento 1 (2024-04-04) |
