@@ -19,3 +19,4 @@ Metodología tarifaria de referencia para plantas de generación privada hidroel
 | 4 | 2014-03-20 | Resolución 27 (2014-03-20) |
 | 5 | 2016-02-08 | Resolución 17 (2016-02-08) |
 | 6 | 2021-09-28 | Resolución 205 (2021-09-28) |
+| 7 | 2024-04-04 | Resolución 14 (2024-04-04) |
