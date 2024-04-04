@@ -14,8 +14,9 @@ OCTAVO: Que el Código Notarial, Ley N° 7764 y sus reformas, así como el Regla
 NOVENO: Que, según lo dispuesto en la Ley General de la Administración Pública y sus reformas, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas, la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y sus reformas; en concordancia con lo indicado en el artículo 2, inciso f) de la Directriz N° 052-MP-MEIC, la Dirección de Servicios requiere la emisión del presente reglamento, a efecto de actualizar el Catálogo Nacional de Trámites, y así cumplir con el principio de celeridad, simplicidad, eficiencia, revisión y eliminación de trámites y requisitos.
 DÉCIMO: Que de conformidad con lo dispuesto en el informe DMR-DAR-MEM-051- 2020 del 25 de setiembre de 2020, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio, la presente regulación propuesta se encuentra conforme a los términos establecidos en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y sus reformas, Ley N° 8220; así como de su reglamento, Decreto Ejecutivo N° 37045-MPMEIC.
 Por tanto,
-DECRETAN:
-Reglamento de la Dirección de Servicios del Registro Nacional
+(Nota de Sinalevi: El texto de este decreto ejecutivo fue reformado parcialmente y reproducido su texto en forma íntegra, por el artículo 1° del decreto ejecutivo N° 44428 del 4 de abril de 2024, y publicada en el Alcance Digital N° 73 a La Gaceta N° 65 del 12 de abril del 2024, y se transcribe a continuación:)
+REGLAMENTO DE LA DIRECCIÓN DE
+SERVICIOS DEL REGISTRO NACIONAL
 Título primero
 Disposiciones generales
 Capítulo primero

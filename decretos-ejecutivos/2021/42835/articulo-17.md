@@ -1,6 +1,7 @@
-Artículo 17-Sobre los requisitos generales para trámites de instituciones exoneradas.
-Se deberá presentar original y copia del oficio de solicitud impreso por medios electrónicos, que detalle lo siguiente:
+Artículo 17-Sobre los requisitos generales para trámites de instituciones exoneradas. Se deberá presentar original y copia del oficio de solicitud impreso o por medios electrónicos, que detalle lo siguiente:
 a) Exposición clara e inequívoca de los documentos que se solicitan, para su respectiva localización en las bases de datos del RN.
-b) Nombre completo, número de identificación, cargo y firma de la persona física que autoriza el oficio.
-c) Número de teléfono, fax o correo electrónico donde se pueda localizar al funcionario autorizante del documento o a la institución solicitante.
-Para el retiro de la documentación se debe presentar la copia del oficio con la acreditación del recibido.
+b) Nombre completo, número de identificación, cargo y firma (manuscrita o digital) de la persona fisica que autoriza el oficio.
+c) Número de teléfono o correo electrónico donde se pueda localizar a la persona funcionaria autorizante del documento o a la institución solicitante.
+d) Deberá transcribir de forma literal el artículo de ley de la Institución solicitante, donde se haga constar que se encuentra exonerada de tributo o tasa del Registro Nacional, con indicación clara de los efectos legales o administrativos para los cuales se está realizando la solicitud.
+e) En caso de no venir la persona solicitante que suscribe el oficio, se deberá hacer constar en la solicitud, la persona autorizada para el retiro. Dicha persona autorizada para el retiro deberá identificarse plenamente con documento idóneo (cédula de identidad y carné de la Institución) y en caso de que la Institución requiera cambiar el nombre de la persona que se haya autorizado en el oficio de solicitud inicial, deberá hacer llegar la solicitud respectiva digitalmente, o bien, que la nueva persona porte oficio debidamente firmado indicando el cambio de autorizado.
+f) Cuando el trámite se realiza mediante solicitud con firma digital, deberá constar el envío directo del oficio, de un correo Institucional de la Organización solicitante, al correo del Registro Nacional de la sede donde pretende tramitar la gestión, a fin de cumplir con los artículos 9, 10 y 11 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, Ley Nº 8454. Para el retiro de la documentación, se debe presentar la copia del oficio con la acreditación del recibido.

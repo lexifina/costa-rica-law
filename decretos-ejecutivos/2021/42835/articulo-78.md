@@ -1,5 +1,10 @@
-Título tercero
-Disposiciones finales
-Capítulo único
-Derogatorias
-Artículo 78-Del Reglamento de Organización del Registro Público de la Propiedad Mueble, Decreto Ejecutivo N° 26883-J y sus reformas. Se derogan los incisos f), g) y h) del artículo 3; además los artículos 8, 9, 10, 11, 12, 13, 14, 15, 16, 17, 18, 49, 87, 88, 90, 91, 92, 93, 94, 95, 96, 97, 98, 100, 101, 102, 103, 104, 105, 106, 107, 108, 109, 110, 111, 112, 145, 147, 149 y 150.
+Artículo 78-Solicitud y revocatoria del carné para trámites de placas por Instituciones Estatales: Acorde a lo dispuesto en los artículos 61 inciso j) y k) del presente reglamento, las Instituciones Estatales podrán contar con personas autorizadas para realizar el trámite de placas ante el RN, salvo en lo respectivo a las declaraciones juradas, las cuales se regirán por lo dispuesto en el artículo 61 bis.
+Podrá solicitar la autorización, la persona Jerarca, Alcalde, Directora Administrativo o Regional, Oficial mayor, Jefatura de Transportes o Servicios Generales ante el Subproceso de Placas de la DSE o Sedes Regionales, de manera física o digital.
+La solicitud para la emisión de la autorización deberá contener:
+a) Nombre completo, documento de identificación y nombramiento que lo acredita como persona funcionaria de la unidad a la que pertenezca (Persona Jerarca, Alcalde, Directora Administrativa o Regional, Oficial Mayor, Jefatura de Transportes o Servicios Generales), correo electrónico y número telefónico donde se pueda localizar; en caso de remitirse digitalmente deberá contener la firma digital y el estampado de tiempo. Dicha solicitud debe ser en papel membretado de la entidad, con la firma y el sello correspondiente, nombre completo e identificación de la persona autorizada.
+b) El plazo máximo de vigencia será de un año, siempre y cuando se tramite en el mes de enero de cada año, pero si se solicita en cualquier otro momento, este vencerá el 31 de diciembre del año que se solicita.
+c) La persona autorizada deberá presentarse en las ventanillas del Subproceso Placas de la DSE o en la Sede Regional al momento de realizar trámites, con su respectiva identificación.
+d) En caso de que dichas Instituciones quieran dejar sin efecto dicha autorización, la persona Jerarca, Alcalde, Directora Administrativa o Regional, Oficial mayor, Jefatura de Transportes o Servicios Generales, deberán comunicar por escrito al Subproceso de Placas de la DSE o en la Sede Regional, la revocatoria de la autorización dada, cumpliendo con las siguientes formalidades:
+i. Nombre e identificación, cargo de quien solicita la revocatoria de la autorización.
+ii. Nombre y número de identificación de la persona que se le revoca la autorización.
+iii. Fecha de revocatoria de la autorización. Dicha solicitud debe ser en papel membretado, con la firma y el sello correspondiente.

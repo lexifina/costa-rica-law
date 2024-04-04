@@ -1,0 +1,1 @@
+Artículo 61 Bis-Declaración Jurada ante persona funcionaria. Las personas usuarias podrán rendir la declaración jurada ante la persona funcionaria pública, para lo cual deberán cumplir con la norma establecida por la DSE y solo para los casos que la Administración establezca.

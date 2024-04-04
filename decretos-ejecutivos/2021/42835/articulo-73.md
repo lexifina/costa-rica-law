@@ -1,4 +1,4 @@
-Artículo 73-Requisitos para la solicitud de retiro de placas metálicas depositadas por pérdida total. Para realizar este trámite el vehículo automotor no debe tener anotación de desinscripción. La persona usuaria debe:
-a) Haber depositado las placas metálicas antes de la entrada en vigencia de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley N° 9078, sea el 26 de octubre de 2012.
-b) Aportar original y copia de la tarjeta emitida por el CIVE para su confrontación, la cual tiene que estar vigente y haber sido emitida en fecha posterior al depósito por pérdida total, donde se indique como única falta grave para el vehículo automotor la ausencia de placas metálicas.
+Artículo 73-Requisitos para la solicitud de retiro de placas metálicas depositadas por pérdida total. Para realizar este trámite, el automotor no debe tener anotación de desinscripción. La persona usuaria debe:
+a) Haber depositado las placas metálicas antes de la entrada en vigor de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley Nº 9078, sea el 26 de octubre de 2012.
+b) Aportar original y copia de la tarjeta emitida por el Centro de Inspección Técnico Vehicular para su confrontación, la cual debe estar vigente y haber sido emitida en fecha posterior al depósito por pérdida total, donde se indique como única falta grave para el automotor, la ausencia de placas metálicas.
 c) Cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos e), f) e i).

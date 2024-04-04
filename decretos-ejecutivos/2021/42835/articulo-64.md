@@ -1,1 +1,1 @@
-Artículo 64-Requisitos para la reposición de placas metálicas por deterioro. La persona usuaria debe cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos f) e i).
+Artículo 64-Requisitos para solicitud de reposición de placas metálicas por deterioro. La persona usuaria debe cumplir con los requisitos del artículo 61 de este reglamento, excepto lo indicado en sus incisos f) e i). La persona usuaria solicitante, deberá entregar las placas y el DI que desea cambiar, en el momento del retiro de los nuevos dispositivos metálicos y DI.

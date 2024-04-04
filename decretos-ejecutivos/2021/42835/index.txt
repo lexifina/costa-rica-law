@@ -24,6 +24,7 @@ articulo-23.md
 articulo-24.md
 articulo-25.md
 articulo-26.md
+articulo-26-bis.md
 articulo-27.md
 articulo-28.md
 articulo-29.md
@@ -59,6 +60,7 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
 articulo-62.md
 articulo-63.md
 articulo-64.md
@@ -77,5 +79,3 @@ articulo-76.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
-articulo-80.md
-articulo-1-anexo.md

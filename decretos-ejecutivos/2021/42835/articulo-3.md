@@ -1,18 +1,24 @@
 Artículo 3-Definiciones. Para el presente reglamento se aplicarán las siguientes:
-a) Bien inmueble: Es considerado todo bien que esté adherido a la tierra, o unido a los edificios y construcciones, de una manera fija y permanente, así como las servidumbres y demás derechos reales sobre inmuebles, tales como las fincas, lotes u otros como en derecho corresponde.
+a) Bien inmueble: Es considerado por naturaleza las tierras, los edificios y demás construcciones que se hagan en la tierra, también las plantas, mientras estén unidas a la tierra, y los frutos pendientes de las mismas plantas y por disposición de la ley todo lo que esté adherido a la tierra, o unido a los edificios y construcciones, de una manera fija y permanente de igual forma las servidumbres y demás derechos reales sobre inmuebles.
 b) Bien mueble: Son aquellos que pueden trasladarse de un lugar a otro, manteniendo su integridad, tales como los vehículos automotores, buques, motos acuáticas, o aeronaves. Además, de obras literarias o artísticas y producciones conexas.
-c) Certificación registral: En adelante y para efectos de este reglamento denominada certificación. Documento emitido por el RN mediante el cual acredita auténticamente, frente a terceros, hasta el momento de su expedición, la plenitud, limitación o restricción de todo lo que conste en las bases registrales.
-d) Citas de presentación: Tomo, asiento o cualquier número ordinal asignado de manera automática a cada documento ingresado formalmente a la corriente registral.
-e) Convenio: Acuerdo suscrito entre el jerarca competente y una entidad pública o privada.
-f) Dispositivo de identificación: Calcomanía o tercera placa que muestra el número de matrícula asignado al vehículo automotor.
-g) Firma digital: Conjunto de datos adjuntos lógicamente asociados a un documento digital, debidamente autorizados por un certificador registrado de acuerdo a la ley, que permitan verificar su integridad y vincular de forma unívoca y jurídica al autor con el documento.
-h) Formulario: Documento físico o digital, diseñado para que la persona usuaria complete la información requerida en los espacios correspondientes.
-i) Gravamen: Carga u obligación impuesta a un bien o derecho inscrito en el RN.
-j) Matrícula: Número que identifica un bien o derecho inscrito en el RN, tal como el número de finca, placa, VIN, cédula jurídica, registro, plano, el identificador predial o las citas de inscripción.
-k) Número de identificador: Consecutivo asignado a las certificaciones emitidas por el portal digital.
-l) Pago: Cancelación que realiza la persona usuaria de aquellas tarifas, tasas, timbres, derechos o impuestos por la prestación de los servicios del RN, según corresponda.
-m) Persona: Entiéndase como persona física o jurídica.
-n) Portal digital: Sitio oficial de internet del RN, que ofrece a la persona usuaria de forma integrada, fácil, eficaz y segura, el acceso a la información y a los servicios que brinda. La Institución establecerá el medio, sistema, plataforma, interfaz o en general, cualquier otro mecanismo tecnológico, con base en criterios técnicos y de oportunidad.
-o) Servicio de certificaciones para apostillaje: Consiste en la autenticación de la firma del certificador por parte de la persona autorizada ante el Ministerio de Relaciones Exteriores, cuando la certificación se requiera para ser usada en el extranjero.
-p) Titular registral: Persona que figure en las bases de datos del RN como propietario de bienes y derechos inscritos.
-q) Trámite: Acción que se realiza ante las unidades organizativas que conforman la DSE.
+c) Cédula jurídica: Corresponde al número único y unívoco asignado a cada entidad jurídica, para su plena identificación sin posibilidad de confusión, y es el acceso a las bases de datos registrales para la anotación e inscripción del acto o contrato, sin que implique la vigencia de la entidad ni de la personería.
+d) Certificación Literal: En adelante y para efectos de este reglamento denominada certificación. Documento emitido por el RN mediante el cual acredita auténticamente, frente a terceros, hasta el momento de su expedición, la plenitud, limitación o restricción de todo lo que conste en las bases registrales.
+e) Citas de presentación: Tomo, asiento o cualquier número ordinal asignado de manera automática a cada documento ingresado formalmente a la corriente registral.
+f) Convenio: Acuerdo suscrito entre el jerarca competente y una entidad pública o privada.
+g) Dirección General: Órgano encargado de ejecutar las disposiciones que emite la Junta Administrativa, así como, coordinar los esfuerzos institucionales, para el desarrollo del accionar del Registro Nacional.
+h) Dispositivo de identificación: Calcomanía o tercera placa que muestra el número de matrícula asignado al vehículo automotor.
+i) Estudio Registral: Certificación realizada por medio del análisis de datos de la información contenida en los registros manuales para dar publicidad registral.
+j) Firma digital: Conjunto de datos adjuntos lógicamente asociados a un documento digital, debidamente autorizados por un certificador registrado de acuerdo con la ley, que permitan verificar su integridad y vincular de forma unívoca y jurídica al autor con el documento.
+k) Formulario: Documento impreso o digital, diseñado para que la persona usuaria complete la información requerida en los espacios correspondientes.
+l) Gravamen: Carga u obligación impuesta a un bien o derecho inscrito en el RN.
+m) Matrícula: Número que identifica un bien o derecho inscrito en el RN, así como la individualización de la persona jurídica y sus representaciones, tal como el número de finca, placa, VIN, cédula jurídica, registro, plano, el identificador predial, o las citas de inscripción incluyendo según corresponda el consecutivo y secuencia.
+n) Número de identificador: Consecutivo asignado a las certificaciones emitidas por el portal digital. El cual es distinto al número consecutivo otorgado a las estructuras jurídicas no inscribibles en el Registro de Personas Jurídicas.
+o) Pago: Cancelación que realiza la persona usuaria de aquellas tarifas, tasas, timbres, derechos o impuestos por la prestación de los servicios del RN, según corresponda.
+p) Persona Física: Es todo individuo, ser humano sin distinción de género, raza o posición social con capacidad jurídica para actuar como usuario externo o funcionario institucional.
+q) Persona Jurídica: Sujeto de derecho con personalidad jurídica propia, otorgada por Ley o del convenio conforme a la Ley con la debida inscripción, la cual manifiesta su capacidad jurídica y de actuar a través de su personería jurídica, como cualidad otorgada a los representantes legales o apoderados mediante la figura del mandato.
+r) Portal digital: Sitio oficial de internet del RN, que ofrece a la persona usuaria de forma integrada, fácil, eficaz y segura, el acceso a la información y a los servicios que brinda. La Institución establecerá el medio, sistema, plataforma, interfaz o en general, cualquier otro mecanismo tecnológico, con base en criterios técnicos y de oportunidad.
+s) Propiedad Intelectual: Son los derechos sobre las creaciones de la mente, como las invenciones, las obras literarias y artísticas, y los símbolos, nombres e imágenes utilizados en el comercio.
+t) Registros manuales: Todos aquellos registros que consten en los tomos físicos y cuya imagen de digitalización no se visualicen de una manera óptima o legible.
+u) Servicio de certificaciones para apostillaje: Consiste en la autenticación de la firma del certificador, en documento impreso, por parte de la persona autorizada ante el Ministerio de Relaciones Exteriores, cuando la certificación se requiera para ser usada en el extranjero.
+v) Titular registral: Persona que figure en las bases de datos del RN como persona propietaria de bienes y derechos inscritos.
+w) Trámite: Acción que se realiza ante las unidades organizativas que conforman la DSE.
