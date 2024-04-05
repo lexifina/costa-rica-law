@@ -1,0 +1,1 @@
+Artículo 60. Revisión y actualización. Este reglamento deberá ser revisado al menos una vez al año por la Asesoría Jurídica en conjunto con el Departamento de Proveeduría, o cuando sea requerido por cambios operativos y estratégicos de la institución.

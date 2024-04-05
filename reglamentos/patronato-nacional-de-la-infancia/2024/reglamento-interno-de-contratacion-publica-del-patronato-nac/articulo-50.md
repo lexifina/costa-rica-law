@@ -1,0 +1,1 @@
+Artículo 50. Registro de sanciones. El Departamento de Proveeduría comunicará a la Dirección de Contratación Pública, del Ministerio de Hacienda, todas las sanciones impuestas a los particulares, una vez que adquieran firmeza. Además, dicho Departamento deberá publicarlo en el módulo correspondiente dentro del Sistema Digital Unificado.

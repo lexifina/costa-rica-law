@@ -1,0 +1,1 @@
+Artículo 56. Tipo de donaciones. El PANI podrá recibir y otorgar donaciones de bienes muebles e inmuebles (entidades públicas), así como bienes declarados en desuso o mal estado (entidades públicas o privadas declaradas de interés público, social o sin fines de lucro), según lo dispuesto en la Ley General de Contratación Pública y su Reglamento.

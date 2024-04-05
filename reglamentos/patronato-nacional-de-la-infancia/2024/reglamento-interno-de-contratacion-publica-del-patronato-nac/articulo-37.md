@@ -1,0 +1,1 @@
+Artículo 37. Recepción de bienes. Toda recepción de bienes deberá realizarla el Departamento de Servicios Generales por medio de la Bodega Institucional; salvo que en el Pliego de Condiciones se haya dispuesto de forma expresa la recepción por parte de otra unidad o dependencia.

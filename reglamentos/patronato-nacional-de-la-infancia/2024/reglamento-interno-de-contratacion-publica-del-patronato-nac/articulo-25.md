@@ -1,0 +1,7 @@
+Capítulo V. Del Debido Proceso para la Aplicación de Multas y/o Cláusulas Penales y Ejecución de
+Garantías.
+Artículo 25. Aplicación de Multas y/o cláusulas penales y ejecución de garantías. El Departamento de Proveeduría conducirá los procedimientos para la aplicación de multas y o cláusulas penales, observando lo regulado en los artículos 46 y 47 de la Ley General de Contratación Pública y artículos 116 y 117 de su respectivo Reglamento.
+Corresponderá a la unidad solicitante requerir al Departamento de Proveeduría iniciar el procedimiento de aplicación de multas y/o cláusulas penales; aportando toda la información correspondiente para realizar dicha gestión. La unidad solicitante deberá atender la solicitud de información y/o criterio técnico que solicite el Departamento de Proveeduría dentro del plazo conferido por esta.
+Para la ejecución de multas o cláusulas penales, la Administración deberá valorar su costo beneficio y la debida y oportuna satisfacción del interés público, así como criterios de razonabilidad y proporcionalidad, con base en el estudio de costo y beneficio elaborado anualmente por el área de Gestión de Pago, lo cual aplicará para todos los procedimientos, excepto la modalidad entrega según demanda.
+El acto motivado en el cual se disponga la multa y/o cláusula penal tendrá recurso de revocatoria y apelación, el cual deberá ser presentado ante el Departamento de Proveeduría.
+El recurso de revocatoria será resuelto por el Departamento de Proveeduría y la apelación por jerarca de la institución; es decir, la Presidencia Ejecutiva.

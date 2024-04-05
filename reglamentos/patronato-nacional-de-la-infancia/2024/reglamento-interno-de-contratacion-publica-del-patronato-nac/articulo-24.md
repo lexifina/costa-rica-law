@@ -1,0 +1,2 @@
+Artículo 24. Recursos Temerarios. Los recursos temerarios, serán tramitados de acuerdo a lo indicado en los artículos 93 y 94 de la Ley General de Contratación Pública.
+El Departamento de Proveeduría, en caso de considerar que un recurso pueda resultar temerario, deberá emitir un informe el cual trasladará a la Presidencia Ejecutiva, para que valore la conformación del respectivo órgano que continuará con el debido proceso o bien el archivo del mismo y en el caso de ser necesario, la imposición de la multa correspondiente.

@@ -1,0 +1,1 @@
+Artículo 21. Adjudicación compra o venta de un inmueble. Según lo dispuesto en el inciso l) artículo 11 de la Ley Orgánica del PANI, la adjudicación para compra o venta de inmuebles, será facultad de la Junta Directiva.

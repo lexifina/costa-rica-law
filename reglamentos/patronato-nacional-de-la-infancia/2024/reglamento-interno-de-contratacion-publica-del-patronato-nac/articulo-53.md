@@ -1,0 +1,1 @@
+Artículo 53. Resguardo de información en medios electrónicos. El Departamento de Tecnologías de Información deberá disponer del protocolo de seguridad, con roles y responsabilidades que permitan proteger los registros electrónicos de la Planificación Contractual y la Ejecución Presupuestaria en el Sistema de Gestión Administrativa Financiera.

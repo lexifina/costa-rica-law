@@ -1,0 +1,2 @@
+Capítulo XI. Contrataciones de urgencia.
+Artículo 43. Contrataciones de urgencia. La contratación de bienes, servicios u obras, cuando el PANI enfrente una situación que requiere solventar una necesidad urgente, podrán realizarse mediante este procedimiento especial, siempre y cuando se ajusten a lo establecido en el artículo 66 de la Ley N°9986, Ley General de Contratación Pública en concordancia con el artículo 166 de su Reglamento.

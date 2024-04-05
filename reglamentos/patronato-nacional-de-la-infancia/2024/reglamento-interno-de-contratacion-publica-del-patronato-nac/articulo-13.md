@@ -1,0 +1,5 @@
+Artículo 13. Trámite previo al inicio del procedimiento de contratación.
+El Departamento de Administración de Presupuesto debe verificar si la Unidad Solicitante cuenta con los recursos presupuestarios suficientes para enfrentar la erogación respectiva, que la cuenta presupuestaria y el porcentaje del IVA son correctos.
+El Departamento Proveeduría procederá, una vez recibida la solicitud de la unidad solicitante (donde concurran todos los elementos de información necesarios), a tramitar la contratación conforme los procedimientos que establece el marco jurídico correspondiente.
+Asimismo, procurará agrupar por afinidad las necesidades de todas las unidades, de forma que se tramiten conjuntamente, para lograr mejores condiciones de economía de escala.
+El procedimiento de contratación a seguir será de conformidad con los umbrales que disponga la Contraloría General de la República; así como las particularidades del bien, obra o servicio a contratar que permita utilizar procedimientos sin sujeción a los procedimientos ordinarios.

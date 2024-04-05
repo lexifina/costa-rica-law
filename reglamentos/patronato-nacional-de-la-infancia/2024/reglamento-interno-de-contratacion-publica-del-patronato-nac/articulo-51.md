@@ -1,0 +1,4 @@
+Artículo 51. Nulidad Absoluta evidente y manifiesta. En caso de considerar que un acto, tiene vestigios de nulidad absoluta evidente y manifiesta, se procederá de acuerdo a lo establecido en el artículo 247 del Reglamento de Ley General de Contratación Pública, de conformidad con el régimen de nulidades de la Ley N° 6227, Ley General de la Administración Pública.
+El órgano director del procedimiento será nombrado por la Presidencia Ejecutiva y estará integrado como mínimo por una persona colaboradora que ocupe el cargo de Profesional Especialista B con énfasis en Derecho.
+La resolución final será emitida por la Presidencia Ejecutiva.
+Contra la resolución final se podrá interponer recurso de revocatoria y apelación, los cuales serán conocidos, la revocatoria por la Presidencia Ejecutiva y la apelación por la Junta Directiva.

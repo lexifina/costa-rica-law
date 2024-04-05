@@ -1,0 +1,4 @@
+Artículo 19. Límites para la emisión del acto final. La competencia para emitir el acto final, sea de adjudicación, desierto o declaración de infructuoso, lo determina la cuantía del procedimiento, sin perjuicio de la avocación del superior, según lo establecido en el artículo 5 del presente Reglamento.
+Si debe emitirse un nuevo acto producto de una resolución de recurso de apelación o de revocatoria; o bien, por la revocatoria de un acto final no firme, la competencia la definirá los mismos niveles de aprobación supra citados.
+Cuando el acto final corresponda a una declaratoria de infructuosidad derivada de la no presentación de ofertas al concurso, dicho acto lo emitirá el Departamento Proveeduría. Lo anterior sin perjuicio de la avocación de competencia de los órganos superiores hacia los inferiores.
+El presente artículo no aplica para procedimientos de urgencia, el cual se regula en el capítulo correspondiente.

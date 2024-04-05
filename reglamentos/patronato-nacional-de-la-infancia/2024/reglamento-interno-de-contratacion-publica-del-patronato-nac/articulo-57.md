@@ -1,0 +1,1 @@
+Artículo 57. Expediente. El expediente administrativo del procedimiento de donación, contendrá toda la información pertinente al trámite de las acciones ejecutadas por las partes. Dicho expediente administrativo, quedará bajo custodia de la Presidencia Ejecutiva.
