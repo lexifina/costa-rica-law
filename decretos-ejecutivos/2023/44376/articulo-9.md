@@ -1,0 +1,3 @@
+Artículo (9)
+1. Para los fines de implementación de este acuerdo, las autoridades concernientes de ambas partes deben intercambiar, a través de canales diplomáticos, ejemplares de sus pasaportes válidos diplomáticos, especiales y de servicio dentro de (30) treinta días a partir de la fecha en la que este acuerdo fue firmado.
+2. En caso de que ambas partes expidan nuevos pasaportes diplomáticos, especiales y de servicio o que los modifiquen, las autoridades concernientes deben notificar a las autoridades e la otra parte y proveerles ejemplares de sus pasaportes, a través e canales diplomáticos (30) treinta días antes de empezar a utilizar dichos pasaportes.

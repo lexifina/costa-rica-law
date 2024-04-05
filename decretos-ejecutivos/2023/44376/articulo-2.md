@@ -1,0 +1,4 @@
+Artículo (2)
+1. Los portadores de los pasaportes especificados en el Artículo (1) de este acuerdo podrán entrar, salir, cruzar o permanecer en los territorios de la otra parte sin visa de ingreso por un período máximo de 90 días (por una estancia continua o separada) durante un periodo de (180) ciento ochenta días.
+2. No está permitido para los nacionales que ingresen al territorio del otro país, de acuerdo al artículo (1) realizar ningún otro trabajo durante su estadía, excepto de conformidad con las leyes y reglamentos de cada una de las partes.
+3. Los pasaportes especificados en el artículo número 1 no se aplica a los nacionales costarricenses que van a los territorios del Reino de Arabia Saudita para realizar los rituales de Umrah o Hajj (peregrinación mayor y menos a la Meca). Para tal trámite hay que solicitar una visa especial.
