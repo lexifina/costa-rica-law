@@ -1,0 +1,2 @@
+Artículo 2. Rige a partir de esa publicación.
+Dado en la Presidencia de la República. -San José, a los veintisiete días del mes de noviembre del dos mil veintitrés.
