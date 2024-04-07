@@ -1,1 +1,0 @@
-Artículo 18°- Recomendación. Una vez realizado el estudio correspondiente, la Dirección de Administración de Bienes y Servicios, remitirá al Gerente General, el informe correspondiente para su resolución final.

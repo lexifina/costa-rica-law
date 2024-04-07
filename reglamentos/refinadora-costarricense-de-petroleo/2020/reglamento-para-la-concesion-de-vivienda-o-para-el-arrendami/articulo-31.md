@@ -1,1 +1,0 @@
-Artículo 31°- Comunicación para recibo de inmueble propiedad de RECOPE y del menaje básico. La Dirección de Administración de Bienes y Servicios, comunicará por escrito al asignatario la fecha para el recibo de la vivienda propiedad de RECOPE y del menaje básico para la firma del "Acta Administrativa" antes mencionada.

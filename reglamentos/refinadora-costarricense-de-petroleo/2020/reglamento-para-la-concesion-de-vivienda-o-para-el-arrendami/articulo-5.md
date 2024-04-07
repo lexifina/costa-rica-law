@@ -1,3 +1,0 @@
-Artículo 5°- Alcance de los mecanismos. La concesión de vivienda propiedad de RECOPE o el monto para arrendamiento de vivienda, no constituyen salario en especie ni derecho adquirido en favor del trabajador.
-La concesión de vivienda o el monto para arrendamiento, se eliminará en el momento en que se modifiquen las circunstancias que l e dieron origen a su disfrute, sin que proceda por ello indemnización alguna a favor del asignatario, toda vez que no constituye ni salario en especie ni un derecho adquirido.
-La concesión de vivienda o el monto para el arrendamiento, son excluyentes entre sí, por lo que el asignatario no puede gozar de ambos mecanismos simultáneamente.

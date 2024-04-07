@@ -1,1 +1,0 @@
-Artículo 33°- Desalojo administrativo del Inmueble. Si vencido el plazo establecido por la Empresa para la entrega del inmueble propiedad de RECOPE, el asignatario se niega a desocupar la vivienda, la Dirección de Administración de Bienes y Servicios, coordinará de manera inmediata con la Dirección de Asesoría Jurídica, para que se asuman las acciones que legalmente correspondan.

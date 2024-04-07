@@ -1,1 +1,0 @@
-TRANSITORIO PRIMERO. Las personas trabajadoras que a la fecha de entrada en vigencia del presente reglamento gocen de la concesión de vivienda propiedad de RECOPE o de un monto para el arrendamiento de vivienda, mantendrán dichas condiciones, siempre y cuando cumplan con lo dispuesto en este reglamento.

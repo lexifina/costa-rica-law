@@ -1,1 +1,0 @@
-Artículo 3°- Alcance. El presente reglamento aplica para todo el personal de RECOPE que, por interés empresarial, sea trasladado para la prestación de sus servicios a un lugar distinto y distante del lugar de contratación inicial, por lo que aplicará en casos de traslados permanentes y temporales siempre y cuando sean traslados no menores a un período de un mes.

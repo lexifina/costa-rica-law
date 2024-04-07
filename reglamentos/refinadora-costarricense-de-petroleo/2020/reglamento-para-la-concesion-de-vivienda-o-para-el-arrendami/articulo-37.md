@@ -1,1 +1,0 @@
-Artículo 37°- El incumplimiento de las disposiciones establecidas en el presente reglamento o el contrato que se suscriba, se considerará falta disciplinaria de conformidad con lo normativa vigente en la empresa.
