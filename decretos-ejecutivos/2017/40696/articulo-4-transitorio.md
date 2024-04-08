@@ -1,0 +1,2 @@
+Transitorio IV.-Hasta el 8 de mayo de 2026, de forma excepcional, la Jefatura de la Unidad Asesora creada en el artículo 2°, será asumida por la persona que ostente el cargo de Secretario del Consejo de Gobierno dentro de sus funciones, siempre que cumpla con los requisitos para el puesto y no perjudique la eficiencia y eficacia de ninguno de los dos órganos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44438 del 8 de abril de 2024)

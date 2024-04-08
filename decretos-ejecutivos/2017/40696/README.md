@@ -15,3 +15,4 @@ Creación de la Unidad Asesora para la Dirección y Coordinación de la propieda
 | --- | --- | --- |
 | 1 | 2017-10-23 | la propia norma |
 | 2 | 2022-11-15 | Decreto Ejecutivo 43824 (2022-11-15) |
+| 3 | 2024-04-08 | Decreto Ejecutivo 44438 (2024-04-08) |
