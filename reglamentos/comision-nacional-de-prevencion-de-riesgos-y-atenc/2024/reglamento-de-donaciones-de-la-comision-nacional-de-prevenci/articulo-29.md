@@ -1,0 +1,1 @@
+Artículo 29.-Funciones del Comité de donaciones: El Comité será el encargado de recomendar la autorización de donaciones ordinarias de bienes y suministros a favor de instituciones integrantes del Sistema Nacional de Gestión del Riesgo o de instituciones Públicas en general.

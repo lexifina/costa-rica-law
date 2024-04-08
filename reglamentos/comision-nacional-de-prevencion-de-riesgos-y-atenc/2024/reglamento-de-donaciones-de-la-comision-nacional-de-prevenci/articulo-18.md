@@ -1,0 +1,1 @@
+Artículo 18.-De la aceptación o declinación. Tomando como referencia el criterio técnico emitido, la Presidencia institucional remitirá la nota de aceptación o declinación de la donación. La comunicación del acto será tramitada por la URIC.

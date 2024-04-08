@@ -1,0 +1,2 @@
+Artículo 4º-Buena fe. El acto que se llegare a constituir se presume realizado al amparo de la buena fe, razón por la que no se erigirá en obligación comprobar el origen del bien ni la capacidad jurídica del donante, salvo cuando se trate de dinero donde se hace preciso contar con dicha información.
+En los demás casos la CNE podrá prescindir de la comprobación, siempre que no se evidencien elementos que hagan suponer una conducta irregular de parte del donante.

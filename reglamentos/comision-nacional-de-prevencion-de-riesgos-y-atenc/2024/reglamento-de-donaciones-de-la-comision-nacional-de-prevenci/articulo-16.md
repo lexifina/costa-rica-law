@@ -1,0 +1,5 @@
+SECCIÓN II
+De la recepción de donaciones
+internacionales de bienes
+Artículo 16.-Del ofrecimiento de donaciones internacionales. Las donaciones internacionales se recibirán en el marco de la ejecución de un proyecto o iniciativa de cooperación internacional. La Presidencia Institucional o Unidad de Relaciones Internacionales y Cooperación de la CNE (URIC) podrán recibir por parte del cooperante internacional la nota de ofrecimiento de los insumos o bienes que se donarán de acuerdo con lo establecido en el documento del proyecto de cooperación existente. Esta nota debe contener las especificaciones técnicas de lo que se recibirá, así como indicar el beneficiario final.
+En lo casos que la donación sea dirigida a una institución diferente a la CNE, sólo se podrá hacer el trámite si esta institución pertenece al Sistema Nacional de Gestión del Riesgo y con base en que el Proyecto de Cooperación vincula la donación con las facultades propias de la CNE como ente rector de dicho Sistema y sus competencias ordinarias y extraordinarias.

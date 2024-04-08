@@ -1,0 +1,1 @@
+Artículo 12.-De la Aceptación. El Órgano competente, según lo establecido en el artículo 5 del presente reglamento, valorará el informe técnico y emitirá en un plazo no mayor a tres días hábiles, la comunicación de aceptación o rechazo de la donación. En caso de apartarse del criterio técnico deberá justificarlo.

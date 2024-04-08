@@ -1,0 +1,1 @@
+Artículo 10.-De la valoración. La Administración designará a una Unidad competente de la CNE para valorar la conveniencia técnica, legal u operacional de recibir los bienes ofrecidos en donación. Esta Unidad deberá en un plazo no mayor de cinco días hábiles a partir de su designación remitir un informe al Órgano competente en el cual recomienda o descarta la donación ofrecida.
