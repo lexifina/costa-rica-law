@@ -1,0 +1,1 @@
+Artículo 18.-Cualquiera de los miembros de la Comisión, podrá interponer recurso de revisión, contra los acuerdos dictados, en cuyo caso será interpuesto y resuelto antes de la lectura del acta durante la misma sesión.

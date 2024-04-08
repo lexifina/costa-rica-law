@@ -1,0 +1,1 @@
+Artículo 14.-Las actas se aprobarán y firmarán el mismo día de la sesión o cuando la Comisión vuelva a sesionar. Para tal efecto, el informe técnico del área solicitante deberá someterse a conocimiento de todos los miembros de la Comisión, con al menos veinticuatro horas de antelación a la sesión.

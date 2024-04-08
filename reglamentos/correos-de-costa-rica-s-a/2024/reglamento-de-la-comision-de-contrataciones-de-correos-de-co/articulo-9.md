@@ -1,0 +1,1 @@
+Artículo 9º-En caso de ausencia o enfermedad del secretario(a), en las sesiones ordinarias o extraordinarias, será sustituido por un representante asignado por la Gerencia de Administración y Finanzas, quien asumirá los deberes inherentes al cargo de secretario (a) por el tiempo de su ausencia.

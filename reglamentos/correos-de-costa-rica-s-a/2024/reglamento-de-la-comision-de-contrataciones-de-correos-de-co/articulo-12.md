@@ -1,0 +1,1 @@
+Artículo 12.-Las sesiones tanto ordinarias como extraordinarias se realizarán en forma privada, salvo que, por mayoría de la Comisión, se acuerde permitir el acceso a algún grupo o persona específica, a los cuales se les podrá conceder el derecho a participar en las deliberaciones con voz, pero sin voto. Las sesiones se realizarán de manera virtual y de forma presencial.

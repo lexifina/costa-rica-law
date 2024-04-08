@@ -1,0 +1,1 @@
+Artículo 22.-Este reglamento deja sin efecto cualquier otra normativa, directriz, lineamiento o circular de rango igual o inferior que se le oponga. Únicamente podrá modificarse lo aquí dispuesto a través de una reforma a este reglamento, que deberá ser aprobada por la Junta Directiva. Este reglamento regirá a partir de su publicación en el Diario Oficial La Gaceta.
