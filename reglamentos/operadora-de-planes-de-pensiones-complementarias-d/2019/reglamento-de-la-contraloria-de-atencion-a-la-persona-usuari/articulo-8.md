@@ -1,1 +1,1 @@
-Artículo 8º—Requisitos de nombramiento: Los requisitos de nombramiento de la persona Contralora de Atención a la persona usuaria en Popular Pensiones, serán los establecidos en el Manual de Puestos respectivo.
+Artículo 8º—Requisitos de Nombramiento: Los requisitos de nombramiento de la persona contralora de atención a la Persona Usuaria en Popular Pensiones serán los establecidos en el Manual de Puestos respectivo.

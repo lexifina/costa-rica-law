@@ -1,4 +1,2 @@
-CAPÍTULO V
-Coordinación con otras instancias
-Artículo 14.—Apoyo Institucional: Para el cumplimiento de sus funciones, la Contraloría de Atención a la persona usuaria recibirá el apoyo de todas Direcciones de Popular Pensiones.
-El personal de la Contraloría de Atención a la persona usuaria deberá guardar la confidencialidad de la información y de los documentos que le brinden las diversas Direcciones para la atención de las inconformidades que se reciban.
+Artículo 14.—Obligatoriedad de Respuesta: Es obligación de todas las instancias y de los colaboradores de Popular Pensiones contestar, con la mayor brevedad posible, cualquier gestión que formulare la Contraloría de Atención a la Persona Usuaria. En ningún caso el plazo de respuesta podrá ser superior al establecido en los procedimientos internos.
+La negativa o negligencia de la instancia o colaborador de informar a Contraloría de Atención a la Persona Usuaria ante su requerimiento, así como el incumplimiento injustificado del plazo de respuesta, deberá ser informado por ésta a la Gerencia de Popular Pensiones para que proceda de conformidad con la normativa pertinente. (Ref: Acuerdo JDPP-738-Acd-229-2024-Art-11.)

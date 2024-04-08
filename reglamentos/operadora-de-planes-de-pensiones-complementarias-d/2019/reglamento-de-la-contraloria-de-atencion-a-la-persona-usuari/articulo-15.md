@@ -1,3 +1,0 @@
-Artículo 15.—Responsabilidad Disciplinaria: Es obligación de todas las instancias y los colaboradores de Popular Pensiones contestar a la mayor brevedad posible, cualquier gestión que formulare la Contraloría de Atención a la Persona Usuaria. En ningún caso el plazo de respuesta podrá ser superior al establecido en los procedimientos internos.
-La negativa o negligencia de la instancia o colaborador de informar a Contraloría de Atención a la Persona Usuaria ante su requerimiento, así como el incumplimiento injustificado del plazo de respuesta, serán causas generadoras de responsabilidad disciplinaria, de conformidad con la normativa pertinente.
-Este Reglamento rige a partir de su publicación y deroga cualquier versión anterior. JDPP-562-Acd-219-2019Art-12.

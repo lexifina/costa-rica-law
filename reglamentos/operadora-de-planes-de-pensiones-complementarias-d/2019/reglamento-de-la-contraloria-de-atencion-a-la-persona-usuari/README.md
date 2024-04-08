@@ -14,3 +14,4 @@ Reglamento de la contraloría de atención a la persona usuaria de la operadora 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-02 | la propia norma |
+| 2 | 2024-04-08 | Reglamento 738 (2024-04-08) |
