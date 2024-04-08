@@ -1,2 +1,1 @@
-Artículo No 13_ Potestades
-El Auditor Interno y sus asistentes cuentas con las atribuciones otorgadas por el artículo 33 de la Ley General de Control Interno para el cumplimiento de su misión, deberes y funciones, mismas que fueron señaladas en el artículo 3 de este reglamento como parte de la definición de autoridad de la Auditoría Interna.
+Artículo 13.-Suspensión o destitución del Auditor Interno. La suspensión o destitución del auditor interno sólo procede por justa causa, y únicamente puede dictarlas la Junta Directiva, en condición de órgano decisor, con observancia de los procedimientos que garanticen el debido proceso y previa obtención del dictamen favorable de la Contraloría General.

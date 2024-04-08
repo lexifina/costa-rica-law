@@ -1,6 +1,2 @@
-Artículo No 25_ Etapas del proceso
-Según las Directrices para la autoevaluación anual y la evaluación externa de la calidad de las auditorías internas del Sector Público la autoevaluación comprende las siguientes etapas:
-a) Planificación de la autoevaluación anual.
-b) Ejecución de procedimientos de verificación.
-c) Comunicación de resultados.
-d) Seguimiento de la implementación del plan de mejora.
+Artículo 25.-Seguimiento de recomendaciones. La Auditoría Interna debe realizar un seguimiento de las recomendaciones emitidas y la respectiva implementación por parte de la administración, al respecto deben presentarse informes semestrales al Comité de Auditoría y a la Junta Directiva.
+Por otra parte, debe realizar un seguimiento anual sobre las recomendaciones y disposiciones emitidas por la Auditoría Externa y órganos externos de fiscalización y control.

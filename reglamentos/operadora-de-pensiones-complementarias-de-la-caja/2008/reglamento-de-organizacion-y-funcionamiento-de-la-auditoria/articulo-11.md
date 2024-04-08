@@ -1,4 +1,10 @@
-Capítulo III
-Funcionamiento de la Auditoría Interna
-Artículo No 11_ Competencias
-Las competencias de la Auditoría Interna se establecen conforme lo señalado por la Ley General de Control Interno en su artículo 22, además de otra normativa legal y técnica aplicable, contenida en el marco regulatorio señalado en el artículo 5 de este reglamento, pero teniendo en cuentas las prohibiciones descritas por la misma Ley.
+Artículo 11.-Designaciones temporales del Auditor Interno. En el caso que el Auditor Interno se ausentara de manera temporal, la Junta Directiva puede designar un recargo o una sustitución. La designación respectiva deberá seguir el siguiente orden a) funcionario de la auditoría interna o, en su defecto, b) en un funcionario externo a la unidad.
+El recargo o sustitución podrán hacerse por el tiempo de la ausencia del Auditor Interno, excepto si se determina que la duración de esa ausencia justifica el nombramiento de un auditor interno interino, si esto ocurre cesará el recargo o la sustitución.
+Cuando la ausencia de Auditor Interno sea permanente, se deberá realizar un nombramiento interino, no obstante, durante el tiempo que requiera la Junta Directiva para realizar dicho nombramiento interino, este cuerpo colegiado podrá recurrir al recargo o sustitución según el orden especificado anteriormente.
+La suma del periodo de recargo, sustitución y nombramiento interino no puede exceder los doce meses.
+La designación temporal del Auditor Interno se regirá por las siguientes disposiciones:
+a) La ausencia, por vacaciones, capacitación, o incapacidad hasta por quince días, no requieren designaciones temporales del Auditor Interno.
+b) Cuando la ausencia sea por un periodo superior de 15 días y menor o igual a un mes, se aplicará el plan de sucesión definido por la OPC-CCSS.
+c) En caso de que la ausencia sea superior a un mes y hasta el tiempo que dure, se aplicará el mecanismo de recargo o sustitución.
+d) Cuando la ausencia sea permanente, la Junta Directiva de la OPC-CCSS realizará un nombramiento interino hasta por el plazo máximo de un año. Durante el tiempo que requiera el cuerpo colegiado para hacer el nombramiento interino, podrá recurrir al recargo sustitución. Hecho el nombramiento interino cesarán los recargos o sustituciones.
+El monto de remuneración por recargo o sustitución del Auditor Interno será determinado de acuerdo con lo que se defina en la Políticas de la OPC-CCSS.

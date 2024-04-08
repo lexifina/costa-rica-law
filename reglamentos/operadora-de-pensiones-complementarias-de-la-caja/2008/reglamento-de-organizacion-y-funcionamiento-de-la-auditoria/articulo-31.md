@@ -1,5 +1,3 @@
-CAPITULO VI
-Disposiciones Finales
-Artículo No_ 31 Promulgación y divulgación del Reglamento.
-El Reglamento de Organización y Funcionamiento de la Auditoría Interna de la OPC CCSS S.A., una vez aprobado por la Contraloría General de la República se publicará en el Diario Oficial La Gaceta. Además, en el ámbito institucional se publicará en el Sistema de Gestión de Calidad.
-Ningún funcionario de la OPC CCSS S.A. puede alegar desconocimiento del presente Reglamento, quedando como obligación y responsabilidad de los diferentes niveles jerárquicos de la Administración Activa de la Operadora, informar al personal a su cargo sobre el mismo.
+Artículo 31.-Comunicación de resultados. Los resultados de la autoevaluación anual de la Auditoría Interna de la OPC CCSS S.A. deben ser comunicados de forma verbal y escrita, mediante un informe y con su respectivo plan de mejora.
+El informe y el plan de mejora serán de conocimiento para los funcionarios de la Auditoría Interna, además, comunicarse al Comité de Auditoría y posteriormente a la Junta Directiva de la OPC CCSS S.A.
+El plan de mejora debe ser formulado por la Auditoría Interna y en él se plasman las acciones concretas para fortalecer las debilidades detectadas en la autoevaluación, con los responsables, plazos y el seguimiento respectivo.

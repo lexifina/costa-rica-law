@@ -15,3 +15,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de la Oper
 | --- | --- | --- |
 | 1 | 2008-04-29 | la propia norma |
 | 2 | 2023-04-19 | Reglamento 1330 (2023-04-19) |
+| 3 | 2024-04-08 | Reglamento 1372 (2024-04-08) |

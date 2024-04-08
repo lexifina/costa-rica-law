@@ -1,3 +1,2 @@
-Artículo No 7_ Estrategia de la Auditoría Interna de la OPC CCSS
-La Auditoría Interna dispone de un Plan Estratégico que se alinea con los objetivos institucionales, además de velar porque se efectúe la actualización de su visión, misión, objetivos y políticas que rigen su accionar, aplicando la ética en sus relaciones tanto a lo interno como a lo externo de la Operadora.
+Artículo 7º-Estrategia de la Auditoría Interna de la OPC CCSS. La Auditoría Interna dispone de un Plan Estratégico que se alinea con los objetivos institucionales, además de velar porque se efectúe la actualización de su visión, misión, objetivos y políticas que rigen su accionar, aplicando la ética en sus relaciones tanto a lo interno como a lo externo de la Operadora.
 De igual forma mantiene valores alineados con los institucionales y aquellos propios de su profesión, marcando un referente en la conducta de los colaboradores del área.

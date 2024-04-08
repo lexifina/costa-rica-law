@@ -1,2 +1,5 @@
-Artículo No 30_ Implementación de recomendaciones
-Es responsabilidad de la Administración la adopción de las acciones que aseguren y permitan la efectiva, eficiente y oportuna implantación de las recomendaciones emitidas por la Auditoría Interna, Externa, SUPEN y la Contraloría General de la República con base en lo dispuesto en el artículo 12 de la Ley General de Control Interno, en el cual se plasman otros deberes del jerarca y de la administración.
+Artículo 30.-Etapas del proceso. Según las Directrices para la autoevaluación anual y la evaluación externa de la calidad de las auditorías internas del Sector Público la autoevaluación comprende las siguientes etapas:
+a) Planificación de la autoevaluación anual.
+b) Ejecución de procedimientos de verificación.
+c) Comunicación de resultados.
+d) Seguimiento de la implementación del plan de mejora.
