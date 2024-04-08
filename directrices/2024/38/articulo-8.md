@@ -1,0 +1,1 @@
+Artículo 8º-Se autoriza a todas las instituciones de la Administración Pública, centralizada y descentrc;1lizada, a fin de que aporten los recursos logísticos, económicos y recurso humano suficientes para implementar la presente directriz.

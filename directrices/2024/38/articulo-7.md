@@ -1,0 +1,1 @@
+Artículo 7º- De ser necesario se habilitará el paso de manera pública de personas y vehículos livianos, carga liviana y de carga no articulados a través de caminos que se encuentran en propiedades privadas, con la respectiva autorización de sus propietarios.

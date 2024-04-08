@@ -1,0 +1,1 @@
+Artículo 9º- Debido a la necesidad imperante que afectará a las poblaciones cercanas, se les invita a los diferentes sujetos de Derecho Privado, que puedan aportar recursos logísticos que facilite el traslado de las personas y vehículos de transporte público remunerado, que se acerquen al Ministerio de Obras Públicas y Transportes para realizar las coordinaciones pertinentes.

@@ -1,0 +1,1 @@
+Artículo 10º-Todo lo anterior desde el primero de abril de dos mil veinticuatro y hasta el primero de agosto de dos mil veinticuatro o hasta que las reparaciones al puente la Amistad sobre el río Tempisque hayan finalizado y habilitado el tránsito sobre dicha obra.
