@@ -1,0 +1,1 @@
+Artículo 15.-La Comisión deberá, en forma obligatoria, presentar en los meses de julio y febrero ante el Concejo Municipal, un informe completo de las labores realizadas, así como las pendientes de resolver.

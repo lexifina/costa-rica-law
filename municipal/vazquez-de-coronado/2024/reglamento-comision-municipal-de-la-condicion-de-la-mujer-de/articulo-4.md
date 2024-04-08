@@ -1,0 +1,1 @@
+Artículo 4º-Velar que, en las necesidades presupuestarias anuales presentadas por la administración activa municipal ante el Concejo Municipal, se establezcan los recursos financieros idóneos para la ejecución de acciones a favor de la población cantonal presentadas por la OFIM y que sean incluidas en el Plan Anual Operativo Municipal.
