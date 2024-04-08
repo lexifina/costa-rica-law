@@ -1,6 +1,7 @@
 (Suspendida)
 CIRCULAR N° 333-2023
 (Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
+(Nota de Sinalevi: Mediante circular N° 72-2024 del 8 de abril de 2024, se acordó modificar la presente norma en el entendido que los Juzgados Penales Juveniles de San José, dado el modelo de tramitación, se autoriza a cada persona juzgadora la posibilidad de trabajar un día a la semana en la modalidad de teletrabajo.")
 Asunto: Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Penal y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA PENAL
 SE LES HACE SABER QUE:
@@ -9,20 +10,21 @@ Los despachos unipersonales, en atención al buen servicio público, no podrán 
 De conformidad con lo expuesto por la Comisión de la Jurisdicción Penal, en oficio N° CJP1022023 del 20 de julio de 2023 y en oficio CJP127-2023 del 31 de octubre de 2023, no podrán teletrabajar las personas juzgadoras penales, de trámite, coordinadoras, de la etapa de juicio y las que laboran en materia contravencional. Solamente podrán teletrabajar los días que se dispuso en el informe PJ-DGHPT-0099 -2023, los jueces y juezas de ejecución de sentencia y los de los Tribunales de Apelación de Sentencia. Lo anterior de conformidad con la siguiente tabla:
 Despachos | Cantida d de Despach os | Cantid ad de jueces y juezas adscrit os | Cantida d de días presencial propues tos | Cantidad de días teletrabaja bles propuestos | Observacio nes
 Juzgados Contravencionales Especializados | 12 | 11 juzgad os con 1 y uno con 2 | 5 | 0 | La mayoría son unipersonal es y realizan audiencias y juicios que por regla
-| | | | | deben ser presenciales
-Juzgados Contravenciones y Tránsito | 4 | De 1 a 2 | 5 | 0 | La mayoría son unipersonal es y realizan audiencias y juicios que por regla deben ser presenciales
-Juzgados Contravenciones y Trabajo | 1 | 1 | 5 | 0 | Juzgado unipersonal, realizan audiencias y juicios que por regla deben ser presenciales
-Juzgados de Ejecución de la Pena | 8 | De 1 a 7 | 5 | 0 | 6 despachos son unipersonales A Excepción de: Juzgado Ejecución de La Pena de Alajuela (Penal) y Juzgado Ejecución De La Pena de San José (Penal), que podrán trabajar 2 días presenciales y 3 en teletrabajo
-Juzgados Penales | 42 | De 1 a 14 | 5 | 0 | Realizan audiencias que por regla deben ser presenciales, y se atienden diligencias de urgencia como allanamientos y levantamientos de cuerpos.
-Tribunales Penales | 15 | De 1 a 36 | 5 | 0 | Realizan audiencias y juicios que por regla deben ser presenciales
-Tribunal de Apelación de Sentencia Penal | 4 | De 7 a 19 | 1 | 4 | No realizan, audiencias ni juicios
-Tribunal Penal de Apelaciones Especializado en Delincuencia Organizada | 1 | 7 | 1 | 4 | No realizan, audiencias ni juicios
-Tribunales Penales y de Flagrancias | 12 | De 6 a 19 | 5 | 0 | El proceso es 100% oral Hacen mediante audiencias y juicios que por regla son presenciales
-Juzgados Especializados Penal Juvenil | 13 | De 1 a 5 | 5 | 0 | Realizan audiencias y juicios presenciales , un factor importante es que la
-| | | | | población que atienden es menor de edad
-Juzgado Ejecución de las Sanciones Penales Juveniles (Penal Juvenil | 1 | 4 | 2 | 3 | Dada la dinámica de trabajo que tienen y la operatividad del despacho
-Tribunal de Apelación de Sentencia Penal Juvenil | 1 | 7 | 1 | 4 | No realizan, audiencias ni juicios
-Juzgados Especializados de Tránsito | 14 | De 1 a 6 | 5 | 0 | Realizan audiencias y juicios presenciales
+| | | | | deben ser presenciales |
+Juzgados Contravenciones y Tránsito | 4 | De 1 a 2 | 5 | 0 | La mayoría son unipersonal es y realizan audiencias y juicios que por regla deben ser presenciales |
+Juzgados Contravenciones y Trabajo | 1 | 1 | 5 | 0 | Juzgado unipersonal, realizan audiencias y juicios que por regla deben ser presenciales |
+Juzgados de Ejecución de la Pena | 8 | De 1 a 7 | 5 | 0 | 6 despachos son unipersonales A Excepción de: Juzgado Ejecución de La Pena de Alajuela (Penal) y Juzgado Ejecución De La Pena de San José (Penal), que podrán trabajar 2 días presenciales y 3 en teletrabajo |
+Juzgados Penales | 42 | De 1 a 14 | 5 | 0 | Realizan audiencias que por regla deben ser presenciales, y se atienden diligencias de urgencia como allanamientos y levantamientos de cuerpos. |
+Tribunales Penales | 15 | De 1 a 36 | 5 | 0 | Realizan audiencias y juicios que por regla deben ser presenciales |
+Tribunal de Apelación de Sentencia Penal | 4 | De 7 a 19 | 1 | 4 | No realizan, audiencias ni juicios |
+Tribunal Penal de Apelaciones Especializado en Delincuencia Organizada | 1 | 7 | 1 | 4 | No realizan, audiencias ni juicios |
+Tribunales Penales y de Flagrancias | 12 | De 6 a 19 | 5 | 0 | El proceso es 100% oral Hacen mediante audiencias y juicios que por regla son presenciales |
+Juzgados Especializados Penal Juvenil | 13 | De 1 a 5 | 5 | 0 | Realizan audiencias y juicios presenciales , un factor importante es que la |
+| | | | | población que atienden es menor de edad |
+Juzgado Ejecución de las Sanciones Penales Juveniles (Penal Juvenil | 1 | 4 | 2 | 3 | Dada la dinámica de trabajo que tienen y la operatividad del despacho |
+Tribunal de Apelación de Sentencia Penal Juvenil | 1 | 7 | 1 | 4 | No realizan, audiencias ni juicios |
+Juzgados Especializados de Tránsito | 14 | De 1 a 6 | 5 | 0 | Realizan audiencias y juicios presenciales |
+| | | | | | | | | | | | | | | | |
 Para los efectos del teletrabajo en las clases de puesto de Técnico Judicial y Coordinador Judicial, esta debe ser valorada por cada Juez o Jueza Coordinadora en función de la dinámica del despacho y del buen servicio público a excepción de la jurisdicción laboral, en razón del criterio de la Comisión que indica que los coordinadores judiciales deben laboral de manera presencial.
 Con respecto al teletrabajo de las juezas y jueces supernumerarios, se establece lo siguiente:
 "a) El grupo de jueces y juezas que es administrado en forma directa por la Presidencia de la Corte a través del Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional, y que están abocados a atender planes de descongestionamiento, en donde la principal tarea y la que abarca la mayoría del tiempo es la redacción de fallos, pueden laborar en la modalidad de teletrabajo 4 días a la semana.
