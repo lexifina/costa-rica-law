@@ -1,1 +1,0 @@
-Artículo 2º- Deróguese el Decreto Ejecutivo número 44239-H de fecha 18 de octubre de 2023, publicado en La Gaceta número 201 de fecha 31 de octubre de 2023, a partir de la vigencia del presente decreto.
