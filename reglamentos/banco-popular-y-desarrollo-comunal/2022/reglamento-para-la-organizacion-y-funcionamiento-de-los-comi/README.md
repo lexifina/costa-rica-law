@@ -20,3 +20,4 @@ Reglamento para la organización y funcionamiento de los comités y comisiones d
 | 5 | 2023-02-22 | Reglamento 5980 (2023-02-22) |
 | 6 | 2023-07-12 | Reglamento 6022 (2023-07-12) |
 | 7 | 2023-07-19 | Reglamento 6024 (2023-07-19) |
+| 8 | 2024-04-09 | Reglamento 6095 (2024-04-09) |
