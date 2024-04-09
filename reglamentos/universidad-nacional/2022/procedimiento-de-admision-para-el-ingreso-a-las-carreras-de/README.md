@@ -14,3 +14,4 @@ Procedimiento de admisión para el ingreso a las carreras de grado de la Univers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-05 | la propia norma |
+| 2 | 2024-04-09 | Reglamento 0 (2024-04-09) |
