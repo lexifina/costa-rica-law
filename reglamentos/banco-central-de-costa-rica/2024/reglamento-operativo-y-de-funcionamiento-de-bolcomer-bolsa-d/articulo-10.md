@@ -1,0 +1,2 @@
+Artículo 10. Gobierno Corporativo
+Bolcomer contará con un sistema de toma de decisiones por el cual la organización se dirigirá hacia el cumplimiento de sus objetivos, controlará los recursos utilizados y buscará la mejoría constante. Este proceso implica la coordinación de las relaciones entre los accionistas, la Junta Directiva, la Gerencia y los organismos de control. Los principios que guiarán el Gobierno Corporativo de Bolcomer son: Transparencia, Idoneidad, Equidad, Rendición de Cuentas y Responsabilidad Corporativa.

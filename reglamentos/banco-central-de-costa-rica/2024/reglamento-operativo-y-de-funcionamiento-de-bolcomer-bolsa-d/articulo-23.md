@@ -1,0 +1,2 @@
+Artículo 23. Contrato
+El interesado deberá suscribir un contrato con Bolcomer mediante el cual manifiesteconocer y aceptar el marco normativo que regula a Bolcomer, las disposiciones de la JuntaDirectiva y los demás departamentos de la Bolsa. Asimismo, el interesado deberá comprometerse al cumplimiento de las disposiciones, reglamentos y acuerdos que dicte Bolcomer, y en general, a respetar el ordenamiento jurídico de Costa Rica.

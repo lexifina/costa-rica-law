@@ -1,0 +1,2 @@
+Artículo 64. De las comunicaciones en las ruedas extraordinarias
+Los puestos de bolsa tendrán la obligación de comunicar y advertir a sus clientes sobre la naturaleza de estas operaciones, en particular, en relación con el contenido de los mandatos de transacción respectivos, que deberán contener una advertencia expresa a los clientes sobre le exclusión de responsabilidad de Bolcomer en torno a la calidad y cantidad de información que se suministre para la realización de las operaciones.

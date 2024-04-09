@@ -1,0 +1,3 @@
+Artículo 62. Responsabilidad exclusiva de las partes
+Los contratos de Bolsa que se realicen en el marco de las Ruedas Extraordinarias se harán al amparo del artículo 406 del Código de Comercio, bajo la exclusiva responsabilidad de las partes, en cuanto a la información disponible sobre el bien negociado, su estado, conservación, calidad, precio y demás características.
+Bolcomer no asumirá ninguna responsabilidad por las negociaciones realizadas en este tipo de Ruedas, recayendo en los puestos contratantes la obligación de constatar la información que sirve de base a la negociación. Esta condición deberá constar expresamente en los mandatos de transacción, así como en los contratos de operación.

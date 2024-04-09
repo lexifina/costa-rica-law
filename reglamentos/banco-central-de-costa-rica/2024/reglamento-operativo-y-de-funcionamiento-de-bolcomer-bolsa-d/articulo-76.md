@@ -1,0 +1,3 @@
+Artículo 76. Reglamentos sancionatorio y disciplinario
+La Junta Directiva de Bolcomer dictará un reglamento sancionatorio que abarcará las conductas prohibidas y las sanciones correlativas a esas conductas, aplicables a los puestos de bolsa y agentes de bolsa; además, dictará un reglamento disciplinario para ejercer la disciplina y corregir las faltas cometidas por los colaboradores de la bolsa y la Gerencia de Bolcomer.
+En el caso de los miembros de la Junta Directiva de la Bolsa, las faltas serán conocidas y sancionadas por la Asamblea de Accionistas de Bolcomer, previo informe del Comité Disciplinario y en atención al régimen de confianza que caracteriza su relación.

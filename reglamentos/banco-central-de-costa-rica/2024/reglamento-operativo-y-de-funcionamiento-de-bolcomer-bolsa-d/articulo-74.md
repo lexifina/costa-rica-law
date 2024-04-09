@@ -1,0 +1,2 @@
+Artículo 74. Funciones del Comité Disciplinario
+Corresponde al Comité Disciplinario llevar a cabo la instrucción de los procedimientos sancionatorios cuya apertura ordene la Junta Directiva de Bolcomer, los que concluirán con un informe con los hechos probados y no probados resultantes de la investigación, así como un análisis de las posibles faltas cometidas y las sanciones que le correspondan en caso de existir. Este informe se remitirá a la Junta Directiva de Bolcomer para ser considerado en la resolución del asunto.
