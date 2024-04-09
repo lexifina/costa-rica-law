@@ -1,0 +1,10 @@
+Artículo 14.-Recepción de la denuncia. La denuncia se podrá presentar de forma escrita ante el Departamento Legal, la que la remitirá de forma inmediata al Alcalde para la conformación del órgano director. La denuncia podrá tomarse de manera verbal por el Departamento Legal únicamente cuando el funcionario no sepa leer ni escribir; y al efecto se levantará un acta de denuncia. En caso de que el denunciado (a) por acoso laboral sea el Abogado del Departamento Legal, dicha oficina no podrá tramitar la denuncia, ni ninguno de sus colaboradores podrá ser parte del órgano director. En este supuesto, la denuncia se recibirá directamente en la Alcaldía Municipal, y el Alcalde designará a las personas que conformarán dicho órgano.
+En todo caso, la denuncia por acoso laboral deberá indicar y/o contener como mínimo lo siguiente:
+1. Nombre y calidades de la persona denunciante, así como su cargo y la oficina en la que labora;
+2. El nombre completo de la persona denunciada, así como la oficina en la que labora y el cargo que ocupa;
+3. Descripción detallada de los hechos que se denuncian;
+4. Ofrecimiento de toda la prueba documental y testimonial con que cuente la persona denunciante, con relación a los hechos reportados;
+5. Ofrecimiento de medio idóneo para recibir las notificaciones pertinentes al caso. En el supuesto de que dicho medio no sea aportado o bien, que, por razones no achacables a la Municipalidad, el ofrecido no resulte idóneo, todos los futuros actos o resoluciones que se dicten e incluso la decisión final, se podrán tener por notificadas con el transcurso de 24 horas de dictadas.
+No obstante, de previo a lo anterior, la Municipalidad procurará notificar a la persona denunciante, en su centro de trabajo (de forma personal), guardando todas las medidas necesarias para mantener la confidencialidad del asunto;
+6. Nombre y firma de la persona denunciante (y de quien levanta el acta en el caso de la denuncia verbal);
+7. Cualquier otra información que resulte de interés para los fines del procedimiento. Recibida la denuncia se procederá según lo regulado en el Capítulo IV de este Reglamento.

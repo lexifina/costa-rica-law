@@ -1,0 +1,1 @@
+Artículo 20.-Valoración de la prueba. Las pruebas deberán ser valoradas de forma objetiva, de conformidad con los principios aplicables y las reglas de la sana crítica, la lógica y la experiencia. Para los efectos del presente Reglamento, los medios de prueba podrán ser todos los que estén permitidos por el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 11.-De la Instancia decisora. En el procedimiento administrativo que inicie por aparente falta de acoso laboral La Alcaldía o el Concejo Municipal, según corresponda, será la instancia decisora.
