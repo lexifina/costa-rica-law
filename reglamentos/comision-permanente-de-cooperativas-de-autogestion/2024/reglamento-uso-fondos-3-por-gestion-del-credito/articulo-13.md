@@ -1,0 +1,1 @@
+Artículo 13.-Informes. Por cada proceso llevado a cabo, se debe de confeccionar un informe por la Dirección Ejecutiva o quien este designe, en el cual se recopile los principales logros de la gestión realizada.

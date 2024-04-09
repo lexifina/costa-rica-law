@@ -1,0 +1,1 @@
+Artículo 12.-Incumplimientos. En aquellos casos en los cuales por razones desconocidas para la CPCA y sin las justificaciones por parte de la Cooperativa, se incumple el proceso solicitado, la CPCA podrá sancionar con la prohibición de al menos por 5 años, en los cuales la cooperativa no será tomada en cuenta para asistencias técnicas o capacitaciones.

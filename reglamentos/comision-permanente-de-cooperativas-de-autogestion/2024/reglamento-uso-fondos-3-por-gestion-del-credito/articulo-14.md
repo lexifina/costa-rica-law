@@ -1,0 +1,1 @@
+Artículo 14.-La CPCA por los medios que considere oportunos y pertinentes, publicará la apertura de la recepción de solicitudes para asistencia técnica y capacitación, los cuales será analizados por la Dirección Ejecutiva, en conjunto con la Dirección del FNA.

@@ -1,0 +1,1 @@
+Artículo 3°-Destínese el 20% al fortalecimiento y diversificación de proyectos cooperativos, mediante programas de capacitación continua, enfocadas al crecimiento del sector cooperativo autogestionario, pueden incluirse dentro de esta categoría capacitaciones abiertas, charlas o seminarios de interés general para las cooperativas de Autogestión.

@@ -1,0 +1,1 @@
+Artículo 7°-De la Aprobación. Corresponderá a la Dirección Ejecutiva de la CPCA, la aprobación de asistencia técnica o capacitación continua, una vez verificados los requisitos formales indicados en el artículo 4.

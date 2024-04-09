@@ -1,0 +1,1 @@
+Artículo 8°-No se podrá otorgar asistencia técnica a una cooperativa autogestionaria que no se encuentra al día en las cargas parafiscales, por tal motivo la Cooperativa debe contar con la debida certificación de estar al día.
