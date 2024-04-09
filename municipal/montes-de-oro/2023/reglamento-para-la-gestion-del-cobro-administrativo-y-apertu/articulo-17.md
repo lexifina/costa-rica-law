@@ -1,0 +1,1 @@
+Artículo 17. Carga de la prueba. Corresponderá al Sujeto pasivo demostrar la veracidad de la obligación tributaria material manifestada en sus declaraciones, así como de los hechos impeditivos, modificativos o extintivos de la obligación tributaria.

@@ -1,0 +1,1 @@
+Artículo 63. Inclusión de los arreglos de pago en las certificaciones de estar al día con gestiones e impuestos municipales. Cuando un contribuyente solicite una certificación de pago estar al día con las gestiones e impuestos y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la certificación la existencia del arreglo.

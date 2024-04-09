@@ -1,0 +1,1 @@
+Artículo 28. Informes de depuración. El Coordinador de la Depuración llevará en forma diaria a través de alguna aplicación ofimática que sea facilitada por el departamento de TI, un registro de los casos que han sido analizados como inconsistentes. De manera trimestral se presentará un informe al Alcalde Municipal y al Concejo Municipal para su conocimiento.

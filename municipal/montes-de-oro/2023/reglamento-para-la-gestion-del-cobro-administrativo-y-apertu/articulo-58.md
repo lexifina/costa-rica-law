@@ -1,0 +1,1 @@
+Artículo 58. Readecuación de los arreglos de pago. Se podrá realizar una readecuación o renegociación del arreglo de pago por única vez, cuando la morosidad sea producto de deudas generadas posterior a la firma del arreglo de pago; así mismo, que se haya pagado al menos el 35% del monto principal de la deuda.

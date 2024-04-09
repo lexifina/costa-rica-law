@@ -1,0 +1,16 @@
+Sección VI
+Cobro Ejecutivo
+Del cobro de las obligaciones tributarias municipales en la etapa ejecutiva
+Artículo 71. Deberes del Proceso de Cobros de la Municipalidad en la etapa ejecutiva. El Proceso de Cobros de la Municipalidad deberá cumplir con lo siguiente, en la etapa ejecutiva:
+a. Determinar las obligaciones vencidas que se le adeuden a la municipalidad, cuyo valor sea igual o mayor a la quinta parte de un salario base, entendiéndose este el correspondiente al de un Auxiliar Administrativo1, de conformidad con el Decreto de Salarios Mínimos vigente al momento de realizarse el cobro, las cuales serán trasladadas a las abogadas y abogados externos para cumplir con la etapa ejecutiva. En consecuencia, las obligaciones cuyo monto no exceda del aquí establecido, su cobro continuará siendo responsabilidad del encargado de cobros de la Municipalidad.
+b. Se trasladará el expediente respectivo para efectos de iniciar la etapa ejecutiva a las abogadas y abogados externos, este expediente comprenderá:
+.Copia de las notificaciones de cobro administrativo realizadas al sujeto pasivo, quedando el original de todo el expediente en custodia del encargado de cobros.
+.Certificación de la persona nombrada como Contador o Contadora municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá multas e intereses, y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el artículo 80 del Código Municipal.
+. Informe registral del bien inmueble que constituya la garantía de la obligación tributaria debida a la Municipalidad, de conformidad con lo que establece el artículo 79 del Código Municipal.
+.Calidades del Sujeto Pasivo y domicilio, si se tratara de una persona jurídica, indicación de las citas de la constitución de la sociedad, correspondiendo a la abogada o abogado externo respectivo realizar la personería jurídica correspondiente.
+.Personería jurídica del Alcalde.
+c. Asignar los casos de cobro judicial de conformidad con el grado de avance de casos anteriores remitidos a cada profesional.
+d. Fiscalizar la labor de las abogadas y los abogados externos, para ello, compete a esta oficina recibir los informes mensuales que realicen los abogados externos de conformidad con este Reglamento, analizarlos, y tomar las decisiones para asignar casos futuros.
+e. Solicitar a la Alcaldía, la aplicación de las sanciones que en este Reglamento se establecen, a los abogados externos que incumplan con sus obligaciones.
+f. Solicitar a la Alcaldía, el nombramiento de nuevos profesionales en derecho o la resolución de la contratación de los existentes; de conformidad con la demanda que de esta gestión requiera la Municipalidad.
+g. Llevar un expediente de cada uno de las abogadas y abogados externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éstos presenten, y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.

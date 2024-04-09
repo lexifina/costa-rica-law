@@ -1,0 +1,1 @@
+Artículo 70. Actualización. El monto exiguo deberá actualizarse cada año tomando en cuenta los incrementos en los costos que deba incurrir la Municipalidad para completar el proceso de cobro administrativo definido en este reglamento

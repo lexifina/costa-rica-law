@@ -1,0 +1,9 @@
+Artículo 94. Facultades y competencias.
+Para el control del cumplimiento material de la obligación tributaria, la Municipalidad, podrá llevar a cabo cuantas actuaciones sean necesarias con el fin de determinar la ocurrencia del hecho generador, cuantificar la base imponible, la respectiva deuda tributaria y, en general, verificar los elementos que configuran la obligación tributaria; formular la regularización que proceda, y preparar los actos de liquidación de oficio y aplicar las sanciones que estén establecidas en la ley, y resolver el recurso de revocatoria dispuesto en los artículos 145 y 150 del Código Tributario.
+Entre otras facultades, podrá efectuar las siguientes:
+a) Entrar o acceder a los bienes inmuebles, objeto del procedimiento de comprobación e investigación para la determinación del tributo bajo examen.
+b) Requerir a los sujetos pasivos y a terceros para que, en los casos y bajo las condiciones que establece la ley, aporten cualquier tipo de documentos o información para efectos tributarios.
+d) Realizar fotografías, efectuar croquis o planos.
+e) En general, efectuar todas las actuaciones necesarias y legales para la correcta y oportuna determinación de los impuestos Municipales.
+g) Generar el acto administrativo de liquidación de oficio, determinando la correcta cuantía de la obligación tributaria a cargo del sujeto fiscalizado con carácter de liquidación definitiva de conformidad con lo establecido en el artículo 126 del Código Tributario, así como los intereses que correspondan y proponer la regularización que proceda, todo con arreglo a lo establecido en el artículo 144 del Código y en el artículo 157 del Reglamento de Procedimiento Tributario
+h) Resolver el recurso de revocatoria regulado en los ordinales 145 y 150 del Código Tributario; y admitir el recurso de apelación, cuando proceda.

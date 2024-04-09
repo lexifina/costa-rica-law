@@ -1,0 +1,3 @@
+Artículo 69. Archivo temporal de deudas tributarias consideradas como montos exiguos. Las deudas tributarias que hayan sido archivadas temporalmente, conforme lo establece el Artículo 65 del presente reglamento, deberán ser revisadas una vez que se haya realizado la actualización del monto exiguo, para determinar si aún se mantienen dentro de dicho monto.
+En el caso de las deudas aún representen montos exiguos, se deberá aplicar lo establecido en el Artículo 66 de este reglamento.
+Las deudas que ya no representasen montos exiguos se deberán sacar del archivo temporal y ejecutarse las gestiones de cobro establecidas en este reglamento.

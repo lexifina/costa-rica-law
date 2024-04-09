@@ -1,0 +1,1 @@
+Artículo 20. Sanciones por Incumplimiento. En caso de incumplimiento por parte del personal y las unidades vinculadas en algunas de las acciones contempladas en éste Reglamento se procederá de conformidad con la normativa vigente.

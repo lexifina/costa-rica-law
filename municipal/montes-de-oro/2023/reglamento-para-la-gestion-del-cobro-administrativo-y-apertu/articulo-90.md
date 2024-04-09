@@ -1,0 +1,2 @@
+Artículo 90. Alcance de las actuaciones de comprobación e investigación. Las actuaciones de comprobación e investigación podrán tener carácter total o parcial, según sea el objetivo de la situación tributaria del sujeto pasivo. De cualquier manera, sea la actuación total o parcial, la conclusión de las actuaciones tendrá como efecto la conformidad definitiva con los aspectos de tributos y aspectos revisados.
+En ningún caso podrá el obligado tributario pedir la revisión de lo regularizado, salvo que pruebe haber incurrido en evidente error de hecho.

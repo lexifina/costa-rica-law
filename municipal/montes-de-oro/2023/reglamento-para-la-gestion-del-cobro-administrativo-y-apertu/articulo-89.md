@@ -1,0 +1,1 @@
+Artículo 89. Pago de servicios solicitados. Todo sujeto pasivo, responsable o contribuyente, que requiera el servicio de emisión de constancias o certificaciones de impuestos al día, así como de estudios sobre pagos realizados en años anteriores, deberá cancelar el costo administrativo que sea determinado por la Administración.

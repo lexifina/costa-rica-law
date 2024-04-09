@@ -1,0 +1,1 @@
+Artículo 67. Cobro de cuentas declaradas como montos exiguos. Las cuentas declaradas como montos exiguos que contabilicen un atraso, serán notificadas una vez a los ocho días hábiles posteriores a la fecha de vencimiento y serán archivadas temporalmente, por lo que no se les realizará todo el proceso de cobro administrativo definido en el presente reglamento.

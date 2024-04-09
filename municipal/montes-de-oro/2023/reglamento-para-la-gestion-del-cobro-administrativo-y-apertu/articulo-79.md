@@ -1,0 +1,1 @@
+Artículo 79. Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado la abogada o el abogado director del proceso, lo que hará constar mediante nota dirigida al encargado de cobros de la Municipalidad.

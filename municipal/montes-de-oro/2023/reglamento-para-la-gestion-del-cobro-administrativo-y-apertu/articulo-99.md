@@ -1,0 +1,5 @@
+Artículo 99. Efectos del inicio de una actuación de fiscalización. Una vez notificado el inicio de una actuación de fiscalización, se producen los siguientes efectos:
+1) El plazo de prescripción para determinar la obligación tributaria se interrumpe y el término comienza a computarse de nuevo a partir del 1 de enero del año calendario siguiente a aquel en el que se produjo la interrupción. (inciso a) del artículo 53 del Código Tributario),
+2) No procede la presentación de declaraciones autoliquidaciones tendientes a rectificar el impuesto y período objeto de comprobación. (inciso e) del numeral 130 del Código Tributario y artículo 143 del Reglamento de Procedimiento Tributario).
+3) Cualquier pago recibido se tendrá como ingreso a cuenta en el tanto se concluya la actuación fiscalizadora.
+4) No se darán respuesta a las consultas planteadas cuando la consulta, forme parte de las cuestiones que se resolverán en el curso del procedimiento fiscalizador. (inciso c) del artículo 119 del Código Tributario).

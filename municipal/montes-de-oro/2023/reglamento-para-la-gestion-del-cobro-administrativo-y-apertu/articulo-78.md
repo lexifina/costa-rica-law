@@ -1,0 +1,5 @@
+Sección II
+Sobre el cobro de honorarios profesionales
+Artículo 78. Cobro de honorarios profesionales. El cobro de honorarios profesionales lo hará directamente la abogada o abogado externo director del proceso al sujeto pasivo, en caso de que este pretenda cancelar previo a la terminación del proceso judicial respectivo. Dicho cobro se realizará con base en la Tabla de Honorarios, no pudiendo ser ni mayor ni menor del ahí establecido.
+El encargado de cobros de la Municipalidad únicamente podrá recibir la cancelación del monto adeudado por el sujeto pasivo, mediante la presentación de oficio, nota, factura o certificado de depósito emitido por la abogada o el abogado externo director del proceso, de que le han sido cancelados de conformidad los honorarios. Asimismo, no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto el encargado de cobros de la Municipalidad le indique por escrito a la abogada o abogado externo director del proceso que se ha recibido de conformidad en las cajas municipales la totalidad de la obligación vencida
+adeudada por el sujeto pasivo o suscripción de arreglo de pago, sus intereses y multas.

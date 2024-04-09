@@ -1,0 +1,1 @@
+Artículo 62. Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el departamento responsable del proceso para la suscripción del arreglo de pago, así como una copia del documento de respaldo, será agregada al expediente y debidamente foliada, para su conservación.

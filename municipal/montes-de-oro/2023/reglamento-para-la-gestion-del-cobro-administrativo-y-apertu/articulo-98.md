@@ -1,0 +1,2 @@
+Artículo 98. Documentos que se acompañan a la comunicación de inicio. Adjunto a la comunicación de inicio de la actuación fiscalizadora, se notificará un primer requerimiento de información de trascendencia tributaria, siempre y cuando el funcionario municipal no la haya podido recabarla durante la etapa previa y necesite la información en poder del contribuyente.
+La información podría referirse al plano catastrado, los planos de construcción, la personería actualizada y otros.

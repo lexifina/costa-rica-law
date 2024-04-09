@@ -1,0 +1,1 @@
+Artículo 60. Incumplimiento en el arreglo de pago. El incumplimiento por parte del sujeto pasivo de dos cuotas del compromiso adquirido, será suficiente para que la Municipalidad considere vencido el plazo otorgado, y proceda a pasar la cuenta a cobro en la vía Judicial.

@@ -1,0 +1,5 @@
+Artículo 6. Definición de Obligación del Sujeto Pasivo. Para los fines de este Reglamento se entiende por obligaciones tributarias documentadas y no documentadas:
+a. Aquellas que representen deudas por concepto de impuestos nacionales y municipales bajo administración del Municipio, que presenten atraso en el pago de estas o que se encuentren vencidas.
+b. Aquellas que representen deudas por concepto de tasas y contribuciones especiales que presenten atraso en el pago o que se encuentren vencidas.
+c. Aquellas que representen deudas por concepto de alquileres, arrendamientos, préstamos o créditos que se hayan otorgado a beneficiarios de programas municipales que presenten atraso en el pago o, que se encuentren vencidas o que exista algún tipo de incumplimiento que obligue a su vencimiento.
+d. Aquellas obligaciones que incumplan alguna de las cláusulas pactadas entre la Municipalidad de Montes de Oro y el deudor que faculten al municipio a darlas por vencidas, en forma anticipada o con el vencimiento del plazo de la obligación, o de la deuda, que contemplen las leyes y reglamentos aplicables y vigentes.

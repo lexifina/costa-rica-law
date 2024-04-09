@@ -1,0 +1,1 @@
+Artículo 36. Gestión de Cobro persuasiva. Una vez que el funcionario de cobros comprueba que la deuda es líquida y exigible del sujeto pasivo se inicia la gestión de cobro persuasiva mediante llamadas personalizadas, y si esta estrategia no da el resultado esperado se le notifica el requerimiento de pago.
