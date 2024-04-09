@@ -1,0 +1,2 @@
+Artículo 22: Cuando se presente una emergencia en el trabajo y se considere que la solución del problema podría requerir el regreso inmediato del funcionario en vacaciones, podrá pedirse a éste su regreso. Esto no representa una obligación de aceptación para el funcionario, por lo que, no se podrá tomar represalias en su contra.
+Si el funcionario acepta, se interrumpirá el disfrute por todo el tiempo que sea necesario, y al término de la situación que la originó, continuará de inmediato el funcionario en el disfrute de su derecho de vacaciones.

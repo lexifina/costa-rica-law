@@ -1,0 +1,1 @@
+Artículo 115: El presente reglamento entrará en vigencia en la fecha de aprobación del Concejo Municipal. Se procederá a notificar a cada uno de los funcionarios municipales, incluyendo al Alcalde Municipal.

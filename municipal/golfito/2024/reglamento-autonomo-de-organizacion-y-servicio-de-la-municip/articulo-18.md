@@ -1,0 +1,4 @@
+Artículo 18: Cada Jefatura señalará únicamente para los funcionarios, la programación de sus vacaciones, tratando de que no se altere la buena marcha de las funciones encomendadas, ni que sufra menoscabo la efectividad del descanso.
+La fijación deberá hacerla dentro de las quince semanas siguientes al día en que se cumpla el derecho de disfrutar sus vacaciones.
+Si transcurridas las quince semanas no se ha fijado la fecha correspondiente, el funcionario podrá solicitarlas por escrito ante su Superior. En tal caso, se deberá conceder el disfrute de vacaciones a más tardar dentro del mes posterior a la solicitud.
+Si no se otorgaran en los ocho días siguientes, podrá el funcionario reportar esta situación a la Oficina de Recursos Humanos, quien previa consulta al alcalde procederá a otorgar las vacaciones e iniciará el proceso correspondiente para determinar las eventuales responsabilidades.

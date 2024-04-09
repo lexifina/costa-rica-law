@@ -1,0 +1,1 @@
+Artículo 68: Tanto la persona denunciante de acoso u hostigamiento sexual o laboral, como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley Nº 7476 del 03 de febrero de 1995, en relación con su trabajo y condiciones general del mismo.

@@ -1,0 +1,1 @@
+Artículo 42: Salvo los casos previstos en este reglamento, la omisión de una marca a cualquiera de las horas de entrada o de salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no lo justifique a su jefe inmediato, a más tardar en la jornada siguiente a aquella en la que el hecho sucedió.

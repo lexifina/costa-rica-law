@@ -1,0 +1,1 @@
+Artículo 8: El Alcalde Municipal, es el enlace entre el Concejo Municipal y las dependencias municipales. Es el funcionario de mayor jerarquía dentro de la Institución, por lo que toda información por parte de la administración que sea dirigida al Concejo Municipal ha de ser remitida por su despacho.

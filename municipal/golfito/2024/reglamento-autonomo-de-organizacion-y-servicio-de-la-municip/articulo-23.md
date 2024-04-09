@@ -1,0 +1,1 @@
+Artículo 23: Cuando el funcionario desempeñe labores técnicas o profesionales que dificulten su reemplazo, o se trate del alcalde, podrá la Municipalidad acumularle las vacaciones por un periodo. Es obligación de las Jefaturas de cada departamento, el no permitir que se acumulen dos o más periodos de vacaciones.

@@ -1,0 +1,1 @@
+Artículo 37: No se considerará horas extraordinarias de trabajo, las que el funcionario ocupare en subsanar errores que debidamente fueron comprobados como negligencia del colaborador, imputables solo a él, cometidos durante la jornada ordinaria.

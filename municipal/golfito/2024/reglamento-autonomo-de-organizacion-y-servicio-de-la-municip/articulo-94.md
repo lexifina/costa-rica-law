@@ -1,0 +1,3 @@
+Artículo 94: Para aplicar AMONESTACIÓN VERBAL O ESCRITA, previamente deberá concederse audiencia al funcionario en cumplimiento del debido proceso.
+En los demás casos (suspensión sin goce de salario y despido), deberá abrirse un procedimiento administrativo disciplinario de conformidad con el Libro II de la Ley General de la Administración Pública, para lo cual el alcalde nombrará o designará el Órgano Director que corresponda, sea unipersonal o colegiado.
+El expediente que se levante al efecto, servirá de base para la resolución final del Órgano Director, y se conservará en los archivos del Departamento de Recursos Humanos.

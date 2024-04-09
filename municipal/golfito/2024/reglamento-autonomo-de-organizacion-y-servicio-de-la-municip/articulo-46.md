@@ -1,0 +1,1 @@
+Artículo 46: La llegada tardía que exceda de quince minutos contados a partir de la hora de ingreso estipulada y que, a juicio de su jefatura inmediata, o de la Unidad de Recursos Humanos carezca de justificación, acarreará al funcionario la pérdida de media jornada, y se procederá hacer el rebajo del salario.

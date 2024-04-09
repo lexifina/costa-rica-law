@@ -1,0 +1,1 @@
+Artículo 101: La Municipalidad promoverá y fortalecerá la creación y funcionamiento oficial de Comisiones de Salud Ocupacional del Trabajo, para que se capaciten en dicha materia, emergencias y riesgos; que sirvan de retroalimentación al resto de los funcionarios respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en forma permanente.

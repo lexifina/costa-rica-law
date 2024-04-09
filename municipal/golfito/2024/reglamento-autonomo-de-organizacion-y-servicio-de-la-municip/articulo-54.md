@@ -1,0 +1,3 @@
+Artículo 54: El pago del salario a los funcionarios municipales se hará en forma quincenal, depositándose a la cuenta personal del funcionario y en la entidad bancaria que ambas partes acuerden.
+La Municipalidad pagará los salarios a los funcionarios municipales de conformidad con el calendario de salarios y pensiones que emite el Ministerio de Hacienda anualmente. Lo anterior se encuentra sujeto a cambio mediante directriz.
+En el caso del aguinaldo se pagará antes o después de la fecha establecida en el calendario de salarios y pensiones que emite el Ministerio de Hacienda; siempre apegados al plazo determinado por ley.

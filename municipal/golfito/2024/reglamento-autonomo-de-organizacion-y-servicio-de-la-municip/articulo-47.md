@@ -1,0 +1,1 @@
+Artículo 47: La presentación al trabajo después de veinte minutos de iniciadas las labores, se tomará como media ausencia de la jornada respectiva; acarreará al funcionario la pérdida de media jornada, y se procederá hacer el rebajo del salario.

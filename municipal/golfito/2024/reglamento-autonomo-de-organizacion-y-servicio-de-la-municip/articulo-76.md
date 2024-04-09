@@ -1,0 +1,1 @@
+Artículo 76: La denuncia podrá interponerse de forma oral o escrita. Cualquier persona miembro de la Comisión Permanente Institucional para la Prevención y Atención del acoso u hostigamiento sexual o laboral, recibirá la denuncia, para todos los efectos legales.

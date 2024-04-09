@@ -1,0 +1,1 @@
+Artículo 57: Los servidores que fumen deberán hacerlo durante su tiempo matutino de descanso, o durante el período de almuerzo. Queda bajo la supervisión del jefe inmediato el hecho de que los funcionarios no tomen más tiempo ni otros tiempos para el fumado, que el establecido.

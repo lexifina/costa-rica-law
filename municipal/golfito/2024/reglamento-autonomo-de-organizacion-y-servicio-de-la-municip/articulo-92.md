@@ -1,0 +1,1 @@
+Artículo 92: La suspensión sin goce de salario se aplicará una vez escuchados el interesado y los compañeros de trabajo que él indique, en todos los casos en que, según las disposiciones reglamentarias vigentes, se cometa una falta de cierta gravedad contra los deberes impuestos por el contrato de trabajo.

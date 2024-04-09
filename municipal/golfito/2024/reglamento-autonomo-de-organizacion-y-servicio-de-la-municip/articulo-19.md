@@ -1,0 +1,3 @@
+Artículo 19: Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan el funcionario municipal y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario y su presencia se considere necesaria para la buena marcha del servicio.
+Para todos los funcionarios, la solicitud de vacaciones será autorizada por la jefatura inmediata, quien aprobará en el Sistema de Gestión Administrativa y Financiera.
+En el caso del alcalde, ésta deberá informar al Concejo Municipal, de los días que se ausentará por vacaciones. Lo anterior para efectos de que conozca su suplencia.

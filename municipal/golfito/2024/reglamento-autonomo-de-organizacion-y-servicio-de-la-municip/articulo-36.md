@@ -1,0 +1,1 @@
+Artículo 36: La Municipalidad de Golfito, no reconocerá el pago de tiempo extraordinario, que de previo no tenga la solicitud expresa de la Jefatura, quien tiene la obligación de verificar que se cuente con el contenido presupuestario anticipadamente.
