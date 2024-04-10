@@ -1,0 +1,2 @@
+CAPITULO XI: DE LOS ACTIVOS EN ARRENDAMIENTO
+Artículo 88º. -Alta de bienes en arrendamiento. La dependencia municipal a cargo de la contratación de arrendamiento enviará el tipo y las características de un activo en arrendamiento a la Unidad de Bienes Municipales, a través de un medio que genere evidencia documental, solicitando el alta del activo en el sistema informático de control de bienes en arrendamiento de la Unidad de Bienes Municipales.

@@ -1,0 +1,2 @@
+CAPITULO XIV: DISPOSICIONES FINALES
+Artículo 103º. -Casos no previstos en este Reglamento. Los casos no previstos en este Reglamento se resolverán conforme a la Ley General de Control Interno, la Ley General de la Administración Pública, Reglamento Autónomo de Servicios, Código Municipal, directrices internas y demás normativa nacional e interna en lo que resulte aplicable y de conformidad con la jurisprudencia administrativa y judicial que se emita sobre la materia de regulación de bienes municipales, mediante un acto fundamentado.

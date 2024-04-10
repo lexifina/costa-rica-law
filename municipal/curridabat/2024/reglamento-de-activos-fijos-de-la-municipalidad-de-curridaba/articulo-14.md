@@ -1,0 +1,1 @@
+Artículo 14º. -El Departamento de Contabilidad registrará contablemente las operaciones con base en la información que reciba de la Proveeduría Municipal, la Unidad de Bienes Municipales y de las otras dependencias que reciban donaciones o realicen adquisiciones de activos.

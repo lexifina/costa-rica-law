@@ -1,0 +1,1 @@
+Artículo 89º. -En el caso de bienes en arrendamiento, cuando se presente algún daño o desperfecto, hurto o robo, el responsable del activo deberá informarlo a la dependencia municipal a cargo de la contratación de arrendamiento, en la forma y a través de los medios que ésta disponga.

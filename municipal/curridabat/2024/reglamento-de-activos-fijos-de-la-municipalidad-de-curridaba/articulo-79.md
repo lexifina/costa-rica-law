@@ -1,0 +1,1 @@
+Artículo 79º. -El presente Reglamento será de aplicación obligatoria a los activos de los Centros de Cuido y Desarrollo Infantil u otras organizaciones similares y para los activos en uso por los miembros del Concejo Municipal.

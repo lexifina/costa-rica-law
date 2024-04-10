@@ -1,0 +1,1 @@
+Artículo 61º -. En los casos en que el deterioro del activo es evidente a simple vista y no deje lugar a dudas respecto a la inoperatividad del activo, los miembros de la Comisión Municipal para la Disposición de Activos en Desuso o Inservibles, constatarán personalmente las condiciones del activo

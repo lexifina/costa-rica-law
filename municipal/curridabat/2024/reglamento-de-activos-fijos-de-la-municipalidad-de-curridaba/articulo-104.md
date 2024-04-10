@@ -1,0 +1,1 @@
+Artículo 104º. -. Deróguese el "Reglamento de activos fijos, materiales y otros bienes de la Municipalidad de Curridabat", aprobado en la sesión N° 147 del 21 de febrero de 2023, y cualquier normativa anterior emitida.

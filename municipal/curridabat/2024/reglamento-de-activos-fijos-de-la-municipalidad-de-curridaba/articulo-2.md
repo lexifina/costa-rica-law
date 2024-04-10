@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Las disposiciones del presente reglamento son de acatamiento obligatorio para todos los funcionarios de la Municipalidad de Curridabat, así como para aquellos que se relacionen de manera directa o indirecta con la administración de Bienes Municipales, en los supuestos de este Reglamento.

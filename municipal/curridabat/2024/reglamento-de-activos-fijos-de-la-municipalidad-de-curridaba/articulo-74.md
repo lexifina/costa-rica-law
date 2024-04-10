@@ -1,0 +1,1 @@
+Artículo 74º. -Estos activos serán entregados contra acuse de recibido conforme de los miembros del Concejo Municipal. Para los activos que lo requieran, su correspondiente seguro ante el INS será tramitado por la dependencia municipal encargada de los seguros.

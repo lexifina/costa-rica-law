@@ -1,0 +1,1 @@
+Artículo 22º. -La Unidad de Bienes Municipales actualizará la base de datos del sistema de activos municipales, dado el acontecimiento de eventos que tengan relación con ellos o la obtención o recepción de información, a través de medios que generen evidencia documental, que varíen los registros conservados anteriormente.

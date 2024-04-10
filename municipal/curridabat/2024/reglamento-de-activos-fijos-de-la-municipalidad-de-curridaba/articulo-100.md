@@ -1,0 +1,1 @@
+Artículo 100º. -La suspensión disciplinaria se aplicará, previo agotamiento del procedimiento respectivo, hasta por 15 días sin goce de salario, en caso de que acumule 2 apercibimientos escritos en un periodo de 3 meses o que la gravedad de la falta así lo amerite.

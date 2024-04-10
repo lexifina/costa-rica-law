@@ -1,0 +1,3 @@
+Artículo 29º. -En el caso que se determinen faltantes después de la toma de un inventario físico u otros medios, se solicitará al responsable del bien o al superior inmediato, la explicación escrita y la documentación soporte de la ausencia del activo.
+La Unidad de Bienes Municipales comunicará a la Alcaldía Municipal los faltantes para que ésta proceda de conformidad con el presente Reglamento y el Reglamento Autónomo de Servicios de la Municipalidad de Curridabat
+La Unidad de Bienes Municipales puede aportar información, documentos o informes pertinentes para su incorporación al proceso que se instaure, sin que ello le convierta en parte del proceso.

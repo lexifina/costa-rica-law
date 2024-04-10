@@ -1,0 +1,1 @@
+Artículo 45º. -La depreciación de los bienes muebles e inmuebles y sus mejoras y deterioro, se registrarán según lo establecido en las directrices y procedimientos contables de la Municipalidad de Curridabat, vigentes y en apego a las Normas Internacionales de Contabilidad para el Sector Público vigentes.

@@ -1,0 +1,1 @@
+Artículo 56º.-Para el registro de una ganancia o pérdida por remate de activos inservibles, deteriorados y en desuso el Departamento de Contabilidad utilizará las cuentas señaladas para estos efectos en el Manual Funcional de Cuentas Contables para el Sector Municipal emitido por la Contabilidad Nacional.

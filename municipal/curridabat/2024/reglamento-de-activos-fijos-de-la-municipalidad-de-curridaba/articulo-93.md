@@ -1,0 +1,26 @@
+CAPITULO XII: DE LOS DEBERES DE LOS SUPERIORES Y LOS
+FUNCIONARIOS
+Artículo 93º. -De los deberes de los superiores. Las Direcciones, jefaturas, Coordinadores y Encargados serán las encargadas de administrar y vigilar el uso racional de los bienes asignados a su unidad administrativa y que son propiedad de la Municipalidad, para lo cual están obligadas a cumplir con lo siguiente:
+a. Llevar un control de los bienes asignados por funcionario, con número de identificación, descripción, ubicación, fecha de recibido o reasignación, entre otras. Sin perjuicio de los controles que debe ejercer la Unidad de Bienes Municipales.
+b. Velar por el buen estado físico y custodia de los bienes que tenga asignados su unidad administrativa para el desempeño de sus funciones.
+c. Hacer entrega a los funcionarios a su cargo, contra inventario, de los bienes muebles que a cada uno se le confía para su uso, servicio o custodia o que se les suministre para el desarrollo normal de su trabajo.
+d. Instruir adecuadamente a los funcionarios a su cargo sobre los deberes y obligaciones que tienen con respecto al manejo, mantenimiento y custodia de los activos de la Municipalidad y de los alcances del presente Reglamento.
+e. Velar porque las solicitudes de adquisición de mobiliario, maquinaria, equipo y otros, respondan adecuadamente a las necesidades del personal bajo su cargo, para el desempeño de sus funciones.
+f. Gestionar ante las dependencias correspondientes los servicios para la conservación y el mantenimiento adecuado de los bienes que administra su unidad administrativa. g. Tramitar ante la Unidad de Bienes Municipales la satisfacción de las solicitudes que surjan en cuanto a mobiliario y equipo, a partir del inventario de activos es desuso de dicha Oficina.
+h. Informar a la Unidad de Bienes Municipales acerca de las reparaciones de los bienes que le agregaron valor a los mismos.
+i. Realizar inventarios físicos de los bienes muebles en sus respectivas dependencias y reportar sus resultados a la Unidad de Bienes Municipales, con las observaciones que considere pertinentes, cuando así lo solicite la Unidad indicada, dentro del marco de sus funciones y atribuciones, en los plazos establecidos.
+j. Comunicar mediante el formulario específico, a la Unidad de Bienes Municipales cualquier traslado de un bien mueble a otra unidad administrativa, de conformidad con lo establecido en la presente normativa.
+k. Responsabilizarse por los daños de los bienes en uso y a cargo de su dependencia, siempre y cuando no provengan de causas justificadas.
+l. Informar a la Unidad de Bienes Municipales aquellas conductas de sus colaboradores que se desprendan del incumplimiento del artículo 156 inciso e) del Código Municipal, del presente Reglamento, de instructivos y de directrices que con relación a este emita la Municipalidad.
+Aquellas faltas que se puedan catalogar como graves y muy graves, deberá reportarlas al Departamento de Recursos Humanos conforme a lo dispuesto en el Reglamento Autónomo de Servicios de la Municipalidad de Curridabat.
+m. Reportar de forma inmediata a la Unidad de Bienes Municipales los activos que no estén siendo utilizados en su unidad administrativa y coordinar su remisión con la finalidad de que puedan ser trasladados para cubrir otras necesidades.
+n. Cumplir con las disposiciones emitidas por Unidad de Bienes Municipales para controlar los bienes muebles.
+o. En el caso de las áreas encargadas de realizar obras de infraestructura ya sea en bienes de dominio público o privado de la Municipalidad, deberán comunicar a la Unidad de Bienes Municipales, la conclusión de dichas obras, incluyendo el avalúo o valor actualizado de las mismas, los valores de los activos individuales que componen la obra, características, vida útil y demás información pertinente para el adecuado registro o actualización de estos en el sistema respectivo.
+p. Entregar el inventario de la unidad administrativa a su cargo al superior inmediato cuando se rinde el informe final de gestión.
+q. Velar porque los bienes asignados mantengan la placa de identificación que les fue colocado a los mismos, siendo que, en caso de pérdida de esta gestionará ante la Unidad de Bienes Municipales su reposición.
+r. Informar inmediatamente a la Unidad de Bienes Municipales cuando ingrese un bien sin la placa de identificación respectivo, con el fin de que se proceda a asignarlo y a dar de alta en el sistema.
+s. Velar por el cumplimiento de los procedimientos de alta, baja y otros, de bienes muebles e inmuebles establecidos en el presente Reglamento.
+t. Reportar a la Unidad de Bienes Municipales la detección de un bien mueble ubicado en una dependencia diferente de la asignada, o a un responsable diferente al asignado, sin haber cumplido con los procedimientos establecidos para tales efectos.
+u. Informar a la Unidad de Bienes Municipales las adiciones o mejoras que se realicen a los bienes bajo su responsabilidad.
+v. Atender dentro del plazo que establece el presente Reglamento, toda solicitud o gestión de la Unidad de Bienes Municipales relacionada con el uso y controles de bienes muebles e inmuebles.
+w. Cualquier otra que se desprenda de este Reglamento o normativa conexa.

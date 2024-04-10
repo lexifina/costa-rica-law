@@ -1,0 +1,1 @@
+Artículo 41º. -Cuando se adquieran vehículos nuevos, la unidad adquiriente tramitará, ya sea en el cartel de contratación administrativa o en diligencias posteriores, la rotulación con la leyenda: "Municipalidad de Curridabat" y la inscripción en el Registro Nacional Sección de Bienes Muebles a nombre de la Municipalidad.

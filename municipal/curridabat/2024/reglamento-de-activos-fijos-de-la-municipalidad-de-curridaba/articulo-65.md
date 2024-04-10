@@ -1,0 +1,1 @@
+Artículo 65º. - El Departamento de Ambiente y Salud tomará las acciones correspondientes para la disposición final de los bienes y de sus componentes, así como la entrega de estos, cuando sea el caso, a empresas que demuestren ser especializadas para su tratamiento a efecto de no contaminar el entorno, según la normativa vigente en materia ambiental.

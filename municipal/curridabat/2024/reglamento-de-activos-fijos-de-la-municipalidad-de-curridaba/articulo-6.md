@@ -1,0 +1,2 @@
+CAPITULO III: DE LOS ACTIVOS FIJOS
+Artículo 6º. -Integridad de la información de activos. La Unidad de Bienes Municipales deberá promover la conciliación de la información de los sistemas municipales con los activos físicos, no obstante, será cada dependencia la responsable de los activos y la que deberá comunicar a la Unidad de Bienes Municipales cualquier variación en la existencia o características de estos, a fin de mantener la información actualizada.

@@ -1,0 +1,1 @@
+Artículo 64º. - Una vez elaborada el acta, la Comisión Municipal para la Disposición de Activos en Desuso o Inservibles deberá remitir copia de esta a la Unidad de Bienes Municipales y al Departamento de Contabilidad para el registro de la baja de los respectivos activos.

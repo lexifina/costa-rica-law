@@ -1,0 +1,1 @@
+Artículo 51º. -En caso de bienes asegurados, la Unidad de Bienes Municipales deberá informar el evento a la dependencia encargada de Seguros, dentro del plazo de 5 días hábiles a partir del día del conocimiento formal del hecho, para que esta última inicie el reclamo pertinente ante la institución aseguradora.

@@ -1,0 +1,2 @@
+Artículo 49º. -En caso de que se presuma la existencia de responsabilidad directa o indirecta de algún funcionario, el superior inmediato lo deberá comunicar a la Alcaldía Municipal, en los siguientes 5 días hábiles a partir del conocimiento del hecho, para que ésta proceda conforme corresponda a fin de investigar lo sucedido.
+La Unidad de Bienes Municipales deberá aportar información, documentos o informes pertinentes para su incorporación al proceso que se instaure, sin que ello le convierta en parte del proceso.

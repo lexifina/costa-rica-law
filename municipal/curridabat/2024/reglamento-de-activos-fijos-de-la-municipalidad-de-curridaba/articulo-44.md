@@ -1,0 +1,1 @@
+Artículo 44º.-La depreciación que se calcula a los activos fijos puestos al servicio de la Municipalidad de Curridabat, que no deba calcularse por horas o por días, si no por meses o años, deberá calcularse por el método de línea recta, método de depreciación aceptado por la Contabilidad Nacional.

@@ -1,0 +1,1 @@
+Artículo 60º. -. La Comisión Municipal para la Disposición de Activos en Desuso o Inservibles verificarán que exista el criterio de un técnico en la materia relacionada con la naturaleza del bien, cuando sea el caso, que justifique la disposición del o los activos ya sea por obsolescencia técnica, cambio de tecnología, daño grave u otra justificación lógica.

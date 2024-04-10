@@ -1,0 +1,3 @@
+CAPITULO X: DE LOS ACTIVOS TECNOLOGICOS
+Artículo 80º.-Los funcionarios municipales serán responsables de la custodia, mantenimiento de los activos de tecnologías de información (computadoras, dispositivos móviles, de almacenamiento y procesamiento de información institucional) que sean asignados para la ejecución de sus funciones.
+Aquellos funcionarios que utilicen activos de tecnologías de información fuera de las instalaciones municipales o que se encuentren en teletrabajo responderán por el uso y mantenimiento de dichos equipos, siendo que, si el equipo muestra cualquier tipo de fallo, debe ser inmediatamente reportado al Departamento de Tecnologías de Información.

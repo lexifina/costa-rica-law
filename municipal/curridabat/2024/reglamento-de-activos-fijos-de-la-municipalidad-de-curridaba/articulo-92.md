@@ -1,0 +1,1 @@
+Artículo 92º. -Para los bienes tecnológicos en arrendamiento, se aplican las responsabilidades, las condiciones, los requerimientos, las medidas y los plazos a los funcionarios y departamentos mencionados en el "capítulo IX: de los activos tecnológicos", del presente Reglamento.

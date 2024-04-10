@@ -1,0 +1,1 @@
+Artículo 23º. -La verificación de existencias se hará por prueba selectiva periódica, excepto en casos especiales que ameriten una verificación total, cumpliendo siempre con criterios de oportunidad y de costo-beneficio.

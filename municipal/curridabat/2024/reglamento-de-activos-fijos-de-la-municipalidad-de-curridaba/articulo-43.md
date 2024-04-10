@@ -1,0 +1,1 @@
+Artículo 43º. - Depreciación de los activos municipales. El Departamento de Contabilidad ajustará de forma mensual los gastos por depreciación y depreciación acumulada, así como el valor de los activos fijos, según los reportes que se generan del Sistema informático de Activos Fijos.

@@ -1,0 +1,1 @@
+Artículo 20º. -Control de los activos municipales. La responsabilidad de la custodia, la correcta utilización, el mantenimiento preventivo y las reparaciones de los activos recae directamente sobre el funcionario usuario de estos.

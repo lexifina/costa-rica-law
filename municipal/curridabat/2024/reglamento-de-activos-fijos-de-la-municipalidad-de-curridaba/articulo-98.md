@@ -1,0 +1,1 @@
+Artículo 98º. -Las sanciones se determinarán, en concordancia con el Reglamento Autónomo de Servicios de la Municipalidad de Curridabat, el Código de Trabajo y la normativa y jurisprudencia conexa al tema.

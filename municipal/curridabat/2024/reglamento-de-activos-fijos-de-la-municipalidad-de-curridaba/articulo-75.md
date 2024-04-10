@@ -1,0 +1,3 @@
+Artículo 75º. -Los miembros del Concejo Municipal que hayan recibido activos se comprometen por escrito a cuidar el equipo y en caso de extravío o pérdida ya sea por descuido o falta al deber de cuidado, deberán responder reintegrando el costo del activo o reponiéndolo con uno idéntico o de similares características. La Secretaría del Concejo Municipal debe mantener bajo su custodia el contrato de préstamo de activos debidamente firmado.
+Lo anterior con base en el artículo 110, inciso p) de la Ley N°8131 "Administración Financiera de la República y Presupuestos Públicos", así como el artículo 64 del Código Municipal.
+Los integrantes del Concejo Municipal responderán civil, administrativa y penalmente cuando corresponda siguiendo el debido proceso.

@@ -1,0 +1,2 @@
+Artículo 9º. -Al ingreso de los bienes a la Municipalidad de Curridabat, el funcionario responsable de la compra procederá a verificar con la factura respectiva si se expidió por iguales elementos, cantidades y valores
+Si el documento o factura no coincide con las condiciones estipuladas en la orden de compra correspondiente, el responsable de la adquisición devolverá el bien, los documentos o la factura al proveedor y gestionará el subsane de las inconsistencias, en coordinación con la Proveeduría Municipal.

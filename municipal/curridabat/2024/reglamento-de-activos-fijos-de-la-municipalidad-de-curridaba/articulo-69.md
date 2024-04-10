@@ -1,0 +1,1 @@
+Artículo 69º. -La comunicación acerca de la reparación deberá hacerse por parte del superior responsable del activo en forma inmediata, a través de un medio que genere evidencia documental, a la Unidad de Bienes Municipales, incluyendo las características del bien, el tipo de daño reparado, costo de reparación.

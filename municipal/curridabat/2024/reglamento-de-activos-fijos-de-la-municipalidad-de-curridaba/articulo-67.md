@@ -1,0 +1,1 @@
+Artículo 67º. -Cuando un activo requiera reparación, el superior responsable del mismo se encargará de gestionarla, documentando la viabilidad de la reparación del bien tomando en cuenta el costo-beneficio para la Municipalidad.

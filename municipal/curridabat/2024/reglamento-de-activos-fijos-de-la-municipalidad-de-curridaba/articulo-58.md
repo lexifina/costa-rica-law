@@ -1,0 +1,6 @@
+CAPITULO VII: DEL PROCEDIMIENTO PARA BIENES EN DESUSO Y
+DESECHO
+Artículo 58º. -Procedimiento para activos en desuso. La Unidad de Bienes Municipales solicitará a los superiores mediante comunicado formal y cada vez que lo estime conveniente durante el año, que informen sobre los activos que no están siendo utilizados y que se encuentren en condiciones de funcionamiento.
+Los superiores responsables previa coordinación con la Unidad de Bienes Municipales, deberán entregar los bienes en el lugar y fecha que les sea indicado junto con un oficio que explica las razones del desuso. La Unidad de Bienes Municipales procederá a cargar los activos al stock general de activos en desuso, para decidir su disposición posteriormente.
+Lo anterior no excluye la responsabilidad de los superiores en la identificación de activos en desuso, así como de informar a la Unidad de Bienes Municipales, para que esta proceda con la coordinación del recibo en la bodega de activos en desuso.
+La bodega de activos en desuso contará con todos los medios que garanticen la seguridad de su custodia y que permiten su preservación. En caso de no existir un espacio físico disponible en la Municipalidad para custodiar el mobiliario y equipo, deberá alquilarse un espacio físico que cumpla con las medidas mencionadas.

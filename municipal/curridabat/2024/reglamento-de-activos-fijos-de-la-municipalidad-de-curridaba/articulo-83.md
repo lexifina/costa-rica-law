@@ -1,0 +1,1 @@
+Artículo 83º- La Unidad de Bienes Municipales deberá diseñar un sistema para la implementación de mecanismos de control de ingreso y salida de activos de tecnologías de información de las oficinas municipales.

@@ -1,0 +1,1 @@
+Artículo 87º- Los activos municipales y la información que contengan los mismos, se utilizarán conforme a las directrices y procedimientos de seguridad de la información, continuidad del negocio y gestión de riesgos de la institución.

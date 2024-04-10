@@ -1,0 +1,1 @@
+Artículo 81º-El funcionario que no haya hecho el reporte de eventual daño en su activo de tecnologías de información deberá acudir presencialmente, en forma inmediata a entregar el equipo en el Departamento de Tecnologías de Información.

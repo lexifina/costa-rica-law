@@ -1,0 +1,2 @@
+Artículo 19º.-Identificación de los activos municipales. La identificación de los bienes se hará por un sistema de rotulado con placa de metal, plástica, adhesiva o escritura por medio de grabador, en el que se indique el número de activo a partir del 000001 hasta el infinito y continuando con el consecutivo que se mantenga al momento de la asignación.
+Esta función será realizada por la Unidad de Bienes Municipales.

@@ -1,0 +1,1 @@
+Artículo 55º. - Efectuado el remate y conocidos los resultados por parte de la Unidad de Bienes Municipales, ésta dará de baja los activos en los 3 días hábiles siguientes e informará al Departamento de Contabilidad con el detalle de los bienes rematados, para efectos de dar de baja a estos activos.
