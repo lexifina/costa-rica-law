@@ -14,3 +14,4 @@ Disposición de vehículos en mal estado o inservibles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-04 | la propia norma |
+| 2 | 2024-04-10 | Decreto Ejecutivo 44483 (2024-04-10) |
