@@ -1,0 +1,1 @@
+Artículo 13.-Plazo de nombramiento. El plazo de nombramiento será de 3 años de conformidad con lo establecido en el artículo 36 de la Ley Reguladora de Investigación Biomédica, el cual regirá a partir de la firmeza del acuerdo efectuado por la Defensora o el Defensor de los Habitantes.

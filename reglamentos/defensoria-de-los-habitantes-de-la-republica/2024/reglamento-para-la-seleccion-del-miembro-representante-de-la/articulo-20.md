@@ -1,0 +1,1 @@
+Artículo 20.-Derogatoria. Se deroga el Reglamento para la Selección del Miembro Representante de la Comunidad del Consejo Nacional de Investigación en Salud por parte de la Defensoría de los Habitantes, Acuerdo N° 2294 del 7 de setiembre de 2020.
