@@ -1,1 +1,0 @@
-Artículo 11º.-Límite para beneficios consecutivos. Con el objetivo de proveer de experiencia a una base más amplia de personas creadoras, las personas jurídicas que hayan sido beneficiadas durante dos convocatorias consecutivas del Fondo, deberán esperar al menos una convocatoria anual para volver a participar en el concurso.

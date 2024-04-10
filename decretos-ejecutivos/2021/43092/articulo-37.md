@@ -1,8 +1,0 @@
-Artículo 37º.- Autorización para el uso del producto audiovisual o cinematográfico generado. Los beneficiarios del Fondo, tres años después de haber exhibido comercialmente el proyecto a nivel nacional e internacional, le otorgarán una licencia de uso gratuita, no exclusiva, sin fines de lucro y con objetivos de divulgación cultural, única y exclusivamente para que el CCPC pueda realizar:
-a. Exhibición de la obra en comunidades, en el marco de programas de extensión cultural en el territorio nacional.
-b. Exhibición de la obra en festivales y muestras organizados por el CCPC en el territorio nacional.
-c. Exhibiciones de extensión cultural organizadas por las embajadas costarricenses, siempre que estas exhibiciones no perjudiquen los derechos (sobre territorios extranjeros) de distribuidores o en acuerdo con ellos.
-d. Almacenamiento para efectos de archivo y consulta de la obra en el Archivo de la Imagen del CCPC.
-e. Derecho de uso para el CCPC de hasta doce imágenes fijas y de hasta sesenta segundos del proyecto, con previa autorización por escrito del beneficiario, el cual deberá garantizar la posesión de los derechos sobre las imágenes fijas y sobre los fonogramas dentro de los sesenta segundos que sean utilizados. El CCPC utilizará el material exclusivamente para usos promocionales propios, del país o de la Comisión Fílmica Nacional, en cualquier territorio, medio o formato.
-Estas autorizaciones no incluyen la puesta a disposición al público mediante plataformas en Internet o de "streaming".
-El CCPC se compromete a respetar los créditos que por derecho moral de autor, les corresponden a los productores y equipo involucrado con el proyecto.

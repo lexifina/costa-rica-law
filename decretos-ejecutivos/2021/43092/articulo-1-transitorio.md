@@ -1,1 +1,0 @@
-Transitorio único.- Los convenios suscritos en el marco del Fondo para el Fomento Audiovisual y Cinematográfico El Fauno, que se estén ejecutando a la fecha de entrada en vigencia de este Decreto, continuarán tramitándose de conformidad con el presente Reglamento, en lo que beneficie a los contratantes.
