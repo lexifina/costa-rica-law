@@ -1,1 +1,0 @@
-Artículo 12.—Se recomienda que el sistema de respaldos de seguridad para los documentos digitalizados mantenga dos copias de la información, una para para ser conservada en la propia notaria y otra de respaldo almacenada en un lugar diferente.
