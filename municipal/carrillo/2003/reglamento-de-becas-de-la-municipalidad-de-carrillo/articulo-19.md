@@ -1,2 +1,2 @@
-Artículo 19. A partir de este año 2011 y hasta tanto no haya modificación de este artículo, así como los artículos 17 y 18, el monto de la beca será así: para estudiantes de secundaria veinte mil colones (¢20.000) mensuales y para universitarios será de veinticinco mil colones (¢25.000) mensuales.
-(Así reformado mediante sesión N° 11 del 15 de marzo del 2011)
+Artículo 19.-El monto de la beca será así: para estudiantes de secundaria treinta y cinco mil colones ( 35.000) mensuales y para universitarios será de cincuenta mil colones ( 50.000) mensuales.
+(Así reformado mediante sesión N° 08-2024 del 10 de abril del 2024)

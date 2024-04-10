@@ -1,1 +1,2 @@
-Artículo 14.—La recepción de solicitudes de becas se realizará en la Oficina de la Secretaría Municipal y/o de los Concejos de Distrito, solamente durante el mes de enero del año en curso.
+Artículo 14.-La recepción de solicitudes de becas se realizará en la Oficina de la Secretaría Municipal y/o de los Concejos de Distrito, la fecha máxima para recepción de solicitudes será el viernes de la segunda quincena del mes de febrero del año en curso y el Concejo Municipal aprobará la primera semana de marzo del mismo año de forma retroactiva al mes de febrero a cada beneficiario.
+(Así reformado mediante sesión N° 08-2024 del 10 de abril del 2024)

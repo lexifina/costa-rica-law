@@ -1,3 +1,2 @@
-Artículo 21.—Los artículos que modifican el presente Reglamento de Becas de la Municipalidad de Carrillo, deroga cualquier disposición reglamentaria municipal que se le oponga y una vez publicado en el Diario Oficial La Gaceta, entrará a regir a partir de su publicación.
-(Así reformado mediante acuerdo 2 de la sesión N° 01 del 10 de enero de 2008)
-Filadelfia, Carrillo, Guanacaste, 20 de noviembre del 2003.
+Artículo 21.-Se becará al deportista que resida y represente al Cantón de Carrillo en competencias nacionales e internacionales, con viáticos, tiquete aéreo o terrestre y hospedaje, en la disciplina deportiva que en su momento no esté respaldada por el Comité Cantonal de Deportes, estas becas serán aprobadas por acuerdo del Concejo Municipal.
+(Así adicionado mediante sesión N° 08-2024 del 10 de abril de 2024)

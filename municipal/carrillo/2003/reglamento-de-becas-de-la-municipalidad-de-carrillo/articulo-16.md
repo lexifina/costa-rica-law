@@ -1,1 +1,1 @@
-Artículo 16.—De salir favorecido con la beca municipal por primera vez y si posteriormente desea seguir disfrutando de la misma, el interesado deberá solicitar cada año la renovación de dicha beca, mediante la presentación de una fotocopia de la nota de calificaciones y la solicitud escrita dirigida al Concejo Municipal, más un timbre municipal de ¢100,00 (cien colones).
+Artículo 16.-(Derogado mediante sesión N° 08-2024 del 10 de abril del 2024)
