@@ -14,3 +14,4 @@ Reglamento Técnico RTCR:505: 2022 "Equipo y material biomédico. clasificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-10 | la propia norma |
+| 2 | 2024-04-11 | Decreto Ejecutivo 44431 (2024-04-11) |
