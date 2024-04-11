@@ -1,0 +1,2 @@
+Artículo 2º-Naturaleza de fondo de caja chica. La ejecución del gasto mediante el fondo de caja chica es un procedimiento de excepción y por consiguiente limitado a la atención de gastos menores, indispensables e impostergables,
+según el criterio justificado de la Alcaldía Municipal. Dicho fondo operará mediante el esquema de fondo fijo, lo que significa que en todo momento el monto de la caja chica debe ser igual a la suma del efectivo más los comprobantes de gasto incluyendo los reintegros en tránsito, las que forman el total del monto de caja chica.

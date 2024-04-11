@@ -1,0 +1,1 @@
+Artículo 11.-Conformación del fondo de caja chica. La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: suma asignada en físico, vales entregas de efectivo caja chica, comprobantes de boletas de entrega de efectivo caja chica de liquidaciones en trámite.

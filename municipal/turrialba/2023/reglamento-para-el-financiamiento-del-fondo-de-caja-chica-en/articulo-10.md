@@ -1,0 +1,1 @@
+Artículo 10.-De los casos en que el gasto no se ejecuta. Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale deberá hacer el reintegro inmediato, aportando un oficio dirigido a la Tesorería, con la justificación de lo sucedido y consignando el visto bueno del superior que autorizó la solicitud de compra.

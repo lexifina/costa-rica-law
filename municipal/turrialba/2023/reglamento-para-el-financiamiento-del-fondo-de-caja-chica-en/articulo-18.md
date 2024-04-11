@@ -1,0 +1,1 @@
+Artículo 18.-La unidad solicitante cuando va a realizar un gasto de caja chica, debe revisar que el/la Proveedor (a) al cual se le va a realizar la compra esté inscrito ante Tributación Directa bajo el régimen que le corresponda.

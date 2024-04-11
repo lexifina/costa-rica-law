@@ -1,0 +1,13 @@
+Artículo 3º-Definiciones. Para los efectos de este reglamento se entenderá por:
+Caja Chica: Fondo autorizado por la Alcaldía Municipal, para la adquisición de bienes y/o servicios que son de uso exclusivo de las dependencias administrativas y operativas que las gestionan, cuya necesidad sea gastos menores,
+indispensables e impostergables. Se excluyen aquellos casos que se soliciten bajo la necesidad de urgencia, pero sean solicitados de forma frecuente.
+Caso Fortuito: Es aquel evento de la naturaleza, que pudiendo preverse no puede resistirse.
+Fuerza Mayor: Aquella acción del ser humano que no puede preverse, ni puede resistirse.
+Formulario de entrega de dinero de caja chica:
+Comprobante que autoriza la entrega del dinero, en efectivo, a una persona funcionaria pública autorizada para tal efecto según lo dispuesto en este reglamento, el cual funcionará como vale de entrega de efectivo.
+Liquidación: Rendición de cuentas que efectúa la persona funcionaria pública responsable según el formulario de entrega de dinero de caja chica, mediante presentación de los comprobantes originales o facturas que sustentan el pago de los bienes y/o servicios adquiridos, y persona funcionaria pública responsable dela caja chica.
+Gasto menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen el límite del 50% del salario base de un oficinista del Poder Judicial. Se excluye de gasto menor, las compras para actividades culturales propias del Cantón en las que ya se tienen definidas la fechas con anticipación. Para las demás actividades que surjan de forma repentina, es recomendable utilizar el fondo de caja chica, siempre que se cuente con las autorizaciones respectivas de la Alcaldía Municipal y el/la Coordinador(a) de Hacienda.
+Persona funcionaria pública responsable de la caja chica: Será la persona encargada del Departamento de Tesorería Municipal, quien es responsable de la administración del fondo de la caja chica.
+Arqueo de caja chica: Verificación de la documentación (vales, facturas, cheques y efectivo) que da soporte a los egresos y análisis de comparación con los montos autorizados por caja chica, de conformidad con la normativa y reglamentación que rige el funcionamiento de la caja chica.
+Reintegro de fondos: Solicitud de reintegro de dinero al fondo de caja chica, por los gastos efectuados, que realiza la Tesorería Municipal.
+Estudio de mercado: Información de fuentes confiables con el propósito de obtener los precios de referencia a los que podrá adquirir los bienes, las obras y los servicios. Debe incluir la razonabilidad del precio. Este concepto se amplía en directriz interna.

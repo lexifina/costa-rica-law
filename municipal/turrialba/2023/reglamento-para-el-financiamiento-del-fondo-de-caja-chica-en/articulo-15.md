@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los reintegros al fondo de caja chica
+Artículo 15.-Del reintegro al fondo fijo de caja chica. Los reintegros de efectivo de los Fondos Fijos de Caja Chica se tramitarán a través del Sistema de Tesorería vigente, el cual será revisado y autorizado por el Tesorero (a) Municipal o a quien el (ella) designe, y este deberá de remitirlo a la Alcaldía para la aprobación de la nómina correspondiente, que posteriormente será aprobada por el Departamento de Contabilidad, Tesorería y Coordinación de Hacienda, emitiendo el cheque correspondiente a cada reintegro de acuerdo a la cuenta bancaria.

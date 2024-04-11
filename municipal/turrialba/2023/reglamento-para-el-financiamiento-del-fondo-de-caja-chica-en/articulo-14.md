@@ -1,0 +1,1 @@
+Artículo 14.-Cuando se presuma que el procedimiento de Caja Chica se está utilizando para obviar los procesos de contratación, la Tesorería Municipal podrá requerir el criterio del Proveedor (a) Municipal, enviándolo a la Alcaldía quien definirá en última instancia, sí se autoriza la compra a través de este fondo.

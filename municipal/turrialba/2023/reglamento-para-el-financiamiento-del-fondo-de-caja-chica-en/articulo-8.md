@@ -1,0 +1,1 @@
+Artículo 8º-El comprobante de pago por Caja Chica deberá ser debidamente aprobado por la Alcaldía, Coordinador(a) de Hacienda, Contador (a), Tesorero(a) Municipal y unidad solicitante. Se establece un plazo de tres días hábiles para la firma de documentos por parte de la alcaldía

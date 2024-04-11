@@ -1,0 +1,1 @@
+Artículo 16.-De la periodicidad. Se confeccionarán los reintegros de los Fondos Fijos de Caja Chica, cuando se haya agotado en un 75% del fondo fijo, con el propósito de garantizar un 25% de los recursos para que sean utilizados en caso de una catástrofe natural.

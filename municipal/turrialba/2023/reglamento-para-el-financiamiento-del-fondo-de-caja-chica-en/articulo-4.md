@@ -1,0 +1,5 @@
+CAPÍTULO II
+Funcionamiento del fondo de caja chica
+Artículo 4º-Establecimiento del fondo de la caja chica. Se establece un fondo de Caja Chica para la Municipalidad de Turrialba por el monto de ¢6.000.000.00 (seis millones de colones). Monto basado en el Artículo 3, inciso g, de la Ley General de Contratación Pública, número 9986.
+Este fondo podrá ser ajustado por la Alcaldía Municipal en función de las necesidades de la Municipalidad, mediante resolución administrativa razonada y fundamentada; de tal ajuste deberá ser informado el Concejo Municipal por parte de la Alcaldía Municipal, a efectos de aplicar la excepción prevista en el artículo 3, inciso g) de la Ley General de Contratación Pública N.º 9986 en concordancia con el artículo 12 del Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo N.° 43808-H.
+En todo caso, el fondo total de la caja chica no podrá exceder el 10% (diez por ciento) del monto fijado para la licitación reducida correspondiente al régimen ordinario regulado en el artículo 36 de la Ley General de Contratación Pública.
