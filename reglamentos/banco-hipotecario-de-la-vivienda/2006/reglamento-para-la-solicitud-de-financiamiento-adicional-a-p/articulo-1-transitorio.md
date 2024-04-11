@@ -1,1 +1,0 @@
-Transitorio.—Las presentes disposiciones se podrán aplicar a los proyectos de vivienda que estuvieren aprobados y en proceso constructivo a la fecha de su publicación, únicamente para las obras faltantes a esa fecha y en estricta sujeción a lo dispuesto en ellas.
