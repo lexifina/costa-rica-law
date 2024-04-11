@@ -1,0 +1,1 @@
+Artículo 34.-Arqueo extraordinario. Cuando el Encargado de custodiar y administrar el fondo de Caja Chica deba ser sustituido temporalmente, la Presidencia de la Junta Directiva realizará un arqueo antes de entregar el manejo del fondo a otra persona. Igual procedimiento se realizará cuando el Encargado de custodiar y administrar el fondo de Caja Chica ingrese a laborar.
