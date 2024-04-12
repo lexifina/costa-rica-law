@@ -1,0 +1,1 @@
+ARTÍCULO 2- En caso de que la fundación donataria llegue a disolverse o extinguirse, o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad de San José.
