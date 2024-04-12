@@ -1,3 +1,0 @@
-Artículo 6º—De la Coordinación de la Comisión: Entre los miembros de la CCAF se designará un (a) Coordinador (a) y un (a) Secretario (a) de Actas por simple mayoría de votos, quienes ejercerán sus funciones por un plazo de un año, pudiendo ser reelectos hasta por un plazo máximo de tres años. En el proceso de designación de estos puestos participará el representante de la Dirección General de Servicio Civil a que hace mención el artículo 1º de este decreto ejecutivo.
-Realizada la designación de quiénes ocuparán los cargos de Coordinador (a) y Secretario (a) de Actas, deberá procederse a su inmediata comunicación al (la) Ministro (a) de Hacienda.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40494 del 25 de mayo del 2017)
