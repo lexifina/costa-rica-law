@@ -1,1 +1,2 @@
-Artículo 5º-Las copias de los comprobantes de ingreso estarán en custodia del área de facturación, a los cuales se le adjuntará el comprobante de depósito bancario, las remesas parciales a Tesorería, lista de recibos emitidos por el sistema de facturación y las notas de crédito y débito emitidas por el Tesorería Municipal o por quien realice dicha función.
+Artículo 5º-El respaldo de los comprobantes de ingreso estará en custodia del Departamento de la Tesorería Municipal por medio del sistema informático Municipal.
+(Así reformado mediante sesión N° 207 del 15 de abril del 2024)

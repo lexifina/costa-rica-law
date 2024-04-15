@@ -14,3 +14,4 @@ Reglamento de caja recaudadora de la Municipalidad de Coto Brus
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-22 | la propia norma |
+| 2 | 2024-04-15 | Reglamento municipal 207 (2024-04-15) |
