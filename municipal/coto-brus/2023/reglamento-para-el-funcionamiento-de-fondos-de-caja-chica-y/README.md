@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de fondos de caja chica y fondos de trabajo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-28 | la propia norma |
+| 2 | 2024-04-15 | Reglamento municipal 207 (2024-04-15) |

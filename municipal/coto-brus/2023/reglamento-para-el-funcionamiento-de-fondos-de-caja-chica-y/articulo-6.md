@@ -1,7 +1,5 @@
 CAPÍTULO II
 De los fondos de caja chica
-Artículo 6º-Creación. Se establece un fondo de caja chica, para el servicio de la Municipalidad de Coto Brus, cuyo monto será el cinco por ciento (5%) del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, regulado en el artículo 36 de la Ley General de Contratación Pública y deberá contar con la aprobación del Concejo Municipal.
-Todo egreso será autorizado por la persona titular de la Alcaldía Municipal, quien lo supla o quien el delegue, debiendo indicar las justificaciones de tal actuar. Para tal efecto se requerirá una solicitud debidamente razonada por la dependencia administrativa interesada, donde se indique al menos: El objetivo que cumplirá la transacción, el volumen aproximado de transacciones que se realizarán, el monto total del giro.
-El administrador de los recursos y la ubicación del fondo será la persona nombrada en el artículo 118 párrafo final Ley 7794. Debe tener la póliza de seguridad.
-Todo Fondo de Caja Chica, debe contar con la seguridad y condiciones mínimas requeridas para la adecuada administración del efectivo correspondiente. El fondo de caja chica será manejado en dispositivo de metal con llave, la que estará en poder de la persona nombrada en el artículo 118 párrafo final Ley 7794. Este dispositivo deberá permanecer en un lugar que reúna condiciones seguridad y al cual solo el responsable tenga acceso.
-<span style='font-family:"Arial",sans-serif; </body>
+Artículo 6º-Creación. Se establece un fondo de caja chica, para el servicio de la Municipalidad de Coto Brus, cuyo monto será de ¢ 3,500,000.00 (tres millones quinientos mil con 00/100).
+El monto máximo permitido para compras por caja chica será de ¢ 750,000.00 (setecientos cincuenta mil con 00/100), con la posibilidad de que dicho monto sea superior, previa autorización formal por parte de la Alcaldía Municipal y amplia justificación de la necesidad a solventar.
+(Así reformado en sesión N° 207 del 15 de abril de 2024)
