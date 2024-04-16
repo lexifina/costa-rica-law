@@ -1,4 +1,4 @@
-Artículo 38.—El presente reglamento rige a partir de su publicación en el diario oficial.
+Artículo 38.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
 *********
 Nota de la magistrada León Feoli.
 En relación al rubro "Responsabilidad por el ejercicio profesional de la función electoral" previsto en el inciso h) del artículo 10 de este Reglamento, dejo constancia de que mi posición fue a favor de la propuesta formulada por la Asociación de Profesionales, según la cual, el reconocimiento debe hacerse en función del nivel del cargo, utilizando para ello una banda de un 14 a un 30 % según las diferentes posiciones jerárquicas de la institución.

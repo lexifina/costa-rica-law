@@ -1,1 +1,1 @@
-Artículo 23.—En los casos de escritos publicados por dos o más autores, el reconocimiento se hará distribuyendo el puntaje correspondiente en forma proporcional al número de aquéllos. En estas circunstancias, las fracciones podrán ser acumuladas a fin de completar unidades.
+Artículo 23.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

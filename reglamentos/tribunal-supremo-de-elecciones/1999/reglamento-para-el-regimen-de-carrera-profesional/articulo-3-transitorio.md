@@ -1,0 +1,2 @@
+Transitorio III.-Las personas funcionarias mantendrán el pago de los puntos obtenidos antes de la vigencia de la Ley N° 9635, según los parámetros que rigieron hasta el 3 de diciembre de 2018; sin embargo, a partir del 4 de diciembre de 2018 todos los factores se asignarán conforme lo señala dicha ley, su reglamento y el presente instrumento normativo.
+(Así adicionado por el artículo 3° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

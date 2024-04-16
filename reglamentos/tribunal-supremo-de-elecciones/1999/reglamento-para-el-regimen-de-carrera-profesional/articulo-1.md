@@ -1,6 +1,7 @@
 TRIBUNAL SUPREMO DE ELECCIONES
 REGLAMENTO
 PARA EL RÉGIMEN DE CARRERA PROFESIONAL
-CAPITULO I
+CAPÍTULO I
 De la definición y objetivos
-Artículo 1°—Se define la Carrera Profesional como el incentivo económico que se concede a los funcionarios profesionales del Tribunal Supremo de Elecciones en las condiciones que se dirán, en virtud de sus grados académicos, capacitación recibida e impartida, experiencia laboral de carácter profesional en instituciones de la Administración Pública o en organismos internacionales, experiencia docente en instituciones de enseñanza de nivel universitario o parauniversitario, publicaciones efectuadas y la responsabilidad por el ejercicio profesional de la función electoral.
+Artículo 1º-La Carrera Profesional es el incentivo salarial reconocido a las personas funcionarias cuyo salario es por componentes y que, además, poseen títulos o grados académicos distintos a aquellos que son requisito para el puesto que ocupan. Este componente reconoce también las actividades de capacitación que no hayan sido sufragadas por instituciones públicas y la responsabilidad por el ejercicio profesional de la función electoral (REFE).
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

@@ -1,1 +1,1 @@
-Artículo 16.—El profesional cuya labor permanente sea la de Instructor en programas de capacitación, no tendrá derecho al beneficio que se otorga a los participantes como instructor en actividades de capacitación, excepto si ésta se realiza fuera de la jornada laboral, no recibe ninguna remuneración adicional por tal concepto y se sujete a lo dispuesto en el artículo 15.
+Artículo 16.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

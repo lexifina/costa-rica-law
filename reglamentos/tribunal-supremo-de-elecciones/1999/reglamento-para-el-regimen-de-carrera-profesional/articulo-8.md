@@ -1,1 +1,1 @@
-Artículo 8°—La sede de la Comisión será la Sección de Personal del Tribunal Supremo de Elecciones. Sesionara una vez al mes en forma ordinaria, siempre y cuando exista algún asunto que tratar, y extraordinariamente cuando dos de sus miembros la convoquen, o bien, cuando al menos un grupo no menor del diez por ciento de los profesionales asociados así lo soliciten. Los asuntos tratados serán resueltos por simple mayoría.
+Artículo 8°-(Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

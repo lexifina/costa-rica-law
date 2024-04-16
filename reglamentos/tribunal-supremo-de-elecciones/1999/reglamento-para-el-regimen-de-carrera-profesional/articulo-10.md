@@ -1,32 +1,33 @@
-Artículo 10.—Los factores citados en el artículo anterior, para efecto de reconocimiento en la Carrera Profesional, serán valorados en puntos como a continuación se detalla:
-a)- Grados académicos. El profesional será ubicado en la siguiente escala de valores según su condición académica:
-a-1)- Bachillerato | 10 puntos
-a-2)- Licenciatura | 20 puntos
-a-3)- Especialidad | 30 puntos
-a-4)- Maestría | 40 puntos
-a-5)- Doctorado | 50 puntos
-a-6)- Licenciatura adicional | 5 puntos
-a-7)- Especialidad adicional | 8 puntos
-a-8)- Maestría adicional | 11 puntos
-a-9)- Doctorado adicional | 14 puntos
-El puntaje que se otorga por cada grado no es acumulable.
-El reconocimiento de grados académicos adicionales se efectuara tomando en consideración la afinidad existente entre el título obtenido y el puesto que desempeña el interesado.
-b)- Cursos de capacitación recibidos:
-b-1)- De aprovechamiento
-Un punto por cada 40 horas naturales de instrucción efectiva, hasta un máximo de 20 puntos. Los excedentes o cursos de aprovechamiento menores de 40 horas serán acumulados para efecto de su reconocimiento.
-b-2)- De participación
-Un punto por cada 80 horas naturales de instrucción efectiva hasta un máximo de 20 puntos. Los excedentes o cursos inferiores a las 80 horas de instrucción, se acumularán para efecto de su reconocimiento.
-c)- Cursos de capacitación impartidos:
-Un punto por cada 24 horas naturales de instrucción efectiva, hasta un máximo de 20 puntos.
-d)- Experiencia profesional en instituciones de la Administración Pública.
-Un punto por cada uno de los primeros cinco años. De seis años en adelante se otorgara 1.5 puntos por cada anualidad.
-e)- Experiencia profesional en organismos internacionales:
-Un punto por cada año.
-f)- Experiencia docente en instituciones de enseñanza superior:
-Un punto por cada año de experiencia docente universitaria o parauniversitaria, hasta un máximo de 20 puntos. Se incluye aquí lo correspondiente a tutorías. Los centros educativos pueden ser públicos o privados, pero en este último caso deberán estar debidamente reconocidos por el Consejo de Educación Superior Universitaria Privada (CONESUP).
-g)- Publicaciones efectuadas:
-g-1)- Cinco puntos por cada libro, hasta un máximo de 40 puntos.
-g-2)- Un punto por cada publicación realizada con carácter de ensayo, artículo, antología o compilación, hasta un máximo de 20 puntos.
-h- Responsabilidad por el ejercicio profesional de la función electoral:
-A quienes cumplan con los requisitos que exige el presente Reglamento, se les reconocerá un plus salarial por este concepto equivalente al 18% de su sueldo base, con excepción de los ocupantes de los puestos ubicados en las categorías 1 y 2 del índice Salarial de estos organismos para quienes será de un 30% sobre su sueldo base y de los de las categorías 3 y 4 en cuyo caso se aplicará un 25% sobre el salario base.
-(Así reformado el inciso anterior mediante el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 03 del 21 de abril del 2009).
+Artículo 10.-Los factores indicados en el artículo anterior y la responsabilidad por el ejercicio profesional de la función electoral, serán valorados como a continuación se detalla:
+(Así reformado el párrafo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+(*)a) Grados académicos. La persona profesional, que presente sus atestados después de la entrada en vigencia de la ley N° 9635, será evaluada según la siguiente escala de valores y con base en su condición académica.
+a-1) Los títulos de bachillerato, licenciatura, especialidad con carácter de posgrado, maestría o doctorado que sean requisito para el puesto que ocupa no recibirán puntaje alguno.
+a-2) Bachillerato adicional (que guarde relación y afinidad con el puesto que ocupa). 3 puntos
+a-3) Licenciatura (para las personas que se ubican en una plaza de bachillerato y han adquirido este título superior a partir de un bloque académico con base en el cual el servidor logró el título requerido para su nombramiento, siempre y cuando guarde relación y afinidad con el puesto que ocupa). 5 puntos
+a-4) Licenciatura adicional (cuando ya se le ha reconocido una licenciatura y obtiene otra que no se origina a partir de un bloque académico con base en el cual el servidor logró el título requerido para su nombramiento, siempre que guarde relación y afinidad con el puesto que ocupa). 8 puntos
+a-5) Especialidad con carácter de posgrado (para las personas que se ubican en plaza de bachillerato o licenciatura y han adquirido este título superior, siempre y cuando guarde relación y afinidad con el puesto que ocupa). 10 puntos
+a-6) Especialidad con carácter de posgrado adicional (cuando ya se le ha reconocido una especialidad y obtiene otra que guarde relación y afinidad con el puesto que ocupa). 8 puntos
+a-7) Maestría (para las personas que se ubican en plaza de bachillerato o licenciatura y han adquirido este título superior, siempre que guarde relación y afinidad con el puesto que ocupa). 10 puntos
+a-8) Maestría adicional (cuando ya se le ha reconocido una maestría y obtiene otra que guarde relación y afinidad con el puesto que ocupa). 11 puntos
+a-9) Doctorado (para las personas que se ubican en plaza de bachillerato o licenciatura y han adquirido este título superior, siempre y cuando guarde relación y afinidad con el puesto que ocupa). 10 puntos
+a-10) Doctorado adicional (cuando ya se le ha reconocido un doctorado y obtiene otro que guarde relación y afinidad con el puesto que ocupa). 14 puntos
+El título de posgrado que se pretenda reconocer deberá ser afín y atinente con el título de grado del área académica correspondiente.
+El puntaje que se otorga por cada grado adicional puede ser acumulable por los plazos que correspondan de forma independiente. El reconocimiento de grados académicos se efectuará tomando en consideración la afinidad existente entre el título obtenido y el puesto que desempeña la persona interesada.
+Si con posterioridad al reconocimiento del título universitario respectivo, dado en virtud exclusivamente de un criterio de afinidad con el área de actividad del puesto o cargo, la persona servidora cambia de puesto o cargo y, como consecuencia de ese movimiento, el grado o posgrado pierde la citada correspondencia, ese diploma se excluirá del régimen de Carrera Profesional y, con ello, los puntos que signifique.
+Cuando a una persona servidora se le haya reconocido un título académico en el régimen, que no era requisito del puesto que se ocupaba en ese momento, pero, con posterioridad, la persona funcionaria cambia de puesto de trabajo por traslado, ascenso, permuta u otra figura y, además, ese mismo título es requisito del nuevo puesto por ocupar, ese diploma deberá excluirse del régimen de Carrera Profesional y con ello los puntos que signifique. La duplicidad remunerativa se encuentra prohibida.
+En caso de que un grado académico deje de ser requisito para el cargo, se podrá solicitar al Departamento de Recursos Humanos el estudio para su reconocimiento como grado adicional, en observancia de lo que establece el artículo 30 del presente reglamento.
+(*)(Así reformado el inciso a) anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+(*)b) Cursos de capacitación recibidos. Los cursos de capacitación recibidos presencial o virtualmente, dentro o fuera del país, deberán indicar la modalidad respectiva, la validación de la institución que los imparte y serán reconocidos, siempre que hayan sido pagados por la persona funcionaria, según las siguientes pautas:
+b-1) De aprovechamiento. Un punto por cada 40 horas naturales de instrucción efectiva hasta un máximo de 5 puntos por cada curso, sin acumulación de excedentes. En este factor se reconocerá un máximo de 20 puntos.
+Los excedentes o cursos de aprovechamiento iguales o mayores a 12 horas, pero inferiores a las 40 horas serán acumulados para efecto de su posterior reconocimiento. Solo se reconocerá la capacitación cuando esta sea igual o superior a 12 horas de aprovechamiento efectivas y la persona funcionaria, según la evaluación del curso, lo haya aprobado.
+b-2) De participación. Un punto por cada 80 horas naturales de instrucción efectiva hasta un máximo de 5 puntos por cada curso, sin acumulación de excedentes. En este factor se reconocerá un máximo de 20 puntos.
+Los excedentes o cursos iguales superiores a las 8 horas, pero inferiores a las 80 horas de instrucción, se acumularán para efectos de su posterior reconocimiento.
+Solo se reconocerá la capacitación cuando su duración sea igual o superior a las 8 horas de participación efectiva.
+(*) (Así reformado el inciso b) anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 3-2024 del 16 de abril del 2024)
+c)- (Derogado este inciso por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+d)- (Derogado este inciso por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+e)- (Derogado este inciso por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+f)- (Derogado este inciso por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+g)- (Derogado este inciso por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
+h) Responsabilidad por el ejercicio profesional de la función electoral. A quienes cumplan con los requisitos que exige el presente Reglamento, se les reconocerá un plus salarial por este concepto equivalente al 18% de su sueldo base, con excepción de los ocupantes de los puestos ubicados en las categorías 1 y 2 del Índice Salarial de estos organismos, para quienes será de un 30% sobre su sueldo base y de los de las categorías 3 y 4, en cuyo caso se aplicará un 25% sobre el salario base.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

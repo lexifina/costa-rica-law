@@ -1,1 +1,1 @@
-Artículo 37.—Transitorio: La Comisión de Carrera Profesional realizará de oficio los ajustes que correspondan en favor de los profesionales incorporados al régimen de Carrera Profesional en el momento en que este Reglamento entre en vigencia.
+Artículo 37.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

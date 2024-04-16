@@ -1,1 +1,2 @@
-Artículo 31.—Las resoluciones del Tribunal Supremo de Elecciones serán comunicadas a la Comisión, al Jefe de Personal, a la Contaduría y a los interesados, a fin de que se tramite la respectiva acción de personal para hacer efectivo el pago del incentivo por Carrera Profesional cuando proceda.
+Artículo 31.-El acto emitido por el Tribunal Supremo de Elecciones, que apruebe el reconocimiento, con base en el informe del Departamento de Recursos Humanos, será comunicado a la Contaduría y a las personas interesadas, a fin de que se tramite la respectiva acción de personal para hacer efectivo el pago.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

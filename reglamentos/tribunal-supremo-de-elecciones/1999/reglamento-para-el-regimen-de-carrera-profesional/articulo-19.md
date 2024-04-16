@@ -1,1 +1,1 @@
-Artículo 19.—La experiencia obtenida al servicio de otras instituciones de la Administración Pública se reconocerá, para efectos de Carrera Profesional, si se cumplen las condiciones que dispone el artículo 17. Para este propósito, será necesario que el interesado aporte un documento con dicha información avalada por el Jefe de Personal o el máximo jerarca de la entidad de donde procede.
+Artículo 19.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

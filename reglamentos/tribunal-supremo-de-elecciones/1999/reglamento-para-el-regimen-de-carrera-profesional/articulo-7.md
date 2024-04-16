@@ -1,1 +1,1 @@
-Artículo 7°—La Comisión Institucional hará de oficio los estudios de ajuste por el factor experiencia, para lo cual llevará los controles indispensables. En los demás casos, los estudios los realizará solamente si existe solicitud de los interesados.
+Artículo 7°-(Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

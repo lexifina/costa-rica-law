@@ -1,1 +1,1 @@
-Artículo 15.—Se reconocerá también la participación de los profesionales como instructores en cursos organizados fuera de la institución, siempre y cuando haya existido autorización del Tribunal, se aporte documento fehaciente de su participación con indicación de los temas, fechas y horas y que cumpla con lo señalado en los incisos b) y d) del artículo que antecede.
+Artículo 15.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)

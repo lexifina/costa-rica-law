@@ -1,1 +1,1 @@
-Artículo 33.—El beneficio que se concede por concepto de Carrera Profesional será, para efectos de su pago, proporcional a la jornada de trabajo para la cual está nombrado.
+Artículo 33.- (Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 3-2024 del 16 de abril del 2024)
