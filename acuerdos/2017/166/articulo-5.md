@@ -1,1 +1,0 @@
-Artículo 5º—Una vez autorizadas o rechazadas durante cada mes las diferentes actividades que realizarán los pescadores en sus comunidades, la Comisión Nacional de Vedas a través de su Secretaría y mediante oficio, lo comunicará a los pescadores, organizaciones pesqueras y a las instituciones beneficiadas con dicho trabajo comunal.

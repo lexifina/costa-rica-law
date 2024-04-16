@@ -1,1 +1,0 @@
-Artículo 7º—La obligatoriedad definida anteriormente no libera a los pescadores ni les exime de su responsabilidad de informarse ante el Departamento de Protección y Registro, Oficinas Regionales del INCOPESCA o de la Gerencia Regional del IMAS, del cumplimiento y de la forma de realización de su STC.

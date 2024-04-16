@@ -1,1 +1,0 @@
-Artículo 6º—En aquellos casos en que se requiera reprogramar actividades ya aprobadas, los interesados deberán de comunicarlo de forma previa a la Comisión Nacional de Vedas para que se realice el mismo proceso descrito en los artículos anteriores, caso contrario las actividades que se realicen no serán tenidas en cuenta como STC.

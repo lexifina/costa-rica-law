@@ -1,1 +1,0 @@
-Artículo 8º—Únicamente serán reconocidas como STC aquellas horas efectivas las actividades que hayan dado inicio a partir del día 1 de cada mes, en otras palabras bajo ninguna circunstancia y sin excepción alguna, no se autorizará el adelanto de horas en días previos al mes calendario de veda correspondiente.
