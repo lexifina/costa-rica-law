@@ -1,0 +1,1 @@
+Artículo 11.-Para el proceso de pago de las actividades de Alimentación, se deberá presentar lista de los asistentes a la actividad (listados de asistentes) esto con el fin de controlar el desperdicio y mejorar la planificación de las actividades.

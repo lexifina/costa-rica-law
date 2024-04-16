@@ -1,0 +1,1 @@
+Artículo 2º-A las disposiciones del presente Reglamento están sujetos Junta Directiva del CCDR Abangares y demás funcionarios del CCDR Abangares. El incumplimiento a sus disposiciones acarreará responsabilidad administrativa, civil o penal, según corresponda.

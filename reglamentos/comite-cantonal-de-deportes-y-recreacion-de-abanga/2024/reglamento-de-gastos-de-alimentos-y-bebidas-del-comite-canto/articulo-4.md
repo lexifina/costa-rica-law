@@ -1,0 +1,1 @@
+Artículo 4º-Ámbito de aplicación: La presente normativa aplicará para los gastos de alimentación sufragados con fondos públicos en los que se incurra durante la jornada de trabajo ordinario o extraordinario no remunerado de sus funcionarios o donde se traten asuntos de interés y beneficio para la Institución y el Cantón Abangares en materia de deporte y recreación.
