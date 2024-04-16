@@ -9,5 +9,9 @@ g. Recogidas las boletas por el auditor, la presidencia municipal en ejercicio i
 h. Será electa la persona candidata que obtenga el mayor número de votos.
 i. En caso de empate, se decidirá a la suerte mediante el lanzamiento de una moneda, la cual deberá quedar en posición completamente horizontal. En caso contrario, se repetirá el lanzamiento de la moneda hasta que quede en la posición indicada.
 j. Finalizado este proceso, la presidencia municipal en ejercicio llamará a las personas que resultaron electas y procederá a recibir, de su parte, el juramento constitucional, para luego tomar posesión de su cargo de forma inmediata.
-k. La Presidencia Municipal dará la palabra a un representante de fracción de cada partido político representando en el Concejo Municipal, con un espacio de hasta 10 minutos a un representante de cada partido político representando en el Concejo Municipal. Asimismo, podrá hacer uso de la palabra el directorio del Concejo Municipal hasta por cinco minutos.
-l. Posterior a los discursos, se procederá con el cierre de la sesión respectiva.
+k) Posterior a la elección del Presidente/a y Vicepresidente/a por el primer bienio administrativo y su debida juramentación, proceda el Presidente/a Electo/a con el acto de juramentación del señor/a Alcalde/sa, Primera Vicealcalde/sa y Segundo Vicealcalde/sa como corresponde.
+(Así adicionado el inciso anterior mediante sesión N° 207/2024 del 16 de abril del 2024)
+l. La Presidencia Municipal dará la palabra a un representante de fracción de cada partido político representando en el Concejo Municipal, con un espacio de hasta 10 minutos a un representante de cada partido político representando en el Concejo Municipal. Asimismo, podrá hacer uso de la palabra el directorio del Concejo Municipal hasta por cinco minutos.
+(Así modificada la numeración del inciso anterior mediante sesión N° 207/2024 del 16 de abril del 2024, que lo traspaso del antiguo inciso k) al l))
+m. Posterior a los discursos, se procederá con el cierre de la sesión respectiva.
+(Así modificada la numeración del inciso anterior mediante sesión N° 207/2024 del 16 de abril del 2024, que lo traspaso del antiguo inciso l) al m))

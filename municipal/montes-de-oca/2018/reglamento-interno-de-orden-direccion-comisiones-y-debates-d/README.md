@@ -15,3 +15,4 @@ Reglamento interno de orden, dirección, comisiones y debates del Concejo Munici
 | --- | --- | --- |
 | 1 | 2018-09-19 | la propia norma |
 | 2 | 2021-07-19 | Reglamento municipal 64 (2021-07-19) |
+| 3 | 2024-04-16 | Reglamento municipal 207 (2024-04-16) |
