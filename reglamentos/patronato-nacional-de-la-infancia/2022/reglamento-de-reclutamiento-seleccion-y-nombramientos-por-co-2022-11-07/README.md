@@ -15,3 +15,4 @@ Reglamento de reclutamiento, selección y nombramientos por competencias del rec
 | --- | --- | --- |
 | 1 | 2022-12-05 | la propia norma |
 | 2 | 2023-02-28 | Reglamento 5 (2023-02-28) |
+| 3 | 2024-04-16 | Reglamento 13 (2024-04-16) |
