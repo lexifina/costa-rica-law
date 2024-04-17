@@ -1,31 +1,28 @@
-CAPÍTULO V
-Deberes y obligaciones
-Artículo 13.-Serán deberes y obligaciones generales de los funcionarios del Área de Seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Ejecutar las labores con la intensidad, el cuidado y el esmero apropiados y en la forma, el tiempo y el lugar convenidos.
-b) Prohibir el ingreso de vendedores ambulantes a cualquiera de los edificios de la Institución.
-c) Reportar a la jefatura de la Unidad el nombre de los funcionarios que no porten correctamente el carné institucional.
-d) Reportar a la jefatura del Área, el nombre del personal legislativo que no porte el carné institucional
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-e) Conservar en buen estado físico y de funcionamiento los instrumentos, útiles, uniformes, equipos de seguridad, radios de comunicación y alarmas, que se les faciliten para el exclusivo desempeño del trabajo de seguridad.
-f) Observar buenas costumbres, porte adecuado y presentación personal correcta.
-g) Someterse al reconocimiento médico durante el trabajo, cuando se requiera comprobar que se encuentran en condiciones físicas y mentales aptas para el desempeño de su labor en seguridad.
-h) Mantener el secreto profesional, en lo referente a cualquier información de carácter confidencial. Esta disposición deberá ser acatada tanto durante el desempeño de su servicio como fuera de él.
-i) Auxiliar, cuando el caso lo amerite, a los compañeros de trabajo y a las demás personas, en caso de siniestro o peligro inminente.
-j) Laborar extraordinariamente a solicitud de sus superiores, para cubrir la seguridad de actividades especiales y durante otras emergencias que se presenten.
-k) Acatar toda disposición e instrucción que regule el uso óptimo de los equipos de trabajo que le hayan asignado para el desempeño de su puesto.
-1) Mantener al día el permiso de portación de armas extendido por el Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, en cumplimiento de las disposiciones de la Ley de Armas y Explosivos, N° 7530, del 10 de julio de 1995.
-m) Asistir obligatoriamente a los cursos de adiestramiento y capacitación programados por sus superiores y habilitar para ello horarios especiales de trabajo.
-n) Laborar en jornada diurna, mixta o nocturna, según corresponda, de acuerdo con el Código de Trabajo y el horario establecido o los requerimientos de la Institución o del departamento.
-o) Apoyar a la Unidad de Salud Ocupacional en la atención de las emergencias que se susciten dentro de la Institución, en coordinación con el superior inmediato.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "... o) Apoyar a la Unidad de Salud Ocupacional en la atención de las emergencias que se susciten dentro de la Institución, en coordinación con el superior inmediato")
-p) Portar el carné de identificación y mantenerlo en un lugar visible.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...o) Portar el carné de identificación y mantenerlo en un lugar visible)
-q) Usar los radios de comunicación únicamente para enviar mensajes propios de sus labores.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "... p) Usar los radios de comunicación únicamente para enviar mensajes propios de sus labores")
-r) Mantener cerrados los portones de acceso a los parqueos de la Institución, una vez permitido el ingreso o salida de vehículos.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...q) Mantener cerrados los portones de acceso a los parqueos de la Institución, una vez permitido el ingreso o salida de vehículos")
-s) Conocer, de previo al inicio de sus labores, el rol de trabajo y el lugar asignado para prestar servicios.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...r) Conocer, de previo al inicio de sus labores, el rol de trabajo y el lugar asignado para prestar servicios")
-t) Informar a sus superiores de cualquier anomalía suscitada durante la guardia.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...s) Informar a sus superiores de cualquier anomalía suscitada durante la guardia")
+Artículo 13.-Las siguientes serán funciones de los técnicos en seguridad:
+1. En caso de un incidente mayor aplicar lo establecido en el Manual de Procedimiento de Incidentes Mayores dentro de la Asamblea Legislativa.
+2. Realizar un monitoreo activo de instalaciones y perímetros de la Asamblea Legislativa, mediante el circuito cerrado de televisión o cualquier otro sistema dispuesto para tales efectos.
+3. Crear y modificar los badge y controles de acceso para funcionarios legislativos y visitantes.
+4. Generar informes a solicitud de Supervisores de Turno, Subjefatura y Jefatura con información de visitantes que ingresan a la Asamblea Legislativa, donde se detalle: nombre completo, número de identificación,
+fecha y hora de ingreso, hora de salida y observaciones del ingreso.
+5. Apoyar en la capacitación al personal del Área de Seguridad en el uso de los sistemas digitales.
+6. Realizar investigaciones con utilización de datos resguardados en los sistemas tecnológicos de seguridad, a solicitud del jefe y Subjefe de Área de Seguridad.
+7. Facilitar la comunicación radial entre las distintas dependencias internas y externas para la atención de incidentes dentro del perímetro legislativo.
+8. Atender la línea de Emergencias y coordinar con la entidad respectiva para su pronta atención.
+9. Respaldar grabación de video sobre incidentes o situaciones anómalas que sean observadas en tiempo real, previendo una investigación futura.
+10. Informar en tiempo real a la Jefatura y Subjefatura, Supervisores de Turno, Agentes de Seguridad, así como entes policiales, sobre incidentes irregulares que se presenten.
+11. Mantener el monitoreo constante con cámaras de video, de actividades realizadas dentro de los edificios legislativos y perímetros de estos, y reportar cualquier información relevante observada.
+12. Mantener total confidencialidad sobre información obtenida por medio de cámaras, testimonios, investigaciones, o cualquier otro medio, que pueda vulnerar la seguridad de la información.
+13. Atender cualquier indicación propia y atinente a la función de seguridad impartida por los superiores jerárquicos.
+14. Informar de forma inmediata y dar seguimiento sobre cualquier daño que sufran los sistemas tecnológicos de seguridad.
+15. Mantener el control de inventario a su cargo en orden y al día y estar pendiente de todo el inventario de los sistemas tecnológicos, tanto principales como accesorios que están ubicados en el circuito legislativo.
+16. Elaborar de forma ordenada y cronológica la bitácora durante su rol de trabajo, anotando todas las novedades ocurridas.
+17. Realizar reportes en tiempo real a los Supervisores de Turno de las irregularidades que sean detectadas dentro de las funciones del personal de seguridad que estén poniendo en riesgo la seguridad institucional o de sus propios compañeros de turno.
+18. Realizar reportes en tiempo real sobre actuaciones irregulares de los visitantes dentro del mueble legislativo.
+19. Realizar reportes en tiempo real cuando terceros realizan daños a los inmuebles legislativos.
+20. Realizar reportes en el momento que se detecte una situación de peligro a la integridad física de un funcionario legislativo, diputados o visitantes.
+21. Verificar los recorridos que realizan los agentes de seguridad y supervisores de turno. Así como darle seguimiento con las cámaras de vigilancia para estar atentos a cualquier incidente que se pueda presentar
+en trayecto.
+22. Estar pendiente del botón antisecuestro y pánico instalados en los vehículos institucionales, mediante el sistema de rastreo satelital vehicular G.P.S., así como solicitar a los operadores de móviles institucionales
+pruebas aleatorias y esporádicas de la alarma antipático.
+23. Acatar todas las disposiciones giradas por parte de los Supervisores de Turno.
+24. Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.

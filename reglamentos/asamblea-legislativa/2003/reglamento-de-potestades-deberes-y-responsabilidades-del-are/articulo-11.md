@@ -1,19 +1,8 @@
-Artículo 11.-Serán tareas propias del asistente administrativo del Área de Seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Atender el trámite de la correspondencia.
-b) Redactar y transcribir notas, cartas, informes, oficios y otros documentos.
-c) Vigilar que se mantengan actualizados los registros y archivos del Área, (circulares, notas, oficios, solicitudes, boletas de tiempo extraordinario u otros).
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-d) Atender y controlar el uso del teléfono y de todo el equipo de oficina asignado a su área.
-e) Asistir a la jefatura en reuniones de trabajo, tomar notas y confeccionar informes o actas.
-f) Enviar el equipo dañado a la Unidad de Mantenimiento para que sea reparado.
-g) Llevar el control de asistencia y puntualidad del personal.
-h) Llevar el control de la agenda del jefe del Área.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-i) Dirigir los pedidos de materiales al Departamento de Proveeduría.
-j) Colaborar con la jefatura en la confección del presupuesto anual de suministros del Área.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-k) Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-l) Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000.
-(Corregido mediante Fe de erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...m) Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000")
+Artículo 11.-Las siguientes serán tareas propias del personal profesional administrativo de Área de Seguridad.
+1. En caso de un incidente mayor aplicar lo establecido en el Manual de Procedimiento de Incidentes Mayores dentro de la Asamblea Legislativa.
+2. Apoyar en los procesos de contratación administrativa.
+3. Apoyar en el proceso de control de inventarios.
+4. Realizar investigaciones de oferentes que desean ocupar el cargo de agente de seguridad, que traslada el Departamento de Recursos Humanos. Posteriormente enviar informe sobre los resultados de la investigación a la Jefatura de seguridad.
+5. Llevar un control exhaustivo de las actividades legislativas y especiales, visitas guiadas, comisiones y audiencias.
+6. Control de la correcta ejecución de los estacionamientos legislativos.
+7. Coadyuvar en el proceso de ingreso de visitantes, con implementación de medidas que faciliten el acceso.

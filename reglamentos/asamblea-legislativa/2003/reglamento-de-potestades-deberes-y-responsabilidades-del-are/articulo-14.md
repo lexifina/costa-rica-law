@@ -1,18 +1,36 @@
-CAPÍTULO VI
-Prohibiciones
-Artículo 14.-Se prohíbe a los funcionarios del Área de Seguridad de la Asamblea Legislativa:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Recibir gratificaciones, retribuciones o pagos por servicios prestados o dejados de prestar, en el ejercicio de sus funciones.
-b) Vender, comprar o realizar negocios personales dentro de la Institución.
-c) Presentarse a laborar en estado de ebriedad o bajo los efectos de alguna droga ilícita. Asimismo, en virtud de la naturaleza de sus funciones y de las contingencias que podrían presentarse en el ejercicio de estas, los funcionarios de la Unidad deberán someterse a una revisión médica periódica, a fin de determinar si están en condiciones físicas y mentales para desempeñar las labores de seguridad.
-d) Utilizar el tiempo disponible durante la jornada laboral, indistintamente del puesto donde se encuentren, para leer periódicos, libros o cualquier otro tipo de material ajeno a la Institución.
-e) Permitir el ingreso y la permanencia de personas ajenas a la Institución e incluso de funcionarios, en las instalaciones de los puestos de seguridad.
-f) Abandonar el servicio o el lugar de trabajo asignados, sin una orden expresa del jefe inmediato o sin una razón justificada.
-g) Insultar de palabra, de hecho o por cualquier otro medio, a otra persona, ya sea un compañero de trabajo o alguien ajeno a la institución.
-h) Portar armas de fuego o municiones durante el servicio, que no sean las reglamentarias o autorizadas por ley de uso y propiedad de la Institución.
-i) Confiar a otras personas la manipulación o el uso de los instrumentos de trabajo ni de otros bienes de la Institución o utilizarlos en provecho personal ni con fines distintos de aquellos a que están normalmente destinados.
-j) Mantener conversaciones innecesarias con compañeros de trabajo o con terceras personas, en perjuicio o con demora de las labores que se están realizando.
-k) Frecuentar lugares públicos tales como bares, salones de baile y similares, con el uniforme o algún distintivo especial de identificación de la Institución o del Área de Seguridad.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-1) Portar el arma asignada para el desempeño de su cargo fuera de las instalaciones legislativas, cuando no se encuentre debidamente autorizado para ello.
-m) Usar el teléfono del respectivo puesto de seguridad para gestiones personales o ajenas a sus labores.
+Artículo 14.-Funciones de los agentes de seguridad:
+1. Brindar información en forma cortés y respetuosa a la población legislativa que lo requiera, así como recibir a los visitantes, orientarlos y brindarles la información necesaria.
+2. Ejecutar las labores de seguridad, vigilancia, custodia de bienes y de las instalaciones de la Asamblea Legislativa, así como el resguardo de visitantes y funcionarios que en ella se encuentren.
+3. En caso de un incidente mayor aplicar lo establecido en el Manual de Procedimiento de Incidentes Mayores dentro de la Asamblea Legislativa.
+4. Fiscalizar el traslado de bienes muebles institucionales con base en lo dispuesto en el Reglamento de Control de Bienes Muebles.
+5. Retener las boletas donde conste los traslados de bienes institucionales y remitirla a la Jefatura de Seguridad.
+6. Realizar inspecciones a las personas y sus bienes al ingreso o salida de la Institución; con la finalidad de determinar si portan objetos prohibidos (armas, drogas, materiales inflamables, u otros objetos prohibidos). De esta revisión se exceptúan los diputados y diputadas, miembros de los Supremos Poderes, cuerpo diplomático acreditado y dignatarios internacionales. En caso de los visitantes y prestadores de servicios de empresas privadas, la revisión deberá realizarse de forma obligatoria. Por la vía de la excepción se permitirá el ingreso al área de cajeros automáticos a los custodios con armas de fuego provenientes de los bancos que mantengan este servicio a la institución, todo conforme al protocolo que para tales efectos establezca la administración.
+7. Someter a revisión los vehículos a la salida de la Institución para efecto de evitar la sustracción de bienes institucionales. De esta revisión se exceptúan los diputados y diputadas, miembros de los Supremos Poderes, cuerpo diplomático acreditado y dignatarios internacionales. En el caso de los visitantes y prestadores de servicios de empresas privadas, la revisión deberá realizarse tanto al ingreso como a la salida del vehículo, de forma obligatoria.
+8. Llamar la atención al visitante que no se encuentre en el lugar al cual tiene permiso de ingreso o cuando no esté utilizando el sticker en un lugar visible.
+9. Llamar al orden al visitante que ocasione un problema o altere la tranquilidad dentro de la institución. En caso de que el problema persista deberá informar al Supervisor de Turno y monitoreo.
+10. Impedir el ingreso de personas con armas de fuego, punzocortantes, contuso cortantes, sustancias explosivas, inflamables, volátiles, láser, o cualquier objeto que pueda ser utilizado para atentar contra la integridad de una persona, tal y como lo establece la Ley de Armas y Explosivos N° 7530.
+11. Revisar, atender y dar trámite a todos los correos electrónicos con autorización de ingreso de visitantes, que son remitidos.
+12. Controlar el adecuado uso de todo el equipo de oficina asignado para estas tareas.
+13. Retroalimentar el sistema de control de visitantes con base en las directrices emanadas por parte de la Jefatura y Subjefatura.
+14. Una vez finalizada la jornada laboral remitir un informe al supervisor de turno indicando la totalidad de los visitantes que se registraron en el sistema digital de control de visitantes, así mismo indicar cuantos visitantes se mantienen aún en el recinto legislativo y cuantos documentos de identidad quedan pendientes de entrega.
+15. Realizar recorridos e inspeccionar el interior como exterior del área de trabajo que tiene a cargo, para verificar que puertas y ventanas se encuentren debidamente cerradas con el fin de prevenir que ocurra un hecho delictivo, principalmente durante horas no hábiles.
+16. Solicitar la salida, expulsar o retener momentáneamente a los visitantes que ocasionen disturbios o problemas de orden o actividades no autorizadas dentro de las instalaciones de la Asamblea Legislativa, mientras son puestos a las órdenes de las autoridades competentes. Para el cumplimiento de lo estipulado en este inciso el agente de seguridad de la institución empleara la fuerza solo cuando sea estrictamente necesario y en la medida que se requiera para el desempeño de sus funciones.
+17. Reportar las novedades halladas u ocurridas durante la jornada al supervisor de turno.
+18. Anotar con letra legible en la bitácora del puesto, la hora de ingreso y salida, relevos de café, inventario de los bienes asignados, la cual deberá detallar características y estados de los mismos, así como cualquier incidente que se presente durante su jornada.
+19. Dar un uso correcto al equipo de comunicación durante toda la jornada laboral y utilizarlo para brindar reportes propios de sus funciones.
+20. Dar el uso correcto a los diversos dispositivos de seguridad, alarmas, cámaras, sensores de movimiento, controles de acceso, instalados en los edificios de la Institución.
+21. Ejercer el control sobre la disponibilidad de los espacios de estacionamiento de cada uno de los parqueos de la Institución, así como velar para que los espacios sean usados por la persona autorizada.
+22. Llevar control y custodia de los vehículos que se encuentren en los parqueos institucionales.
+23. Controlar el uso correcto y la portación del carné institucional.
+Los agentes de seguridad reportarán, ante la Jefatura de Seguridad, por medio del formulario correspondiente, al funcionario que no porte su carné de identificación.
+24. Revisar los vehículos que se encuentran en los parqueos de la Institución en el momento en que abandonen las instalaciones. Dicha revisión se deberá realizar a todos los vehículos de funcionarios de manera continua o en forma aleatoria. De esta revisión se exceptúan los diputados y diputadas, miembros de los Supremos Poderes, cuerpo diplomático acreditado y dignatarios internacionales.
+25. Participar en los cursos de capacitación en materia de seguridad, atención de emergencias y otros temas afines a la naturaleza de las funciones.
+26. Mantener un control de entrada y salida de personas que accedan a los edificios de la Asamblea Legislativa, e informar en caso que un visitante no haya salido en un tiempo prudencial.
+27. Llevar un conteo de Diputados (as) que hayan accedido a los parqueos y así llevar el orden necesario.
+28. Cumplir adecuadamente las instrucciones con ocasión de las funciones que desempeñan y acatar todas las circulares que emitan la jefatura y la subjefatura.
+29. Mantener cerrados los portones de acceso a los parqueos de la Institución, una vez permitido el ingreso o salida de vehículos.
+30. Conocer, de previo al inicio de sus labores, el rol de trabajo y el lugar asignado para prestar servicios.
+31. Anotar en la bitácora la salida de activos, debidamente autorizados, computadoras, parlantes, proyectores portátiles. entre otros, el número de patrimonio, así como el funcionario responsable del bien.
+32. Estar atento al perímetro, si observa muchedumbres o alguna eventualidad fuera del perímetro legislativo reportarla a los técnicos de monitoreo para estar pendientes a cualquier contingencia y mantener los accesos cerrados y controlados para prevenir incidentes mayores.
+33. Trasladarse cuando sea necesario escoltando a los diputados y diputadas a eventos oficiales que se realicen fuera de las instalaciones legislativas.
+34. Cumplir cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.

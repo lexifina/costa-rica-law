@@ -1,2 +1,9 @@
-Artículo 4º-El Área de Seguridad conforme al Manual de Funciones y Estructura de la Organización Técnico- Administrativa de la Asamblea Legislativa, será la encargada de velar por la seguridad, protección y la salvaguarda de los funcionarios y el público en general, así como de los bienes y activos de la Institución. Asimismo, en caso de emergencia, se encargará de coordinar con la Unidad de Salud Ocupacional lo relacionado con los procedimientos correspondientes.
-(Así reformado mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
+CAPÍTULO II
+Objetivos generales y específicos
+Artículo 4.-Los objetivos generales del Área de Seguridad serán los siguientes:
+1. Suministrar un efectivo servicio de vigilancia y seguridad sobre la población legislativa, los visitantes, los activos e instalaciones de la Asamblea Legislativa, así como
+proteger el patrimonio institucional.
+2. Determinar las áreas susceptibles a riesgos y vulnerabilidad en las Instalaciones, para diseñar e implementar programas y acciones preventivos.
+3. Desarrollar y ejecutar estrategias de vigilancia y seguridad institucional, a fin de proteger y prevenir, de manera efectiva, la integridad de la planta física del parlamento, los bienes, la población legislativa y los visitantes.
+4. Promover la capacitación y el adiestramiento de los funcionarios del Área de Seguridad para que disponga del conocimiento, la práctica y actualización necesarios para ejecutar las funciones asignadas.
+5. Coordinar acciones de vigilancia y seguridad con las entidades competentes especializadas, para desarrollar actividades y operaciones especiales para atender situaciones de riesgo, con el fin de asegurar el máximo nivel de prevención y reacción, así como para optimizar la seguridad de los activos, población legislativa y público en general.

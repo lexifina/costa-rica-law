@@ -1,14 +1,26 @@
-Artículo 8º-Serán objetivos específicos del Área de Seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Velar por la integridad física de quienes se encuentren dentro de las instalaciones legislativas.
-b) Resguardar todos los bienes inmuebles, así como el equipo que se encuentra en las instalaciones de la Institución.
-c) Establecer mecanismos de control para evitar la sustracción de activos pertenecientes a la Institución y a los funcionarios.
-d) Establecer un control adecuado de carga y descarga de todos los materiales que entran a la Institución.
-e) Establecer un control adecuado de los activos que entran y salen de la Institución.
-f) Capacitar al personal de seguridad para que brinde a la población legislativa y público en general, información referente a la ubicación de las oficinas e instalaciones de los edificios, los servicios que se prestan y las actividades que se realizan.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-g) Velar por la seguridad de los vehículos estacionados dentro de las instalaciones.
-h) Controlar que la población legislativa porte el carné de identificación institucional al ingreso y durante su permanencia en los edificios institucionales.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-i) Establecer un control adecuado para el mantenimiento correctivo y preventivo del equipo de seguridad con que cuenta la Unidad.
-j) Cumplir cualquier orden o directriz emanada del Directorio Legislativo, el Director Ejecutivo, el Director de la División Administrativa o el Director de Servicios Generales de la Asamblea Legislativa.
+CAPÍTULO V
+Funciones del personal de seguridad
+Artículo 8.-Serán tareas propias del jefe del Área de Seguridad:
+1. Planear, dirigir, supervisar, coordinar y ejecutar las políticas que la Institución establezca en materia de seguridad, así como todo lo referente a la organización interna y actuación administrativa.
+2. Establecer las estrategias necesarias de vigilancia para prever daños ocasionados por personas ajenas a la Institución.
+3. Ejercer, sobre todo el personal del Área de Seguridad, la supervisión debida y la autoridad disciplinaria, cuando corresponda.
+4. Velar porque todos los funcionarios del Área de Seguridad cumplan sus obligaciones, según lo dispuesto por el presente Reglamento y la demás normativa aplicable.
+5. Impartir instrucciones u órdenes especiales, tanto antes del inicio de sus labores como durante su servicio al grupo operativo.
+6. Promover la capacitación técnica del personal del Área de Seguridad.
+7. Celebrar reuniones con el personal para coordinar y evaluar el trabajo realizado.
+8. Efectuar inspecciones periódicas en los puestos de seguridad, con el fin de verificar el buen desarrollo del servicio.
+9. Elaborar, en conjunto con el Subjefe, los roles de trabajo del grupo operacional.
+10. Revisar semestralmente el informe realizado por la Subjefatura, referente al inventario de los activos asignado al Área de Seguridad y dejar evidencia escrita de la revisión.
+11. Elaborar los planes anuales operativos del Área de Seguridad, así como el presupuesto del área.
+12. Establecer un adecuado sistema de control interno, a fin de proteger y conservar el patrimonio con que se cuenta, así como garantizar la eficiencia y eficacia de las labores cotidianas.
+13. Establecer los registros necesarios para documentar y ejercer un control adecuado de los procesos que se ejecutan el Área de Seguridad.
+14. Velar, junto a la Subjefatura de Seguridad, que el personal del Área de Seguridad mantenga al día el permiso de portación de armas extendido por el Departamento de Armas y Explosivos del Ministerio de Seguridad Pública.
+15. Revisar y autorizar las boletas de tiempo extraordinario que se tramitan en el Área de Seguridad.
+16. Dar respuesta a los Recursos de Amparo interpuestos en contra de acciones del Área de Seguridad.
+17. Elaborar informes, solicitados por la Dirección Ejecutiva y Diputados.
+18. Realizar investigaciones cuando un ente competente lo solicite, así como la atención y resolución de consultas que presenten diputados y público en general relacionado con el área de actividad.
+19. Velar por el cumplimiento de la correcta utilización de los parqueos institucionales.
+20. Coordinar, designar, controlar y dar seguimiento a las investigaciones de los oferentes que traslada el departamento de Recursos Humanos, para la contratación de personal de seguridad.
+21. Velar por la capacitación y prácticas de tiro del personal de seguridad.
+22. Cumplir cualquier orden o directriz emanada del Directorio Legislativo, del Director (a) Ejecutivo (a), así como de cualquiera de sus superiores jerárquicos.
+23. Cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.

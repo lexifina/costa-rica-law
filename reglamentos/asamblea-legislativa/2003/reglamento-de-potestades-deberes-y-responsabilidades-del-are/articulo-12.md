@@ -1,23 +1,23 @@
-Artículo 12.-Las siguientes serán tareas propias de los agentes de seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Ejecutar las labores de vigilancia y custodia de los bienes e instalaciones, así como la de seguridad de la población legislativa y visitantes que se encuentren dentro de los edificios institucionales
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-b) Revisar los paquetes, bolsos, maletines u otros bultos, de forma aleatoria, a la población legislativa, visitantes y a los prestadores de servicios de empresas privadas, cuando ingresen y/o se retiren de las instalaciones. De esa revisión se excluye a las legisladoras y los legisladores.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-c) Registrar en el sistema de control de visitantes de la Asamblea Legislativa, los datos de las personas que ingresan a la institución, solicitando el documento de identificación, a fin de corroborar los datos, la dependencia a la cual se dirigen, la persona que lo autoriza, posteriormente, proceder a la entrega del "sticker" y consignar su salida. Se exceptúa de la entrega del "sticker" a los miembros de los Supremos Poderes, cuerpo diplomático y dignatarios internacionales.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-d) Anotar en el libro de control de ingreso los datos personales de los visitantes de la Asamblea Legislativa, previo a que presenten algún documento de identificación, a fin de corroborar los datos y el nombre de la oficina a la cual se dirigen; posteriormente, proceder a la entrega del carné de visitante.
-e) Recorrer e inspeccionar periódicamente tanto el interior como el exterior de los edificios, verificar que no ocurran anomalías y que tanto las puertas como las ventanas de las oficinas y los edificios queden debidamente cerradas, principalmente durante horas no hábiles.
-f) Proceder a la detención de cualquier persona que haya cometido un hecho delictivo dentro de la Institución, con el propósito único de ponerla a disposición de la autoridad competente.
-g) Los agentes de seguridad deberán reportar a la jefatura, a la hora en que se les solicite, las novedades halladas u ocurridas durante su servicio.
-h) Revisar minuciosamente el equipo que reciba de la persona a quien releva en el puesto, para constatar sus condiciones y reportarlas; además, anotar en la bitácora del puesto, cuando se dé el cambio de rol, todos los activos que recibe, el mobiliario, el equipo de seguridad, las armas, las municiones u otros objetos, e indicar su número de patrimonio, a fin de sentar responsabilidades ante pérdidas o robos.
-i) Mantener encendido el equipo de comunicación durante toda la jornada laboral.
-j) Usar correctamente los diversos dispositivos de seguridad (alarmas) instalados en los edificios de la Institución.
-k) Evitar la utilización de las instalaciones para realizar actividades contrarias al orden institucional.
-l) Brindar información en forma cortes y educada al público que la requiera.
-m) Ejercer el control sobre la disponibilidad de los espacios de estacionamiento de cada uno de los parqueos de la Institución.
-n) Controlar el uso correcto y la portación del carné de identificación institucional. Los agentes, mediante el uso de una fórmula adecuada, deberán anotar el nombre y la ubicación del personal legislativo que no porte el carné y remitirán diariamente ese reporte a la dependencia correspondiente, de acuerdo con el Reglamento para el Uso de Carnés de la Asamblea Legislativa, a fin de que se proceda de conformidad.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-o) Revisar los vehículos que se encuentran en los parqueos de la Institución en el momento en que abandonen las instalaciones.
-p) Participar en los cursos de capacitación en materia de seguridad, atención de emergencias y otros temas afines a la naturaleza de las funciones, organizados por la Institución.
-q) Cumplir cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, alcance 35, del 25 de mayo del 2000.
+Artículo 12.-Las siguientes serán tareas propias de los Supervisores de Seguridad:
+1. En caso de un incidente mayor aplicar lo establecido en el Manual de Procedimiento de Incidentes Mayores dentro de la Asamblea Legislativa.
+2. Elaborar de manera detallada la bitácora en su rol de trabajo, con novedades importantes o anomalías, control de inventario asignado a supervisión, roles de trabajo, personal a su cargo, entre otros.
+3. Comunicar a los agentes de seguridad toda información importante del desarrollo de actividades legislativas.
+4. Llevar un control de asistencia y cumplimiento de horarios del personal de seguridad. Reportando a la Jefatura del Área de Seguridad, de forma diaria y oportuna las llegadas tardías, ausencias, incapacidades, accidentes, abandono de trabajo u otra cualquier anomalía que se presente.
+5. Elaboración mensual de inventario de armas, municiones, radios de comunicación, esposas y otros equipos de seguridad, el cual debe ser remitido a la Subjefatura de Seguridad.
+6. Entregar al personal de seguridad, los equipos necesarios para las funciones, con su debido control de entrega y devolución.
+7. Llevar diariamente el control del inventario de bienes asignados a la oficina de Supervisores de Turno, así como los puestos de seguridad y zona comunes.
+8. Llevar control diario del ingreso y salida para consignar el tiempo extraordinario realizado por el personal de seguridad, el cual debe ser informado al Subjefe de Seguridad.
+9. Hacer cumplir los roles de trabajo que le corresponden al personal de seguridad, con base en los roles de trabajo asignados por la Jefatura y Subjefatura de seguridad.
+10. Revisar permanentemente correos institucionales para estar informado de la agenda Legislativa, actividades, permisos, visitantes, etc.
+11. Realizar ajustes cuando sea necesario y de forma excepcional previa coordinación con Jefatura y Subjefatura del Área de Seguridad.
+12. Coordinar los relevos para tiempos de almuerzo, café y cena del personal de seguridad.
+13. Verificar que el personal de seguridad utilice correctamente el uniforme, el equipo asignado como arma, radio de comunicación, y chaleco balístico, en caso del incumpliendo, reportarlo de forma inmediata a la Subjefatura.
+14. Recorrer periódicamente las instalaciones legislativas, velar que el personal de seguridad, esté realizando las funciones de seguridad y realizar reportes cuando detecte que el funcionario no está realizando sus labores adecuadamente.
+15. Reportar cuando el personal de seguridad se encuentre utilizando equipos distractores en sus puestos como celulares, televisores, lectura no autorizada y cualquier otro objeto que los distraiga de sus funciones, incluso la presencia de personas externas a lo interno de la caseta.
+16. Verificar que puertas y ventanas de las oficinas de los edificios se encuentren cerradas y en condiciones adecuadas en horas no hábiles.
+17. Organizar al personal de seguridad a su cargo para que todas las actividades legislativas, como Plenario Legislativo, Comisiones Legislativas, barras públicas, y actividades especiales se encuentren cubiertas por personal de seguridad.
+18. Aplicar las directrices que giran la Jefatura y Subjefatura del Área de Seguridad.
+19. Realizar reportes periódicos a la Jefatura o Subjefatura del Área de Seguridad de los incidentes ocurridos durante su jornada.
+20. Velar por el uso racional del tiempo extraordinario.
+21. Velar por que el personal a cargo porte su carné de portación al día.
+22. Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.

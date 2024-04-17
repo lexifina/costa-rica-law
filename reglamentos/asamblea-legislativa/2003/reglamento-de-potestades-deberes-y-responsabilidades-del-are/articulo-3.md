@@ -1,5 +1,23 @@
-CAPÍTULO II
-Área de Seguridad
-(Así reformado el capítulo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-Artículo 3º-El objetivo del presente Reglamento es unificar la normativa relacionada con los servicios que presta el Área de Seguridad, establecer los mecanismos operativos adecuados que garanticen el suministro de un servicio de vigilancia y seguridad institucional efectivo sobre los bienes, las instalaciones, la población legislativa y los visitantes; así como establecer las disposiciones generales a las que deberán someterse los funcionarios de esa Área.
-(Así reformado mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
+Artículo 3.-Para efectos de interpretación del presente reglamento, se definen los siguientes términos:
+1. Agente de Seguridad: funcionario encargado de vigilar, conservar la tranquilidad, el orden institucional y la seguridad de los bienes, así como de la población legislativa y el público en general que visitan las instalaciones de la Asamblea Legislativa. Está capacitado para desempeñar su puesto y es nombrado de conformidad con lo que estipula el Manual Descriptivo de Puestos de la Asamblea Legislativa, investido de autoridad para el desempeño de sus funciones dentro de la institución.
+2. Arma reglamentaria: armas de fuego propiedad de la Asamblea Legislativa, para uso del personal de seguridad
+3. Bitácora: libro de registro diario en el que se describe todo lo relacionado con su jornada de trabajo y donde se detalla el inventario del puesto.
+4. Cámaras de monitoreo: dispositivo de vigilancia que permite el monitoreo constante por medio de video en tiempo real de todo lo que transcurre en la parte interna y externa de la Asamblea Legislativa.
+5. Complejo Legislativo: diferentes inmuebles que albergan a la población legislativa.
+6. Controles de acceso: dispositivo de automatización de acceso a sitios sensibles de la institución.
+7. Detención: se refiere a la posibilidad de retener momentáneamente a una persona que haya cometido un hecho delictivo que atente contra la Institución, población legislativa, público en general o bienes institucionales, con el único propósito poner a esa persona a disposición de la autoridad competente.
+8. Grupo Operativo: conjunto de personas nombradas en propiedad o interinamente que presta servicios como agentes de seguridad, supervisores de turno y técnicos de seguridad en el Área de Seguridad.
+9. Incidente mayor: hechos que ponga en riesgo la integridad física de la población legislativa o los bienes institucionales.
+10. Inspección: revisión a la que son sometidas las personas y sus bienes al ingreso o salida de la Institución; la finalidad es determinar si portan objetos prohibidos (armas, drogas, materiales inflamables). De esta revisión se exceptúan los diputados y diputadas, miembros de los Supremos Poderes, cuerpo diplomático acreditado y dignatarios internacionales. En caso de los visitantes y prestadores de servicios de empresas privadas, la revisión deberá realizarse de forma obligatoria.
+11. Personal Legislativo: toda persona nombrada en propiedad o interinamente en una plaza o puesto institucional, así como en forma ad honorem y en préstamo interinstitucional.
+12. Población Legislativa: conformado por los y las legisladoras y toda persona formalmente acreditada para desempeñar una función en la institución, personal ad honorem, pasantes, personal de organizaciones sociales institucionales.
+13. Prestadores de servicios de empresas privadas: personas que desempeñan sus labores en la institución, pero que no son personal legislativo, tales como el personal de administración del Edificio Principal, personal de empresa de limpieza, personal subcontratista y otros similares.
+14. Puesto de ingreso y/o salida: puesto de seguridad, dotado con equipos tecnológicos de seguridad para el control de ingreso y salida tantos de los activos muebles como de la población legislativa y visitantes.
+15. Puesto de seguridad: lugar específico, interno o externo, ubicado en los diferentes edificios que albergan la Asamblea Legislativa en el que se pueda ubicar a un agente de seguridad con el fin de brindar seguridad y vigilancia.
+16. Recorrido: ronda de vigilancia a cargo de un agente de seguridad en las instalaciones de la Asamblea Legislativa, que transita en forma periódica en un trayecto con el fin de verificar que todo esté en orden.
+17. Revisión vehicular: revisión a la que deben someterse los vehículos a la salida de la Institución para efecto de evitar la sustracción de bienes institucionales. De esta revisión se exceptúan los diputados y diputadas, miembros de los Supremos Poderes, cuerpo diplomático acreditado y dignatarios internacionales. En caso de los visitantes y prestadores de servicios de empresas privadas, la revisión deberá realizarse de forma obligatoria.
+18. Sensores de movimiento: dispositivo de control que detecta movimiento en las áreas comunes de las instalaciones legislativas.
+19. Sistema Tecnológico de Seguridad: plataforma que involucra todos los módulos tecnológicos con que cuenta el Área de Seguridad, que permitan brindar seguridad a la institución en tiempo real.
+20. Supervisor de Turno: persona encargada de supervisar las labores del grupo operativo a su cargo.
+21. Unidad de Monitoreo: zona donde se realiza vigilancia por medio de los equipos de seguridad tecnológica; cámaras, controles de acceso, alarmas perimetrales u otros, que recopilan información preventiva relevante para la institución.
+22. Visitante: toda persona que no es funcionaria, diputado o diputada, que ingrese con autorización, por alguna razón específica, al recinto legislativo.

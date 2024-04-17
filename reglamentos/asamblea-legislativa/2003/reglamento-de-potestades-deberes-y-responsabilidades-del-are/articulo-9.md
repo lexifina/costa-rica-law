@@ -1,24 +1,19 @@
-CAPÍTULO IV
-Funciones
-Artículo 9º-Serán tareas propias del jefe del Área de Seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Planear, dirigir, supervisar, coordinar y ejecutar las políticas que la Institución establezca en materia de seguridad, así como todo lo referente a la organización interna y actuación administrativa.
-b) Establecer las estrategias necesarias de vigilancia para contrarrestar los daños ocasionados por personas ajenas a la Institución, en lugares determinados y a horas específicas.
-c) Ejercer, sobre todo el personal del Área de Seguridad, la autoridad disciplinaria.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-d) Velar porque todos los funcionarios del Área de Seguridad cumplan sus obligaciones, según lo dispuesto por el presente Reglamento y la demás normativa aplicable.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-e) Promover la capacitación técnica del personal del Área.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-f) Celebrar reuniones con el personal para coordinar y evaluar el trabajo realizado.
-g) Efectuar inspecciones periódicas en los puestos de seguridad, con el fin de verificar el buen desarrollo del servicio.
-h) Aprobar los roles de trabajo de los agentes de seguridad que la subjefatura elabora.
-i) Revisar mensualmente el informe realizado por la subjefatura, referente al inventario del activo asignado del Área de Seguridad y dejar evidencia escrita de la revisión.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-j) Elaborar los planes anuales operativos de la Unidad, así como el presupuesto de suministros.
-k) Establecer un adecuado sistema de control interno, a fin de proteger y conservar el patrimonio con que se cuenta, así como garantizar la eficiencia y eficacia de las labores cotidianas.
-l) Establecer los registros necesarios para documentar y ejercer un control adecuado de los procesos que se ejecutan en la Unidad.
-m) Velar porque el personal del Área de Seguridad mantenga al día el permiso de portación de armas extendido por el Departamento de Armas y Explosivos del Ministerio de Seguridad Pública.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-n) Revisar y autorizar las boletas de tiempo extraordinario que se tramitan en el Área de Seguridad
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)o) Cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000.
+Artículo 9.-Serán tareas propias del Subjefe del Área de Seguridad:
+1. Participar junto con la Jefatura del Área de Seguridad en el establecimiento de las medidas tendientes a fortalecer la seguridad institucional.
+2. Realizar semestralmente un inventario general de la existencia y buen mantenimiento de todos los activos, equipos mobiliarios y materiales que-tiene a cargo el Área de Seguridad para efectuar sus funciones y dejar cronológicamente una evidencia escrita.
+3. Llevar inventarios periódicos y revisiones del estado y la custodia de los activos vitales, como: radio de comunicación, chalecos balísticos, armas letales o no letales, grillete o esposas, municiones, entre otros bienes.
+4. Elaborar junto a la jefatura, los roles de trabajo de los agentes de seguridad.
+5. Impartir instrucciones u órdenes especiales al grupo operativo, tanto antes del inicio de sus labores como durante la jornada laboral.
+6. Realizar informes y reportes periódicos a la Jefatura sobre las funciones desarrolladas y las situaciones ocurridas en las instalaciones de la Asamblea Legislativa.
+7. Realizar con frecuencia supervisiones directas en los puestos de seguridad, a fin de verificar que los agentes se presenten en óptimas condiciones laborales, que se realicen debidamente los cambios de rol, que el arma y las municiones se porten en la forma correcta, que en la bitácora del puesto conste toda la información correspondiente al cambio de rol; además, deberá consignarse la inspección realizada, a fin de valorar que el servicio prestado sea el mejor.
+8. Revisar, controlar y fiscalizar el tiempo extraordinario que laboran los funcionarios del Área de Seguridad, reportado por los Supervisores de Turno.
+9. Llevar a cabo reuniones periódicas con los supervisores de turno y el personal de seguridad, para abordar temas operativos de interés general, con respaldo de la Jefatura de área.
+10. Colaborar con la Jefatura del Área de Seguridad, en la confección de los planes anuales operativos y presupuestos.
+11. Sustituir en sus ausencias temporales del jefe de Área de Seguridad o supervisores de turno.
+12. Gestionar el inicio y tramitología para la contratación administrativa del Área de Seguridad, así como dar respuesta a los recursos planteados ante los procesos de contratación administrativa.
+13. Tramitar el contenido presupuestario y darles trámite a los contratos necesarios para el mantenimiento preventivo y correctivo de los equipos del Área de Seguridad.
+14. Realizar visitas de supervisión en horas fuera de los horarios ordinarios de trabajo previa comunicación y autorización de la Jefatura de Seguridad.
+15. Promover la capacitación del personal de seguridad de temas propios del Área de Seguridad.
+16. Realizar a los oferentes calificados para optar para un puesto de seguridad, prueba de conocimientos prácticos y teóricos del uso correcto de armas de fuego.
+17. Verificar que el personal del Área de Seguridad mantenga al día el permiso de portación de armas extendido por el Departamento de Armas y Explosivos del Ministerio de Seguridad Pública.
+18. Cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.

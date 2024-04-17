@@ -1,22 +1,15 @@
-Artículo 10.-Serán tareas propias del Subjefe del Área de Seguridad:
-(Así reformado el párrafo anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-a) Supervisar, controlar y coordinar con la jefatura lo relativo a las labores de seguridad y vigilancia.
-b) Realizar mensualmente inventarios de la existencia de todos los activos con los cuales cuenta del Área para efectuar sus funciones y dejar evidencia escrita mediante archivo cronológico de dicho inventario.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-c) Elaborar, con apego a la legislación laboral vigente, los roles de trabajo de los agentes de seguridad.
-d) Impartir instrucciones u órdenes especiales al personal, tanto antes del inicio de sus labores como durante su servicio. Las órdenes especiales, en la medida de las posibilidades, deberán girarse por escrito.
-e) Atender todas las consultas e inquietudes manifestadas por los subalternos.
-f) Participar conjuntamente con sus colaboradores en la atención de emergencias.
-g) Gestionar el mantenimiento preventivo y correctivo de las armas y de todo el equipo con que cuente del Área.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-h) Mantener al día la bitácora de la subjefatura y elaborar, en forma clara y precisa, los informes especiales de todas las anomalías y los sucesos acaecidos durante la jornada de trabajo.
-i) Realizar con frecuencia supervisiones directas en los puestos de seguridad, a fin de verificar que los agentes se presenten en óptimas condiciones laborales, que se realicen debidamente los cambios de rol, que el arma y las municiones se porten en la forma correcta, que en la bitácora del puesto conste toda la información correspondiente al cambio de rol; además, deberá consignarse la inspección realizada, a fin de valorar que el servicio prestado sea el mejor.
-j) Gestionar oportunamente la adquisición del equipo necesario para realizar las labores de la Unidad.
-k) Sustituir al jefe durante sus ausencias.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-l) Revisar, controlar y registrar el tiempo extraordinario que laboran los funcionarios de la Unidad.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "... k) Revisar, controlar y registrar el tiempo extraordinario que laboran los funcionarios de la Unidad")
-m) Colaborar con la jefatura del Área, en la confección de los planes anuales operativos y en la del presupuesto de materiales.
-(Así reformado el inciso anterior mediante sesión ordinaria Nº 045-2023 del 18 de abril del 2023)
-n) Cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000.
-(Corregido mediante Fe de Erratas publicada en La Gaceta N° 54 del 18 de marzo del 2014, página N° 92. Anteriormente decía "...m) Cualquier otra tarea asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa, publicado en La Gaceta N° 100, Alcance 35, del 25 de mayo del 2000")
+Artículo 10.-Serán tareas propias del asistente administrativo del Área de Seguridad:
+1. Atender el trámite de la correspondencia, archivo, control y traslado.
+2. Redactar y transcribir notas, cartas, informes, oficios y otros documentos.
+3. Vigilar que se mantengan actualizados los registros y archivos del Área de Seguridad (circulares, notas, oficios, solicitudes, boletas de tiempo extraordinario u otros).
+4. Atender y controlar el uso del teléfono y de todo el equipo de oficina asignado a su área.
+5. Asistir a la jefatura en reuniones de trabajo, tomar notas y confeccionar informes o actas.
+6. Enviar el equipo dañado a la Unidad de Mantenimiento para que sea reparado. Proceder a levantar el acta de declaración de desecho de aquellos bienes en mal estado por deterioro físico o funcional.
+7. Llevar el control de la agenda del jefe de Área de Seguridad.
+8. Realizar las requisiciones de materiales al Departamento de Proveeduría.
+9. Colaborar con la jefatura en la confección del presupuesto anual de suministros del Área de Seguridad.
+10. Colaborar con la Jefatura del Área de Seguridad en la confección del informe de labores.
+11. Realizar informe mensual de tiempo extraordinario, de los agentes de seguridad.
+12. Tramitar vacaciones de funcionarios de seguridad, así como las incapacidades de todo el personal.
+13. Reporte mensual al departamento de Recursos Humanos del control de los funcionarios que no portan carné.
+14. Cualquier otra asignada en el Manual Descriptivo de Clases de Puestos de la Asamblea Legislativa.
