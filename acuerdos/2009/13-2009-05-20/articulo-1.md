@@ -394,10 +394,16 @@ Para el desempeño de los cargos ubicados en esta clase se requiere capacidad pa
 CONOCIMIENTOS BÁSICOS
 Los relacionados con el uso adecuado de implementos de oficina como computador, programas informáticos relacionados, equipos de comunicación como centrales telefónicas, fax.
 Los relacionados con la estimulación, actualización y capacitación en habilidades directamente relacionadas con las labores que le corresponde desarrollar como técnicas de redacción y archivo, servicio al cliente, relaciones humanas, procesos y procedimientos institucionales, etc.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Título de bachiller en Educación Media y título de Secretariado o graduado en Secretariado de un colegio técnico profesional.
+(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Título de Bachiller en Educación Media y título de Secretariado o graduado en Secretariado de un colegio técnico profesional.
 Capacitación en el uso y manejo de paquetes de cómputo.
 Experiencia mínima de un año en labores relacionadas con el cargo o área de actividad.
+ó
+Título de Bachiller en Educación Media.
+Capacitación relacionada a las técnicas de oficina.
+Capacitación en el uso y manejo de paquetes de cómputo.
+Experiencia mínima de dos años año en labores relacionadas con el cargo o área de actividad.
+(*)(Así reformado el punto anterior mediante sesión ordinaria Nº 088-2024 del 17 de abril de 2024)
 SECRETARIA O SECRETARIO DE PARLAMENTO
 Objetivo del trabajo: Comprometerse responsablemente con las labores secretariales de alguna de las siguientes unidades administrativas: direcciones de departamentos, divisiones o Dirección Ejecutiva donde, por las características gerenciales de las actividades, se demanda constante coordinación intra e inter departamentos e instituciones. Además, le corresponde la realización de actividades secretariales de carácter ejecutivo en uno o más procesos de trabajo. Para ello se requiere poseer conocimiento general de la estructura formal y funcional de la Asamblea Legislativa, así como el dominio de técnicas y prácticas propias de este tipo de labores.
 Ubicación: Tales puestos deben desempeñar sus labores en la dirección de los diferentes departamentos de la Institución, en alguna de las dos divisiones existentes o en la Dirección Ejecutiva.

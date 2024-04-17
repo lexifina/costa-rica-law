@@ -31,3 +31,4 @@ Manual descriptivo de clases de puestos de la Asamblea Legislativa
 | 16 | 2022-08-09 | Reglamento 13 (2022-08-09) |
 | 17 | 2023-05-09 | Reglamento 49 (2023-05-09) |
 | 18 | 2023-06-21 | Reglamento 53 (2023-06-21) |
+| 19 | 2024-04-17 | Reglamento 88 (2024-04-17) |
