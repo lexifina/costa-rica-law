@@ -1,2 +1,0 @@
-Artículo 50.-Salvo los casos previstos en este Reglamento, la omisión de una marca en el sistema al inicio o término de la jornada de trabajo, hará presumir la inasistencia del servidor a la fracción o jornada de servicio correspondiente, salvo que presente la respectiva justificación a más tardar dentro de los tres días hábiles siguientes a aquel en que el hecho sucedió y ésta sea aceptada por el superior.
-(Así reformado en sesión N° 44 del 22 de julio de 2021)

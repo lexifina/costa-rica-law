@@ -1,1 +1,0 @@
-Artículo 26.—Los servidores al servicio de la Junta incluidos o no en el Régimen de Servicio Civil, tendrán derecho a que se les reconozca las revaloraciones generales, que se decretan para los servidores del Sector Central. Regulados conforme las disposiciones que sobre salarios mínimos dicte el Poder Ejecutivo.

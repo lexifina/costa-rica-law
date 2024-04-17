@@ -1,1 +1,0 @@
-Artículo 12.—En todo Contrato de Trabajo, se tienen por incluidos todos los derechos y obligaciones que este Reglamento establece, así como los contenidos en las convenciones y los acuerdos de la Junta Directiva o las disposiciones administrativas que estén en vigencia.

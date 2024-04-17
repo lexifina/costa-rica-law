@@ -1,1 +1,0 @@
-Artículo 28.—El salario será pagado por período semanales o quincenales según el cuadro de pagos elaborado por el Departamento de Contabilidad, con el respectivo centro de trabajo y dentro de las horas hábiles del día o el día anterior si aquellos inciden en feriados.

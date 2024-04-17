@@ -1,1 +1,0 @@
-Artículo 21.—No están sometidos a los límites máximos de la jornada de servicio los funcionarios que se encuentren en los casos previstos en el artículo 143 del Código de Trabajo, a quienes se les podrá exigir una jornada de doce horas, con una y media hora de descanso, según lo establece esa disposición legal.

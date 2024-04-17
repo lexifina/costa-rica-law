@@ -1,1 +1,0 @@
-Artículo 34.—El pago de las vacaciones se hará con base en las remuneraciones ordinarias y extraordinarias devengadas por el servidor durante las últimas cincuenta semanas de servicio, o durante el tiempo que le diera derecho proporcional a las mismas.

@@ -1,1 +1,0 @@
-Artículo 17.—La Junta podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que las circunstancias especiales así lo exijan y no se cause perjuicio a los servidores y al servicio público, que se preste. En este caso deberá avisar a los servidores afectados con un mínimo de tres días de anticipación.

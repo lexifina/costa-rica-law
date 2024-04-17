@@ -1,2 +1,0 @@
-Artículo 73.—Las sanciones serán ejecutadas o impuestas por el jefe del departamento de Personal. Los despidos se llevarán a cabo a través de la Delegación Ejecutiva y Subdelegación Ejecutiva.
-No obstante lo anterior, -el apercibimiento verbal podrá ser impuesto directamente por los jefes de departamento; quienes podrán notificarlo por escrito al Departamento de Personal a efecto de dejar constancia de la sanción impuesta.

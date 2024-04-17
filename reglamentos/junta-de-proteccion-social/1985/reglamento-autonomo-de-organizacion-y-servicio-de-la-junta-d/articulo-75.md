@@ -1,3 +1,0 @@
-Artículo 75.—Es deber de la empresa adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de sus trabajadores, conforme con los términos del Código de Trabajo, su reglamento, los reglamentos de Salud Ocupacional que se promulguen y las recomendaciones que en esta materia formulen tanto el Consejo de Salud Ocupacional como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros que garanticen:
-a) La protección de la salud y la preservación de la integridad física, moral y social de los trabajadores.
-b) La prevención y control de los riesgos de trabajo.

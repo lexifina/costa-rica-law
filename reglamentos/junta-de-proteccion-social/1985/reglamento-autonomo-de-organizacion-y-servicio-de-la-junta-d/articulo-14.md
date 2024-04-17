@@ -1,1 +1,0 @@
-Artículo 14.—Fuera de las excepciones que establezca la Ley, este Reglamento y otras disposiciones aplicables, los servidores deberán aceptar como laborales todos los días del año, excepto los días de descanso semanal así como todos los turnos de trabajo (diurno, mixto o nocturno), que les asigne de acuerdo con las necesidades de los servicios.

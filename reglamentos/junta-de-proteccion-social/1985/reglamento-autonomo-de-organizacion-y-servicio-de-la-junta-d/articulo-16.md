@@ -1,1 +1,0 @@
-Artículo 16.—No obstante lo establecido en el artículo anterior, se respetarán las jornadas especiales ya establecidas y las concesiones otorgadas siempre y cuando ellas se configuren como derechos adquiridos.

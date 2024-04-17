@@ -1,1 +1,0 @@
-Artículo 8°—La selección de los candidatos idóneos para servir a los cargos de Delegado Ejecutivo, Subdelegado Ejecutivo, Auditor Interno y Jefas de Departamento, deberán hacerse mediante concurso de antecedentes y acuerdo de la Junta Directiva. El Personal Técnico y Administrativo, deberá hacerse mediante concurso de antecedentes, de oposición o de ambos géneros a la vez.

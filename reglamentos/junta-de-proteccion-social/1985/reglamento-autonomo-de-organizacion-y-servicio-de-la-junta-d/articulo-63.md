@@ -1,4 +1,0 @@
-Artículo 63.—La suspensión del servicio sin goce de salario, se podrá imponer hasta por ocho días máximo, una vez que se haya oído al interesado y a los compañeros de trabajo que él indique, en un máximo de cuatro, en los siguientes casos:
-a) Cuando el servidor, después de haber sido amonestado por escrito, incurra nuevamente en la falta que motivó la amonestación, si la falta no diera mérito para el despido.
-b) Cuando el servidor cometa alguna falta de tal gravedad que no dé mérito para el despido, excepto si estuviere sancionado de manera especial por otra disposición de este Reglamento.
-c) Cuando el servidor, habiendo solicitado licencia y ésta se le haya concedido para ausentarse de sus labores en cumplimiento de una obligación legal, para asistir a tratamiento médico o por necesidad personal, y se le compruebe que no la utiliza para tal fin. La reincidencia dentro del lapso de los tres meses siguientes, se calificará como falta grave para efectos de sanción.

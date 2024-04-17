@@ -1,1 +1,0 @@
-Artículo 25.—En el evento de que las funciones de un puesto varíen, el servidor podrá solicitar, por intermedio de su superior inmediato, una reasignación de su puesto al Departamento de Personal, el que deberá asesorarse de la Dirección General de Servicio Civil.

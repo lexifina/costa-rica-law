@@ -1,1 +1,0 @@
-Artículo 97.—El presente Reglamento, se presumirá conocido de todos los servidores de la Junta desde el día de su vigencia inclusive para los-que en el futuro trabajen en la Junta, y por lo tanto a partir de esa fecha será de observancia obligatoria para todos.

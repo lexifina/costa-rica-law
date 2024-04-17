@@ -1,2 +1,0 @@
-Artículo 70 bis.- Las ausencias injustificadas del Gerente General, el Gerente de Operaciones, el Gerente de Producción y Comercialización, el Gerente de Operaciones o sus representantes a las labores relacionadas con la realización y celebración de los sorteos de lotería y la recepción de excedentes de loterías, se considerará una falta grave y se sancionará conforme con lo establecido el artículo 68 de este Reglamento.
-(Así adicionado mediante publicación en el Alcance Digital N° 164-A a La Gaceta N° 127 del 5 de julio del 2017)

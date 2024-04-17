@@ -1,4 +1,0 @@
-Artículo 6°—Los Contratos de Trabajo serán:
-a) Por tiempo indefinido: Que se llevarán a cabo con aquellos servidores indispensables para satisfacer las necesidades propias y permanentes de la Junta.
-b) Por tiempo determinado: Que se celebrará con aquellos servidores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentran disfrutando de vacaciones, licencias, incapacidades, así como en aquellos casos excepcionales que se puedan presentar. Todo contrato de esta naturaleza es susceptible de prórroga de conformidad con lo establecido por el Artículo 27 del Código de Trabajo.
-c) Por obra determinada: Que se podrá celebrar para satisfacer necesidades que eventualmente se presenten en la Junta y en las cuales previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.

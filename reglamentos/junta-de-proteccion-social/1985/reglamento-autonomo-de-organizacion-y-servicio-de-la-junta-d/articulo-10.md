@@ -1,1 +1,0 @@
-Artículo 10.—En todo contrato o relación de servicio por tiempo indeterminado, habrá un período de prueba no menor de tres meses. Durante este período y sin previo avia o, cualesquiera de las partes podrá dar por terminado el contrato o relación laboral que los una.

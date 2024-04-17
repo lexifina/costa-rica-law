@@ -1,1 +1,0 @@
-Artículo 86.—Las peticiones, reclamos o sugestiones, deben presentarlas los servidores por escrito a su jefe inmediato, sin perjuicio de que en forma verbal se arreglen los asuntos de menor importancia, o se planteen y resuelvan de inmediato los asuntos de mayor urgencia. Los jefes harán llegar a la Delegación Ejecutiva la peticiones, reclamos y sugerencias.

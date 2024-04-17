@@ -1,1 +1,0 @@
-Artículo 89.—Cuando el servidor fuera incapacitado a causa de un riesgo profesional recibirá hasta su total recuperación, un subsidio equivalente a la suma que le falte para completar su salario mensual, hasta por dos años máximo.

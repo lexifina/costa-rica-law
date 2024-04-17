@@ -1,1 +1,0 @@
-Artículo 99.—A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias las leyes del Código de Trabajo, Ley General de la Administración Pública y demás leyes, decretos y reglamentos conexos de la materia que estén en vigencia en el país.

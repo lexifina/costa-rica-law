@@ -1,1 +1,0 @@
-Artículo 19.—No se considerarán horas extras las que el servidor ocupe en subsanar errores imputables sólo a él cometidos durante la jornada ordinaria de trabajo. Las horas extras deben ser autorizadas expresamente por la Delegación Ejecutiva, y los organismos correspondientes.

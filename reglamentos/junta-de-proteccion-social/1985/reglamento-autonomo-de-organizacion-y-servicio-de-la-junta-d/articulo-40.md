@@ -1,2 +1,0 @@
-Artículo 40.—Todos los servidores de la Junta, cualquiera que sea la función que desempeñan, tendrán derecho a un sueldo adicional anual equivalente a la doceava parte del total de los salarios ordinarios y extraordinarios percibidos durante el período respectivo.
-Dicho beneficio, será entregado dentro de los primeros veinte días del mes de diciembre de cada año, salvo terminación del contrato o relación de servicio antes de vencerse el período, caso en el cual se pagará proporcionalmente y de inmediato.

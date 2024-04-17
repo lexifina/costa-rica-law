@@ -1,1 +1,0 @@
-Artículo 20.—Para todos los servidores, salvo las excepciones contempladas en las leyes, decretos y reglamentos conexos que estén en vigencia, en este Reglamento, las jornadas ordinarias de trabajo no podrán ser mayores de ocho horas diurna, de siete la mixta y de seis la nocturna.

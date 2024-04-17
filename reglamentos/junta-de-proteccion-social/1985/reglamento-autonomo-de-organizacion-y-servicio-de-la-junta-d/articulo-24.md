@@ -1,1 +1,0 @@
-Artículo 24.—Las labores descritas en las especificaciones de clases de te Manual, no deberán interpretarse como restrictivas ni prescriptivas, sino sólo representativas del trabajo del puesto que se desempeña y, en consecuencia, ningún servidor podrá negarse a ejecutar otras labores no contenidas en ésta, acordes con su capacidad y condición.

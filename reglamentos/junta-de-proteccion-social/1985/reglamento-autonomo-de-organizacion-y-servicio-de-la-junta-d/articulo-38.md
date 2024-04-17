@@ -1,1 +1,0 @@
-Artículo 38.—En las labores que no sean pesadas, insalubres o peligrosas se podrá trabajar, por convenio de ambas partes, durante el día de descanso semanal cuando sea necesario ejecutar labores indispensables para la buena marcha de la Junta. Artículo 152 del Código de Trabajo.

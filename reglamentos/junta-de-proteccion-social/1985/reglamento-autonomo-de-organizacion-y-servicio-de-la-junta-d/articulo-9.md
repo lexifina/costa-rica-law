@@ -1,1 +1,0 @@
-Artículo 9°—Será nulo cualquier nombramiento en contravención de este Reglamento, pero las actuaciones del funcionario así nombrado que se ajusten a la Ley y a los Reglamentos, serán válidas, así como de acuerdo con los Convenios Colectivos en vigencia.
