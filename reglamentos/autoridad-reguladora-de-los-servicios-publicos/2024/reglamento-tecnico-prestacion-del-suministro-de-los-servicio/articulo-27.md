@@ -1,0 +1,3 @@
+Artículo 27.- Responsabilidad
+El prestador no será responsable de los daños en la propiedad del abonado o usuario, debido a deficiencias en las instalaciones dentro del mismo, que se originen por el mal estado o falta de mantenimiento del equipamiento de la red propiedad y responsabilidad del abonado.
+Sin embargo, si se dan deficiencias de la calidad del suministro por el mal estado o falta de mantenimiento del sistema de medición o de los elementos de la acometida, que son propiedad del prestador, o excesos de presión, el prestador será responsable por los daños causados a equipos o instalaciones de los abonados o usuarios del servicio.

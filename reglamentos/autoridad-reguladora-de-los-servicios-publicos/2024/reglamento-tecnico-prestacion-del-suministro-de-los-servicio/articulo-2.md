@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación.
+Este reglamento es aplicable a la prestación de los servicios públicos de acueducto, alcantarillado sanitario (que incluye la recolección, tratamiento y evacuación) e hidrantes en cuanto a: la calidad del producto, cantidad, continuidad, accesibilidad, oportunidad, no discriminación, eficiencia, confiabilidad e igualdad para garantizar la prestación óptima de los servicios. De conformidad con lo establecido en la Ley 7593.

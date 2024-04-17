@@ -1,0 +1,3 @@
+Artículo 65.- Calidad del agua residual para vertido.
+La calidad del agua residual para vertido proveniente del sistema de alcantarillado sanitario deberá cumplir con las condiciones establecidas en la legislación nacional vigente, así como otras disposiciones que establezcan las autoridades competentes.
+Cuando el control de calidad del agua residual demuestre que uno o varios parámetros se encuentran disconformes con los valores establecidos, el prestador deberá tomar las medidas correctivas necesarias para disponer las aguas residuales conforme con los valores admisibles en la legislación vigente.

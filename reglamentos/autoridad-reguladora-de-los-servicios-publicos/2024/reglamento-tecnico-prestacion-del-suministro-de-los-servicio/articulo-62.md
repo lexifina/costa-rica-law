@@ -1,0 +1,3 @@
+Artículo 62.- Gestión de residuos
+Los prestadores deberán gestionar todos los residuos generados de su actividad, de acuerdo con lo que establece la legislación nacional vigente y las instituciones competentes.
+Todas las aguas residuales y sus subproductos generados de la operación de los procesos unitarios presentes en las plantas potabilizadoras o los provenientes del tratamiento de aguas servidas, deberán recibir tratamiento previo al vertido o disposición final, de forma tal, que se adecúen sus condiciones fisicoquímicas y microbiológicas al cumplimiento de la legislación nacional vigente en materia de vertido de aguas residuales y tratamiento de lodos.

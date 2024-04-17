@@ -1,0 +1,7 @@
+Artículo 106.- Plazo para la reparación de fugas en el sistema de agua potable o en hidrantes.
+El prestador del servicio atenderá y reparará las fugas el servicio de conformidad con los siguientes plazos:
+a. Si la fuga se da en la acometida del usuario, el prestador deberá efectuar la reparación dentro de un plazo máximo de 5 días naturales, contados a partir del momento en que tenga conocimiento de la fuga o de recibido el respectivo reporte.
+b. Si la fuga es en la red de distribución o en las bocatomas de hidrantes, el prestador deberá efectuar la reparación dentro de un plazo máximo de 5 días naturales, contados a partir del momento en que tenga conocimiento de la fuga o de recibido el respectivo reporte.
+c. Si la fuga es en tuberías de conducción o redes primarias (tubos madre) para agua potable, la atención deberá efectuarse en un plazo no mayor a 24 horas y deberán establecerse mecanismos para reducir o controlar la pérdida de agua mientras se repara la fuga. La reparación definitiva de la red debe realizarse dentro de un plazo no mayor a 20 días naturales.
+d. Si la fuga puede poner en riesgo la infraestructura pública o privada, el plazo que tiene el prestador para detener la fuga es de hasta 24 horas. La reparación definitiva de la infraestructura y rehabilitación de la red debe efectuarse como máximo dentro de los 20 días naturales siguientes al inicio del evento.
+Los plazos para efectuar reparaciones podrán ser mayores, siempre y cuando, el prestador demuestre los motivos por los cuales se requiere aumentar el plazo.

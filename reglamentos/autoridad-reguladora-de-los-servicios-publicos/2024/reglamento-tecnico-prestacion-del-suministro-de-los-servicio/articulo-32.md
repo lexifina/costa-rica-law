@@ -1,0 +1,3 @@
+Artículo 32.- Cambios en el consumo registrado.
+Cuando en un servicio se registren cambios en el registrado, respecto del consumo promedio normal, si el abonado considera que dicho consumo está alterado o no le corresponde, para presentar la queja o solicitar la revisión del medidor, debe adjuntar una declaración jurada que indique que los hábitos de consumo no han variado, no se han adquirido artefactos que consuman más agua, realizado otras conexiones, no se han realizado reparaciones recientes que pudieran afectar la instalación mecánica.
+Adicionalmente, el abonado puede suministrar documentación que demuestre que la instalación mecánica en el inmueble está funcionando correctamente.

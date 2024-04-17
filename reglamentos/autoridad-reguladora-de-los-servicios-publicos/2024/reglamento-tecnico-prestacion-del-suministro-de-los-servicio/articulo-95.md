@@ -1,0 +1,4 @@
+Artículo 95.- Obligatoriedad de buen funcionamiento del sistema de medición.
+Los prestadores del servicio están obligados a mantener en buen estado de funcionamiento todos los componentes del sistema de medición, garantizando en forma permanente que cumpla con los márgenes de tolerancia, continuidad del registro y seguridad de la instalación.
+Los sistemas de medición deben cumplir con los parámetros de funcionamiento de conformidad con las condiciones que se establecen en la Norma Técnica de Hidrómetros o la reglamentación técnica que en el futuro la sustituya.
+El prestador debe implementar las acciones que correspondan para evitar la afectación en la medición por la presencia de aire en la tubería, a fin de evitar que los equipos de medición registren el aire durante su operación y que, en caso de interrupción del suministro de agua, el aire acumulado en la tubería sea evacuado antes de llegar al medidor.

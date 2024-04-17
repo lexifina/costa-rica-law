@@ -1,0 +1,3 @@
+Artículo 12.- Publicidad de la información.
+Los prestadores deben publicar en el diario oficial La Gaceta y en los medios que consideren oportunos, todo procedimiento o requisito referido a la prestación de los servicios y sus trámites cuando estos modifiquen o crean obligaciones o derechos, junto con los instructivos, reglamentos, manuales, formularios, protocolos y demás documentos complementarios. Estos documentos deben estar ubicados en los lugares de atención al público, redes sociales, así como en su sitio web, si contara con uno.
+Todo trámite debe cumplir con lo establecido en la Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos y su reglamento o cualquiera que en el futuro la sustituya.

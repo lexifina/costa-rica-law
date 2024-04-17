@@ -1,0 +1,5 @@
+Artículo 56.- Solicitud de desconexión del servicio por parte del abonado (desinstalación, eliminación).
+Si el propietario del inmueble considera que ya no son necesarias las conexiones de los servicios, podrá solicitar la desconexión de estos; para lo cual deberá pagar la tarifa de desconexión fijada por la Autoridad Reguladora y cualquier pendiente o deuda que tenga con el operador.
+Los prestadores están obligados a atender toda solicitud de desconexión del servicio, siempre y cuando no haya pendientes de pago ni afectación a terceros de manera directa. Esta solicitud debe atenderse en un plazo máximo de cinco días naturales contados a partir del recibido a satisfacción de todos los requisitos establecidos por el prestador.
+En caso de que el propietario del inmueble desee contar de nuevo con el servicio público, deberá cumplir con los requisitos y trámites para un servicio nuevo y realizar el pago correspondiente de un nuevo servicio.
+En el caso de la existencia contratos vigentes de arrendamiento o alquiler el propietario del inmueble no podrá solicitar la desconexión del servicio con el fin de obligar el desalojo del inmueble.

@@ -1,0 +1,4 @@
+Artículo 15.- Solicitud de admisión a los servicios.
+Los servicios de acueducto y alcantarillado sanitario sólo podrán ser solicitados por el propietario o por quién ostente, mediante las figuras de representación establecidas por el ordenamiento jurídico, la manifestación de voluntad del propietario.
+En aquellos territorios del país con características especiales, como zona marítimo terrestre, zonas fronterizas, territorios indígenas, polos de desarrollo turístico, entre otros, que se otorgan mediante concesiones, arriendos y asignaciones, los solicitantes deberán presentar la autorización expresa del Ente correspondiente, según la norma que los regule.
+Los prestadores deben admitir solicitudes de nuevos servicios, sin discriminación de acceso, a quien cumpla con los requisitos y obligaciones respectivas y brindar los servicios cuando sea técnicamente factible.

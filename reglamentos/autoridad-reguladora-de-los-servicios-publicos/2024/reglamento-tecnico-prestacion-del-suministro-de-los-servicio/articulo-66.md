@@ -1,0 +1,4 @@
+Artículo 66.- Acceso a la información sobre la calidad del agua para consumo y sobre la calidad del agua residual.
+Los prestadores, tanto de acueducto como de alcantarillado sanitario, deben brindar acceso irrestricto a los resultados de calidad del agua para consumo y de calidad del agua residual respectivamente; que se obtienen en todos los sistemas bajo su operación.
+De igual forma deben publicar a través del sitio web, medios de comunicación colectiva o cualquier otro, los resultados de los estudios efectuados periódicamente a la calidad del agua para consumo humano y la calidad de las aguas vertidas.
+Los datos podrán ser solicitados por parte de cualquier interesado (sea físico o jurídico), en cuyo caso el prestador estará obligado a suministrar la información en el plazo de máximo de 15 días naturales y esto no eximirá de la publicación indicada en el párrafo anterior.

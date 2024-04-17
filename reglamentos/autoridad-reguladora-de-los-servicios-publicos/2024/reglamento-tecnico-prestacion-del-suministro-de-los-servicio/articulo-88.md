@@ -1,0 +1,2 @@
+Artículo 88.- Medios alternativos de suministro del servicio de acueducto
+Los prestadores definirán los servicios alternativos de suministro del servicio de acueducto, estos podrán ser camiones cisterna, tuberías temporales, fuente pública u otros, siempre que estos garanticen que el agua brindada reúna las características de calidad y que asegure el acceso al agua potable para cubrir las necesidades básicas de los usuarios del área afectada.

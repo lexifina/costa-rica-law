@@ -1,0 +1,2 @@
+Artículo 17.- Plazo para la instalación de un nuevo servicio.
+Una vez cumplidos los requisitos y cancelada la tarifa respectiva, los prestadores contarán con un plazo máximo de 8 días naturales para realizar la conexión de cada servicio aprobado. Para la instalación de medidores de agua, se observarán las condiciones establecidas en la Norma Técnica de Hidrómetros o la reglamentación técnica que en el futuro la sustituya.

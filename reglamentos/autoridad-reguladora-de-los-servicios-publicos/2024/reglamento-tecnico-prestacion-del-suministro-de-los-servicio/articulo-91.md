@@ -1,0 +1,2 @@
+Artículo 91.- Atención de obras para satisfacer la escasez del suministro de agua.
+En los casos de racionamiento provocado por escasez de agua, el prestador deberá desarrollar un plan de gestión para el mejor aprovechamiento del recurso hídrico disponible, disminuir las pérdidas provocadas por fugas, desperdicio o rebalses, mantener las reservas necesarias para solventar los problemas de déficit hídrico o hidráulico, y cuando corresponda, justificar y solicitar los recursos presupuestarios necesarios para realizar las obras que se requieran.

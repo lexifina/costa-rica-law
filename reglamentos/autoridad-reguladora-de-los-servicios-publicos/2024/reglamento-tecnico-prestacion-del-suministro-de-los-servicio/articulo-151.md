@@ -1,0 +1,3 @@
+Artículo 151.- Obligatoriedad de pago de los cargos fijos en modalidad prepago.
+El abonado que solicita el servicio en modalidad prepago deberá pagar los montos correspondientes al cargo fijo del servicio de acueducto, el cargo fijo del servicio de alcantarillado, la tarifa de hidrantes y la tarifa de protección del recurso hídrico (en caso de que corresponda) cada mes y, adicionalmente, el equivalente al consumo que estime realizar en el mes, es decir, el cargo variable.
+Al igual que el servicio post pago, para esta modalidad se emite una factura mensual que incluye lo indicado en este reglamento.

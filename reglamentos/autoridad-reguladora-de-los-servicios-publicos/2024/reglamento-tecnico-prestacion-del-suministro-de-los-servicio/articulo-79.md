@@ -1,0 +1,3 @@
+Artículo 79.- Condiciones especiales en el inmueble que afectan la presión interna.
+Cuando la presión del suministro del servicio de acueducto cumpla con lo establecido, pero sea insuficiente por las condiciones particulares dentro de la propiedad del usuario, es responsabilidad del profesional responsable del diseño de la instalación mecánica y del abonado, instalar un sistema alternativo para lograr la presión que requiere.
+Para evitar el flujo inverso (que el agua se devuelva de la propiedad a la red), el prestador deberá instalar una válvula antirretorno en los casos en que el medidor no controle el flujo inverso.

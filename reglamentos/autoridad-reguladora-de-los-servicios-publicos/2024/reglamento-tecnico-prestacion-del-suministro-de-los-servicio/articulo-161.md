@@ -1,0 +1,2 @@
+Artículo 161.- Derogatorias.
+El presente Reglamento deroga totalmente el "Reglamento Técnico Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, AR-PSAYA-2013", publicado el 29 de septiembre de 2014 en la Gaceta N°186, Alcance N°50; y su reforma: "Reglamento Técnico Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes, AR-PSAYA-2015", publicada en la Gaceta N°69, Alcance N°55 del 12 de abril de 2016.

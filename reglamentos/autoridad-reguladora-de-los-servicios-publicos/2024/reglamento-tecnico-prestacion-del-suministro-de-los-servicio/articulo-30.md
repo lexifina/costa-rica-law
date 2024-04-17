@@ -1,0 +1,8 @@
+CAPÍTULO V
+INTERPOSICIÓN DE QUEJAS, DENUNCIAS Y RECLAMOS
+Artículo 30.- Tramitación de quejas y denuncias.
+El prestador deberá tramitar, investigar y resolver las quejas y denuncias presentadas por la prestación del servicio, de acuerdo con los plazos y procedimientos establecidos en la Ley General de la Administración Pública N°6227 y los que se definan en este Reglamento.
+Cuando el abonado o usuario debidamente autorizado, interpone una queja o presenta una denuncia ante el prestador, éste deberá resolverla y brindar la respuesta formalmente de manera física o electrónica, dentro de los 15 días naturales siguientes al recibo de la gestión, pudiendo dicho plazo extenderse hasta un mes, con la justificación necesaria.
+En el caso de quejas por incumplimiento en la calidad del agua, el prestador está obligado a tramitarla y brindar una solución en un máximo de 48 horas. La solución puede ser temporal si la situación ocasiona riesgos sanitarios o atenta contra la salud pública o el ambiente.
+En el caso de quejas por interrupción temporal que se prolongue por más de 6 horas el suministro de acueducto, el prestador está obligado a brindar un servicio alternativo de suministro de agua potable a los abonados, que cubra las necesidades de hospitales, clínicas y centros de salud; y necesidades básicas de los abonados domiciliares y comunicar mediante medios de comunicación colectiva, la ubicación y condiciones del servicio alternativo de agua.
+Los prestadores del servicio están en la obligación de articular y coordinar todas las acciones que sean necesarias para un abordaje integral de la atención de las quejas y denuncias, con el ente regulador.

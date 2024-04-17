@@ -1,0 +1,3 @@
+Artículo 31.- Denuncias sobre la prestación de los servicios.
+Las denuncias no estarán sujetas a formalidades, por lo que pueden plantearse personalmente o por cualquier medio de comunicación que el operador habilite para este fin, siendo suficiente que el denunciante especifique la irregularidad y su ubicación.
+El prestador deberá tramitarlas de forma expedita, realizando los análisis técnicos y legales requeridos, especialmente si la situación puede crear riesgo sanitario, atentar contra la salud pública o el ambiente, uso inapropiado del agua, u ocasionar desperdicio o fugas de agua. Los resultados de la denuncia deben comunicarse al interesado, en caso de haber indicado medio para atender notificaciones.

@@ -1,0 +1,2 @@
+Artículo 68.- Trazabilidad de la información sobre la calidad del agua.
+Toda la información de calidad del agua que generen los prestadores de los servicios públicos de acueducto y alcantarillado deberá indicar el nombre y la codificación del sistema de abastecimiento al cual se encuentra relacionado, así como se debe indicar el punto del sistema donde se realiza el control, con el fin de que exista trazabilidad de la información.

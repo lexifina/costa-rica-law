@@ -1,0 +1,2 @@
+Artículo 71.- Catastro de descargas de aguas residuales especiales.
+Los prestadores del servicio de alcantarillado sanitario deberán mantener un catastro actualizado de las descargas de aguas residuales de tipo especial a su sistema, según la normativa vigente. El catastro debe contener como mínimo la identificación de manera individual de cada punto de descarga, con información georreferenciada y tipo de industria.

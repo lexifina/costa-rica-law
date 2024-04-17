@@ -1,0 +1,2 @@
+Artículo 160.- Obligatoriedad de cumplimiento.
+El presente Reglamento será de acatamiento obligatorio para los prestadores de los servicios de acueducto, alcantarillado sanitario e hidrantes regulados por la Autoridad Reguladora de los Servicios Públicos y para los abonados de estos servicios en lo que les corresponde. En caso de que alguna disposición emitida por los prestadores se contraponga a este Reglamento, el prestador deberá aplicar lo aquí dispuesto.

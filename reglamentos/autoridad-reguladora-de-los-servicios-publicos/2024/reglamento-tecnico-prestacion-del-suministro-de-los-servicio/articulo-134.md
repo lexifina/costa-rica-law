@@ -1,0 +1,3 @@
+Artículo 134.- Traslado parcial del consumo por periodo de lectura superior a los días del mes al cobro.
+En el caso excepcional en el que el operador, en un mes, efectuó la lectura del medidor por un periodo mayor a la cantidad de días máxima del mes al cobro, debe cobrar el consumo promedio diario por la cantidad de días calendario del mes al cobro y el consumo restante incluirlo en la facturación del mes siguiente.
+El consumo promedio diario se determina dividiendo la cantidad de metros cúbicos registrada en esa cantidad de días por el número de días comprendidos en el periodo de lectura. Una vez determinada la cantidad de metros cúbicos a cobrar en ese mes, le aplica la estructura tarifaria para el cobro respectivo.

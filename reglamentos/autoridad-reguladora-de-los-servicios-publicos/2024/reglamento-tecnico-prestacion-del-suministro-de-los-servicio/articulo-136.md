@@ -1,0 +1,2 @@
+Artículo 136.- Cobro de facturaciones pendientes de pago.
+Para el cobro de facturaciones pendientes de pago, el prestador podrá formalizar arreglos de pago o realizar el procedimiento de cobro que haya dispuesto en sus trámites o procedimientos, ya sea en la vía administrativa o judicial. Asimismo, para dichos arreglos de pago, el prestador valorará para cada caso, las posibilidades económicas del abonado y la magnitud de la deuda.

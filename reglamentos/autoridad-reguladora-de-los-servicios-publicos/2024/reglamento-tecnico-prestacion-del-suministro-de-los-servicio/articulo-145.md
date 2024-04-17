@@ -1,0 +1,3 @@
+Artículo 145.- Prestación de servicios compartidos por dos prestadores.
+Los prestadores de servicios podrán efectuar convenios para la prestación de los servicios de suministro de acueducto, alcantarillado sanitario cuando por razones técnicas un prestador debe brindar el servicio de acueducto y otro prestador el de alcantarillado sanitario.
+En este caso el prestador del servicio de acueducto deberá facturar el costo de ambos servicios según las tarifas fijadas por la Autoridad Reguladora para cada prestador y trasladar mensualmente al prestador del servicio de alcantarillado sanitario el monto correspondiente, previa cancelación de los costos de transacción acordados en el convenio.

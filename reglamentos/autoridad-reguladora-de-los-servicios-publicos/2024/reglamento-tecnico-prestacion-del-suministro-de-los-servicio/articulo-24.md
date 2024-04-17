@@ -1,0 +1,2 @@
+Artículo 24.- Plazo para que el prestador emita la certificación o constancia de disponibilidad del servicio y de capacidad de los servicios.
+El prestador tendrá un plazo máximo de 22 días naturales tanto para casos individuales como para proyectos de alta demanda del servicio de acueducto, para emitir la certificación o constancia de disponibilidad y de capacidad de los servicios, posterior al recibido a satisfacción de los requisitos establecidos.

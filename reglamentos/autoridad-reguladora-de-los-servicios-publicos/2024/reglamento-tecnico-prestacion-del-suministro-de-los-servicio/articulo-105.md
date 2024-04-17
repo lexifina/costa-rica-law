@@ -1,0 +1,2 @@
+Artículo 105.- Atención de fugas de agua
+El prestador deberá definir un procedimiento que le permita atender en el menor tiempo posible las pérdidas de agua ocasionadas por fugas en los sistemas de acueducto y alcantarillado, con el fin de garantizar la prestación del servicio, evitar el desperdicio del recurso hídrico, evitar contaminación por las aguas servidas, minimizar los daños a otra infraestructura asociada, tales como carreteras y caminos, u otras obras que se puedan ver afectadas.

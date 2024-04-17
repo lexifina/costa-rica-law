@@ -1,0 +1,3 @@
+Artículo 69.- Responsabilidad sobre el control de la calidad del agua para consumo.
+La calidad del agua suministrada a los abonados y usuarios y su respectivo control, son responsabilidad del prestador quien deberá cumplir con los lineamientos establecidos en la normativa nacional vigente, así como con las disposiciones que establezcan las autoridades competentes.
+Los laboratorios que realicen pruebas de control de calidad del agua deben tener los métodos de ensayo debidamente acreditados por el ente competente. La recolección de las muestras deberá ser realizada directamente por funcionarios del laboratorio contratado.

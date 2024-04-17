@@ -1,0 +1,2 @@
+Artículo 142.- Facturación en caso de detección de anomalías en el sistema de medición
+Cuando se determine que hubo anomalías en el sistema de medición, se deben identificar las facturas afectadas y se realizarán los ajustes a los consumos con base en el consumo promedio normal del servicio y el prestador deberá seguir las disposiciones del Ministerio de Hacienda para la emisión de las notas de crédito o débito que correspondan.
