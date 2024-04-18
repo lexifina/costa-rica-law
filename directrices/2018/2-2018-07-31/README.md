@@ -14,3 +14,4 @@ Establece "Símbolo de Sanidad" para aquellos operadores que han demostrado apeg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-15 | la propia norma |
+| 2 | 2024-04-18 | Directriz 13 (2024-04-18) |
