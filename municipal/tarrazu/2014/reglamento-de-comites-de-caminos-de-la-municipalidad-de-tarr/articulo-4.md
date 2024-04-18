@@ -1,2 +1,0 @@
-Artículo 4º—Relaciones de dependencia. El Comité de Caminos depende, en primera instancia de la Asociación de Desarrollo Integral, de la Municipalidad, del Concejo de Distrito correspondiente, y en segunda instancia de la Asamblea General de Vecinos.
-El órgano máximo de representación es la Asamblea General de Vecinos.
