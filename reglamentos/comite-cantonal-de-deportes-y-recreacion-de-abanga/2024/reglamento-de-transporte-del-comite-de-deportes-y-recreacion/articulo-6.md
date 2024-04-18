@@ -1,0 +1,1 @@
+Artículo 6º-Carácter excepcional del gasto transporte: Se determinará la procedencia del gasto observando los principios de austeridad y probidad, entendiendo que el mismo solo procede en los casos estrictamente, cuando existan actividades deportivas y recreativas en representación del CCDR Abangares.

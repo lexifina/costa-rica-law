@@ -1,0 +1,1 @@
+Artículo 9º-En estos gastos no se incluyen bajo ninguna circunstancia actividades relacionadas con bebidas alcohólicas. Estas actividades estarán bajo el control de cada responsable según los sujetos regulados en el artículo 3°, quienes tendrán la obligación de vigilar su partida presupuestaria, bajo la cual se aplica este gasto.
