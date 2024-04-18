@@ -1,0 +1,1 @@
+Artículo 10.-Los gastos en que se incurran deberán responder a los principios de racionalidad y austeridad, considerando que únicamente proceden en los casos indicados y debidamente planeados, establecido en Reglamento de Gastos de Viaje y de Transporte de la Contraloría General de la República.

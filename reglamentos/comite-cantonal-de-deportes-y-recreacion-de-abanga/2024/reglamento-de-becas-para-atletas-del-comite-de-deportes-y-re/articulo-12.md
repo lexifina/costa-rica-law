@@ -1,0 +1,3 @@
+Capítulo III
+Disposiciones finales.
+Artículo 12.-En caso de comprobarse posteriormente un gasto no permitido, el atleta o cuerpo técnico responsable está en la obligación de reintegrar la totalidad de lo gastado CCDR Abangares, sin perjuicio de las sanciones a que pueda hacerse acreedor, de conformidad con el artículo 2° de este Reglamento.

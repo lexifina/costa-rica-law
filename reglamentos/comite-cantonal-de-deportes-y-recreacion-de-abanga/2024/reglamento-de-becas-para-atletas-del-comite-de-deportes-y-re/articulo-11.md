@@ -1,0 +1,1 @@
+Artículo 11.-Para el proceso de pago de las actividades de becas, se deberá presentar lista los atletas y cuerpos técnicos con el registro de firmas a la actividad (listados de asistentes) esto con el fin de cumplir el control interno del CCDR Abangares y mejorar la planificación de las actividades.
