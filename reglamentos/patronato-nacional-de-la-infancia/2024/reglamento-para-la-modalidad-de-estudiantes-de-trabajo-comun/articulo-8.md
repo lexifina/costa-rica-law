@@ -1,0 +1,1 @@
+Artículo 8º-Registro de centros educativos en el Departamento de Recursos Humanos. Los centros educativos podrán registrarse en el banco que para tal efecto llevará el Departamento de Recursos Humanos bajo la solicitud de inscribir a los estudiantes interesados en realizar sus prácticas colegiales y universitarias en la institución.

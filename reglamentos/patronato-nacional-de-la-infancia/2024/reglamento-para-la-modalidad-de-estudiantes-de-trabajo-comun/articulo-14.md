@@ -1,0 +1,2 @@
+Artículo 14.-Cantidad máxima de estudiantes por Unidades Receptoras para la realización de prácticas supervisadas. La cantidad máxima de estudiantes que desean realizar su práctica supervisada dentro de las instalaciones
+físicas de las Unidades Receptoras, será determinará por el Departamento de Recursos Humanos y actualizada cuando existan variación en las condiciones físicas de las instalaciones, con base en el análisis de salud ocupacional de capacidad máxima de personas en las edificaciones.

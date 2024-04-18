@@ -1,0 +1,2 @@
+Artículo 4º-Carné de identificación. El Departamento de Recursos Humanos será el encargado de entregar en Oficinas Centrales el carné a las personas estudiantes que las identifica bajo la modalidad de práctica supervisada,
+trabajo comunal o tesis. Por conveniencia geográfica de las personas estudiantes delegará la elaboración del carné en las respectivas Oficinas Locales, Direcciones Regionales o instancia donde se realice la modalidad.

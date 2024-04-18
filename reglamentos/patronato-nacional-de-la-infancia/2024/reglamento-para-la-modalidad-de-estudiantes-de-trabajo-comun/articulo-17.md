@@ -1,0 +1,1 @@
+Artículo 17.-Registro de centros educativos en el Departamento de Recursos Humanos. Los centros educativos podrán registrarse en el banco que para tal efecto llevará el Departamento de Recursos Humanos para efecto de solicitar la inscripción de los estudiantes interesados en realizar sus trabajos comunales colegiales o universitarios.
