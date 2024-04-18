@@ -1,0 +1,1 @@
+Artículo 4º-Derogar el Decreto Ejecutivo N° 35629-J de fecha 24 de agosto del 2009, mediante el cual fue declarada de utilidad pública la Asociación Pro-Biblioteca Pública de Nicoya Felipe Díaz Vidaurre, cédula jurídica número 3-002-446318.

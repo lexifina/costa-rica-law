@@ -1,0 +1,1 @@
+Artículo 3º-Derogar el Decreto Ejecutivo N° 14693-J de fecha 15 de julio de 1983, mediante el cual fue declarada de utilidad pública la Asociación Centro de Capacitación para el Desarrollo, cédula jurídica número 3-002-051162.

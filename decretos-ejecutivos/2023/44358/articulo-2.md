@@ -1,0 +1,1 @@
+Artículo 2º-Derogar el Decreto Ejecutivo N° 34650-J de fecha 16 de junio del 2008, mediante el cual fue declarada de utilidad pública la Asociación Casa Salvando al Alcohólico de Heredia "Celín Vílchez Argüello», cédula jurídica número 3-002-087618.
