@@ -1,0 +1,1 @@
+Artículo 3º-La administración notificará el presente acto al Ministerio de Hacienda, la Dirección General de Tributación y al Registro Nacional de la Propiedad, a efecto de que proceda conforme su competencia.
