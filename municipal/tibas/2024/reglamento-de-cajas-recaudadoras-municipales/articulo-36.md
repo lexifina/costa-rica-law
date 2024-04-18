@@ -1,0 +1,1 @@
+Artículo 36.-Auxiliares. La Tesorería Municipal podrá designar funcionarios auxiliares, quienes serán los encargados de suplir ausencias temporales de los cajeros titulares. Dichos funcionarios deberán reunir los mismos requisitos que aquellos y en el ejercicio de la función de cajero, estarán sujetos a las mismas obligaciones y responsabilidades establecidas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.-Remesas parciales. A criterio del Tesorero Municipal y de acuerdo con el comportamiento de la recaudación diaria, los cajeros podrán elaborar remesas parciales, en al menos 3 o 4 depósitos al día firmando la bitácora de recibido como respaldo de los valores entregados para los efectos de la liquidación.

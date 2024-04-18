@@ -1,0 +1,3 @@
+Artículo 13.-Forma de emisión de los comprobantes de ingreso. Cada comprobante de ingreso se emitirá en duplicado, uno para el contribuyente y otro para la Municipalidad. Se podrá solicitar reimpresiones de recibos en los casos que ameriten. Salvo en los casos que expresamente señale el respectivo manual, deberá emitirse directamente del sistema informático.
+Las copias de los recibos cancelados serán revisados y archivados según su número consecutivo por el funcionario asignado para realizarlo diariamente y luego por mes. El auxiliar de Tesorería imprimirá el resumen de cancelación
+del día, para procesar el registro en el Estado de Tesorería y traslado de los respaldos a la Contabilidad para su verificación y registro.

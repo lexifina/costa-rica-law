@@ -1,0 +1,1 @@
+Artículo 26.-Requisitos de los cajeros de recaudadores auxiliares. A los cajeros de recaudadoras auxiliares, les serán aplicables las normas de este reglamento en cuanto a requisitos, obligaciones y responsabilidades.

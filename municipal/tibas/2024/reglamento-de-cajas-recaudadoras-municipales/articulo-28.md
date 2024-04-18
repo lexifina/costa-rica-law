@@ -1,0 +1,1 @@
+Artículo 28.-Operación. La operación de las cajas auxiliares deberá conformarse a las disposiciones generales aplicables a las cajas recaudadoras municipales y estarán sujetas a los mismos controles de aquellas y a la necesidad imperiosa de su uso, de no tener convenio de recaudación con entidad bancaria.

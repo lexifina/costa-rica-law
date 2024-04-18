@@ -1,0 +1,1 @@
+Artículo 21.-Arqueos. Sin perjuicio de los que realice la Auditoría Interna en el cumplimiento de sus funciones, el Departamento de Contabilidad realizará arqueos periódicos y sorpresivos de las cajas recaudadoras que operen en la institución, acompañado con el Tesorero o el auxiliar de Tesorería.

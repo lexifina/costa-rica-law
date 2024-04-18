@@ -1,0 +1,1 @@
+Artículo 38.-Derogatoria. El presente reglamento deroga cualquier otro Reglamento de Cajas Recaudadoras de la Municipalidad de Tibás y todas aquellas disposiciones internas de igual o inferior rango que se le oponga.

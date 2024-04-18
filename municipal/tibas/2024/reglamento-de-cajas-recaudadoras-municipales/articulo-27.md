@@ -1,0 +1,1 @@
+Artículo 27.-Encargado de las cajas recaudadoras auxiliares. Las funciones de cajero de las cajas recaudadoras auxiliares recaerán sobre la persona debidamente capacitada e investida que sea asignada por parte del Alcalde Municipal, podrá ser un funcionario de la oficina auxiliar, para tal efecto deberán rendir la correspondiente póliza de fidelidad.

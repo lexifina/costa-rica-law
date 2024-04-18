@@ -1,0 +1,1 @@
+Artículo 14.-Anulación de comprobantes de ingreso. La anulación de comprobantes de ingreso se podrá realizar durante el día antes del cierre, por el funcionario asignado en cajas y posteriores a su emisión en los casos y situaciones de ajustes para registro de las Liquidaciones Diarias de Cajas, siempre y cuando existan las justificaciones por escritas pertinentes.

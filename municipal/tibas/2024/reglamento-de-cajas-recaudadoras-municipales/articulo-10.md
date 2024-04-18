@@ -1,0 +1,1 @@
+Artículo 10.-Horario. Salvo los horarios especiales que la administración expresamente autorice cuando ello sea necesario para una adecuada recaudación, las cajas recaudadoras funcionarán diariamente de acuerdo con el siguiente horario: de lunes a viernes de las 8:00 horas a las 15:30 horas.

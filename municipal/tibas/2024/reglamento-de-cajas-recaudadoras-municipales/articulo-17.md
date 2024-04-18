@@ -1,0 +1,1 @@
+Artículo 17.-Verificación del fondo. Realizada la liquidación, el cajero deberá verificar la integridad del fondo asignado con el fin de determinar la existencia de faltantes o sobrantes, los cuales deberán ser reportados al Tesorero Municipal.

@@ -1,0 +1,1 @@
+Artículo 19.-Sobrantes. Los sobrantes reportados como producto del movimiento diario de las cajas recaudadoras, una vez verificados por el Tesorero Municipal o el auxiliar de tesorería, deberán ingresar a las arcas municipales a más tardar el día hábil siguiente que se produzca, mediante el respectivo comprobante de ingresos.
