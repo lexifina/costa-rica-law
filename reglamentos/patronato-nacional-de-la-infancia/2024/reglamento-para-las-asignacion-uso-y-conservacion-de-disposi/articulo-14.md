@@ -1,0 +1,6 @@
+Artículo 14.-Del pago por excedentes en el servicio de consumo del teléfono celular: En el caso de que, el monto del recibo del servicio móvil exceda los límites establecidos por la Comisión, la persona trabajadora deberá
+hacer el reembolso del excedente, en un solo tracto. El control sobre el excedente y la comunicación a la persona trabajadora será responsabilidad del Departamento Administración de Presupuesto.
+Los reembolsos indicados se podrán realizar de las siguientes maneras:
+a. Depósito en la Caja Central de la Oficina de Tesorería del PANI. La persona trabajadora deberá comunicar sobre este depósito al Departamento Administración de Presupuesto de manera escrita, con copia a su jefatura inmediata, aportando comprobantes que evidencien.
+b. Depósito al Fondo de Trabajo para el caso de las instancias descentralizadas a saber; Direcciones Regionales, Oficinas Locales y/o otros centros funcionales. La persona trabajadora deberá comunicar sobre este depósito al Departamento Administración de Presupuesto de manera escrita, con copia a su jefatura inmediata, aportando comprobantes que evidencien.
+c. De no mediar depósito directo el reembolso deberá realizarse mediante el procedimiento de cobro administrativo, con las implicaciones disciplinarias que correspondan.

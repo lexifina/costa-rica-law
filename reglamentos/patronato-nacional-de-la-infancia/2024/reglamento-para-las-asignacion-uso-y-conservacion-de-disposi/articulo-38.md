@@ -1,0 +1,1 @@
+Artículo 38.-Responsabilidad de los accesorios: La persona trabajadora que tiene asignado un dispositivo MIFI será responsable de mantener en custodia y buen estado los accesorios con lo que se le entregó el dispositivo (cargador, cables USB, entre otros).

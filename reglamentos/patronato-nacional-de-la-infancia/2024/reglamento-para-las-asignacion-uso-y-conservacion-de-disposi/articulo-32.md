@@ -1,0 +1,2 @@
+Artículo 32.-Límites del servicio de consumo del dispositivo MIFI: Serán establecidos por una Comisión conformada por la Presidencia Ejecutiva, Gerencia Técnica, Gerencia de Administración y el Departamento de Tecnologías
+de Información, quienes se reunirán a establecer los montos en el mes de febrero de cada año. La actualización de los montos será comunicada mediante circular suscrita por la Presidencia Ejecutiva.

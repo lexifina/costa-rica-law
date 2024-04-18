@@ -1,0 +1,1 @@
+Artículo 15.-Copias de seguridad de la información: Es responsabilidad de la persona trabajadora realizar copias de seguridad de la información institucional, almacenada en dicho teléfono y mantener actualizado del software del mismo; de acuerdo con las actualizaciones que libere el fabricante.

@@ -1,0 +1,1 @@
+Artículo 33.-En caso de mal funcionamiento del dispositivo MIFI: Si este se encuentra dentro del plazo de garantía, la persona trabajadora deberá informar mediante oficio formal y entregar el dispositivo al Departamento de Tecnologías de Información, a efectos de que este último gestione la aplicación de la garantía ante el proveedor.

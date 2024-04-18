@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación: Lo normado es de acatamiento obligatorio para las personas trabajadoras del PANI y de las instancias institucionales, según sus competencias para el uso de dispositivos y los servicios móviles, propiedad de la institución y que hayan sido asignados para fines laborales.

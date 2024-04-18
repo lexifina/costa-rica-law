@@ -1,0 +1,2 @@
+Articulo 19.-Responsabilidad de los accesorios: La persona trabajadora que tiene asignado un teléfono celular será responsable de mantenerlo en custodia y buen estado junto con los accesorios con lo que se le entregó (cargador, audífonos, cables USB, entre otros).
+En caso de extravío o deterioro por el mal uso de los accesorios del teléfono celular, la persona trabajadora deberá realizar la reposición de los mismos, siendo que debe cumplir con la marca y especificaciones técnicas iguales o similares a las del dispositivo.

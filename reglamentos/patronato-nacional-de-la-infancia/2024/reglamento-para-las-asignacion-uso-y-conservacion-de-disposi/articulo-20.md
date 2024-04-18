@@ -1,0 +1,3 @@
+Artículo 20.-Daño total del teléfono celular: En caso de daño total del teléfono celular la persona trabajadora deberá informar a la jefatura, de forma inmediata el mal funcionamiento o el aparente daño total del teléfono celular.
+Al día siguiente hábil deberá presentar un informe en el que especifique los motivos y circunstancias que mediaron en el hecho.
+En el caso que la persona trabajadora no reporte el daño total del teléfono celular, corresponderá a la jefatura dentro de sus funciones de control de activos, realizar el informe con las evidencias y solicitar al superior jerárquico el inicio de una investigación preliminar y este a su vez lo elevará a la Presidencia Ejecutiva.

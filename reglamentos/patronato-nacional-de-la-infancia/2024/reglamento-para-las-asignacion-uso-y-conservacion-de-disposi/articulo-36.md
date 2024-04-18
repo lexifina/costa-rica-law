@@ -1,0 +1,2 @@
+Artículo 36.-Daños sin dolo o negligencia: En caso de daños físicos en el dispositivo MIFI, sean estas por causas involuntarias donde no hubo dolo o negligencia, la persona trabajadora deberá informar a la jefatura sobre, dichos daños, de forma verbal inmediatamente ocurrido el hecho y al día hábil siguiente se deberá presentar un documento escrito con el detalle de los hechos.
+Una vez que la instancia institucional haya realizado la gestión de reparación, el costo por la reparación del daño será asumido por el PANI.

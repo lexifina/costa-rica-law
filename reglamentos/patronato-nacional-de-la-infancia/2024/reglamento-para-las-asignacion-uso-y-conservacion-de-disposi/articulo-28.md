@@ -1,0 +1,1 @@
+Artículo 28.-No autorización: No se autorizará la asignación de dispositivos MIFI a las personas trabajadoras que, deban mantenerse durante su jornada laboral en su puesto de trabajo físico y no requieran trasladarse fuera de las instalaciones de trabajo de manera permanente. Para estos casos la persona trabajadora podrá utilizar los servicios de telecomunicaciones habituales.

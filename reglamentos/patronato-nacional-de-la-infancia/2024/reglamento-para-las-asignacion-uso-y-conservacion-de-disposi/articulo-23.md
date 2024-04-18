@@ -1,0 +1,6 @@
+Artículo 23.-Sobre las regulaciones: Las personas trabajadoras a quienes se les asigne un teléfono celular deberán contemplar lo siguiente:
+a. El teléfono celular deberá estar encendido para atender las llamadas y mensajes que ingresen, dado que este dispositivo está catalogado como un instrumento de trabajo, que le confiere la institución para el desempeño del cargo.
+b. Para el caso de situaciones de emergencia o imprevistos, que puedan afectar la continuidad del servicio institucional o bien en caso de situaciones puntuales en las que se requiera de la asesoría, en materia del cargo institucional que desempeña la persona trabajadora a la que se le asignó un teléfono celular, atenderá las llamadas y mensajes que se le realice fuera de la jornada laboral.
+c. La persona trabajadora en el cargo de Presidente Ejecutivo será la única persona que tendrá acceso a llamadas internacionales tanto entrantes como salientes, siempre que estas sean realizadas para atender asuntos propios de su cargo.
+En caso excepcional se podrá autorizar a las personas trabajadoras de la Asesoría Jurídica el acceso a llamadas internacionales salientes, en razón de las atribuciones del cargo y por trámites especiales que realizan con autoridades
+de otros países.

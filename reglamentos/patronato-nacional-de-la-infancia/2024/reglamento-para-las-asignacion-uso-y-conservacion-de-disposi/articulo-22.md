@@ -1,0 +1,1 @@
+Artículo 22.-Responsabilidad como activo institucional: El teléfono celular al constituirse en un activo institucional deberá aplicarse lo que establece el Reglamento para el Registro y Control de Bienes o Activos del Patronato Nacional de la Infancia.
