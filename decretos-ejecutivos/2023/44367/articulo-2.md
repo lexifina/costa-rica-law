@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo N° 32966-MINAE, del 20 de febrero del 2006, publicado en La Gaceta N° 85 del 04 de mayo del 2006 denominado Manual de Instrumentos Técnicos para el Proceso de Evaluación del Impacto Ambiental (Manual de EIA)-Parte IV.
