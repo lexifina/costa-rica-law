@@ -1,1 +1,0 @@
-Artículo 42—De la rectificación del cobro. Aceptado un reclamo, se corregirá el consumo facturado. En el caso que se haya cancelado el recibo y deba corregirse, se procederá mediante el procedimiento de compensación establecido en el Código de Normas y Procedimientos Tributarios, acreditando el exceso en el próximo recibo.

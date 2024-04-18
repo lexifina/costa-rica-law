@@ -1,3 +1,0 @@
-Artículo 39.—De las fugas de instalación interna. Cuando por cualquier circunstancia se determinare la existencia de fugas no visibles dentro de la propiedad, previa inspección por parte de funcionarios municipales, al abonado se le cobrará de acuerdo con el promedio de consumo normal más un cincuenta por ciento (50%) siempre que este monto no supere cada monto afectado por la fuga, asumiendo la Municipalidad de esta manera, una parte del exceso de consumo producido por esa causa.
-Sólo se podrán realizar tres ajustes de facturación al año (tres recibos al año).
-En el caso de fugas visibles en la propiedad no se realizará ningún ajuste.

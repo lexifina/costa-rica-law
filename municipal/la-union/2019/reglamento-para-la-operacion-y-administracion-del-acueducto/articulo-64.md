@@ -1,1 +1,0 @@
-Artículo 64.—Varios. Las aguas de los ríos, vertientes y del subsuelo en cualquier parte del territorio nacional, cantonal y local, donde se encuentren, estarán dedicadas prioritariamente al servicio de un sistema de agua potable para las poblaciones, según lo disponga el Poder Ejecutivo (Artículo 30 de la Ley de Aguas Nº 276 del 27 de agosto de 1942).

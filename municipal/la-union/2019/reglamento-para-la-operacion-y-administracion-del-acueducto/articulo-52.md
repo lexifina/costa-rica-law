@@ -1,1 +1,0 @@
-Artículo 52.—Del plazo de la reconexión. La Municipalidad reinstalará el servicio de agua potable dentro del plazo máximo de 48 horas hábiles posteriores a la cancelación del derecho de reconexión (una vez normalizada la situación con el Departamento de Cobro Administrativo).

@@ -1,1 +1,0 @@
-Artículo 32.—Del vencimiento del pago. El servicio de agua potable será cobrado por mes vencido y en un solo pago a partir de la fecha en que se ponga al cobro. El atraso en el pago generará el cobro de intereses que se calcularán según el Código de Normas y Procedimientos Tributarios y el Código Municipal.
