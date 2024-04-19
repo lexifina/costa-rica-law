@@ -1,0 +1,1 @@
+ARTÍCULO 56.- DEL RESPALDO DE LOS EGRESOS Y CUMPLIMIENTO DE LA NORMATIVA DE CAJA. Todos los egresos deberán encontrarse respaldados por facturas debidamente autorizadas por la Dirección General de Tributación Directa y los proveedores deberán estar al día con los pagos solidarios a la Caja Costarricense del Seguro Social.

@@ -1,0 +1,1 @@
+ARTÍCULO 29.- VALIDEZ DE LA SESIÓN. Las sesiones, para que sean válidas, deberán iniciarse a más tardar quince minutos después de la hora señalada en el acuerdo que las fija o en su caso en la convocatoria.

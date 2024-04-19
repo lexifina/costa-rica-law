@@ -1,0 +1,4 @@
+ARTÍCULO 88.- VENTAS POR PUBLICIDAD. La Junta Directiva del Comité Cantonal podrá evaluar y autorizar iniciativas de ventas de publicidad por concepto de colocación de vallas, cuya tarifa deberá ajustar anualmente.
+Si la iniciativa nace en el Comité Comunal, los fondos obtenidos ingresan íntegros a su cuenta. Si se produce desde el Comité Cantonal, éste recibirá el cincuenta por ciento (50%) de los ingresos y el Comité Comunal donde se coloque la valla recibirá cincuenta por ciento (50%).
+En ambos casos el Comité Cantonal deberá presupuestar los ingresos por tal concepto y cuando corresponda hará la transferencia al Comité Comunal beneficiado.
+Los Comités Comunales no están autorizados para cobrar directamente, suma alguna por concepto de colocación de vallas en instalaciones deportivas comunales.

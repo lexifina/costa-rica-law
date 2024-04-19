@@ -1,0 +1,2 @@
+ARTÍCULO 13.- VIGENCIA DEL CARGO.Los miembros del Comité Cantonal durarán en sus cargos dos años, podrán ser reelectos y no devengarán dietas, ni remuneración, ni salario alguna por su servicio a favor del desarrollo del deporte y la recreación del cantón.
+En caso de optar por una reelección o cuando estén bajo nombramiento temporal y se realice un nuevo proceso, deberán ser propuestos de nuevo por la respectiva organización.

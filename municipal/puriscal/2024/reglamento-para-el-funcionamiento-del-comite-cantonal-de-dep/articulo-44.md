@@ -1,0 +1,1 @@
+ARTÍCULO 44.- REQUISITO PARA OCUPAR UN PUESTO EN EL COMITÉ CANTONAL (FUNCIONARIOS). Serán requisitos para ocupar los distintos puestos administrativos, operativos y los definidos en este Reglamento, los definidos en el Manual de Puestos que emita el Concejo Municipal, con apoyo de la oficina de Recursos Humanos de la Municipalidad de Puriscal.

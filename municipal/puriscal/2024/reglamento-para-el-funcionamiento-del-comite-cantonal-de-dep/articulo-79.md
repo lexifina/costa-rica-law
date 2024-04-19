@@ -1,0 +1,1 @@
+ARTÍCULO 79.- IMPEDIMENTO. Ninguna Asociación, Organización o Federación Deportiva o Recreativa, podrá inscribir como propias a las categorías de liga menor de ningún deporte que pertenezcan a la estructura deportiva del Comité Cantonal.

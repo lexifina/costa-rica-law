@@ -1,0 +1,2 @@
+ARTÍCULO 51.- NORMAS MÍNIMAS. El presupuesto debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que éste cubre de conformidad con las exigencias legales y reglamentarias establecidas al efecto. El presupuesto debe contener una estimación de ingresos, siendo que los gastos presupuestarios no pueden exceder los ingresos estimados.
+El gasto administrativo no puede superar el diez por ciento de los ingresos totales de conformidad con el artículo 179 del Código Municipal.

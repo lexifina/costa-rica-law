@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+ELECCIÓN DE LAS PERSONAS INTEGRANTES COMITÉ CANTONAL NOMBRADAS POR EL CONCEJO MUNICIPAL
+ARTÍCULO 80.- REPRESENTANTES DEL CONCEJO MUNICIPAL. El Concejo Municipal debe designar a dos personas representantes ante la Junta Directiva del Comité Cantonal.

@@ -1,0 +1,2 @@
+ARTÍCULO 36.- NORMATIVA ESPECIAL APLICABLE AL PERSONAL SUBORDINADO DEL COMITÉ CANTONAL . Al personal del Comité Cantonal le son aplicables el Código Municipal y el Reglamento Autónomo de Organización y Servicios, así como las demás disposiciones previstas en las leyes y los reglamentos municipales relacionados con las obligaciones, prohibiciones y régimen disciplinario como tal.
+En caso de duda sobre la aplicación de dicha normativa el Comité Cantonal contará con la asesoría del Departamento de Recursos Humanos de la Municipalidad.

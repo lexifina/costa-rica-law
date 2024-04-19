@@ -1,0 +1,1 @@
+ARTÍCULO 73.- DEBERES ADICIONALES DE LA JUNTA DIRECTIVA DEL COMITÉ COMUNAL. De la convocatoria que realice la Junta Directiva del Comité Cantonal, los Comités Comunales enviarán dos personas representantes, junto con un informe de las actividades realizadas.

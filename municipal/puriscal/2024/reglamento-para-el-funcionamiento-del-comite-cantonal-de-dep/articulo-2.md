@@ -1,0 +1,2 @@
+ARTÍCULO 2.- DOMICILIO. El Comité Cantonal tendrá su domicilio legal en el palacio Municipal. Sus sesiones se realizan en dicha sede o en la que por acuerdo del Concejo Municipal sea determinada y notificada, a excepción de algún mandato de gobierno por motivo de Salud Pública, que le permita la virtualidad, pero siempre bajo el respeto y formalidad de una sesión presencial.
+El Comité Cantonal podrá sesionar de manera excepcional y temporal en otros distritos del cantón de Puriscal, para realizar actividades especiales.

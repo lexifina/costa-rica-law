@@ -1,0 +1,1 @@
+ARTÍCULO 77.-(Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artíuclo. No obstante; el Sistema exige una numeración consecuiva por lo que se ha creado el mismo pero sin texto.)

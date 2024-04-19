@@ -1,0 +1,1 @@
+ARTÍCULO 33.- DEBER DE COMUNICACIÓN DE INASISTENCIAS. Toda persona miembro del Comité Cantonal deberá comunicar por escrito las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina del Comité Cantonal y ante la Secretaría de Actas. En caso de omisión, la inasistencia se tendrá por injustificada.

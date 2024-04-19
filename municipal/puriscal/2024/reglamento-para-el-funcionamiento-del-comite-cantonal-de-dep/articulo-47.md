@@ -1,0 +1,1 @@
+ARTÍCULO 47.- SUMISIÓN AL PERFIL DE PUESTOS. Todos los funcionarios deberán cumplir con el Manual Descriptivo de Puestos aprobado, así como al estructura organizativa aprobada por el Concejo Municipal.

@@ -1,0 +1,3 @@
+ARTÍCULO 67.- DE LAS SESIONES ORDINARIAS Y EXTRAORDINARIAS. Las sesiones de la Junta Directiva del Comité Comunal se celebrarán ordinariamente dos veces por mes, el día y hora acordados en la sesión inaugural.
+Extraordinariamente sesionarán cuando sean convocados por el presidente o a petición de la tercera parte de la Junta Directiva.
+La convocatoria deberá hacerse con no menos de veinticuatro horas de anticipación y señalando el objetivo de la sesión. En las sesiones extraordinarias se conocerá únicamente lo incluido en la convocatoria. Podrán utilizarse los medios electrónicos para las convocatorias.

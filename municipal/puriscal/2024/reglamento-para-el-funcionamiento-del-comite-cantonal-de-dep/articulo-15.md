@@ -1,0 +1,1 @@
+ARTÍCULO 15.- JURAMENTACIÓN. Las personas integrantes del Comité Cantonal, serán juramentadas por el Concejo Municipal; y las personas integrantes del Comité Comunal serán juramentadas por la Junta Directiva.

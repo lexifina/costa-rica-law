@@ -1,0 +1,2 @@
+ARTÍCULO 27.- DE LA SESION EXTRAORDINARIA. La convocatoria a sesión extraordinaria se debe hacer al medio que cada miembro fije en la sesión inaugural, con por lo menos veinticuatro horas de anticipación. En dicha convocatoria se debe señalar el orden del día de la sesión.
+En las sesiones extraordinarias sólo se conocerá lo incluido en la convocatoria o bien aquellos asuntos que por unanimidad de los miembros presentes en la sesión, se decida incluir en la agenda, por su urgencia.

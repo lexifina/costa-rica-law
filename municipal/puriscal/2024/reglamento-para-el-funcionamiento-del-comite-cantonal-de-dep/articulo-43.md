@@ -1,0 +1,1 @@
+ARTÍCULO 43.- DE LAS PERSONAS FUNCIONARIAS ADMINISTRATIVAS. Las personas funcionarias administrativas del Comité serán las encargadas de brindar los servicios operativos, contables y de oficina en general.

@@ -1,0 +1,1 @@
+ARTÍCULO 50.- INCLUSIÓN DE RECURSOS PROVINIENTES DE PARTIDAS ESPECÍFICAS EN EL PRESUPUESTO DE COMITÉ CANTONAL. La Junta Directiva deberá incluir en su presupuesto el dinero de partidas específicas que tengan en sus cuentas corrientes, siempre y cuando se respete el destino de las mismas.

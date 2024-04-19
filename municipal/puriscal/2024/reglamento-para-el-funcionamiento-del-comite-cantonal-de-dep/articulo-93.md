@@ -1,0 +1,1 @@
+ARTÍCULO 93.- DEROGATORIA Se deroga cualquier disposición reglamentaria interna anterior a este Reglamento que regule al Comité Cantonal de Deportes y Recreación y/o instalaciones deportivas del cantón.

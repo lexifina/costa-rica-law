@@ -1,0 +1,1 @@
+ARTÍCULO 70.- DEBER SOBRE LLEVAR ARCHIVOS ADMNISTRATIVOS Y FINANCIEROS EN COMITÉS COMUNALES. Los Comités Comunales deberán llevar un archivo administrativo y financiero, en el que consten los informes referentes a su gestión, los que podrán ser solicitados por el Comité Cantonal y los ciudadanos en cualquier momento.

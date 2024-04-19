@@ -1,0 +1,4 @@
+ARTÍCULO 30.- CUÓRUM DE FUNCIONAMIENTO. El quórum para sesionar estará integrado por la mitad más uno del total de las personas integrantes del Comité Cantonal.
+Los acuerdos se tomarán por mayoría simple de los votos presentes.
+En caso de empate, el asunto será sometido nuevamente a votación y en caso de que resulte nuevamente empatada la iniciativa se considerará rechazada, con excepción de los informes, proyectos o iniciativas de cumplimiento obligatorio, en cuyo caso deberá tenerse por aprobado para que continúe el trámite que corresponda.
+En caso de que se cuente con plazo, la Junta Directiva valorará si pospone el conocimiento del asunto hasta la siguiente sesión. En caso de urgencia, los acuerdos se podrán declarar firmes en la misma sesión con el voto de las dos terceras partes de los presentes en la sesión.
