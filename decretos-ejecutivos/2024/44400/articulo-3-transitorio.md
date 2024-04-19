@@ -1,0 +1,1 @@
+Transitorio Tercero. Se otorga un plazo de treinta días hábiles a partir de publicación del presente Decreto Ejecutivo para que las Organizaciones de Consumidores se ajusten a los requisitos dispuestos en el presente reglamento.

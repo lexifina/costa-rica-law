@@ -1,0 +1,1 @@
+Transitorio Segundo. A partir de la vigencia de la presente reforma las denuncias se tramitarán conforme a las reglas procesales aquí dispuestas, ajustándolas y armonizándolas a la etapa procesal respectiva, en cuanto sea posible y que no vaya en perjuicio de los administrados.
