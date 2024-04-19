@@ -1,0 +1,1 @@
+Artículo 24.-La información de las compras realizadas por medio de caja chica debe subirse por parte del Departamento Financiero ministerial y por parte del departamento Financiero de la PGR a la plataforma SICOP.

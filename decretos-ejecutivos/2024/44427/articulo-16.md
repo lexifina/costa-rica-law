@@ -1,0 +1,2 @@
+Artículo 16.-La retención del 2% al impuesto sobre renta se aplicará cuando corresponda a aquellas compras que por su importe sean iguales o superiores al salario base informado por los entes rectores, aquellos proveedores que están exonerados por ley de la retención del impuesto sobre renta no se le aplicará dicha retención.
+Toda compra por caja chica debe estar amparada a una reserva de recursos para caja chica, la cual se gestiona previo a la compra por caja chica.

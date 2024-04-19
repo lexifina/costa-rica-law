@@ -1,0 +1,1 @@
+Artículo 3º-Para la operacionalización del presente reglamento, el Departamento Financiero del Ministerio de Justicia y Paz emitirá y mantendrá actualizados los procedimientos necesarios en aras de facilitar el uso eficiente y oportuno del fondo de Caja Chica, bajo principios de racionalidad y proporcionalidad,

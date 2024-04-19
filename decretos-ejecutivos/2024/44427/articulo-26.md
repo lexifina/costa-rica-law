@@ -1,0 +1,3 @@
+CAPÍTULO 7
+Autorizaciones excepcionales
+Artículo 26.-Todo pago realizado por medio de caja chica se hará según las regulaciones dispuestas por la Tesorería Nacional, es decir los pagos se harán contra la emisión de la factura autorizada. A modo de excepción, y de acuerdo a la naturaleza tanto del bien o servicio y de la institución que lo brinda (bienes o servicios fiscales, parafiscales, taxativas) se puede permitir que se realice en primera instancia la transferencia antes de la emisión del comprobante de factura electrónica o depósito; el cual la unidad solicitante deberá demostrar por escrito que el respectivo proveedor o ente brindará el bien o el servicio requiriendo de previo que se les cancele en forma anticipada.

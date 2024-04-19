@@ -1,0 +1,4 @@
+CAPÍTULO 3
+Creación, modificación y cierre de fondos
+Artículo 5º-Si un centro de trabajo desea la apertura de un fondo de caja chica, deberá remitir una nota oficial suscrita por la dirección del centro a la jefatura de programa presupuestario, el cual validará y avalará la información presentada, trasladará la solicitud de apertura al Departamento Financiero ministerial, quién remitirá los formularios a la Dirección General de Tesorería Nacional, la cual después de un estudio indicará si se aprueba o no dicha apertura.
+Para cuando un centro de trabajo requiera ampliar el monto del fondo de caja chica debe suscribir una nota firmada por la dirección de dicho centro a la jefatura de programa presupuestario, quien analizará los argumentos y remitirá al Departamento Financiero ministerial, quien autorizará cualquier modificación a un fondo de caja chica.

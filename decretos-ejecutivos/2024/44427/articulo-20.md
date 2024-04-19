@@ -1,0 +1,4 @@
+Artículo 20.-Con cargo al Fondo Fijo-Caja Chica se podrán realizar pagos por concepto de gastos de representación únicamente en los casos que a continuación se especifican:
+a) Gastos originados en la celebración de recepciones oficiales con carácter institucional.
+b) Los adelantos para gastos de representación ocasionales en el exterior estarán sujetos a las disposiciones establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, a los lineamientos de este Reglamento y a las disposiciones que emita el ente rector correspondiente.
+No podrán realizarse pagos con cargo al fondo fijo-caja chica por concepto de: gastos de representación fijos, únicamente a gastos de representación sujetos a liquidación. Se utilizarán los formularios establecidos en el instructivo de visado para gastos de representación.

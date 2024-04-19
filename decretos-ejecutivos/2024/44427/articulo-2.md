@@ -1,0 +1,1 @@
+Artículo 2º-El Departamento Financiero junto a la Unidad de Tesorería será el encargado de velar por el fiel cumplimiento del presente Reglamento, así como en la Procuraduría General de la República y centros de trabajo donde existan fondos de Caja Chica.

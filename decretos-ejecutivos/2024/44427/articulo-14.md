@@ -1,0 +1,1 @@
+Artículo 14.-Cuando la solicitud de caja chica, se aprueba se emite el formulario "pedido de compra", el cual tiene un plazo para liquidar esta compra de cinco días hábiles, a menos que el bien o servicio por alguna circunstancia especial y justificada de previo no puedan cumplir con ese plazo.
