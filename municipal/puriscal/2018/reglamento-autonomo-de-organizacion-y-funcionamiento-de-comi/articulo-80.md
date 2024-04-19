@@ -1,1 +1,0 @@
-Artículo 80. Es obligación del administrador, mantener un auxiliar de las requisiciones de bodega de las entregas que se le han hecho y presentar un informe semestral, para ser conocido por la Junta Directiva del Comité Cantonal.

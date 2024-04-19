@@ -1,1 +1,0 @@
-Artículo 23. La Junta Directiva, en su primera sesión, escogerá de entre sus integrantes al presidente, el secretario, al tesorero y los vocales 1 y 2, quienes desempeñarán dichos cargos por períodos de dos años, pudiendo ser reelectos; mediante votación secreta.

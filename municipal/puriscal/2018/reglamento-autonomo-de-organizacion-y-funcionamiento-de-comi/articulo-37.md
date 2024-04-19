@@ -1,3 +1,0 @@
-CAPÍTULO VIII
-DE LA ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE PURISCAL
-Artículo 37. El superior jerárquico del Promotor Deportivo será la Junta Directiva del Comité Cantonal. El puesto de Promotor Deportivo es un cargo de confianza y será de nombramiento de la Junta Directiva, por mayoría simple de votos y será escogido de entre los candidatos que hayan respondido a un concurso público que en cada caso promoverá el Comité mediante una publicación en un diario de circulación nacional y elaborado por la Dirección de Recursos Humanos de la Municipalidad de Puriscal, previa consulta al Comité Cantonal de Deportes y Recreación de Puriscal.

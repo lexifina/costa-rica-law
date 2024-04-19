@@ -1,1 +1,0 @@
-Artículo 20. Las Actas deben ser firmadas por el presidente y el secretario, los demás miembros de la Junta Directiva que participen de la sesión firmarán únicamente la hoja de asistencia el día de la reunión.

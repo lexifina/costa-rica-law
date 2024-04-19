@@ -1,1 +1,0 @@
-Artículo 28. Cuando un integrante de la Junta Directiva no asista a una sesión, debe de comunicar a la presidencia de la Junta, la justificación de su inasistencia. Para hacerlo por escrito contará con un plazo máximo de veinticuatro horas.
