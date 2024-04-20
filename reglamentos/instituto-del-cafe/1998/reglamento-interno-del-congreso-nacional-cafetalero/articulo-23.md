@@ -1,1 +1,3 @@
-Artículo 23.—En el caso de las mociones presentadas a destiempo, sea posterior a los 10 días antes indicados, lo mismo las que se presentan el propio día del Congreso, serán conocidas solamente si su conocimiento es aprobado por dos terceras partes de los Delegados presentes. Salvo en el caso anterior, todas las mociones que efectivamente serán conocidas por el Congreso serán puestas en conocimiento de los delegados con por lo menos tres días naturales previo a realizarse éste, sin contar el día del Congreso.
+CAPÍTULO IX
+Sobre las Mociones
+Artículo 23o.-Las mociones deberán ser presentadas por los Delegados ante la Dirección Ejecutiva del ICAFÉ con 10 días naturales previos a la correspondiente sesión del Congreso Nacional Cafetalero y las mismas deberán venir firmadas por el o los Delegados proponentes. Las mociones que presenten los Delegados a un Congreso extraordinario, deben estar estrechamente relacionadas con el tema por el cual fue convocado el Congreso.

@@ -1,3 +1,3 @@
-Artículo 4º—Para los Congresos se convocará tanto a los Delegados propietarios como a los suplentes. Los suplentes sustituirán a los propietarios en los siguientes casos:
-a) En caso de ausencia temporal o definitiva del propietario.
-b) En caso de muerte o inhabilitación del propietario.
+CAPÍTULO II
+Sobre la Integración del Congreso
+Artículo 4º- El Congreso se encuentra constituido por 65 delegados propietarios, distribuidos de la siguiente manera: 45 Delegados en representación del sector productor, 11 Delegados en representación del sector beneficiador, 6 Delegados en representación del sector exportador, 2 Delegados en representación del sector torrefactor y un representante del Estado. Adicionalmente, cada uno de los sectores antes mencionados tiene a sus representantes suplentes ante el Congreso Nacional Cafetalero, en el caso del sector productor un Delegado suplente por cada 3 Delegados propietarios, en el sector beneficiador cuatro Delegados suplentes, en el sector exportador tres suplentes y en sector torrefactor un suplente.

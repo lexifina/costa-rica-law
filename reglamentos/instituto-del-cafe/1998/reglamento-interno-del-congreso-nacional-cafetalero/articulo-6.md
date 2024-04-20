@@ -1,12 +1,4 @@
-CAPÍTULO 3
-Deberes y atribuciones del Congreso Nacional Cafetalero
-Artículo 6º—El Congreso Nacional Cafetalero tendrá los siguientes deberes y atribuciones:
-a) Recomendar las políticas cafetaleras nacionales.
-b) Definir las políticas del ICAFE, para la consecución de sus fines.
-c) Recibir el informe de los presupuestos ordinarios y extraordinarios aprobados por la Junta Directiva de ICAFE.
-d) Conocer de parte del Presidente de la Junta Directiva y el Director Ejecutivo del ICAFE el informe anual del Instituto del Café de Costa Rica, así como el que le corresponde al Ministerio de Agricultura y Ganadería y al Banco Central de Costa Rica, sobre las materias de sus respectivas competencias.
-e) Conocer los Estados Financieros del Instituto del Café de Costa Rica.
-f) Dictar su propio reglamento de sesiones y sus respectivas reformas.
-g) Elegir a los miembros de la Junta Directiva del Instituto del Café de Costa Rica.
-h) Elegir a los miembros de la Junta Directiva del Fondo Nacional de Estabilización Cafetalera.
-i) Los demás deberes y atribuciones señalados en la Ley 2762, su Reglamento u otras leyes especiales que así lo determinen.
+Artículo 6º- Para la suplencia de miembros propietarios se seguirán las siguientes reglas:
+a) Ante la eventualidad de que un Delegado propietario no pueda asistir al Congreso, lo sustituirá uno de los Delegados elegidos como suplentes en la Asamblea Electoral del respectivo sector, en el entendido de que en el caso del sector productor el suplente deberá ser de la región electoral a la cual pertenece el delegado sustituido.
+b) El Delegado suplente que sustituirá al Delegado propietario, se escogerá entre aquellos que estén presentes en la reunión del Congreso y que en la respectiva Asamblea electoral hubiese tenido la mayor cantidad de votos entre los suplentes elegidos y así subsecuentemente.
+c) Una vez iniciado el Congreso, el Delegado suplente que se encuentre sustituyendo a un Delegado propietario permanecerá en esa condición durante toda la sesión.

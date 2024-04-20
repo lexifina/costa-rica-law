@@ -1,1 +1,1 @@
-Artículo 43.—El Comité Electoral entregará al Directorio del Congreso un acta con los resultados de la votación, la cual debe ser firmada por todos los integrantes del mencionado comité. Este documento deberá ser incorporado en el Acta del respectivo Congreso.
+Artículo 43.-Contra los acuerdos y resoluciones del Congreso, solo cabrá el recurso de revocatoria o reposición. Este recurso de revocatoria deberá interponerse ante el Congreso.

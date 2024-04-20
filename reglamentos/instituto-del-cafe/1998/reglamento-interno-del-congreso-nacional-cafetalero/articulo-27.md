@@ -1,1 +1,1 @@
-Artículo 27.—Corresponde a las Comisiones estudiar, discutir y dictaminar sobre los asuntos sometidos a su consideración por el Congreso Nacional; y sobre los que, conexos con aquellos presenten por escrito sus integrantes en forma de ponencias o mociones.
+Artículo 27o.-En el caso de las mociones presentadas a destiempo, sea posterior a los 10 días antes indicados, lo mismo las que se presentan el propio día del Congreso, serán conocidas solamente si su conocimiento es aprobado por dos terceras partes de los Delegados presentes.

@@ -1,3 +1,4 @@
-CAPÍTULO 9
-Sobre las mociones
-Artículo 21.—Las mociones deberán ser presentadas por los Delegados ante la Dirección Ejecutiva del ICAFE con 10 días naturales previos a la correspondiente sesión del Congreso Nacional Cafetalero y las mismas deberán venir firmadas por el o los delegados proponentes. La Dirección Ejecutiva procederá a trasladar copia de dichas mociones a la Junta Directiva de la institución y al Directorio. En relación con las mociones que presenten los Delegados a un Congreso Extraordinario, las mismas deben estar estrechamente relacionadas con el tema por el cual fue convocado el Congreso.
+Artículo 21o.-Le corresponde al primer Secretario:
+a) Asegurar el levantamiento del acta.
+b) Llevar el control del quórum e identificar al orador públicamente.
+c) Leer las mociones en orden alternativo cuando corresponda.

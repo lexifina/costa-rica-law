@@ -1,1 +1,3 @@
-Artículo 29.—Corresponde al ICAFE, dar el asesoramiento técnico, proporcionar los documentos de estudio y los materiales necesarios que requieran estas comisiones. Asimismo, dar todo el apoyo logístico que requieran.
+CAPÍTULO X
+De las Comisiones de Trabajo
+Artículo 29o.-El Congreso podrá formar Comisiones con la finalidad de ahondar en el conocimiento de asuntos propios de la institución o de la actividad cafetalera, siempre y cuando no coincidan con comisiones con la misma finalidad nombradas por la Junta Directiva o por labores propias de la actividad ordinaria de la Junta Directiva. En caso de duda en cuanto a la procedencia en la conformación de una comisión, será el Presidente del Congreso el que la determine. Existirán cuantas comisiones determine el Congreso Nacional Cafetalero. Estas comisiones tendrán todo el apoyo de la Administración y rendirán informe al Presidente y a la Junta Directiva cuando éste se los solicite.

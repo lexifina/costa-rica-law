@@ -1,3 +1,3 @@
-CAPÍTULO 6
-Convocatoria
-Artículo 11.—La convocatoria a las sesiones ordinarias y extraordinarias del Congreso, se hará por lo menos con un mes de antelación a la celebración de la reunión, mediante nota enviada personalmente a cada Delegado Propietario y Suplente por el Presidente del Congreso. Conforme al artículo 52 de la Ley General de la Administración Pública, el Directorio podrá convocar a Congreso Nacional Cafetalero con no menos de ocho días naturales de anticipación si es que dicho órgano de dirección considera que existe un caso de urgencia. Para el citado caso de urgencia, se deberá seguir el mismo sistema de convocatoria y el único punto a conocer en la respectiva sesión será el caso de urgencia por el cual se convocó.
+CAPÍTULO IV
+De los Derechos y Deberes de los Delegados
+Artículo 11o. Se podrá realizar sesiones ordinarias o extraordinarias virtuales siempre que se garantice uso de sistemas telemáticos que permitan una comunicación integral, simultánea e ininterrumpida de video, audio y datos entre sus integrantes y que garanticen en tiempo real la oralidad de la deliberación, la identidad de los asistentes, la autenticidad e integridad de la voluntad colegiada, la conservación e inalterabilidad de lo actuado y su grabación en medios que permitan su íntegra reproducción. No se permite la realización de sesiones híbridas.

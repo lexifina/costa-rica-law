@@ -1,1 +1,3 @@
-Artículo 48.—Contra los acuerdos y resoluciones del Congreso, solo cabrá el recurso de revocatoria o reposición. Este recurso de revocatoria deberá interponerse ante el Congreso.
+CAPÍTULO XIV
+Participación de Invitados Especiales
+Artículo 48o.-Los invitados especiales tendrán el carácter de observadores, expositores o asesores del Congreso. Podrán participar en las sesiones del Congreso con voz, pero sin derecho a voto.

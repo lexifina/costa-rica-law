@@ -1,1 +1,0 @@
-Artículo 53.—Los miembros de la Junta Directiva de ICAFE deberán participar obligatoriamente en todos los Congresos Nacionales Cafetaleros en calidad de observadores, salvo casos justificados, con voz pero sin derecho a voto.

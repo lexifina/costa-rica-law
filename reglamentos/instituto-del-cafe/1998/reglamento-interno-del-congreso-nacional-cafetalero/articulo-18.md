@@ -1,11 +1,3 @@
-Artículo 18.—Corresponde al Presidente del Congreso Nacional Cafetalero:
-a) Presidir y representar oficialmente al Congreso.
-b) Dar los mensajes de apertura y clausura del Congreso.
-c) Dirigir los debates.
-d) Tener por agotada la discusión y someter a votación cada asunto en el momento oportuno.
-e) En caso de empate, decidir la votación con su voto de calidad.
-f) Decretar los recesos que estime convenientes para verificar el quórum, armonizar o conciliar mociones, y ante situaciones imprevistas que lo justifiquen.
-g) Recibir y atender a los invitados especiales.
-h) Velar porque el Congreso cumpla las Leyes y Reglamentos relativos a su función.
-i) Designar a los miembros del Tribunal de Elecciones del Congreso Nacional.
-j) Firmar el libro de actas junto con los dos Secretarios.
+CAPÍTULO VIII
+Sobre los Órganos de Dirección
+Artículo 18o.-El Congreso Nacional Cafetalero estará dirigido por un Presidente y dos Secretarios, los cuales serán nombrados en ese orden por mayoría simple, quienes ostentarán tal designación hasta la celebración de la próxima sesión ordinaria del Congreso, pudiendo ser reelectos.

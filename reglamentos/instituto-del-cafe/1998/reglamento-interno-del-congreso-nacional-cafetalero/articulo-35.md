@@ -1,1 +1,1 @@
-Artículo 35.—Si el tiempo destinado para conocer los informes de las Comisiones de Trabajo no fuere suficiente, el Directorio podrá habilitar más tiempo para seguir conociendo de los mismos y si aún así los asuntos no llegaren a agotarse, se podrán posponer para otra sesión del Congreso.
+Artículo 35o.-Ningún Delegado podrá hacer uso de la palabra sin la autorización del Presidente del Directorio. El segundo Secretario llevará el control de los oradores en estricto orden de solicitud, pero en el uso de la palabra se le dará prioridad al proponente de la moción.

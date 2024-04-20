@@ -1,1 +1,1 @@
-Artículo 50.—Para que queden firmes los acuerdos en la misma sesión del Congreso, éstos deben ser declarados como tales por las dos terceras partes de la totalidad de los miembros del Congreso conforme lo estipula el artículo 56, inciso 2, de la Ley General de la Administración Pública.
+Artículo 50o.-La Dirección Ejecutiva de ICAFÉ en coordinación con el Directorio, determinarán las personas que serán invitadas a la sesión del Congreso, pudiéndose contar con la presencia de asesores externos para ver un caso específico.

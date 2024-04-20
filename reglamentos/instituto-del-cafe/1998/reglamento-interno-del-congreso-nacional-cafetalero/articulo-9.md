@@ -1,3 +1,7 @@
-CAPÍTULO 5
-Sobre las sesiones ordinarias y extraordinarias del Congreso
-Artículo 9º—El Congreso se reunirá ordinariamente el primer domingo del mes de diciembre de cada año conforme la Ley 2762 lo indica, y tendrá como puntos de agenda los que dicha normativa estipula.
+Artículo 9º-Son deberes de los Delegados:
+a) Identificarse con la presentación de su cédula de identidad u otro documento idóneo.
+b) Portar durante las sesiones del Congreso, visiblemente, la insignia que los distinga como Delegado.
+c) Asistir puntualmente a las sesiones de comisión y del Congreso.
+d) Cumplir con esmero y responsabilidad los cargos para los que fuere electo.
+e) Los Delegados acreditados como propietarios, manifestar su voluntad mediante la emisión de su voto para aprobar o desaprobar un asunto sometido a votación.
+f) Comunicar al Directorio su retiro o ausencia de la sesión del Congreso, sea ésta temporal o definitiva.

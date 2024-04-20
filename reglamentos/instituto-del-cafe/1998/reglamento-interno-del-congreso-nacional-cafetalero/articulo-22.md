@@ -1,1 +1,3 @@
-Artículo 22.—Posterior a recibidas las mociones, el Presidente del Congreso, recibiendo el criterio de la Dirección Ejecutiva y el Jefe de la Unidad de Asuntos Jurídicos, podrá acumular aquellas que versen sobre igual tema o las que tengan íntima relación, así como solicitar a la Administración los informes del caso. El Presidente procederá, en el caso de las mociones confusas o ambiguas, a solicitarle al delegado del caso que proceda a aclarar lo pertinente.
+Artículo 22o.-Le corresponde al segundo Secretario:
+a) Llevar el control de los oradores en estricto orden de solicitud
+b) Leer las mociones en orden alternativo cuando corresponda.

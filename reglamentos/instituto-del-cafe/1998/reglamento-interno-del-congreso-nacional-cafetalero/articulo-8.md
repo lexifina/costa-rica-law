@@ -1,7 +1,6 @@
-Artículo 8º—Son deberes de los Delegados:
-a) Identificarse con la presentación del carné suministrado para tal propósito.
-b) Portar durante las sesiones del Congreso, visiblemente, la insignia que los distinga como Delegado.
-c) Asistir puntualmente a las sesiones de comisión y del Congreso.
-d) Cumplir con esmero y responsabilidad los cargos para los que fuere electo.
-e) Los Delegados acreditados como propietarios, manifestar su voluntad mediante la emisión de su voto para aprobar o desaprobar un asunto sometido a votación.
-f) Comunicar al Directorio su retiro o ausencia de la sesión del Congreso, sea ésta temporal o definitiva.
+CAPÍTULO IV
+De los Derechos y Deberes de los Delegados
+Artículo 8º-Corresponde a los Delegados sin distinción alguna:
+a) Participar en todas las actividades del Congreso Nacional Cafetalero.
+b) Participar en cualquiera de las Comisiones de Trabajo que se conformen para analizar asuntos propios de la actividad cafetalera.
+c) Intervenir en los debates de las sesiones del Congreso y suscribir mociones

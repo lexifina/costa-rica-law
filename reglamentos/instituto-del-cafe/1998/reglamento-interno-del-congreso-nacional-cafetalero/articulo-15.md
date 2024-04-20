@@ -1,1 +1,1 @@
-Artículo 15.—En las reuniones del Congreso no se entrará a conocer de ningún asunto que esté fuera de la agenda del día, excepto que se presentare moción de alteración de la agenda acogida para su trámite por el Directorio y se aprobare por las dos terceras partes de los Delegados presentes.
+Artículo 15o.-En las sesiones extraordinarias del Congreso Nacional Cafetalero, la agenda será determinada por el Directorio dentro de las regulaciones de ley y dentro de lo estipulado en este reglamento.

@@ -1,3 +1,1 @@
-CAPÍTULO 12
-Elección de miembros de la junta directiva
-Artículo 36.—Cada dos años, el tercer domingo de agosto, el Congreso se encargará de realizar los nombramientos de los integrantes de la Junta Directiva del ICAFE por un periodo de dos años, con base en las ternas nombradas por las respectivas Asambleas Electorales de productores, beneficiadores, exportadores y torrefactores de café.
+Artículo 36o.-Cuando el número de oradores inscritos sobrepase de 6, el Presidente podrá limitar la concesión del uso de la palabra hasta ese tanto, a razón de un número igual de oradores que estén a favor o en contra del punto en discusión.

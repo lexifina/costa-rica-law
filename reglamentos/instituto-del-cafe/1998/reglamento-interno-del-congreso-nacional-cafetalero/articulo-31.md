@@ -1,1 +1,1 @@
-Artículo 31.—Ningún Delegado podrá hacer uso de la palabra sin la autorización del Presidente del Directorio. El segundo secretario llevará el control de los oradores en estricto orden de solicitud, pero en el uso de la palabra se le dará prioridad al proponente de la moción.
+Artículo 31o.-Corresponde a las Comisiones estudiar, discutir y dictaminar sobre los asuntos sometidos a su consideración por el Congreso Nacional; y sobre los que, conexos con aquellos, presenten por escrito sus integrantes en forma de ponencias o mociones.

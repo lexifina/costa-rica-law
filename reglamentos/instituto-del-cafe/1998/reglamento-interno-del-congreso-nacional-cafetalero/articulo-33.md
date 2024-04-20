@@ -1,1 +1,1 @@
-Artículo 33.—Agotadas las intervenciones de los Delegados, el Presidente podrá ilustrar a los Congresistas sobre el fondo de lo que se discute o sobre el procedimiento de votación, y seguidamente se procederá a recibir la misma.
+Artículo 33o.-Corresponde al ICAFÉ, dar el asesoramiento técnico, proporcionar los documentos de estudio y los materiales necesarios que requieran estas comisiones. Asimismo, dar todo el apoyo logístico que requieran.

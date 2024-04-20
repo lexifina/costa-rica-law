@@ -1,3 +1,4 @@
-Artículo 40.—En las siguientes circunstancias se debe repetir la votación de un sector:
-a) En el caso de los sectores beneficiador, exportador y torrefactor, se deberá repetir la votación en aquel sector en que ninguno de los integrantes de la respectiva terna obtuvo votos. La votación se repetirá las veces que sea necesario, hasta que haya votaciones en la respectiva terna.
-b) En el caso del sector productor, se deberá repetir la votación total cuando los integrantes de alguna terna no hayan obtenido por lo menos un voto, todo en razón de que la Ley 2762 exige que exista representación en la Junta Directiva de ICAFE de todas las regiones electorales. La votación se repetirá las veces que sea necesario, hasta que haya votaciones en las ternas de las siete regiones electorales.
+CAPÍTULO XII
+Sobre los Procesos Disciplinarios
+Artículo 40o.-El Congreso Nacional Cafetalero, en ejercicio de las potestades delegadas por ley, podrá instaurar procedimientos administrativos respecto a los miembros de Junta Directiva de ICAFÉ.
+Para el conocimiento de hechos que puedan implicar la separación de un miembro de la Junta Directiva se seguirá el procedimiento ordinario establecido en los artículos 308 al 319 de la Ley General de la Administración Pública.

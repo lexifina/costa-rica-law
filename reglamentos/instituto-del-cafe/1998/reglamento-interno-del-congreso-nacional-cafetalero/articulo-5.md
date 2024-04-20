@@ -1,4 +1,3 @@
-Artículo 5º—Para la sustitución de miembros propietarios se seguirán las siguientes reglas:
-a) Ante la eventualidad de que un Delegado Propietario no pueda asistir al Congreso, lo sustituirá uno de los Delegados elegidos como suplentes en la Asamblea Electoral del respectivo sector, en el entendido de que en el caso del sector productor el suplente deberá ser de la región electoral a la cual pertenece el delegado sustituido.
-b) El delegado suplente que sustituirá al delegado propietario, se escogerá entre aquellos que estén presentes en la reunión del Congreso y que en la respectiva Asamblea electoral hubiese tenido la mayor cantidad de votos entre los suplentes elegidos y así subsecuentemente.
-c) Una vez iniciado el Congreso, el Delegado Suplente que se encuentre sustituyendo a un Delegado Propietario permanecerá en esa condición durante toda la sesión.
+Artículo 5º-Para los Congresos se convocará tanto a los Delegados propietarios como a los suplentes. Los suplentes sustituirán a los propietarios en los siguientes casos:
+a) En caso de ausencia temporal o definitiva del propietario.
+b) En caso de muerte o inhabilitación del propietario.

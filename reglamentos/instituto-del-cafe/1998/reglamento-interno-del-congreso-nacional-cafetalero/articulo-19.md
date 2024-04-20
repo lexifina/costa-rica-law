@@ -1,1 +1,11 @@
-Artículo 19.—Corresponde al primer Secretario asegurar el levantamiento del acta, llevar el control del quórum e identificar al orador públicamente y leer las mociones en orden alternativo cuando corresponda.
+Artículo 19o.-Son atribuciones del Directorio:
+a) En coordinación con la Dirección Ejecutiva de ICAFÉ organizar con la debida antelación todos los actos del Congreso Nacional.
+b) Integrar las Comisiones de Trabajo que considere convenientes, y coordinar con el ICAFÉ la designación de sus respectivos asesores.
+c) Proponer al Congreso, ante la ausencia de alguno de los miembros del Directorio, su designación para la sesión correspondiente.
+d) Contar con los servicios de asesoría legal y de secretariado indispensables.
+e) Elaborar oportunamente el calendario del Congreso y el orden del día a seguir en cada sesión para conocimiento y observancia de los Delegados.
+f) Dar o denegar la calificación de "Orden" a las mociones que se le presenten en este sentido.
+g) Recibir y poner en trámite de discusión los informes de las Comisiones de Trabajo y las mociones que presenten por escrito los Delegados, en estricto orden de presentación.
+h) Conocer previo a las sesiones las mociones que se presentan. Determinar la procedencia de las mociones antes indicadas, pudiendo acumularlas en caso de que éstas versen sobre un mismo tema.
+i) Determinar las personas que serán invitadas para las Sesiones de los Congreso.
+j) Velar por la ejecución de los acuerdos y resoluciones del Congreso.

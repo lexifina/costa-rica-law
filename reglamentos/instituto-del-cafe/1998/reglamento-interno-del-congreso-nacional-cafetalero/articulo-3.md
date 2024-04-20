@@ -1,3 +1,17 @@
-CAPÍTULO 2
-Sobre la integración del congreso
-Artículo 3º—El Congreso se encuentra constituido por delegados propietarios y suplentes de los sectores antes mencionados.
+Artículo 3º- Para los efectos del presente Reglamento, los conceptos que siguen se entienden de la siguiente forma:
+1. Congreso (Congreso Nacional Cafetalero): Órgano superior de dirección y administración del Instituto del Café de Costa Rica (ICAFÉ) de carácter permanente.
+2. Delegado propietario: El miembro propietario en los órganos colegiados, es aquel que tiene como finalidad asistir a las sesiones del colegio y forma parte del órgano, cada sector cafetalero (productor, beneficiador, torrefactor y exportador) elegirán a sus delegados propietarios y estos tendrán voz y voto en las sesiones del órgano.
+3. Delegado suplente: El miembro suplente en los órganos colegiados, tiene como finalidad sustituir temporalmente al miembro propietario cuando éste último no pueda asistir a las sesiones del colegio. No forma parte del órgano, salvo cuando lo sustituye. Cada sector cafetalero (productor, beneficiador, torrefactor y exportador) elegirán a sus delegados suplentes.
+4. Director: Para efectos de este Reglamento, Director corresponde a quien conforma la Dirección Ejecutiva del ICAFÉ.
+5. Directorio: Comité del Congreso Nacional Cafetalero integrado por el Presidente y dos Secretarios.
+6. Junta Directiva: órgano colegiado permanente conformado por el sector productor, beneficiador, exportador, torrefactor y el Ministro de Agricultura y Ganadería o un representante del Poder Ejecutivo, su organización y funcionamiento se regula en la Ley N° 2762 y sus reformas, el Reglamento a la citada Ley y el Reglamento Interno de Sesiones de la Junta Directiva.
+7. Mayoría absoluta: Para el Congreso Nacional Cafetalero, por ser un órgano colegiado impar, la mayoría absoluta, también conocida como simple, corresponde a treinta y tres miembros.
+8. Mayoría calificada: Cuando se exige un número de votos superior a los que se requieren para alcanzar la mayoría absoluta, En el caso del Congreso Nacional Cafetalero para que queden firmes los acuerdos en la misma sesión del Congreso, éstos deben ser declarados como tales por las dos terceras partes de la totalidad de los miembros del Congreso, es decir, 44 personas.
+9. Moción: Propuesta o petición que hace un delegado al Congreso Nacional Cafetalero para que se tome una decisión sobre ella.
+10. Moción de orden: Son mociones de orden las que se presentan para regular el debate, para alterar el orden del día, para incluir un asunto o para que se posponga el conocimiento de uno que figura en el orden del día.
+11. Persona invitada: Toda aquella persona que sea invitada por el Directorio del Congreso, por requerimiento de éste o a solicitud de la Administración, ya sea a observar, deliberar y/o asesorar cualquier asunto de interés. En cuyo caso, podrán participar en las sesiones del Congreso con voz, pero sin derecho a voto.
+12. Relator: Persona encargada de hacer relación a los asuntos tratados en la Comisión designada, así como de las deliberaciones y acuerdos correspondientes.
+13. Sesión extraordinaria: Son aquellas que se realizan excepcionalmente, en las que, por lo general, se discuten asuntos de naturaleza especial o extraordinarios.
+14. Sesión híbrida: Sesión que se celebra con miembros en modalidad presencial y virtual al mismo tiempo.
+15. Sesión ordinaria: Constituyen el cauce normal para conocer, discutir y votar los asuntos ordinarios que le competen a un órgano colegiado, sin que sea óbice, por excepción, de que también en este tipo de sesión se conozcan asuntos de naturaleza extraordinaria o especial.
+16. Urgencia: Implica una necesidad apremiante o una situación que requiere de atención sin demoras, ante situaciones que puedan ocasionar perjuicios o comprometer los intereses públicos y/o del sector y que se presentan de manera imprevistas o imprevisibles para la Administración, su trato será de carácter excepcional.
