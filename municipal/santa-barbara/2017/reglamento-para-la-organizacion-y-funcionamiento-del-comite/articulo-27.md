@@ -1,2 +1,0 @@
-Artículo 27.- El quórum para sesionar estará integrado por la mitad más uno del total de las y los miembros de la Junta Directiva del CCDRSB. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos.
-Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y de empatar otra vez, el asunto se tendrá por desechado.

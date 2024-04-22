@@ -1,1 +1,0 @@
-Artículo 43.-La elección de las y los miembros de la Junta Directiva del Comité Comunal se realizará a través de una Asamblea convocada por la Junta Directiva del CCDRSB, los asambleístas procederán a la elección de los puestos de la Junta del Comité Comunal de entre las personas propuestas en dicha asamblea, ya sean de los presentes o externos a lam1sma.

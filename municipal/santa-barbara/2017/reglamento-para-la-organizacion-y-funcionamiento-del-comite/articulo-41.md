@@ -1,4 +1,0 @@
-CAPÍTULO VII
-DELOS COMITÉS COMUNALES
-Artículo 41.- Los Comités Comunales serán los órganos de enlace entre el CCDRSB y la comunidad, el distrito respectivo o barrio, estarán integrados por cinco miembros residentes del distrito o comunidad correspondiente; respetando la paridad y equidad de género; que serán nombrados en Asamblea General, convocada para tal efecto por la Junta Directiva del CCDRSB.
-La asamblea general estará conformada por dos representantes (un hombre y una mujer) de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito y que se encuentren inscritas o adscritas al Comité Cantonal con personería jurídica vigente.

@@ -1,1 +1,0 @@
-Artículo 68.- Cuando el estadio sea alquilado para algún partido y en el trascurso del mismo, se tenga que suspender por lluvia o cualquier circunstancia especial, el Comité de Deportes no estará en la obligación de devolver ninguna suma de dinero.

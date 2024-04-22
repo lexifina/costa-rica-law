@@ -1,1 +1,0 @@
-Artículo 40.- Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la persona asignada al Sub-proceso Secretaria! del CCDRSB. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad de Santa Bárbara, las hojas serán selladas y foliadas por ésta.

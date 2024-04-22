@@ -1,1 +1,0 @@
-Artículo 48.- Los Comités Comunales deberán llevar un archivo administrativo en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el CCDRSB en cualquier momento.

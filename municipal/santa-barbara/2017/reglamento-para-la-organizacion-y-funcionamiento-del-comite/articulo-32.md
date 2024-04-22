@@ -1,1 +1,0 @@
-Artículo 32.- Las determinaciones o decisiones que tome la Junta Directiva del CCDRSB, por mayoría simple, se denominarán acuerdos. Estos acuerdos serán tramitados y comunicados por la Secretaría y deberán ser ejecutados por la Administración.

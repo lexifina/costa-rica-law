@@ -1,3 +1,0 @@
-CAPÍTULO VI
-DELAS ACTAS
-Artículo 37 .- Todos los órganos adscritos y que conforman el CCDRSB a que se refiere este Reglamento deberán llevar un libro de Actas donde consten en forma sucinta los acuerdos y demás incidencias que éstos traten. Los libros contables, de actas y legales debidamente foliados deberán estar al día, así como las personerías jurídicas. La Junta Directiva de CCDRSB y los Comités Comunales, forman parte integral de esta misma organización.

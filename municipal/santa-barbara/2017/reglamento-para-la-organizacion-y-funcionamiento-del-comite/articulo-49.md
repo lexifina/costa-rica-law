@@ -1,1 +1,0 @@
-Artículo 49.- Cuando el Comité Comunal en coordinación con el área técnica del CCDRSB realice torneos estará en la obligación de confeccionar su respectiva regulación que deberá ser aprobada previamente por la JUNTA DIRECTIVA del CCDRSB.

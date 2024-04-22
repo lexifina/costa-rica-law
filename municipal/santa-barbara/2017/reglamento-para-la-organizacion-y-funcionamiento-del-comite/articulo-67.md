@@ -1,1 +1,0 @@
-Artículo 67 .- Se dará prioridad en la utilización del estadio, a entidades de liga menor, para entrenamientos y partidos. De la misma forma que a grupos del cantón que participen en campeonatos federados de liga menor, siempre que exista disponibilidad.
