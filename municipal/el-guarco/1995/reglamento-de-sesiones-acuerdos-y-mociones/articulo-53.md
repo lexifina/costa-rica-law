@@ -1,1 +1,0 @@
-Artículo 53.—Cualquier miembro que haya solicitado el uso de la palabra de acuerdo con el artículo anterior, podrá conceder su tiempo a otro compañero que así lo requiera, sólo por consentimiento de aquel y sin que se requiera acuerdo del Concejo.

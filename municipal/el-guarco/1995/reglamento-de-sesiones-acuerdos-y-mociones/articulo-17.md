@@ -1,1 +1,0 @@
-Artículo 17.—La creación de una comisión especial, será por acuerdo expreso del Concejo. La integración de la misma, corresponderá al Presidente Municipal y será este, quien defina el directorio de la misma.

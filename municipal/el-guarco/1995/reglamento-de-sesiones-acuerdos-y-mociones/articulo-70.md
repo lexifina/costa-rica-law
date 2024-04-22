@@ -1,1 +1,0 @@
-Artículo 70.—Cuando las participaciones de particulares corresponda a sesiones extraordinarias fuera del Salón de Sesiones y según lo establecen los artículos 23 y 24, el tiempo para la exposición inicial será de 15 minutos por representante de los grupos comunales anfitriones y se mantendrán los dos minutos para responder preguntas de los miembros del Concejo.

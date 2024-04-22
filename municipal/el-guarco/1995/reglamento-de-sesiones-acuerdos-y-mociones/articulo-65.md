@@ -1,1 +1,0 @@
-Artículo 65.—Corresponde a la secretaría notificar oportunamente a los interesados, las invitaciones a las audiencias que acuerde el Concejo y/o el día en que se dará curso a la audiencia solicitada, según el artículo 54 del presente reglamento.

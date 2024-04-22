@@ -1,1 +1,0 @@
-Artículo 54.—Al dar por discutido un asunto, el Presidente no podrá otorgar el uso de la palabra a ningún miembro que así lo solicite, salvo para razonar el voto, en cuyo caso, se dará un tiempo máximo de tres minutos.

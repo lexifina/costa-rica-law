@@ -1,1 +1,0 @@
-Articulo 42.—Cuando una moción se ponga a despacho de una comisión, permanente o extraordinaria, esta tendrá un plazo de ocho días hábiles para dictaminar lo que corresponda. La extensión del plazo deberá ser solicitada por el Presidente de la comisión, en forma escrita y corresponderá al Concejo, aprobar o rechazar la solicitud.

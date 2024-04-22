@@ -1,1 +1,0 @@
-Artículo 20.—La hora y día de sesiones de las Comisiones, serán acordados por ellos mismos y comunicado al Concejo. Para las comisiones de trabajo, el Concejo facilitará las instalaciones de la Municipalidad o bien, podrán sesionar en el lugar que determine, en cuyo caso, deberá ser refrendado o rechazado por el Concejo Municipal.

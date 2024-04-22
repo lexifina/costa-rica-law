@@ -1,1 +1,0 @@
-Artículo 47.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego al resto de los miembros del Concejo que la soliciten sin que pueda exceder del tiempo establecido en el presente reglamento.

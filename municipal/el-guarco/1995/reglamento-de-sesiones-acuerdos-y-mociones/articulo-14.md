@@ -1,1 +1,0 @@
-Artículo 14.— Las comisiones serán instaladas por el Presidente del Concejo en la semana posterior a la designación de las mismas y establecerá de su seno, un Presidente, un Vicepresidente y un Secretario.

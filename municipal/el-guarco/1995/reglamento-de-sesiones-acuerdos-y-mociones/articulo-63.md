@@ -1,1 +1,0 @@
-Artículo 63.—Cuando el objeto de la audiencia fuere un asunto de competencia del Ejecutivo, el Presidente ordenará a la Secretaría remitir el memorial presentado a dicho funcionario, para que le de el trámite correspondiente. La secretaría lo hará del conocimiento de los interesados.

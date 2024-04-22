@@ -1,2 +1,0 @@
-Artículo 29.—El Concejo y las comisiones pueden realizar las sesiones extraordinarias que fueren necesarias, a las que deberá convocarse a todos los miembros. La convocatoria se hará de acuerdo a la ley y por lo menos con veinticuatro horas de anticipación, indicando el objeto de la sesión vía moción. En estas sesiones, sólo podrá conocerse el o los asuntos incluidos en la convocatoria, además de aquellos que por unanimidad de los miembros presentes se acordare conocer.
-En el caso del Concejo, entiéndase por miembros a todos los regidores y síndicos propietarios y suplentes.

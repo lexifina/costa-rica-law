@@ -1,1 +1,0 @@
-Artículo 55.—En el Concejo Municipal, tienen derecho a voto los regidores propietarios o los suplentes, cuando exista ausencia de uno o varios de ellos, mientras que en las comisiones todos sus miembros tienen que votar.

@@ -1,1 +1,0 @@
-Artículo 35.—El Presidente, calificará los asuntos de trámite urgente y se incluirá en el orden del día. En sesión podrán incluirse también asuntos de trámites urgentes por iniciativa de uno o varios miembros.

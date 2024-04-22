@@ -1,1 +1,0 @@
-Artículo 51.—Los acuerdos tomados por e! Concejo, quedarán en firme al aprobarse el acta respectiva. En los casos que el Concejo en votación de las dos terceras partes de la totalidad de sus miembros emita su criterio, se dará por definitivamente aprobado y en firme.

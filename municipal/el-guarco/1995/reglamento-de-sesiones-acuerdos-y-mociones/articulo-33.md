@@ -1,1 +1,0 @@
-Artículo 33.—Cualquier funcionario municipal podrá ser llamado a las sesiones, cuando así se acordare y sin que por ello pueda remunerarse en dinero, compensación en tiempo o forma alguna. En el caso de las comisiones, cuando requieran de la presencia de algún funcionario, deberá hacerse la instancia al Concejo, quien definirá si procede o no la convocatoria.

@@ -1,1 +1,0 @@
-Artículo 21.—El quórum para las sesiones del Concejo, será el que determine la ley y deberá confrontarse con los regidores que se encuentren ocupando sus respectivas curules. En cuanto a las comisiones, será de mayoría simple de los miembros de la Comisión.
