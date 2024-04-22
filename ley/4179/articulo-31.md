@@ -3,5 +3,6 @@ a) Se constituirán con responsabilidad limitada, y de sus compromisos responder
 b) Se constituirán mediante asamblea que celebren los interesados, de la cual se levantará un acta.
 c) No podrán constituirse mientras no está suscrito íntegramente el patrimonio social inicial y no se haya pagado, por lo menos, el 25% de importe total del mismo.
 En el caso de las cooperativas de autogestión, este aporte inicial podría estar constituido por el compromiso de trabajo de los socios según lo que establezca el reglamento.
-d) No podrá constituirse con un número menor de 20 asociados, exceptuándose las cooperativas de autogestión que se constituirán con un número no menor de 12 personas.
+d) No podrán constituirse con un número menor de ocho personas.
+(Así reformado el inciso anterior por el artículo único de la Ley para estimular la Creación de Cooperativas mediante la reforma de varios artículos de las leyes de Asociaciones Cooperativas, N° 10451 del 22 de abril de 2024)
 e) Tendrán su domicilio legal en el lugar donde realicen el mayor volumen de sus operaciones.
