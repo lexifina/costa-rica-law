@@ -14,3 +14,4 @@ Crea el distrito Palmitos, octavo del cantón Naranjo, segregado del distrito Na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-07 | la propia norma |
+| 2 | 2024-04-22 | Acuerdo 6 (2024-04-22) |
