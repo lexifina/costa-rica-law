@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la junta administrativa de cemen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-13 | la propia norma |
+| 2 | 2024-04-22 | Reglamento municipal 17 (2024-04-22) |

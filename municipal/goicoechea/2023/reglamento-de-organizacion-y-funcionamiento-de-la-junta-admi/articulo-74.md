@@ -1,5 +1,7 @@
-Artículo 74.- De la exoneración total en situaciones de vulnerabilidad. En el caso de los nichos de alquiler, la Junta podrá exonerar de forma total el pago del importe, en el tanto se presenten los siguientes requisitos:
+Articulo 74.-De la exoneración total en situaciones de vulnerabilidad. En el caso de los nichos de alquiler, la Junta podrá exonerar de forma total el pago del importe, en el tanto se presenten los siguientes requisitos:
 a) Cédula de identidad de la persona solicitante,
 b) Acta de defunción de la persona fallecida,
 c) Copia de la certificación de defunción de la persona fallecida, acompañada de su cédula de identidad, o bien formulario aportado por la junta en el cual la persona solicitante rinda declaración jurada,
 d) Acreditación como parte de la población en situación de pobreza o pobreza extrema, de conformidad con la información correspondiente emitida por el Instituto Mixto de Ayuda Social (IMAS), o bien en caso de no contar con dicha acreditación, solicitud de exoneración firmada por la Dirección de Desarrollo Humano de la Municipalidad de Goicoechea, otras instituciones del Estado, organizaciones sociales o religiosas.
+La Junta acordara en su primera sesión, delegar expresamente en la Presidencia y supletoriamente en la Vicepresidencia, la aprobación de las solicitudes de exoneración que sean presentadas fuera de los días en que se celebren las sesiones ordinarias o extraordinarias de la Junta. La Presidencia o Vicepresidencia según corresponda, rendirá informe de lo actuado a la Junta en su sesión inmediata siguiente.
+(Así reformado mediante sesión N° 17-2024 del 22 de abril del 2024)
