@@ -1,1 +1,0 @@
-Artículo 36°.- En los cantones donde se encuentran funcionando debidamente organizadas filiales de asociaciones y federaciones, estas deberán fungir también como comisión específica de su deporte. Es recomendable así mismo que la Comisión de Futbol será la misma Comisión Cantonal de ANAFA.

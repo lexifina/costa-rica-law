@@ -1,1 +1,0 @@
-Artículo 37°Al finalizar cada etapa nacional de los juegos nacionales, cada comisión específica deberá presentar por escrito al Comité Cantonal de Deportes y Recreación, un informe de las actividades cumplidas.

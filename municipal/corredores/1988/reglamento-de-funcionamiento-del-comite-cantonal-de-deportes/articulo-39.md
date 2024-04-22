@@ -1,1 +1,0 @@
-Artículo 39.- La integración y distribución de puestos será igual a la del Congreso Cantonal de Deportes y Recreación, su vigencia la misma, pudiendo ser reelectos, recibirán dietas ni remuneración alguna.

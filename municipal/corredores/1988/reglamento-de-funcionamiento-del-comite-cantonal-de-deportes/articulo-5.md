@@ -1,2 +1,0 @@
-Artículo 5°.- Una vez que se tenga determinado a cada uno de los miembros del Comité, el Presidente Municipal, previa convocatoria mediante telegramas, en una sesión del consejo, procederá a juramentarlos. Inmediatamente, los miembros del comité nombraran de su seno a un Presidente, un Vicepresidente, un Secretario, un Tesorero y tres Vocales (primero, segundo y tercero) que llevarán las vacantes temporales en su orden, y enseguida establecerán los días y horas de sesión del Comité.
-Corresponde al Presidente la representación judicial del mismo.

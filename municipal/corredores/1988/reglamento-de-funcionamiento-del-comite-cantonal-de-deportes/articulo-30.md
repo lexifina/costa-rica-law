@@ -1,1 +1,0 @@
-Artículo 30°.- De la subvención recibida por parte de la Municipalidad, el Comité Cantonal de Deportes y Recreación podrá incluir en su presupuesto anual una partida por la compra de terrenos para el deporte y la recreación, así como para la construcción de instalaciones deportivas.

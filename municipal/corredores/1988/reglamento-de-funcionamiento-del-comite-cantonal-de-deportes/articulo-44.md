@@ -1,1 +1,0 @@
-Artículo 44°.- Cada Comité Distrital deberá llevar un libro de actas de junta directiva y un libro de tesorería con hojas numeradas, los cuales deben ser facilitados por el Comité Cantonal, quien los autorizará, emitiendo el sello en cada página del libro.

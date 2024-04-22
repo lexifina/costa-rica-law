@@ -1,1 +1,0 @@
-Artículo 22°.- Los asuntos que conozca el Comité se decidirán por mayoría simple de sus miembros presentes, salvo en lo que respecta a presupuesto, el que acordará por mayoría calificada (2/3 partes de la totalidad de sus miembros).

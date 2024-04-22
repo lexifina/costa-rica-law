@@ -1,1 +1,0 @@
-Artículo 4.- En caso de que no se presenten las ternas o designados a que se refiere el artículo 4° de este reglamento, el Consejo prevendrá el cumplimiento de los omisos y si dentro de los treinta días siguientes no se procediese a tal designación, se nombrará por la municipalidad a un vecino que cumpla con los requisitos fijados por ley.

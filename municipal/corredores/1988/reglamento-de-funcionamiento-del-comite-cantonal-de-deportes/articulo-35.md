@@ -1,1 +1,0 @@
-Artículo 35°.- Cada Comité Cantonal de Deportes y Recreación podrá formar tantas comisiones especificas por deportes, como sea la cantidad de disciplinas deportivas practicadas en el cantón, pero deberá como mínimo cinco escogidas de los siguientes deportes, atletismo, ajedrez, baloncesto, béisbol, boxeo, ciclismo, futbol, natación, tenis de mesa y voleibol.

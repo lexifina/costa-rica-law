@@ -1,1 +1,0 @@
-Artículo 17°.- Los comités cantonales de deportes y recreación deberán reunirse de carácter ordinario, cuando menos una vez por semana debiendo comunicar a la Dirección Regional de Deportes, por escrito, día y hora de la sesión.

@@ -1,1 +1,0 @@
-Artículo 46°.- Cada tres meses el Comité Cantonal de Deportes, convocará todos los presidentes de los comités distritales a una sesión conjunta. En esta oportunidad los comités distritales presentarán un informe, con copias del Comité Cantonal de Deportes y Recreación indicando las actividades realizadas y por realizar de la agrupación.
