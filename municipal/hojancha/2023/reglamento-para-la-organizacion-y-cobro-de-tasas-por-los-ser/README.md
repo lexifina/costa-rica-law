@@ -14,3 +14,4 @@ Reglamento para la organización y cobro de tasas por los servicios de manejo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-14 | la propia norma |
+| 2 | 2024-04-22 | Reglamento municipal 208 (2024-04-22) |
