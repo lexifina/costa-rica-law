@@ -13,3 +13,4 @@ Crea Distrito Sexto San Juan Cantón de Naranjo Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1966-04-02 | la propia norma |
+| 2 | 2024-04-22 | Acuerdo 7 (2024-04-22) |
