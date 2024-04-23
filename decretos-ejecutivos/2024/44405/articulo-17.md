@@ -1,0 +1,1 @@
+Artículo 17º-Utilización de los recursos. De conformidad con el artículo 1 de la Ley Nº 9817, los recursos del Fideicomiso se destinarán prioritariamente para el cumplimiento de sus objetivos y a la asignación de recursos a para créditos.

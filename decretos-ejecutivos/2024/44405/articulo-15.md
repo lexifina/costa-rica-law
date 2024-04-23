@@ -1,0 +1,1 @@
+Artículo 15º- Desembolsos de crédito aprobado. El BNCR le informará a la OTC por medio de correo electrónico, dentro de un plazo de veinticuatro horas a partir de su formalización (1 día hábil), el monto de dinero necesario para el primer desembolso, los demás desembolsos se harán igualmente con previa coordinación con la OTC.

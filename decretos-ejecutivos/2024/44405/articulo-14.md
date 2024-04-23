@@ -1,0 +1,2 @@
+Artículo 14º- Notificación de la evaluación de la solicitud de crédito. La OTC cuenta con un plazo de 10 días para notificar al administrado de la evaluación de la solicitud de crédito, la cual no podrá solicitar nuevos requisitos o señalar nuevos defectos que no fueron prevenidos oportunamente, aun cuando sea otro funcionario el que lo califique por segunda vez.
+El expediente de crédito debe ordenarse de acuerdo con las disposiciones emitidas por las autoridades reguladoras en materia de crédito. La recepción de la solicitud de crédito no implica su aprobación.

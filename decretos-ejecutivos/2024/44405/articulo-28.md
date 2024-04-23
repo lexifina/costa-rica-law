@@ -1,0 +1,3 @@
+Artículo 28°- Banca de Segundo Piso. El Fideicomiso podrá actuar como banca de segundo piso en la colocación de fondos dirigidos a la renovación, el mantenimiento, las inversiones complementarias necesarias en el cultivo de la palma aceitera
+La banca de segundo piso se entenderá en lo dispuesto en el artículo 2 de este Reglamento. Adicionalmente, el propio Fideicomiso, podrá acceder a recursos del Sistema de Banca para el Desarrollo para el financiamiento y la administración del fideicomiso en este único fin.
+Para cumplir lo anterior, se aplicarán las políticas de crédito del Fideicomiso como la normativa del Sistema de Banca para el Desarrollo o de la entidad que suministre los fondos.

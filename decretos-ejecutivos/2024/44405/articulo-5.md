@@ -1,0 +1,3 @@
+Artículo 5º-De los objetivos del fideicomiso. El Fideicomiso No 955 Ministerio de Hacienda-B.N.C.R., tendrá los siguientes objetivos:
+A. Contribuir a mantener la sostenibilidad de la actividad palmera, mediante un programa de atención integral a las plantaciones existentes, que involucra el apoyo articulado entre el Sector Público y Privado, en las líneas de crédito, seguimiento y capacitación. Este programa incluye acompañamiento en replantaciones, fertilización y la adquisición de nuevas tecnologías y viveros.
+B. Determinar la viabilidad y factibilidad de refinanciar o adquirir deudas de pequeños productores que se encuentren en una situación de pérdida de sus propiedades ocupadas por la siembra de palma aceitera que provengan de otras instituciones financieras.

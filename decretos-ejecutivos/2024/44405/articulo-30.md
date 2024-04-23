@@ -1,0 +1,2 @@
+Artículo 30º- Financiamiento de inversiones complementarias, equipo y maquinaria menor. El financiamiento de inversiones complementarias, equipo y maquinaria menor, necesarias en el cultivo de palma aceitera, serán definidas por las políticas emitidas por CIFOPALMA, las cuales serán revisables y modificables cuando así lo ameriten.
+Ese rubro de financiamiento requerirá de las pólizas adecuadas que existan en el mercado en aquellos equipos y maquinaria menor que así lo requiera.

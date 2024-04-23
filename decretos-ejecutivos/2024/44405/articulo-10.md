@@ -1,0 +1,1 @@
+Artículo 10.-De la rendición de cuentas. El fiduciario deberá velar por el desarrollo los mecanismos que permitan generar y mantener disponible toda la información sobre la operación y funcionamiento del Fideicomiso, en aras de garantizar la transparencia y el adecuado uso de los recursos públicos.

@@ -1,0 +1,2 @@
+Artículo 21º-Revisión y Valoración. Las garantías hipotecarias, mobiliarias y prendarias deben ser sujetas a una revisión y valoración, para verificar su estado y deseabilidad comercial. Además, se tienen que hacer los estudios regístrales para analizar sus gravámenes y anotaciones, así como determinar la vigencia y cobertura de los seguros.
+Si luego de efectuado el estudio, se determinare que no es viable por la situación legal o por el valor de los bienes ofrecidos en garantía, se deben solicitar otras garantías a satisfacción del Fideicomiso.

@@ -1,0 +1,4 @@
+Artículo 25º-Readecuaciones. Se entiende por operación readecuada, aquella operación crediticia en la que por lo menos una de las condiciones de pago contractuales vigentes ha sido modificada, siendo que los tipos de operaciones readecuadas para el presente fideicomiso serán:
+a. Readecuación (Ampliación) de plazos: se trata de ampliar la fecha de vencimiento de una operación crediticia. Dicha ampliación deberá establecerse con base en el análisis técnico, de la capacidad de pago, ciclo de la actividad y el plazo de financiamiento para dicha actividad.
+b. Modificación de la frecuencia y/o monto a amortizar: mecanismo mediante el cual se modifican los montos y/o periodicidad de los pagos de capital (amortizaciones).
+c. Modificación de la forma y /o frecuencia en que se pagan los intereses: cambio en la forma de pago de los intereses de anticipados a vencidos (viceversa), o el periodo que abarca el pago de intereses (mensual, bimestral, trimestral, semestral o anual).

@@ -1,0 +1,1 @@
+Artículo 26º- Aplicación. Estos mecanismos de readecuación y del pago de deudas se aplicarán conforme las políticas que para este fin implementará CIFOPALMA, las cuales serán revisables y modificables cuando así lo ameriten.

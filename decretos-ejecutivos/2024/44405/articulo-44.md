@@ -1,0 +1,1 @@
+Artículo 44.- Representación legal. La representación legal del Fideicomiso la ejercerá el Fiduciario, quien tendrá la representación judicial y extrajudicial con las facultades de apoderado generalísimo sin límite de suma de conformidad con el artículo 1253 del Código Civil.

@@ -1,0 +1,8 @@
+Artículo 37º- Ejecución de ejes. La ejecución de dichos ejes se hará a través de la priorización y focalización de procesos operacionales conjuntos a través de convenios, adendas y cartas específicas de entendimiento, que permitan definición de responsabilidades y corresponsabilidades en la ejecución y seguimiento en las líneas de acción estratégica y operacional del Fideicomiso.
+Además, dichas actividades deberán estar debidamente planificadas en los planes operativos de cada una de las instituciones contempladas en el artículo cinco de la ley 9817, así como en el Plan Estratégico del Fideicomiso.
+El Fideicomiso juntamente con las instituciones estatales indicadas en el artículo 5 de la Ley 9817, fomentará y gestionará de manera articulada, lo que a continuación se cita;
+1.- Capacitación de la estructura interna de organizaciones que participen del sistema agroempresarial para consolidar el accionar de este, asegurando su sostenibilidad y el desarrollo socioeconómico y ambiental de cada una de las organizaciones.
+2.- Capacitación y formación de líderes con capacidad empresarial para consolidar la visión de compromiso que debe asumir cada productor al incursionar en el proceso económico generado por la actividad con visión empresarial.
+3.- Capacitaciones en programas de salud ocupacional.
+4.- Educación y capacitación en cambio climático, esquemas asociativos de trabajo, habilidades empresariales, innovación e investigación de desarrollo tecnológico.
+Lo anterior debe planificarse, con el fin de que las instituciones presupuesten anualmente recursos financieros y humanos para tales efectos.

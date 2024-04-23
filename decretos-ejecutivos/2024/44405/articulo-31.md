@@ -1,0 +1,3 @@
+Artículo 31º- Salud de suelos. El Fideicomiso podrá financiar la recuperación de la salud de los suelos, mediante la aplicación de buenas prácticas agrícolas, que contribuyan a una mejora en la productividad de las plantaciones de palmas aceiteras afectadas por distintos trastornos fitosanitarios y nutricionales.
+Para la ejecución de este artículo se deberá contar con la participación de las instituciones del artículo 5 de la Ley No. 9817, quienes se encargarán de elaborar el manual de buenas prácticas agrícolas y cualquier otro estudio que se requiera.
+Adicionalmente, se podrá solicitar la colaboración de otras instituciones para estos mismos efectos.

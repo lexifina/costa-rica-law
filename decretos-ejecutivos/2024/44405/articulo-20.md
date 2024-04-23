@@ -1,0 +1,1 @@
+Artículo 20º-Contragarantía. Se considera la contragarantía como una garantía otorgada a favor del garante de una deuda con el Fideicomiso, que al mismo tiempo exige al propio cliente o a un tercero garantizarla de manera subsidiaria a la garantía principal. Su constitución se hará mediante escritura pública inscrita en el Registro Nacional.

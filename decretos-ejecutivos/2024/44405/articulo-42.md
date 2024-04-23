@@ -1,0 +1,3 @@
+Artículo 42º.- Órgano Técnico. Para ejecutar las acciones de la Comisión Interinstitucional se contará con el órgano técnico, la cual estará constituida por un agrónomo especialista en el cultivo de palma aceitera y un profesional en labores administrativas y de contaduría.
+Dichos servidores son bajo el nombramiento del INDER, a tiempo completo y por el plazo de desarrollo del fideicomiso. En caso de ausencia permanente o temporal de alguno de ellos, el INDER deberá nombrar sus respectivos suplentes.
+Adicionalmente, el órgano técnico contará con la colaboración de las instituciones citadas en el artículo 5 de la Ley No. 9817, en el momento que lo considere necesario, con el propósito de que emitan informes técnicos en la materia en que cada entidad es competente.
