@@ -1,0 +1,1 @@
+Artículo 9º-Divulgación. La municipalidad deberá realizar la divulgación por medio de la página electrónica oficial de la Municipalidad y por sus redes sociales, de tal forma que los contribuyentes se enteren de los alcances y los procedimientos de este beneficio.
