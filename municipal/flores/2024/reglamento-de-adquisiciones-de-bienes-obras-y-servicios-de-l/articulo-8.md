@@ -1,0 +1,1 @@
+Artículo 8º-De la Proveeduría institucional. La Proveeduría es la dependencia municipal encargada de conducir los procedimientos de contratación Publica en la Municipalidad de Flores, todo de conformidad con el artículo 131 de la LGCP y el numeral 314 del RLGCP.

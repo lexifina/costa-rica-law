@@ -1,0 +1,9 @@
+Artículo 2º-Definiciones. Para los efectos del presente Reglamento deberán tomarse en cuenta las siguientes definiciones:
+Autoridades Superiores: Comprende el Concejo Municipal y la Alcaldía Municipal, cada uno dentro de sus competencias de conformidad con la Constitución Política, el Código Municipal y los reglamentos internos de la Municipalidad de Flores.
+Comisión de Recomendación de Adjudicaciones: Órgano Colegiado Municipal, conformado por diferentes dependencias municipales involucradas en los procedimientos de contratación pública, con competencia exclusiva, para analizar y recomendar los actos finales de todos los procedimientos de contratación pública.
+Proveeduría municipal: Unidad competente para tramitar las solicitudes de adquisición de obras, bienes y servicios, de conformidad con lo requerido por las dependencias solicitantes, conforme la Ley General de Contratación Pública y su Reglamento y en general, el bloque de legalidad aplicable.
+Programa de Adquisiciones: Es el plan de compras de obras, bienes y servicios proyectado por la Municipalidad a nivel anual, que se publicita conforme al artículo 31 de la LGCP y el numeral 80 del RLGCP.
+Rango de acción: Montos definidos en el artículo 9° de este Reglamento, que delimitan la actuación para cada uno de los órganos competentes para tramitar y/o adjudicar las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas.
+Unidad solicitante: Dependencia municipal autorizada para gestionar el inicio de un procedimiento de contratación público para adquirir obras, bienes y/o servicios, a efecto de cumplir con los objetivos municipales.
+Unidad ejecutora: Dependencia municipal encargada de ejecutar la correcta ejecución de contrato, una vez finalizada la etapa de formalización contractual.
+Unidad fiscalizadora: Dependencia municipal o funcionario encargado de exigir el cumplimiento de los términos contractuales pactados.

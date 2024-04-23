@@ -1,0 +1,1 @@
+Artículo 7º-Actuar ético y probo en la contratación pública que promueve la Municipalidad de Flores. Todos aquellos funcionarios municipales que participen en cualquiera de las etapas de los procedimientos de contratación pública deberán ajustar sus actuaciones a lo señalado por el artículo 17 del RLCP.

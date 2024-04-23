@@ -1,0 +1,1 @@
+Artículo 41.-Vigencia. Este reglamento entrará a regir una vez cumplido el procedimiento establecido en el artículo 42 del Código Municipal, y sea publicado en segunda ocasión, cumplido el espacio de audiencia pública en el Diario Oficial La Gaceta.

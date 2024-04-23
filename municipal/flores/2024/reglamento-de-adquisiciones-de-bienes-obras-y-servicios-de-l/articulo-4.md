@@ -1,0 +1,1 @@
+Artículo 4º-Ámbito de aplicación. Este Reglamento se aplicará a toda adquisición de obras, bienes y servicios, mediante los procedimientos ordinarios de contratación, y las contrataciones de materias excluidas de los procedimientos ordinarios, contemplados en la Ley General de Contratación Pública y su Reglamento, que se llevan a cabo en la Municipalidad de Flores.

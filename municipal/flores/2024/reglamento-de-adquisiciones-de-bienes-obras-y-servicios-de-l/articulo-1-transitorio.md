@@ -1,0 +1,1 @@
+Transitorio único. Los procedimientos de contratación administrativa iniciados bajo las regulaciones de la Ley de Contratación Pública - 7494- y su reglamento, continuarán regidos por este y por el reglamento de adquisiciones de bienes, obras y servicios de la Municipalidad de Flores, en atención al transitorio I de la Ley General de Contratación Pública -9986- y su reglamento.

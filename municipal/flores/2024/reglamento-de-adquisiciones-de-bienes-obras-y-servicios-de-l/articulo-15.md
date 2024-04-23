@@ -1,0 +1,29 @@
+Artículo 15.-De las funciones y competencias de la proveeduría institucional. La Proveeduría tendrá a su cargo las siguientes funciones y competencias:
+a) Conducir todos los trámites del procedimiento de contratación pública de conformidad con el ordenamiento jurídico aplicable.
+b) Fungir como coordinador de la Comisión de Recomendación de Adjudicaciones, para lo cual deberá coordinar las convocatorias, su agenda, trasladar a los miembros con la anticipación aquí regulada por los informes necesarios para la toma de decisiones, realizar ante la Comisión la justificación de las actuaciones sobre las cuales se toman las decisiones, realizar recomendación con respecto a las discusiones que se desarrollen en la Comisión, apegados al fiel y eficaz cumplimiento del ordenamiento jurídico, notificación a las partes interesadas de las acciones de la Comisión, incorporación de las actuaciones de la Comisión, al sistema digital unificado de compras.
+c) Coordinar y asesorar a las unidades solicitantes, sobre todo aquello que resulte necesario para que las adquisiciones de bienes y servicios necesarias para cumplir los objetivos de la Municipalidad se realicen de forma ágil, eficiente, debidamente apegado al ordenamiento jurídico existente.
+d) Custodiar, controlar y tramitar toda correspondencia relacionada con los procedimientos de contratación pública a efecto de mantener actualizados los expedientes administrativos, sean físicos o digitales.
+e) Velar por el uso adecuado por parte de todos los usuarios institucionales de los medios digitales de los procedimientos de contratación en el sistema digital unificado, a efecto de que todo trámite que se realice dentro de dichos procedimientos se incorpore en el expediente digital que genera de forma automática el sistema.
+f) Solicitar información necesaria a las dependencias usuarios para elaborar en coordinación con el planificador institucional el plan de adquisiciones y publicitarlo en el mes de enero de cada año.
+g) Solicitar correcciones o aclaraciones de los formularios de las decisiones iniciales cuando resulte necesario, y proceder a su archivo en caso de no atenderse la solicitud por parte de la unidad solicitante.
+h) Velar por el cumplimiento de los plazos establecidos por la LGCP y su reglamento, realizando las prevenciones necesarias.
+i) Elaborar recomendación al Órgano Competente, para el otorgamiento de la autorización para iniciar un determinado procedimiento de contratación sin contendido presupuestario,
+j) Gestionar y atender toda consulta relacionada con el tema de contratación pública, a nivel interno como externo.
+k) Publicar los pliegos de condiciones, formular invitaciones y efectuar la apertura de los diferentes procedimientos de contratación.
+l) Resolver y comunicar sobre las aclaraciones al pliego de condiciones, según el ordenamiento jurídico aplicable.
+m) Tramitar lo relacionado a las modificaciones del pliego de condiciones de los procedimientos ordinarios o materias excluidas.
+n) Solicitar cualquier tipo de informe técnico a las diferentes dependencias municipales, o incluso a lo externo del municipio que resulte necesario para dictar los actos administrativos que competen a la Proveeduría Institucional.
+o) Recomendar a la instancia competente según los umbrales o regulaciones de este reglamento, sobre los recursos que se planteen en el trascurso del procedimiento, las modificaciones al pliego de condiciones y/ o cualquier otro necesario para el cumplimiento de los objetivos municipales, tomando en cuenta los informes técnicos de las diferentes instancias municipales involucradas.
+p) Mantener informadas a las instancias técnicas y a los terceros involucrados, sea en su condición de oferentes y/o contratistas, sobre el estado de las contrataciones, para lo cual deberá notificarse adecuadamente a estos por medio del sistema digital unificado, debiendo recordar que este todas las horas son hábiles.
+q) Velar por el buen manejo y resguardo de los expedientes digitales, incorporando la información correcta y necesaria para la toma de decisiones o bien el cumplimiento del objeto contractual.
+r) Tramitar las facturas para pago presentadas en el sistema digital unificado de compras.
+s) Realizar el trámite de revisión y reajuste de precios de los contratos de obras, bienes y servicios, coordinando en aquellos casos que corresponda con las Dependencias Técnicas Especializadas.
+t) Liderar y concretar los procedimientos de liberación y/o ejecución de garantías y de cobro de multas, en coordinación con la Administración Financiera y las unidades ejecutoras según el caso que se trate.
+u) Administrar, controlar y supervisar el adecuado funcionamiento de los lugares municipales en los cuales se guardan los insumos que se adquieren, sea bodegas u otros.
+v) Mantener un adecuado control del inventario de bienes y materiales, el cual deberá estar actualizado para el control de las compras a realizar.
+w) Realizar el análisis correspondiente y su debido informe para el desecho de activos, sea por desuso o mal estado.
+x) Dar de baja aquellos activos que sean declarados en desuso o mal estado, una vez que se emita la resolución correspondiente por parte del Órgano Competente.
+y) Declarar la confidencialidad de documentos conforme lo dispuesto en el numeral 15 de la LGCP.
+z) Comunicar a la Dirección de Contratación Pública sobre las sanciones que se impongan a los contratistas o similares
+aa) Verificar lo referente al capítulo de compras públicas referente al instrumento comercial internacional vigente en Costa Rica
+bb) Conocer cualquier otro asunto relacionado con materia de Contratación Pública que se considere según su competencia y las regulaciones de la LGCP, su reglamento, las directrices que se deriven de los Órganos Rectores, el presente instrumento y en general el ordenamiento jurídico aplicable.

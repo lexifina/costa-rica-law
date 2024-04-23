@@ -1,0 +1,1 @@
+Artículo 6º-Sistema unificado. Toda la actividad de Contratación Pública regulada en el presente reglamento deberá realizarse por medio del sistema digital unificado, definido por la Dirección de Contratación Pública del Ministerio de Hacienda y cualquier excepción deberá estar autorizada por el competente.

@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la etapa recursiva
+Artículo 39.-De la atención de los recursos. La etapa recursiva responderá a las regulaciones de la LGCP y su reglamento, será la Proveeduría Institucional la encargada de canalizar y coordinar todas las acciones necesarias para la atención en tiempo de los actos impugnatorios presentados por los interesados, para lo cual podrá solicitar criterio técnico y/o legal. Será responsabilidad de esta dependencia presentar un informe de recomendación al órgano competente de resolver según los rangos de acción desarrollados en este reglamento.
+En aquellos casos en que la atención de los recursos le competa a la CGR, la Proveeduría Institucional le corresponderá atender en tiempo todos aquellos requerimientos solicitados por el ente contralor, así como de informar a las partes de los resuelto, y de proceder, deberá presentar al órgano competente, un recuento de lo resuelto y de las acciones a seguir como derivación de lo resuelto por la CGR.
