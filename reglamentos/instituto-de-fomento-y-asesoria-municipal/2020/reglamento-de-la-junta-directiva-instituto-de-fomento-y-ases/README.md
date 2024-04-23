@@ -14,3 +14,4 @@ Reglamento de la junta directiva Instituto de Fomento y Asesoría Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-12-04 | la propia norma |
+| 2 | 2024-04-23 | Reglamento 17 (2024-04-23) |
