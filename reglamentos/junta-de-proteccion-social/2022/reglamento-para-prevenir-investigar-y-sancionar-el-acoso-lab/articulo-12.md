@@ -1,8 +1,10 @@
-Artículo 12.-De los deberes y atribuciones de la Comisión de Acoso Laboral. Son deberes y atribuciones de las personas miembros titulares que integran la Comisión de Acoso Laboral:
+Artículo 12.-De los deberes y atribuciones Comisión para prevenir investigar y sancionar el Acoso Laboral. Son deberes y atribuciones de las personas miembros titulares que integran la Comisión:
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 87 del 16 de mayo de 2024)
 a) Conocer y tramitar las denuncias de acoso laboral puestas a su conocimiento de acuerdo con el procedimiento establecido y guardando la debida confidencialidad, a efecto de no lesionar los derechos de las personas involucradas, con excepción de las denuncias interpuestas en contra de un miembro de la Junta Directiva, de la Gerencia General o de los Gerencias de Áreas, las cuales seguirán el procedimiento establecido en el artículo 18 de este reglamento.
 b) Realizar el informe sobre la valoración de la denuncia para determinar si procede o no la admisibilidad de la misma, de conformidad con lo dispuesto en el presente Reglamento.
 c) En caso que la Comisión considere la admisibilidad de la denuncia, elevar su conocimiento al titular de la Gerencia General para proceda a ordenar la apertura del procedimiento administrativo y nombrar las personas integrantes del Órgano Director. En caso de que la denuncia sea considerada inadmisible, se le comunicará al denunciante el agotamiento de la vía administrativa.
 d) Recomendar la implementación de las medidas cautelares, en caso que las estime pertinentes con la finalidad de garantizar el objeto del procedimiento y la averiguación de la verdad real de los hechos y la protección de la persona denunciante.
 e) Proponer a la instancia que corresponda la elaboración de las políticas, programas o procedimientos necesarios para la prevención y el tratamiento del acoso laboral en la Junta de Protección Social y recomendar las actualizaciones correspondientes en razón de las reformas normativas que se den en la materia.
 f) Facilitar -si así lo desean las partes- la mediación y conciliación como un mecanismo institucional para la resolución de conflictos en casos de acoso laboral.
-g) Cualquier otra compatible con su condición de integrante de la Comisión de Acoso Laboral.
+g) Cualquier otra compatible con su condición de integrante de la Comisión para prevenir investigar y sancionar el Acoso Laboral.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 87 del 16 de mayo de 2024)

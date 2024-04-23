@@ -1,1 +1,2 @@
-Artículo 17.-Recepción de la denuncia. La denuncia podrá interponerse de forma oral o escrita, ante el Departamento Desarrollo del Talento Humano o ante cualquier persona miembro de la Comisión de Acoso Laboral. Se podrá habilitar una dirección de correo electrónico exclusiva para la recepción de denuncias por escrito.
+Artículo 17.-Recepción de la denuncia. La denuncia podrá interponerse de forma oral o escrita, ante el Departamento Desarrollo del Talento Humano o ante cualquier persona miembro de la Comisión para prevenir investigar y sancionar el Acoso Laboral. Se podrá habilitar una dirección de correo electrónico exclusiva para la recepción de denuncias por escrito.
+(Así reformado y publicado en La Gaceta N° 87 del 16 de mayo de 2024)

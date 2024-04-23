@@ -1,3 +1,4 @@
-Artículo 13.-De los requisitos de las personas integrantes de la Comisión de Acoso Laboral. Las personas integrantes de la Comisión deberán cumplir con los siguientes requisitos:
+Artículo 13.-De los requisitos de las personas integrantes de la Comisión para prevenir investigar y sancionar el Acoso Laboral. Las personas integrantes de la Comisión deberán cumplir con los siguientes requisitos:
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 87 del 16 de mayo de 2024)
 a) Ser una persona sensibilizada, con amplios conocimientos de la materia de acoso laboral y advertida del deber de confidencialidad que deberá mantener durante todo el plazo del nombramiento.
 b) No haber sido sancionada por infracciones catalogadas como acoso laboral.

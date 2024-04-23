@@ -14,3 +14,4 @@ Reglamento para prevenir, investigar y sancionar el acoso laboral en la Junta de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-20 | la propia norma |
+| 2 | 2024-04-23 | Reglamento 0 (2024-04-23) |
