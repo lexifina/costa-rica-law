@@ -1,1 +1,0 @@
-Artículo 2º—Gestión de la Tecnología de Información. Es la estructura de relaciones y procesos diseñados y ejecutados para dirigir y controlar la Tecnología de Información, sus riesgos asociados y su vinculación con las estrategias y objetivos de la Municipalidad de Cartago.

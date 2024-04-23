@@ -1,2 +1,0 @@
-Artículo 12.—Acta. En cumplimiento de sus funciones, la persona que ocupe la Secretaría del Comité, elaborará el acta de la sesión correspondiente que deberá ser aprobada en la siguiente sesión ordinaria o extraordinaria. Una vez aprobada se incluirá en el libro de actas firmada por quienes ocuparan los cargos de presidente y secretario durante la sesión y el Alcalde, si estuvo presente.
-Las actas deberán contar con las formalidades establecidas en la normativa vigente.
