@@ -14,3 +14,4 @@ Reglamento para la operación y administración del acueducto municipal de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-02 | la propia norma |
+| 2 | 2024-04-23 | Reglamento municipal 208 (2024-04-23) |
