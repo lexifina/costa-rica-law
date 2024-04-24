@@ -1,0 +1,1 @@
+Artículo 9º-Publicidad. Se prohíbe al médico publicar o permitir tacita o expresamente anuncios sensacionalistas, ofreciendo curas infalibles; procedimientos o métodos no aceptados por la comunidad médica nacional; descuentos o gratuidad. La publicidad deberá apegarse estrictamente a lo autorizado por el Código de Ética Médica.

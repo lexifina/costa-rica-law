@@ -1,0 +1,1 @@
+Artículo 8º-Honorarios. Aquellos Médicos y Cirujanos, Especialistas o Subespecialistas que realicen consulta no presencial podrán rebajar el costo de sus honorarios con el fin de favorecer económicamente a los usuarios hasta un 50% del valor de la consulta de medicina general o especializada según sea el caso.

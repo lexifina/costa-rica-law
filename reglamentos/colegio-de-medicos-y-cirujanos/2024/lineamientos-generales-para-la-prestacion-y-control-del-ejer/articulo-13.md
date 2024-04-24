@@ -1,0 +1,1 @@
+Artículo 13.-Derogatorias. Deróguese el acuerdo de la Junta de Gobierno tomado en la Sesión Ordinaria 2022- 08-31, celebrada el 31 de agosto del 2022, donde se aprobó "Lineamientos Generales para la Prestación y Control del Ejercicio de la Medicina y Cirugía, sus Especialidades y Subespecialidades - Modalidad Virtual",

@@ -1,0 +1,1 @@
+Artículo 11.-Denuncia. La Fiscalía denunciará de oficio o a gestión de parte al médico cuando detecte una irregularidad que merezca sea investigada o que perjudique a las partes, terceros o a la misma fe pública.
