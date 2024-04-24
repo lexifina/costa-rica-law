@@ -1,0 +1,15 @@
+CIRCULAR N° 84-2024
+Asunto: Audiencias virtuales en materia penal.
+A LAS PERSONAS JUZGADORAS DE LOS TRIBUNALES PENALES DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 15-2024, celebrada el 8 de abril de 2024, artículo X, dispuso acoger la propuesta de circular "Audiencias Virtuales en materia penal", remitida por la Comisión de la Jurisdicción Penal, la cual queda en los siguientes términos:
+"El Consejo Superior en sesión N° 01-2024 celebrada el 9 de enero de 2024, artículo LI, acogió las recomendaciones dadas por la Comisión de la Jurisdicción Penal en relación con el manejo de la virtualidad para las diferentes audiencias que se llevan a cabo en esa jurisdicción. Al respecto se aprobó lo siguiente:
+1. La posibilidad de realizar audiencias virtuales en materia penal se dio como una respuesta ante la apremiante situación pandémica acaecida en el año 2020, que implicó respuestas y acciones de índole extraordinario para continuar con la prestación de los servicios, pero no se contempló como una nueva modalidad de la administración de justicia, fue por ello que se creó un Protocolo de Audiencias Virtuales en la materia, que buscaba regular la excepcionalidad y necesidad de justificación ante este tipo de audiencias.
+2. Tras el retorno a la cotidianeidad posterior a la pandemia, se han ido emitiendo pronunciamientos y recomendaciones por parte de la Comisión, para que tanto la virtualidad de las audiencias, como el teletrabajo en la materia penal se controlen con mayor medida, manteniendo la posibilidad de que por excepción y en casos altamente justificados, se acuda a estas formas de trabajo.
+3. Se ha considerado que con el fin de mantener la pureza del proceso penal y las garantías que lo inspiran, tanto para la etapa preparatoria e intermedia, como para la de juicio, el juez debe respetar los principios y garantías dispuestos constitucionalmente para todas las partes.
+Por lo anterior, se dispone:
+a. La realización de las diligencias propias de la etapa de investigación debe llevarse a cabo en presencia de las personas juzgadoras, y en los casos en los que se requiera -para los mismos fines de la efectividad del proceso-, podrían realizarse conexiones virtuales, siempre que sea necesario por razones procesales y no para comodidad o beneficio de las partes o las personas juzgadoras.
+b. El debate oral y público, que se rige por los principios de concentración, inmediatez y publicidad, únicamente podrá justificarse algún contenido de virtualidad en casos muy excepcionales y también por razones que se justifiquen en los fines procesales, mediando el juicio valorativo y la debida fundamentación de la persona juzgadora.
+c. Corresponde a cada persona juzgadora valorar cada caso concreto y si se presentan razones de justificación para acudir a la virtualidad, así como el tipo de audiencia que debe llevarse a cabo, cada operador de justicia debe valorar y sustentar su decisión atendiendo a las limitaciones legales y constitucionales que dirigen el actuar jurisdiccional".
+Publíquese una vez en el Boletín Judicial.
+San José, 24 de abril de 2024
