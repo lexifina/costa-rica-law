@@ -1,0 +1,1 @@
+Artículo 12.-Todo funcionario municipal es responsable de su gafete de identificación y su uso se limita, exclusivamente, al perímetro institucional. En caso de extravío o deterioro, el funcionario debe informarlo, inmediatamente, por escrito, al Departamento de Recursos Humanos, con el fin de proceder a su reposición.

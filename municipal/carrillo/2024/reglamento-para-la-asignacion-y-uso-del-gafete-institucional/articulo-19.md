@@ -1,0 +1,1 @@
+Artículo 19.—La no portación de gafete de visitante podría acarrear la expulsión de los edificios municipales a quien deba portarlo.” (Artículo que se adiciona en atención a la recomendación del Dictamen 05-CPAJ-2023 de la Comisión Permanente de Asuntos Jurídicos del Concejo Municipal de Carrillo)

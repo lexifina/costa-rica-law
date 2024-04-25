@@ -1,0 +1,2 @@
+Artículo 5º-Las Direcciones de las diferentes Áreas y las Jefaturas de las Unidades deberán informar al Departamento de Recursos Humanos sobre el incumplimiento del uso del gafete por parte de los funcionarios a su cargo, y de las medidas disciplinarias aplicadas de conformidad con las establecidas en el artículo 17 del presente Reglamento.
+(Modificado por recomendación del Dictamen 05-CPAJ-2023 de la Comisión Permanente de Asuntos Jurídicos del Concejo Municipal de Carrillo)
