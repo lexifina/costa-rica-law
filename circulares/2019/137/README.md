@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación de Expedientes que conocen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-26 | la propia norma |
+| 2 | 2024-04-25 | Circular 79 (2024-04-25) |
