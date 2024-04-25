@@ -1,0 +1,4 @@
+Artículo 4°-Modifíquese el artículo 15 para que exprese:
+Artículo 15.-Trámite para solicitud de la modalidad de teletrabajo. La parte interesada procederá a solicitar la valoración de teletrabajo ante la oficina de Recursos Humanos; quien lo remitirá a la Comisión de Teletrabajo para el análisis técnico de la viabilidad de teletrabajo, tanto legal, telemática, así como la viabilidad de las funciones teletrabajables. Al mismo tiempo se verificará que el espacio de teletrabajo cumpla con los requisitos de Salud Ocupacional; de ahí se remitirá a la Gerencia para su aprobación o improbación.
+En caso de aprobarse deberá procederse con la firma del contrato de teletrabajo.
+En caso de solicitud de retiro de la modalidad de teletrabajo de manera permanente se seguirá el mismo trámite."
