@@ -14,3 +14,4 @@ Reglamento de regulación del teletrabajo en el Programa Integral de Mercadeo Ag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-04-24 | la propia norma |
+| 2 | 2024-04-25 | Reglamento 0 (2024-04-25) |
