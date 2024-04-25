@@ -1,0 +1,1 @@
+Artículo 66.-Además de los deberes señalados en el artículo 53 del Código Municipal la Secretaría Municipal está en la obligación de cumplir con los deberes y facultades que este Reglamento le establece

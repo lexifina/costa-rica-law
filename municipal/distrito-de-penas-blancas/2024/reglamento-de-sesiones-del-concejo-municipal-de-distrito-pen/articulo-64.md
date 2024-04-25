@@ -1,0 +1,1 @@
+Artículo 64. -Para dar cumplimiento con lo que dispone el artículo diecisiete, del Código Municipal, el Intendente debe coordinar con el Directorio del Concejo, la presentación de este y la discusión pública de su programa de gobierno.

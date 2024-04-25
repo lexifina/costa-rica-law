@@ -1,0 +1,1 @@
+Artículo 49. -Tanto el Intendente Municipal como los demás funcionarios de la municipalidad deberán asistir a las sesiones de las comisiones cuando sea requerido por estas para brindar asesoría o aclarar hechos o situaciones de los asuntos que le sean sometidos a su conocimiento.

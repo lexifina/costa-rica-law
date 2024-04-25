@@ -1,0 +1,1 @@
+Artículo 21. -La Presidencia Municipal, durante el desarrollo de las sesiones podrá incluir otros asuntos de trámite urgente mediante moción de orden aprobada por acuerdo de las dos terceras partes de los Concejales presentes, en el caso de las sesiones ordinarias y extraordinarias conforme lo establece el Código Municipal.

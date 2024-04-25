@@ -1,0 +1,1 @@
+Artículo 13. -El Concejal propietario y suplentes que llegase después de transcurridos los quince minutos contados a partir de la hora señalada para el inicio de la sesión, perderá el derecho de devengar la dieta, aunque no se hubiere efectuado su sustitución, excepto cuando su ausencia sea justificada por realizar una actividad propia de la municipalidad.

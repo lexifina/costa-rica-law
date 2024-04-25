@@ -1,0 +1,1 @@
+Artículo 28. -El uso de la palabra será otorgado por la presidencia a los Concejales propietarios y suplentes del Concejo, en el orden de solicitud. La presidencia podrá de conformidad con el Código Municipal, retirar el uso de la palabra a quien haga uso de ella sin permiso, se exceda en sus expresiones o pretendan sobrepasar los tiempos establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 11. -Para las sesiones extraordinarias fuera de la Sede del Concejo se tomarán en cuenta las solicitudes que al respecto hagan las comunidades a través de sus representantes, los Concejales propietarios o suplentes, siempre que la terna que se trate, sea del interés para el distrito o las comunidades que se visitan.

@@ -1,0 +1,1 @@
+Artículo 61. -Los Concejales suplentes y el Intendente tienen derecho a hacer uso de la palabra para referirse a cualquier asunto de discusión en el Concejo Municipal, con los mismos derechos y facultades conferidas los Concejales propietarios. Los Concejales suplentes solo tendrán derecho a votar cuando estén supliendo a un Concejal propietario.

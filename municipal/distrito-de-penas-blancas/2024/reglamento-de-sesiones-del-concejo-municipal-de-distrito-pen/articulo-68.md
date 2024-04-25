@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Del Auditor
+Artículo 68. -El Concejo Municipal contará con un Auditor, nombrado por el Concejo Municipal, éste será suspendido o destituido de su cargo, en caso de existir justa causa, mediante acuerdo tomado por una votación de dos tercios del total de los Concejales del Concejo, previa formación debida del expediente, con suficiente oportunidad de audiencia y defensa en su favor. Todo lo anterior por parte del Concejo Municipal se deberá regir en estricto apego siguiendo los lineamientos sobre los tramites y gestiones de suspensión o destitución que involucran a la auditoría interna y/o subauditor, debidamente presentado y autorizado por la Contraloría General de La república.

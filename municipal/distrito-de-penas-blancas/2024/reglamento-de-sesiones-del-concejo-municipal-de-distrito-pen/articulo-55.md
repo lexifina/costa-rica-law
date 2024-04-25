@@ -1,0 +1,1 @@
+Artículo 55. -Cuando concurriere a sesión uno o varios particulares, invitados o a quienes se les haya concediendo audiencia, el Presidente hará la presentación de rigor exponiendo los motivos de su presencia y de inmediato les concederá el uso de la palabra para que hagan la exposición correspondiente en el tiempo predeterminado.

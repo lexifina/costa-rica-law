@@ -1,0 +1,1 @@
+Artículo 14. -El Concejal suplente que sustituye a un propietario, tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz y voto. El mismo derecho tendrá el o la suplente de presidencia municipal devengando la dieta que corresponda.

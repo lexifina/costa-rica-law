@@ -1,0 +1,1 @@
+Artículo 37. -Para la aprobación de mociones se requerirá de simple mayoría. En el caso de la moción de orden se concederá el uso de la palabra en primer término al proponente y luego a los Concejales que la solicitan sin que pueda exceder de 2 minutos cada intervención.

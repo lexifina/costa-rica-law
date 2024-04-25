@@ -1,0 +1,4 @@
+Artículo 60. -Además de los derechos y facultades que establece el artículo veintisiete del código Municipal, los Concejales tienen derecho a:
+1- Que se le otorgue el uso de la palabra, para exponer su posición sobre cada asunto que se someta a conocimiento y resolución del Concejo por el periodo que este Reglamento fije.
+2- Solicitar que sus palabras o las de cualquier otra persona que haya intervenido en una sesión, consten en forma literal en el acta. Esta solicitud debe ser acatada por el presidente, sin necesidad de acuerdo específico.
+3- Asistir libremente a cualquier sesión de las comisiones ordinarias o especiales, de las que no sea integrante, lo que hará con derecho a voz, pero no así a voto. El Intendente Municipal, en lo conducente, tienen los mismos derechos y facultades expresadas en los incisos 1-), 2-), 3-) anteriores.

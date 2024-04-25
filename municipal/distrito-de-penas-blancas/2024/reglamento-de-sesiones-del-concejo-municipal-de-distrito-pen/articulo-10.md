@@ -1,0 +1,1 @@
+Artículo 10. -Las sesiones extraordinarias deberán celebrarse en el lugar, día y la hora que se indique en la convocatoria. La convocatoria podrá realizarse por los medios físicos o electrónicos a disposición de la Secretaría.

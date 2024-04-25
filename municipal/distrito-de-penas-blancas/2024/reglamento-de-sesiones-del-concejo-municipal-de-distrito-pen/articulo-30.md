@@ -1,0 +1,1 @@
+Artículo 30. -Mociones de Fondo: Se presentarán en forma escrita Uso de la palabra en mociones. En las mociones por el fondo, la presidencia dará la palabra hasta por un máximo de 5 minutos al proponente para que se refiera a la misma. En las mociones de reiteración o de revisión de la votación, el Concejal proponente podrá hacer uso de la palabra hasta por 2 minutos.

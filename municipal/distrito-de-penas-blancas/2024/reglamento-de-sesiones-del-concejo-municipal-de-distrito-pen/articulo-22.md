@@ -1,0 +1,1 @@
+Artículo 22. -Las mociones e iniciativas de los Concejales, deberán ser presentadas por escrito y firmadas por al menos un Concejal propietario. La secretaría anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación. Los Concejales Suplentes podrán presentar mociones, siempre que sean acogidas al menos por un Concejal Propietario.

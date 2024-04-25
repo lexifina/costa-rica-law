@@ -1,0 +1,1 @@
+Artículo 23. -La Presidencia Municipal no dará curso y declarará fuera de orden las proposiciones o mociones que resulten improcedentes o que simplemente vayan dirigidas a dilatar u obstaculizar el curso normal de las sesiones o la resolución de un asunto.

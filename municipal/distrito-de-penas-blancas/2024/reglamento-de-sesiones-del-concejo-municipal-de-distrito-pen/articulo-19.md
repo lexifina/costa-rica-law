@@ -1,0 +1,1 @@
+Artículo 19.-Antes de la aprobación del acta, cualquier Concejal, vía moción debidamente presentada por escrito, podrá solicitar el recurso revisión de acuerdos, salvo, los definitivamente aprobados, conforme lo establece el artículo 45 del Código Municipal. Para acordar la revisión, se necesitará la misma mayoría requerida para aprobar el acuerdo.
