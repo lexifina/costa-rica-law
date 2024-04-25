@@ -1,0 +1,1 @@
+Artículo 14.-Prohibición. Queda prohibido mantener o sustituir los fondos de Caja Chica por otros valores que no sean los autorizados en este Reglamento. La violación de estadisposición se considerará como falta grave.

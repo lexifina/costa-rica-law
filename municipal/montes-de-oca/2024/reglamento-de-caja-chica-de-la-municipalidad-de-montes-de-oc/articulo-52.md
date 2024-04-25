@@ -1,0 +1,2 @@
+Artículo 52.-Vigencia. El presente Reglamento fue aprobado por el Concejo Municipal, mediante Acuerdo N°______ de la Sesión Ordinaria N°________celebrada el día _______del año 2023. El presente cuerpo normativo rige a partir de su publicación en el Diario Oficial "La Gaceta".
+Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca, en la sesión ordinaria N° 202/2024, articulo N° 9.4, del día 11 de marzo 2024. Concejo Municipal.

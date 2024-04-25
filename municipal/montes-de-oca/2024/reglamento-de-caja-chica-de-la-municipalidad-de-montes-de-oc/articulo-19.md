@@ -1,0 +1,1 @@
+Artículo 19.-Límite Máximo del Vale Provisional de Caja Chica corresponde al 10% del umbral de Licitación Reducida de la actividad ordinaria que es el límite autorizado por la Ley General de Contratación Pública N° 9986, articulo 3 y no podrá sobrepasarse por ninguna razón.

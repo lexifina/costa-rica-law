@@ -1,0 +1,1 @@
+Artículo 35.-Todos los comprobantes de compra de mercancías y servicios deben estar debidamente timbrados por la Administración Tributaria, salvo los casos enumerados en el inciso f) del Artículo 10 del Reglamento a la Ley de Impuestos sobre la Renta.

@@ -1,0 +1,1 @@
+Artículo 20.-Al momento de emisión del presente reglamento la suma establecida es del 1% de la licitación reducida, sin detrimento que, si la compra es superior a este monto y no supere el 10% del umbral de Licitación Reducida de la actividad ordinaria, según el Artículo 3 de la Ley General de contratación Pública, pueda ser autorizada por el Alcalde.

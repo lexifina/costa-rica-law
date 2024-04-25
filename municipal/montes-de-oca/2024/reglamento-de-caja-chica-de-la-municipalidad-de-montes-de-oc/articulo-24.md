@@ -1,0 +1,1 @@
+Artículo 24.-El tesorero realizará diariamente un arqueo para el cierre de caja y en caso de detectar alguna inconsistencia emitirá un informe para la Dirección Hacienda Municipal con copia a la Alcaldía y Auditoría Interna.

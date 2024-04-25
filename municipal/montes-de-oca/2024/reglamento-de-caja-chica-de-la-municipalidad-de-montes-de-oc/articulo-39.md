@@ -1,0 +1,1 @@
+Artículo 39.-La responsabilidad del control y manejo de los fondos de Caja Chica le competen al tesorero (a) Municipal. En sus ausencias esta responsabilidad será asumida por el Asistente de la Tesorería Municipal.

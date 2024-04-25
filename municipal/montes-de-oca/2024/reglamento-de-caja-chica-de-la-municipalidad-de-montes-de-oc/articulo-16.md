@@ -1,0 +1,2 @@
+Artículo 16.-Solicitud de Reintegro. El tesorero debe presentarse ante la Dirección de Hacienda Municipal la "Solicitud de Reintegro de Caja Chica" debidamente detallada y acompañada de los justificantes del caso, aprobados y codificados; para que éste inicie el procedimiento de reembolso; procedimiento que preferiblemente se debe efectuar semanalmente.
+Todos los Departamentos involucrados en el proceso de liquidación del fondo de Caja Chica, disponen en su conjunto, de un plazo máximo de 4 días hábiles para concretar este proceso.

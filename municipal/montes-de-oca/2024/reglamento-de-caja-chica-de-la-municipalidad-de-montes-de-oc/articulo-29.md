@@ -1,0 +1,1 @@
+Artículo 29.-El tesorero deberá anotar en el Vale de Caja Chica, el monto del vale provisional, lo gastado y la diferencia si la hubiere. Al liquidar el vale provisional, el tesorero recibirá cualquier saldo que hubiera a favor de la Municipalidad, emitiendo el respectivo documento de respaldo.

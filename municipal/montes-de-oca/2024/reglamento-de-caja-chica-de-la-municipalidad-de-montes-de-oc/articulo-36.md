@@ -1,0 +1,1 @@
+Artículo 36.-Recibo de bienes y servicios. Para el trámite de la liquidación del "Vale de Caja Chica", el formulario "Solicitud de bienes y servicios" debe ser firmado digitalmente por el funcionario que recibió el bien y/o servicio solicitado.

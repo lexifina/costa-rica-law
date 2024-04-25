@@ -1,0 +1,2 @@
+Artículo 13.-Imposibilidad de nuevos vales provisionales de caja chica. No se girarán vales provisionales adicionales a los funcionarios que tuviesen vales provisionales de caja chica pendientes de liquidación, salvo los casos indicados en el Artículo 6.
+Tampoco se girarán vales provisionales de caja chica cuando la solicitud de desembolso no reúna los requisitos establecidos en los artículos 7, 8 y 9 del presente Reglamento. La responsabilidad sobre el cumplimiento de este Artículo recaerá sobre el funcionario solicitante y sobre el Tesorero.

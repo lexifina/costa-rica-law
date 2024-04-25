@@ -1,0 +1,1 @@
+3º-Póliza de Fidelidad. El tesorero y el departamento en pleno, deberán suscribir una Póliza de Fidelidad, la cual será cancelada por la Municipalidad a efecto de garantizar un ejercicio correcto de sus funciones.

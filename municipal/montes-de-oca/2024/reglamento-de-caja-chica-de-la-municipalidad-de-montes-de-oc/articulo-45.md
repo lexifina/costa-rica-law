@@ -1,0 +1,1 @@
+Artículo 45.-Prohibiciones. Los fondos de la Caja Chica deben manejarse en forma independiente de otros dineros ajenos a esta y siempre deben permanecer depositados en la Caja Fuerte de la Tesorería dentro de las instalaciones de la Municipalidad o en la cuenta destinada para tal fin.

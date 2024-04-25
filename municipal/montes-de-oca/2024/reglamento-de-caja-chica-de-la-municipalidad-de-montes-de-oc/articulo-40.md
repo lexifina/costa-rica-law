@@ -1,0 +1,1 @@
+Artículo 40.-De la documentación. El tesorero Municipal es el funcionario encargado del manejo y control de una Caja Chica, por lo que le corresponde mantener en la Caja Fuerte de la Tesorería todos los documentos, efectivo y cheques que componen el fondo de la Caja Chica.

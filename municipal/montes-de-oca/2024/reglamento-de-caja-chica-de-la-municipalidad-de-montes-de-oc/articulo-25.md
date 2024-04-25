@@ -1,0 +1,1 @@
+Artículo 25.-Cualquier faltante que se produzca al momento de practicarse el arqueo deberá ser cubierto de inmediato por el tesorero. En caso de sobrante, deberá confeccionarse el recibo correspondiente y depositar el dinero en la cuenta corriente bancaria.

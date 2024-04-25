@@ -1,0 +1,2 @@
+10.-Desembolsos. Los vales provisiones de Caja Chica se otorgarán antes de la compra del bien o servicio a la cuenta cliente de la empresa a la que se le esté comprando el bien o servicio, en casos calificados, se desembolsará al funcionario solicitante.
+Los vales provisionales no podrán ser utilizados para otro fin distinto del solicitado. De existir un remanente deberá ser reintegrado y no deberá emplearse para otros fines.

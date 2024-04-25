@@ -1,0 +1,1 @@
+Artículo 26.-En ambos casos, el tesorero deberá informar de inmediato y por escrito a la Alcaldía con copia a la Dirección Financiera y a la Auditoría Interna, sin perjuicio de las medidas disciplinarias que correspondan si se demuestra la existencia de una administración irregular de los fondos.
