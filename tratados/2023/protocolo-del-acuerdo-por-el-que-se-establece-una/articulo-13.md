@@ -1,0 +1,3 @@
+ARTÍCULO 13
+1. El presente Protocolo se redacta en duplicado en el idioma alemán, búlgaro, checo, croata, danés, eslovaco, esloveno, español, estonio, finés, francés, griego, húngaro, inglés, italiano, letón, lituano, maltés, neerlandés, polaco, portugués, rumano y sueco, siendo cada texto igualmente auténtico.
+2. La Parte UE comunicará a las Repúblicas de la Parte CA la versión en idioma croata del Acuerdo. Sujeto a la entrada en vigor del presente Protocolo, la versión en idioma croata pasará a ser auténtica en las mismas condiciones que las versiones elaboradas en los demás idiomas del presente Protocolo. El artículo 363 del Acuerdo queda modificado en consecuencia.
