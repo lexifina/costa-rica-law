@@ -14,3 +14,4 @@ Reglamento de Fondos para el Cambio de efectivo del Programa Integral de Mercade
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-22 | la propia norma |
+| 2 | 2024-04-25 | Reglamento 0 (2024-04-25) |
