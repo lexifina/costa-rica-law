@@ -1,4 +1,5 @@
-Artículo 56 -Beca por representación estudiantil en órganos colegiados. Tendrán derecho a beca por representación estudiantil y gozar de la exoneración total del pago de aranceles referidos a créditos los siguientes estudiantes:
+Artículo 56 -Beca por representación estudiantil en órganos colegiados.
+Tendrán derecho a beca por representación estudiantil y gozar de la exoneración total del pago de aranceles referidos a créditos los siguientes estudiantes:
 a) Los representantes estudiantiles titulares ante el Consejo Universitario.
 b) Los representantes titulares ante Consejos de Sede y Consejo Técnico del Centro de Formación Pedagógica y Tecnología Educativa.
 c) Los representantes titulares ante los Consejos Asesores de Carrera y ante el Tribunal Electoral Universitario.

@@ -31,3 +31,4 @@ Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Té
 | 16 | 2023-04-19 | Reglamento 8 (2023-04-19) |
 | 17 | 2023-07-27 | Reglamento 19 (2023-07-27) |
 | 18 | 2023-12-07 | Reglamento 32 (2023-12-07) |
+| 19 | 2024-04-25 | Reglamento 13 (2024-04-25) |
