@@ -1,3 +1,0 @@
-Artículo 10.-Revisión de requisitos: Una vez recibida cada solicitud con todos los requisitos, la Dirección de Seguros Automóviles a través del Centro de Gestión de Reclamos de Automóviles, procederá a valorar si cumple o no con lo solicitado, la oferta podrá ser subsanada en el plazo de 3 días hábiles.
-El plazo para emitir la decisión final motivada de cada solicitud debe realizarse como máximo 15 días hábiles después de recibida la propuesta.
-La decisión de cada solicitud será debidamente comunicada a cada solicitante, y en caso de no compartir lo resuelto, las empresas podrán presentar solicitud de revisión ante dicho Centro en el plazo de 1 día hábil. Finalmente, contra lo resuelto no habrá recurso alguno.

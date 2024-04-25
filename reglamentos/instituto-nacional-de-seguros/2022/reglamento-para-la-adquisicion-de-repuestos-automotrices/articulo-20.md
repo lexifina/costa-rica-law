@@ -1,3 +1,0 @@
-Artículo 20.-Readjudicación: En caso de incumplimiento contractual o cualquier otra circunstancia que impida al adjudicado brindar el repuesto, se procederá de inmediato a requerir el repuesto al oferente que de acuerdo con el orden de calificación haya obtenido el segundo puesto y así sucesivamente hasta agotar todas las ofertas recibidas.
-En caso de superar los 30 días hábiles o los indicados en su oferta, contados desde la presentación de la misma se procederá a prevenir al segundo puesto para que indique si mantiene las mismas condiciones ofertadas en su oportunidad.
-Si confirma se procede de inmediato a contratarlo. En caso negativo, podrá seguirse con las ofertas subsiguientes y en orden que cumplan con lo solicitado.
