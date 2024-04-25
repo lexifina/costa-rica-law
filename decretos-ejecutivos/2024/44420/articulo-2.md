@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Salud velará por la correcta implementación y evaluación del Plan Nacional para la Gestión Integral de Residuos. Asimismo, coordinará la revisión del Plan cada cinco años, en coordinación con todos los actores que figuren como responsables y corresponsables en el cumplimiento de las acciones estratégicas.
