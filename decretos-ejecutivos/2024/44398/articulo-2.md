@@ -1,0 +1,3 @@
+Artículo 2 º. - Se adicionan dos transitorios al Decreto Ejecutivo N° 29389-MOPT, Reglamento para la emisión de los certificados de zafarrancho, del 08 de diciembre de 2000, para que en adelante se lea de la siguiente manera:
+"Transitorio I.- Pesca Artesanal o de Pequeña Escala: todo certificado de zafarrancho cuya validez expire entre setiembre de 2023 y abril de 2024 inclusive, se tendrá por prorrogado hasta mayo de 2024.
+Transitorio II.- Palangre o de Mediana Escala y Avanzada: todo certificado de zafarrancho cuya validez expire entre setiembre de 2023 y julio de 2024 inclusive, se tendrá por prorrogado hasta agosto de 2024."
