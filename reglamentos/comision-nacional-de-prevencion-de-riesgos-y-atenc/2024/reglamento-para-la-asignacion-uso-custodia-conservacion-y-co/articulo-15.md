@@ -1,0 +1,1 @@
+Artículo 15.—Derogatorias. Se deroga el anterior Reglamento para el uso, custodia y conservación de los teléfonos celulares y dispositivos Mifi de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.

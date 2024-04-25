@@ -1,0 +1,1 @@
+Artículo 12.—Restricciones de asignación. Ningún funcionario podrá tener asignado más de un teléfono celular o un dispositivo Mifi, no gozar de más de un servicio de pago de mensualidad. Salvo los casos previstos en el párrafo tercero del artículo 5 del presente reglamento.

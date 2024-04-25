@@ -1,0 +1,10 @@
+Artículo 4º—Autorización para uso de teléfono personal: Los funcionarios podrán aportar su teléfono y línea personal como herramienta de trabajo, para enviar y recibir comunicaciones, así como para acceder a los recursos y sistemas de la CNE, para esto se deberán cumplir con las siguientes disposiciones:
+• Responsabilidad del Dispositivo: Aceptar que su teléfono personal será utilizado como herramienta de trabajo y que es su responsabilidad mantenerlo seguro y protegido de accesos no autorizados.
+• Registro y Autorización: Los funcionarios interesados en usar su teléfono personal para fines laborales deben registrar el dispositivo ante la Unidad de Tecnologías de Información. Este proceso incluirá la verificación de la compatibilidad del dispositivo con los sistemas de la CNE y la autorización formal para su uso.
+• Seguridad y Privacidad: Se debe instalar y mantener software de seguridad aprobado por la CNE en todos los dispositivos personales autorizados. Asimismo, se establecerán políticas de privacidad que protejan la información personal de la persona funcionaria y la información confidencial de la CNE.
+• Uso Adecuado y Responsabilidades: Se deberán respetar las restricciones sobre el uso de aplicaciones de trabajo.
+Los funcionarios serán responsables de cualquier daño o pérdida de datos causada por el incumplimiento de estas políticas.
+• Soporte y Mantenimiento: La Unidad de Tecnologías de Información de la CNE ofrecerá soporte limitado para los dispositivos personales usados para fines laborales.
+Esto puede incluir asistencia para la configuración inicial, la instalación de software de seguridad, y el soporte para aplicaciones de trabajo específicas. Sin embargo, el mantenimiento general y la reparación del dispositivo recaerán en el propietario de este.
+• Compensación y Reembolsos: La CNE NO asumirá ningún tipo compensación o reembolso por el uso de dispositivos, líneas y planes de datos personales para fines laborales.
+• Finalización del Uso: Al terminar la relación laboral se deberán eliminar todos los recursos y accesos de la CNE del dispositivo personal de manera segura.

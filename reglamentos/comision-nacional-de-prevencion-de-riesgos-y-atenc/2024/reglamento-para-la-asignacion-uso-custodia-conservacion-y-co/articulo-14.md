@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento hará acreedor al (a la) funcionario (a) de las medidas civiles y disciplinarias correspondientes, que podrá considerarse como una falta grave, sin perjuicio de cualquier otro tipo de responsabilidad que conforme el ordenamiento jurídico le sean aplicables.
