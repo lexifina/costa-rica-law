@@ -1,0 +1,6 @@
+CAPÍTULOIII
+Del proceso de solicitud y aprobación de capacitaciones
+Artículo 20.-De gestión de la capacitación. La capacitación se gestionará:
+1) De forma oficiosa por el proceso de Recursos Humanos cuando estén incluidas en el Plan General de Capacitación, previamente aprobado, considerando los resultados del Diagnóstico de Necesidades de Capacitación, Evaluación del Desempeño o cualquier otra herramienta que a bien considere.
+2) A solicitud de la jefatura de forma excepcional y justificada: La jefatura inmediata solicitará a la Oficina de Recursos Humanos los pedidos que estimen necesarios a efectos de realizar actividades de capacitación para los funcionarios a su cargo o de otras dependencias cuando ello sea procedente según las necesidades institucionales, siempre y cuando sea atinente al cargo y contribuya a la consecución de los objetivos estratégicos de la Municipalidad; lo anterior con al menos un 15 calendario de anticipación a la fecha en la que se pretende que inicie.
+3) En función de las necesidades de incorporar nuevas herramientas de Gestión, como sería algún proyecto especial u actualización que beneficie el trabajo que el funcionario desempeña dentro de la institución.

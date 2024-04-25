@@ -1,0 +1,16 @@
+Artículo 25.-Obligaciones del proceso de recursos humanos. Sin perjuicio de cualquier otra que se desprenda del presente reglamento o demás normativa aplicable, la Oficina de Recursos Humanos tendrá las siguientes obligaciones:
+1) Identificar cada año las necesidades de capacitación que la Municipalidad requiere para sus funcionarios, con el fin de priorizarlas e incluirlas en el Plan General de Capacitación; indicado a través de la implementación de los mecanismos que estime pertinente, pudiendo utilizar entre ellos el Diagnóstico de Necesidades de Capacitación, Evaluación del Desempeño o cualquier otra herramienta que a bien considere.
+2) Elaborar el Plan General de Capacitación acorde al Plan de Desarrollo Municipal y Proyectos anuales de la Institución, tomando como base lo indicado por las dependencias municipales. El Plan General de Capacitación será validado por la Alcaldía y podrá ser modificado según las necesidades institucionales, previo visto bueno de la Dirección Administrativa.
+3) Presentar a la Dirección Administrativa los planes y presupuestos para su debida autorización.
+4) Ejecutar todo lo relacionado con la asignación de capacitaciones y los programas de capacitación en cualquiera de sus modalidades.
+5) Verificar la existencia de contenido presupuestario de previo a la aprobación de cualquier subsidio, con el fin de asegurar que la Municipalidad pueda cubrir la inversión.
+6) Comunicar de forma oportuna la aprobación o rechazo de la solicitud de capacitación a la jefatura respectiva.
+7) Custodiar toda la documentación correspondiente a solicitud de Capacitación (subsidio y licencias), así como la información atinente a las capacitaciones que brinde la Municipalidad a sus funcionarios.
+8) Hacer constar oficiosamente en el Expediente Administrativo de Capacitación, copia de los certificados, notas o comprobantes de aprobación que correspondan a las actividades de capacitación, cuando estos vayan a ser entregados al funcionario.
+9) Iniciar las gestiones pertinentes para recuperar toda deuda relacionada con la obtención de los beneficios derivados de este reglamento, garantizando debido proceso.
+10) Emitir criterio técnico escrito sobre la aprobación o no de contratar la actividad capacitación, para lo cual la dependencia solicitante deberá aportar toda la información que solicite a la Dirección Administrativa.
+11) Gestionar los pedidos a efecto de realizar actividades de capacitación.
+12) Verificar mediante lista, la asistencia de los participantes a la actividad de capacitación cuando así le corresponda.
+13) Emitir los criterios o recomendaciones técnicas que establezca este reglamento.
+14) Recibir mediante aprobación del presupuesto ordinario, ajuste presupuestario o cualquier otro medio que resulte procedente, los fondos o recursos destinados para capacitación de las dependencias municipales, con el fin de tramitar de forma directa las respectivas contrataciones y coordinación de la actividad de capacitación que correspondan. El proceso de Recursos Humanos, deberá organizarse de manera tal que garantice el uso de los recursos recibidos para la capacitación de la dependencia que los traslada. Lo anterior cuando sea solicitado por la dependencia correspondiente.
+15) Cualquier otra atinente a sus funciones.

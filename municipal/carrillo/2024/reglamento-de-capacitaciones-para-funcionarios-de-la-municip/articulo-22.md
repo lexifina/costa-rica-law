@@ -1,0 +1,1 @@
+Artículo 22.-Del comunicado. La Municipalidad comunicará por escrito y de forma personal a los funcionarios que deban llevar una capacitación, indicando el detalle de la actividad y la obligatoriedad de asistencia, así como las posibles consecuencias ante el incumplimiento.
