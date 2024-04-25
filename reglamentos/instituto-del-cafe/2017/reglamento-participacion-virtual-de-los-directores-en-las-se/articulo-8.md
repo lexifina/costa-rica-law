@@ -1,1 +1,0 @@
-Artículo 8º—La votación o criterio de los Directores que estén en participación virtual, deberá ser emitido de manera simultánea y en tiempo real. El acuerdo será válido y eficaz, con la confirmación del Órgano. Para que sea firme requerirá la afirmación de la voluntad de los miembros participantes.
