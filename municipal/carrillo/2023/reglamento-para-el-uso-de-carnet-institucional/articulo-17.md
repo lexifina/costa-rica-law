@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Sanciones
+Artículo 17.-La no portación del carnet institucional por primera vez y de manera injustificada, podrá ser sancionada con una amonestación escrita del funcionario. La reincidencia injustificada autoriza a las Autoridades Municipales a la apertura de un Órgano de Procedimiento disciplinario administrativo a fin de determinar la verdad real de los hechos, garantizar el debido proceso y derecho de defensa del trabajador y determinar eventuales sanciones para el mismo. La no portación. de carné de visitante podría acarrear la expulsión de los edificios municipales a quien deba portarlo.
