@@ -1,0 +1,1 @@
+Artículo 7º-Información sobre proyectos para el pago de hora extra dentro del POA. Las Unidades de Planificación y Presupuesto de la Municipalidad de Corredores, al principio de cada período presupuestario, deberá informar a la Unidad de Talento y Desarrollo Humano sobre los proyectos que tienen asignado pago de tiempo extraordinario.

@@ -1,0 +1,2 @@
+Artículo 13.-Aprobación de la solicitud de jornada extraordinaria. La solicitud de jornada extraordinaria deberá realizarla y avalarla la Jefatura o Encargado respectivo.
+Posteriormente, será revisada por el departamento de Recursos Humanos y aprobada por la jefatura, la cual asumirá la responsabilidad sobre estos recursos. En situaciones contempladas en el artículo 7° del presente reglamento, será el Alcalde quien autorice el pago de estas horas extraordinarias.

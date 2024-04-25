@@ -1,0 +1,1 @@
+Artículo 10.-Pago de la jornada extraordinaria. El pago de horas extraordinarias se llevará a cabo quincenalmente o según la modalidad de pago vigente en ese momento, y a más tardar dentro de los treinta días naturales posteriores a la entrega del informe correspondiente, siempre y cuando se cumplan con los requisitos establecidos.
