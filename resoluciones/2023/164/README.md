@@ -14,3 +14,4 @@ Fija los precios de las tarifas para el servicio de generación que presta el In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-21 | la propia norma |
+| 2 | 2024-04-25 | Resolución 38 (2024-04-25) |

@@ -29,21 +29,21 @@ XIV. Que el 19 de diciembre de 2023, mediante el informe IN-0895-DGAU-2023, la D
 XV. Que el 19 de diciembre de 2023, mediante el informe técnico IN-0286-IE-2023, la IE, analizó la presente gestión de ajuste tarifario y en dicho estudio técnico recomendó establecer los cargos por empresa para el periodo de 2024 aplicables a la estructura de costos sin costo variable de generación de cada una de ellas, así como fijar los precios de las tarifas para el servicio de generación que presta el Instituto Costarricense de Electricidad; las tarifas para los sistemas de distribución del ICE y de las empresas distribuidoras de electricidad; y los precios de las tarifas para los sistemas de alumbrado público de las empresas distribuidoras de electricidad.
 CONSIDERANDO:
 I. Que del informe técnico IN-0286-IE-2023, citado y que sirve de base para la presente resolución, conviene extraer lo siguiente:
-[.]
+[...]
 II. ANÁLISIS DEL ASUNTO
 1. Aplicación de la metodología
 La aplicación de la "Modificación de la metodología para el ajuste extraordinario de las tarifas del servicio de electricidad producto de variaciones en el costo de los combustibles utilizados en la generación térmica para consumo nacional y las importaciones netas de energía eléctrica del mercado eléctrico regional (CVG)", considera dentro de sus cambios los ajustes anuales, pudiendo estos realizarse en periodicidades distintas a los ajustes anuales. Al respecto, en la sección 6.8 Ajustes al cargo de CVG en periodos distintos a la fijación anual, se indica:
-"[.]
+"[...]
 La Intendencia de Energía, de oficio o a solicitud de los interesados, podrá aplicar ajustes a las tarifas anuales por concepto de CVG en periodicidades distintas a los ajustes anuales contemplados en las secciones anteriores, cuando por el comportamiento del mercado y sus costos así se ameriten o cuando se requieran enviar señales de precios adecuadas y oportunas a los agentes económicos, entre otros, lo cual se deberá motivar en la resolución respectiva. Para esto se deberá aplicar los siguientes procedimientos, los cuales, en todos los casos deben respetar los criterios detallados en la fórmula 1 (igualdad entre ingresos y costos).
 Adicionalmente, el solicitante deberá definir los plazos de recuperación de los meses liquidados con su respectiva justificación. El plazo de recuperación no podrá superar el restante periodo anual, más el periodo anual siguiente; todo con el fin de valorar la estabilidad de las tarifas y el impacto en el flujo de caja de cada empresa. La solicitud del plazo deberá ser analizada y aprobada por la Intendencia de Energía y ser especificada claramente en la resolución respectiva.
 Dentro de un mismo año calendario, solo se permitirán como máximo dos fijaciones tarifarias adicionales utilizando la metodología del CVG (aparte de la realizada en diciembre de cada año).
-[.]"
+[...]"
 Adicionalmente, para la primera aplicación de esta modificación metodológica, definida en la resolución RE-0106-JD-2023, en su Transitorio II, establece lo siguiente:
-"[.]
+"[…]
 En el caso de que esta metodología tarifaria entre en vigor antes del 18 de noviembre de 2023, la primera aplicación de esta metodología tarifaria para un año completo se iniciará de oficio, según lo establecido en esta metodología tarifaria, con la salvedad de que el periodo de recuperación de los meses liquidados podrá extenderse hasta por 24 meses.
 El costo por CVG anual se estimará con la información entregada por el ICE a más tardar el 18 de noviembre del 2023 y se incluirán los respectivos ajustes derivados de los meses que no hayan sido liquidados en fijaciones anteriores.
 En el caso de que esta metodología tarifaria entre en vigor entre el 18 de noviembre de 2023 y el 1 de diciembre de 2023 (inclusive), se suspenderá cualquier proceso de fijación trimestral que se haya iniciado con la metodología tarifaria aprobada mediante la resolución RE-0100-JD-2019 y se iniciará el proceso de fijación tarifaria con la nueva metodología tarifaria, utilizando los datos disponibles de la fijación que se suspendió, pero ampliando el periodo de recuperación de los meses liquidados hasta por un periodo de 24 meses.
-[.]"
+[...]"
 Considerando lo anterior, la esta modificación metodológica permite que se realicen ajustes en las tarifas del sistema de generación del ICE por concepto de la generación térmica y balance neto de comercialización de energía en el MER, los cuales provocan variaciones directas, positivas o negativas, en los gastos por compras de energía que realizan las empresas distribuidoras del país, tanto para el sistema de distribución eléctrica como para el servicio de alumbrado público.
 Esta aplicación corresponde a un mecanismo de ajuste extraordinario, que se calcula de forma simultánea con los ajustes del sistema de generación del ICE producto del cargo del factor del CVG, para evitar desequilibrios financieros en los sistemas de distribución y alumbrado público, garantizando los flujos de efectivo necesarios para el correcto funcionamiento del sistema eléctrico de manera integral.
 Esta metodología, por tanto, tiene por objetivos complementarios, brindar estabilidad en las tarifas eléctricas para todos los abonados del Sistema Eléctrico Nacional (SEN) y permitir una mejor planificación de costos e ingresos por parte del resto de empresas distribuidoras.
@@ -87,8 +87,7 @@ A continuación, se detalla el saldo de la comercialización de energía neta en
 2.3 Liquidación del periodo anterior
 En el presente estudio tarifario los montos pendientes por reconocer debido a la diferencia entre las estimaciones y los valores reales para el periodo comprendido de mayo a octubre del presente año, se detalla a continuación:
 [imagen]
-De acuerdo con el cuadro anterior, para el periodo de mayo a octubre, se obtuvo importaciones netas (diferencia entre importaciones y exportaciones) de ¢25 187,29 millones, dicho monto expresa que hubo mayor importación en comparación a la exportación de energía, por lo tanto, deberá ser reintegrado a la empresa. Lo anterior, sumando todos los demás componentes, da como resultado un saldo neto por devolver
-a la empresa de ¢86 132,86 millones, de los cuales, con el fin de mermar los efectos tarifarios producto del gasto incurrido por el ICE, se decidió conveniente liquidar dicho monto en 24 meses en partes iguales, es decir, ¢43 066,4 millones tanto para el 2024 como para el 2025.
+De acuerdo con el cuadro anterior, para el periodo de mayo a octubre, se obtuvo importaciones netas (diferencia entre importaciones y exportaciones) de ¢25 187,29 millones, dicho monto expresa que hubo mayor importación en comparación a la exportación de energía, por lo tanto, deberá ser reintegrado a la empresa. Lo anterior, sumando todos los demás componentes, da como resultado un saldo neto por devolver a la empresa de ¢86 132,86 millones, de los cuales, con el fin de mermar los efectos tarifarios producto del gasto incurrido por el ICE, se decidió conveniente liquidar dicho monto en 24 meses en partes iguales, es decir, ¢43 066,4 millones tanto para el 2024 como para el 2025.
 2.4 Factores por CVG
 En función de lo expuesto, en el siguiente cuadro se muestra la integración de los componentes que sustentan el ajuste por concepto de Costo Variable por Generación (CVG):
 [imagen]
@@ -164,7 +163,7 @@ Dichas plantas representan un 19% del total de energía que se espera generar co
 7. A partir del factor de CVG del sistema de generación del ICE se calculó su efecto en el gasto por compra de energía de cada una de las empresas distribuidoras, tanto para el sistema de distribución como para el sistema de alumbrado público. A este efecto se le adiciona el monto por concepto de liquidación que, al igual que para el sistema de generación es calculado en distribución y alumbrado público, para el periodo de mayo a octubre de 2023 (ambos meses inclusive).
 IV. CONSULTA PÚBLICA
 La Dirección General de Atención al Usuario (DGAU) remitió el informe de oposiciones y coadyuvancias, mediante el oficio IN-0887-DGAU-2023 del 18 de diciembre de 2023, donde se indica que, vencido el plazo establecido en la convocatoria a consulta pública no se recibieron posiciones. Posteriormente, el 19 de diciembre del presente año, por medio del IN-0895-DGAU-2023, remite una adición al informe IN-0887-DGAU-2023, la cual, señala una posición no admitida presenta por la Asociación Cámara de Industrias de Costa Rica, por encontrarse extemporánea al vencimiento del plazo establecido. (corre agregado al expediente
-[.]
+[...]
 II. Que de conformidad con lo señalado en los resultados y considerandos procedentes y en el mérito de los autos, lo procedente es, establecer los cargos por empresa para el periodo de 2024 aplicables a la estructura de costos sin costo variable de generación de cada una de ellas, así como fijar los precios de las tarifas para el servicio de generación que presta el Instituto Costarricense de Electricidad; las tarifas para los sistemas de distribución del ICE y de las empresas distribuidoras de electricidad; y los precios de las tarifas para los sistemas de alumbrado público de las empresas distribuidoras de electricidad; tal y como se dispone:
 POR TANTO
 LA INTENDENCIA DE ENERGÍA
@@ -184,8 +183,7 @@ Características del servicio: Medición: Un sistema integral compuesto por los 
 Disponibilidad: En barras de media tensión en subestaciones de transmisión del Instituto Costarricense de Electricidad.
 Tarifa T-SD Ventas al servicio de distribución.
 A. Aplicación: Para el suministro de energía y potencia en media tensión a la Junta Administra Administrativa del Servicio Eléctrico de Cartago, Empresa de Servicios Públicos de Heredia y Cooperativas de Electrificación Rural.
-B. Características del servicio: Medición: Un sistema integral compuesto por los sistemas de medición, a media tensión, monofásico o trifásico (tres o cuatro hilos), ubicados en los puntos de entrega (barras de media tensión de subestaciones de transmisión del ICE) a la Junta Administra Administrativa del Servicio Eléctrico de Cartago, Empresa de Servicios Públicos de Heredia y Cooperativas de Electrificación
-Rural.
+B. Características del servicio: Medición: Un sistema integral compuesto por los sistemas de medición, a media tensión, monofásico o trifásico (tres o cuatro hilos), ubicados en los puntos de entrega (barras de media tensión de subestaciones de transmisión del ICE) a la Junta Administra Administrativa del Servicio Eléctrico de Cartago, Empresa de Servicios Públicos de Heredia y Cooperativas de Electrificación Rural.
 Disponibilidad: En barras de media tensión de subestaciones de transmisión del Instituto Costarricense de Electricidad.
 Tarifa T-UD Abonados directos del servicio de generación.
 Aplicación: Para el suministro de energía y potencia en alta tensión a clientes directos del servicio de generación del ICE.
@@ -205,6 +203,26 @@ Período valle: Se define como período valle al comprendido entre las 6:01 y la
 Período nocturno: Se define como período nocturno al comprendido entre las 20:01 y las 6:00 horas del día siguiente.
 3. Operación en paralelo.
 Los abonados en alta tensión, que operan en paralelo con la red del ICE, con generadores síncronos propiedad de su propiedad ubicados en sus instalaciones, con el propósito de alimentar cargas propias en el mismo sitio, deben disponer en el punto de interconexión del cliente con el ICE, de las protecciones correspondientes que aseguren, tanto la no afectación de la gestión de la empresa eléctrica, como la integridad del equipo y bienes del cliente, de conformidad con lo establecido en los Capítulos VI, VII y VIII de la norma técnica regulatoria AR-NT-POASEN "Planeación, operación y acceso al Sistema Eléctrico Nacional.
+(Nota de Sinalevi: Mediante resolución N° RE-0038-IE-2024 del 25 de abril del 2024 se reforma la tarifa T-UD vigente del sistema de generación del ICE en una tarifa máxima. Al no ser tan específica la reforma la misma se transcribe a continuación: " forma:
+ICE Sistema de generación | Tarifa
+Categoría tarifaria | detalle del cargo | Rige hasta el 31/dic/2024
+? Tarifa T-UD Usuarios directos del servicio de generación tarifa en dólares ($) |
+Por consumo de energía (kWh) Periodo Punta (tarifa máxima) | cada kWh | 0,066
+Periodo Valle (tarifa máxima) | cada kWh | 0,055
+Periodo Noche (tarifa máxima) Por consumo de potencia (kW) | cada kWh | 0,046
+Periodo Punta (tarifa máxima) | cada kW | 3,489
+Periodo Valle (tarifa máxima) | cada kW | 3,489
+Periodo Noche | cada kW | 0,000
+Tarifa T-UD Abonados directos del servicio de generación.
+Aplicación: Para el suministro de energía y potencia en alta tensión a clientes directos del servicio de generación del ICE.
+Para clientes conectados en media tensión, pero con un uso de energía específico para el desarrollo de una economía de hidrógeno verde en Costa Rica, de conformidad con lo dispuesto en el Decreto Ejecutivo N° 43366 MINAE, Política para el aprovechamiento de los recursos excedentes en el Sistema Eléctrico Nacional para el desarrollo de una economía de hidrógeno.
+Las tarifas T-UD son tarifas máximas para el consumo de energía y potencia. Las condiciones para la aplicación de la tarifa máxima son las siguientes:
+. Aplica solo para los usuarios de la tarifa T-UD del sistema de generación del ICE.
+. La tarifa máxima se aplica a cada uno de los precios de energía y potencia por periodo horario y temporada (cuando aplique) establecidos en el pliego tarifario.
+. Aplica para todo el consumo de los usuarios de T-UD del sistema de generación del ICE, queda habilitado la posibilidad de acordar diferentes precios finales, siempre y cuando sean iguales o estén por debajo de la tarifa máxima establecida por la Aresep.
+. Es potestad del prestador definir las reglas comerciales y técnicas con las que se establecerá el precio final, basado en elementos objetivos de la política pública, tales como las metas nacionales y sectoriales del "Plan Nacional de Desarrollo e Inversión Pública" vigente, el "Plan Nacional de Descarbonización" y la "Política para el aprovechamiento de los recursos excedentes en el Sistema Eléctrico Nacional para el desarrollo de una economía de hidrógeno verde", así como la "Política Regulatoria" emitida por la Junta Directiva de ARESEP; garantizando la no discriminación entre usuarios con las mismas condiciones de conformidad con la Ley No. 7593.
+Características del servicio: Medición: Un sistema de medición, a alta tensión, trifásico (tres o cuatro hilos), ubicado en el punto de entrega (barra de alta tensión de subestaciones de transmisión del ICE).
+Disponibilidad: En las barras de alta tensión de subestaciones de transmisión de Instituto Costarricense de Electricidad.")
 4. Cargos Adicionales.
 Los precios anteriores no incluyen los cargos tarifarios por transmisión ni el impuesto de ventas.
 III. Fijar los precios de las tarifas para los sistemas de distribución del ICE y de las empresas distribuidoras de electricidad, tal y como se detalla:
@@ -473,8 +491,7 @@ Para efectos del pago mínimo que se cobrará a los usuarios con categoría de p
 La tarifa de acceso (T-A), será aplicable únicamente a clientes con tarifa monómica, y se cobrará en función del consumo natural de energía (kWh) del generador distribuido, multiplicando por tanto la tarifade acceso (T-A) por el consumo natural.
 Los servicios con generación distribuida que estén en una tarifa monómica y deseen pasarse de modo voluntario a una tarifa binómica pese a que su consumo natural sea menor al límite establecido para tales efectos, podrán solicitar a la empresa distribuidora el cambio respectivo, de mutuo acuerdo y con la respectiva aprobación por parte de la Autoridad Reguladora, se podrá realizar la modificación solicitada, a fin de que dichos servicios puedan pagar en función de su energía y potencia correspondiente.
 La respectiva aprobación por parte de la Aresep se deberá realizar por medio de la misma resolución que fija la tarifa de acceso, de este modo se faculta a la Intendencia de Energía, o la dependencia encargada de fijar las tarifas, para que modifique el pliego tarifario, a fin de que establezca con claridad los nuevos límites de energía, potencia y traslado entre bloques que se utilizarán en la facturación binómica de los clientes con generación distribuida que de modo voluntario y por mutuo acuerdo desean la flexibilización de dichas condiciones.
-En función de lo anterior, la empresa distribuidora deberá incluir en el estudio tarifario, la propuesta de modificación de límites para las tarifas correspondientes, con la respectiva justificación y detalles técnicos, además deberá aportar el consentimiento firmado por los clientes que posean servicios con generación distribuida y que desean el cambio voluntario, donde se evidencie su anuencia y que están de acuerdo con
-las nuevas condiciones.
+En función de lo anterior, la empresa distribuidora deberá incluir en el estudio tarifario, la propuesta de modificación de límites para las tarifas correspondientes, con la respectiva justificación y detalles técnicos, además deberá aportar el consentimiento firmado por los clientes que posean servicios con generación distribuida y que desean el cambio voluntario, donde se evidencie su anuencia y que están de acuerdo con las nuevas condiciones.
 Estas nuevas condiciones aplicarán para los clientes que remitieron su consentimiento en el estudio tarifario, sin embargo, en el caso de los clientes con servicios distribuidos que firmen nuevos contratos (posteriores al estudio tarifario), podrán acogerse voluntariamente a los límites flexibilizados que se aprobaron en la fijación tarifaria vigente al momento de suscribir el nuevo contrato, para lo cual sólo deberán firmar el consentimiento correspondiente, y posteriormente remitirlo a la Aresep para su conocimiento.
 6. Condiciones para la tarifación en condominios.
 Para la clasificación tarifaria en condominios, rige lo indicado en el Capítulo XIII, de la norma técnica regulatoria AR-NT-SUCOM "Supervisión de la comercialización del suministro eléctrico en baja y media tensión".
