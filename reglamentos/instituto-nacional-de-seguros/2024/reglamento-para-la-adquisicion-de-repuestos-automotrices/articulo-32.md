@@ -1,0 +1,1 @@
+Artículo 32.-Supletoriedad. De manera supletoria aplica lo normado internamente para las contrataciones exceptuadas de los procedimientos ordinarios de contratación, y en su defecto, por lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.

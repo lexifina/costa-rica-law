@@ -1,0 +1,2 @@
+Artículo 19.-Lugar de entrega. El repuesto adquirido deberá ser entregado por la empresa en el lugar indicado en la invitación de cotización por el INS, dentro del plazo de entrega ofrecido. Junto con el repuesto la empresa entregará al asegurado para efectos de garantía una copia de la factura y el certificado original de garantía a nombre del asegurado.
+En caso de que entregue el repuesto defectuoso o incorrecto deberá de reponerlo en 1 día hábil, sin costo adicional.

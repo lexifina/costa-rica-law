@@ -1,0 +1,1 @@
+Artículo 16.-Mejora de precio. Una vez finalizado el plazo otorgado para la recepción de cotizaciones, si se permitiera la mejora de precios, esta deberá realizarse 4 horas posterior, con el fin de que las empresas participantes puedan ingresar y conocer los precios dados por el resto de los participantes.
