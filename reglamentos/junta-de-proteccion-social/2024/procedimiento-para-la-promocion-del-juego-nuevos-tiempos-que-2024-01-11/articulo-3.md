@@ -1,0 +1,3 @@
+Artículo 3º- Aceptación.
+El hecho de realizar una apuesta implica por parte del participante, el conocimiento de este Procedimiento, del Reglamento del Juego Nuevos Tiempos vigente y la adhesión a éstos, quedando sometida su apuesta a estas normativas.
+Esta Promoción no supone la celebración de contrato alguno entre los participantes, ni entre éstos y la Junta, quedando limitada la actividad de quienes participan a pagar el importe correspondiente y efectuar sus apuestas en la forma establecida por estas normas y las que se encuentran contenidas en el Reglamento del Juego Nuevos Tiempos vigente.
