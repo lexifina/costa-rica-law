@@ -1,0 +1,6 @@
+Artículo 11.-Realización de estudios técnicos, anteproyecto, presupuesto global viabilidad ambiental, planos constructivos, especificaciones técnicas, presupuesto detallado, términos de referencia por parte de la UO del ICODER.
+Estos insumos técnicos podrán ser elaborados por ICODER, de acuerdo con la disponibilidad operativa, financiera al momento de presentación de la solicitud.
+Para tal efecto una vez realizada la visita técnica y elaborado el informe se coordinará con el solicitante lo requerido, se establecerá la estrategia, el plazo de entrega de los insumos técnicos requeridos para el desarrollo del proyecto.
+Todas las gestiones realizadas y los entregables técnicos deben de constar en el expediente del proyecto, el cual será manejado de acuerdo con el procedimiento vigente para tal fin de la UO.
+Una vez se culmine con la información técnica de la formulación, será entregada formalmente vía oficio por el profesional o profesionales en ingeniería y /o arquitectura al solicitante.
+ICODER, salvo previa solicitud y autorización de la Dirección Nacional y de la Jefatura del Departamento de Gestión de Instalaciones no dará el servicio de Responsabilidad de la Ejecución de la Construcción, REC, o inspección de obras.

@@ -1,0 +1,2 @@
+Artículo 13.-Manejo de los expedientes. Una vez entregados los informes, el asistente secretarial, digitalizará todo el expediente y enviará una copia al solicitante de la asesoría.
+En caso de que, de manera extemporánea, una vez archivado el expediente el solicitante envíe lo requerido; se deberá de reprogramar la atención del caso; de acuerdo con la disponibilidad operativa y a la programación de la Unidad de Obras.
