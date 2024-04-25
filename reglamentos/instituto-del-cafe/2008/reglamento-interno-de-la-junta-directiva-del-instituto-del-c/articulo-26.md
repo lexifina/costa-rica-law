@@ -1,1 +1,0 @@
-Artículo 26.—En cada sesión se conocerán los cambios de fondo y forma que los Directores solicitan al acta remitida. Las observaciones de forma pueden ser remitidas o comunicadas de previo a la Secretaria de Actas a manera de información, no obstante serán conocidas y aceptadas por la Junta Directiva al momento de declarada en firme la respectiva acta.

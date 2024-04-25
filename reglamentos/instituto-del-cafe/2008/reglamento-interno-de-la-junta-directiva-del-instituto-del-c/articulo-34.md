@@ -1,1 +1,0 @@
-Artículo 34.—Presentada una moción de orden se concederá el uso de la palabra en primer término al proponente y luego a los miembros que la soliciten. El Presidente podrá pedir a los miembros que se concreten al punto en debate y en caso de renuencia podrá retirarle el uso de la palabra.

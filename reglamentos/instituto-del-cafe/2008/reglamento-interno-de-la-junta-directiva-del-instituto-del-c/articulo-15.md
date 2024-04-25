@@ -1,1 +1,0 @@
-Artículo 15.—El quórum para las sesiones será de cinco miembros, según el Artículo 53 inciso 1° de la Ley General de la Administración Pública. Ese número de miembros deberá encontrarse presente en el salón de sesiones ocupando sus respectivos asientos, al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

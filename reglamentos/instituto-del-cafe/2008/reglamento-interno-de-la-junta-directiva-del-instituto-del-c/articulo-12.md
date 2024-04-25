@@ -1,1 +1,0 @@
-Artículo 12.—Podrán celebrarse sesiones en otros lugares, cuando los asuntos a tratar así lo requieran y siempre que la convocatoria así lo especifique. La convocatoria la hará el Director Ejecutivo por iniciativa propia o a petición del Presidente o de tres de los miembros de la Junta Directiva.

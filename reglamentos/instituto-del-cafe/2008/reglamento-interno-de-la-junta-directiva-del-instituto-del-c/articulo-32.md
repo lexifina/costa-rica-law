@@ -1,1 +1,0 @@
-Artículo 32.—Son mociones de orden las que se presentan para regular el debate, para alterar el orden del día, para incluir un asunto o para que se posponga el conocimiento de uno que figura en el orden del día.
