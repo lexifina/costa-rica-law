@@ -1,0 +1,1 @@
+Artículo 5º-Responsable de la administración de las instalaciones. La administración del Auditorio y su superior jerárquico serán responsables de hacer cumplir las normas establecidas en el presente reglamento.

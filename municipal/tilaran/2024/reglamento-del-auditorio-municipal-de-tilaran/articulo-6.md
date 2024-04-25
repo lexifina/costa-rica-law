@@ -1,0 +1,1 @@
+Artículo 6º-Administración. La administración y el mantenimiento de estas instalaciones municipales son responsabilidad de la Municipalidad de Tilarán y la misma será ejercida por la administración del auditorio coordinado con su superior jerárquico de la Municipalidad de Tilarán.

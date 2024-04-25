@@ -1,0 +1,1 @@
+Artículo 24.-Presentación previa. Las solicitudes de préstamo por costo mínimo deberán ser presentadas a la Plataforma de Servicios con al menos treinta días de antelación a la fecha de realización de la actividad, con el fin de que sean autorizadas si corresponde en el Concejo Municipal.

@@ -1,0 +1,6 @@
+Artículo 9º-Destino de los ingresos generados por las instalaciones del auditorio municipal. Todos los ingresos que generen las instalaciones del auditorio municipal contempladas en este reglamento por uso y otros servicios que se presten, deben de ingresar a los siguientes códigos presupuestarios:
+1.3.1.2.04.01 Alquiler de edificios e instalaciones.
+1.01.02 Alquiler de maquinaria, equipo y mobiliario.
+2.09.01 Actividades protocolarias y sociales
+6.06.02 Reintegros o devoluciones.
+Estos ingresos se invertirán en los proyectos y programas de cultura, recreación y turismo, como el mantenimiento y mejora del inmueble del auditorio municipal, compra y mantenimiento de equipos relacionados a la capacitación, actividad artística y recreativa, equipo técnico y lumínico, implementación de programas culturales y sociales, producciones artísticas, compra y mantenimiento de instrumentación y mobiliario, compra y mantenimiento de equipos de cómputo, audio y video, vestuario, partituras, alimentos y bebidas, transporte, pago de personal administrativo, de mantenimiento, artístico, técnico, formativo, educativo, recreativo o de seguridad. Además, en reintegros o devoluciones cuando se concrete la coproducción cumpliendo lo establecido en este reglamento.

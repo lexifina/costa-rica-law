@@ -1,0 +1,1 @@
+Artículo 31.-Devolución por no realización de la actividad. Solo se procederá con la devolución del monto por préstamo oneroso cuando no se utilice el inmueble por causas no imputables al prestatario, como falta de fluido eléctrico o desastres naturales. La devolución del monto de préstamo por el uso de la instalación deberá solicitarse por escrito a la Administración.

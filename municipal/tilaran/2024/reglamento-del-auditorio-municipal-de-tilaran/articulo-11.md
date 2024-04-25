@@ -1,0 +1,1 @@
+Artículo 11.-Pólizas de responsabilidad civil. La Municipalidad de Tilarán mantendrá una póliza de responsabilidad civil que cubrirá a usuarios y funcionarios en las instalaciones del auditorio municipal. El pago de la póliza será cubierto con los ingresos por el uso de las instalaciones.

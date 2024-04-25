@@ -1,0 +1,1 @@
+Artículo 15.-Actividades municipales. Cuando la Administración o el Concejo Municipal requieran el inmueble para actividades municipales deberán coordinar con la administración del auditorio, y podrán utilizarla dependiendo de la disponibilidad de espacio libre en la programación ya establecida.

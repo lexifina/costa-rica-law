@@ -1,0 +1,1 @@
+Artículo N° 32.-Pago por impuesto de espectáculo público. Toda actividad lucrativa (empresarial, profesional o artística) efectuada por sujetos pasivos a título oneroso que se realice en las instalaciones culturales municipales debe realizar el pago del 11% de espectáculos públicos sobre la taquilla.

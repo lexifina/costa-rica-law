@@ -1,0 +1,1 @@
+Artículo 21.-Solicitudes de "préstamo por costo mínimo de la instalación". Se podrá solicitar la instalación bajo esta modalidad cuando el beneficio económico sea de carácter social, cultural, comunal o deportivo, y cuando los fondos recaudados tengan como finalidad satisfacer una necesidad demostrada y no sea con fines de lucro.

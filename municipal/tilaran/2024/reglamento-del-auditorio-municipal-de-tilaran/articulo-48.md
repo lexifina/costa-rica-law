@@ -1,0 +1,1 @@
+Artículo 48.-Venta de materiales. El peticionario podrá llevar a cabo durante la actividad, únicamente la venta de materiales o artículos derivados o relacionados con la actividad principal, no obstante, ello estará sujeto a la aprobación previa de la administración del auditorio y estos artículos deberán ser originales.

@@ -1,0 +1,1 @@
+Artículo 2º-Instalaciones. Las instalaciones del Auditorio Municipal son: el segundo piso del Centro de Negocios en donde se ubica el camerino, las escaleras hacia el camerino, el escenario, el sector de butacas, la cabina técnica de audio, video y luces, la bodega, los servicios sanitarios de hombres y mujeres, la recepción del segundo piso y del primer piso y el elevador.

@@ -1,0 +1,1 @@
+Artículo 37.-Exoneración del pago del 11% de Espectáculos Públicos. Las actividades culturales programadas por la administración del auditorio como extensión cultural no estarán afectadas por el 11% que establece la Ley de Espectáculos Públicos.

@@ -1,0 +1,1 @@
+Artículo 27.-Solicitudes de préstamo oneroso de las instalaciones. Podrán solicitar el préstamo oneroso de las instalaciones para la realización de actividades, asociaciones y fundaciones, comités o subcomités, centros educativos, grupos y/o empresas culturales, instituciones estatales, organizaciones cantonales, nacionales, internacionales y personas físicas.

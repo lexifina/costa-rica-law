@@ -1,0 +1,1 @@
+Artículo 42.-Venta de artículos. En el caso de que la solicitud sea realizada para la comercialización de bienes materiales (pinturas, artesanías, libros, antigüedades, esculturas, y materiales similares), siendo que implica la venta directa de productos, deberán contar con los permisos respectivos según la Ley de Patentes del cantón de Tilarán

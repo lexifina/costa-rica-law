@@ -1,0 +1,1 @@
+Artículo 34.-Declaratorias de interés. Cuando un espectáculo o actividad cuente con declaratoria de interés cultural por parte del Ministerio de Cultura y Juventud, estará exento del pago de licencia temporal para el ejercicio de la actividad en nuestro cantón, no así del pago del 5 % de espectáculos públicos sobre la taquilla.

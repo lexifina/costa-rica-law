@@ -1,0 +1,1 @@
+Artículo N° 17.-Responsables de las instalaciones. Los solicitantes de las instalaciones serán las personas responsables ante la administración del auditorio municipal, por el cuido de la instalación y del material, mobiliario y/o equipo facilitado.
