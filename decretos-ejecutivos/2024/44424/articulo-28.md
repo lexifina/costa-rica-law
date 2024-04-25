@@ -1,0 +1,9 @@
+Artículo 28. Tratamiento excepcional de muestras biológicas de origen humano con fines de investigación biomédica en ausencia de consentimiento expreso del sujeto fuente. Con carácter excepcional, las muestras codificadas o identificadas podrán tratarse con fines de investigación biomédica sin consentimiento del sujeto fuente cuando la obtención de dicho consentimiento no sea posible y se demuestre la imposibilidad para obtenerlo. En estos casos, el CEC correspondiente deberá emitir dictamen favorable, para el que deberá tener en cuenta, el cumplimiento de los siguientes requisitos:
+a. Que no se disponga de una alternativa viable para la realización de la investigación biomédica con otro grupo de muestras para las que se disponga de consentimiento expreso.
+b. Cuando se trate de una investigación de especial interés de salud pública y que sea propia del quehacer institucional del Ministerio de Salud o de la Caja Costarricense de Seguro Social. Lo anterior conforme a lo establecido en la Ley No. 9234 del 22 de abril del 2014 "Ley Reguladora de Investigación Biomédica" y su reglamento.
+c. Que la investigación, debidamente autorizada, se lleve a cabo por la misma institución que solicitó el consentimiento expreso para la obtención de las muestras, en caso de que esto fuese necesario.
+d. En el caso de que se trate de muestras de sujetos identificados o identificables, que la investigación sea menos efectiva o no sea posible sin los datos identificativos del sujeto fuente.
+e. Que no conste una objeción expresa del sujeto fuente o de su representante legal.
+f. Que se garantice la confidencialidad de los datos de carácter personal.
+g. Demostrar la imposibilidad para obtener el consentimiento.
+h. Que el investigador principal y el equipo investigadores estén debidamente autorizados.

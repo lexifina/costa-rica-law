@@ -1,0 +1,1 @@
+Artículo 35. Encargado del Registro. El Conis, a través de la unidad o funcionario que determine, se encargará de la gestión, mantenimiento y actualización del Registro Nacional de Biobancos Humanos y Bases de Datos Asociadas con fines de Investigación Biomédica.

@@ -1,0 +1,1 @@
+Artículo 17. Sistemas informáticos y telemáticos seguros. Los biobancos humanos y bases de datos asociadas con fines de investigación biomédica deben contar con sistemas informáticos y telemáticos seguros que incluyan hardware y software para evitar el acceso no autorizado a estos.

@@ -1,0 +1,5 @@
+Artículo 31. Persona titular de un biobanco. Podrá solicitar el cierre voluntario al Ministerio de Salud; o de oficio, por incumplimiento, el Ministerio de Salud podrá revocar su permiso de habilitación de acuerdo con lo establecido en el Decreto Ejecutivo No. 43432-S del 09 de marzo del 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorización para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud".
+En la resolución de cierre, emitida por el Ministerio de Salud, se dispondrá expresamente el destino de las muestras almacenadas en el biobanco y bases de datos asociadas con fines de investigación biomédica. Dicho destino podrá consistir en:
+a. La destrucción de las muestras y bases de datos asociadas con fines de investigación biomédica.
+b. La transferencia de las muestras y bases de datos de investigación biomédica a otro biobanco.
+c. La conservación de las muestras y bases de datos para su utilización en investigaciones biomédicas concretas o integradas en una colección.

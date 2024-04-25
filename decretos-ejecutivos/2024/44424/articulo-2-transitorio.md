@@ -1,0 +1,2 @@
+TRANSITORIO II. Las colecciones para fines de investigación biomédica conservadas fuera del ámbito organizativo de un biobanco humano con fines de investigación biomédica, existentes a la entrada en vigor de este reglamento, deberán comunicar al Conis los datos en el plazo de seis meses a partir de la entrada en vigencia de este Decreto Ejecutivo.
+En el caso de aquellos que no se habiliten, deben transferir sus muestras a un biobanco ya establecido.

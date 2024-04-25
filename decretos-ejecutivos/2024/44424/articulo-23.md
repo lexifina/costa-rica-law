@@ -1,0 +1,5 @@
+Artículo 23. Destino de las muestras una vez finalizada la investigación biomédica concreta. Como parte del consentimiento o asentimiento informado otorgado por el sujeto fuente, para que su muestra biológica se incorpore a una colección para fines de investigación biomédica, conservada fuera del ámbito organizativo de un biobanco, deberá informarse sobre el posible destino de esta, una vez finalizada la investigación. Los destinos de las muestras biológicas pueden ser:
+a. La destrucción de la muestra una vez finalizada la investigación biomédica.
+b. La anonimización de la muestra biológica para usos posteriores.
+c. La posterior transferencia de la muestra a un biobanco y bases de datos asociadas con fines de investigación siempre que se facilite información sobre el mismo y sobre las posibles finalidades de uso de la muestra.
+d. La posterior utilización de la muestra integrada en una colección para una línea de investigación relacionada con la inicialmente propuesta, incluso por un tercero mediante transferencia gratuita, con la advertencia de que se solicitará el consentimiento o asentimiento específico del sujeto fuente para ello.

@@ -1,0 +1,1 @@
+Artículo 37. Portal oficial del Conis. En el portal oficial del Conis se publicará un catálogo que incorpore la información actualizada procedente del Registro Nacional de Biobancos Humanos y Bases de Datos Asociadas con fines de Investigación Biomédica.

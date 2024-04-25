@@ -1,0 +1,1 @@
+Artículo 33. Directores Científicos. Los Directores Científicos de los biobancos y bases de datos asociadas con fines de investigación biomédica, deben garantizar que toda la información y datos que poseen sean destruidos de forma que no permita su recuperación mediante tecnología existente.

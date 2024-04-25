@@ -1,0 +1,8 @@
+Artículo 11. Funciones de un Comité Ético Científico. Las funciones de los CEC respecto de los biobancos humanos y bases de datos asociadas con fines de investigación biomédica comprenden:
+a. Realizar la evaluación ética y científica de los protocolos de investigación biomédica que contemplen: la integración de colecciones de muestras biológicas, solicitudes de transferencia de muestras y datos asociados de estas al biobanco. En el caso de que el CEC emita un dictamen desfavorable, éste tendrá carácter vinculante.
+b. Asesorar al Director Científico acerca de la adecuación de los procedimientos establecidos para garantizar la calidad, la seguridad y la trazabilidad de los datos y muestras almacenadas y de los procedimientos asociados al funcionamiento del biobanco, desde el punto de vista ético y científico.
+c. Asesorar al Director Científico acerca de los aspectos éticos y científicos previstos en el documento de buenas prácticas del biobanco.
+d. Decidir los casos en los que será imprescindible el envío individualizado de información al sujeto fuente, en relación con las previsiones de transferencia de sus muestras y con los resultados de los análisis realizados cuando puedan ser relevantes para su salud.
+e. Asistir al Director Científico sobre otras cuestiones de su competencia que éste someta a su consideración.
+f. Suspender o cancelar, en cualquier momento, la ejecución de un proyecto de investigación biomédica, si se determina que puede estar en peligro la salud o el bienestar de los participantes.
+g. Poner a conocimiento del Conis y de las autoridades institucionales competentes, las irregularidades o los incumplimientos al presente reglamento de acuerdo a la normativa existente.
