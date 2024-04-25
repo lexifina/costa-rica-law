@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Del seguimiento de recomendaciones
+Artículo 37º.-Seguimiento a la aplicación de disposiciones y recomendaciones. El Auditor Interno deberá establecer y mantener, como parte vital y permanente de la actividad de la Auditoría Interna, dos estudios de seguimiento a las recomendaciones anualmente, observaciones y demás resultantes de su gestión para asegurarse de su oportuna, adecuada y eficaz atención por parte de la administración.
+Los seguimientos deberán incluir los resultados de las evaluaciones realizadas por Auditores Externos, la Contraloría General de la República y demás instituciones de control y fiscalización cuando corresponda. El resultado del seguimiento será comunicado por la persona Auditora Interna, a la persona Ministra, de conformidad con lo dispuesto en el inciso g) del artículo 22 de la Ley General de Control Interno, sin perjuicio de otros informes relacionados, a juicio del Auditor, cuando lo considere pertinente.

@@ -1,0 +1,1 @@
+Artículo 10º.-Ubicación en la Estructura Organizativa. La Auditoría Interna es un órgano asesor de alto nivel, con independencia funcional y de criterio. Se ubica con dependencia orgánica del Despacho Ministerial; en cuanto a su actividad la Auditoría Interna es única en el Ministerio de Cultura y Juventud.

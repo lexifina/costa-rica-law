@@ -1,0 +1,1 @@
+Artículo 19º.-Objetividad individual y ética profesional. Los funcionarios de la Auditoría Interna deberán tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia.
