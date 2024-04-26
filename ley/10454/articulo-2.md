@@ -1,0 +1,4 @@
+ARTÍCULO 2- Se adiciona un artículo 20 bis a la Ley 7476, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, de 3 de febrero de 1995. El texto es el siguiente:
+Artículo 20 bis- Notificación de la apertura del procedimiento. La notificación de apertura de un procedimiento disciplinario por hostigamiento o acoso sexual en el lugar de trabajo o docencia se podrá realizar a través de los siguientes mecanismos:
+a) Los medios establecidos en la Ley 8687, Notificaciones Judiciales, de 4 de diciembre de 2008.
+b) Cuando se haya intentado realizar la notificación a través de los medios establecidos en el inciso anterior, pero esta no sea posible, se tendrá como medio de notificación la dirección de correo electrónico que el centro de trabajo o centro educativo le otorgó a la persona denunciada o, en su defecto, la dirección de correo electrónico propia o personal que la persona denunciada suministró en su lugar de trabajo.
