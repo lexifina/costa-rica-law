@@ -1,0 +1,1 @@
+ARTÍCULO 73.- Firmeza del avalúo. De no existir oposición al avalúo por parte del sujeto pasivo, dentro del plazo establecido al efecto, el valor consignado en el mismo adquirirá firmeza y se constituirá en la nueva base imponible del impuesto a partir del período fiscal siguiente a su registro en la base de datos municipal.

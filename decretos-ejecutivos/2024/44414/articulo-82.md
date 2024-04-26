@@ -1,0 +1,1 @@
+ARTÍCULO 82.- Impulso procesal. - Corresponde a la Administración Tributaria mantener el impulso procesal ante cualquiera de las instancias de impugnación establecidas en el artículo 19 de la Ley, a efectos de lograr la resolución final del acto recurrido en un plazo razonable y evitar, de esta manera, la inactividad en perjuicio de la Hacienda Pública.

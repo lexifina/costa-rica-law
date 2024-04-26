@@ -1,0 +1,1 @@
+ARTÍCULO 54.- Inmuebles en copropiedad. En el caso de que un inmueble pertenezca a varios condueños, la base imponible corresponde al valor total de la propiedad registrado en la base de datos municipal, de manera que cada copropietario pagará el impuesto correspondiente a la proporción de su derecho.

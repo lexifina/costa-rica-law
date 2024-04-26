@@ -1,0 +1,2 @@
+ARTÍCULO 43.- Aplicación simultánea de beneficios. Podrán aplicarse simultáneamente beneficios de no afectación y de exoneración al mismo administrado, al bien inmueble o a ambos, cuando corresponda, salvo que una ley expresamente lo prohíba.
+Dicha situación se da cuando se cumplan los requisitos establecidos tanto en la Ley N º 7509 para las no afectaciones, así como cualquier ley que otorgue una exoneración.

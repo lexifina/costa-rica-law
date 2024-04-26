@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Lista de Morosos. La Administración Tributaria está facultada para publicar trimestralmente la lista de contribuyentes morosos, indicando el número del documento de identificación del deudor, el concepto de este tributo y el período pendiente de pago, así como la fecha de emisión de la lista. No se podrán incluir en esta lista aquellas deudas que se encuentren en litigio, ya sea en vía administrativa o judicial.
+La exactitud de los datos publicados es responsabilidad de la Administración Tributaria.

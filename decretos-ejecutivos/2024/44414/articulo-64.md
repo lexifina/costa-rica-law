@@ -1,0 +1,1 @@
+ARTÍCULO 64.- Bienes en Fideicomiso. El fiduciario es el obligado a presentar la declaración de valor, sin perjuicio de que el fideicomitente pueda cumplir también con este deber formal, cuando demuestre su condición dentro del contrato de fideicomiso. No obstante, el obligado al pago de los impuestos siempre será el fiduciario.

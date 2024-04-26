@@ -1,0 +1,1 @@
+ARTÍCULO 85.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 27601-H, publicado en el Diario Oficial La Gaceta Nº 18 de 27 de enero de 1999, así como lo indicado en cualquier Directriz emitida por el Órgano de Normalización Técnica, en lo que se oponga a lo establecido en el presente Reglamento.

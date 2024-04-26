@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Pago mediante agente de retención. La Administración Tributaria autorizará el pago del impuesto a través de agentes de retención, para aquellos sujetos pasivos que manifiesten su interés de que dicho pago les sea retenido de sus ingresos por salario, dietas, pensiones, u otros.

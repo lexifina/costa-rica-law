@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Declaración de valor de inmuebles registrados a nombre de propietarios fallecidos. El albacea, debidamente acreditado como tal en proceso sucesorio, estará legitimado para presentar la declaración de valor de aquellos bienes inmuebles que formen parte del haber hereditario que representa.

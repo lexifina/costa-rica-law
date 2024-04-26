@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Bienes no afectos al pago del impuesto
+ARTÍCULO 29.- Vigencia de la no sujeción. La aplicación de los supuestos de no sujeción no modifica la base imponible del impuesto, sino únicamente el monto a pagar por concepto de este.
+La no sujeción deberá aplicarse a partir del momento en que el administrado cumpla con los requisitos establecidos en la Ley y en el presente Reglamento, independientemente de la modalidad de pago establecida por la Municipalidad.
+En caso ele que surja un cambio de condiciones que hagan desaparecer los supuestos para la aplicación de la no afectación establecidos en el artículo 4 de la Ley, procederá la desaplicación del beneficio y el cobro del tributo, a partir de la fecha en que se modifiquen las condiciones, otorgándole al sujeto pasivo el derecho de defensa, independientemente de la modalidad de pago establecida por la Municipalidad.
+Si la Administración Tributaria tiene duda sobre la procedencia de la aplicación de una no afectación, podrá realizar inspecciones y obtener por sí misma la prueba que considere necesaria para resolver la solicitud, pero, una vez validado el derecho a la aplicación, regirá a partir del momento en que se dieron los supuestos que lo respaldan. La inactividad de la Administración Tributaria o el atraso en los procesos no podrá de ninguna manera causar un perjuicio al administrado.

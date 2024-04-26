@@ -1,0 +1,1 @@
+ARTÍCULO 60.- Bienes no afectos. Los titulares de los bienes inmuebles que no estén afectos al pago del impuesto no estarán obligados a cumplir con el deber formal de presentar la declaración de bienes establecida por la Ley, salvo que la no afectación deba aplicarse en forma parcial.

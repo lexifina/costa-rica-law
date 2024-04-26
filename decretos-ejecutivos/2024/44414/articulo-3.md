@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Aplicación de los principios de Derecho Tributario. Para efectos de la gestión de este impuesto, todas las actuaciones de la Administración Tributaria deben ajustarse a los principios Constitucionales del Derecho Tributario como lo son Igualdad, Razonabilidad, Justicia Tributaria, No Confiscatoriedad y Realidad Económica.

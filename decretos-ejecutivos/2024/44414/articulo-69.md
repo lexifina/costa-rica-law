@@ -1,0 +1,1 @@
+ARTÍCULO 69.- Declaraciones no fiscalizadas en tiempo. Si la Administración no realiza el avalúo dentro del año siguiente a la presentación de la declaración, deberá registrar el valor declarado como nueva base imponible del impuesto, a partir del 1 ° de enero del año siguiente al vencimiento de dicho plazo de fiscalización.
