@@ -1,6 +1,6 @@
 # Ley de Creación de la Escuela Judicial
 
-Ley N° 6593 del 1981-08-06. SINALEVI, ficha 3897: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3897&param2=4125&param3=1>.
+Ley N° 6593 del 1981-08-06. SINALEVI, ficha 3897: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3897&param2=140507&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1981-08-24 | Ley 6593 | 1981-08-06 |
 | 2 de 3 | 1997-12-26 | Ley 7728 | 1981-08-06 |
+| 3 de 3 | 2024-04-26 | Ley 10445 | 2024-03-19 |
