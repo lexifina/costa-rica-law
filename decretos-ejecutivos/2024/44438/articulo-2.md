@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese un Transitorio IV al Decreto Ejecutivo N° 40696-MP, del 20 de octubre del 2017, que se leerá de la siguiente manera:
+"Transitorio IV.-Hasta el 8 de mayo de 2026, de forma excepcional, la Jefatura de la Unidad Asesora creada en el artículo 2°, será asumida por la persona que ostente el cargo de Secretario del Consejo de Gobierno dentro de sus funciones, siempre que cumpla con los requisitos para el puesto y no perjudique la eficiencia y eficacia de ninguno de los dos órganos".
