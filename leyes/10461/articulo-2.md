@@ -1,0 +1,1 @@
+ARTÍCULO 2- Destino. El terreno donado por la Municipalidad de Pérez Zeledón, descrito en el artículo 1, tiene como finalidad la construcción de la sede regional del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
