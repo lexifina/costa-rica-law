@@ -15,3 +15,4 @@ Reforma Metodología para la Fijación Ordinaria de Tarifas para el Servicio Rem
 | --- | --- | --- |
 | 1 | 2018-05-03 | la propia norma |
 | 2 | 2018-07-23 | Resolución 96 (2018-07-23) |
+| 3 | 2024-04-26 | Resolución 24 (2024-04-26) |
