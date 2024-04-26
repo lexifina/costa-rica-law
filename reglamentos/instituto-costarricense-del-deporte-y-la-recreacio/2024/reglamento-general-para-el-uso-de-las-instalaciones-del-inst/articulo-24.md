@@ -1,0 +1,1 @@
+Artículo 24.-Revisión y actualización del reglamento. El ICODER a través de la Unidad de Administración y Mantenimiento de Instalaciones será el encargado de la revisión, actualización o modificación del presente Reglamento y será el Consejo Nacional del Deporte y la Recreación el Órgano que deberá aprobar la actualización o modificación de este.

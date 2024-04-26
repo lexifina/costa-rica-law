@@ -1,0 +1,1 @@
+Artículo 22.-El ICODER no proporcionará los servicios públicos, ni de vigilancia privada para la realización de ningún evento. Salvo así sea indicado y cuantificado en el permiso. Todo organizador deberá facilitarse su propia electricidad mediante una planta eléctrica, así como la contratación de la seguridad privada.

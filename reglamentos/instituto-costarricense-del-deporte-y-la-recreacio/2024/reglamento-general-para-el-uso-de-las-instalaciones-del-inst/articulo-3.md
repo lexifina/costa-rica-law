@@ -1,0 +1,1 @@
+Artículo 3º-Administración y responsabilidad. La administración de las instalaciones, estarán a cargo de la Departamento de Gestión de Instalaciones, a través de la Unidad de Administración y Mantenimiento de Instalaciones. Serán estas instancias del ICODER los responsables de cumplir y hacer cumplir las normas establecidas en el presente reglamento.

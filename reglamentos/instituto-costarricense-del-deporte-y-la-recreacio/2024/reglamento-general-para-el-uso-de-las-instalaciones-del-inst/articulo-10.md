@@ -1,0 +1,2 @@
+Artículo 10.-Prioridades de utilización de las Instalaciones Recreativas. Las actividades deportivas o recreativas organizadas por el ICODER tendrán prioridad sobre cualquier otra actividad programada en la misma fecha o periodo de tiempo.
+Para cualquier otro tipo de evento programado sea por ente público o empresa privada que coincida en fecha, horario y lugar, la prioridad se definirá primero en tiempo primero en derecho.

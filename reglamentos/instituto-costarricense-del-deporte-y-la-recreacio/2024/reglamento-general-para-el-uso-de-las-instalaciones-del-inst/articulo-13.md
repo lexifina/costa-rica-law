@@ -1,0 +1,18 @@
+CAPÍTULO VI
+Procedimiento para el arrendamiento
+de las instalaciones deportivas y/o recreativas
+para actividades de carácter no masivo
+Artículo 13.-Para poder arrendar de las instalaciones deportivas, la solicitud debe de realizarse por medio del formulario FGI-02 Solicitud de alquiler o arrendamiento, mismo que se encuentra en los anexos del presente reglamento, Anexo 1 o en la página web del ICODER. La Unidad de Administración y Mantenimiento de Instalaciones dispondrá de 5 días naturales para analizar la solicitud presentada y determinar si se rechaza o acepta la solicitud, ya sea por disponibilidad de espacio, fechas, o cualquier otra razón relevante.
+. El formulario FGI-02 Solicitud de alquiler o arrendamiento, debe de enviarse debidamente completo, al correo electrónico permisodeuso@icoder.go.cr
+. Documento que indique número de cédula y/o número de personería jurídica y responsable de la actividad, (teléfono, correo electrónico u otra información que permita la comunicación ágil).
+. Número de cédula de identidad del represente legal de la organización (para entidades jurídicas).
+. Indicar el tipo de servicio que se requiere, instalación y horario, incluyendo montaje o desmontaje.
+. El pago del monto estipulado por la actividad lo puede generar personalmente en la Tesorería Institucional o por medio de transferencia bancaria a la cuenta del ICODER que oportunamente se le indicará.
+. Deberá enviar por medio de correo, el comprobante de pago de la transferencia realizada a la cuenta bancaria del ICODER, la Unidad de Administración y Mantenimiento de instalaciones genera la boleta de pago y debe presentarla en Tesorería para que se le gire el comprobante de pago. Una vez realizado este trámite, se procederá a confeccionar el permiso de uso.
+. Es importante que el interesado haga este trámite porque en caso de existir una garantía de cumplimiento o contra daños, esta se hará efectiva con base en el número de comprobante de pago que emite el ICODER.
+. El jefe de la Unidad de Administración y Mantenimiento de Instalaciones remite el formulario Permiso Uso (debidamente firmado), al Administrador de la Instalación deportiva correspondiente. En el Permiso Uso, se le indicará al interesado las condiciones bajo las cuales se presta o alquila la instalación.
+. El Administrador de la Instalación envía por correo electrónico al solicitante, el Permiso Uso, firmado y aprobado por el coordinador de la Unidad de Administración y Mantenimiento de Instalaciones.
+. El interesado deberá portar siempre el Permiso Uso, el cual será su respaldo de que pago por el servicio y su medio para identificarse a la hora de ingresar a la instalación.
+El monto por cancelar para estos eventos serán las tarifas fijadas para el uso de instalaciones será de acuerdo con el último tarifario aprobado del ICODER (Ver Anexo 2), ya sea por un monto económico fijo, o en especie según lo defina la administración del ICODER. El mismo quedará reflejado en el permiso de uso respectivo. Cualquier otra actividad que no esté contemplada en la tabla de tarifas de uso de instalaciones será resuelta por la Dirección Nacional del ICODER.
+El ICODER se encargará de verificar Cédulas y Personerías Jurídicas, los permisos con el Ministerio de Salud, la Municipalidad (en caso de ser necesario), Fuerza Pública o privada, asistencia médica (Cruz Roja o cualquier otro centro de atención). Además, verificará que el solicitante esté al día con sus obligaciones con la CCSS y con el FODESAF.
+La vigencia del trámite depende de la gestión solicitada por el organizador y será de hasta 1 día natural posterior de finalizada la fecha en que se realizará el evento, previa autorización de la Unidad de Administración y Mantenimiento de Instalaciones.

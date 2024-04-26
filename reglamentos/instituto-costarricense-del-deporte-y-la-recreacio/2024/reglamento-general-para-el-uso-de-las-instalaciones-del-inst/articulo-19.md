@@ -1,0 +1,1 @@
+Artículo 19.-El ICODER no se responsabiliza por los daños materiales que sufra el equipo o mobiliario propiedad del encargado del evento o permisionario, siempre y cuando se determine que lo sucedido fue por negligencia del permisionario o que el mismo no se haya retirado del lugar inmediatamente después de terminado el evento.
