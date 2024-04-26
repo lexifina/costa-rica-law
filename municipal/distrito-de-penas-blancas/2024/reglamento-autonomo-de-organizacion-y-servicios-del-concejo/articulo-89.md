@@ -1,0 +1,2 @@
+Artículo 89. Incurrirá en falta grave el servidor que, con dolo o complacencia, dañe o altere los medios de control de asistencia previstos. Del mismo modo, incurrirá en falta grave aquella jefatura, coordinación o afines, que haga justificaciones complacientes en favor de sus colaboradores.
+Los empleados que dañen o alteren los medios de control de asistencia o que hagan justificaciones complacientes a favor de sus colaboradores, podrán ser objeto de acción disciplinaria, hasta la terminación del empleo.

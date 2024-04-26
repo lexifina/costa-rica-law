@@ -1,0 +1,1 @@
+Artículo 22. Permutas y traslados. Podrán realizarse permutas o traslados temporales o definitivos a clases comprendidas dentro de un mismo grupo ocupacional y entre clases de puestos de la misma categoría, siempre que medie un interés Institucional, no se afecte de manera directa el accionar normal de la dependencia y prive siempre el interés público municipal en el movimiento.

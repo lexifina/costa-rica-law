@@ -1,0 +1,1 @@
+Artículo 5. Corresponde y es facultad del Intendente o Intendenta Municipal interpretar y resolver las dudas que pudiesen surgir en relación con la aplicación de este reglamento, previa consulta al Departamento de Gestión Jurídica.

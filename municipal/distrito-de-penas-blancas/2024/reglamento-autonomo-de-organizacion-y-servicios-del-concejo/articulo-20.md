@@ -1,0 +1,1 @@
+Artículo 20. El Concejo Municipal podrá solicitar la colaboración técnica de la Unión Nacional de Gobiernos Locales, a la Dirección General del Servicio Civil, a otros Gobiernos Locales y a cualquier profesional con conocimientos en la materia para la preparación, administración y calificación de exámenes y pruebas específicas para la selección de personal.

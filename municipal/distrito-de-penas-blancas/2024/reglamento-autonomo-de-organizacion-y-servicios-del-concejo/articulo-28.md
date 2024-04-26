@@ -1,0 +1,2 @@
+Artículo 28. Los empleados municipales que sean contratados por tiempo indefinido estarán en un período de prueba de tres meses. Durante este tiempo, tanto el trabajador como el Municipio podrán terminar la relación laboral sin responsabilidad.
+La extinción de los contratos de trabajo por tiempo determinado o por obra determinada se regirá por las disposiciones específicas de la ley o por la extinción del contrato.

@@ -1,0 +1,1 @@
+Artículo 38. Dicho expediente debe contener todos aquellos datos y registros derivados de la relación de servicio en asuntos tales como: ausencias, evaluación del desempeño, aspectos disciplinarios, capacitación recibida, y calidades del funcionario o funcionaria.

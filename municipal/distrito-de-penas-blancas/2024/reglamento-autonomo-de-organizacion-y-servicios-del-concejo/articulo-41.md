@@ -1,0 +1,1 @@
+Artículo 41. Corresponde exclusivamente al Departamento de Recursos Humanos gestionar la separación del servidor público municipal de su puesto de trabajo y del Municipio, en cualquiera de las formas en que el servidor cesado haya sido contratado.

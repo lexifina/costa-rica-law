@@ -1,0 +1,1 @@
+Artículo 29. La prestación de servicios. Los servidores públicos municipales prestarán sus servicios contratados en cualquiera de las instalaciones que el Municipio posea o arriende, o en el lugar que señale la administración. Cada servidor público municipal ejecutará sus servicios de acuerdo con los términos de su contrato.

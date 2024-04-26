@@ -1,0 +1,1 @@
+Artículo 135. Los servidores municipales que previo a la entrada en vigencia de la Ley Marco de Empleo Público N° 10159, posean derecho a vacaciones superior al tope de veinte días hábiles, conservarán tal condición, pero esta no podrá aumentarse.

@@ -1,0 +1,1 @@
+Artículo 107. Procedimientos de informes. Si un funcionario municipal siente que está siendo víctima de acoso, puede comunicarlo a su superior, a un representante del Departamento de Recursos Humanos o a alguien en quien confíe. Asimismo, puede presentar la denuncia ante el Ministerio del Trabajo de Costa Rica.

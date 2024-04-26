@@ -1,0 +1,1 @@
+Artículo 110. Confidencialidad. El Municipio tomará todas las medidas necesarias para proteger la confidencialidad de los empleados que denuncien acoso laboral, con el objeto de que estos no teman a represalias u otras consecuencias negativas.

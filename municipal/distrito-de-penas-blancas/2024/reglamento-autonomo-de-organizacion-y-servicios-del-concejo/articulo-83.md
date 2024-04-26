@@ -1,0 +1,1 @@
+Artículo 83. El Municipio podrá modificar temporal o definitivamente los horarios establecidos en este reglamento, siempre que concurran causas justificadas para ello y no cause perjuicio grave a los servidores públicos municipales. Las causas justificadas pueden incluir los eventos fortuitos y fuerza mayor.

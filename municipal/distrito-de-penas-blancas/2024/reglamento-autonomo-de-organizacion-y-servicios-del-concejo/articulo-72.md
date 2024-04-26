@@ -1,0 +1,7 @@
+Artículo 72. Todos los funcionarios municipales deberán acatar y cumplir lo que les sea aplicable, en los términos de la Ley sobre Riesgos del Trabajo y Reglamento General de Riesgos del Trabajo, así como las normas de salud ocupacional que se dicten en el Municipio y las recomendaciones que, en esta materia, sean formulados por las autoridades competentes. Serán obligaciones del servidor, además de las señaladas en otras disposiciones de este Reglamento, las siguientes:
+1. Someterse a los exámenes médicos que establezca el reglamento de la Ley y ordenen las autoridades competentes, de cuyos resultados deberán ser informados.
+2. Colaborar y asistir a programas que busquen su capacitación en salud ocupacional, incluyendo capacitación sobre peligros específicos a los que pueden estar expuestos los servidores públicos en el lugar de trabajo.
+3. Participar en el desarrollo, planificación e implementación de programas de salud ocupacional en el lugar de trabajo.
+4. Utilizar, conservar y cuidar los equipos y elementos de protección personal y seguridad en el trabajo que se le proporcionen, y denunciar de inmediato cualquier defecto o daño en los mismos.
+5. No exponerse a riesgos laborales innecesarios o más allá de sus capacidades, habilidades, capacidades y funciones.
+Incurrir en el incumplimiento de cualquiera de estos deberes constituye falta grave, sancionable conforme a lo dispuesto en el Código Municipal, Código de Trabajo y este Reglamento.

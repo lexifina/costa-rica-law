@@ -1,0 +1,1 @@
+Artículo 108. Procedimientos de Investigación. El Municipio investigará todas las denuncias de acoso en el lugar de trabajo con prontitud e imparcialidad. La investigación será realizada por un tercero neutral y los resultados se mantendrán confidenciales.

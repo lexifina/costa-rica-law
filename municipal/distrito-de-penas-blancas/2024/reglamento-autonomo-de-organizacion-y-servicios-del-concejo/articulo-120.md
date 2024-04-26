@@ -1,0 +1,3 @@
+Artículo 120. Se prohíbe que los empleados municipales se presenten a trabajar bajo la influencia de bebidas alcohólicas o drogas enervantes.
+En caso de que algún funcionario incurra en este tipo de comportamiento, se podrán imponer las sanciones disciplinarias establecidas en el artículo anterior.
+La severidad de la sanción dependerá de las circunstancias del caso, tales como el nivel de intoxicación del empleado, el impacto de la intoxicación en el desempeño laboral del empleado y cualquier antecedente disciplinario previo. La prohibición disuadirá a los empleados de participar en este tipo de comportamiento y protegerá a otros empleados de los riesgos asociados con trabajar con un empleado intoxicado.

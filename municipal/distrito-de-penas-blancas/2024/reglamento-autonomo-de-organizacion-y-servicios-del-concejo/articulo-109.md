@@ -1,0 +1,1 @@
+Artículo 109. Acciones. Si la investigación determina que algún funcionario municipal ha sido acosado, el Concejo Municipal deberá tomar medidas disciplinarias contra el acosador, incluyendo la terminación del empleo.

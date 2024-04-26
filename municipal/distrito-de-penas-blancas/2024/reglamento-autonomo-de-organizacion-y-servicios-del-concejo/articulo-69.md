@@ -1,0 +1,1 @@
+Artículo 69. Todo funcionario del Concejo Municipal tendrá derecho a presentar las sugerencias y propuestas tendientes a mejorar las condiciones laborales a la Comisión de Salud Ocupacional, la cual deberá pronunciarse en el próximo mes calendario. Le corresponderá al encargado de Salud Ocupacional verificar que la sugerencia o propuestas sean debidamente atendidas.

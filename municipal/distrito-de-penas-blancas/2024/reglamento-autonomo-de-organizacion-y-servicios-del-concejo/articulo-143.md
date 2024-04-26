@@ -1,0 +1,8 @@
+Artículo 143. El Intendente, en su calidad de Administrador General del Gobierno Municipal, otorgará licencia extraordinaria con goce de sueldo en los casos debidamente calificados, cuando exista criterio debidamente fundamentado de un médico especialista de la CCSS, en el sentido de que la presencia del servidor público municipal sea indispensable o esencial para el tratamiento requerido por el familiar y no por otra persona que lo ayude con su tratamiento específico.
+Se define enfermedad grave o muerte como cualquier tipo de enfermedad o muerte que se considere una amenaza grave para la salud o la vida del familiar. Esto puede incluir cáncer, enfermedades cardíacas, derrames cerebrales y otras enfermedades graves.
+Para solicitar licencia extraordinaria con goce de sueldo por enfermedad grave o muerte de un familiar, el servidor público deberá presentar una solicitud por escrito al Departamento de Recursos Humanos, quien la trasladará de forma inmediata a la Intendencia. La solicitud debe incluir el motivo de la licencia, las fechas de la licencia, el nombre del familiar que está enfermo o fallecido y la información de contacto del médico que está tratando al familiar.
+El Departamento de Recursos Humanos revisará la solicitud y por escrito la trasladará a la Intendencia quien decidirá si concede la licencia. La decisión se basará en los siguientes factores:
+1. La naturaleza de la enfermedad o muerte.
+2. El tiempo necesario para que el servidor público se ausente del trabajo.
+3. La opinión del médico.
+El servidor público deberá presentar, posteriormente, la respectiva constancia de asistencia. Esta prueba puede incluir una copia de la nota del médico, un certificado de defunción o una carta del hospital donde el familiar está siendo tratado.

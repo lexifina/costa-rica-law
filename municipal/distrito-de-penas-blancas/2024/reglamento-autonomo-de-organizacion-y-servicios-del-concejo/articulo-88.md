@@ -1,0 +1,1 @@
+Artículo 88. Solo podrán dejar de marcar aquellos servidores públicos que estén autorizados por el Intendente o Intendenta Municipal o que no estén amparados por la convención colectiva. Los empleados que dejen de marcar sin autorización pueden estar sujetos a medidas disciplinarias, que pueden incluir el despido.

@@ -1,0 +1,2 @@
+Artículo 150. Para los efectos del artículo 67 del Código del Trabajo, este Reglamento deberá exhibirse permanentemente en por lo menos dos de los lugares más visibles del Municipio, de conformidad con lo dispuesto en el Reglamento de Información Pública del Municipio. Quedan derogadas todas las disposiciones de igual o inferior rango que se opongan al presente Reglamento.
+Rige a partir de su publicación. Peñas Blancas-San Ramón-Alajuela a las ___ horas del día ___ de febrero del año dos mil veinticuatro.

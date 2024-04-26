@@ -1,0 +1,1 @@
+Artículo 149. Este Reglamento se presumirá conocido por todos los empleados municipales y será de obligado cumplimiento para todos a partir del día de su entrada en vigor, incluidos los que en el futuro trabajarán para el Concejo Municipal de Distrito Peñas Blancas.

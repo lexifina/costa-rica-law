@@ -1,0 +1,5 @@
+Artículo 13. Procedimientos de llenado de vacantes. Cuando se produzca una vacante en un cargo municipal, se seguirán los siguientes procedimientos:
+I) Promoción: Será promovido el servidor público municipal que se encuentre en propiedad, inmediatamente inferior en grado del mismo proceso, subproceso, actividad o subactividad y que esté habilitado para el efecto.
+II) Concurso Interno: De no existir funcionario municipal capaz de cubrir el puesto vacante, el cargo se someterá a concurso interno. El concurso estará abierto a todos los empleados municipales que reúnan las condiciones para el puesto.
+Las plazas vacantes sometidas a concurso interno serán del conocimiento de las personas trabajadoras interesadas, por medio del Departamento de Recursos Humanos.
+III) Concurso Externo: De no haber interés de algún servidor público municipal en concursar por el puesto vacante, el Municipio podrá someterlo a concurso externo. El concurso estará abierto al público con las mismas condiciones del concurso interno.

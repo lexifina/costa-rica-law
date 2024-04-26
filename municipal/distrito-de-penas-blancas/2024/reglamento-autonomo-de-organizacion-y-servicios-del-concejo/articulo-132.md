@@ -1,0 +1,1 @@
+Artículo 132. De conformidad con lo dispuesto en la legislación vigente, los funcionarios públicos municipales en Costa Rica tienen derecho a una serie de vacaciones pagadas obligatorias. Si un servidor público municipal trabaja en un feriado pagado obligatorio, tiene derecho a que se le pague el doble de su salario regular.

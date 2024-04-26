@@ -1,0 +1,1 @@
+Artículo 77. El Concejo Municipal reconocerá, para los efectos de este capítulo, las incapacidades temporales para trabajar extendidas por la Caja Costarricense de Seguro Social (CCSS) y el Instituto Nacional de Seguros (INS).

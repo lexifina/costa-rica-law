@@ -1,0 +1,1 @@
+Artículo 40. Será deber del Departamento de Recursos Humanos promover la inducción al servidor municipal de nuevo ingreso por medio de la jefatura correspondiente, quien suministrará información relativa a su puesto de trabajo, las instalaciones del Concejo Municipal, responsabilidades, derechos, normativa Municipal a fin de lograr una identificación con la organización.

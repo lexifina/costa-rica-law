@@ -1,0 +1,2 @@
+Artículo 18. La selección de personal se hará por medio de pruebas de idoneidad y/o comprobación de atestados requeridos para el puesto. Solo serán admitidos los postulantes que cumplan con los requisitos para ser designados para el puesto de que se trate.
+La persona o personas que realicen la Sección de Reclutamiento y Selección de Personal podrán solicitar asesoría técnica a la unidad donde se encuentren los puestos vacantes para la elaboración y calificación de dichas pruebas. Los jefes de estas unidades están obligados a brindar dicha asesoría en tiempo y forma.

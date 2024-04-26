@@ -1,0 +1,1 @@
+Artículo 131. El carné o gafete de identificación que el empleado municipal será suministrado y sufragado por el Concejo Municipal en su condición de patrono, en caso de pérdida menor a un año, su costo por reposición correrá por cuenta de quién necesita la reposición del mismo.

@@ -1,0 +1,1 @@
+Artículo 76. En ningún caso, el monto del subsidio pagado por la respectiva institución de seguros, sumado al que paga el Concejo Municipal, por incapacidad temporal para trabajar por enfermedad, riesgo laboral o licencia por maternidad, no podrá exceder el monto del salario del servidor.

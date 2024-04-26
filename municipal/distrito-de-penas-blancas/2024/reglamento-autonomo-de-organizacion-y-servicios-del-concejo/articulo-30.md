@@ -1,0 +1,1 @@
+Artículo 30. El Departamento de Recursos Humanos será responsable de la conformación y mantenimiento del expediente personal de cada empleado municipal. El Departamento mantendrá actualizados los expedientes con los documentos aportados por los empleados, y protegerá la información confidencial contenida en los mismos.

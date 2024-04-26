@@ -1,0 +1,5 @@
+Artículo 127. La relación de servicio de un funcionario interino o de un funcionario designado por tiempo determinado o para obra determinada podrá extinguirse en las siguientes circunstancias:
+1. Expiración del término en que fue nombrado, o terminación de la obra para la cual fue contratado: La relación de servicio terminará automáticamente al vencimiento del término o terminación de la obra.
+2. Despido con o sin responsabilidad patronal: El funcionario puede ser despedido por el empleador por causas tales como falta grave, negligencia grave o insubordinación. El despido con responsabilidad patronal da derecho al funcionario a la indemnización y otros beneficios. El despido sin responsabilidad patronal no da derecho al funcionario a indemnización por despido u otros beneficios.
+3. Renuncia: El funcionario podrá dar por terminada voluntariamente su relación de servicio mediante la presentación de una renuncia por escrito.
+4. Muerte o invalidez total o permanente debidamente declarada: La relación de servicio del funcionario terminará por su muerte o si es declarado inválido total o permanente.

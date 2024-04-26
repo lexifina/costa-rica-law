@@ -1,0 +1,13 @@
+Artículo 123. El Intendente Municipal o Intendenta tiene la facultad de despedir a un servidor público municipal sin responsabilidad patronal si el servidor público comete alguna de las siguientes faltas graves:
+1. Apoderarse, copiar, destruir, inutilizar, facilitar, transferir o retener cualquier programa de cómputo y sus bases de datos utilizados por el Municipio en asuntos propios del servicio debidamente verificado.
+2. Dañar componentes, materiales, o aparatos, máquinas o accesorios que soporten la operación de los trámites municipales, y/o sistemas de cómputo diseñados para la operación de cualquiera de las dependencias del Municipio, para cualquier propósito.
+3. Facilitar el uso de la clave y la contraseña de acceso asignada para ingresar a la computadora, teléfono u otros sistemas del Municipio, para que otra persona pueda utilizarla en cualquier capacidad.
+4. Colaborar o facilitar directa o indirectamente, por acción u omisión de cualquier forma, el incumplimiento de la obligación de pago de los tributos municipales por parte de los contribuyentes.
+5. Ocultar o destruir información, libros de contabilidad, bienes, documentos, registros, sistemas y programas informáticos, medios magnéticos y otros medios de importancia para el Municipio, siempre que no estén inhabilitados para su uso.
+6. Revelar en cualquier forma o por cualquier medio el monto u origen de los impuestos, a menos que se expidan certificaciones a los contribuyentes, o cualquier otro dato que aparezca en las declaraciones, o permitir estas o sus copias, libros o documentos que contengan extractos o referencias a ellos, sean consultados por personas ajenas a aquellas a quienes la Administración Municipal ha encomendado el manejo de esa información.
+7. Hacer un registro de asistencia que no es suyo, conscientemente o pedirle a otro que registre su marca de asistencia.
+8. Cuando por dolo o negligencia permita o colabore en el pago de multas, impuestos, tasas o contribuciones que deban pagar los contribuyentes o empleados.
+9. Cuando deliberadamente, por negligencia o descuido inexcusable, varíen las cantidades que deban pagarse por concepto de multas, impuestos o tasas Municipales.
+10.Violar la confidencialidad en el procedimiento para casos de hostigamiento o acoso sexual.
+11. Suprimir información verdadera o dar información falsa al Municipio de San Ramón al momento de ingresar a trabajar en la Institución o presentar la información y certificados requeridos para ello.
+12.Cuando el funcionario incurra en cualquier otro incumplimiento grave de las obligaciones impuestas por el contrato o que deriven de la relación de trabajo.
