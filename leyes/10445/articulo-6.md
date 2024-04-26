@@ -1,0 +1,1 @@
+ARTÍCULO 6- Los funcionarios que reciban y aprueben el curso básico como requisito de ingreso a la Policía Judicial deberán prestar servicio en forma ininterrumpida en el Organismo por un período mínimo de tres años después de aprobado; de lo contrario, deberán retribuir el cien por ciento (100%) del costo total del curso.

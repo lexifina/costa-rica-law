@@ -1,0 +1,1 @@
+TRANSITORIO II- Hasta tanto no se cuente con una infraestructura e insumes propios para el desempeño de todas las funciones de capacitación, el Organismo de Investigación Judicial seguirá utilizando los bienes y activos de la Escuela Judicial del Poder Judicial.
