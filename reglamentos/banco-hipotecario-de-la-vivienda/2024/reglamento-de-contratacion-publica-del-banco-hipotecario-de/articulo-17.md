@@ -1,0 +1,2 @@
+Artículo 17. Formalización contractual. La formalización contractual se llevará a cabo en el sistema digital unificado, para lo cual deberá tomar en cuenta las respectivas resoluciones de la adjudicación y lo establecido en el pliego de condiciones. Salvo aquellas contrataciones que ya se hayan formalizado con un contrato principal, se podrá formalizar la contratación por medio del documento de Orden de Pedido.
+La Orden de Pedido deberá ser firmada por la Proveeduría Institucional, sin embargo, los contratos deberán ser firmados por el Gerente General.

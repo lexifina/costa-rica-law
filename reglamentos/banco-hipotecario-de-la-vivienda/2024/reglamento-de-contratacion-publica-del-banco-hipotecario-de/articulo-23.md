@@ -1,0 +1,1 @@
+Artículo 23. Gestión del pago. El Administrador del Contrato será el responsable de emitir la aprobación de informes y facturas necesarios para gestionar el pago oportuno de los bienes, servicios y obras recibidas a satisfacción haciendo uso del Sistema Digital Unificado en aplicación de lo indicado en la Ley General de Contratación Pública y su Reglamento.

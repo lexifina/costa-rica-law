@@ -1,0 +1,1 @@
+Artículo 36. Vigencia. El presente Reglamento fue aprobado por la Junta Directiva del BANHVI en el acuerdo número 1 de la sesión No. 08-2024, celebrada el día 31 de enero de 2024 y rige dos meses después de su publicación.

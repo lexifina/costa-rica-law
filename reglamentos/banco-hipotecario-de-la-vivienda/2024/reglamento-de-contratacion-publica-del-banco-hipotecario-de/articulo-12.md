@@ -1,0 +1,3 @@
+Artículo 12. Apertura de las ofertas Es responsabilidad de la Proveeduría Institucional realizar la apertura de las ofertas de todos los procedimientos de contratación.
+Por otra parte, y en caso de ser necesario, la Proveeduría Institucional será la responsable de dejar sin efecto un concurso antes de recibir ofertas, para lo cual esta debe emitir una resolución motivada, a partir de la solicitud correspondiente de la Unidad Solicitante o Técnica que haga referencia a las razones de interés público o institucional que así lo justifiquen.
+La Proveeduría Institucional será también responsable de tramitar la suspensión del plazo de recepción de ofertas en caso de la interposición de un recurso de objeción contra el pliego de condiciones.

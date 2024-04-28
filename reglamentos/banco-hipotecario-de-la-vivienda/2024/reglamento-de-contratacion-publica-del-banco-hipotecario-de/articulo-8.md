@@ -1,0 +1,3 @@
+Artículo 8. Contenido presupuestario. La Unidad Solicitante deberá gestionar la asignación presupuestaria respectiva, ante el Departamento Financiero Contable, en relación con los procesos de contratación que requiera. La Unidad Solicitante será responsable de que se emitan y se lleve el control de las reservas presupuestarias de cada contratación.
+En caso de no existir contenido presupuestario disponible para respaldar la contratación, se deberá seguir el procedimiento establecido para la asignación de los recursos presupuestarios.
+En cualquier caso, se deberán cumplir todas las condiciones previstas en el artículo 38 de la Ley General de Contratación Pública, Nº 9986 y en su Reglamento.

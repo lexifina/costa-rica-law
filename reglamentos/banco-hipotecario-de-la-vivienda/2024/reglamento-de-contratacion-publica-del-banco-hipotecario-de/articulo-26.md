@@ -1,0 +1,11 @@
+CAPÍTULO III
+DE LAS RESPONSABILIDADES DE LOS INVOLUCRADOS EN LOS PROCESOS DE
+CONTRATACIÓN
+Artículo 26. Responsabilidades generales de los participantes en los procesos de contratación. En el cumplimiento de sus funciones, todos los funcionarios, sin excepción, durante el proceso de contratación deberán:
+26.1. Velar por la adecuada aplicación e interpretación del ordenamiento jurídico aplicable para cada caso en particular
+26.2. Hacer uso del Sistema Digital Unificado para todas las comunicaciones relacionadas con los procesos de contratación tanto internas como externas, con el objetivo de mantener actualizado el expediente respectivo.
+26.3. Procurar el correcto uso de los fondos públicos y denunciando ante la autoridad competente cualquier actividad o situación contraria al correcto manejo de los recursos.
+26.4. Actuar en el ejercicio de sus funciones, con estricto apego al bloque de legalidad, al deber de probidad y mantener un actuar apegado a los más altos principios éticos como funcionarios públicos.
+26.5. Digitalizar e incluir como archivo en formato PDF o según lo disponga el pliego de condiciones de la contratación respectiva, en el módulo que corresponda, cualquier documento que no esté disponible en formato electrónico y que sea parte del procedimiento de una contratación.
+26.6. Todas las unidades de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden deben brindar la colaboración y asesoría que requiera la proveeduría institucional y en general para los procesos de contratación, para el debido cumplimiento de las obligaciones y atribuciones. Además, para el eficiente y eficaz cumplimiento de sus funciones, las dependencias u oficinas del BANHVI de tipo técnico, jurídico, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle la colaboración y asesoría que requiera la Proveeduría Institucional, para el debido cumplimiento de sus obligaciones y atribuciones.
+Además, para el eficiente y eficaz cumplimiento de sus funciones, las dependencias u oficinas del BANHVI de tipo técnico, jurídico, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle la colaboración y asesoría que requiera la Proveeduría Institucional, para el debido cumplimiento de sus obligaciones y atribuciones.
