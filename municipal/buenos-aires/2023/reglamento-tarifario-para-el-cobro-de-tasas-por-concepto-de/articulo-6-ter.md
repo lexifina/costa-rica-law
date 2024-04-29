@@ -1,0 +1,2 @@
+Artículo 6Ter: Cuando el sujeto pasivo sean organizaciones con atención a población vulnerable, pagarán una tarifa equivalente al 50% del importe que les aplique en cuento a los servicios que deban cancelar al Gobierno Local. Para la aplicación de dicha excepción, deberán demostrar su condición, con prueba contundente, cada caso se analizará de forma particular.
+(Así adicionado en sesión N° 208 del 29 de abril de 2024)

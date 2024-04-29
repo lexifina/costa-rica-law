@@ -1,0 +1,2 @@
+Artículo 6Bis: Cuando el sujeto pasivo sean personas físicas amparadas bajo la ley 7600, pagarán una tarifa equivalente al 50% del coste que les aplique en cuanto a los servicios que deban cancelar al Gobierno Local. Para la aplicación de dicha excepción, deberán demostrar con prueba fehaciente su discapacidad, cada caso se analizará de forma particular.
+(Así adicionado en sesión N° 208 del 29 de abril de 2024)

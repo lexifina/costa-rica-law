@@ -14,3 +14,4 @@ Reglamento tarifario para el cobro de tasas por concepto de prestación de los s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-18 | la propia norma |
+| 2 | 2024-04-29 | Reglamento municipal 208 (2024-04-29) |
