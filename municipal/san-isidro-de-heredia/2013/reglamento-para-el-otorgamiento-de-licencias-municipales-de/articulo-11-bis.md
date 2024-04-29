@@ -1,0 +1,11 @@
+Artículo 11 bis.-Para el otorgamiento de licencias constructivas para la instalación de postes en derecho de vía, el proyecto deberá ajustarse a los requisitos y parámetros dispuestos en el Reglamento de Construcciones del INVU para este tipo de infraestructura.
+La solicitud deberá ajustarse a los requisitos previstos en el presente reglamento, quedado exento este trámite en particular del cumplimiento de los requisitos previstos en el artículo 19 incisos b), c), e), f), g) y k).
+Adicionalmente se deberán cumplir los siguientes requisitos previos:
+1. Visto bueno de la Unidad Técnica de Gestión Vial a quien le corresponderá verificar que el poste no afecta infraestructura ya instalada en el sitio, como la de tuberías de agua potable, redes de electricidad, fibra óptica, aceras, entre otros, así como la verificación de que no se afectará la transitabilidad peatonal o vial en la zona, todo ello bajo criterios estrictamente técnicos.
+Para tales efectos, el interesado deberá presentar los planos constructivos elaborados por un profesional en la materia así como detallar mediante el sistema de coordenadas oficial nacional, la ubicación propuesta.
+En esta fase, el área técnica podrá modificar en conjunto con el interesado los puntos a intervenir.
+En caso de que la propuesta corresponda a un poste que se ubique a una distancia menor o igual de 200 metros lineales de otro poste de telecomunicaciones previamente autorizado, deberá probar el solicitante que el ya existente cuenta con la ocupación máxima de emplazamientos.
+Dicho dictamen deberá ser emitido en un plazo no mayor a quince días hábiles desde presentada la solicitud.
+2. Acuerdo del Concejo Municipal donde se apruebe la utilización del área pública. A partir del dictamen técnico que emita la Unidad Técnica de Gestión Vial, el Concejo Municipal autorizará el uso en precario, quedando sujeto al cumplimiento del resto de requisitos a revisarse por parte de la Dirección de Control Urbano.
+Por la utilización de estos espacios públicos, la empresa licenciataria deberá pagar el canon previsto en el procedimiento que al efecto se apruebe por parte del Ministerio de Hacienda.
+(Así adicionado en sesión N° 111 del 29 de abril de 2024)

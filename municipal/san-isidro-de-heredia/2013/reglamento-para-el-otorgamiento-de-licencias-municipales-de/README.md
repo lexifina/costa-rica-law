@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de licencias municipales de construcción y func
 | --- | --- | --- |
 | 1 | 2014-01-27 | la propia norma |
 | 2 | 2016-09-12 | Reglamento municipal 61 (2016-09-12) |
+| 3 | 2024-04-29 | Reglamento municipal 111 (2024-04-29) |

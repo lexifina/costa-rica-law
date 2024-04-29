@@ -1,2 +1,3 @@
-Artículo 10.—Se deberá mantener una franja del amortiguamiento dentro de la finca consolidada, alrededor de una torre de telecomunicaciones de al menos el quince por ciento (15%) de su altura, medido desde el borde más sobresaliente de la obra constructiva incluyendo las antenas que se le vayan a adherir.
-(Así reformado mediante acuerdo N° 979-2016 de la sesión N° 61-2016 del 12 de setiembre de 2016)
+Artículo 10.-Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser del 10% de la altura de la torre, medida desde el centro de su base.
+Cuando la instalación se pretenda ubicar en predios compartidos con otros usos, se deben respetar las disposiciones establecidas en el Capítulo XXII, artículo 401, sobre seguridad humana y de protección contra incendios del Reglamento de Construcciones del INVU.
+(Así reformado en sesión N° 111 del 29 de abril de 2024)
