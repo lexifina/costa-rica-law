@@ -1,0 +1,1 @@
+Artículo 44.-Préstamos: El Banco de acuerdo con sus posibilidades, podrá impulsar para sus servidores, programas de préstamos de vivienda, a través de los mecanismos que se definan para este fin de conformidad con la Ley del Sistema y sus reglamentos.

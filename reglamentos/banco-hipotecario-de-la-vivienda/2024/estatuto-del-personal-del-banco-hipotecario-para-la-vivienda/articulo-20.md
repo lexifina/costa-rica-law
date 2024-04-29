@@ -1,0 +1,1 @@
+Artículo 20.-Jornada Especial: Para los puestos de Gerente, Subgerentes, Auditor y Subauditor, directores, jefes de Departamento, funcionarios de confianza y encargados de unidad, regirá la jornada prevista por el artículo 143 del Código de Trabajo.

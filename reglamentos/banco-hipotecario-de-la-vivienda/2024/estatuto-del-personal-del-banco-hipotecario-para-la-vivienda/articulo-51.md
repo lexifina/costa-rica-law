@@ -1,0 +1,2 @@
+Artículo 51.-Llamadas de atención: El servidor podrá ser objeto de una llamada de atención por escrito, con copia al expediente personal, cuando a criterio de la jefatura incumpla con las obligaciones, funciones, asignaciones, tareas y otras que le sean asignadas con motivo de su puesto. Lo anterior, sin perjuicio de que la falta cometida de mérito a una sanción mayor.
+Esta llamada de atención lo que pretende es advertir a quien ha cometido una falta que debe corregirse en beneficio de que se mantenga el orden y la disciplina en el Banco.

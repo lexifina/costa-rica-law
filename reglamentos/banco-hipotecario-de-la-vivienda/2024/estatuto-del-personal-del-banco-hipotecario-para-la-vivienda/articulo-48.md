@@ -1,0 +1,2 @@
+Artículo 48.-De las ausencias: El servidor deberá comunicar a su jefe inmediato por cualquier medio rápido, dentro de lo posible antes de inicio de la correspondiente jornada de trabajo, la imposibilidad en que está de asistir al trabajo. Las ausencias deberán justificarse por escrito, a más tardar dentro de los tres días hábiles siguientes a su reincorporación al trabajo.
+Las ausencias por enfermedad deberán justificarse ante la jefatura inmediata por medio de certificado médico de la CCSS y si es privado el certificado debe ser validado por el médico de empresa.

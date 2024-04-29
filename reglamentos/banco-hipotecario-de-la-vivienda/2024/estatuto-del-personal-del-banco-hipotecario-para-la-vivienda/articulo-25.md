@@ -1,0 +1,4 @@
+Artículo 25.-Aumentos por antigüedad: Los servidores tendrán derecho a aumentos anuales por antigüedad, siempre que alcancen los resultados que así lo acrediten en la evaluación del desempeño de cada año. El monto que se reconocerá por concepto de anualidad será de:
+a) 2% sobre el salario base al momento del reconocimiento de la anualidad respectiva.
+b) 1.5% sobre el salario base al momento del reconocimiento de la anualidad respectiva, para años completos cumplidos en otras instituciones del estado.
+No aplicará el reconocimiento de aumentos anuales para los puestos de Gerente y Sugerentes, toda vez que su remuneración salarial se determina mediante una metodología distinta a la del resto del personal del Banco, la cual será determinada expresamente por la Junta Directiva estableciendo un monto básico mensual al cual sí se le agregará el aumento de costo de vida que periódicamente se determine para todo el personal del Banco.

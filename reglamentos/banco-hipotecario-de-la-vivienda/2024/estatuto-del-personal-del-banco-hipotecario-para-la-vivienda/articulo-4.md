@@ -1,0 +1,1 @@
+Artículo 4°-Otras Normas Aplicables: Para los asuntos que no puedan ser resueltos con las presentes normas, se aplicarán en forma supletoria por su orden las leyes de derecho público, sus principios y la legislación laboral.

@@ -1,0 +1,1 @@
+Artículo 8°-Rendimiento: Para asegurar el óptimo rendimiento del personal y la mayor eficiencia en el desempeño de sus tareas, la Administración podrá emplear todos los medios disponibles que requiera, promoviendo la capacitación y actualización de conocimientos, incentivando la creatividad y propiciando un buen ambiente de trabajo.

@@ -1,0 +1,4 @@
+Artículo 53.-Procedimiento: La aplicación de las sanciones citadas en el artículo 50 del presente Estatuto, será hará de la siguiente manera:
+a) La contemplada en el inciso a) se hará en forma directa por la jefatura.
+b) La sanción señalada en el inciso b, será en forma directa por la jefatura atendiendo el debido proceso ahí citado o como producto de un procedimiento administrativo disciplinario, atendiendo los dispuesto en el Libro Segundo de la Ley General de la Administración Pública.
+c) Si se fuera a imponer alguna de las sanciones contempladas en los incisos c) y d) de dicho artículo, el Banco igualmente observará los procedimientos establecidos en el Libro Segundo de la Ley General de la Administración Pública, salvo que el servidor acepte los hechos imputados dentro del respectivo expediente.

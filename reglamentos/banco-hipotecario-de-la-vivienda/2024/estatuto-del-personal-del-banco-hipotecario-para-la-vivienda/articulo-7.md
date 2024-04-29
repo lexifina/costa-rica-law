@@ -1,0 +1,1 @@
+Artículo 7°-Responsabilidad: De conformidad con lo dispuesto en la Ley del Sistema Financiero Nacional para la Vivienda (LSFNV), corresponderá al Gerente General la administración general del personal del Banco, correspondiendo a cada jefatura o encargado de área, la planificación y supervisión directa del personal a su cargo.

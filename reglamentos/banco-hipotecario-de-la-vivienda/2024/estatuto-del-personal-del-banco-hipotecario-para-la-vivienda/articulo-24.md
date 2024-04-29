@@ -1,0 +1,2 @@
+Artículo 24.-Traslado horizontal: Los traslados y reubicaciones de los servidores que jerárquicamente dependen de la Gerencia General, - a cualquier otra dependencia del Banco -podrán ser acordados unilateralmente por el Gerente General, siempre y cuando no afecte los derechos adquiridos del funcionario y en general no implique un abuso del ius variandi.
+En el caso de los servidores de la auditoría interna-con excepción de Auditor y Subauditor, de conformidad con la Ley de Control Interno, deberá además contarse con la autorización del Auditor Interno.

@@ -1,0 +1,1 @@
+Artículo 3°-Aplicación del Estatuto: La Oficina de Recursos Humanos de la Dirección Administrativa será la responsable del trámite de todos los asuntos relacionados con este Estatuto. Por razones de funcionalidad, podrá delegarse en otras dependencias parte de esa labor.

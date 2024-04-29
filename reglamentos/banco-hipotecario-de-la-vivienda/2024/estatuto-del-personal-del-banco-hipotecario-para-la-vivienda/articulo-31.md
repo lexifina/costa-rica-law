@@ -1,0 +1,2 @@
+Artículo 31.-Disfrute de las vacaciones: Los servidores del Banco deberán gozar sin interrupciones de su período de vacaciones. Previo acuerdo con su superior inmediato, podrán fraccionar las vacaciones tomando en consideración el mutuo interés del servidor y de la institución.
+El jefe inmediato dispondrá la época en que cada servidor disfrutará de sus vacaciones procurando hacerlo dentro de las quince semanas posteriores al día en que se cumpla el derecho a disfrutarlas.
