@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas estudiantiles provenientes del impuesto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-15 | la propia norma |
+| 2 | 2024-04-29 | Reglamento municipal 202 (2024-04-29) |
