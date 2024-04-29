@@ -1,1 +1,0 @@
-Artículo 24.—De la Asesoría Legal. La Unidad de Asesoría Legal del INAMU, brindará asesoría y asistencia a las personas funcionarias que, en razón de las actividades desplegadas en el presente reglamento, requieran su asistencia en audiencias judiciales o diligencias administrativas.

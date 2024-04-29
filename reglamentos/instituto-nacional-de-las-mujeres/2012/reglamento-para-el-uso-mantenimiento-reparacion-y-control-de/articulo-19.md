@@ -1,1 +1,0 @@
-Artículo 19.—Póliza para los vehículos. Todos los vehículos propiedad del INAMU estarán cubiertos por una póliza de seguros contra todo riesgo, la cual será contratada con el Instituto Nacional de Seguros.

@@ -1,1 +1,0 @@
-Artículo 26.—Del Préstamo de Vehículos. A criterio de la Presidenta Ejecutiva, previo informe técnico y legal, los vehículos del INAMU, podrán ser prestados a otras Instituciones Públicas, siempre y cuando medie convenio interinstitucional de interés mutuo y que signifique un beneficio al quehacer de la Institución.

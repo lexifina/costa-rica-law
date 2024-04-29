@@ -1,1 +1,0 @@
-Artículo 20.—De la forma y modo de interpretar e integrar esta reglamentación: para los efectos de interpretar e integrar la presente reglamentación, se estará a lo que dispongan la Ley de Tránsito y su Reglamento, la Ley General de la Administración Pública, los Principios Generales del Derecho Público y en su defecto al Derecho Privado y sus Principios.

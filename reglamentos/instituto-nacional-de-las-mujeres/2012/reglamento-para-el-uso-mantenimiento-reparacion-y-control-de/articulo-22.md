@@ -1,2 +1,0 @@
-Artículo 22.—De la circulación de vehículos institucionales fuera del país. Bajo circunstancias extraordinarias en que se requiera que un vehículo institucional circule fuera del territorio nacional, deberá existir autorización escrita de la Presidenta Ejecutiva. En estos casos se designará una persona funcionaria responsable de la utilización del vehículo.
-Corresponderá al Área de Servicios Generales y Transportes gestionar ante los organismos competentes los permisos de salida del país de los vehículos institucionales así como de las coberturas de seguros que correspondan.
