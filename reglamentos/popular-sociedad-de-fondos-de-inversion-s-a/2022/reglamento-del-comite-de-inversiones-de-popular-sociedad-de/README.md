@@ -14,3 +14,4 @@ Reglamento del comité de inversiones de Popular Sociedad de Fondos de Inversió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-15 | la propia norma |
+| 2 | 2024-04-29 | Reglamento 679 (2024-04-29) |
