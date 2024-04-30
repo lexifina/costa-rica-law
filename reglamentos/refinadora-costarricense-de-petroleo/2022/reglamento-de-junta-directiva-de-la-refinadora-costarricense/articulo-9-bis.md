@@ -1,0 +1,2 @@
+Artículo 9 bis.—De las vacancias. En caso de que uno de los puestos de la Junta Directiva esté vacante, sea por renuncia, destitución o muerte de su titular, o por cualquier otro motivo, se considerará que la Junta Directiva no está integrada y, por consiguiente, no podrá sesionar de forma ordinaria ni extraordinaria; salvo en casos excepcionales donde deba sesionar como órgano de hecho, para conocer asuntos necesarios y apremiantes para garantizar la continuidad del servicio público que presta RECOPE.
+(Así adicionado mediante sesión N° 5405-103 del 30 de abril de 2024)
