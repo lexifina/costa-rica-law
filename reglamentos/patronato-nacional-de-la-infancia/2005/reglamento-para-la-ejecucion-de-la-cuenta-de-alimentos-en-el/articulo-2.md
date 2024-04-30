@@ -1,1 +1,0 @@
-Artículo 2º—Del uso de la Cuenta de Alimentos. Pueden hacer uso de la Cuenta de Alimentos, siempre que sea en forma moderada y razonable, los ejecutores presupuestarios, para: Juntas de Protección a la Niñez y la Adolescencia, Junta Directiva, Presidencia Ejecutiva, Gerencias y Auditoría Interna.

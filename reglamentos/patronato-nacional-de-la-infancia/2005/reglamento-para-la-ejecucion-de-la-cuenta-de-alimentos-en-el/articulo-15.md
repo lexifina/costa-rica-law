@@ -1,1 +1,0 @@
-Artículo 15.—Prohibiciones. Queda totalmente prohibido hacer uso de los recursos asignados en la Cuenta de Alimentos para cubrir necesidades de alimentos de los funcionarios institucionales, salvo para las actividades reguladas en el presente Reglamento.

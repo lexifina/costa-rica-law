@@ -1,1 +1,0 @@
-Artículo 5º—Apertura de Cuenta Corriente. Se autoriza la apertura de una cuenta corriente por Región u Oficina Local, según convenga al servicio, donde se depositarán mensualmente los recursos financieros destinados a la adquisición de los alimentos.

@@ -1,4 +1,0 @@
-CAPÍTULO III
-De los responsables de la administración
-de la cuenta de alimentos
-Artículo 7º—De los responsables de la Administración de la cuenta de Alimentos. Los responsables de la administración de la cuenta de alimentos deben presentar con la liquidación, las facturas canceladas y demás justificantes de las compras efectuadas en el mes. De la presentación y aprobación de la liquidación dependen los giros de recursos subsiguientes.
