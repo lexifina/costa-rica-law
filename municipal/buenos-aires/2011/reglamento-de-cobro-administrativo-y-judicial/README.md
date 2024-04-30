@@ -14,3 +14,4 @@ Reglamento de Cobro Administrativo y Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-27 | la propia norma |
+| 2 | 2024-04-30 | Reglamento municipal 77 (2024-04-30) |
