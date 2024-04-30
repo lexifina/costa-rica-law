@@ -1,2 +1,1 @@
-Artículo 54.- El no pago del impuesto correspondiente, faculta a la imposición de una multa igual a diez veces el monto dejado de pagar. Para determinar este monto, se realizará una estimación del impuesto no pagado, la que servirá de base para el cálculo de la multa respectiva.
-Cuando no se cumpla con el pago del impuesto y la multa determinada, se procederá en forma inmediata y sin más trámite a la cancelación de la licencia de espectáculo público y el traslado de la deuda determinada a cobro judicial.
+Artículo 54.- (Derogado por el artículo 28 del Reglamento de espectáculos públicos de la Municipalidad de Curridabat, aprobado mediante sesión N° 209-2024 del 30 de abril de 2024)
