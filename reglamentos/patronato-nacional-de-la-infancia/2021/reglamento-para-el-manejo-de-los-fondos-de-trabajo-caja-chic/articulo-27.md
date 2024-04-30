@@ -1,1 +1,0 @@
-Artículo 27.—Aprobación de transferencias electrónicas. En caso de que los pagos se realicen mediante transferencias electrónicas u otros medios electrónicos, deberán tener las aprobaciones de los funcionarios autorizados. La aprobación de la transferencia deberá ser confeccionada por el funcionario a quien se le haya delegado esa función por parte del Director Regional.

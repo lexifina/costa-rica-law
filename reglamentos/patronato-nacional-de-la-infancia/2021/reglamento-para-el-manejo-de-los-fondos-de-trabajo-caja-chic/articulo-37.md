@@ -1,1 +1,0 @@
-Artículo 37.—Responsabilidad por pagos improcedentes. Si por negligencia se incurre en pagos improcedentes, el responsable de la compra deberá reintegrar el monto erogado, en un plazo no mayor a 5 días hábiles. Este monto será considerado como faltante.

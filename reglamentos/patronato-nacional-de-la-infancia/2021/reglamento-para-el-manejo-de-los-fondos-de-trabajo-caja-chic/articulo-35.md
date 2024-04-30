@@ -1,2 +1,0 @@
-Artículo 35.—Componentes de las Cajas Chicas Auxiliares. Todo desembolso deberá estar debidamente respaldado por factura electrónica, factura comercial, tiquete de caja u otro tipo de comprobante y cumplir con lo establecido en los artículos 18, 19 y 20 de este Reglamento.
-Además, estarán compuestas por efectivo en moneda nacional, transferencias sobre reintegros y sus comprobantes y saldos al día de las tarjetas de débito.

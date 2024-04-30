@@ -1,3 +1,0 @@
-Artículo 26.—Medios de pago. Todos los pagos que se hagan mediante el Fondo deberán efectuarse por medio de transferencia electrónica u otro medio oficialmente establecido, en el tanto se disponga por parte del Administrador del Fondo de la respectiva liquidez.
-En el caso de las Cajas Chicas, se podrá utilizar tarjeta de débito, efectivo u otro medio que establezca la Administración.
-Se prohíbe el uso de tarjetas de crédito, tarjetas de acumulación de puntos, descuentos, cliente frecuente, a nombre de los funcionarios, cuando realicen una adquisición a nombre del Patronato Nacional de la Infancia.

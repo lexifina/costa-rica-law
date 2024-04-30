@@ -1,1 +1,0 @@
-Artículo 38.—Prohibición de realizar transacciones con las Cajas Chicas Auxiliares. Los recursos monetarios de las Cajas Chicas Auxiliares no deberán utilizarse para realizar cambios de cheques, cambios de dinero de otras denominaciones, préstamos, gastos personales o improcedentes, no estipulados en este Reglamento.

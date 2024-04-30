@@ -1,1 +1,0 @@
-Artículo 40.—Responsabilidad de la liquidación de las Cajas Chicas Auxiliares. Los responsables de las Cajas Chicas Auxiliares son los encargados de autorizar las liquidaciones y solicitar el respectivo reintegro en el momento que consideren más oportuno, con el fin de mantener la liquidez de efectivo requerida.

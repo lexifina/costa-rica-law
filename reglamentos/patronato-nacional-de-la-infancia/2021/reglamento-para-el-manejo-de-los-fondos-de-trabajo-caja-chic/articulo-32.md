@@ -1,3 +1,0 @@
-Artículo 32.—Responsables del manejo de las Cajas Chicas Auxiliares. El responsable de la Cajas Chicas Auxiliar, será el funcionario que designe el Director Regional y/o la Jefatura de la Dependencia Descentralizada. Para ello se levantará un acta de entrega de los recursos que se manejarán en la Caja Chica Auxiliar.
-El responsable de la Caja Chica Auxiliar de una Dependencia Descentralizada, podrá delegar la administración de la caja a un funcionario al cual se denominará encargado de la Caja Chica, pero la responsabilidad será indelegable.
-El libro auxiliar de la Caja Chica podrá ser solicitado en cualquier momento para su revisión por parte del Responsable, Administrador del Fondo, o cualquier otra instancia fiscalizadora.

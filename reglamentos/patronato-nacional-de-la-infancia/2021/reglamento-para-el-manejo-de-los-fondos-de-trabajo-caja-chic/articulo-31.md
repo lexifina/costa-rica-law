@@ -1,1 +1,0 @@
-Artículo 31.—Montos máximos de pago. Para el caso de la Caja Chica Central el límite lo establece la Gerencia de Administración. Para el caso de las Cajas Chicas descentralizadas, el monto no deberá superar el treinta por ciento del total de recursos económicos asignados.
