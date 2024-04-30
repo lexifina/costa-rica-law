@@ -1,0 +1,1 @@
+Artículo 9.- Derogatorias. Se deroga el inciso e) del artículo 8, y los transitorios I, II, III y IV del Decreto Ejecutivo N°26906 -MEP del 13 de abril de 1998, denominado Política y Normativa de los Programas de Educación Abierta, publicado en la Gaceta N°96 del 20 de mayo de 1998.

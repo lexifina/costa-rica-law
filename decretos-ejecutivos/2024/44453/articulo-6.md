@@ -1,0 +1,3 @@
+Artículo 6.- Adiciónese el artículo 7 ter al Decreto Ejecutivo N°26906 -MEP de fecha 13 de abril de 1998, denominado Política y Normativa de los Programas de Educación Abierta, publicado en la Gaceta N°96 del 20 de mayo de 1998, cuyo texto en adelante dirá:
+Artículo 7° ter- En el Bachillerato de Educación Diversificada a Distancia, el postulante obtiene la promoción del décimo año, con la aprobación de la totalidad de las Pruebas 1, así mismo, el postulante obtiene la promoción del undécimo año con la aprobación de la totalidad de las Pruebas 2.
+El postulante que obtenga la promoción del décimo año puede cursar el undécimo año en el sistema educativo formal, o bien continuar en la educación abierta a través de la matrícula de las Pruebas 2.

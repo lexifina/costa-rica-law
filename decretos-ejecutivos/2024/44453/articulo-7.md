@@ -1,0 +1,2 @@
+Artículo 7.- Adiciónese el artículo 10 bis al Decreto Ejecutivo N°26906 -MEP de fecha 13 de abril de 1998, denominado Política y Normativa de los Programas de Educación Abierta, publicado en la Gaceta N°96 del 20 de mayo de 1998, cuyo texto en adelante dirá:
+Artículo 10 bis- El Ministerio de Educación Pública se encuentra facultado para realizar la aplicación de las pruebas nacionales de la educación abierta en dos formatos: digital (en línea y fuera de línea) y/o físico, de acuerdo con la normativa vigente y las disposiciones que al efecto emita la DGEC.
