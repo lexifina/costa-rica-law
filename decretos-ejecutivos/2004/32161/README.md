@@ -18,3 +18,4 @@ Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio
 | 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
 | 4 | 2016-01-18 | Decreto Ejecutivo 39472 (2016-01-18) |
 | 5 | 2022-03-09 | Decreto Ejecutivo 43432 (2022-03-09) |
+| 6 | 2024-05-02 | Decreto Ejecutivo 44509 (2024-05-02) |
