@@ -16,3 +16,4 @@ Registro de Productos Alimenticios y Fórmulas Infantiles, de acuerdo a la Ley G
 | 1 | 2002-01-28 | la propia norma |
 | 2 | 2003-02-17 | Decreto Ejecutivo 31193 (2003-02-17) |
 | 3 | 2005-06-10 | Decreto Ejecutivo 32468 (2005-06-10) |
+| 4 | 2024-05-02 | Decreto Ejecutivo 44499 (2024-05-02) |
