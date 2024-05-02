@@ -1,5 +1,6 @@
 ARTÍCULO 2.- Son atribuciones de la Junta de Desarrollo Regional de la Zona Sur (Judesur) las siguientes:
-a) Promover de manera planificada y eficiente el desarrollo regional sostenible e integral de los cantones de Golfito, Corredores, Buenos Aires, Osa y Coto Brus, por medio del financiamiento reembolsable y no reembolsable de proyectos productivos, sociales y ambientales.
+a) Promover de manera planificada y eficiente el desarrollo regional sostenible e integral de los cantones de Golfito, Corredores, Buenos Aires, Osa, Coto Brus y Puerto Jiménez, por medio del financiamiento reembolsable y no reembolsable de proyectos productivos, sociales y ambientales.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley para incorporar la representación del Cantón de Puerto Jiménez en JUDESUR, N° 10448 del 2 de mayo de 2024)
 Lo anterior, mediante la elaboración y la ejecución del Plan Estratégico Institucional de Judesur.
 b) Apoyar estrategias de regionalización en el desarrollo de proyectos dirigidos a dinamizar la economía y el desarrollo de la zona sur.
 c) La administración, la operación, la promoción, el mantenimiento y la gestión del giro comercial del Depósito Libre Comercial de Golfito.
