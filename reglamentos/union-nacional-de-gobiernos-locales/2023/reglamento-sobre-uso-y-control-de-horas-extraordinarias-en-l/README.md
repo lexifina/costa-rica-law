@@ -14,3 +14,4 @@ Reglamento sobre uso y control de horas extraordinarias en la Unión Nacional de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-20 | la propia norma |
+| 2 | 2024-05-02 | Reglamento municipal 12 (2024-05-02) |
