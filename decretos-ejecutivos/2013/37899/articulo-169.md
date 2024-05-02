@@ -2,8 +2,9 @@ Artículo 169. Sobre la comprobación de la solvencia económica y la rendición
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
 Esta declaración jurada deberá contener el procedimiento a seguir por la tiquetera para la devolución del dinero en el caso que el espectáculo público no llegare a realizarse en los términos ofrecidos o pactados en cumplimiento de lo dispuesto en el numeral 140(*) del presente Reglamento. De no comprobarse la solvencia económica en los términos definidos en el presente artículo, el organizador deberá rendir una garantía o caución del cien por ciento (100%) del valor nominal de todos los boletos a comercializar de acuerdo con el plan.
 (*) (Nota de Sinalevi: Léase artículo 82.)
-Para los casos en que se compruebe la solvencia mediante la retención del cien por ciento (100%) de los montos pagados por la venta del espectáculo público, el organizador o promotor del evento, la boletería, las empresas adquirentes de tarjetas de crédito y débito, la entidad bancaria sujeta a supervisión prudencial no podrán estar relacionadas entre sí o constituir un grupo de interés económico.
+Para los casos en que se compruebe la solvencia mediante la retención del cien por ciento (100%) de los montos pagados por la venta del evento o espectáculo público, el organizador o promotor del evento no podrá estar relacionado entre sí o constituir un grupo de interés económico con la boletería, las empresas adquirentes de tarjetas de crédito y débito y la entidad bancaria sujeta a supervisión prudencial.
 (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44400 del 26 de febrero del 2024)
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44480 del 2 de mayo de 2024)
 En caso de que el organizador o promotor solicitante no realice la venta de entradas a través de una tiquetera o plataforma de venta registrada, deberá rendir una caución del cien por ciento (100).
 En todo caso la garantía deberá rendirse conforme al artículo 232(*) del presente Reglamento.
 (*) (Nota de Sinalevi: Léase artículo 168.)
