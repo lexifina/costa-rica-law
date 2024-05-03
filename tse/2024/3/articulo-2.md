@@ -1,0 +1,1 @@
+Artículo 2º-Se derogan los artículos 4, 5, 7, 8, 10 incisos c), d), e), f) y g), 14, 15, 16, 17, 18, 19, 20, 21, 22, 23, 33, 37, 38 del Reglamento para el Régimen de Carrera Profesional, publicado en La Gaceta N° 210 del 29 de octubre de 1999.

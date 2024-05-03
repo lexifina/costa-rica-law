@@ -1,0 +1,6 @@
+Artículo 3º-Se adicionan los siguientes transitorios, a fin de que se lean de la siguiente manera:
+"Transitorio I.-Las solicitudes de carrera profesional pendientes de resolver que se presentaron de previo a la entrada en vigencia la ley N° 9635, se valorarán y atenderán conforme a los parámetros de la normativa anterior.
+Las gestiones que se presenten una vez publicada esta reforma reglamentaria se atenderán conforme a los parámetros de la ley Nº 9635, el Decreto N° 41564MIDEPLAN-H y lo dispuesto en este mismo cuerpo normativo.
+Transitorio II.-La Comisión de Carrera Profesional mantendrá sus funciones hasta que se resuelvan las solicitudes presentadas antes de entrar en vigor la presente modificación.
+Una vez atendidos esos pendientes, se informará al Tribunal Supremo de Elecciones para que se disponga la disolución de esa comisión.
+Transitorio III.-Las personas funcionarias mantendrán el pago de los puntos obtenidos antes de la vigencia de la Ley N° 9635, según los parámetros que rigieron hasta el 3 de diciembre de 2018; sin embargo, a partir del 4 de diciembre de 2018 todos los factores se asignarán conforme lo señala dicha ley, su reglamento y el presente instrumento normativo".
