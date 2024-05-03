@@ -15,3 +15,4 @@ Disposiciones administrativas relativas a los trámites de inscripción, renovac
 | --- | --- | --- |
 | 1 | 2023-12-05 | la propia norma |
 | 2 | 2024-01-15 | Resolución 188 (2024-01-15) |
+| 3 | 2024-05-03 | Directriz 2326 (2024-05-03) |

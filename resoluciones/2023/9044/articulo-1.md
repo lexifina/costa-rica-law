@@ -31,6 +31,7 @@ Noviembre 2023
 Diciembre de 2023
 Enero de 2024
 Febrero de 2024 (Así adicionado el plazo anterior mediante resolución N° MS-DM-188-2024 del 15 de enero del 2024) | 30 de junio de 2024 (Así adicionado el plazo anterior mediante resolución N° MS-DM-188-2024 del 15 de enero del 2024)
+(Nota de Sinalevi: Mediante directriz N° MS-DM-2326-2024 del 3 de mayo del 2024 se prorroga la vigencia de los registros sanitarios de medicamentos, equipo y material biomédico y plaguicidas de uso doméstico y profesional que vencen entre el 1 de marzo de 2024 y el 31 de diciembre de 2024 por un período de 06 meses)
 2°-Ingreso de inscripciones. Las inscripciones de los productos de interés sanitario, señalados en el punto primero de esta resolución, se deben tramitar únicamente por medio de la plataforma Regístrelo 1.0.
 3°-Trámites con plazo vencido. Los trámites para los cuáles vencía el plazo otorgado, para cumplir con la prevención entre el 6 de noviembre y el 30 de noviembre del 2023, de oficio se ampliará el plazo de respuesta concedido inicialmente, por 10 días hábiles, para que los interesados puedan dar respuesta a las prevenciones.
 4°-Trámites presentados en físico. Los trámites de inscripción que se presentaron por primera vez, por medios alternativos, conforme a lo establecido en la Resolución Ministerial DM-8825-2023 de los catorce días del mes de noviembre de dos mil veintitrés, una vez restablecida la Plataforma Regístrelo deberán ingresarlos a la misma, para la emisión del certificado de registro sanitario correspondiente.
