@@ -14,3 +14,4 @@ Deroga Autoriza un aumento general al salario base de todas las categorías del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-12 | la propia norma |
+| 2 | 2024-05-03 | Decreto Ejecutivo 44459 (2024-05-03) |
