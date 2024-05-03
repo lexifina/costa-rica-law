@@ -1,3 +1,2 @@
-Sección IV
-De la Abstención y Recusación
-Artículo 33°-Serán motivos de abstención para las personas integrantes de la Junta Directiva los mismos de impedimento y recusación que se establecen en el artículo 12 del Código Procesal Civil y las prohibiciones establecidas para los efectos en la Ley de Contratación Administrativa.
+Artículo 33°-Durante el transcurso de la sesión, el o la Presidente(a) de la Junta dispondrá discrecionalmente sobre lo relativo al uso de la palabra, tanto en lo referente al orden en que se conceda como número máximo de expositores que convenga para que el asunto quede suficientemente discutido, así como a la duración de las intervenciones.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 23 al 33)

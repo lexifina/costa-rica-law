@@ -1,3 +1,4 @@
-Sección III
-De la Evaluación de Desempeño de las personas integrantes de la Junta Directiva
-Artículo 13° - De conformidad con lo establecido en la Directriz 039-M11 "Política general para el establecimiento de una evaluación del desempeño en las Juntas Directivas u órganos de dirección de las empresas propiedad del Estado y de Instituciones Autónomas", se deberá realizar el proceso de evaluación del desempeño de las personas integrantes de la Junta Directiva, la cual será de carácter obligatorio.
+Artículo 13.-El acuerdo donde se designa al o la representante ante la Junta Directiva del Consejo Nacional de Producción será tomado en firme por la Asamblea General de las organizaciones de pequeños productores agropecuarios indicadas incluidos los Centros Agrícolas Cantonales, y para acreditar al miembro electo, el Presidente de dicho órgano certificará el mismo para enviarlo al Presidente Ejecutivo del Consejo Nacional de Producción, quién finalmente lo comunicará a la Junta Directiva del CNP para los fines pertinentes. Este nombramiento será por el plazo de dos años pudiendo ser reelecto por un período igual de conformidad con lo que indica la ley.
+Artículo 13.-Una vez electo el representante, será juramentado en el seno de la Junta Directiva y podrá pasar a integrar la misma con los deberes que le corresponden como miembro de ella.
+(Nota de Sinalevi: En la publicación de esta norma, se consignó dos veces el artículo N° 13)
+(Así adicionado en sesión N° 3152 del 3 de mayo de 2024)

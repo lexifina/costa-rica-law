@@ -1,1 +1,3 @@
-Artículo 45°- En atención al principio de publicidad y transparencia de los actos administrativos y al ser estos de interés público, las Actas serán incorporadas en la página web de] Consejo Nacional de Producción poniendo en conocimiento terceros las deliberaciones ahí contenidas y los acuerdos emitidos.
+Artículo 45° - Cuando hubiere motivos de abstención, podrá también recusar al funcionario la parte perjudicada con la respectiva causal.
+En tal caso se procederá de acuerdo con el artículo 236 de la Ley General de la Administración Pública.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 35 al 45)

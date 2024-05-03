@@ -1,1 +1,2 @@
-Artículo 55°- En todo lo que esté expresamente regulado en el presente reglamento, se podrán aplicar supletoriamente las disposiciones de la Ley Orgánica del CNP, la Ley General de la Administración Pública y demás leyes integrantes del ordenamiento administrativo de la República.
+Artículo 55°- En atención al principio de publicidad y transparencia de los actos administrativos y al ser estos de interés público, las Actas serán incorporadas en la página web de] Consejo Nacional de Producción poniendo en conocimiento terceros las deliberaciones ahí contenidas y los acuerdos emitidos.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 45 al 55)

@@ -1,1 +1,2 @@
-Artículo 47°- Las personas integrantes de la Junta Directiva deberán concurrir puntualmente a las sesiones a las cuales han sido convocados, en caso de que alguno no pudiere presentarse a la sesión, si es posible. deberá justificar verbalmente o por cualquier medio que le sea viable, su inasistencia antes del inicio de cada sesión, lo cual deberá así constar en el acta.
+Artículo 47°- Las resoluciones que se dicten en materia de abstención no tendrán recurso alguno. Las que se dicten con motivo de una recusación tendrán el recurso administrativo ordinario de revocatoria.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 37 al 47)

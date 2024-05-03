@@ -1,0 +1,2 @@
+Artículo 60° - Será atribución de la Junta Administrativa, el análisis y recomendación (le los asuntos que conforme a las competencias establecidas por la Ley Orgánica del CNP. Deban ser resueltos por la Junta Directiva. Asimismo, serán de conocimiento de este órgano, aquellos asuntos que, por su relevancia institucional, a juicio del o la Presidente (a) Ejecutivo (a), el o la Gerente General o Subgerentes, deban ser de conocimiento de la Junta Directiva.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 50 al 60)

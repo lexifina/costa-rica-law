@@ -1,2 +1,6 @@
-Artículo 16° - La Dirección de Planificación, presentará a la .Punta Directiva los resultados de esta evaluación y las acciones de mejora que permitan la toma acertada de decisiones y el mejoramiento del desempeño. Además, remitirá los resultados a la Unidad Asesora de la Propiedad Accionaria del Estado.
-Por razones de transparencia, estos resultados deberán ser publicados en la página web institucional.
+SECCION II
+De las facultades y los deberes de las personas integrantes de Junta Directiva
+Artículo 16°- El o la Presidente(a) Ejecutivo(a) será quién represente oficialmente a la Institución para toda circunstancia en que lo amerite, salvo en los casos donde dicha facultad le sea otorgada a quien presida de la Junta Directiva o bien que la Junta Directiva, en casos justificados, autorice a otra de sus personas integrantes o a funcionarios(as) para que actúen como su voceros.
+Será el o la encargado(a) en materia de gobierno y le corresponderá, fundamentalmente, velar por que se ejecuten las decisiones tomadas por la Junta, así como coordinar la acción de la entidad con la de otras instituciones estatales y asumir las funciones que la Junta Directiva le asigne.
+Todos los asuntos que sean de conocimiento de la Junta Directiva y Administrativa, deberán ser dirigidos por todas las dependencias del CNP sin excepción, a la Secretaría General del CNP, con al menos tres días hábiles de antelación a la celebración de la sesión de Junta Administrativa, para que sea esta instancia la que en coordinación con la Presidencia Ejecutiva definan la agenda respectiva.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 6 al 16)

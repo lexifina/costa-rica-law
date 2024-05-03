@@ -1,4 +1,2 @@
-Artículo 24° - Se podrá celebrar sesiones virtuales o no presenciales con carácter extraordinario y excepcional debidamente fundamentado.
-En las sesiones virtuales asiste la obligación de respetar la prohibición de superposición horaria por lo que. durante las mismas, las personas integrantes deberán dedicarse exclusivamente a su atención.
-En el acta respectiva deberá indicarse que la sesión se ha realizado en forma virtual, anotando cuál de las personas integrantes del órgano colegiado ha estado "presente" en forma virtual.
-mediante que mecanismo tecnológico se produjo la presencia, identificación del lugar en que se encuentra el ausente, la compatibilidad de sistemas y las razones por las cuales la sesión se realizó en la forma indicada; así como los demás elementos que impone la Ley para las sesiones presenciales.
+Artículo 24° - La Dirección de Planificación, con el propósito de realizar la evaluación del desempeño de las personas integrantes de Junta Directiva, deberá confeccionar, aplicar y actualizar el instrumento de evaluación.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 14 al 24)

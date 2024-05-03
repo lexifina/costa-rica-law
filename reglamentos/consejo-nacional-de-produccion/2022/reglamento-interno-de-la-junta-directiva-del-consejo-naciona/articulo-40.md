@@ -1,3 +1,2 @@
-Sección V
-De las Actas
-Artículo 40°- La Secretaría de Actas levantará un acta preliminar de cada sesión, la cual contendrá el nombre de las personas integrantes del órgano colegiado y de las personas asistentes, el Lugar, la fecha y hora de inicio y finalización. los asuntos de discusión, la forma y resultado de la votación y los respectivos acuerdos. Cuando alguna persona integrante de la Junta Directiva quiera hacer constar su voto o hacer algún comentario en el acta respectiva, lo señalará al secretario (a) en el momento de su intervención, debiendo transcribirse literalmente lo indicado.
+Artículo 40°- Los acuerdos adquirirán firmeza al momento de la aprobación del acta, salvo que, en el acto de la votación así se exprese por al menos (los tercios de la totalidad de las personas integrantes del Órgano Colegiado.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 30 al 40)

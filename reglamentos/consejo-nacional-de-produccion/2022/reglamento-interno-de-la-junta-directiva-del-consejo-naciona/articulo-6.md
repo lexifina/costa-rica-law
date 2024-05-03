@@ -1,5 +1,5 @@
-SECCION II
-De las facultades y los deberes de las personas integrantes de Junta Directiva
-Artículo 6°- El o la Presidente(a) Ejecutivo(a) será quién represente oficialmente a la Institución para toda circunstancia en que lo amerite, salvo en los casos donde dicha facultad le sea otorgada a quien presida de la Junta Directiva o bien que la Junta Directiva, en casos justificados, autorice a otra de sus personas integrantes o a funcionarios(as) para que actúen como su voceros.
-Será el o la encargado(a) en materia de gobierno y le corresponderá, fundamentalmente, velar por que se ejecuten las decisiones tomadas por la Junta, así como coordinar la acción de la entidad con la de otras instituciones estatales y asumir las funciones que la Junta Directiva le asigne.
-Todos los asuntos que sean de conocimiento de la Junta Directiva y Administrativa, deberán ser dirigidos por todas las dependencias del CNP sin excepción, a la Secretaría General del CNP, con al menos tres días hábiles de antelación a la celebración de la sesión de Junta Administrativa, para que sea esta instancia la que en coordinación con la Presidencia Ejecutiva definan la agenda respectiva.
+Sección I bis
+Del procedimiento de elección del representante de las organizaciones de pequeños productores agropecuarios
+(Así adicionada la sección anterior en sesión N° 3152 del 3 de mayo de 2024)
+Artículo 6°-El o la presidente(a) ejecutiva del CNP hará una convocatoria pública mediante publicación en el Diario Oficial y en al menos dos diarios de circulación nacional, a las organizaciones de pequeños productores agropecuarios legalmente constituidas quiénes la conformarán, para realizar el proceso de nombramiento del representante respectivo ante la Junta Directiva del Consejo Nacional de Producción de conformidad con lo establecido en el artículo 1° de la Ley 10425.
+(Así adicionado en sesión N° 3152 del 3 de mayo de 2024)

@@ -1,1 +1,4 @@
-Artículo 36°- La actuación de las personas integrantes de Junta Directiva en los que concurran motivos de abstención, implicarán la invalidez de los acuerdos en que haya intervenido y además, dará lugar a responsabilidad. Cuando los motivos de abstención sean los de impedimento previstos en el artículo 12 del Código Procesal Civil ó los dispuestos de manera expresa en Ley de Contratación Administrativa, la nulidad será absoluta, en los demás casos será relativa.
+Sección III
+De la Agenda y los Acuerdos
+Artículo 36°- La estructura de la agenda de Junta Directiva para las sesiones ordinarias y extraordinarias será decidida por acuerdo en firme de la misma Junta Directiva, para lo cual requerirá mayoría calificada.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 26 al 36)

@@ -1,7 +1,2 @@
-Artículo 8°- El o la Presidente (a) Ejecutivo (a) del CNP en coordinación con la Secretaria General deberá:
-a. Preparar la agenda de las sesiones ordinarias y extraordinarias, considerando además las peticiones que formulen los restantes directores con al menos cuatro días de antelación.
-b. Suspender en cualquier momento, con causa justificada. las sesiones,
-c. Convocar a sesión extraordinaria.
-d. Velar, bajo su responsabilidad, por el cumplimiento de los acuerdos de la Junta Directiva; y
-e. Las demás que le señale la ley o le encomiende la misma Junta Directiva.
-Le corresponderá a quien presida la sesión, dirigir y coordinar los debates, así como la presentación de las mociones de forma y fondo y determinar el tiempo de uso de la palabra.
+Artículo 8°-El procedimiento a seguir deberá ser célere, simple, eficiente y oficioso, facilitando la elección bajo los principios de transparencia y libre concurrencia y la paridad de género, pudiendo ser candidato(a), cualquier persona perteneciente a una organización de pequeños productores inscrita en PYMPA o en el PAI o de alguno de los centros agrícolas cantonales existentes en el país, que sea mayor de edad y que esté vinculada de manera directa a la actividad agrícola.
+(Así adicionado en sesión N° 3152 del 3 de mayo de 2024)

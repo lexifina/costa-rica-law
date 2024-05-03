@@ -1,2 +1,2 @@
-Artículo 53°-Todos los acuerdos de la Junta Administrativa se tomarán por mayoría simple.
-De las sesiones se levantará un acta que consignará el análisis de los casos y las consideraciones tomadas en cuenta para la recomendación final. En los casos en los que el acuerdo tomado no sea unánime, se deberá consignar el razonamiento del voto disidente en la recomendación que se formule a la Junta Directiva.
+Artículo 53°- Las actas serán firmadas por el o la Presidente (a) de la Junta Directiva, la secretaría de actas y por aquellas personas integrantes que hubieren hecho constar su Voto disidente.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 43 al 53)

@@ -1,2 +1,2 @@
-Artículo 35° - Cuando hubiere motivos de abstención, podrá también recusar al funcionario la parte perjudicada con la respectiva causal.
-En tal caso se procederá de acuerdo con el artículo 236 de la Ley General de la Administración Pública.
+Artículo 35°- Las sesiones de los órganos colegiados deberán grabarse en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de las personas integrantes del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 25 al 35)

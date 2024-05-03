@@ -1,1 +1,2 @@
-Artículo 42°-Las actas se aprobarán en la siguiente sesión ordinaria a excepción de aquellas que adquieran firmeza en la misma sesión o bien de aquellas que por acuerdo de los miembros se posponga la firmeza para una próxima sesión.
+Artículo 42°- Se aplicarán las normas de la Ley General de la Administración Pública en lo referente a la interposición y atención de los Recursos ordinarios y extraordinarios que procedan contra los acuerdos de Junta Directiva. En todos los casos, ésta resolverá primero sobre la admisibilidad formal (le la impugnación, para entonces, en caso de estimarse procedente, entrar a conocer sobre su fondo.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 32 al 42)

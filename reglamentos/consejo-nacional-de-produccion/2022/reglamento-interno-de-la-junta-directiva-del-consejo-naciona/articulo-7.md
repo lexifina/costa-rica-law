@@ -1,1 +1,6 @@
-Artículo 7 - La Junta Directiva elegirá de su seno un(a) Vicepresidente (a) por período de un año, pudiendo ser reelecto (a). quien reemplazará en el órgano colegiado al Presidente (a) de Junta Directiva en caso de ausencia.
+Artículo 7°-La convocatoria que se realice definirá:
+a) Lugar, fecha y hora de celebración de la Asamblea.
+b) Requisitos para la acreditación de las organizaciones y sus representantes.
+c) Procedimiento y mecanismo de elección del representante.
+d) Perfil y requisitos que deberán cumplir los candidatos.
+(Así adicionado en sesión N° 3152 del 3 de mayo de 2024)

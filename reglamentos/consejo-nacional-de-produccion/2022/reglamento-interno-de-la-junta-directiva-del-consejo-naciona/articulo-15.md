@@ -1,1 +1,2 @@
-Artículo 15° - La evaluación de desempeño de las personas integrantes de la Junta Directiva se realizará una vez al año en el mes de enero.
+Artículo 15.-Dentro de los dos meses inmediatos anteriores al vencimiento del nombramiento del representante de las organizaciones de pequeños productores agropecuarios legalmente constituidas, incluidos los Centros Agrícolas Cantonales, ante la Junta Directiva del CNP, el Presidente Ejecutivo del CNP, deberá realizar la convocatoria que se señala en el artículo 6° del presente Reglamento.
+(Así adicionado en sesión N° 3152 del 3 de mayo de 2024)

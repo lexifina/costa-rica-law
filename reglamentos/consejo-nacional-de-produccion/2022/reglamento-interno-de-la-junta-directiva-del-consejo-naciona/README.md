@@ -14,3 +14,4 @@ Reglamento interno de la junta directiva del Consejo Nacional de Producción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-23 | la propia norma |
+| 2 | 2024-05-03 | Reglamento 3152 (2024-05-03) |

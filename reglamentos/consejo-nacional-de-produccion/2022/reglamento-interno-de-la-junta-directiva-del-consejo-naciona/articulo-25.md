@@ -1,1 +1,2 @@
-Artículo 25°- Las sesiones de los órganos colegiados deberán grabarse en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente. Será obligación de las personas integrantes del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+Artículo 25° - La evaluación de desempeño de las personas integrantes de la Junta Directiva se realizará una vez al año en el mes de enero.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 15 al 25)

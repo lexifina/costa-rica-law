@@ -1,2 +1,2 @@
-Artículo 57. - Rige a partir de su publicación en el Diario Oficial-
-***Aprobado por la Junta Directiva del Consejo Nacional de Producción mediante Acuerdo N°39980. artículo 5°, de la Sesión Ordinaria 3102, celebrada en la Ciudad de San José, a los cuatro días del mes de mayo del año dos mil veintidós.***
+Artículo 57°- Las personas integrantes de la Junta Directiva deberán concurrir puntualmente a las sesiones a las cuales han sido convocados, en caso de que alguno no pudiere presentarse a la sesión, si es posible. deberá justificar verbalmente o por cualquier medio que le sea viable, su inasistencia antes del inicio de cada sesión, lo cual deberá así constar en el acta.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 47 al 57)

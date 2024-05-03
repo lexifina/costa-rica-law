@@ -1,4 +1,2 @@
-CAPITULO V
-Disposiciones finales y derogatorias
-Artículo 54°- Las reformas totales o parciales del Reglamento se harán por el voto de las dos terceras partes de los directivos.
-Las dudas de interpretación se resolverán por simple mayoría previo dictamen de la Dirección de Asuntos Jurídicos del CNP.
+Artículo. 54°- El Libro de Actas deberá ser debidamente aperturado y cerrado por la Auditoría Interna y una vez terminado será empastado, rotulado y quedará bajo la custodia y responsabilidad (le la Secretaría de Actas de conformidad con lo dispuesto en la Ley de Archivos Nacionales.
+(Así modificada su numeración en sesión N° 3152 del 3 de mayo de 2024, que lo traspaso del antiguo artículo 44 al 54)
