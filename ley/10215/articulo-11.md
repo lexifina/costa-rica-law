@@ -1,0 +1,7 @@
+ARTÍCULO 11- Serán responsabilidades del Ministerio de Educación Pública (MEP) las siguientes:
+a) Incorporar el Programa Insolapad en las actividades curriculares y servicios del Departamento de Educación de Personas Jóvenes y Adultas.
+b) Disponer de infraestructura y equipamiento existente para garantizar el acceso oportuno a la educación inclusiva y de calidad a las personas con discapacidad adultas que lo requieran, ya sea en las modalidades de IPEC, escuela nocturna, colegio nocturno, colegio técnico nocturno, educación dual.
+c) Aportar recurso docente para la atención de necesidades socioeducativas de las personas con discapacidad usuarias, ya sea en servicios a cargo del MEP o los que se desarrollen en coordinación con organizaciones no gubernamentales contempladas en esta ley. El aporte del recurso docente se brindará a las organizaciones, previa suscripción de convenios y de manera continua durante su vigencia.
+d) Articular, con las entidades competentes, la inclusión laboral y el seguimiento de las personas adultas con discapacidad egresadas de las opciones formativas que desarrolla.
+e) Dirigir y supervisar los servicios socioeducativos y formativos que desarrolle de manera directa o en coordinación con organizaciones no gubernamentales.
+f) Brindar información oportuna y accesible a las organizaciones y a las personas con discapacidad, sobre la oferta de servicios del Programa Insolapad.
