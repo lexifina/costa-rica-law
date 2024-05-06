@@ -1,5 +1,7 @@
 ANEXO 2
 IMPUESTOS CON DESTINO ESPECIFICO
+ANEXO 2
+IMPUESTOS CON DESTINO ESPECIFICO
 IMPUESTO | CREADO POR LEY | NOMBRE DE LEY | FECHA
 Cemento importado y producido a nivel nacional. | N°9829 | Ley de impuesto del cinco por ciento (5%) sobre la venta y el autoconsumo de cemento, producido en el territorio nacional o importado para el consumo nacional. | 27/4/2020
 Bebidas envasadas sin contenido alcohólico, excepto la leche y los jabones de tocado. | N°8114 | Ley de Simplificación y Eficiencia Tributarias. | 4/7/ 2001
@@ -20,3 +22,4 @@ Canon de Reserva del Espectro. | N°8642 | Ley General de Telecomunicaciones. | 
 Traspasos de Bienes Inmuebles. | N°6999 | Ley del Impuesto sobre Traspasos de Bienes Inmuebles. | 03/9/1985
 Timbre Consular. | N°29 | Creación del Timbre Consular y de Misión Diplomática en Reino Unido. | 23/11/1945
 Impuesto sobre la propiedad de Vehículos Automotores, Embarcaciones y Aeronaves. | N°7088 | Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA. | 30/11/1987
+Impuesto Único por Tipo de Combustible (Así adicionado el rubro anterior por el artículo 2° de la resolución N° MH-DGT-RES-0007-2024 del 6 de mayo del 202) | N° 8114 (Así adicionado el rubro anterior por el artículo 2° de la resolución N° MH-DGT-RES-0007-2024 del 6 de mayo del 202) | Ley de Simplificación y Eficiencia Tributarias (Así adicionado el rubro anterior por el artículo 2° de la resolución N° MH-DGT-RES-0007-2024 del 6 de mayo del 202) | 4 de julio de 2001 (Así adicionado el rubro anterior por el artículo 2° de la resolución N° MH-DGT-RES-0007-2024 del 6 de mayo del 202)

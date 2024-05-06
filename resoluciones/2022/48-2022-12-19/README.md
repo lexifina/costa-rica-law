@@ -14,3 +14,4 @@ Requisitos para solicitudes de devolución de saldos acreedores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-20 | la propia norma |
+| 2 | 2024-05-06 | Resolución 7 (2024-05-06) |
