@@ -1,0 +1,2 @@
+Artículo 21.-Límites para resolver los recursos. Los recursos de objeción que corresponda atender a la Municipalidad de Pococí, los resolverá a la Unidad de Compras Públicas. El órgano competente para resolver los recursos de revocatoria que procedan contra los actos finales será el mismo que lo emitió.
+Con la resolución del recurso de revocatoria, se dará por agotada la vía administrativa, sin perjuicio de la avocación de competencia de los órganos superiores hacia los inferiores.

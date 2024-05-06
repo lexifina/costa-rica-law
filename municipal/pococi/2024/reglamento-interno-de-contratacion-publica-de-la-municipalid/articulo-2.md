@@ -1,0 +1,1 @@
+Artículo 2º-Gestor del proceso de contratación. Toda contratación que realice la Municipalidad de Pococí (compra, venta y arrendamiento de bienes, servicios y obras, entre otros) deberá tramitarse por medio de la Unidad de Compras Públicas.

@@ -1,0 +1,1 @@
+Artículo 18.-Revocatoria de acto no firme. Cuando por razones de oportunidad o legalidad deba revocarse un acto de adjudicación no firme, en los términos señalados por la Ley General de Contratación Pública y su reglamento, el órgano competente será el mismo que dictó el acto de adjudicación.

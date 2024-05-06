@@ -1,0 +1,2 @@
+Artículo 5º-Regulaciones de caja chica. Las compras reguladas por caja chica se rigen por lo establecido en el reglamento municipal para el manejo de la caja chica. Dichas disposiciones deberán observar lo que al respecto establece la Ley General de Contratación Pública y su reglamento.
+La Tesorería Municipal, será responsable de la tramitación en el sistema digital unificado de las compras realizadas al amparo de esta excepción.

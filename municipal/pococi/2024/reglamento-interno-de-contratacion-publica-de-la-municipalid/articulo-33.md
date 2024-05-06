@@ -1,0 +1,1 @@
+Artículo 33.-Atención de gestiones del contratista. La Unidad de Compras Públicas en coordinación con la unidad usuaria resolverá las peticiones que el contratista presente. Las peticiones serán atendidas dentro de los plazos previstos por la Ley General de Contratación Pública y su reglamento.

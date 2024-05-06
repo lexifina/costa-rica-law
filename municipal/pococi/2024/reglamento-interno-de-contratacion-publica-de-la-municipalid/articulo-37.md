@@ -1,0 +1,1 @@
+Artículo 37.-Finiquito del contrato. La unidad usuaria que será la administradora del contrato una vez confeccionada el acta definitiva del bien o servicio deberá confeccionar el finiquito de la contratación, tal y como lo establece la Ley General de Contratación Pública (artículo 111) y su reglamento (artículo 190).

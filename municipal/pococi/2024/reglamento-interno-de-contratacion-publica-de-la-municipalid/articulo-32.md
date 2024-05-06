@@ -1,0 +1,2 @@
+Artículo 32.-Garantía de cumplimiento y otras garantías. La garantía de cumplimiento y otras garantías que hayan sido requeridas en las contrataciones deberán ser rendidas electrónicamente a través del Sistema Digital Unificado.
+El administrador del contrato en se encargará mantener vigente las garantías, tramitar la ejecución, devolución de estas cuando corresponda en coordinación con la Unidad de Tesorería Municipal, todo en apego a la Ley General de Contratación Pública y su reglamento.

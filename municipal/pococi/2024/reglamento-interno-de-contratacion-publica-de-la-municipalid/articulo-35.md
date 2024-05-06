@@ -1,0 +1,1 @@
+Artículo 35.-Recepción de bienes. Toda recepción de bienes deberá realizarla unidad usuaria, salvo que dicho departamento haya autorizado expresamente la recepción por parte de otra unidad o dependencia. Esta condición deberá consignarse en los pliegos de condiciones respectivos.

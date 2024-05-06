@@ -1,0 +1,1 @@
+Artículo 8º-Estructura organizativa. La Unidad de Compras Públicas tendrá como mínimo una estructura organizativa básica que le permita cumplir con lo establecido la Ley General de Contratación Pública y su reglamento. La estructura y funciones se encuentran establecidas en el respectivo manual de puestos de Municipalidad de Pococí.

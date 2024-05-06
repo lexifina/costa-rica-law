@@ -1,0 +1,2 @@
+Artículo 12.-Trámite previo al inicio del procedimiento de contratación. La Unidad de Compras Públicas procederá, posterior a la solicitud de la unidad usuaria donde concurran todos los elementos de información necesarios, a tramitar la contratación conforme los procedimientos correspondientes.
+De igual manera, procurará agrupar por afinidad las necesidades de todas las unidades, de forma que se tramiten conjuntamente, para lograr mejores condiciones económicas y evitar la fragmentación en las contrataciones.
