@@ -1,0 +1,6 @@
+CIRCULAR N° 88-2024
+Asunto: Inclusión de la clase de asunto "Proceso de protección para persona adulta mayor" en Violencia Doméstica en los sistemas institucionales SIAG-PJ y Sistema de Gestión de Despachos.
+A TODOS LOS DESPACHOS DEL PAÍS QUE ATIENDEN MATERIA DE VIOLENCIA DOMÉSTICA
+El Consejo Superior del Poder Judicial en sesión N° 34-2024 celebrada el 25 de abril de 2024, artículo XXXVII, a solicitud a solicitud de Comisión Permanente para el Seguimiento de la Atención y Prevención de la Violencia Intrafamiliar y el Subproceso de Estadística, en concordancia con la Ley Integral para la persona Adulta Mayor N° 7935 se incorpora en los sistemas institucionales SIAG-PJ y Sistema de Gestión de Despachos la clase de asunto "Proceso de protección para persona adulta mayor" asociado a los procedimientos " proceso de protección para persona adulta mayor con parentesco" y "proceso de protección para persona adulta mayor sin parentesco"; con la finalidad de que todas la oficinas que atienden esta materia identifiquen este proceso por medio de esta clase de asunto y estos dos procedimientos, de forma separada de los procesos de violencia doméstica en general.
+Publíquese una vez en el Boletín Judicial.
+San José, 06 de mayo de 2024
