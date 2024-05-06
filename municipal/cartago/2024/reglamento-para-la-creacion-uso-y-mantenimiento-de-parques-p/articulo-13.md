@@ -1,0 +1,4 @@
+Artículo 13.-De las sanciones.
+De acuerdo con la Ley 7451 - Bienestar de los animales: se impondrá sanción administrativa de multa de un cuarto a medio salario base a quien incumpla con el artículo 7º, inciso c: Recoger y depositar, en lugares apropiados, los desechos fecales de los animales de compañía que sean arrojados en las aceras, los parques, las calles, los jardines públicos, las playas y demás lugares públicos.
+Ley 4573 - Código penal: el artículo 405 establece: "Se penará con cinco a treinta días multa al que sin haber tomado las precauciones convenientes para que un animal no cause daño, lo dejare en lugar de tránsito público o lo confiare a alguien inexperto, en forma tal que exponga al peligro a personas o cosas."
+Ley 4573 - Código penal: el artículo 405 bis establece: "Será sancionado con veinte a cincuenta días multa quien: b) Abandone animales domésticos a sus propios medios
