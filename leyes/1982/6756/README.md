@@ -1,6 +1,6 @@
 # Reforma Integral a Ley de Asociaciones Cooperativas
 
-Ley N° 6756 del 1982-05-05. SINALEVI, ficha 36052: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36052&param2=85891&param3=1>.
+Ley N° 6756 del 1982-05-05. SINALEVI, ficha 36052: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36052&param2=140623&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2001-06-30 | Ley 6908 | 1983-11-03 |
 | 6 de 8 | 2001-06-30 | Ley 7040 | 1986-04-25 |
 | 7 de 8 | 2001-06-30 | Ley 7083 | 1987-08-25 |
+| 8 de 8 | 2024-05-06 | Ley 10451 | 2024-04-22 |
