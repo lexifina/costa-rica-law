@@ -1,4 +1,6 @@
+(Suspendida)
 CIRCULAR N 50-2022
+(Esta norma fue suspendida mediante circular N° 91 del 6 de mayo de 2024)
 ASUNTO: Cumplimiento de la Ley 10092 denominada "Reducción de la deuda pública por medio de la venta de activos ociosos o subutilizados del Sector Público".
 A TODOS LOS ENCARGADOS DE PROGRAMA,
 CENTROS DE RESPONSABILIDAD Y OFICINAS

@@ -13,3 +13,4 @@ Cumplimiento de la Ley 10092 denominada "Reducción de la deuda pública por med
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-16 | la propia norma |
+| 2 | 2024-05-06 | Circular 91 (2024-05-06) |
