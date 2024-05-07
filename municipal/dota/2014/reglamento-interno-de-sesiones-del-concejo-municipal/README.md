@@ -18,3 +18,4 @@ Reglamento interno de sesiones del Concejo Municipal
 | 3 | 2016-08-11 | Reglamento municipal 14 (2016-08-11) |
 | 4 | 2020-02-18 | Reglamento municipal 187 (2020-02-18) |
 | 5 | 2022-11-15 | Reglamento municipal 133 (2022-11-15) |
+| 6 | 2024-05-07 | Reglamento municipal 1 (2024-05-07) |
