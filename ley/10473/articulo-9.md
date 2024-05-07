@@ -1,0 +1,4 @@
+CAPÍTULO II
+Consejo Nacional para la Calidad
+ARTÍCULO 9- Consejo Nacional para la Calidad. Créese el Consejo Nacional para la Calidad (Conac), como órgano responsable de fijar los lineamientos generales del SNC, todo conforme a los lineamientos y las prácticas internacionales reconocidas en materia de calidad, metrología, evaluación de la conformidad, normalización y reglamentación técnica y a las necesidades nacionales.
+El Conac velará por la adecuada coordinación de las actividades de promoción y difusión de la calidad y elaborará las recomendaciones que considere convenientes. También, dará el seguimiento necesario a los lineamientos generales y a las recomendaciones que emita. El Conac tendrá una Secretaría Técnica, adscrita al Ministerio de Economía, Industria y Comercio (MEIC). La organización y operación interna del Consejo, así como las funciones de su Secretaría Técnica se determinarán vía reglamentaria.

@@ -1,0 +1,1 @@
+ARTÍCULO 26- Conformación. El ECA estará conformado por la Junta Directiva, la Comisión de Acreditación, las secretarías de acreditación y las dependencias que se requieran para realizar sus competencias, conforme a la estructura interna que defina el reglamento interno del ECA.

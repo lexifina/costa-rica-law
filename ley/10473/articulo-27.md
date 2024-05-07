@@ -1,0 +1,14 @@
+ARTÍCULO 27- Conformación de la Junta Directiva. La Junta Directiva del ECA estará conformada por seis miembros propietarios, los cuales deberán tener conocimientos afines a las actividades de acreditación que desarrolla el Ente Costarricense de Acreditación, de la siguiente manera:
+a) El Ministerio de Economía, Industria y Comercio (MEIC), a través de su jerarca o uno de los viceministros, quien lo presidirá y ejercerá doble voto en caso de empate.
+b) Un representante del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt).
+c) Un representante del Consejo Nacional de Rectores (Conare).
+d) Un representante del sector privado, designado por la Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (Uccaep).
+e) Un representante de las organizaciones de consumidores.
+f) Un representante de los entes acreditados. Vía reglamento interno se establecerán los conocimientos afines a la acreditación que deberán poseer los miembros de la Junta Directiva, así como la operación interna de esta.
+El representante del Ministerio de Economía, Industria y Comercio presentará, al Consejo de Gobierno, las ternas emitidas por las organizaciones. En todos los casos, se nombrará un propietario y suplente. Los propietarios y suplentes serán nombrados por un periodo de tres años, cuyo nombramiento deberá publicarse en el diario oficial La Gaceta y podrán ser reelegidos por una única vez. Después de haber transcurrido un período tres años fuera de la Junta Directiva, podrá ser reelegido nuevamente. Lo anterior a excepción de las personas jerarcas del MEIC, que se indican en el inciso a) anterior, quienes se mantendrán en la Junta Directiva en tanto ocupen el cargo.
+En el caso de los representantes de las organizaciones de consumidores y de los entes acreditados, el MEIC hará la respectiva convocatoria y la designación. Dicha convocatoria deberá permanecer abierta por al menos quince días hábiles. Si no existen candidatos que reúnan los requisitos, o no exista alguno, el ministro o la ministra hará el nombramiento por inopia, entre las personas de ese mismo sector.
+El nombramiento de los miembros de la Junta Directiva deberá ser aprobado por el Consejo de Gobierno, excepto el ministro o viceministro del MEIC.
+La Junta Directiva tendrá la facultad de designar un Comité Ejecutivo con representación equilibrada de las partes representadas en este órgano colegiado.
+El gerente del ECA asistirá a las reuniones de la Junta Directiva en calidad de asesor, para lo cual tendrá derecho a voz, pero sin voto.
+La Junta Directiva del ECA sesionará, en forma ordinaria, al menos una vez por mes y, en forma extraordinaria, por convocatoria de su presidente o por solicitud debidamente justificada de alguno de sus miembros.
+Los suplentes solo asistirán en caso de ausencia de su respectivo titular.

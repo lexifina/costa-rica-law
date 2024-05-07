@@ -1,0 +1,1 @@
+TRANSITORIO VI- Sobre la designación del Ente Nacional de Normalización. Se mantiene la designación de lnteco como Ente Nacional de Normalización en las condiciones que esta ley define y hasta que corresponda una nueva designación.

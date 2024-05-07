@@ -1,0 +1,1 @@
+ARTÍCULO 79- Tarifas. En el marco del SNC las tarifas que se cobran por concepto de venta de servicios y venta de materiales obedecerán a los criterios de razonabilidad y proporcionalidad, en relación con el servicio prestado.

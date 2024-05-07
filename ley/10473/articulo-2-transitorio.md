@@ -1,0 +1,2 @@
+TRANSITORIO II- Sobre el Lacomet. Los actuales miembros de la Comisión de Metrología continuarán con sus representaciones y nombramientos vigentes dentro de la Comisión por un período de seis meses, hasta tanto se constituya la nueva Comisión.
+Solamente para el primer período, dos de los representantes del Poder Ejecutivo y el representante del sector privado serán nombrados por seis años; el representante del Consejo Nacional de Rectores y el representante de los usuarios de servicios de metrología serán nombrados por tres años.

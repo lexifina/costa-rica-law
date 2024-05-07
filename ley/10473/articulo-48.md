@@ -1,0 +1,5 @@
+ARTÍCULO 48- Facultades. En cumplimiento de lo establecido en el artículo anterior, el Ministerio de Economía, Industria y Comercio (MEIC) tendrá las siguientes facultades:
+a) Coordinar la elaboración, actualización de los reglamentos técnicos y dar seguimiento a la ejecución de los planes de reglamentación técnica de las autoridades nacionales.
+b) Coordinar y articular la participación del país en las actividades organizadas en materia del Codex Alimentarius, que se relaciona con las normas técnicas y textos afines en materia alimentaria.
+c) Vigilar el cumplimiento de los reglamentos técnicos emitidos por el MEIC y velar por que las otras autoridades nacionales de vigilancia de mercado también cumplan con la vigilancia del cumplimiento de los reglamentos técnicos emitidos por cada institución, según corresponda. Esta última facultad la ejercerá por medio de la necesaria coordinación interinstitucional.
+Asimismo, las autoridades nacionales de vigilancia de mercado tendrán las otras facultades que se establezcan en esta ley y el ordenamiento jurídico.

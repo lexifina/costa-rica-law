@@ -1,0 +1,12 @@
+ARTÍCULO 61- Facultades de las autoridades nacionales de vigilancia de mercado. Las autoridades, además de las facultades y atribuciones legales de vigilancia y control que les confiere la legislación, deberán realizar las actividades de vigilancia de mercado que sean necesarias para determinar que se cumple con los reglamentos técnicos y otras disposiciones oficiales, según les correspondan, en relación con:
+a) La calidad y cantidad de los bienes y servicios.
+b) La supervisión y el control metrológico.
+c) La inocuidad de los alimentos.
+d) El cumplimiento de reglamentos técnicos relacionados con los objetivos legítimos.
+e) La información relacionada con las certificaciones o marcas de conformidad, que demuestre el cumplimiento de los requisitos establecidos en la regulación correspondiente.
+f) La seguridad de los bienes y servicios comercializados.
+g) La institución rectora competente debe elaborar un Plan anual de vigilancia de sus reglamentos técnicos y notificarlo al Conac, quien le dará seguimiento.
+Las instituciones públicas que realicen registros sanitarios, fitosanitarios y registros de bienes deberán reservar al menos el veinte por ciento (20 %) del monto que reciben para labores de vigilancia.
+La institución rectora competente, a través su autoridad de vigilancia de mercado, podrá realizar, individualmente o en conjunto con otras autoridades de vigilancia de mercado, vigilancia en las bodegas, los puertos de ingreso, almacenes fiscales, aduanas, centros de producción, puntos de venta o cualquier otro lugar, para efectos de comprobar requisitos de calidad u otras necesidades de información, conforme a sus facultades.
+La institución rectora competente podrá delegar la vigilancia de bienes y servicios u otras funciones de control a Organismos de Evaluación de la Conformidad (OEC), públicos o privados, siempre que estos demuestren capacidad técnica y se encuentren debidamente acreditados ante el ECA o reconocidos por este.
+Las autoridades nacionales de vigilancia del mercado podrán acordar, con otras autoridades pertinentes u organizaciones que representen a agentes económicos o a usuarios finales, la realización de actividades conjuntas con el objeto de incentivar el cumplimiento, detectar casos de incumplimiento, aumentar el conocimiento y de las regulaciones específicas de productos, en particular aquellas que con frecuencia presentan un riesgo grave.

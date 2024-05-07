@@ -1,0 +1,1 @@
+ARTÍCULO 51- Creación del Consejo Nacional de Reglamentación Técnica. Créese el Consejo Nacional de Reglamentación Técnica (Conart) como consejo interministerial, liderado y coordinado por el Ministerio de Economía, Industria y Comercio (MEIC).

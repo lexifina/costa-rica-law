@@ -1,0 +1,6 @@
+ARTICULO 35- Prohibiciones de los entes acreditados. Los entes acreditados tienen prohibido:
+a) Expedir certificaciones, declaraciones o informes relativos a evaluación de la conformidad, cuyo contenido sea emitido de forma incorrecta, de manera que no corresponda con los resultados reales obtenidos en las actividades de evaluación de la conformidad.
+b) Realizar inspecciones, pruebas, ensayos, calibraciones, certificaciones, validaciones, verificaciones y otras actividades de evaluación de la conformidad, de manera incompleta o errónea, o por insuficiente constatación de los hechos o deficiente aplicación de la reglamentación técnica establecida.
+c) Expedir certificaciones, declaraciones o informes relativos a evaluación de la conformidad, cuyo contenido sea emitido de manera fraudulenta.
+En caso de que se compruebe que la prohibición del inciso c) ha sido incumplida, el Ente Costarricense de Acreditación procederá al retiro de la acreditación. Además, en este caso dicho organismo, sus representantes legales y accionistas no podrán volver a solicitar la acreditación hasta cumplidos cinco años del retiro de la acreditación.
+Se considerará el mismo organismo, aunque tenga diferente denominación y existencia legal, siempre que posea el mismo sistema de gestión de calidad, así como los representantes legales o accionistas.

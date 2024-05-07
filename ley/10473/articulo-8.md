@@ -1,0 +1,7 @@
+ARTÍCULO 8- Financiamiento del Sistema Nacional para la Calidad. Para garantizar el cumplimiento de las responsabilidades del SNC, cada institución pública podrá contemplar dentro de su presupuesto, recursos económicos, así como aportar recursos tecnológicos, para desarrollar programas o proyectos que se aprueben dentro del Conac, siempre que no se pongan en riesgo las funciones y los objetivos que debe cumplir cada institución, a fin de cumplir con lo establecido en este artículo.
+En el caso de los entes autónomos, semiautónomos o con autonomía universitaria podrán ajustarse a los principios establecidos en la presente ley. Además, para estos entes lo dispuesto en el párrafo anterior resulta únicamente facultativo.
+El Estado garantizará los fondos económicos necesarios para el mejor desempeño del SNC. Asimismo, se podrán financiar las operaciones y los requerimientos del SNC por medio de:
+a) Los ingresos percibidos por concepto de la venta de bienes y servicios, acordes con las competencias de cada institución.
+b) Los legados, las donaciones y los aportes de personas físicas o jurídicas, organizaciones nacionales o internacionales, privadas o públicas.
+c) El ingreso percibido debido a los registros sanitarios de bienes realizados, ante las instituciones públicas competentes.
+d) Los recursos de cooperación internacional puestos a disposición del Estado, para financiar actividades relacionadas con el SNC.

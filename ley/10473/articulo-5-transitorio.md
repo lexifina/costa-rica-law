@@ -1,0 +1,2 @@
+TRANSITORIO
+TRANSITORIO V- Sobre el Comité Nacional del Codex Alimentarius. Los actuales miembros del Comité Nacional del Codex Alimentarius continuarán con sus nombramientos vigentes y representaciones. Asimismo, la dependencia que actualmente ejerce la Secretaría Técnica de este comité continuará ejerciendo sus funciones para el Comité Nacional del Codex Alimentarius, que cuenta con una nueva integración.
