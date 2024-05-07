@@ -1,0 +1,1 @@
+Artículo 11.-Rige a partir de su publicación, en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado. Acuerdo N° 25, Sesión Ordinaria N° 0323-2024, celebrada por el Concejo Municipal de Upala, el 07 de marzo del 2024.
