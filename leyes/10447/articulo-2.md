@@ -1,0 +1,2 @@
+ARTÍCULO 2- Se adiciona un transitorio IV a la Ley 9427, Autorización a la Municipalidad de Aserrí para que Segregue y Done un Inmueble de su Propiedad, de 7 de marzo de 2017.
+Transitorio IV- Los ocupantes reconocidos para que reciban la donación de los terrenos, a los que se refiere la presente ley, contarán con un plazo total de diez años, que empezará a regir a partir de la entrada en vigencia de la presente modificación a la Ley 9427, a fin de que puedan cumplir con las disposiciones previstas en ella.
