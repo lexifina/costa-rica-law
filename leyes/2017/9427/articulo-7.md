@@ -1,1 +1,2 @@
-ARTÍCULO 7.- Las escrituras correspondientes se efectuarán ante la Notaría del Estado y el traspaso estará exento de todo tipo de impuestos, tasas o contribuciones, tanto registrales como de cualquier otra índole. Asimismo, se autoriza a la Notaría del Estado para que corrija los posibles errores que señale el Registro Nacional.
+Artículo 7- Una vez concluidas y aprobadas por acuerdo firme del Concejo Municipal las diligencias administrativas señaladas en los artículos 3 y 4 de esta ley, se autoriza a la Notaría del Estado para que formalice todos los trámites de cada segregación, donación y traspaso, mediante la elaboración de la escritura correspondiente.
+(Así reformado por el artículo 1° de la ley N° 10447 del 20 de marzo de 2024)
