@@ -1,0 +1,1 @@
+ARTÍCULO 40- Los laboratorios públicos o privados que realicen pruebas genéticas moleculares deben acreditar dichas pruebas o análisis ante el ECA, o contar con el reconocimiento por parte de esta entidad.

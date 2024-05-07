@@ -1,0 +1,1 @@
+ARTÍCULO 38- Evaluación y fiscalización. El ECA deberá realizar evaluaciones anunciadas y no anunciadas a los organismos acreditados, cumpliendo, en todo momento, lo ordenado en las normas internacionales, así como fiscalizar que los organismos acreditados cumplan con los deberes referidos en esta ley y su reglamento.

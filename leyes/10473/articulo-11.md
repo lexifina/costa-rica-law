@@ -1,0 +1,3 @@
+ARTÍCULO 11- Comité Técnico. El Conac contará con un Comité Técnico conformado por el Ente Nacional de Normalización (ENN), el Ente Costarricense de Acreditación (ECA), el Consejo Nacional de Reglamentación Técnica (Conart), el Comité Nacional del Códex y del Laboratorio Costarricense de Metrología (Lacomet), cuya función principal será asesorar al Conac y realizar funciones de coordinación técnica dentro del SNC.
+La Secretaría Técnica del Conac participará de las sesiones del Comité Técnico, para ofrecer colaboración y funciones asistenciales.
+El Comité Técnico tendrá la facultad de convocar a instituciones y empresas públicas que se consideren pertinentes para participar en dicho Comité.

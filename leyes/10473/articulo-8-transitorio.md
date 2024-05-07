@@ -1,0 +1,1 @@
+TRANSITORIO VIII-Derechos laborales de los funcionarios de ECA. A los funcionarios que laboran actualmente en el Ente Costarricense de Acreditación (ECA) se les garantizan todos sus derechos laborales según lo establecido en el Código de Trabajo y continuarán realizando sus funciones en los puestos en que están nombrados.

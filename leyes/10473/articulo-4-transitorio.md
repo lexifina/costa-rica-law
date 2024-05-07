@@ -1,0 +1,1 @@
+TRANSITORIO IV- Sobre el Conart. Los actuales miembros del Órgano de Reglamentación Técnica (ORT) continuarán con sus representaciones y nombramientos vigentes dentro del Conart. Asimismo, la dependencia que actualmente ejerce la Secretaría Técnica del ORT pasará a ejercer las funciones de la Secretaría Técnica del Conart.

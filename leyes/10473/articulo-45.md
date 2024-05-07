@@ -1,0 +1,1 @@
+ARTÍCULO 45- Uso de recursos. Los recursos que se obtengan de conformidad con el artículo anterior serán utilizados para el cumplimiento de los objetivos de esta ley y para fortalecer, desarrollar, actualizar y mejorar el ECA.

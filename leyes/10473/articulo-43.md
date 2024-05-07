@@ -1,0 +1,1 @@
+ARTÍCULO 43- Auditoría interna. El ECA contará con una auditoría interna. Su función principal será comprobar el cumplimiento, la suficiencia y la validez del sistema de control interno establecido por la institución.

@@ -1,0 +1,1 @@
+TRANSITORIO IX- Sobre los activos y recursos financieros. Los activos y recursos financieros del Ente Costarricense de Acreditación (ECA) y del Laboratorio Costarricense de Metrología (Lacomet) se mantienen inalterables.

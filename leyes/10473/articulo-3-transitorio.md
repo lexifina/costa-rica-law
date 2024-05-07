@@ -1,0 +1,2 @@
+TRANSITORIO III- Sobre el ECA. El actual gerente del ECA continuará en su nombramiento por un período de doce meses, mientras se constituye la nueva Junta Directiva del ECA y toma la decisión pertinente.
+Los actuales miembros de la Junta Directiva y la Comisión de Acreditación del ECA continuarán con sus representaciones y nombramientos vigentes por un período máximo de seis meses, período en el cual deben constituirse la nueva Junta Directiva y la Comisión de Acreditación.

@@ -1,0 +1,2 @@
+ARTÍCULO 41- Servicios regulados de evaluación de la conformidad. Cuando se requieran servicios de evaluación de la conformidad, descritos en la presente ley, para demostrar cumplimiento de requisitos establecidos en documentos regulatorios, dichos servicios deben estar acreditados o reconocidos por el ECA.
+En los casos que no existan organismos de evaluación de la conformidad, con los alcances específicos acreditados, se deberán seguir las pautas establecidas por la institución reguladora correspondiente al respecto.

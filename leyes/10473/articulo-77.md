@@ -1,0 +1,5 @@
+ARTÍCULO 77- Apoyo a las pymes. El Sistema Nacional para la Calidad deberá fomentar la generación de capacidades para la formación, asistencia técnica y cooperación ínter e intra sectorial, con el objetivo de incentivar el acceso de las pymes al Sistema Nacional para la Calidad (SNC). Para lo anterior, el SNC tendrá las siguientes obligaciones:
+a) Gestionar el uso de recursos de cooperación nacional e internacional, así como los recursos de programas de apoyo empresarial existentes para el acceso de las pymes al SNC.
+b) Articular con instituciones educativas para la formación profesionaltécnica en materia metrológica y de calidad.
+c) Establecer programas de apoyo técnico especializado a pymes, con el objeto de facilitar el cumplimiento de los requisitos exigidos en las normas de evaluación de la conformidad.
+d) Generar beneficios en los servicios del Sistema Nacional para la Calidad para las pymes, según lo dispuesto en la Ley 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002.

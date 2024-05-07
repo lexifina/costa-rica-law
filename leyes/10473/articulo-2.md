@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ámbito de la ley. Esta ley se aplicará a todos los productos y servicios comercializados en el territorio nacional; así mismo, a entidades públicas y privadas que integren el Sistema Nacional para la Calidad, conformada por actividades de reglamentación técnica, normalización, acreditación, metrología y evaluación de la conformidad realizadas en el país.
