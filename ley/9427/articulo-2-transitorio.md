@@ -1,1 +1,1 @@
-TRANSITORIO II.- Los ocupantes reconocidos para que reciban la donación de los terrenos contarán con cuatro años, a partir de la entrada en vigencia de la presente ley, para cumplir con las disposiciones previstas en ella.
+TRANSITORIO II.- (Derogado por el artículo 3° de la ley N° 10447 del 20 de marzo de 2024)

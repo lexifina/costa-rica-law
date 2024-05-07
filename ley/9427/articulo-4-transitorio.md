@@ -1,0 +1,2 @@
+Transitorio IV- Los ocupantes reconocidos para que reciban la donación de los terrenos, a los que se refiere la presente ley, contarán con un plazo total de diez años, que empezará a regir a partir de la entrada en vigencia de la presente modificación a la Ley 9427, a fin de que puedan cumplir con las disposiciones previstas en ella.
+(Así adicionado por el artículo 2° de la ley N° 10447 del 20 de marzo de 2024)
