@@ -1,0 +1,2 @@
+Artículo 17. Deber de Confidencialidad
+Las personas usuarias y quienes intervengan en cualquier fase del tratamiento de datos personales de las personas y núcleos familiares que conforman la Población Preliminar Potencial Beneficiaria y la Población Potencial Beneficiaria, están obligadas a mantener el deber de confidencialidad, aún después de finalizada su relación con la base de datos del SINIRUBE, en aplicación del artículo No. 11 y demás disposiciones de la Ley Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley No. 8968.

@@ -1,0 +1,4 @@
+Artículo 26. Articulación interinstitucional para la determinación de Población Potencial Beneficiaria
+El BANHVI debe procurar mantener una constante comunicación y coordinación interinstitucional con las entidades autorizadas del SFNV, así como el MIVAH, IMAS, INAMU, SINIRUBE u otros entes competentes que tengan vinculación con la determinación de Población Potencial Beneficiaria de proyectos de vivienda del SFNV, mediante la implementación de los procedimientos regulados en el presente Reglamento, así como de La Plataforma.
+Además, el BANHVI implementará los mecanismos de control y supervisión necesarios para garantizar la idoneidad de la información del SINIRUBE, así como el cumplimiento del presente reglamento por parte de las Entidades Autorizadas.
+Las organizaciones e instituciones externas debidamente inscritas en el Registro Nacional, pueden remitir a las entidades autorizadas listas de personas o núcleos familiares

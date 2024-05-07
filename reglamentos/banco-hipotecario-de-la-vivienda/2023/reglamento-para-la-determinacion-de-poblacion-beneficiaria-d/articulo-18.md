@@ -1,0 +1,2 @@
+Artículo 18. Registro de personas y núcleos familiares en el SINIRUBE
+Aquellas personas o núcleos familiares, que no se encuentren registradas en el SINIRUBE o que requieran actualizar o ampliar la información deberán gestionar de manera individual o en grupo su inclusión ante entidades autorizadas y el IMAS u otros entes competentes, por medio del mecanismo oficial para tales efectos. La inclusión en la plataforma requiere de información individual.

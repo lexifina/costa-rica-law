@@ -1,0 +1,2 @@
+Artículo 8. Listado Final de Población Potencial Beneficiaria
+Corresponde al listado conformado por la Población Potencial Beneficiaria definida en el artículo 6 del presente reglamento, que se denominará "Listado Final de Población Potencial Beneficiaria', que incluye a las personas o núcleos familiares que potencialmente serán beneficiarios y se aprueban en el momento de aprobación del proyecto por parte de la Junta Directiva del BANHVI.

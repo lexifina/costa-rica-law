@@ -1,0 +1,6 @@
+Artículo 16. Personas usuarias y autorización de acceso a La Plataforma
+La Plataforma es un sistema administrado por SINIRUBE, su uso será exclusivo del personal de las entidades autorizadas. Las autoridades competentes de las entidades autorizadas, con el soporte que sea necesario del BANHVI, deben solicitar al SINIRUBE la autorización de acceso a La Plataforma para su personal, para lo cual deben cumplir con las condiciones definidas para dicho fin, entre las cuales se encuentran las siguientes:
+1. Suscripción del convenio de cooperación interinstitucional con SINIRUBE. En el caso de entidades autorizadas, el convenio debe incluir también al BANHVI.
+2. Suscripción de contrato de confidencialidad por parte de la persona para la cual se solicita autorización de acceso, contrato que debe incluir a SINIRUBE, ente solicitante y la persona autorizada.
+3. La persona que solicite autorización de acceso a La Plataforma, debe participar en una sesión de capacitación sobre el uso de La Plataforma. La cual será coordinada por el BANHVI con SINIRUBE.
+4. Cualquier otra condición que establezca el Consejo Rector de SINIRUBE al amparo de la Ley de Creación del Sistema Nacional de Información y Registro Único de beneficiarios del Estado, Ley No. 9137.
