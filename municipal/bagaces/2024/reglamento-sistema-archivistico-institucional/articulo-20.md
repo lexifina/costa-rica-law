@@ -1,0 +1,1 @@
+Artículo 20.-Expedientes personales de funcionarios inactivos. Los expedientes personales en custodia del Archivo Central de los funcionarios inactivos se prestarán únicamente al interesado, a la oficina de Recursos Humanos, a la Auditoría Interna, a los Tribunales de Justicia y a quién el Alcalde indique, debiendo emitir una autorización por escrito para ello.

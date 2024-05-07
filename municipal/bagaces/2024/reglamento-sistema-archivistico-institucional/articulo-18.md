@@ -1,0 +1,1 @@
+Artículo 18.-Reproducción de documentos. El Archivo Central estará facultado para reproducir sus documentos en la sala de consulta. Cuando se trate de usuarios externos, y ocupen reproducir algún documento fuera de la institución, el encargado del Archivo Central podrá autorizar la salida de documentos con la custodia de un funcionario del Archivo.
