@@ -1,1 +1,0 @@
-Artículo 9º—Eliminación de la Caja Chica. Cuando se presente un cierre de una oficina de servicios o la caja chica deje de ser necesaria para la operación de la dependencia, la jefatura responsable, deberá mediante informe debidamente documentado gestionar ante el director de la Dirección de Operaciones, la eliminación del fondo.

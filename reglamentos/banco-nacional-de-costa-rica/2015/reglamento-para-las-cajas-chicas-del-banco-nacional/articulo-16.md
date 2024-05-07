@@ -1,1 +1,0 @@
-Artículo 16.—Custodia de Caja Chica. Las Cajas Chicas con Saldo de Efectivo deberán guardarse en un lugar seguro dentro de la institución bajo llave. Un duplicado de la llave, se guardará en una custodia en sobre cerrado, lacrado e indicando el contenido.
