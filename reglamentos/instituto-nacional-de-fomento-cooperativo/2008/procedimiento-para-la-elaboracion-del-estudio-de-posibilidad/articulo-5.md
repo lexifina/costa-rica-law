@@ -1,1 +1,0 @@
-Artículo 5º—Utilidad. Con miras a determinar que el proyecto a constituir debe producir beneficios y excedentes, el estudio evidenciará los eventuales beneficios económicos, sociales, ambientales y otros que va a generar.

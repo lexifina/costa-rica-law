@@ -1,1 +1,0 @@
-Artículo 7º—Definición del estudio de factibilidad. Se entiende por estudio de factibilidad el proceso sistemático de valorar un proyecto con el fin de determinar si su ejecución generará beneficios futuros, conmensurados desde el punto de vista financiero, legal, social, ambiental, político, entre otros.

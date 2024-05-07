@@ -1,1 +1,0 @@
-Artículo 10.—Cuando el dictamen sea positivo la Dirección Ejecutiva del INFOCOOP o de la CPCA, según corresponda, lo remitirá al MTSS, para que continúe con el trámite de inscripción del organismo cooperativo. En el caso que el dictamen sea negativo lo remitirá al MTSS para que proceda con el trámite de subsanación establecido en el Artículo 33, párrafo segundo de la LAC.
