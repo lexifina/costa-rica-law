@@ -1,1 +1,0 @@
-Artículo 17.—Asignación de Recursos al LACOMET. Autorízase a las instituciones del Estado y entidades públicas estatales para que efectúen donaciones o aportes al LACOMET y le asignen temporalmente el personal calificado y los recursos financieros necesarios para cumplir sus fines y ejecutar proyectos específicos.
