@@ -1,0 +1,1 @@
+Artículo 3°: Las personas servidoras deben reunir las condiciones y características que las faculten para desempeñarse en forma eficiente en el trabajo, es decir, poseer idoneidad comprobada para optar por un nombramiento dentro de la Administración Pública.
