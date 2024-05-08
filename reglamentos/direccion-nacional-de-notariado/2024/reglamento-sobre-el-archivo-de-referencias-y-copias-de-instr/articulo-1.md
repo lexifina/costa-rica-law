@@ -1,0 +1,26 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+EL CONSEJO SUPERIOR NOTARIAL COMUNICA:
+Que mediante acuerdo N° 8, tomado en sesión ordinaria N°6, celebrada por el Consejo Superior Notarial el 10 de abril de 2024; se dispuso a reformar el Reglamento de Archivo de Referencias y Copias de Instrumentos Públicos en la Actividad Notarial de la Dirección Nacional de Notariado; el cual se transcribe a continuación:
+REGLAMENTO SOBRE EL ARCHIVO DE REFERENCIAS
+Y COPIAS DE INSTRUMENTOS PÚBLICOS
+EN LA ACTIVIDAD NOTARIAL
+Aprobado por el Consejo Superior Notarial mediante Acuerdo N° 8, tomado en sesión ordinaria N° 6 celebrada el 10 de abril de 2024.
+Ante la necesidad de actualización y adaptación de la forma de confeccionar los diferentes archivos de referencia de la actividad notarial:
+Considerando:
+1º-La Dirección Nacional de Notariado es el órgano rector de la actividad notarial y tiene competencia exclusiva para regular a todos los notarios públicos activos y el Consejo Superior Notarial es el órgano que tiene las funciones de dirección y emisión de políticas y directrices por parte de esta institución.
+2º-El Código Notarial establece en el artículo 47: "Los notarios deben llevar un archivo de referencias con los documentos o comprobantes referidos en las escrituras matrices y que, conforme a la ley, deben quedar en su poder. Estos documentos o comprobantes serán enumerados con foliatura corrida."
+3º-El Código Notarial establece en el artículo 48: "Todo notario público deberá conservar en sus archivos una copia, firmada por él, de todos los instrumentos públicos que autorice y deberá hacer constar el número de folio correspondiente a los documentos o comprobantes en el archivo de referencia, si existieren."
+4º-El 18 de mayo de 2022, la Dirección Nacional de Notariado emitió el Reglamento de documentos notariales extraprotocolares en soporte electrónico con la finalidad de adaptar la actividad notarial y brindar mayor seguridad en las actuaciones y en su artículo 18 establece: "Cuando se requieran otros documentos en soporte electrónico para poder confeccionar documentos notariales también en soporte electrónico, deberán agregarse al archivo de referencias conforme las normas correspondientes. Igualmente, cuando se tengan documentos impresos, que se necesiten para la elaboración de documentos notariales en soporte electrónico, se deben agregar al archivo de referencias conforme a la normativa correspondiente."
+5º-Los Lineamientos para el ejercicio y control del servicio notarial en su artículo 21 establecen:
+"Los archivos de referencias y copia de instrumentos públicos podrán ser compilados por el notario, en forma física o digital. En este último caso deberá cumplirse con la normativa que dicte o acepte el Consejo Superior Notarial. Los archivos de referencia y de copia de instrumentos públicos son de carácter privado, no son objeto de consulta pública."
+6º-Los Lineamientos para el ejercicio y control del servicio notarial en su artículo 22 establecen: "La conservación, custodia y forma de llevar este archivo es responsabilidad exclusiva del notario y objeto de control por las autoridades competentes, salvo lo dispuesto en el artículo anterior para los archivos digitales."
+7º-Según el acuerdo 2020-028-004, tomado en sesión extraordinaria N° 028-2020, celebrada por el Consejo Superior Notarial el 16 de septiembre de 2020, todos los notarios públicos deben contar con firma digital a partir del 1 de enero de 2021.
+8º-La Ley de certificados, firmas digitales y documentos electrónicos, Ley N° 8454 del 30 de agosto del 2005 y su Reglamento, Decreto Ejecutivo N° 33018-MICIT del 20 de marzo de 2006; junto con la Directriz del Poder Ejecutivo N° 067-MICIT-H-MEIC publicada en La Gaceta N° 79 del viernes 25 de abril de 2014, establecen que los nuevos desarrollos o funcionalidades en los sistemas de información de las instituciones públicas nacionales, deben incorporar la firma digital como mecanismo de autenticación en los servicios electrónicos ofrecidos a los ciudadanos.
+9º-De acuerdo con los cambios tecnológicos y la normativa especializada aplicable, resulta necesario actualizar los lineamientos existentes para la confección y establecimiento de los archivos de referencias y de copias de instrumentos públicos para brindar seguridad jurídica a las personas notarias y las personas usuarias de los servicios. Por tanto,
+El Consejo Superior Notarial y la Dirección Nacional de Notariado, emiten las siguientes disposiciones administrativas dirigidas a todas las personas notarias en el ejercicio de sus funciones:
+REGLAMENTO SOBRE EL ARCHIVO DE REFERENCIAS
+Y COPIAS DE INSTRUMENTOS PÚBLICOS
+EN LA ACTIVIDAD NOTARIAL
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Alcance. Por el presente reglamento se determinan los alcances de la conservación documental a cargo del notariado público, sobre las reproducciones, documentos o comprobantes relativos a sus actuaciones, así como aquellos referidos en las escrituras matrices y que, conforme a la ley, deben quedar en su poder. Además, se establecen las medidas de orden y cuidado para su adecuado registro y resguardo en la oficina notarial, lo cual podrá ser objeto de fiscalizaciones por las autoridades competentes.

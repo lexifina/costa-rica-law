@@ -1,0 +1,3 @@
+Artículo 12.-Derogatoria. Los presentes lineamientos derogan de manera expresa los anteriores: Lineamientos con las disposiciones de carácter obligatorio para todos los notarios que opten por llevar sus archivos de referencia en soporte digital del 14 de enero de 2015, y los Lineamientos para la organización de los archivos de referencia en soporte papel del 14 de mayo de 2015, así como cualquier otro anterior que se oponga a las disposiciones emitidas en este cuerpo normativo.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Consejo Superior Notarial Dirección Nacional de Notariado.
