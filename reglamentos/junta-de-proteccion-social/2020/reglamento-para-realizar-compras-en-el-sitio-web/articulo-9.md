@@ -1,1 +1,0 @@
-Artículo 9° Del Servicio en la Web. – La Junta no garantiza el acceso permanente e ininterrumpido al sitio ni que el servicio o servidor esté libre de virus. El jugador debe tomar las medidas necesarias para evitar los efectos de los virus informáticos.
