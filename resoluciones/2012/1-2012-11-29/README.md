@@ -59,3 +59,4 @@ Establece que los fabricantes e importadores de jarabes utilizados para la elabo
 | 44 | 2023-08-10 | Resolución 49 (2023-08-10) |
 | 45 | 2023-11-08 | Resolución 58 (2023-11-08) |
 | 46 | 2024-02-07 | Resolución 9 (2024-02-07) |
+| 47 | 2024-05-09 | Resolución 20 (2024-05-09) |
