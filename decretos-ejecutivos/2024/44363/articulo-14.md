@@ -1,0 +1,7 @@
+Artículo 14.- Prescripción de medicamentos. En aquellas teleconsultas que requieran la prescripción de medicamentos, ya sea de uso común, antibióticos, psicotrópicos o estupefacientes, se debe cumplir con los siguientes aspectos:
+a) La receta puede ser firmada por el profesional en salud, según competencias legales, ya sea de manera física o digital, en esta debe constar su nombre, profesión, especialidad ( de contar con ella) y código profesional.
+b) Las recetas digitales deben ser firmadas con un certificado de firma digital válido. Se prohíbe expresamente que el profesional teleconsultado remita al usuario por algún medio de TIC copias de recetas fumadas autógrafamente.
+c) La receta debe de incluir los datos personales del usuario: nombre, identificación, edad, fecha de la prescripción, peso y talla.
+d) Tanto en el expediente clínico del usuario como en la receta, deben quedar registrados todos los detalles de la prescripción médica: dosis, frecuencia de utilización, vía de administración y tiempo de uso del medicamento.
+e) En el caso de la prescripción de psicotrópicos y estupefacientes, debe constar en el expediente clínico del usuario una consulta presencial médica previa, en la que se indicó la prescripción originalmente por parte del profesional.
+f) En el caso del sector privado, todas las prescripciones de psicotrópicos y estupefacientes deben ser realizadas por medio del Sistema Automatizado de Receta Digital.

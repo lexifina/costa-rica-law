@@ -1,0 +1,2 @@
+Artículo 18.- Función del Ministerio de Salud. El Ministerio de Salud a través ele sus diversas instancias en los tres niveles de gestión, y siempre dentro de sus funciones rectoras, le corresponde el control del cumplimiento del presente reglamento.
+Ante el incumplimiento de las disposiciones establecidas en este Decreto Ejecutivo, se deben aplicar las medidas sanitarias especiales establecidas en los artículos 355 y 356 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud".

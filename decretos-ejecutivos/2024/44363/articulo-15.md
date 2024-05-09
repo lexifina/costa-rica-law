@@ -1,0 +1,5 @@
+Artículo 15.- Seguimiento. El seguimiento en telecousulta debe mantener la continuidad de la atención y cuido del usuario, especialmente donde el acceso a la atención presencial puede ser limitado o difícil, por lo que se debe cumplir en los siguientes aspectos generales:
+a) Objetivo del seguimiento: El personal sanitario puede dar seguimiento en teleconsulta, con el objetivo de evaluar el progreso del usuario, asegurar el cumplimiento del tratamiento, ajustar medicamentos o terapias según sea necesario y brindar apoyo continuo.
+b) Comunicación remota: Durante el seguimiento, se debe hacer uso de tecnología de comunicación a distancia como videollamada o aplicaciones de salud, para interactuar con el usuario y recopilar información relevante.
+c) Educación y asesoramiento: El personal sanitario puede proporcionar orientación adicional al usuario, responder a preguntas y brindar información sobre su condición y el plan de tratamiento.
+d) Evaluación de resultados: Durante el seguimiento, se deben revisar los resultados de exámenes, análisis de laboratorio u otros datos que puedan haberse obtenido después de la consulta inicial.

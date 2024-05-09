@@ -1,0 +1,2 @@
+Artículo 5.- Toma de decisión. La decisión de optar por una teleconsulta o una consulta presencial debe ser discutida y acordada entre el profesional y el usuario, teniendo en cuenta las necesidades del proceso de atención, las preferencias del usuario y las opciones disponibles en cada situación particular,
+La implementación de la teleconsulta sanitaria es una modalidad de atención complementaria y no sustituye por ningún motivo la valoración presencial y directa que debe recibir un usuario por parte del profesional en salud tratante.

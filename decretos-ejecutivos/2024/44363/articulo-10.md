@@ -1,0 +1,6 @@
+Artículo 10.- Condiciones para realizar la teleconsulta. Los profesionales teleconsultados deben cumplir con las siguientes condiciones para poder ejercer las teleconsultas con sus usuarios:
+a) Estar incorporados y autorizados para el ejercicio profesional por el colegio profesional correspondiente.
+b) El lugar donde se brinde la atención debe ser privado, donde se asigne la confianza y confidencialidad especificadas en los principios del artículo 8 del presente reglamento y acorde a lo estipulado en las regulaciones de ética profesional del colegio profesional respectivo.
+c) Cumplir con las obligaciones que se indican en las regulaciones de ética profesional del colegio profesional respectivo con relación a la modalidad de teleconsulta, cuando estas existan.
+d) Constatar que en el expediente clínico esté el documento de consentimiento informado debidamente firmado por el usuario.
+e) Garantizar la confidencialidad y privacidad de los datos personales del usuario, cumpliendo con las disposiciones establecidas en la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud" y sus reformas, en la Ley N º 8968 Ley de Protección ele la Persona frente al tratamiento de sus datos personales y las normativas vigentes en materia de protección de datos.

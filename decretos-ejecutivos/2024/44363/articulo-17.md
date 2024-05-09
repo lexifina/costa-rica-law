@@ -1,0 +1,5 @@
+Artículo 17.- Evaluación de la calidad. Los servicios ele salud deben evaluar la calidad ele la teleconsulta cada año, con la finalidad de que esta sea mejorada de forma continua. Para esto se debe recopilar y analizar los datos para medir la calidad en los siguientes términos:
+a) Encuesta de satisfacción: Se debe medir la satisfacción del usuario mediante encuestas o cuestionarios que evalúen la comodidad, la claridad de la comunicación y la efectividad percibida de la teleconsulta.
+b) Resultados clínicos: Se deben analizar los resultados de la teleconsulta en términos de mejoras en la salud del usuario, control de enfermedades y adherencia de tratamientos.
+c) Eficiencia y accesibilidad: Se debe evaluar el tiempo de espera para la teleconsulta, la facilidad de acceso a la plataforma y la eficiencia en general del proceso.
+c) Uso de tecnología segura: Se debe evaluar si se utilizaron plataformas y herramientas tecnológicas seguras para garantizar una comunicación clara durante la teleconsulta.
