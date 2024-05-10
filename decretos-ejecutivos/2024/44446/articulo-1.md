@@ -1,0 +1,14 @@
+Nº 44446-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+y
+EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les. confieren los Artículos 140, incisos 3) y 18), 14-6 de la Constitución Política; y con fundamento en lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155 del 5 de agosto de 1963, reformada por la Ley N ° 4786 del 5 de julio de 1971; los artículos 25 inciso 1), 27 inciso 1), y 28, inciso 2), ac/.1pit.es a) y b) de la Ley General-de la Administración Pública, Ley Nº 62.27, y la Ley General de Control Interno, Nº 8292 del 31 de julio del 2002.
+CONSIDERANDO:
+1. Que mediante el Decreto Ejecutivo No. 31564-MOPT del 05 de mayo del 2003, se emitió el "Reglamento para el Reconocimiertto de.la compensación por desarraigo a los profesionales del Ministerio de Obras P.tiblicas y Transportes".
+2. Que la Auditoría General mediante los .Informes de Control lntérno No DAG-l-55-2018 denominado "Verificacíón de los Procedimientos y Cumplimiento Normativo en lo referente o Desarraigo", y el No. DAG-1-04-2021 "Verificación del procedimiento para la asignación y exclusión de la compensación por desarraigo a los profesionales del Ministerio de Obras Públicas y Transportes", recomendó establecer los controles necesarios con el fin de que se garantice el uso correcto de los fondos púbUcos.
+3. Que mediante oficio No DAJ-2021-6819 de fecha 20 de diciembre del 2021, la Dirección de Asuntos Jurídicos del Miaisterio de Obras Públicas y Transportes, emitió criterio jurídico, en cuanto a que dicho sobresueldo nació por una necesidad ministerial que ya ha fenecido en el tiempo, y que al desaparecer la naturaleza por la cual surgió el pago del desarraigo, mantener éste genera un gasto indebido al Estado, contrario a los principios de eficiencia y austeridad. De gasto público.
+4. Que, por las razones expuestas, es claro que, al aplicar la normativa Jerárquica, la norma de mayor rango priva sobre la de rango menor; así las cosas, la Ley N º9635 "Ley de Fortalecimiento de las Finanzas Públicas': priva sobre el "Reglamento para el Reconocimiento a la Compensación por Desarraigo a los Profesionales del Ministerio de Obras Públicas y Transportes".
+5. Que, en razón de las anteriores consideraciones, se hace necesario y oportuno proceder a la derogatoria del Decreto Ejecutivo No. 31564-MOPT "Reglamento para el Reconocimiento de In compensación por Desarraigo a los Profesionales del Ministerio de Obras Públicas y Transportes". Por tanto,
+DECRETAN
+Derogar el Decreto Ejecutivo No. 31564-MOPT el.el OS de mayo del 2003, "Reglamento para el Reconocimiento de la compensación por Desarraigo a los Profesionales del Ministerio de Obras Públicas y Transportes".
+Artículo 1.- Deróguese el Decreto Ejecutivo No. 31564-MOPT del 05 de mayo del 2003, "Reglamento para el Reconocimiento de la compensación por desarraigo a los profesionales del Ministerio de Obras Públicas y Transportes".
