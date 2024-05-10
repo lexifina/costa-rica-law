@@ -1,1 +1,2 @@
-Artículo 11.—En el momento de ejercer el control migratorio, la Policía de Migración, podrá retener el pasaporte o documento de viaje de la persona extranjera, por un plazo máximo de 72 de horas, a efectos de determinar su condición migratoria, de conformidad con lo dispuesto en el párrafo penúltimo del artículo 18 de la Ley.
+Artículo 11.-En el momento de ejercer el control migratorio, la Policía de Migración, podrá retener el pasaporte o documento de viaje de la persona extranjera, por un plazo máxima de cinco días hábiles, a efectos de determinar su condición migratoria, de conformidad con lo dispuesto en el párrafo penúltimo del artículo 18 de la Ley.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44576 del 10 de mayo del 2024)
