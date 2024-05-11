@@ -1,0 +1,6 @@
+Artículo 4°.- Alcances de la oficialización.
+El SEN ASA podrá oficializar personas físicas o jurídicas o ensayos de laboratorio según lo requiera. También podrá coordinar y establecer cooperación con organizaciones del sector, públicas o privadas, nacionales o internacionales con la finalidad de que sean estas organizaciones quienes contraten las personas que se requiera oficializar y asuman la condición de patrono del personal oficializado ante SENASA.
+El SENASA, podrá decidir si acepta o re􀃫haza una solicitud de oficialización o de su renovación. Asimismo, determinará discrecionalmente y siguiendo los principios de la OMSA la necesidad de oficializar personas físicas o jurídicas según se requiera.
+El SENASA a través de la Unidad de Oficialización otorgará la oficialización mediante resolución administrativa en las áreas o los ensayos de laboratorio según corresponda.
+Las personas oficializadas y los laboratorios con ensayos oficializados solamente podrán ejecutar las actividades que correspondan al área o alcance en que se oficializó.
+Al ser la oficialización una delegación de funciones conforme a lo que establece la Ley General de la Administración Pública, podrá ser revocada en cualquier momento por el SENASA.

@@ -1,0 +1,5 @@
+CAPITULO V
+Incompatibilidades y prohibiciones
+Artículo 20°- Conflicto de intereses.
+Los oficializados no podrán ejercer como oficializado, cuando por un conflicto de interés, sea porque hay algún interés personal o de familiares de hasta segundo grado por consanguinidad o afinidad, que podrían influir de manera inadecuada en la ejecución de sus funciones y su responsabilidad, resulte ser incompatible con la actividad para la cual fue· oficializado, sea porque este ostente la calidad de propietario, socio, representante legal o responsable del establecimiento al que le va a brindar servicios, o en mayor o menor medida, afecte su imparcialidad, objetividad e independencia de criterio.
+Igual impedimento aplica para los representantes legales, responsables o empleados de los laboratorios a los que se les haya oficializado ensayos de laboratorio. Mediante resolución fundada y en situaciones calificadas y ante la imposibilidad de que exista otro laboratorio que puede brindar el servicio, el SEN ASA podrá autorizar que se realice el análisis correspondiente.

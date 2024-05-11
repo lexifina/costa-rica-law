@@ -1,0 +1,7 @@
+Artículo 5° .- Autoridad oficial.
+El SENASA para todos los efectos es el responsable técnico directo de las actividades oficiales delegadas en personas físicas o jurídicas acá reguladas, por lo tanto, a través de las Dependencias Técnicas Responsables designará el personal responsable del seguimiento, supervisión y evaluación de las actividades ejecutadas por el personal oficializado y solicitará las acciones pertinentes.
+El SENASA es la única autoridad competente para emitir órdenes, directrices y recomendaciones técnicas para la ejecución de las actividades delegadas conforme a lo establecido en la Ley N º 8495.
+Las medidas sanitarias que emiten los oficializados son de acatamiento obligatorio conforme a los artículos 38, 44 y 91 de la Ley Nº 8495. Los administrados deberán permitir, facilitar y colaborar en la ejecución de las actividades oficializadas .
+El SENASA determinará el alcance, perfil y competencias técnicas que se requiere para cada uno de los tipos de oficialización en los procedimientos respectivos.
+El SENASA establecerá, según los requerimientos sanitarios del momento, los requisitos y condiciones para los ensayos a oficializar de acuerdo a la categoría de laboratorio con ensayos oficializados, a fin de coadyuvar con la protección ele la salud animal, la salud pública veterinaria, el ambiente y el funcionamiento del SENASA.
+Para todos los efectos se establece que el SENASA no asun1e obligaciones patronales ni establece una relación laboral con la persona oficializada ni con el ente contratante.

@@ -1,0 +1,2 @@
+Artículo 19°. - De los recursos.
+Contra la resolución en la que se revoque la oficialización cabe los recursos ordinarios de revocatoria y apelación los cuales deberán interponerse ante el SENASA dentro del término de tres días hábiles, contados a partir de la notificación respectiva, conforme al artículo 342 y siguientes de la Ley General de la Administración Pública. La interposición de dichos recursos no suspende la ejecución de lo ordenado.

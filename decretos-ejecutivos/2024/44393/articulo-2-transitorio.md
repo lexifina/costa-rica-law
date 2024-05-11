@@ -1,0 +1,1 @@
+TRANSITORIO SEGUNDO. - Las oficializaciones de personas que se hayan otorgado con la participación de un ente contratante y con plazo indefinido, tendrán la vigencia que se haya establecido en el convenio suscrito entre el SENASA y el ente contratante.
