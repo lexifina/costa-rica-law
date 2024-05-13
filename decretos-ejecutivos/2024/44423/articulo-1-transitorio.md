@@ -1,0 +1,1 @@
+TRANSITORIO I. Los servicios de neonatología públicos, privados o mixtos que obtuvieron un permiso de habilitación antes de la entrada en vigor del presente Decreto Ejecutivo, pueden mantener dicho permiso por el tiempo que les fue extendido, debiendo adaptar las condiciones de su establecimiento a las disposiciones de esta normativa, previo a renovar el permiso.
