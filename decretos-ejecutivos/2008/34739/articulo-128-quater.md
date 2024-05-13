@@ -1,9 +1,10 @@
-Artículo 128 quater. - Del internamiento de las mercancías a las SEL. Cuando las mercancías que son objeto de servicios de logística estén consignadas a nombre de la empresa de servicios de logística, el internamiento de las mercancías deberá ampararse a una Declaración Aduanera de Internamiento y debe venir acompañada por los siguientes requisitos:
+Artículo 128 quater. - Del internamiento de las mercancías a las SEL. Todas las mercancías que son objeto de servicios de logística deberán ampararse a una declaración aduanera de internamiento y debe venir acompañada por los siguientes requisitos:
 a) Conocimiento de embarque, guía aérea o carta de porte, según corresponda.
 b) Factura comercial cuando se trate de una compraventa, o bien, documento equivalente emitido por el remitente, en los términos definidos en el artículo 129 inciso f), sub inciso i. del presente reglamento.
 Si la factura comercial o documento equivalente no estuviera redactada en español, se debe adjuntar la traducción correspondiente.
 c) Documentos de flete y de seguros pagados, cuando la condición de entrega de la mercancía no los comprenda y no vengan declarados en el respectivo título de transporte.
 d) Cualquier otro requisito arancelario o no arancelario, contemplado en la legislación especial vigente.
 Cuando la empresa SEL requiera entregar las mercancías ingresadas al Régimen a otra empresa beneficiaria del Régimen de Zonas Francas, Perfeccionamiento Activo, o empresas nacionales, éstas deberán tramitar la declaración aduanera correspondiente, siguiendo al efecto el procedimiento aduanero establecido.
-Asimismo, cuando en el conocimiento de embarque se indique que las mercancías estén destinadas a un tercero predefinido, diferente a la empresa de servicios de logística, no se requerirá la Declaración Aduanera de Internamiento a la Empresa de Servicios de Logística. En tal caso, la empresa deberá registrar en sus inventarios las mercancías objeto del servicio logístico en espera de su posterior destinación a alguno de los regímenes aduaneros permitidos.
+Asimismo, la empresa deberá registrar en sus sistemas informáticos de inventarios las mercancías objeto del servicio logístico en espera de su posterior destinación a alguno de los regímenes aduaneros permitidos.
 (Así adicionado por el artículo 3° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44570 del 13 de mayo de 2024)

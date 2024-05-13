@@ -1,0 +1,2 @@
+Artículo 130 septies. Entrega directa de mercancías en las instalaciones de las empresas SEL. Las empresas de Zona Franca que realicen compras en el mercado local podrán disponer que el proveedor local entregue las mercancías adquiridas directamente en las instalaciones de una empresa beneficiaria de servicios logísticos contratada al efecto.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44570 del 13 de mayo de 2024)

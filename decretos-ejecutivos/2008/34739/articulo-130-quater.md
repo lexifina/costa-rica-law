@@ -4,5 +4,6 @@ ii. Descripción de las mercancías objeto de la transacción, con especificaci�
 iii. Tipo de embalaje, las marcas, números, clases y cantidades parciales y total de bultos.
 iv. Lugar y fecha de expedición.
 Si la factura comercial o documento equivalente no estuviere redactado en español, se deberá adjuntar la traducción correspondiente.
+Cuando exista una compraventa y las mercancías estén consignadas a un tercero predefinido, se debe aportar la factura comercial correspondiente al momento de realizar el ingreso y salida de la mercancía en la empresa de servicios de logística.
 (Así adicionado por el artículo 3° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
-(Así reformado por el artículo 2° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44570 del 13 de mayo de 2024)
