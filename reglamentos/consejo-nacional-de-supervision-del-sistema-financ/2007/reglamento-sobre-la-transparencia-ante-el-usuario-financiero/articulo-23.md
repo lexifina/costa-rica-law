@@ -1,0 +1,2 @@
+Artículo 23.-Mecanismos de autogestión para el bloqueo temporal de productos y servicios financieros. Las entidades supervisadas deben habilitar en sus canales digitales y en sus centros de atención telefónica, mecanismos de autogestión que les permitan a los usuarios financieros realizar bloqueos temporales de sus productos y servicios financieros de forma expedita.
+(Así adicionado mediante sesión N° 1861-2024 del 14 de mayo de 2024)
