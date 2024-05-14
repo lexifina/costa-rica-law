@@ -1,0 +1,5 @@
+TRANSITORIOS
+Los prestadores que actualmente brindan el servicio de control de tensión deberán aplicar los ajustes necesarios de acuerdo con la regulación nacional vigente y este procedimiento una vez sea aprobado, para posteriormente solicitar su habilitación oficial.
+Los ajustes para el cumplimiento de los requerimientos para habilitación del servicio y la solicitud de habilitación no podrán exceder el plazo de un año, posterior a la aprobación de este procedimiento.
+Aquellos agentes del MEN con contrato de conexión, contrato de venta o convenio, cuyos términos difieran con las condiciones planteadas en este procedimiento, deberán de buscar la figura jurídica que corresponda (adenda, renovación o modificación de la figura actual) con el fin de cumplir con las regulaciones establecidas para brindar el servicio auxiliar obligatorio de control de tensión.
+El ICE para toda renovación de contrato con los Agentes del MEN que operan bajo ley 7200 deberá aplicar lo establecido por el reglamento técnico AR-RT-SASEN, además los establecido en este procedimiento.
