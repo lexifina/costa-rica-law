@@ -15,3 +15,4 @@ Reglamento de Funcionamiento del Consejo Superior de Trabajo
 | --- | --- | --- |
 | 1 | 2010-09-07 | la propia norma |
 | 2 | 2017-08-29 | Decreto Ejecutivo 40582 (2017-08-29) |
+| 3 | 2024-05-14 | Decreto Ejecutivo 44608 (2024-05-14) |
