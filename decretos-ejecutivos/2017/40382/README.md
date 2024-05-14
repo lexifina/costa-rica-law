@@ -14,3 +14,4 @@ Reglamento sobre requisitos de los regímenes de pensión con cargo al Presupues
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-11 | la propia norma |
+| 2 | 2024-05-14 | Decreto Ejecutivo 44526 (2024-05-14) |

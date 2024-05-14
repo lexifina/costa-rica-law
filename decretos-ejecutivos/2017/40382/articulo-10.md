@@ -1,17 +1,25 @@
-Artículo 10- Que la carta de solicitud citada en los trámites anteriores deberá contener:
-l . Nombre y apellidos.
-2. Número de cédula.
-3. Estado civil.
-4. Profesión u oficio.
-5. Pretensión o trámite a solicitar:
-a-En caso que sea tramite original o revisión de pensión: el solicitante debe indicar las instituciones para las que presta o prestó servicios; en caso de que el solicitante sea galardonado por el Premio Magón, deberá indicarlo en su escrito.
-b-En caso de que sea trámite de traspaso de pensión o sobrevivencia de los Regímenes Contributivos: cuando el solicitante labora para la Administración Pública, debe indicar para cual institución labora.
-e-En caso de solicitud de inclusión en Planillas de los Regímenes Contributivos: Cuando el solicitante labora para la Administración Pública, debe indicar para cual institución labora.
-d- En caso de solicitud de inclusión en Planillas de los Regímenes de Guerra y Gracia: El solicitante debe indicar la fecha de publicación, en el Diario Oficial La Gaceta, del Edicto notificado en la Plataforma de Servicios (a efectos de que la Dirección obtenga copia de la publicación.
-6. Lugar de residencia con indicación de dirección exacta.
-7. Lugar para notificaciones.
-8. Número de teléfono de casa de habitación o número de teléfono celular, o número de fax o Correo electrónico o cualquier otro medio para notificarse.
-9. Acreditar la representación, cuando no sea el interesado directo.
-10. Fecha.
-11. Firma.
-En caso de que la solicitud sea firmada por un apoderado o representante, debe aportarse el documento que acredita la representación.
+Artículo 10.- Generalidades sobre la presentación y contenido de declaraciones juradas.
+a. Declaración Jurada en solicitud de traspaso y/o sobrevivencia de cónyuge o conviviente en unión de hecho:
+El cónyuge, la (el) conviviente en unión de hecho deberá rendir declaración jurada ante persona funcionaria de la Dirección Nacional de Pensiones habilitada para el ejercicio del Derecho o en sede notarial, donde se consigne:
+1. Si había o no convivencia o separación con respecto al causante.
+2. Si había o no dependencia económica con respecto al causante. En caso que efectivamente existiera dependencia económica, indicar si era parcial o total, así como los motivos de la dependencia.
+3. Si tiene conocimiento de la existencia de alguna persona con igual o mejor derecho para solicitar la pensión (hijos menores de edad del causante, hijos o hijas del causante declarados en estado de invalidez, otras parejas del causante, madre o padre sobrevivientes hermanos o hermanas sobrevivientes que fueran dependientes económicamente del causante).
+4. En aquellos casos donde la persona solicitante de traspaso se vea imposibilitada de rendir declaración jurada, debido a condiciones clínicas o médicas propias de su discapacidad o invalidez, debidamente acreditadas con dictamen médico o epicrisis, emitidos por la Caja Costarricense del Seguro Social, podrá acreditarse la dependencia económica y la convivencia mediante prueba documental pertinente y fiable, así como mediante declaración jurada de testigos.
+Para el caso de solicitudes de traspaso de convivientes en unión de hecho, deberá aportar tres testigos, quienes no podrán tener ningún parentesco, hasta el tercer grado, con respecto al causante y al solicitante. Cada testigo deberá declarar respecto de:
+1. Si les consta la convivencia pública, pacífica e ininterrumpida de la pareja.
+2. Si tiene conocimiento de separación judicial o de hecho entre la pareja.
+3. Si le consta la dependencia económica entre la persona solicitante con respecto del causante, en caso que efectivamente tenga conocimiento, deberá indicar si la dependencia era parcial o total, así como los motivos de la dependencia.
+4. Si tiene conocimiento de la existencia de alguna persona con igual o mejor derecho para solicitar la pensión (hijos menores de edad del causante, hijos o hijas del causante declarados en estado de invalidez, otras parejas del causante, madre o padre sobrevivientes que fueran dependientes económicamente del causante., hermanos o hermanas sobrevivientes que fueran dependientes económicamente del causante).
+b. Declaración Jurada en solicitud de traspaso y/o sobrevivencia de solicitud de hijos mayores de 18 años y menores de 25 años:
+1. Si había o no convivencia con respecto al causante.
+2. Si había o no dependencia económica con respecto al causante. En caso que efectivamente existiera dependencia económica, indicar si era parcial o total, así como los motivos de la dependencia.
+3. Si tiene conocimiento de la existencia de alguna persona con igual o mejor derecho para solicitar la pensión (hijos menores de edad del causante, hijos o hijas del causante declarados en estado de invalidez, otras parejas del causante, madre o padre sobrevivientes hermanos o hermanas sobrevivientes que fueran dependientes económicamente del causante).
+c. Declaración Jurada en solicitud de traspaso y/o sobrevivencia de solicitud de hijos mayores de 55 años:
+1. Deberá rendir declaración jurada sobre la dependencia económica respecto del causante.
+En caso que efectivamente existiera dependencia económica, indicar si esta era parcial o total, así como los motivos que la generaron, indicando las razones que mediaron mientras el causante estaba vivo, detallando sobre la dinámica económica y familiar que le hacía dependiente a nivel económico.
+2. Manifestar si tiene ingresos como pensiones, salario u otros medios de subsistencia.
+3. Señalar si mantiene algún tipo de limitación social, física o cognitiva que generó la dependencia económica, estas limitaciones no necesariamente corresponden a declaratorias de invalidez, sino a situaciones particulares de sus padres o familia que le impidieron incorporarse al mercado laboral.
+4. Si tiene conocimiento de la existencia de alguna persona con igual o mejor derecho para solicitar la pensión (hijos menores de edad del causante, hijos o hijas del causante declarados en estado de invalidez, otras parejas del causante, madre o padre sobrevivientes hermanos o hermanas sobrevivientes que fueran dependientes económicamente del causante).
+En caso solicitud de traspaso y/o sobrevivencia de padres, madres y/o hermanos (as) la declaración deberá contener las mismas especificaciones del inciso anterior relacionado a hijos mayores de 55 años.
+Las declaraciones juradas aportadas por los solicitantes que fuesen hechas en sede notarial deberán de cumplir con todas las formalidades establecidas por la Dirección Nacional de Notariado y la normativa aplicable.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44526 del 14 de mayo de 2024)

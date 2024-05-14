@@ -1,98 +1,68 @@
-Artículo 4-Que los requisitos que se requieren para tramitar solicitudes de otorgamiento, revisión, traspasos y/o sobrevivencias e inclusión en planillas de pago de los Regímenes Contributivos con cargo al Presupuesto Nacional son:
-• Pensión original, Regímenes Contributivos
-Documentos que debe aportar la persona interesada:
-1. Carta de solicitud.
-2. Presentar documento de identificación, para efectos de que la Dirección obtenga el respaldo documental del mismo (cédula de identidad en caso de nacionales; DIMEX en caso de extranjeros).
-3. Presentar Carné de Seguro Social (sólo extranjeros), para efectos de que la Dirección obtenga la copia del mismo.
-4. En caso de solicitud por invalidez:
-a. Epicrisis o dictamen médico, llenar y firmar formulario de Solicitud de Pensión por Invalidez, (anexo 1 de este Reglamento), en el Núcleo de Servicios de la Información (ya que, si no ha sido declarado inválido debe demostrar el estado de invalidez ante la Junta Médica de la Caja Costarricense de Seguro Social para lo cual se le gestionará la cita correspondiente)
-b. Iniciar proceso de insania en sede judicial (en caso de capacidad mental disminuida o incapacidad para administrar bienes)
-Documentos que debe recabar la Dirección Nacional de Pensiones:
-1. Cuenta Cedular expedida por el Registro Civil
-2. Certificación patronal que indique fecha de ingreso, puesto desempeñado y el o los
-salarios devengados debidamente desglosados, indicando cada uno de sus
-componentes salariales con detalle, según corresponda del siguiente modo:
-a. Régimen General pensión ordinaria: últimos 24 salarios.
+Artículo 4: Los requisitos para tramitar solicitudes de otorgamiento de pensión original, revisión, traspaso, sobrevivencia, o inclusión en planillas de pago en los regímenes contributivos con cargo al Presupuesto Nacional, son:
+4.1 Documentos que debe aportar la persona interesada en toda solicitud de otorgamiento de pensión original, revisión, traspaso, sobrevivencia, e inclusión en planillas:
+a.-Carta de solicitud. Toda solicitud deberá venir firmada e incluir el nombre completo de la persona gestionante, su número de cédula de identidad o documento de identificación, estado civil (cuando sea relevante para el otorgamiento del respectivo beneficio), pretensión o trámite requerido, correo electrónico, teléfonos, dirección exacta, cualquier otra información de contacto, y el establecimiento del medio principal y accesorio para recibir notificaciones, preferiblemente de forma electrónica. Asimismo, en caso de traspasos de pensión, deberá presentar certificación bancaria que indique el número de cuenta a su nombre y en formato estandarizado (IBAN), para que se proceda a realizar el trámite de inclusión en planillas de forma oficiosa, y se pueda realizar el depósito del monto de pensión asignado. El solicitante será responsable de mantener la cuenta bancaria vigente para evitar inconvenientes con el pago del monto respectivo.
+Consentimiento Informado: Toda persona solicitante deberá llenar y firmar el consentimiento informado para que la Dirección Nacional de Pensiones, solicite información de carácter privado a las instituciones del Estado, de conformidad con el artículo 5 de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales Ley Nº 8968 del 7 de julio del 2011.
+Persona menor de edad: En caso de solicitudes de persona menor de edad, la gestión deberá ser presentada por el padre o la madre en ejercicio de la patria potestad, tutor, depositario judicial o autoridad competente, para lo cual deberá acreditar mediante certificación idónea su representación cuando así corresponda.
+Solicitudes de pensión original o revisión: En el caso de solicitudes de pensión original o revisión, en los que la persona aún no ha cesado de funciones, la solicitud de inclusión en planillas podrá presentarse junto con la certificación patronal con indicación de fecha cierta del cese de funciones, así como el comprobante de pago de al menos el 50% de la deuda al fondo que se le indique en las resoluciones de otorgamiento como resultado de diferencias entre lo cotizado y lo adeudado, y los demás requisitos para la inclusión en planillas como la certificación emitida por una entidad bancaria que indique el número de cuenta a su nombre en formato estandarizado (IBAN), y el formulario de autorización de deducción de la deuda al fondo de pensiones y el formulario de autorización para traslado de cuotas a favor del fondo de pensiones de la Ley Marco
+En caso de solicitud de revisión de pensión por reinserción laboral: El solicitante deberá presentar su solicitud dentro del plazo de un mes a partir de la fecha en que cesó en el desempeño del cargo, de conformidad con la ley Nº 9854 citada, Ley para frenar abusos en la revisión de pensiones con cargo al Presupuesto Nacional que reformó el artículo 31 y adiciona los artículos 31 bis, 31 ter, 31 quater, 31 quinquies y 31 sexies a la Ley 7302 Creación del Régimen General de Pensiones con Cargo al Presupuesto Nacional, de Otros Regímenes Especiales mencionada.
+La Administración podrá regular la recepción eiectrónica o en Íínea de solicitudes.
+b.-Documento de identificación vigente. Presentar a vista del funcionario de plataforma de la Dirección Nacional de Pensiones su documento de identidad a fin de obtener el respectivo respaldo, las personas Nacionales deberán presentar la cédula de identidad, las personas extranjeras deberán presentar el Documento de Identidad Migratoria para Extranjeros, conocido por sus siglas DIMEX. Cuando la gestión se envía por medios digitales deberá remitir copia del documento de identificación según sea el caso.
+c. En caso de solicitud por concepto de invalidez Adicional deberá aportar:
+i). La persona solicitante no tiene una declaratoria de Invalidez: En caso de que la persona no tenga una declaratoria de estado de invalidez, emitida por la Comisión Calificadora del Estado de la Invalidez de la Caja Costarricense del Seguro Social deberá aportar:
+1. Epicrisis o dictamen médico, emitido por la Caja Costarricense de Seguro Social.
+2. Llenar y firmar el formulario de solicitud de pensión por invalidez.
+3. Llenar y firmar el formulario de consentimiento para que la Comisión Calificadora del estado de Invalidez de la Caja Costarricense de Seguro Social pueda acceder a la información contenida en el expediente digital del sistema único en salud (EDUS).
+Estos formularios estarán disponibles en el portal oficial del Ministerio de Trabajo y Seguridad Social y/o en el Núcleo de Servicios de la Información de la Dirección Nacional de Pensiones.
+ii). La persona solicitante tiene una declaratoria de Invalidez que indica que está sujeta a revisión: La Dirección Nacional de Pensiones deberá proceder con las gestiones interinstitucionales para la valoración médica y la emisión de la certificación por parte de la Comisión Calificadora del Estado de Invalidez de la Caja Costarricense del Seguro Social, donde se indique si la persona está o no en estado de invalidez, si su condición de invalidez es irreversible o puede ser objeto de revisión; deberá señalar de manera clara la fecha de inicio de los padecimientos que llevaron a la declaratoria del estado de invalidez, en caso de que no se indica tal fecha, deberá cumplir con los documentos señalados en el inciso c.i) de este artículo, a fin de que la comisión de cita, analice su caso y determine la fecha cierta del inicio de la invalidez.
+iii). La persona solicitante tiene una declaratoria de Invalidez que indica que no está sujeta a revisión: Si la persona solicitante ya ha sido declarada en estado de invalidez, no sujeta a revisión, podrá aportar copia certificada de la declaratoria de invalidez emitida por la Comisión Calificadora del Estado dé Invalidez de la Caja Costarricense de Seguro Social, dicha certificación deberá indicar número de sesión de la declaratoria y fecha de inicio de la condición de invalidez cuando existan registros.
+En estos casos, si la persona solicitante, ya declarada en estado. de invalidez o su representante, de manera escrita y expresa otorgan consentimiento previo, libre e informado para proceder con la solicitud interinstitucional para obtener la certificación respectiva, la Dirección Naéiona1 de Pensiones podrá proceder directamente con las diligencias, mediante funcionarios (as) autorizados (as) para tal acto mediante los medios institucionales disponibles.
+En caso de que no cuente con la declaratoria de invalidez deberá proceder con lo establecido en el subinciso i),
+4.2 Documentos que debe recabar la Dirección Nacional de Pensiones en solicitudes de Pensión Original y Revisión de Regímenes Contributivos
+1 Cuenta Cedular (expedida desde la página digital oficial, del Registro Civil).
+2, Certificación patronal que indique fecha de ingreso, puesto desempeñado y el o los salarios devengados debidamente desglosados, indicando cada uno de sus componentes salariales con detalle, según corresponda del siguiente modo:
+a. Régimen General pensión ordinaria: últimos 24 salarios,
 b. Régimen General pensión por invalidez: últimos 20 años de salarios.
-c. Comunicaciones y Obras Públicas: últimos 12 salarios.
-d. Hacienda y Registro Nacional: último salario mensual.
-3. Certificación que acredite el tiempo de servicio laborado y cotizado (emitida por:
-Contabilidad Nacional, Caja Costarricense de Seguro Social, Archivo Nacional, u
-Oficina de Recursos Humanos de la totalidad de salarios devengados, donde se
-indiquen la cotización realizada al fondo de pensiones correspondiente)
-4. Certificaciones que indiquen si es o no pensionado de la Caja Costarricense de Seguro
-Social
-5. Certificaciones que indiquen si es o no pensionado del Magisterio Nacional
-6. Certificaciones que indiquen si es o no pensionado del Poder Judicial
-7. Certificación que indique cuotas, montos y patronos tomados en cuenta para el
-otorgamiento de pensión, monto de pensión inicial y actual y rige del beneficio (sólo
-en caso de ser pensionado por la CCSS, Magisterio Nacional o Poder Judicial).
-8. En caso de solicitud por invalidez:
-a. Copia certificada de la declaratoria de invalidez (si ya fue declarado inválido
-por la Caja Costarricense de Seguro Social)
-• Traspaso y Sobrevivencia de pensión, Regímenes Contributivos:
-Documentos que debe aportar la persona interesada:
-1 . Carta de solicitud
-2. Presentar documento de identificación, para efectos de que la Dirección obtenga el respaldo documental del mismo ( cédula de identidad en caso de nacionales; DIMEX en caso de extranjeros).
-3. Presentar Carné de Seguro Social (sólo extranjeros), para efectos de que la Dirección obtenga el respaldo documental del mismo.
-4. Certificación de estudios actualizada del Centro de Estudios (en caso de traspasos a hijos no inválidos, mayores de edad y menores de 25 años)
-5. Rendir ante funcionario de esta Dirección Declaración jurada de tres testigos (no familiares), a quienes conste la situación de convivencia de la pareja y la dependencia económica con el fallecido y si conocen a persona con mejor derecho (caso de traspaso a compañero(a)).
-6. Rendir ante funcionario de esta Dirección Declaración Jurada del (de la) solicitante de no separación (y/o convivencia) y dependencia económica del (de la) causante y si conoce a persona con mejor derecho.
-7. En caso de solicitud por invalidez:
-a. Epicrisis o dictamen médico, llenar y firmar formulario de Solicitud de Pensión por Invalidez, (anexo 1 de este Reglamento), en el Núcleo de Servicios de la Información (ya que, si no ha sido declarado inválido debe demostrar el estado de invalidez ante la Junta Médica de la Caja Costarricense de Seguro Social para lo cual se le gestionará la cita correspondiente)
-b. Iniciar proceso de insania en sede judicial ( en caso de capacidad mental disminuida o incapacidad para administrar bienes)
-8. Rendir ante funcionario de esta Dirección, Declaración jurada sobre la dependencia económica con el causante y si conoce persona con mejor derecho (caso traspaso a padre, madre, hermanos(as) u otros beneficiarios)
-9. Certificación que acredite la tutela o curatela para representar al solicitante (caso de menores de edad que no tengan padres y/o representantes o mayores con discapacidad mental) (en estos casos la declaración jurada de dependencia económica debe ser rendida por el representante)
+c. Comunicaciones y Obras Públicas: últimos 12 salarios,
+d. Hacienda y Registro Nacional: último salario mensual,
+3. Certificación que acredite el tiempo de servicio laborado y cotizado (expedida desde las páginas digitales oficiales de: Contabilidad Nacional, Caja Costarricense de Seguro Social o bien solicitada al Archivo Nacional, u Oficina de Recursos Humanos, esta certificación deberá contener la totalidad de salarios devengados, donde se indiquen el porcentaje de cotización e indicación del fondo de pensiones al cual cotizó).
+4. Certificaciones que indiquen si es o no pensionado expedida desde las respectivas páginas digitales oficiales de: del Régimen de Invalidez, Vejez y Muerte o del Régimen no Contributivo expedida de la Caja Costarricense de Seguro Social, del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y por último del Régimen de Pensiones del Poder Judicial.
+4.3 Solicitudes de Traspaso y Sobrevivencia de pensión, Regímenes Contributivos:
+Documentos que debe aportar la persona interesada: Adicional a los señalados ·en el artículo 4.1 deberá aportar:
+1. Rendir declaración jurada de conformidad con artículo 10 de este Decreto:
+a. En el caso de las personas adultas mayores, que soliciten traspaso de pensión de su cónyuge o compañero o compañera de hecho, pero que sea una persona con alguna limitación funcional en virtud de alguna enfermedad, que le haya reducido su capacidad de expresarse, manifestarse, y deba emitir una declaración jurada, la persona que le acompañe, sea hijo o hija, familiar, o bien el encargado, previo a demostrar la respectiva acreditación, podrá hacer una manifestación ante el abogado de la Dirección que por turno deba atender o podrá dar soporte al adulto mayor, pero, en caso que no haya lucidez y con el fin de no dilatar su derecho de pensión (para proveerse de cuidados propios), podrá, quien lo acompañe, sea hijo o hija, familiar, o bien el encargado, previa acreditación, manifestar sobre la convivencia entre el causante y la persona solicitante.
+Si la familia o encargado lo desean, pueden aportar testimonios sobre la convivencia del causante con la persona solicitante. Igualmente, la Dirección Nacional de Pensiones, en caso de duda podrá realizar el estudio social que crea necesario.
+En esta última situación para permitir dicha manifestación, la limitación funcional de la persona adulta mayor o solicitante, se deberá demostrar mediante un dictamen médico emitido por la Caja Costarricense del Seguro Social.
+b. En caso de traspaso para persona mayor de 18 años de edad, pero menor de 25 años de edad, solteros y sean estudiantes que cumplan ordinariamente con sus estudios, deberán acreditar periódicamente y no mayor a seis meses su condición de estudiante, conforme a los respectivos períodos de matrícula. Esta certificación deberá ser emitida por el centro de estudios respectivo e indicar de manera clara el nombre completo, número de cédula, modalidad del curso sea bimestral, trimestral o semestral con indicación clara de la fecha de inicio y fecha final del programa educativo.
+c. Cualquier persona en su condición de beneficiario de una pensión alimentaria proveída por el (la) causante otorgada u homologada judicialmente, deberá aportar la certificación judicial respectiva.
 Documentos que debe recabar la Dirección Nacional de Pensiones:
-l . Cuenta Cedular expedida por el Registro Civil tanto del solicitante, como del causante
-2. Certificación de Matrimonio (Registro Civil)
-3. Certificación de Estado Civil del ( de la) solicitante, que indique estado de Viudez o Soltería (Registro Civil)
-4. Certificación de Defunción del causante (Registro Civil)
-5. Certificación de Nacimiento (Registro civil) (caso traspaso a hijos(as) o hermanos(as) mayores de 55 años).
-6. Certificación de Defunción de ambos padres (Registro Civil) (caso traspaso a hijos(as) y si ambos padres han fallecido)
-7. Certificación emitida por la Caja Costarricense de Seguro Social que indique si cotizan o no como asalariados o trabajador independiente (en caso de traspasos a hijos no inválidos, mayores de edad y menores de 25 años y hermanos)
-8. Certificaciones que indiquen si es o no pensionado de la Caja Costarricense de Seguro Social (tanto del solicitante, como del causante)
-9. Certificaciones que indiquen si es o no pensionado del Magisterio Nacional tanto del solicitante, como del causante
-1 O. Certificaciones que indiquen si es o no pensionado del Poder Judicial tanto del solicitante, como del causante
-11. Certificación que indique cuotas, montos y patronos tomados en cuenta para el otorgamiento de pensión, monto de pensión inicial y actual y rige del beneficio (sólo en caso de ser pensionado por la CCSS, Magisterio Nacional o Poder Judicial).
-12. Certificación de nacimiento del causante (caso traspaso a padre, madre o hermanos(as))
-13. Si el beneficiario labora para la Administración Pública, se requiere certificación emitida por la institución para la cual labora que así lo indique.
-14. En caso de solicitud por invalidez:
-a. Copia certificada de la declaratoria de invalidez (si ya fue declarado inválido por la Caja Costarricense de Seguro Social).
-Nota: En caso de sobrevivencia (causante no era pensionado) deben acreditarse además los requisitos que corresponden a pensión original.
-• Revisión de pensión, Regímenes Contributivos:
+1. Cuenta cedular (expedida desde la página digital oficial del Registro Civil tanto del solicitante, como del causante.
+2. Certificación de matrimonio (expedida desde la página digital oficial del Registro Civil).
+3. Certificación de estado civil del (de la) solicitante, que indique estado de viudez o soltería (expedida desde la página digital oficial del Registro Civil)
+4. Certificación de defunción del causante (expedida desde la página digital oficial del Registro Civil).
+5. Certificación de nacimiento (expedida desde la página digital oficial del Registro civil) (caso traspaso a hijos(as) o hermanos(as) mayores de 55 años).
+6. Certificación de defunción de ambos padres (expedida desde la página digital oficial del Registro Civil) (caso de traspasos a hijos(as) y si ambos padres han fallecido).
+7. Certificaciones que indiquen si es o no pensionado del Régimen de Invalidez, Vejez y Muerte o del Régimen no Contributivo de Caja Costarricense de Seguro Social, del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y del Régimen de Pensiones del Poder Judicial tanto del solicitante, como d. el causante, (expedidas desde las respectivas páginas digitales oficiales).
+8. Certificación de nacimiento del causante tanto del solicitante, como del causante excepto viudez (expedida desde la página digital oficial del Registro Civil).
+En caso de sobrevivencia (el causante no era pensionado) deben acreditarse además los requisitos que corresponden a la pensión original, para este caso en específico la certificación patronal deberá indicar fecha de ingreso, puesto desempeñado, detalle de los 240 salarios devengados debidamente desglosados, indicando cada uno de sus componentes salariales, así como la fecha de término de la relación laboral.
+Para el caso de revisiones de traspaso por acrecimiento o invalidez, deberá aportar según sea el caso los documentos señalados en el artículo 4.1
+4.4 Inclusión en Planilla Regímenes Contributivos:
 Documentos que debe aportar la persona interesada:
-1. Carta de solicitud
+1. El funcionario activo que cese y se acoja a su derecho de jubilación debe indicar a la Dirección la fecha a partir de la cual cese en sus funciones y la fecha a partir de la cual solicita la inclusión en planillas, para lo cual aportará certificación de la fecha de cese de funciones, emitida por la institución para la que laboró. La certificación requerida deberá ser emitida con posterioridad a la fecha de cese.
+2. Certificación emitida por una entidad bancaria que indique el número de cuenta a su nombre en formato estandarizado (IBAN).
+3. Llenar y firmar formulario de autorización de deducción de la deuda al fondo de pensiones, disponible en el portal oficial del Ministerio de Trabajo y Seguridad Social y/o en el Núcleo de Servicios de la Información de la Dirección Nacional de Pensiones.
+4. Llenar y firmar formulario de autorización traslado de cotizaciones entre fondos de pensiones, disponible en el portal oficial del Ministerio de Trabajo y Seguridad Social y/o en el Núcleo de Servicios de la Información de la Dirección Nacional de Pensiones. (No aplica para traspasos)
+5. Entero de Gobierno, o comprobante de depósito bancario emitido por la entidad financiera, donde conste la cancelación de al menos el 50% de la deuda al fondo de pensiones.
+6. Para el caso de personas huérfanas mayores de edad, pero menores de 25 años, aportar certificación de estudios vigente, emitida por el correspondiente centro de estudios.
+Adicionalmente, deberán acreditar periódicamente y no mayor a seis meses su condición de estudiante, conforme a los respectivos períodos de matrícula. Este trámite no es aplicable cuando exista declaratoria del estado de estado de invalidez de la persona solicitante ni para las solicitudes en favor de personas menor de edad.
 Documentos que debe recabar la Dirección Nacional de Pensiones:
-l . Certificación que acredite el tiempo de servicio laborado y cotizado (emitida por: Contabilidad Nacional, Caja Costarricense de Seguro Social, Archivo Nacional, u Oficina de Recursos Humanos de la totalidad de salarios devengados, donde se indiquen la cotización realizada al fondo de pensiones correspondiente)
-2. Certificación patronal que indique fecha de ingreso, puesto desempeñado y el o los salarios devengados debidamente desglosados, indicando cada uno de sus componentes salariales con detalle, según corresponda del siguiente modo:
-a. Régimen General pensión ordinaria: últimos 24 salarios.
-b. Régimen General pensión por invalidez: últimos 20 años de salarios.
-c. Comunicaciones y Obras Públicas: últimos 12 salarios.
-d. Hacienda y Registro Nacional: último salario mensual.
-3. Certificaciones que indiquen si es o no pensionado de la Caja Costarricense de Seguro Social (en traspasos debe ser tanto del solicitante, como del causante)
-4. Certificaciones que indiquen si es o no pensionado del Magisterio Nacional (en traspasos debe ser tanto del solicitante, como del causante)
-5. Certificaciones que indiquen si es o no pensionado del Poder Judicial (en traspasos debe ser tanto del solicitante, como del causante)
-6. Certificación que indique cuotas, montos y patronos tomados en cuenta para el otorgamiento de pensión, monto de pensión inicial y actual y rige del beneficio (sólo en caso de ser pensionado por la CCSS, Magisterio Nacional o Poder Judicial).
-7. Certificación de Estado Civil del (de la) solicitante, que indique estado de Viudez o Soltería (Registro Civil) (sólo revisión de traspaso o sobrevivencia)
-8. Certificación de Matrimonio (Registro Civil) (sólo revisión de traspaso o sobrevi vencía)
-• Inclusión en Planilla Regímenes Contributivos:
+1. Certificaciones que indique si es o no pensionado del Régimen de Invalidez, Vejez y Muerte o del Régimen no Contributivo de 'Caja Costarricense de Seguro Social, (expedido desde la página digital oficial de la Caja Costarricense de Seguro Social).
+4.5 Reinserción laboral de persona beneficiaria de pensión de los regímenes contributivos:
 Documentos que debe aportar la persona interesada:
-1. Carta de solicitud
-2. Certificación de la fecha de cese de funciones, emitida por la institución para la que laboró (debe ser emitida en fecha posterior al cese).
-3. Certificación de número de cuenta cliente emitida por la entidad financiera que recibirá el depósito de la pensión.
-4. Firmar boleta de autorización de deducción de la deuda al fondo de pensiones completada.
-5. Original del Entero de Gobierno entregado por la Institución Bancaria, donde consta la cancelación de al menos el 50% de la deuda al fondo de pensiones.
-6. Certificación de estudios actualizada del Centro de Estudios (en caso de traspasos a hijos no inválidos, mayores de edad y menores de 25 años)
+1. Cuando la persona pensionada se reincorpore al sector público deberá aportar certificación de la institución respectiva con indicación de fecha de inicio de labores, puesto y salario a devengar.
+2. En los casos de reinserción laboral de personas pensionadas por invalidez, deberá presentar carta de solicitud para reincorporarse a la actividad laboral, señalando, su nombre, firma, actividad laboral e institución pública o empresa privada a la que se incorpora. Sobre el particular atender según lo señalado en el artículo 4.c.ii y iii de este decreto.
 Documentos que debe recabar la Dirección Nacional de Pensiones:
-1. Certificaciones que indiquen si es o no pensionado de la Caja Costarricense de Seguro Social.
-2. Si el beneficiario labora para la Administración Pública, se requiere certificación emitida por la institución para la cual labora que así lo indique.
-• Suspensión de pensión por reinserción laboral en los casos de invalidez (Regímenes Contributivos):
-Documentos que debe aportar la persona interesada:
-1. Carta de solicitud
-Documentos que debe recabar la Dirección Nacional de Pensiones:
-1. En caso de que el pensionado se reincorpore a laborar al sector privado, la Dirección Nacional de Pensiones lo remitirá a cita médica para que se proceda con la valoración de parte de la Comisión Calificadora del Estado de Invalidez, que será la que verifique que la nueva actividad laboral sea diferente a aquella por la cual se declaró inválido al pensionado, que no requiere el uso de las facultades afectadas y que no representa un riesgo para su capacidad fisica o mental residual.
-• Trámites del régimen de Magisterio Nacional:
+1. En caso de que la persona pensionada reciba pensión otorgada por motivos de invalidez y se reincorpore a laborar, la Dirección Nacional de Pensiones lo remitirá a valoración de la Comisión Calificadora del Estado de Invalidez de la Caja Costarricense de Seguro Social, a fin de que verifique si la nueva actividad laboral es diferente a aquella por la cual se declaró el estado de invalidez.
+4.6 Trámites del régimen de Magisterio Nacional:
 Documentos que debe recibir la Dirección Nacional de Pensiones:
-1. Expediente administrativo completo sustanciado por la Junta de Pensiones y Jubilaciones de Magisterio Nacional, el cual será físico o digital, según corresponda.
-2. Resolución respectiva de la Junta Directiva de la Junta de Pensiones y Jubilaciones de Magisterio Nacional.
+Expediente administrativo completo, sustanciado por la Junta de Pensiones y Jubilaciones del Magisterio Nacional, que incluya la resolución respectiva de la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44526 del 14 de mayo de 2024)

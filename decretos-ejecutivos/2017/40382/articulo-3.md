@@ -1,3 +1,5 @@
-Artículo 3-Que los Regímenes de Prejubilación a los que se aplicará el presente reglamento son los siguientes:
-• Prejubilación INCOP (Leyes 8674 del 16 de octubre del 2008 y 8832 del 29 de abril del 2010)
-• Prejubilación INCOFER (Ley 8950 del 12 de mayo del 2011)
+Artículo 3: Los regímenes de prejubilación a los que se aplicará el presente reglamento son los siguientes:
+1. Régimen de prejubilación de INCOP, (Ley Reguladora de la Actividad Portuaria de la Costa del Pacífico, Ley N°8461 de 20 de octubre del 2005 y su adición por Ley N°8674 del 16 de octubre del 2008, y Ley de Protección y Pensión Anticipada a los Trabajadores Cesados a Consecuencia del Proceso de Modernización del Instituto Costarricense de Puertos del Pacífico (INCOP), Ley N°8832 de 29 de abril de 2010).
+2. Régimen de prejubilación de INCOFER (Derechos Prejubilatorios a los Extrabajadores del Instituto Costarricense de Ferrocarriles, Ley N°8950 de 12 de mayo de 2011),
+3. Régimen de prejubilación de JAPDEVA (Transformación de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica de Costa Rica (JAPDEVA) y Protección de sus personas trabajadoras, Ley N°9764 de 15 de octubre de 2019).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44526 del 14 de mayo de 2024)
