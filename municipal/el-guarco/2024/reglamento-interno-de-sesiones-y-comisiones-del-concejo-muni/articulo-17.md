@@ -1,0 +1,3 @@
+SECCIÓN III
+De los asistentes
+Artículo 17.-Todas las sesiones del Concejo Municipal son públicas, pero la intervención de particulares se regirá por lo indicado más adelante. En los casos en que el Concejo Municipal conozca en pleno de una denuncia deberá tomar las previsiones necesarias para conservar la confidencialidad de la persona denunciante, esto de conformidad con lo dispuesto en la Ley General de Control Interno y la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública al respecto.

@@ -1,0 +1,2 @@
+Artículo 58.-La Presidencia le hará saber al expositor que cualquier desacato a este Concejo, se le podrá suspender inmediatamente su derecho al uso de la palabra.
+Sobre un mismo tema no debe haber más de un expositor, salvo que se hiciere necesario la participación de un especialista en la materia, o que ante la potestad de la Presidencia se dé o suspenda el uso de la palabra a los munícipes asistentes, trasladando dicha potestad a la persona que asista como asesor en razón de su conocimiento sobre la materia y el tema concreto a tratar.

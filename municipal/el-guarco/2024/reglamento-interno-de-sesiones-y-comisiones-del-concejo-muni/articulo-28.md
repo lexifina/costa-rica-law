@@ -1,0 +1,1 @@
+Artículo 28.-Toda moción será leída por el Secretario(a) del Concejo en el capítulo de la agenda correspondiente, y posterior a la lectura de la misma podrá ser ampliada por el proponente, contando este con un tiempo máximo de cinco minutos para tal fin, cuando así lo haya solicitado y sea autorizado por la Presidencia.

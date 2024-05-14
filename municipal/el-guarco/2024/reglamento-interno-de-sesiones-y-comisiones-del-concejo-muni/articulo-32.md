@@ -1,0 +1,1 @@
+Artículo 32.-Para obtener la autorización del uso de la palabra, se hará levantando la mano en forma visible o bien poniéndose de pie y manifestando, a viva voz, en forma respetuosa al Señor(a) Presidente, "Pido la Palabra."

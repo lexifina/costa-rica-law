@@ -1,0 +1,1 @@
+Artículo 48.-El recurso de revisión de uno o más acuerdos podrá ser planteado por cualquier Regidor que haya estado presente al momento de tomarlo y, en cualquier caso, aunque lo hubiere votado favorablemente. Deberá plantearse por medio de moción escrita y en memorial razonado.

@@ -1,0 +1,1 @@
+Artículo 68.-Una vez designadas las comisiones, en la sesión de instalación a celebrarse dentro de los quince días siguientes, nombrarán en su seno, a un Presidente y un Secretario. Dicho directorio durará en su cargo un año. Asimismo, procederá un nuevo nombramiento parcial o total del directorio en caso de renuncia del Presidente o Secretario de la comisión.

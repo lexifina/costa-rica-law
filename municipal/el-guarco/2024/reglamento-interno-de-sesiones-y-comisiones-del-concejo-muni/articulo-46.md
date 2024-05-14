@@ -1,0 +1,1 @@
+Artículo 46.-Los acuerdos tomados por el Concejo Municipal, quedarán firmes al aprobarse el acta respectiva en la sesión ordinaria inmediata posterior. En casos especiales de urgencia, emergencia o necesidad, el Concejo por votación de las dos terceras partes de la totalidad de sus miembros, podrá declarar sus acuerdos como definitivamente aprobados.

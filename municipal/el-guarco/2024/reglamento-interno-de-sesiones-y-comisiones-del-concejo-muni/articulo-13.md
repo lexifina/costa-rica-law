@@ -1,0 +1,1 @@
+Artículo 13.-El quórum para sesionar válidamente será la mitad más uno de todos los miembros del Concejo Municipal. Dicha cantidad deberá estar presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones, o conectados de manera virtual cuando así se le haya autorizado previamente.

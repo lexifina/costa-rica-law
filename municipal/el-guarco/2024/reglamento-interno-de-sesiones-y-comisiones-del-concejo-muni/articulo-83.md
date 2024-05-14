@@ -1,0 +1,1 @@
+Artículo 83.-Queda facultada la Presidencia del Concejo Municipal por si o a solicitud de uno o más regidores, por conveniencia institucional u otro motivo a reestructurar las Comisiones Permanentes cuando así se amerite.

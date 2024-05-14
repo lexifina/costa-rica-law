@@ -1,0 +1,1 @@
+Artículo 54.-Cuando el objeto de la audiencia fuere un asunto de competencia del señor Alcalde, la Presidencia ordenará a la Secretaría remitir el memorial presentado a dicho funcionario, para que éste le dé el trámite correspondiente. La Secretaría lo hará del conocimiento de los interesados y del Concejo Municipal.

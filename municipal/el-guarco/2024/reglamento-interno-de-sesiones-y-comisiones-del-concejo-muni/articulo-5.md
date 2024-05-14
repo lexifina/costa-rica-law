@@ -1,0 +1,1 @@
+Artículo 5°-El Concejo Municipal contará con un funcionario designado como Secretario del Concejo Municipal, nombrado por el mismo órgano deliberativo, y podrá ser suspendido o destituido de su cargo, en caso de existir justa causa.

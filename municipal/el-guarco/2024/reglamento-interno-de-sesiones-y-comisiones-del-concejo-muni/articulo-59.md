@@ -1,0 +1,1 @@
+Artículo 59.-Cuando otra persona diferente al que expuso, desee aclarar o adicionar algo a lo ya expuesto, deberá levantar su mano y pedir la palabra a la Presidencia, para que ésta defina si procede en razón del tema o del tiempo es atendible o no su solicitud.

@@ -1,0 +1,1 @@
+Artículo 65.-Será potestad del Concejo variar el orden del día, de conformidad con el Código Municipal, y lo dispuesto en este reglamento, para conocer de las peticiones de los munícipes en atención al tipo de problemas ya sea, por su urgencia y/o por la distancia a la que deban desplazarse estos.

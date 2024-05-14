@@ -1,0 +1,1 @@
+Artículo 84.-Los regidores están en la obligación de ser parte de las comisiones que se crean en la Municipalidad. Será obligatoria la participación tanto de los regidores propietarios como suplentes en las Comisiones que sean designados.

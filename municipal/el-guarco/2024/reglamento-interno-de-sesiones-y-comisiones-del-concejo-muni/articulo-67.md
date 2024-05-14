@@ -1,0 +1,1 @@
+Artículo 67.-Existirán dos tipos de Comisiones: las Permanentes y las Especiales, las últimas podrán integrarse por acuerdo del Concejo, según se estime conveniente para la atención de asuntos específicos de interés comunal o propios de la Municipalidad.

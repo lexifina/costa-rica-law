@@ -1,0 +1,1 @@
+Artículo 15.-Si en el curso de una sesión se rompiera el quórum, la Presidencia instará a los Regidores que se hubieren retirado sin permiso, para que ocupen de nuevo sus curules. Transcurridos diez minutos sin que se pueda establecer el quórum, se levantará la sesión.

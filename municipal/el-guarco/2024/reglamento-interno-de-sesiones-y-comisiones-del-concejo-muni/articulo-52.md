@@ -1,0 +1,1 @@
+Artículo 52.-Igualmente, el Concejo podrá dar audiencia a los munícipes que así lo soliciten. Se establece un límite de tres audiencias por sesión, dichas audiencias se agendarán preferiblemente en sesiones extraordinarias.

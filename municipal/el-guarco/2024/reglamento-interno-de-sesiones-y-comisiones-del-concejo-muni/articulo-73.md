@@ -1,0 +1,1 @@
+Artículo 73.-Las comisiones especiales estarán integradas al menos por tres miembros: dos deberán ser escogidos de entre las personas regidoras propietarias y suplentes podrán integrarlas las personas síndicas propietarias y suplentes estas últimas tendrán voz y voto.

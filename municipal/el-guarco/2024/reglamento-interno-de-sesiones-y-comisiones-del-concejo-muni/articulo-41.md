@@ -1,0 +1,1 @@
+Artículo 41.-Le corresponde a la Presidencia del Concejo Municipal llevar el control del tiempo autorizado en cada situación, y cuando se haya vencido, se lo hará saber a quién tenga el uso de la palabra, para que dé por finalizada su intervención.

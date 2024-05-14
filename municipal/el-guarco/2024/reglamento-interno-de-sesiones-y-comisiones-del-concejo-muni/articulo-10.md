@@ -1,0 +1,1 @@
+Artículo 10.-En las sesiones extraordinarias, celebradas el mes, el día y hora de la convocatoria, se conocerán exclusivamente los asuntos indicados expresamente en la convocatoria, salvo que por unanimidad se acuerde conocer otros asuntos.

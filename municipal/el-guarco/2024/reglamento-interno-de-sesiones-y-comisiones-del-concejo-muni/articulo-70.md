@@ -1,0 +1,1 @@
+Artículo 70.-Los dictámenes de las comisiones, deberán tomarse por mayoría simple y ser presentados por escrito y firmados por el Presidente y\o Secretario de la comisión. Cuando no existiera acuerdo unánime sobre un dictamen o estén en contra de algún asunto específico aprobado por la comisión, se podrá emitir un dictamen de minoría ante el Concejo junto con el de mayoría.

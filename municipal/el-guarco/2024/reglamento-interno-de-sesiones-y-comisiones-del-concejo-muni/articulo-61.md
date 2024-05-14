@@ -1,0 +1,1 @@
+Artículo 61.-Con la intervención de los munícipes, la Secretaría del Concejo tomará nota de lo expuesto, quedando facultada la Presidencia para trasladar el asunto en exposición a la Comisión Competente o Alcaldía Municipal.
