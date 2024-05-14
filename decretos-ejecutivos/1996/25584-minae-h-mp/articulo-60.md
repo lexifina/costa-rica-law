@@ -1,3 +1,1 @@
-Artículo 60.—Regulaciones para los demás vehículos automotores
-Para los vehículos automotores que no hay que calcular la Calificación Energética Integral, indicados en el artículo 54 este reglamento, el MINAE emitirá posteriormente vía Decreto Ejecutivo los procedimientos para regular las características en cuan ficiencia energética. Además se deberán incluir las disposiciones para la f. ensamblaje, importación y plaqueo energético de dichos vehículos.
-Estas regulaciones se aplicarán a los vehículos destinados al Transporte de Carga Pesada y al Transporte Público de Personas (excepto taxis) conforme al capítulo VI de la Ley.
+Artículo 60.-Regulaciones para los demás vehículos automotores. (Derogado por el artículo 4° del decreto ejecutivo N° 44503 del 14 de mayo de 2024)

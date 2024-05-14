@@ -1,4 +1,4 @@
-Artículo 64.—Datos requeridos de la declaración jurada de equipos, maquinaria y vehículos.
+Artículo 64.-Datos requeridos de la declaración jurada de equipos, maquinaria y vehículos.
 La declaración jurada que debe adjuntarse a la solicitud de autorización para fabricación o ensamblaje y para nacionalizar los bienes mencionados en el capítulo anterior de este reglamento, en los casos que lo indique este reglamento en los artículos 62 y 63, debe cumplir con los siguientes requisitos mínimos, dependiendo del equipo, maquinaria y vehículos de que se trate:
 a) Para todos los bienes de la lista del capítulo anterior debe reportar:
 I. Nombre de la persona o empresa importadora, fabricante o ensamblador
@@ -121,7 +121,7 @@ Diámetro de tubo (mm) | T8=25.40 | T4 =12.57 T5 = 15.88 | T8 = 25.4 | | |
 Eficiencia (1m7W) | Mayor de 80 | mayor de 60 | mayor de 75 | | |
 Vida (hs) | 20.000 | 10.030 | 12.000 | | |
 Potencia | | | | | |
-Flujo Luminoso total en lúmenes | — | — | — | | |
+Flujo Luminoso total en lúmenes | - | - | - | | |
 | | | | | | |
 (1) Efectivo después de un año de la publicación este reglamento
 (2) Efectivo a partir de la publicación de este reglamento
@@ -143,26 +143,27 @@ Eficiencia (1m/Watt) | mayor o igual a 55 |
 (1) Efectivo después de un año de la publicación este reglamento
 (2) Efectivo a partir de la publicación de reglamento
 (3) Características determinadas según lo establecido en él artículo 65 de este reglamento
-X VEHÍCULOS
-- Marca del vehículo automotor
-- Estilo o línea del vehículo automotor
-- El año del modelo del vehículo automotor
-- Tipo carrocería (automóvil, vehículo familiar, station wagon o camionetas, pickup, microbus, buseta, autobús, carga pesada).
-- Marca del motor
-- Cilindrada
-- Tipo de combustible (gasolina o diesel)
-- Consumo de combustible en ciudad en kilómetros por litro, característica determinada según lo establecido en el artículo 65 de este reglamento (indicar norma y fuente de la medición)
-- Consumo de combustible en autopista en kilómetros por litro, característica determinada según lo establecido en el articulo 65 de este reglamento (indicar norma y fuente de la medición)
-- Consumo combinado de combustible, calculado según el procedimiento que se indica en el artículo 54 de este reglamento.
-- índice de volumen interior en metros cúbicos (solo para automóviles), según el artículo 55, inciso a) de este reglamento, característica determinada según lo establecido en el artículo 65 de este reglamento indicar norma y fuente de la medición)
-- Potencia neta en kilowatts (indicar norma y fuente de la medición)
-- Peso del vehículo en .orden de marcha en kilogramos, característica determinada según lo establecido en el articulo 65 de este reglamento (indicar norma y fuente de la medición)
-- Peso total o bruto del vehículo con carga máxima en kilogramos (indicar norma y fuente de la medición)
-- Calificación obtenida por índice de volumen interior (solo para automóviles), según el artículo 59, inciso a) de este reglamento.
-- Calificación obtenida por potencia neta, según el artículo 59, inciso c) de este reglamento, (excepto para microbus, buseta, autobús y carga pesada).
-- Calificación obtenida por peso en orden de marcha, según el artículo 59, inciso b) de este reglamento.
-- Calificación Energética Integral Obtenida (CEI), artículo 59, inciso d) de este reglamento.
-- Calificación energética integral mínima para el vehículo, según el artículo 59, inciso f) ó g) de este reglamento.
-c) El formulario de la declaración deberá indicar si los bienes cumplen o no, con las características en cuanto a su eficiencia energética permitidas indicadas en el capítulo IV de este reglamento y sus reformas.
+(*)X VEHÍCULOS
+- Marca del vehículo automotor.
+- Modelo del vehículo automotor.
+- Año del modelo del vehículo automotor.
+- Tipo de carrocería (por ejemplo, sedán, hatchback, pick up).
+- Número de VIN (para el caso de vehículos usados).
+- Cilindrada.
+- Tipo de combustible (gasolina, diésel, gas).
+- Consumo de combustible en ciudad en kilómetros por litro (indicar norma de referencia; por ejemplo: WLTC, NEDC).
+- Consumo de combustible en autopista en kilómetros por litro, (indicar norma de referencia; por ejemplo: WLTC, NEDC).
+- Consumo combinado de combustible en kilómetros por litro (indicar norma de referencia; por ejemplo: WLTC, NEDC).
+- Potencia neta en kilowatts (indicar norma).
+- Peso total o bruto del vehículo kilogramos.
+- Distancia longitudinal entre ejes delantero y trasero (indicado en centímetros o metros).
+- Distancia Transversal de los ejes delantero y trasero entre los puntos medios de cada llanta (indicado en centímetros o metros).
+- Emisiones en gramos de CO2 equivalente por kilómetro recorrido (gCO2, Indicar Norma).
+- Indicar Norma de Emisiones que cumple el vehículo (por ejemplo, EURO IV, TIER II, EURO V).
+La Declaración Jurada deberá ser aportada por los importadores a la Dirección de Energía del MINAE una vez al año para los vehículos nuevos de la misma familia y modelo, y para cada importación en el caso de vehículos usados. La información de esta Declaración Jurada será utilizada por el MINAE para el cumplimiento de los artículos 15, 16 y 17 de la Ley de Regulación del Uso Racional de la Energía Nº 7447 y sus reformas, y será publicada en la página de la Dirección de Energía en cumplimiento con lo establecido en el artículo 17 de la ley indicada. Así mismo, esta Declaración Jurada deberá ser aportada por los importadores en el sistema TICA del Ministerio de Hacienda para el proceso de importación de los vehículos, en cumplimiento con el artículo 15 de la Ley N° 7447.
+(*) (Así reformado el punto X) anterior por el artículo 2° del decreto ejecutivo N° 44503 del 14 de mayo de 2024)
+c) El formulario de la Declaración Jurada deberá indicar las características en cuanto a la eficiencia energética de los bienes indicados en el capítulo IV de este reglamento y sus reformas.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 44503 del 14 de mayo de 2024)
+.
 d) La generación de los datos y características de eficiencia energética debe realizarse de acuerdo a la metodología indicada en el artículo 65 de este reglamento.
 Ninguna declaración jurada que no contenga toda la información mínima requerida para cada uno de los bienes incluidos en la lista será recibida.
