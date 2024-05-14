@@ -1,8 +1,9 @@
+(Suspendida)
 N° 5695-MEIC
+(Este decreto ejecutivo fue suspendido por el artículo 1° del decreto ejecutivo N° 44625 del 14 de mayo de 2024)
 EL PRESIDENTE DE LA REPUBICA
 Y EL MINISTRO DE ECONOMIA, INDUSTRIA Y COMERCIO
-En uso de las potestades que les confiere el artículo 140, incisos 3) y 18 de la Constitución
-Política y de acuerdo con lo dispuesto en la ley 5292 de 9 de agosto de 1973,
+En uso de las potestades que les confiere el artículo 140, incisos 3) y 18 de la Constitución Política y de acuerdo con lo dispuesto en la ley 5292 de 9 de agosto de 1973,
 DECRETAN
 Artículo 1° - Aprobar la siguiente Reglamento Técnico Oficial para Jabones
 Reglamento Técnico Oficial para Jabones
@@ -28,10 +29,10 @@ C-2 Jabón para lavar Segunda Clase | 30,0 | 55,0 | 0,12 | 4,3 | 10,0 | 0
 D Jabón en polvo | 30,0 | 15,0 | 0,12 | 12,0 | 32,0 | 0
 Jabones líquidos | 20,0 | 80,0 | 0,01 | 0 | 5,0 | 0
 b) Para los efectos de su identificación por parte del consumidor, los jabones objeto de este reglamento deben llenar también los siguientes requisitos:
-b.1 El jabón de tocador debe indicar en la etiqueta que es un “jabón de tocador”.
+b.1 El jabón de tocador debe indicar en la etiqueta que es un "jabón de tocador".
 b.2 El jabón de barra y otras formas (C-1 y C-2) deben indicar en su etiqueta en forma destacada, la clase de que se trate (Primera o Segunda), en un tamaño de letra no menor a 0,5 centímetros de alto y un milímetro de grueso.
-b.3 Con el nombre “jabón líquido” se denominará al jabón blando disuelto en agua, alcohol, glicerina, o mezclas de sustancias adicionados o no con esencia que le dé olor agradable.
-b.4 Los jabones objeto de este reglamento deberán cumplir, según sea el caso, las disposiciones de los reglamentos centroamericanos RTCA 71.03.38:07 Productos Higiénicos. Etiquetado de Productos Higiénicos y RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos, una vez que éstos entren en vigencia.”
+b.3 Con el nombre "jabón líquido" se denominará al jabón blando disuelto en agua, alcohol, glicerina, o mezclas de sustancias adicionados o no con esencia que le dé olor agradable.
+b.4 Los jabones objeto de este reglamento deberán cumplir, según sea el caso, las disposiciones de los reglamentos centroamericanos RTCA 71.03.38:07 Productos Higiénicos. Etiquetado de Productos Higiénicos y RTCA 71.03.36:07 Productos Cosméticos. Etiquetado de Productos Cosméticos, una vez que éstos entren en vigencia."
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 34707 del 16 de julio del 2008)
 C) Los jabones cubiertos por este Reglamento Técnico no deben contener nitrobenceno
 (C6HsN02).
@@ -80,7 +81,7 @@ maría y se evapora todo el alcohol.
 En el caso de productos de mucha carga, es preferible extraer el jabón usando un extractor Butter en la siguiente forma: se pesa la muestra y se coloca en un papel filtro de cenizas conocidas y de 15 cm de diámetro, el cual se dobla cuidadosamente. Colóquese la muestra y papel en el extractor de Butter, conéctese a un condensador y a un matraz de saponificación de 250 cc que contenga 125 cc de Alcohol reactivo. Colóquese al aparato en baño de arena o en una parrilla y hiérvase a reflujo hasta que el jabón se haya extraído. Esta operación requiere generalmente una hora. Quítese el matraz; pásese su contenido a un vaso de 400 cc y lávese con pequeñas porciones de agua caliente. Colóquese el vaso en baño maría, evapórese casi a sequedad y procédase como sigue:
 4°- Procedimiento
 A la muestra pesada originalmente (5 a 10 gramos de jabón) o a la preparada en el vaso de 400 cc; agréguense 150 cc de agua caliente y póngase en baño maría hasta que la muestra se disuelva. La disolución de jabón se pasa cuidadosamente a un embudo de separación de 500 cc. con tapón de vidrio y se lava el vaso con pequeñas cantidades de agua que se agregan a la solución que está en el embudo, procurando no exceder el volumen total de 300 cc. Agréguese una gota de anaranjado de metilo y suficiente ácido sulfúrico (q.p. diluido 1:3) hasta que los ácidos grasos queden completamente liberados y la solución ligeramente ácida; se enfría la probeta colocándola en un baño frío. Anádase 100 cc de éter etílico, a menos que la naturaleza de la muestra requiera otro disolvente tal como éter de petróleo (ver nota final). Se agita muy bien el contenido del embudo (primero invirtiéndolo varias veces y después agitándolo verticalmente de arriba a abajo). Enseguida se deja reposar hasta que la capa de éter se haya separado y que ambas capas estén perfectamente claras. Se separa la capa de éter dentro de un matraz de boca ancha de 250 cc filtrándola si es necesario por un pequeño papel filtro después de eliminar el agua que esté bajo el extracto etéreo. Debe tenerse cuidado de que no se pase el agua junto con el extracto: La extracción se repite tres o cuatro veces más, recuperando el éter del matraz por medio de un Soxlet mientas se hacen las extracciones. Después se separa la última extracción, se evapora tanto como sea posible el éter del matraz utilizando el Soxlet. Se desconecta el matraz y se coloca en una estufa de vapor o eléctrica a una temperatura de 80 °C. Se calientan los ácidos grasos hasta peso constante. Esta condición queda determinada cuando dos pesadas sucesivas a intervalos de diez minutos no difieren en más de 2 mg. Se dejan enfriar los ácidos grasos a la temperatura ambiente en un desecador antes de las pesadas.
-% de ácidos grasos = [100 M –(A+B)]/P
+% de ácidos grasos = [100 M -(A+B)]/P
 M=peso del extracto seco, en gramos
 P=peso de la muestra en gramos
 A=% de ácidos resínicos
@@ -132,7 +133,7 @@ P= Peso de la muestra en gramos
 Determinación de Acidez Libre en Acido Oleico
 1° Reactivos
 a) Solución deci-normal de HCl
-b) Indicador – fenolftaleína; un g por 100 cc. de alcohol de 95%.
+b) Indicador - fenolftaleína; un g por 100 cc. de alcohol de 95%.
 2° Procedimiento
 Se calienta el filtrado reservado de la determinación de materia insoluble en alcohol hasta la ebullición incipiente; se añaden 0,5 cc de solución valorada de NaOH 0,1 N y se calcula como % de ácido oleico.
 % de ácido oleico = (n x f x 28,24)/P
