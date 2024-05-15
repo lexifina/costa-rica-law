@@ -1,0 +1,1 @@
+Artículo 43- Del puesto al cobro. El cobro por servicio de agua potable estará disponible para ser cancelado por los contribuyentes a partir del día 16 de cada mes de conformidad con la factibilidad tecnológica con que cuente la Municipalidad de La Unión.

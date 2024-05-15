@@ -1,0 +1,1 @@
+Artículo 8- Calidad del Agua: En lo que respecta a la CALIDAD DEL AGUA, la Municipalidad seguirá las disposiciones contenidas en el Reglamento para la Calidad del Agua Potable vigente a través de un control periódico avalado por un laboratorio certificado.

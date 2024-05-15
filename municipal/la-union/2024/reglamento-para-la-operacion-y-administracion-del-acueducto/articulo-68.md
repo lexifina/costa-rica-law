@@ -1,0 +1,1 @@
+Artículo 68-De la eliminación y traslado de una fuente pública: Si el registro de consumo mensual de alguna fuente pública supera los 50 m3, de oficio la Municipalidad de La Unión queda facultada a trasladar y colocar los dispositivos necesarios para asegurar el consumo adecuado.

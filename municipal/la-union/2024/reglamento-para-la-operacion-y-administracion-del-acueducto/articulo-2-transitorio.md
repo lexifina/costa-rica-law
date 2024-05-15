@@ -1,0 +1,3 @@
+TRANSITORIO II
+A partir de la vigencia del presente reglamento; los abonados que hayan sufrido una variación en la tarifa del servicio de agua (durante 12 meses o más) producto de una notificación realizada por la Dirección de Desarrollo y Control Urbano (DIDECU) podrán solicitar formalmente a la Dirección de Recurso Hídrico la aplicación del ajuste en la tarifa según lo dispuesto en el artículo 33 del presente reglamento. En los casos que aplique la modificación, el ajuste a la tarifa se realizará a partir del recibo próximo al ingreso de la solicitud formal.
+<span style='font-family:"Arial",sans-serif; </body>

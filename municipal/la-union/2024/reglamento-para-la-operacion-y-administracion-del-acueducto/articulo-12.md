@@ -1,0 +1,1 @@
+Artículo 12- De los trabajos en la red: La Municipalidad se reserva la potestad de realizar extensiones, derivaciones, modificaciones y reparaciones a las redes o instalación de los sistemas que le pertenezcan, así como en las previstas y medidores de las conexiones de los abonados.

@@ -1,0 +1,1 @@
+Artículo 91 - De la vigencia y derogación. El presente Reglamento entrará en vigencia al día siguiente de su publicación definitiva y deroga el Reglamento para la Operación y Administración del Acueducto de la Municipalidad de La Unión publicado en el Alcance N°203 a la Gaceta N°173 del viernes 13 de septiembre 2019.

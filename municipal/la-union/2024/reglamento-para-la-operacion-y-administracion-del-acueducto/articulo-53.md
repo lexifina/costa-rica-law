@@ -1,0 +1,3 @@
+Artículo 53- De las fugas entre el medidor y el límite de la propiedad. Cuando se determine la existencia de fuga entre el medidor y el límite de la propiedad o de la entrada a la servidumbre debidamente comprobada mediante orden de trabajo, al abonado se le cobrará de acuerdo con el promedio de consumo (basado en histórico de consumo o en lectura posterior).
+Cuando se opte por la metodología de consumo con lectura posterior, se tomará lectura entre diez y quince días naturales después de la reparación de la fuga y se hará la proyección correspondiente del consumo por regla de tres.
+Sólo se podrán realizar un máximo de hasta tres ajustes de facturación por reporte. La aplicación de este artículo podrá ser de oficio o a gestión del abonado.

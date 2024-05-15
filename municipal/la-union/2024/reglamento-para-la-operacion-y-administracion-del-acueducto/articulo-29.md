@@ -1,0 +1,2 @@
+Artículo 29-Del registro y la facturación. Una vez autorizada la paja de agua el registro de nuevos servicios se realizará de la siguiente manera:
+La Dirección de Recurso Hídrico gestionará el cargo por monto de derecho de conexión cuando se trate de nuevos servicios relacionados con permisos de construcción y/o patente y nuevos servicios para edificaciones existentes; registrará y facturará la conexión realizada a partir del día de su instalación. Dicha conexión se encuentra sujeta a las obligaciones establecidas en este reglamento.
