@@ -1,0 +1,3 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+PUBLICACIÓN PRECIO COMPRA EXCEDENTES
+De conformidad con lo establecido en la resolución RE-0105-IE-2023 del 7 de setiembre de 2023, publicada en el Alcance N° 174 a La Gaceta N° 169 del jueves 14 de setiembre del 2023, en la cual se fijan tarifas máximas para la compraventa de excedentes de energía (colones/kWh); El Instituto Costarricense de Electricidad informa que el precio de compra de excedentes durante el año 2024 será de ¢26,4 CRC/kWh, el cual se encuentra publicado en el sitio web del Grupo ICE: https://www.grupoice.com/wps/portal/ICE/Electricidad/proyectos-energeticos/generaciondistribuida
