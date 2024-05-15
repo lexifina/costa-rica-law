@@ -1,0 +1,1 @@
+Artículo 28.-Cuando se identifique un uso diferente al autorizado en los espacios físicos y equipo informático, el personal del DBD tendrá plena facultad para llamar la atención a los usuarios infractores, sean internos o externos, y en los casos que corresponda, anular el préstamo y solicitar que se retiren de las instalaciones del DBD.

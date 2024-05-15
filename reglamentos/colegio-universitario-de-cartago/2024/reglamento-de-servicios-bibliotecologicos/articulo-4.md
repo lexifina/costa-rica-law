@@ -1,0 +1,4 @@
+Artículo 4°-Para inscribirse como usuario activo del DBD se deben cumplir los siguientes requisitos:
+a) Los usuarios internos (estudiantes de las Carreras y de la DECAT) deben estar matriculados y los funcionarios administrativos, docentes y docentes-administrativos, deben presentar el carné institucional o la cédula de identidad para crear el nuevo usuario o para renovarlo al inicio de cada cuatrimestre, bimestre o de conformidad con el período de su nombramiento, según corresponda).
+b) En el caso del usuario interno (estudiantes de las Carreras y de la DECAT), se utilizará el correo electrónico inscrito en el sistema de matrícula para su registro de usuario.
+c) Todo usuario externo debe proporcionar una cuenta personal de correo electrónico activa y un número telefónico principal y/o secundario; así como el documento de identificación vigente.

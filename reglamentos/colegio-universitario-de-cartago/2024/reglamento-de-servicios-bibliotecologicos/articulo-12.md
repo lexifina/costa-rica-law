@@ -1,0 +1,1 @@
+Artículo 12.-El personal encargado de dar el servicio de préstamo y devolución definirá el período de préstamo tomando en cuenta el presente reglamento, así como la demanda del material, limitaciones del DBD y otras circunstancias particulares de los usuarios.

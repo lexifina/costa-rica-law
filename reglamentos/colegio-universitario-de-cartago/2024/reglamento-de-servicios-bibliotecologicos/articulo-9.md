@@ -1,0 +1,1 @@
+Artículo 9°-Para los usuarios externos los materiales facilitados en calidad de préstamo deberán ser devueltos el mismo día, con tiempo límite hasta las 19:45 horas, salvo excepción debidamente autorizada por los funcionarios del DBD.

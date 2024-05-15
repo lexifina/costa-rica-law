@@ -1,0 +1,1 @@
+Artículo 39.-En caso de que el usuario no cumpla con el pago y reposición en el plazo establecido según el artículo anterior, se remitirá a la Jefatura inmediata o Dependencia superior correspondiente la situación del usuario, para la aplicación de lo indicado en el Artículo 30 de este Reglamento.

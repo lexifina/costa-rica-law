@@ -1,0 +1,1 @@
+Artículo 8°-Los recursos de préstamo a domicilio, salvo lo regulado en este reglamento para el material de reserva, son aquellos que se pueden llevar por un período de ocho a veinte días hábiles, en caso de estudiantes activos o personal administrativo de la Institución. Para el personal docente y docente-administrativo será por período de un mes calendario.

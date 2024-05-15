@@ -1,0 +1,1 @@
+Artículo 26.-El usuario es responsable de la vigilancia de sus pertenencias dentro de las instalaciones del DBD. El personal del DBD no se hace responsable en caso de pérdida, robo, hurto o daño de artículos personales de los usuarios.

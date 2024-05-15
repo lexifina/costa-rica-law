@@ -1,0 +1,1 @@
+Artículo 32.-Cuando el usuario incurra en morosidad, entendida como el retraso en la devolución del material otorgado en préstamo, deberá cancelar en el Departamento Financiero el monto correspondiente a la multa por cada día y cada material bibliográfico o didáctico que devuelva en estado de morosidad.

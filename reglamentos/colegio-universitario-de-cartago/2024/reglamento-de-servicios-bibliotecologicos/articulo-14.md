@@ -1,0 +1,1 @@
+Artículo 14.-Los estudiantes pueden solicitar como máximo 5 recursos diferentes en calidad de préstamo. En el caso del personal administrativo, docente y docente administrativo pueden solicitar como máximo 10 recursos diferentes en calidad de préstamo. A los usuarios externos se les autorizará como máximo el préstamo de 3 recursos diferentes en calidad de préstamo.

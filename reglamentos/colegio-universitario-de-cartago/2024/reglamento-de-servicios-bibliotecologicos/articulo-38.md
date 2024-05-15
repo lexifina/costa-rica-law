@@ -1,0 +1,1 @@
+Artículo 38.-En relación con los Artículos 36 y 37 de este Reglamento, previa valoración de la Jefatura del DBD, se establecerá el período para el pago y reposición de los bienes dañados o extraviados del DBD, que no podrá superar el cuatrimestre en el cual se presentó el evento.

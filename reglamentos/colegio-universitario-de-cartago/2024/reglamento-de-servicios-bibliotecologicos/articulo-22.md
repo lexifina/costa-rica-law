@@ -1,0 +1,1 @@
+Artículo 22.-En caso de que alguna Dirección, Departamento o Unidad requiera la compra de material bibliográfico deberá solicitar la autorización a la Jefatura del DBD; de ser aprobada la solicitud, se efectuará el trámite de compra respectivo y se procederá con la inscripción como activo institucional.

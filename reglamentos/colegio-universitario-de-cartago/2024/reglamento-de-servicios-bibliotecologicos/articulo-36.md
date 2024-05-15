@@ -1,0 +1,1 @@
+Artículo 36.-Todo usuario o grupo de usuarios que produzcan daños al edificio, materiales, equipo tecnológico y/o mobiliario del DBD deberán cumplir con lo estipulado en la normativa institucional vigente.

@@ -1,0 +1,1 @@
+Artículo 16.-Los modelos anatómicos deben ser devueltos el mismo día a las 19:45 horas, salvo excepción debidamente autorizada por los funcionarios del DBD, donde se coordine el resguardo y posterior devolución por el usuario solicitante del material o a quien este autorice.
