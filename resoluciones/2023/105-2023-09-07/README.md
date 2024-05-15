@@ -14,3 +14,4 @@ Fija tarifas para la compra-venta de excedentes y reconocimiento económico entr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-01 | la propia norma |
+| 2 | 2024-05-15 | Acuerdo 0 (2024-05-15) |

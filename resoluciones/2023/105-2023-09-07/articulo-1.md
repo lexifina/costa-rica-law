@@ -481,6 +481,7 @@ Anual 68,23 55,84 33,89
 Anual 71,01 54,36 33,63
 Fuente: Intendencia de Energía, ARESEP 2023.
 Nota/ la tarifa resaltada corresponde al precio más eficiente
+(Nota de SinalevI: Mediante publicación en La Gaceta N° 86 del 15 de mayo de 2024, el Instituto Costarricense de Electricidad, informa que el precio de compra de excedentes durante el año 2024 será de ¢26,4 CRC/kWh.)
 II. Señalar como respuesta a las posiciones interpuestas lo externado en el Considerando II de esta resolución, así como agradecer a los participantes de la audiencia pública por sus aportes.
 III. Establecer que los precios rigen a partir del 1 de octubre de 2023.
 De conformidad con el acuerdo de Junta Directiva Nº 06-83-2021, del acta de la sesión extraordinaria 83-2021, celebrada el 23 de setiembre de 2021 y ratificada el 28 de setiembre del mismo año, se incorpora a esta resolución el anexo del informe técnico IN-0183-IE-2023 del 7 de setiembre de 2023, que sirve de base para el presente acto administrativo.
