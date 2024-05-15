@@ -1,0 +1,1 @@
+Artículo 15.-Si a criterio justificado del Concejo Municipal, ninguno de los propuestos reúne las condiciones requeridas para ser distinguido con la Orden, tendrá la facultad de declarar desierta, total o parcialmente, la designación ese año.

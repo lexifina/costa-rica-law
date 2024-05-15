@@ -1,0 +1,1 @@
+Artículo 18.-En la "Galería Billo Sánchez", que tiene su sede en la Casa de la Cultura Belemita, se colgarán los retratos de todas las personas que hayan sido distinguidas con la "Orden Billo Sánchez", o hayan sido declaradas "Hijos Predilectos" o "Ciudadanos Ilustres" con anterioridad o posterioridad a la creación de la Orden.

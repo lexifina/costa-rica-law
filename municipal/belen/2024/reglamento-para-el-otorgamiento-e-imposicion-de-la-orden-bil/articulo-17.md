@@ -1,0 +1,1 @@
+Artículo 17.-A diferencia de lo dispuesto por el artículo anterior, la designación que haga la Municipalidad a favor de una persona como "Hijo Predilecto del Cantón de Belén", o de "Ciudadano Ilustre", no implicará la imposición automática de la Orden, si los atestados del designado no lo justifican, de conformidad con lo contemplado en el artículo 4) de este reglamento.

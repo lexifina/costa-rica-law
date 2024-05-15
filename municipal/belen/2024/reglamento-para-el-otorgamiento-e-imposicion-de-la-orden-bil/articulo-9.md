@@ -1,0 +1,1 @@
+Artículo 9°-La propuesta del candidato a la "Orden Billo Sánchez" deberá ser presentada por su promotor ante el Concejo Municipal, por escrito, y a más tardar el día 30 de marzo del año que corresponda la designación.

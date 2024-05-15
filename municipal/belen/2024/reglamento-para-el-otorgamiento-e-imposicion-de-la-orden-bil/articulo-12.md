@@ -1,0 +1,1 @@
+Artículo 12.-El Concejo Municipal nombrará la Comisión Especial en la primera sesión ordinaria del mes de febrero del año que corresponda, y en la primera quincena del mes de abril de ese año, le hará entrega de toda la documentación acerca de las personas propuestas, para su evaluación.

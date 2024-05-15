@@ -1,0 +1,1 @@
+Artículo 14.-Recibida la recomendación de la Comisión Especial, el Concejo Municipal tomará el acuerdo que, por mayoría calificada de los regidores propietarios, designe a la persona que será distinguida con la "Orden Billo Sánchez".

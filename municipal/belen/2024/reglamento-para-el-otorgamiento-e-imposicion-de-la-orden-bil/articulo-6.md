@@ -1,0 +1,1 @@
+Artículo 6°-La "Orden Billo Sánchez", será conferida e impuesta por el Concejo Municipal, cada cuatro años, el 08 de junio, en la Sesión Solemne que se realice en conmemoración del cantonato de Belén. Este plazo no es aplicable al supuesto del artículo quinto anterior, en razón de lo excepcional de tal eventualidad.

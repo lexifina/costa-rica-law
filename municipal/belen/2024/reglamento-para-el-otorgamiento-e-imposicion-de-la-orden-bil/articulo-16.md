@@ -1,0 +1,1 @@
+Artículo 16.-El otorgamiento de la "Orden Billo Sánchez" implicará, en forma simultánea, la declaración del designado como "Hijo Predilecto del Cantón de Belén", si fuera belemita de nacimiento, o como "Ciudadano Ilustre" si se tratara del caso contemplado en el segundo presupuesto del Artículo 4 inc. b), y del Artículo 5 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.-La Municipalidad velará por la uniformidad en las molduras de cada retrato, a efectos de lograr el mayor y mejor aprovechamiento del espacio físico en las paredes de la Casa de la Cultura de Belén, y crear también un ambiente agradable desde el punto de vista estético.

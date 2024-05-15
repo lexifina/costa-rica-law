@@ -1,0 +1,1 @@
+Artículo 7°-La "Orden Billo Sánchez" se otorgará a una persona cada cuatro años. Lo anterior, sin perjuicio de que la Municipalidad pueda otorgar más de una orden, en casos excepcionales, y cuando haya sido debidamente documentada su procedencia.

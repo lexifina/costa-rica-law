@@ -1,0 +1,1 @@
+Artículo 3°-También se entregará al designado una pequeña placa de bronce, en forma de pergamino, en la cual se consignarán las razones que justifiquen tal designación. Asimismo, se le hará entrega de un obsequio, como símbolo de gratificación de parte de la Comunidad Belemita, y cuyas características serán definidas mediante acuerdo firme por el Concejo Municipal.
