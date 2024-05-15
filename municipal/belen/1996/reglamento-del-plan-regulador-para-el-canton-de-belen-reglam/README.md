@@ -17,3 +17,4 @@ Reglamento del Plan Regulador para el cantón de Belén (Reglamento de Zonificac
 | 2 | 2007-03-13 | Reglamento municipal 16 (2007-03-13) |
 | 3 | 2013-08-13 | Acuerdo municipal 0 (2013-08-13) |
 | 4 | 2013-08-13 | Reglamento municipal 48 (2013-08-13) |
+| 5 | 2024-05-15 | SINALEVI (sin norma nombrada) |
