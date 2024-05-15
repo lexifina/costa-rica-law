@@ -1,1 +1,0 @@
-Artículo 4º—El préstamo del material bibliográfico es de dos tipos: el préstamo en sala y el préstamo a domicilio. El préstamo en sala consiste en hacer uso del material únicamente dentro de las instalaciones de la Biblioteca. Préstamo a domicilio cuando se cuente con la autorización respectiva del encargado de la Biblioteca para sacar el material.

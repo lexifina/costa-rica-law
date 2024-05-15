@@ -1,1 +1,0 @@
-Artículo 28.—Todo usuario o grupo de usuarios que produzcan daños en el edificio, materiales, equipo o mobiliario deberán cubrir el gasto correspondiente de la reparación, de acuerdo con el cálculo que haga la dependencia respectiva.

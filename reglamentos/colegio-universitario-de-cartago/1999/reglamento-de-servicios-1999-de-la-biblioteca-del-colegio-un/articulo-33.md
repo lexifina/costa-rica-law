@@ -1,1 +1,0 @@
-Artículo 33.—No podrán realizar los trámites de matrícula aquellos estudiantes que estén morosos. En el caso de estudiantes próximos a graduarse, no se les efectuará ningún trámite de graduación hasta tanto no cancelen sus deudas con la Biblioteca.

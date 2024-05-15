@@ -1,1 +1,0 @@
-Artículo 30.—El monto de la multa a que se refiere el artículo 29 deberá ser pagado en la Biblioteca y pasará a formar parte del presupuesto asignado a esta dependencia para compra de bienes y servicios propios. El monto de la multa será fijado por la Dirección Administrativa.

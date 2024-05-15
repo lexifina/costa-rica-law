@@ -1,1 +1,0 @@
-Artículo 21.—La renovación de los materiales adquiridos por préstamos interbibliotecarios se tramitarán únicamente a los usuarios que hagan solicitud con anterioridad a la fecha de vencimiento del plazo, por el que le fue hecho el respectivo préstamo.

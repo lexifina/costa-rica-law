@@ -1,1 +1,0 @@
-Artículo 15.—Los encargados de la Biblioteca están facultados para solicitar la devolución de los libros, u otro material en casos urgentes y justificados, aun cuando no haya vencido el período de su préstamo.
