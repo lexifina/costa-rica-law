@@ -1,0 +1,4 @@
+Artículo 3°-Requisitos para la tramitación de desinscripción. Los requisitos institucionales para la tramitación de la desinscripción de los vehículos declarados inservibles, en desecho, desuso o pérdida total, son:
+1) Que la máxima jerarquía de la institución, o a quien le haya delegado esta función, genere la autorización de baja del vehículo declarándolo inservible, en desecho, en desuso o pérdida total.
+2) Que la unidad que tiene asignado el vehículo remita a la Unidad de Registro y Aseguramiento del Departamento de Control Vehicular de la Dirección de Transportes, las placas, el dispositivo de identificación y los documentos del vehículo.
+3) Que la Unidad de Registro y Aseguramiento del Departamento de Control Vehicular de la Dirección de Transportes solicite la desinscripción del bien ante el Registro Nacional aportando únicamente la declaratoria, las respectivas placas y el dispositivo de identificación del Registro Nacional.
