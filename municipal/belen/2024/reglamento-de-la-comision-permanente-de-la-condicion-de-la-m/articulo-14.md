@@ -1,0 +1,1 @@
+Artículo 14.-Las personas integrantes de la comisión, deberán reunirse por lo menos una vez al mes y en forma extraordinaria, cuando así se requiera para discutir los asuntos y planes de trabajo, las necesidades del Cantón, así como cualquier otro aspecto que sea de interés de la comisión, los cuales deben hacerse constar en un acta, donde se consignará los acuerdos tomados.
