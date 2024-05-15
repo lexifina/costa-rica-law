@@ -1,0 +1,1 @@
+Artículo 11.-Implementación del Modelo de Gestión y del Modelo de Seguimiento y Evaluación. La implementación del Modelo de Gestión y del Modelo cle Seguimiento y Evaluación de la Política Nacional de la Niñez y la Adolescencia 2024- 2036, será responsabilidad del Patronato Nacional de la Infancia como ente rector en materia de niñez y adolescencia.

@@ -1,0 +1,1 @@
+Artículo 7º-Características. La Política Nacional de la Niñez y la Adolescencia 2024-2036 presenta las siguientes características: basada en evidencia, participativa, coordinada, integrada y articulada, en línea con la gestión para resultados, receptiva hacia las alianzas Público-Privadas para el Desarrollo y comprometida con la Gestión del Riesgo.

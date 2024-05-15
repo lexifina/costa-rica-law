@@ -1,0 +1,1 @@
+Artículo 14.-Plazo y Acatamiento. La Política Nacional de la Niñez y la Adolescencia 2024-2036 tendrá una vigencia de 13 años y será de acatamiento obligatorio para las instituciones públicas que por su labor desarrollen programas o proyectos correspondientes a la garantía de los derechos de las personas menores de edad.

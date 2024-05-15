@@ -1,0 +1,1 @@
+Artículo 6º-Principios. La Política Nacional de la Niñez y la Adolescencia 2024-2036 presenta los siguientes principios: universalidad, interdependencia e indivisibilidad, no discriminación e igualdad, interés superior de la niñez y la adolescencia, derecho la supervivencia y desarrollo, participación y autonomía progresiva.

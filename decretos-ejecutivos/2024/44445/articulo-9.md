@@ -1,0 +1,1 @@
+Artículo 9º-Ejes Estratégicos. La Política Nacional de la Niñez y 111 Adolescencia 20242036 establece los siguientes ejes estratégicos: Institucionalidad democrática, Vida en familia y en comunidad, Protección especial, Salud, Educación, Cultura, juego, deporte, recreación y actividad física y Ambiente.
