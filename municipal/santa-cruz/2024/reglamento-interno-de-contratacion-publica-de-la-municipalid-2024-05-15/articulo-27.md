@@ -1,0 +1,1 @@
+Artículo 27.-Votación. El informe de recomendación queda válidamente constituido con la firma y aprobación de todos los miembros que integran la Comisión de Recomendación de Adquisiciones. Los votos en contra o abstenciones deben constar con el debido razonamiento en el acta respectiva.

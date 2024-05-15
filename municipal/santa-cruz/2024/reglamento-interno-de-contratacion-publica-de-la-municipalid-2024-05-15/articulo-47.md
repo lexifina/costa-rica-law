@@ -1,0 +1,1 @@
+Artículo 47.-Asignación de roles del sistema digital unificado de compras. De acuerdo a las competencias de las instancias correspondientes, la Proveeduría Institucional realizará la asignación de roles del sistema unificado de compras.

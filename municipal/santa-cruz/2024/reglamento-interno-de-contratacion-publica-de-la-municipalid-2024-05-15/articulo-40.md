@@ -1,0 +1,1 @@
+Artículo 40.-Honorarios y gastos del comité de expertos. La unidad solicitante desde la decisión inicial deberá de considerar los honorarios y gastos relacionados al comité de expertos, esto en el supuesto de que la contratación por sus condiciones particulares o complejidad así lo requiera. En todo caso, la Municipalidad asumirá la mitad de dichas erogaciones.
