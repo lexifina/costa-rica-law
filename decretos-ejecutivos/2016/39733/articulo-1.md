@@ -102,9 +102,9 @@ No aplica para aquellas fórmulas especiales de fertilizantes que se utilicen de
 3.25 Nombre comercial: nombre, denominación, designación o abreviatura que identifica o distingue a una empresa o establecimiento en su actividad comercial.
 3.26 Panfleto: material impreso que acompaña a cada presentación comercial de un fertilizante o enmienda, de uso agrícola que contiene información complementaria a la etiqueta.
 3.26 (bis) Producto extraído: fertilizante o enmienda que se extraiga de la naturaleza, de origen animal, vegetal o mineral, independientemente de su estado físico.
-(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al “Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro”, las definiciones de producto extraído y producto formulado”, aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
+(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro", las definiciones de producto extraído y producto formulado", aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
 3.26 (ter) Producto formulado: fertilizante, enmienda, mezcla de fertilizantes o enmiendas de origen animal, vegetal, mineral o sintético, con o sin coadyuvantes de formulación o ingredientes inertes, independientemente de su estado físico.
-(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al “Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro”, las definiciones de producto extraído y producto formulado”, aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
+(Así adicionado el punto anterior mediante el aparte 1) de la parte resolutiva de la Resolución N° 415-2019 (COMIECO-LXXXVIII) de fecha 25 de octubre de 2019, que aprueba incorporar al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 fertilizantes y enmiendas de uso agrícola, requisitos para el registro", las definiciones de producto extraído y producto formulado", aprobada mediante decreto ejecutivo N° 42273 del 18 de noviembre del 2019)
 3.27 Producto natural: fertilizante o enmienda que provenga de la naturaleza, de origen animal, vegetal o mineral que se utilice como tal en forma simple o formando parte de una mezcla más compleja.
 3.28 Producto sintético: fertilizante o enmienda que es generado a partir de otros materiales en los cuales se dan reacciones químicas modificándose los componentes originales.
 3.29 Reenvasado o reempacado: acción de transferir el producto de su envase original a otras presentaciones.
@@ -175,7 +175,8 @@ e.1 Fertilizantes sólidos y líquidos, ver Anexos 2 y 3.
 NOTA 5. El etiquetado no aplica para productos a granel, sólo deberán acompañarse de su hoja de seguridad o ficha técnica correspondiente.
 e.2 El tamaño de la etiqueta debe ser proporcional al tamaño el envase y su texto de forma legible en español y autorizada por la ANC.
 e.3 En el caso de que el tamaño del envase no permita incluir la totalidad de la información en la etiqueta requerida en el Anexo 3, la misma debe incluir como mínimo la información de los numerales descritos en Anexo 3: 1, 2, 3, 4, 5, 7, 8, 19, 20, 21 y 22, reportar el porcentaje del material de relleno y adjuntar al envase un panfleto con la información siguiente: 1, 2, 3, 5 (indicar los nombres de los elementos nutrientes) 6, 8 al 20, el cual debe ser autorizado por la ANC.
-NOTA 6. La composición del fertilizante indicada en la etiqueta debe ser concordante con lo declarado en el numeral 5.1.d
+Nota 6. La composición del fertilizante indicada en la etiqueta debe ser concordante con lo declarado en el numeral S.l. c.
+(Así reformada la nota 6) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 5.2 Se establecen los siguientes requisitos técnicos:
 a) Propiedades físicas y químicas del fertilizante.
 a.1 Estado físico. .
@@ -185,7 +186,8 @@ a.4 pH sólo para líquidos.
 a.5 Solubilidad en agua, sólo para sólidos (% ó gIL) indicando la temperatura.
 a.6 Granulometría (diámetro promedio de partículas en mesh o milímetros para formulaciones granuladas).
 a.7 Corrosividad.
-a.8 Si el producto contiene nutrientes quelatados, identificar químicamente el agente quelante y su % en peso/volumen.
+a.8 Si el producto contiene nutrientes quelatados, identificar químicamente el agente quelatante y su % en masa/volumen.
+(Así reformado el literal a.8) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 a.9 Si se trata de un fertilizante de liberación lenta, indicar químicamente su composición.
 a.10 Indicar si es una mezcla física o fórmula química.
 b) Datos sobre aplicación de fertilizantes.
@@ -218,26 +220,29 @@ d) Certificado de análisis de la enmienda, en original, proporcionado por el fa
 Tanto para la literal c) como d), debe declararse el contenido de los componentes presentes, en el
 siguiente orden y forma:
 d.1 Para las enmiendas orgánicas se declarará lo siguiente:
-d.1.1 Los componentes deben expresarse en porcentaje (%), peso/peso o peso/volumen, según su estado físico, en su forma elemental.
+d.1.1 Los componentes deben expresarse en porcentajes masa/masa y masa/volumen, según su estado físico, en su forma elemental.
+(Así reformado el literal d.1.1) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 d.1.2 Materia orgánica total.
 d.1.3 Relación carbono/nitrógeno (C/N).
 d.1.4 Porcentaje de humedad.
 d.1.5 Para el caso de sustancias húmicas su identificación y porcentaje de las mismos.
 d.1.6 Declaración de la presencia o ausencia de metales pesados (Cadmio, Cromo, Arsénico, Mercurio y Plomo) y su concentración máxima en partes por millón (ppm) u otras substancias que puedan transformarse en el suelo en metabolitos dañinos.
-d.2 Para enmiendas inorgánicas debe expresarse la concentración mínima garantizada de la siguiente forma:
-d.2.1 Carbonato de calcio CaCO3……………………………………… % p/p.
-d.2.2 Oxido de calcio CaO ………………………………………………. % p/p.
-d.2.3 Carbonato de magnesio MgCO3………………………………… % p/p.
-d.2.4 Oxido de Magnesio MgO………………………………………….. % p/p.
-d.2.5 Sulfato de calcio CaSO4…………………………………………... % p/p.
-d.2.6 Porcentaje de humedad…………………………………………… % p/p.
+(*)d.2 Para enmiendas inorgánicas debe expresarse la concentración mínima garantizada de la siguiente forma:
+d.2.1 Carbonato de Calcio CaCO3.. % m/m
+d.2.2 Oxido de Calcio CaO.. % m/m
+d.2.3 Carbonato de Magnesio MgC03.. % m/m
+d.2.4 Oxido de Magnesio MgO.. % m/m
+d.2.5 Sulfato de Calcio CaSO4.. % m/m
+d.2.6 Porcentaje de humedad.. % m/m
 d.2.7 Declaración de la presencia o ausencia de metales pesados (Cadmio, Cromo, Arsénico, Mercurio y Plomo) y su concentración máxima en partes por millón (ppm) u otras substancias que puedan transformarse en el suelo en metabolitos dañinos.
+(*) (Así reformado el literal d.2) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 e) Proyecto (s) de etiqueta (s), aplica para:
 Enmiendas de uso agrícola, ver Anexos 2 y 3.
 NOTA 9. El etiquetado no aplica para productos a granel, deberán acompañarse de su hoja de seguridad o ficha técnica correspondiente.
 NOTA 10. El tamaño de la etiqueta debe ser proporcional al tamaño del envase, su texto debe ser de forma legible en español y autorizada por la ANC.
 NOTA 11. Cuando el tamaño del envase no permita incluir la totalidad de la información en la etiqueta requerida en el Anexo 3, la etiqueta debe incluir corno mínimo la información de los numerales descritos en Anexo 3: 1, 2, 3, 4, 5, 7, 8, 19, 20, 21 Y 22, Y adjuntar al envase un panfleto con la información siguiente: 1,2,3,5, (indicar los nombres de los componentes) 6, 8 al 20, el cual debe ser autorizado por la ANC.
-NOTA 12. La composición de la enmienda indicada en la etiqueta debe ser concordante con lo declarado en el numeral 6.1.d.
+.Nota 12. La composición de la enmienda indicada en la etiqueta debe ser concordante con lo declarado en el numeral 6.1. c.
+(Así reformada la nota 12) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 6.2 Se establecen los siguientes requisitos técnicos:
 6.2.1 Propiedades físicas y químicas de la enmienda.
 a) Capacidad neutralizadora (PRNT) para el caso de enmiendas inorgánicas, expresada en porcentaje de neutralización comparado con 100 kg de carbonato de calcio puro.
@@ -287,15 +292,11 @@ b) La autoridad judicial lo disponga.
 c) El registro del titular o el representante legal se encuentre vencido.
 d) La persona física (natural, individual) o jurídica, dedicada a la fabricación, formulación o extracción de fertilizantes o enmiendas de uso agrícola, dentro de cualquier Estado Parte de la región centroamericana, tenga su permiso o licencia de funcionamiento vencido.
 e) El titular del registro no proporcione, en el plazo otorgado por la ANC, la información requerida en el numeral 4.19.
-(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso e) anterior. Anteriormente se indicaba: “El titular del registro no proporcione, en el plazo otorgado por la ANC, la información requerida en el numeral 4.18”)
+(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso e) anterior. Anteriormente se indicaba: "El titular del registro no proporcione, en el plazo otorgado por la ANC, la información requerida en el numeral 4.18")
 f) El titular del registro no cumpla con el plazo establecido en el numeral 7.3 del presente reglamento.
 g) Cuando en un segundo muestre o se comprueba que persiste el incumplimiento de la norma oficial en la formulación del producto de cada Estado Parte de la región centroamericana.
 h) Cuando el titular del registro no presente en el tiempo establecido lo indicado en el Transitorio IV y V.
-NOTA 13: Suspendido el registro de un fertilizante o enmienda, de uso agrícola, el producto no
-se podrá procesar, fabricar, formular, importar, exportar, extraer, envasar, reenvasar, reempacar o
-comercializar según corresponda. En los casos en que la suspensión sea por calidad del producto,
-el registrante deberá presentar ante la ANC la medida correctiva y el plazo para cumplirla, misma
-que será valorada por la ANC.
+NOTA 13: Suspendido el registro de un fertilizante o enmienda, de uso agrícola, el producto no se podrá procesar, fabricar, formular, importar, exportar, extraer, envasar, reenvasar, reempacar o comercializar según corresponda. En los casos en que la suspensión sea por calidad del producto, el registrante deberá presentar ante la ANC la medida correctiva y el plazo para cumplirla, misma que será valorada por la ANC.
 8.2 La suspensión tendrá un plazo máximo de hasta tres (3) meses para corregir las causas
 que la originaron, a excepción de aquellas suspensiones ordenadas por la instancia judicial.
 9. CANCELACION DEL REGISTRO
@@ -325,6 +326,7 @@ h) Reglamento sobre el registro, uso y control de fertilizantes y materias prima
 i) Ley 274 Ley Básica para la regulación y control de plaguicidas, sustancias toxicas, peligrosas y otras similares y su reglamento, Nicaragua.
 j) Acuerdo Ministerial MAGFOR No. 21-2001, Registro de materias simples de fertilizantes edáficos y granulares, Nicaragua
 k) Ley de Sanidad Vegetal y Animal, Decreto 36-98 y su reglamento Acuerdo Gubernativo 745- 99, Guatemala.
+l)
 ANEXO 1
 (Normativo)
 Solicitud de registro para fertilizantes y enmiendas
@@ -333,14 +335,15 @@ ANEXO 2
 (Normativo)
 INFORMACION DE ETIQUETADO
 PARA FERTILIZANTES Y ENMIENDAS SÓLIDAS
-Parte 1
+Parte I
 INFORMACION DE ETIQUETADO PARA FERTILIZANTES
 Para presentaciones mayores o iguales a 20 kilogramos:
 a) Logotipo o nombre comercial.
 b) Incluir el texto "FERTILIZANTE" claramente legible.
 c) Marca (nombre del producto).
 d) Leyenda: mezcla física o formula química.
-e) Composición y concentración expresada en % p/p.
+e) Composición y concentración expresada en porcentajes masa/masa.
+(Así reformado el literal e) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 e.1) Para el caso de los fertilizantes indicar el (los) nutrientes (s) y sus % según lo indicado en el numeral 5.1.d y sus fuentes.
 e.2 Los elementos menores deben expresarse en porcentaje pudiéndose agregar la dimensional ppm entre paréntesis junto al nombre del elemento.
 f) Contenido neto.
@@ -352,12 +355,12 @@ k) País de registro del Estado Parte de la región centroamericana donde está 
 l) Número de registro.
 m) Si se trata de un fertilizante de baja concentración de elementos nutrientes (sumatoria del contenido de NPK), deberá incluirse una franja informativa en la parte central y en ambas caras del empaque. Esta franja informativa deberá cumplir' con las siguientes características:
 m.1) Ancho de la franja del 30% del alto total del empaque (saco). Los fertilizantes de baja concentración deberán colocar la franja en la parte media del saco (alrededor de todo el saco).
-(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso m.1) anterior. Anteriormente se indicaba: “"Ancho de la franja del 30% del alto total del empaque")
+(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso m.1) anterior. Anteriormente se indicaba: ""Ancho de la franja del 30% del alto total del empaque")
 m.2) La franja debe ser de color MORADO (pantone 2602 C).
 m.3) Dentro de la franja informativa debe incluirse la siguiente información:
 m.3.1) En la cara frontal del empaque debe incluirse el texto "(porcentaje) de material de relleno" y en la parte de abajo de esta leyenda, el grado fertilizante, en porcentaje de los elementos nutrientes: N-P2O5-K2O. Para efectos de este reglamento se considera que la cara frontal del empaque es aquella en donde se declara de manera más prominente el nombre, fórmula y marca del producto sí la tuviese.
 m.3.2 Dentro de la franja informativa en la cara dorsal del empaque debe incluirse el texto: FERTILIZANTE DE BAJA CONCENTRACIÓN DE NUTRIENTES. Dentro de la franja informativa en la cara dorsal del empaque (saco) debe incluirse el texto ALTO CONTENIDO DE MATERIAL DE RELLENO Y en la parte de abajo de esta leyenda, el contenido (porcentaje) de material de relleno.
-(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso m.3.2) anterior. Anteriormente se indicaba: “"Dentro de la franja informativa en la cara dorsal del empaque debe incluirse el texto "el grado fertilizante (N-P2O5-K2O)" y en la parte de abajo de esta leyenda, "(porcentaje) de material de relleno")
+(Nota de Sinalevi: Mediante Fe de Erratas contenida en la resolución No. 374-2015 (COMIECO LXXIV), la cual aprobó el Reglamento Técnico Centroamericano RTCA 65.05.5415 Fertilizantes y enmiendas de uso agrícola. Requisitos para el registro", se corrigió el inciso m.3.2) anterior. Anteriormente se indicaba: ""Dentro de la franja informativa en la cara dorsal del empaque debe incluirse el texto "el grado fertilizante (N-P2O5-K2O)" y en la parte de abajo de esta leyenda, "(porcentaje) de material de relleno")
 m.3.2 El texto indicado en la literal m.3.1 debe colocarse, en letra de molde altamente legible y el tamaño de sus caracteres debe de ser en un 25% del ancho de la franja y el del literal m.3.2 debe colocarse, en letra de molde altamente legible y el tamaño de sus caracteres debe de ser de un 20% del ancho de la franja. Los textos se colocarán en letra mayúscula, color blanco, en forma centrada a lo alto y ancho de la franja.
 m.3.4 La franja informativa no debe interferir con la información técnica que se detalla en la etiqueta.
 NOTA 14. La información antes enumerada, no impide que un registrante incluya más información previa valoración de la ANC.
@@ -369,7 +372,8 @@ c) Nombre del componente(s).
 d) Tipo de uso.
 e) Granulometría (para productos granulados).
 f) Capacidad neutralizadora (PRNT), expresada en porcentaje de neutralización (en caso de minerales).
-g) Composición y concentración expresada en % p/p. Indicar los componentes y sus porcentajes.
+g) Composición y concentración expresada en porcentajes masa/masa. Indicar los componentes y sus porcentajes.
+(Así reformado el literal g) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 h) Contenido neto.
 i) Fabricante, formulador o extractor (indicar el nombre) y país de origen de la enmienda.
 j) Distribuidor: (indicar el nombre).
@@ -395,7 +399,8 @@ Para todas las presentaciones liquidas y las presentaciones solidas menores a 20
 2. Marca (nombre del producto).
 3. Clase: (indicar si el producto es un fertilizante o enmienda).
 4. Leyenda: para el caso de fertilizantes sólidos indicar: mezcla física o fórmula química.
-5. Composición, concentración expresada en % p/v o p/p, según corresponda.
+5. Composición, concentración expresada en porcentajes masa/masa y masa/volumen, según corresponda.
+(Así reformado el literal 5) anterior por Resolución N° 479-2023 (COMIECO-EX) de fecha 16 de noviembre de 2023, que aprobó modificaciones parciales al "Reglamento Técnico Centroamericano RTCA 65.05.54:15 Fertilizantes y Enmiendas de Uso Agrícola. Requisitos para el Registro", aprobada mediante decreto ejecutivo N° 44678 del 16 de mayo de 2024)
 5.1 Para el caso de los fertilizantes indicar el (los) nutrientes (s) y sus % según lo indicado en el numeral 5.1.d y sus fuentes.
 5.2 Los elementos menores deben expresarse en porcentaje pudiéndose agregar la dimensional ppm entre paréntesis junto al nombre del elemento.
 5.3 Para el caso de las enmiendas indicar el (los) componente (s) y sus % según lo indicado en el numeral 6.1.d y sus fuentes.
