@@ -14,3 +14,4 @@ Reglamento de graduación de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-06-14 | la propia norma |
+| 2 | 2024-05-16 | Reglamento 15 (2024-05-16) |

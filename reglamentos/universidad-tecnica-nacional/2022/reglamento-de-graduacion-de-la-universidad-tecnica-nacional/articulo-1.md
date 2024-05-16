@@ -7,6 +7,10 @@ El Reglamento de Graduación, en su versión completa y actualizada, se encuentr
 (Nota de Sinalevi: EL presente reglamento se extrajo del sitio web de la Universidad Técnica Nacional y se transcribe a continuación:)
 REGLAMENTO DE GRADUACIÓN
 DE LA UNIVERSIDAD TÉCNICA NACIONAL
-(Aprobado por el Consejo Universitario mediante Acuerdo 5 tomado por el Consejo Universitario en la Sesión Ordinaria No. 6-2022, celebrada el jueves 7 de abril del año 2022, a las nueve horas, según el Artículo 6 del Capítulo VI. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No. 110 del 14 de junio del 2022, sección Reglamentos).
-CAPÍTULO I DISPOSICIONES GENERALES
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 15-2024 del 16 de mayo de 2024, publicada en La Gaceta N° 103 del 7 de junio del 2024, y se transcribe a continuación:)
+Aprobado por el Consejo Universitario mediante Acuerdo 5 tomado por el Consejo Universitario en la Sesión Ordinaria No. 6-2022, celebrada el jueves 7 de abril del año 2022, a las nueve horas, según el Artículo 6 del Capítulo VI. Comisión Interna de Reglamentos. Publicado en el diario oficial La Gaceta No.
+110 del 14 de junio del 2022, sección Reglamentos)
+(Reformado por el Consejo Universitario mediante Acuerdo 14- 15- 2024, tomado por el Consejo Universitario en la Sesión Ordinaria No. 15- 2024, celebrada el jueves 16 de mayo del año 2024, según el Artículo 21, del Capítulo V, Vicerrectoría de Docencia. Publicado en el diario oficial La Gaceta No. 103 del viernes 7 de junio del 2024, sección instituciones descentralizadas)
+CAPÍTULO I
+DISPOSICIONES GENERALES
 Artículo 1: Objetivo del reglamento. El presente reglamento establece las disposiciones que regulan las normas generales de graduación para la población estudiantil de la Universidad Técnica Nacional, en adelante la Universidad.
