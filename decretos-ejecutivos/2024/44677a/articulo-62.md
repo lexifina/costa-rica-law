@@ -1,0 +1,1 @@
+Artículo 62. Prestación de servicios. Los Estados Parte deberán asegurar que sus Servicios Aduaneros y otras instituciones gubernamentales con presencia en los puestos fronterizos, garanticen el servicio correspondiente a efectos de facilitar y agilizar el tránsito de los envíos de socorro.

@@ -1,0 +1,2 @@
+Artículo 56. Contingencia. Los Servicios Aduaneros de los Estados Parte adoptarán y coordinarán las medidas necesarias para garantizar el normal desarrollo de las operaciones del tránsito aduanero internacional terrestre, en caso de cualquier eventualidad que se presente en los sistemas informáticos nacionales y/o regionales.
+La contingencia será aplicada de forma integral con los planes de contingencias nacionales o regionales que los Servicios Aduaneros establezcan.

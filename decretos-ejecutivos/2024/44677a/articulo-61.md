@@ -1,0 +1,1 @@
+Artículo 61. Disposiciones administrativas. El Servicio Aduanero de cada Estado Parte podrá emitir las disposiciones administrativas que estime conveniente para facilitar la aplicación del presente Reglamento. Así mismo, colaborará con las autoridades competentes en la aplicación de Protocolos Centroamericanos que se establezcan para tal efecto.

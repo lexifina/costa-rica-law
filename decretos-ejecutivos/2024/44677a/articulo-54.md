@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las Disposiciones Finales
+Artículo 54. Medidas de control. Los Servicios Aduaneros de los Estados Parte, adoptarán las medidas necesarias para controlar las operaciones bajo el Régimen de Tránsito Aduanero Internacional Terrestre, la documentación, el medio de transporte, las mercancías, los dispositivos de seguridad para cumplir con las disposiciones del presente Reglamento.
+Cuando los Servicios Aduaneros de un Estado Parte tengan conocimiento de cualquier irregularidad o posible ilícito en una operación de tránsito aduanero internacional terrestre, y el medio de transporte no se encuentre en su territorio nacional, deberá comunicar de forma inmediata por cualquier medio, a las aduanas de paso o destino a efecto de que se adopten las medidas correspondientes de conformidad con el presente Reglamento y la legislación aduanera aplicable.

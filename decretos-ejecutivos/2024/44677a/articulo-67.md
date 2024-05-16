@@ -1,0 +1,1 @@
+Artículo 67. Declaración Resumida. La implementación de la declaración resumida a la que se hace referencia en el artículo 7 del presente Reglamento, será notificada por los Estados Parte del Subsistema de Integración Económica Centroamericana.

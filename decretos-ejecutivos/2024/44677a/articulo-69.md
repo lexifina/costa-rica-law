@@ -1,0 +1,1 @@
+Artículo 69. Adecuación de sistemas informáticos. En los casos en que se requiera la adecuación del sistema informático para la puesta en marcha de los procedimientos desarrollados en el presente reglamento, se seguirán aplicando los procedimientos actuales hasta que se adecue la plataforma informática de los Estados Parte y la Regional.

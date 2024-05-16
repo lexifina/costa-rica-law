@@ -1,0 +1,10 @@
+Artículo 33. Otras Obligaciones. Serán, además, obligaciones del transportista, las siguientes:
+a) Estar inscrito ante el Servicio Aduanero del Estado Parte donde se encuentra domiciliado, registrar los conductores, medios de transporte y mantener actualizada esa información, comunicar por escrito o por medios electrónicos el cese de los conductores, medios de transporte asociados y de las operaciones como transportista;
+b) Presentar a la Autoridad Aduanera el medio de transporte y las mercancías en la aduana de partida, de paso y de destino; o lugares habilitados por el Servicio Aduanero de un Estado Parte;
+c) Cumplir el plazo y rutas legales establecidas por la Autoridad Aduanera o autoridad competente;
+d) Presentar en las aduanas de paso y de destino, o lugares habilitados por el Servicio Aduanero de un Estado Parte, los documentos que la Autoridad Aduanera u otra autoridad competente hubiere emitido por las eventualidades ocurridas durante el tránsito;
+e) Mantener la integridad de los dispositivos de seguridad o de cualquier otro medio de seguridad, adoptados por la Autoridad Aduanera para la realización del tránsito;
+f) Llevar registros de todas sus actuaciones y operaciones, en la forma y condiciones que establezca el Servicio Aduanero de cada Estado Parte. Los registros estarán a disposición de las Autoridades Aduaneras cuando los soliciten, en cumplimiento de sus facultades de control y fiscalización, la cual deberá ser compartida a los demás Servicios Aduaneros cuando éstos lo requieran;
+g) Conservar los documentos relativos a las operaciones de tránsito realizadas de conformidad con lo establecido por la legislación aduanera regional y de cada Estado Parte;
+h) Rendir, o ampliar la garantía, en el Estado Parte que esté registrado cuando corresponda, conforme a lo establecido en este Reglamento; y,
+i) Informar a la Autoridad Aduanera o a la autoridad competente más cercana, por cualquier medio que ésta disponga, la o las circunstancias que pudieren derivar en el incumplimiento de alguna de las obligaciones establecidas en este Reglamento.

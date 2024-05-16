@@ -1,0 +1,1 @@
+Artículo 55. Cooperación. Los Servicios Aduaneros de los Estados Parte brindarán toda la comunicación y asistencia necesaria a efectos de garantizar la operación y prestar mutuamente la cooperación técnica y administrativa para la debida aplicación del presente Reglamento.

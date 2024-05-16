@@ -1,0 +1,2 @@
+Artículo 57. Facilitación. Para facilitar las operaciones de tránsito aduanero internacional terrestre, las aduanas de paso prestarán sus servicios de forma homologada e ininterrumpida, todos los días del año, salvo que los Estados Parte acuerden horarios especiales para determinadas aduanas de paso.
+Los Estados Parte deberán reducir al mínimo el tiempo necesario para el cumplimiento de las formalidades aduaneras en las aduanas de paso y ordenar un procedimiento simplificado y expedito para las operaciones de tránsito aduanero internacional terrestre.

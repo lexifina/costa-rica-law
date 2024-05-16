@@ -1,0 +1,1 @@
+Artículo 66. Cumplimiento de nuevas obligaciones. Se establece un plazo de ciento veinte (120) días hábiles a partir de la vigencia del presente Reglamento, para que los sujetos reglamentados y los Estados Parte, así como los Servicios Aduaneros, cumplan con las obligaciones contenidas en el presente Reglamento.

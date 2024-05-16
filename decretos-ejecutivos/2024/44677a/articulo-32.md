@@ -1,0 +1,5 @@
+CAPÍTULO VII
+De las Obligaciones, Responsabilidades e Infracciones del Transportista
+Artículo 32. Responsabilidad. El transportista es el responsable directo de declarar y transmitir en forma electrónica la información requerida en la Declaración, ante la aduana de partida o lugar habilitado, así como, cumplir con las responsabilidades establecidas en el presente Reglamento y la legislación aduanera aplicable en los Estados Parte.
+Cuando el transportista detecte errores u omisiones en la Declaración y no haya iniciado su tránsito, podrá realizar la rectificación sin que medie autorización de la Autoridad Aduanera.
+Autorizado el tránsito, si el transportista tiene razones para considerar que una Declaración contiene errores o presenta omisiones, deberá presentar de inmediato una solicitud de rectificación ante la Autoridad Aduanera. Si la solicitud procede, la Autoridad Aduanera autorizará la rectificación de la Declaración. La rectificación deberá quedar registrada en el sistema informático, lo anterior, no impide que la Autoridad Aduanera aplique las acciones de responsabilidad correspondientes.

@@ -1,0 +1,1 @@
+Artículo 44. Base de Datos Regional de Transportistas (BDRT). Se establece la base de datos regional de transportistas que será gestionada por la SIECA y estará conformada con la información de los transportistas registrados y medios de transporte autorizados por cada Estado Parte, la cual deberá mantenerse actualizada por los Servicios Aduaneros.

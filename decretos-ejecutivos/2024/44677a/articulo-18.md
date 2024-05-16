@@ -1,0 +1,5 @@
+Artículo 18. De la movilización por sus propios medios. Cuando las mercancías sujetas al tránsito aduanero internacional terrestre correspondan a vehículos pesados o equipo especial que por sus características y dimensiones no pueden ser movilizadas en un medio de transporte que cumpla con las condiciones reguladas en este Reglamento, las Autoridades Aduaneras adoptarán las siguientes medidas que garanticen la realización del Tránsito Aduanero Internacional Terrestre:
+a) Estar amparadas a la Declaración, siendo responsable el transportista que la realiza o persona autorizada en el caso que la mercancía se constituya en su propio medio;
+b) Ser declarados en las líneas de mercancías por el inciso arancelario correspondiente y su descripción comercial, marca, tipo de bulto, peso, cantidad y valor; y,
+c) Ser identificados por marca, modelo, número de serie, chasis, VIN y número de motor.
+Para los efectos del presente artículo, no se permitirá movilizar dentro de los vehículos pesados o equipo especial, ningún tipo de mercancía diferente a la que sea del uso normal del equipamiento de los vehículos.

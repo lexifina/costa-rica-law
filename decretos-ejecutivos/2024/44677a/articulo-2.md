@@ -1,0 +1,5 @@
+Artículo 2. Libertad de Tránsito. La libertad de tránsito implica:
+a) La garantía de libre competencia en la contratación del transporte, para efectos del tránsito aduanero internacional terrestre, sin perjuicio del país de origen o destino, de las mercancías;
+b) El trato nacional al transporte de todos los Estados Parte en el territorio de cualquiera de ellos; y,
+c) El libre acceso, para carga y descarga de mercancías objeto de tránsito aduanero internacional terrestre, a todo territorio aduanero, incluidas las zonas de libre comercio, zonas francas y cualquier otra porción del territorio aduanero que se considere extraterritorial aplicando un tratamiento recíproco y no discriminatorio.
+En el marco de la facilitación del comercio intrarregional y de las consideraciones logísticas de los pasos de frontera, los países signatarios dispondrán que las operaciones de exportación procedentes u originarias de sus territorios deben ir acompañadas de la respectiva "Declaración", así como del registro del inicio de la operación de tránsito aduanero internacional terrestre.

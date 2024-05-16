@@ -1,0 +1,2 @@
+Artículo 71. Derogatorias. El presente Reglamento deroga la Resolución No. 61-2000 (COMIECO-XV), del 27 de septiembre de 2000 y su Anexo y cualquier otra norma que le sea contraria y prevalecerá sobre cualquier otro Reglamento entre los Estados Parte que le preceda y regule la misma materia.
+Dado en la Presidencia de la República, San José, a los treinta días del mes de julio del año dos mil veinticuatro.

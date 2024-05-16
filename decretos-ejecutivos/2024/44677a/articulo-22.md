@@ -1,0 +1,4 @@
+Artículo 22. Comunicación. La aduana de partida o lugar habilitado por el Servicio Aduanero, deberá
+informar de forma inmediata al inicio del tránsito, por vía electrónica o por otros medios autorizados en caso de contingencia, de la operación de tránsito aduanero internacional terrestre que haya autorizado e iniciado, a las aduanas que durante el recorrido del tránsito intervengan en dicha operación.
+Adicionalmente, el intercambio de información entre los Estados Parte, deberá ser bajo un único formato estándar de mensaje previamente consensuado y aprobado por los mismos.
+Por regla general, el intercambio de información en el marco de las disposiciones del presente Reglamento entre los Servicios Aduaneros de los Estados Parte, los transportistas registrados y demás personas autorizadas, se efectuará mediante el sistema informático utilizado por cada Servicio Aduanero.

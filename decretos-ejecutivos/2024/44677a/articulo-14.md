@@ -1,0 +1,4 @@
+Artículo 14. Ruptura del dispositivo de seguridad. Corresponde a la Autoridad Aduanera de manera indelegable, en el ejercicio de su potestad, la facultad de realizar o autorizar la ruptura del dispositivo de seguridad durante la operación de Tránsito Aduanero Internacional Terrestre.
+Cuando se trate de dispositivos de seguridad electrónicos se deshabilitarán bajo control aduanero, mediante su descodificación u otro medio tecnológico adecuado para su remoción.
+Cuando una autoridad distinta a la aduanera requiera la inspección de las mercancías trasladadas en un medio de transporte y para ello se necesite la ruptura o deshabilitación electrónica del dispositivo de seguridad, deberá coordinar dicha diligencia con la Autoridad Aduanera para realizar la inspección de manera conjunta.
+En todos los casos, se deberá dejar constancia de las actuaciones en la Declaración.

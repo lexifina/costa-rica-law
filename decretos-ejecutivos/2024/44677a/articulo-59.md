@@ -1,0 +1,1 @@
+Artículo 59. Interpretación, aplicación y modificaciones. La interpretación, aplicación y modificaciones relacionadas con este Reglamento, la información de la Declaración y del instructivo de llenado, serán conocidas y resueltas por el COMIECO.

@@ -1,0 +1,1 @@
+Artículo 58. Otras facilidades. Las disposiciones del presente Reglamento establecen las regulaciones del Régimen de Tránsito Aduanero Internacional Terrestre, sin perjuicio que mediante acuerdos o convenios bilaterales o multilaterales los Estados Parte se otorguen mayores facilidades para la aplicación de dicho régimen.

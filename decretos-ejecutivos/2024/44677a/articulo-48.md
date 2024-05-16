@@ -1,0 +1,1 @@
+Artículo 48. Cese voluntario. El transportista aduanero a quien se encuentre adscrito el conductor o el conductor, podrán solicitar el cese del registro debiendo comunicarlo al Servicio Aduanero para su autorización.

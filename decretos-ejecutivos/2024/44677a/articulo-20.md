@@ -1,0 +1,2 @@
+Artículo 20. Análisis de riesgo. La Autoridad Aduanera, utilizando medios automatizados, podrá someter la Declaración a procesos de análisis de riesgo, que permitan establecer si corresponde efectuar la verificación inmediata de lo declarado.
+Cuando el sistema ordene la verificación inmediata o reconocimiento físico, ésta se efectuará de manera ágil, sin perjuicio de los mecanismos de control, de conformidad con lo establecido en la legislación aduanera aplicable.

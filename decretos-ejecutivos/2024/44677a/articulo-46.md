@@ -1,0 +1,3 @@
+Artículo 46. Habilitación. Presentada la solicitud, el Servicio Aduanero verificará el cumplimiento de los requisitos establecidos y emitirá la autorización o rechazo, según corresponda dentro del plazo máximo de cinco (S) días hábiles.
+Una vez concedida la habilitación, se procederá a inscribirlo, asignándole un código de registro único conformado por el código ISO del país de inscripción más el número de correlativo que se le asigne, que le servirá para realizar cualquier actuación relativa a su actividad.
+Si la solicitud presenta errores u omisiones a juicio del Servicio Aduanero, éste requerirá se subsanen los errores u omisiones dentro del plazo máximo de cinco (S) días hábiles, caso contrario la solicitud será denegada.

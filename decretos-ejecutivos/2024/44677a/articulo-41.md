@@ -1,0 +1,1 @@
+Artículo 41. Identificación del transportista. El Servicio Aduanero asignará un registro único a cada transportista, el cual servirá como identificación para las operaciones de tránsito aduanero internacional terrestre. Dicho registro se conformará con el código del Estado Parte y el número de inscripción del transportista.
