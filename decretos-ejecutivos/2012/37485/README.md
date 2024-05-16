@@ -15,3 +15,4 @@ Reglamento para Transferencias de la Administración Central a Entidades Benefic
 | --- | --- | --- |
 | 1 | 2013-02-15 | la propia norma |
 | 2 | 2023-04-24 | Decreto Ejecutivo 44030 (2023-04-24) |
+| 3 | 2024-05-16 | Decreto Ejecutivo 44469 (2024-05-16) |
