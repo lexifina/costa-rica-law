@@ -1,0 +1,2 @@
+Artículo 118.- No se computarán como ausencias las inasistencias de la persona servidora pública debidas a incapacidades por enfermedad o riesgo profesional debidamente comprobadas, conforme a lo establecido en el Capítulo XI de este Reglamento.
+Igualmente, no se computarán como ausencias las inasistencias que ocurran con fundamento en el otorgamiento de los permisos que prevén los artículos 112, 113, 114 y 115 de este reglamento.

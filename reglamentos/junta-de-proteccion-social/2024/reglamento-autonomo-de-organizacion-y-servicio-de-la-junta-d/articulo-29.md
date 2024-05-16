@@ -1,0 +1,1 @@
+Artículo 29.- Salvo las excepciones contempladas en este Reglamento así como en las leyes, decretos y disposiciones conexas y vigentes que resulten aplicables, las jornadas ordinarias de trabajo no podrán ser mayores de ocho horas la diurna, de siete horas la mixta y de seis horas la nocturna.

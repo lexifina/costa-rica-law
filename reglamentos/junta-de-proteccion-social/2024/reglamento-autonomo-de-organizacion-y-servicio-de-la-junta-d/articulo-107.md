@@ -1,0 +1,2 @@
+Artículo 107.- Las peticiones de mejoramiento, licencias y reclamos en general, deben gestionarse por escrito, ante el superior jerárquico, quien los tramitará dentro de los ocho días siguientes al de la presentación al departamento de Desarrollo del Talento Humano, Consultorio Médico institucional o ante quien corresponda.
+Los asuntos urgentes podrán solicitarse verbalmente, debiendo resolverse |del mismo modo y de forma inmediata.

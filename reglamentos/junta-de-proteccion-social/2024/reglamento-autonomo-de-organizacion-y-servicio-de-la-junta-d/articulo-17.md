@@ -1,0 +1,1 @@
+Artículo 17- Será nulo cualquier nombramiento que se realice en contravención de lo estipulado en la Ley, este Reglamento o cualquier otra disposición del ordenamiento jurídico que resulte aplicable, no obstante, las actuaciones que lleve a cabo la persona servidora pública, siempre que se ajusten al ordenamiento jurídico vigente y aplicable, se tendrán por válidas.

@@ -1,0 +1,2 @@
+Artículo 68.- Cada persona servidora pública deberá ingresar a la Consola de Aplicaciones Corporativas y realizar personalmente su registro de asistencia por medio de las marcas de entrada y salida en cada jornada de trabajo.
+Cuando el módulo de control de salida e ingreso no funcione o la persona servidora pública no pueda ingresar a la Consola de Aplicaciones Corporativa, deberá comunicarlo en forma inmediata a su superior inmediato y solicitar al Departamento de Tecnologías de Información la asistencia

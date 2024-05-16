@@ -1,0 +1,1 @@
+Artículo 113.- Salvo los casos especialmente contemplados en este Reglamento, u otros de excepción muy calificados en que la Junta derive evidente beneficio, las licencias o permisos se concederán sin goce de salario.

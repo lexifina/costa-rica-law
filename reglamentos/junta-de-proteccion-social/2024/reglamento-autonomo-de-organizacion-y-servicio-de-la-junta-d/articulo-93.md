@@ -1,0 +1,1 @@
+Artículo 93.- Las faltas no señaladas en este Reglamento, serán sancionadas conforme lo establezca el Código de Trabajo, el ordenamiento jurídico administrativo, y demás leyes vigentes que regulen la materia laboral y resulten aplicables.

@@ -1,0 +1,1 @@
+Artículo 20.-En todo contrato de trabajo, se tienen por incluidos todos los derechos y obligaciones que este Reglamento establece, así como los contenidos en las convenciones colectivas, los acuerdos tomados por la Junta Directiva y demás disposiciones administrativas vigentes y aplicables.

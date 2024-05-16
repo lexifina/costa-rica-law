@@ -1,0 +1,2 @@
+Artículo 76.- Toda persona servidora pública, goza de la facultad de justificar las ausencias y llegadas tardías en que incurriere, a efecto de no hacerse acreedor de las sanciones previstas en el capítulo sobre las sanciones disciplinarias.
+Para tal efecto, debe formular la justificación correspondiente por medio del sistema que disponga la Junta, siguiendo el orden jerárquico establecido y dentro de los tres días hábiles siguientes contados a partir de que sucedió el hecho.

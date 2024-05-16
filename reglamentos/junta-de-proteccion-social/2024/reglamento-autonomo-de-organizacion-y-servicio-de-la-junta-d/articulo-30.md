@@ -1,0 +1,2 @@
+Artículo 30.- El personal de alta dirección pública y las personas servidoras públicas que ocupen puestos de los contemplados en el artículo 143 del Código de Trabajo, no estarán sometidos a los límites máximos de la jornada de trabajo señalados en este Reglamento.
+No obstante, estas personas servidoras públicas no están obligadas a permanecer más de doce horas diarias en su trabajo. Asimismo, dentro de su jornada tendrán derecho a un descanso mínimo de una hora y media.

@@ -1,0 +1,2 @@
+Artículo 77.- Se considerará abandono del trabajo dejar de hacer o desatender, de manera improcedente y sin justificación demostrada, dentro de su horario y jornada de trabajo, la labor que está obligado a desarrollar por constituir el objeto de su contrato o relación de servicio.
+Para efectos de calificar el abandono no es necesario que la persona servidora pública salga del lugar donde presta sus servicios, sino, que bastará que de manera injustificada deje de ejecutar la labor que le ha sido encomendada.

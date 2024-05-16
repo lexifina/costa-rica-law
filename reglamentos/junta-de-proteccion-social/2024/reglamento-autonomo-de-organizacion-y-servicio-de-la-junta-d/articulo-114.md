@@ -1,0 +1,2 @@
+Artículo 114.- Las peticiones, reclamos o sugerencias que tenga o requiera una persona servidora pública, deberá presentarlas por escrito a su superior inmediato, sin perjuicio de que, los asuntos de menor importancia o incluso los de mayor urgencia, se resuelvan en forma verbal e de inmediata.
+Aquellas peticiones, reclamos o sugerencias que no puedan ser resueltas por el superior inmediato, las harán llegar a la Gerencia General.

@@ -1,0 +1,2 @@
+Artículo 50.- Dentro de las quince semanas posteriores al día en que se cumplan las cincuenta de servicio continuo, la Junta señalará la fecha en que la persona servidora pública disfrutará de sus vacaciones, procurando que no se alteren ni la buena marcha de la Junta, ni la efectividad del descanso.
+Será responsabilidad del superior jerárquico de la persona servidora pública coordinar la programación y disfrute anual de sus vacaciones, de forma que se garantice el pleno ejercicio de este derecho.

@@ -1,0 +1,1 @@
+Artículo 123- De conformidad con las disposiciones de la Ley Marco de Empleo Público y su reglamento, la Junta concederá permiso con goce salario por un mes calendario a los servidores que tengan un hijo biológico o en adopción contado a partir del día de nacimiento o de concretarse la adopción de la persona menor de edad.

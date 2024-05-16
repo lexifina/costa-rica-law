@@ -1,0 +1,1 @@
+Artículo 115.- La persona servidora pública que fuere declarada incapacitada para trabajar por enfermedad o riesgo profesional, gozará de subsidio de conformidad con las disposiciones vigentes y aplicables en cada caso.

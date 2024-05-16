@@ -1,0 +1,3 @@
+Artículo 110- Para solicitar un permiso para el cuido de un familiar con enfermedad o discapacidad, el servidor (a) deberá presentar ante el Departamento de Desarrolló de Talento Humano, una declaración jurada consignando que convive con la persona enferma o con discapacidad, salvo en el caso de los padres e hijos, con quienes no se requiere la convivencia.
+Esta solicitud se podrá realizar cuando la persona servidora pública tenga vínculos de consanguinidad o afinidad hasta el segundo grado con la persona que pretende cuidar.
+En caso de demostrarse cualquier falsedad en la declaración jurada se considerará falta grave que ameritará la apertura del procedimiento administrativo disciplinario correspondiente.

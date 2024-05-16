@@ -1,0 +1,4 @@
+Artículo 81.- La suspensión del servicio sin goce de salario, se podrá imponer a la persona servidora pública hasta por un mes máximo una vez otorgado el debido proceso y derecho de defensa, en los siguientes casos:
+a) Cuando después de haber sido apercibida por escrito, incurra nuevamente en la falta que motivó el apercibimiento, si la gravedad de la falta no diera mérito para el despido.
+b) Cuando cometa alguna falta de tal gravedad que no dé mérito para el despido, excepto si estuviere sancionado de manera especial por otra disposición de este Reglamento.
+c) Cuando habiendo solicitado licencia para ausentarse de sus labores y cumplir con una obligación legal, asistir a una cita médica y/o atender una necesidad personal; se le conceda la misma y se compruebe que no la utilizó para tales fines. La reincidencia dentro del lapso de tres meses siguientes, se calificará como falta grave para efectos de sanción.

@@ -1,0 +1,3 @@
+Artículo 27.- Cuando necesidades imperiosas de la Junta así lo requieran, la persona servidora pública quedará en la ineludible obligación de laborar horas extraordinarias que resulten necesarias, salvo impedimento grave debidamente comprobado.
+La jornada ordinaria sumada a la extraordinaria, no podrá exceder de doce horas diarias excepto por situaciones previstas en el artículo 140 del Código de Trabajo.
+Las horas extraordinarias deben ser autorizadas en forma expresa y previa por el superior jerárquico, quien deberá comunicar a la persona servidora pública, con al menos tres días de anticipación, la jornada extraordinaria que debe laborar, salvo en casos de urgencia o emergencia debidamente comprobados.

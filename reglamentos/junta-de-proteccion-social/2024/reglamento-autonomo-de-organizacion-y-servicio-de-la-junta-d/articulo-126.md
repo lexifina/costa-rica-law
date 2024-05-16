@@ -1,0 +1,2 @@
+Artículo 126.- La Junta se obliga a mantener un sistema de asignación constituida en un salario anual, para cubrir las diferencias que se le presenten a los funcionarios que laboren en la recepción o entrega de caudales de efectivo o cualesquiera de las loterías, simultáneamente con la atención de clientes externos o internos.
+Tal asignación, se pagará después de rebajar los faltantes existentes, dados de noviembre del año anterior a noviembre del año vigente, según liquidación del caso.

@@ -1,0 +1,1 @@
+Artículo 28.- No se considerarán horas extraordinarias las que la persona servidora pública ocupe en subsanar errores imputables sólo a él y que hayan sido cometidos durante la jornada ordinaria de trabajo.

@@ -1,0 +1,1 @@
+Artículo 112.- Las jefaturas de las instancias asesoras como la Auditoria Interna, Asesoría Jurídica, Planificación Institucional y Contraloría de Servicios, deberán gestionar los permisos y licencias que requieran, ante la Junta Directiva.

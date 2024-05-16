@@ -1,0 +1,1 @@
+Artículo 88.- En los casos en que se considere necesario, la Administración podrá instaurar una Investigación Administrativa Preliminar, a partir de la cual se determine si existen o no, elementos indiciarios o probatorios suficientes para que sea ordenada la apertura de un procedimiento administrativo.

@@ -1,0 +1,2 @@
+Artículo 96.- La sanción de despido sin responsabilidad patronal se decretará por la Gerencia General, instancia que comunicará lo resuelto al Departamento de Desarrollo Humano para la ejecución correspondiente.
+La amonestación verbal podrá ser impuesta directamente por los Gerentes de Área o jefes de departamento; quienes podrán notificarlo por escrito al Departamento de Desarrollo del Talento Humano, a efecto de dejar constancia de la sanción impuesta.

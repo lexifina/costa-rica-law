@@ -1,0 +1,2 @@
+Artículo 26.- La Junta podrá modificar temporalmente los horarios establecidos en este Reglamento, siempre que circunstancias justificadas así lo exijan y con ello no se cause perjuicio a las personas servidoras públicas y al servicio público, que se presta.
+Cualquier cambio de horario, junto con las causas que lo justifican, deberá ser puesto en conocimiento de la persona servidora pública con un mínimo de tres días de anticipación, salvo en casos de urgencia o emergencia debidamente comprobados.

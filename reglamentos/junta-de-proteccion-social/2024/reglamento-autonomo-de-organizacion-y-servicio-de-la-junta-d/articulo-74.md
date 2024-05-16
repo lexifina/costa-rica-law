@@ -1,0 +1,2 @@
+Artículo 74.- Se considerará llegada tardía, el ingreso al trabajo que se realice después de la hora exacta señalada para el inicio de las labores en la correspondiente jornada de trabajo.
+En caso de que se presente una llegada tardía en la prestación de labores en servicios especiales tales como la realización y celebración de los sorteos de lotería y la recepción de excedentes de loterías, queda a criterio del funcionario designado como responsable o supervisor del proceso que se trate, autorizar o no la participación del servidor en esas actividades en esa fecha.

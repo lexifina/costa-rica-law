@@ -1,0 +1,1 @@
+Artículo 116.- En los casos de licencia o incapacidad emitida o validada por los médicos de la Caja Costarricense del Seguro Social, el subsidio que recibirá el servidor será calculado y concedido de conformidad con las disposiciones contenidas en el Código de Trabajo y en el Reglamento de Seguro de Salud de la Caja Costarricense del Seguro Social.

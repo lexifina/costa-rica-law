@@ -1,0 +1,1 @@
+Artículo 34.- Los salarios de las personas servidoras públicas de la Junta, se regularán conforme a la Ley de Salarios de la Administración Pública y sus reformas, la Ley de Fortalecimiento de las Finanzas Públicas, la Ley Marco de Empleo Público y cualquier otra disposición que resulte aplicable.

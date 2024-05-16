@@ -1,0 +1,2 @@
+Artículo 36.- El incentivo por anualidad se concederá únicamente a las personas servidoras públicas que en su evaluación del desempeño hayan obtenido una calificación mínima de "muy bueno" o su equivalente numérico, según la escala definida. Si la persona servidora pública fuera ascendida, comenzará a percibir el mínimo de la nueva categoría.
+Bajo ningún supuesto se revalorizarán los incentivos ya reconocidos.

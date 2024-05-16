@@ -1,0 +1,1 @@
+Artículo 117.- Cuando el servidor fuera incapacitado a causa de un riesgo profesional el subsidio que recibirá, será calculado y concedido de conformidad con las disposiciones contenidas en el Código de Trabajo y los acuerdos vigentes y aplicables de la Junta Directiva del Instituto Nacional de Seguros.

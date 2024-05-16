@@ -1,0 +1,1 @@
+Artículo 56.- En las labores que no sean pesadas, insalubres o peligrosas, cuando sea necesario ejecutar labores indispensables para la buena marcha de la Junta o que sean actividades de evidente interés público o social, se podrá trabajar, por acuerdo de ambas partes, durante el día de descanso semanal.

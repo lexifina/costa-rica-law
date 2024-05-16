@@ -1,0 +1,1 @@
+Artículo 52.- El pago de las vacaciones se hará con base en las remuneraciones ordinarias y extraordinarias devengadas por la persona servidora pública durante las últimas cincuenta semanas de servicio, o durante el tiempo que le diera derecho proporcional a las mismas.

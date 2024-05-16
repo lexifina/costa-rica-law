@@ -1,0 +1,1 @@
+Artículo 61.- La servidora que se encuentre en período de lactancia, puede disponer de un intervalo al día, conforme dispone el Código de Trabajo o bien, previa coordinación con su superior inmediato, escoger entrar una hora más tarde o salir una hora más temprano de su sitio de trabajo. En cualquiera de estos casos la hora que se tome será remunerada.

@@ -1,0 +1,4 @@
+Artículo 49.- Las vacaciones que se concedan al servidor, deberán ser disfrutadas por este de forma ininterrumpida.
+Las vacaciones se interrumpirán si estando en el disfrute de las mismas la persona servidora pública fuera incapacitada por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros.
+También existirá interrupción del período de vacaciones, si durante el disfrute de las mismas fallece un familiar por consanguinidad o afinidad hasta el tercer grado, para aplicar la licencia que conforme a la normativa vigente y aplicable resulte procedente.
+En los casos de interrupción de las vacaciones, los días dejados de disfrutar, se concederán al terminar la incapacidad o el permiso otorgado o bien, se reintegrarán al saldo del periodo de vacaciones correspondiente, según determine la persona servidora pública

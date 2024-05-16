@@ -1,0 +1,2 @@
+Artículo 84.- En caso de reincidencia, fuera de lo dispuesto en el inciso a) de los artículos 80 y 81 de este Reglamento, podrá aplicarse la sanción inmediata siguiente de acuerdo con la gravedad de la falta.
+Se entiende por reincidencia el caso de repetición de una falta, específica o no. que amerite la misma sanción, dentro de un período de tres meses contados a partir de la falta anterior, no obstante, este procedimiento no se aplicará tratándose de ausencias o llegadas tardías.

@@ -1,0 +1,6 @@
+Artículo 90.- Las ausencias injustificadas de las personas servidoras públicas a las labores relacionadas con la realización y celebración de los sorteos de lotería y la recepción de excedentes de loterías durante un mes calendario, serán sancionadas de la siguiente manera:
+a) Una ausencia injustificada, exclusión del rol del mes siguiente.
+b) Dos ausencias injustificadas, sean alternas o consecutivas, exclusión del del rol del mes
+en el cual se presentan estas ausencias y exclusión del funcionario del rol del mes siguiente.
+c) Tres o más ausencias injustificadas, exclusión de la participación en estas actividades.
+Las ausencias injustificadas de las personas servidoras públicas de la Auditoría Interna que por disposición del titular de esa dependencia deban asistir a fiscalizar los procesos de realización y celebración de los sorteos de lotería y la recepción de excedentes de loterías, se sancionarán conforme con lo establecido en este artículo, en respeto de lo establecido en el "Reglamento que establece las disposiciones a seguir para la aprobación, modificación o derogatoria de regulaciones administrativas aplicables al personal de la Auditoría Interna de la Junta de Protección Social y para su aplicación" publicado en el Alcance No. 160 La Gaceta del 05 de setiembre del 2016.

@@ -1,0 +1,1 @@
+Artículo 94.- En todos los casos en los cuales se considere como posible sanción el despido sin responsabilidad patronal, se aplicará el procedimiento administrativo especial de despido, contemplado y regulado en el artículo 21 de la Ley Marco de Empleo Público, incisos a),b), c), d), e), f), g), h), i) y j).

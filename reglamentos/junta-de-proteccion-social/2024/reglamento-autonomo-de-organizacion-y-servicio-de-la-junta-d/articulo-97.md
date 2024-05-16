@@ -1,0 +1,1 @@
+Artículo 97.- Las sanciones serán ejecutadas por el Departamento de Desarrollo del Talento Humano a más tardar dentro del mes siguiente a que le sea comunicada por parte de la Gerencia General la imposición de la sanción.

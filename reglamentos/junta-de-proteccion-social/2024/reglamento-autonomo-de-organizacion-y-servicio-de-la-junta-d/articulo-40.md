@@ -1,0 +1,1 @@
+Artículo 40.- En los casos en que corresponda reconocer a las personas servidoras públicas de la Junta, el plus de Dedicación Exclusiva, de Prohibición o cualquier otro, se procederá conforme a las disposiciones de la Ley de Fortalecimiento de las Finanzas Públicas, la Ley Marco de Empleo Público y cualquier otra disposición que resulte aplicable.

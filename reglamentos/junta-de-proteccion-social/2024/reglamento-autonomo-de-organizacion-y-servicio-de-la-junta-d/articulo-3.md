@@ -1,0 +1,4 @@
+Artículo 3°-Para los efectos de este Reglamento, se entiende por:
+a) Patrono: La Junta de Protección Social, que en adelante se denominará "La Junta".
+b) Representante Patronal: La Junta Directiva, el (la) Presidente (a) de ésta, la persona que ocupe el cargo de Gerente General, las personas que ocupen el cargo de Gerente de Área, las personas que ocupen los cargos de Jefes de Instancias Asesoras y de Departamento.
+c) Persona servidora pública: Persona física que presta a la Junta en forma presencial o mediante la modalidad de teletrabajo, sus servicios materiales o intelectuales, en forma subordinada y a cambio de una retribución salarial, sea en forma permanente o transitoria y como consecuencia de una relación de servicio respaldada por un contrato de trabajo. Se entenderán como sinónimos de este concepto los de funcionarios, trabajadores, colaboradores o empleados.

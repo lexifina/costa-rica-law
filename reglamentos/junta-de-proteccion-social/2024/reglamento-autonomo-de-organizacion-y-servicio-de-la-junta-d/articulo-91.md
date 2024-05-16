@@ -1,0 +1,1 @@
+Artículo 91.- Las ausencias injustificadas del Gerente General, el Gerente de Producción, Comercialización y Operaciones, o sus representantes a las labores relacionadas con la realización y celebración de los sorteos de lotería y la recepción de excedentes de loterías, se considerará una falta grave y se sancionará conforme con lo establecido el artículo 86 de este Reglamento.

@@ -1,0 +1,5 @@
+Artículo 23.-De conformidad con los artículos 135 y 136 del Código de Trabajo, las jornadas de trabajo de las personas servidoras de la Junta se establecen de la siguiente manera:
+a) Jornada diurna: de un total de ocho horas diarias, comprendidas entre las cinco horas y las diecinueve horas del día. Este tipo de jornada podrá extenderse hasta diez horas diarias, si los trabajos no son insalubres ni peligrosos. Esta jornada será por un máximo de cuarenta y cuatro horas semanales.
+b) Jornada mixta: de un total de siete horas, que comprenden parte de la jornada diurna y parte de la jornada nocturna hasta las diecinueve horas.
+Esta jornada se calificará como nocturna cuando se trabajen tres horas y media o más, entre las diecinueve y las cinco horas del día siguiente. Este tipo de jornada podrá extenderse hasta por un máximo de ocho horas si los trabajos no son peligrosos ni insalubres.
+c) Jornada nocturna: de un total de seis horas comprendidas entre las diecinueve horas y las cinco horas. Este tipo de jornada podrá extenderse hasta por un máximo de siete horas si los trabajos no son peligrosos ni insalubres.

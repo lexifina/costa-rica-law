@@ -1,0 +1,1 @@
+Artículo 109.- En casos altamente calificados, cuando se cause un evidente perjuicio al servicio público, la Junta podrá cancelar el permiso concedido, para lo cual deberá emitir una resolución debidamente motivada y comunicada en un plazo razonable a la persona interesada, de modo que esta pueda reintegrarse a sus labores en forma oportuna.

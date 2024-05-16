@@ -1,0 +1,1 @@
+Artículo 111.- Para efectos de permisos con o sin goce de salario para el cuidado de un familiar con enfermedad o discapacidad, los servidores deberán demostrar la enfermedad terminal o accidente grave del familiar, para ello deberán presentar un certificado médico debidamente validado por el departamento correspondiente de la Caja Costarricense del Seguro Social.

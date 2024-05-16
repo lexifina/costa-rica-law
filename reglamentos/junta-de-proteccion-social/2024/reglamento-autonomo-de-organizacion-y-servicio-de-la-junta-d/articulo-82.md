@@ -1,0 +1,2 @@
+Artículo 82.- Las suspensiones de la persona servidora pública sin goce de salario por faltas de mera constatación serán impuestas por el Departamento de Desarrollo de Talento Humano.
+Las que se originen en faltas disciplinarias que requieran de la averiguación de la verdad real de los hechos serán impuestas por la Gerencia General, previa aplicación del debido proceso y ejercicio del derecho de defensa.

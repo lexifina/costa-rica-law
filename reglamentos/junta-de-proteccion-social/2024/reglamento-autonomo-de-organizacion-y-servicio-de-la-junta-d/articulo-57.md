@@ -1,0 +1,3 @@
+Artículo 57.- Son días hábiles y laborales para el servidor todos los días del año, excepto los feriados, los días de descanso semanal y aquellos que el Poder Ejecutivo declare de asueto.
+Las personas servidoras públicas podrán disfrutar de todos los feriados, sean de pago obligatorio o no, de conformidad con lo que establezcan las diferentes normas del ordenamiento jurídico costarricense que regulen la materia.
+Se excluyen del derecho a este disfrute, aquellas personas servidoras públicas que, por la naturaleza de sus funciones, deban cumplir con su jornada laboral en esas fechas, casos en los cuales, el pago y reconocimiento correspondiente se realizará conforme disponga la ley.

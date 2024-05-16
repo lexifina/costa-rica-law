@@ -1,0 +1,2 @@
+Artículo 87.- No obstante, la existencia en el presente Reglamento de escalas de sanciones, excepto aquellas que se deban imponer por faltas de mera constatación, toda sanción se aplicará luego de otorgar el debido proceso y derecho de defensa al servidor endilgado.
+En el caso de las suspensiones o despidos, deberán imponerse en el transcurso del mes posterior al día en que se cometió la falta o se tuvo conocimiento de los hechos por parte de la autoridad competente para establecer la sanción.

@@ -1,0 +1,4 @@
+Artículo 24.- La jornada diurna ordinaria de trabajo comprende un máximo de cuarenta y cuatro horas semanales y su horario de trabajo quedará estipulado en cada contrato de trabajo.
+En ningún caso se considerará derecho adquirido de una persona servidora pública la disminución de la jornada de trabajo.
+Las jornadas y horarios de trabajo deberán ajustarse estrictamente a las necesidades del servicio público que brinda la Junta y deben establecerse de manera tal que se evite -en lo posible- el pago por servicios especiales (asistencia a sorteos, devolución y/o compra de excedentes y cualquier otro servicio necesario para el funcionamiento institucional).
+Es responsabilidad absoluta de la jefatura correspondiente fijar una jornada y un horario de trabajo acorde con las necesidades de la dependencia respectiva.

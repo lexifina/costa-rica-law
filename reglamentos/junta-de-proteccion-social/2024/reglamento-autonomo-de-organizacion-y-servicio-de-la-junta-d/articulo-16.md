@@ -1,0 +1,1 @@
+Artículo 16.- La selección de los candidatos idóneos para servir en los puestos técnicos y administrativos, deberá hacerse mediante Sistema de Oposición, Sistema de concurso de valoración de méritos y/o Sistema de Concurso de Oposición, los cuales deberán ser incorporados en la plataforma virtual de oferta de empleo público.

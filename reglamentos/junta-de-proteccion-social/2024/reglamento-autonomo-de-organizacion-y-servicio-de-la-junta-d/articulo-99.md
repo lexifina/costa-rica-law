@@ -1,0 +1,3 @@
+Artículo 99.- Es deber de la Junta adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de las personas servidoras públicas, conforme con los términos del Código de Trabajo, los reglamentos de Salud Ocupacional que se promulguen y las recomendaciones que en esta materia formulen tanto la Unidad de Salud Ocupacional, como el Consejo de Salud Ocupacional, las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, el Ministerio de Salud y el Instituto Nacional de Seguros que garanticen:
+a) La protección de la salud y la preservación de la integridad física, moral y social de los trabajadores.
+b) La prevención y control de los riesgos de trabajo.

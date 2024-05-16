@@ -1,0 +1,1 @@
+Artículo 44.- El Departamento de Desarrollo de Talento Humano deberá solicitar al inicio de cada año, a todos los superiores de las dependencias institucionales, la elaboración del plan de trabajo anual donde se defina la asignación y distribución de las personas servidoras públicas a su cargo, entre los procesos, proyectos, productos y servicios de la dependencia.

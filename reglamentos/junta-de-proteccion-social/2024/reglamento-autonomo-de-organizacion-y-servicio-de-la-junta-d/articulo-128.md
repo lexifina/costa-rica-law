@@ -1,0 +1,1 @@
+Artículo 128.- El presente Reglamento, se presumirá conocido de todas las personas servidoras públicas de la Junta desde el día de su vigencia inclusive para los-que en el futuro trabajen en la Junta, y por lo tanto a partir de esa fecha será de observancia obligatoria para todos.

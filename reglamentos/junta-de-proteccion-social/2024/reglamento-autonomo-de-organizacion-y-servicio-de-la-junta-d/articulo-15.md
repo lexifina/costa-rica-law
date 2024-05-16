@@ -1,0 +1,1 @@
+Artículo 15.- Los nombramientos de los servidores considerados de alta dirección pública (gerencias), estarán a prueba durante el periodo de seis meses y su nombramiento se efectuará por un máximo de seis años, con posibilidad de prórroga anual, la cual estará sujeta a los resultados obtenidos en la evaluación del desempeño.
