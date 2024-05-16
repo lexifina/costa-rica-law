@@ -15,3 +15,4 @@ Publica Acuerdo N° 01-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y su Anex
 | --- | --- | --- |
 | 1 | 2016-05-27 | la propia norma |
 | 2 | 2017-05-15 | Decreto Ejecutivo 40435 (2017-05-15) |
+| 3 | 2024-05-16 | Decreto Ejecutivo 44675 (2024-05-16) |
