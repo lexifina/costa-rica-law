@@ -13,3 +13,4 @@ Uso de parqueos Ley 7600 en edificios judiciales es para personas usuarias, no p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-08 | la propia norma |
+| 2 | 2024-05-16 | Circular 101 (2024-05-16) |
