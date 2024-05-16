@@ -14,3 +14,4 @@ Resolución N° 434-2020 (COMIECO-XCIII) 10 de diciembre de 2020 y su Anexo Regl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-10 | la propia norma |
+| 2 | 2024-05-16 | Decreto Ejecutivo 44682 (2024-05-16) |
