@@ -1,0 +1,2 @@
+II. LEGITIMIDAD PARA DENUNCIAR
+Artículo 8°-Derecho a denunciar: las personas atletas y entrenadoras, personas funcionarias del ICODER, dirigentes deportivos, cuerpo técnico, personas miembros de Comités Cantonales y toda persona colaboradora participante de los eventos, competencias deportivas y en general del desarrollo de los Juegos Deportivos Nacionales y Paranacionales que considere haber sido víctima de hostigamiento o acoso sexual tiene el derecho a denunciar.

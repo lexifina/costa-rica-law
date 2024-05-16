@@ -1,0 +1,1 @@
+Artículo 11°- Denuncia por hostigamiento y acoso sexual a persona mayor de edad: si la persona ofendida es mayor de edad, podrá presentar su denuncia directamente o a través de un apoderado siempre y cuando presente el poder correspondiente, debidamente otorgado por la persona víctima mayor de edad.
