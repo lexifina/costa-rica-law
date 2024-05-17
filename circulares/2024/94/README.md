@@ -13,3 +13,4 @@ a.) Suspensión de los permisos estratégicos y operativos para proyectos instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-13 | la propia norma |
+| 2 | 2024-05-17 | Circular 103 (2024-05-17) |
