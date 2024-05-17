@@ -14,3 +14,4 @@ Procedimiento para el otorgamiento de permisos laborales a las personas solicita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-14 | la propia norma |
+| 2 | 2024-05-17 | Resolución 220 (2024-05-17) |

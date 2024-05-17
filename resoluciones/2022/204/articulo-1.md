@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+(Esta norma se dejó sin efecto por el punto décimo primero de la resolución N° D.JUR-220-05-2024-JM-ABM del 17 de mayo del 2024, "Nuevas medidas administrativas aplicables a los trámites y procedimientos administrativos que son atendidos por las unidades de Visas y Refugio, la Gestión de Extranjería y la Dirección Regional Administrativa")
 Resolución D.JUR-0204-12-2022-ABM.-Ministerio de Gobernación y Policía.-Dirección General de Migración y Extranjería. San José, al ser las quince horas trece minutos del primero de diciembre de dos mil veintidós. Se establece el procedimiento para el otorgamiento de permisos laborales a las personas solicitantes de la condición de refugiado.
 Resultando:
 I.-Que la Ley General de la Administración Pública número 6227 en su artículo 4 indica que "La actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios".
