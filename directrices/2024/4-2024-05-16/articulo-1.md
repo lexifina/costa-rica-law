@@ -1,0 +1,31 @@
+CONTABILIDAD NACIONAL
+DIRECTRIZ Nº MH-DGCN-DIR-DIR-0004-2024
+EL DIRECTOR GENERAL DE CONTABILIDAD NACIONAL
+Fundamento legal:
+La Dirección General de Contabilidad Nacional (DGCN), en cumplimiento de sus objetivos y en el ejercicio de las facultades de Órgano Rector del Subsistema de Contabilidad, establecidos en los artículos 91 y 93 de la Ley N° 8131, "Ley de Administración Financiero de la República y Presupuestos Públicos", y sus reformas; y en aplicación a las Normas Internacionales de Contabilidad para el Sector Público (NICSP) y los procedimientos establecidos dentro del Decreto Ejecutivo 40797-H que contiene el Registro y Control de los Bienes de la Administración Central; emite el siguiente lineamiento, para registro de las computadoras estacionarias o de escritorio y su tratamiento de sus accesorios no patrimoniales ("Mouse" y "Teclado"), en el sistema SIBINET.
+Considerando
+Que la NICSP 17 Propiedad, Planta y Equipo pretende estandarizar el tratamiento de este componente, de forma que los usuarios de los estados financieros puedan conocer la información acerca de la inversión que la entidad tiene en sus propiedades, planta y equipo, así como los cambios que se hayan producido en dicha inversión.
+De igual forma, establece la realización de juicios profesionales para aplicar el reconocimiento de partidas que individualmente no son significativas; donde establece lo siguiente:
+"18. Esta Norma no establece la unidad de medición para propósitos de reconocimiento, es decir, qué constituye una partida de propiedades, planta y equipo. Por ello, se requiere la realización de juicios profesionales para aplicar los criterios de reconocimiento a las circunstancias específicas de la entidad. Puede ser apropiado agregar partidas que individualmente no son significativas, tales como libros de una biblioteca, accesorios informáticos y pequeños artículos de equipo, y aplicar los criterios al valor agregado."
+Debido a lo anterior, el Manual Funcional de Cuentas Contables para el Sector Público Costarricense No Empresarial y No Financiero, noviembre, 2023, contempla la cuenta "1.2.5.01.07.01. "Computadoras"; donde se incluyen equipos de procesamiento electrónico de datos de escritorio y portátiles, conjuntamente con sus unidades periféricas ("teclados", "mouses", etc., excepto monitores externos), ..."
+Que, dentro del Sistema Integrado de Compras Públicas (SICOP), en el módulo del "Catálogo Bienes/Servicios", dentro del "listado de materiales para Gobierno Central", se establece las siguientes clasificaciones presupuestarias, de los bienes objeto de esta directriz, a saber:
+. Dentro de la partida presupuestaria "2 Materiales y Suministros"; clasifica dentro de la subpartida 2.03.04 "Materiales y productos eléctricos, telefónicos y de cómputo", los "teclados" y los "mouses" no capitalizables, referente a los accesorios de las computadoras esta-cionarias o de escritorio.
+. Dentro de la partida presupuestaria "5 Bienes Duraderos", clasifica dentro de la subpartida 5.01.05 "Equipo de cómputo", las computadoras.
+Que de acuerdo con las regulaciones establecidas en el Decreto Ejecutivo 40797-H, Reglamento para el Registro y Control de Bienes de la Administración Central, los "Bienes Patrimoniales" también pueden ser denominados con los términos: activos fijos o bienes duraderos; por consiguiente, considera los bienes muebles (vehículos, semovientes, intangibles y otros bienes muebles) y los inmuebles (edificaciones y terrenos) de una institución.
+En fundamento con lo antes indicado, los "teclados" y "mouse", no corresponden a bienes patrimoniales por clasificarse dentro de la partida de "Materiales y Suministros", y por consiguiente no son sujetos de registro en el Sistema SIBINET.
+Que se hace necesario mantener una conciliación de los valores registrados en las partidas de bienes duraderos incluidos en el Sistema SIBINET, con respecto a los registros contables que mantiene la DGCN de las imputaciones presupuestarias generadas de estos bienes patrimoniales, desde el Sistema Integrado de Gestión de la Administración Financiera (SIGAF); por lo que se emite la siguiente directriz. Por tanto,
+Se regula el registro, en el sistema SIBINET, de las computadoras estacionarias y el tratamiento de sus accesorios no patrimoniales ("Mouse" y "Teclado"), adquiridos junto con la compra por contratación, de las computadoras estacionarias o de escritorio en la partida presupuestaria 50105 Equipo de Cómputo.
+Ámbito de aplicación:
+Instituciones de la Administración Central
+(Ministerios y Órganos Desconcentrados adscritos)
+Áreas Administrativas Financieras
+Proveedurías Instituciones
+Unidades de Administración de Bienes Institucionales
+Contenido
+1º-En los casos en que se adquieran de forma individual los "mouse" y los "teclados" en la Partida "2 Materiales y Suministros", subpartida partida 2.03.04 "Materiales y productos eléctricos, telefónicos y de cómputo", estos accesorios, por ser bienes no patrimoniales, no se registran en el sistema SIBINET.
+2º-En los casos en que se compre el "mouse" y el "teclado", como parte de la computadora estacionaria o de escritorio adquirida en la partida "5 Bienes Duraderos", Subpartida 5.01.05 Equipo de Cómputo; solo se hará un registro en el Sistema SIBINET, en la clase 50105 "Equipo de Cómputo", Subclase 90 "Computadoras".
+Los costos del "mouse" y del "teclado" de dicha computadora, deben sumarse al valor de la computadora como tal, con la finalidad de que el valor de la computadora reflejado en la Orden de Compra del SIGAF, concilie con el valor del bien registrado en el sistema SIBINET.
+Se recomienda que, en los procesos de contratación de las computadoras, en el pliego de condiciones, se solicite el desglose de precios de los accesorios referidos.
+3º-En aplicación de la Ley General de Control Interno, Nº 8292, Art. 15, inciso b) ii, el "mouse" y el "teclado" referido en la presente directriz, cuando se compren de forma individual, o bien como accesorios de la computadora; la institución debe velar por su protección y conservación por medio de los procedimientos institucionales establecidos.
+Vigencia: Rige a partir de su notificación.
+Se firma de forma digital en el Ministerio de Hacienda, en el mes de mayo 2024, en fecha descrita en la firma.
