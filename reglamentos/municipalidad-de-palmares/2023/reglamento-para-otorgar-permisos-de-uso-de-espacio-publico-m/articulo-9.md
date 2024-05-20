@@ -1,0 +1,2 @@
+Artículo 9°-Informe técnico municipal. Un funcionario del Departamento de la Unidad Técnica de Gestión Vial, en coordinación con el solicitante, podrá realizar una inspección para determinar el mejor punto de ubicación, resguardando el cumplimiento de lo estipulado en los artículos anteriores, en la Ley 7600 y sin afectar los accesos vehiculares de los predios cercanos.
+Dentro del plazo para el dictado de la resolución de permiso de uso de espacio público, confeccionará un informe técnico.

@@ -1,0 +1,1 @@
+Artículo 12.-Sobre el canon. La Municipalidad aplicará el Procedimiento para la Fijación del Canon, el cual será fijado por la Dirección General de Tributación del Ministerio de Hacienda, conforme lo estipula la Ley N° 10216.

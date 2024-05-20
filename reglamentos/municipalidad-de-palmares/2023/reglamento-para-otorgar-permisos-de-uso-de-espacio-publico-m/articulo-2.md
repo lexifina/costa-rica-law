@@ -1,0 +1,1 @@
+Artículo 2°-El presente reglamento establece el régimen jurídico y el procedimiento por medio del cual la administración municipal otorgará permisos de uso de espacio público para la instalación de postes y estructuras afines para el soporte de redes de telecomunicaciones.
