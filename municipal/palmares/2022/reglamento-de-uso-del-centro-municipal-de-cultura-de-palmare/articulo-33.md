@@ -1,0 +1,1 @@
+Artículo 33 - Venta de materiales y productos. El permisionario podrá llevar a cabo durante la actividad, únicamente la venta de materiales, productos o artículos derivados o relacionados con la actividad principal. No obstante, ello estará sujeto a la aprobación previa del Concejo Municipal.

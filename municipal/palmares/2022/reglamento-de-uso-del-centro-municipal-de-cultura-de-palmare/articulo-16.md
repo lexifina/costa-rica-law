@@ -1,0 +1,1 @@
+Artículo 16 - Destino de los ingresos. Todos los ingresos que genere el Centro Municipal de Cultura contemplados en este reglamento se invertirán prioritariamente en el mantenimiento del inmueble del Centro Municipal de Cultura y en sus actividades relacionadas. En segundo lugar, se podrán utilizar en los proyectos, eventos y actividades culturales que promueva la Municipalidad.

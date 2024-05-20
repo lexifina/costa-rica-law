@@ -1,0 +1,2 @@
+Artículo 9 - Pérdida de representatividad. Tres ausencias consecutivas e injustificadas o cinco alternas injustificadas de cualquiera de los miembros de la Junta Administrativa serán motivo de pérdida de la representatividad, debiendo sustituirse según corresponda.
+Será motivo de pérdida de la representación, el incumplimiento de la presente reglamentación, hechos o actitudes graves que atenten contra la integridad física de algún o algunos de los miembros de la Junta Administrativa, usuarios de las instalaciones, o el inmueble del Centro Municipal de Cultura.

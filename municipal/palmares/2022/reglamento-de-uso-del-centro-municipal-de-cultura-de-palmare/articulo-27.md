@@ -1,0 +1,1 @@
+Artículo 27 - Cómputo del tiempo de instalación. El tiempo que requiera el solicitante para instalarse antes del inicio del evento y para desinstalarse deberá ser computado dentro del costo de uso de las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 31 - Responsabilidad por daños o pérdidas. Dado que el objeto del presente Reglamento es regular únicamente los mecanismos de préstamo de las instalaciones, la Municipalidad no asumirá ninguna responsabilidad por daños o pérdidas que ocurran tanto a los organizadores del evento como participantes, así como a su equipo, materiales, efectos personales o similares.

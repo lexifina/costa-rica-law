@@ -1,0 +1,2 @@
+CAPÍTULO IV CANON POR EL USO DE LAS INSTALACIONES
+Artículo 11 - Actividades a realizarse. En el Centro Municipal de Cultura podrán llevarse a cabo eventos y actividades enfocados en fortalecer los valores y el desarrollo cultural del cantón de Palmares. Adicionalmente, las instalaciones podrán utilizarse para la realización de actividades de interés empresarial y privado siempre y cuando se satisfagan las condiciones de uso que se detallan en el presente reglamento y se cumpla con lo estipulado en el Artículo 10 del mismo.

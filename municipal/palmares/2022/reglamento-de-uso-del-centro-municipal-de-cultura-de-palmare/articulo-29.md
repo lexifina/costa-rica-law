@@ -1,0 +1,5 @@
+Artículo 29 - Derechos de los solicitantes de las instalaciones. Los solicitantes que hayan sido autorizados a utilizar el inmueble tendrán derecho a:
+a. Coordinar con la Oficina de Gestión Cultural para acceder a las instalaciones con la antelación suficiente al horario de la actividad para poder efectuar instalaciones de equipos u otros implementos y su prueba respectiva, montaje de mobiliario o escenografía, y puesta de vestuario y maquillaje cuando fuese necesario y demás actividades previas al evento por realizar, todo esto dependiendo de la disponibilidad de horarios de la instalación.
+b. Encontrar las instalaciones, materiales y mobiliario con que está equipado el inmueble en óptimas condiciones de limpieza y mantenimiento.
+c. Recibir la información de parte de la Municipalidad, sobre las condiciones y capacidades eléctricas del inmueble.
+d. Recibir por parte de la Municipalidad la información sobre la capacidad máxima de personas permitida dentro del inmueble y sus componentes.

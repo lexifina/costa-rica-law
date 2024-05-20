@@ -1,0 +1,1 @@
+Artículo 26 - Pago por impuesto de espectáculo público. Toda actividad lucrativa (empresarial, profesional o artística) efectuada por sujetos pasivos que se realice en las instalaciones debe hacer el pago del impuesto de espectáculos públicos de acuerdo con la legislación vigente.

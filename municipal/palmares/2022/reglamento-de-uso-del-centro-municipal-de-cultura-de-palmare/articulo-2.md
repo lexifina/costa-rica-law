@@ -1,0 +1,1 @@
+Artículo 2 - Objetivo del Centro de Cultura. El objetivo primordial del Centro Municipal de Cultura de Palmares es fomentar y propiciar el desarrollo artístico del cantón mediante la utilización de la planta física.

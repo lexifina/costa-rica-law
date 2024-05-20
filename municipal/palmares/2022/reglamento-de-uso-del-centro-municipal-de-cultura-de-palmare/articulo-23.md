@@ -1,0 +1,1 @@
+Artículo 23 - Actividades municipales. Cuando la Administración o el Concejo Municipal requieran el inmueble para actividades municipales deberán coordinar con la Oficina de Gestión Cultural y podrán utilizarla dependiendo del espacio libre en la programación ya establecida.

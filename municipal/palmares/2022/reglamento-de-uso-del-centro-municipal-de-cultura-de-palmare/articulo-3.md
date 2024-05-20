@@ -1,0 +1,1 @@
+Artículo 3 - Vocación de las actividades. Toda actividad que se realice en el Centro Municipal de Cultura debe estar inspirada en los más altos principios de la humanidad, tendientes a generar felicidad, amor, solidaridad, libertad, reflexión, sentido crítico, positivismo, comprensión y valoración de lo diverso.

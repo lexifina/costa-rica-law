@@ -1,0 +1,1 @@
+Artículo 7 - Administración. Los representantes designados en el artículo anterior, se reunirán para designar entre sí una Junta Directiva compuesta por un presidente, vicepresidente, secretario, fiscal y un vocal. Los miembros de la Junta Directiva serán nombrados por dos años pudiendo ser reelectos.
