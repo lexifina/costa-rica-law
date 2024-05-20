@@ -14,3 +14,4 @@ Reglamento del Manual de Imagen Institucional de la Municipalidad de Goicoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-14 | la propia norma |
+| 2 | 2024-05-20 | Reglamento municipal 21 (2024-05-20) |
