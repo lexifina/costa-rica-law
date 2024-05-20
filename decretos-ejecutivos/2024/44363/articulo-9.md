@@ -1,6 +1,8 @@
-Artículo 9.- Uso de expediente clínico en la teleconsulta. Es deber de todo profesional teleconsultado registrar en el expediente clínico, sea en papel o digital, toda la información que razonablemente se considere útil para dar a conocer el estado de salud del usuario y su evolución. Dicho expediente clínico debe contener la siguiente información:
+Artículo 9.- Uso de expediente clínico en la teleconsulta. Es deber de toda persona profesional teleconsultada registrar en el expediente clínico, sea impreso o digital, toda aquella información que a juicio de la persona profesional se considere útil para dar a conocer el estado de salud de la persona usuaria y su evolución. Dicho expediente clínico debe contener la siguiente información:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44485 del 20 de mayo del 2024)
 a) Datos del teleconsultante: nombre completo del usuario, número de identificación y tipo de documento de identidad, fecha de nacimiento, edad, sexo, dirección completa, número telefónico, número de contacto en caso de emergencia, nombre de la persona a contactar en caso de emergencia o en menores ele edad, correo electrónico.
 b) El profesional en salud debe hacer constar por escrito si la consulta o atención solicitada por parte del usuario, es posible resolverla por medio del uso de las TIC o si, por el contrario, se requiere ele una atención o valoración presencial.
-c) Consentimiento del usuario en cuanto al uso de la teleconsulta. Este documento debe ser firmado por el usuario en la primera consulta presencial.
+c) Consentimiento de la persona usuaria en cuanto al uso de la teleconsulta. La persona usuaria debe brindar su consentimiento por medios impresos o digitales de previo o al inicio de la teleconsulta. El consentimiento podrá ser revocado por la persona usuaria en cualquier momento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44485 del 20 de mayo del 2024)
 d) Hallazgos de anamnesis y de ser posible las observaciones ele la inspección visual del usuario.
 e) Indicaciones que el profesional teleconsultaclo le brinde al usuario.

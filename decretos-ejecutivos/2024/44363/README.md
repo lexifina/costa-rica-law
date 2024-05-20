@@ -14,3 +14,4 @@ Reglamento para el control y regulación de a teleconsulta sanitaria en Costa Ri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-09 | la propia norma |
+| 2 | 2024-05-20 | Decreto Ejecutivo 44485 (2024-05-20) |
