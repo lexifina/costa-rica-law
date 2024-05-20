@@ -1,0 +1,3 @@
+CAPÍTULO X
+Recursos Económicos
+Artículo 54.-Destino de los recursos económicos. El dinero recaudado por la Municipalidad por concepto de costo efectivo, multas e intereses producto del incumplimiento a las obligaciones que refiere este Reglamento, serán destinados como un fondo específico para la debida ejecución de esta norma, de manera que el Municipio cuente con presupuesto disponible para suplir las omisiones de las personas propietarias o poseedoras, o asuma aquellas obras en las que se determine mediante un estudio socioeconómico, que las propietarias o poseedoras por cualquier título, carecen de recursos económicos suficientes para efectuar la obra relacionada con esta materia.

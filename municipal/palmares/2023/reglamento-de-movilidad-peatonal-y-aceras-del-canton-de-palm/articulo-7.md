@@ -1,0 +1,1 @@
+Artículo 7°-Obras de reparación o sustitución. La Municipalidad ejecutará las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado, conforme el artículo 16 de la Ley N° 9976.

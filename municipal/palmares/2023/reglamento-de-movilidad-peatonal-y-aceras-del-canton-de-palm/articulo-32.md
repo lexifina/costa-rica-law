@@ -1,0 +1,2 @@
+Artículo 32.-Pendiente. La pendiente transversal de la acera tendrá como mínimo uno por ciento (1%)
+y como máximo tres por ciento (3%). La pendiente será establecida por la persona profesional municipal responsable, previa inspección y estudio. Las vías de circulación horizontales deben cumplir con una pendiente longitudinal máxima de un dos por ciento (2%). Para los casos en que se supere dicha pendiente máxima, se debe tener en cuenta lo indicado en los "Requisitos técnicos para rampas".

@@ -1,0 +1,2 @@
+Artículo 10.-Costo de las Obras. El costo efectivo de estas obras nuevas se trasladará a las personas propietarias o poseedoras de los inmuebles.
+La persona propietaria o poseedora por cualquier título de bien inmueble, cuyo acceso se vea comprometido por la construcción de aceras frente a su propiedad, deberá realizar las modificaciones necesarias a lo interno de su propiedad por su cuenta, para habilitar el acceso a la vía pública desde su bien inmueble, respetando la normativa vigente, y se le prohíbe cualquier intervención a realizar sobre la vía pública.

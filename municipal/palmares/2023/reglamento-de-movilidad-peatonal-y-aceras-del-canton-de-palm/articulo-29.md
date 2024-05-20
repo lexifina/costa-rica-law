@@ -1,0 +1,1 @@
+Artículo 29.-Materiales y texturas en la infraestructura peatonal. Las aceras deben garantizar que son superficies antideslizantes, las cuales deben ser probadas en condiciones de humedad máxima. En caso de presentar riesgo por no ser antideslizante la persona propietaria o poseedora debe realizar las mejoras correspondientes.

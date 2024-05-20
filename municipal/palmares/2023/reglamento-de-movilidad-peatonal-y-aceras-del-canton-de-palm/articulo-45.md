@@ -1,0 +1,2 @@
+Artículo 45.-Estacionamiento sobre aceras. Se prohíbe el estacionamiento de vehículos, motos o camiones de carga sobre las aceras. En los casos que existan o se diseñen parqueos contiguos a aceras, se deberá separar físicamente la acera del parqueo.
+En caso de incumplimiento, la Municipalidad a través del departamento correspondiente, coordinará con la Policía de Tránsito para la remoción del vehículo de la acera.

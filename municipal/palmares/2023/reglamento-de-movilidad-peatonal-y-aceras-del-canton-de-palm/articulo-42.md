@@ -1,0 +1,2 @@
+Artículo 42.-De los obstáculos sobre la zona de movilidad peatonal. Los obstáculos y vegetación que se coloquen sobre la zona de movilidad peatonal deberán ser ubicados respetando el ancho mínimo de un metro cincuenta centímetros (1,50 metros).
+Además, deberán ser advertidos utilizando colores y texturas contrastantes que cubran toda la zona de influencia del objeto desde el nivel de piso terminado, con el fin que sea detectado por cualquier persona peatona.
