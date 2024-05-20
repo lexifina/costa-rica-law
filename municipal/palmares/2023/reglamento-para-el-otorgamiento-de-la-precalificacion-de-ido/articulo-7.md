@@ -1,0 +1,4 @@
+SECCIÓN III
+De la valoración previa por parte de la administración de la idoneidad del sujeto privado para
+administrar fondos públicos
+Artículo 70-De la valoración previa por parte de la Administración de la idoneidad del sujeto privado para administrar Fondos Públicos. Es responsabilidad de la administración concedente para efectos de recibir y analizar las solicitudes que le presenten para la obtención de la calificación de idoneidad, de recomendar al Órgano Contralor su respectivo otorgamiento y de custodiar la documentación recibida de los interesados, todo dentro del marco de un enfoque integral de control sobre los fondos públicos a favor de sujetos privados y específicamente de las obligaciones que asume sobre los fondos concedidos según lo indicado en la Ley Orgánica de la Contraloría General de la República y la Ley General de Control Interno.

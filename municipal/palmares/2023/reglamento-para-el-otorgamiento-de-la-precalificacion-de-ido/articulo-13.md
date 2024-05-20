@@ -1,0 +1,4 @@
+SECCIÓN III
+De la valoración previa por parte de la administración de la idoneidad del sujeto privado para
+administrar fondos públicos
+Artículo 13.-Del dictamen de recomendación. Que de conformidad con la Ley NO 7755, el dictamen de recomendación, será emitido por el, Alcalde Municipal, o por la persona que este designe, y dicho dictamen debe ser aprobado por el Concejo Municipal, que es el encargado de distribuir la partida específica respectiva, cuando corresponda. El plazo que tiene la Superior Jerarca para emitir el dictamen de recomendación, será no mayor de treinta días hábiles a partir de la presentación completa de la documentación requerida por parte del sujeto privado y el Concejo Municipal tendrá diez días hábiles para resolver lo que corresponda, contados a partir del recibo del dictamen de recomendación emitido por el Superior Jerarca, conjuntamente con el informe de auditoría requerido en el artículo 22 del presente Reglamento.
