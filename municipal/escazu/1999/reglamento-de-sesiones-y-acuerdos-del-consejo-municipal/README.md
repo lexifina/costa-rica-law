@@ -20,3 +20,4 @@ Reglamento de Sesiones y Acuerdos del Consejo Municipal.
 | 5 | 2011-02-28 | Reglamento municipal 44 (2011-02-28) |
 | 6 | 2020-06-22 | Reglamento municipal 8 (2020-06-22) |
 | 7 | 2021-06-14 | Reglamento municipal 59 (2021-06-14) |
+| 8 | 2024-05-20 | Reglamento municipal 3 (2024-05-20) |
