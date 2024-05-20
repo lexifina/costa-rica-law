@@ -1,0 +1,31 @@
+Artículo 2º-Modifíquense los artículos 5, 6, 7, 8, 9, 10, 11, 13, 14 y 15 del Reglamento para el Control de Fraccionamientos de la Municipalidad de Carrillo publicado en La Gaceta el 20 de diciembre del 2019, para que se lean de la siguiente manera:
+Artículo 5º-Alcance y excepciones:
+Alcance. Conforme al Reglamento a la Ley de Catastro Nacional el visado municipal de fraccionamiento se extenderá únicamente para los efectos contemplados en el artículo 79, inciso b: "Para todo fraccionamiento el visado requerido es el de la Municipalidad respectiva, y aquellos que sean fraccionamientos con fines urbanísticos deberán contener el visado del Instituto Nacional de Vivienda y Urbanismo y el de la municipalidad respectiva, sin perjuicio de lo que establezca el plan regulador vigente".
+Excepciones. Por definición, se exceptúan del requerimiento del visado municipal para fraccionamientos, los siguientes casos:
+a) Plano de agrimensura o catastrado de finca completa.
+b) Plano de agrimensura o catastrado para rectificación de área.
+c) Plano de agrimensura o catastrado para información posesoria.
+d) Plano de agrimensura o catastrado de reunión de fincas completas.
+e) Plano de agrimensura o catastrado de filial.
+f) Planos de agrimensura o catastrado para solicitud o renovación de concesión en zona marítimo terrestre.
+g) Planos de agrimensura o catastrados en los que figure como propietario registral alguna entidad del Estado de forma directa (Gobierno Central) o de la Municipalidad de Carrillo.
+Ninguna institución pública ni privada deberá requerir un visado municipal de fraccionamiento en Carrillo bajo las condiciones anteriores.
+Artículo 6º-Requisitos documentales: Conforme a la ley de protección al ciudadano del exceso de requisitos y trámites administrativos (8220) se autoriza al Departamento de Catastro y Bienes Inmuebles a realizar las gestiones pertinentes de simplificación y agilización del proceso, utilizando los medios informáticos y tecnológicos para mantener la mejor eficiencia y eficacia. Conforme a lo anterior y conforme al Reglamento a la Ley de Catastro Nacional, se establecen como requisitos generales para la solicitud por primera vez del visado municipal los siguientes:
+a) Declaración de bienes inmuebles de la finca madre menor de 5 años.
+b) Minuta de Rechazo del Registro Inmobiliario.
+c) Plano Rechazado del Registro Inmobiliario.
+d) Plano a Visar (del topógrafo).
+d) Servicios indispensables según artículo 7 de este reglamento (sin construcción) y en congruencia con el artículo del 13 del Reglamento de Fraccionamientos y Urbanizaciones.
+e) Para fraccionamientos con fines urbanísticos, el visado del INVU y los requisitos documentales 3 y 5 conforme con el artículo 22 del Reglamento de Fraccionamientos y Urbanizaciones.
+f) Para los fraccionamientos de parcelas con fines agrícolas, pecuarios, forestales o mixtos, los requisitos documentales 3, 4 y 6 del artículo 36 del Reglamento de Fraccionamientos y Urbanizaciones.
+Procedimiento de ingreso: Para aquellas solicitudes que ingresen después de la primera vez será suficiente presentar los documentos faltantes y el plano a visar, siempre que permanezcan invariables el número de presentación, contrato y área. La ausencia o invalidez (contradicción o incertidumbre de la información contenida dentro) de algún documento determina el trámite de solicitud de visado como inadmitido otorgándole al solicitante 10 días hábiles para completar o aclarar la documentación después de lo cual quedará cancelada la gestión si no completase.
+Artículo 7º-Servicios indispensables: Será conforme con lo indicado en el artículo 13 del Reglamento para Fraccionamientos y Urbanizaciones (y el documento oficial deberá contener el número de presentación) o por la existencia física del servicio instalado frente a la propuesta de segregación.
+Artículo 8º-Ancho y ampliación vial. Se considerará calle pública aquella que esté representada en los mapas oficiales de la municipalidad o que lo demuestre mediante documento idóneo del Concejo Municipal o de la Unidad Técnica Vial y se aplicará el ancho y ampliación según lo siguiente:
+a) Ancho. La municipalidad se reserva el derecho de verificar el ancho real frente a las propuestas de segregación (división) que el profesional indique en el plano, de manera al que el profesional encargado del visado municipal podrá considerar como criterio de denegatoria cuando difiera de la realidad dentro de los parámetros de precisión que la técnica establezca para ello.
+b) Ampliación vial. La municipalidad solicitará la correcta descripción de la ampliación vial con base en el pronunciamiento del ancho oficial que podrá requerir y considerar como criterio de denegatoria cuando se omita o sea incorrecto, para ello el profesional solicitante deberá basarse en lo indicado en el artículo 10 inciso a de este mismo reglamento. Deberá considerarse esta ampliación vial de manera proporcional a ambos lados y describirse así en el plano conforme con el artículo 9 del Reglamento para Fraccionamientos y Urbanizaciones.
+Artículo 9°-Entrega del área pública: Todo fraccionador de terrenos deberá respetar el Reglamento de Cesión Gratuita del Porcentaje de Terreno Destinado al Uso Público a favor de la Municipalidad Resultante de los Fraccionamientos de Carrillo publicado en La Gaceta Nº 122 del 25 de junio de 2015, pero se aplicará la cesión de áreas públicas conforme con los artículos 8, 21 y 21BIS del Reglamento para Fraccionamientos y Urbanizaciones.
+Artículo 10.-Para fraccionamientos simples se aplicará lo contemplado en los artículos 14 al 17 del Reglamento para Fraccionamientos y Urbanizaciones.
+Artículo 11.-Para fraccionamientos con fines urbanísticos se aplicará lo contemplado en los artículos 19 al 22 del Reglamento para Fraccionamientos y Urbanizaciones. Para excepción de fraccionamientos para uso residencial se aplicará lo contemplado en los artículos 23 al 28 del Reglamento para Fraccionamientos y Urbanizaciones.
+Artículo 13.-Para fraccionamientos de parcelas con fines agrícolas, pecuarios, forestales o mixtos se aplicará lo contemplado en los artículos 29 al 35 del Reglamento para Fraccionamientos y Urbanizaciones.
+Artículo 14.-Se deroga.
+Artículo 15.-Se deroga.

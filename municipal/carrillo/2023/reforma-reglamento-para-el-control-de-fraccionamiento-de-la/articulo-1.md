@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE CARRILLO
+La Municipalidad de Carrillo, en uso de las facultades que le confieren los artículos 50 y 170 de la Constitución Política, artículos 2, 3, 4, 12, 17 del Código Municipal, artículo 15 de la Ley de Planificación Urbana, acuerda en Sesión Extraordinaria N° 04-2023, acuerdo 02, inciso 01, celebrada el día 22 de febrero de 2023, reformar Reglamento para el Control de Fraccionamientos de la Municipalidad de Carrillo publicado en La Gaceta el 20 de diciembre del 2019 según las consideraciones siguientes.
+onsiderando:
+Que la actualización del Reglamento de Fraccionamientos y Urbanizaciones fue publicada el 13 de setiembre del 2020, que la reforma del Reglamento a la Ley de Catastro Nacional el 04 de mayo del 2021, que la Municipalidad de Carrillo publicó los Cuadrantes Urbanos el 30 de junio del 2021.
+Que esta normativa e instrumentos incorporan cambios muy significativos a las regulaciones de los fraccionamientos y que debido a lo anterior, surge la necesidad de reformar el Reglamento de Fraccionamiento de la Municipalidad de Carrillo para integrarlo con las actualizaciones más recientes de dicha normativa. Por tanto,
+Se acuerda reformar el Reglamento para el Control de Fraccionamientos de la Municipalidad de Carrillo publicado en La Gaceta el 20 de diciembre del 2019.
+Artículo 1º-Añádanse las definiciones y acrónimos del Reglamento de Fraccionamientos y Urbanizaciones al artículo 3 que no existan.
