@@ -1,0 +1,18 @@
+N° 10403
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+HIJOS E HIJAS DE LA PATRIA
+ARTICULO ÚNICO- Se reforma el inciso k) del artículo 3 de la Ley 5662, Ley de Desarrollo Social y Asignaciones Familiares, de 23 de diciembre de 1974.-EI texto es el siguiente:
+Artículo 3- Con recursos del Fondo de Desarrollo y Asignaciones Familiares (Fodesaf) se pagarán, de la siguiente manera, programas y servicios a las instituciones del Estado y a otras expresamente autorizadas en esta ley, que tienen a su cargo aportes complementarios al ingreso de las familias y la ejecución de programas de desarrollo social.
+Para ello, se procederá de la siguiente manera:
+( ... )
+k) Se destinará un cero coma veinticinco por ciento (0,25 %) a la creación de un programa de prestaciones alimentarias a cargo del Estado, denominado "Programa Hijos e Hijas de la Patria", cuyas personas beneficiarias serán jóvenes de albergues operados por el Sistema Nacional de Protección Especial, egresados en razón de haber alcanzado su mayoría de edad y, al momento de dicho egreso, presenten las condiciones siguientes: carencia de recursos familiares, personales o laborales suficientes para cubrir sus necesidades básicas de subsistencia y educación continua, debidamente atestada por el Patronato Nacional de la Infancia (PANI), el cual deberá enviar la lista correspondiente a la oficina encargada del Instituto Mixto de Ayuda Social (IMAS) y, además, ser estudiante en cualquiera de los ciclos educativos.
+Las personas estudiantes de postsecundaria, que cumplan los requisitos del primer párrafo de este inciso y que por su situación socioeconómica o de salud no hayan podido matricular la carga académica completa, podrán recibir el beneficio, el cual empezará a girarse a partir del momento en que matricule, como mínimo, dos materias del plan de estudios; menor de veinticinco años. Para disfrutar dicho beneficio, las calificaciones obtenidas no deberán ser inferiores al mínimo establecido por el órgano competente para aprobar el curso.
+Este beneficio se suspenderá en caso de que la persona beneficiaria cometa una falta grave que amerite la expulsión o suspensión del centro educativo o en el momento en que decida no continuar en el sistema. Igual derecho tendrá la persona mayor de dieciocho años y menor de veinticinco años que demuestre su imposibilidad de estudiar o trabajar, por razón de discapacidad permanente o temporal.
+Para todos los casos aquí contemplados, el derecho establecido se extingue al cumplir la persona beneficiaria los veinticinco años o cuando se verifique que quien lo recibe deje de necesitarlo.
+La ejecución de dicho programa estará a cargo del Instituto Mixto de Ayuda Social (IMAS), el que recibirá el traslado de los recursos correspondientes. Su Junta Directiva dictará la normativa correspondiente para su ejecución.
+Además, esta oficina deberá coordinar, con otras instituciones del Estado, las donaciones o los convenios para el aprovechamiento eficiente de becas, facilidades o insumos para la salud y cualquier otro beneficio o recurso en general disponibles en dichas instituciones, a las cuales se les faculta para donar recursos o bienes que resulten en favor de esta población, la cual tendrá prioridad como receptores en los programas que los cubren y en la ejecución de dichos recursos.
+Los recursos dedicados a este fin al Instituto Mixto de Ayuda Social (IMAS)-solo podrán ser utilizados en favor de sus beneficiarios y no podrán utilizarse en gastos de administración, ni ejecución.
+( ... )
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los catorce días del mes de mayo del año dos mil veinticuatro.
