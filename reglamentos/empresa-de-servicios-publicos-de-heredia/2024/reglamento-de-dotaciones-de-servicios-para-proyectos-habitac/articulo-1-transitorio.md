@@ -1,0 +1,1 @@
+Transitorio I.-El presente Reglamento deroga y deja sin efecto el Reglamento para las Dotaciones de Servicios a Urbanizaciones, Fraccionamientos y Condominios, Extensiones de redes y su financiamiento, de la Empresa de Servicios Públicos de Heredia Sociedad Anónima, publicado en el diario oficial la Gaceta número 42, del 28 de febrero 2013, así como sus modificaciones.

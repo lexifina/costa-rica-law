@@ -1,0 +1,3 @@
+Artículo 10. Restricción y prohibición para la dotación de servicios.
+A) Las zonas de restricción y prohibición para la dotación de servicios, se establecerán mediante acuerdos de la Junta Directiva de la ESPHSA y se aplicará para petición de nuevos servicios, ampliaciones en la cantidad de servicios, y solicitud de servicios para proyectos posteriores a una declaratoria de caducidad.
+B) No se brindarán servicios de agua potable, alcantarillado sanitario y/o energía eléctrica a proyectos habitacionales que se pretendan desarrollar fuera del anillo de contención del GAM; que violenten las disposiciones del Plan Regulador Municipal; o que se encuentre dentro de zonas de prohibición o protección legalmente constituidas por el Estado u otra entidad competente.

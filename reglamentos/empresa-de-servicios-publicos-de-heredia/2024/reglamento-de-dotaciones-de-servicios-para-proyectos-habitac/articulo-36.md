@@ -1,0 +1,4 @@
+Artículo 36. Entrega de redes internas o externas. Las obras para el sistema de energía eléctrica, alumbrado público, agua potable, alcantarillado sanitario, que administrará la ESPH SA, serán entregadas a esta sin costo alguno para la entidad, lo anterior de conformidad con las disposiciones de la ARESEP.
+El Negocio correspondiente, mediante oficio dará por recibidas a satisfacción las obras o redes internas o externas, en un plazo de 7 días hábiles.
+En proyectos residenciales o urbanizaciones las redes se recibirán doce meses después de su interconexión con los sistemas empresariales. En los condominios, la ESPH SA no recibirá ni administrará redes internas de Agua Potable, Energía Eléctrica y Aguas Residuales.
+La ESPHSA en esto casos llegará hasta el punto de entrega y lectura de servicio, en calle pública, conforme a las disposiciones de la Autoridad Reguladora de los Servicios Públicos.

@@ -1,0 +1,1 @@
+Artículo 13. Responsable de las extensiones y mejoras de redes. El propietario será el responsable de realizar la extensión o mejora de red. La violación de esta norma facultará a la ESPH SA para declarar la caducidad de la dotación del servicio, sin responsabilidad de su parte.

@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento es aplicable a los servicios públicos de agua potable e hidrante, alcantarillado sanitario, energía eléctrica, alumbrado público en cuanto a la disponibilidad y prestación efectiva de estos servicios para proyectos habitacionales. Lo anterior, a partir de la solicitud de cuatro unidades de consumo.

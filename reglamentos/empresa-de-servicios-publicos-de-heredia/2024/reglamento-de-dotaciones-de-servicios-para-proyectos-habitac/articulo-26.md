@@ -1,0 +1,11 @@
+SECCIÓN SEGUNDA- FASE DOS
+Artículo 26. Requisitos para la fase dos Inicio y ejecución de obras para el Negocio Agua Potable e Hidrantes.
+Dicho trámite el propietario o desarrollador lo puede solicitar de forma digital al correo proyectoshabitacionales@esph-sa.com o presentarse en forma física en el edificio administrativo de ESPH SA, en cualquiera de las dos opciones se requiere el cumplimiento de los siguientes requisitos:
+a) Fichas técnicas y cotizaciones de los materiales de interconexión o asociados a la mejora en caso de requerir inversiones.
+b) Permiso de rotura del ente administrativo de competencia.
+c) Cronograma de ejecución de la obra en el programa Microsoft Project (MS Project), indicando todas las actividades del proyecto (Instalación de tubería, instalación de accesorios, cruces de calle, previstas, hidrantes, bacheo entre otros); y su respectiva duración, además deberá mostrar la ruta crítica del proyecto, el mismo deberá ser aprobado por parte de la ESPH SA.
+d) El desarrollador debe indicar claramente mediante oficio, que la ESPH S.A. queda libre de toda responsabilidad civil directa o indirecta o laboral, como consecuencia de la ejecución de obras. Para la cual, deberá tomar aquellos seguros ante la entidad correspondiente que lo proteja contra cualquier accidente a su equipo, personal, daños a terceros y/o cualquier otro tipo de seguros vigente en el mercado.
+e) Presupuestos finales de las obras según formato APH-ON-RH-OP-F-002(2) Presupuesto de la Red de Agua Potable con Tubo PAD con su respectivo diseño final (DWG / PDF) e incluir las modificaciones vistas en el proceso de inspección y ejecución de obras.
+f) Informe con registro fotográfico con distancias de tuberías existentes respecto a la tubería instalada, tipos de materiales, alcance de la instalación, y en caso de donaciones de predios informe detallado de las obras realizadas, memorias de cálculo, presupuesto detallado, escritura de donación.
+g) Entregar en el almacén de la ESPHSA con previa aprobación de fichas técnicas y ofertas de compra, tubería, accesorios, válvulas y todos los materiales necesarios para la adecuada instalación y funcionamiento de las tuberías nuevas y existentes, propios de las interconexiones.
+La ESPH S.A. revisará la documentación e informará al desarrollador en un periodo de 10 días naturales.

@@ -1,0 +1,1 @@
+Artículo 19. Plazo de resolución. La resolución se emitirá en un plazo de (20 días naturales a partir de la presentación de la solicitud de disponibilidad (artículo 17). Cuando la solicitud de disponibilidad esté incompleta se realizará una única prevención otorgándose un plazo de 10 días hábiles para que subsane.
