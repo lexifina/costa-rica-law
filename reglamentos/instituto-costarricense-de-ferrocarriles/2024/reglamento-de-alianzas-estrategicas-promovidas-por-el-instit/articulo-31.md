@@ -1,0 +1,2 @@
+Artículo 31.-Verificación de cumplimiento de la estructuración. Una vez completadas las tareas definidas para la fase de estructuración, la Unidad Ejecutora designada deberá verificar que se han cumplido todas las condiciones para seguir adelante con las fases siguientes.
+La decisión de proseguir con las fases siguientes deberá ser adoptada por el Consejo Director, según el informe y recomendación que deberá elevar la Presidencia Ejecutiva y que será elaborado por la Unidad Ejecutora.

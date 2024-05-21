@@ -1,0 +1,4 @@
+Artículo 10.-Conformación del expediente. La Unidad Ejecutora designada deberá confeccionar y mantener actualizado un expediente administrativo, que incorpore los documentos generados en todas las fases de desarrollo de las alianzas estratégicas previstas en el artículo anterior.
+El expediente incluirá los actos finales que se adopten y deberá estar debidamente actualizado, foliado y sus documentos deberán estar compilados en orden cronológico. No se deberá incorporar al expediente actos preparatorios o borradores de documentos.
+El tiempo de custodia del expediente una vez concluida la etapa de ejecución será de cinco años contados a partir de la finalización de la relación contractual.
+El expediente será de acceso público en los términos previstos en el artículo 5 de este Reglamento referente al principio de transparencia.

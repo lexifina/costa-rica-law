@@ -1,0 +1,1 @@
+Artículo 7º-Registro de las alianzas. La Unidad Ejecutora designada será la encargada de verificar que las alianzas estratégicas que llegue a formalizar el INCOFER, se encuentren registradas debidamente en el sistema digital unificado en los términos que delimite el Ministerio de Hacienda como rector de la contratación pública.

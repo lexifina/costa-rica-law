@@ -1,0 +1,8 @@
+Artículo 21.-Decisión final. De conformidad con el artículo 4 de este Reglamento, corresponde al Consejo Director la adopción de la decisión final que constituye la selección del socio estratégico.
+La Presidencia Ejecutiva deberá elevar la recomendación y el texto que se propone para la decisión final, según le hayan sido a su vez presentados por la Unidad Ejecutora en los términos dispuestos en la decisión inicial.
+El texto de la propuesta de decisión final debe especificar al menos lo siguiente:
+a) Identificación detallada del caso de negociación acordado, según el contenido mínimo detallado en el artículo 13 de este Reglamento.
+b) Los motivos de la selección, en términos de satisfacción de los objetivos estratégicos institucionales y de la necesidad pública respectiva, con un manejo razonable de las aportaciones, de los riesgos y de los beneficios, entre otros factores que dependerán de cada caso concreto. Asimismo, debe especificar el cumplimiento del perfil definido para el socio estratégico. Este acto definirá las bases del acuerdo preliminar al que se refiere el artículo 27 de este Reglamento.
+c) El monto que deberá ser reconocido al proponente en caso de que se utilice su caso inicial de negocio en una alianza debidamente formalizada y el proponente no haya sido seleccionado para ejecutarla, en el caso del procedimiento de negociación simultánea regulado en el artículo 25 de este Reglamento.
+d) Los estudios que deben ser completados para llevar la iniciativa a una fase de implementación y que deberán llevarse a cabo en la fase de estructuración del caso de negocio definitivo, así como la determinación de quién los realiza y asume los costos respectivos.
+e) El cumplimiento de todo lo requerido en la decisión inicial.

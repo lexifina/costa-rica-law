@@ -1,0 +1,1 @@
+Artículo 35.-Suscripción. El Acuerdo General de Alianza Estratégica deberá ser suscrito por la Presidencia Ejecutiva de INCOFER, previa recomendación de la Unidad Ejecutora y con el visto bueno la opinión jurídica de la asesoría jurídica institucional.

@@ -1,0 +1,2 @@
+Artículo 2º-Alcance de la alianza estratégica. El INCOFER podrá unirse a una o más personas jurídicas, públicas o privadas, nacionales o extranjeras, para desarrollar un proyecto, negocio o servicio mediante alianzas estratégicas, con el propósito de obtener mayores ventajas competitivas que no alcanzaría individualmente.
+Mediante las alianzas estratégicas el INCOFER podrá efectuar actividades como inversiones de capital, comerciales, de investigación, desarrollo tecnológico, prestación de servicios y otras relacionadas con las actividades del Instituto.

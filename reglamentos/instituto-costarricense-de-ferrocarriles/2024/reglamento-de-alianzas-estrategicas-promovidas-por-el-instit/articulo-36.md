@@ -1,0 +1,2 @@
+Artículo 36.-Refrendo. El Acuerdo General de Alianza Estratégica estará sujeto a las disposiciones que en materia de refrendo le sean aplicables, de acuerdo con lo que disponga el Reglamento sobre el refrendo de las contrataciones que emita la Contraloría General de la República.
+En todo caso, el Acuerdo requerirá la aprobación interna de la instancia designada según la reglamentación interna de INCOFER.

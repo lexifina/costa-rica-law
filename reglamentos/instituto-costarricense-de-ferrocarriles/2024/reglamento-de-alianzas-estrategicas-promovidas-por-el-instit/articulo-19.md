@@ -1,0 +1,4 @@
+Artículo 19.-La selección del socio mediante procesos de negociación. En este Reglamento se entenderá por negociación aquel proceso orientado a la exploración de los términos del caso de negocio, la posibilidad de ajustes, mejoras o formulaciones alternativas más apropiadas, los beneficios esperados y la ponderación de aportes y riesgos que el socio está en disposición inicial de asumir, en función de cada caso concreto y según contenido previsto en el artículo 13 de este Reglamento, entre otros aspectos.
+Para la selección del aliado estratégico, la Administración deberá:
+a) Realizar un estudio de posibles aliados idóneos que puedan desarrollar el proyecto que se pretende ejecutar.
+b) Tomar en cuenta el conocimiento y experiencia técnica del aliado en el objeto del proyecto, su capacidad financiera y que no le alcance el régimen de prohibiciones, entre otros aspectos que acrediten su conveniencia.

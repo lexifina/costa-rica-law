@@ -1,0 +1,3 @@
+SECCIÓN II
+Transparencia
+Artículo 6º-Transparencia. El INCOFER y las empresas participantes deberán procurar que sus acciones se realicen de forma transparente ante la ciudadanía. Para ello, la Unidad Ejecutora designada deberá mantener disponible para el público en general y para toda autoridad pública competente que así lo requiera, la información relativa a los procesos de desarrollo de alianzas estratégicas, salvo en los casos de información confidencial debidamente declarada según las reglas previstas para esos efectos en la legislación y reglamentación general de la contratación pública, sin perjuicio de las disposiciones conducentes de la Ley N° 7975 denominada Ley de información no divulgada.

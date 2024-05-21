@@ -1,0 +1,1 @@
+Artículo 39.-Evaluación. Una vez concluida la alianza, el INCOFER deberá evaluar los resultados obtenidos, considerando entre otros aspectos, el cumplimiento de plazos, la calidad obtenida, el nivel de ejecución alcanzado y los beneficios obtenidos, para ello tomará el informe final elaborado por el fiscalizador designado, quién deberá elevar dicho informe al Consejo Directivo.

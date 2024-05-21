@@ -1,0 +1,1 @@
+Artículo 27.-Alianzas estratégicas con otros entes y órganos públicos. En el desarrollo de sus alianzas estratégicas INCOFER podrá establecer las relaciones de cooperación y coordinación que resulten pertinentes con otros entes y órganos públicos, según la naturaleza y alcance del negocio, proyecto o servicio de que se trate en cada caso.

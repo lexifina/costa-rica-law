@@ -1,0 +1,1 @@
+Artículo 24.-Procedimiento de negociación directa. De conformidad con este procedimiento INCOFER puede seleccionar de manera directa al socio estratégico, mediante acto motivado en el que se expliquen las razones de oportunidad y conveniencia que justifican la medida, así como la acreditación de que el socio estratégico seleccionado cumple con el perfil identificado.

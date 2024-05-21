@@ -1,0 +1,2 @@
+Artículo 38.-Supervisión. Durante la vigencia de la alianza estratégica, el INCOFER deberá ejercer la supervisión del cumplimiento del acuerdo consorcial por parte del aliado seleccionado.
+Corresponde al INCOFER designar un fiscalizador de la ejecución del proyecto, quien deberá rendir al Consejo Directivo informes periódicos sobre el avance y la calidad de la ejecución de la alianza estratégica, así como un informe final con los resultados de la misma.
