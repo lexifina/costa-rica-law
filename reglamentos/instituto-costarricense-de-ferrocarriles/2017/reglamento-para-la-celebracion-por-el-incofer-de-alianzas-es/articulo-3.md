@@ -1,4 +1,4 @@
 Capítulo II.
 De las alianzas estratégicas
 Sección I. Aspectos generales
-Artículo 3. Definición y Naturaleza. Se entiende por alianzas estratégicas los acuerdos formales de colaboración entre el INCOFER y una o más empresas u organizaciones de otra índole, que reúnen tres características: relacionadas con los objetivos, competencias y servicios asignados legalmente al Instituto; buscan lograr ventajas competitivas, que no se alcanzarían actuando individualmente a corto plazo; y, en ellas la autoridad y la toma de decisiones se comparten, con lo que se adoptan las resoluciones sin recurrir a métodos jerárquicos de coordinación. Las alianzas estratégicas pueden tomar la forma de acuerdos de puesta en común de recursos financieros, humanos o tecnológicos, de cara a un fin específico y con una validez predeterminada, o bien, prolongarse sin expectativa de cancelación.
+Artículo 3. Definición y Naturaleza. (Derogado por el artículo 40 del Reglamento de alianzas estratégicas promovidas por el Instituto Costarricense de Ferrocarriles, publicado en La Gaceta N° 90 del 21 de mayo del 2024)

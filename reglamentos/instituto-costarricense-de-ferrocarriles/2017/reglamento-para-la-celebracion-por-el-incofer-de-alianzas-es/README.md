@@ -14,3 +14,4 @@ Reglamento para la celebración por el INCOFER de alianzas estratégicas o cualq
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-23 | la propia norma |
+| 2 | 2024-05-21 | Reglamento 0 (2024-05-21) |
