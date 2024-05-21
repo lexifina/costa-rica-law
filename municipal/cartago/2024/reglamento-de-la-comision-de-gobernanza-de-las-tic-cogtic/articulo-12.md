@@ -1,0 +1,2 @@
+Artículo 12.-Acta. En cumplimiento de sus funciones, la persona que ocupe la Secretaría de la Comisión elaborará el acta de la sesión correspondiente que deberá ser aprobada en la siguiente sesión ordinaria o extraordinaria. Una vez aprobada se incluirá en el libro de actas y será firmada por quienes ocupen los cargos de presidente y secretario.
+Las actas deberán contar con las formalidades establecidas en la normativa vigente.

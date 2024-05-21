@@ -1,0 +1,1 @@
+Artículo 17.-Voto salvado y opinión. Cualquiera de los miembros de la Comisión podrá salvar justificadamente su voto en los procesos de votación que tengan lugar en el seno del órgano colegiado y las razones que justifiquen su disenso deberán quedar consignadas en el acta.

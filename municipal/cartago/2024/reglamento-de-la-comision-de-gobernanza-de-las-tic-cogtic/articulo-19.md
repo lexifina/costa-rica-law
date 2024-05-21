@@ -1,0 +1,1 @@
+Artículo 19.-Normativa supletoria. En lo no previsto en esta norma, se aplicarán las disposiciones atinentes contenidas para órganos colegiados y sesiones, en el Código Municipal y la Ley General de la Administración Pública, sin perjuicio de otra normativa conexa que pueda resultar de aplicación en ausencia de aquella.

@@ -1,0 +1,2 @@
+Artículo 20.-Derogatoria. Se deroga el "Reglamento Interno de Gestión de la Comisión de Tecnologías de Información Y Comunicación (CTIC)" aprobado en sesión ordinaria del 28 de agosto del 2018, artículo XXXVI del acta N° 180-2018, y reproducido su texto en forma íntegra en La Gaceta N° 200 del 20 de octubre del 2022.
+Rige a partir de la publicación en el Diario Oficial La Gaceta, de acuerdo con lo dispuesto en el artículo 43 del Código Municipal.
