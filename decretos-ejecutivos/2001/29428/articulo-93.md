@@ -1,1 +1,4 @@
-Artículo 93.—Del vencimiento. Tres meses antes de vencerse el plazo establecido por el artículo 26 del Estatuto, el funcionario deberá comunicar por escrito al Ministro su intención de reincorporarse, de lo contrario quedará excluido automáticamente del Servicio. El Ministerio deberá asignar un cargo al funcionario que solicite su reincorporación en el plazo establecido, y comunicárselo en un plazo menor a 90 días a partir del día en que se recibió su solicitud de reincorporación.
+Artículo 93.-
+(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 90 al artículo 92)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 92 al artículo 93)

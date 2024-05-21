@@ -1,1 +1,3 @@
-Artículo 127.—De la sanción por acoso u hostigamiento sexual. Las faltas por acoso u hostigamiento sexual cometidas por funcionarios, se sancionarán de conformidad con la Ley Nº 7476 "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia" y su reglamento, en concordancia con lo dispuesto en los artículos subsiguientes.
+Artículo 127.-De la sanción por incumplimiento. Los funcionarios del servicio exterior serán sancionados por el incumplimiento de las normas legales y administrativas en el ejercicio de sus funciones, sin perjuicio de la responsabilidad civil y/o penal en la que pudieran incurrir.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 124 al artículo 126)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 126 al artículo 127)

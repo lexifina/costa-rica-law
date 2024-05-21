@@ -1,2 +1,4 @@
-Artículo 88.—
-(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+Artículo 88.- De la distinción honorífica. Cuando un funcionario de carrera que haya pertenecido a la primera categoría por más de diez años y tenga más de treinta años de servicios o se jubile, el Poder Ejecutivo, previo dictamen favorable de la Comisión Calificadora y recomendación del Ministro, podrá concederle la distinción de Embajador Emérito, cuando se considere que ha prestado al Ministerio servicios excepcionalmente valiosos y distinguidos. Esta condición es honorífica y podrá ser conferida también a título póstumo.
+(Así reformado el artículo anterior por el artículo 1° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 85 al artículo 87)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 87 al artículo 88)

@@ -1,1 +1,7 @@
-Artículo 133.—De los plazos. Tratándose de amonestaciones verbales o escritas deberán imponerse dentro de los quince días posteriores a aquel en que se cometió la falta o que los superiores la conocieron; y las suspensiones o despidos, en el transcurso del mes posterior al día en que se cometió la falta o los superiores tuvieron conocimiento de ella. En los casos en que se requiera de investigación para comprobar la existencia de la falta que se imputa al funcionario del Servicio Exterior, el término indicado se contará a partir de la fecha en que la investigación concluyó y se ponga en conocimiento del jerarca respectivo.
+Artículo 133.-La amonestación escrita. La amonestación escrita se aplicará:
+1. Cuando se haya amonestado al funcionario en los términos del artículo anterior, e incurra nuevamente en la misma falta.
+2. Cuando incumpla alguna de las obligaciones establecidas en el presente Reglamento y el Estatuto del Servicio Exterior, si la falta no diere mérito para una sanción mayor.
+3. En los casos previstos por este Reglamento.
+4. Cuando el funcionario incurra en falta grave que no dé mérito a sanción de mayor rango.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 130 al artículo 132)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 132 al artículo 133)

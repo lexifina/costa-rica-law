@@ -1,2 +1,5 @@
-Artículo 118.—De la asignación de gastos por costo de vida. El Presupuesto Nacional indicará la suma global por asignación por costo de vida de todos los funcionarios del Servicio Exterior, el monto de la asignación a cada funcionario será determinado por el Ministro, considerando el nivel de costo de vida.
-De conformidad con el artículo 29 del Estatuto, el funcionario que reemplace en su cargo al Jefe de Misión por un período mayor a un mes como Encargado de Negocios, tendrá derecho a la totalidad de la asignación por gastos de representación destinada al titular del cargo, en proporción al tiempo que dure su reemplazo, salvo que la ausencia del Jefe de Misión se deba a estar desempeñando funciones oficiales en otro destino.
+CAPÍTULO V
+De las ausencias
+Artículo 118.-Concepto. Se considerará ausencia la falta a un día completo de trabajo. Las ausencias injustificadas se descontarán del período anual de vacaciones. Lo anterior sin perjuicio de las sanciones administrativas correspondientes.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 115 al artículo 117)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 117 al artículo 118)

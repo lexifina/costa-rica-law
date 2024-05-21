@@ -1,2 +1,4 @@
-Artículo 87.—
-(Así derogado por el artículo 2° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+Artículo 87.- De la calificación de los funcionarios del Servicio Exterior. Los funcionarios del Servicio Exterior serán calificados anualmente por la Dirección del Servicio Exterior a fin de apreciar su actitud, evaluar su capacidad, desempeño profesional, calidades personales y demás condiciones que se estimen necesarias para el cumplimiento de las obligaciones inherentes a los cargos que ocupan. Los resultados de todas las calificaciones serán tomados en consideración por la Comisión Calificadora en el momento de efectuarse concursos para llenar vacantes o de analizar las solicitudes de ascenso.
+(Así reformado el artículo anterior por el artículo 1° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 84 al artículo 86)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 86 al artículo 87)

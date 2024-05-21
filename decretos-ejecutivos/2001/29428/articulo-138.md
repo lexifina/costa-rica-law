@@ -1,3 +1,3 @@
-Disposiciones finales
-Artículo 138.—Deróganse en su totalidad los decretos Nº 2539 del 22 de setiembre de 1972; el número 17333-RE, del diecisiete de noviembre de 1986; el número 19901 y número 19902 del diecisiete de agosto de 1990; el número 23419-RE del primero de junio de 1994; el Nº 25186-RE del 27 de mayo de 1996 y el número 25450-RE del 16 de setiembre de 1996, Nº 25152-RE del 2 de mayo 1996; el Nº 27365 del 21 de octubre de 1998, Reglamento Nº 22410-RE del 30 de agosto de 1996.
-Artículo 2º—Rige a partir de su publicación.
+Articulo 138.-Del Procedimiento. En caso de aplicarse las sanciones de suspensión y destitución, previamente deberá concederse al funcionario que se trate, un plazo prudencial que fijara la Comisión Calificadora, a fin de que exprese lo que tenga que decir en su descargo, ofrezca sus pruebas y las haga evacuar. Ese no excederá de tres meses.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 135 al artículo 137)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 137 al artículo 138)

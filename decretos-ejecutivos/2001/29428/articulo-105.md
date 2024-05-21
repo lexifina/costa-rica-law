@@ -1,1 +1,3 @@
-Artículo 105.—De los permisos breves. Las licencias para salidas cortas dentro de la jornada de trabajo las solicitará el funcionario a su jefe inmediato.
+Artículo 105.-De los periodos de vacaciones. Los funcionarios que presten sus servicios en el exterior tendrán derecho a un mes de vacaciones por cada año de servicio. Es prohibido acumular vacaciones, pero excepcionalmente y por razones del servicio que se presta, la Dirección de Servicio Exterior, podrá autorizar expresamente la acumulación de un periodo de vacaciones como máximo.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 102 al artículo 104)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 104 al artículo 105)

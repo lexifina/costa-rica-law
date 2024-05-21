@@ -1,3 +1,3 @@
-CAPÍTULO V
-De las ausencias
-Artículo 115.—Concepto. Se considerará ausencia la falta a un día completo de trabajo. Las ausencias injustificadas se descontarán del período anual de vacaciones. Lo anterior sin perjuicio de las sanciones administrativas correspondientes.
+Artículo 115.-De la incapacidad. Al funcionario de carrera que sea declarado parcialmente incapacitado para laborar, se le concederá permiso para retirarse de servicio activo de la carrera diplomática, a cuyo servicio podrá reingresar superada su incapacidad. Conservará el rango diplomático, la precedencia protocolaria, mientras observe una conducta adecuada. Las incapacidades totales se regularán por lo establecido en el Código de Trabajo.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 112 al artículo 114)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 114 al artículo 115)

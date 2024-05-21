@@ -1,5 +1,3 @@
-Artículo 130.—La amonestación escrita. La amonestación escrita se aplicará:
-1. Cuando se haya amonestado al funcionario en los términos del artículo anterior, e incurra nuevamente en la misma falta.
-2. Cuando incumpla alguna de las obligaciones establecidas en el presente Reglamento y el Estatuto del Servicio Exterior, si la falta no diere mérito para una sanción mayor.
-3. En los casos previstos por este Reglamento.
-4. Cuando el funcionario incurra en falta grave que no dé mérito a sanción de mayor rango.
+Artículo 130.-De la sanción por acoso u hostigamiento sexual. Las faltas por acoso u hostigamiento sexual cometidas por funcionarios, se sancionarán de conformidad con la Ley Nº 7476 "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia" y su reglamento, en concordancia con lo dispuesto en los artículos subsiguientes.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 127 al artículo 129)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 129 al artículo 130)

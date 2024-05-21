@@ -1,2 +1,5 @@
-Artículo 114.—De la ausencia por tratamiento médico. Luego de comunicado al Ministro el accidente o enfermedad y de haber recibido la autorización respectiva, el funcionario podrá ausentarse de la misión u oficina y trasladarse a suelo nacional a efecto de recibir los tratamientos del caso.
-También podrá el funcionario permanecer en el lugar donde presta servicios para recibir los tratamientos correspondientes, para lo cual contará con la incapacidad dispuesta en este reglamento.
+CAPÍTULO III
+De las incapacidades
+Artículo 114.-Régimen Jurídico. Las incapacidades médicas de los funcionarios del Servicio Exterior, por enfermedad o riesgo profesional, se regirán de conformidad con lo establecido en el Estatuto y en las disposiciones establecidas en el Código de Trabajo.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 111 al artículo 113)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 113 al artículo 114)

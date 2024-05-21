@@ -1,5 +1,3 @@
-Artículo 108.—De las licencias de estudio para funcionarios de carrera. La Dirección de Servicio Exterior podrá conceder licencias para que los funcionarios de carrera asistan a cursos de estudio en instituciones educativas del Estado receptor, o en casos muy calificados, para seguir programas de educación a distancia que requieran, indispensablemente, de una interrupción en la jornada de trabajo. No podrá, sin embargo, concederse este tipo de licencia si con ello se causa evidente perjuicio al funcionamiento de la respectiva unidad, o si no lo permiten las condiciones administrativas o exigencias de trabajo de cada dependencia. Las licencias para estudio con goce de salario se regirán por las siguientes normas:
-a) Que, a juicio de su superior inmediato, el funcionario merece, por su buen desempeño y conducta, la oportunidad de mejorar profesional y/o académicamente.
-b) Que los estudios capaciten al funcionario para desempeñar mejor su cargo o para otros cargos del servicio.
-c) Que la conducta del funcionario dé motivo para esperar de él un buen aprovechamiento de sus estudios.
-d) Que la licencia de estudios no podrá exceder las doce horas semanales.
+Artículo 108.-De los permisos breves. Las licencias para salidas cortas dentro de la jornada de trabajo las solicitará el funcionario a su jefe inmediato.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 105 al artículo 107)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 107 al artículo 108)

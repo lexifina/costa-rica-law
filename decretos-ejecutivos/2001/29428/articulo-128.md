@@ -1,1 +1,7 @@
-Artículo 128.—De las amonestaciones verbales y escritas. Por delegación del Ministro las amonestaciones verbales o escritas por faltas leves, las emitirá el Jefe de Misión o en caso de funcionario del Servicio Interno por el Director del Departamento del amonestado dentro del término establecido en el Código de Trabajo, sin más trámite que concederle audiencia. La amonestación escrita deberá contener un relato sucinto de los hechos que motivaron la infracción y fundamento que justifican la sanción disciplinaria. Lo anterior salvo que para la determinación del hecho sea necesario llevar a cabo una investigación, en tal caso deberá iniciarse el procedimiento administrativo.
+Artículo 128.-De las sanciones. Las faltas en que incurran los funcionarios del Servicio Exterior, serán sancionadas de acuerdo con el Código de Trabajo, Reglamento Interno de Trabajo y el Estatuto del Servicio Exterior, como a continuación se indica:
+1. Amonestación verbal.
+2. Amonestación escrita.
+3. Suspensión del funcionario sin goce de salario por un periodo no menor de un mes ni mayor de seis meses, término dentro del cual está vedado al funcionario ejercer sus funciones.
+4. Despido sin responsabilidad patronal.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 125 al artículo 127)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 127 al artículo 128)

@@ -1,2 +1,11 @@
-Artículo 75.— De los ascensos de acuerdo con el escalafón. El escalafón será utilizado para decidir sobre los ascensos cuando se produzcan vacantes en la categoría inmediata superior, las cuales deberán llenarse mediante concurso, de conformidad con lo dispuesto en el artículo 18 del Estatuto.
-(Así reformado el artículo anterior por el artículo 1° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+Artículo 75.- De las vacantes. Se producirá una vacante en un servicio cada vez que, por razones de rotación, traslado, ascenso, renuncia, destitución, jubilación, retiro o defunción de un funcionario, o por apertura de plazas nuevas, haya puestos vacantes en el servicio interno, en el servicio diplomático o en el servicio consular.
+Las vacantes deberán llenarse de acuerdo al siguiente orden de prelación:
+a.Nombramiento de un funcionario diplomático de carrera que se encuentre desempeñando otro cargo, o que regrese al servicio después de una licencia o disponibilidad, de acuerdo al orden que se detalla:
+1. Funcionario diplomático de carrera de la categoría correspondiente al puesto vacante.
+2. Funcionario diplomático de carrera de la categoría inmediata inferior que figure en la lista de funcionarios diplomáticos de carrera que merecen ascenso a la categoría del puesto vacante.
+3. Funcionario diplomático de carrera de la categoría inmediata inferior a la categoría del puesto vacante.
+4. Funcionario diplomático de carrera de la categoría inmediata inferior que figure en la lista de funcionarios diplomáticos de carrera que merecen ascenso a la categoría inmediata inferior a la categoría del puesto vacante.
+5. Funcionario diplomático de carrera de las demás categorías, siguiendo el orden descendente del escalafón diplomático y dando prioridad, en cada categoría, a quienes figuren en la lista de funcionarios diplomáticos de carrera que merecen ascenso.
+b.Nombramiento de personal en comisión, por inopia de funcionarios de carrera o especiales razones de conveniencia nacional o emergencia de acuerdo con el artículo 48 del Estatuto. Cuando se pretenda llenar una vacante de la sétima a la cuarta categoría en el servicio diplomático o en el servicio consular, mediante nombramiento en comisión, deberá priorizarse el nombramiento de las personas incorporadas en el registro de elegibles para el ingreso a la carrera diplomática.
+En el caso del puesto de Embajador o Jefes de Misión en el exterior, las vacantes podrán llenarse a discreción del Consejo de Gobierno, de conformidad con lo establecido en la Constitución Política.
+(Así reformado el artículo anterior por el artículo 1° del decreto ejecutivo N° 44488 del 21 de mayo del 2024)

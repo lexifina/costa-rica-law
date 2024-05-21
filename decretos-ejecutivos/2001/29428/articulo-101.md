@@ -1,6 +1,4 @@
-TÍTULO III
-De las condiciones laborales de los funcionarios
-del Servicio Exterior
-CAPÍTULO I
-De las vacaciones
-Artículo 101.—De la competencia. Corresponderá a la Dirección General del Servicio Exterior autorizar los períodos de vacaciones de los funcionarios en sus diversas dependencias, tomando en consideración las necesidades del servicio, informando siempre al Departamento de Recursos Humanos.
+Artículo 101.-Suplencia por ausencias. Si uno o más integrantes de la Comisión se incapacitaren, o se ausentaren por más de tres meses o en forma permanente o renunciaren, el Ministro, procederá a nombrar un sustituto en el término de un mes. Transcurrido este período, si el Ministro no hubiere llenado las vacantes, entrarán automáticamente a integrar la Comisión, por el resto del periodo correspondiente, los funcionarios de mayor rango en el escalafón que se encuentren en el servicio interno.
+Si la ausencia permanente, por cualquier causa, fuese del Presidente o del Secretario, la Comisión procederá a designar inmediatamente su sustituto dentro de los restantes miembros por el resto del período.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 98 al artículo 100)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 100 al artículo 101)

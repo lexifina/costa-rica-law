@@ -1,3 +1,5 @@
-CAPÍTULO IV
-De los riesgos profesionales
-Artículo 113.—De la comunicación. El Jefe de Misión deberá poner en conocimiento del Ministro cualquier accidente o enfermedad laboral ocurrida a uno de los miembros de su misión u oficina en el término de veinticuatro horas. También podrá el funcionario afectado poner el incidente, debidamente comprobado, en conocimiento del Ministerio a fin de que se tomen las medidas pertinentes.
+Artículo 113.- De las licencias sin goce de salario prolongadas. El Ministro podrá conceder licencias sin goce de salario a los funcionarios de carrera, por períodos de hasta cuatro años, ya sea de tiempo completo o de medio tiempo, cuando lo permitan las necesidades del servicio. Con respecto a estas licencias se seguirán, en lo adaptable, las reglas del régimen vigente para la administración central.
+El Ministerio también podrá destacar con goce o sin goce de salario a funcionarios de carrera, con su consentimiento, en otra institución pública, mediante acuerdo escrito con ésta, en el cual se indicarán las modalidades y duración de los servicios."
+(Así reformado el artículo anterior por el artículo 1° del Decreto Ejecutivo No 32520-RE del 2 de junio de 2005)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 110 al artículo 112)
+(Así modificada su numeración por el artículo 3° del decreto ejecutivo N° 44488 del 21 de mayo del 2024, que lo traspasó del antiguo artículo 112 al artículo 113)
