@@ -1,0 +1,1 @@
+Artículo 50.-Responsabilidad de la liquidación de las Cajas Chicas Auxiliares. La persona funcionaria responsable de la Caja Chica Auxiliar y las personas trabajadoras a las que se les haya delegado formalmente la administración de esta, deberán gestionar las liquidaciones de forma frecuente y revolutiva para garantizar la liquidez presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 53.-Fiscalización y evaluaciones. Es competencia de la Auditoría Interna, verificar el cumplimiento, la validez y la suficiencia del sistema de control interno institucional, mediante la fiscalización, evaluación de procesos y resultados, así como de las personas funcionarias involucradas.

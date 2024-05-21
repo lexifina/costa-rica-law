@@ -1,0 +1,1 @@
+Artículo 39.-Antigüedad de las facturas. La persona funcionaria en el cargo de Director/a Regional, Jefatura de alguna dependencia institucional, así como el administrador del Fondo, no deberán autorizar liquidaciones de facturas cuya fecha de emisión supere los dos meses calendario a la fecha de inclusión de la liquidación en el sistema informático vigente.

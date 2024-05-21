@@ -1,0 +1,1 @@
+Artículo 34.-Aprobación de transferencias electrónicas. En caso de que los pagos se realicen mediante transferencias u otros medios electrónicos, deberán contar con la respectiva aprobación por parte de la persona trabajadora autorizada para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 23.-Sobrantes de dinero. Si producto de un arqueo el monto de dinero es superior al monto asignado en el Fondo, Caja Central o Caja Chica Auxiliar se denomina sobrante de dinero. Los sobrantes se depositarán en la Caja Central de la Tesorería o en la cuenta corriente que se le indique, a más tardar el quinto día hábil siguiente de conocido el hecho.

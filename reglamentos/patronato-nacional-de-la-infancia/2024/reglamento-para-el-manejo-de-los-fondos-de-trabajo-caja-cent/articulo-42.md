@@ -1,0 +1,1 @@
+Artículo 42.-Distribución del Fondo en Cajas Chicas Auxiliares. El monto de la distribución del Fondo en las Cajas Chicas Auxiliares, no podrá sobrepasar el 50% (cincuenta por ciento) de la totalidad del monto asignado al mismo.

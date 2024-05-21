@@ -1,0 +1,1 @@
+Artículo 6º-Límite de gastos para compras por Caja Chica Auxiliar. Cada gasto realizado con recursos provenientes de la Caja Chica Auxiliar no podrá sobrepasar el 50% (cincuenta por ciento) del monto asignado para dicha Caja.

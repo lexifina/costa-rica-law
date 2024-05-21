@@ -1,0 +1,1 @@
+Artículo 43.-Montos máximos de pago Caja Central y Caja Chica Auxiliar. Para el caso de la Caja Central el límite lo establece la Gerencia de Administración. Para el caso de las Cajas Chicas Auxiliares, el monto no puede superar el 50% (cincuenta por ciento) del total de recursos económicos asignados.

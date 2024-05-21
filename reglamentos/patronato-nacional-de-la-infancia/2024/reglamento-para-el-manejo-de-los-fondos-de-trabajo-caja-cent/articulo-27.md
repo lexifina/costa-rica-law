@@ -1,0 +1,1 @@
+Artículo 27.-Requisitos de las facturas y comprobantes de respaldo. Las facturas y comprobantes de respaldo deberán cumplir como mínimo con los requisitos establecidos en el Manual atinente al presente Reglamento.

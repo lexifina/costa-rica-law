@@ -1,0 +1,1 @@
+Artículo 22.-Faltantes de dinero. Si producto de un arqueo el monto de dinero es inferior al monto asignado en el Fondo, Caja Central o Caja Chica Auxiliar se denomina faltante de dinero. Los faltantes se depositarán en la cuenta corriente del Fondo. Los faltantes se deberán reponer durante los cinco días hábiles posteriores de conocido el hecho.

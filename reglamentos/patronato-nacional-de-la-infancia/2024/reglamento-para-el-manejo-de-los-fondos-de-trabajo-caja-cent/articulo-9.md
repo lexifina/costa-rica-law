@@ -1,0 +1,1 @@
+Artículo 9º-Gastos funerarios para personas menores de edad. En caso de que se determine la opción de paquete funerario deberá solicitarse una única factura por este concepto. Si se contratan los servicios y suministros por separado, en cada una de las facturas se deberá especificar el detalle y liquidarse de acuerdo a la cuenta respectiva.

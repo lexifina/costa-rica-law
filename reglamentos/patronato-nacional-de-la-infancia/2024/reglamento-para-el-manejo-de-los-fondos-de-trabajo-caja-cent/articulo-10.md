@@ -1,0 +1,1 @@
+Artículo 10.-Sobre la partida alimentos y bebidas en aldeas y albergues institucionales. La ejecución del gasto en la subpartida denominada alimentos y bebidas, es aplicable para la compra de alimentos y productos alimenticios en albergues y aldeas por parte de las unidades ejecutoras para consumo exclusivo de los niños, niñas y adolescentes.

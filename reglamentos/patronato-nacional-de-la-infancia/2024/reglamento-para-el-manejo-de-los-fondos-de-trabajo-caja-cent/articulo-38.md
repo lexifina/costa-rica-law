@@ -1,0 +1,1 @@
+Artículo 38.-Cierre presupuestario anual. La persona funcionaria responsable y el Administrador del Fondo, deberán garantizar que, al momento del cierre presupuestario anual, no quede ninguna factura pendiente de reintegro conforme al cronograma y directrices que emita la Gerencia de Administración.

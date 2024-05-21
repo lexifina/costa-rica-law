@@ -1,0 +1,1 @@
+Artículo 58.-Régimen sancionatorio. El incumplimiento de lo establecido en este Reglamento por parte de las personas funcionarias del PANI, dará lugar a la aplicación de las sanciones señaladas en la normativa vigente, independientemente de las responsabilidades civiles, penales o de otra índole que se le pudieran imputar como consecuencia de su accionar.
