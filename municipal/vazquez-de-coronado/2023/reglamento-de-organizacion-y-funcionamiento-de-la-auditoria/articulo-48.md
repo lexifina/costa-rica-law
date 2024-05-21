@@ -1,0 +1,2 @@
+Sección Sexta. Del seguimiento de las recomendaciones de la Auditoría Interna
+Artículo 48.-Del programa de seguimiento de recomendaciones. Le corresponde a la persona titular de la Auditoría Interna formular y ejecutar un programa de seguimiento dirigido a evaluar la efectividad en la implementación de las recomendaciones originadas en la prestación de los servicios de la Auditoría Interna, de conformidad al Manual de Políticas y Procedimientos de la Auditoría Interna de la Municipalidad de Vázquez de Coronado.

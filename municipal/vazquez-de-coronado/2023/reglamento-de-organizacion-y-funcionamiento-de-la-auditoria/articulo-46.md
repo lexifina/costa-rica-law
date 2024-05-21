@@ -1,0 +1,1 @@
+Artículo 46.-Comunicación respecto a los informes sobre responsabilidades. Los informes sobre responsabilidades se ajustarán en su contenido a las disposiciones que establezca la Contraloría General de la República.

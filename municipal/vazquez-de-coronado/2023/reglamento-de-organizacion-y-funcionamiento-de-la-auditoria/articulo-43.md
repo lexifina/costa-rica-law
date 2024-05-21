@@ -1,0 +1,3 @@
+Sección Cuarta. De la ejecución de las Auditoría Internas
+Artículo 43.-Ejecución de los estudios de la auditoría interna. El desarrollo de las diferentes actividades del proceso de la Auditoría Interna que conlleva la ejecución de los estudios se regirá por lo establecido en el Manual de Políticas y Procedimientos de la Auditoría Interna de la Municipalidad de Vázquez de Coronado.
+Además, la Auditoría Interna ejecutará su trabajo de acuerdo con lo que establece el presente Reglamento, así como las normas, directrices, lineamientos u otras disposiciones que al efecto emita la Contraloría General de la República.

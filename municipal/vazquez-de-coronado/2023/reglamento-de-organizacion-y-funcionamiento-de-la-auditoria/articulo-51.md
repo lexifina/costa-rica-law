@@ -1,0 +1,1 @@
+Artículo 51.-Seguimiento de advertencias. La persona titular de la Auditoría Interna o a quien designe, verificará lo actuado por la administración respecto a las advertencias que se hayan formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control o de responsabilidades u otros pertinentes.

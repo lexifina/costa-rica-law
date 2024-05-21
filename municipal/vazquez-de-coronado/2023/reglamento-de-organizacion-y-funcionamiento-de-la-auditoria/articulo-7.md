@@ -1,0 +1,1 @@
+Artículo 7º-Del responsable. La unidad de Auditoría Interna estará a cargo de la persona titular de la Auditoría Interna. Si la persona titular de la Auditoría Interna se ausentare temporalmente el jerarca procederá de acuerdo a lo establecido en el artículo 31 de la ley general de control interno y la normativa que establezca la Contraloría General de la República al respecto.

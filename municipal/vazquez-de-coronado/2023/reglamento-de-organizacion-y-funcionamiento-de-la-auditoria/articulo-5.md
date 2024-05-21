@@ -1,0 +1,3 @@
+Artículo 5º-De la estructura de la auditoría interna. La estructura orgánica con que cuenta la Auditoría Interna está conformada por: la persona titular de la Auditoría Interna, un(a) auditor(a) asistente y un(a) asistente de Auditoría.
+Dicha estructura puede ser modificada de conformidad con los estudios técnicos de recursos, de acuerdo con la normativa emitida por la Contraloría General de la República.
+La estructura orgánica mínima con que deberá contar la Auditoría Interna estará conformada por: un Titular de la Auditoría Interna y demás funcionarios que se establezcan en el estudio técnico de recursos, de acuerdo con las directrices emitidas por la Contraloría General de la República.

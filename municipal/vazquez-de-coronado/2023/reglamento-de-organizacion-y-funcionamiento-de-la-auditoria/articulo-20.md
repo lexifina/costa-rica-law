@@ -1,0 +1,2 @@
+Sección Sexta. De la asignación de recursos de la Auditoría Interna
+Artículo 20.-Formulación presupuestaria. Es competencia de la persona titular de la Auditoría Interna elaborar su propio proyecto de presupuesto anual, que se confeccionará de conformidad con el ordenamiento jurídico aplicable y con el Manual de Políticas y Procedimientos de la Auditoría Interna de la Municipalidad de Vázquez de Coronado, con el fin de asegurar razonablemente que la unidad que ejecuta la Auditoría Interna cuente con los recursos suficientes para el cumplimiento de sus cometidos.

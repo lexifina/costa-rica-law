@@ -1,0 +1,1 @@
+Artículo 17.-De los deberes éticos. Es deber de los funcionarios de la Auditoría Interna, respetar los lineamientos éticos y morales establecidos por la Municipalidad, la persona titular de la Auditoría Interna y la Contraloría General de la República.

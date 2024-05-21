@@ -1,0 +1,1 @@
+Artículo 34.-Supervisión de los servicios de auditoría interna. La Auditoría Interna establecerá y mantendrá una adecuada gestión de supervisión sobre los servicios que presta, con el fin de asegurar el logro de los objetivos de cada trabajo y su calidad y el desarrollo del personal.

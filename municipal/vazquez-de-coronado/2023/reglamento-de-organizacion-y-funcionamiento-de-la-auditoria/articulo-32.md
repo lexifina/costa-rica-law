@@ -1,0 +1,3 @@
+Sección Segunda. De los servicios que brinda la Auditoría Interna
+Artículo 32.-Tipos de servicios. Los servicios brindados por parte de la Auditoría Interna se clasifican en servicios de Auditoría y servicios preventivos.
+Los funcionarios de la Auditoría Interna según proceda, realizarán las actividades necesarias de acuerdo con los objetivos y el alcance de cada servicio que brinden, los cuales deben documentarse de conformidad con lo indicado en el Manual de Políticas y Procedimientos de la Auditoría Interna de la Municipalidad de Vázquez de Coronado. En lo atinente a los servicios de la Auditoría Interna, debe observarse además la normativa aplicable.

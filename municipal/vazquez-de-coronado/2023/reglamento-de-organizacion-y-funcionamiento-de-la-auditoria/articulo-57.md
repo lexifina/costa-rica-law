@@ -1,0 +1,1 @@
+Artículo 57.-Derogatoria. El presente Reglamento deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Vázquez de Coronado, publicado en el Alcance 14, de la Gaceta 52 del 13 de marzo del 2008, y cualquier otra normativa interna que se contraponga al presente Reglamento.

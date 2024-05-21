@@ -1,0 +1,3 @@
+Sección Quinta. De los informes
+Artículo 44.-Informes. La Auditoría Interna emitirá informes sobre los asuntos de su competencia y aquellos que pueden causar posibles responsabilidades para los funcionarios, exfuncionarios de la institución y terceros, de conformidad con la normativa técnica y legal. Dichos informes deberán ser elaborados bajo un lenguaje sencillo, adicionalmente deberán ser realizados de manera tal que no existan errores de interpretación, por lo que serán concisos e imparciales.
+Cuando de un estudio se den hallazgos sobre asuntos de control interno y sobre temas que podrían acarrear responsabilidad, la Auditoría Interna deberá comunicarlas en informes independientes según la materia que disponga.

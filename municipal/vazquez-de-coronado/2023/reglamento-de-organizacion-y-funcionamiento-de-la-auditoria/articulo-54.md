@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 54.-De la responsabilidad. El incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para la persona titular de la Auditoría Interna, los funcionarios de la Auditoría Interna, el Concejo Municipal, Alcalde, titulares subordinados, demás funcionarios de la Municipalidad de Vázquez de Coronado y Órganos sujetos a la fiscalización, de conformidad con lo establecido en el Capítulo V de la ley general de control interno, 8292. La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.
