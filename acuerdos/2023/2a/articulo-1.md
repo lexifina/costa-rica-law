@@ -1,222 +1,46 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 Aviso 2023-002.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del documento: ECA-MC-C10 Criterios para la evaluación y acreditación de la Norma INTE ISO IEC 1702917025:2017, pasa de versión 09 a versión 10, ECA-MC-P19 Establecimiento de esquemas de acreditación, pasa de versión 05 a versión 06. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no controlada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
-San José, 04 de abril del 2023
+San José, 04 de abril del 2023.
 (Nota de Sinalevi: La presente norma se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
+(Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 117 del 27 de junio del 2024, donde se actualiza la versión 11 y se publica la versión 12 y se transcribe a continuación:)
 [imagen] [imagen]
 TABLA DE CONTENIDO
-1. OBJETIVO.................................................................................................... 1
-2. ALCANCE..................................................................................................... 1
-3. DOCUMENTO MANDATORIO....................................................................... 1
-4. DOCUMENTO MANDATORIO IAF MD6:2014................................................. 2
-5. Anexo A - Criterios de competencia relacionados con la validación y verificación o proyectos u organizaciones - (Anexo Informativo)............... 22
-6. Anexo B - Concepto de Planificación en caso de que una declaración de GEI se refiere a un proyecto agrupado o una declaración de GEI esté relacionado con varias instalaciones en un Inventario de GEI de la organización (Anexo Informativo)........................................................... 32
-7. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE. 45
-8. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0............................................................. 46
-9. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA......................................................................... 47
-10. ESQUEMA DE HUELLAS AMBIENTALES................................................ 48
-11. TRANSITORIO....................................................................................... 49
-12. CONTROL DE CAMBIOS........................................................................ 50
-Se agrega apartado 10 sobre el esquema de huellas ambientales para etiquetado tipo III.......................................................................................................................... 50
+1. OBJETIVO..................................................................................................................... 1
+2. ALCANCE...................................................................................................................... 1
+3. DOCUMENTO MANDATORIO........................................................................................ 1
+PRIMERA PARTE: REQUISITOS PPCN.................................................................................... 2
+8.4 VALIDACIÓN O VERIFICACIÓN.......................................................................................... 3
+4. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
+4
+5. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0.................................................................................................................................. 5
+6. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA............... 6
+7. ESQUEMA DE HUELLAS AMBIENTALES...................................................................... 7
+SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2023............................................. 8
+INTRODUCCIÓN A LOS DOCUMENTOS OBLIGATORIOS DE LA IAF....................................... 8
+8. TRANSITORIO............................................................................................................. 18
+9. CONTROL DE CAMBIOS............................................................................................. 18
 1. OBJETIVO
 Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos Validadores/Verificadores, de acuerdo con la Norma INTE/ISO 14065 en su versión vigente y la Directriz IAF MD 6. Asimismo, establecer requisitos complementarios de los esquemas de acreditación.
 2. ALCANCE
 El presente documento aplica para los Organismos Validadores/Verificadores acreditados o en proceso de acreditación.
 3. DOCUMENTO MANDATORIO
 3.1 Aplicación de Criterios
--Del MD 6: La aplicación de este criterio (apartado 4 de este documento) rige a partir del 23 de marzo del año 2015. Por lo tanto, los OV/Vs acreditados o en proceso de acreditación bajo la norma 14065:2015 deben satisfacer los requisitos del documento. A partir del 30 de agosto del 2022, en consideración de la actualización de la Norma INTE/ ISO 14065 :2020, los procesos de solicitud inicial realizados a deben considerar las notas de omisión para los apartados en los que así se indique producto de la actualización de la norma en referencia la aplicación de este documento mandatorio.
--Los Criterios para los OV/V acreditados para verificar el Programa País Carbono Neutralidad del MINAE, empiezan a regir a partir del 30 de agosto del 2021 para proceso de solicitud inicial y a partir de mayo 2022 de manera obligatoria para todo OVV acreditado bajo este alcance.
-4. DOCUMENTO MANDATORIO IAF MD6:2014.
-0 INTRODUCCIÓN (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
-1.1. ISO 14065: 2013 es una norma internacional que establece los requisitos para Organismos que realizan la validación o verificación de Gases de Efecto Invernadero (GEI) usando ISO 14064-3 u otras normas o especificaciones pertinentes.
-ISO14065 proporciona a los administradores de programas GEI, reguladores y acreditadores, una base para evaluar y reconocer la competencia de los organismos de validación o verificación (OV / V).
-Las declaraciones emitidas por OV / V acreditados se confían en un número de áreas, críticas en los "esquemas de comercio de emisiones", tanto en los mercados regulados como voluntarios. El valor atribuido a una tonelada de CO2 con el propósito de comercio de productos básicos, u otras futuras acciones de las partes interesadas, depende de la confianza en los datos emisiones verificadas y, por consiguiente, sobre la OV / V que realiza el trabajo y emite la declaración.
-ISO 14065 aún no está incluida en los documentos de la MLA de la IAF, sin embargo, si los OV / V deben acreditarse en todo el mundo de forma armonizada, de conformidad con la norma ISO14065, es necesaria una guía de aplicación adicional para limitar las variaciones en la interpretación de la norma. Este documento obligatorio proporciona orientación adicional para permitir la armonización por parte de los miembros de la IAF para la evaluación de OV / V contra ISO 14065 y normas relacionadas. Este es un paso importante hacia el reconocimiento multilateral de acreditación.
-Este documento se referirá en el futuro, en el MLA de IAF, y serán considerados obligatorios para la aplicación coherente de la norma ISO 14065. Miembros de la IAF MLA, y los signatarios solicitantes de ese Acuerdo, evaluarán mutuamente la aplicación de la norma ISO 14065. Se espera que este Documento Obligatorio sea aprobado por los Organismos de Acreditación como parte de sus normas generales de acreditación.
-Se pretende que este documento también sea útil para los propios OV / V y para aquellos cuyas decisiones están guiadas por las declaraciones de validación o verificación de OV / V.
-La validación es el proceso mediante el cual un organismo de validación evalúa el proyecto del plan de proyecto del GEI de acuerdo con los criterios de validación definidos (este proceso se ocupa, por lo tanto, de la evaluación de posibles resultados futuros). La verificación es un proceso en el que un organismo de verificación evalúa una organización o proyecto de GEI contra a un criterio de verificación definido (Por lo tanto, este proceso trata de los resultados históricos). De hecho, para ISO 14064-1 e ISO 14064-2, la evaluación cubrirá tanto la conformidad con la norma y que el GEI es fiable y funciona correctamente de acuerdo al nivel acordado de garantía, materialidad, criterios, objetivos y alcance. En el área de comercio de emisiones, es imperativo que el OV / V debe estar consciente de las consecuencias del doble conteo y del doble registro al emitir una declaración de validación o verificación. Un proceso de evaluación de validación o verificación es único para la evaluación de cada cliente y varía de año en año. La ISO 14064-3, en el Anexo A brinda una explicación de los requisitos para los procesos de validación y verificación.
-1.2. Este documento no incluye el texto de la norma ISO 14065 o, cuando se hace referencia a la ISO 14064-3. Sigue las cláusulas de la ISO 14065.
-La referencia normativa en ISO 14065 es ISO 14064-3. Para ayudar a entender y facilitar la lectura de las dos normas normativas, la Cláusula 8, así como el Anexo C de este documento obligatorio vincula los títulos de la cláusula relevantes de la norma ISO 14065 con los títulos de cláusulas relevantes de ISO 14064-3. Los títulos de la cláusula de la ISO 14064-3 están en azul y precedidos por la referencia ISO 14064-3. El proceso para validación y verificación es diferente de la auditoría de los sistemas de gestión, así como el enfoque diferente entre la validación y la verificación. Por consiguiente, el anexo C se ha desarrollado para proporcionar orientación informativa relacionada con este proceso. En el anexo C, las cláusulas de la ISO 14064- 3 se han utilizado para permitir la comprensión de cómo la guía de la aplicación interactúa con las referencias normativas. Una vez más, los títulos se incluyen, pero sin una guía de aplicación cuando no se consideró necesario.
-Nota -El texto en este documento no debe ser tomado como una interpretación de las normas ISO 14065 o ISO 14064-3.
-1.3. La guía de aplicación, donde se ofrece, se identifica con la letra "A".
+Estos criterios se dividen en dos partes:
+Primera parte: Los Criterios para los OV/V acreditados para verificar el Programa País Carbono Neutralidad (PPCN) del MINAE, empiezan a regir a partir del 30 de agosto del 2021 para proceso de solicitud inicial y a partir de mayo 2022 de manera obligatoria para todo OVV acreditado bajo este alcance.
+El PPCN ha emitido unos criterios adicionales, que son complementos del MD 06, por ello, estos requisitos son adicionales al MD 6.
+Segunda Parte: Traducción del Documento mandatorio MD 6 de IAF.
+PRIMERA PARTE: REQUISITOS PPCN
 1. ALCANCE
-A.1.1. Este Documento Obligatorio es aplicable a los organismos de validación o verificación (OV / V) para los siguientes criterios de validación o verificación:
-. ISO 14064-1 o ISO 14064-2; o
-. Programa regulado de GEI disponible públicamente y que se ha desarrollado utilizando un proceso formal de participación de los interesados directos; o
-. Programa de GEI disponible públicamente (por ejemplo, World Resources Institute and World Business Council for Sustainable Development [WRI/WBCSD] GEI protocol) y se ha desarrollado utilizando un proceso formal de participación de las partes interesadas; o
-. Protocolos por sector o industria no públicas; en este caso, los criterios de validación o de verificación incluirán, además, ISO 14064-1 o ISO 14064-2 depende de si el protocolo se relaciona con la organización o proyecto GEI. La declaración de validación o verificación resultante deberá indicar claramente si la industria no pública o el protocolo del sector cumplen con la norma ISO 14064-1 o ISO 14064-2 y si el protocolo no se cumple, deberá indicar dónde están las diferencias.
-A.1.2. La afirmación validada o verificada de GEI puede incluir una declaración de emisión por unidad de producto fabricado (generado o reducido) o similar. Donde lo permita el programa, y; si el cliente desea utilizar las declaraciones tomadas de la afirmación de GEI y / o utilizando la marca OV / V o la marca del programa GEI para fines de comunicación, estas declaraciones y la marca deberán indicar claramente de dónde proceden las declaraciones, incluyendo: la fecha de la declaración de GEI, si las declaraciones se basan en datos históricos y cualquier limitación asociada a las declaraciones basadas en los datos e información presentados en la declaración de GEI específica del producto y la marca apropiada (consulte ISO / IEC17030).
-C.1.1 Criterio del ECA: En el caso de Costa Rica, para una validación/verificación de una verificación de inventario de GEI relacionada con el Programa País Carbono Neutralidad 2.0 (PPCN 2.0). los OV/V deben tomar en cuenta, además de los criterios anteriores, la norma nacional INTE B5 en su versión vigente.
-C.1.2a Criterio del ECA: La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar se evaluará por parte del ECA en los OV/Vs que dentro de su alcance soliciten que se evalúe conforme a ISO/IEC 17030: Evaluación de la conformidad. Requisitos generales para las marcas de conformidad de tercera parte. La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar deberá indicar el año de verificación del inventario. (Modificado por el CAVV-008- 2015).
-C.1.2b ECA reconoce que el Ministerio de Ambiente y Energía es el único ente autorizado para emitir la Marca País Carbono Neutralidad y sus sinónimos (CO2 neutral, carbono neutral, etc) y que la declaración emitida por un OV/V acreditado debe ser presentada ante la Dirección de Cambio Climático del Ministerio, para el posterior otorgamiento de la marca correspondiente (Modificado por el CAVV-008-2015).
-2. REFERENCIAS NORMATIVAS (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
-INTE ISO 14065: 2015 Gases de efecto invernadero: Requisitos para la validación y verificación de organismos para su uso en la acreditación u otras formas de reconocimiento.
-ISO 14066: 2011 Gases de efecto invernadero: Requisitos de competencia para equipos de validación y equipos de verificación de gases de efecto invernadero ISO 14064-3: 2006 Gases de efecto invernadero - Parte 3: Especificación con
-orientación para la validación y verificación de las declaraciones de gases de efecto invernadero
-Nota - La bibliografía recoge las referencias a los documentos mencionados en este documento obligatorio que no son referencias normativas.
-3. TÉRMINOS Y DEFINICIONES (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
-3.1. Definiciones
-Las definiciones en ISO 14065 se aplican a este documento. Las siguientes definiciones adicionales se aplicarán en el presente documento:
-A.3.1.1. Proyecto agrupado
-Una serie de proyectos incluidos en un solo plan de proyecto de GEI y una sola declaración de GEI en el momento de la validación y verificación.
-(Adaptado de Voluntary Carbon Standard [VCS] 2007)
-A.3.1.2. Imparcialidad
-Presencia real y percibida de la objetividad.
-Nota 1 - La objetividad significa que los conflictos de interés no existen o se resuelven con el fin de no influir negativamente en las actividades posteriores del OV / V.
-Nota 2 - Otros términos que son útiles para transmitir el elemento de imparcialidad son: objetividad, independencia, libre de conflictos de intereses, ausencia de prejuicios, falta de prejuicio, neutralidad, imparcialidad, apertura de mente, imparcialidad, desapego, equilibrio.
-3.2. Términos utilizados en este documento
-Los términos utilizados en este documento se toman de la serie ISO 14064. Cuando un programa de GEI aceptable bajo A.1.1 use términos y definiciones diferentes, se utilizarán y se evaluará su relación con las definiciones y términos de este documento y la consecuencia de cualquier variación entendida por el OV / V.
-Nota- Para los fines de este documento, la validación de una declaración de GEI proyecto está relacionado con las futuras reducciones de emisiones de gases de efecto invernadero o mejoras relacionadas con el proyecto. La verificación de una afirmación de GEI de un proyecto está relacionada con las reducciones históricas reales de las emisiones de GEI o las mejoras asociadas con el proyecto. Las afirmaciones de GEI organizacionales se relacionan con datos históricos reales y se verifican.
-Los términos utilizados en este documento para simplificar el texto incluyen:
-A.3.2.1. Análisis estratégico - en base a los requisitos de la cláusula 4.4.1 de la norma ISO 14064-3, esto significa: "Una revisión de la información de GEI de la organización o del proyecto para evaluar:
-. la naturaleza, magnitud y complejidad de la actividad de validación o verificación de beundertaken en nombre del cliente;
-. confianza en la información de GEI y la aseveración de la parte responsable;
-. integridad de la información de GEI y la aseveración de la parte responsable;
-. la elegibilidad de la parte responsable para participar en el programa de GEI, si aplica".
-A.3.2.2. Evaluación de riesgos - en base a los requisitos de la cláusula 4.4.1 del ISO14064-3 esto significa:
-"La evaluación de las fuentes y la magnitud de posibles errores, omisiones y tergiversaciones relacionadas con las actividades de validación o verificación. Las categorías de posibles errores, omisiones y tergiversaciones evaluadas serán las siguientes:
-a. El riesgo inherente de que se produzca una discrepancia material;
-b. El riesgo de que los controles de la organización o proyecto GEI no impidan o detecten una discrepancia material;
-c. El riesgo de que el validador o verificador no detecte ninguna discrepancia importante que no haya sido corregida por los controles de la organización o proyecto GEI".
-Nota 1 - La valoración del riesgo se relaciona con el riesgo de que el OV / V expresa una conclusión y opinión inapropiada. El OV / V reduce el riesgo a través del diseño e implementación de un proceso de validación y / o verificación, lo que conducirá a la expectativa razonable de identificación de discrepancias materiales. El riesgo de validación y verificación debe reducirse a un nivel aceptablemente bajo para obtener el nivel de garantía adecuado según lo acordado en el contrato.
-Nota 2 - Análisis estratégico identifica lo que la validación y verificación de equipo tiene que mirar y la evaluación del riesgo identifica cómo mirar a los problemas identificados.
-4. PRINCIPIOS (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
-4.1. General
-4.2. Imparcialidad
-4.3. Competencia
-4.4. Enfoque factual para la toma de decisiones
-4.5. Franqueza
-4.6. Confidencialidad
-5. REQUISITOS GENERALES
-5.1. Estatus legal
-A.5.1.1. Se considera que una OV / V gubernamental es una entidad legal sobre la base de su estatuto gubernamental.
-5.2. Asuntos legales y contractuales
-A.5.2.1. El acuerdo legalmente aplicable incluirá una política que rige la comercialización y otras referencias al OV / V que el OV / V autoriza a sus clientes a usar con respecto a cualquier declaración de GEI. Cuando exista una licencia para utilizar una marca de validación o de verificación, o un texto específico, no habrá ambigüedad en el uso propuesto de la afirmación de GEI que haya sido validada o verificada. La política se asegurará, entre otras cosas, de que ninguna marca (en relación con la marca OV / V con licencia al cliente o con una marca de programa de GEI en la que el OV / V sea responsable de supervisar el uso de las reglas relacionadas con la aplicación del Marca) o la referencia a el OV / V se coloca en los productos o embalajes del producto de una manera que puede ser interpretada como denotar la certificación del producto.
-A.5.2.2. El acuerdo legalmente aplicable incluirá una política que gobierne las declaraciones tomadas de la afirmación de GEI validada o verificada que el OV / V permite a un cliente usar, incluyendo los plazos y el idioma (consulte A.1.2). Los acuerdos legalmente exigibles incluirán también los requisitos relacionados con el uso de la marca OV / V que puedan "endosar" las declaraciones hechas por el cliente.
-Nota - Los requisitos aplicables en A.5.2.1 relacionada con el uso de la marca de OV / V en los productos también se aplican a A.5.2.2.
-5.3. Gobierno y Compromiso de Gestión
-A.5.3.1. El OV / V deberá asegurar que lleva a cabo procesos de validación o verificación compatibles con los requisitos de la ISO 14065. Además, el OV / V deberá asegurar que sus sistemas estén suficientemente documentados para asegurar la aplicación consistente de cualquier criterio específico de validación o verificación (referencia A.1.1), que eligen ofrecer.
-A.5.3.2. El OV / V establecerá un proceso de desarrollo para cada nuevo criterio de validación o verificación (véase A.1.1.) En el que desea operar. Este proceso de desarrollo proporcionará resultados relacionados con lo siguiente:
-. Identificación de las principales partes interesadas, así como sus expectativas y requisitos aplicables a los resultados de las actividades de validación o verificación;
-. Revisión y comprensión de la validación de los requisitos aplicables los criterios de verificación, con la participación del propietario criterios cuando sea necesario;
-. Consideración de los riesgos estratégicos y de negocio OV / V;
-. Identificación de los requisitos de competencia para validadores o verificadores, revisores independientes y personal de apoyo, como relevantes para cada criterio de validación o verificación (consulte A.1.1.);
-. Los criterios de validación o verificación (referencia a A.1.1.) Los requisitos específicos de validación o verificación;
-. La confirmación de que el régimen de validación o verificación propuestos cumplen con los criterios de validación o verificación (ver A.1.1.) Requisitos; y
-. La confirmación de que los criterios de validación o verificación satisfacen A.1.1.
-5.4. Imparcialidad
-C.1.3 Se debe evaluar el cumplimiento del OV/V del Criterio ECA-MC-C16: CRITERIOS PARA EVALUAR LA IMPARCIALIDAD.
-5.5. Responsabilidad y Financiamiento
-6. COMPETENCIAS
-6.1. Dirección y Personal
-A.6.1.1. Al determinar un "sector", un OV / V considerará que el término "sector" tiene diferentes significados para diferentes tipos de validaciones y verificaciones. Para cualquier validación o verificación, el término está relacionado con la afirmación de GEI (ya sea asociada a un proyecto de GEI o inventario de GEI) ya las expectativas de las partes interesadas. Esto permite que un validador o verificador comprenda el contexto (por ejemplo, fuentes, sumideros y embalses, plantas y procesos industriales, procesos de la cadena de suministro del producto, límites, adicionalidad, fugas, etc., según corresponda) en los que se está llevando a cabo una validación y verificación.
+C.1.1 Criterio del ECA: En el caso de Costa Rica, para una validación/verificación de una verificación de inventario de GEI relacionada con el Programa País Carbono Neutralidad 2.0 (PPCN 2.0). los OV/V deben tomar en cuenta la norma nacional INTE B5 en su versión vigente.
+C.1.2 ª Criterio del ECA: La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar se evaluará por parte del ECA en los OV/Vs que dentro de su alcance soliciten que se evalúe conforme a ISO/IEC 17030: Evaluación de la conformidad. Requisitos generales para las marcas de conformidad de tercera parte. La declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar deberá indicar el año de verificación del inventario. (Modificado por el CAVV-008-2015).
+C.1.2 b ECA reconoce que el Ministerio de Ambiente y Energía es el único ente autorizado para emitir la Marca País Carbono Neutralidad y sus sinónimos (CO2 neutral, carbono neutral, etc) y que la declaración emitida por un OV/V acreditado debe ser presentada ante la Dirección de Cambio Climático del Ministerio, para el posterior otorgamiento de la marca correspondiente (Modificado por el CAVV-008- 2015).
+C. 3. GESTIÓN DE LA IMPARCIALIDAD
+C.1.3 Se debe evaluar el cumplimiento del OV/V del Criterio ECA-MC-C16: CRITERIOS PARA EVALUAR LA IMPARCIALIDAD
+6. REQUISITOS ESTRUCTURALES
+6.1 ESTRUCTURA ORGANIZATIVA Y ALTA DIRECCIÓN
 C.1.4 Se deben verificar los cambios significativos reportados por el OV/V en el último periodo, en cumplimiento con el Compromiso de Acreditación. Por ejemplo: cambios de personal (altas y bajas) que se presenten durante el período en el que se encuentre acreditado y en proceso de acreditación. Para la incorporación de nuevo personal es necesario notificar al ECA antes de que realice operaciones de validación o verificación acreditadas y debe hacer entrega de la evidencia objetiva de la competencia del validador o verificador.
 C.1.5 Para el esquema del PPCN 2.0, el OVV debe cumplir con la matriz de competencias establecida por el ECA en el formulario ECA-MC-C10-F01 que está disponible en la página web del ECA.
-C.1.6 Los sectores establecidos para el PPCN 2.0 se encuentran definidos en el ECA- MC-P11, según el anexo 2 del PPCN 2.0. El ECA se reserva a modificar o aclarar estos sectores.
-6.2 Competencias del personal
-A.6.2.1. El OV / V debe tener personal evaluado por un evaluador competente.
-A.6.2.2. El OV / V deberá demostrar cómo se ha evaluado al personal y se ha determinado que cumple los siguientes requisitos de competencia según corresponda:
-. Competencia relacionada con la gestión de un compromiso;
-. Competencias genéricas de validación según la norma ISO 14065 Cláusula 6 e ISO 14066, además de cualquier específica y / o sector competencia específica, validación o criterios específicos de validación del proyecto (se refieren a A 1.1); y
-. Competencias genéricas de verificación según la norma ISO 14065 Cláusula 6 e ISO 14066, además de los criterios específicos y competencia específica o sector de verificación (ver A.1.1).
-Nota 1 - En los casos en que la verificación organización incluye la verificación del proyecto, los criterios de competencia OV / V tiene que tener en cuenta todos los criterios de competencia pertinentes de acuerdo anteriormente, incluyendo aquellos asociados con la validación del proyecto o la verificación del proyecto.
-Nota 2 - Hay una serie de herramientas que se utilizan para evaluar al personal; Éstos se pueden combinar de cualquier manera adecuada. Las herramientas típicas incluyen:
-. Ser testigo de una actividad de verificación y / o validación según sea el caso;
-. revisión por pares internos de validación o verificación de la documentación;
-. Entrevista estructurada para evaluar el conocimiento y competencia técnica;
-. El examen;
-. Evaluación del funcionamiento - por la dirección y / u otro miembro del equipo;
-. La certificación por una entidad de certificación acreditada de personal en la medida en que la certificación proporciona una demostración de las competencias especificadas en este sistema OV / V;
-. Reconocido solvencia técnica en términos de ser invitado a hablar en conferencias, o publicar documentos en caso examinado por expertos y
-. Evidencia adecuada de la experiencia previa relevante.
-Nota 3 - Anexo A proporciona una guía para aclarar los tres tipos diferentes de competencias basado en la norma ISO 14065 Cláusula 6 e ISO 14066 cláusula 5.
-6.3. Despliegue de Personal
-6.4. Uso de validadores o verificadores contratados
-6.5. Registros de personal
-6.6. Subcontratación
-7. COMUNICACIÓN Y REGISTROS
-7.1. Información proporcionada a un Cliente o Parte Responsable
-7.2. Comunicación de Responsabilidades con un Cliente o Parte Responsable
-7.3. Confidencialidad
-7.4. Información pública asociada
-7.5. Archivos
-8. PROCEDIMIENTO DE VALIDACIÓN O VERIFICACIÓN
-Nota 1 - Tomado de 0,2 Introducción: "Para ayudar a la comprensión y facilitar la lectura a través de los dos estándares normativos, la cláusula 8, así como el Anexo C de este documento obligatorio une los títulos de cláusulas relevantes de la norma ISO 14065 con títulos de cláusulas relevantes de la norma ISO 14064-3. Los títulos de la cláusula ISO 14064-3 están en texto azul y precedidos por la referencia ISO 14064-3. El proceso de validación y verificación es diferente de la auditoría de los sistemas de gestión, así como de un enfoque diferente entre la validación y la verificación. Por consiguiente, se ha elaborado el Anexo C para proporcionar orientación informativa relacionada con este proceso. En el Anexo C se han utilizado los encabezamientos de las cláusulas ISO 14064- 3 para permitir la comprensión de cómo interactúa la orientación de la aplicación con las referencias normativas. Una vez más, los encabezados de título se incluyen, pero sin orientación de aplicación cuando no se consideró necesario. "
-Nota 2 - El texto de este documento no debe ser tomado como una interpretación de las normas ISO 14065 o ISO 14064-3.
-8.1. General
-8.2. Compromiso previo
-8.2.1. Imparcialidad
-8.2.2. Competencia
-8.2.3. Acuerdo
-ISO 14064-3 Cláusula 4.3. Nivel de seguridad, materialidad, objetivos, criterios y alcance de la validación o verificación
-4.3.1. Nivel de seguridad
-4.3.2. Objetivo
-4.3.3. Criterios
-4.3.4. Alcance
-4.3.5. Materialidad
-Nota ECA: Para criterios de evaluación que consideren la Norma ISO 14064-3:2018 considerar la Cláusula 5.1
-5.1.3 Nivel de aseguramiento
-5.1.4 Objetivos
-5.1.5 riterios
-5.1.6 Alcance
-5.1.7 Umbrales de materialidad
-A.8.2.3.1. El OV / V tendrá un sistema de gestión documentado (según la Cláusula 12) para responder a las solicitudes de validación y / o verificación. Los procedimientos OV / V garantizarán que, antes de cualquier cotización o acuerdo, se obtenga información suficiente sobre el alcance, el objetivo, los criterios, el nivel de seguridad y la importancia relativa de la validación o verificación. La cotización se elaborará sobre la base de la información obtenida teniendo en cuenta las cuestiones clave aplicables a la declaración de GEI y los objetivos de la validación o verificación compatibles con los criterios de validación o verificación (véase A.1.1) y el usuario previsto según corresponda A la declaración de GEI.
-A.8.2.3.2. Al considerar la cotización para la validación o verificación de una afirmación de GEI, el OV / V considera las cuestiones clave relacionadas con el desarrollo de una cotización, según corresponda, incluyendo:
-. nivel propuesto de aseguramiento, materialidad, criterios, objetivos y alcance;
-. Complejidad de la declaración de GEI;
-. La complejidad del proyecto o de la organización y sus procesos de medición / monitoreo;
-. entorno organizacional incluyendo la estructura de la organización que desarrolla y gestiona la declaración de GEI;
-. Escenario de referencia para la validación y verificación de proyectos, incluyendo la selección y cuantificación de las fuentes de GEI, sumideros y depósitos aplicables al escenario de referencia;
-. Identificadas GEI fuentes, sumideros y depósitos, y su seguimiento para la verificación organización;
-. Los procesos que proporcionan la información y los datos en la declaración de GEI;
-. Enlaces organizacionales e interacciones entre las partes interesadas, responsables, cliente, y destinados a los usuarios (por definición, se refieren a la norma ISO 14064-3); y
-. Los criterios de validación o verificación (referencia a A.1.1) requisitos.
-A.8.2.3.3. El OV / V determinará el tiempo necesario para llevar a cabo la validación o verificación. La asignación de tiempo se justificará basándose en la revisión de la información anterior y se registrará en la OV / V. Cada compromiso tiene aspectos únicos y el proceso de validación o verificación debe ser personalizado en consecuencia.
-A.8.2.3.4. En los casos en que la cotización / acuerdo OV / V se refiera a un proyecto agrupado, el OV / V considerará adicionalmente la logística y la planificación relacionadas con la validación o verificación de cada uno de los proyectos aportados a la declaración individual de GEI del proyecto agrupado y su impacto Sobre la duración de la validación o verificación.
-A.8.2.3.5. El OV / V debe tener en cuenta la información del Anexo B al determinar los requisitos de tiempo para la validación o verificación de una declaración de GEI relacionada con un proyecto agrupado.
-A.8.2.3.6. En los casos en que la cotización del cuerpo de verificación se refiere a una declaración de GEI, que se basa en un inventario de GEI que incluye varios datos de nivel de instalaciones e insumos de información, el órgano de verificación deberá considerar adicionalmente la logística y la planificación relacionadas con la verificación Y los datos combinados de las instalaciones y la información relacionada con la declaración de GEI, y su impacto en la duración de la verificación.
-A.8.2.3.7. El OV / V debe tener en cuenta la información del Anexo B al determinar los requisitos de tiempo para la verificación de una única declaración de GEI, que incluye una serie de datos de nivel e insumos de información de instalaciones.
-A.8.2.3.8. El acuerdo OV / V (incluyendo cualquier programa o anexo) deberá identificar el nivel de aseguramiento, materialidad, criterios, objetivos y alcance propuesto, incluyendo los criterios de validación o verificación acordados (ver A.1.1.) Según corresponda, La duración de validación o verificación propuesta y el plazo para la validación o verificación propuesta.
-Nota - El término "acuerdo" y "contrato" en la norma ISO 14065, Cláusula 8.2.3 tiene el mismo significado.
-8.2.4. Nombramiento del Líder del Equipo
-8.3. Enfoque
-8.3.1. Selección del equipo de validación o verificación
-8.3.2. Comunicarse con el cliente y la parte responsable
-8.3.3. Planificación
-ISO 14064-3 Cláusula 4.4. Enfoque de validación o verificación
-4.4.1. General
-4.4.2. Plan de validación o verificación
-4.4.3. Plan de muestreo
-Nota ECA: Para criterios de evaluación que consideren la Norma ISO 14064-3:2018 considerar la Cláusula 6.1
-6.1.1 Análisis estratégico
-6.1.2 Evaluación de riesgo
-6.1.5 Plan de verificación
-6.1.6 Plan de recopilación de la evidencia
-6.1.7 Aprobación de los planes de verificación y de recopilación de evidencias
-A.8.3.3.1. Los criterios de validación o verificación acordados incluirán una de las opciones de A.1.1.
-A.8.3.3.2. Los principios de los criterios acordados para la validación o verificación se utilizarán durante el proceso de validación o verificación. Los criterios de validación y verificación deberán cumplir los requisitos establecidos en A.1.1.
-A.8.3.3.3. El OV / V y el equipo de validación o verificación utilizarán los principios aplicables a los criterios de validación o verificación acordados (véase A.1.1.) Para guiar el proceso de validación o verificación, incluida la evaluación de los resultados, conclusiones, Opiniones y decisiones sobre la declaración de GEI.
-A.8.3.3.4. Para la validación de proyectos, los objetivos de validación incluirán si se puede esperar razonablemente que el proyecto planificado logre las mejoras de reducción y / o remociones demandadas.
-A.8.3.3.5. Cuando los criterios de verificación incluyen ISO 14064-1, donde un informe de GEI es opcional y si el cliente elige emitir un informe público de GEI que se verifique, el OV / V confirmará que el informe de GEI cumple con los requisitos aplicables para un informe de GEI (Referencia Cláusula 7.2 y 7.3 de la norma ISO 14064-1).
-NOTA ECA: Cuando los criterios de verificación incluyen ISO 14064-1:2018, donde un informe de GEI es opcional y si el cliente elige emitir un informe público de GEI que se verifique, el OV / V confirmará que el informe de GEI cumple con los requisitos aplicables para un informe de GEI (Referencia Cláusula 9.3 de la norma ISO 14064-1)
-A.8.3.3.6. Cuando el criterio de verificación incluya la norma ISO 14064-1, el organismo de verificación deberá asegurar que si la organización hace pública una declaración de GEI afirmando que cumple con ISO 14064-1, la organización pondrá a disposición del público un informe GEI preparado de acuerdo con la ISO 14064- 1 o una declaración independiente de verificación de terceros relacionada con la declaración de GEI. Si la declaración de GEI de la organización se ha verificado de forma independiente, la declaración de verificación se pondrá a disposición de los usuarios previstos.
-A.8.3.3.7. Cuando el criterio de validación incluya la norma ISO 14064-2, la revisión de una declaración de GEI y la información de su proyecto de GEI asociada incluirá la validación de la justificación del cliente para "seleccionar o establecer los criterios y procedimientos" relacionados con las Cláusulas 5.3, 5.4, 5,6, 5,7, 5,8 y 5,10 de la norma ISO 14064-2.
-NOTA ECA: Cuando el criterio de validación incluya la norma ISO 14064-2:2018, la revisión de una declaración de GEI y la información de su proyecto de GEI asociada incluirá los requisitos relacionados con las Cláusula 6.13 de la norma ISO 14064-2.
-A.8.3.3.8. Cuando los criterios de validación (véase A.1.1.) Permiten al proponente del proyecto o al cliente seleccionar o establecer criterios o procedimientos relacionados con la determinación de los escenarios de referencia, fuentes de GEI, sumideros o depósitos, procesos de monitoreo, etc. 14064-2 para una indicación de áreas), la validación incluirá una evaluación de la justificación del participante del proyecto o del cliente para la selección de criterios o procedimientos.
-A.8.3.3.9. El desarrollo del enfoque de validación y verificación se basará en los criterios, alcance, objetivos, nivel de seguridad y materialidad acordados; No sólo la validación citada o la duración de la verificación. La duración de validación o verificación se incrementará o disminuirá según sea necesario a lo largo del proceso de planificación. Las competencias del equipo serán revisadas como resultado del resultado del proceso de planificación.
-A.8.3.3.10.El OV / V obtendrá suficiente información utilizando un proceso sistemático, interactivo, y cuando sea necesario, iterativo para ingresar al proceso de planificación.
-A.8.3.3.11.El OV / V revisará los resultados del proceso de planificación a la luz de las pruebas e información recopilada durante el proceso de validación o verificación y modificará los planes en consecuencia.
-A.8.3.3.12.Los resultados del análisis estratégico se utilizarán como aportación a la evaluación de riesgos, plan de muestreo y plan de validación o verificación.
-Nota 1 - La evaluación de riesgos tiene en cuenta el nivel de aseguramiento, materialidad, criterios, alcance y objetivo de la validación o verificación; Los cambios en éstos afectarán la profundidad y detalle de la evaluación de riesgos.
-Nota 2 - Consulte el Anexo B para cuestiones que deben considerarse en el desarrollo del plan de validación o verificación para una declaración de GEI, sea sobre un proyecto agrupado o que incluye más de una instalación en el inventario de GEI.
-A.8.3.3.13.El OV/V garantizará que las jornadas de trabajo planificadas sean apropiadas para cumplir con el plan de muestreo y el plan de validación o verificación elaborado como resultado del análisis estratégico y la evaluación de los riesgos.
-A.8.3.3.14.El OV / V se asegurará de que se resuelva cualquier conflicto entre los días- hombre citados y los días-hombre necesarios para entregar el compromiso, sobre la base del resultado del análisis estratégico y la evaluación de los riesgos.
-A.8.3.3.15.El OV / V revisará el plan de validación o verificación y el plan de muestreo donde el OV / V ha identificado o acordado cambios con el cliente relacionados con los criterios de validación o verificación, el alcance, la materialidad, el nivel de seguridad o los objetivos. La conclusión del análisis estratégico y / o la evaluación de riesgos.
-A.8.3.3.16.Los datos específicos y la información a muestrear se determinarán como parte de la planificación de la validación o de la verificación y no en un impulso del momento durante la validación o verificación de datos e información. El plan de muestreo se detallará y documentará antes del inicio de la validación o verificación de datos e información y se revisará cuando sea necesario durante la validación o verificación. El desarrollo del plan de muestreo determinará la cantidad de información, pruebas y datos necesarios para alcanzar el alcance, los criterios, los objetivos, el nivel de seguridad y la materialidad acordados.
-A.8.3.3.17.Al aprobar el plan de validación o verificación, el líder del equipo de validación o verificación deberá asegurarse de que está completo y de que todos los sub elementos del plan prevean un proceso completo de validación o verificación coherente con los criterios, el alcance, los objetivos y el nivel de Aseguramiento y materialidad del compromiso.
-A.8.3.3.18.Al aprobar el plan de validación o verificación, el líder del equipo de validación o verificación debe confirmar que la duración de validación o verificación, las competencias del equipo y las asignaciones de los miembros del equipo son adecuadas y se ajustan a las necesidades de la validación o verificación.
-A.8.3.3.19.El equipo de validación y verificación garantizará la coherencia entre el plan de validación o verificación y los objetivos, alcance, criterios, nivel de seguridad y materialidad convenidos contractualmente. La documentación de validación o verificación deberá identificar claramente cualquier variación aprobada del acuerdo.
-A.8.3.3.20.El Anexo C puede utilizarse para explicar y apoyar los procesos y sistemas de validación o verificación.
-8.4. Validación o Verificación
+C.1.6 Los sectores establecidos para el PPCN 2.0 se encuentran definidos en el ECA-MC- C10-F01, según el anexo 2 del PPCN 2.0. El ECA se reserva a modificar o aclarar estos sectores.
 ISO 14064-3 Cláusulas:
 4.5. Evaluación del sistema de información sobre GEI y sus controles
 4.6. Evaluación de datos e información sobre GEI
@@ -229,297 +53,9 @@ NOTA ECA: Para la aplicación como criterio de evaluación la Norma ISO 14064.3:
 6.1.3.6 licación de actividades y técnicas de verificación seleccionadas
 6.3.1.4 Evaluación de la conformidad con los criterios 6.3.1.2Evaluación de la suficiencia e idoneidad de la evidencia
 6.3.1.3 Evaluación de las declaraciones erróneas materiales
-A.8.4.1. La validación o verificación se llevará a cabo con una actitud de escepticismo profesional, que asume que la información y los datos presentados pueden estar equivocados hasta que se demuestre de manera diferente y tener en cuenta las preocupaciones pertinentes de los interesados o del mercado y los criterios de validación o verificación aplicables y los principios asociados.
-A.8.4.2. El organismo de verificación revisará cualquier cambio en el proyecto de GEI o la estructura de la organización, el plan de proyecto de GEI o el inventario de GEI desde la última verificación. Para la verificación de proyectos de GEI, el organismo de verificación deberá considerar adicionalmente:
-. Asuntos pendientes de informe de validación;
-. El estado de la ejecución del proyecto; y
-. La fiabilidad de la información externa y los datos utilizados para justificar la determinación de las emisiones de GEI.
-A.8.4.3. La verificación de una declaración de GEI de un proyecto incluye, además de la verificación de una aseveración de GEI de una organización:
-. Revisión del informe de validación para el proyecto;
-. Verificación de cualquier cambio en el plan de proyecto de GEI incluyendo:
-. Los gases de efecto invernadero identificadas las fuentes, sumideros y depósitos;
-. Escenario de referencia;
-. Selección y cuantificación de las fuentes de GEI, sumideros y depósitos aplicables al escenario de referencia; y
-. Seguimiento del proyecto de GEI.
-. Verificación de cualquier cambio en la justificación de "selección o establecimiento de los criterios y procedimientos" se hace referencia en A.8.3.3.7 y A.8.3.3.8 y su aplicación; y
-. Verificación de cualquier cambio de los enlaces de la organización y de las interacciones entre las partes interesadas, parte responsable (promotor del proyecto en algún programa GEI), cliente, y destinados a los usuarios; (Para las definiciones se refieren a ISO 14064-3).
-A.8.4.4. El nivel de mitigación de riesgos proporcionado por los sistemas y controles de información sobre GEI impactará el detalle y nivel de muestreo de validación o verificación.
-Nota - ISO 14064-3 no imponer un requisito formal en una organización o proyecto para contar con sistemas de información de GEI o controles, o por el sistema de información de GEI o los controles según normas ISO 14064-3, Cláusula 4.5.
-Nota ECA- ISO 14064-3:2018 no imponer un requisito formal en una organización o proyecto para contar con sistemas de información de GEI o controles, o por el sistema de información de GEI o los controles según normas ISO 14064-3, Cláusula 6.1.3.3
-A.8.4.5. Cuando los criterios de validación o verificación (véase A.1.1.) Impongan requisitos relacionados con los sistemas o controles de información sobre GEI, la conformidad con estos requisitos deberá ser validada o verificada.
-A.8.4.6. En los casos en que se identifiquen errores, omisiones o declaraciones erróneas en los datos e información sobre GEI, el equipo de validación y verificación deberá exigir que éstos sean corregidos por el cliente y aumentar el muestreo. En caso de que no se puedan corregir los errores, las omisiones o las declaraciones equivocadas no materiales, el OV / V calificará la declaración de validación o verificación. Cuando las declaraciones no pueden ser calificadas, por ejemplo, la materialidad u otros requisitos del programa no se cumplen, el OV / V emitirá una declaración adversa de validación o verificación.
-Nota - Para obtener una comprensión de lo que la calificación de una declaración de validación y verificación significa véase la norma ISO 14064-3, A.2.9.2.
-A.8.4.7. La evaluación de los datos y la información sobre los GEI incluye la confirmación de la operatividad del software y de los hardware utilizados para procesar o generar los datos e información sobre GEI.
-Nota - Se debe considerar a los controles de este hardware y el software que incluye temas tales como la validación de software, en su caso, copia de seguridad de los datos, la calibración del equipo de vigilancia, la fiabilidad de los datos externos, etc.
-A.8.4.8. El OV / V considerará las definiciones aplicables en los criterios de validación o verificación acordados (véase A.1.1) al determinar si una declaración de GEI cumple con los criterios de validación o verificación.
-A.8.4.9. La contribución a la evaluación de la declaración de GEI deberá incluir:
-. Los requerimientos contractuales relacionados con el alcance, los criterios, objetivos, nivel de seguridad y materialidad, así como los criterios de validación o verificación (consulte A.1.1) requisitos específicos;
-. declaración de GEI;
-. La salida del análisis estratégico y la evaluación de riesgos;
-. La producción de la evaluación del sistema de información y controles de GEI;
-. La producción de la evaluación de los datos e información de GEI; y
-. La producción de la evaluación de los criterios de validación o verificación.
-A.8.4.10. Al evaluar el riesgo de discrepancias materiales relacionadas con la afirmación de GEI, el OV / V deberá considerar:
-. Puntos de vista de Vistas de sus posibles usuarios;
-. Pertinencia y la contribución relativa de las diferentes emisiones de GEI de todas las fuentes de GEI, sumideros y depósitos;
-. Adecuación del sistema de información y controles de GEI;
-. La complejidad de las operaciones de la organización o del proyecto de GEI;
-. Proceso de seguimiento aplicable al proyecto de GEI u organización; y
-. Las evidencias pertinentes de validaciones o verificaciones anteriores, según sea aplicable.
-A.8.4.11. El resultado de la evaluación de la declaración de GEI confirmará que:
-. Los datos recogidos es suficiente para validar o verificar la declaración de GEI de acuerdo con el ámbito de aplicación, criterios, objetivos, importancia relativa y grado de garantía según lo acordado en el contrato;
-. El proceso de validación y verificación, como se lleva a cabo, ha entregado el nivel de garantía conforme a lo acordado;
-. Toma de muestras y los resultados de su apoyo, o no, una conclusión que no existen discrepancias materiales en la declaración de GEI;
-. La declaración de GEI está libre de material de discrepancia sobre la base de las pruebas y los resultados del proceso de validación o verificación y el alcance acordado, objetivos, criterios, la importancia relativa y grado de garantía. Si la evidencia y los hallazgos no son suficientes para llegar a esta conclusión entonces; ya sea:
-. El nivel de garantía y / o importancia de la participación se modifica; o
-. Uno de los siguientes tipos de opinión se pueden formar:
-. "desfavorable";
-. "calificado";
-. "una abstención de opinión".
-Nota 1 - Para el apoyo en el desarrollo de una declaración de validación o verificación "calificado" y "negativo", se refieren a la norma ISO 14064-3, A.2.9.2 y A.2.9.3.
-Nota 2 - declaraciones de validación o verificación "calificados" o "negativos" no deben confundirse con la terminología asociada con el nivel de aseguramiento limitado o nivel razonable de seguridad; Consulte la norma ISO 14064-3, A.2.3.2.
-A.8.4.12. El equipo de validación o verificación presentará a la OV / V, pruebas y hallazgos para fundamentar y apoyar sus recomendaciones relacionadas con la declaración de GEI (la declaración V / V propuesta). Las pruebas y conclusiones deberán vincularse al plan de validación o de verificación y al plan de muestreo acordados, y ser suficientes para que la OV / V lleve a cabo una revisión independiente eficaz (véase ISO 14065, cláusula 8.5).
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 9.6.
-A.8.4.14. El equipo de validación o verificación deberá asegurarse de que todas las discrepancias materiales se informan al cliente, incluyendo la explicación de su impacto potencial en la declaración de validación o verificación.
-C 1.7 Criterio de ECA: Cuando el OV/V valida o verifica información proveniente de equipos de medición de los datos de actividad o de medición directa de GEI, debe asegurar que el equipo esté calibrado y que haya sido calibrado por un laboratorio acreditado. Igualmente, en el caso de que la empresa haya contratado un laboratorio para la medición de GEI, éste debe estar acreditado.
-8.5. Revisión y Emisión de la Declaración de Validación o Verificación ISO 14064-3, Cláusula 4.9 Declaración de validación y verificación
-NOTA ECA: Para la aplicación como criterio de evaluación la Norma ISO 14064.3:2018 deben
-considerarse el apartado 6.3.2 Conclusión y redacción de opinión.
-A.8.5.1. Para concluir (consulte la norma ISO 14065, cláusula 8.5), el revisor independiente tendrá en cuenta las pruebas resultantes de lo siguiente:
-. Si la validación o verificación del plan, el plan de muestreo y el proceso de validación o verificación y sus conclusiones y opiniones expresadas son consistentes con el acuerdo relacionado con el nivel de aseguramiento, materialidad, criterios, objetivos y alcance;
-. Los resultados del análisis estratégico y la evaluación de riesgos;
-. Si el diseño del proceso de validación y verificación y sus conclusiones y opiniones expresadas son consistentes con los requisitos en el contrato;
-. Los cambios en el plan de validación o verificación o el plan de muestreo;
-. La conclusión alcanzada en los datos e información de GEI; y
-. La recomendación relacionada con la declaración de GEI.
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 9.7.2.
-A.8.5.2. El revisor independiente determinará si la declaración de validación o verificación es coherente con los resultados de las actividades de validación o verificación y que sus conclusiones y opiniones establecidas son coherentes con los resultados de la validación o verificación y que no se ha omitido nada material.
-A.8.5.3. El revisor independiente determinará si la declaración de validación o verificación cumple los requisitos establecidos en los criterios de validación o verificación establecidos en los criterios de validación o verificación (véase A.1.1.). En los casos en que no exista ningún requisito de verificación o validación establecido en los criterios de validación o verificación, la declaración de validación o verificación deberá cumplir con la norma ISO 14064-3, Cláusula 4.9.
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14064-3:2018 véase cláusula 6.3.2
-A.8.5.4. Una declaración de validación y / o verificación acreditada relacionada con una afirmación de GEI que no incluya datos de emisiones de GEI cuantificados relacionados con una organización o un proyecto de GEI sólo se emitirá si:
-. Hay un acuerdo legal entre el OV / V y el cliente que cualquier nuevo reporte de GEI, el plan de proyecto de GEI o la declaración de GEI liberado por el cliente con posterioridad a la declaración inicial de validación o verificación está validado o verificado;
-. Para una organización, un informe de verificación de GEI (interna) según la norma ISO 14064-1, apartado 7.3, es parte del alcance de la verificación;
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14064-1:2018 véase cláusula 9.
-. ISO 14064-1 o ISO 14064-2 es parte de los criterios de validación o verificación y los requisitos no se reducen; y
-. La declaración de validación o verificación es clara acerca de lo que se ha validado o verificado y no utiliza el lenguaje asociado con los certificados de sistema de gestión o declaraciones de conformidad.
-A.8.5.5. La declaración de validación y verificación deberá:
-. Cumplir con la norma ISO 14064-3, Cláusula 4.9, excepto en los casos en que los requisitos regulados podrán hacer caso omiso;
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14064-3:2018 véase cláusula 6.3.2.
-. Sea consistente con el resultado de la revisión OV / V; y
-. Contener un dictamen de validación / verificación y la conclusión que refleja discrepancias materiales que permanecen después de la conclusión de la validación o verificación, y se publicará a la parte responsable.
-A.8.5.6. El nivel de garantía para los mercados no regulados puede variar a través de una validación o verificación, por lo que algunos datos o información se asegura a un nivel razonable de garantía y algunos datos o información se asegura a un nivel limitado de garantía. En este caso, la declaración de validación o verificación deberá identificar el nivel de seguridad aplicable relacionado con cada conclusión y cómo influye cada conclusión en el dictamen final.
-8.6. Archivos
-8.7. Hechos descubiertos después de la validación o verificación
-9. APELACIONES
-10. RECLAMACIONES
-11. VALIDACIONES ESPECIALES O VERIFICACIONES
-12. SISTEMA DE GESTIÓN
-A.12.1. El sistema de gestión debería estar suficientemente documentado para garantizar la aplicación coherente de estas normas y de los requisitos operativos pertinentes. Fin del Documento Obligatorio de la IAF para la Aplicación de la ISO 14065: 2013.
-Bibliografía (Omitir este apartado para procesos de evaluación bajo la norma 14065:2020)
-ISO 14064-1: 2006 Gases de efecto invernadero: Especificación con orientación a nivel de organización para la cuantificación y notificación de las emisiones y remociones de gases de efecto invernadero
-ISO 14064-2: 2006 Gases de efecto invernadero: Especificación con orientación, a nivel de proyecto para la cuantificación, seguimiento y notificación de las reducciones de emisiones de gases de invernadero o aumento de remociones VCS 2007 - Voluntary Carbon Standard - Especificación para la cuantificación a nivel de proyecto, el seguimiento y la presentación de informes, así como la validación y verificación de las reducciones de emisiones de gases de invernadero o absorciones. Publicado por el VCS Org 19 de noviembre de 2007, y está disponible en www.vcs.org
-ISO / IEC 17030: 2003 Evaluación de la conformidad - Requisitos generales para las marcas de terceros de conformidad.
-5. Anexo A - Criterios de competencia relacionados con la validación y verificación o proyectos u organizaciones - (Anexo Informativo)
-Los criterios genéricos para la Competencia
-Este anexo se dan orientaciones para aclarar los tres tipos diferentes de competencias basado en la norma ISO 14065 Cláusula 6 e ISO 14066 cláusula 5, relacionado con:
-. Validación del Proyecto
-. Verificación del proyecto
-. Verificación de la Organización
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 7 Requisitos relativos a los recursos.
-[imagen]
-relacionado con la competencia | | |
-| Validación del Proyecto | Verificación del proyecto | Verificación de la organización
-Relacionado con Apartado 6.3.2 Conocimiento del equipo de validación o verificación - conocimiento y habilidades sobre el programa GEI Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 7.3.5 | Conocimiento Un validador debe contar con el conocimiento aplicable sobre el programa GEI, incluyendo el conocimiento de: a) requisitos de elegibilidad (Nota: los requisitos de elegibilidad incluyen requisitos legales); b) implementación en diferentes jurisdicciones según aplique; c) límites permisibles del proyecto y proyectos que incluyan sectores de la industria y áreas de tecnología; d) restricciones asociadas con las instalaciones geográficas; e) requisitos y guías de validación; y f) alcance (ver ISO 14064- 3 A.2.3.7 para guía sobre el alcance) del asunto de emisiones de GEI para reportar. Habilidades Un validador debe contar con las habilidades aplicables al programa GEI, incluyendo la habilidad de: a) comprender los requisitos del programa GEI; b) comprender el proceso de validación y los asuntos específicamente relacionados con los proyectos, incluyendo, pero no limitado a; ? fuga; ? adicionalidad; ? línea base; y | Conocimiento Un verificador debe contar con el conocimiento aplicable sobre el programa GEI, incluyendo el conocimiento de: a) requisitos de elegibilidad (Nota: los requisitos de elegibilidad incluyen requisitos legales); b) procesos permisibles, sectores de la industria y áreas de tecnología; c) fuentes permisibles de GEI, vertederos y reducciones; d) límites geográficos; e) consecuencias de los cambios a los requisitos del programa de GEI cuando sean aplicables en diferentes economías; y f) requisitos específicos y guías del proyecto de verificación y del programa de verificación. Habilidades Un verificador debe contar con las habilidades aplicables al programa GEI, incluyendo la habilidad de: a) comprender los requisitos del programa GEI; b) comprender el proceso de verificación y los asuntos específicamente relacionados con los proyectos, incluyendo, pero no limitado a asuntos tales como: ? fuga; ? adicionalidad; ? línea base; y ? monitoreo y reporte. c) comprender el proceso de verificación y los asuntos específicamente relacionados | Conocimiento Un verificador debe contar con el conocimiento aplicable sobre el programa GEI, incluyendo el conocimiento de: a) requisitos de elegibilidad (Nota: los requisitos de elegibilidad incluyen requisitos legales); b) procesos permisibles, sectores de la industria y áreas de tecnología; c) fuentes permisibles de GEI, vertederos y reducciones; d) límites geográficos, alcance del asunto a reportar sobre las emisiones de GEI; e) consecuencias de los cambios a los requisitos del programa de GEI cuando sean aplicados en diferentes economías; y f) requisitos y guías específicas de la verificación de la organización y el programa. Habilidades Un verificador debe contar con las habilidades aplicables al programa GEI, incluyendo la habilidad de: a) comprender los requisitos del programa GEI; b) comprender el proceso de verificación y asuntos específicamente relacionados con los proyectos, incluyendo, pero no limitado a asuntos tales como: ? fuga; ? adicionalidad; ? línea base; y ? monitoreo y reporte. c) comprender el proceso de verificación y asuntos
-| ? monitoreo y reporte. Nota: Tomado de ISO 14064-3 c) comunicar de forma efectiva los asuntos relevantes a la validación en los idiomas adecuados que deberían incluir comúnmente: ? habilidad de explicar el proceso de validación; ? habilidad de hacer preguntas a los entrevistados en una forma que ellos puedan entender cuál es la respuesta requerida; ? habilidad para explicar los hallazgos del proceso de validación y sus consecuencias; ? habilidad para explicar el significado de los hallazgos; ? habilidad para redactar una declaración de validación según un análisis de los hallazgos de las actividades de validación incluyendo la comprensión del uso de los términos y el idioma adecuado para las declaraciones de validación. | con los proyectos, incluyendo, pero no limitado a asuntos tales como monitoreo, y -reporte; d) comunicar de forma efectiva los asuntos relevantes a la verificación en los idiomas adecuados que deberían incluir comúnmente: ? habilidad para explicar el proceso de verificación; ? habilidad para hacer las preguntas a los entrevistados en una forma que ellos puedan entender cuál es la respuesta requerida; ? habilidad para explicar los hallazgos del proceso de verificación y sus consecuencias; ? habilidad para explicar el significado de los hallazgos; ? habilidad para redactar una declaración según un análisis de los hallazgos de las actividades de verificación incluyendo la comprensión del uso de los términos y el idioma adecuado para las declaraciones de verificación. | específicamente relacionados con las entidades, incluyendo, pero no limitado a los asuntos tales como: ? monitoreo; y ? reporte. d) comunicar efectivamente sobre los asuntos relevantes a la verificación en los idiomas adecuados que deberían incluir comúnmente: ? habilidad de explicar el proceso de verificación; ? habilidad para hacer las preguntas a los entrevistados en una forma que ellos entiendan cuál es la respuesta requerida; ? habilidad de explicar los hallazgos del proceso de verificación y sus consecuencias; ? habilidad de explicar el significado de los hallazgos; ? habilidad de redactar la declaración de verificación según un análisis de los hallazgos de las actividades de verificación, que incluye la comprensión del uso de los términos y del idioma apropiados para las declaraciones de verificación.
-Apartado 6.3.3 Experiencia técnica del equipo de validación o verificación Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 7.3.6 | Conocimiento Un validador debe contar con el conocimiento técnico, incluye el conocimiento de: a) GEIs, potencial de calentamiento global, datos de la actividad y factores de emisión; y b) aplicación a un nivel de proyecto de lo siguiente: ? fuentes relevantes GEI, vertederos y embalses (SSRs, por sus siglas en inglés); ? metodologías de cuantificación, incluye la | Conocimiento Un verificador debe contar con conocimiento técnico de verificación del proyecto, lo que incluye el conocimiento de: a) GEIs, potencial de calentamiento global, datos de la actividad y factores de emisión; b) fuentes relevantes de GEI, vertederos y embalses (SSRs, por sus siglas en inglés); c) metodologías de cuantificación (incluye pero no se limita a la medición directa por medio de sondas, cálculos usando el línea base o los datos | Conocimiento Un verificador debe contar con el conocimiento técnico de verificación a nivel de organización, lo que incluye el conocimiento de: a) GEIs, potenciales de calentamiento global, datos de la actividad y factores de emisión; y b) la aplicación a un nivel organizacional de lo siguiente: ? fuentes relevantes de GEI, vertederos y embalses (SSRs, por sus siglas en inglés); ? materialidad; ? metodologías de cuantificación
-| cuantificación de los factores de emisión; ? técnicas de monitoreo; y ? factores clave que influencian la reducción en la emisión de GEI. Habilidades Un validador debe contar con las habilidades técnicas, incluyendo la habilidad de: a) identificar las fuentes de fuga relacionadas con un tipo de proyecto específico; b) identificar las líneas de fondo del proyecto y los SSRs (sources, sinks and reservoirs) de GEI asociados con una línea de fondo de un tipo específico de proyecto; c) identificar los SSRs de GEI para un tipo de proyecto específico; d) evaluar lo completo de una afirmación de GEI; e) evaluar el conservadurismo de una afirmación de GEI; f) evaluar si la afirmación de GEI cumple con los requisitos del programa de GEI; g) determinar qué es significativo en una afirmación de GEI y qué hay que revisar en una afirmación de GEI (riesgo según muestreo); h) identificar situaciones que puedan afectar la materialidad de la afirmación de GEI, incluyendo condiciones operativas típicas y atípicas; i) comprender contratos u otros acuerdos (incluyendo financieros) entre las partes | de ingreso, uso de factores de conversión, cálculos estequiométricos, metodologías de cálculo y el conservadurismo de estos enfoques); d) técnicas de monitoreo (incluye, pero no se limita a la correcta instalación y uso del equipo, procedimientos de calibración y las consecuencias para la la calidad de los datos, inspección del equipo de monitoreo, precisión, incertidumbre, interpretación del software de las afirmaciones de GEI); y e) factores clave que influencian las reducciones en la emisión de GEI. Habilidades Un verificador debe contar con las habilidades técnicas de verificación a nivel proyecto, incluyendo la habilidad de: a) identificar las fuentes de fuga relacionadas con un proyecto específico; b) identificar las líneas de fondo del proyecto y SSRs de GEI asociadas con una línea de fondo específica del proyecto; c) identificar los SSRs del proyecto GEI para un proyecto específico; d) evaluar lo completo de una afirmación de GEI; e) evaluar el conservadurismo de una afirmación de GEI; f) evaluar si la afirmación de GEI cumple con los requisitos del programa GEI; g) determinar lo significativo en una afirmación de GEI y lo que hay que revisar en una afirmación de GEI (riesgo según muestreo); h) identificar las situaciones que puedan afectar la materialidad | (incluye pero no se limita a la medición directa por medio de sondas, cálculos usando el línea base o los datos de ingreso, uso de factores de conversión, cálculos estequiométricos, metodologías de cálculo y el conservadurismo de estos enfoques); y ? técnicas de monitoreo (incluye, pero no se limita a la correcta instalación y uso de los procedimientos del equipo de calibración y las consecuencias para la calidad de los datos, inspección del equipo de monitoreo, precisión, incertidumbre, interpretación del software de las afirmaciones de GEI). Habilidades Un verificador debe contar con las habilidades técnicas de verificación a nivel de organización, incluyendo la habilidad de: a) identificar los SSRs de GEI de los diagramas de proceso, planos de tierra u otras fuentes de datos; b) identificar los SSRs de GEI de los datos organizacionales; c) evaluar lo completo de una afirmación de GEI; d) evaluar el conservadurismo de una afirmación de GEI; e) evaluar si la afirmación de GEI cumple con los requistos del programa GEI; f) determinar lo significativo en una afirmación de GEI y lo que hay que revisar en una afirmación de GEI (riesgo según muestreo); y g) comprender los contratos u otros acuerdos (incluyendo financieros) entre las partes para manejar posibles
-| asociadas con la validación para manejar los posibles conflictos sobre los límites del proyecto u otros asuntos que pudieran resultar en conteo/reclamos dobles relacionados con la propiedad; y j) Para ISO 14064-2, adicionalmente evaluar los criterios usados por el Partidario del Proyecto (tal como lo requiere ISO 14064-2) para: ? seleccionar, justificar y cuantificar el escenario de referencia, incluyendo los supuestos esenciales; ? determinar el conservadurismo del escenario de referencia; ? definir el escenario de referencia y límites del proyecto GEI; ? demostrar la equivalencia entre el tipo y nivel de actividades, bienes o servicios del escenario de referencia y proyecto GEI; ? demostrar que las actividades del proyecto GEI son adicionales a las actividades del escenario de referencia; ? demostrar conformidad, si es adecuado, con los requisitos del programa GEI tales como fuga y permanencia; y ? evaluar de forma crítica los escenarios de referencia del proyecto y monitorear la metodología tomando en cuenta las preocupaciones relevantes de la parte interesada. k) para evaluar el programa GEI aplicable del proyecto: | de la afirmación de GEI, incluyendo condiciones operativas típicas y atípicas; i) comprender los contratos u otros acuerdos (incluyendo financieros) entre las partes para manejar posibles conflictos sobre los límites del proyecto u otros asuntos que pudieran resultar en conteo/reclamos dobles relacionados con la propiedad; y j) Para ISO 14064-2, adicionalmente evaluar los criterios usados por el Partidario del Proyecto para: ? demostrar que las actividades del proyecto GEI son adicionales a las actividades del escenario de referencia; y ? demostrar conformidad, is es apropiado, con los requisitos del programa GEI, tales como fuga y permanencia. k) para evaluar el programa GEI aplicable del proyecto: ? las actividades son adicionales a las actividades del escenario de referencia; y ? fuga y permanencia. | conflictos sobre los límites del proyecto u otros asuntos que pudieran resultar en conteo/reclamos dobles relacionados con la propiedad.
-| ? escenario de referencia, incluyendo los supuestos esenciales; ? conservadurismo del escenario de referencia; ? escenario de referencia y límites del proyecto GEI; ? equivalencia entre el tipo y nivel de actividades, bienes o servicios del escenario de referencia y el proyecto GEI; ? actividades del proyecto GEI son adicionales a las actividades del escenario de referencia; ? fuga y permanencia; y ? escenarios base del proyecto y metodología de monitoreo tomando en cuenta las preocupaciones relevantes de la parte interesada. | |
-Apartado 6.3.4 - Experiencia en auditoría de los datos e información del equipo de validación o verificación Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 7.3.7 y 7.3.8 | Nota: para validación, información, suposiciones y declaraciones se necesita evaluar por relevancia, integridad, consistencia, fidelidad, transparencia y conservadurismo antes de evaluar los datos. Conocimiento Un validador debe contar con los datos e información para auditar el conocimiento, incluyendo el conocimiento de: a) metodologías para la auditoría de datos e información; b) metodologías para la evaluación de riesgos; c) sistemas de información sobre GEI; y d) sistemas de control interno. Habilidades Un validador debe contar con las habilidades para | Nota: para verificación, el enfoque tiende a ser los datos; sin embargo, los datos e información necesitan ser evaluados para la relevancia, integridad, consistencia, fidelidad, transparencia y conservadurismo. Conocimiento Un verificador debe contar con los datos e información para auditar el conocimiento, incluyendo el conocimiento de: a) metodologías para la auditoría de datos e información; b) metodologías para la evaluación de riesgos según aplique para el muestreo de la verificación de datos e información; c) técnicas para el muestreo de datos e información; y d) sistemas de información de GEI. Habilidades | Nota: para verificación, el enfoque tiende a ser los datos; sin embargo, los datos e información necesitan ser evaluados para la relevancia, integridad, consistencia, fidelidad, transparencia y conservadurismo. Conocimiento Un verificador debe contar con el conocimiento para la auditoría de datos e información, incluyendo el conocimiento sobre: a) metodologías para la auditoría de datos e información; b) metodologías para la evaluación de riesgos, según aplique para el muestreo de datos e información; c) técnicas para el muestreo de datos e información; y d) sistemas de información GEI. Habilidades Un verificador debe contar con las habilidades para auditar los
-| auditar datos e información, incluyendo la habilidad de: a) determinar lo que no sea significativo (datos e información) y debería ser probado (análisis estratégico); b) identificar y determinar la forma de probar los asuntos significativos (evaluación de riesgos); c) desarrollar un plan de muestreo de datos e información según la evaluación de riesgos estratégicos; d) idear el plan de muestreo de datos e información según los hallazgos de las actividades de validación; e) llevar a cabo el plan de muestreo de datos e información, lo que incluye: ? utilizar los procesos de auditorías para identificar la información, las declaraciones y los hechos que contradigan la afirmación de GEI; ? suposiciones exigentes y declaraciones en la afirmación de GEI. f) determinar la acción correctiva y su impacto sobre la evaluación de datos e información; g) llevar a cabo y modificar según sea apropiado una evaluación de riesgos estratégica y desarrollar planes adecuados para los datos e información basados en el nivel de aseguramiento, materialidad y criterios de validación, objetivo y alcance; sin dejar de lado los requisitos del programa de GEI; | Un verificador debe contar con las habilidades para auditar los datos e información, incluyendo la habilidad de: a) identificar la efectividad inicial del sistema de control como un insumo para la evaluación de riesgos estratégicos; b) determinar los datos e información significativos y debería ser probado (análisis estratégico); c) identificar y determinar la forma de probar los asuntos significativos (evaluación de riesgos); d) desarrollar un plan de muestreo de datos e información según la evaluación de riesgos estratégicos; e) revisar el plan de muestreo de datos e información según los hallazgos de las actividades de verificación; f) llevar a cabo el plan de muestreo de datos e información, incluyendo: ? administrar la recolección de datos compleja/interfaces de registro; ? procesos para la manipulación de datos y sus exigencias; ? identificar los problemas reales del sistema de datos y las fallas; y tomar la acción apropiada (ej. incrementando el plan de muestreo de datos e información y reportando la posibles no conformidades y discrepancias materiales); ? utilizar procesos de auditoría para identificar la información, declaraciones y hechos que contradigan la afirmación de GEI; y | datos e información, incluye la habilidad de: a) identificar la efectividad inicial del sistema de control como un insumo para la evaluación de riesgos estratégicos; b) determinar los datos e información que sean significativos y debería ser probado (análisis estratégico); c) identificar y determinar la forma de probar los asuntos significativos (evaluación de riesgos); d) desarrollar un plan de muestreo de datos e información basado en la evaluación de riesgos estratégicos; e) revisar el plan de muestreo de datos e información según los hallazgos de las actividades de verificación; f) llevar a cabo el plan de muestreo de datos e información, incluyendo: ? administrar la recolección de datos compleja/interfaces de registro; ? procesos de manipulación de datos y sus exigencias; ? identificar los problemas reales del sistema de datos y las fallas; y tomar las acciones apropiadas (ej., incrementando el plan de muestreo de datos e información y reportando las posibles no conformidades y discrepancias materiales); ? utilizar procesos de auditoría para identificar la información, declaraciones y hechos que contradigan la afirmación de GEI; y ? suposiciones y declaraciones exigentes en la afirmación de GEI. g) determinar la acción correctiva y su impacto sobre la
-| h) tomar decisiones sobre los datos e información reportados según los hallazgos de la evaluación de datos e información; i) recopilar la evidencia apropiada e información para apoyar las decisiones; y j) evaluar el impacto del flujo de datos sobre la materialidad de la afirmación de GEI. | ? suposiciones y declaranciones exigentes en la afirmación de GEI. g) determinar la acción correctiva y su impacto sobre la evaluación de datos e información; h) llevar a cabo y modificar, según sea apropiado, una evaluación de riesgos estratégicos y desarrollar los planes de muestreo de datos e información según el nivel de aseguramiento, materialidad y criterios de verificación, objetivo y alcance, sin dejar de lado los requisitos del programa GEI; i) tomar decisiones sobre los datos e información reportados sobre los hallazgos de la evaluación de los datos e información; j) recopilar la evidencia e información apropiada para apoyar las decisiones; y k) evaluación del sistema de información de GEI para determinar si el proyecto defensor u organización ha identificado, recolectado, analizado y reportado de forma efectiva sobre los datos necesarios para establecer una afirmación creíble de GEI y que ha tomado de forma sistemática las acciones correctivas para atender las no conformidades relacionadas a los requisitos del programa o normas relevantes de GEI. | evaluación de datos e información; h) llevar a cabo y modificar, según sea apropiado, una evaluación de riesgos estratégicos y desarrollar los planes de muestreo de información según el nivel de aseguramiento, materialidad y criterios de verificación, objetivos y alcance, sin dejar de lado los requisitos del programa GEI; i) tomar las decisiones sobre los datos e información según los hallazgos de la evaluación de datos e información; j) recopilar la evidencia e información apropiada para apoyar las decisiones; y k) evaluar el sistema de información de GEI para determinar si el proyecto defensor u organización ha identificado, recolectado, analizado y reportado de forma efectiva los datos necesarios para establecer una afirmación creíble de GEI y que ha tomado de forma sistemática las acciones correctivas para atender las no conformidades relacionadas a los requisitos del programa o normas relevantes de GEI.
-Apartado 6.3.5 Competencias específicas del equipo de validación del proyecto de GEI Nota ECA: Para evaluaciones con criterio de evaluación de la | Conocimiento Un validador debe contar con el conocimiento sobre la validación específica del proyecto, incluyendo el conocimiento de: a) conceptos a nivel de proyecto tales como ? conservadurismo; | |
-Norma 14065:2020 omítase este apartado | ? equivalencia; ? adicionalidad; ? fuga; y ? permanencia. b) procesos comunes y/o metodologías para: ? seleccionar las líneas base; ? establecer los límites del proyecto de GEI: y ? evaluar la adicionalidad. Habilidades Un validador debe contar con las habilidades para la validación específica del proyecto, que incluyen la habilidad de: a) evaluar la aplicación efectiva de procesos, procedimientos y/o metodologías para la selección de la línea base; b) revisión de la selección de la línea base e identificar los errores y/u omisiones; c) evaluar el conservadurismo de las líneas base; d) revisar los límites del proyecto seleccionado e identificar errores y/u omisiones; e) evaluar el proyecto y las comparaciones del escenario de la línea base; f) aplicar el conocimiento industrial para evaluar el proyecto y los escenarios de la línea base; y g) evaluar los requisitos de adicionalidad. |
-Apartado 6.3.6 Competencias específicas del equipo de verificación del proyecto de GEI Nota ECA: Para | Conocimiento Un verificador debe contar con el conocimiento para la verificación del proyecto, incluyendo el conocimiento sobre: |
-evaluaciones con criterio de evaluación de la Norma 14065:2020 omítase este apartado | | a) la aplicación de los conceptos del siguiente nivel de proyecto: ? conservadurismo; ? equivalencia; ? adicionalidad; ? fuga; y ? permanencia. b) procesos comunes, procedimientos y/o metodologías para la comparación de los planes de proyecto con los resultados reales. Habilidades Un verificador debe contar con las habilidades para la verificación del proyecto, incluyendo la habilidad de: a) realizar comparaciones sobre los resultados proyectados contra los reales; b) identificar las discrepancias entre un plan de proyecto de GEI y la implementación del proyecto real (incluye líneas base, límites del proyecto, adicionalidad y planes de monitoreo); c) tomar la acción apropiada según la evaluación antes mencionada; y d) aplicar el pensamiento crítico para evaluar un proyecto de GEI validado. |
-Apartado 6.3.7 Competencias específicas del líder del equipo de validación o verificación Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase cláusula 7.3.9 | Conocimiento Un líder del equipo debe contar con suficiente conocimiento de validación, lo que incluye: a) el alcance, los criterios, el objetivo, la materialidad y el nivel de aseguramiento del trabajo; b) las competencias de los miembros del equipo; y c) los riesgos relacionados con la validación - según | Conocimiento Un líder del equipo debe contar con el conocimiento suficiente sobre verificación, que incluye: a) el alcance, los criterios, el objetivo, la materialidad y el nivel de aseguramiento del trabajo; b) las competencias de los miembros del equipo; y c) los riesgos relacionados a la verificación - según sea aplicable para el compromiso. | Conocimiento Un líder del equipo debe contar con suficiente conocimiento sobre verificación, que incluye: a) el alcance, los criterios, los objetivos, la materialidad y el nivel de aseguramiento del trabajo; b) las competencias de los miembros del equipo, y c) los riesgos relacionados con la verificación - según sea aplicable para el compromiso.
-| sea aplicable para el compromiso. Habilidades Un líder del equipo debe contar con la suficientes habilidades de validación, incluyendo: a) nombrar los miembros del equipo según su competencia y alcance, criterios, objectivo, materialidad y nivel de aseguramiento del trabajo; b) evaluar las competencias del validador durante la ejecución de las actividades de validación y complementar al equipo con las competencias requeridas; c) comprender la terminología e idioma apropiado para GEI; d) evaluar el riesgo asociado con la información faltante; e) aplicar el pensamiento crítico y la comprensión del riesgo asociado con la evaluación; f) comprender los objetivos de aseguramiento y su impacto en el nombramiento de los miembros del equipo y el rigor necesario para el aseguramiento; g) cuestionar los hallazgos de los miembros del equipo; y h) dirigir el desarrollo de la declaración. | Habilidades Un líder de equipo debe contar con suficientes habilidades de verificación, que incluye: a) nombrar a los miembros del equipo según su competencia y el alcance, los criterios, los objetivos, la materialidad y el nivel de aseguramiento del trabajo; b) evaluar las competencias del verificador durante la ejecución de las actividades de verificación y para complementar al equipo con las competencias requeridas; c) comprender la terminología e idioma apropiado para GEI; d) evaluar el riesgo asociado con la información faltante; e) aplicar el pensamiento crítico y comprender el riesgo asociado con la evaluación; f) comprender los objetivos de aseguramiento y su impacto sobre el nombramiento de los miembros del equipo y el rigor necesario para el aseguramiento; g) cuestionar los hallazgos de los miembros del equipo; y h) dirigir el desarrollo de la declaración. | Habilidades Un líder del equipo debe contar con suficientes habilidades de verificación, que incluye: a) nombrar a los miembros del equipo según su competencia y alcance, criterios, objetivo, materialidad y nivel de aseguramiento del trabajo; b) evaluar las competencias del verificador durante la ejecución de las actividades de verificación y para complementar el equipo con las competencias requeridas; c) comprender la terminología e idioma apropiado para GEI; d) evaluar el riesgo asociado con la información faltante; e) aplicar el pensamiento crítico y comprender el riesgo asociado con la evaluación; f) comprender los objetivos de seguridad y su impacto sobre el nombramiento de los miembros del equipo y el rigor necesario para el aseguramiento; g) cuestionar los hallazgos de los miembros del equipo; y h) dirigir el desarrollo de la declaración.
-6. Anexo B - Concepto de Planificación en caso de que una declaración de GEI se refiere a un proyecto agrupado o una declaración de GEI esté relacionado con varias instalaciones en un Inventario de GEI de la organización (Anexo Informativo)
-Nota 1 - Toma de muestras relacionadas con proyectos agrupados o inventarios de GEI de las organizaciones no es la misma que la toma de muestras de varios sitios en la certificación de sistemas de gestión y, por tanto, el muestreo no está determinado por el enfoque de "raíz cuadrada".
-Nota 2 - Esta es una parte fundamental en la validación o verificación de planificación y como se gana experiencia adicional documento obligatorio (s) o guía (s) se puede escribir.
-Nota 3 - El muestreo de entre una serie de planes de GEI del proyecto o afirmaciones de GEI, o una mezcla de los mismos, no es admisible como que no se define como un proyecto agrupado o una sola declaración de GEI.
-Nota 4 - La decisión sobre el número de proyectos a la muestra como parte de una declaración de GEI relacionada con un proyecto agrupado o cuántas instalaciones para visitar como parte de la declaración de GEI de una organización se determina en la etapa de validación y planificación de verificación (se refiere a la norma ISO 14065, cláusula 8.3.3) después de completar el análisis estratégico y la evaluación de riesgos y acuerdo del ámbito de aplicación, criterios, objetivos, nivel de seguridad y materialidad.
-Nota ECA: Para evaluaciones con criterio de evaluación de la Norma 14065:2020 véase clausula 9.4.1.
-Nota 5 - Toma de muestras sólo se considerará si está permitido por el programa de GEI.
-Validación o verificación de una declaración de GEI que cubre un proyecto agrupado Para determinar cuáles de los proyectos a la muestra (en el caso anterior) se tienen en cuenta:
-. nivel acordado de aseguramiento, materialidad, criterios, objetivos y alcance;
-. Complejidad de la declaración de GEI y el plan de proyecto de GEI;
-. La complejidad de los proyectos dentro del grupo y de sus variaciones y sus procesos de medición / monitoreo;
-. La salida de la primera evaluación del sistema de información y controles de GEI;
-. entorno organizacional incluyendo la estructura de la organización que desarrolla y gestiona la declaración de GEI;
-. Escenario de referencia para la validación y verificación de proyectos, incluyendo la selección y cuantificación de las fuentes de GEI, sumideros y depósitos aplicables al escenario de referencia (esto incorpora el concepto de metodología);
-. La variación en la hipótesis de referencia entre los proyectos en el haz;
-. Identificadas GEI fuentes, sumideros y depósitos, y su seguimiento;
-. vínculos de organización y de las interacciones entre las partes interesadas, responsables, cliente, y destinados a los usuarios; (para la definición referirse a la norma ISO 14064-3); y
-. los requisitos del programa de GEI.
-Para la verificación del proyecto, además de la consideración anterior, las variaciones en el sistema de información de GEI del proyecto agrupado y control a nivel de proyecto individual se considera la hora de determinar qué proyectos de muestra.
-Verificación de una declaración de GEI que cubre varias instalaciones en el inventario de GEI de una organización
-Al determinar qué instalaciones de la muestra (en el caso anterior) se tienen en cuenta:
-. nivel acordado de aseguramiento, materialidad, criterios, objetivos y alcance;
-. Complejidad de la declaración de GEI y el inventario de gases de efecto invernadero;
-. La complejidad de las instalaciones dentro del inventario de GEI y las variaciones en los sistemas de información de GEI de las instalaciones y el control a nivel de centros y procesos de medición / monitoreos asociados;
-. La salida de la primera evaluación de la totalidad del inventario de GEI, sistema de información y controles de GEI, y su enlace, y una visión general del sistema de información de las instalaciones de nivel y controles de GEI;
-. entorno organizacional incluyendo la estructura de la organización que desarrolla y gestiona la declaración de GEI;
-. Proceso que selecciona y cuantifica los gases de efecto invernadero fuentes, sumideros y reservorios aplicables al inventario de GEI;
-. La variación en el proceso que selecciona y cuantifica los gases de efecto invernadero fuentes, sumideros y reservorios aplicables a diversas instalaciones dentro del inventario de GEI;
-. reales identificados GEI fuentes, sumideros y depósitos, y su seguimiento;
-. vínculos de organización y de las interacciones entre las partes interesadas, responsables, cliente, y destinados a los usuarios; (para la definición referirse a la norma ISO 14064-3); y
-. requisito del programa de GEI.
-Anexo C - ayuda relacionada con validación o verificación de una declaración de GEI con referencia a la norma ISO 14064-3 (Anexo Informativo) (Omitir la aplicación de este apartado para evaluación bajo la versión 14065:2020)
-Nota 1 - Este anexo es informativo y no contiene "requisitos se aplicarán". El texto informativo en el presente anexo no es un "requisito deberá". Sin embargo, el texto en muchos lugares se asocia con los requisitos establecidos en la norma ISO 14064-3. ISO 14064-3 es una referencia normativa a este documento obligatorio IAF. Texto explicativo en el presente anexo no se va a usar para elevar las no conformidades. Si se identifica una no conformidad se debe hacer referencia a un requisito de la norma ISO 14064-3.
-Nota 2 - Tomado de Introducción 0.2 Para ayudar a la comprensión y facilitar la lectura a través de los dos estándares normativos, la cláusula 8, así como el Anexo C de este documento obligatorio une los títulos de cláusulas relevantes de la norma ISO 14065 con títulos de cláusulas relevantes de la norma ISO 14064-3. Los títulos de la cláusula de la norma ISO 14064-3 están en el texto azul y precedidas por la referencia ISO 14064-3. El proceso para la validación y verificación es diferente de sistemas de gestión de auditoría, así como que exista un enfoque diferente entre validación y verificación. Consiguientemente, el anexo C se ha desarrollado para proporcionar una guía informativa en relación con este proceso. En el Anexo C, títulos de las cláusulas de la norma ISO 14064-3 se han utilizado para permitir la comprensión de cómo la guía de aplicación interactúa con las referencias normativas. Una vez más, los encabezamientos de título se incluyen, pero sin orientación aplicación en la que se consideró necesaria ninguna.
-Nota 3 - El texto de este documento no debe ser tomado como una interpretación de las normas ISO 14065 o ISO 14064-3.
-Sección 1 - ayuda relacionada con Validación de una declaración de GEI con un plan de proyecto de GEI (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-ISO 14064-3, Cláusula 4.4.1, el general
-El análisis estratégico de un proyecto incluye como entradas:
-. nivel acordado de aseguramiento, materialidad, criterios, objetivos y alcance;
-. declaración de GEI con el plan de proyecto de GEI;
-. La complejidad del proyecto y de sus procesos de medición / monitoreo, indicando si se trata de un proyecto agrupado;
-. Identificadas GEI fuentes, sumideros y depósitos, escenario de referencia, selección y cuantificación de las fuentes de GEI, sumideros y depósitos aplicables al escenario de referencia, el seguimiento del proyecto de GEI;
-. Proceso / sistema que proporciona la información y los datos en el plan de proyecto de GEI y la declaración de GEI;
-. vínculos de organización y de las interacciones entre las partes interesadas, los responsables (promotor del proyecto en algunos programas de GEI), dispositivos cliente, y destinados a los usuarios (por definiciones se refieren a la norma ISO 14064-3);
-. entorno organizacional incluyendo la estructura de la organización que desarrolla y gestiona el proyecto de GEI; y
-. justificación de cliente para la "selección o establecimiento de los criterios y procedimientos" (A.8.3.3.7 y A.8.3.3.8 referencia).
-Nota - Se proporciona orientación adicional en la norma ISO 14064-3, Anexo A, secciones A.2.4.2 - A.2.4.4.
-Las entradas a la evaluación de riesgos incluyen:
-. La salida del análisis estratégico;
-. La comprensión de cómo validar los problemas asociados con la "selección o establecimiento de los criterios y procedimientos" (A.8.3.3.7 y A.8.3.3.8 referencia);
-. La salida de la evaluación del sistema de información de GEI del proyecto y controles; y
-. La fiabilidad de la información externa y los datos utilizados para justificar los gases de efecto invernadero identificadas las fuentes, sumideros y depósitos, escenario de base, selección y cuantificación de las fuentes de GEI, sumideros y depósitos aplicables al escenario de referencia, y el seguimiento del proyecto de GEI.
-Nota - Los ejemplos de riesgos en la validación incluyen, pero no se limitan a:
-. Los riesgos inherentes derivados de:
-proceso asignado para la selección o establecimiento de los criterios y procedimientos relativos a las cláusulas 5.3, 5.4, 5.5, 5.6, 5.7, 5.8 y 5.10 de la norma ISO 14064-2 siendo deficiente; GEI fuentes, sumideros y depósitos de no ser completamente identificados; Y / o Información o datos en la declaración de GEI y el plan de proyecto de GEI que contiene discrepancias materiales.
-. Controlar los riesgos derivados de:
-El proceso de proyecto para la selección o establecimiento de los criterios y procedimientos no están aplicando correctamente; Proceso del proyecto para la identificación de los gases de efecto invernadero fuentes, sumideros y depósitos no están aplicando correctamente; y / o Proceso del proyecto para el desarrollo del plan de proyecto de GEI y de declaración de GEI no controlar adecuadamente el riesgo.
-. Riesgos derivados de detección:
-Falla del validador para identificar que la justificación del proyecto para la selección o establecimiento de los criterios y procedimientos no es completa, y no cumple con los criterios de validación aplicables (A.1.1) se refiere a los principios; Y / o
-Falla del equipo validador identificar errores, omisiones, inexactitudes en la declaración de GEI y el plan de proyecto de GEI.
-ISO 14064-3, Cláusula 4.4.2, Plan de Validación (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-Además de los requisitos de la norma ISO 14064-3, Cláusula 4.4.2, entrada al plan de validación incluye la salida del análisis estratégico, evaluación de riesgos y el plan de muestreo. Esto incluye el muestreo de la información o los datos que se utilizará para validar la declaración de GEI y el plan de proyecto de GEI.
-Para determinar el plan de validación, la interdependencia y las consecuencias de la siguiente se tienen en cuenta:
-. Duración de la garantía - garantía razonable requerirá una validación más en profundidad incluyendo la recolección de la evidencia y la información de apoyo a un nivel detallado para apoyar la conclusión. Aseguramiento limitado puede contener más de un proceso de información general y no requiere el detalle y la profundidad de los procesos de validación, en comparación con una seguridad razonable.
-Nota - ISO 14064-3, Anexo A.2.3.2 proporciona una explicación más detallada del nivel de garantía y sus consecuencias para la validación. Validación objetivo - lo que incluye, como mínimo, la validación de la probabilidad de que la ejecución del proyecto de GEI prevista dará lugar a la reducción de emisiones de GEI o aumento de remociones como se ha dicho o reclamados por la parte responsable.
-Nota - ISO 14064-3, Anexo A.2.3.3 proporciona una explicación más detallada de los objetivos de la validación.
-. Criterios de validación - esto afecta a la planificación de la validación en términos de lo que mirar, así como el detalle y la profundidad de las actividades de validación. Los criterios de validación están vinculados a las futuras predicciones de emisiones de GEI y la ejecución del proyecto.
-Nota - ISO 14064-3, Anexo A.2.3.6 proporciona una explicación más detallada de los criterios de validación.
-. Alcance Validación - esto incluye, como mínimo, el proyecto de GEI aplicable, incluyendo la adecuación de sus límites y de la complejidad del proyecto, indicando si se trata de un proyecto agrupado, su ubicación, límites, etc.
-Nota - ISO 14064-3, Anexo A.2.3.7, proporciona una explicación más detallada del alcance de validación.
-. Materialidad - La expectativa de los usuarios previstos o los criterios de validación de requisitos afectan a la materialidad. Cuanto mayor sea la expectativa o requisitos que una declaración de GEI está libre de errores materiales, omisiones o errores, es necesario el muestreo más detallado y en profundidad de validación (tanto de información y datos).
-Nota 1 - el nivel de seguridad general dicta la profundidad de la muestra / prueba e importancia relativa del tamaño / detalle de muestreo (de datos e información.)
-Nota 2 - ISO 14064-3, Anexo A.2.3.8, proporciona una explicación más detallada de la materialidad. Específicamente - El objetivo de cualquier validación de una declaración de GEI es permitir que el organismo de validación de expresar una opinión sobre si la declaración de GEI es, en todos los aspectos materiales, bastante declarado de acuerdo con la intención de los criterios de validación acordados, (referencia A .1.1). La evaluación de la materialidad es una cuestión de criterio profesional. El concepto de importancia relativa reconoce que algunas cuestiones, ya sea individualmente o en forma agregada, son importantes si la declaración de GEI de la parte responsable ha de ser presentados razonablemente de acuerdo con criterios de validación acordados. La determinación de la materialidad implica tanto cualitativos como cuantitativas consideraciones.
-Como resultado de la interacción de estas consideraciones, las discrepancias de cantidades relativamente pequeñas pueden tener un efecto significativo en la declaración de GEI.
-. Las actividades de validación y horarios - recursos disponibles del cliente, logística y tiempo suficiente para la comunicación eficaz de los equipos, incluyendo entrega de validación de información de seguimiento / pruebas para permitir que otro miembro del equipo para el seguimiento de todas las cuestiones afectan el plan de validación.
-ISO 14064-3, Cláusula 4.4.3, Plan de Muestreo (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-ISO 14064-3, Cláusula 4.5, Evaluación del Sistema de Información de GEI y sus controles (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-La revisión inicial de los sistemas de información y controles de GEI proporciona una entrada a la evaluación de riesgos y, por lo tanto, el plan de validación y el plan de muestreo.
-Nota - ISO 14064-3, Anexo A, A 2.5.1.1, A.2.5.1.2, A.2.5.1.3 y A.2.5.2 proporciona
-ejemplos de sistema de información y controles de GEI.
-La evaluación detallada del sistema de información y controles de GEI confirma o rechaza la revisión inicial del sistema de información y controles de GEI, mediante la confirmación de que el sistema y los controles están en su lugar, y que los riesgos se gestionan adecuadamente. En los casos en que la revisión inicial del sistema de información y controles de GEI no se demuestran con la evaluación detallada, la evaluación de riesgos es revisada y modificada en caso necesario. Esto incluye la revisión y modificación del plan de validación y el plan de muestreo, según corresponda.
-Si los criterios de validación imponen requisitos sobre el proyecto de GEI relacionadas con el sistema de información de GEI y controles, y estos son parte de la certificación (a) existente sistema de gestión acreditado (s), la validación y el cuerpo se asegura que éstos cumplan con los requisitos relacionados con el sistema de información de GEI y sus controles.
-ISO 14064-3, Cláusula 4.6, Evaluación de gases de efecto invernadero de Datos e Información (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-La validación de los datos y la información sobre los GEI se lleva a cabo de acuerdo con el plan de validación y el plan de muestreo
-Nota - ISO 14064-3, Anexo A.2.6, proporciona ejemplos de cómo llevar a cabo esta evaluación.
-El resultado de esta evaluación proporciona:
-. La evidencia y los hallazgos que actúan como entrada a la norma ISO 14064- 3, las cláusulas 4.7 y 4.8;
-. Racional de modificación de plan de muestreo y el plan de validación basada en los hallazgos y evidencias;
-. Entrada a las conclusiones potenciales en la declaración de validación. ISO 14064- 3, apartado 4.7, criterios de evaluación contra de validación Nota - ISO 14064-3, Anexo A.2.7, proporciona el marco para esta valoración El resultado de esta evaluación proporciona:
-. Evidencia y decisión sobre la conformidad con los criterios de validación (consulte A.1.1);
-. La evidencia y los hallazgos que actúan como entrada a la norma ISO 14064- 3, Cláusula 4.8;
-. Racional para la modificación de los hallazgos y evidencias plan de muestreo y validación basados plan;
-. Entrada a las posibles conclusiones y opiniones en la declaración de validación;
-. Evidencia y decisión sobre la adhesión a los principios enunciados en los criterios de validación (A.1.1 referencia); y
-. Las pruebas y la decisión de la elegibilidad del proyecto o la declaración de GEI de la organización para participar en un programa de GEI específico si este programa de GEI es parte de los criterios de validación.
-ISO 14064-3, Cláusula 4.8, la evaluación de la declaración de GEI (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-Nota - ISO 14064-3, anexo A2.8, proporciona el marco para esta evaluación. El equipo de validación asegura que todas las cuestiones pendientes se resuelvan antes de llegar a conclusiones y la formación de opiniones.
-El equipo de validación de entrada al proceso de revisión independiente organismo de validación incluye una recomendación al organismo de validación en relación con la declaración de GEI.
-ISO 14064-3, Cláusula 4.9, declaración de validación (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-En los casos en que el organismo de validación utiliza una carta a la administración para comunicar problemas no críticos a los clientes, el organismo de validación asegura que:
-. cuestiones comunicadas son consistentes con la definición de los problemas no críticos;
-. cuestiones comunicadas son consistentes con los hallazgos; y
-. problemas no críticos no afectarían la conclusión y opinión en la declaración de validación y de ahí el usuario previsto.
-Sección 2 - Ayuda relaciona con la verificación ya sea de un proyecto de GEI o una declaración de GEI de una organización (Omitir la aplicación de este apartado para evaluación bajo la versión 14064-3:2018)
-ISO 14064-3, Cláusula 4.4.1, el general
-Verificación de una declaración de GEI puede ser ya sea para un proyecto de declaración de GEI, o una declaración de GEI de la organización. Los procesos de verificación son los mismos, pero el detalle y el enfoque cambia dependiendo del alcance, criterios, objetivos, nivel de seguridad y materialidad.
-El análisis estratégico de una declaración de GEI incluye como entradas:
-. nivel acordado de aseguramiento, materialidad, criterios, objetivos y alcance;
-. declaración de GEI;
-. La complejidad del proyecto / organización y sus procesos de medición / monitoreo;
-. Identificadas GEI fuentes, sumideros y depósitos y su seguimiento;
-. Proceso que entrega la información y los datos en la declaración de GEI;
-. vínculos de organización y de las interacciones entre las partes interesadas, parte responsable, dispositivos cliente, y destinados a los usuarios ; (definiciones se refieren a la norma ISO 14064-3); y
-. entorno organizacional incluyendo la estructura de la organización que desarrolla y gestiona la declaración de GEI de la organización del proyecto o.
-Nota - Anexo A de la norma ISO 14064-3, Cláusula A.2.4.2 - 4, proporciona orientación adicional.
-Las entradas a la evaluación de riesgos incluyen:
-. La salida del análisis estratégico; y
-. La producción de la evaluación del proyecto o de la organización del sistema y los controles de información de GEI.
-Nota - Los ejemplos de riesgos en la verificación incluyen, pero no se limitan a:
-. Los riesgos inherentes derivados de:
-o Implementación de proceso asignada para la selección o establecimiento de los criterios y procedimientos contemplados en A.8.3.3.6 y A.8.3.3.7 es defectuoso;
-o Fuentes de GEI, sumideros y depósitos no están completamente identificados;
-o La información o los datos en las discrepancias materiales que contienen la declaración de GEI.
-. El riesgo de control procedentes de:
-o procesos pertinentes, según determine en los criterios de verificación se hace referencia en A.1.1. no ha sido aplicada correctamente;
-o sistemas de información de GEI y controles que no gestionan los datos y la información de una manera para reducir el riesgo de discrepancias materiales.
-. El riesgo de detección procedentes de:
-o El equipo de verificación no identificar errores, omisiones e inexactitudes en la declaración de GEI.
-El resultado del análisis estratégico y la evaluación de riesgos son insumos para el plan de verificación.
-ISO 14064-3, Cláusula 4.4.2, Plan de Verificación
-Los insumos para el plan de verificación incluyen los requisitos de la norma ISO , Cláusula 4.4.2, y el resultado del análisis estratégico y la evaluación de riesgos y el plan de muestreo desarrollado (esto incluye el muestreo de las pruebas sea el de la información o datos para verificar el de declaración de GEI).
-Para determinar el plan de verificación, la interdependencia y las consecuencias de la siguiente se tienen en cuenta:
-. Nivel de aseguramiento - seguridad razonable requerirá una verificación más exhaustiva que incluya la recopilación de pruebas y la información de apoyo a un nivel detallado para apoyar la conclusión. El aseguramiento limitado puede ser más que un proceso de revisión general y no requiere el detalle ni la profundidad de los procesos de verificación al igual que una seguridad razonable.
-Nota - El Anexo A.2.3.2 de ISO 14064-3, proporciona una explicación más detallada del nivel de aseguramiento y sus consecuencias para la evaluación.
-. Objetivo de verificación
-Nota - ISO 14064-3, Anexo A.2.3.4 para proyectos y A.2.3.5 organización proporciona mayor explicación de los objetivos de la verificación.
-. Criterios de Verificación - Esto afecta a la planificación de la verificación en términos de lo que mirar, así como el detalle de las actividades de verificación.
-Nota - ISO 14064-3, Anexo A.2.3.6 proporciona una explicación más detallada de los criterios de verificación.
-. Verificación del Alcance - se relaciona con el proyecto aplicable o declaración de GEI de la organización. Para los proyectos, la complejidad del proyecto, así como si se trata de un proyecto agrupado, su ubicación, límites, proceso de seguimiento e informar etc. afectan el detalle y tiempo para la verificación. Para las organizaciones, la complejidad del inventario de GEI, el número de instalaciones, asuntos de límites etc. afectan al detalle y el tiempo necesario para la verificación.
-Nota - ISO 14064-3, Anexo A.2.3.7, proporciona una explicación más detallada del alcance de verificación.
-. La materialidad - (A.1.1.) Las expectativas de los usuarios previstos o los requisitos de los criterios de verificación. (ver A.1.1). Cuanto mayor sea la expectativa o requisitos que una declaración de GEI está libre de errores materiales, omisiones o inexactitudes, más detallado será el muestreo de verificación (tanto de información y datos).
-Nota 1 - Convencionalmente, el nivel de seguridad determina la profundidad de la muestra / prueba e importancia relativa del tamaño / detalle de muestreo (de datos e información).
-Nota 2 - ISO 14064-3, Anexo A.2.3.8 proporciona una explicación más detallada de la materialidad. Específicamente - El objetivo de cualquier verificación de una declaración de GEI es permitir que el organismo de verificación de expresar una opinión sobre si la declaración de GEI es, en todos los aspectos materiales, bastante establecidos de conformidad con la intención de los criterios de verificación aplicables (consulte A .1.1). La evaluación de la materialidad es una cuestión de criterio profesional. El concepto de importancia relativa reconoce que algunas cuestiones, ya sea individualmente o en forma agregada, son importantes si la declaración de GEI de la parte responsable ha de ser presentados razonablemente de acuerdo con los criterios de verificación (ver A.1.1). La determinación de la materialidad implica tanto cualitativos como cuantitativas consideraciones. Como resultado de la interacción de estas consideraciones, las discrepancias de cantidades relativamente pequeñas pueden tener un efecto significativo en la declaración de GEI.
-. Las actividades de verificación y horarios - Los recursos de clientes disponibles, la logística y el tiempo suficiente para la comunicación eficaz de los equipos, incluyendo la entrega del rastro de verificación de información / evidencia para permitir que otro miembro del equipo de seguimiento a los asuntos que afectan el plan de verificación.
-ISO 14064-3, Cláusula 4.4.3, Plan de Muestreo
-ISO 14064-3, Cláusula 4.5, Evaluación del Sistema de Información de gases de efecto invernadero y sus controles
-La revisión inicial de los sistemas de información de GEI y controles proporciona una entrada a la evaluación de riesgos y por lo tanto el plan de verificación y el plan de muestreo.
-Nota - ISO 14064-3, Anexo A 2.5.1.1, A.2.5.1.2, A.2.5.1.3 y A.2.5.2 proporciona ejemplos de sistema de información de GEI y controles.
-La evaluación detallada del sistema de información y controles de GEI confirma o rechaza la revisión inicial del sistema de información y controles de GEI, mediante la confirmación o de otra manera que el sistema de información de GEI y controles están en su lugar, y que los riesgos se gestionan adecuadamente. En los casos en que la revisión inicial del sistema de información y controles de GEI no esté justificada por la evaluación detallada, la evaluación de riesgos debe ser revisada y modificada en caso necesario. Esto incluye la revisión y modificación del plan de verificación y el plan de muestreo, según corresponda.
-Si los criterios de verificación imponen requisitos sobre el proyecto de GEI u organización relacionada con el sistema de información de GEI y controles, y estos son parte de la certificación (a) existente sistema de gestión acreditado (s), el órgano de control se asegura que éstos cumplan los requisitos relativos a la información sobre los GEI sistema y sus controles.
-ISO 14064-3, Cláusula 4.6, Evaluación de gases de efecto invernadero de Datos e Información
-La verificación de los datos y la información sobre los GEI se lleva a cabo de acuerdo con el plan de verificación y el plan de muestreo.
-El resultado de esta evaluación proporciona:
-. La evidencia y los hallazgos que actúan como entrada a la norma ISO 14064- 3, Cláusula 4.7 y 4.8;
-. Racional de modificación de plan de muestreo y plan de verificación basada en los hallazgos y evidencias; y
-. Entrada a las posibles conclusiones y opiniones en la declaración de verificación.
-Nota - ISO 14064-3, Anexo A.2.6, proporciona ejemplos sobre cómo llevar a cabo esta evluación.
-ISO 14064-3, apartado 4.7, criterios de evaluación Contra Verificación
-Nota - ISO 14064-3, Anexo A.2.7, proporciona el marco para esta evaluación:
-El resultado de esta evaluación proporciona:
-. Evidencia y decisión sobre la conformidad con los criterios de verificación (A.1.1 referencia);
-. La evidencia y los hallazgos que actúan como entrada a la norma ISO 14064- 3, Cláusula 4.8;
-. Racional para la modificación de los hallazgos y evidencias plan de muestreo y verificación basados plan;
-. Entrada a las posibles conclusiones y opiniones en la declaración de verificación;
-. Evidencia y decisión sobre la adhesión a los principios enunciados en los criterios de verificación (ver A.1.1); y
-. Las pruebas y la decisión de la elegibilidad del proyecto u organización de declaración de GEI para participar en el programa de GEI si esto es parte de los criterios de verificación.
-ISO 14064-3, Cláusula 4.8, la evaluación de la declaración de GEI
-Nota - ISO 14064-3, Anexo A.2.8, proporciona el marco para esta evaluación.
-El equipo de verificación asegura que las cuestiones pendientes se resuelvan antes de llegar a conclusiones y la formación de opiniones.
-El equipo de verificación de entrada para el proceso de revisión independiente organismo de verificación incluye una recomendación al órgano de verificación relacionados con la declaración de GEI.
-ISO 14064-3, Cláusula 4.9, y la Declaración de Verificación
-En los casos en que el órgano de control utiliza una carta a la administración para comunicar problemas no críticos para el cliente, el organismo de verificación asegura que:
-. cuestiones comunicadas son consistentes con la definición de los problemas no críticos;
-. cuestiones comunicadas son consistentes con los hallazgos; y
-. problemas no críticos no afectarían a la conclusión u opinión en la declaración de verificación, y por lo tanto el usuario previsto.
-7. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
+8.4 VALIDACIÓN O VERIFICACIÓN
+C.1.7 Criterio de ECA: Cuando el OV/V valida o verifica información proveniente de equipos de medición de los datos de actividad o de medición directa de GEI, debe asegurar que el equipo esté calibrado y que haya sido calibrado por un laboratorio acreditado. Igualmente, en el caso de que la empresa haya contratado un laboratorio para la medición de GEI, éste debe estar acreditado.
+4. CRITERIOS PARA LOS OV/V ACREDITADOS PARA VERIFICAR EL PPCN 2.0 DEL MINAE.
 C.1.9 El OV/V acreditado para verificar inventarios con el Programa País Carbono Neutralidad por definir, debe cumplir con todos los requisitos aplicables indicados en el documento Programa País Carbono Neutralidad 2.0- Categoría Organizacional que incluyen:
 · Apartado 5. Sistema de reconocimiento del PPCN 2.0
 · Apartado 6.2. Requisitos para el uso de símbolo.
@@ -536,8 +72,8 @@ C.1.9 El OV/V acreditado para verificar inventarios con el Programa País Carbon
 C.1.10. La línea base de procesos generales, descrita en el Anexo 2 del PPCN, determina conocimientos base que todo verificador debe poseer y por ende todo OVV debe incluir como parte de sus competencias. Además, se considera como un sector de clasificación de actividades y de evaluación de competencias para aquellos procesos de verificación en los que las fuentes de emisión relacionadas a la operación de la organización a verificar cumplen con las características descritas en el Anexo 2 del PPCN para línea base. Este se clasifica como un sector no crítico. En casos en los que este sea el único sector a solicitar por parte de un OVV, este podría ser sujeto a testificación.
 C.1.10 Para la aplicación de criterios de la Sub categoría de Centros Educativos, el OVV debe estas acreditado bajo el esquema del Programa País Carbono Neutralidad Organizacional y aplicar todos los requisitos específicos definidos para la Categoría Centros Educativos.
 C.1.11. Todo OVV acreditado bajo el esquema del Programa País Carbono Neutralidad Organizacional debe demostrar competencia para la aplicación de criterios de la Categoría Centros Educativos, ya que estos criterios se consideran parte la PPCN Organizacional.
-C.1.9. En referencia al apartado 10. Requisitos para la participación del OVV en el PPCN de la Categoría Centros Educativos del PPCN y normas aplicables, en el cual se indica: Los OVV deben contar con la acreditación aplicable para el alcance de verificación de inventarios de gases de efecto invernadero y carbono neutralidad, sin ser aplicable en este caso la acreditación por sectores. Se establece que, las competencias requeridas para esta sub categoría serán dependientes de las actividades que realice el centro educativo y el OVV debe haber demostrado competencia en los sectores involucrados, previamente ante el ECA de acuerdo con el ECA-MC-C10-F01 Matriz de competencias de los equipos verificadores (experto técnico y/o verificador) para el PPCN 2.0 DEL MINAE.
-8. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0
+C.1.12 En referencia al apartado 10. Requisitos para la participación del OVV en el PPCN de la Categoría Centros Educativos del PPCN y normas aplicables, en el cual se indica: Los OVV deben contar con la acreditación aplicable para el alcance de verificación de inventarios de gases de efecto invernadero y carbono neutralidad, sin ser aplicable en este caso la acreditación por sectores. Se establece que, las competencias requeridas para esta sub categoría serán dependientes de las actividades que realice el centro educativo y el OVV debe haber demostrado competencia en los sectores involucrados, previamente ante el ECA de acuerdo con el ECA-MC-C10-F01 Matriz de competencias de los equipos verificadores (experto técnico y/o verificador) para el PPCN 2.0 DEL MINAE.
+5. VERIFICACIÓN POR ENTES CON ALCANCES NO ACREDITADOS POR EL ECA EN EL PPCN 2.0
 Según lo indicado por la Dirección de Cambio Climático del MINAE en el punto 15.2 del PPCN se debe cumplir con lo siguiente:
 En el caso de que no exista OVV acreditado con el ECA en el subsector específico requerido por una organización determinada, se permitirá que un OVV acreditado (en uno o más subsectores) brinde el servicio, siempre y cuando cumpla con lo siguiente:
 a) La solicitud no esté relacionada con un subsector crítico, de acuerdo con la clasificación establecida por el ECA. Si se trata de un subsector crítico, el OVV debe contar con la acreditación correspondiente.
@@ -546,7 +82,7 @@ c) Gestione ante la DCC el reconocimiento del PPCN para las organizaciones que p
 d) Informe a la DCC sobre el proceso de ampliación de la acreditación y de las decisiones tomadas en el proceso. La DCC verificará que la información brindada sea precisa y cancelará el permiso en caso de que se encuentre información falsa.
 El OVV informará a la DCC cuando reciba la acreditación para el o los subsectores adicionales solicitados. La DCC procederá a actualizar en su página web (www.cambioclimaticocr.com) que el OVV se encuentra autorizado en el subsector específico para operar dentro del PPCN.
 En caso de que el ECA no otorgue la acreditación en el sector o subsectores adicionales solicitados y este acuerdo quede en firme, la DCC tomará las medidas necesarias, que incluirán como mínimo el retiro del permiso de uso de las marcas del PPCN a las organizaciones verificadas por el OVV en cuestión, en el subsector señalado.
-9. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA.
+6. ESQUEMA CORSIA (Plan de Compensación y Reducción de Carbono para la Aviación Internacional) DE LA OACI Y LA DIRECCIÓN DE AVIACIÓN CIVIL DE COSTA RICA.
 ECA está expandiendo su programa de acreditación INTE ISO 14065 para incorporar la acreditación para la verificación de las emisiones de la aviación de acuerdo con CORSIA, cuyo precursor es la OACI (Organismo de Aviación Civil Internacional). CORSIA es un esquema mundial de medidas voluntarias basadas en el mercado para abordar los aumentos anuales en las emisiones totales de CO2 de la aviación civil internacional.
 Los OV/ V interesados en la acreditación de este esquema estarán sujetos a la evaluación por parte de ECA de la siguientes normativas y documentos:
 1. Norma INTE/ISO 14065 en su versión vigente.
@@ -560,21 +96,171 @@ El dueño del esquema CORSIA es la OACI y es a través de la Dirección de Aviac
 Se tomará el siguiente enfoque para los OV/V que deseen estar acreditados para su verificación bajo el esquema CORSIA:
 a) Para los OV/V acreditados por ECA: los OV/V que deseen ampliar a CORSIA deben solicitar una ampliación al alcance mediante la presentación de la Solicitud de acreditación ECA-MP-P04-F16 Solicitud de OVV para CORSIA V01 junto a los anexos solicitados. Además, se requerirá una evaluación de la oficina y una testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. La evaluación debe confirmar que el organismo de verificación ha identificado los requisitos clave, ha brindado capacitación sobre los requisitos y cualquier cambio en su metodología de verificación, etc. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
 b) Los OV/V que actualmente no están acreditados: para INTE ISO 14065 deberán recibir una evaluación inicial completa según INTE ISO 14065, INTE ISO 14064-3, 14066:2011, ECA-MC-C10 y el esquema CORSIA, además testificación piloto (expediente simulado) para confirmar la competencia y los procesos del OV/V para esta actividad. Una vez el OV/V cuente con clientes activos se procede con lo indicado en el procedimiento ECA-MC-P11.
-10. ESQUEMA DE HUELLAS AMBIENTALES
+7. ESQUEMA DE HUELLAS AMBIENTALES
 Etiquetado Ambiental Tipo III:
 Dada la importancia de la descarbonización de la economía estipulada en el Plan Nacional de Descarbonización, el liderazgo de Costa Rica en temas ambientales, así como la necesidad de combatir el cambio climático y de desvincular el crecimiento económico de la degradación ambiental por medio de sistemas de producción y consumo más responsables y aumentar la eficiencia en el uso de recursos se han desarrollo directrices ministeriales, políticas y programas nacionales orientadas a reducir las emisiones de gases de efecto invernadero como el Programa País Carbono Neutralidad (PPCN 2.0) y el Programa Nacional de Etiquetado Ambiental y Energético que busca reducir los impactos ambientales de los productos y servicios.
 En este sentido, el MINAE como ente rector político en materia ambiental y energética, a través del anterior Acuerdo-006-2019-MINAE y nuevo Acuerdo-09-2022-MINAE se oficializa el Programa Nacional de Etiquetado Ambiental y Energético de Costa Rica y se crea el Comité Técnico de Etiquetado Ambiental.
 Para este esquema se evalúa al administrador del programa según los principios generales ISO 14025:2006(es) Etiquetas y declaraciones ambientales - Declaraciones ambientales tipo III - Principios y procedimientos.
-[imagen] [imagen] A continuación se describen los niveles de norma que deben evaluarse a los OVV para este esquema de etiquetado ambientales tipo III:
+A continuación se describen los niveles de norma que deben evaluarse a los OVV para este esquema de etiquetado ambientales tipo III:
 Nivel 3. | INTE-ISO 17029:2019. Evaluación de la conformidad - Principios generales y requisitos para los organismos de validación y verificación.
-Nivel 4. | INTE-ISO 14065:2021. Principios generales y requisitos para los organismos que validan y verifican la información ambiental INTE-ISO 14066:2013 Gases de efecto invernadero. Requisitos de competencia para los equipos de validación y verificación de gases de efecto invernadero (Aplica para todas las huellas). INTE-ISO 14064-3:2019. Gases de efecto invernadero. Parte 3: Especificación con orientación para la validación
-[imagen] | INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas tipo III. Principios y procedimientos. Reglas de categoría de producto (RCP) según la categoría de producto
+Nivel 4. | INTE-ISO 14065:2021. Principios generales y requisitos para los organismos que validan y verifican la información ambiental INTE-ISO 14066:2013 Gases de efecto invernadero. Requisitos de competencia para los equipos de validación y verificación de gases de efecto invernadero (Aplica para todas las huellas). INTE-ISO 14064-3:2019. Gases de efecto invernadero. Parte 3: Especificación con orientación para la validación INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas tipo III. Principios y procedimientos.
+| Reglas de categoría de producto (RCP) según la categoría de producto
 Nivel 5. | Para huella de carbono en producto le aplican las siguientes normas: ? INTE-ISO 14067: 2019. Gases de efecto invernadero - huella de carbono de productos - Requisitos y directrices para cuantificación. ? Reglas de categoría de producto (RCPs) según la categoría de producto Para huella de agua le aplican las siguientes normas ? INTE-ISO 14046: 2014. Gestión Ambiental - huella de agua - Principios, requisitos y directrices. ? Reglas de categoría de producto (RCPs) según la categoría de producto Para otras huellas ambientales o categorías de impacto ambiental le aplican las siguientes normas: ? Reglas de categoría de producto (RCPs) según la categoría de producto Para todo tipo de huella con declaración tipo III se debe confirmar competencia en: ? INTE-ISO 14040: 2007. Gestión Ambiental - Análisis de Ciclo de Vida - Principio y marco de referencia ? INTE-ISO 14044:2007/Emn 1:2018. Gestión Ambiental. Análisis de Ciclo de Vida. Requisitos y directrices.
-11. TRANSITORIO
-El apartado 4 de este documento que hace referencia al MD6 es únicamente aplicable a procesos de evaluación de OVV, acreditados con la versión INTE ISO 14065: 2015 incluye notas ECA las cuales deben considerarse para procesos de acreditación bajo la versión de Norma ISO 14065:2020 y pierde vigencia a partir del 1 de enero del 2022 para procesos de seguimiento y reevaluación y a partir de 30 de agosto para procesos de solicitud inicial.
-El apartado 7 de este documento, aplican a partir de 30 de agosto 2021, según lo indicado por la Gaceta N 91 que oficializa el Programa País para la Carbono Neutralidad 2.0 mediante Decreto N° 006-2021-MINAE.
-El plan de transición a este programa corresponde al ECA-MC-PT18 PROCESO DE TRANSICIÓN ESQUEMA OVV.
-12. [imagen] CONTROL DE CAMBIOS
-Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2023- 009
-Se agrega apartado 10 sobre el esquema de huellas ambientales para etiquetado tipo III.
+SEGUNDA PARTE: DOCUMENTO MANDATORIO IAF MD6:2023.
+Este documento es una traducción del MD 6 a partir de este apartado. Recordar que el documento en inglés es la versión oficial.
+INTRODUCCIÓN A LOS DOCUMENTOS OBLIGATORIOS DE LA IAF
+El término "debería" se utiliza en este documento para indicar los medios reconocidos para cumplir los requisitos de la norma. Un organismo de evaluación de la conformidad (OEC) puede cumplirlos de forma equivalente, siempre que pueda demostrárselo a un organismo de acreditación (OA).
+El término "deberá" se utiliza en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.
+Este documento es obligatorio para la aplicación coherente de la norma ISO 14065 para la validación y verificación. Todas las cláusulas de la norma ISO 14065 siguen siendo de aplicación y este documento no sustituye a ninguno de los requisitos de dicha norma.
+0 INTRODUCCIÓN
+ISO 14065: 2020 es una norma internacional que establece los requisitos para Organismos que realizan la validación o verificación de la información medioambiental usando ISO 14064-3 u otras normas o especificaciones pertinentes.
+La norma ISO14065 proporciona a los administradores, reguladores y acreditadores de programas de información medio ambiental, una base para evaluar y reconocer la competencia de los organismos de validación o verificación (OV / V). ISO 14065:2020 incorpora por referencia las cláusulas de ISO/IEC 17029. Como tal, ISO 14065:2020 requerirá la aplicación de ISO/IEC 17029:2019. ISO 14065:2020 añade requisitos que son relevantes para la validación y verificación de las declaraciones de información medioambiental. También incluye definiciones utilizadas en los compromisos de aseguramiento de la información medioambiental y, en algunos casos, redefine términos definidos en ISO/IEC 17029:2019.
+Las declaraciones emitidas por OV / V acreditado se utilizan en una serie de sistemas de información medioambiental, como los sistemas de divulgación y comercio de gases de efecto invernadero (GEI). Los usuarios de esta información valoran mucho la exactitud de las toneladas cuantificadas y notificadas de emisiones o absorciones equivalentes de CO2. Un ejemplo concreto es la notificación de las emisiones de GEI por parte de las organizaciones, ya sea con fines reglamentarios o como parte de la comunicación pública de información medioambiental de una organización. Otro ejemplo es el comercio de materias primas, en el que se compran y venden créditos de compensación de gases de efecto invernadero.
+La información medio ambiental incluye ahora otros temas además de las declaraciones de GEI. En la actualidad, la norma ISO 14065 reconoce dentro de su ámbito de aplicación las declaraciones relacionadas con la emisión de bonos verdes o la concesión de préstamos verdes. La norma ISO 14065 también reconoce como materia la información sobre las medidas climáticas adoptadas por las entidades financieras. Entre las normas y programas asociados a otras materias que se espera que hagan referencia a la norma ISO 14065 figuran la huella de agua y el etiquetado ambiental.
+La información medioambiental de carácter histórico puede verificarse. La información relacionada con valores proyectados o previstos se valida. La verificación proporciona una garantía razonable o limitada a los usuarios previstos de que la información comunicada es exacta. La validación proporciona una garantía limitada a los usuarios previstos de que existe una base razonable para la información proyectada o prevista. La confianza de los usuarios previstos en los datos de información medioambiental validados y verificados aumenta cuando los OV/V cumplen los requisitos de la norma ISO 14065.
+La verificación es un proceso en el que un organismo de verificación evalúa la capacidad de una organización, la declaración de GEI del producto o proyecto con respecto a los criterios de verificación definidos (por lo tanto, este proceso se ocupa de datos e información históricos). Para las normas ISO 14064-1, ISO 14067 e ISO 14064-2, la evaluación abordará tanto la conformidad con los criterios (es decir, definidos en la norma) como las actividades que establecerán que la declaración de GEI es exacta y fiable. Las actividades de verificación se basan en objetivos, alcance, nivel de garantía, materialidad y criterios acordados.
+La validación es un proceso en el que un organismo de validación evalúa el plan de proyecto de GEI de un proyecto con respecto a los criterios de validación definidos (este proceso, por lo tanto, se ocupa de la evaluación de los posibles resultados futuros). Desde la publicación de la norma ISO 14064-3:2019, la validación también se reconoce como la técnica adecuada para proporcionar una opinión sobre la información prevista o proyectada. Dicha información puede estar asociada con reducciones esperadas de emisiones de GEI asociadas con inventarios a nivel organizacional, así como a nivel de proyecto.
+En el ámbito del comercio de derechos de emisión, es imperativo que el OV/V sea consciente de las consecuencias de la doble contabilización, la doble reclamación y la doble emisión de registros cuando emita un dictamen de validación o verificación.
+La norma ISO 14064-3:2019 introdujo una técnica complementaria denominada Procedimientos de compromiso común (PCC) (PCC). Los PCC emplean técnicas de verificación, pero su ejecución no da lugar a la emisión de una opinión ni proporciona garantías a los usuarios previstos. Para las condiciones sobre el uso de PCC en la acreditación, véase la sección 9.2.
+Un encargo de validación o verificación es único para las declaraciones específicas de cada cliente emitidas en un momento dado.
+Este Documento Obligatorio proporciona una guía de aplicación adicional para permitir la armonización por parte de los miembros del IAF para la evaluación de OV/V frente a la norma ISO 14065:2020 y normas relacionadas. Se trata de un paso importante hacia el reconocimiento multilateral de la acreditación.
+Este documento se considerará obligatorio para la aplicación coherente de la norma ISO 14065. Los signatarios del MLA del IAF, y los solicitantes del estatus de signatario en dicho Acuerdo, evaluarán mutuamente la aplicación de la norma ISO 14065. Se espera que este documento obligatorio sea adoptado por los organismos de acreditación como parte de sus normas generales de acreditación. Se pretende que este documento sea también de utilidad para los propios OV/V
+1. ALCANCE
+Este documento es obligatorio para la aplicación coherente de la norma ISO 14065:2020 para la acreditación de organismos de validación o verificación (OV/VV) para la validación o verificación de información ambiental.
+Todas las cláusulas de la norma ISO 14065:2020 siguen siendo de aplicación y este documento no sustituye a ninguno de los requisitos de dichas normas.
+2. REFERENCIAS NORMATIVAS
+A efectos del presente documento, se aplican las referencias normativas que figuran en la norma ISO 14065 y las siguientes. Para las referencias fechadas, sólo se aplica la edición citada. Para las referencias sin fecha, se aplica la última edición del documento referenciado (incluidas las modificaciones).
+ISO 14065 Principios generales y requisitos para los organismos de validación y verificación de la información medioambiental
+ISO/IEC 17029 Evaluación de la conformidad - Principios generales y requisitos para los organismos de validación y verificación
+ISO 14064-3 Gases de efecto invernadero - Parte 3, Especificación con orientación para la verificación y validación de las declaraciones de gases de efecto invernadero.
+ISO 14066 Información medioambiental - Requisitos de competencia para los equipos de validación y verificación de la información medioambiental
+Nota - La bibliografía recoge las referencias a los documentos mencionados en este documento obligatorio que no son referencias normativas.
+3. TÉRMINOS Y DEFINICIONES
+A efectos del presente documento, se aplicarán los términos y definiciones que figuran en las normas ISO 14065, ISO 14064-3 y las siguientes.
+3.1. Evaluación de la materialidad: Revisión de una declaración de información medioambiental con el fin de identificar información potencialmente material (ISO 14064-3, 3.6.8).
+Nota: En las declaraciones sobre gases de efecto invernadero, la información material cuantitativa puede estar asociada a fuentes, sumideros o depósitos.
+4. PRINCIPIOS
+4.1.
+General
+No hay principios adicionales para ISO 14065.
+4.2. Principios del proceso de validación/verificación
+No hay principios adicionales para ISO 14065.
+4.3. Principios para los organismos de validación/verificación
+No hay principios adicionales para ISO 14065.
+4.4. Conservadurismo
+No hay principios adicionales para la norma ISO 14065. El principio de conservadurismo se aplica comúnmente a la selección de métodos de cuantificación o a la selección de una línea de base para proyectos cuando el informador tiene la latitud para elegir entre opciones.
+4.5. Escepticismo profesional
+No hay principios adicionales para ISO 14065.
+5. REQUISITOS GENERALES
+5.1. Entidad legal
+No hay requisitos adicionales para la norma ISO 14065.
+5.2. Responsabilidad de las declaraciones de validación / verificación
+No hay requisitos adicionales para la norma ISO 14065.
+5.3. Gestión de la imparcialidad
+No hay requisitos adicionales para la norma ISO 14065.
+5.4. Responsabilidad
+No hay requisitos adicionales para la norma ISO 14065.
+6. REQUISITOS ESTRUCTURALES
+6.1. Estructura organizativa y alta dirección
+No hay requisitos adicionales para la norma ISO 14065.
+6.2 Control Operacional
+No hay requisitos adicionales para la norma ISO 14065.
+7. REQUISITOS DE RECURSOS
+7.1. General
+No hay requisitos adicionales para la norma ISO 14065.
+7.2. Personal
+No hay requisitos adicionales para la norma ISO 14065.
+7.3. Proceso de gestión de la competencia del personal
+DM 7.3.1.
+El OV/V deberá demostrar cómo se ha evaluado la competencia del personal. Las personas que lleven a cabo la evaluación del personal deberán ser competentes.
+Nota: El evaluador puede ser externo o interno al OV/V.
+Subcontratación
+No hay requisitos adicionales para la norma ISO 14065.
+8. PROGRAMA DE VALIDACIÓN O VERIFICACIÓN
+DM 8.1.
+El OV/V establecerá un proceso de desarrollo para cada nuevo programa de validación o verificación de la información medioambiental en el que desee operar. Este proceso de desarrollo proporcionará resultados relacionados con lo siguiente:
+. Identificación de los usuarios previstos y de sus expectativas y requisitos aplicables al resultado de las actividades de validación o verificación.
+. Revisión y comprensión del alcance aplicable de la validación/verificación, incluidos los criterios aplicables.
+. Revisión y comprensión de los criterios aplicables para la validación o verificación.
+. Consideración de los riesgos estratégicos y empresariales de OV/V.
+. Identificación de los requisitos de competencia para el equipo de validación/verificación, los validadores o verificadores, los revisores independientes y el personal de apoyo, según corresponda a los criterios de cada validación o verificación.
+. Confirmación de que las disposiciones de validación o verificación propuestas pueden cumplir los requisitos del programa aplicable.
+. Herramientas necesarias para reunir pruebas durante la validación/verificación.
+Nota: Los elementos de los programas de validación y verificación figuran en la norma ISO/IEC 17029, anexo A.
+9. REQUISITOS DEL PROCESO
+9.1 General
+No hay requisitos adicionales para la norma ISO 14065.
+9.2 Pre-compromiso
+MD 9.2.1.
+El OV/V confirmará el tipo de encargo con el cliente o la parte responsable. Los tipos pueden ser de verificación, validación, Procedimientos de compromiso común (PCC) o compromiso mixto.
+MD 9.2.2. (ISO/IEC 17029)
+Las PCC se aplican cuando los usuarios previstos necesitan los resultados de las actividades de recopilación de pruebas de verificación, pero no necesitan la opinión del verificador. El OV/V sólo utilizará las PCC en el marco de la validación y verificación acreditadas en las siguientes condiciones:
+· Se aplican los requisitos de la norma ISO/IEC 17029.
+· Los Procedimientos de compromiso común (PCC) se han determinado de antemano y se acuerdan con el cliente o la parte responsable.
+· Se llevará a cabo una revisión independiente y la aprobación de la emisión del informe de conclusiones objetivas de acuerdo con los requisitos de la norma ISO/IEC 17029 (ref. cl. 9.6 y 9.7).
+· El informe de conclusiones objetivas de la V/VB describirá claramente las restricciones de uso y distribución del informe de conclusiones objetivas. El informe de constatación de los hechos sólo puede ser distribuido a la organización y a los usuarios previstos.
+· El informe de los resultados fácticos describe claramente los procedimientos realizados y los resultados fácticos resultantes de dichos procedimientos.
+Además, un programa puede especificar el uso de PCC en lugar de un compromiso de aseguramiento.
+Nota: La norma ISO 14064-3 exige "suficiencia de pruebas" para respaldar una declaración de GEI y establece que, en ausencia de información suficiente, no se procederá a la verificación/validación (5.4.2). La información suficiente para respaldar una declaración de información medioambiental puede no existir cuando las declaraciones incluyen información facilitada por terceros, como los proveedores. En tales casos, un OV/V y su cliente pueden acordar un tipo de compromiso mixto (5.1.2) que puede incluir el uso de PCC para declaraciones sobre las que el verificador carezca de capacidad para determinar la existencia de rastros de datos (6.1.3.2) o para comprender los sistemas de gestión de datos y los controles que generaron la información (6.1.3.3).
+La asignación de tiempo para el compromiso se justificará basándose en la revisión de la información proporcionada y registrada por el OV/V.
+Nota: El uso de la PCC es opcional para un OA.
+9.3. Compromiso
+MD 9.3.1. (ISO/IEC 17029)
+El OV/V se asegurará de que su acuerdo exija al cliente cooperar en caso de que los hechos o la información descubiertos afecten materialmente al dictamen de validación o verificación.
+El acuerdo jurídicamente exigible incluirá una política que rija la comercialización y otras referencias al OV/V que ésta autorice a sus clientes a utilizar con respecto a cualquier declaración de información medioambiental. Cuando exista una licencia para utilizar una marca de validación o verificación, o un texto específico, no habrá ambigüedad en el uso propuesto de la declaración de información medioambiental que haya sido validada o verificada. La política garantizará la conformidad con el anexo B, Referencia a declaraciones validadas/verificadas y uso de marcas.
+9.4. Planificación
+MD 9.4.2.1.
+El OV/V documentará los resultados del análisis estratégico (ISO 14064-3 6.1.1 Análisis estratégico).
+9.5. Validación/Ejecución de la verificación
+MD 9.5.4.1. (ISO/IEC 17029)
+En el caso de las declaraciones con información cuantitativa, el OV/V realizará una evaluación de materialidad (3.1) de la declaración para identificar las entradas potencialmente materiales.
+Nota: Para los GEI, las entradas incluyen fuentes, sumideros y depósitos.
+MD 9.5.4.2. (ISO/IEC 17029)
+La validación o verificación se realizará con una actitud de escepticismo profesional, que asuma que la información y los datos presentados pueden ser erróneos hasta que se demuestre lo contrario.
+9.6. Revisión
+DM 9.6.1. La documentación resultante de la actividad de validación o verificación deberá contener una trazabilidad suficiente para que pueda demostrarse que el riesgo de validación o verificación se ha reducido a un nivel aceptable.
+9.7. Decisión y emisión de la afirmación de validación/verificación
+MD 9.7.1.3.1.
+Un OV/V se asegurará de que la redacción de su informe de constataciones de hechos no declare ni implique la prestación de garantías a los usuarios previstos. Esto también se aplicará cuando un OV/V haya comprobado elementos de un estado utilizando Procedimientos de compromiso común (PCC) en un encargo mixto.
+9.8 Hechos descubiertos después de la emisión de la afirmación de Validación / verificación
+No hay requisitos adicionales para la norma ISO 14065.
+9.9 Tratamiento de las apelaciones
+No hay requisitos adicionales para la norma ISO 14065.
+9.10 Tratamiento de las quejas
+No hay requisitos adicionales para la norma ISO 14065.
+9.11 Registros
+No hay requisitos adicionales para la norma ISO 14065.
+10 REQUISITOS DE INFORMACIÓN
+10.1. Información de dominio público
+No hay requisitos adicionales para la norma ISO 14065.
+10.2. Otra información a poner a disposición
+No hay requisitos adicionales para la norma ISO 14065.
+10.3. Referencia a la validación/verificación y uso de marcas
+No hay requisitos adicionales para la norma ISO 14065.
+10.4. Confidencialidad
+No hay requisitos adicionales para la norma ISO 14065.
+11. REQUISITOS DEL SISTEMA DE GESTIÓN
+11.1. General
+No hay requisitos adicionales para la norma ISO 14065.
+11.2. Revisión de la gestión
+No hay requisitos adicionales para la norma ISO 14065.
+11.3. Auditorías internas
+No hay requisitos adicionales para la norma ISO 14065.
+11.4. Acciones correctivas
+No hay requisitos adicionales para la norma ISO 14065.
+11.5 Acciones para abordar los riesgos y oportunidades
+No hay requisitos adicionales para la norma ISO 14065.
+11.6. Información documentada
+No hay requisitos adicionales para la norma ISO 14065.
+BIBLIOGRAFÍA
+ISO 14064-1:2018 Gases de efecto invernadero - Parte 1: Especificación con orientación a nivel de organización para la cuantificación y notificación de las emisiones y absorciones de gases de efecto invernadero.
+ISO 14064-2:2019 Gases de efecto invernadero - Parte 2: Especificación con orientación a nivel de proyecto para la cuantificación, el seguimiento y la notificación de las reducciones de las emisiones de gases de efecto invernadero o las mejoras en la eliminación.
+ISO 14064-3:2019 Gases de efecto invernadero - Parte 3: Especificación con orientación para la verificación y validación de las declaraciones de gases de efecto invernadero.
+ISO 14065:2020 Principios generales y requisitos para los organismos que validan y verifican la información medioambiental
+ISO 14067 Gases de efecto invernadero - Huella de carbono de los productos - Requisitos y directrices para la cuantificación
+8. TRANSITORIO
+Lo aplicable al MD 6, empieza a aplicar a partir del 30 de junio de 2024.
+9. [imagen] [imagen] CONTROL DE CAMBIOS
+Motivo: Actualización de documento
+Referirse a la solicitud de gestión de | documento consecutivo: 2024-053
+Observaciones: La primera parte no sufrió cambios, con relación a la versión anterior La segunda parte, es la copia del MD 6, este documento elimina gran cantidad de requisitos y se concentra en aclarar requisitos en la parte 7, 8 y 9-Por los cambios realizados, se debe dar lectura completa al documento. Al ser un cambio en todo el documento, no se mantienen cambios subrayados.
