@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C20: Criterios para la participación en ensayos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-03 | la propia norma |
+| 2 | 2024-05-21 | Acuerdo 5 (2024-05-21) |
