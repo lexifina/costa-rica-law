@@ -1,0 +1,12 @@
+CIRCULAR No. 106-2024
+Asunto: "Variación de la periodicidad con que se elaboran las minutas de Seguimiento para los procesos de Autoevaluación Institucional (PAI) y Gestión de Riesgos (SEVRI)."
+A TODAS LAS JEFATURAS DE DESPACHOS U OFICINAS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 38-2024 celebrada el 9 de mayo de 2024, artículo XLIV, dispuso: Variar la periodicidad en el seguimiento de SEVRI y PAI que indica:
+La característica inherente y fundamental del seguimiento periódico al sistema de control interno (SCI) es reseñada por las normas 6.1, 6.3 y 6.3.1 de Control Interno.
+El seguimiento que debe darse a los procesos institucionales en materia de control interno, a saber: la Autoevaluación Institucional (PAI) y al Sistema Específico de Valoración del Riesgo Institucional (SEVRI) es fundamental; no obstante, considerando el avance en el nivel de madurez que ha logrado el Poder Judicial en esta materia, se pretende contribuir con las oficinas judiciales para que dispongan de más tiempo para atender y desarrollar sus funciones sustantivas; se considera conveniente modificar el plazo bimensual de seguimiento establecido para que sea de cinco meses; específicamente en mayo y octubre respectivamente.
+La modificación propuesta no debilita el SCI, no contraviene la normativa que regula la materia, ni la dinámica de seguimiento periódica ya interiorizada, en las oficinas y despachos judiciales como parte de las reuniones que agendan para tratar en general sus propios temas administrativos, donde incluyen lo concerniente a los procesos PAI y SEVRI; lo cual permite y posibilita que se mantenga un control adecuado.
+Por consiguiente, se varía la periodicidad de los seguimientos que deben documentar las oficinas y despachos judiciales para los sistemas PAI (Autoevaluación Institucional) y SEVRI (Gestión de Riesgos), de forma tal que pasen de ser bimensuales (cada 2 meses) a quinque mensuales (cada 5 meses); específicamente que deba elaborarse oficialmente solo una minuta en mayo y otra en octubre respectivamente.
+Lo anterior, sin perjuicio de que aquellas instancias que deseen documentar o ingresar registros con una periodicidad menor, lo sigan haciendo al formar ya parte de su gestión cotidiana en materia de seguimiento a los procesos institucionales PAI y SEVRI.
+Publíquese una vez en el Boletín Judicial.
+San José, 22 de mayo de 2024
