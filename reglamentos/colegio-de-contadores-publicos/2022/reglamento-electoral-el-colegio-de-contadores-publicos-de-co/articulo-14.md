@@ -1,1 +1,2 @@
-Artículo 14.-La Campaña Electoral inicia el 15 de noviembre del año previo a las elecciones y hasta el 30 de noviembre.
+Artículo 14.-La Campaña Electoral se efectuará según lo estipulado en el artículo N° 4 punto N° 3 de este Reglamento.
+(Así reformado en Asamblea Extraordinaria N° 245-2024, mediante acuerdo AG N° 6-245-2024)

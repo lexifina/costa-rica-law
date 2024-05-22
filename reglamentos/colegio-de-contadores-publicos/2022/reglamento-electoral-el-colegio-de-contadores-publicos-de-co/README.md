@@ -14,3 +14,4 @@ Reglamento electoral el Colegio de Contadores Públicos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-01 | la propia norma |
+| 2 | 2024-05-22 | Reglamento 245 (2024-05-22) |
