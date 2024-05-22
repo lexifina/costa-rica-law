@@ -1,4 +1,0 @@
-CAPITULO IV
-Procedimiento para la fijación del Canon
-Artículo 9.- Elementos técnicos utilizados para el procedimiento para la fijación del canon de arrendamiento por la construcción y operación de redes públicas de telecomunicaciones en bienes de uso público. La fijación del monto total del canon del arrendamiento por la construcción y operación de postes y otras estructuras de telecomunicaciones, asociadas a la instalación de las redes públicas de telecomunicaciones en bienes de uso público que se encuentran bajo administración municipal, se determinará según los elementos técnicos que se incluyen en el anexo a esta resolución, denominado informe DVAT-SVA-023-2020.
-La Administración Activa informará mediante resolución, al operador y/o proveedor el monto total del canon del arrendamiento del bien de uso público y gestionará los trámites correspondientes para la instalación de redes públicas de telecomunicaciones, según lo establecido en la normativa vigente.

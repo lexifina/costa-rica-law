@@ -1,4 +1,0 @@
-Artículo 5.- Actualización de la contraprestación. El valor de la Contraprestación fijado por la Dirección de Valoraciones Administrativas y Tributarias se actualizará de conformidad con las siguientes variables:
-a) La variación de los valores por metro cuadrado de los lotes tipo, determinados en las plataformas de zonas homogéneas vigentes en cada cantón y las matrices de información, definidos por el Órgano de Normalización Técnica, y
-b) Los montos de arrendamientos anuales de las áreas públicas donde se instalarán las estructuras de telecomunicaciones, investigados en el mercado nacional.
-Para tales efectos, antes de cada actualización de los cánones del arrendamiento de esos espacios, las Administraciones Activas deberán brindar la información de los precios del arrendamiento, las características de las áreas donde se instalaron esas estructuras y las de las torres y postes de telecomunicación, referente a los contratos firmados en su territorio.

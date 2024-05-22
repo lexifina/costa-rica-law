@@ -1,1 +1,0 @@
-Artículo 8.- Registro de peticionarios para solicitar el uso de bienes de dominio público en las áreas del SINAC y del Patrimonio Natural del Estado. Es obligación de los peticionarios que soliciten arrendamientos en las áreas del Patrimonio Natural del Estado de solicitar su inscripción ante del SINAC.

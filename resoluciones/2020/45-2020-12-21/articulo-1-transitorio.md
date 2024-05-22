@@ -1,1 +1,0 @@
-Transitorio I: Para el año 2020 se utilizará el procedimiento normado mediante esta resolución, considerando la proporcionalidad de los dozavos (proporción de los meses restantes para concluir el año, con la salvedad de que la fracción de mes debe entenderse que es de un mes completo).
