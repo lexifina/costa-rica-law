@@ -1,0 +1,1 @@
+Artículo 4º-Cabildo: Es la reunión pública del Concejo Municipal y los Concejos de Distrito, a la cual los habitantes del cantón son invitados a participar directamente con el fin de discutir asuntos de interés para la comunidad.

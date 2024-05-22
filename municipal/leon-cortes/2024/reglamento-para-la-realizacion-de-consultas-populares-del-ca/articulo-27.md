@@ -1,0 +1,1 @@
+Artículo 27.-Destitución de los Vicealcaldes: El plebiscito de revocatoria de mandato podrá extenderse a los Vicealcaldes, para lo cual se requerirá el acuerdo de tres cuartas partes de los regidores. En tal caso, la pregunta sobre la destitución de los Vicealcaldes será independiente de la del alcalde. Los requisitos para destitución serán los mismos que rigen para el Alcalde.
