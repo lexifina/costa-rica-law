@@ -1,0 +1,2 @@
+Artículo 17.-Deber de diligencia: La aprobación de financiamiento para un proyecto habitacional, implicará la obligación de suscribir los contratos a más tardar dentro del mes calendario siguiente a dicha aprobación.
+La no suscripción de los contratos por el no cumplimiento de autorizaciones, permisos o licencias Estatales o Municipales será tenida como una falta imputable al Desarrollador/Constructor, y no se pagarán financiamientos adicionales por estos tipos de atrasos.

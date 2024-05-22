@@ -1,0 +1,2 @@
+Transitorio Segundo: Una vez que entre en vigor el presente Reglamento, se deroga el Reglamento para la Solicitud de Financiamiento Adicional a proyectos de vivienda tramitados al amparo del Artículo 59 de la LSFNV aprobado mediante Acuerdo de Junta Directiva N°2 de la Sesión 25-2006 del 30 de marzo del 2006, y las directrices administrativas DF-CI-0047-2010 del 18 de enero de 2010 y la DF-CI-1085-2011 del 5 de julio de 2011, así como todas las directrices y circulares administrativas relacionadas con el tema.
+Acuerdo Unánime y Firme.

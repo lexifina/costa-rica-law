@@ -1,0 +1,2 @@
+Artículo 16.-Aprobación discrecional: En caso de duda sobre la aplicación de las presentes disposiciones, se resolverá a favor del Banco. Es entendido que el Banco lo que otorga es financiamiento del proyecto, motivo por el cual sus obligaciones se limitan al giro de los montos inicialmente aprobados.
+Toda aprobación de financiamiento adicional es discrecional y se regirá por lo establecido en el presente reglamento. De rechazarse una solicitud es responsabilidad del respectivo Desarrollador/Constructor la consecución de los recursos adicionales que pudiere requerir.

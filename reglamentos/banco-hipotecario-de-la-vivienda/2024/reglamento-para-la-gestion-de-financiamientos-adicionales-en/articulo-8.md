@@ -1,0 +1,1 @@
+Artículo 8º-Verificación: Las solicitudes deberán ser presentadas por los interesados ante la Entidad Autorizada antes del vencimiento del plazo de la construcción contemplado en el contrato, considerando sus prórrogas, si las hubiere. No se aceptará ni se dará trámite alguno a una solicitud presentada más allá de dicho plazo o sus prórrogas.

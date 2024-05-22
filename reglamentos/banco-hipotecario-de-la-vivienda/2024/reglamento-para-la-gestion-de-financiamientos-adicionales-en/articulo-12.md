@@ -1,0 +1,2 @@
+Artículo 12.-Adelantos: Cuando el contrato contemple la posibilidad de que el Desarrollador/Constructor pueda cobrar adelantos de dinero en los contratos, estos se harán con el objetivo de cubrir insumos directos del proyecto que ya hayan sido adquiridos por el Desarrollador/Constructor y que se encuentren en el sitio de la obra.
+En el caso de adelantos sobre un renglón de pago específico, estos se incluirán como avance de ejecución para efecto de las variaciones en los costos y se amortizarán conforme se facture el renglón de pago correspondiente.
