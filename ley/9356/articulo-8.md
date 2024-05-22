@@ -1,2 +1,3 @@
-ARTÍCULO 8.- Al tercer año de la puesta en marcha del Plan Estratégico Institucional se realizará una valoración de su ejecución. En este proceso participará la Junta Directiva y la Dirección Ejecutiva, y se tomará el criterio de las municipalidades de Golfito, Corredores, Buenos Aires, Osa y Coto Brus.
+Artículo 8- Al tercer año de la puesta en marcha del Plan Estratégico Institucional se realizará una valoración de su ejecución. En este proceso participarán la Junta Directiva y la Dirección Ejecutiva, y se tomará el criterio de las municipalidades de Golfito, Corredores, Buenos Aires, Coto Brus, Osa y Puerto Jiménez.
 Como máximo a falta de un semestre para que se cumpla el cuarto año de la ejecución del Plan Estratégico Institucional, se iniciará la elaboración del nuevo Plan para los próximos cuatro años.
+(Así reformado por el artículo 1° de la Ley para incorporar la representación del Cantón de Puerto Jiménez en JUDESUR, N° 10448 del 2 de mayo de 2024)
