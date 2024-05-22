@@ -1,1 +1,0 @@
-Artículo 182.-La Dependencia estará bajo la responsabilidad de una dietista o nutricionista. En caso de que fuese imposible conseguirla, el Administrador seleccionará a quien estime más conveniente. Deberá contar con el personal subalterno necesario.

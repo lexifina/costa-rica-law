@@ -1,1 +1,0 @@
-Artículo 196.-Quedará al criterio de las Trabajadoras Sociales, anexar a la historia clínica, con carácter confidencial, información para el mejor tratamiento del caso. En Hospitales especializados se ampliará la información en los aspectos que el médico solicite.

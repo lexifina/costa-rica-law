@@ -1,1 +1,0 @@
-Artículo 239.-En los Hospitales Clase C, según las necesidades y recursos disponibles, podrá existir un Encargado de Personal o podrán recargarse sus funciones en el Administrador del establecimiento.

@@ -1,1 +1,0 @@
-Artículo 74.-A todo enfermo que sea intervenido en el Servicio de Emergencias y que con posterioridad se traslade al pensionado, debe considerársele como si desde el primer momento hubiera ingresado a este último.

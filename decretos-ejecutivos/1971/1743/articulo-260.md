@@ -1,3 +1,0 @@
-Artículo 260.-El Consejo Técnico celebrará por lo menos una sesión mensual ordinaria y las extraordinarias a que sea convocado por el Director o por solicitud expresa de dos a más de sus miembros.
-La asistencia al Consejo Técnico será obligatoria y el quórum para sesionar estará constituido por la mitad de sus miembros en la primera convocatoria y por el número que concurra. en la segunda.
-El Consejo estará presidido por el Director del establecimiento y actuará como Secretario alguno de sus integrantes, designado por el mismo Consejo. De lo actuado en cada sesión deberá dejarse constancia en actas.

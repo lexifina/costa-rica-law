@@ -1,1 +1,0 @@
-Artículo 148.-El horario de trabajo del Departamento o Servicio de Laboratorios y Banco de Sangre será fijado por el Director del establecimiento, de acuerdo con el Jefe respectivo, garantizando la atención de emergencias por medio guardias o de disponibilidad de personal.

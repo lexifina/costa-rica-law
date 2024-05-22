@@ -1,1 +1,0 @@
-Artículo 92.-Todo establecimiento que cuente con dos o más odontólogos podrá tener un jefe de Servicio que será responsable directo de la distribución de los recursos y de la marcha y del buen funcionamiento del Servicio.

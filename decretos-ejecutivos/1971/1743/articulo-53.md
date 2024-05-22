@@ -1,1 +1,0 @@
-Artículo 53.-Cuando el volumen de la atención lo exija, se podrá designar un médico para coordinar las labores de las distintas especialidades que integral] la Consulta Externa o crearse la jefatura correspondiente.

@@ -1,1 +1,0 @@
-Artículo 278. -Exceptuando los casos señalados en este Reglamento y en la Ley del Estatuto del Servicio Médico, cuando las dotaciones o circunstancias especiales no permitan contratar a un funcionario que trabaje jornada completa, deberá convenirse en menor número de horas, lo cual deberá consignarse expresamente en el respectivo contrato de trabajo.

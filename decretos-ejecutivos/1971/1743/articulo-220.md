@@ -1,1 +1,0 @@
-Artículo 220.-La Dependencia estará a cargo de un jefe o Proveedor, que deberá ser bachiller con conocimientos de contabilidad. Dicho jefe o Proveedor deberá rendir una póliza de fidelidad por el monto que fije la Dirección General de Asistencia Médico-Social.

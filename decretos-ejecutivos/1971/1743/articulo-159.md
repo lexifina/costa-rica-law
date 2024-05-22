@@ -1,1 +1,0 @@
-Artículo 159.-El Departamento o Servicio deberá además disponer de Auxiliares de Enfermería en número suficiente para garantizar la buena marcha de los servicios; deberán haber recibido su entrenamiento en cursos debidamente autorizados por la Dirección General de Asistencia y encontrarse registradas en el Colegio de Enfermeras.

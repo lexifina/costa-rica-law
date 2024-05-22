@@ -1,1 +1,0 @@
-Artículo 184.-Cuando las necesidades lo justifiquen y se disponga de los recursos, podrán establecerse cocinas periféricas, dependientes del Servicio o Unidad, destinadas a distribuir los alimentos y a preparar o completar algunas dietas especiales de un sector determinado.
