@@ -1,2 +1,3 @@
-Artículo 136.- Las participaciones hipotecarias globales son títulos valores preferenciales y como tales gozan de todos los privilegios que tienen los títulos valores emitidos o garantizados por el Estado; son de libre comercio y pueden ser adquiridas, sin limitación alguna, por las instituciones del Estado, sin perjuicio de otras leyes vigentes.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 130 al 136)
+Artículo 136.- Las participaciones hipotecarias podrán ser dadas en prenda, con expresa indicación de sus objetivos y a petición del acreedor prendario o del titular de la participación hipotecaria. Este acto deberá comunicarse por escrito al acreedor hipotecario o emisor del respectivo contrato de participación.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 122 al 128)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 128 al artículo 136)

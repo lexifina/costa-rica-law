@@ -1,2 +1,3 @@
-Artículo 180.- Las facultades conferidas en esta ley al Banco Hipotecario de la Vivienda, en cuanto al funcionamiento de las entidades autorizadas, sólo corresponden al financiamiento de viviendas que otorguen éstas. En consecuencia, las otras funciones para las que tengan facultad las entidades autorizadas quedan fuera de la competencia y del control del Banco.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 174 al 180)
+Artículo 180.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 166 al 172)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 172 al artículo 180)

@@ -1,17 +1,8 @@
-TITULO CUARTO
-DE LAS ENTIDADES AUTORIZADAS
-CAPITULO I
-De las entidades autorizadas
-Artículo 72.- Para los efectos de lo dispuesto en la presente ley, podrán optar por la condición de entidades autorizadas de conformidad con lo previsto en ella y en sus reglamentos, las instituciones siguientes:
-a) Las asociaciones mutualistas de ahorro y préstamo sin perjuicio de lo dispuesto en el transitorio VII de esta ley.
-b) Los bancos del Estado y los privados, así como el Banco Popular y de Desarrollo Comunal.
-c) Las cooperativas conforme al artículo 102 de la presente ley.
-( Así adicionado por el artículo 2 de la ley No. 7208 de 21 de noviembre de 1990, que además dispuso correr la numeración del inciso c) original
-ch) Las fundaciones constituidas con fondos donados en el extranjero, que excedan la suma de diez millones de dólares ($10.000.000,00), moneda de los Estados Unidos de Norteamérica y que se dediquen a programas de vivienda, tendrán las atribuciones descritas en el artículo 75 de la presente ley, excepto lo establecido en los incisos a) y ch) y siempre que se sometan a todos los controles contables y financieros o de otro tipo aplicables a las mutuales.
-( Así adicionado por el artículo 2 de la ley No. 7208 de 21 de noviembre 1990 ).
-d) Otros organismos públicos especializados en el financiamiento de viviendas.
-e) Las asociaciones solidaristas, conforme a las limitaciones que establezca el Banhvi.
-(Así adicionado el inciso anterior por el artículo único de la ley N° 8936 del 21 de junio de 2011)
-f) La Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores, respetando su naturaleza jurídica.
-(Así adicionado el inciso anterior por el artículo único de la Ley para adicionar a la Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores (Caja de Ande) como entidad autorizada del Sistema Financiero Nacional para la Vivienda, N° 10364 del 29 de junio de 2023)
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 66 al 72)
+CAPITULO V
+Fondo para Vivienda Productiva (Fovipro)
+(Así adicionado el capítulo anterior por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)
+Artículo 72- Fondo para la Vivienda Productiva. Créese el Fondo para la Vivienda Productiva (Fovipro), cuyo objetivo será que las familias, los adultos mayores sin núcleo familiar, las personas con discapacidad sin núcleo familiar, las mujeres jefas de hogar y los jóvenes entre los dieciocho y los treinta y cinco años con núcleo familiar, de escasos recursos económicos, puedan ser propietarios de una vivienda acorde con sus necesidades y posibilidades socioeconómicas y que el Estado les garantice este beneficio, bajo el modelo de vivienda productiva establecido en la presente ley.
+Los recursos de Fovipro destinados a la construcción de la vivienda serán administrados por el Banco Hipotecario de la Vivienda (Banhvi), mientras que los recursos del Programa de Vivienda Productiva, destinados al desarrollo de la actividad productiva, serán administrados por el Sistema de Banca para el Desarrollo (SBD), con el objeto de facilitar el desarrollo de proyectos colectivos o individuales de vivienda de uso mixto a las personas que opten por el Programa de Vivienda Productiva y que califiquen, ya sea porque desarrollan o desarrollarán un emprendimiento factible. Los recursos del Fovipro y los del Programa de Vivienda Productiva del SBD serán ejecutados por medio de las entidades autorizadas del Sistema Financiero Nacional para la Vivienda y las operadoras financieras del SBD.
+El Banhvi, en conjunto con el Instituto de Desarrollo Rural (lnder), deberá realizar programas especiales de vivienda productiva en zonas rurales y se autoriza también al lnder para que financie, con recursos propios, los proyectos que cumplan los requisitos establecidos en la presente ley .
+El Banhvi podrá realizar convenios o estrategias de cooperación no reembolsable, con entidades públicas o privadas, para brindar un adecuado acompañamiento técnico a los beneficiarios de la presente ley, en lo referente a cada proyecto o emprendimiento productivo en cualquier etapa de su ciclo de vida, en la asesoría técnica y apoyo empresarial, así como en el apoyo a los procesos de formación de emprendedores y capacitación.
+(Así adicionado por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)

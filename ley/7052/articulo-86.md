@@ -1,2 +1,3 @@
-Artículo 86.- Sólo los asociados podrán ser directores de una mutual. Para ello, deberán estar en el pleno ejercicio de sus derechos civiles.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 80 al 86)
+Artículo 86.- Dentro de un plazo de treinta días a partir de la fecha de la constitución, el directorio provisional convocará, en la forma prescrita en los estatutos, a la primera asamblea general ordinaria de la mutual, en la cual se nombrará el directorio. Una copia certificada del acta de dicha asamblea deberá enviarse al Banco. Si éste lo aprueba, enviará a la mutual, dentro de un plazo de quince días, un certificado de incorporación al Sistema, que se publicará en el diario oficial "La Gaceta".
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 72 al 78)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 78 al artículo 86)

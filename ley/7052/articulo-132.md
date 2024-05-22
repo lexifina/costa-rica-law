@@ -1,2 +1,13 @@
-Artículo 132.- Las participaciones hipotecarias globales que emitan las entidades autorizadas serán previamente aprobadas por el Banco, en la forma que se establezca en el reglamento.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 126 al 132)
+Artículo 132.- Los títulos valores que emitan el Banco y las entidades autorizadas tendrán las siguientes características:
+a) Pueden ser cedidos o negociados libremente.
+b) Pueden ser dados en prenda.
+c) Cuando se trate de títulos nominativos, su tenedor tendrá la facultad de designar beneficiarios, para el caso de muerte, quienes, cuando ésta ocurra y con sólo comprobarla, asumirán, de pleno derecho y sin necesidad de trámites judiciales o administrativos, la propiedad definitiva del respectivo título, para lo cual sólo requerirán su identificación como tales y si fueren menores, los de sus representantes.
+ch) Constituyen título ejecutivo hipotecario cuando su garantía original sea también hipotecaria, y título ejecutivo simple en los demás casos.
+d) Cuando tengan garantía hipotecaria, para los efectos de su cobro, el Banco o la entidad autorizada correspondiente continuará siendo titular de la hipoteca, pero deberá actuar como representante legal especial o ad hoc del cesionario, y, en consecuencia, la acreedora respectiva tendrá la obligación de cobrar la deuda hipotecaria de conformidad con sus términos, por los medios legales que procedan, sin costo alguno para el cesionario.
+e) Tienen la misma confidencialidad de las cuentas bancarias y pueden ser emitidos en forma nominativa, a la orden o al portador.
+f) Tienen las exenciones que determinan los incisos a) y b) del artículo 38 de esta ley.
+g) Pueden ser adquiridos sin limitación alguna por cualquier persona natural o institución pública o privada.
+h) Su garantía se pierde sólo por causas imputables el cesionario.
+i) Las demás que se determinen en el reglamento.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 118 al 124)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 124 al artículo 132)

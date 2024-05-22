@@ -1,4 +1,6 @@
-Artículo 84.- El directorio deberá nombrar a un gerente para la administración de la mutual, quien tendrá también las facultades de apoderado generalísimo sin límite de suma y acreditará su personería conforme con lo establecido en el artículo anterior para el presidente.
-El directorio podrá también, si lo estimare necesario nombrar subgerentes con facultades de apoderados generales, uno de los cuales sustituirá al gerente durante sus ausencias temporales, según lo determine la Junta Directiva.
-El gerente y los subgerentes deberán ser personas idóneas para el cargo y poseer la calificación que señala el artículo 80 para los directores.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 78 al 84)
+Artículo 84.- Las mutuales deberán cumplir con los siguientes requisitos:
+a) Contar con un fondo inicial no menor de diez millones de colones (¢10.000.000,00), constituido en ahorros en efectivo. Para la constitución de futuras mutuales, el fondo inicial de diez millones de colones deberá aumentarse en la misma proporción en que aumente el índice de precios aprobado por el Ministerio de Economía y Comercio.
+b) Tener un mínimo de quinientas cuentas de ahorro debidamente constituidas.
+c) Las demás condiciones que se señalen en los reglamentos del Banco.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 70 al 76)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 76 al artículo 84)
