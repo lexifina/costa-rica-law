@@ -1,0 +1,1 @@
+Transitorio III.-Quienes al momento de la publicación de esta reforma ya hubiesen iniciado sus estudios de especialidad, se les mantendrá la condición del reglamento vigente cuando iniciaron sus estudios para la incorporación como especialistas; en cuanto les resultare más favorable; siempre que se cursen los estudios de manera ininterrumpida.

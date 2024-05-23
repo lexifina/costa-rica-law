@@ -1,0 +1,1 @@
+Transitorio II.-Las solicitudes para inscripción en el Registro de Farmacéuticos Especialistas que hubieran sido recibidas y estén en curso de previo a la entrada en vigencia de esta reforma, se tramitarán y resolverán con arreglo a la normativa anterior.
