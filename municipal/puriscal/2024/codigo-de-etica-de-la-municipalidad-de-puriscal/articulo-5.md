@@ -1,0 +1,1 @@
+Artículo 5º-Finalidad del Código de Ética. El presente Código tiene como fin regular que las actuaciones de los funcionarios municipales, proveedores y demás personas con relación directa o indirecta con la institución, se encuentren apegados a los principios y valores éticos que rigen su función.

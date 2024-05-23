@@ -1,0 +1,8 @@
+Artículo 2º-Marco Filosófico Municipal. El marco filosófico de la Municipalidad de Puriscal se enmarca en los siguientes elementos:
+a) Misión: Somos el Gobierno Local del cantón de Puriscal que invierte y administra servicios.
+b) Visión: Lograr el desarrollo institucional que contribuya a mejorar la economía del cantón y la satisfacción de sus ciudadanos, por medio de procesos eficientes, personal capacitado y sistemas de información.
+c) Valores institucionales: Los valores Institucionales son los siguientes:
+i. Transparencia: Forma de actuar de los y las funcionarias que crea confianza y promociona el acceso libre a la información, la comunicación abierta, y la participación de funcionarios y ciudadanía en la toma de decisiones, con el fin de cumplir el derecho humano de acceso a la información y contribuir a una sociedad más informada.
+ii. Responsabilidad: Es el cumplimiento de las obligaciones, el cuidado al tomar decisiones y la realización oportuna de sus funciones dentro de la Municipalidad.
+iii. Respeto: Habilidad que ejerce el colaborador municipal para comprender y aceptar las diferencias, mediante la comunicación, actitud de escucha y de respuesta aplicando los estándares morales. También se considera el respecto a la normativa vigente que se aplica al gobierno local, es decir acatamiento de leyes, reglamentos, procedimientos y líneas de mando.
+iv. Lealtad: Expresa un sentimiento de respeto, fidelidad, y compromiso hacia la comunidad, la institución y los principios morales. En este caso los funcionarios (as) serán leales a la ciudadanía de Puriscal, a la Municipalidad a la cual sirve, legislación que le aplica acorde a las funciones que se realicen.

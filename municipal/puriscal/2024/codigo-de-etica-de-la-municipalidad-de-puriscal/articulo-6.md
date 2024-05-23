@@ -1,0 +1,1 @@
+Artículo 6º-Alcance. El presente Código de Ética se aplica a los miembros del Concejo Municipal, Alcalde (sa), Vicealcalde (sa) y demás funcionarios municipales (en propiedad, interinos, servicios especiales, etc.) de la Municipalidad de Puriscal. Lo anterior sin perjuicio de otra normativa aplicable a los funcionarios de la institución.

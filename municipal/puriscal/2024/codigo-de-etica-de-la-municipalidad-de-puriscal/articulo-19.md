@@ -1,0 +1,1 @@
+Artículo 19.-Suficiencia de los Contratos. Los contratos entre el municipio y los proveedores deberán estar apegados a la normativa establecida en la Ley General de Contratación Pública y su reglamento (suficiencia de los contratos) y es obligación de los funcionarios municipales el velar por que se cumpla a cabalidad con lo establecido en estos contratos.
