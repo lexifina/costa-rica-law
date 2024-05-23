@@ -9,7 +9,7 @@ Cartago, 20 de mayo del 2016.-
 AVISO
 La Junta Directiva de la Junta Administrativa del Servicio Eléctrico Municipal de Cartago, mediante Artículo Nº 4 de la Sesión Ordinaria No. 5.071 del día 10 de mayo del 2016, dispuso de manera unánime y en firme;
 4.a. Aprobar el Reglamento de Junta Directiva, según se detalla a continuación:
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria Nº 053-2022 del 10 de noviembre del 2022, publicado en La Gaceta N° 228 del 29 de noviembre del 2022 y se transcribe a continuación:)
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria N° 031-2024 del 23 de mayo del 2024, publicado en La Gaceta N° 102 del 6 de junio del 2024 y se transcribe a continuación:)
 CAPÍTULO I
 DE LA JUNTA DIRECTIVA
-Artículo No. 1.- La Junta Directiva elegirá de su seno, en forma secreta y por el término de un año, a un Presidente, un Vicepresidente y un Secretario, los cuales pueden ser reelectos al concluir el respectivo período.
+Artículo No. 1.- La Junta Directiva elegirá de su seno, en forma secreta y por el término de un año, a un Presidente, un Vicepresidente y un Secretario, los cuales pueden ser reelectos al concluir el respectivo Período.

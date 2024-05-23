@@ -1,2 +1,3 @@
-DE LA VOTACION
-Artículo No. 18.- Al dar por discutido un asunto, la Presidencia someterá a votación el mismo, para lo cual los señores directores deberán estar ocupando sus lugares y emitir su voto ya sea, afirmativo, negativo y abstención cuando corresponda.
+CAPÍTULO IV
+DE LA VOTACIÓN
+Artículo No. 18.- Al dar por discutido un asunto, la Presidencia lo someterá a votación, para ello, verificará el quórum con el que se cuenta y solicitará a los señores directores emitir su voto ya sea, afirmativo o negativo, levantando la mano. En el caso de las sesiones virtuales, para emitir su voto, los miembros del órgano colegiado podrán utilizar el ícono en forma de mano que la plataforma ofrece, así como levantar su mano frente a la cámara. En caso de que la plataforma presente algún problema y que por ello el ícono en forma de mano no pueda ser utilizado, bastará con que levante su mano frente a la cámara. Luego de la votación, presencial o virtual, la Presidencia brindará un resumen con el resultado de esta en la que indique la cantidad de los votos afirmativos, negativos y las abstenciones cuando estas correspondan.
