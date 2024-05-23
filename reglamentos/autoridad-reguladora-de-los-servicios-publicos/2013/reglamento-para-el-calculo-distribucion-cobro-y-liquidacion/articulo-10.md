@@ -1,1 +1,0 @@
-Artículo 10.—Canon bruto por actividad. El canon bruto por actividad regulada resulta de la suma de los gastos directos, más los gastos indirectos, menos los otros ingresos, que correspondan a cada actividad.

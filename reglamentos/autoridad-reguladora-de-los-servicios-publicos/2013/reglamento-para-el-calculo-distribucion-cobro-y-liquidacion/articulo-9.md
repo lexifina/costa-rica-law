@@ -1,1 +1,0 @@
-Artículo 9º—Distribución de los gastos indirectos entre las actividades de regulación. La distribución de gastos indirectos se ponderará entre las actividades, tomando en consideración la proporción de horas de regulación por actividad proyectadas para el año siguiente.

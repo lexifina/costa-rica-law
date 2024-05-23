@@ -1,1 +1,0 @@
-Artículo 34.—Inclusión de todas las empresas. En caso de que el superávit o déficit calculado, haya sido originado por cobro de cánones a empresas que ya no prestan servicio público, debe devolvérsele o cobrársele la suma que les resulte a favor o en contra, previa acreditación de las deudas pendientes.

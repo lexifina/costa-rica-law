@@ -1,1 +1,0 @@
-Artículo 6º—Estructura de gastos. Con base en la guía de cánones cada área de la ARESEP será responsable de estimar sus gastos directos, a nivel de programa, subprograma, centro de costo, partida y subpartida.
