@@ -1,0 +1,2 @@
+Artículo 9º-De la retención del impuesto sobre la renta. En los casos donde aplique la retención del impuesto sobre la renta, será necesario elaborar una orden de compra con el objetivo de retener las sumas correspondientes y deberá quedar debidamente registrada en la liquidación que respalda la liquidación del fondo.
+El Gestor de Programas Deportivos y Recreativos será el responsable directo de verificar la correcta aplicación del inciso anterior y realizar los reportes correspondientes cada mes ante el Ministerio de Hacienda.

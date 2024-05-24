@@ -1,0 +1,2 @@
+Artículo 7º-Fondo de caja chica en efectivo. Se autoriza la creación de un fondo específico de caja chica en efectivo por un monto máximo de ¢400.000 (cuatrocientos mil colones exactos), para cubrir las compras de bienes, servicios u obras autorizados en que incurra el Comité, siempre que el monto de la compra no exceda el setenta y cinco por ciento (75%) del total del del fondo.
+El monto total previsto para caja chica podrá ser ajustado anualmente como máximo en un 10% previo acuerdo de la Junta Directiva del Comité debidamente razonado.

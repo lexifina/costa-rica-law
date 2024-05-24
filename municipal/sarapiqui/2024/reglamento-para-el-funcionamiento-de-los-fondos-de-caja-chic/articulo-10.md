@@ -1,0 +1,4 @@
+Artículo 10.-Utilización de los fondos de viáticos. Por medio de la caja chica se podrán realizar adelantos de dinero efectivo o por medio de transferencia electrónica, para el pago de viáticos requeridos por los colaboradores o representantes del Comité.
+La suma máxima a autorizar por concepto de viáticos en el país será el equivalente de una semana hábil de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.
+De necesitarse un monto mayor deberá contar con la aprobación formal de la Junta Directiva del Comité.
+El pago de viáticos debe sujetarse obligatoriamente a lo dispuesto por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dictado por la CGR.

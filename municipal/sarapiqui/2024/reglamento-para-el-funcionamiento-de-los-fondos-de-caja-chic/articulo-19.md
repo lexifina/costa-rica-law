@@ -1,0 +1,2 @@
+Artículo 19.-Exoneración del impuesto al valor agregado. Para el trámite de compra por el fondo de caja chica, la persona que lo gestione para la adquisición de bienes y servicios deberá en caso de ser necesario gestionar un comprobante de exoneración de pago del impuesto al valor agregado.
+Solo con el visto bueno del presidente de la Junta Directiva y en casos excepcionales se reconocerá el importe por concepto de impuesto al valor agregado, ya que el Comité está exento del pago de toda clase de tributos.

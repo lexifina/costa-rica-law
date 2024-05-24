@@ -1,0 +1,6 @@
+Artículo 29.-Funciones de la Junta Directiva respecto a la administración de los fondos de caja chica. La Junta Directiva será la responsable de procurar el adecuado uso de los recursos asignados a caja chica y tendrá a su cargo las siguientes funciones relacionadas con los procesos de compra por medio de la caja chica:
+a) Procurar que todos los funcionarios del Comité que tengan relación directa o indirecta con los procesos de contratación de bienes, servicios y obras por medio de caja chica tengan acceso a la capacitación y al conocimiento del manejo del fondo.
+b) Solicitar el desarrollo de investigaciones preliminares o los procedimientos disciplinarios administrativos correspondientes a efectos de determinar la existencia de una eventual responsabilidad por parte de los funcionarios frente al incumplimiento de las obligaciones durante los procesos de compra por medio de la caja chica.
+c) Estandarizar los trámites, los procedimientos de compra y requerir los informes que resulten necesarios para el adecuado control y uso de estos fondos.
+d) Verificar el cumplimiento de todos los requerimientos generales y específicos aplicables al manejo de la caja chica del Comité.
+e) Implementar los esquemas de control que garanticen un eficiente, eficaz y oportuno uso de los fondos de caja chica.

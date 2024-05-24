@@ -1,0 +1,1 @@
+Artículo 8º-Fondo de caja chica mediante transferencia electrónica. Adicionalmente el Comité podrá hacer uso de los fondos específicos de caja chica por medio de trasferencia electrónica de la cuenta corriente habilitada para el caso y podrá cubrir las compras que no superen el setenta y cinco por ciento (75%) del total del del fondo de caja chica.

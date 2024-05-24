@@ -1,0 +1,4 @@
+Artículo 27.-Responsabilidades de los usuarios de las compras por medio de la caja chica. En el cumplimiento de sus funciones, todos los usuarios de los fondos de la caja chica deberán:
+a. Procurar el eficiente y eficaz uso de los fondos asignados a la caja chica y deberán denunciar ante la autoridad competente cualquier actividad o situación contraria al correcto manejo de los recursos bajo este mecanismo.
+b. Dejar evidencia clara de lo actuado desde la planificación, gestión y liquidación de las compras por medio de la caja chica, documentación que deberá ser registrada posteriormente en el Sistema Digital Unificado.
+c. Actuar en el ejercicio de sus funciones, con estricto apego al bloque de legalidad, al deber de probidad y mantener un actuar apegado a los más altos principios éticos y morales como funcionarios públicos.

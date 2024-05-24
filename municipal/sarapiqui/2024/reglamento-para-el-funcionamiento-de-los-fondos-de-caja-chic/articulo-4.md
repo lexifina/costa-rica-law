@@ -1,0 +1,4 @@
+Artículo 4º-Utilización del Fondo de Caja Chica. El fondo de caja chica se utilizará específicamente para realizar adelantos de dinero en efectivo o mediante transferencias electrónicas para cubrir los gastos de operación autorizados, que se incurra a lo interno del Comité, tales como:
+. Gastos para el traslado de un lugar a otro, alimentación y hospedaje dentro del territorio nacional.
+. Gastos para la compra de materiales de oficina, alguna obra en las instalaciones administrativas, reparación de equipo electrónico o tecnológico, herramientas, reparación urgente de las instalaciones deportivas en administración del Comité que sean necesarias para la buena marcha de las actividades deportivas del cantón y que ameriten pronta solución.
+Los fondos de caja chica operarán mediante el uso de dinero en efectivo y una cuenta corriente de algún Banco del Sistema Bancario Nacional.
