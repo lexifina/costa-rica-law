@@ -1,0 +1,1 @@
+Artículo 14.-Vigencia de la acreditación migratoria. Esta categoría se autorizará la primera vez por un plazo de dos años, prorrogable por una única vez, por el mismo plazo, conforme a lo indicado en el artículo 18 de este Decreto.

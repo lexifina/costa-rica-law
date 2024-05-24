@@ -1,0 +1,1 @@
+Artículo 6.- Vinculación con el sector agropecuario. La DGME únicamente aprobará el otorgamiento de la CEPTSA a favor de las personas extranjeras que logren demostrar su arraigo según lo establecido en el inciso c) del artículo 10 de este reglamento y que laboran en actividades agropecuarias, conforme a lo dispuesto en el artículo 3 del presente reglamento.

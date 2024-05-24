@@ -1,0 +1,1 @@
+Artículo 13.-Recursos. En caso de que la petición de la categoría especial regulada por este decreto sea denegada por alguno de los supuestos establecidos en los artículos 61 o 63 la LGME, se aplicará lo que establecen los artículos 221 y siguientes de dicho cuerpo de normas.

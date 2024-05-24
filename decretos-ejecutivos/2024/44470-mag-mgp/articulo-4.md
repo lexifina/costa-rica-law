@@ -1,0 +1,1 @@
+Artículo 4.- Facultades de la DGME. La DGME determinará las condiciones de trámite general de las solicitudes, la unidad que las analizará y la forma de atención para la emisión del documento que acredite a las personas extranjeras la autorización de la CEPTSA, con fundamento en las facultades de autodeterminación administrativa establecidas el artículo 71 de la LGME.

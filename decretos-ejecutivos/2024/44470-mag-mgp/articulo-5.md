@@ -1,0 +1,1 @@
+Artículo 5.- Beneficios de la CEPTSA. Esta categoría especial dará derecho a la persona extranjera a permanecer en el país durante el plazo de dos años, según los términos del artículo 14 de este decreto ejecutivo, contado a partir de la fecha de emisión de la resolución que aprueba el trámite, así como a laborar exclusivamente en actividades agropecuarias.

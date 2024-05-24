@@ -1,0 +1,1 @@
+Artículo 22. Deróguense los incisos a), c), e) y f) del artículo 117 del Decreto Ejecutivo número 37112-GOB del 21 de marzo de 2012, denominado "Reglamento de Extranjería y Crea Día del Costarricense en el Exterior, cuya fecha de conmemoración será el 11 de abril de cada año"

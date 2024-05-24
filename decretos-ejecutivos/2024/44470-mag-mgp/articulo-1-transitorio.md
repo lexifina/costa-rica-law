@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. Las condiciones, mecanismos y procedimiento mencionados en el artículo 4, artículo 12 y el artículo 15 del presente decreto ejecutivo, serán determinadas mediante resolución de alcance general por la Dirección General de Migración y Extranjería, dentro del plazo de un mes calendario a partir de su publicación.

@@ -1,0 +1,15 @@
+Artículo 10.- Requisitos. El otorgamiento de la CEPTSA conforme con el presente decreto ejecutivo, estará sujeto al cumplimiento de los siguientes requisitos:
+a) Formulario de solicitud donde se indique las calidades de la persona interesada y señalar medio para atender notificaciones, su pretensión y su firma, la cual deberá ser estampada en presencia de funcionario público, quien así lo hará constar, o bien que sea autenticada por un abogado o notario.
+En este formulario, la persona extranjera deberá manifestar su consentimiento informado para que la DGME y el MAG utilice exclusivamente la información brindada para el procedimiento regulado en el presente decreto ejecutivo y de acuerdo con la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley N.º 8968 de 7 de julio de 2011. No se aceptarán formularios emitidos por terceros.
+b) Prueba de identidad: Se requiere la presentación de uno de los siguientes documentos:
+1) Documento de identidad emitido por el país de origen de la persona extranjera.
+2) Certificación de nacimiento debidamente apostillada o legalizada por el Ministerio de Relaciones Exteriores y Culto, la cual puede estar vigente o vencida.
+3) Certificación de identidad emitida por el Consulado del país de origen de la persona extranjera acreditado en Costa Rica, que cuente con mecanismos de seguridad que hagan posible su verificación.
+c) Documento que acredite haber ingresado al país antes de la vigencia del presente decreto, para lo cual deberá presentar al menos uno de los siguientes documentos:
+1. Pasaporte donde conste la visa de ingreso, en caso de que por su nacionalidad así lo requiriera, y el respectivo sello de ingreso al país.
+2. Permiso vecinal o cualquier otro documento de viaje oficial en el que conste sello de ingreso.
+3. Documento que demuestre su inscripción en algún centro educativo en el país.
+4. Documento que demuestre la matrícula de alguno de sus hijos/as o hijastros/as en algún centro educativo del país. En este caso, se deberá además adjuntar la certificación de nacimiento del hijo, para demostrar el vínculo. En el caso de hijos o hijastros que ostenten la nacionalidad costarricense, esta información se verificará de oficio en las bases de datos del Tribunal Supremo de Elecciones; si no existe vínculo matrimonial deberá aportarse declaración jurada sobre la convivencia en unión de hecho.
+5. Comprobante de atención médica en algún centro de salud de la CCSS o Clínica u Hospital Privado.
+6. Referencia al número de cualquier trámite presentado ante la DGME que a la fecha de emisión del presente Decreto Ejecutivo no haya sido resuelta. Esto será verificado por parte de la DGME a través de sus diversos sistemas.
+7. Al menos tres facturas emitidas en fecha anterior a la entrada en vigencia del presente Decreto Ejecutivo y a nombre del interesado, que comprueben la adquisición de bienes o servicios vinculados a su arraigo, tales como electrodomésticos para el menaje del hogar, equipos de cómputo, teléfonos celulares, pago de alquiler, servicios de televisión por cable o telefónicos, servicios legales.
