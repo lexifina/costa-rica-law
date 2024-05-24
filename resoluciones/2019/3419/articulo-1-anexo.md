@@ -65,7 +65,7 @@ Sólo clientes nacionales | 25%
 Mayoría clientes nacionales (*) | 50%
 Mayoría clientes extranjeros (*) | 75%
 Sólo clientes extranjeros | 100%
-(*) Para las categorías, “Tipo de Contratación del Trabajador”, “Tipo de clientes” y “Nacionalidad de Clientes” que contienen el criterio “Mayoría”, cuando su resultado corresponda a una misma cantidad entre los rangos, se calificará con el rango inferior de los dos criterios.
+(*) Para las categorías, "Tipo de Contratación del Trabajador", "Tipo de clientes" y "Nacionalidad de Clientes" que contienen el criterio "Mayoría", cuando su resultado corresponda a una misma cantidad entre los rangos, se calificará con el rango inferior de los dos criterios.
 2.3 Actividades indicadas en los artículos 15 y 15 bis de la Ley 7786
 | Tipo de Actividad | Ponderación |
 | Contadores, abogados y casas de empeño | 25% |
@@ -116,6 +116,8 @@ Tipo | Calificación
 2 | Mayor o igual a 55%, pero menor que 70%
 3 | Menor a 55%
 En el caso de los sujetos inscritos que realicen más de una actividad de los artículos 15 y 15 bis de la Ley 7786, prevalecerá la categoría con mayor calificación.
-La determinación de la clasificación del sujeto obligado podrá ser modificada por la Superintendencia cuando en el proceso de supervisión se detecten debilidades en la gestión y prevención del riesgo de LC/FT/FPADM del sujeto obligado.
-El Superintendente podrá modificar en cualquier momento el Modelo de clasificación por tipo de sujeto obligado, mediante resolución razonada, en cuyo caso lo comunicará a los sujetos obligados, a través de los medios que considere convenientes.
-(Así reformado por resolución N° SGF-4004-2020 del 19 de noviembre de 2020)
+(Así reformado el párrafo anterior por resolución N° SGF-1558-2024 del 24 de mayo de 2024)
+La determinación de la clasificación del sujeto obligado podrá ser modificada por la Superintendencia cuando en el proceso de supervisión se detecten debilidades en la gestión y prevención del riesgo de LC/ FT/FPADM del sujeto obligado.
+(Así reformado el párrafo anterior por resolución N° SGF-1558-2024 del 24 de mayo de 2024)
+El Superintendente podrá modificar, mediante resolución razonada, el Modelo de clasificación por tipo de sujeto obligado en cualquier momento o producto de la revisión al modelo que se llevará a cabo cada cuatro años. En caso de que el modelo sea modificado se comunicará a los sujetos obligados, a través de los medios que considere convenientes.
+(Así reformado el párrafo anterior por resolución N° SGF-1558-2024 del 24 de mayo de 2024)

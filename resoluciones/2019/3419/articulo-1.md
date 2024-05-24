@@ -38,14 +38,14 @@ Para los propósitos del Reglamento y sus lineamientos generales, se establecen 
 4.1 Para efectos de esta normativa la Superintendencia define los siguientes tipos de sujetos inscritos:
 Tipo 1: corresponde a los sujetos inscritos, con una mayor complejidad en su operativa y estructura, que realizan actividades que por su naturaleza presentan mayor vulnerabilidad a ser utilizadas para la LC/FT/FPADM.
 Tipo 2: corresponde a los sujetos inscritos, con una complejidad media en su operativa y estructura, que realizan actividades que por su naturaleza son vulnerables a ser utilizadas para la LC/FT/FPADM.
-Tipo 3: corresponde a los sujetos inscritos, con poca complejidad en su operativa y estructura, que realizan actividades que por su naturaleza son catalogadas de menor vulnerabilidad a ser utilizadas para la LC/FT/FPADM. En el “Anexo Modelo de clasificación por tipo de sujeto obligado”, que forma parte integral de este Reglamento y sus lineamientos generales, se establecen los parámetros utilizados para la categorización de los tipos de sujetos inscritos.
+Tipo 3: corresponde a los sujetos inscritos, con poca complejidad en su operativa y estructura, que realizan actividades que por su naturaleza son catalogadas de menor vulnerabilidad a ser utilizadas para la LC/FT/FPADM. En el "Anexo Modelo de clasificación por tipo de sujeto obligado", que forma parte integral de este Reglamento y sus lineamientos generales, se establecen los parámetros utilizados para la categorización de los tipos de sujetos inscritos.
 4.2 El sujeto inscrito remitirá la información que determine la Superintendencia, a través de los medios que disponga la Superintendencia, para que ésta realice la categorización.
-Para efectos de la categorización que establece el “Anexo - Modelo de clasificación por tipo de sujeto obligado”, cuando el sujeto inscrito no suministre la información requerida para su categorización, se le calificará según las variables de Transaccionalidad y Actividad, hasta tanto el sujeto obligado presente la información correspondiente que le permita al Supervisor asignar la ponderación respectiva según los datos suministrados. La información que se utilizará de la persona física o jurídica sobre su transaccionalidad se tomará de las cuentas abiertas a su nombre en el Sistema Financiero Nacional. En caso de no contar con cuentas abiertas en el Sistema Financiero Nacional, se realizará únicamente con base en la variable de Actividad.
+Para efectos de la categorización que establece el "Anexo - Modelo de clasificación por tipo de sujeto obligado", cuando el sujeto inscrito no suministre la información requerida para su categorización, se le calificará según las variables de Transaccionalidad y Actividad, hasta tanto el sujeto obligado presente la información correspondiente que le permita al Supervisor asignar la ponderación respectiva según los datos suministrados. La información que se utilizará de la persona física o jurídica sobre su transaccionalidad se tomará de las cuentas abiertas a su nombre en el Sistema Financiero Nacional. En caso de no contar con cuentas abiertas en el Sistema Financiero Nacional, se realizará únicamente con base en la variable de Actividad.
 (Así reformado el párrafo anterior mediante resolución N° SGF-4004-2020 del 19 de noviembre de 2020)
 4.3 La clasificación del sujeto inscrito podrá ser modificada por la Superintendencia mediante resolución razonada, en los siguientes casos:
 a) Cuando se presenten cambios en la información del sujeto inscrito.
 b) Como resultado del proceso de supervisión al sujeto inscrito.
-c) Como resultado de la modificación del “Modelo de clasificación por tipo de sujeto obligado”.
+c) Como resultado de la modificación del "Modelo de clasificación por tipo de sujeto obligado".
 El Superintendente comunicará por los medios que disponga, el plazo para que los sujetos obligados que se inscriban ante la SUGEF, a partir de la entrada en vigencia de este Reglamento, se adapten a los requerimientos establecidos en el Reglamento y sus lineamientos generales, o cuando la categoría previamente asignada al sujeto inscrito haya sido modificada.
 ADMINISTRACIÓN DEL RIESGO DEL SUJETO OBLIGADO
 5. Procedimiento para la administración del riesgo del sujeto obligado
@@ -54,9 +54,9 @@ a) Tipo de clientes: cualidades o características de los clientes, al inicio y 
 b) Canales de distribución: medios y formas utilizados para ofrecer los productos y servicios a los clientes.
 c) Ubicación geográfica: zonas en las que el sujeto obligado realiza su actividad, tanto local como internacional.
 d) Productos y servicios: nuevos o existentes que ofrece el sujeto obligado. Este procedimiento se aplicará, según el tipo de sujeto inscrito, con la siguiente periodicidad:
-•Tipo 1, cada año.
-•Tipo 2, cada dos años.
-•Tipo 3, cada tres años.
+.Tipo 1, cada año.
+.Tipo 2, cada dos años.
+.Tipo 3, cada tres años.
 5.2 El sujeto obligado, según los resultados de la aplicación del procedimiento, establecerá planes correctivos que permitan subsanar las debilidades evidenciadas, con acciones, responsables, y plazos para su corrección.
 5.3 El sujeto obligado documentará y mantendrá a disposición de la Superintendencia y demás autoridades competentes, los resultados de la aplicación del procedimiento y de la toma de decisiones correspondiente.
 6. Nuevas tecnologías, productos, prácticas comerciales, mecanismos y canales de distribución.
@@ -318,41 +318,28 @@ c) Oficial de cumplimiento.
 29.4 La gerencia general u órgano homólogo del sujeto obligado establecerá un plan de acción para la atención de las debilidades identificadas producto de la auditoría interna realizada. Dicho plan de acción será aprobado por la autoridad máxima, a más tardar 30 días hábiles posteriores a la presentación del informe por parte de la auditoria interna.
 29.5 La autoridad máxima del sujeto obligado dará seguimiento al cumplimiento del plan de acción que atiende las debilidades identificadas por la auditoría interna o funcionario designado.
 AUDITORÍA EXTERNA
-30. Auditoría externa sobre prevención y control de LC/FT/FPADM
+30. Auditoría externa sobre prevención y control de LC/ FT/FPADM
 30.1 Los sujetos obligados que se someterán a la auditoría externa serán aquellos catalogados por la Superintendencia como tipo 1.
-30.2 El sujeto obligado se someterá a una auditoría externa al menos cada dos años, con corte al 31 de diciembre del año correspondiente. El informe será presentado, al sujeto obligado, por la firma de auditoría externa o auditor externo independiente, a más tardar el 31 de marzo del año posterior al corte.
-30.3 El sujeto obligado se someterá a la primera auditoria externa, con corte al 31 de diciembre del año siguiente de la fecha de notificación del tipo de sujeto inscrito asignado por la SUGEF.
-30.4 El sujeto obligado tipo 1 requerirá que en el alcance y los resultados de la auditoría externa se incluyan, al menos:
-a) Pruebas específicas sobre la efectividad de las políticas, procedimientos y controles adoptados por el sujeto obligado en la gestión del riesgo de LC/FT/FPADM, de acuerdo con la actividad por la cual fue inscrito.
-b) Detalle de aquellas operaciones, que a criterio del auditor externo, podrían representar actividades inusuales y fundamento de dicho criterio.
-c) Observaciones sobre aquellas situaciones que a criterio del auditor externo puedan representar debilidades en la gestión del riesgo de LC/FT/FPADM.
-31. Alcance e informe de auditoría externa
-31.1 Los resultados del trabajo de la auditoria externa serán comunicados mediante un informe, con alcance, resultados y recomendaciones correspondientes, y será conocido por los siguientes órganos, cuando existan dentro de la estructura organizativa, del sujeto obligado:
+30.2 El sujeto obligado se someterá a una auditoría externa al menos cada dos años, con corte al 31 de diciembre del año correspondiente. El informe será presentado por parte del sujeto obligado a la Superintendencia, a más tardar el último día hábil de abril del año posterior al corte.
+30.3 El sujeto obligado se someterá a la primera auditoría externa, con corte al 31 de diciembre del año siguiente de la fecha de notificación del tipo de sujeto inscrito asignado por la SUGEF.
+30.4 El período de estudio de la Auditoría Externa debe ser de los últimos 12 meses, con fecha corte a diciembre.
+30.5 El sujeto obligado verificará que el personal de la auditoría externa que realice los estudios de los riesgos de LC/FT/FPADM posea los conocimientos y experiencia demostrables en estos riesgos.
+30.6 El Sistema de Auditorías Externas (SAES) es el medio por el cual el sujeto obligado suministrará a la Superintendencia el Informe de Auditores Externos de LC/FT/FPADM.
+30.7 El sujeto obligado comunicará por medio del SAES el nombre de la firma de auditoría externa o auditor externo independiente que realizará el informe, a más tardar el 31 de agosto del año de corte de la información.
+(Así reformado el punto 30) anterior mediante resolución SGF-1558-2024 del 24 de mayo de 2024)
+31. Alcance e informe de auditoría 31. Alcance e informe de auditoría externa
+31.1 El auditor externo emitirá los resultados de la revisión mediante un "Informe de atestiguamiento o aseguramiento (Encargos de aseguramiento, distintos de la auditoría o revisiones de información financiera histórica), conforme los lineamientos definidos por el Colegio de Contadores Públicos de Costa Rica, con base en la NIEA 3000 "Encargos de Aseguramiento, distintos de la auditoría o revisiones de información financiera histórica", atestiguando con una certeza razonable con la opinión del auditor para cada área o aspecto evaluado, respecto a la eficacia y efectividad del proceso de identificación de los riesgos de LC/FT/ FPADM, así como la eficacia y efectividad de los controles implementados para mitigar los riesgos y cumplimiento de la Ley 7786, sus reformas y normativa conexa; junto con un informe complementario que debe contener al menos: i) periodo de revisión, ii) objetivo del estudio, iii) alcance, iv) pruebas aplicadas, y sus resultados, v) seguimientos de informes de periodos anteriores, vi) revisión de planes de acción correctivos implementados por el sujeto en estudio para revisiones anteriores.
+31.2 Los resultados del trabajo de la auditoría externa serán comunicados mediante un informe, con alcance, resultados y recomendaciones correspondientes, y será conocido por los siguientes órganos, cuando existan dentro de la estructura organizativa, del sujeto obligado:
 a) Autoridad máxima.
 b) Gerencia general u órgano homólogo.
 c) Oficial de cumplimiento.
-31.2 El informe de la auditoría externa se referirá sobre lo siguiente:
-a) Funciones, responsabilidades y obligaciones del Oficial de cumplimiento, así como requisitos mínimos que deben cumplir.
-b) Medidas y controles aplicados por el sujeto obligado con respecto a:
-i. Conocimiento del cliente y origen de sus fondos.
-ii. Mantenimiento y disponibilidad de información sobre los registros de transacciones con el cliente.
-iii. Personas expuestas políticamente (PEP).
-iv. Surgimiento de nuevas tecnologías, nuevos productos y nuevas prácticas comerciales.
-v. Comprobación de que no existe delegación en terceros; en la identificación del cliente, la identificación del beneficiario final y el propósito de la relación comercial.
-vi. Sucursales y filiales extranjeras.
-vii. Relaciones comerciales y transacciones con personas físicas o jurídicas e instituciones financieras domiciliados en países catalogados de riesgo por organismos internacionales.
-viii. Detección, análisis y reporte de operaciones sospechosas a la UIF del ICD, incluyendo los intentos de realizarlas.
-ix. Confidencialidad cuando se está entregando a la UIF del ICD un reporte de operación sospechosa o información relacionada.
-x. Clasificación de riesgo de los clientes.
-xi. Establecimiento de relaciones comerciales o de negocios con contrapartes.
-xii. Registro, control y remisión de los reportes (operaciones únicas, múltiples, transferencias y remesas).
-xiii. Monitoreo de las transacciones de los clientes.
-xiv. Desarrollo de programas de capacitación en materia de LC/FT/FPADM.
-xv. Verificación de la integridad de socios o beneficiarios, representantes legales, apoderados, miembros de junta directiva, administradores, miembros del órgano de vigilancia (fiscal o puesto equivalente) y empleados del sujeto obligado.
-xvi. Solicitudes de autoridades competentes, así como el decomiso, el secuestro u otra medida cautelar, sobre bases relacionadas con la comisión de los delitos previstos en la Ley 7786.
-c) Resultados del seguimiento de hallazgos de informes anteriores. Cuando no proceda la evaluación de alguno de los aspectos citados anteriormente, se señalarán expresamente en el informe los motivos.
-31.3 La gerencia general u órgano homólogo del sujeto obligado establecerá un plan de acción para la atención de las debilidades identificadas, producto de la auditoría externa realizada. Dicho plan de acción será aprobado por la autoridad máxima, a más tardar 30 días hábiles posteriores a la presentación del informe.
-31.4 La autoridad máxima del sujeto obligado dará seguimiento al cumplimiento del plan de acción, que atiende las debilidades identificadas en la auditoría externa.
+El informe y las comunicaciones del auditor externo, tales como la carta de gerencia, deben ser conocidos, discutidos, valorados y aprobados por la autoridad máxima, quien debe velar porque estos informes contribuyan al fortalecimiento de la gestión del riesgo de LC/FT/FPADM.
+31.3 El alcance del informe de auditoría externa será conforme las disposiciones de la Ley 7786, sus reformas y normativa conexa relacionada con el cumplimiento de las medidas para prevenir los riesgos de LC/ FT/FPADM. La auditoría externa incluirá pruebas específicas con un enfoque basado en riesgos, sobre la eficacia y efectividad de las políticas, procedimientos y controles para prevenir los riesgos de LC/FT/FPADM.
+31.4 El SAES orientará al auditor externo durante el proceso de ejecución y preparación del informe, asimismo, el sistema solicitará toda la información general del estudio y los diferentes tipos de resultados y calificaciones que puede consignar el auditor.
+31.5 Para la preparación y elaboración de este informe, los auditores externos no pueden tener acceso a la identidad de los clientes de los casos que se investiguen, o que hayan sido reportados a las autoridades como operaciones sospechosas. Esto no impide que los auditores externos realicen evaluaciones al proceso implementado por el sujeto obligado para la identificación de operaciones inusuales y sospechosas. Cuando el auditor externo detecte operaciones que a su criterio constituyen operaciones inusuales, el auditor informará al Oficial de cumplimiento, quien las evaluará y decidirá si deben ser reportadas a la UIF.
+31.6 El sujeto obligado establecerá un plan de acción para la atención de las debilidades identificadas, producto de la auditoría externa realizada. Dicho plan de acción será aprobado por la autoridad máxima, a más tardar 30 días hábiles posteriores a la presentación del informe.
+31.7 La autoridad máxima del sujeto obligado dará seguimiento al cumplimiento del plan de acción, que atiende las debilidades identificadas en la auditoría externa.
+(Así reformado el punto 31) mediante resolución SGF-1558-2024 del 24 de mayo de 2024)
 MANUAL DE PREVENCIÓN, CAPACITACIÓN Y CONOZCA A SU PERSONAL
 MANUAL DE PREVENCIÓN
 32. Manual de prevención del riesgo de LC/FT/FPADM.
@@ -423,7 +410,7 @@ c) Actividad económica.
 d) Categorías de riesgo del cliente.
 e) Tipos de alerta.
 36.4 De acuerdo con la evaluación de riesgo de los clientes, los niveles de monitoreo serán:
-a) Monitoreo básico: proceso que le permite al sujeto obligado confirmar que las transacciones realizadas por el cliente son congruentes con lo declarado en el formulario denominado “Conozca a su cliente”, y con la categoría de riesgo del mismo. Las medidas de monitoreo básico se aplicarán a los clientes clasificados de riesgo bajo y de riesgo moderado.
+a) Monitoreo básico: proceso que le permite al sujeto obligado confirmar que las transacciones realizadas por el cliente son congruentes con lo declarado en el formulario denominado "Conozca a su cliente", y con la categoría de riesgo del mismo. Las medidas de monitoreo básico se aplicarán a los clientes clasificados de riesgo bajo y de riesgo moderado.
 b) Monitoreo intensificado: proceso que incluye medidas adicionales a las aplicadas en el monitoreo básico, de acuerdo con el riesgo de LC/FT/FPADM y de las señales de alerta del cliente. Las medidas de monitoreo intensificado se aplicarán a los clientes clasificados de riesgo alto y aquellos que considere pertinente el sujeto obligado.
 36.5 El sujeto obligado utilizará información de organizaciones internacionales sobre factores de exposición al riesgo de LC/FT/FPADM, tales como las siguientes:
 a) Grupo de Acción Financiera (GAFI).
