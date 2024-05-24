@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este reglamento será aplicable a todos los procedimientos de contratación pública que promueva el CCDR de Sarapiquí. Las contrataciones que se hagan mediante el procedimiento de caja chica serán realizadas según lo definido en el respectivo reglamento.

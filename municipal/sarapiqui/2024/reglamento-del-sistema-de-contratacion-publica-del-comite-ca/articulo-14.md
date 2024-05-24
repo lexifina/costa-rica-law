@@ -1,0 +1,3 @@
+Artículo 14. Estimación de la contratación y determinación de procedimiento.
+La estimación de la contratación y la determinación del procedimiento a seguir para su celebración será responsabilidad del Gestor de Programas Deportivos y Recreativo quien deberá partir de los estudios de mercado realizado conforme lo establece las disposiciones legales de la Ley General de Contratación Pública y su reglamento.
+El Gestor de Programas Deportivos y Recreativo será el responsable de determinar el tipo de procedimiento de contratación que deberá seguirse a partir de la valoración de lo que mejor se ajuste a la naturaleza de los requerimientos instituciones, sea tanto para un procedimiento ordinario, extraordinario, especial o por excepción, según resulte aplicable.

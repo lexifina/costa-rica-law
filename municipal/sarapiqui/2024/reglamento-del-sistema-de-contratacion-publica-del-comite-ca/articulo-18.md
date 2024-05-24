@@ -1,0 +1,3 @@
+Artículo 18. Elaboración, modificación y aclaración del pliego de condiciones.
+El Gestor de Programas Deportivos y Recreativo deberá elaborar los pliegos de condiciones, procurando una redacción clara, precisa y completa que permita la más amplia participación por parte de los potenciales proveedores y el cumplimiento de todas las normas y principios aplicables, así como las cláusulas que establezca la Ley General de Contratación Pública y su reglamento.
+Además, deberá gestionar, las modificaciones y aclaraciones a dicho pliego y sus publicaciones con apego a lo dispuesto en la ley supracitada, así como gestionar, tramitar y publicar las prórrogas al plazo de recepción de ofertas, todo dentro los plazos previstos para el tipo de procedimiento correspondiente.

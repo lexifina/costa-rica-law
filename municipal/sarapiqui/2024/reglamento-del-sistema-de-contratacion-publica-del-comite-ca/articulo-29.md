@@ -1,0 +1,2 @@
+Artículo 29. Recepción de los bienes, servicios y obras.
+El administrador del contrato tendrá la responsabilidad de llevar a cabo la recepción de los bienes, servicio u obras bajo su responsabilidad, de conformidad con el procedimiento y las directrices establecidas por el Gestor de Programas Deportivos y Recreativo, así como en cumplimiento de las disposiciones previstas en la Ley General de Contratación Pública.

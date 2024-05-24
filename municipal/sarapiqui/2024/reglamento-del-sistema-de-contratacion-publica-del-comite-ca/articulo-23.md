@@ -1,0 +1,9 @@
+Artículo 23. El acto final.
+El acto final deberá estar fundamentado en los criterios técnicos, económicos y jurídicos emitidos por las instancias correspondientes cuando así lo amerite.
+El responsable de emitir el acuerdo o resolución final del procedimiento podrá apartarse de los criterios técnicos y jurídicos, dejando constancia expresa y razonada en el expediente respectivo y tomando
+como base a esos efectos, otro criterio de la misma naturaleza, el cual deberá ser agregado al expediente.
+La competencia, en procedimientos ordinarios, extraordinarios y especiales, en cuanto al dictado del acto final, la revocación del acto final no firme, la declaratoria de insubsistencia, la readjudicación, la nueva adjudicación, la caducidad de los procedimientos de contratación; así como la modificación, cesión del o terminación del contrato queda definida a partir de los siguientes rangos económicos:
+a) El Gestor de Programas Deportivos y Recreativo será el competente de adoptar dichos actos en aquellos procedimientos cuyo monto adjudicado sea menor al 30% del umbral para la Licitación Reducida.
+b) El Presidente de la Junta Directiva será la competente de adoptar dichos actos en aquellos procedimientos cuyo monto adjudicado, sea igual o superior al 30% del umbral de la Licitación Reducida.
+c) La Junta Directiva será la competente de adoptar dichos actos en las Licitaciones Mayores y Menores.
+En el caso de situaciones de urgencia que amenacen la continuidad del servicio que brinda la entidad en los que se deba realizar de forma previa la contratación, con base en el procedimiento especial de urgencia previsto en la Ley General de Contratación Pública, para su posterior registro en el sistema digital unificado, cada órgano deberá emitir la autorización motivada según su competencia en función del monto a adjudicar.
