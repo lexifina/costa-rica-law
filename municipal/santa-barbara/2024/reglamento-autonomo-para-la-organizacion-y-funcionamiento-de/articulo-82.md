@@ -1,0 +1,3 @@
+CAPÍTULO IX.
+DE LAS INSTALACIONES
+Artículo 82.- El CCDRSB será el responsable y administrador general de las instalaciones municipales deportivas y recreativas según lo dispuesto en la Ley No. 7794 y sus reformas, además podrá conceder a las Organizaciones Deportivas aprobadas por el ICODER debidamente inscritas en el Registro de Asociaciones con domicilio legal en el Cantón de Santa Bárbara, Comités Comunales y Comisiones de Instalaciones Deportivas su administración y mantenimiento, sin que por esta razón ceda su responsabilidad, según convenio para tales efectos. El CCDRSB podrá alquilar, arrendar o rentar y cobrar tarifas por servicios prestados.

@@ -1,0 +1,1 @@
+Artículo 90.- Los horarios para el uso de las instalaciones deportivas y recreativas bajo la administración del comité, serán definidos por la Junta Directiva, procurando el mejor provecho y satisfacción del fin público de los inmuebles.

@@ -1,0 +1,1 @@
+Artículo 9.- Las personas funcionarias del CCDRSBH que recauden, custodien o administren fondos y valores públicos, deberán rendir caución según la clasificación por nivel de responsabilidad establecido en el artículo no. 07 del Reglamento Sobre la Rendición de Cauciones a favor del Comité Cantonal de Deportes y Recreación de Santa Bárbara de Heredia.

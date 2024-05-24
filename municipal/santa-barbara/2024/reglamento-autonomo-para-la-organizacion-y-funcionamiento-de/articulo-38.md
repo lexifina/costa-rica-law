@@ -1,0 +1,1 @@
+Artículo 38.-Ausencia de Encargado de la Administración. A falta de un Administrador (a), dichas funciones las podrá realizar un miembro de la Junta Directiva con las mismas funciones y responsabilidades, pero sin recibir salario por sus funciones.

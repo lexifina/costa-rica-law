@@ -1,0 +1,2 @@
+Artículo 19.- Planes de trabajo comunales. Los Comités Comunales, Asociaciones Deportivas, y Comisiones establecidas deberán entregar al Comité Cantonal en la segunda quincena del mes de mayo de cada año, los planes de trabajo para el año inmediato posterior, los cuales, serán sujetos de aprobación por parte del Comité Cantonal, el que ejercerá los controles debidos para su ejecución.
+Además, deberán entregar informes trimestrales de labores y de ingresos y egresos, así como los libros de actas, tesorería y cualquier otro que el CCDRSB solicite.

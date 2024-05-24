@@ -1,0 +1,1 @@
+Artículo 13.-Sede Electoral. Se pone a disposición el Salón de Sesiones del Concejo Municipal de la Municipalidad de Santa Bárbara el cual cuenta con audio y video, para que sea el recinto de Asambleas para la designación de los miembros del comité según lo establecido en el artículo 12. La solicitud deberá hacerse ante la secretaria del Concejo.

@@ -1,0 +1,1 @@
+Artículo 46.-Votación de acuerdos. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto y de empatar otra vez, el asunto se tendrá por desechado y deberá ser conocido nuevamente en otra sesión.

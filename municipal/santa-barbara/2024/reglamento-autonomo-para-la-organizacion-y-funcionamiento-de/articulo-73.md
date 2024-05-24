@@ -1,0 +1,1 @@
+Artículo 73.- Aprobación del presupuesto. El presupuesto ordinario del CCDRSB, así como sus respectivos planes, deben ser aprobados por la Junta Directiva del comité a más tardar en la segunda quincena del mes de junio y ser presentados para su conocimiento al Concejo Municipal, en la primera semana del mes de julio, de conformidad con lo establecido en el Código Municipal.

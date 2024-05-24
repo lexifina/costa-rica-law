@@ -1,0 +1,4 @@
+Artículo 64.- En caso de renuncia o destitución de una o uno de los miembros del Comité Comunal, la sustitución se realizará de la siguiente forma:
+a. El sustituto o sustituta desempeñará el cargo correspondiente, por el tiempo que falte para completar el período en que fue nombrado el o la titular.
+b. Ante la renuncia o destitución de uno a dos miembros la Junta Directiva del Comité Comunal podrá nombrar los sustitutos directamente, comunicándole a la Junta Directiva del CCDRSB para su respectiva juramentación, quien le comunicará al Concejo Municipal delos cambios habidos.
+c. Ante la renuncia o destitución de más de dos miembros, la Junta Directiva del Comité Cantonal deberá convocar a una asamblea de acuerdo el procedimiento establecido en el artículo 14 de este Reglamento y de la Comunidad correspondiente para conformar la totalidad del nuevo Comité Comunal.

@@ -1,0 +1,1 @@
+Artículo 70.- Las organizaciones deportivas podrán devengar ingresos por el cobro de tarifas por servicios prestados dentro de las instalaciones deportivas, siempre que exista un Convenio para tales efectos, aprobado por la Junta Directiva del Comité, rubros que podrán ser utilizados para sus programas deportivos y recreativos.

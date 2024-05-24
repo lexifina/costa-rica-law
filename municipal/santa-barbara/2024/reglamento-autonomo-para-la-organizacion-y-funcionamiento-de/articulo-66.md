@@ -1,0 +1,1 @@
+Artículo 66.- Los Comités Comunales deberán llevar un archivo administrativo en el que consten los informes referentes a su gestión, los cuales deberán ser presentados ante la Junta Directiva del Comité trimestralmente, sin perjuicio que el Concejo Municipal o la Junta Directiva del comité requiera la información mensualmente.
