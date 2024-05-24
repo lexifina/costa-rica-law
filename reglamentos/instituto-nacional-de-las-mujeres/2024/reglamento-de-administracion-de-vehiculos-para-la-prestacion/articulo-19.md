@@ -1,0 +1,1 @@
+Artículo 19.-Disponibilidad de Transporte: Si en un lapso de una hora no se ha utilizado el servicio asignado, y no se ha comunicado la prórroga de la salida, la Instancia responsable que tiene asignado el vehículo, podrá disponer el vehículo para cubrir otras necesidades.

@@ -1,0 +1,1 @@
+Artículo 55.-De las faltas Graves: Se considerarán faltas graves las infracciones a las disposiciones de los artículos 24 inciso b), e), f) h), i), K), l), m), n), p), q), r), s), u), v), w) y x), artículo 25 inciso a), d), e), f), g), h) y i) así como los dispuesto en los artículos 35, 36, 37, 39 y 40, 43 inciso g) y otras que se deriven de la aplicación de este Reglamento.

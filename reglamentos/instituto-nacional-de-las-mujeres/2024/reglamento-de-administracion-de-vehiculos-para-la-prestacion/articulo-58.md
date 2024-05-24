@@ -1,0 +1,1 @@
+Artículo 58.-Resolución administrativa: Se deberá emitir una resolución administrativa correspondiente a lo relativo a la responsabilidad civil, como disciplinaria, dentro de los términos legalmente establecidos siendo notificado lo resuelto.

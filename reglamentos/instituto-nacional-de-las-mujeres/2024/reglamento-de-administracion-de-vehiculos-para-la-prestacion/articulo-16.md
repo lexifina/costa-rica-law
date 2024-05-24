@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Control y asignación de los vehículos
+Artículo 16.-Del control y asignaciones de los vehículos a la persona autorizada y a las personas operadoras de equipo móvil: Las Instancias responsables que tienen asignado el vehículo tendrán a su cargo asignar la utilización de los vehículos según las normas que esta reglamentación contiene, implementar las acciones pertinentes a efecto de llevar los controles de uso, tomar las medidas administrativas y de seguridad que se estimen oportunas, así como procurar el mantenimiento técnico-mecánico necesario para que estén siempre en perfectas condiciones de uso.

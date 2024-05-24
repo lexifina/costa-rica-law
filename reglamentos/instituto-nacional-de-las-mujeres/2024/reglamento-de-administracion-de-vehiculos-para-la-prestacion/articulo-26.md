@@ -1,0 +1,25 @@
+Artículo 26.-De las personas autorizadas y las personas operadoras de equipo móvil. Las personas que conducen vehículos institucionales están obligadas además de acatar lo que establece la normativa vigente, lo siguiente:
+a) Conocer y cumplir estrictamente las disposiciones contenidas en el presente Reglamento, como la Ley de Tránsito por vías Terrestres.
+b) Portar y tener actualizada la licencia, la cual debe ser acorde con el tipo de vehículo que conduce.
+c) Revisar el vehículo antes de cualquier salida: carrocería para constatar si posee algún daño, luces, direccionales, lubricantes, combustibles, nivel de agua, cinturones, carrocería, llave rana, gata, llanta de repuesto, extintores, reportando de inmediato a la Instancia responsable que tiene la administración del vehículo cualquier desperfecto.
+d) Mantener el vehículo en óptimas condiciones de limpieza.
+e) Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad de pasajeros.
+f) Mantener durante la conducción la prudencia, respeto y el buen comportamiento que ordena observar el Reglamento Autónomo de Servicios del INAMU y la Ley de Tránsito por Vías Terrestres de manera que no ponga en peligro su propia vida, la seguridad de otras personas, y la unidad que conduce, así como otros vehículos y bienes a terceros.
+g) Seguir la ruta que considere más idónea. En caso fortuito o fuerza mayor deberá continuar su recorrido escogiendo la ruta más racional y eficiente.
+h) Comunicar dentro de dos días a la instancia responsable que tiene asignado el vehículo cuando se le han realizado multas impuestas por actos atribuibles por defectuosa o inadecuada conducción e infringen la Ley de Tránsito por Vías Terrestres, así como estacionó metros o parquímetro u otros de índole legal.
+i) Asumir el pago de las multas cuando se ha determinado su responsabilidad, el cual deberá hacerlo en el plazo de un mes, remitiendo copia del recibo de cancelación a la Instancia responsable que tiene la administración del vehículo. El incumplimiento derivara sanciones disciplinarias, civil, penal, administrativa y además el pago de los intereses correspondientes.
+j) Debe programar con la persona profesional en medicina una cita, al menos una vez al año, y someterse a los exámenes que le prescriba para determinar la idoneidad física y mental necesaria para la conducción de vehículos. Del resultado de lo anterior, la persona médica si considera que hay afectación para desempeñar sus funciones deberá remitir un informe al Departamento de Recursos Humanos, el DSGT será el responsable de que se cumpla con dichas valoraciones.
+k) Revisar que en el vehículo se porté la tarjeta con los derechos de circulación respectivos y contar con la autorización al efecto.
+l) Guardar la más estricta discreción de los asuntos oficiales o privados que se discuten en su presencia durante la gira.
+m) Informar a los tres días naturales posible a la Instancia responsable que tiene la administración del vehículo, acerca de cualquier accidente o irregularidad que ocurra, para lo cual deberá seguir el protocolo de accidentes, presentar el informe de relación de hechos, aportando los documentos que se consideren necesarios (parte de tránsito, pruebas, aviso de accidente del INS), en caso de incumplimiento se generara responsabilidad disciplinaria, penal, civil y administrativa.
+n) Respetar las señales de tránsito y las velocidades máximas y mínimas establecidas. Acatar asimismo las instrucciones que en carretera giren los inspectores de tránsito.
+o) Coordinar con la persona autorizada y responsable de la gira, los aspectos logísticos y operativos de esta.
+p) En condiciones adversas a la conducción normal del vehículo deberá salvaguardar la integridad de las personas ocupantes y la protección del vehículo, determinando el mejor terreno para transitar, salvo que las condiciones del terreno presenten aspectos que obliguen necesariamente a detener la marcha.
+q) No estacionar el vehículo según lo indicado en el artículo 36 de este Reglamento.
+r) Teniendo conocimiento de un daño causado al vehículo propiedad de la institución y lo ocultare, asumirá la responsabilidad administrativa, civil, disciplinaria y penal legal que por ello pueda imputársele.
+s) Acatar las instrucciones que gire la Instancia responsable que tiene la administración del vehículo.
+t) Portar el carné de identificación de la Institución.
+u) Abstenerse de abandonar el vehículo, salvo caso fortuito o fuerza mayor, en el cual se exponga en peligro la vida de las personas ocupantes del vehículo.
+v) Al finalizar la jornada laboral o la gira, trasladar el vehículo al lugar destinado para su custodia.
+w) Utilizar la tarjeta de combustible con racionalidad y verificar que la misma posea fondos necesarios.
+x) En caso de que sufran algún tipo de accidente de tránsito, tendrá la obligación de comparecer ante la autoridad judicial competente, a rendir dentro del plazo establecido por la Ley de Tránsito, la declaración correspondiente.

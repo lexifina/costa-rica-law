@@ -1,0 +1,1 @@
+Artículo 46.-Reposición de la tarjeta. La solicitud de la reposición o renovación de la tarjeta deberá gestionarla el Encargado del Subproceso. En caso de reposición de la tarjeta se deberá dejar constancia de esta, y gestionar el cobro del costo.

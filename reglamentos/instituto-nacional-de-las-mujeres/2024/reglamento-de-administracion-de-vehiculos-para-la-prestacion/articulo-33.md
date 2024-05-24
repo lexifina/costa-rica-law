@@ -1,0 +1,1 @@
+Artículo 33.-Responsabilidad jerárquica. La jefatura superior inmediata de las personas autorizadas, las personas operadoras de equipo móvil y la persona que utiliza el transporte serán responsables de velar porque éstas cumplan con las obligaciones, requisitos y condiciones que en el presente Reglamento se disponen para utilizar el servicio de transporte.

@@ -1,0 +1,1 @@
+Artículo 48.-De la Asesoría Legal. La Unidad de Asesoría Legal del INAMU, brindará y asistencia en lo relacionado con la responsabilidad solidaria del INAMU, así como las gestiones que correspondan relacionadas con el automotor.

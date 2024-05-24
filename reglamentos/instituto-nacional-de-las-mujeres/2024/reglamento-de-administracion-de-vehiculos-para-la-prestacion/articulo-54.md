@@ -1,0 +1,1 @@
+Artículo 54.-De las faltas mera comprobación y Leves: Se considerarán falta de mera comprobación las que no requieren de una investigación para determinarse y faltas leves son las infracciones a las disposiciones de los artículos 25 incisos c), d), g) ,j), o), t) y artículo 25, inciso b) y c), articulo 34, todo de este Reglamento,

@@ -1,0 +1,1 @@
+Artículo 21.-Agrupación de solicitudes: Con el propósito de lograr un mejor aprovechamiento en el uso de los vehículos de la Institución, la Instancia responsable que tiene asignado el vehículo podrá agrupar en un mismo viaje varias solicitudes de diferentes personas usuarias o dependencias.

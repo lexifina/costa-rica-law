@@ -1,0 +1,1 @@
+Artículo 35.-Prohibido Intercambio de accesorios: Las personas operadoras de equipo móvil de los vehículos Institucionales no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con autorización del DSGT.

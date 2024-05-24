@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Registro y control del abastecimiento
+y compra del combustible
+Artículo 42.-Del uso de la tarjeta: La tarjeta será utilizada exclusivamente para el pago por compra de combustible en los establecimientos que estén afiliados al sistema de recepción de tarjetas. Esta tarjeta es de uso estrictamente institucional y se designa al vehículo. El uso adecuado y custodia de la tarjeta será de la persona operadora de equipo móvil o la persona funcionaria autorizada que se le ha asignado el vehículo. Este deberá ajustarse a los horarios de uso, al límite máximo diario asignado, cantidad de transacciones por día, indicadas por el Administrador de Tarjetas¸ para lo cual tomará en consideración las condiciones propias de la función asignada en cada caso particular y a la planificación mensual de los recursos.

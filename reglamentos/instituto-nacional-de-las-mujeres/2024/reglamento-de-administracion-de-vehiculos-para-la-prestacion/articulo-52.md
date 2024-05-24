@@ -1,0 +1,1 @@
+Artículo 52.-Debido proceso. A efectos de imponer cualquier sanción, deberán observarse los derechos y garantías inherentes al principio del debido proceso. Si en la investigación realizada se considera que existió responsabilidad disciplinaria y/o administrativa o el fallo de la autoridad competente, demuestra la culpabilidad.

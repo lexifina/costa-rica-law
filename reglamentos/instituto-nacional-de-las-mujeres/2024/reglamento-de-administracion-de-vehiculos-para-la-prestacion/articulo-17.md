@@ -1,0 +1,1 @@
+Artículo 17.-Póliza para los vehículos. Todos los vehículos propiedad del INAMU estarán cubiertos por una póliza de seguros contra todo riesgo, la cual será contratada con el Instituto Nacional de Seguros, el DSGT debe de velar porque las pólizas se mantengan al día.
