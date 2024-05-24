@@ -21,6 +21,8 @@ b. Vehículos eléctricos o híbridos nuevos: ¢25.000.000,00 (veinticinco millo
 c. Soluciones para el hogar: ¢2.000.000,00 (dos millones de colones exactos).
 d. Conversión de combustible: ¢1.000.000,00 (un millón de colones exactos).
 (*) (Así adicionado el inciso i) anterior en sesión N° 0113 del 10 de octubre de 2022)
+j) Línea de Credi Emprende: ¢1 000 000,00 (un millón de colones con 0/100).
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
 Los montos máximos autorizados para cada una de las diferentes líneas son revisados anualmente basándose en criterios técnicos, y pueden ser modificados únicamente por acuerdo expreso de la Junta Directiva de JUPEMA.
 (Así reformado el párrafo anterior mediante sesión N° 0004-2022 del 6 de enero de 2022)
 (Así reformado mediante sesión ordinaria N° 0069-2021 del 18 de junio del 2021)

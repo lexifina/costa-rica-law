@@ -1,2 +1,15 @@
-Artículo 15.-Pagarés. Como parte del proceso de formalización cuando la garantía no sea hipotecaria; el solicitante firma un Pagaré, documento legal que contiene las principales características de la operación crediticia.
-(Así reformado en sesión N° 0113 del 10 de octubre de 2022)
+Artículo 15 Línea de Credi Emprende.
+1. Completar la solicitud de crédito.
+2. Presentar la cédula de identidad vigente y en buen estado.
+3. Presentar elementos probatorios de que el emprendimiento ya está implementado y una nota que detalle el destino de los recursos.
+4. El solicitante debe aportar una constancia emitida por su patrono, donde se detallen los salarios nominales y líquidos del último mes o las últimas dos quincenas según corresponda. En el caso de los jubilados y pensionados, la constancia es emitida por JUPEMA, así como en los casos de trabajadores del Ministerio de Educación Pública cuando se tenga acceso a esa información.
+Solo se considera el ingreso fijo que reporte su patrono como servidor del Magisterio Nacional. Para efectos de análisis de capacidad de pago y a excepción de los arreglos de pago, solo se consideran los "pluses salariales" definidos en el P14-IT-002 Otorgamiento de Créditos.
+5. Haber aportado al menos 36 cotizaciones al Régimen de Pensiones del Magisterio Nacional en los últimos 4 años y tener nombramiento definido para los siguientes 3 meses.
+6. De existir compromisos crediticios con JUPEMA, estos deben estar completamente al día y mantener una calificación interna de A, B o C.
+7. Firmar la autorización para la consulta del reporte de Información Crediticia, con el fin de evaluar el comportamiento de pago vigente e histórico del solicitante, para ser sujeto de crédito, debe tener un comportamiento de pago de 1 o 2.
+8. Aportar el número de una cuenta cliente o cuenta IBAN donde se le puede realizar el depósito del monto otorgado. No aplica para jubilados y pensionados o en aquellos casos que ya tengan una cuenta cliente registrada en el Sistema de Crédito y Cobro.
+9. Proporcionar satisfactoriamente el nombre y número de teléfono de las referencias solicitadas por el ejecutivo de JUPEMA.
+10. Las cuotas del crédito, incluyendo amortización, pago de intereses y póliza, según corresponda, son deducidas del salario ordinario, por el patrono y reportadas ante JUPEMA en los primeros diez días hábiles del mes, junto con el pago de las cuotas obrero-patronales. En el caso de los jubilados y pensionados se deducen de su giro de pensión.
+11. En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito, para resguardar los intereses de la Institución.
+12. Los sujetos de crédito indicados en el presente reglamento, que por ser miembros de Juntas Directivas cumplan con lo indicado en el Procedimiento para el Reconocimiento de Cotizaciones para la Pensión al Amparo de la Ley 7531 y la III Convención Colectiva, podrán considerar las dietas cotizadas como un ingreso válido para la solicitud del crédito. En caso de que el plazo del crédito sea mayor al tiempo de su nombramiento como directivo, se deberá tomar en cuenta que su liquidez, posterior al periodo de nombramiento en la Junta Directiva, soporte el monto de la cuota crediticia mensual.
+(Así adicionado mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)

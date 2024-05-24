@@ -14,15 +14,24 @@ e. Dirección exacta del solicitante.
 f. Números de teléfono en que puede ser localizado (Celular y/o domiciliar).
 g. Dirección de correo electrónico.
 f) Los solicitantes de este tipo de crédito deben aportar las notas de autorización debidamente firmadas por los fiadores aceptando esta condición. Además, deben adjuntar certificaciones o constancias del salario o pensión del último mes de cada fiador, así como certificación de que se encuentra en propiedad.
-g) En caso de que el crédito sea destinado a la cancelación de pasivos, el solicitante debe aportar la documentación requerida por la Unidad de Crédito que demuestre la utilización original de los recursos en el proyecto MYPIME.
-h) Tanto para los casos de solicitudes con garantía hipotecaria como de garantía fiduciaria, el solicitante debe proporcionar los datos necesarios para que el Contador Público Autorizado asignado por JUPEMA, pueda realizar un estudio de factibilidad y brindar su criterio técnico sobre la viabilidad del proyecto, que se vaya a financiar.
-i) Si la garantía es hipotecaria, debe presentar la certificación del Registro Nacional con no más de 8 días naturales de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como garantía o que, a criterio del notario o perito evaluador, puedan afectar los intereses institucionales.
-j) Debe presentar certificación original de la propiedad a ofrecer como garantía, emitida ésta por la Municipalidad correspondiente donde indique estar al día en el pago de Impuestos Municipales y Territoriales.
-k) Debe autorizar, cuando corresponda, el avalúo de la propiedad a ofrecer como garantía, el cual es elaborado y presentado por el profesional designado por JUPEMA.
-l) Debe aportar copia certificada del plano catastrado.
-m) Debe presentar la cédula de identidad vigente y en buen estado.
-n) Debe proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
-o) En caso de garantía hipotecaria, debe depositar a favor de JUPEMA, el monto de los honorarios que se requieran para la realización del avalúo, el estudio de factibilidad y otros gastos inherentes.
+g) En caso de que el crédito sea destinado a la cancelación de pasivos, el solicitante debe aportar la documentación requerida por la Unidad de Crédito que demuestre la utilización original de los recursos en el proyecto MIPYME.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+h) Si la garantía es hipotecaria, debe presentar la certificación del Registro Nacional con no más de 8 días naturales de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como garantía o que, a criterio del notario o perito evaluador, puedan afectar los intereses institucionales.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+i) Debe presentar certificación original de la propiedad a ofrecer como garantía, emitida ésta por la Municipalidad correspondiente, donde indique estar al día en el pago de Impuestos Municipales y Territoriales.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+j) Debe autorizar, cuando corresponda, el avalúo de la propiedad a ofrecer como garantía, el cual es elaborado y presentado por el profesional designado por JUPEMA.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+k) Debe aportar copia certificada del plano catastrado.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+l) Debe presentar la cédula de identidad vigente y en buen estado.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+m) Debe proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+n) En caso de garantía hipotecaria, debe depositar a favor de JUPEMA, el monto de los honorarios que se requieran para la realización del avalúo y otros gastos inherentes.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
+o) Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos de la Junta Directiva.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
 p) Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que deben acompañarla, la Institución no adquiere compromiso y obligación alguna con el solicitante, y que la aprobación de este queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria y los acuerdos expresos de la Junta Directiva.
 El Departamento de Crédito y Cobro realiza un estudio formal con base en la información recibida y en las investigaciones adicionales que considere pertinente realizar. Lo anterior con el propósito de presentar el caso en el Comité de Crédito para su análisis y resolución mediante acuerdo (aprobación o denegatoria).
 (Así reformado mediante sesión N° 0004-2022 del 6 de enero de 2022)

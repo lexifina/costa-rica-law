@@ -1,3 +1,4 @@
-Artículo 19.-Sustitución de garantías. JUPEMA se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
-Es potestad del Departamento de Crédito y Cobro, solicitar la sustitución de garantías otorgadas bajo la línea de créditos MIPYME.
+Artículo 19.-Garantía hipotecaria. Para las operaciones bajo las líneas MIPYME (cuya garantía sea hipotecaria) y ENTIDADES SOCIALES Y FINANCIERAS DEL MAGISTERIO NACIONAL el crédito debe estar garantizado a satisfacción de JUPEMA mediante una garantía hipotecaria en primer grado. El monto del avalúo de la propiedad se toma hasta por un máximo del 80% del valor consignado en el informe respectivo.
+Aún lo anterior, el Departamento de Crédito y Cobro, se reserva el derecho de emitir su criterio técnico, en el sentido de recomendar la suscripción de garantías adicionales. Lo anterior en procura de salvaguardar los intereses de la Institución.
 (Así reformado en sesión N° 0113 del 10 de octubre de 2022)
+(Así modificada su numeración mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024, que lo traspasó del artículo 18 al artículo 19)

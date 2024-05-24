@@ -20,6 +20,8 @@ b. Vehículos eléctricos o híbridos nuevos: 8% fija.
 c. Soluciones para el hogar: 11% fija.
 d. Conversión de combustible: 11% fija.
 (*) (Así adicionado el inciso i) anterior en sesión N° 0113 del 10 de octubre de 2022)
+j) Línea Credi Emprende: 8% anual fija sobre saldos.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)
 Las tasas de interés solo pueden ser variadas por acuerdo de la Junta Directiva y se aplican únicamente para los nuevos créditos que se otorguen.
 Por acuerdo de Junta Directiva, se pueden establecer tasas de interés, ajustables y revisables semestralmente.
 Para efectos de cobro de intereses moratorios, se tiene como fecha de cobro, el primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.

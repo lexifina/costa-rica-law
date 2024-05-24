@@ -17,3 +17,5 @@ c. Soluciones para el hogar: 5 años.
 d. Conversión de combustible: 5 años.
 (*) (Así adicionado el inciso i) anterior en sesión N° 0113 del 10 de octubre de 2022)
 (Así reformado mediante sesión ordinaria N° 0069-2021 del 18 de junio del 2021)
+j) Línea Credi Emprende: 8% anual fija sobre saldos.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)

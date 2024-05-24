@@ -47,3 +47,4 @@ Reglamento General de Crédito
 | 32 | 2022-10-10 | Reglamento 113 (2022-10-10) |
 | 33 | 2023-09-13 | Reglamento 101 (2023-09-13) |
 | 34 | 2024-03-05 | Reglamento 26 (2024-03-05) |
+| 35 | 2024-05-24 | Reglamento 55 (2024-05-24) |

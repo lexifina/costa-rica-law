@@ -1,2 +1,4 @@
-Artículo 26.-Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en la normativa de la Unidad de Cobro.
-(Así reformado en sesión N° 0113 del 10 de octubre de 2022)
+Artículo 26.-Gastos y trámites para la formalización
+JUPEMA cobra para cubrir los gastos administrativos un 2% del monto de la operación, salvo para los créditos de Salud, Créditos de Urgencia, Pago de Deuda al Fondo de Pensión y para las Entidades Sociales y Financieras del Magisterio Nacional; líneas crediticias que no devengan este tipo de gasto en la formalización. Los gastos de honorarios de abogados, peritos, contadores, seguros, así como de cualquier otra índole atinente a la inscripción de las garantías, corren por cuenta del prestatario; estos honorarios se rigen por lo estipulado en el Contrato de Servicios Profesionales que al efecto establece JUPEMA.
+(Así reformado en sesión N° 26-2024 del 5 de marzo del 2024)
+(Así modificada su numeración mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024, que lo traspasó del artículo 25 al artículo 26)

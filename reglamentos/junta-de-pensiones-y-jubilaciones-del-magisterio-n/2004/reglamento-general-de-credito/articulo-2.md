@@ -27,3 +27,5 @@ Línea de crédito inhabilitada temporalmente, según acuerdo de Junta Directiva
 (Así reformado el inciso 8) anterior en sesión N° 0101 del 13 de setiembre de 2023)
 9. Línea de Crédito Verde: Dirigida para la adquisición de bienes que contribuyan con la conservación del medio ambiente y ahorro de energías.
 (Así adicionado el inciso anterior en sesión N° 0113 del 10 de octubre de 2022)
+10. Línea Credi Emprende: Dirigida para emprendedores que requieran un pequeño capital de trabajo para atender sus necesidades de negocio.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024)

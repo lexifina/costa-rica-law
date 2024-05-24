@@ -1,2 +1,3 @@
-Artículo 16.-Coberturas en caso de fallecimiento. Como garantía en el proceso de formalización del crédito, el solicitante debe autorizar la suscripción de las coberturas mediante pólizas o seguros, según se detalla en cada línea, de conformidad con el tipo de patrono y condición laboral del deudor, por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito.
+Artículo 16.-Pagarés. Como parte del proceso de formalización cuando la garantía no sea hipotecaria; el solicitante firma un Pagaré, documento legal que contiene las principales características de la operación crediticia.
 (Así reformado en sesión N° 0113 del 10 de octubre de 2022)
+(Así modificada su numeración mediante sesión ordinaria N° 55-2024 del 24 de mayo del 2024, que lo traspasó del artículo 15 al artículo 16)
