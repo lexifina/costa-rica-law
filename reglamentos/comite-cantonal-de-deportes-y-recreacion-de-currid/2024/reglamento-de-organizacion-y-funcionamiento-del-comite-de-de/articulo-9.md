@@ -1,0 +1,9 @@
+CAPÍTULO IV
+JUNTA DIRECTIVA
+ARTÍCULO 9.-La Junta Directiva es la máxima autoridad de este organismo, encargada de su gobierno, dirección y administración.
+La conformarán siete miembros, todos mayores de edad, salvo los representantes de organizaciones juveniles y residentes en el Cantón. En su conformación deberá de garantizarse la representación paritaria de ambos sexos, así como procurar la participación de personas protegidas por la Ley 7600. En toda nómina u órgano impar la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.
+a) Dos miembros serán nombrados directamente por el Concejo Municipal;
+b) Dos miembros de las organizaciones deportivas y recreativas del cantón, elegidos en Asamblea, convocada por el Concejo Municipal, con ocho días hábiles de antelación.
+Participarán las Asociaciones Deportivas con personería jurídica vigente y adscritas al Comité, como mínimo treinta días naturales, previos a la fecha de la Asamblea. Tienen derecho a voto el Presidente o Vice-Presidente de cada Asociación. Se designa el ganador por mayoría simple;
+c) Un miembro de organizaciones comunales restantes. Será elegido por Asamblea convocada por el Concejo, entre los candidatos de organizaciones comunales debidamente inscritas con personería jurídica vigente y reconocidas en la municipalidad;
+d) Dos miembros de la población entre los 15 años y menores de 18 años, quienes serán elegidos directamente mediante una asamblea cantonal conformada por todas las organizaciones juveniles del cantón y los atletas activos del Programa de Juegos Deportivos Nacionales del cantón, convocada por la Comisión Cantonal de la Persona Joven, y posteriormente juramentados por el Concejo Municipal. Estos miembros no podrán ostentar la representación judicial o extrajudicial del comité, ni podrán contraer obligaciones en nombre del comité.
