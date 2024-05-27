@@ -1,0 +1,2 @@
+Transitorio 1: Para que a partir de la presente publicación y hasta tanto se tenga la categorización definitiva del servicio de Recolección de Residuos, se omita la aplicación de lo indicado en el artículo 16 del presente reglamento, y se aplique la siguiente categorización: Residencial, Mixto, Comercial 1, 2, 3, 4, institucional 1 y 2 e industrial.
+(Así adicionado mediante sesión ordinaria N° 04-2024 del 27 de mayo del 2024)
