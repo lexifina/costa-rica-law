@@ -1,0 +1,2 @@
+Transitorio 2: Los procesos disciplinarios que se encuentren abiertos al momento de la entrada en vigencia de la reforma a los artículos 2, 58, 60 y 62 así como los artículos adicionados en el capítulo XVI, del Reglamento Autónomo de Organización y Servicio de la Municipalidad del Cantón de Puriscal, así como las faltas cometidas antes de esta reforma se deberán tramitar con la normativa vigente, al momento en que se realizaron los actos que se están cuestionando.
+Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese.
