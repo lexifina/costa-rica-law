@@ -1,0 +1,1 @@
+Artículo8º-Conveniodecolaboracióninterinstitucional. RECOPE podrá realizar convenios de colaboración con entes de derecho público donde el aporte por parte de RECOPE sea la autorización para el uso de alguna de las viviendas de su propiedad. El uso de las viviendas se regirá por las disposiciones de este Reglamento y por las cláusulas del convenio.

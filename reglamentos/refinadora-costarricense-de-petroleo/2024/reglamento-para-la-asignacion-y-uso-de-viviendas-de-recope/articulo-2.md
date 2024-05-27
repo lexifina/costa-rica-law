@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento aplica a todas las personas autorizadas para el uso de las viviendas de RECOPE y a las unidades administrativas a cargo de la administración, custodia y mantenimiento de dichas viviendas.

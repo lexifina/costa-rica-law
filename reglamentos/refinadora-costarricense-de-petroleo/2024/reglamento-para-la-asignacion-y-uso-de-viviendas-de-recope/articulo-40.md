@@ -1,0 +1,1 @@
+Artículo 40.-El incumplimiento por parte de las personas trabajadoras a las disposiciones establecidas en el presente reglamento o el contrato que se suscriba, se considerará falta disciplinaria de conformidad con la normativa vigente en la Empresa.

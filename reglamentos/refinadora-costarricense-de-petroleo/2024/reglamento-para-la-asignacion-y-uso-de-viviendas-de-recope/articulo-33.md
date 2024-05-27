@@ -1,0 +1,1 @@
+Artículo 33.-Plazo para desocupar el inmueble propiedad de RECOPE. Resuelto o terminado el contrato, el asignatario de vivienda propiedad de RECOPE deberá desocupar la vivienda al día siguiente de la notificación.

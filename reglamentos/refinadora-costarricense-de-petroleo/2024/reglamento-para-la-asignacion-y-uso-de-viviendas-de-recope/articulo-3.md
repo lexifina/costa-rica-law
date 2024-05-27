@@ -1,0 +1,6 @@
+Artículo 3º-Definiciones.
+3.1 Alta Dirección: personas servidoras públicas que tienen a su cargo una o varias de las instancias calificadas como nivel directivo. En caso de RECOPE se reconoce como Alta Dirección a la Junta Directiva, Presidencia, Gerencia General y Direcciones de Área.
+3.2 Asignatario: Persona a quien, por interés empresarial, se le autoriza el uso de una vivienda propiedad de RECOPE.
+3.3 Convenio de colaboración: Los convenios de colaboración se entenderán como aquellos acuerdos que se realizan entre entidades de derecho público cada una dentro del ámbito de su competencia legal, sin ánimo de aprovisionamiento de bienes o servicios, en que cada entidad colabora en forma paritaria con la otra y ejecuta sus competencias para obtener un fin común, sin que medie pago para ninguna de las partes.
+3.4 Menaje básico: Es el conjunto de muebles y accesorios indispensables que equipan a las viviendas para satisfacer las necesidades básicas de los asignatarios.
+3.5 Residente: Son aquellas personas que residen junto con la persona asignataria o las personas autorizadas para su uso por medio un convenio, las cuales habitarán las viviendas bajo la responsabilidad de asignatario.

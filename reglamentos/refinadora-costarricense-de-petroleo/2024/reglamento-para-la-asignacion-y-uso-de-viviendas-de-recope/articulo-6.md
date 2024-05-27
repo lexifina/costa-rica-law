@@ -1,0 +1,2 @@
+Artículo 6º-Viviendas para uso de la Alta Dirección. Se asignarán viviendas para el uso discrecional de la Alta Dirección las cuales contarán con el menaje básico.
+Las viviendas podrán ser usadas por las personas autorizadas o por quienes ellos autoricen siempre y cuando su uso esté relacionado a una necesidad empresarial, bajo deber de probidad y principios de legalidad, razonabilidad y eficiencia.

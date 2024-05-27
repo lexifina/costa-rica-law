@@ -1,0 +1,1 @@
+Artículo 37.-Desalojo administrativo del inmueble. Si vencido el plazo establecido por la Empresa para la entrega del inmueble propiedad de RECOPE, el asignatario se niega a desocupar la vivienda, La Unidad de Servicios Administrativos coordinará de manera inmediata con la Asesoría Jurídica, para que se asuman las acciones que legalmente correspondan.

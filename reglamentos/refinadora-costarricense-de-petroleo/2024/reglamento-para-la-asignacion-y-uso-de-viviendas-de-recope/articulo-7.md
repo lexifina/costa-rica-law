@@ -1,0 +1,2 @@
+Artículo 7º-Viviendas para uso de personas trabajadoras. RECOPE podrá autorizar el uso de sus viviendas a favor de sus personas trabajadoras cuando sea necesaria su permanencia en un lugar diferente al lugar de contratación y/o distinto de su residencia habitual o domicilio legal.
+El uso temporal podrá ser desde una noche hasta un año. Cuando el uso de la vivienda sea por un plazo mayor a un mes continuo la persona trabajadora deberá firmar un contrato con la administración.

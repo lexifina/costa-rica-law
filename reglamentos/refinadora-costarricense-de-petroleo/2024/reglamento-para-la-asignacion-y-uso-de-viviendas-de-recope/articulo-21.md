@@ -1,0 +1,4 @@
+Artículo 21.-Para asignación de una vivienda para períodos mayores a un mes. Para la asignación de vivienda en períodos mayores a un mes, la persona deberá cumplir con los siguientes requisitos:
+a) Ser persona trabajadora de la Empresa.
+b) Que por la naturaleza de su puesto e interés empresarial, deba trasladarse a laborar a un lugar distinto al lugar de contratación inicial y distinto de su domicilio habitual. Este traslado puede ser permanente o temporal.
+c) Carecer de vivienda propia en la zona donde se traslada, tanto el asignatario como su cónyuge o conviviente y los dependientes directa y económicamente de este, lo cual deberá demostrarse mediante declaración jurada y certificación del Registro Nacional de Bienes Inmuebles. La carencia de vivienda propia en la zona deberá prevalecer durante el tiempo que se autorice para su uso.

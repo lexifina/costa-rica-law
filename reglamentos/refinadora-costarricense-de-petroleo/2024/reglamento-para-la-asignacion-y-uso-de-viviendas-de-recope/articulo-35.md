@@ -1,0 +1,1 @@
+Artículo 35.-Notificación. La Unidad de Servicios Administrativos comunicará por escrito al asignatario la fecha para el recibo de la vivienda propiedad de RECOPE y del menaje básico para la firma del acta administrativa antes mencionada.

@@ -1,0 +1,1 @@
+Articulo 26.-Asignación de viviendas por medio de convenio de colaboración. Para la elaboración y formalización de convenios de colaboración donde el aporte de RECOPE sea la autorización para el uso de viviendas de su propiedad se aplicará la normativa pertinente.

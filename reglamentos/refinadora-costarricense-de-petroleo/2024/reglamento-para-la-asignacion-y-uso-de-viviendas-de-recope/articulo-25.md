@@ -1,0 +1,2 @@
+Artículo 25.-Para la asignación de viviendas para periodos menores a un mes. Cuando por conveniencia empresarial sea necesaria la asignación de vivienda a una persona o grupo de personas por periodos menores a un mes, el titular subordinado deberá enviar a su respectiva Dirección, con al menos ocho días hábiles de antelación, la solicitud con su debida justificación.
+La Alta Dirección podrá disponer de la vivienda asignada a su dependencia con base en los criterios de disponibilidad, deber de probidad, uso razonable de los recursos, legalidad y eficiencia.

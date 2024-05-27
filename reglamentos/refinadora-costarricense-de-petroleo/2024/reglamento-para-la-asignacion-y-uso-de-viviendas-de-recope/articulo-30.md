@@ -1,0 +1,3 @@
+Artículo 30.-Informe del resultado de la inspección. La Unidad de Servicios Administrativos, deberá:
+a) Informar a la Dirección de Administración y Finanzas, el resultado de la inspección establecida en el artículo 29, y/o cuando las circunstancias lo requieran, sobre las condiciones físicas del inmueble y el cumplimiento de las obligaciones de mantenimiento exigidas al asignatario y demás condiciones establecidas en el presente reglamento.
+b) Remitir dicho informe al Departamento de Mantenimiento, para que proceda a programar las reparaciones o mantenimiento mayor de las viviendas que así lo requieran.

@@ -1,0 +1,1 @@
+Artículo 39.-Se expondrá a una sanción disciplinaria la persona trabajadora por los daños que, por negligencia comprobada de este o alguna persona bajo su responsabilidad, ocasione a las viviendas propiedad de RECOPE y/o al menaje entregado.
