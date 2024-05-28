@@ -1,0 +1,4 @@
+Artículo 25 ° .-Lugar y horario para la presentación de los proyectos. Los proyectos deberán presentarse exclusivamente de manera virtual y digital, mediante el formulario disponible en la página web del CCPC (Anexo 1 del presente Reglamento), en los horarios y el período establecidos respetando las formas de entrega establecidas en el presente Reglamento y en las bases de cada convocatoria.
+Aquellos proyectos que no presenten la totalidad de los requisitos formales y documentos solicitados, que presenten los documentos fuera de los horarios y el período establecidos, o que utilicen formatos de documentos distintos a los suministrados por el CCPC, serán considerados incompletos y quedarán excluidos a puertas.
+La presentación de la solicitud no implicará en ningún caso la aprobación del proyecto.
+Tampoco se reconocerán costos por la presentación de la postulación, indistintamente del resultado de la convocatoria.
