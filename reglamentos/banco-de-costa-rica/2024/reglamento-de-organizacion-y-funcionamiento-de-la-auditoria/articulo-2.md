@@ -1,0 +1,2 @@
+Artículo 2. Planificación estratégica
+La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que deben regir el accionar de la Auditoría Interna y velar por su actualización. La misión y visión son parte del plan estratégico de la Auditoría Interna, que es formulado de acuerdo con el Procedimiento para la planeación, ejecución, revisión y seguimiento de los estudios de la Auditoría Interna de BCR Valores, S.A (PRO-SBU-APY-13-16), ubicado en DocuBCR.

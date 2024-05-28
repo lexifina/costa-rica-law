@@ -1,0 +1,4 @@
+Artículo 22. Responsabilidad de emitir normativa interna y adoptar prácticas administrativas que regulen las actividades de la Auditoría Interna
+Respecto a la normativa interna y adopción de prácticas para regular las actividades de la Auditoría Interna, el auditor interno tiene la obligación o responsabilidad de lo siguiente:
+a. Determinar, establecer y mantener actualizado el marco normativo (reglamentos, disposiciones, procedimientos, manuales y prácticas) requerido por la Auditoría Interna para cumplir con sus competencias.
+b. Determinar, establecer y mantener las prácticas de administración, accesos y custodia de la documentación de la Auditoría Interna, en especial la información relativa a los asuntos de carácter confidencial que estipulan el artículo 6 de la Ley General de Control Interno, y el artículo 8 de la Ley contra la corrupción y el enriquecimiento ilícito en la función pública.

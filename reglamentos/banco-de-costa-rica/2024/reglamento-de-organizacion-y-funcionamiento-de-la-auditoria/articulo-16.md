@@ -1,0 +1,3 @@
+Artículo 16. Remoción del auditor interno
+El auditor interno es inamovible, solo podrá ser suspendido o destituido de su cargo por causa justa y por decisión emanada del jerarca, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República para su remoción de acuerdo con lo establecido en la Ley de Control Interno.
+Para lo cual, deberá cumplirse con lo establecido en el artículo 15 de la Ley Orgánica de la Contraloría General de la República y en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República.

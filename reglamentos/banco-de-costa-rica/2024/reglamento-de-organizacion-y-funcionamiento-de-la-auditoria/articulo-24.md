@@ -1,0 +1,3 @@
+Artículo 24. Responsabilidad del auditor interno de presentar avances del plan estratégico, plan anual operativo y plan anual de labores
+El auditor interno es responsable de presentar para conocimiento del Comité Corporativo de Auditoría y de la Junta Directiva, avances periódicos del plan anual de labores y los avances en la consecución de los objetivos y metas establecidos en el plan operativo anual y plan estratégico (o el cierre cuando corresponda), así como el cierre del plan operativo anual al inicio del periodo anual siguiente.
+Así mismo, debe presentar ante el Comité Corporativo de Auditoría y posteriormente hacer del conocimiento de la Junta Directiva el informe anual de labores, establecido en el inciso g) del artículo 22 de la Ley General de Control Interno.

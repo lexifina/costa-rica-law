@@ -1,0 +1,2 @@
+Artículo 65. Custodia de la documentación
+Las personas trabajadoras de la Auditoría Interna que lleven a cabo las investigaciones preliminares deben asegurar la cadena de custodia de la documentación y de más elementos de evidencia que sean recopilados, para sustentar los hechos analizados y que ofrezcan como prueba, por lo que deben establecer seguridades sobre dichos documentos y objetos para garantizar que no se comprometa su integridad.

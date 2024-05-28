@@ -1,0 +1,2 @@
+Artículo 56. De las prórrogas para las recomendaciones de alto riesgo
+En el caso de las recomendaciones de alto riesgo, con la tercera solicitud de prórroga, la Administración activa debe presentar ante el Comité Corporativo Auditoría un plan formal para atender las recomendaciones pendientes. En caso de que este requisito no se cumpla, la Auditoría Interna no debe tramitar la solicitud de prórroga.

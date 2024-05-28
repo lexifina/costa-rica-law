@@ -1,0 +1,2 @@
+Artículo 14. Nombramiento temporal del auditor interno
+Las regulaciones de BCR Valores S.A., deben establecer los criterios aplicables ante la ausencia temporal del auditor interno, estableciendo cuando se amerite el nombramiento interino en la plaza respectiva, todo lo anterior de conformidad con lo dispuesto en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la ante la Contraloría General de la República.

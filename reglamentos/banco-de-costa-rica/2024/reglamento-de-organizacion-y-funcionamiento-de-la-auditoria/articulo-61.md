@@ -1,0 +1,4 @@
+Capítulo XVI
+Estudios sobre investigaciones preliminares sobre presuntos hechos irregulares
+Artículo 61. Investigaciones preliminares sobre presuntos hechos irregulares El alcance de los estudios sobre investigaciones preliminares sobre presuntos hechos irregulares está limitado al examen de aspectos específicos sea a solicitud de la Junta Directiva de BCR Valores de cualquiera de los entes fiscalizadores de la Sociedad, por la interposición de denuncias o por disposición del auditor interno.
+Para la ejecución de este tipo de estudio se debe considerar el marco normativo aplicable, específicamente la Ley General de Control Interno 8292, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública 8422 y su reglamento, así como los Lineamientos generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.

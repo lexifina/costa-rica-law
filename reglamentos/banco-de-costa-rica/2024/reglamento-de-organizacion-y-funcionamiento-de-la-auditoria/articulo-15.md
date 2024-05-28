@@ -1,0 +1,2 @@
+Artículo 15. Requisitos para el nombramiento del auditor interno
+Los requisitos para el nombramiento del auditor interno deben establecerse en los respectivos perfiles de puestos en concordancia con lo establecido en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República y serán validados por la Gerencia de Capital Humano según los requerimientos para los miembros de alta gerencia del CFBCR, entre los cuales está la función de Auditoría Interna.
