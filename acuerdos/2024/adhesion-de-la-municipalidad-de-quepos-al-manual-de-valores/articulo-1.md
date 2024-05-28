@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE QUEPOS
+De conformidad con la Ley de Impuesto sobre Bienes Inmuebles N° 7509 y sus reformas, la Municipalidad de Quepos dispone la adhesión al "Manual de Valores Unitarios por Tipología Constructiva 2023", publicado en el Diario Oficial La Gaceta, N° 178, Alcance Digital N° 187 del 28 de setiembre del 2023. Procédase a su publicación y déjese sin efecto la adhesión a la Tipología Constructiva 2017 del Diario Oficial La Gaceta, N° 082, del 11 de mayo del 2018.
