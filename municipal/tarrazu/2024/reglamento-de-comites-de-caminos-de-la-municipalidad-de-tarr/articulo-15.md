@@ -1,0 +1,1 @@
+Artículo 15.-De la derogatoria del Reglamento anterior. Se deroga el Reglamento de Comités de Caminos de la Municipalidad de Tarrazú, aprobado mediante acuerdo número 8 de la sesión ordinaria 199-2014.

@@ -1,0 +1,12 @@
+Artículo 7°-Funciones y atribuciones. Las funciones del comité de caminos son:
+1. Gestionar la colaboración con la Asociación de Desarrollo Integral.
+2. Promover buena comunicación con la comunidad y municipalidad. Organizar, trabajar, trasladar y guiar el material que se coloque en el camino.
+3. Coordinar con el Departamento de Gestión Vial, los procesos que proponga el comité de caminos o solicite la municipalidad para la rehabilitación, mantenimiento, reconstrucción, mejoramiento y/u obra nueva de los caminos de su jurisdicción.
+4. Servir de enlace entre el Departamento de Gestión Vial u otra competencia municipal y la comunidad, cooperativas, asociaciones, fundaciones, empresas, así como con cualquier otro ente u órgano interesado y competente en materia vial.
+5. Fiscalizar los proyectos viales ejecutados, bajo cualquier modalidad, por la municipalidad de Tarrazú y de otras organizaciones e instituciones públicas o privadas, en las vías de su jurisdicción; para ello coordinará con el Departamento de Gestión Vial.
+6. Fomentar actividades dentro del marco de la Conservación Vial Participativa.
+7. Rendir cuentas a la comunidad sobre sus labores y actividades realizadas, mediante los informes correspondientes ante la asamblea general anual.
+8. Programar y desarrollar actividades que permitan la recaudación y aprovisionamiento de recursos de cualquier tipo para ser utilizados en el mantenimiento, rehabilitación, reconstrucción y/o mejoramiento de los caminos de su jurisdicción; los recursos recaudados también podrán ser utilizados para solventar las necesidades operativas del comité, ejemplo: materiales didácticos y herramientas para realizar mantenimiento manual (carretillos, palas, machetes), entre otros. El origen y administración de estos recursos, se incorporará en el informe anual.
+9. Inspeccionar, documentar e informar a la dependencia municipal competente, sobre el cumplimiento de los deberes de los propietarios y poseedores de fundos colindantes, con vías públicas en términos de lo establecido en el Reglamento para el establecimiento y cobro de tarifas y multas para el incumplimiento de las obligaciones de los propietarios o poseedores de bienes inmuebles ubicados en el Cantón de Tarrazú.
+10. Realizar y promover actividades de mantenimiento manual como descuaje de ramas, limpieza de rondas, limpieza de cunetas, bacheo manual, limpieza de alcantarillas, entre otras actividades.
+11. Coordinar con la municipalidad la planificación y ejecución de las obras (mano de obra y materiales).

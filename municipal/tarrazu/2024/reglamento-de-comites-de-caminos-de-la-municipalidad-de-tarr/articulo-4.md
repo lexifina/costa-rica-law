@@ -1,0 +1,1 @@
+Artículo 4°-Investidura del comité de caminos y vigencia. El comité de caminos, para su legitimación, deberá ser juramentado en un plazo máximo de treinta días hábiles, por el Concejo Municipal de Tarrazú a petición del Departamento de Gestión Vial. Tendrá una vigencia de dos años, a partir del día de su juramentación; pudiendo ser reelectos.
