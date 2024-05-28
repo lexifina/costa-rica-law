@@ -1,1 +1,0 @@
-Artículo 7°-La Unidad de Refugio previo a resolver la solicitud de permiso laboral como solicitante de refugio, tomará en cuenta entre otros, los estudios técnicos, así como los informes de carácter recomendativo del Ministerio de Trabajo y Seguridad Social. Tomados en cuenta dichos criterios procederá a emitir la resolución respectiva, ya sea aprobando o denegando la solicitud.
