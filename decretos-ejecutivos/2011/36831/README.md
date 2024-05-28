@@ -15,3 +15,4 @@ Reglamento de Personas Refugiadas
 | --- | --- | --- |
 | 1 | 2011-11-01 | la propia norma |
 | 2 | 2022-11-29 | Decreto Ejecutivo 43810 (2022-11-29) |
+| 3 | 2024-05-28 | Decreto Ejecutivo 44501 (2024-05-28) |

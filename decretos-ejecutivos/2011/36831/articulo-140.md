@@ -1,3 +1,2 @@
-Artículo 140.-Se define como solicitud manifiestamente infundada, aquellas que sean impertinentes, por no tener relación alguna con los supuestos de refugio que establece la Convención; improcedentes, por no estar fundamentadas en las normas jurídicas convencionales o legales aplicables; o abusivas, cuando puedan tener una connotación fraudulenta.
-La Unidad de Refugio analizará todas las solicitudes que se presenten y rechazará de plano las que se encuentren dentro de los supuestos del párrafo anterior. Una vez determinada manifiestamente infundada la petición, así se notificará al solicitante.
-(Así reformado por el artículo 6° del decreto ejecutivo N° 43810 del 29 de noviembre del 2022)
+Artículo 140. -Se define como solicitud manifiestamente infundada o claramente abusiva aquella que pudiera tener una connotación fraudulenta o que notoriamente no guarda relación alguna con los criterios para el reconocimiento de la· condición de persona refugiada establecidos en la Ley General de Migración y Extranjería número B764.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 44501 del 28 de mayo del 2024)

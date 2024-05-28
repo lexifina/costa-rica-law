@@ -1,3 +1,3 @@
-Artículo 14.-Se entenderá por solicitante de la condición de refugiado aquella persona que haya presentado su solicitud de protección internacional como persona refugiada dentro de un mes natural, contabilizado a partir del día de su ingreso al territorio costarricense. Serán inadmisibles las solicitudes presentadas filera de ese plazo. En caso de ingreso irregular, la Administración podrá practicar las diligencias probatorias pertinentes para determinar la fecha de ingreso, con el fin de proceder a dar curso a la petición o rechazar/a.
-La persona solicitante gozará de protección contra una devolución, has/a tanto no se haya determinado su solicitud.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43810 del 29 de noviembre del 2022)
+Artículo 14. -Se entenderá por solicitante de la condición de refugiado aquella persona que haya presentado su solicitud de protección internacional como persona refugiada en territorio costarricense.
+En razón del carácter declarativo del refugio, la persona solicitante gozará de protección contra una devolución y de las mismas garantías que una persona refugiada reconocida, hasta tanto no se haya resuelto su solicitud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44501 del 28 de mayo del 2024)
