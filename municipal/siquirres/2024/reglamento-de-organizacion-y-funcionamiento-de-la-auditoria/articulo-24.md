@@ -1,0 +1,5 @@
+Artículo 24.- Regulaciones Administrativas
+Para el auditor y subauditor interno el Concejo Municipal será el responsable de autorizar las solicitudes de vacaciones, permisos, resolver licencias con o sin goce de salario o cualquier otra regulación de tipo administrativo que le sea aplicable, sin que ello pueda significar intromisión alguna en la independencia funcional que goza en virtud del carácter de las tareas que tiene a cargo en la Administración Pública.
+Le corresponde al presidente del Concejo Municipal firmar las solicitudes aprobadas por ese cuerpo edil, aprobar los adelantos de caja chica y/o liquidación de viáticos y aplicar las evaluaciones de desempeño.
+Las vacaciones eventuales y urgentes y permisos por situaciones especiales o imprevistos no mayor a ocho (8) días podrán ser aprobados por el Alcalde Municipal, de igual forma se deberá comunicar al Concejo cuando se presenten estos casos fortuitos.
+En cuanto a las salidas de la institución para el cumplimiento de sus funciones, el Auditor Interno ejercerá sus atribuciones con total independencia funcional, con el objetivo de no entorpecer las investigaciones.

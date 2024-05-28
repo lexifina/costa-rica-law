@@ -1,0 +1,2 @@
+Artículo 11.- Ética Profesional
+El auditor, subauditor y los funcionarios que participen en el proceso de auditoría en la municipalidad deben observar las normas éticas que rigen su profesión, que se caracterizan por valores como integridad, probidad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que se establezcan en la normativa institucional o el Código de Ética de la Auditoría Interna en caso de su creación y otra normativa que sea aplicable.

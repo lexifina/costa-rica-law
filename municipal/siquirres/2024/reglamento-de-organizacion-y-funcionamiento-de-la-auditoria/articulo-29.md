@@ -1,0 +1,3 @@
+Artículo 29.- Creación, disminución y plazas vacantes
+El Auditor Interno deberá proponer debidamente justificado ante el Concejo Municipal, la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de trabajo y en general para el buen funcionamiento de su unidad. La variación de plazas por movilidad laboral, disminución u otros movimientos en la auditoría interna, deberá ser previamente autorizada por el auditor interno, concordante con el artículo 28 de la Ley General de Control Interno.
+El auditor asignará las funciones al personal de la auditoria interna según lo previsto en la normativa interna y los lineamientos establecidos por la Contraloría General de la República.

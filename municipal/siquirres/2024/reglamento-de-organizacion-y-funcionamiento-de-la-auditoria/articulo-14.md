@@ -1,0 +1,2 @@
+Artículo 14.- Educación Profesional Continua
+Los funcionarios de la Auditoría Interna deben mantener y perfeccionar sus capacidades y competencias profesionales mediante la participación en programas de educación y capacitación profesional continua, para tal efecto se realizarán las acciones necesarias de conformidad a la capacidad financiera y presupuestaria institucional para dotar de recursos a la Unidad de Auditoría Interna en su categoría programática y ésta ejecute anualmente su Programa de Capacitación.

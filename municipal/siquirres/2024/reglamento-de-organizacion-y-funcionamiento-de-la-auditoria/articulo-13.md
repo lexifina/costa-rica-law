@@ -1,0 +1,2 @@
+Artículo 13.- Debido cuidado profesional
+Los funcionarios de la Auditoría Interna deben cumplir su trabajo con el debido cuidado, pericia y juicio profesional, para tomar las decisiones de auditoría, debidamente razonadas y documentadas, durante las distintas actividades del proceso; por lo que debe valorar aspectos como el costo beneficio de las acciones, el riesgo de auditoría, la importancia relativa, la materialidad y la evidencia disponible al momento de tomar la decisión.

@@ -1,0 +1,5 @@
+Artículo 17.- Relaciones y coordinaciones
+La Auditoría Interna mantendrá las siguientes relaciones y coordinaciones:
+a) Con el Concejo Municipal, con el Alcalde, con los encargados y/o coordinadores de las unidades administrativas, técnicas, operativas y otras instancias internas y externas, fundamentalmente con la Contraloría General de la República, Instituciones de fiscalización y control, Ministerio Público, Procuraduría General de la República, denunciantes y otras pertinentes.
+b) Corresponde al Auditor Interno administrar esas relaciones y regular las de los demás funcionarios de la Auditoría Interna con los órganos internos y externos del ámbito de su competencia institucional, a fin de que se realicen de conformidad con el ordenamiento jurídico y técnico aplicable.
+c) El Auditor Interno debe coordinar con los profesionales y técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorias que realice la Auditoría Interna.

@@ -1,0 +1,2 @@
+Artículo 54.- Seguimiento
+La Unidad de Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones, observaciones y demás resultados derivados de los servicios de la auditoría, que se hayan formulado en sus memorandos e informes de auditoría, con la finalidad de verificar si esas recomendaciones han sido puestas en práctica, también deberá dársele seguimiento a las disposiciones emitidas por la Contraloría General de la República.

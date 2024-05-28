@@ -1,0 +1,3 @@
+Artículo 10.- Confidencialidad y discreción sobre el trabajo
+Los funcionarios de la Auditoría Interna deben mantener reserva y discreción debida respecto de la información obtenida durante el proceso de los diferentes servicios de auditoría, y no deberá revelarla a terceros, salvo para los efectos de cumplir con requerimientos de las instancias públicas autorizadas legalmente.
+Corresponde al Auditor establecer políticas y procedimientos en los que se defina en qué casos la información es confidencial o de acceso restringido, además, debe considerar las condiciones de resguardo correspondientes, de conformidad al ordenamiento jurídico vigente.

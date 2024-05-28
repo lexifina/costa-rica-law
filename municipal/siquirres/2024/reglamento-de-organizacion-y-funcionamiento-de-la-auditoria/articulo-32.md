@@ -1,0 +1,2 @@
+Artículo 32.- Incentivos adicionales improcedentes
+El auditor, subauditor y demás funcionarios de la auditoría no procederán a la creación, el incremento, ni el pago de remuneración por concepto de "discrecionalidad y confidencialidad", ni el pago o reconocimiento por concepto de bienios, quinquenios o ninguna otra remuneración por acumulación de años de servicio distintos de las anualidades, según sea el caso.

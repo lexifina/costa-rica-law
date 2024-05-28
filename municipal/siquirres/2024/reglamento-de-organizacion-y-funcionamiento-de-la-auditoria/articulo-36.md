@@ -1,0 +1,11 @@
+Artículo 36.- Prohibiciones
+El auditor, subauditor interno, y los demás funcionarios de la Auditoría Interna, tendrán las siguientes prohibiciones, contempladas en la Ley General de Control Interno, Código Municipal y Ley Contra la Corrupción en el Enriquecimiento Ilícito en la función Pública:
+a) Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
+b) Formar parte de un órgano director de un procedimiento administrativo.
+c) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+d) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+e) No podrán ser empleados municipales quienes sean cónyuges o parientes, en línea directa o colateral hasta el tercer grado inclusive del Auditor.
+f) El auditor y subauditor no podrán ocupar simultáneamente cargos en juntas directivas; tampoco podrán figurar registralmente como representantes o apoderados de empresas privadas, ni tampoco participar en su capital accionario, personalmente o por medio de otra persona jurídica, cuando tales empresas presten servicios a instituciones o a empresas públicas que, por la naturaleza de su actividad comercial, compitan con ella.
+g) El auditor, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar el Comité Cantonal de Deportes y Recreación de Siquirres.
+h) Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.
+En el caso de que se incorporen profesionales y técnicos de otras áreas por la especialización de su disciplina, en apoyo de la auditoría interna, a éstos les alcanzan las mismas prohibiciones que el personal de auditoría.

@@ -1,0 +1,2 @@
+Artículo 19.- Nombramiento indefinido del auditor interno y subauditor
+El Auditor y subauditor deberán ser nombrados en jornada de tiempo completo y por tiempo indefinido por el Concejo Municipal, conforme lo establecido en el artículo 52 del Código Municipal, en observancia a lo dispuesto en el Reglamento del Concurso Público para la Selección y Nombramiento Indefinido del Auditor Interno, en los artículos 24 y 31 de la Ley General de Control Interno, y en los “Lineamientos sobre gestiones que involucran a la auditoria interna presentadas ante la CGR y sus reformas.”.

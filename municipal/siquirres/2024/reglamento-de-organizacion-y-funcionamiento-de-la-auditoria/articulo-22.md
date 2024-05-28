@@ -1,0 +1,2 @@
+Artículo 22.- De la comunicación a la Contraloría General de la República
+El Concejo Municipal o al funcionario que se le delegue dicha función, deberá comunicar al Área de Fiscalización respectiva de la Contraloría General de la República el nombramiento del auditor por tiempo indefinido, el recargo de funciones, las suplencias o sustituciones y los nombramientos interinos respectivamente, a más tardar el primer día hábil del inicio de funciones en el respectivo cargo.

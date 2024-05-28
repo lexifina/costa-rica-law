@@ -1,0 +1,2 @@
+Artículo 28.- Idoneidad de los funcionarios de auditoría
+Los funcionarios de la auditoría deberán caracterizarse por su idoneidad para el puesto que desempeña. Deberá reunir las competencias y valores necesarios, además de estar altamente capacitados en materia de auditoría que reúna los conocimientos, experiencia, aptitudes, habilidades para desarrollarse en la labor diaria de la auditoria interna, así mismo que cumplan con los demás requisitos establecidos en la demás normativa interna vigente y otra normativa que emita la Contraloría General de la República.
