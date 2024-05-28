@@ -1,0 +1,19 @@
+CAPITULO III
+DEL FUNCIONAMIENTO DE LA AUDITORÍA INTERNA
+- SECCIÓN PRIMERA -
+COMPETENCIAS, DEBERES Y POTESTADES
+Artículo 41. Competencias de la auditoría interna.
+Además de otras competencias que le asigne la normativa legal, reglamentaria y técnica aplicable, y con las limitaciones señaladas en el artículo 34 de la Ley General de Control Interno, compete a la auditoría interna:
+a) Realizar auditorías financieras, auditorías operativas o auditorías de carácter especial, según lo amerite el proceso de estudio.
+b) Realizar de auditorías financieras, auditorías operativas o estudios de carácter especial anualmente, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Asimismo, efectuar semestralmente auditorías o estudios de carácter especial sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto éstos se originen en transferencias efectuadas por componentes de su competencia institucional.
+c) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas que sean pertinentes.
+d) Verificar que la administración activa tome las medidas de control interno pertinentes en el caso de desconcentración de competencias, o bien, en la contratación de servicios de apoyo con terceros y examinar regularmente la operación efectiva de los controles críticos en esas unidades desconcentradas o en la prestación de tales servicios.
+e) Asesorar al Concejo Municipal en materia de su competencia; además, advertir a los órganos pasivos que fiscaliza sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+f) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del auditor interno, sean necesarios para el fortalecimiento del sistema de control interno.
+g) Preparar el plan de trabajo anual y sus modificaciones, de conformidad con lineamientos de la Contraloría General de la República.
+h) Elaborar un informe anual sobre la ejecución del plan de trabajo y sobre el estado de recomendaciones en informes de auditoría interna y de auditores externos; asimismo, sobre el cumplimiento de disposiciones de la Contraloría General de la República. En los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren otros informes y se presenten al Concejo Municipal cuando las circunstancias lo ameriten.
+i) Evaluar el contenido informativo, la oportunidad y confiabilidad de la información contable, financiera, administrativa y de otro tipo, producida en la municipalidad.
+j) Evaluar los informes que prepara la municipalidad, sobre la eficiencia y eficacia con que se han utilizado los recursos en el cumplimiento de metas y objetivos.
+k) Revisar en forma posterior las operaciones contables, financieras o administrativas, los registros, los informes y los estados financieros, así como la ejecución y liquidación presupuestaria de la municipalidad, cuando lo considere pertinente, de acuerdo con su plan anual de trabajo.
+l) Comunicar los resultados de las auditorías financieras, auditorías operativas o estudios de carácter especial que realice, por medio de informes escritos.
+m) Mantener debidamente actualizado el presente Reglamento de Organización y Funcionamiento.

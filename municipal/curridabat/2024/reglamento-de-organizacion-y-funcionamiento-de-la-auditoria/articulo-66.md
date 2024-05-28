@@ -1,0 +1,2 @@
+Artículo 66. Procedimiento administrativo que se derive de un informe de Auditoría Interna.
+El Concejo Municipal o el titular subordinado con la competencia para ordenar la apertura de un procedimiento administrativo que se origine en un informe de la auditoría interna, deberá instruir las acciones necesarias para que inicie dentro de los plazos que correspondan, con el fin de que no se interrumpa la prescripción de la responsabilidad.

@@ -1,0 +1,2 @@
+Artículo 25. Vacaciones, permisos y otros del auditor o auditora interna.
+Las vacaciones, permisos y otros asuntos del auditor interno deberán ser conocidos y aprobados por el Concejo Municipal. Sin embargo, en los casos en que dichos permisos o vacaciones no superen los 5 días hábiles, será suficiente la comunicación previa a la coordinación de recursos humanos, así como una copia de esta comunicación al Concejo Municipal.

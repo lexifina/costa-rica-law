@@ -1,0 +1,2 @@
+Artículo 42. Deberes.
+El auditor interno y los demás funcionarios de la auditoría interna tendrán los deberes que le asigna la Ley General de Control Interno por medio de su artículo 32, así como otros deberes asignados por la Ley Orgánica de la Contraloría General de la República, y se complementa con la demás normativa legal, reglamentaria y técnica aplicable, así como la normativa que pueda emitir la Contraloría General de la República.

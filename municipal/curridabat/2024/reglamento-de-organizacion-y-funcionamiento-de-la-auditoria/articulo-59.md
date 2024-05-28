@@ -1,0 +1,2 @@
+Artículo 59. Informes de Relaciones de Hechos.
+La relación de hechos es un informe que compila una serie de hechos presuntamente irregulares, acciones u omisiones, que se encuentran ligados por un nexo de causalidad a una falta y a un presunto responsable. La relación de hechos se eleva a conocimiento del jerarca, o titular subordinado correspondiente, o de una autoridad competente, para que valore la procedencia de la apertura de un procedimiento administrativo o cualquiera otra acción que considere pertinente.

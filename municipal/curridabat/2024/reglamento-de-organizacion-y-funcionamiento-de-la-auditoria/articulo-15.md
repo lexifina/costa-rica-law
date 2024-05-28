@@ -1,0 +1,3 @@
+Artículo 15. Ubicación jerárquica de la auditoría interna.
+La ubicación de la auditoría interna en la estructura organizativa debe corresponder a la de un órgano de mayor rango, dependiente orgánicamente del Concejo Municipal, conforme las facultades de que dispone legal, reglamentaria y técnicamente, esa ubicación debe permitirle con suficiente libertad realizar una fiscalización objetiva e independiente a su jerarca y demás órganos que componen la institución. A su vez la auditoría interna, será tratada como una unidad administrativa dentro de la institución, de tal manera, deberán respetarse los procedimientos administrativos, manuales y la estructura organizativa institucional. Dicha ubicación se ilustra de la siguiente manera:
+[imagen]

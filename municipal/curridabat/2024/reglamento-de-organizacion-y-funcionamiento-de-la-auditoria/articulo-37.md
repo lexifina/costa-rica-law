@@ -1,0 +1,2 @@
+Artículo 37. Intercambio de información con la Contraloría General de la República.
+El auditor interno se encuentra facultado a proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la Ley correspondan y en el ámbito de sus competencias. Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la auditoría interna.

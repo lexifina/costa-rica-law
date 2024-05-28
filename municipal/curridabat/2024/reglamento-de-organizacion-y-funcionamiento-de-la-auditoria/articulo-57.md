@@ -1,0 +1,2 @@
+Artículo 57. Solicitud de información para mejor resolver.
+El jerarca o el titular subordinado podrán solicitar a la auditoría interna las aclaraciones u otra información adicional al contenido del informe para resolver lo que proceda, y la auditoría interna en la medida de sus posibilidades deberá proporcionarla. Sin embargo, la solicitud de nueva información o la falta de ésta no obstara para que el jerarca observe el plazo improrrogable en que debe ordenar o resolver lo que juzgue pertinente, so pena de incurrir en incumplimientos.

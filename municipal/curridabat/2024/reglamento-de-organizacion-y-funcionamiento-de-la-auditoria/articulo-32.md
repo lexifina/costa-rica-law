@@ -1,0 +1,2 @@
+Artículo 32. Protección al personal de la Auditoría Interna.
+Cuando en cumplimiento de sus funciones, el personal de auditoría interna se involucre en un conflicto legal o en una demanda, la institución les brindará el respaldo jurídico y técnico que requieran. Además, la institución cubrirá los costos para atender el proceso hasta su resolución final, conforme lo establecido en el artículo 26 de la Ley General de Control Interno 8292.

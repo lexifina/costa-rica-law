@@ -1,0 +1,2 @@
+Artículo 63. Obligación de implementar las recomendaciones de la auditoría interna.
+Una vez aceptadas las recomendaciones de la auditoría interna, el jerarca o el titular subordinado deberá girar la orden de su implementación al funcionario responsable, por escrito y con copia a la auditoría interna, dentro de los plazos señalados en los artículos 36 y 37 de la Ley General de Control Interno 8292, según corresponda.

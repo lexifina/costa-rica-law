@@ -1,0 +1,4 @@
+Artículo 26. Capacitaciones.
+En el caso de capacitaciones, seminarios o congresos a los que deba asistir el auditor interno, se seguirá el mismo procedimiento establecido en el artículo anterior cuando su duración sea menor o igual a 5 días hábiles y se realicen en el país.
+Las capacitaciones mayores a 5 días hábiles o las que se desarrollen fuera del país deberán ser autorizadas por el Concejo Municipal.
+Se exceptúan de cualquier trámite de autorización, aquellas capacitaciones, seminarios o congresos menores o iguales a un día hábil o aquellos que sean convocados por la Contraloría General de la República, o alguna otra institución pública y que no represente costo para la municipalidad, para lo cual se deberá de informar a lo interno de la auditoría, en forma previa a la fecha de la capacitación, sobre la participación en la citada actividad, lugar, fecha y entidad o dependencia que la realiza.
