@@ -1,0 +1,2 @@
+Artículo 27.-Suspensión de la Licencia. Cuando hayan transcurrido cinco días hábiles posteriores al mes que se encuentra al cobro, se suspenderá la autorización de Espectáculos Públicos según lo establecido en el artículo 90 bis del Código Municipal.
+La Municipalidad de Curridabat podrá suspender y hasta revocar la Licencia de Espectáculos Públicos emitida cuando se realicen actividades contrarias a las autorizadas que atenten contra la moral y las buenas costumbres

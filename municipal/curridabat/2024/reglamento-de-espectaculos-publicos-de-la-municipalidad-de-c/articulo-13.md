@@ -1,0 +1,1 @@
+Artículo 13.-Declaración jurada. Se establece la obligación de presentar una declaración jurada del aforo máximo posible del establecimiento donde se realizará el evento, así como de la cantidad de entradas que serán puestas en venta y su valor unitario.

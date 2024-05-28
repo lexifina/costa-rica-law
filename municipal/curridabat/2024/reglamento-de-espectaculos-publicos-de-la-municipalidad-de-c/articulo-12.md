@@ -1,0 +1,1 @@
+Artículo 12.-Tarifa. La Municipalidad cobrará un impuesto del cinco por ciento (5%) sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos no gratuitos que se regulan en el presente reglamento.

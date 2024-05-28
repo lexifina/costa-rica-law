@@ -1,0 +1,1 @@
+Artículo 8º-Resolución de autorización. Una vez verificado el cumplimiento de los requisitos y condiciones, por medio de una resolución emitida por el Departamento de Patentes, se otorgará la autorización para la realización de la actividad pretendida en los términos establecidos en este Reglamento; en un plazo máximo de diez días hábiles.

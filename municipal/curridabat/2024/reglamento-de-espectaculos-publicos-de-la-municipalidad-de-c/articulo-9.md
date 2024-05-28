@@ -1,0 +1,2 @@
+Artículo 9º-Resolución denegatoria de autorización. En caso de que la solicitud deba ser rechazada, se emitirá el respectivo acto administrativo que así lo fundamente.
+Contra dicho acto y de conformidad con el artículo 171 del Código Municipal, cabrá los recursos de revocatoria con apelación en subsidio, los cuáles se deberán presentarse dentro del plazo de cinco días hábiles contados a partir del día siguiente hábil de la notificación. El recurso de revocatoria será resuelto por el Departamento de Patentes y el de apelación en subsidio por la Alcaldía.

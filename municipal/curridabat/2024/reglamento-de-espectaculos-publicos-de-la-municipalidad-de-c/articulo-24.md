@@ -1,0 +1,1 @@
+Artículo 24.-Del informe final de la inspección. El Encargado de Patentes, por medio de los Inspectores de Espectáculos Públicos revisarán los boletos y el informe de los contribuyentes y remitirá un informe a la Tesorería. Una vez verificados los boletos, procederá mediante un acta y conjuntamente con la Tesorería a la incineración o destrucción de los mismos.

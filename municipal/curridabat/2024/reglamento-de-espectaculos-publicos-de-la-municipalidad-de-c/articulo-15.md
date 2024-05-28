@@ -1,0 +1,3 @@
+Artículo 15.-Pago del tributo. El impuesto deberá ser cancelado únicamente en las cajas recaudadoras definidas por la Municipalidad; o vía transferencia electrónico depositándolo en las cuentas de la Municipalidad; para cuyo efecto deberá aportar la respectiva copia, ante la oficina que realiza el trámite, en forma personal o vía correo electrónico.
+Los espectáculos públicos permanentes deberán cancelar el impuesto, el último día hábil del mes que se trate.
+Los espectáculos públicos ocasionales, deberán cancelar el impuesto, dentro de los cinco días hábiles posteriores a la realización del evento, y para tal fin deberá presentar el comprobante extendido por la Tesorería Municipal.

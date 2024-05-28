@@ -1,0 +1,1 @@
+Artículo 21.-De la identificación de los inspectores. Los Inspectores Municipales contarán con una identificación extendida y firmada por el Alcalde Municipal, la cual llevará impresa el sello municipal. Esta identificación deberá ser presentada en el lugar en que se realizará el evento sujeto a inspección.
