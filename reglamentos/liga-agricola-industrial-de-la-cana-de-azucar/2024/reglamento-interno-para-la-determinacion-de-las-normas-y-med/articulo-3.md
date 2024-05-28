@@ -1,0 +1,1 @@
+Artículo 3. -El presente Reglamento será de aplicación obligatoria en aquellos casos en que, por razones de conveniencia o motivos comerciales, se disponga la producción de MCGAP en sustitución de azúcar y miel final, sea en régimen de cuota o extracuota.
