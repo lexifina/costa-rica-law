@@ -1,1 +1,0 @@
-Artículo 47.—Deber de denunciar: Los funcionarios públicos tienen el deber de denunciar ante las autoridades competentes los actos presuntamente de corrupción cuando son de su conocimiento y que se produzcan en la función pública.

@@ -1,1 +1,0 @@
-Artículo 51.—Denuncias anónimas: No se dará trámite a las denuncias que sean presentadas en forma anónima. En casos excepcionales podrá abrirse de oficio una investigación preliminar cuando existan indicios de la veracidad de lo indicado en la denuncia. En caso contrario, la Auditoria Interna archivara el caso sin realizar trámite alguno.

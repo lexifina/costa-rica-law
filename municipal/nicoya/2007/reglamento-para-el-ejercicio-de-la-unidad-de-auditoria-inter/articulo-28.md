@@ -1,4 +1,0 @@
-CAPÍTULO IV
-De la definición de los requisitos básicos
-de los puestos en la auditoría interna municipal
-Artículo 28.—Idoneidad del auditor y Subauditor internos: El auditor y el Subauditor internos deberán caracterizarse por su idoneidad para los puestos correspondientes. Por ello, serán profesionales altamente capacitados en materia de auditoría que reúnan los conocimientos, experiencia, aptitudes, habilidades para administrar la Unidad de Auditoría Interna, asimismo, que cumplan con los demás requisitos establecidos en los perfiles de la institución a la que le brindarán sus servicios. El puesto de Subauditor corresponderá sustituir temporal durante las ausencias del Auditor Interno y un colaborador de éste en el cargo de las funciones; el auditor asignará las funciones al Subauditor y éste deberá responder ante él por su gestión.

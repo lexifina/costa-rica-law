@@ -1,1 +1,0 @@
-Artículo 53.—Celeridad y responsabilidad sobre la tramitación de las denuncias: Las denuncias deberán tramitarse con la mayor celeridad del caso para no retrasar el trámite, por lo que le corresponde a la Auditoría Interna realizar el estudio, como dar una pronta conclusión a la investigación.
