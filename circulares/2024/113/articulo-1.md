@@ -1,0 +1,14 @@
+CIRCULAR No. 113-2024
+Asunto: Implementación de las Políticas Institucionales sobre Justicia Abierta.
+A TODAS LAS PERSONAS FUNCIONARIAS QUE LABORAN EN MATERIA PENAL.
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 42-2024 celebrada el 21 de mayo del 2024, en el artículo LV, a solicitud de la Comisión de la Jurisdicción Penal, comunicó la "Implementación de las Políticas Institucionales sobre Justicia Abierta", dirigida a personas funcionarias que laboran en materia penal, conocida en sesión del Consejo Superior N° 57-2023 celebrada el 11 de julio del 2023, artículo LVI, donde se acogió el pronunciamiento de esa Comisión relacionado con las políticas de justicia abierta, al ser un interés institucional aprobado por las autoridades superiores, en el marco del principio de legalidad constitucional y dentro del ámbito de sus competencias.
+En razón de lo expuesto, se insta a todas las personas servidoras que laboran en la materia penal, para que implementen la Política Institucional de Justicia Abierta, así como los proyectos y disposiciones institucionales cuyos objetivos son:
+- Fortalecer el acceso a la información pública por medio de mecanismos idóneos para que los usuarios conozcan la información institucional, y que esta sea comprensible para todas las poblaciones, de forma tal que realmente se garantice el acceso, mediante el uso de lenguajes horizontales e inclusivos, además de que los datos sean claros, veraces y verificables.
+- Apertura de datos: publicación de datos en formatos abiertos y de fácil acceso, de acuerdo con los estándares internacionales preestablecidos, además en torno a la veracidad y exactitud de estos.
+-Rendición de cuentas: Constituye la obligación del funcionario judicial de ser transparente en su gestión y en las funciones encomendadas, así como en lo que respecta a sus responsabilidades éticas y al uso de los recursos asignados para fines públicos exclusivamente.
+- Integridad, probidad y anticorrupción: Se trata de la responsabilidad de la organización, desde las altas jerarquías y de cada funcionario y funcionaria, de dirigirse de forma ética en lo público y en lo privado, y de los órganos superiores de adoptar todos los mecanismos eficaces para prevenir actos de corrupción a lo interno del Poder Judicial y asegurar el impulso de la probidad en la función pública.
+En consonancia con este último propósito, se reitera la obligatoriedad de observar y acatar lo dispuesto en la Política Institucional de Integridad y Anticorrupción en el Poder Judicial, aprobada por la Corte Plena el 21 de noviembre del 2022, que contempla un total de 11 ejes de trabajo y 71 acciones a emprender, para alcanzar un alto nivel de prevención del 91% y un 9% de reacción en el abordaje frente a esta problemática.
+Se pone en conocimiento el criterio de la Comisión de la Jurisdicción Penal que fue aprobado por el Consejo Superior.
+Publíquese una vez en el Boletín Judicial.
+San José, 29 de mayo de 2024
