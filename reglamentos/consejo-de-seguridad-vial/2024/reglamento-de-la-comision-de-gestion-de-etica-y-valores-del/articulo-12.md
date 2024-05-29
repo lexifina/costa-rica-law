@@ -1,0 +1,8 @@
+Artículo 12.-Obligaciones de los miembros de la Comisión. Se establecen las siguientes:
+a. Le corresponde a la persona Coordinadora liderar la conducción de la Comisión y velar porque sus integrantes realicen de la mejor manera y según los recursos disponibles, las funciones que la Comisión tiene asignadas en este reglamento.
+b. La CGEV llevará un libro de actas, siendo quien ejerza la secretaría el encargado de mantener estos controles, así como mantener actualizada la gestión documental.
+c. Las personas integrantes de la Comisión deben recibir la inducción del Sistema Nacional de Ética y Valores, participar en actividades de capacitación, formación e información en temas relacionados con su gestión y de los programas de formación continua y asesoría técnica de la CNRV, dentro del marco legal respectivo.
+d. La CGEV trabajará en forma coordinada con las unidades funcionales de la institución, quienes deberán prestar su colaboración y brindar la información requerida por la Comisión.
+e. Mostrar puntualidad, compromiso, iniciativa y diligencia en el cumplimiento oportuno, eficiente y eficaz de las labores o tareas asignadas en la Comisión, tanto en los equipos de trabajo, en el desarrollo de las actividades y la participación activa en las sesiones.
+f. Verificar todo lo relativo a la participación, divulgación, implementación, gestión, aplicación, mantenimiento y mejora del proceso de gestión ética, mediante su programa ordinario de trabajo y rendir el informe oportunamente al jerarca.
+g. Cumplir en lo que sea aplicable para el coordinador, secretario y demás miembros de la comisión con lo establecido 6.4 y 6.5 del procedimiento para la Gestión de comisiones u otros órganos de similar naturaleza (CSV-03-002).

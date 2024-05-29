@@ -1,0 +1,1 @@
+Artículo 16.-Juramentación. La juramentación de las personas integrantes de la CGEV es un acto solemne que se lleva a cabo en la institución. Es realizada por el Jerarca de la institución, mediante la presencia de una persona representante de la Junta Directiva, de la Dirección Ejecutiva y de la Comisión Nacional de Rescate y de Valores.

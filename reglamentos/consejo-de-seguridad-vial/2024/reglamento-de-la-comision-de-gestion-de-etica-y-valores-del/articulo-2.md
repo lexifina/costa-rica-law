@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. El presente reglamento es de aplicación para los miembros propietarios de la Comisión de Gestión de Ética y Valores del Consejo de Seguridad Vial, así como a todas las personas funcionarias de la Institución.

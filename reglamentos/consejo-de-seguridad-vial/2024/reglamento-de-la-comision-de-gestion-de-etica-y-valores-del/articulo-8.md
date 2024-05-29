@@ -1,0 +1,3 @@
+Artículo 8º-Coordinación y Secretaría de la Comisión. La CGEV contará con una persona coordinadora designada por el Jerarca y otra persona que ejercerá la función de secretaría, quien será electa entre los miembros de la comisión por mayoría simple de los votos.
+En caso de que algún miembro no pueda continuar en la Comisión por situaciones justificadas a criterio de la CGEV o incumpla el perfil reglamentario, deberá nombrarse el sustituto en el plazo máximo de un mes calendario a partir de que se haga efectiva su separación del cargo.
+Cada miembro será juramentado según lo establecido en el artículo once de este reglamento.
