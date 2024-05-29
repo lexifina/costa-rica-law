@@ -1,0 +1,1 @@
+Artículo 6º-Retiro de efectivo. Para las Cajas Chicas con Fondo e Institucionales se podrá realizar el retiro de efectivo para compras que se encuentren exentas del cobro de impuesto de la renta según la Ley del Impuesto sobre la Renta N° 7092. Está totalmente prohibido usar los fondos de la Caja Chica para cambiar cheques de cualquier tipo.

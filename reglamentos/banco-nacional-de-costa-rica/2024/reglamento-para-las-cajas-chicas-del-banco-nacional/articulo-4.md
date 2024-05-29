@@ -1,0 +1,1 @@
+Artículo 4º-Registro de Cajas Chicas. La Dirección de Infraestructura y Compras, por medio de la Unidad de Servicios de Apoyo Operativo y Proveeduría Institucional, según corresponda, mantendrá un control con el detalle de las Cajas Chicas autorizadas de acuerdo con los lineamientos establecidos en los procedimientos internos que estime oportunos.

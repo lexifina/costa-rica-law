@@ -1,0 +1,3 @@
+Artículo 7º-Reintegro de Cajas Chicas. Las solicitudes de reintegro de Caja Chica con Fondo e Institucionales se debe tramitar por medio de la Unidad de Servicios de Apoyo Operativo de la Dirección de Infraestructura y Compras.
+La liquidación de los reintegros debe realizarse dentro del mismo mes en que fueron realizadas las compras y se encuentre recibido en forma satisfactoria el bien, servicio u obra, con el fin de cumplir con el principio de devengo.
+Todas las facturas deberán reunir los requisitos que se contemplen en el procedimiento correspondiente referente a Caja Chica, así como cumplir con las leyes vigentes y lineamientos de la autoridad tributaria.
