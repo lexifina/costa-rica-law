@@ -370,6 +370,8 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de do
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Subespecialidad de Hematología Pediátrica, en un Hospital Pediátrico de Tercer Nivel, perteneciente o adscrito a una Universidad.
+Se reconoce como sinónimo de esta subespecialidad, el siguiente termino: Hematología-Oncología Pediátrica.
+(Así adicionado el párrafo anterior mediante sesión N° 2024-05-29 del 29 de mayo de 2024)
 16.20.8. Infectología Pediátrica.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
