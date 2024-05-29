@@ -14,3 +14,4 @@ Reglamento interno para el uso de tarjetas institucionales de la Asamblea Legisl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-20 | la propia norma |
+| 2 | 2024-05-29 | Reglamento 96 (2024-05-29) |

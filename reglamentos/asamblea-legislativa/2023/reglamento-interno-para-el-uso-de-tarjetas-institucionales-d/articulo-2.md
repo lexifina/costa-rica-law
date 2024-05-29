@@ -1,4 +1,4 @@
-Artículo 2º-Categorías autorizadas. Se autoriza el uso de la Tarjeta de Pago Institucional únicamente para las siguientes categorías:
+Artículo 2°- Categorías autorizadas. Se autoriza el uso de la Tarjeta de Pago Institucional únicamente para las siguientes categorías:
 a) Categoría 4; únicamente para la compra de combustibles en negocios denominados estaciones de servicios y/o gasolineras.
 b) Categoría 13; únicamente para el pago del servicio de hospedaje cuando el funcionario lo amerite, cumpliendo lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos de la Contraloría General de la República.
 c) Categoría 16; únicamente para el pago del servicio por alimentación, cumpliendo lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos de la Contraloría General de la República. No se podrá utilizar en establecimientos cuyo nombre comercial incluya "bar y/o cantina".

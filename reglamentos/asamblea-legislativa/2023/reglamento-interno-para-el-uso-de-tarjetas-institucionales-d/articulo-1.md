@@ -21,5 +21,6 @@ Acuerdan:
 REGLAMENTO INTERNO PARA EL USO DE TARJETAS
 INSTITUCIONALES DE LA ASAMBLEA LEGISLATIVA
 DE COSTA RICA
-Artículo 1º-Ámbito de aplicación. Este reglamento tiene por objeto regular el uso de la Tarjeta de Pago Institucional que utilizará el Tarjetahabiente de la Asamblea Legislativa de la República de Costa Rica, como medio de pago de acuerdo con los parámetros y categorías autorizados y según las necesidades institucionales.
-En el caso de las tarjetas institucionales asignadas a los legisladores en cada periodo constitucional, estas se regirán por lo dispuesto en la Ley N° 7352, artículo 5.
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 096-2024 del 29 de mayo de 2024, y publicado en La Gaceta N° 106 del 12 de junio de 2024, se transcribe a continuación:)
+Artículo 1°- Ámbito de aplicación. Este reglamento tiene por objeto regular el uso de la Tarjeta de Pago Institucional que utilizará el Tarjetahabiente de la Asamblea Legislativa de la República de Costa Rica, como medio de pago de acuerdo con los parámetros y categorías autorizados y según las necesidades institucionales.
+En el caso de las tarjetas institucionales asignadas a los legisladores en cada periodo constitucional, estas se regirán por lo dispuesto en el artículo 5 de la Ley N° 7352.
