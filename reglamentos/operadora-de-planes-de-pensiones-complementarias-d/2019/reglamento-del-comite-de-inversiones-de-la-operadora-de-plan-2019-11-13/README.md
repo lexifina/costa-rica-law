@@ -16,3 +16,4 @@ Reglamento del Comité de Inversiones de la Operadora de Planes de Pensiones Com
 | 1 | 2019-12-03 | la propia norma |
 | 2 | 2021-03-10 | Reglamento 633 (2021-03-10) |
 | 3 | 2021-06-16 | Reglamento 645 (2021-06-16) |
+| 4 | 2024-05-30 | Reglamento 744 (2024-05-30) |
