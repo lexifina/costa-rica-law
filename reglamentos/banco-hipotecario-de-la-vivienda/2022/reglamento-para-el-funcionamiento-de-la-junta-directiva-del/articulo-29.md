@@ -1,1 +1,1 @@
-ARTÍCULO 29: OTRA DOCUMENTACIÓN: Con el fin de facilitar las discusiones en el curso de las sesiones y resolver los puntos de la agenda, la Gerencia General velará porque con al menos 24 horas de anticipación, se remitan todos los antecedentes y documentos pertinentes a la misma. Cuando se omitan documentos indispensables, la Junta podrá decidir no conocer del respectivo asunto hasta tanto no se cumpla con lo previsto en este artículo.
+ARTÍCULO 29:- OTRA DOCUMENTACIÓN: (Derogado mediante sesión N° 42-2024 del 30 de mayo del 2024)
