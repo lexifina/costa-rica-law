@@ -17,3 +17,4 @@ Las demás condiciones establecidas en los artículos 14 y 18 de este reglamento
 (Así adicionado mediante sesión N° 9043 del 19 de julio del 2019)
 (Así reformado en sesión N° 9145 del 10 de diciembre del 2020)
 (Nota de Sinalevi: Mediante sesión N° 9422 del 21 de marzo de 2024 la Caja Costarricense de Seguro Social, aprobó la prórroga de las ocho medidas transitorias al presente reglamento que regula la formalización de acuerdos de pago por deudas por patronos y trabajadores independientes con la Caja Costarricense de Seguro Social, las cuales regirán hasta el 31 de mayo de 2024)
+(Nota de Sinalevi: Mediante sesión N°9453 del 30 de mayo de 2024 la Caja Costarricense de Seguro Social, aprobó la prórroga de las ocho medidas transitorias al presente reglamento que regula la formalización de acuerdos de pago por deudas por patronos y trabajadores independientes con la Caja Costarricense de Seguro Social, las cuales regirán hasta el 31 de julio de 2024)
