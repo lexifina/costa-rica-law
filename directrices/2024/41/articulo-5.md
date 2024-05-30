@@ -1,0 +1,1 @@
+Artículo 5º-El seguimiento del plan de intervenciones que elabore el CONAVI según los resultados que genere el Sistema de Gestión de Activos Viales, será resorte de la Secretaría de Planificación Sectorial.
