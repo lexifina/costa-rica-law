@@ -12,20 +12,9 @@ El valor de referencia de los parámetros utilizados está sujeto a la revisión
 Microproductor | P <= 10
 Pequeño productor | 10 < P <= 35
 Mediano productor | 35 < P <= 100
-(Nota de Sinalevi: Mediante resolución N° 044-2021 del 19 de julio de 2021, se acordó actualizar los valores de referencia de los parámetros monetarios de ventas brutas, activos totales, del sector de producción orgánica, establecido en el presente artículo, de la siguiente manera: El valor de referencia de los parámetros utilizados está sujeto a la revisión y actualización anual por parte del MEIC, de conformidad con la siguiente fórmula:
+(Nota de Sinalevi: Mediante resolución N° DIGEPYME-RE-08-2024 del 30 de mayo del 2024, se acordó actualizar las variables monetarias de ventas brutas, activos totales, del sector de producción orgánica, señalado en el artículo 28 del Reglamento a la Ley Nº 8591, de conformidad con la fórmula vigente, a saber:
 P = [(Fpg * pg/Dpg) + (Fib * ib/Dib) + (Fva * va/Dva)] * 100
-P= [(0.4 X pg/100)+(0.4 X ib/¢2.690.430.240.00)+(0.2 X va/840.940.064.00)] X 100
-Además de lo que se indica en la regulación y considerando la referencia de índices que utiliza el Instituto Nacional de Estadística y Censos (INEC) para el índice de Precios al Consumidor (IPC 2015=100) y los siguientes parámetros por sector producción orgánica:
+Esta actualización de las variables monetarias se realiza considerando el índice de Precios al Consumidor (IPC 2015=100) que utiliza el Instituto Nacional de Estadística y Censos (INEC). La tabla siguiente muestra los valores monetarios actualizados:
 [imagen]
-Donde:
-P: Puntaje obtenido por la unidad productiva orgánica.
-Fpg: Promedio de empleos generados durante el último período fiscal.
-Dpg: Divisor al personal empleado que se utiliza en la fórmula de cálculo del tamaño de la empresa.
-Fib: Ingreso bruto obtenido en el último período fiscal en la fórmula de cálculo de tamaño de empresa.
-Dib: Divisor del ingreso bruto.
-Fva: Valor de los activos totales de la finca en el último período fiscal.
-Dva: Divisor de los activos totales de la finca, corresponde al divisor de los activos totales de la finca.
-Las empresas micro, pequeñas y medianas, productoras orgánicas se clasificarán con base en el puntaje P obtenido, con el siguiente criterio:
-icro productor | P <= 10
-Pequeño productor | 10 < P <= 35
-Mediano productor | 35 < P <= 100")
+Para las empresas del sector producción orgánica, se utilizará la siguiente fórmula:
+P= [(0.4 X pg/100)+(0.4 X ib/¢2.913.119.682, 25)+(0.2 X va/¢910.545.464, 30)] X 100 ")
