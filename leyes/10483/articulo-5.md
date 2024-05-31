@@ -1,0 +1,1 @@
+ARTÍCULO 5- A partir de la vigencia de esta ley e indistintamente del resultado de los estudios socioeconómicos a los productores, las operaciones deberán individualizarse y registrarse de forma independiente, a nombre de cada productor, en las cuentas por cobrar de Judesur, para lo cual se autoriza a esta institución para que excluya a los entes ejecutores de sus registros.
