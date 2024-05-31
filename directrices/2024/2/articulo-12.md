@@ -1,0 +1,1 @@
+Artículo 12.- Cualquier oportunidad de mejora respecto a la funcionalidad de la Plataforma Integrada de Empleo Público, deberá plantearse a la Unidad de Empleo Público de MIDEPLAN, mediante el correo electrónico: empleopublico@mideplan.go.cr, con copia a la Dirección General de Servicio Civil al correo electrónico reclutamiento@dgsc.go.cr

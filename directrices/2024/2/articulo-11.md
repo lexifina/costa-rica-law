@@ -1,0 +1,1 @@
+Artículo 11.- Cada Oficina de Gestión Institucional de Recursos Humanos o sus denominaciones homólogas, administrará y dará mantenimiento a los registros de elegibles que se generen producto de los procesos concursales de nuevo ingreso.

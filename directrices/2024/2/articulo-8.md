@@ -1,0 +1,1 @@
+Artículo 8.-Los Perfiles de Puestos que hayan sido completados para efectos de contratación serán visibles para las personas candidatas, siempre y cuando la institución haya formalizado la publicación de la vacante en el sistema informático.

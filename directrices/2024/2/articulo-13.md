@@ -1,0 +1,1 @@
+Artículo 13.- Las instituciones pertenecientes al Régimen de Servicio Civil, se regirán bajo los lineamientos específicos que establezca la Dirección General de Servicio Civil para el proceso de reclutamiento y selección de personal de nuevo ingreso y seguirán utilizando los sistemas informáticos y procedimientos para la inclusión de vacantes.
