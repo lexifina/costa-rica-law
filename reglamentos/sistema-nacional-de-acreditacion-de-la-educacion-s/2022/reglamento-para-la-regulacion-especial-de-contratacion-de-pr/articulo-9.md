@@ -1,1 +1,0 @@
-Artículo 9º-Del inicio de cada contratación. Cada acuerdo en firme tomado por el CNA dará inicio al proceso de contratación de cada profesional que estará a cargo de la División de Servicios de Apoyo a la Gestión (DSAG). La documentación del profesional nombrado que respalde cada acuerdo de nombramiento deberá ser trasladada por la DEA a la DSAG para la iniciación del trámite.

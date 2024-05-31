@@ -1,1 +1,0 @@
-Artículo 23.-Obligatoriedad. Las presentes disposiciones son de acatamiento obligatorio y ante su incumplimiento, la Dirección Ejecutiva, valorará la designación del órgano director para que realice el debido proceso y determine la eventual aplicación de sanciones.

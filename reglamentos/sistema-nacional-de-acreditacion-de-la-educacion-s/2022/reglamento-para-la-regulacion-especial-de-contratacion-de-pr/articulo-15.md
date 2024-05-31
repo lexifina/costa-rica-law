@@ -1,1 +1,0 @@
-Artículo 15.-Fiscalización del contrato. La fiscalización del objeto de este contrato estará a cargo del representante institucional (GEA) asignado para cada proceso, según las disposiciones internas.

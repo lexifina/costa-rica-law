@@ -1,1 +1,0 @@
-Artículo 16.-Forma de pago. Los pagos se realizarán de conformidad con lo dispuesto en la normativa interna de SINAES, a partir del recibido a satisfacción de los informes por parte del Representante Institucional, la recepción del Informe Final en el Consejo Nacional de Acreditación y el visto bueno a satisfacción de la Dirección de la DEA.

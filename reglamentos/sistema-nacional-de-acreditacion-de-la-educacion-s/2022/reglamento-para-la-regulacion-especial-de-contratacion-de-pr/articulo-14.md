@@ -1,1 +1,0 @@
-Artículo 14.-Verificación final del cumplimiento de requisitos: Una vez firmado el contrato por las partes, deberá la DSAG remitir nuevamente el expediente de contratación a la AL con el fin de que emita la certificación de cumplimiento de los requisitos.

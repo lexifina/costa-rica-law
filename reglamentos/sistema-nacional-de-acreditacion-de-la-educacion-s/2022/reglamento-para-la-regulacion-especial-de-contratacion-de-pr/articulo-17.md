@@ -1,1 +1,0 @@
-Artículo 17.-Modificaciones contractuales. Cualquier variación a los elementos esenciales del contrato se efectuará previa justificación y conforme con los parámetros establecidos por los lineamientos y las disposiciones internas, debidamente ajustadas a derecho.
