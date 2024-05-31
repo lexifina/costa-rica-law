@@ -1,2 +1,0 @@
-14 TRANSITORIO
-No aplica.
