@@ -2,17 +2,20 @@ ENTE COSTARRICENSE DE ACREDITACIÓN
 2021-009.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad da a conocer la modificación del siguiente documento: ECA-MC-C14 Criterios para organismos de certificación de inocuidad alimentaria, pasa de V01 a V02, no tiene transitorio. ECA-MC-C24 Criterios para la acreditación de organismos de inspección de mercado, version 01, no tiene transitorio. ECA-MC-P07 Procedimiento de quejas, sugerencias y observaciones, pasa de versión 08 a versión 09, no tiene transitorio. ECA-MC-P13 Ejecución de la evaluación, pasa de versión 13 a versión 14, no tiene transitorio. ECA-MC-P23 Conformación y sesión de los órganos colegiados, pasa de versión 07 a versión 08, no tiene transitorio. ECA-MP-P06 Manual de procedimientos para la evaluación y acreditación: Evaluación, pasa de versión 05 a versión 06, no tiene transitorio. ECA-MP-P07 Manual de procedimientos para la evaluación y acreditación: Actividades posteriores a la evaluación, pasa de versión 07 a versión 08, no tiene transitorio. ECA-MP-P08 Manual de procedimientos para la evaluación y acreditación: Toma de decisión, pasa de versión 08 a versión 09, no tiene transitorio. ECA-MP-P08-I01 Instructivo de Grupos de Trabajo, pasa de versión 02 a versión 03, no tiene transitorio. ECA-MC-P21 Procedimiento de Gestión del CEE, pasa de versión 14 a versión 15, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs. php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 horas a 16 horas.
 San José, 2021 julio 14.
 (Nota de Sinalevi: EL presente procedimiento . ECA-MC-C24 Criterios para la acreditación de organismos de inspección de mercado se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-[imagen]
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto deforma íntegra mediante publicación en La Gaceta N° 108 del 14 de junio del 2024, donde se actualiza la versión 01 existente y se publica la versión 02, que se transcribe a continuación:)
+[imagen] |
+CRITERIOS PARA LA ACREDITACIÓN DE ORGANISMOS DE INSPECCIÓN DE MERCADO | Código N? : ECA-MC-C24 | Páginas: 1 de 10
+Fecha de entrada en vigencia: 2024.06.14 | Versión: 02
 TABLA DE CONTENIDO
-1 OBJETIVO ............................................................................................................................ 1
-2 ALCANCE ............................................................................................................................. 1
-3 DEFINICIONES ..................................................................................................................... 1
-4 INTRODUCCIÓN ................................................................................................................... 1
-5 GUÍA DE APLICACIÓN DE LA NORMA INTE-ISO/IEC 17020:2012 .................................... 2
-6 REQUISITOS APLICABLES PARA EL ECA ........................................................................ 6
-7 TRANSITORIO ...................................................................................................................... 6
-8 ANEXOS ............................................................................................................................... 7
-9 IDENTIFICACIÓN DE CAMBIOS ........................................................................................ 11
+1 OBJETIVO................................................................................................................................................. 1
+2 ALCANCE.................................................................................................................................................. 1
+3 DEFINICIONES.......................................................................................................................................... 1
+4 INTRODUCCIÓN........................................................................................................................................ 1
+5 GUÍA DE APLICACIÓN DE LA NORMA INTE-ISO/IEC 17020:2012............................................................... 2
+6 REQUISITOS APLICABLES PARA EL ECA................................................................................................. 6
+7 TRANSITORIO............................................................................................................................................ 6
+8 ANEXOS..................................................................................................................................................... 7
+9 IDENTIFICACIÓN DE CAMBIOS .............................................. ¡Error! Marcador no definido.
 1 OBJETIVO
 Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Organismos de Inspección de Mercado de acuerdo con la Norma INTE-ISO/IEC 17020:2012.
 2 ALCANCE
@@ -20,8 +23,8 @@ El presente documento debe ser aplicado por el personal de la Secretaría de Acr
 3 DEFINICIONES
 Para el propósito de este documento, aplican los términos y definiciones descritos en las normas INTE-ISO/IEC 17020:2012 e INTE-ISO/IEC 17000 y en el Decreto ejecutivo Nº 42962-MEIC Lineamientos para la inspección de mercado por parte de organismos acreditados, a fin de que se constate de forma privada el cumplimiento de los reglamentos técnicos emitidos por el ministerio de economía, industria y comercio (MEIC).
 4 INTRODUCCIÓN
-El MEIC, considera oportuno favorecer los lineamientos para la inspección por parte de Organismos de Evaluación de la Conformidad acreditados, de manera que, tales organismos puedan realizar de forma privada las labores señaladas en el artículo 34 de la Ley N° 8279 Ley del Sistema Nacional para la Calidad.
-De conformidad con el Criterio N° C-277-2017 del 23 de noviembre de 2017, emitido por la Procuraduría General de la República, la Administración Pública tiene la obligación de contratar entes acreditados, entes de inspección o fiscalización para que presten servicios de evaluación por normas o reglamentos técnicos para el proceso de que se trate.
+El MEIC, considera oportuno favorecer los lineamientos para la inspección por parte de Organismos de Evaluación de la Conformidad acreditados, de manera que, tales organismos puedan realizar de forma privada las labores señaladas en el artículo 39 de la Ley N° 10473 Ley del Sistema Nacional para la Calidad.
+De conformidad con el Criterio N° C-277-2017 del 23 de noviembre de 2017, emitido por la Procuraduría General de la República, la Administración Pública tiene la obligación de contratar entes acreditados, entes de inspección o fiscalización para que presten servicios de evaluación de la conformidad, en tanto tiendan a demostrar el cumplimiento de los requisitos establecidos por normas o reglamentos técnicos para el proceso de que se trate.
 El Decreto Ejecutivo Nº 42962-MEIC Lineamientos para la inspección de mercado por parte de organismos acreditados, a fin de que se constate de forma privada el cumplimiento de los reglamentos técnicos emitidos por el Ministerio de Economía, Industria y Comercio (MEIC), se publicó en el Diario Oficial La Gaceta Digital Nº 94 del 18 de mayo del 2021.
 El término "debería" se utiliza en este documento para indicar las disposiciones que, aunque no sean obligatorias, son un medio reconocido de cumplimiento de los requisitos.
 Los OIM, los cuales sus sistemas de gestión no siguen los términos "debería" de este documento, serán solamente elegibles para la acreditación si ellos pueden demostrar al ECA que sus soluciones cumplen las cláusulas pertinentes de la norma INTE-ISO/IEC 17020:2012 de forma equivalente o por medio de un mejor camino.
@@ -46,10 +49,10 @@ Los OIM acreditados y en proceso de acreditación deben cumplir con los siguient
 2. No debe tener deudas con la CCSS, con Tributación Directa, con FODESAF y con el impuesto a las sociedades.
 6. Requisitos relativos a los recursos
 6.1 Personal
-1. El OIM debe emplear el personal necesario, con los conocimientos y la experiencia suficientes para llevar a cabo la inspección de mercado y emitir la declaración de conformidad
-de acuerdo al protocolo específico.
+1. El OIM debe emplear el personal necesario, con los conocimientos y la experiencia suficientes para llevar a cabo la inspección de mercado y emitir la declaración de conformidad de acuerdo al protocolo específico.
 2. En la descripción de los puestos de trabajo (requisito 5.2.7 de la norma INTE-ISO/IEC 17020), el OIM debe incorporar o hacer referencia a los requisitos de competencia establecidos en los protocolos de inspección, emitidos y aprobados por el MEIC, según el alcance específico de acreditación.
-3. Debe existir un programa efectivo para la observación en sitio de inspectores. Éste podría contribuir a cumplir los requisitos 5.2.2 y 6.1.3. El programa debería diseñarse teniendo en cuenta:
+3. Debe existir un programa efectivo para la observación en sitio de inspectores. Éste podría contribuir a cumplir los requisitos 5.2.2 y 6.1.3. El programa debería diseñarse teniendo
+en cuenta:
 - Los riesgos y complejidades de las inspecciones,
 - Los resultados de las observaciones in situ anteriores, y
 - Desarrollos técnicos, procesales o legales relacionados con las inspecciones.
@@ -76,8 +79,7 @@ g. Alcance geográfico indicando las regiones en que se realizará la evaluació
 h. Listado de las entidades a evaluar y su ubicación (dirección exacta), que garantice la representatividad del sector a inspeccionar.
 i. Variables a inspeccionar, de acuerdo al protocolo de inspección.
 j. Metodología de trabajo, que incluye el tipo de inspección y el muestreo, cuando corresponda, de los productos a evaluar en cada entidad.
-k. Laboratorios con competencia técnica demostrada a utilizar y los correspondientes
-ensayos, si aplica.
+k. Laboratorios con competencia técnica demostrada a utilizar y los correspondientes ensayos, si aplica.
 l. Programación de rutas, fecha de inicio y finalización.
 m. Personal asignado, listado de inspectores autorizados por protocolo específico.
 n. Cronograma de la realización de las actividades de evaluación asociadas.
@@ -105,9 +107,13 @@ a. Comunicar a la Dirección de Calidad del MEIC la acreditación de los OIM acr
 b. Comunicar a la Dirección de Calidad del MEIC cuando a un OIM se le reduce, retira o suspende la acreditación para los alcances de inspección de mercado, ya sea por sanción por parte del ECA o por decisión del OEC.
 7 TRANSITORIO
 No hay.
-8 ANEXOS
-ANEXO A
-ORGANISMOS DE INSPECCIÓN TIPO A
+8 IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Actualización de documento
+Referirse a la solicitud de gestión de documento consecutivo: | 2024-042
+Actualización de la Ley N° 10473 Ley del Sistema Nacional para la Calidad.
+| |
+9 ANEXOS
+ANEXO A ORGANISMOS DE INSPECCIÓN TIPO A
 DECLARACIÓN JURADA
 Quien suscribe (Nombre completo del representante legal tal y como aparece en el documento oficial de identidad), (Profesión u oficio), portador de la/del [Nombre del documento de identidad número (Número del documento de identidad), en mi condición de representante legal de (Nombre de la persona jurídica que representa), cédula jurídica número (Número de cédula jurídica), domiciliada en (Provincia, Cantón, Distrito, dirección exacta de la persona jurídica que representa) (en caso de ser persona física señalar el domicilio), conocedor(a) de las penas con que se castigan los delitos de falso testimonio y perjurio en el Código Penal de la República de Costa Rica, DECLARO BAJO FE DE JURAMENTO LO SIGUIENTE:
 1. Toda la documentación aportada es copia fiel de su original, y no es producto de alteración, falsificación o modificación para poder cumplir con los trámites de acreditación.
@@ -117,12 +123,12 @@ Quien suscribe (Nombre completo del representante legal tal y como aparece en el
 5. Declaro que no tengo ninguna situación de conflicto de intereses real, potencial o evidente. Que NOMBRE OIM, está libre de cualquier presión indebida, comercial, financiera y de otra índole, que pueda comprometer su imparcialidad, además no pertenece a ninguna organización de diseño, fabricación, suministro, instalación, compra, posesión, utilización, mantenimiento, importación o comercialización de los ítems que son objeto de inspección de mercado.
 6. Que mi representada no está en quiebra, insolvencia económica, administrada o intervenida judicialmente, con medidas cautelares sobre sus bienes, que no ha cesado sus actividades comerciales ni se encuentra en trámite de disolución como persona jurídica.
 7. Que el/la suscrito(a) ni ningún representante del OIM está bajo investigación o ha sido condenado por delitos contra los derechos de la propiedad intelectual, delitos contra los derechos de autor y derechos conexos, divulgación de secretos empresariales, delitos informáticos, contra la fe pública o legitimación de capitales.
-8. Que los representantes legales y accionistas de mi representada, no son funcionarios ni pertenecen al directorio del MEIC, ni son cónyuge, conviviente o alguno de sus parientes hasta el tercer grado en consanguinidad o afinidad, ni de cualquier otra entidad involucrada en el proceso de adjudicación de beneficios. Esto de conformidad con el artículo 3 y 38 de la Ley No. 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Esta incompatibilidad se mantendrá vigente hasta por 6 meses posteriores a que se extinga esta causal.
+8. Que los representantes legales y accionistas de mi representada, no son funcionarios ni pertenecen al directorio del MEIC, ni son cónyuge, conviviente o alguno de sus parientes hasta
+el tercer grado en consanguinidad o afinidad, ni de cualquier otra entidad involucrada en el proceso de adjudicación de beneficios. Esto de conformidad con el artículo 3 y 38 de la Ley No. 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Esta incompatibilidad se mantendrá vigente hasta por 6 meses posteriores a que se extinga esta causal.
 9. Que mi representada conservará los documentos generados en la inspección de mercados en perfectas condiciones de custodia y los trasladará a la entidad contratante, conservando copias confidenciales de los mismos.
 10. Que toda la información contenida en los estudios de mercado, es completa y verdadera, de manera que cualquier dato falso o incorrecto, facultará al contratante y el MEIC para anular el estudio de inspección de mercados. En ese sentido, expreso la anuencia de mi representada para que los datos contenidos en la inspección de mercados sean corroborados por los entes fiscalizadores competentes, sean estos el ECA y MEIC, además de cualquier mecanismo que pueda ejercer el contratante como medio de fiscalización de la información.
 11. Que en caso de ser contratados ya sea por alguna Cámara, Organización o Asociación, o bien, algún tercero en particular, nos comprometemos a remitir al MEIC, específicamente, a la Dirección de Calidad, el acuerdo de confidencialidad debidamente suscrito con el cliente.
-________________________________________________
-(Nombre y Firma de representante legal de la empresa)
+________________________________________________ (Nombre y Firma de representante legal de la empresa)
 Nota: La presente declaración jurada se puede firmar con firma digital certificada emitida al amparo de lo dispuesto en la Ley N° 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento. En caso de que no se cuente con firma digital, dicha declaración puede firmarse mediante firma manuscrita, debidamente autenticada por Notario Público.
 ANEXO B
 ORGANISMOS DE INSPECCIÓN TIPO C
@@ -142,6 +148,7 @@ Quien suscribe (Nombre completo del representante legal tal y como aparece en el
 12. En el caso de las personas jurídicas propietarias del capital accionario de los organismos de inspección, a sus accionistas también les aplican las incompatibilidades de los incisos 7, 8, 9, 10 y 11 anteriores.
 13. Que mi representada conservará los documentos generados en la inspección de mercados en perfectas condiciones de custodia y los trasladará a la entidad contratante, conservando copias confidenciales de los mismos.
 14. Que toda la información contenida en los estudios de mercado, es completa y verdadera, de manera que cualquier dato falso o incorrecto, facultará al contratante y el MEIC para anular el estudio de inspección de mercados. En ese sentido, expreso la anuencia de mi representada para que los datos contenidos en la inspección de mercados sean corroborados por los entes fiscalizadores competentes, sean estos el ECA y MEIC, además de cualquier mecanismo que pueda ejercer el contratante como medio de fiscalización de la información.
-15. Que en caso de ser contratados ya sea por alguna Cámara, Organización o Asociación, o bien, algún tercero en particular, nos comprometemos a remitir al MEIC, específicamente, a la Dirección de Calidad, el acuerdo de confidencialidad debidamente suscrito con el cliente. ________________________________________________
+15. Que en caso de ser contratados ya sea por alguna Cámara, Organización o Asociación, o bien, algún tercero en particular, nos comprometemos a remitir al MEIC, específicamente, a la Dirección de Calidad, el acuerdo de confidencialidad debidamente suscrito con el cliente.
+________________________________________________
 (Firma de representante legal de la empresa)
 Nota: La presente declaración jurada se puede firmar con firma digital certificada emitida al amparo de lo dispuesto en la Ley N° 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento. En caso de que no se cuente con firma digital, dicha declaración puede firmarse mediante firma manuscrita, debidamente autenticada por Notario Público.

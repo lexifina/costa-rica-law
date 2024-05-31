@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C24 Criterios para la acreditación de organismos de inspec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-05 | la propia norma |
+| 2 | 2024-05-31 | Acuerdo 6 (2024-05-31) |
