@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P06 Verificación / aprobación de declaraciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-12 | la propia norma |
+| 2 | 2024-05-31 | Acuerdo 6 (2024-05-31) |
