@@ -1,1 +1,0 @@
-Artículo 5°—El directorio será integrado por votación interna de los miembros y ejercerán sus cargos en forma gratuita, en calidad de Presidente, Secretario, Tesorero, Fiscal y un Vocal. Sus vacantes deberán ser llenadas de acuerdo con lo estipulado en el Artículo cuarto de este reglamento.

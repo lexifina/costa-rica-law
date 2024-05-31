@@ -1,1 +1,0 @@
-Artículo 3°—Para tales efectos se crea la Junta Administrativa del Estadio, que velará por un uso racional del mismo y que realizará las gestiones pertinentes con el fin de realizar las mejoras que las circunstancias ameriten.
