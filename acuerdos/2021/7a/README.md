@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C19: Criterios de trazabilidad (Versión 2)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-26 | la propia norma |
+| 2 | 2024-05-31 | Acuerdo 6 (2024-05-31) |

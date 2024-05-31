@@ -3,20 +3,22 @@ AVISO
 Aviso N° 2021-007.-El Ente Costarricense de Acreditación (EGA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del siguiente documento: ECA-MC-C19 Criterio de Trazabilidad, pasa de versión 01 a versión 02, no tiene transitorio, ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/IEC 17021-1, pasa de versión 15 a versión 16, transitorio, no tiene transitorio. ECA-MP-P02- documentos aplicables en los diferentes procesos de evaluación, pasa de versión 05 a versión 06, no tiene transitorio. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez. Responsable: Ing. Fernando Vázquez Dovale, cédula 8-0130-0191 Gerente General, Ente Costarricense de Acreditación.
 San José, 2021 abril 06.-
 (Nota de Sinalevi: EL presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N° 108 del 14 de junio del 2024, donde se actualiza la versión 02 y se publica la versión 03, y se transcribe a continuación:)
 [imagen]
+CRITERIO DE TRAZABILIDAD | Código N? : ECA-MC-C19 | Páginas: 1 de 15
+Fecha de entrada en vigencia: 2024.06.14 | Versión: 03
 TABLA DE CONTENIDO
-1. OBJETIVO ...................................................................................................................................... 1
-2. ALCANCE...................................................................................................................................... 1
-3. INTRODUCCIÓN ........................................................................................................................... 2
-4. DOCUMENTOS DE REFERENCIA. .......................................................................................... 2
-5. DEFINICIONES ............................................................................................................................. 2
-6. REQUISITOS GENERALES DE TRAZABILIDAD .................................................................. 5
-7. REQUISITOS DE TRAZABILIDAD PARA LOS OEC ............................................................ 7
-8 TRAZABILIDAD A TRAVÉS DE MATERIALES DE REFERENCIA (MR) Y
-MATERIALES DE REFERENCIA CERTIFICADOS (MRC) ..................................................... 13
-9 BIBLIOGRAFÍA ............................................................................................................................ 14
-10 TRANSITORIO............................................................................................................................ 14
-11 CONTROL DE CAMBIOS ......................................................................................................... 15
+1. OBJETIVO........................................................................................................................................... 1
+2. ALCANCE........................................................................................................................................... 1
+3. INTRODUCCIÓN.................................................................................................................................. 2
+4. DOCUMENTOS DE REFERENCIA........................................................................................................ 2
+5. DEFINICIONES................................................................................................................................... 2
+6. REQUISITOS GENERALES DE TRAZABILIDAD.................................................................................. 5
+7. REQUISITOS DE TRAZABILIDAD PARA LOS OEC.............................................................................. 7
+8 TRAZABILIDAD A TRAVÉS DE MATERIALES DE REFERENCIA (MR) Y MATERIALES DE REFERENCIA CERTIFICADOS (MRC).......................................................................................................................... 13
+9 BIBLIOGRAFÍA................................................................................................................................... 14
+10 TRANSITORIO.................................................................................................................................. 14
+11 CONTROL DE CAMBIOS................................................................................................................... 15
 1. OBJETIVO
 Establecer los lineamientos que deben cumplir los, laboratorios, incluyendo laboratorios clínicos, organismos de inspección (cuando aplique), proveedores de ensayos de aptitud, de acuerdo a lo indicado en ECA-MC-C15 y organismos de certificación (cuando aplique), con respecto a la trazabilidad en las mediciones.
 Asegurar el cumplimiento de los requisitos referentes a la trazabilidad establecidos en la Política de ILAC sobre Trazabilidad de las mediciones (ILAC P10 en su versión vigente).
@@ -66,8 +68,7 @@ El Instituto Nacional de Metrología (INM) y los Institutos Designados o laborat
 5.12 JCTLM:
 Comité Conjunto para la Trazabilidad en Laboratorios Clínicos
 JCTLM formado por BIPM, la Federación Internacional de Química Clínica y Medicina de Laboratorio (IFCC) e ILAC, proporciona una plataforma mundial para promover y brindar orientación sobre la equivalencia de mediciones reconocida y aceptada internacionalmente en Medicina de Laboratorio y la trazabilidad a los estándares de medición apropiados.
-5.13 Calibrador: Material sustituto del patrón de medida empleado en verificaciones de equipos manuales semiautomatizados o automatizados del laboratorio clínico, con valor asignado por el fabricante según su procedimiento de medición. La matriz debe ser conmutable, o sea semejante a las muestras a analizar. Su uso está indicado para la verificación de uno o varios analitos.
-Puede o no tener trazabilidad metrológica a unidades del Sistema Internacional de Medidas.
+5.13 Calibrador: Material sustituto del patrón de medida empleado en verificaciones de equipos manuales semiautomatizados o automatizados del laboratorio clínico, con valor asignado por el fabricante según su procedimiento de medición. La matriz debe ser conmutable, o sea semejante a las muestras a analizar. Su uso está indicado para la verificación de uno o varios analitos. Puede o no tener trazabilidad metrológica a unidades del Sistema Internacional de Medidas.
 5.14 CIPM MRA:
 Comité Internacional de Pesas y Medidas - Acuerdo de Reconocimiento Mutuo
 El CIPM MRA - es un acuerdo entre los Institutos Nacionales de Metrología que proporciona el marco técnico para asegurar el reconocimiento mutuo de los patrones de medición nacionales y para el reconocimiento de la validez de los certificados de calibración y medición emitidos por los Institutos Nacionales de Metrología.
@@ -89,7 +90,7 @@ BIPM es la organización intergubernamental a través de la cual los Estados Mie
 6.2 En ningún caso los resultados de una comprobación intermedia de características metrológicas sustituyen a la calibración de un instrumento de medida.
 6.3 La trazabilidad debe estar caracterizada por:
 6.3.1 Una cadena de trazabilidad metrológica.
-6.3.2 Incertidumbre de la medición: La incertidumbre de la medición para cada paso en la cadena de trazabilidad debe ser calculada de acuerdo con lo establecido en la norma INTEISO/ IEC 17025, en su versión vigente y en el documento ECA-MC-C18, de criterios para la evaluación de la norma INTE-ISO/IEC 17025:2017, en su versión vigente. Cuando un sistema particular de medición quede fuera del alcance del presente criterio, el laboratorio debe presentar un método validado generalmente aceptado. En ambos casos debe ser declarada en cada paso de la cadena, de tal manera que la incertidumbre para la cadena completa pueda ser calculada.
+6.3.2 Incertidumbre de la medición: La incertidumbre de la medición para cada paso en la cadena de trazabilidad debe ser calculada de acuerdo con lo establecido en la norma INTEISO/IEC 17025, en su versión vigente y en el documento ECA-MC-C18, de criterios para la evaluación de la norma INTE-ISO/IEC 17025:2017, en su versión vigente. Cuando un sistema particular de medición quede fuera del alcance del presente criterio, el laboratorio debe presentar un método validado generalmente aceptado. En ambos casos debe ser declarada en cada paso de la cadena, de tal manera que la incertidumbre para la cadena completa pueda ser calculada.
 6.3.3 Documentación
 Cada paso de la cadena debe ser ejecutado de acuerdo con procedimientos documentados y reconocidos o aceptados internacionalmente, los resultados deben ser registrados de tal forma que puedan ser verificados. Los laboratorios de ensayo, laboratorios clínicos, organismos de inspección (cuando aplique) y organismos de certificación (cuando aplique), deben tener registros identificados para evidenciar la trazabilidad de las mediciones que realicen, y para el caso de los laboratorios de calibración, se deben tener dichos registros y además estar incluidos los informes o certificados de calibración.
 6.3.4 Competencia
@@ -104,19 +105,18 @@ Con el objetivo de mantener la trazabilidad de las mediciones, las calibraciones
 Para una mejor referencia en lo que respecta a la calibración de los equipos de medición, puede consultarse la guía de ILAC sobre la determinación de los intervalos de calibración para equipos de medición ILAC-G24.
 7. REQUISITOS DE TRAZABILIDAD PARA LOS OEC
 7.1 Para los equipos de medición y patrones de referencia que deban ser calibrados, el ECA acepta que sean calibrados por los siguientes proveedores de trazabilidad competentes:
-a) Un INM, cuyo servicio específico solicitado se encuentre cubierto por el acuerdo del CIPM (CIPM-MRA) y se encuentre publicado en la respectiva capacidad de medición y calibración (CMC) del INM ante el BIPM. Los servicios cubiertos por el acuerdo CIPM-MRA y las CMC debidamente publicadas se pueden verificar en el apéndice C del BIPM KCDB (http://kcdb.bipm.org/appendixc/).
+a) Un INM, cuyo servicio específico solicitado se encuentre cubierto por el acuerdo del CIPM (CIPM-MRA) y se encuentre publicado en la respectiva capacidad de medición y calibración (CMC) del INM ante el BIPM. Los servicios cubiertos por el acuerdo CIPM-MRA y las CMC debidamente publicadas se pueden verificar en el apéndice C del BIPM KCDB
+(http://kcdb.bipm.org/appendixc/).
 Nota 1: Los INM pueden indicar que sus servicios de calibración se encuentran cubiertos por el acuerdo del CIPM-MRA, mediante el uso del logo de dicho acuerdo. Sin embargo, como el uso de este logo no es obligatorio, se debe consultar en el apéndice C del BIPM KCDB para verificar el cumplimiento del proveedor de servicios de calibración con el requisito anterior.
 Nota 2: Los INM de los estados miembros que participan en la convención del metro pueden obtener trazabilidad directamente de las medidas realizadas por el BIPM. El KCDB proporciona un enlace automático a los servicios de calibración relevantes del BIPM (incluyendo ámbito e incertidumbre). Certificados de calibración individuales emitidos por el BIPM también son enlistados.
 b) Laboratorio Costarricense de Metrología, LCM, para los servicios de calibración indicados en el apéndice C del KCDB del BIPM (http://kcdb.bipm.org/)
 c) Institutos designados por LCM, cuyo servicio específico de calibración requerido se encuentra publicado en su respectiva CMC ante el BIPM. Ver apéndice C del BIPM-KCDB
 (http://kcdb.bipm.org/appendixc/)
 d) Laboratorios de calibración acreditados por ECA, que tenga incorporado, dentro de su alcance de acreditación vigente, la capacidad de medición y calibración específica para la magnitud y el ámbito de medición, incluyendo incertidumbre, en que requiere trazabilidad.
-e) Laboratorios de calibración acreditados por organismos de acreditación homólogos firmantes del Acuerdo de Reconocimiento Multilateral para laboratorios de calibración con IAAC (http://www.iaac.org.mx/Spanish/Members.htm), ILAC (http://www.ilac.org/Membersdetails.html), APLAC (http://www.aplac.org/members/members_list.htm), EA (http://www.european-accreditation.org/content/mla/scopes.htm), que tenga incorporado, dentro de su alcance de acreditación vigente, la capacidad de medición y calibración específica para la magnitud y el ámbito de medición, incluyendo incertidumbre, que requiere trazabilidad.
+e) Laboratorios de calibración acreditados por organismos de acreditación homólogos firmantes del Acuerdo de Reconocimiento Multilateral para laboratorios de calibración con IAAC (http://www.iaac.org.mx/Spanish/Members.htm), ILAC (http://www.ilac.org/Members details.html), APLAC (http://www.aplac.org/members/members_list.htm), EA
+(http://www.european-accreditation.org/content/mla/scopes.htm), que tenga incorporado, dentro de su alcance de acreditación vigente, la capacidad de medición y calibración específica para la magnitud y el ámbito de medición, incluyendo incertidumbre, que requiere trazabilidad.
 7.2 Cuando un OEC utilice los proveedores de servicios de calibración antes indicados debe:
-a) Garantizar que el servicio brindado, tanto en magnitud, equipo, ámbito de trabajo e
-incertidumbre, se encuentra dentro de lo publicado en la CMC del INM (Apéndice C del
-BIPM KCDB, http://kcdb.bipm.org/), o en lo declarado por el laboratorio de calibración
-dentro de su alcance de acreditación.
+a) Garantizar que el servicio brindado, tanto en magnitud, equipo, ámbito de trabajo e incertidumbre, se encuentra dentro de lo publicado en la CMC del INM (Apéndice C del BIPM KCDB, http://kcdb.bipm.org/), o en lo declarado por el laboratorio de calibración dentro de su alcance de acreditación.
 b) Tener a disposición la siguiente documentación:
 - Certificados de calibración de acuerdo con la Norma INTE-ISO/IEC 17025, en su versión vigente.
 - Para laboratorios de calibración acreditados, evidencia de la acreditación: por ejemplo, certificado de acreditación del laboratorio proveedor de la calibración, con el símbolo de acreditación o el símbolo combinado de acreditación con la marca de ILAC, vigente para la fecha cuando se realiza la calibración.
@@ -124,15 +124,11 @@ b) Tener a disposición la siguiente documentación:
 - Para INM, capacidades de medición y calibración (CMC) incluidas en la base de datos del BIPM y cubiertas por el acuerdo del CIPM-MRA.
 7.3. CASOS ESPECIALES:
 7.3.1 Las formas de obtener trazabilidad indicadas en el apartado 7.1 corresponden a servicios que han sido sujetos a una revisión par o acreditación, por lo que cuando NO exista un proveedor que cumpla con lo establecido en el apartado 7.1, es posible obtener trazabilidad a:
-a) Institutos Nacionales de Metrología o Institutos Designados (INM), cuyo servicio de
-calibración requerido (ámbito e incertidumbre) no se encuentra publicado en su respectiva
+a) Institutos Nacionales de Metrología o Institutos Designados (INM), cuyo servicio de calibración requerido (ámbito e incertidumbre) no se encuentra publicado en su respectiva
 CMC ante el BIPM (http://kcdb.bipm.org/appendixc/)
-b) Laboratorios de calibración, cuyo servicio de calibración, (ámbito e incertidumbre), no se
-encuentre acreditado por un OA signatario del acuerdo de reconocimiento multilateral para
-laboratorios de calibración.
+b) Laboratorios de calibración, cuyo servicio de calibración, (ámbito e incertidumbre), no se encuentre acreditado por un OA signatario del acuerdo de reconocimiento multilateral para laboratorios de calibración.
 7.3.2 Para poder aplicar lo indicado en cualquier requisito del apartado 7.3 del presente criterio, el OEC debe demostrar, con evidencia objetiva y documentada, que no hay, en el país respectivo, un proveedor, interno o externo, de servicios de calibración que cumpla con lo indicado en el apartado 7.1 de este documento.
-Este tipo especial de proveedores de servicios de calibración no han demostrado su competencia para ejecutar las calibraciones requeridas, y deben ser evaluados para proveer la evidencia de su competencia en la realización de las calibraciones, su trazabilidad y estimación de la incertidumbre.
-Para ello, el OEC que haga uso de estos casos especiales de proveedores de trazabilidad debe:
+Este tipo especial de proveedores de servicios de calibración no han demostrado su competencia para ejecutar las calibraciones requeridas, y deben ser evaluados para proveer la evidencia de su competencia en la realización de las calibraciones, su trazabilidad y estimación de la incertidumbre. Para ello, el OEC que haga uso de estos casos especiales de proveedores de trazabilidad debe:
 7.3.3 Caso especial a) Trazabilidad a Institutos Nacionales de Metrología o Institutos Designados (INM), cuyos servicios de calibración (ámbito e incertidumbre) no se encuentran publicados en sus respectivas CMC ante el BIPM:
 7.3.3.1 Cuando un OEC utilice esta fuente de servicios de calibración, debe verificar la competencia técnica y la trazabilidad metrológica del INM utilizado, en la calibración requerida, para lo cual debe contar con evidencia documentada de:
 a) Fuentes de trazabilidad de los patrones utilizado por el INM.
@@ -151,10 +147,11 @@ v. Registros del equipamiento utilizado en el proceso de calibración de interé
 a) Cumplimiento de la norma INTE-ISO/IEC 17025, en su versión vigente, ver las condiciones para este requisito en el apartado 7.3.4.6 de este documento.
 b) Cumplimiento de ECA-MC-C19, Criterio de Trazabilidad.
 c) Cumplimiento de los criterios ECA-MC-C18, Criterios para evaluación y acreditación de laboratorios bajo la norma INTE-ISO/IEC 17025:2017.
-d) Cumplimiento del ECA-MC-C20, Criterios para la participación en ensayos/pruebas de aptitud y otras comparaciones para los laboratorios.
+d) Cumplimiento del ECA-MC-C20, Criterios para la participación en ensayos/pruebas de
+aptitud y otras comparaciones para los laboratorios.
 7.3.4.5 El OEC debe contar con los registros o evidencias documentadas que demuestren que, durante la auditoría realizada al proveedor del servicio de calibración, se revisaron y auditaron, todos los requisitos sobre validación de métodos de calibración, estimación de incertidumbre y declaración de CMC en laboratorios de calibración, indicados en los criterios ECA-MC-C18.
 7.3.4.6 La auditoría de la norma INTE/ISO/IEC 17025, en su versión vigente, debe realizarse de la siguiente manera:
-a) Si el proveedor de calibración no está acreditado para ningún servicio de calibración con algún Organismo de Acreditación firmante del acuerdo de reconocimiento multilateral para laboratorios de calibración, deben auditarse todas las cláusulas de la norma INTEISO/ IEC 17025, en su versión vigente, así como los criterios de trazabilidad y de participación en ensayos de aptitud y los criterios ECA-MC-C18.
+a) Si el proveedor de calibración no está acreditado para ningún servicio de calibración con algún Organismo de Acreditación firmante del acuerdo de reconocimiento multilateral para laboratorios de calibración, deben auditarse todas las cláusulas de la norma INTEISO/IEC 17025, en su versión vigente, así como los criterios de trazabilidad y de participación en ensayos de aptitud y los criterios ECA-MC-C18.
 b) Si el proveedor de calibración cuenta con algún servicio de calibración acreditado, diferente al requerido, por un Organismo de Acreditación firmante del acuerdo de reconocimiento multilateral para laboratorios de calibración, solamente deben auditarse los requisitos de recursos y de proceso, apartados 6 y 7, de la norma INTE/ISO/IEC 17025, en su versión vigente y los criterios de trazabilidad y de participación en ensayos de aptitud, así como los criterios ECA-MC-C18 relacionados con los apartados 6 y 7 de la Norma INTE/ISO/IEC 17025, para el servicio de calibración requerido.
 c) Si un laboratorio acreditado, realiza la calibración interna de sus patrones, el proceso de auditoría interna que se realiza de manera anual es válido como cumplimiento de este requisito, siempre y cuando dicho proceso de auditoría interna considere todos los requisitos indicados en el apartado 7.3.4.4 de este documento. El laboratorio sólo debe asegurar que en el grupo auditor participan expertos con competencia para la calibración requerida.
 7.3.4.7 El seguimiento, mediante auditoría, al proveedor de calibración debe ser realizado por el OEC en intervalos de tiempo no mayor a 24 meses.
@@ -170,8 +167,7 @@ Se pueden incluir miembros adicionales a los equipos de evaluación del ECA, par
 7.4.1 Existen calibraciones que no pueden estrictamente ser realizadas en unidades del SI, en estos casos el OEC debe:
 a) Demostrar que no es posible obtener trazabilidad con proveedores que cumplan con lo establecido en los apartados 7.1 y 7.3 de este Criterio.
 b) Calibrar sus equipos de medición y/o patrones utilizando como referencia una de las siguientes alternativas para demostrar su trazabilidad:
-i. Utilizar materiales de referencia certificados, provistos por un proveedor competente.
-Ver apartado 10 de este documento respecto a requisitos para proveedores o productores competentes.
+i. Utilizar materiales de referencia certificados, provistos por un proveedor competente. Ver apartado 10 de este documento respecto a requisitos para proveedores o productores competentes.
 ii. Realizar y documentar una comparación adecuada contra procedimientos de referencia, métodos específicos o normas de referencia o de consenso que se encuentren claramente descritos Uso de procedimientos de medición de referencia, métodos específicos o normas de consenso que se encuentren claramente descritos y aceptados, en el sentido de que proporcionan resultados de medición adecuados para su uso previsto. En estos casos se debe contar con la evidencia de la comparación realizada y de los resultados obtenidos.
 7.4.2 Si un OEC utiliza como fuente de trazabilidad lo indicando en el requisito 7.4.1 b) ii, del presente criterio, además de cumplir con todo lo indicado en el requisito 7.4.1, de este documento, debe participar en un ensayo de aptitud u otra comparación interlaboratorio, para evidenciar el aseguramiento del procedimiento de medición, método o norma de referencia, mediante comparación adecuada.
 Nota: Como evidencia de cumplimiento de lo indicado en 7.4.1 a), no se aceptan como válidas razones o justificaciones únicamente de tipo económico.
@@ -196,17 +192,15 @@ d) Para el caso de materiales de referencia certificados, se debe contar con el 
 8.4 En el caso de uso de materiales de referencia por parte de organismos de inspección, se aplica lo indicado en la cláusula 6.2.10 de la norma INTE-ISO/IEC 17020, en su versión vigente.
 9 BIBLIOGRAFÍA
 - ILAC P10 Política de ILAC para la Trazabilidad de los Resultados de Medición, en su versión vigente.
-- ILAC G24 Guidelines for the determination of calibration intervals of measuring instruments,
-en su version vigente.
+- ILAC G24 Guidelines for the determination of calibration intervals of measuring instruments, en su version vigente.
 - Norma INTE-ISO/IEC 17025 Requisitos generales para la competencia de laboratorios de ensayo y calibración, en su versión vigente.
 - Norma INTE-ISO 15189 Laboratorios de análisis clínicos - requisitos particulares para la calidad y la competencia, en su versión vigente.
 - Norma INTE-ISO/IEC 17020 Requisitos generales para la competencia de Organismos de Inspección, en su versión vigente.
-- Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo del 2002.
+- Ley del Sistema Nacional para la Calidad número 10473, 08 de mayo del 2024.
 - ISO INTE-ISO/IEC 17034 Requisitos Generales de competencia para productores de materiales de referencia, en su versión vigente.
 10 TRANSITORIO
+No aplica.
 11 CONTROL DE CAMBIOS
-Motivo: Modificación del documento ECA-MC-C19
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-083
-Observaciones
-Los cambios se encuentran subrayados en el documento.
-Debido al cambio de versión de ILAC P10 que se actualizó en 2020, así como para mejorar redacción, definiciones y unificar requisitos.
+Motivo: | Modificación del documento ECA-MC-C19
+Refiérase a la solicitud de elaboración o modificación del documento número 2024-041
+Observaciones Los cambios se encuentran subrayados en el documento. Se actualiza referencia de la nueva Ley del SNC Ley N°10473
