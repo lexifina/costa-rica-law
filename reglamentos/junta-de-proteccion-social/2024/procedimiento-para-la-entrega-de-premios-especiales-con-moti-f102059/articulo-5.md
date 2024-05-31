@@ -1,0 +1,9 @@
+Artículo 5º-Fecha de inicio y cierre de activaciones para los sorteos de esta promoción. Los participantes podrán iniciar sus activaciones de boletos no premiados de Lotería Instantánea desde lunes 3 de junio de 2024 a las 12:00 mediodía y hasta el lunes 30 de setiembre del 2024 a las 6:00 p.m.
+Esta promoción cuenta con cuatro sorteos mensuales, el primero con las cuponeras de Lotería Instantánea que se hayan completado durante el mes de junio de 2024, el segundo con las cuponeras de Lotería Instantánea que se hayan completado durante el mes julio de 2024, el tercero con las cuponeras de Lotería Instantánea que se hayan completado durante el mes de agosto y el cuarto con las cuponeras de Lotería Instantánea que se hayan completado durante el mes de setiembre de 2024.
+Para el primer sorteo, el plazo de activaciones para completar cuponeras con boletos no premiados de Lotería Instantánea será del lunes 3 de junio a las 12:00 m.d. al domingo 30 de junio, de 2024 a las 6:00 p.m.
+Para el segundo sorteo el plazo de activaciones para completar cuponeras con boletos no premiados de Lotería Instantánea será del domingo 30 de junio a las 6:01 p.m. al miércoles 31 de julio, de 2024 a las 6:00 p.m.
+Para el tercer sorteo el plazo de activaciones para completar cuponeras con boletos no premiados de Lotería
+Instantánea será del miércoles 31 de julio a las 6:01 p.m. al sábado 31 de agosto, de 2024 a las 6:00 p.m.
+Para el cuarto sorteo el plazo de activaciones para completar cuponeras con boletos no premiados de Lotería
+Instantánea será del sábado 31 de agosto a las 6:01 p.m. al lunes 30 de setiembre, de 2024 a las 6:00 p.m.
+No es permitido para cada sorteo de la promoción que los participantes intenten registrar activaciones de boletos no premiados de Lotería Instantánea de juegos que no se encuentren vigentes.
