@@ -17,3 +17,4 @@ Procedimiento ECA-MC-MA-P07 procedimiento para la aprobación de reglamentos de 
 | 2 | 2016-09-05 | Acuerdo 0 (2016-09-05) |
 | 3 | 2017-03-08 | Acuerdo 3 (2017-03-08) |
 | 4 | 2023-02-08 | Acuerdo 1 (2023-02-08) |
+| 5 | 2024-05-31 | Acuerdo 6 (2024-05-31) |
