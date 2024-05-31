@@ -1,32 +1,31 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 N° 2021-013. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: ECA-MC-MA-P05 Reconocimiento de la equivalencia del certificado de acreditación, pasa de versión 07 a versión 08, no tiene transitorio. ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz Nº 11-MINAE, pasa de versión 04 a versión 05, no tiene transitorio. ECA-MC-MA-P09 Aval Técnico para la Exoneración de dispositivos de Seguridad Pasiva en cumplimiento de la Ley Nº 9078, pasa de versión 03 a versión 04, no tiene transitorio. ECA-MC-MA-P20 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz Nº 11-MINAE, pasa de versión 03 a versión 04, tiene un transitorio de 6 meses los cuadros 5 y 6 esto según el Decreto 43905-MINAE-H publicado en La Gaceta N° 218 del 11 de noviembre de 2021, que en seis meses (11 de mayo de 2022) se elimina el cuadro 4 de este procedimiento y entran en vigencia los Cuadros 5 y 6 de este procedimiento. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http:// www.eca.or.cr/docs.php; así mismo puede solicitar el envoi de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenidas 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez. Responsable: PhD. Fernando Vázquez Dovale, cédula 8-0130-0191 Gerente General, Ente Costarricense de Acreditación.-San José, 15 de diciembre del 2021.-
 (Nota de Sinalevi: El presente procedimiento ECA-MC-MA-P20 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz Nº 11-MINAE, se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-[imagen] | AVAL TÉCNICO PARA LA EXONERACIÓN DE BIENES CONFORME AL ARTÍCULO 38 DE LA LEY DE REGULACIÓN DEL USO RACIONAL DE LA ENERGÍA, LEY Nº7447 Y SUS REFORMAS | Código N??: ECA- MC-MA-P20 | Páginas: 1 de 16 | [imagen]
-Fecha entrada en vigencia: 2022.01.13 | Versión: 04
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N| 108 del 14 de junio del 2024, donde se actualiza la versión 04 existente y se publica la versión 05, que se transcribe a continuación:)
+[imagen] | AVAL TÉCNICO PARA LA EXONERACIÓN DE BIENES CONFORME AL ARTÍCULO 38 DE LA LEY DE REGULACIÓN DEL USO RACIONAL DE LA ENERGÍA, LEY Nº7447 Y SUS REFORMAS | Código N? : ECA- MC-MA-P20 | Páginas: 1 de 16 | [imagen]
+Fecha entrada en vigencia: 2024.06.14 | Versión: 05
 TABLA DE CONTENIDO
-1 OBJETO Y ALCANCE................................................................................................................. 1
-2 DOCUMENTOS DE REFERENCIA............................................................................................... 1
-3 DEFINICIONES........................................................................................................................... 2
-4 REQUISITOS.............................................................................................................................. 3
-5 PROCEDIMIENTO.................................................................................................................... 12
-6 CONTROLES POSTERIORES................................................................................................... 16
-8 TRANSITORIO.......................................................................................................................... 16
-9 IDENTIFICACIÓN DE CAMBIOS................................................................................................ 16
+1 OBJETO Y ALCANCE...................................................................................................................... 1
+2 DOCUMENTOS DE REFERENCIA................................................................................................... 1
+3 DEFINICIONES............................................................................................................................... 2
+4 REQUISITOS.................................................................................................................................. 3
+5 PROCEDIMIENTO......................................................................................................................... 12
+6 CONTROLES POSTERIORES....................................................................................................... 16
+8 TRANSITORIO.............................................................................................................................. 16
+9 IDENTIFICACIÓN DE CAMBIOS .............................................................................. 16
 1 OBJETO Y ALCANCE
 Establecer lineamientos para la obtención de exoneración de materiales o equipos en el marco de la Ley Nº 7447 Ley de Regulación del Uso Racional de la Energía.
 2 DOCUMENTOS DE REFERENCIA
 - Ley No. 7447. Ley de Regulación del Uso Racional de la Energía del 03 de noviembre de 1994 y sus reformas
 - Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas"
-- Ley 8279. Ley del Sistema Nacional de Calidad del 21 de mayo del 2002, capítulo IV artículo 34.
+- Ley 10473. Ley del Sistema Nacional de Calidad del 08 de mayo del 2042, capítulo IV artículo 39.
 - IAAC MD 001 Acuerdo de Reconocimiento Multilateral (MLA) el 07 de agosto de 2006.
-- MOU de IAF.IAF Memorándum de entendimiento en 17065 el 08 de setiembre de 2011.
-- ILAC P5:10/2013. Acuerdo de Reconocimiento Mutuo de ILAC (Acuerdo) del 06 de enero del 2007
+- MOU de IAF.IAF Memorándum de entendimiento en 17065 el 08 de setiembre de 2011. - ILAC P5:10/2013. Acuerdo de Reconocimiento Mutuo de ILAC (Acuerdo) del 06 de enero del 2007
 - Ley General de Aduanas N° 7577 del 20 de octubre de 1995.
 - Reglamento de la Ley General de Aduanas Decreto ejecutivo N°25270-H del 14 de junio de 1996.
 - Ley General de la Administración Pública N° 6227 del 02 de mayo de 1978.
 - Criterio legal ECA-AL-CL-11-2020 sobre la competencia de la Junta Directiva en relación con las tarifas de equivalencia y la potestad del ECA para ofrecer estos servicios.
-- Decreto Ejecutivo N° 43095-MINA-H - "Modificación al Decreto Ejecutivo N° 41121 - MINAE-H del 05 de abril de 2018 denominado "Lista Oficial de bienes exonerados conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley N° 7447 del 03 de
-noviembre de 1994 y sus reformas".
+- Decreto Ejecutivo N° 43095-MINA-H - "Modificación al Decreto Ejecutivo N° 41121MINAE-H del 05 de abril de 2018 denominado "Lista Oficial de bienes exonerados conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley N° 7447 del 03 de noviembre de 1994 y sus reformas".
 3 DEFINICIONES
 3.1 Acreditación: Atestación o declaración de tercera parte relativa a un organismo de evaluación de la conformidad, que manifiesta la demostración formal de su competencia para llevar a cabo tareas específicas de evaluación de la conformidad.
 3.2 Aval técnico: aprobación realizada a los resultados de evaluación de la conformidad previamente realizados, para determinar el cumplimiento de los requisitos técnicos de los equipos.
@@ -48,7 +47,8 @@ noviembre de 1994 y sus reformas".
 3.12 OCP: Organismo de Certificación de Producto.
 3.13 Símbolo de acreditación: Símbolo emitido por un OA para ser utilizado por los OEC para indicar su condición de acreditado, que comprende el logotipo OA o el logotipo combinado según tipo de OEC, el tipo de OEC, número de acreditación y la fecha en que se obtiene la acreditación. Puede ir combinado con la marca de ILAC.
 4 REQUISITOS
-4.1 Los interesados que deseen exonerar equipos en cumplimiento del Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas", deben realizar el trámite en la plataforma digital eco.eca.or.cr
+4.1 Los interesados que deseen exonerar equipos en cumplimiento del Decreto Ejecutivo N°
+41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas", deben realizar el trámite en la plataforma digital eco.eca.or.cr
 4.2 El interesado, debe presentar de forma digital en la plataforma eco.eca.or.cr los siguientes documentos:
 Cuadro 1: Información que debe presentar
 Documento | Observaciones
@@ -56,15 +56,17 @@ En caso de persona física, copia a color de la cédula de identidad o pasaporte
 En caso de persona jurídica: Copia de la personería jurídica notarial o registral con máximo tres meses de vigencia o personería jurídica digital con máximo quince días de emitida. Para empresas ubicadas en el extranjero se debe presentar la personería jurídica con máximo de un mes de emitida al momento de ser legalizada o apostillada, además, el documento legalizado o apostillado se acepta con máximo de tres meses de realizado este trámite por la autoridad nacional o federal correspondiente. Copia a color de la cédula de identidad o pasaporte del representante legal en el caso de los extranjeros. No se admiten otros documentos de identificación para extranjeros que no sea el pasaporte o la cédula de residencia en caso de tenerla. | Se requiere para todos los trámites.
 Copia fiel de los resultados de evaluación de la conformidad, en este caso un certificado de conformidad de producto emitido por un organismo de certificación de producto acreditado, con su respectivo símbolo de acreditación. En los casos que los certificados de la conformidad, no cuenten con el símbolo de acreditación, el interesado debe entregar adicionalmente copia fiel del certificado y alcance de acreditación del organismo de evaluación de la conformidad utilizado. Todo documento que requiera una traducción, deberá ser acompañado con su traducción oficial realizada por un profesional debidamente nombrado y autorizado por el Ministerio Relaciones Exteriores y Culto de acuerdo con el artículo 1 inciso g) y artículo 3 de la Ley de traducciones e interpretaciones oficiales N°8142. | Se requiere para todos los trámites.
 Comprobante de la transferencia bancaria por concepto del costo del trámite de verificación y aprobación de la declaración de cumplimiento. | Se requiere para todos los trámites.
+Documento | Observaciones
 Copia fiel del B/L o guías que correspondan | El interesado puede realizar el trámite en la plataforma digital del ECA desde 45 días antes de presentar la solicitud al sistema Exonet, por lo que no es obligatorio que presente el BL o guía en la plataforma eco.eca.or.cr; sin embargo, en el trámite debe agregar un documento donde indique que se entregará posteriormente.
 Copia fiel de la factura | El interesado puede realizar el trámite en la plataforma digital del ECA desde 45 días antes de presentar la solicitud al sistema Exonet, por lo que no es obligatorio que presente la factura en la plataforma eco.eca.or.cr; sin embargo, en el trámite debe agregar un documento donde indique que se entregará posteriormente.
 Ficha técnica del equipo o producto a exonerar. | Se requiere para todos los trámites.
 Solicitud de Exonet | El interesado puede realizar el trámite en la plataforma digital del ECA desde 45 días antes de presentar la solicitud al sistema Exonet, por lo que no es obligatorio que la presente en la plataforma eco.eca.or.cr; sin embargo, en el trámite debe agregar un documento donde indique que se entregará posteriormente.
 Licencia de Exención del MINAE | Se requiere para todos los trámites.
-Criterio de equivalencia de INTECO, cuando aplique | El certificado de conformidad de producto debe ser emitido para la normativa y requisitos técnicos definidos en el Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas". Se aceptarán certificados emitidos para demostrar cumplimiento con otras normas internacionales siempre
-| y cuando presenten el Criterio de la equivalencia de normas de INTECO.
+Criterio de equivalencia de INTECO, cuando aplique | El certificado de conformidad de producto debe ser emitido para la normativa y requisitos técnicos definidos en el Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas". Se aceptarán certificados emitidos para demostrar cumplimiento
+Documento | Observaciones
+| con otras normas internacionales siempre y cuando presenten el Criterio de la equivalencia de normas de INTECO.
 Archivo con los datos para la emisión de la factura electrónica. Este formato debe ser solicitado al correo exoneracion@eca.or.cr | Se requiere para todos los trámites.
-4.3 [imagen] Al realizar el trámite en el sitio web eco.eca.or.cr, el interesado acepta bajo fe de juramento que:
+4.3 Al realizar el trámite en el sitio web eco.eca.or.cr, el interesado acepta bajo fe de juramento que:
 ? Toda la documentación aportada es copia fiel de su original, y no es producto de alteración, falsificación o modificación para poder cumplir con los trámites del Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas"
 ? Cuando se realiza el trámite en la página se declara que toda la información relacionada que consigné es cierta y cualquier indicación falsa o modificada total o parcialmente, será denunciada como la transgresión a la legislación penal vigente ante el Ministerio Público de la República de Costa Rica.
 ? Debido a lo anterior, el usuario del servicio deberá abstenerse de declarar información que no es verdadera, o de presentar documentación con las condiciones que se consignaron en el párrafo anterior
@@ -83,9 +85,7 @@ Organismos de Certificación de Producto | ISO/IEC17065 Evaluación de la confor
 4.9 La verificación del trámite de exoneración implica confirmar que:
 a) El certificado de conformidad de producto se encuentra vigente al momento de realizar el trámite y sin ninguna suspensión.
 b) El certificado de conformidad de producto ha sido emitido para la normativa y requisitos técnicos definidos en el Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas". Se aceptarán el cumplimiento de otras normas internacionales siempre y cuando hayan realizado el proceso de reconocimiento de la equivalencia de normas con INTECO.
-Cuadro 3: Normas técnicas aplicables. Los equipos indicados en el Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de
-Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y
-sus reformas" deben cumplir las siguientes normas técnicas:
+Cuadro 3: Normas técnicas aplicables. Los equipos indicados en el Decreto Ejecutivo N° 41121-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas" deben cumplir las siguientes normas técnicas:
 Equipo | Normas técnicas a cumplir en su versión vigente
 Calentadores Solares para Agua | INTE E23-2: Sistemas solares térmicos y sus componentes. Parte 2: Sistemas prefabricados. Requisitos generales.
 INTE E23-1: Sistemas solares térmicos y sus componentes. Parte 1: Colectores solares. Requisitos generales.
@@ -93,7 +93,7 @@ Paneles Solares Fotovoltaicos | INTE/IEC 61215-1, Módulos fotovoltaicos (PV) pa
 INTE/IEC 61215-1-2, Módulos fotovoltaicos (FV) para uso terrestre. Cualificación del diseño y homologación. Parte 1-2: Requisitos especiales de ensayo para los módulos fotovoltaicos (FV) de lámina delgada de telururo de cadmio (CdTe).
 INTE/IEC 61215-1-3, Módulos fotovoltaicos (FV) para aplicaciones terrestres. Cualificación del diseño y homologación. Parte 1-3: Requisitos particulares de ensayo para módulos fotovoltaicos (FV) de lámina delgada basados en silicio amorfo.
 INTE/IEC 61215-1-4, Módulos fotovoltaicos (FV) para aplicaciones terrestres - Cualificación del diseño y homologación. Parte 1 - 4: Requisitos particulares de ensayo para módulos fotovoltaicos (FV) de lámina delgada basados en Cu (In,Ga) (S,Se)2.
-Generadores micro y mini- hidroeléctricos | IEC -60034-22. Máquinas eléctricas rotativas. Parte 22: Generadores de corriente alterna para grupos electrógenos accionados por motores de combustión interna de pistones.
+Generadores micro y minihidroeléctricos | IEC -60034-22. Máquinas eléctricas rotativas. Parte 22: Generadores de corriente alterna para grupos electrógenos accionados por motores de combustión interna de pistones.
 Mini Generadores Eólicos | IEC-61400-2. Aerogeneradores. Parte 2: Requisitos de diseño para pequeños aerogeneradores.
 Inversores DC/AC para sistemas fotovoltaicos y mini | INTE/IEC 62109-1: Seguridad de los convertidores de potencia utilizados en sistemas de potencia fotovoltaicos. Parte 1: Requisitos generales.
 generadores hidroeléctricos y eólicos. | INTE/IEC 62109-2: Seguridad de los convertidores de potencia utilizados en sistemas de potencia fotovoltaicos. Parte 2: Requisitos particulares para inversores.
@@ -110,8 +110,7 @@ Motores Eléctricos de Alta Eficiencia | INTE E10-1, Eficiencia energética. Mot
 Refrigeradores Residenciales | INTE E11-1, Eficiencia energética. Refrigeradores y congeladores electrodomésticos. Parte 1: Requisitos. | El valor máximo de consumo anual debe ser un 20% menor que el límite máximo establecido en la norma de referencia.
 Refrigeradores Comerciales | INTE E10-1, Eficiencia energética. Equipos de refrigeración comercial auto contenidos. Parte 1: Requisitos. | El valor máximo de consumo anual debe ser un 10% menor que el límite máximo establecido en la norma de referencia
 Aires Acondicionados eficientes | INTE E14-1, Eficiencia energética. Acondicionadores de aire tipo ventana, dividido y paquete. Parte 1: Requisitos. | El valor de la Relación de Eficiencia Energética (REE) debe ser mayor en 1 unidad al establecido en la norma.
-Cuadro 5: Normas técnicas aplicables. Los equipos indicados en el Decreto Ejecutivo N° 43095-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus
-reformas" deben cumplir las siguientes normas técnicas:
+Cuadro 5: Normas técnicas aplicables. Los equipos indicados en el Decreto Ejecutivo N° 43095-MINAE-H - "Lista oficial de bienes exonerables conforme al artículo 38 de la Ley de Regulación del Uso Racional de la Energía, Ley Nº7447 del 03 de noviembre de 1994 y sus reformas" deben cumplir las siguientes normas técnicas:
 Equipo | Normas técnicas que deberá cumplir en su versión vigente
 Controlador de Carga de Baterías para Sistemas Fotovoltaicos, generadores eólicos o sistemas hidroeléctricos. | INTE N75 - Electrotecnia. Inversores, convertidores, controladores y sistema de equipos de interconexión para uso con recursos de energía distribuida.
 Baterías para Sistemas Fotovoltaicos y mini Generadores hidroeléctricos y eólicos. | INTE N39:2020 Baterías de litio.
@@ -140,7 +139,7 @@ f) El alcance de acreditación del organismo de certificación de producto inclu
 4.11 La presentación de una solicitud no implica la obtención del aval, ya que depende del cumplimiento de los requisitos indicados en el inciso 4.8 y establecidos por el MINAE.
 5 PROCEDIMIENTO.
 5.1 El interesado debe contar con un usuario creado en el sitio web: eco.eca.or.cr y proceder con un nuevo trámite de exoneración y agregar los anexos indicados en el punto 4.2 de este documento.
-5.2 [imagen] [imagen] El interesado puede realizar el trámite en la plataforma digital del ECA desde 45 días antes de presentar la solicitud al sistema Exonet, sin embargo, debe agregar un documento donde indique que se entregará posteriormente o que no aplica para los siguientes anexos: Solicitud de Exonet, B/L y Factura comercial. Para poder proceder con el traslado al MINAE del trámite junto [imagen] con los anexos mencionados anteriormente, deben enviar los documentos al correo exoneracion@eca.or.cr indicando el número de trámite de ECA correspondiente
+5.2 El interesado puede realizar el trámite en la plataforma digital del ECA desde 45 días antes de presentar la solicitud al sistema Exonet, sin embargo, debe agregar un documento donde indique que se entregará posteriormente o que no aplica para los siguientes anexos: Solicitud de Exonet, B/L y Factura comercial. Para poder proceder con el traslado al MINAE del trámite junto con los anexos mencionados anteriormente, deben enviar los documentos al correo exoneracion@eca.or.cr indicando el número de trámite de ECA correspondiente
 Nota 1: NO se realizará el traslado al MINAE hasta que esté completo el trámite con todos los anexos requeridos.
 5.3 El Verificador revisa el pago y la información presentada por parte del interesado, en un plazo de 10 días, el cual se puede extender hasta un período igual, cuando se requiera verificar el contenido de la información directamente con el organismo de certificación de producto responsable o el organismo de acreditación respectivo, en cuyo caso se le notificará al interesado.
 5.4 El verificador revisa que el criterio de equivalencia de INTECO corresponda con el documento de evaluación de la conformidad presentado y la norma indica en este y revisa como tal la conclusión de la equivalencia, cuando aplique.
@@ -160,7 +159,7 @@ Nota 1: NO se realizará el traslado al MINAE hasta que esté completo el trámi
 Nota 1: La aprobación realizada por ECA del trámite de exoneración debe interpretarse en el sentido de que ha emitido criterio sobre la validez de los documentos de evaluación de la conformidad, mas no de los resultados contenidos en dichos documentos.
 Nota 2: En los casos en que el ECA deniegue la aprobación del trámite de exoneración por no cumplir con los requisitos especificados en los reglamentos técnicos, ECA no asume ninguna responsabilidad económica, legal de bienes o productos que hayan sido fabricados o en proceso de importación.
 5.11.2 Si la verificación resulta positiva, se otorga el visto bueno del estado de la acreditación, El aprobador en el plazo de los 3 días hábiles de acuerdo con el artículo 262 inciso b de la Ley General de la Administración Pública N°6227, aprueba el trámite en la plataforma eco.eca.or.cr, remite la información al encargado en MINAE y realiza la recomendación en EXONET.
-[imagen] Nota 1: En caso de que la solicitud en el sistema EXONET sea devuelta por alguna de las autoridades al interesado, este debe enviar un correo a exoneracion@eca.or.cr solicitando que se realice nuevamente la recomendación en EXONET.
+Nota 1: En caso de que la solicitud en el sistema EXONET sea devuelta por alguna de las autoridades al interesado, este debe enviar un correo a exoneracion@eca.or.cr solicitando que se realice nuevamente la recomendación en EXONET.
 5.12 La Dirección de Energía del MINAE, en un plazo no mayor de 10 días hábiles contados a partir de recibo conforme de la solicitud de exoneración remitida por el usuario a través del sistema de EXONET, debe realizar una recomendación, considerando los siguientes requisitos:
 5.12.1 Se coteja la documentación proveniente del ECA con el formulario digital del portal EXONET del Ministerio de Hacienda relacionado con el mismo trámite.
 5.12.2 Se verifica la vigencia de la licencia de exoneración, la cual debe estar al día para recibir los beneficios fiscales.
@@ -168,7 +167,8 @@ Nota 2: En los casos en que el ECA deniegue la aprobación del trámite de exone
 5.12.4 Revisión de cualquier requisito técnico necesario para confirmar el cumplimiento de la normativa indicada y determinar si son satisfactorios o no.
 5.12.5 La Dirección de Energía del MINAE, utilizará la plataforma EXONET para solicitarle al importador cualquier información adicional que esté ausente o que sea necesario ampliar o modificar en el formulario digital respectivo.
 5.12.6 Si la información del formulario es positiva, la información suministrada por el ECA es correcta y los resultados de evaluación de la conformidad son satisfactorios, se procede a enviar la respectiva recomendación utilizando el sistema EXONET del Ministerio de Hacienda con la siguiente observación: "De acuerdo a la revisión técnica efectuada por este Ministerio, los bienes sobre los cuales la empresa solicitante beneficiaria requiere la exención, técnicamente cumplen con los requerimientos legales para optar por el beneficio fiscal exoneración, de acuerdo con lo estipulado en la Ley 7447 Ley Reguladora del Uso Racional de Energía, en el capítulo No. 9, artículo 38. La licencia de la empresa interesada beneficiaria está vigente"
-5.12.7 Si la información suministrada por el ECA arroja un resultado negativo los resultados de evaluación de la conformidad no son satisfactorios, el encargado la Dirección de Energía del MINAE, devolverá el trámite abierto en el sistema EXONET con la observación "Denegación de trámite por incumplimiento de requisitos técnicos"
+5.12.7 Si la información suministrada por el ECA arroja un resultado negativo los resultados de evaluación de la conformidad no son satisfactorios, el encargado la Dirección de Energía del MINAE, devolverá el trámite abierto en el sistema EXONET con la observación
+"Denegación de trámite por incumplimiento de requisitos técnicos"
 5.12.8 Si existiese un control propio de Hacienda posterior a la recomendación de la Dirección de Energía del MINAE, que rechace el trámite porque sea necesario realizar alguna corrección, se valorará para cada caso si la información suministrada por el ECA sigue siendo atinente al trámite y si la recomendación dada en un principio se mantiene.
 6 CONTROLES POSTERIORES.
 6.1 Los equipos que gocen del beneficio de exoneración, podrán ser sometidos a un control de mercado aleatorio, para confirmar que cumplen con los requisitos establecidos en el apartado 6.
@@ -182,5 +182,5 @@ Nota 2: En los casos en que el ECA deniegue la aprobación del trámite de exone
 Según el Decreto 43905-MINAE-H publicado en La Gaceta N°218 del 11 de noviembre de 2021, en cuatro meses (11 de mayo de 2022) se elimina el cuadro 4 de este procedimiento y entran en vigencia los Cuadros 5 y 6 de este procedimiento.
 9 CAMBIOS
 Motivo: | Cambios en documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2021-158
-Observaciones: cambios subrayados en el documento. Modificación a raíz de revisión periódica y revisión por la asesoría legal de ECA
+Refiérase a la solicitud de elaboración o modificación del documento número 2024-040
+Observaciones: cambios subrayados en el documento. Modificación de la nueva Ley del SNC Ley Nº 10473.
