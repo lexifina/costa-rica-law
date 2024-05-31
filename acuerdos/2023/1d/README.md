@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P07 procedimiento para la aprobación de reglame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-03 | la propia norma |
+| 2 | 2024-05-31 | Acuerdo 6 (2024-05-31) |
