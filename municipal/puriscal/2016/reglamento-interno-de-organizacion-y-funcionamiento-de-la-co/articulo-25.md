@@ -1,1 +1,0 @@
-Artículo 25° Traslado de gestiones. Las gestiones que se presenten ante la Contraloría que luego de un análisis previo y/o acto motivado, no corresponderán a las funciones y atribuciones propias de ésta, conforme a lo dispuesto en la Ley 9158, serán trasladas para su atención a las instancias internas o externas correspondientes.

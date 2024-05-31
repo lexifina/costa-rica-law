@@ -1,1 +1,0 @@
-Artículo 7° — Nombramiento de la persona Contralor (a) de Servicios. La Contraloría estará a cargo de una persona nombrada mediante los procedimientos ordinarios de la organización. Este cargo no se podrá desempañar bajo la modalidad de recargo de funciones y deberá ejercerlo un funcionario regular de la organización y no de confianza.
