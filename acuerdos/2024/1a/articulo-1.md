@@ -3,27 +3,28 @@ AVISOS
 Aviso 2024-001. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación del documento: ECA-MC-P18 Lineamientos para uso de logotipo ECA, símbolo de acreditación y declaraciones sobre el estado de acreditación, pasa de versión 12 a versión 13 y ECA-MC-P08 Procedimiento para recurrir los actos, pasa de versión 03 a versión 04. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez.
 San José, 23 de febrero del 2024.-
 (Nota de Snalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a continuación:)
-[imagen] |
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 108 del 14 de junio del 2024, donde se actualiza la versión 13 y se publica la versión 14, que se transcribe a continuación:)
+[imagen]
 LINEAMIENTOS PARA USO DE LOGOTIPO ECA, SÍMBOLO DE ACREDITACIÓN Y DECLARACIONES SOBRE EL ESTADO DE ACREDITACIÓN | Código N? : ECA-MC-P18 | Páginas: 1 de 25
-Fecha de entrada en vigencia: 2024.03.22 | Versión: 13
+Fecha de entrada en vigencia: 2024.06.14 | Versión: 14
 TABLA DE CONTENIDO
-1. OBJETIVO...................................................................................................................... 2
-2. ALCANCE...................................................................................................................... 2
-3. DEFINICIONES.............................................................................................................. 2
-4. GENERALIDADES DEL USO DEL SÍMBOLO DE ACREDITACIÓN DEL ECA POR PARTE DE LOS OEC...................................................................................................................... 3
-5. FORMA Y COLOR DEL LOGOTIPO ECA.......................................................................... 3
-6. SÍMBOLO DE ACREDITACIÓN DEL ECA........................................................................ 4
-7. MARCAS COMBINADAS................................................................................................. 5
-8. SOLICITUD Y APROBACIÓN DEL USO DE SIMBOLO DE ACREDITACIÓN..................... 7
-9. APROBACIÓN Y USO DEL LOGOTIPO ECA, AUTORIZACIÓN ESPECIAL....................... 9
-10. USO DE SÍMBOLO DE ACREDITACIÓN Y LOGOTIPO DEL ECA.................................... 9
-11. DECLARACIONES DEL ESTADO DE ACREDITACIÓN................................................. 12
-12. RESTRICCIONES SOBRE EL USO DEL SÍMBOLO DE ACREDITACIÓN Y LAS ...............
-DECLARACIONES DEL ESTADO DE ACREDITACIÓN....................................................... 13
-13. SEGUIMIENTO Y SANCIONES.................................................................................... 15
-14. TRANSITORIO............................................................................................................. 16
-15. IDENTIFICACIÓN DE CAMBIOS................................................................................... 16
-ANEXOS........................................................................................................................... 17
+1. OBJETIVO...................................................................................................................................... 2
+2. ALCANCE....................................................................................................................................... 2
+3. DEFINICIONES............................................................................................................................... 2
+4. GENERALIDADES DEL USO DEL SÍMBOLO DE ACREDITACIÓN DEL ECA POR PARTE DE LOS OEC 3
+5. FORMA Y COLOR DEL LOGOTIPO ECA.......................................................................................... 3
+6. SÍMBOLO DE ACREDITACIÓN DEL ECA......................................................................................... 4
+7. MARCAS COMBINADAS................................................................................................................. 5
+8. SOLICITUD Y APROBACIÓN DEL USO DE SIMBOLO DE ACREDITACIÓN...................................... 7
+9. APROBACIÓN Y USO DEL LOGOTIPO ECA, AUTORIZACIÓN ESPECIAL....................................... 9
+10. USO DE SÍMBOLO DE ACREDITACIÓN Y LOGOTIPO DEL ECA..................................................... 9
+11. DECLARACIONES DEL ESTADO DE ACREDITACIÓN.................................................................. 12
+12. RESTRICCIONES SOBRE EL USO DEL SÍMBOLO DE ACREDITACIÓN Y LAS ................................
+DECLARACIONES DEL ESTADO DE ACREDITACIÓN........................................................................ 13
+13. SEGUIMIENTO Y SANCIONES..................................................................................................... 15
+14. TRANSITORIO............................................................................................................................. 16
+15. IDENTIFICACIÓN DE CAMBIOS................................................................................................... 16
+ANEXOS............................................................................................................................................ 17
 1. OBJETIVO
 Este documento establece los requisitos que deben cumplir los Organismos de Evaluación de la Conformidad (OEC) que cuentan con la acreditación vigente emitida por el ECA y por cualquier persona física o jurídica que solicite una autorización especial para la utilización del símbolo de acreditación del Ente Costarricense de Acreditación ECA y del logotipo ECA.
 2. ALCANCE
@@ -54,7 +55,7 @@ IAF Resolution 2017-19 Non-Accredited Personnel Certification where the CAB is a
 [imagen]
 [imagen]
 5.4. Los colores del logotipo son los siguientes:
-[imagen] [imagen]
+[imagen]
 5.5. Las tipografías son las siguientes:
 Gilroy Sans Serif
 Times New Roman
@@ -84,15 +85,14 @@ Negro 0% Negro 9%
 7.11. El OEC debe asegurar que el uso de la marca combinada se realice para las actividades bajo acreditación ante el ECA y nunca debe ser utilizada en productos, además el OEC no debe permitir el uso de la marca combinada a sus clientes.
 7.12. El OEC debe asegurar que las reproducciones que realice de la marca combinada correspondan al modelo aprobado, aparecer en la primera página del documento aprobado y en otras donde se requiera, se puede ampliar o reducir, siempre que se conserven las proporciones originales y el texto sea legible y los logos deben permanecer en su orientación horizontal.
 8. SOLICITUD Y APROBACIÓN DEL USO DE SIMBOLO DE ACREDITACIÓN
-[imagen] 8.1. Una vez que el OEC obtiene la acreditación inicial, debe cancelar la factura del otorgamiento respectiva para que continúe el proceso de elaboración y aprobación de uso de símbolo. Cuando se evidencie la cancelación de la factura del otorgamiento, la Gestoría de Calidad elabora el símbolo de acreditación en formato digital y remite a la Secretaría de Acreditación correspondiente.
+8.1. Una vez que el OEC obtiene la acreditación inicial, debe cancelar la factura del otorgamiento respectiva para que continúe el proceso de elaboración y aprobación de uso de símbolo. Cuando se evidencie la cancelación de la factura del otorgamiento, la Gestoría de Calidad elabora el símbolo de acreditación en formato digital y remite a la Secretaría de Acreditación correspondiente.
 8.2. La Secretaría de Acreditación envía al OEC el símbolo de acreditación del ECA (en formato digital), en un plazo recomendado de 3 días hábiles posteriores a la notificación por parte del Departamento de Contabilidad sobre la cancelación de la factura de otorgamiento.
 8.3. El representante del OEC, debe Informar a la Secretaría de Acreditación si el informe / certificado a aprobar tiene algún requisito / solicitud conforme a lo requerido por los dueños de los esquemas de acreditación.
 8.4. El representante del OEC ante ECA, debe remitir los ejemplos de los documentos donde colocó el símbolo de acreditación en un plazo máximo recomendado de 30 días hábiles a la Secretaría de Acreditación para la revisión y aprobación del uso del símbolo de acreditación, en caso de incumplimiento del plazo, la Secretaría de Acreditación correspondiente procede a realizar una llamada de atención.
 8.5. Una vez recibidos los ejemplos del OEC en el ECA, la Secretaría de Acreditación revisa los formatos de las muestras para verificar el cumplimiento de este procedimiento y los requisitos referentes a la emisión de informes/certificados de la norma bajo la cual el OEC se encuentra acreditado. Para esto, la Secretaría de Acreditación cuenta con un plazo recomendado de 8 días hábiles.
 8.6. Si la Secretaría de Acreditación NO aprueba los formatos de las muestras enviadas, solicita los ajustes necesarios al OEC y continua hasta que el OEC envié los ejemplos con las observaciones solicitadas.
 8.7. Si la Secretaría de Acreditación SÍ aprueba las muestras enviadas, resuelve autorizar el uso del símbolo de acreditación y comunica la resolución al OEC mediante el ECA-MC-P18-F03, por lo que el OEC queda autorizado para hacer uso del símbolo de acreditación del ECA.
-8.8. El anexo 4 se muestran algunos ejemplos de formatos para la utilización del símbolo de acreditación. En los casos en que el OEC no pueda incluir el símbolo
-de acreditación del ECA en documentos emitidos para referenciar, anotar y comunicar los resultados de las actividades incluidas en el alcance de la acreditación, como lo son los informes o certificados, debe solicitar mediante un oficio formal a la Secretaría de Acreditación correspondiente, el permiso para omitir el uso del símbolo justificando las razones.
+8.8. El anexo 4 se muestran algunos ejemplos de formatos para la utilización del símbolo de acreditación. En los casos en que el OEC no pueda incluir el símbolo de acreditación del ECA en documentos emitidos para referenciar, anotar y comunicar los resultados de las actividades incluidas en el alcance de la acreditación, como lo son los informes o certificados, debe solicitar mediante un oficio formal a la Secretaría de Acreditación correspondiente, el permiso para omitir el uso del símbolo justificando las razones.
 8.9. Una vez autorizado el uso del símbolo en los documentos solicitados, solamente debe solicitar una nueva autorización, si pretende emplearlo en un documento o medio diferente al que le fue aprobado. Para ello, el OEC debe seguir los lineamientos establecidos en 8.4 a 8.9 de este documento.
 8.10. El OEC debe informar a la Secretaría de Acreditación correspondiente cualquier cambio en los documentos o formatos aprobados que puedan afectar las referencias a las actividades acreditadas para las que aplica el uso del símbolo de acreditación, para que la Secretaría de Acreditación realice el respectivo análisis e indique si aplica el proceso de una nueva aprobación de la referencia de uso del símbolo.
 8.11. La Secretaría de Acreditación realiza la revisión de la información y determina si se debe realizar una nueva referencia de aprobación del símbolo de acreditación, integrando las actividades ampliadas, o si solo se realiza la referencia indicando la aprobación de los mismos formatos con la inclusión de la información para las actividades de ampliación del alcance.
@@ -186,12 +186,12 @@ d. En etiquetas de calibración, inspecciones, de materiales de referencia u otr
 13.3. Cuando el uso del símbolo de acreditación, del logotipo ECA o de las declaraciones sobre el estado de acreditación, por parte de cualquier persona física, jurídica u OEC con acreditación retirada o cancelada, ocasione daño o perjuicio al ECA o a cualquier tercero, el Gerente con el apoyo del Departamento de Asesoría Legal debe llevar a cabo todas las acciones necesarias para lograr el efectivo resarcimiento de los mismos.
 13.4. En caso de suspensión, reducción o retiro del alcance de acreditación de un OEC, este debe establecer un mecanismo para asegurar que el símbolo de acreditación y cualquier referencia a su estado de acreditación no sea utilizado para las actividades suspendidas reducidas o retiradas, de acuerdo con lo establecido en el procedimiento ECA-MC-P34 Proceso para la Suspensión, Reducción o Retiro de la Acreditación. En caso de que Organismos de Certificación retiren o renuncien a su acreditación, deben incluir medidas efectivas para el retiro de los certificados emitidos dentro del alcance de acreditación.
 13.5. Los OEC con la acreditación retirada dejan de ser un cliente del ECA y no puede hacer ninguna mención a su estado de acreditación o hacer uso del símbolo de acreditación en ningún medio.
-13.6. El ECA como ente competente para la acreditación a nivel nacional de conformidad con la Ley N°8279 artículos 20 y 21 inciso a), c) y d) ostenta la facultad de tomar las acciones de manera interna o externa que considere pertinentes, para tratar las declaraciones incorrectas o no autorizadas de la condición de acreditación, o el uso engañoso o no autorizado de los símbolos de acreditación y del logotipo del organismo de acreditación. Las acciones pertinentes pueden incluir las solicitudes de acciones correctivas, la suspensión o retirada de la acreditación, la publicación de la transgresión y, si fuera necesario, la toma de acciones legales.
+13.6. El ECA como ente competente para la acreditación a nivel nacional de conformidad con la Ley N°10473 artículos 24 y 25 inciso a), c) y d) ostenta la facultad de tomar las acciones de manera interna o externa que considere pertinentes, para tratar las declaraciones incorrectas o no autorizadas de la condición de acreditación, o el uso engañoso o no autorizado de los símbolos de acreditación y del logotipo del organismo de acreditación. Las acciones pertinentes pueden incluir las solicitudes de acciones correctivas, la suspensión o retiro de la acreditación, la publicación de la transgresión y, si fuera necesario, la toma de acciones legales.
 14. TRANSITORIO
 No aplica.
 15. IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación del documento ECA-MC-P18
-Refiérase a la solicitud de elaboración o modificación del documento número 2023-024. Se subrayan cambios en el documento.
+Refiérase a la solicitud de elaboración o modificación del documento número 2024-045. Se modifica la referencia a la nueva Ley del Sistema Nacional para la Calidad Ley Nº 10473.
 ANEXOS
 ANEXO 1. ESQUEMAS CON ACUERDOS DE USO DE MARCA COMBINADA SEGÚN MLA Y MRA FIRMADOS.
 ANEXO NORMATIVO En estos esquemas se permite que el OEC use la marca combinada
@@ -217,13 +217,12 @@ Símbolo de acreditación ILAC - ECA
 [imagen]
 [imagen]
 [imagen]
-[imagen]
 Símbolo de acreditación ECA
 [imagen]
 [imagen]
 [imagen]
 [imagen]
-| [imagen]
+[imagen]
 ANEXO 4. EJEMPLOS DE USO DEL SÍMBOLO DE ACREDITACIÓN
 Ejemplo de uso de símbolo en un certificado de calibración
 [imagen]
