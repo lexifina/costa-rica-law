@@ -1,0 +1,1 @@
+ARTÍCULO 2. El costo del ajuste será asumido por cada Cartera Ministerial, para lo cual deberán realizar los ajustes respectivos en el presupuesto del Ministerio y se realizarán presupuestos extraordinarios para la asignación de recursos, los cuales deben ser presentados ante la Asamblea Legislativa para su correspondiente aprobación.
