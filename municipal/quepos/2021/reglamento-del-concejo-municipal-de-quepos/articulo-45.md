@@ -1,4 +1,4 @@
 CAPÍTULO XI
 DE LAS SESIONES ORDINARIAS, EXTRAORDINARIAS Y SOLEMNES DEL CONCEJO MUNICIPAL
-ARTÍCULO 45.- Las sesiones ordinarias del Concejo Municipal son públicas y se llevarán a cabo una vez a la semana en el Palacio Municipal de Quepos en horario. (5:00pm-8:00pm) y día (lunes). Mismo que podrá ser cambiado mediante acuerdo por mayoría simple, el cual para que surta efecto deberá ser publicado previamente en el Diario Oficial La Gaceta.
-(Así reformado en sesión N° 213 del 6 de diciembre de 2022)
+Artículo 45.- Las sesiones ordinarias del Concejo Municipal son públicas y se llevarán a cabo una vez a la semana en el Palacio Municipal de Quepos en horario. (5:00p.m.-8:00p.m.) y día (martes). Mismo que podrá ser cambiado mediante acuerdo por mayoría simple, el cual para que surta efecto deberá ser publicado previamente en el Diario Oficial La Gaceta.
+(Así reformado en sesión ordinaria N° 007-2024 del 03 de junio del 2024)
