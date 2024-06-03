@@ -1,0 +1,1 @@
+Artículo 10.-La persona titular de la Tesorería Municipal no realizará pago alguno sin orden de la persona titular de la Alcaldía Municipal o de la persona responsable del Área Financiera, so pena de incurrir en causal de despido y las demás responsabilidades que se deriven de su conducta, previo debido proceso.

@@ -1,0 +1,1 @@
+Artículo 7º-Corresponde a la Proveeduría Municipal realizar los procesos de contratación para la adquisición de bienes y servicios que se autorizan en este reglamento, en concordancia con la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 9º-Todo pago será respaldado por la orden de compra emitida por la Proveeduría Municipal o contrato correspondiente. Dichas órdenes de compra o contratos, cumplirán con las formas y requisitos que las técnicas financiero-contables establezcan al efecto.
