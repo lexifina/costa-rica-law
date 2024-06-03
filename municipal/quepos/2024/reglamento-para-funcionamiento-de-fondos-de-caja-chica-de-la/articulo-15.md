@@ -1,0 +1,15 @@
+Artículo 15.-La compra de bienes y/o servicios se tramitará por el fondo de Caja Chica, los funcionarios responsables, deberán observar los siguientes requisitos, sin prejuicio de otros establecidos en la normativa vigente sobre la materia:
+a) Evaluar la necesidad y urgencia de realizar la compra por el mecanismo de caja chica.
+b) La solución sea indispensable e impostergable.
+c) Se acredite el costo beneficio para la administración.
+d) La adquisición no resulte más onerosa que el procedimiento ordinario de contratación a realizar.
+e) No haya fragmentación
+f) Seleccionar el proveedor de los bienes, obras o servicios de las dos cotizaciones como mínimo, a acepción de aquellos casos que exista un único proveedor q brinde el servicio o el bien se adjuntara una cotización, de los proveedores que se requieren en procura del mayor beneficio institucional en cuanto a precio y calidad, basados en accesibilidad, cercanía y disponibilidad. En caso que únicamente se encuentre una cotización deberá ser justificado por el solicitante y autorizado por la alcaldía.
+g) Verificar el régimen de prohibiciones establecido en la Ley General de Contratación Pública y su Reglamento.
+h) Deberá verificar por parte de la tesorería la disponibilidad de recursos al momento de solicitar los fondos.
+i) Se deberá verificar por parte de la jefatura de Proveeduría la veracidad de los datos consignados en los documentos, la urgencia y la necesidad que justifica la compra mediante, así como lo correspondiente al importe y el límite de gastos. En caso de no cumplir con lo anterior por parte del solicitante, se rechazará de manera inmediata la gestión.
+j) Los bienes adquiridos mediante este fondo deberán se reportados a la bodega de la Municipalidad por parte de la Unidad que solicito la compra, y deberán ser debidamente plaqueados de acuerdo con el procedimiento establecido para tal fin.
+Lo anterior únicamente cuando la compra corresponda a objetos o artículos tangibles que ameriten engrosar el inventario Municipal y que estén sujetos a depreciación.
+k) Las compras a través de Caja Chica, deberán quedar debidamente registradas en el sistema digital unificado, dejando constancia de la totalidad de la documentación generada en relación con la compra realizada, facilitando que dicha actuación pueda ser conocida por cualquier interesado; asimismo, éstas se realizarán respetando toda regulación institucional y general vigente al momento de efectuarse la compra.
+Los Fondos de Caja Chica no deberán utilizarse para realizar operaciones distintas a las que se destinan esos recursos.
+En Materia de contratación de servicios profesionales; el fondo de Caja Chica podrá requerirse únicamente para servicios de trámites menores, tales como; personerías, títulos de propiedades, notariados entre otros. En caso de que se requiera contratar servicios profesionales, tales como procesos legales-administrativos específicos, proyectos administrativos, Auditoría interna, entre otros, deberá seguirse los procedimientos ordinarios de contratación pública.

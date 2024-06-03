@@ -1,0 +1,1 @@
+Artículo 33.-Todo arqueo de caja chica se realizará en presencia del Tesorero Municipal según lo dispuesto en los numerales 117, 118, 119 y 120 del Código Municipal. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

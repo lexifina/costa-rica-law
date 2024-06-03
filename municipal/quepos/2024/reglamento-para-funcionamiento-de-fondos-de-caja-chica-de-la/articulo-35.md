@@ -1,0 +1,1 @@
+Artículo 35.-Por caso fortuito o de fuerza mayor que el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo se realizará un arqueo del fondo en presencia de un testigo quien dejarán constancia con su firma del contenido del mismo.

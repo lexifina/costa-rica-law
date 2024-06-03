@@ -1,0 +1,1 @@
+Artículo 20.-Cuando se presuma que el procedimiento de Caja Chica se está utilizando para obviar los procesos de contratación, la Tesorería Municipal emitirá un informe de la situación a la alcaldía Municipal quien definirá en última instancia, sí se autoriza la compra o contratación respectiva.

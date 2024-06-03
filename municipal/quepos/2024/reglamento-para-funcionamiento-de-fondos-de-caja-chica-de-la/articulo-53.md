@@ -1,0 +1,1 @@
+Artículo 53.-Las sanciones que correspondan según lo indicado en el artículo anterior, serán aplicadas por la Alcaldía o en su efecto por la Unidad de Talento Humano según el caso conforme con las disposiciones del debido proceso reguladas en el código Municipal y la Ley General de la Administración Pública.

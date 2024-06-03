@@ -1,0 +1,1 @@
+Artículo 13.-El funcionario que requiera un bien o servicio deberá llenar el formulario adjunto antes de otorgar el vale para la compra por caja chica, solo en aquellos casos que el bien o servicio sea menor a un 1% del fondo fijo de caja chica no requiere de presentar el formulario de Justificación del Vale.

@@ -1,0 +1,1 @@
+Artículo 30.-Los comprobantes de pago que se utilizarán por Caja Chica, estarán pre numerado y se llevará para esos efectos, una numeración individual para cada Caja Chica que exista en la Municipalidad.

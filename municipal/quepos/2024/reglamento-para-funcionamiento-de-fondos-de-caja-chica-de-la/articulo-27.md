@@ -1,0 +1,1 @@
+Artículo 27.-Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar comprobante de exoneración del pago del impuesto de ventas para presentar al comercio.

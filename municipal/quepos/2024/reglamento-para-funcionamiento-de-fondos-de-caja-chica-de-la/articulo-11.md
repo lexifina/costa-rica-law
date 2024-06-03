@@ -1,0 +1,17 @@
+Artículo 11.-Del Encargado del fondo de caja chica. El Coordinador de la Tesorería Municipal o el funcionario que este designe de manera formal será el encargado de la custodia del Fondo Fijo de Caja Chica, deberá velar por la veracidad, fidelidad y exactitud de los documentos, los registros contables y presupuestarios y los sistemas informáticos desarrollados para tal efecto, en caso que le corresponda registrar las transacciones o presentar a tiempo las liquidaciones de Caja chica, debe velar por la legitimidad de las facturas o comprobantes de pago, así como del uso correcto de los recursos económicos, las operaciones matemáticas, resguardo, custodia y control de los reintegros de Caja Chica que se deban tramitar; será responsable por el uso inadecuado de los recursos económicos, documentos alterados, custodia y toda irregularidad que le sean imputables por su dolo, culpa o negligencia.
+Corresponden al alcalde, proveedor y al Tesorero Municipal. A la Jefatura del proveedor Municipal o quién este delegue: es el responsable de la operatividad del Fondo Fijo de Caja Chica y le compete las siguientes funciones:
+a) Verificar las compras de los bienes, obras o servicios que solicitan las diferentes Unidades, sustentados en criterio de indispensable e impostergable, fuerza mayor o caso fortuito según el presente reglamento
+b) Verificar si lo solicitado se encuentra o no en existencia en el Bodegas.
+c) Velar si lo solicitado se puede adquirir por medio del Fondo Fijo de Caja Chica o se utiliza otro mecanismo de contratación pública.
+d) Valorar si lo adquirido requiere el ingreso a bodega y/o placa respectiva.
+e) Velar por que los bienes, obras o servicios adquiridos no correspondan a compras repetitivas, fraccionadas o incumplan el propósito y la esencia de la creación del Fondo Fijo de Caja Chica o bien que se realicen por negligencia de la Jefatura de la Unidad Solicitante.
+El Tesorero Municipal es el responsable de la custodia, control y manejo del Fondo Fijo de Caja Chica y le compete las siguientes funciones:
+a) Entregar el dinero en efectivo correspondiente al fondo de la Caja Chica a las Unidades Solicitantes.
+b) Gestionar las liquidaciones de compras y/o gastos efectuadas por medio de los Fondos Fijos de Caja Chica.
+c) Revisar, aprobar o improbar las facturas y/o documentos recibidos por concepto de liquidación de anticipos del Fondo. Todas las facturas deben ser emitidas posterior a la aprobación del anticipo de caja chica (vale).
+d) Verificar que el gasto incurrido corresponda a la justificación del anticipo otorgado y comunicar inmediatamente a la cualquier inconsistencia.
+e) Dejarse constancia del recibido del objeto de cada compra.
+f) Comunicar formalmente a la alcaldía, cuando no se cumpla con las disposiciones de liquidación de anticipos o cuando se presente alguna inconsistencia en los documentos de respaldo.
+g) Cumplir, hacer cumplir y comunicar permanentemente sobre cambios en la normativa que regula el funcionamiento de los Fondos Fijos de Caja Chica
+h) Generar el reintegro del fondo para aprovisionar de recurso económico del Fondo de Caja Chica en los tres días hábiles anteriores al cierre de cada mes.
+i) Registrar las compras realizadas con el fondo de caja chica en el Sistema Digital Unificado (SICOP), dejando constancia de la totalidad de la documentación generada en relación con la misma con el propósito de facilitar que dicha actuación pueda ser conocida por cualquier interesado.

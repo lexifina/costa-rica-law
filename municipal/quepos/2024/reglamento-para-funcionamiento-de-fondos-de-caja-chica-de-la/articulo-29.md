@@ -1,0 +1,1 @@
+Artículo 29.-La liquidación del vale queda formalizada cuando el responsable de la caja chica revisa todos los documentos y estampa su sello en la liquidación Comprobante de Pago de caja Chica y será responsabilidad de la jefatura que firma el vale, constatar el ingreso de los bienes y servicios adquiridos.

@@ -1,0 +1,1 @@
+Artículo 37.-De los informes de arqueos. El Tesorero Municipal, entregará mensualmente a la Gestión Financiera un informe contemplando arqueos mensuales. Los documentos de respaldo deberán de mantenerse en la Tesorería y estos estarán a disposición de la Auditoría y de otras instancias de control para posibles revisiones.

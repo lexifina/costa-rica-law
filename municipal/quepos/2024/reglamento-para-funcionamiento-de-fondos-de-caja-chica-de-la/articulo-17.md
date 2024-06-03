@@ -1,0 +1,1 @@
+Artículo 17.-El vale de caja chica debe de emitirse en original y copia y en el formulario debidamente pre numerado en forma consecutiva, que será suministrado a los funcionarios de las dependencias municipales, por el Departamento de Tesorería de la Municipalidad.

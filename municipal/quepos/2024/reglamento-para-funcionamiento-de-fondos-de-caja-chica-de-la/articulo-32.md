@@ -1,0 +1,1 @@
+Artículo 32.-Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el responsable de la Caja Chica, quién además deberá en forma inmediata o hasta el día natural hábil siguiente al que se encontró el faltante y depositar el sobrante en la cuenta de la Municipalidad Asignada o reintegrar el faltante, según corresponda.

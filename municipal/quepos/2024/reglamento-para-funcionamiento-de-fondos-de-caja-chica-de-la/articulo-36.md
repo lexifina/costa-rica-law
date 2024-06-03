@@ -1,0 +1,1 @@
+Artículo 36.-Cuando se presenten faltantes o sobrantes de caja, como resultado del arqueo, el encargado deberá responder con su propio peculio con el caso de los faltantes y depositando al Municipio en el caso de sobrantes de dinero.

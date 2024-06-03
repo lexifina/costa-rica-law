@@ -1,0 +1,1 @@
+Artículo 24.-Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro inmediato del dinero entregado para la compra. Para tal efecto, deberá ese funcionario aportar una justificación escrita, avalada con la firma de la jefatura superior inmediata.
