@@ -1,2 +1,0 @@
-Artículo 35. Garantía de funcionamiento y fabricación
-En caso de que por así disponerlo el contrato deba rendir y mantener una garantía de funcionamiento o fabricación de los bienes o servicios contratados, la oficina responsable de la ejecución del contrato será la encargada de dar seguimiento oportuno al cumplimiento de la garantía por parte del contratista.

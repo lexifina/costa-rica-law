@@ -1,6 +1,0 @@
-Capítulo VIII
-Recursos
-Artículo 55. Recursos contra el cartel y el acto de adjudicación
-Contra el cartel y los actos de adjudicación que dicten los órganos competentes de BCR Corredora de Seguros en el trámite de los procedimientos de contratación administrativa cabrán los recursos de objeción al cartel, revocatoria o apelación, según corresponda, conforme a las normas y procedimientos que contienen la Ley de Contratación Administrativa y su Reglamento, así como de las resoluciones que sobre la materia emita la Contraloría General de la República.
-Contra el cartel de las licitaciones públicas se podrá interponer recurso de objeción ante la Contraloría General de la República; en las licitaciones abreviadas dicho recurso deberá interponerse ante la Oficina de Contratación Administrativa del BCR, que a su vez lo remitirá a BCR Corredora de Seguros para emitir la resolución correspondiente.
-El acto de adjudicación podrá recurrirse ante la Contraloría General de la República o ante el propio órgano de BCR Corredora de Seguros que lo dictó, según sea su monto. En ambos casos se aplicarán las normas, plazos y procedimientos que contienen la Ley de Contratación Administrativa y su Reglamento, así como de las resoluciones que sobre la materia emita la Contraloría General de la República.

@@ -1,2 +1,0 @@
-Artículo 60. Registro de sanciones a particulares
-BCR Corredora de Seguros elaborará y mantendrá actualizado un Registro de Sanciones a Particulares, a fin que permita a BCR Corredora de Seguros acceder a la información evitar la contratación con proveedores inhabilitados

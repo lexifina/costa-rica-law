@@ -1,2 +1,0 @@
-Artículo 38. Prórroga del plazo del contrato
-El órgano o servidor que emitió el acto de adjudicación, o los rangos superiores de atribuciones, podrán autorizar prórrogas al plazo de ejecución del contrato a solicitud del contratista, en tanto existan demoras ocasionadas por la propia Administración o por causas ajenas al contratista, siguiendo al efecto las disposiciones establecidas en el artículo 198 del Reglamento a la Ley de Contratación Administrativa.

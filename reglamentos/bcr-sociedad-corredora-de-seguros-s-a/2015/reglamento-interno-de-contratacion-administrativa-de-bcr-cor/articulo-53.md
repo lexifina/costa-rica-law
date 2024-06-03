@@ -1,2 +1,0 @@
-Artículo 53. Finiquito de contratos
-En los contratos de obra y aquellos otros que así lo considere necesario, la oficina encargada de la ejecución contractual elaborará el finiquito correspondiente a que se refiere el artículo 152 del Reglamento a la Ley de Contratación Administrativa, el cual deberá suscribirlo el Gerente General de BCR Corredora de Seguros, con capacidad legal para ello y lo incorporará al expediente administrativo que esa misma oficina deberá levantar durante la etapa de ejecución del contrato.
