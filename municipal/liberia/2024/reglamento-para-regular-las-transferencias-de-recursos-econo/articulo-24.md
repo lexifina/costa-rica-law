@@ -1,0 +1,1 @@
+Artículo 24.-Acuerdo de revocación: El Concejo Municipal deberá dictar el acuerdo en el cual razonará que declara el efectivo incumplimiento del sujeto privado, en relación con los preceptos establecidos en el párrafo anterior, y le elimina la acreditación otorgada.

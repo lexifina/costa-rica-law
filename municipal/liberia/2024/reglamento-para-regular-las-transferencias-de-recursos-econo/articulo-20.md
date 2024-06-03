@@ -1,0 +1,1 @@
+Artículo 20.-Denuncias. Si por medio del procedimiento administrativo realizado se determina la existencia de conductas que eventualmente puedan ser consideradas de tipo delictivo, la Alcaldía Municipal procederá a denunciar judicialmente los hechos ante el Ministerio Público y ante los entes externos si así correspondiera.

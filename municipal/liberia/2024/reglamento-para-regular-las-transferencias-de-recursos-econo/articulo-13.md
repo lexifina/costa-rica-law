@@ -1,0 +1,1 @@
+Artículo 13.-Giro de los recursos. La Municipalidad a través de la Alcaldía Municipal realizará la transferencia de los recursos a la cuenta bancaria designada por el sujeto privado, conforme a lo pactado en el Convenio.

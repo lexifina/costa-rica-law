@@ -1,0 +1,1 @@
+Artículo 9°-Plazo dictamen de la Comisión de Acreditación y Seguimiento: La Comisión de Acreditación y Seguimiento deberá remitir el dictamen de recomendación al Concejo Municipal en un plazo de treinta días hábiles, contados a partir de la presentación completa de la documentación requerida.

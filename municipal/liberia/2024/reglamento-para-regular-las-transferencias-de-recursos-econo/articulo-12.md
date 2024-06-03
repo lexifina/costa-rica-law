@@ -1,0 +1,3 @@
+CAPÍTULO VI.
+Convenio para la Transferencia de Recursos
+Artículo 12.-Suscripción de Convenio. La Alcaldía Municipal posterior al recibo del acuerdo del Concejo Municipal en que acredita al sujeto privado procederá a suscribir el convenio entre la Municipalidad y el sujeto privado, mediante el cual se constatará el compromiso y obligaciones específicas de las partes, el plazo, motivo u objeto del mismo y demás aspectos legales que deban ser incluidos de conformidad con lo que establece la normativa legal vigente para ese tipo de documentos y lo remitirá ante el concejo municipal para su aprobación y autorización.

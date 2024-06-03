@@ -1,0 +1,1 @@
+Artículo 3°-De los recursos económicos a transferir. Los recursos económicos que se transfieran serán aquellos que se encuentren autorizados específicamente para cada organización dentro del Presupuesto Municipal.

@@ -1,0 +1,1 @@
+Artículo 21.-De la reanudación de pagos. De comprobarse por medio del procedimiento administrativo disciplinario que no existieron irregularidades o deficiencias financieras el Concejo Municipal, ordenará la reanudación de los pagos, así como el reintegro de las sumas retenidas.

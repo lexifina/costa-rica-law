@@ -1,0 +1,1 @@
+Artículo 27.-Finiquito del convenio. Una vez aprobado el informe de liquidación la Comisión de Acreditación y Seguimiento procederá a remitir el expediente administrativo al Concejo Municipal, a fin de que se proceda a otorgar el finiquito del convenio suscrito entre las partes.
