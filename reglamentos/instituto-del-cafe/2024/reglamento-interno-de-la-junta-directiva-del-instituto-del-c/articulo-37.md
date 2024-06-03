@@ -1,0 +1,1 @@
+Artículo 37.-De la firmeza de los acuerdos: Los acuerdos tomados por la Junta Directiva quedarán firmes al aprobarse el acta definitiva respectiva. En casos especiales, la Junta por votación de las dos terceras partes de la totalidad de los miembros del órgano podrá declarar firmes sus acuerdos, dejando constancia expresa de ello.

@@ -1,0 +1,2 @@
+Artículo 14.-Sesiones extraordinarias: Las sesiones extraordinarias deberán celebrarse el día y a la hora que indique la convocatoria con un mínimo de 24 horas de antelación, salvo casos de urgencia.
+En estas sesiones se conocerá exclusivamente lo indicado en la convocatoria. Se celebrará válidamente la sesión de Junta Directiva sin cumplir todos los requisitos referentes a la convocatoria o al orden del día cuando estén presentes de manera presencial o virtual todos sus miembros y así lo acuerden por unanimidad.

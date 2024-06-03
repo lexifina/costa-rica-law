@@ -1,0 +1,1 @@
+Artículo 49.-De la comprobación de asistencia para pago de dieta: Independientemente de que la sesión se realice en modalidad presencial o virtual, el pago de la dieta se ejecutará contra revisión de las actas y el registro de asistencia de los Directivos.

@@ -1,0 +1,1 @@
+Artículo 18.-Del quorum: El quórum para las sesiones será de cinco miembros propietarios, mayoría absoluta, según la Ley General de la Administración Pública. Ese número de miembros deberá encontrarse presente en el salón de sesiones ocupando sus respectivos asientos o enlazados de manera virtual, al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

@@ -1,0 +1,1 @@
+Artículo 46.-De la presentación de resultados: Las comisiones de trabajo elaborarán informes del trabajo ejecutado y será presentado en sesión de Junta Directiva para conocimiento de todos los miembros Directivos.

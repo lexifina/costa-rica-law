@@ -1,0 +1,2 @@
+Artículo 34.-Cierre del libro de actas: Una vez transcritas las actas en el respectivo libro, y previo a su cierre, los espacios en blanco serán sellados indicando que es un espacio que no corre. Posteriormente, y previo a su cierre por parte de la Secretaria de Actas, ésta hará una razón de cierre administrativo donde hará constar los folios que no corren, espacios en blanco, o cualquier otra observación.
+Una vez empastado, el libro se remitirá a la Auditoría Interna para la correspondiente razón de cierre y la posterior autorización del nuevo libro de actas.

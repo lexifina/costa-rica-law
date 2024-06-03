@@ -1,0 +1,2 @@
+Artículo 33.-De los temas confidenciales: El acta que contenga las deliberaciones y acuerdos de la Junta Directiva que hayan sido declarados confidenciales en virtud de la existencia de una norma legal o constitucional que así lo establezca, deben grabarse y transcribirse en el libro de actas de la Junta Directiva.
+En caso de un tercero interesado solicite un acta que incluya un tema de esa índole, se deberá brindar la misma, omitiendo los datos confidenciales consignados en esta.

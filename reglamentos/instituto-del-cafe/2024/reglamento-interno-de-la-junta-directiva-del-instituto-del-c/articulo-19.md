@@ -1,0 +1,1 @@
+Artículo 19.-De la presentación de mociones de orden: En cualquier momento del debate, los miembros de la Junta Directiva podrán presentar mociones de orden en relación con el asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por la Junta Directiva.

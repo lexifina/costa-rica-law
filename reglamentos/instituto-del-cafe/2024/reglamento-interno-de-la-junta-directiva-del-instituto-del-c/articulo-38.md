@@ -1,0 +1,1 @@
+Artículo 38.-Recurso de revocatoria: Contra los acuerdos tomados en firme por la Junta Directiva cabrá recurso de revocatoria y se seguirá lo dictado en el capítulo V de la Ley General de Administración Pública, Ley N° 6227.

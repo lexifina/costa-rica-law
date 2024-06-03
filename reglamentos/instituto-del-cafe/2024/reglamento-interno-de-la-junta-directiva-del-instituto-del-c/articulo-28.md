@@ -1,0 +1,1 @@
+Artículo 28.-De los asuntos relacionados a FONASCAFE: El Orden del Día, cuando así sea necesario, contemplará una sección específica para los temas relacionados con FONASCAFÉ, incluyendo correspondencia girada por este ente a Icafé, aspectos financieros y cualquier otro específico de interés de Instituto.
