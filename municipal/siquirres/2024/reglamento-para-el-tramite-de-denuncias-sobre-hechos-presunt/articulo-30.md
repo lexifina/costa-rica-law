@@ -1,0 +1,1 @@
+Artículo 30.-Vigencia. Este Reglamento rige a partir de su aprobación por el Concejo Municipal y su publicación en el Diario Oficial La Gaceta, deroga cualquier otro Reglamento o lineamiento que se haya emitido en materia de denuncias sobre Hechos Presuntamente Irregulares.
