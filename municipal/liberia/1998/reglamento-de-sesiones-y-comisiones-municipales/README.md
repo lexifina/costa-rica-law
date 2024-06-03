@@ -19,3 +19,4 @@ Reglamento de Sesiones y Comisiones Municipales
 | 4 | 2002-06-17 | Ley 8 |
 | 5 | 2011-01-31 | Reglamento municipal 5 (2011-01-31) |
 | 6 | 2022-11-23 | Reglamento municipal 0 (2022-11-23) |
+| 7 | 2024-06-03 | Reglamento municipal 8 (2024-06-03) |
