@@ -15,3 +15,4 @@ Modificación de los derechos arancelarios a la importación del arroz en granza
 | --- | --- | --- |
 | 1 | 2022-08-12 | la propia norma |
 | 2 | 2024-04-02 | SINALEVI (sin norma nombrada) |
+| 3 | 2024-06-04 | SINALEVI (sin norma nombrada) |
