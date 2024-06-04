@@ -1,5 +1,4 @@
-Artículo 4°. Definiciones y abreviaturas.
-Para los propósitos de este Código, las expresiones y las palabras empleadas tienen el sentido y los alcances que se mencionan en el Acuerdo SUGEF 16-16:
-[imagen]
-[imagen]
-[imagen]
+Artículo 4°.-Definiciones y abreviaturas. Para los propósitos de este Código, las expresiones y las palabras empleadas tienen el sentido y los alcances que se mencionan en el Acuerdo CONASSIF 4-16:
+Puesto Clave: Posición dentro del Conglomerado Financiero que resulta de importancia crítica en la definición y el desarrollo de la estrategia de negocios o de las actividades sustantivas.
+Tratándose del Conglomerado Financiero Banco Popular y de Desarrollo Comunal, está integrada por los puestos correspondientes a los directores generales, al auditor general, subauditor general, auditores de las sociedades, oficiales de cumplimiento titulares y adjuntos del Conglomerado y el director corporativo de Riesgo, los cuales deben cumplir con los requisitos individuales que se encuentran establecidos en la normativa específica de cada entidad supervisada que integre el Grupo o Conglomerado, y complementariamente debe valorarse la calificación profesional y solvencia moral cuando se efectúe su nombramiento.
+(Así reformado mediante sesión N° 6111 del 4 de junio del 2024)
