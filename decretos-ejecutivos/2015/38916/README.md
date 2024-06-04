@@ -18,3 +18,4 @@ Procedimientos de las Directrices Generales de Política Presupuestaria, Salaria
 | 3 | 2019-03-08 | Decreto Ejecutivo 41618 (2019-03-08) |
 | 4 | 2020-03-11 | Decreto Ejecutivo 42259 (2020-03-11) |
 | 5 | 2022-03-29 | Decreto Ejecutivo 43465 (2022-03-29) |
+| 6 | 2024-06-04 | Decreto Ejecutivo 44536 (2024-06-04) |
