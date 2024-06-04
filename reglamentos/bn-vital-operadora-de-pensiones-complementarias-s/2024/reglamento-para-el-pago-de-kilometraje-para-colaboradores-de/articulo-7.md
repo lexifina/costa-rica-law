@@ -1,0 +1,4 @@
+Artículo 7º-Procedimiento revisión de requisitos.
+El procedimiento para la revisión de los requisitos presentados por los colaboradores lo llevará a cabo el departamento de Gestión Administrativa.
+Si durante la revisión de los requisitos el departamento de Gestión Administrativa aprecia que existe información incompleta o un incumplimiento en la documentación aportada, prevendrá al colaborador para que se realice los ajustes pertinentes.
+El colaborador está obligado a reportar a la Operadora el cambio cuando haya dejado de ser dueño registral o copropietario del vehículo, para lo cual deberá aportar toda la información y requisitos referidos al nuevo vehículo en caso de que corresponda. Hasta que el colaborador aporte los requisitos del nuevo vehículo, podrá utilizarlo en el ejercicio de sus funciones y así solicitar el respectivo reintegro por concepto de kilometraje.

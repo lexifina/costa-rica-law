@@ -1,0 +1,2 @@
+Artículo 17.-Verificaciones.
+La Operadora queda facultada para realizar todas las gestiones que estime pertinentes para verificar el cumplimiento de las obligaciones derivadas de este reglamento por parte del colaborador durante las giras de trabajo, tales como pero no limitadas a: el uso de video de las oficinas del Banco Nacional de Costa Rica visitadas por el funcionario durante la gira, la inspección del vehículo en general, la solicitud de informes a personal de la Operadora que en razón de sus funciones haya atestiguado la gira total o parcialmente y cualquier otra.

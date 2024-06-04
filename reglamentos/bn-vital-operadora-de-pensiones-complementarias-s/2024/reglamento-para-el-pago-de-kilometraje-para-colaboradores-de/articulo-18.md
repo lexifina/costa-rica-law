@@ -1,0 +1,2 @@
+Artículo 18.-Vigencia del reconocimiento del kilometraje.
+El reconocimiento del pago de kilometraje finalizará en caso del incumplimiento de los requisitos establecidos en el artículo 5 anterior, así como también se entenderá por finalizado en caso de renuncia, despido o jubilación del colaborador, así como por motivación propia del colaborador, quien deberá comunicarlo formalmente a su Jefatura Inmediata y al Departamento de Gestión Administrativa.
