@@ -13,3 +13,4 @@ Información necesaria en sentencias penales que impongan penas NO privativas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-26 | la propia norma |
+| 2 | 2024-06-05 | Circular 116 (2024-06-05) |
