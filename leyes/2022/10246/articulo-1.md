@@ -1,4 +1,5 @@
 N° 10246
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 015642 del 5 de junio de 2024, se declaró sin lugar la acción, siempre y cuando se interprete que la reforma legal introducida mediante la Ley N° 10246 de 5 de mayo de 2022, denominada "Eliminación de Aporte de la Refinadora Costarricense de Petróleo S. A. (RECOPE) al Fondo de Ahorro, Préstamos, Vivienda, Recreación y Garantía", no afecte la convención colectiva que estaba vigente a la fecha de entrada en vigor de la ley impugnada)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
