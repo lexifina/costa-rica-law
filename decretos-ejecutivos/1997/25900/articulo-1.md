@@ -80,7 +80,7 @@ Preescolar Sonrisas | Heredia | Heredia
 Centro Educativo Bilingüe Mundo Mágico | Alajuela | Póas
 Instituto de Formación Infantil Arco Iris | San José | Desamparados
 Zinder Ecologico Abejitas | San José | Mora
-Centro infantil la Divina Providencia | San José | Goicoechea
+(Eliminado por el artículo 1° de del decreto ejecutivo N° 44633 del 5 de junio del 2024) | San José (Eliminado por el artículo 1° de del decreto ejecutivo N° 44633 del 5 de junio del 2024) | Goicoechea (Eliminado por el artículo 1° de del decreto ejecutivo N° 44633 del 5 de junio del 2024)
 Zinder Garden el Querubín | San José | Desamparados
 Jardín Infantil la Casita del Colibrí | San José | San José
 Centro Educativo Católico Santa Maria | San José | San José
