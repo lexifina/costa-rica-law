@@ -1,0 +1,1 @@
+Artículo 27.-Prórrogas al plazo de ejecución del contrato. La prórroga debe ser solicitada durante la vigencia del contrato, sin embargo, a pesar de haberse interpuesto la solicitud en tiempo, de vencerse la vigencia del contrato, la Administración no podrá otorgar la prórroga respectiva.

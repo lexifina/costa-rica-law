@@ -1,0 +1,1 @@
+Artículo 4º-Dirección y supervisión. Todas las contrataciones estarán bajo la dirección y supervisión de la respectiva Unidad Solicitante, quienes estarán a cargo de dirigir y supervisar las compras que impulsen en razón de su competencia, a través del sistema digital unificado.

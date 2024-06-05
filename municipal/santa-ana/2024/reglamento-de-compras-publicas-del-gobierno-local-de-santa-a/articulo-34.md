@@ -1,0 +1,1 @@
+Artículo 34.-Derogatorias. El presente reglamento, deroga Reglamento de Proveeduría Municipal y cualquier disposición normativa emanada por el Gobierno Local de Santa Ana, de igual o inferior rango, que se le oponga.

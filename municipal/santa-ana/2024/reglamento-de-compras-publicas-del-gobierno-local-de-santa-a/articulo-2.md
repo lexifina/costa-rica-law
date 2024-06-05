@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento regula los trámites de compra de bienes, servicios y obra desarrollados por el Gobierno Local de Santa Ana, procederá a definir las competencias del Concejo Municipal, Alcaldía, la Proveeduría Institucional y demás Departamentos y Procesos Administrativos, esta normativa es de aplicación obligatoria.
