@@ -14,3 +14,4 @@ Reglamento sobre requisitos técnicos y administrativos para optar por el financ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-16 | la propia norma |
+| 2 | 2024-06-05 | Decreto Ejecutivo 44522 (2024-06-05) |

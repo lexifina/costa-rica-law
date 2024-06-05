@@ -84,6 +84,7 @@ articulo-83.md
 articulo-84.md
 articulo-85.md
 articulo-1-transitorio.md
+articulo-2-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md

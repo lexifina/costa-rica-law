@@ -1,4 +1,4 @@
-Artículo 29. Requisitos específicos. Para acceder a cualesquiera de los componentes de inversión indicados en el Artículo 14 del presente reglamento, son los siguientes:
+Artículo 29.-Requisitos específicos. Para acceder a cualesquiera de los componentes de inversión indicados en el Artículo 14 del presente reglamento, son los siguientes:
 1. Pre inversión
 1.1. Listado de los servicios de pre inversión que se requiere sufragar, según el artículo 10 del presente reglamento.
 1 .2. El documento adicionalmente debe indicar:
@@ -22,14 +22,17 @@ Artículo 29. Requisitos específicos. Para acceder a cualesquiera de los compon
 2.1.2. Que los bienes a adquirir son nuevos, con garantía y se adquirirán dentro del territorio nacional.
 2.1.3. Los bienes deben ser solicitados de acuerdo a la necesidad de la actividad productiva.
 2.1.4. Firma del presidente de la organización comunal.
-2.2. En caso de bienes especializados tales como aires acondicionados, equipo médico, cámaras de seguridad, maquinaria, equipo pesado, instrumentos musicales, entre otros, se deben de anexar la recomendación técnica firmada por un profesional o técnico en la materia, según corresponda.
-2.3. Para efectos del estudio de mercado al menos dos facturas proformas de proveedores, en estricto apego al detalle de la lista de maquinaria, equipo y mobiliario, con lo indicado seguidamente:
+2.2 En caso de bienes especializados tales como aires acondicionados, vehículos, equipo médico, cámaras de seguridad, instrumentos musicales, maquinaria tal como: equipo pesado, equipo de manufactura, equipo de laboratorio y equipo de cómputo se deben anexar las fichas técnicas del producto a comprar, firmado por alguna de las siguientes partes: vendedor, administrador, profesional responsable o representante legal de la empresa.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
+2.3 Diferentes facturas proformas de proveedores, según lo requerido en la lista de maquinaria, equipo, mobiliario y vehículos anotada en el formulario, con lo indicado seguidamente:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
 2.3.1. En formato digital
 2.3.2. Fecha de emisión.
 2.3.3. Número de cédula física o jurídica.
-. 2.3.4. Contacto de la empresa, nombre y firma de un responsable.
+2.3.4. Contacto de la empresa, nombre y firma de un responsable.
 2.3.5. A nombre de la organización comunal.
-2.3.6. Características y cantidades estrictamente iguales al detalle de la lista de la maquinaria, equipo y mobiliario.
+2.3.6. Características: Marca y Modelo o en caso de ausencia de esta información, ficha técnica o bien, documento simple donde bastará con indicar la descripción de las medidas y el material correspondiente. En cuanto a las cantidades igual a la lista de maquinaria, equipo, mobiliario y vehículos que se aporta en el formulario.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
 2.3.7. Garantía de todos los bienes a adquirir.
 2.3.8. El valor unitario y total con el monto por impuesto de valor agregado. Esta información es necesaria para establecer una relación de costos de mercado.
 2.4. En el caso de ser un proveedor único de bienes, deberá apegarse a lo indicado en la Ley General de Contratación Pública.

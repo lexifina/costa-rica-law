@@ -1,4 +1,4 @@
-Artículo 23. Requisitos específicos. Para acceder a cuales quiera de los componentes de inversión_ indicados en el Artículo 14 de la presente normativa, se deberá de cumplir con los siguientes requisitos, de acuerdo al tipo de inversión que va a presentar:
+Artículo 23. Requisitos específicos. Artículo 23.-Requisitos específicos. Para acceder a cuáles quiera de los componentes de inversión indicados en el Artículo 14 de la presente normativa, se deberá de cumplir con los siguientes requisitos, de acuerdo al tipo de inversión que va a presentar:
 I. Pre inversión y Post inversión:
 1.1. Pre inversión
 1.1.1. Listado de los servicios de preinversión que se requiere sufragar, de acuerdo a lo indicado en el artículo 10 del presente reglamento.
@@ -13,7 +13,8 @@ I. Pre inversión y Post inversión:
 1.1.3.3. Número de cédula fisica o jurídica del oferente.
 1.1.3.4. Contacto de la empresa, nombre y firma de un responsable.
 1.1.3.5. A nombre de la organización comunal.
-1.1.3.6. Características del servicio estrictamente iguales al detalle de lo requerido en el listado de servicios o requerimientos.
+1.1.3.6. Características del servicio conforme lo anotado en el formulario.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
 1.1.3.7. El valor unitario y total, con el monto por impuesto de valor agregado, de cada uno de los servicios ofertados.
 1. 1 .3.8. La Administración verificará la vigencia de la cédula física o jurídica y otros detalles de la personería física o jurídica del oferente.
 1. 1 .4. Con las facturas proformas presentadas, la administración deberá verificar que los proveedores se encuentren inscritos y al día ante la DGTD con actividad comercial inscrita relacionada con el fin del proyecto y ante la CCSS como patrono y al día con sus obligaciones. No se podrá elegir un oferente para realizar la compra de lo solicitado, que no cumpla con las condiciones anteriormente señaladas.
@@ -29,14 +30,17 @@ I. Pre inversión y Post inversión:
 2.1.2. Que los bienes a adquirir son nuevos, con garantía y se adquirirán dentro del territorio nacional.
 2.1.3. Los bienes deben ser solicitados en relación a las necesidades de la actividad productiva.
 2.1.4. Firma del presidente de la organización comunal.
-2.2. En caso de bienes especializados tales como vehículos, aires acondicionados, equipo médico, cámaras de seguridad, maquinaria, equipo pesado, instrumentos musicales, se debe de anexar la ficha técnica firmada por un profesional o técnico en la materia o el vendedor del establecimiento comercial, según corresponda.
-2.3. Si su proyecto está en los estratos D y E deberá presentar una factura proforma, en caso de que sus proyectos estén en los estratos A, B y C de acuerdo al artículo 4 de la presente normativa, deberá presentar tres diferentes facturas proformas de proveedores. Para todos los estratos dichas facturas deben estar en estricto apego al detalle de la lista de maquinaria, equipo y mobiliario, con lo indicado seguidamente:
+2.2 En caso de bienes especializados tales como aires acondicionados, vehículos, equipo médico, cámaras de seguridad, instrumentos musicales, maquinaria tal como: equipo pesado, equipo de manufactura, equipo de laboratorio y equipo de cómputo se deben anexar las fichas técnicas del producto a comprar, firmado por alguna de las siguientes partes: vendedor, administrador, profesional responsable o representante legal de la empresa.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
+2.3 Diferentes facturas proformas de proveedores, según lo requerido en la lista de maquinaria, equipo, mobiliario y vehículos anotada en el formulario, con lo indicado seguidamente:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
 2.3.1. Factura en formato digital
 2.3.2. Fecha de emisión.
 2.3.3. Número de cédula física o jurídica.
 2.3.4. Contacto de la empresa, nombre y firma de un responsable (vendedor o el administrador).
 2.3.5. A nombre de la organización comunal.
-2.3.6. Características y cantidades de la maquinaria, equipo, mobiliario o vehículo a adquirir.
+2.3.6. Características: Marca y Modelo o en caso de ausencia de esta información, ficha técnica o bien, documento simple donde bastará con indicar la descripción de las medidas y el material correspondiente. En cuanto a las cantidades igual a la lista de maquinaria, equipo, mobiliario y vehículos que se aporta en el formulario.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44522 del 5 de junio del 2024)
 2.3.7. Garantía de todos los bienes a adquirir (según la casa comercial y según el artículo)
 2.3.8. El valor unitario y total con el monto por impuesto de valor agregado.
 2.3.9. La Administración verificará la vigencia de la cédula jurídica y otros detalles de la personería jurídica del oferente.
