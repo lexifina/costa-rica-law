@@ -1,0 +1,1 @@
+Artículo 26.-Prestadores que dejen de poseer el título habilitante. En el caso de prestadores que por algún motivo pierden el título habilitante, se calculará el superávit o déficit con corte a la fecha en que dejó de poseer el título habilitante, para efectos de su devolución o el cobro respectivo.

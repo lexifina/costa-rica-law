@@ -1,0 +1,1 @@
+Artículo 4°-Fines. La finalidad del canon de regulación es dotar de recursos financieros a la Aresep para que se provea de los recursos humanos y materiales necesarios para el cumplimiento de su función y la satisfacción del interés y los objetivos públicos establecidos en el ordenamiento jurídico regulatorio.

@@ -1,0 +1,1 @@
+Artículo 10.-Aprobación de presupuesto. El resultado de la revisión del presupuesto será comunicado por parte de la CGR como máximo el 31 de diciembre del año previo a la vigencia del presupuesto, quedando establecido, para el periodo ordinario, el monto del canon de regulación por prestador de servicio público y por actividad regulada.

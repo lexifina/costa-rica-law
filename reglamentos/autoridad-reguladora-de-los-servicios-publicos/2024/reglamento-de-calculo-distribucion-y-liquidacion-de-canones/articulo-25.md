@@ -1,0 +1,1 @@
+Artículo 25.-Superávit o déficit acumulado por prestador. La Dirección de Finanzas deberá determinar el superávit o déficit acumulado por prestador que debe ser considerado en el cálculo del canon de regulación según lo establecido en el capítulo segundo de este reglamento.

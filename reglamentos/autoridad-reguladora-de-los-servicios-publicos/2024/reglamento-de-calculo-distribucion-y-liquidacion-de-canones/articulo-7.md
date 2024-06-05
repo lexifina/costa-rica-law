@@ -1,0 +1,1 @@
+Artículo 7°-Aprobación por la Junta Directiva. Es deber y atribución de la Junta Directiva aprobar el POI, el proyecto de cánones y el presupuesto de la Aresep, así como sus modificaciones y remitirlo para aprobación a la CGR.

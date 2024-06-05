@@ -1,0 +1,1 @@
+Artículo 5°-Período de inicio. A más tardar la segunda quincena de febrero de cada año, la DGEE, deberá presentar ante la Junta Directiva una propuesta de lineamientos generales que deberán ser considerados por la administración en la formulación del POI, el proyecto de cánones y el presupuesto para el siguiente periodo.
