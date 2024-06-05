@@ -139,7 +139,9 @@ PROCESO: Conjunto de actos decisorios que transforma con su accionar los insumos
 PRODUCTO: Resultado final que se obtiene al incorporar los insumos a los procesos y que, teóricamente, deben satisfacer la demanda en cantidad y calidad al máximo con el costo mínimo posible.
 PROGRAMA: Conjunto de actividades encaminadas a alcanzar determinados objetivos.
 PUESTO: Conjunto de deberes y responsabilidades asignados por una autoridad competente para que sean atendidos por un funcionario durante la totalidad o una parte de la jornada de trabajo. Son sinónimos: empleo, plaza y ocupación.
-RECALIFICACIÓN: Cambio de grupo o nivel clasificatorio de un puesto dentro de una misma clase, cuando hayan variado los atestados personales del servidor regular que lo ocupa y se cumpla el criterio de requisitos y clasificación respectivo y exista el presupuesto para el cambio. Esto según indicación establecida en el Manual de clasificación de puestos.
+Recalificación: Cambio de grupo o nivel clasificatorio de un puesto dentro de una misma clase, cuando hayan variado los atestados personales del servidor que lo ocupa y se cumpla el criterio de requisitos y clasificación respectivo y exista el presupuesto para el cambio. Esto según indicación establecida en el Manual de clasificación de puestos.
+En el caso del personal interino, su nombramiento en el puesto a recalificar debe superar un año. Recalificación que quedará sin efecto, en el momento en que pase a ocupar otro puesto.
+(Así reformada la definición anterior mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 RELACIONES DE TRABAJO: Relaciones que se efectúan entre personas motivadas por un encuadre laboral.
 REQUISITO ACADÉMICO: Se refiere al nivel de preparación académica exigido para el desempeño de un puesto.
 REQUISITO LEGAL: Se refiere a todas las certificaciones, las licencias, los títulos o los atestados que deben poseer los candidatos para ocupar un puesto cuyo desempeño, por su índole, resultaría ilegal sin los documentos específicos mencionados (por ejemplo: incorporaciones a colegios profesionales).
@@ -221,7 +223,7 @@ Los relacionados con el uso adecuado de diferentes productos de limpieza e imple
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Título de bachiller en Educación Media. O Conclusión de Enseñanza General Básica (9º año) y dos años de experiencia relacionada. O Certificación de conclusión de Estudios Primarios y cuatro años de experiencia relacionada.
 (*) SUBJEFE DE UJIERES
-(*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+(*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009. Posteriormente mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024, se elimina nuevamente la presente clase de puesto)
 (*) JEFE DE UJIERES
 (*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 SUPERVISOR DE TURNO-SEGURIDAD
@@ -681,48 +683,7 @@ Incorporación al colegio profesional correspondiente en el grado académico res
 Permiso de portación de armas.
 (**) (Así reformado el punto "Conocimientos y experiencia requerida, en sesión N°158 del 14 de marzo de 2017)
 (*)(Así reformada la categoría de puesto Subjefe de Seguridad anterior mediante acuerdo N° 32-11-12 tomado en sesión ordinaria N° 078-2011 del 13 de octubre del 2011)
-JEFE TÉCNICO
-Objetivo del trabajo: Coadyuvar al eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión orientadas a la coordinación de una unidad administrativa compuesta por funcionarios que realizan labores técnicas u operativas rutinarias de la Asamblea Legislativa.
-Ubicación:
-Los puestos de esta clase se ubican en los diferentes departamentos a cargo de una unidad administrativa menor y perteneciente a tales departamentos.
-Actividades generales:
-Planear, coordinar, distribuir, dirigir, controlar y supervisar los procesos en una unidad administrativa "menor", en tanto que pertenece organizacionalmente a un departamento.
-Participar con la dirección de departamento en la revisión y aprobación de informes, manuales e instructivos técnicos y documentos que se elaboren.
-Establecer normas y estándares de trabajo y motivar e incentivar al personal a su cargo en coordinación con la jefatura del departamento.
-Recomendar estrategias, metodologías o métodos y procedimientos que aumenten la productividad y calidad del trabajo.
-Colaborar en la innovación de métodos de trabajo y servicios del área que administra y presentar informes periódicos de su labor, así como elaborar reportes o documentos.
-Presentar informes periódicos de su labor y elaborar reportes o documentos de proyectos relacionados con el cargo.
-Colaborar con la innovación de métodos de trabajo y servicios del área que administra.
-Participar activamente en la ejecución de las actividades propias de la unidad a su cargo.
-Ejecutar otras tareas propias del cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Le corresponde dirigir, organizar y supervisar el trabajo de personal técnico, calificado y/o operativo, por lo que es responsable por el eficaz y eficiente cumplimiento de las actividades a ellos asignadas y por desarrollar y mantener niveles de motivación elevados en las personas que laboran en su unidad organizacional.
-Supervisión recibida: Trabaja con independencia, siguiendo la política del departamento al cual pertenece y, a su vez, de la Institución, en los aspectos aplicables a su proceso de actividad y según la legislación que define y regula las actividades del organismo. Su labor es evaluada mediante informes que presenta, los aportes creativos al trabajo que realiza, la eficiencia y eficacia obtenidas en el cumplimiento de los objetivos asignados al proceso o la actividad, evidenciada por su capacidad para dirigir y supervisar el personal bajo su responsabilidad, la comprobación de la calidad de los resultados obtenidos y el nivel de motivación personal.
-RESPONSABILIDAD
-Por actividades
-Es responsable por el proceso o la actividad encomendado, el cual debe ser ejercido mediante la búsqueda del consenso y la armonía entre todos los funcionarios a su cargo. Por ello, la planeación, la organización, la conducción, el control y la evaluación deben formar parte de una unión sistémica del proceso institucional.
-Por equipo, materiales y valores
-Es responsable por el adecuado empleo y mantenimiento del equipo y demás bienes asignados a un respectivo ámbito de acción, sea este de proceso o subproceso.
-Por relaciones de trabajo
-La actividad, debido a la naturaleza de sus funciones, origina la interrelación constante con sus superiores jerárquicos, funcionarios de otras instituciones, compañeros y usuarios del sistema, las cuales deben ser atendidas y tratadas con responsabilidad, tacto y discreción, procurando promover la misión institucional.
-CONDICIONES DE TRABAJO
-El desarrollo de las actividades asignadas a esta clase de puesto exigen el esfuerzo mental para resolver y atender las diversas situaciones que se originan de la toma de decisiones, o bien, de la normativa que regula la actividad, lo cual obliga a estar actualizando conocimientos y jurisprudencia propios de la actividad.
-Debe observar, en forma estricta, las condiciones de seguridad e higiene vigentes. Está expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás. Esta clase de puesto, debido a su naturaleza de funciones, exige que la jornada de trabajo sea sin límite dependiendo de las actividades institucionales.
-CONSECUENCIAS DEL ERROR
-Los errores que puedan cometerse podrían causar pérdidas, atrasos y confusiones que generarían implicaciones de tipo legal, administrativo y financiero, entre otras, con consecuencias para el desarrollo normal de los diferentes procesos y las actividades, y con ello la imagen institucional.
-CARACTERÍSTICAS PERSONALES
-Para el desempeño de los cargos ubicados en esta clase de puesto el ocupante requiere capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, excelente presentación personal, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio.
-CONOCIMIENTOS BÁSICOS
-Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
-Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo de actividad y con procesos y procedimientos institucionales.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Título de bachiller en Educación Media.
-Diplomado o tercer año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
-Experiencia mínima de tres años en labores relacionadas con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión personal.
-O
-Título de bachiller en Educación Media.
-Primer año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
-Experiencia mínima de siete años en labores relacionadas con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de personal.
+JEFE TÉCNICO (Eliminada esta clase de puesto mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 (*) SUBJEFE TÉCNICO DE UJIERES
 Objetivo del trabajo: Comprometerse junto con la Jefatura de la unidad administrativa encargada del aseo y la limpieza de las diferentes oficinas de la Institución, de la distribución de correspondencia y del apoyo logístico requerido por los Diputados en las sesiones de plenario seguridad (Ujieres), mediante la ejecución de labores de organización, asignación, control y seguimiento del trabajo que realiza el personal de esa Unidad.
 Ubicación: Sección de Ujieres del Departamento de Servicios Generales.
@@ -974,102 +935,9 @@ Incorporación al colegio profesional correspondiente en el grado académico res
 (Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 (*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 MÉDICO G2
-Objetivo del trabajo: Coadyuvar en la prevención y el mantenimiento de la salud de los funcionarios activos y pensionados de la Asamblea Legislativa mediante el diagnóstico, la asistencia, la prescripción y la administración de tratamiento médico en diferentes especialidades.
-Ubicación: Departamento de Servicios de Salud.
-Actividades generales:
-Atender consulta médica a los usuarios de los servicios de salud en el campo de su especialidad.
-Efectuar exámenes físicos, realizar diagnóstico, prescribir los medicamentos y administrar otras formas de tratamientos. Llevar el expediente clínico de los usuarios de los servicios.
-Solicitar e interpretar exámenes de laboratorio, radiografías y otros exámenes de diagnóstico. Atender consultas clínicas de cirugía menor cuando se amerite.
-Colaborar con el equipo de trabajo en el diseño y desarrollo de las investigaciones que se programan en el Departamento.
-Dictar charlas, cursillos o conferencias sobre temas de prevención de enfermedades y nutrición. Asistir a reuniones, seminarios y otras actividades.
-Realizar las tareas administrativas que se derivan de su función.
-Ejecutar otras labores propias de su especialidad.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: En ausencia del médico jefe, le puede corresponder ejercer supervisión sobre el personal, en lo que se refiere a la aplicación de las técnicas propias relacionadas con la atención médica y de salud, por lo que debe girar instrucciones específicas para la atención de los usuarios de los servicios.
-Supervisión recibida: Se dispone de algunos precedentes y lineamientos para la realización del trabajo, pero su ejecución depende de la iniciativa y creatividad propias. La supervisión se ejerce con base en los resultados obtenidos, los informes que se presentan y la apreciación de la calidad de los resultados obtenidos.
-RESPONSABILIDAD
-Por actividades
-La naturaleza del trabajo exige la aplicación de conocimientos de medicina humana en una especialidad, para atender y resolver adecuadamente problemas y situaciones variadas, propias del área de su competencia en las cuales, generalmente, está involucrada la salud y el bienestar físico de las personas.
-Por equipo y materiales
-Es responsable del correcto uso del equipo, el material, el instrumental y los medicamentos que se le asignan para el desempeño de su trabajo.
-Por relaciones de trabajo
-Debe mantener relaciones constantes con superiores, compañeros, pensionados y otros usuarios del sistema, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
-CONDICIONES DE TRABAJO
-Se requiere esfuerzo mental para realizar el desempeño de las diferentes actividades, así como poseer la habilidad para desarrollar un trabajo rutinario, con procedimientos permanentes y uniformes; sin embargo, su ejecución debe enfrentarse a diversas situaciones no usuales por causa de accidentes o enfermedades de los funcionarios, que le exigen la decisión inmediata y oportuna de las situaciones que se le presenten.
-Riesgos por enfermedades profesionales: se expone constantemente a enfermedades infecto-contagiosas y eventualmente puede padecer estrés laboral.
-Jornada: Su labor debe realizarla bajo presión y de acuerdo con el horario establecido por la Institución; ocasionalmente le corresponderá laborar fuera de la jornada ordinaria según las necesidades institucionales, así como sábados, domingos y días feriados.
-CONSECUENCIA DEL ERROR
-Los errores cometidos pueden causar pérdidas, daños y atrasos de consideración y una mala praxis pondría en peligro la salud y la integridad física de las personas, por lo que las actividades deben ser realizadas con sumo profesionalismo, cuidado y precisión.
-CARACTERÍSTICAS PERSONALES
-Capacidad de observación y relación de síntomas y signos, capacidad analítica y de organización, preparación en el campo de la medicina, capacidad para trabajar bajo presión y para enfrentarse a situaciones traumáticas e imprevistas, discreción, buenas relaciones humanas, disposición para capacitar y educar a los funcionarios y usuarios de los servicios, y capacidad para trabajar en equipo.
-Cargos que lo conforman
-En esta clase se ubican puestos cuyas funciones corresponden a consulta médica en alguna especialidad.
-CONOCIMIENTOS BÁSICOS
-Paquetes computacionales.
-Actualización en su especialidad.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Médico especialista.
-Dos años de experiencia en la rama de medicina.
-Requisito legal:
-Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
+(Derogada esta clase de puesto mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 (*)MÉDICO G3
-Naturaleza y objetivo del trabajo
-Dirección, coordinación, supervisión y ejecución de labores técnicas, científicas y administrativas del Departamento de Servicios de Salud de la Asamblea Legislativa. Coadyuvar en la prevención y mantenimiento de la salud de los funcionarios activos y pensionados de la Asamblea Legislativa mediante el diagnóstico, asistencia, prescripción y administración de tratamientos médicos generales.
-Ubicación
-Departamento de Servicios de Salud
-Actividades Generales
-. Organizar, dirigir, coordinar y supervisar las labores técnicas y administrativas de los programas de salud del Poder Legislativo.
-. Proponer y ejecutar las políticas, objetivos y programas de trabajo en diferentes áreas de la medicina (microbiología, sicología, trabajo social, salud ocupacional y rehabilitación, entre otras).
-. Diseñar, dirigir y supervisar estudios, proyectos e investigaciones en diferentes campos del quehacer profesional en el área de la salud.
-. Realizar exámenes médicos al personal que ingresa a la institución, al que se pensiona y controlar sus enfermedades.
-Brindar consulta médica al personal de la Asamblea Legislativa, a diputados y a familiares, mediante los enfoques preventivo y curativo.
-. Efectuar actividades de promoción de la salud y prevención de enfermedades. Coordinar, con otras instituciones, actividades en forma tal que se brinde un mejor servicio a los usuarios de los servicios de salud.
-. Emitir políticas, directrices, lineamientos y revisar los procedimientos que se aplican en el Departamento de Servicios de Salud.
-. Proponer a los niveles superiores las políticas, planes y programas de trabajo por ejecutar en el modelo de atención integral en salud del Departamento.
-. Instruir y supervisar al personal profesional y técnico sobre prácticas y normas de trabajo técnicas y administrativas.
-. Presentar anualmente, coordinar y delegar en la Subdirección departamental, el plan operacional del departamento, incluyendo el proyecto de presupuesto y cronogramas de su aplicación.
-. Participar en reuniones de alto nivel para la coordinación de los planes de trabajo de la Institución, así como integrar comisiones para organizar y dirigir programas y actividades.
-. Supervisar la preparación de informes y documentos técnica y administrativamente.
-. Autorizar la adquisición de bienes materiales, equipo y suministros y velar por su correcto empleo.
-. Brindar tratamiento, control y seguimiento de casos bajo su cuidado, así como autorizar referencias a otras instituciones de salud cuando la situación lo amerita.
-. Atender consulta médica a los usuarios de los servicios de salud en lo que a la medicina general y laboral se refiere.
-. Efectuar exámenes físicos, realizar diagnóstico, prescribir los medicamentos y administrar otras formas de tratamientos. Elevar el expediente clínico de los usuarios de los servicios.
-. Solicitar e interpretar exámenes de laboratorio, radiografías y otros exámenes de diagnóstico.
-. Atender consultas clínicas de cirugía menor cuando se amerite.
-. Atender brotes epidémicos mediante la prevención, control y evaluación de los mismos.
-. Coordinar las actividades del Departamento de Servicios de Salud con la Dirección Regional de Salud, Clínica Central y al Área Rectora del Ministerio de Salud.
-. Coordinar y colaborar con el equipo de trabajo en el diseño y desarrollo de las investigaciones que se programan en el departamento.
-. Asignar funciones al equipo técnico y administrativo, tanto asistencial-médico y de enfermería- como al equipo de apoyo y supervisar su trabajo.
-CONTENIDO. Dictar charlas, cursillos o conferencias sobre temas de prevención de enfermedades y nutrición.
-. Asistir a reuniones, seminarios y otras actividades.
-. Realizar las tareas administrativas que se derivan de su función.
-. Ejecutar otras labores propias de su área profesional.
-Condiciones organizacionales y ambientales
-El médico G-3 o Médico Jefe ejerce funciones técnicas y administrativas del Departamento de Servicios de Salud y delega por competencias en la Subdirección para la ejecución de las tareas propias del este.
-Supervisión ejercida: Le corresponde organizar, asignar y supervisar las labores de personal administrativo, profesional y técnico; es responsable por el cumplimiento de las actividades asignadas a ellos y por el logro de objetivos.
-Supervisión recibida: Trabaja con independencia técnica profesional y administrativa, siguiendo las políticas y los procedimientos establecidos tanto por las leyes como por las directrices institucionales.
-Su labor es evaluada mediante la apreciación de los resultados obtenidos por el departamento.
-Responsabilidad
-Por actividades
-Debe aplicar principios y técnicas propias de su profesión para atender y resolver apropiadamente diversas situaciones, organizando, coordinando y dirigiendo las distintas actividades.
-Por equipo y materiales
-. Debe responsabilizarse por el adecuado empleo y mantenimiento del equipo, instrumental y material que dispone la dependencia a su cargo para cumplir sus objetivos.
-Por relaciones de trabajo
-. Mantiene relaciones constantes con superiores, subalternos, funcionarios de instituciones públicas y privadas y público en general, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
-Condiciones de trabajo
-Ocasionalmente, le corresponderá laborar fuera de la jornada ordinaria ante situaciones de emergencia. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
-Consecuencia del error
-Los errores que puedan cometerse pueden originar serios problemas que atenten contra la salud de los pacientes y los usuarios de los servicios que se brindan, incluso pueden originarse daños irreversibles por lo que las actividades deben ser realizadas con cuidado y precisión.
-Características personales
-Capacidad analítica y organizativa. Capacidad para organizar y dirigir el trabajo de personal subalterno. Habilidad para resolver situaciones imprevistas e iniciativa para alcanzar las metas y los objetivos propuestos mediante la negociación o la programación adecuada de las actividades. Conocimientos de su profesión, especialmente de los últimos avances y logros en ella. Discreción y habilidad para tratar con todo tipo de usuarios, funcionarios y público en general.
-Conocimientos básicos
-Paquetes computacionales. Actualización en su especialidad.
-Conocimientos y experiencia requerida
-Médico y cirujano, licenciado o grado superior en medicina y cirugía.
-Dos años de experiencia en labores médico profesionales, relacionadas con el cargo
-Requisito legal
-Incorporado al colegio profesional respectivo. Acuerdo Firme.
+(Derogada esta clase de puesto mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 (*)(Así adicionada la categoría médico G3 anterior mediante sesión N° 039-2019 del 13 de marzo del 2019)
 ODONTÓLOGO
 Objetivo del trabajo: Prevenir problemas y brindar mantenimiento a la salud dental de los funcionarios de la Asamblea Legislativa, mediante la ejecución de labores de exámenes, tratamiento de enfermedades de los trastornos bucodentales.
@@ -1157,48 +1025,7 @@ Experiencia mínima de tres años en labores relacionadas con el área de activi
 Experiencia mínima de dos años en el manejo, supervisión o coordinación de personal.
 Requisito legal: Incorporado al colegio profesional correspondiente.
 JEFE DE SEGURIDAD
-Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de la Unidad de Seguridad mediante la ejecución de labores de planeación, dirección, supervisión y evaluación. Todo ello en estrecha coordinación con el jerarca de la mayor unidad administrativa a la cual pertenecen las funciones de seguridad y vigilancia.
-Ubicación:
-El puesto al cual corresponde esta clasificación se ubica en la unidad encargada de las funciones de seguridad y vigilancia de la Asamblea Legislativa.
-Actividades generales:
-Planear, coordinar, distribuir, dirigir, controlar, supervisar y evaluar los procesos en el área o unidad que le corresponde asumir la seguridad y vigilancia de la Institución.
-Proyectar los gastos y requerimientos en equipo, recurso humano y espacio e informar periódicamente sobre el estado de los procesos, resultados y proyectos del área.
-Asumir, responsablemente, junto con la dirección de departamento, la revisión y aprobación de informes, manuales e instructivos técnicos y documentos que se elaboren.
-Establecer normas y estándares de trabajo y motivar e incentivar al personal a su cargo, en coordinación con la jefatura del departamento.
-Recomendar estrategias, metodologías o métodos y procedimientos que aumenten la productividad y calidad del trabajo.
-Comprometerse, junto con la dirección del departamento, con la actualización e innovación de métodos de trabajo y servicios del área que administra.
-Rendir cuentas, ante quien corresponda, mediante informes periódicos de su labor, así como elaborar reportes o documentos, por la gestión desempeñada.
-Presentar informes periódicos de su labor y elaborar reportes o documentos de proyectos relacionados con el cargo.
-Ejecutar otras tareas propias del cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Le corresponde dirigir, organizar, supervisar y evaluar el trabajo de personal profesional, técnico y administrativo de su respectivo ámbito, por lo que es responsable por el eficaz y eficiente cumplimiento de las actividades asignadas a ellos y por desarrollar y mantener niveles de motivación elevados en las personas que laboran en su unidad organizacional.
-Supervisión recibida: Trabaja con independencia, siguiendo la política de la Institución aplicable a su proceso de actividad y la legislación que define y regula las actividades del organismo. Su labor es evaluada mediante los informes que presenta, los aportes creativos al trabajo que realiza, la eficiencia y eficacia obtenidas en el cumplimiento de los objetivos asignados al proceso o actividad y por su capacidad para dirigir y supervisar al personal bajo su responsabilidad, la comprobación de la calidad de los resultados obtenidos y el nivel de motivación personal.
-RESPONSABILIDAD
-Por actividades
-Es responsable por el proceso o la actividad encomendado, el cual debe ser ejercido mediante la búsqueda del consenso y la armonía entre todos los funcionarios a su cargo. Por ello, la planeación, la organización, la conducción, el control, la evaluación, la retroalimentación y la mejora deben formar parte de una unión sistémica del proceso institucional.
-Por equipo, materiales y valores
-Es responsable por el adecuado empleo y mantenimiento del equipo y demás bienes asignados a un respectivo ámbito de acción, sea este de proceso o subproceso.
-Por relaciones de trabajo
-La actividad, debido a la naturaleza de sus funciones, origina la interrelación constante con sus superiores jerárquicos, funcionarios de otras instituciones, compañeros y usuarios del sistema, las cuales deben ser atendidas y tratadas con responsabilidad, tacto y discreción, procurando promover la misión institucional.
-CONDICIONES DE TRABAJO
-El desarrollo de las actividades asignadas a esta clase de puesto exige el esfuerzo mental para resolver y atender las diversas situaciones que se origina de la toma de decisiones, o bien, de la normativa que regula la actividad, lo cual obliga a estar actualizando conocimientos y jurisprudencia propios de la actividad.
-Debe observar en forma estricta las condiciones de seguridad e higiene vigentes. Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
-Esta clase de puesto, debido a su naturaleza de funciones, exige que la jornada de trabajo sea sin límite dependiendo de las actividades institucionales y que, en ocasiones, deba trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
-CONSECUENCIAS DEL ERROR
-Los errores que pueden cometerse podrían causar atrasos y confusiones que generarían implicaciones de tipo legal con consecuencias para el desarrollo normal de los diferentes procesos, actividades y con ello la imagen institucional y la misión que la orienta.
-CARACTERÍSTICAS PERSONALES
-Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante capacidad para la toma de decisiones y liderazgo, capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, excelente presentación personal, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio.
-CONOCIMIENTOS BÁSICOS
-Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
-Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
-(*) CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Formación profesional a nivel de bachiller universitario o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia profesional mínima de CUATRO AÑOS en labores relacionadas con el cargo a nivel de bachiller.
-Experiencia mínima de UN AÑO en el manejo y supervisión de personal.
-Requisito legal:
-Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-Permiso vigente de portación de armas.
-(*) (Así reformado el punto "Conocimientos y experiencia requerida en sesión N° 158 del 14 de marzo de 2017)
+(Derogada esta clase de puesto mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 PROFESIONAL JEFE 1
 Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de un área administrativa o legislativa de la Asamblea Legislativa. Todo ello en estrecha coordinación con el jerarca de la unidad administrativa de que se trate.
 Ubicación:
@@ -1238,6 +1065,7 @@ Los relacionados con la actualización y la capacitación en habilidades directa
 . Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
 . Experiencia mínima de 12 meses en el manejo y supervisión de personal o 5 años de experiencia continua y a nivel de licenciatura en el Departamento donde se encuentra vacante la plaza o se requiere la sustitución. Para tales efectos, se tomará como experiencia en el Departamento aquellas personas que ejerzan fiscalización o supervisión, sobre dicha dependencia.
 . Experiencia profesional mínima de cinco años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura".
+(Nota de Sinalevi: mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024 se establece Modificar el requisito de experiencia fuera de la Asamblea Legislativa en la clase de Profesional Jefe 1, para que en adelante, los diez años de experiencia que se solicitan a nivel externo, se detalle que estos sean a nivel profesional, en razón del perfil del puesto.)
 Requisito legal:
 . Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 (*) (Así reformado el aparte anterior "Conocimientos y experiencia requerida mediante sesión ordinaria N° 098-2020 del 10 de marzo del 2020)
@@ -1376,13 +1204,7 @@ DETALLE DE CLASES UBICADAS DENTRO DE ESTE ESTRATO
 (*)SUBAUDITOR INTERNO
 (*) (Así eliminada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 (*)SUBDIRECTOR DE DEPARTAMENTO
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia profesional mínima de SIETE AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área de académica, a nivel de licenciatura.
-Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
-Requisito legal:
-Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto "Subdirector de departamento en sesión N° 158 del 14 de marzo de 2017)
+(Derogada esta clase de puesto mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 Subdirector Departamento de Proveeduría
 Todos los requisitos dispuestos para la clase de Subdirector de Departamento y, adicionalmente: Licenciatura o título superior en Derecho, en Ciencias Económicas, o en una rama afín.
 Requisito legal:
@@ -1400,6 +1222,70 @@ DE SERVICIOS DE SALUD
 · Experiencia mínima de cinco años en labores relacionadas con el cargo a nivel de licenciatura
 · Incorporado al Colegio Profesional respectivo.
 (*)(Así adicionada la categoría anterior mediante acuerdo N° 53 tomado en sesión N° 154 del 29 de enero del 2013)
+(*)Subgerente de Departamento.
+Objetivo del trabajo: Asegurar junto a la gerencia de departamento, la ejecución efectiva y el apoyo constante de las actividades de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos, financieros y sustanciales del Departamento, en estrecha vinculación con las políticas institucionales y los planes anuales operativos de un departamento de la Asamblea Legislativa.
+Ubicación: En esta clase se ubican los puestos de subgerente de Departamento. Actividades generales:
+- Ejecutar y supervisar la función administrativa del Departamento, sea la planificación administrativa,
+financiera, operativa, presupuestaria, estratégica y funcional.
+- Crear, planificar y supervisar el desarrollo de los objetivos anuales operativos establecidos en el Plan Anual Operativo del Departamento.
+- Crear, planificar y supervisar la transversalización de los objetivos de desarrollo sostenible, política de género, política ambiental, accesibilidad y política de atención de personas con discapacidad, clima organizacional, salud ocupacional, NICSP y todas aquellas funciones vinculadas a políticas institucionales.
+- Planificar, ejecutar y supervisar la función administrativa en torno al control interno ejercido por los órganos competentes internos y externos.
+- Planificar y gestionar los planes de desarrollo departamentales del talento humano.
+- Asumir el compromiso junto con la dirección del departamento de desarrollar, planificar y ejecutar las funciones directamente vinculadas con la organización departamental, según las competencias normativas asignadas al Departamento.
+- Supervisar al personal del Departamento y los trabajos asignados.
+- Ejercer la suplencia del Gerente del Departamento durante las ausencias temporales, así como la sustitución según corresponda en ausencias definitivas hasta que se designe el titular del puesto de Dirección.
+- Representar al Departamento o a la Institución en las actividades que correspondan.
+- Aquellas otras funciones del cargo.
+Condiciones organizacionales y ambientales.
+Supervisión ejercida: Ejerce supervisión sobre personal gerencial intermedio, profesional, técnico y
+asistencial de acuerdo con la división en los procesos de trabajo establecidos.
+Supervisión recibida: El Subgerente de departamento es supervisado y evaluado por el Gerente de Departamento.
+No obstante, por la naturaleza del puesto, trabaja en estrecha coordinación con el director departamental, a quien debe suplir o sustituir durante sus ausencias, por lo que su labor es evaluada constantemente con base en el desarrollo y avance de los programas diseñados para el departamento y con base en los resultados obtenidos.
+Se desempeña con amplia independencia técnica, profesional y administrativa, guiado por las políticas establecidas por el gerente departamental, las normas que establece su disciplina y los indicadores de carácter general emanados por los órganos superiores.
+Responsabilidad.
+Por actividades.
+Es responsable directamente de planificar, desarrollar, supervisar y evaluar la función administrativa del Departamento para el cumplimiento del plan anual operativo en áreas específicas de actividad, junto con el Gerente de Departamento.
+Por equipo, materiales y valores.
+Es responsable, junto con el gerente de departamento, por el adecuado uso y mantenimiento del equipo, el mobiliario y los materiales asignados a su departamento.
+Por relaciones de trabajo.
+El puesto demanda el establecimiento de relaciones de trabajo asertivas y respetuosas para el buen funcionamiento de la Institución. Se relaciona constantemente con los altos jerarcas de la Institución y con sus colaboradores en general; en el ámbito externo, las relaciones se dan con representantes de organismos
+públicos y privados nacionales e internacionales y usuarios de la Asamblea Legislativa.
+Condiciones de trabajo.
+El desarrollo de las actividades asignadas a esta clase de puesto exige el esfuerzo mental para resolver y atender las diversas situaciones que se originan de la toma de decisiones, o bien, de la normativa que regula la actividad, lo cual obliga a estar actualizando conocimientos técnico-normativos y jurisprudencia propios de la actividad. Le corresponde ejercer la suplencia del Gerente del Departamento durante las ausencias temporales, así como la sustitución según corresponda en ausencias definitivas hasta que se designe el titular del puesto de Gerencia.
+Debe observar, en forma estricta, las condiciones de seguridad e higiene vigentes.
+Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
+Esta clase de puesto, debido a su naturaleza de funciones, exige que la jornada de trabajo sea sin límite dependiendo de las actividades institucionales y, en ocasiones, trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+El puesto de Subgerente de departamento, al constituir una clase directamente vinculada a la materia gerencial departamental, representa un puesto absolutamente imprescindible.
+Consecuencias del error.
+Los errores que puedan cometerse podrían causar atrasos y confusiones que generarían implicaciones de tipo legal con consecuencias para el desarrollo normal de los diferentes procesos y actividades, y con ello la imagen institucional y la misión que la orienta.
+Características personales.
+Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante: capacidad de dirección y liderazgo, capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio y excelente presentación personal.
+Es de suma importancia poseer capacidad para trabajar en equipo y particularmente en estrecha
+coordinación con el jerarca inmediato superior.
+Conocimientos básicos.
+Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
+Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo de actividad como la planificación organizacional y presupuestaria, redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, el trabajo en equipo y materia gerencial.
+Conocimientos y experiencia requerida.
+Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
+Experiencia mínima de tres años en el manejo y supervisión de personal.
+Experiencia profesional mínima de ocho años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia profesional mínima de diez años en labores relacionadas con el área académica, a nivel de licenciatura.
+Requisito legal:
+Incorporación al día y vigente al colegio profesional correspondiente en el grado académico respectivo de la clase.
+Subgerente departamento de servicios de salud.
+Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
+Experiencia mínima de siete años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura.
+Experiencia mínima de tres años en el manejo y supervisión de personal.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+Subgerente departamento de proveeduría.
+Todos los requisitos dispuestos para la clase de Subdirector de Departamento y, adicionalmente:
+Licenciatura o título superior en Derecho, en Ciencias Económicas, o en una rama afín.
+Tener al menos cinco años de experiencia en contratación pública.
+Haber aprobado cursos de capacitación en materia de contratación pública, de acuerdo con los lineamientos emitidos al efecto por la Dirección de Contratación Pública.
+No encontrarse afecto por la prohibición establecida en el artículo 72 de la Ley Orgánica de la Contraloría General de la República, N° 7428 de 7 de setiembre de 1994.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*)(Así adicionada la clase de puesto anterior mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 MÉDICO JEFE (G5)
 (Derogada la categoría médico Jefe G5 anterior mediante sesión ordinaria N° 039-209 del 13 de marzo del 2019)
 AUDITOR INTERNO (según lineamientos girados por la Contraloría General de la República- L-I-2003-CO-DDI)
@@ -1513,7 +1399,8 @@ Habilidades
 (*) Requisitos legales:
 Incorporación al colegio profesional respectivo.
 (*) (Así reformado el punto anterior mediante sesión N° 132-2020 del 5° de noviembre de 2020)
-DIRECTOR DE DEPARTAMENTO
+GERENTE DE DEPARTAMENTO
+(Así modificada su denominación mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024. Anteriormente indicaba "DIRECTOR DE DEPARTAMENTO")
 Objetivo del trabajo:
 Participar dinámicamente y comprometerse en la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales. Garantizar la gestión sustantiva de la Institución, en concordancia con las políticas institucionales y los planes anuales operativos de un departamento de la Asamblea Legislativa, mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos técnico-administrativos.
 Ubicación: En esta clase se ubican los puestos de director de departamento de la Asamblea Legislativa.
@@ -1560,64 +1447,100 @@ Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 (*) (Así reformado el punto anterior "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
-DIRECTOR DE DIVISIÓN
+(Nota de Sinalevi: Mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024, se establece lo siguiente; " incorporar los requisitos a la clase de Gerente de Proveeduría dispuestos en el Reglamento de la Ley de Contratación Pública y normativa asociada, los cuales son los siguientes:
+Todos los requisitos dispuestos para la clase de Gerente de Departamento y, adicionalmente:
+Licenciatura o título superior en Derecho, en Ciencias Económicas, o en una rama afín.
+Tener al menos cinco años de experiencia en contratación pública.
+Haber aprobado cursos de capacitación en materia de contratación pública, de acuerdo con los lineamientos emitidos al efecto por la Dirección de Contratación Pública.
+No encontrarse afecto por la prohibición establecida en el artículo 72 de la Ley Orgánica de la Contraloría General de la República, Nº 7428 de 7 de setiembre de 1994."
+Requisito legal: Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.)
+(*)Gerente 1
 Objetivo del trabajo:
-Comprometerse con la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales. Garantizar la gestión legislativa o administrativa de la Asamblea Legislativa en concordancia con las políticas institucionales y los planes anuales operativos de la división, mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos.
+Comprometerse con la definición de las políticas, las estrategias, los objetivos, los valores, la misión
+y la visión institucionales. Garantizar la gestión legislativa o administrativa de la Asamblea Legislativa en concordancia con las políticas institucionales y los planes anuales operativos de la gerencia, mediante la
+ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los
+procesos administrativos.
 Ubicación:
-En esta clase se ubican los puestos de director de División Administrativa y director División Legislativa.
-Departamentos que conforman cada división:
-División Administrativa: la integran los departamentos de Recursos Humanos, Servicios Generales, Servicios de Salud, Proveeduría, y Financiero, así como las unidades o secciones de cada uno de ellos.
-División Legislativa: la integran los departamentos de Servicios Parlamentarios; Estudios Referencias y Servicios Técnicos; Comisiones Legislativas; Archivo; Secretaría del Directorio; Servicios Bibliotecarios, Documentación e Información; Tecnologías de Información(*); y Análisis Presupuestario, así como las unidades o secciones de cada una de ellos y/o que organizacionalmente pertenecen a la División.
-(*) (Así modificada su denominación en sesión N° 170 del 10 de agosto de 2021. Anteriormente se indica: "Informática")
+En esta clase se ubican los puestos de Gerente Administrativo y Gerente Técnico Operativo.
+Gerencia Administrativa: será la encargada de liderar los procesos administrativos de la institución de manera que provea a la Gerencia General de información y asesoría para la toma de decisiones en la materia.
+Gerencia Técnico-Operativa: será la encargada de velar porque las operaciones y los procesos institucionales sean efectuados con eficiencia y calidad, a su vez que impulsará procesos de modernización e innovación del quehacer institucional.
 Actividades generales:
-Todas las conferidas mediante la normativa vigente.
-Planificar, organizar, coordinar y evaluar las actividades relacionadas con la gestión de las divisiones Administrativa o Legislativa a la luz de la visión, la misión y los objetivos institucionales.
-Velar por que los recursos materiales y humanos contribuyan al logro de la misión institucional.
-Valorar y revisar las políticas, las directrices, los lineamientos y los procedimientos que se aplican en departamentos correspondientes a la luz de la misión, los objetivos institucionales y el plan operativo anual.
-Dictar lineamientos para que se apliquen los acuerdos del directorio; velar por el cumplimiento de la normativa correspondiente como por ejemplo el Reglamento interior de trabajo de la Asamblea Legislativa, la Ley de personal y sus reformas, y la normativa interna y externa de trabajo.
-Controlar los fondos que se le asignan, presentar informes, promover el desarrollo de actividades de capacitación y velar por la calidad de los servicios que brinda la división.
-Coordinar acciones con los demás departamentos, proveer los materiales y recursos tecnológicos que requiere el personal a su cargo, distribuir las tareas y el recurso humano y fomentar el intercambio de información interna y externamente.
-Planear conjuntamente con los directores de departamento de la División Legislativa o Administrativa las acciones de cada uno de ellos, que se traducirán en el plan estratégico, de modo que se tenga una visión integrada y se dé un mejor aprovechamiento de los recursos tanto humanos como materiales.
-Orientar los departamentos de su división con una visión de conjunto, identificando los obstáculos y problemas que impiden el cumplimiento de la gestión y así integrar las diferentes funciones, actividades y procedimientos de trabajo, de manera que este se realice en forma armónica, fluida y eficaz, siempre dentro del cumplimiento de la normativa jurídica que rige el ámbito de su competencia.
-Ejercer la supervisión correspondiente de la gestión de las diferentes unidades legislativas o administrativas de la Institución, con el objetivo de garantizar el cumplimiento de las normas, los reglamentos, las directrices y las políticas establecidas y el cumplimiento de los planes encomendados eficiente y eficazmente.
-Realizar reuniones periódicas de coordinación con los jerarcas de los departamentos a su cargo, a fin de establecer los más eficientes mecanismos de coordinación y gestión de la División Legislativa o Administrativa.
-Analizar, junto con los directores de departamento de la división a su cargo, la estructura organizacional y ocupacional interna de cada uno y recomendar las modificaciones que impliquen reubicación temporal o permanente del personal entre los departamentos, acorde con las necesidades institucionales y con el fin de dar un mejor servicio.
-Realizar estudios periódicos de evaluación sobre el cumplimiento de los objetivos de la gestión institucional en cada departamento de la División Legislativa o Administrativa y formular, anualmente y en colaboración con los jefes de departamento, el presupuesto y los planes de trabajo de los diferentes departamentos de su área.
-Ejecutar las políticas institucionales que se dicten desde la Dirección Ejecutiva y el Directorio legislativo en consonancia con la estructura organizacional establecida en la Asamblea Legislativa.
-Brindar asesoramiento y apoyo al director ejecutivo, de acuerdo con el ordenamiento jurídico, y asistir a las sesiones del Directorio legislativo con derecho a voz, pero sin voto, cuando la naturaleza de los asuntos que se conozcan así lo requieran.
-Establecer, junto con los directores de departamento de su división, mecanismos que simplifiquen, sistematicen y automaticen los procedimientos.
-Evaluar, anualmente, el desempeño de las jefaturas de departamento de su división.
-Sustituir al director ejecutivo en sus ausencias.
-Cualquier otra específica de la división que le delegue el Directorio legislativo o el director ejecutivo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Por el nivel que ocupa el cargo dentro de la organización, le corresponde ejercer supervisión sobre los directores de departamento que integran la división, a quienes evalúa según los resultados obtenidos en los procesos de cada uno.
-Supervisión recibida: Trabaja con amplia independencia técnica en materia legislativa y financiera, acata los lineamientos generales dictados por el Directorio legislativo o el Plenario y trasladados por medio de la Dirección Ejecutiva, en apego a las disposiciones legales existentes. Es supervisado por la Dirección Ejecutiva por medio de los resultados obtenidos.
-RESPONSABILIDAD
-Por actividades
-Es responsable por el logro de las metas y el cumplimiento de la misión de la división a su cargo, en cuanto a la coordinación, el seguimiento y la definición de la integración y visión de conjunto de los departamentos que conforman la división correspondiente.
-Debe impulsar el cambio de la cultura organizacional tendiente a la polifuncionalidad, el desarrollo de las actividades en equipo y la lealtad institucional, entre otros. Será responsable, además, de la detección y resolución, en forma oportuna y acertada, de situaciones conflictivas de diversa índole.
-Por relaciones de trabajo
-El puesto demanda el establecimiento de relaciones de trabajo asertivas y respetuosas para el buen funcionamiento de la Institución. Se relaciona constantemente con los altos jerarcas de la Institución y con los directores de los departamentos y colaboradores en general; en el ámbito externo, las relaciones se dan con representantes de organismos y empresas nacionales e internacionales y con personeros de instituciones públicas y usuarios de la Asamblea Legislativa.
-Por equipo y materiales
-Es responsable por el uso óptimo y racional del equipo que se le suministra para el desempeño de las funciones de la división y de reportar cualquier anomalía que observe.
-CONDICIONES DE TRABAJO
-El trabajo se desarrolla en condiciones propias de un ambiente de oficina con mobiliario, equipo y materiales adecuados para el ejercicio de su cargo. Las características del puesto lo excluyen de la jornada ordinaria, en tanto que la excelencia laboral puede ameritar trabajar jornadas superiores a las establecidas o más allá de los horarios estipulados.
-Debe observar, en forma estricta, las condiciones de seguridad e higiene vigentes. Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
-CONSECUENCIAS DEL ERROR
+Gerencia Administrativa:
+Planear, coordinar, evaluar y controlar la gestión administrativa de la institución.
+Coordinar e integrar las diferentes funciones, actividades y procedimientos de trabajo de todos los departamentos institucionales, para que se realicen de manera armónica, fluida y eficiente.
+Identificar y remover los obstáculos y los problemas de carácter administrativo de la institución que impidan el cumplimiento de una gestión fluida y eficaz.
+Realizar reuniones periódicas de coordinación con los gerentes de los departamentos, con el fin de establecer los más eficientes mecanismos de coordinación y ejecución de las funciones y los procesos atenientes.
+Ejecutar las políticas institucionales que le dicten los órganos superiores de la institución y por delegación del superior inmediato.
+Ejecutar su gestión administrativa juntamente con la Gerente General.
+Conocer, gestionar, promover e impulsar las modificaciones propuestas a la estructura interna de la
+institución en coordinación con el Gerente de Desarrollo Estratégico Institucional.
+Gestionar la reubicación, de forma temporal, al personal de los departamentos, según lo demande la carga de trabajo de cada uno de ellos, así como supervisar los movimientos interdepartamentales del personal, de común acuerdo con las gerencias de cada departamento.
+Realizar estudios periódicos de evaluación sobre el cumplimiento de los objetivos de la gestión institucional; así como formular anualmente y en colaboración con los Gerentes de Departamento el presupuesto y los planes de trabajo.
+Coordinar con el personal subalterno el cumplimiento de la normativa jurídica que rige el ámbito de su competencia. Mantener controles permanentes sobre el cumplimiento de los planes y los programas institucionales.
+Brindar asesoría y apoyo al Directorio legislativo en materia de gestión administrativa institucional, de
+acuerdo con el ordenamiento jurídico.
+Asistir a las sesiones del Directorio legislativo con derecho a voz, pero no de voto, cuando la naturaleza de los asuntos que se conozcan así lo requieran.
+Velar porque las instancias correspondientes brinden la adecuada atención a las necesidades institucionales.
+Establecer mecanismos para simplificar, sistematizar y automatizar los procedimientos de la gestión administrativa de la Asamblea Legislativa.
+Supervisar que las diferentes unidades administrativas de la institución cumplan las normas y los reglamentos, las directrices y las políticas establecidas.
+Evaluar, anualmente, el desempeño en la gestión administrativa de todas las direcciones de departamentos.
+Cualquiera otra específica de su competencia que le delegue el Directorio legislativo o el Gerente General.
+Gerencia Técnico Operativa:
+Controlar el cumplimiento de las metas y objetivos operativos que se establecen para cada departamento de la institución.
+Coordinar con la Gerencia Administrativa y la Gerencia General todos los recursos para la implementación de mejoras en los procedimientos operativos de la institución, con el propósito de garantizar la eficiencia y calidad en la prestación de servicios.
+Dar acompañamiento técnico a los departamentos en el ejercicio de sus operaciones y el cumplimiento de los objetivos operativos.
+Asesorar a la Gerencia General en la toma de decisiones respecto a las operaciones y quehacer institucional.
+Analizar datos y métricas clave, la identificación de áreas de mejora y la implementación de cambios para optimizar el rendimiento operativo de la institución.
+Liderar procesos de modernización e innovación en el quehacer sustantivo de todos los departamentos, con el objetivo de mejorar la prestación de servicios y la generación de valor público.
+Proporcionar dirección y orientación a la población legislativa para asegurar que comprendan sus roles y responsabilidades, así como para motivarlos a alcanzar los objetivos de la organización.
+Identificar y remover los obstáculos y los problemas de carácter operativo de la institución que impidan el cumplimiento de una gestión fluida y eficaz.
+Realizar reuniones periódicas de coordinación con los gerentes de los departamentos, con el fin de establecer los más eficientes mecanismos de coordinación y ejecución de las funciones y los procesos atenientes.
+Ejecutar las políticas institucionales que le dicten los órganos superiores de la institución y por delegación del superior inmediato.
+Ejecutar su gestión operativa conjuntamente con la Gerencia General.
+Supervisar el desempeño operativo de la organización, monitoreando el progreso hacia los objetivos establecidos y tomando medidas correctivas cuando sea necesario.
+Coordinar con el personal subalterno el cumplimiento de la normativa jurídica que rige el ámbito de su competencia.
+Mantener controles permanentes sobre el cumplimiento de los planes y los programas institucionales.
+Brindar asesoría y apoyo al Directorio legislativo en materia de gestión operativa institucional, de acuerdo con el ordenamiento jurídico.
+Asistir a las sesiones del Directorio legislativo con derecho a voz, pero no de voto, cuando la naturaleza de los asuntos que se conozcan así lo requieran.
+Velar porque las instancias correspondientes brinden la adecuada atención a las necesidades institucionales.
+Establecer mecanismos para simplificar, sistematizar y automatizar los procedimientos de la gestión administrativa de la Asamblea Legislativa.
+Supervisar que las diferentes unidades de la institución cumplan las normas y los reglamentos, las directrices y las políticas establecidas.
+Evaluar, anualmente, el desempeño de la gestión operativa de todas las gerencias de departamentos.
+Cualquiera otra específica de su competencia que le delegue el Directorio legislativo o el Gerente General.
+Condiciones organizacionales y ambientales.
+Supervisión ejercida: Por el nivel que ocupa el cargo dentro de la organización, le corresponde ejercer supervisión sobre las gerencias de departamentos que le corresponden liderar, a quienes evalúa según los resultados obtenidos en los procesos de cada uno.
+Supervisión recibida: Trabaja con amplia independencia técnica en materia administrativa, legislativa y financiera, acata los lineamientos generales dictados por el Directorio legislativo o el Plenario y trasladados por medio de la Gerencia General, en apego a las disposiciones legales existentes. Es supervisado por la Gerencia General por medio de los resultados obtenidos.
+Responsabilidad.
+Por actividades.
+Es responsable por el logro de las metas y el cumplimiento de la misión de la gerencia a su cargo, en
+cuanto a la coordinación, el seguimiento y la definición de la integración y visión de conjunto de los departamentos que conforman la gerencia correspondiente.
+Debe impulsar el cambio de la cultura organizacional tendiente a la polifuncionalidad, el desarrollo de las actividades en equipo y la lealtad institucional, entre otros. Será responsable, además, de la detección y
+resolución, en forma oportuna y acertada, de situaciones conflictivas de diversa índole.
+Por relaciones de trabajo.
+El puesto demanda el establecimiento de relaciones de trabajo asertivas y respetuosas para el buen funcionamiento de la Institución. Se relaciona constantemente con los altos jerarcas de la Institución y con las gerencias de los departamentos y colaboradores en general; en el ámbito externo, las relaciones se dan con representantes de organismos y empresas nacionales e internacionales y con personeros de instituciones públicas y usuarios de la Asamblea Legislativa.
+Por equipo y materiales.
+Es responsable por el uso óptimo y racional del equipo que se le suministra para el desempeño de las funciones de la gerencia y de reportar cualquier anomalía que observe.
+Condiciones de trabajo.
+El trabajo se desarrolla en condiciones propias de un ambiente de oficina con mobiliario, equipo y materiales adecuados para el ejercicio de su cargo.
+Las características del puesto lo excluyen de la jornada ordinaria, en tanto que la excelencia laboral puede ameritar trabajar jornadas superiores a las establecidas o más allá de los horarios estipulados.
+Debe observar, en forma estricta, las condiciones de seguridad e higiene vigentes.
+Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
+Consecuencias del error.
 Los errores pueden obstaculizar el cumplimiento de los objetivos institucionales, pérdidas de consideración, si no se establecen y ejecutan los controles y procedimientos adecuados.
-CARACTERÍSTICAS PERSONALES
+Características personales.
 Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante capacidad analítica y de síntesis, razonamiento concreto y abstracto, capacidad de retener y transmitir la información correctamente, cortesía, respeto y afabilidad.
 El ocupante debe poseer autocontrol, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, sentido de justicia y equidad, discreción y lealtad institucional.
 Se requiere capacidad para mantener buenas relaciones humanas, capacidad de respuesta, liderazgo, capacidad para aceptar críticas y para resolver situaciones imprevistas y habilidades como negociador, facilitador, motivador y para la toma de decisiones.
-CONOCIMIENTOS BÁSICOS
+Conocimientos básicos.
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, procesos y procedimientos institucionales, actualización de conocimientos relacionados con las funciones del Parlamento, del área profesional y laboral, así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, trabajo en equipos, planificación estratégica y materia gerencial.
-(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Conocimientos y experiencia requerida.
 Formación profesional a nivel de licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia profesional mínima de NUEVE AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área académica, a nivel de licenciatura.
-Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal. Requisito legal:
+Experiencia profesional mínima de nueve años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia profesional mínima de diez años en labores relacionadas con el área académica, a nivel de licenciatura.
+Experiencia mínima de tres años en el manejo y supervisión de personal.
+Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el punto anterior "Conocimientos y experiencia requerida", en sesión N° 158 del 14 de marzo de 2017)
+(*)(Así reformada la clase de puesto anterior mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024)
 Carreras atinentes
 Director de División Administrativa
 Administración con sus diferentes énfasis.
@@ -1625,10 +1548,13 @@ Economía con sus diferentes énfasis.
 Director de División Legislativa
 Administración con sus diferentes énfasis.
 Derecho con sus diferentes énfasis.
-DIRECTOR EJECUTIVO
-Objetivo del trabajo: Garantizar la gestión sustantiva de la Institución mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos y financieros, en concordancia con las políticas institucionales y nacionales y los planes anuales operativos de la Dirección Ejecutiva de la Asamblea Legislativa.
+GERENTE GENERAL
+(Así modificada su denominación mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024. Anteriormente indicaba " DIRECTOR EJECUTIVO")
+Objetivo del trabajo: Garantizar la gestión sustantiva de la Institución mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos y financieros, en concordancia con las políticas institucionales y nacionales y los planes anuales operativos de la Gerencia general (*) de la Asamblea Legislativa.
+(Así modificada su denominación mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024. Anteriormente indicaba " Dirección ejecutiva")
 Velar por el cumplimiento de las disposiciones emitidas por el Directorio legislativo.
-Ubicación: En esta clase se ubica únicamente el puesto de Director Ejecutivo.
+Ubicación: En esta clase se ubica únicamente el puesto de gerente general (*).
+(Así modificada su denominación mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024. Anteriormente indicaba " DIRECTOR EJECUTIVO")
 Actividades generales:
 Todas las conferidas mediante la normativa vigente.
 Coordinar con los directores de división el cumplimiento de la normativa jurídica que rige el ámbito de su competencia y mantener controles permanentes sobre el cumplimiento de los planes y programas a cargo de las diferentes instancias sustantivas y de soporte profesional, técnico y administrativo de la Institución.
@@ -1661,7 +1587,8 @@ Le corresponde laborar sin límite de jornada, trabajar bajo presión y traslada
 CONSECUENCIAS DEL ERROR
 Los errores pueden obstaculizar el cumplimiento de los objetivos institucionales, ocasionando demoras en el proceso de formación de la ley y pérdidas de consideración si no se establecen los controles y procedimientos adecuados en el campo administrativo-financiero.
 CARACTERÍSTICAS PERSONALES
-El ocupante de esta clase de puesto debe poseer, ineludiblemente, capacidad de trabajo en equipo, habilidad para dirigir, don de mando, capacidad negociadora y de manejo para resolver situaciones conflictivas, así como facilidad para aceptar críticas, capacidad para relacionarse con otras personas y para tomar decisiones acertadas. Además, debe mostrar agudeza de criterio, rigor científico y rapidez de raciocinio.
+El ocupante de esta clase de puesto debe poseer, ineludiblemente, capacidad de trabajo en equipo, habilidad para liderar (*), don de mando, capacidad negociadora y de manejo para resolver situaciones conflictivas, así como facilidad para aceptar críticas, capacidad para relacionarse con otras personas y para tomar decisiones acertadas. Además, debe mostrar agudeza de criterio, rigor científico y rapidez de raciocinio.
+(Así modificada su denominación mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024. Anteriormente indicaba " dirigir")
 Por la naturaleza del cargo, su rol debe estar orientado a ser un facilitador y motivador en el desarrollo y ejecución de los procesos. Debe tener capacidad de concentración y de respuesta para atender varias tareas simultáneamente. Debe ser persuasivo, entusiasta, optimista, dinámico, con dominio de sí mismo, paciente, ordenado, cooperador y afable, capaz de organizar el trabajo propio y de los demás. Debe ser un excelente comunicador con gran capacidad para percibir las necesidades, los intereses y los problemas de los demás, así como caracterizarse por el respeto hacia las ideas de otras personas.
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
