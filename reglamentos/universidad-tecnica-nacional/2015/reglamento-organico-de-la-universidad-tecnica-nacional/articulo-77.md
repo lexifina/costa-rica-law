@@ -1,6 +1,5 @@
-Artículo 77. Son funciones del Área de Investigación:
-1. Administrar, ejecutar y controlar las políticas y lineamientos emitidos por la Vicerrectoría, respecto a los procesos de difusión, formulación, aprobación, ejecución y evaluación de proyectos y programas de acuerdo con las áreas estratégicas de investigación de la UTN; acciones de transferencia y validación de tecnología, desarrollo e innovación, incluyendo las publicaciones científicas y otros medios de divulgación de los resultados e investigación.
-2. Apoyar, controlar y dar seguimiento a la implementación y ejecución de las políticas y lineamientos emitidos por la Vicerrectoría en las siguientes áreas:
-a. Sistema Integrado de Bibliotecas y Recursos Digitales.
-b. Sistema Integrado de Laboratorios de Investigación.
-c. Sistema de Estudios de Posgrado.
+Artículo 78. Son funciones del Área de Vida Estudiantil:
+1. Atender y aplicar la reglamentación y normativa universitaria vigente, así como ejecutar los acuerdos y directrices emitidos por la Vicerrectoría de Vida Estudiantil.
+2. Coordinar, administrar y supervisar los diferentes programas, proyectos y acciones de las áreas de gestión de Vida Estudiantil, a saber: Becas y Beneficios Estudiantiles, Cultura Deporte y
+Recreación, Bienestar Estudiantil y Permanencia y Retención.
+3. Proponer a la Vicerrectoría de Vida Estudiantil políticas, programas, proyectos y acciones tendientes al mejoramiento de los procesos, programas y proyectos a su cargo, así como a la adecuada atención de las necesidades de la población estudiantil.

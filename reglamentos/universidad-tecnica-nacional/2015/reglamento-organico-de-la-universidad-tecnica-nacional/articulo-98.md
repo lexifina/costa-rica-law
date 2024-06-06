@@ -1,3 +1,3 @@
 Artículo 98. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
 Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Colegio.
-Las actas serán firmadas por el Presidente y por aquellos miembros que Página | 43 hubieren hecho constar su voto disidente.
+Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente.
