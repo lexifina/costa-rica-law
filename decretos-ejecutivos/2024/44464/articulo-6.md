@@ -1,0 +1,1 @@
+ARTICULO 6.- Deróguese el artículo 7 del Reglamento para la emisión de cartas del Ministerio de Comercio Exterior para inscribirse en el registro de empresas de la Dirección General de Migración y Extranjería, Decreto Ejecutivo N° 39903-COMEX del 26 de julio de 2016.

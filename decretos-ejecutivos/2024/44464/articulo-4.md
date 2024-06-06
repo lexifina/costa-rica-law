@@ -1,0 +1,4 @@
+ARTÍCULO 4.- Modifíquese el primer párrafo del artículo 8 del Reglamento para la emisión de cartas del Ministerio de Comercio Exterior para inscribirse en el registro de empresas de la Dirección General de Migración y Extranjería, Decreto Ejecutivo N º 39903-COMEX del 26 de julio de 2016, para que se lea de la siguiente forma:
+"Artículo 8.- Criterios de Calificación.
+Específicamente en lo que se refiere al análisis de las Empresas Exportadoras de Bienes o Servicios fuera de Regímenes Especiales de Promoción de Exportaciones de la Clasificación B), para la emisión del informe respectivo, la Dirección deberá determinar si las mismas cumplen con el criterio de ser un "exportador habitual", de conformidad con la definición establecida en el artículo 148 del Reglamento a la Ley General de Aduanas Decreto Ejecutivo Nº 44051-H del 18 de mayo de 2023 o la norma que le suceda.
+(. . .) "
