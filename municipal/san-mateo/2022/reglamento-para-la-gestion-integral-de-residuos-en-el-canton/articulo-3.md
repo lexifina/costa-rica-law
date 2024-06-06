@@ -1,0 +1,2 @@
+Artículo 3. Alcance y Ámbito de Aplicación. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos de competencia municipal que se encuentren localizados dentro del ámbito territorial del cantón de San Mateo, cualquiera que sea la actividad o el lugar de generación. Este reglamento se rige por lo aquí dispuesto y por la Ley para la Gestión
+Integral de Residuos Nº 8839 y los reglamentos que de ella se deriven.

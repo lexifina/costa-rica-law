@@ -1,0 +1,1 @@
+Artículo 64. Mecanismos de Verificación de Cumplimiento del Servicio. La Municipalidad establecerá mecanismos que permitan el seguimiento, control y verificación del servicio de gestión de residuos, de manera que sea una herramienta ante reclamos de los generadores o ante los organismos fiscalizadores.

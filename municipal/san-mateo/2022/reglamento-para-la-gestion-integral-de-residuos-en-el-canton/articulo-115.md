@@ -1,0 +1,1 @@
+Artículo 115. Reclasificación de Generadores. La Municipalidad podrá, a criterio propio de la institución o a solicitud de un interesado, realizar un estudio específico para cualquier usuario del servicio.

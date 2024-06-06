@@ -1,0 +1,1 @@
+Artículo 96. El Departamento de Gestión Ambiental, en coordinación con el encargado de Parques y Ornato deberá levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.

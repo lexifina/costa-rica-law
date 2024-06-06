@@ -1,0 +1,1 @@
+Artículo 68. El propietario registral deberá garantizar mantener limpias y libres de material o residuos las aceras, calles, áreas de uso común y lotes baldíos que se encuentren dentro del perímetro del sitio.

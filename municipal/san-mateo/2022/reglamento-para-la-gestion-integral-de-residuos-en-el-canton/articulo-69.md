@@ -1,0 +1,1 @@
+Artículo 69 Separación de los residuos: El propietario registral deberá garantizar la separación de los residuos generados dentro del sitio según la clasificación indicada en el Capítulo III del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 132. Ferias, Campañas y Otras Actividades Ambientales. La Municipalidad podrá realizar ferias, campañas y otro tipo de actividades de proyección, información, capacitación y sensibilización sobre la importancia de la gestión integral de residuos.

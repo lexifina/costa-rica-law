@@ -1,0 +1,2 @@
+Artículo 134. Prohibición de Mezcla de Diferentes Tipos de Residuos. Se prohíbe entregar en las rutas de recolección diferenciadas para un tipo de residuo (rutas de recolección de residuos ordinarios, rutas de recolección de residuos valorizables, rutas de recolección de residuos voluminosos). Así como también en
+las campañas de recolección específica, residuos mezclados o contaminados con residuos que pertenezcan a diferentes clasificaciones, según lo dispuesto en el Capítulo III del presente reglamento.

@@ -1,0 +1,60 @@
+Artículo 4. Definiciones. Para los efectos de este reglamento se entiende por:
+Almacenamiento: Acción de retener temporalmente residuos en tanto se entregan al servicio de recolección, se procesan para su aprovechamiento o cambio de sus características, o se dispone de ellos.
+Animal de compañía: Animal que convive con seres humanos. Para los efectos del presente reglamento se entenderá como animal de compañía a los perros y los gatos, únicamente.
+Bien Inmueble: Es todo terreno con o sin construcciones u obras de infraestructura.
+Categoría: Ubicación de un contribuyente de acuerdo con la estimación de residuos que genera.
+Centro de Recuperación de Residuos Valorizables: Es un sitio permanente de recepción y almacenamiento temporal de residuos para su valorización, donde los materiales recuperables pueden ser pesados, clasificados y separados de acuerdo con su naturaleza para su posterior comercialización. También
+se le conoce con el nombre de centro de acopio.
+Compost: Resultado de la descomposición y estabilización por la acción de microorganismos de los residuos orgánicos por procesos de compostaje o fermentación anaeróbica.
+Compostaje: Técnica que permite la descomposición aeróbica de la materia orgánica biodegradable en forma controlada para lograr un producto utilizable como mejorador de suelo.
+Concesionario: Persona física o jurídica a quien, mediante un acto administrativo-jurídico, le es otorgado temporalmente el derecho de hacerse cargo del servicio de aseo, recolección, transporte, tratamiento, reciclaje y/o disposición final de los residuos ordinarios del cantón.
+Contenedor: Recipiente destinado al almacenamiento temporal de residuos no peligrosos de origen doméstico, comercial o industrial.
+Contenedor Colectivo: Recipiente de mayor volumen destinado al almacenamiento temporal de los residuos de un grupo de usuarios, ubicado en un punto común para los mismos.
+Contrato de servicios: Para la contratación de servicios técnicos o profesionales, a cargo de personas físicas o jurídicas, la Administración deberá seguir los procedimientos de contratación administrativa.
+Contribuyente: Propietario o poseedor de un inmueble donde la Municipalidad brinde servicios públicos.
+Cordón y Caño: Desagüe para la evacuación de aguas pluviales provenientes de la calzada, la cual se sitúa paralela entre el borde de esta y la acera o franja verde de la vía.
+Costo Efectivo: para efectos de este reglamento, el costo efectivo de la obra, es la suma del costo de los materiales, la mano de obra, el uso del equipo así como su depreciación, imprevistos, gastos administrativos y financieros, costo de recolección, disposición y tratamiento de residuos sólidos en caso de requerirse, así como los demás costos directos e indirectos que tengan que ver con la obra, más un diez por ciento (10%) de utilidad para el desarrollo.
+Disposición Final: Ordenada y definitiva colocación, distribución y confinamiento de los residuos ordinarios en un sitio diseñado para este fin.
+Estación de Transferencia: Instalación que, con el equipamiento necesario, permite el cambio del medio de transporte de los residuos sólidos no peligrosos, de las unidades de recolección a vehículos de mayor capacidad para su transporte a una instalación de tratamiento o a la disposición final.
+Factor de Ponderación: Valor establecido utilizando como referencia la unidad doméstica o habitacional.
+Fuente de Generación: Lugar donde se generan los residuos.
+Generador: Persona física o jurídica, pública o privada, que genera residuos, a través del desarrollo de procesos productivos, de servicios, de comercialización o de consumo que son de competencia municipal.
+Gestión Integral de Residuos (GIR): Conjunto articulado e interrelacionado de acciones regulatorias, operativas, financieras, administrativas, educativas, de planificación, monitoreo y evaluación para la gestión de los residuos, desde su generación hasta la disposición final.
+Gestor Autorizado: Persona física o jurídica, pública o privada, encargada de la gestión total o parcial de los residuos sólidos y debidamente autorizada al efecto por el Ministerio de Salud y esta municipalidad.
+Gran Generador: Persona física o jurídica que produzcan grandes cantidades de residuos. Incluye edificios de apartamentos, condominios, supermercados, locales comerciales, centros comerciales, centros educativos, centros médicos, instituciones públicas y privadas.
+Incentivos: Se refiere al beneficio otorgado a los generadores que contribuyen con una correcta gestión, demostrando minimización y la aplicación de la jerarquización en la gestión integral de los residuos.
+Inspector: funcionario competente para la vigilancia, la prevención, el levantamiento y la inspección tanto de campo como tecnológica de las posibles infracciones y sanciones a las leyes y a este reglamento.
+Licencia comercial: Licencia municipal para ejercer actividades comerciales.
+Lixiviados: Líquido que se forma por la reacción, arrastre o filtrado de los materiales contenidos en los residuos y que contiene en forma disuelta o en suspensión sustancias que pueden infiltrarse en los suelos o escurrirse fuera de los sitios en los que se depositen residuos sólidos y que puede dar lugar a la contaminación del suelo y de cuerpos de agua.
+Manejo de Residuos: Conjunto de actividades técnicas y operativas de la gestión de residuos que incluye almacenamiento, recolección, transporte, valorización, tratamiento y disposición final de los residuos sólidos ordinarios, valorizables y no tradicionales que se generan en el Cantón.
+Patentado: Persona física o jurídica que cuenta con licencia comercial para ejercer actividades lucrativas.
+Patente Municipal: Es una obligación de carácter tributario que surge como consecuencia del ejercicio de las actividades lucrativas que previamente fueron autorizadas por la corporación municipal al otorgar la licencia comercial.
+Plan Municipal de Gestión Integral de Residuos (PMGIR): Instrumento que define la política cantonal en la materia y orientará las acciones municipales y/o cantonales en el tema dentro del área de su competencia. Es resultado de un proceso de planificación que se elabora de preferencia de forma participativa por la municipalidad incorporando los diversos actores del Cantón. Debe incorporar los elementos establecidos en el Artículo 22 del Reglamento General a la Ley para la Gestión Integral de Residuos Nº 37567-S-MINAET-H:
+Poseedor: Persona física o jurídica que ejerce el dominio sobre un inmueble sin contar con título inscrito en el Registro Público.
+Producción más limpia: Estrategia preventiva integrada que se aplica a los procesos productivos, productos y servicios, a fin de aumentar la eficiencia y reducir los riesgos para los seres humanos y el ambiente.
+Propietario: Persona física o jurídica que ejerce el dominio sobre bienes inmuebles mediante documento público inscrito en el Registro Público.
+Reciclaje: transformación de los residuos por medio de distintos procesos de valorización que permiten restituir su valor económico y energético, evitando así su disposición final, siempre y cuando esta restitución implique un ahorro de energía y materias primas sin perjuicio para la salud y el ambiente.
+Recolección: Acción de recolectar los residuos de competencia municipal en las fuentes de generación o recipientes, de acuerdo a lo establecido en este reglamento, para ser trasladados a las estaciones de transferencia, instalaciones de tratamiento, o disposición final.
+Recolección Privada: Todo aquel proceso de recolección que se realice de manera directa entre un generador y un gestor de residuos dentro del territorio del Cantón, sin la participación directa de la Municipalidad en el proceso.
+Recolección selectiva: Servicio de recolección separada de residuos previamente separados en la fuente que permite que ciertos residuos puedan ser valorizados.
+Relleno Sanitario: Método de ingeniería para la disposición final de los residuos que se generan en el Cantón de acuerdo con el Reglamento de Rellenos Sanitarios.
+Residuo:Material sólido, semisólido, líquido o gas, cuyo generador o poseedor debe o requiere deshacerse de él, y que puede o debe ser valorizado o tratado responsablemente o, en su defecto, ser manejado por sistemas de disposición final adecuados.
+Residuo ordinario: Residuos de carácter doméstico generados en viviendas y en cualquier otra fuente, que presentan composiciones similares a los de las viviendas. Se excluyen los residuos de manejo especial o peligroso.
+Residuo punzo-cortante: Todo objeto con capacidad de penetrar y/o cortar tejidos, entre ellos, instrumental médico quirúrgico; artículos de laboratorio, instrumental de odontología, así como artículos de uso general: como bombillos (todo tipo), tubos fluorescentes y todo tipo de grapas y bandas de metal y plástico.
+Residuo Sólido: Material sólido o semi-sólido, pos consumo cuyo generador o poseedor debe o requiere deshacerse de él.
+Separación de Residuos: Procedimiento mediante el cual se evita desde la fuente generadora que se mezclen los residuos, lo que permite que éstos se dispongan de forma separada, con fines de recolección.
+Separación en la Fuente: Procedimiento mediante el cual se evita desde la fuente generadora que se mezclen los residuos, para facilitar el aprovechamiento de materiales valorizables.
+Servicio de Gestión de Residuos: La gestión de los residuos de competencia municipal incluye principalmente el almacenamiento, recolección, barrido y limpieza de vías y espacios públicos, así como el transporte, transferencia, tratamiento y disposición final de los residuos.
+Servicios Municipales: Conjunto de servicios de manejo de residuos sólidos, limpieza de vías, mantenimiento de zonas verdes y limpieza de alcantarillado pluvial que presta la Municipalidad conforme sus capacidades.
+Sistema de Almacenamiento Colectivo: Es un área definida y cerrada, destinada al almacenamiento colectivo temporal de residuos sólidos, a la espera del servicio de recolección.
+Sujeto Pasivo: Toda persona física o jurídica obligada al cumplimiento de las prestaciones tributarias, en calidad de contribuyente, ya sea como propietario de un terreno al cual se le presta el servicio.
+Tarifa: Denominación que se le da a la expresión matemática que representa el costo que debe cancelar el contribuyente por la prestación efectiva o potencial del servicio público.
+Tasa del servicio público: Tributo cuya obligación tiene como hecho generador la prestación efectiva o potencial de un servicio público, individualizado en el contribuyente y cuyo producto no debe tener un destino ajeno al servicio, razón de ser de la obligación.
+Tratamiento: Transformación de los residuos o partes específicas a nuevos productos o al cambio de las características, como son el reciclaje, compostaje, tratamiento mecánico-biológico, tratamiento térmico, entre otros.
+Unidad servida: Residencia, institución, comercio e industrial al cual se le brinda el servicio.
+Usuario: Tiene la categoría de usuario para los efectos de la prestación de los servicios aquí regulados, toda persona física y jurídica, que resulte afectada o beneficiada de los servicios de la GIR.
+Usufructuario: Persona física que ostenta un derecho real de goce de un bien mueble perteneciente a otra persona.
+Valorización: Conjunto de acciones asociadas cuyo objetivo es dar un valor agregado a los residuos para los procesos productivos mediante la recuperación de materiales y/o el aprovechamiento energético y el uso racional de los recursos.
+Vertedero: Sitio sin preparación previa, donde se depositan los residuos, sin técnica o mediante técnicas muy rudimentarias y en el que no se ejerce un control adecuado.
+Vía Pública: Es todo terreno de dominio público y de uso común, que por disposición de la autoridad administrativa se destinare al libre tránsito, de conformidad con las leyes y reglamentos de planificación urbana, además incluye aquel terreno que de hecho se ha destinado al uso público.
+Zona Verde: Terreno público no construido cubierto parcial o totalmente con vegetación (zacate, árboles o arbustos).

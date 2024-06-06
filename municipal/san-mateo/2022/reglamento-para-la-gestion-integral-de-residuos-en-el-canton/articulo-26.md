@@ -1,0 +1,1 @@
+Artículo 26. Residuos No Valorizables. Corresponde a los residuos no peligrosos y sin alternativas viables de recuperación que no se incluyen en alguna de las clasificaciones anteriores, así como los tipificados como tales en el Artículo 14 del presente reglamento. Incluye residuos de los servicios sanitarios, del barrido y residuos de tela.

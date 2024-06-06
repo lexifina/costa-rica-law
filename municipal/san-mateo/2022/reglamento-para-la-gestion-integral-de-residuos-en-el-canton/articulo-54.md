@@ -1,0 +1,2 @@
+Artículo 54. Nuevas Construcciones. En la solicitud de permisos de construcción y/o remodelación que se realiza ante el Departamento de Desarrollo Urbano y Catastro a fin de ser revisados y aprobados por el Departamento de Gestión Ambiental, se deben indicar claramente las especificaciones de tamaño y ubicación de los sistemas de almacenamiento colectivo de residuos cuando el predio los requiera, según las
+indicaciones de los Artículos 51 y 52 del presente reglamento.

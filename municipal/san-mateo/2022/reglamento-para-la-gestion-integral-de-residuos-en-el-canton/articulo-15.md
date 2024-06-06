@@ -1,0 +1,1 @@
+Artículo 15. Residuos Electrónicos. Corresponde a los residuos de origen tecnológico, especificados en el Reglamento para la Gestión Integral de Residuos Electrónicos, Decreto Ejecutivo 35933-S, publicado el 5 de mayo de 2010.

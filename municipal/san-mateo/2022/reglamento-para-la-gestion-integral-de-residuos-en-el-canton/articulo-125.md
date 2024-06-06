@@ -1,0 +1,1 @@
+Artículo 125. Asignación de los Incentivos. El Departamento de Gestión Ambiental establecerá el procedimiento técnico para la asignación de los incentivos y recursos indicados en el Artículo 123 del presente reglamento, de forma que se corrobore y evalúe la idoneidad de los candidatos y sus propuestas.

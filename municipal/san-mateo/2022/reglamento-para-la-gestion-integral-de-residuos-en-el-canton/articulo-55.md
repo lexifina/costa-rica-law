@@ -1,0 +1,1 @@
+Artículo 55. Diseño de los Sistemas de Almacenamiento Colectivo. El diseño de los sistemas de almacenamiento colectivo debe ser aprobado por el Departamento de Gestión Ambiental de la Municipalidad, quien podrá brindar asesoramiento técnico concerniente a su correcto diseño, tamaño y localización en la propiedad.
