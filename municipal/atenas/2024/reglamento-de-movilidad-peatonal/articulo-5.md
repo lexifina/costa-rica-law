@@ -1,0 +1,3 @@
+Artículo 5: prioridad de atención para el mantenimiento, rehabilitación y construcción de aceras.
+La corporación municipal deberá incluir en sus próximos planes Quinquenales Viales, el diseño y ejecución de la aceras y vías peatonales del cantón, de forma que gradualmente y de manera sostenible se atiendan las necesidades de la población.
+Durante el periodo que se diseña o actualiza el instrumento de planificación quinquenal, la Junta Vial Cantonal realizará la priorización con base en la tabla de la norma INTE W85 y el artículo 9 de la Ley de Movilidad N°9976 e integrarlo al plan quinquenal vial que se encuentre vigente.

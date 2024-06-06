@@ -1,0 +1,2 @@
+Artículo 2. Alcance
+El presente reglamento tiene como alcance la jurisdicción del Cantón de Atenas en el ámbito del territorio bajo su tutela, es decir: en lo que corresponde a las aceras y vías de movilidad peatonal existentes y proyectadas. Las disposiciones de este reglamento son aplicables a toda persona física, jurídica, propietaria o poseedora por cualquier título de bienes inmuebles ubicados en el cantón de Atenas.
