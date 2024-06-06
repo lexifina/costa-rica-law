@@ -1,0 +1,1 @@
+Artículo 19. Recargos o sustituciones. En caso de recargos o sustitución se debe comunicar sobre quien recaerá según las disposiciones institucionales en la materia y no estarán sujetos a la autorización de la Contraloría General de la República, pero sí a su fiscalización.

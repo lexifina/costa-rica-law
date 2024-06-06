@@ -1,0 +1,1 @@
+Artículo 41. Seguimiento de los servicios de asesoría. Le corresponderá a la Auditoría Interna verificar lo actuado por la Junta Directiva y los titulares subordinados respecto de la asesoría que se haya brindado, en relación con las acciones tomadas de acuerdo con el ordenamiento jurídico y técnico, sin perjuicio.

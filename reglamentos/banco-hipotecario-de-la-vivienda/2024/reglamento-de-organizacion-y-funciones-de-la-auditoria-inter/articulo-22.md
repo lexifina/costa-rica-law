@@ -1,0 +1,1 @@
+Artículo 22. Manual de puestos. El descriptivo de puestos del Banco Hipotecario de la Vivienda deberá establecer y mantener actualizadas las funciones para el cargo de Auditor interno, de conformidad con las disposiciones de la Contraloría General de la República al respecto.

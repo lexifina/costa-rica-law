@@ -1,0 +1,1 @@
+Artículo 46. El Auditor Interno comunicará a la Junta Directiva, los resultados de las evaluaciones internas (continuas y periódicas) y las evaluaciones externas, llevadas a cabo por lo menos una vez cada cinco años, por un evaluador o equipo de evaluación calificado e independiente

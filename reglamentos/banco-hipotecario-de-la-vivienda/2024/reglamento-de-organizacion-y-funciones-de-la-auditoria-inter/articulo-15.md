@@ -1,0 +1,4 @@
+CAPÍTULO III
+Ubicación y estructura de la Auditoría Interna
+Artículo 15. Ubicación y estructura. La Auditoría Interna, conforme a sus competencias, es el órgano asesor principal de la Junta Directiva en materia de control interno y dependerá orgánicamente de la Junta Directiva, con quien coordinará los asuntos de interés que corresponda.
+Se organizará para su funcionamiento conforme lo disponga el Auditor Interno, de conformidad con lo establecido en el artículo 23 de la Ley General de Control Interno y acorde con las disposiciones que emita la Contraloría General de la República y la demás normativa que regula al Banco Hipotecario de la Vivienda, con el propósito de garantizar la administración eficaz, eficiente y económica de los recursos, en el logro de los objetivos y el cumplimiento de las obligaciones legales y técnicas.

@@ -1,0 +1,1 @@
+Artículo 17. Ámbito de acción El ámbito de acción de la Auditoría Interna está conformado por el Banco Hipotecario de la Vivienda y aquellas instancias que formen parte del alcance de competencias y potestades establecidas en el artículo 22 de la Ley General de Control Interno.

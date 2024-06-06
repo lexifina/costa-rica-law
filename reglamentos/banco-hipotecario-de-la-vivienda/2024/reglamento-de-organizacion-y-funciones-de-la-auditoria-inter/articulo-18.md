@@ -1,0 +1,1 @@
+Artículo 18. Jerarquía. La Auditoría Interna estará bajo la responsabilidad y dirección del Auditor Interno y le corresponde dictar los lineamientos, políticas, directrices e instrucciones según la normativa legal y técnica y solo en caso de ausencia justificada, se deberá cumplir con lo dispuesto en las directrices emitidas por la Contraloría General de la República.
