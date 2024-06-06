@@ -1,0 +1,1 @@
+Artículo 9°. La UNIDAD EJECUTORA remitirá por escrito al FIDEICOMISARIO, mediante una Resolución Administrativa, que el FIDEICOMISO cuenta con los recursos disponibles para otorgar la garantía correspondiente, siempre basada dicha aprobación en la disponibilidad de recursos del FIDEIMAS.

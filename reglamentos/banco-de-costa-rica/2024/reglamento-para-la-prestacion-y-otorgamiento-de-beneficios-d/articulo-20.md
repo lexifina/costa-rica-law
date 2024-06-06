@@ -1,0 +1,2 @@
+Artículo 20º. Supuestos para el pago del aval:
+Para el pago del saldo de la operación conforme al porcentaje garantizado, el FIDEICOMISARIO GARANTIZADO deberá presentar mínimo, documento de subrogaciónde derechos una declaración jurada del monto a cobrar, detallando el monto financiado, porcentaje de garantía, y saldo principal e intereses atrasados, tabla de cálculo del monto a pagar, detalle de las gestiones de cobro, y carta de solicitud firmada por el representante del FIDEICOMISARIO GARANTIZADO, que este facultado al efecto.

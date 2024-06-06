@@ -1,0 +1,1 @@
+Artículo 42°. Seguimiento y cobro. La Unidad Ejecutora con la información que suministre el FIDUCIARIO deberá establecer los mecanismos necesarios para controlar la morosidad de las operaciones de crédito, y tomar las acciones que correspondan

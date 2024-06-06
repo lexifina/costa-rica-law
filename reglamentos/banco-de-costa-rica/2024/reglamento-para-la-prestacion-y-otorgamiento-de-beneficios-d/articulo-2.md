@@ -1,0 +1,1 @@
+Artículo 2°. Alcance. El presente Reglamento es de acatamiento obligatorio para los miembros del COMITÉ DIRECTOR, personas funcionarias de la UNIDAD EJECUTORA del Fideicomiso, del IMAS por medio de sus oficinas o dependencias involucradas y del FIDUCIARIO.
