@@ -14,3 +14,4 @@ Aprueba el lanzamiento de una tercera emisión digital de 2 fracciones de todas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-14 | la propia norma |
+| 2 | 2024-06-07 | Acuerdo 242 (2024-06-07) |

@@ -7,4 +7,7 @@ Los planes de premios se mantienen constantes, para el caso de la tercera emisi�
 [imagen]
 [imagen]
 [imagen]
-b) A futuro, considerando el monto que se encuentre acumulado y siempre y cuando se cuente con una disminución en los porcentajes de devolución estimados, se autoriza el incremento en la emisión de los sorteos Ordinarios de Lotería Nacional y Popular, en los términos indicados en el inciso anterior, incremento que se mantendrá hasta que salga el premio Acumulado. En esos casos, la emisión incrementada se pondrá a disposición en el canal digital, en cortes de 1 y 2 fracciones o incluso una mayor cantidad en caso que el mercado lo permita.
+b) A futuro, y de conformidad con estudios técnicos que consideren las variables del monto que se encuentre acumulado y se cuente con una disminución en los porcentajes de devolución estimados, se autoriza a la Gerencia de Producción, Comercialización y Operaciones realizar el incremento en la emisión de los sorteos Ordinarios de Lotería Nacional y Popular, con el plan de premios vigente y con la mecánica vigente para el acumulado. En esos casos, la emisión incrementada se pondrá en el canal digital, en cortes de 1 y 2 fracciones o incluso una mayor cantidad si el mercado lo permite.
+Es responsabilidad de dicha gerencia monitorear que se cumplan esas condiciones y tomar oportunamente la decisión de suspender la tercera emisión.
+La Gerencia de Producción, Comercialización y Operaciones deberá comunicar a la Junta Directiva lo actuado y enviar un informe sobre los resultados.
+(Así reformado el punto b) anterior mediante acuerdo N° JD-242 aprobado en sesión N° 28-2024 del 7 de junio de 2024)
