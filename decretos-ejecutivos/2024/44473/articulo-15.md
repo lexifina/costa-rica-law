@@ -1,0 +1,1 @@
+Artículo 15.-Frecuencia de las sesiones. La comisión deberá sesionar de forma ordinaria cuatro veces al año y extraordinariamente cuando lo convoque su coordinador o por solicitud escrita de al menos cinco integrantes.

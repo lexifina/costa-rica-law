@@ -1,0 +1,1 @@
+Artículo 11.-Renuncias. En caso de renuncia de los representantes designados por las instituciones u organizaciones que integran la CODESOSA, se deberá de informar de la misma y nombrar nuevo representante que será juramentado por el Coordinador.

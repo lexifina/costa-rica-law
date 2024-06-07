@@ -1,0 +1,1 @@
+Artículo 7º-Acreditación. Las instituciones y organizaciones que integran la CODESOSA conforme el artículo 3 de la Ley 10152, deberán acreditarse por medio de oficio firmado por su representante legal, dirigido al Ministro de Ambiente y Energía, con los nombres de las personas representantes titular y suplente. Deberá incluir medios de notificación y contacto.

@@ -1,0 +1,1 @@
+Artículo 14.-De las actas. La persona que funja como Coordinador levantará el acta y remitirá en un plazo no mayor a un mes natural, para previa lectura y aprobación por los participantes de la siguiente reunión. Cuando exista una objeción a acuerdos por parte de alguno de los miembros, esta deberá estar motivada y consignada en el acta.

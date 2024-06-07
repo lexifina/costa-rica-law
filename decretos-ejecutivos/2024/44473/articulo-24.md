@@ -1,0 +1,1 @@
+Artículo 24.-Traslado de información. La Dirección de Agua para cada período presupuestario, deberá informar a la CODESOSA, el monto de canon proyectado de ingresos esperados anual y el contenido presupuestario autorizado conforme la integración de lo dispuesto en artículo 23.

@@ -1,0 +1,1 @@
+Artículo 2º-Alcance de la salvaguarda. Para efectos de la salvaguarda del cauce principal del Río Sarapiquí se definen las siguientes coordenadas en el sistema oficial de coordenadas planas para Costa Rica CRTM05 del curso de rio afectado: para su nacimiento 487017 este y 1121935 norte y la desembocadura al Río San Juan en 507000 este y 1184766 norte.

@@ -1,0 +1,1 @@
+Artículo 18.-Inhibición justificada. Los miembros de la Comisión deberán de inhibirse de votar en asuntos que comprometan su mandato, para ello deberá justificarlo y motivarlo, lo que se hará constar en el acta respectiva. En caso de que se determine la dificultad o imposibilidad de la imparcialidad de alguno de los miembros, éste podrá ser recusado.

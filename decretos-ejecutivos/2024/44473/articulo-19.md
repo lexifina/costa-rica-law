@@ -1,0 +1,1 @@
+Artículo 19.-Sitios de reunión. La CODESOSA tendrá como domicilio la Municipalidad de Sarapiquí como instalaciones principales; pero podrá realizar sus reuniones en otros lugares de la cuenca previo acuerdo de los miembros.

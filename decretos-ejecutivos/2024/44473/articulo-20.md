@@ -1,0 +1,1 @@
+Artículo 20.-Procedimiento ante ausencias injustificadas. De darse dos ausencias consecutivas injustificadas a sesiones ordinarias y extraordinarias por parte de los representantes acreditados en su periodo de nombramiento, el Coordinador comunicará al jerarca u órgano competente de la entidad que representan, quien deberá proceder a nombrar un nuevo representante.

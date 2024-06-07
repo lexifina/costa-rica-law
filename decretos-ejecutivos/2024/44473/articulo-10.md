@@ -1,0 +1,1 @@
+Artículo 10.-Coordinación. De la totalidad de los miembros de la Comisión, y conforme el artículo 4 de la Ley 10152, se nombrará de su seno un Coordinador y un Subcoordinador por un periodo de dos años, quien será el responsable de realizar las convocatorias, llevar las actas y gestionar los acuerdos respectivos de la CODESOSA. Se podrán reelegir una vez de forma consecutiva.
