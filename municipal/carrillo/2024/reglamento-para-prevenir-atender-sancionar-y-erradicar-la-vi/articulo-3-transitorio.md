@@ -1,0 +1,1 @@
+III.-Se autorice a la secretaria municipal para que realice el trámite de su publicación. Este reglamento regirá a partir del día siguiente al de su publicación en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado.
