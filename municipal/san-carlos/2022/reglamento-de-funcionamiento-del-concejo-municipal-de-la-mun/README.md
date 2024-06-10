@@ -15,3 +15,4 @@ Reglamento de funcionamiento del Concejo Municipal de la Municipalidad de San Ca
 | --- | --- | --- |
 | 1 | 2023-03-09 | la propia norma |
 | 2 | 2023-08-07 | Reglamento municipal 0 (2023-08-07) |
+| 3 | 2024-06-10 | Reglamento municipal 0 (2024-06-10) |
