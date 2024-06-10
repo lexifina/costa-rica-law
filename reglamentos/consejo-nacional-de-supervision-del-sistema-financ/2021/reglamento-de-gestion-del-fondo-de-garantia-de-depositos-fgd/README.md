@@ -15,3 +15,4 @@ Reglamento de gestión del fondo de garantía de depósitos (FGD) y de otros fon
 | --- | --- | --- |
 | 1 | 2021-05-04 | la propia norma |
 | 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
+| 3 | 2024-06-10 | Reglamento 1867 (2024-06-10) |
