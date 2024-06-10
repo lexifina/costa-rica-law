@@ -1,0 +1,4 @@
+CAPÍTULO III
+Fase de explotación de la licencia comercial
+Artículo 21.-Inspección y fiscalización de condiciones. Una vez que la Municipalidad otorga una licencia comercial temporal especial, será competencia de la Unidad de Inspecciones en colaboración con la Policía Municipal de resultar necesario, realizar periódicamente inspecciones en los sitios donde se autorizó el despliegue de la actividad comercial, con el fin de verificar el cumplimiento de lo establecido en este reglamento y el mantenimiento de las condiciones a partir de las cuáles se aprobó la licencia.
+De verificarse incumplimientos en el despliegue de la actividad, la unidad correspondiente deberá remitir un informe al departamento encargado de aprobar licencias comerciales, con tal de que realice un único apercibimiento requiriendo el ajuste de la actividad a derecho, cuyo nuevo incumplimiento podrá derivar en la apertura de un procedimiento administrativo tendiente a la revocación de la licencia.

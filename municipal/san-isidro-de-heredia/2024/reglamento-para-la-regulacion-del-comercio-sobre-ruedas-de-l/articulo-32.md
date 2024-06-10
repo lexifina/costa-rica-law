@@ -1,0 +1,1 @@
+Artículo 32.-Fase recursiva. Contra los actos sancionatorios emitidos al amparo del presente reglamento y contra la denegatoria de las licencias comerciales temporales especiales, cabrán los recursos previstos en el artículo 171 del Código Municipal.

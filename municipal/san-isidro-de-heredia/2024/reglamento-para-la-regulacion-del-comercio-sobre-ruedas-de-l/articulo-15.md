@@ -1,0 +1,5 @@
+Artículo 15.-Conocimiento de la gestión por parte del Concejo. Recibido por parte del Concejo Municipal el criterio técnico vertido por la Unidad Técnica de Gestión Vial y el expediente administrativo, contará con un plazo de diez días hábiles para su valoración y para la emisión del acuerdo que aprueba o imprueba el permiso de ubicación para uso en precario. Dicho acuerdo deberá incluir:
+a) Los antecedentes del trámite, haciendo mención expresa al visto bueno preliminar del departamento encargado de la emisión de las licencias comercial y de la Unidad Técnica de Gestión Vial.
+b) El otorgamiento o denegatoria del permiso de ubicación para uso en precario con las razones que justifican la decisión.
+c) El plazo del permiso de ubicación para uso en precario, el cual no podrá ser superior a un año calendario.
+Asimismo, el acuerdo ordenará la remisión del expediente administrativo al departamento encargado de la aprobación de licencias comercial, con tal de que esta emita la licencia respectiva (incluyendo tanto la resolución de otorgamiento como la licencia física) y comunique al administrado el monto a pagar por el derecho de explotación.

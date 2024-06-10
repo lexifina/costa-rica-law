@@ -1,0 +1,4 @@
+SECCIÓN II
+Licencia sobre inmuebles de naturaleza pública
+Artículo 9º-Licencia sobre inmuebles de naturaleza pública. Cuando la actividad comercial se pretenda desarrollar sobre inmuebles o porciones de terreno de naturaleza pública, la licencia no creará a favor de las personas licenciatarias ningún derecho real ni acción posesoria sobre los espacios utilizados. La licencia se tendrá en todo momento como de carácter temporal.
+En tales casos, se entiende que la licencia lleva implícito un permiso de ubicación para uso en precario en los términos del artículo 154 de la Ley General de Administración Pública y por el plazo establecido en este reglamento. Por consiguiente, se entiende que el permiso de uso en precario contenido dentro de la autorización, y por consiguiente la licencia misma, podrá ser revocada sin responsabilidad de la Administración por razones de interés público, oportunidad o conveniencia en los términos del numeral indicado.

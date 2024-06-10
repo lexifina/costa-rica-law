@@ -1,0 +1,2 @@
+Artículo 16.-Plazo de otorgamiento de la autorización de comercio sobre ruedas. El plazo de vigencia de la licencia comercial temporal especial queda sujeto al plazo aprobado por parte del Concejo Municipal, por lo que no podrá superar el año calendario.
+El plazo de la licencia podrá ser prorrogable por un periodo igual, con la presentación por parte del interesado del permiso de funcionamiento del Ministerio de Salud vigente, la renovación del permiso de ubicación para uso en precario y el cumplimiento de las características previamente aprobadas.
