@@ -1,2 +1,0 @@
-Artículo 8º—Sanciones: El incumplimiento en el suministro de la información de trascendencia tributaria, requerida por la Administración Tributaria a través de la herramienta AMPO, o la presentación de información con errores o que no corresponda a lo solicitado, se califica como una infracción administrativa, tipificada en el artículo 83 del Código de Normas y Procedimientos Tributarios, por lo que será sancionado de conformidad con lo dispuesto en dicho artículo.
-(Así reformado por el artículo 1° de la resolución DGT-R-54-2017 del 7 de diciembre de 2017)
