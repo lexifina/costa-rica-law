@@ -1,14 +1,4 @@
-Capítulo V
-Comité de Negocios Esfera
-Artículo 32. De la integración
-El Comité de Negocios Esfera es presidido por el subgerente de Banca Corporativa y Empresarial y está conformado por las personas que ocupen los siguientes cargos:
-. Subgerente de Banca Corporativa y Empresarial
-. Gerente Corporativo Finanzas
-. Gerente corporativo de Operaciones
-. Gerente de Negocios Esfera
-. Gerente de Desarrollo de Negocios Banca Corporativa y Empresarial
-Este Comité cuenta con la facultad de requerir la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto y son:
-. Gerente corporativo de Riesgo o quien este designe
-. Gerente corporativo Jurídico o quien este designe
-. Gerente de Banca de Inversión
-Además, según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a las personas trabajadoras que estime conveniente.
+Artículo 32. Sustitución de los miembros
+En ausencia temporal de alguno de los miembros de cada comité, el titular del cargo debe designar quién lo sustituye temporalmente por motivo de vacaciones, incapacidades, ausencias por capacitaciones, entre otros motivos. El sustituto, debe cumplir las competencias suficientes y necesarias para su representación y ejercer el cargo con las mismas atribuciones de voz y voto del titular.
+Cuando una persona trabajadora deje de ejercer el puesto que lo habilita como miembro de un órgano colegiado, este debe ser sustituido por quién sea designado a ejercer ese cargo.
+En el caso de que tanto el titular como quien lo sustituya dejen sus respectivos cargos, el gerente general está facultado para designar temporalmente un sustituto que ejerza el cargo con las mismas atribuciones de voz y voto del titular hasta que se nombre un nuevo funcionario en el rol designado. Esta atribución aplica para las posiciones cuya designación sea de competencia del Gerente General.

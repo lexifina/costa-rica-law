@@ -1,4 +1,11 @@
-Artículo 48. Preparación de agenda
-Las áreas que requieran presentar temas ante el un comité, deben enviar por correo electrónico el formulario 53-ZD_Memorando para solicitar inclusión de temas en sesiones de órganos colegiados con la documentación de soporte a la secretaria o persona encargada del comité correspondiente, según lo establecido en el Procedimiento para la aplicación del modelo de medición de efectividad de los órganos colegiados del Conglomerado Financiero BCR.
-En los casos que el comité sesione semanalmente o dos veces al mes, la documentación debe remitirse, a más tardar tres días antes de que se efectúe la sesión, para que la secretaria o persona encargada realice el cierre de la agenda. En los casos que comité sesione de forma mensual, bimestral, trimestral o semestral, la documentación debe remitirse con cinco días de anticipación.
-Como punto de agenda se debe incorporar la presentación, por parte de la persona designada por el Comité, el informe sobre el estado y seguimiento de los acuerdos pendientes.
+Capítulo II
+Comisión institucional para la promoción de la igualdad y equidad efectiva
+Artículo 48. De la integración
+La Comisión institucional para la promoción de la igualdad y equidad efectiva es presidida por la gerente de Responsabilidad Social Corporativa y está conformada por las personas que ostenten los siguientes cargos:
+. Gerente de Responsabilidad Social Corporativa
+. Gerente corporativo Jurídico o la persona que este designe
+. Gerente corporativo de Capital Humano o la persona que este designe
+. Jefe de Gobierno Corporativo o la persona que este designe
+. Representante del área de Comunicación Interna
+La Comisión institucional para la promoción de la igualdad y equidad efectiva está facultada para requerir la asistencia permanente de invitados a las sesiones, de nivel gerencial del Conglomerado o externos, con el propósito de brindar apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero no voto.
+Según los temas específicos que forman parte del orden del día, la Comisión en mención puede invitar a las personas trabajadoras que estime conveniente. En el caso de las subsidiarias, se consideran invitados los gerentes generales o el ejecutivo de alto nivel que los sustituya en su ausencia; en particular cuando se traten temas que les interesen.

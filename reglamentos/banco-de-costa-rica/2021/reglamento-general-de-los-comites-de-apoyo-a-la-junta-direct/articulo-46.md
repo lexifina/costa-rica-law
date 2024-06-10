@@ -1,2 +1,2 @@
-Artículo 46. Comunicación de acuerdos
-Los acuerdos ratificados son comunicados por las personas designadas por cada comité a los responsables de su atención y depositados en el repositorio oficial establecido. Para la atención de los acuerdos se establece un plazo máximo de seis semanas. En caso de que se requiera mayor plazo debido a la complejidad del tema, el responsable de su atención debe justificar y tramitar la ampliación del plazo, con la persona encargada de dar seguimiento a los pendientes.
+Artículo 46. De la periodicidad de las reuniones
+Las reuniones del Comité Institucional de Selección y Eliminación de Documentos se celebran al menos trimestralmente, en la fecha y hora que determine el Comité, salvo que se requiera antes, por razones de oportunidad y a solicitud del presidente.

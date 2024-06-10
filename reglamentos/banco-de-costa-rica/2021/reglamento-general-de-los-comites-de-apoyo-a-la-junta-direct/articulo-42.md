@@ -1,2 +1,4 @@
-Artículo 42. Seguimiento de acuerdos y pendientes
-Los comités deben contar con una secretaria o persona designada de brindar seguimiento a los acuerdos tomados en cada una de las reuniones, quien debe brindar según la periodicidad del comité, un informe detallado, sobre el seguimiento realizado y los resultados obtenidos.
+Artículo 42. Preparación de agenda
+Las áreas que requieran presentar temas ante el un comité, deben enviar por correo electrónico el formulario 53-ZD_Memorando para solicitar inclusión de temas en sesiones de órganos colegiados con la documentación de soporte a la secretaria o persona encargada del comité correspondiente, según lo establecido en el Procedimiento para la aplicación del modelo de medición de efectividad de los órganos colegiados del Conglomerado Financiero BCR.
+En los casos que el comité sesione semanalmente o dos veces al mes, la documentación debe remitirse, a más tardar tres días antes de que se efectúe la sesión, para que la secretaria o persona encargada realice el cierre de la agenda. En los casos que comité sesione de forma mensual, bimestral, trimestral o semestral, la documentación debe remitirse con cinco días de anticipación.
+Como punto de agenda se debe incorporar la presentación, por parte de la persona designada por el Comité, el informe sobre el estado y seguimiento de los acuerdos pendientes.

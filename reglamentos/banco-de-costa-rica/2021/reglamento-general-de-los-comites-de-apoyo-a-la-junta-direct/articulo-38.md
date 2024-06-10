@@ -1,4 +1,3 @@
-Artículo 38. Sustitución de los miembros
-En ausencia temporal de alguno de los miembros de cada comité, el titular del cargo debe designar quién lo sustituye temporalmente por motivo de vacaciones, incapacidades, ausencias por capacitaciones, entre otros motivos. El sustituto, debe cumplir las competencias suficientes y necesarias para su representación y ejercer el cargo con las mismas atribuciones de voz y voto del titular.
-Cuando una persona trabajadora deje de ejercer el puesto que lo habilita como miembro de un órgano colegiado, este debe ser sustituido por quién sea designado a ejercer ese cargo.
-En el caso de que tanto el titular como quien lo sustituya dejen sus respectivos cargos, el gerente general está facultado para designar temporalmente un sustituto que ejerza el cargo con las mismas atribuciones de voz y voto del titular hasta que se nombre un nuevo funcionario en el rol designado. Esta atribución aplica para las posiciones cuya designación sea de competencia del Gerente General.
+Artículo 38. Secretaría
+Cada comité debe designar una persona de apoyo para el control de agendas, elaboración de actas y seguimiento de pendientes en cada una de las sesiones. Esta persona debe documentar en el acta la asistencia a cada reunión del comité que le corresponde guardar estricta confidencialidad sobre los temas que se comenten.
+Para el Comité Corporativo de Auditoría, este rol lo desempeña la Secretaría de la Junta Directiva General.

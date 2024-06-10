@@ -1,2 +1,4 @@
-Artículo 34. De la periodicidad de las reuniones
-Las reuniones se deben celebrar al menos una vez cada tres meses, sin perjuicio de que pueda sesionar en períodos más cortos si así lo amerita, el día y la hora que este Comité determine, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Artículo 34. Del quorum
+El quorum de funcionamiento queda válidamente constituido con la mayoría simple (presencia de la mitad más uno de sus integrantes con voz y voto).
+Para los comités corporativos que en su conformación participen miembros del órgano de dirección, no podrán sesionar cuando la Junta Directiva General, por motivo del vencimiento de los nombramientos de sus directores, esté desintegrada. Esto hasta que el órgano de dirección esté nuevamente integrado y nombre a los directores en cada comité.
+La Secretaría General Junta Directiva es la encargada de informar a los entes supervisores la situación dada.

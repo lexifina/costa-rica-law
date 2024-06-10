@@ -1,2 +1,3 @@
-Artículo 52. De la periodicidad de las reuniones
-Las reuniones del Comité Institucional de Selección y Eliminación de Documentos se celebran al menos trimestralmente, en la fecha y hora que determine el Comité, salvo que se requiera antes, por razones de oportunidad y a solicitud del presidente.
+Artículo 52. Del funcionamiento de la Comisión
+La Comisión Institucional para la promoción de la igualdad y equidad efectiva tiene como marco de actuación, las leyes y decretos ejecutivos que promueven la erradicación de prácticas discriminatorias, siendo su alcance los grupos de interés que en forma prioritaria sean así establecidos por la estrategia corporativa del Conglomerado Financiero BCR.
+Además, se rige por todas las disposiciones que le sean aplicables, de acuerdo con el título II de este Reglamento.

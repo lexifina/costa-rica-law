@@ -1,12 +1,13 @@
-Título IV
-Comisiones de apoyo
-Capítulo I
-Comité Institucional de Selección y Eliminación de Documentos
-Artículo 50. De la Integración
-De conformidad con lo establecido en la Ley del Sistema Nacional de Archivos, el Comité Institucional de Selección y Eliminación de Documentos (CISED) está conformado por:
-. El archivista general
-. Un representante de la administración superior nombrado por el Gerente General
-. Un representante de la Gerencia Corporativa Jurídica de la institución
-Según los temas específicos que forman parte del orden del día, el comité en mención puede invitar a las personas trabajadoras que estime conveniente.
-Entre los miembros del comité, se debe nombrar un presidente y un secretario, quienes deben ser electos por mayoría absoluta por un periodo de un año y con la posibilidad de ser reelectos.
-Para el análisis de la tabla de plazos de conservación de documentos, cuando así se requiera, se puede invitar al superior jerárquico de la oficina productora que solicita la gestión o quien este designe, para garantizar la idoneidad y conocimiento respecto de los documentos. Este participa con voz, pero sin voto dentro del Comité.
+Artículo 50. De las funciones
+La Comisión institucional para la promoción de la igualdad y equidad efectiva tiene las siguientes funciones:
+a. Vigilar por la incorporación activa de la promoción de la igualdad y equidad efectiva en los procesos de planeación y toma de decisiones estratégicas del Conglomerado Financiero del Banco de Costa Rica, con el fin de darle la trazabilidad y gobernanza al tema dentro de la visión de un modelo de negocio sostenible.
+b. Establecer un Plan anual de trabajo para la promoción de la igualdad y equidad efectiva que considere las directrices del Plan Estratégico del Conglomerado Financiero BCR y los lineamientos institucionales que sobre esta materia emita la Administración Superior del Banco, así como la disponibilidad de recursos humanos y presupuestarios para su debida diligencia.
+c. Dar seguimiento al cumplimiento del Plan anual de trabajo para la promoción de la igualdad y equidad efectiva.
+d. Proponer la normativa que promueva la igualdad efectiva y cualquier otro tipo de prácticas discriminatorias por razones de orientación sexual o identidad de género reguladas por leyes o decretos ejecutivos.
+e. Procurar los recursos humanos, materiales y técnicos para cumplir con el Plan anual de trabajo para la promoción efectiva de igualdad y equidad.
+f. Someter a conocimiento y aprobación del Comité Corporativo Ejecutivo, la Junta Directiva General o de las juntas directivas de las subsidiarias según corresponda, los planes y propuestas de contribución estratégica que impulsen la promoción efectiva de igualdad y equidad.
+g. Gestionar los requerimientos internos y externos relacionados con la promoción de la igualdad y equidad efectiva para que se coordinen las decisiones que se consideren procedentes.
+h. Coordinar con las áreas relacionadas el diseño y ejecución de planes tácticos de comunicación que contribuyan al conocimiento y divulgación de las acciones consideradas dentro del Plan de anual de trabajo de la Comisión para la promoción de la igualdad y equidad efectiva.
+i. Coordinar con la instancia encargada de los procesos de capacitación del Conglomerado Financiero BCR, para que se incluyan las temáticas de igualdad y equidad y de orientación sexual, en el marco de derechos humanos.
+j. Coordinar los enlaces institucionales o privados para la adecuada gestión de la promoción de la igualdad y equidad efectiva.
+k. Vigilar por la estandarización institucional de un lenguaje de género que promueva la igualdad y la deconstrucción de estereotipos discriminativos en los instrumentos normativos, en las decisiones del negocio y en toda comunicación interna y externa del Conglomerado Financiero BCR.

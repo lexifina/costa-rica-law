@@ -1,5 +1,6 @@
 Artículo 2. De las funciones
 Para cumplir con lo establecido en el acuerdo Conassif 04-16 Reglamento de Gobierno Corporativo, al Comité Corporativo de Auditoría le corresponden las siguientes funciones:
+Junta Directiva General
 a. Conocer los informes de avance del plan de labores que debe presentar cada tres meses el auditor general y los auditores internos de las sociedades.
 b. Ejercer la debida vigilancia en el cumplimiento de las funciones y responsabilidades de la Auditoría Interna con respecto al marco regulatorio y las sanas prácticas.
 c. Informar al órgano de dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.

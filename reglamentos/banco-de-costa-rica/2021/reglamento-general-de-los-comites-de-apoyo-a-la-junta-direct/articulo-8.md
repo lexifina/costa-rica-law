@@ -21,3 +21,4 @@ c. Conocer, analizar y referirse a los informes sobre el Perfil de Riesgo y el f
 d. Conocer sobre los temas estratégicos analizados por el Comité de Riesgos de la OPC.
 e. Analizar las pruebas de estrés realizadas en la gestión de riesgo que correspondan.
 f. Supervisar la labor de la Gerencia Corporativa de Riesgo en la implementación de la gestión integral del riesgo.
+g. Conocer los informes que emita la Gerencia Corporativa de Riesgo en relación con la Gerencia de Negocios Esfera; además, de las matrices de riesgo y el seguimiento a la administración de los programas de mitigación de esos riesgos.

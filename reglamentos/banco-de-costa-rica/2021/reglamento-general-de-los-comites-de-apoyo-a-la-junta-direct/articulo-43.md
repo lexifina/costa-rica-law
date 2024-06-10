@@ -1,6 +1,2 @@
-Capítulo IV
-De las relaciones internas y externas, la secretaría, actas, libros de actas y comunicación
-de acuerdos
-Artículo 43. De las relaciones internas y externas
-Cada uno de los comités debe cumplir los acuerdos de los otros órganos colegiados internos o externos, superintendencias, autoridades de gobierno y autoridades internacionales, de acuerdo con la temática que a cada uno le corresponda, cuando así lo indique la legislación aplicable; asimismo, debe reportar mediante el formulario 23-ZD Resumen de acuerdos ratificados en los Órganos Colegiados y hechos relevantes las situaciones que sean de interés a los órganos correspondientes.
-En el caso del Comité Corporativo de Auditoría, este debe propiciar la comunicación entre las juntas directivas, la administración superior, las auditorías internas, los auditores externos y entes supervisores.
+Artículo 43. Conocimiento de la agenda
+Para los comités que sesionan una vez por semana o dos veces al mes, la secretaria o la persona encargada del comité debe remitir la agenda por correo electrónico a los miembros del comité, dos días antes de realizarse la sesión y para los comités que sesionan una vez al mes, bimestral, trimestral o semestralmente, la agenda se debe remitir por correo electrónico cinco días antes. La persona encargada de cada comité debe depositar en el registro de carpetas públicas la agenda, de tal manera que, los miembros del comité y otros participantes dispongan del tiempo suficiente para su análisis.

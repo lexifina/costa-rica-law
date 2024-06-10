@@ -10,3 +10,4 @@ g. Revisar las políticas, procedimientos, normas y controles implementados para
 h. Conocer informes de los estudios efectuados de las auditorías internas y en materia de LC/FT/FPADM/FDO.
 i. Informar a la Junta Directiva General sobre el seguimiento de los planes correctivos definidos para subsanar las debilidades y oportunidades de mejora identificadas en los estudios de las auditorías interna y externa; informes de la superintendencia respectiva y de la evaluación de riesgos de LC/FT/FPADM/FDO por parte de la Oficialía de Cumplimiento y por el Comité Corporativo de Cumplimiento.
 j. Dar seguimiento a los proyectos de impacto en el área de Cumplimiento.
+k. Conocer los informes que emita la Gerencia de Cumplimiento en relación con la Gerencia de Negocios Esfera.

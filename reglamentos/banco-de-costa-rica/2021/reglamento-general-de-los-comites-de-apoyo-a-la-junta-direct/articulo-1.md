@@ -1,7 +1,6 @@
 BANCO DE COSTA RICA
 JUNTA DIRECTIVA GENERAL
 La Junta Directiva General del Banco en sesión 07-21, artículo VIII, del 9 de febrero de 2021, aprobó la modificación al Reglamento general de los comités de apoyo a la Junta Directiva General y Administración.
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 43-22 del 6 de diciembre del 2022, publicado en el Alcance Digital N° 5 a La Gaceta N° 5 del 13 de enero del 2023 y se transcribe a continuación:)
 I. Propósito
 El propósito de este documento es establecer los lineamientos de organización, funcionamiento y responsabilidades de los comités de apoyo a la Junta Directiva, acorde con lo establecido en la normativa aplicable vigente.
 Los comités de apoyo son órganos para el seguimiento de las políticas, procedimientos y controles establecidos en cada materia sometida a su competencia.
@@ -20,10 +19,10 @@ Hallazgo: se refiere a las debilidades, deficiencias o brechas apreciables respe
 Identidad de género: la vivencia interna e individual del género tal como cada persona la siente profundamente, la cual podría corresponder o no con el sexo asignado al momento del nacimiento, incluyendo la vivencia personal del cuerpo.
 LC/FT/FPADM/FDO/FDO: Acrónimos de Legitimación de capitales (LC), Financiamiento al terrorismo (FT), Financiamiento de la proliferación de armas de destrucción masiva (FPADM) y Financiamiento de Delincuencia Organizada (FDO).
 Órgano de dirección: máximo órgano colegiado de la entidad responsable de la organización. En el caso del Conglomerado Financiero BCR corresponde a la Junta Directiva General y a las juntas directivas de las subsidiarias. Entendiéndose como:
-. Junta Directiva General: es el órgano colegiado bajo cuya dirección inmediata funciona el Banco de Costa Rica como Banco comercial del Estado y está integrado por siete miembros, todos los cuales son nombrados por el Consejo de Gobierno como lo dispone el artículo 20 y siguientes de la Ley Orgánica del Sistema Bancario Nacional.
+Junta Directiva General: es el órgano colegiado bajo cuya dirección inmediata funciona el Banco de Costa Rica como Banco comercial del Estado y está integrado por siete miembros, todos los cuales son nombrados por el Consejo de Gobierno como lo dispone el artículo 20 y siguientes de la Ley Orgánica del Sistema Bancario Nacional.
 La Junta Directiva General se constituye, en asamblea de accionistas de la sociedad anónima o de cuotistas de la sociedad de responsabilidad limitada, como órgano supremo de la sociedad donde se expresa la voluntad colectiva en las materias de su competencia con una función deliberativa.
-. Juntas directivas de las subsidiarias: son nombradas por la Junta Directiva General del Banco de Costa Rica, constituida en asamblea de socios conforme lo establecido en el pacto social de cada empresa.
-. Banprocesa por ser una sociedad de responsabilidad limitada, cuenta con una asamblea de cuotistas, conformada por la Junta Directiva General.
+Juntas directivas de las subsidiarias: son nombradas por la Junta Directiva General del Banco de Costa Rica, constituida en asamblea de socios conforme lo establecido en el pacto social de cada empresa.
+Banprocesa por ser una sociedad de responsabilidad limitada, cuenta con una asamblea de cuotistas, conformada por la Junta Directiva General.
 Tecnologías de información (TI): conjunto de técnicas para la captura, almacenamiento, transformación, transmisión y presentación de la información generada o recibida a partir de procesos de negocios, de manera que pueda ser organizada y utilizada en forma consistente y comprensible por los usuarios que estén relacionados con ella. Incluye elementos de hardware, software, telecomunicaciones y conectividad, entre otros.
 Voto de calidad: es el voto otorgado a la persona que presida el órgano colegiado para resolver un empate entre los miembros presentes, el cual solamente puede ser ejercido cuando tal empate se produzca.
 IV. Formularios de referencia
@@ -32,6 +31,7 @@ Los formularios utilizados en este documento se enuncian a continuación:
 53-ZD_Memorando para solicitar inclusión de temas en sesiones de órganos colegiados
 364-SD Créditos resueltos por el Comité de Crédito
 365-SD Fiscalización Gerencia de Riesgo y Control Normativo
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° sesión 26-24 del 10 de junio del 2024, publicado en el Alcance Digital N° 122 a La Gaceta N° 121 del 3 de julio del 2024 y se transcribe a continuación:)
 Título I
 De los comités de apoyo a la Junta Directiva General
 Capítulo I

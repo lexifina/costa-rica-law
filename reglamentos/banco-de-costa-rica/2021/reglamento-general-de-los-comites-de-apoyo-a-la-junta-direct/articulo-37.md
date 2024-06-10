@@ -1,8 +1,6 @@
-Capítulo II
-Elección y sustitución de los miembros
-Artículo 37. Elección y evaluación de los miembros
-La Junta Directiva General, en el mes de mayo de cada año, puede revisar la conformación y los nombramientos de los miembros de los comités y realizar los cambios que considere oportunos. Cuando se realicen cambios de la presidencia de algún comité, se debe considerar las limitantes establecidas para este rol indicadas en el acuerdo Conassif 04-16 Reglamento de Gobierno Corporativo y el acuerdo Conassif 15-22 Reglamento sobre idoneidad y desempeño de los miembros del órgano de dirección y de la alta gerencia de entidades y empresas supervisadas y la normativa interna relacionada.
-En el caso de los miembros externos de los comités, deben ser evaluados anualmente por el órgano correspondiente y los resultados deben ser informados a la Junta Directiva General. Los asesores y los miembros externos e independientes que correspondan son nombrados por la Junta Directiva General por un plazo definido con posibilidad de ampliarlo o de separarlo del cargo en cualquier momento. Dichos nombramientos se efectúan acorde con las regulaciones vigentes en materia de contratación administrativa.
-Los asesores y miembros externos deben ser independientes del Conglomerado Financiero BCR y no deben presentar conflictos de interés. En el caso de asesores y del miembro externo del Comité Corporativo de Riesgo, no deben formar parte del Comité de Inversiones de empresas del Conglomerado Financiero BCR, ni pertenecer a comités de inversión ni de riesgo de otras entidades.
-En caso de que la Junta Directiva General decida que en la conformación de un comité corporativo se integre un miembro externo, para efectos del quorum, el comité puede sesionar sin la participación del miembro externo mientras se realizan los procesos de contratación correspondientes.
-Para los miembros de los órganos colegiados que son parte de la administración, su designación y sustitución es responsabilidad del gerente general, salvo disposición legal en contrario.
+Capítulo IV
+De las relaciones internas y externas, la secretaría, actas, libros de actas y
+comunicación de acuerdos
+Artículo 37. De las relaciones internas y externas
+Cada uno de los comités debe cumplir los acuerdos de los otros órganos colegiados internos o externos, superintendencias, autoridades de gobierno y autoridades internacionales, de acuerdo con la temática que a cada uno le corresponda, cuando así lo indique la legislación aplicable; asimismo, debe reportar mediante el formulario 23-ZD Resumen de acuerdos ratificados en los Órganos Colegiados e informe de hechos relevantes las situaciones que sean de interés a los órganos correspondientes.
+En el caso del Comité Corporativo de Auditoría, este debe propiciar la comunicación entre las juntas directivas, la administración superior, las auditorías internas, los auditores externos y entes supervisores.

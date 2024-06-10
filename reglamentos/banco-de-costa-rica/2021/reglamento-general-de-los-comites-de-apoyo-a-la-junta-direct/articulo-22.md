@@ -8,7 +8,7 @@ El Comité de Crédito del BCR es presidido por el gerente general del Banco o p
 . Gerente corporativo de Finanzas
 . Gerente corporativo Gestión de Crédito
 El Comité de Crédito requiere la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero sin voto:
-. Gerente Corporativo de Riesgo o quien este designe
+. Gerente corporativo de Riesgo o quien este designe
 . Gerente corporativo Jurídico o quien este designe
 . Gerente de área de análisis de Crédito Corporativo y Pymes
 . Gerente comercial Banca Corporativa y Empresarial

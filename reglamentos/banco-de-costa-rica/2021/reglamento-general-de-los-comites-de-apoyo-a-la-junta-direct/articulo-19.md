@@ -8,7 +8,7 @@ El Comité Corporativo de Activos y Pasivos es presidido por el gerente corporat
 . Gerente de Tesorería
 . Subgerente Banca Personas
 El Comité Corporativo de Activos y Pasivos cuenta con la facultad de requerir la asistencia permanente de los siguientes invitados a las sesiones, con el propósito de brindarle apoyo técnico en las decisiones que involucran los asuntos de agenda. Dichos invitados cuentan con voz, pero no voto:
-. Gerente Corporativo de Riesgo
+. Gerente corporativo de Riesgo
 . Gerente de Contabilidad General y Presupuesto
 . Gerente general de BCR Valores
 . Gerente Banca de Inversión

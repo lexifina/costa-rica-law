@@ -3,7 +3,7 @@ Al Comité de Crédito del BCR le corresponden las siguientes funciones:
 a. Conocer y resolver las solicitudes de crédito de cualquier naturaleza (directa o indirecta), en apego a la normativa de crédito aplicable. Así como, las renovaciones, modificaciones y arreglos de las operaciones de crédito, hasta por el límite máximo establecido en las Políticas de Crédito.
 b. Conocer y resolver hasta por el monto de sus atribuciones, modificaciones a las cláusulas de los contratos de crédito, ante algún planteamiento hecho por un cliente.
 c. Conocer y resolver las solicitudes de clientes sobre modificaciones de tasas de interés según las atribuciones establecidas en las Políticas de Crédito y de conformidad con los esquemas de tasas vigentes.
-d. Conocer y resolver los créditos de salvamento.
+d. Conocer y resolver los créditos de salvamento según las atribuciones establecidas en las Políticas de Crédito.
 e. Conocer y resolver el traslado de operaciones de crédito activas a cuentas líquidas, en aplicación de la normativa.
 f. Dar seguimiento al estado de morosidad de la cartera crediticia
 g. Dar seguimiento a los clientes TOP (situación financiera y aspectos cualitativos).
