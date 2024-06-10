@@ -1,0 +1,4 @@
+CAPÍTULO II
+Procedimiento para solicitar y liquidar los viáticos,
+por transporte, hospedaje y alimentación
+Artículo 4º-Los regidores y síndicos, que deseen solicitar el pago por concepto de transporte, hospedaje y alimentación, deberán elaborar y presentar dentro de los primeros cinco días hábiles de cada mes calendario, la fórmula denominada LIQUIDACIÓN DE GASTOS DE VIAJE EN EL INTERIOR DEL PAÍS disponible en el departamento de tesorería; indicando los montos adeudados y los conceptos de los mismos, adjuntando en caso de hospedaje y transporte por taxi, la factura o comprobante que compruebe el gasto. Esta fórmula debe llenarse correctamente, venir acompañada por una certificación de la secretaria del Concejo sobre la asistencia de sesiones del mes anterior y ser trasladada a la Alcaldía Municipal, para su respectivo pago.

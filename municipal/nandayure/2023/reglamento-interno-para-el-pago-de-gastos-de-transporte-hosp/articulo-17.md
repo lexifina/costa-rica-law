@@ -1,0 +1,1 @@
+Artículo 17.-En todo lo no previsto en el presente Reglamento, en cuanto a pagos, se regirá por lo que establece el REGLAMENTO DE GASTOS DE VIAJE Y DE TRANSPORTE PARA FUNCIONARIOS PÚBLICOS, emitido por la CONTRALORÍA GENERAL DE LA REPÚBLICA.

@@ -1,0 +1,1 @@
+Artículo 9º-Corresponde al Alcalde Municipal autorizar el pago de transporte, alimentación y hospedaje y crear la partida presupuestaria pertinente para darle contenido económico a este tipo de gastos, previendo las posibilidades financieras del municipio.

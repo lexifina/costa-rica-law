@@ -1,0 +1,1 @@
+Artículo 16.-El reconocimiento de pago de viáticos correspondiente a transporte, hospedaje, alimentación y kilometraje, aplica para asistir a sesiones del concejo, comisiones permanentes y especiales del concejo y nombramientos en comisión.

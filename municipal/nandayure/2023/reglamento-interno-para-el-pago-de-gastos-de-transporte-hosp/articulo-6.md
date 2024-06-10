@@ -1,0 +1,1 @@
+Artículo 6º-Una vez verificada la información, se procederá a confeccionar la orden de pago a quien corresponda, los pagos o tarifas a erogarse se regirán de acuerdo a lo que establece EL REGLAMENTO DE GASTOS DE VIAJE Y DE TRANSPORTE PARA FUNCIONARIOS PÚBLICOS, emitido por la CONTRALORÍA GENERAL DE LA REPÚBLICA.

@@ -1,0 +1,1 @@
+Artículo 13.-Si por decisión del Concejo Municipal o el titular de la Alcaldía Municipal se brindara el transporte requerido para que los regidores y síndicos, puedan asistir sin problemas o atrasos a las sesiones del Concejo y sesiones de comisiones, éstos, en ningún caso, podrán solicitar el pago por ese concepto.
