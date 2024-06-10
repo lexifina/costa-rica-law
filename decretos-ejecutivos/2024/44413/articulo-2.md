@@ -1,1 +1,0 @@
-Artículo 2º-Deróguese el Decreto Ejecutivo N° 44327-H del 18 de diciembre de 2023, publicado en el Alcance N° 257 a La Gaceta N° 237 del 21 de diciembre de 2023, a partir de la vigencia del presente decreto.
