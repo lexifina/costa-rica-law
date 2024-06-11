@@ -1,0 +1,4 @@
+TÍTULO II
+Protocolo de Coordinación Interinstitucional para
+la Protección de la Niñez y Adolescencia
+ARTÍCULO 7- Creación. El Patronato Nacional de la Infancia (PANI), el Ministerio de Educación Pública (MEP), el Ministerio de Salud, el Ministerio de Justicia y Paz, el Instituto Nacional de las Mujeres (Inamu), la Caja Costarricense de Seguro Social (CCSS) y el Instituto Mixto de Ayuda Social (IMAS), en coordinación con el Poder Judicial y el Tribunal Supremo de Elecciones (TSE), así como sus respectivos órganos adscritos, deberán crear el Protocolo de Coordinación Interinstitucional para la Protección de la Niñez y Adolescencia, el cual tendrá como fin la unificación de criterios de acción en la detección y atención de casos de violencia contra la niñez y adolescencia. Este protocolo deberá ser revisado y actualizado cada cinco años.
