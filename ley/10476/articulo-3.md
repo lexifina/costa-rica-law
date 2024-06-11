@@ -1,0 +1,1 @@
+ARTÍCULO 3- Interés público. Esta ley es de orden público e interés social; está destinada a la prevención y detección temprana de todas las formas de violencia en contra de la niñez y adolescencia, a través de la garantía y promoción de sus derechos.

@@ -1,0 +1,1 @@
+ARTÍCULO 4- Principios. Son principios rectores de esta ley: el interés superior de la niñez, igualdad y no discriminación, supervivencia, autonomía progresiva y desarrollo de la niñez y protección integral.
