@@ -1,1 +1,0 @@
-Artículo 3°—La calificación anual de los servicios de los trabajadores municipales se traducirá en un incentivo para los trabajadores municipales sobre su salario base, consistente en un aumento porcentual anual conforme a, la tabla siguiente: Regular: 2%. Bueno: 4%. Muy bueno: 5%. Excelente: 6%.
