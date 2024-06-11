@@ -14,3 +14,4 @@ Reglamento de Proveeduría Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-02 | la propia norma |
+| 2 | 2024-06-11 | Reglamento municipal 6 (2024-06-11) |
