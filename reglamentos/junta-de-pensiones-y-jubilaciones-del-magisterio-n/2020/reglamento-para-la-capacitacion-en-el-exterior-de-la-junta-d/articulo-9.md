@@ -1,5 +1,4 @@
-Artículo 9 Obligaciones
-Si por alguna circunstancia atribuible al trabajador, éste dejara la institución antes del cumplimiento de los plazos señalados en el artículo anterior, a excepción del viático diario que se detalla en el artículo n.° 11, se procede al cobro de los costos del viaje y de la capacitación recibida, por medio de un arreglo de pago con base en el P26-PR-004 Registro y Control de las Cuentas por Cobrar Administrativas, bajo los siguientes lineamientos:
+Artículo 9°-Obligaciones. Si por alguna circunstancia atribuible a la persona trabajadora, éste dejara la institución antes del cumplimiento de los plazos señalados en el artículo anterior, a excepción del viático diario que se detalla en el artículo N° 11, se procede al cobro de los costos del viaje y de la capacitación recibida, por medio de un arreglo de pago con base en el P26-PR-004 Registro y Control de las Cuentas por Cobrar Administrativas, bajo los siguientes lineamientos:
 1. Si cumplió el 100% del plazo, no se cobrará suma alguna.
 2. Si cumplió al menos con el 80% del plazo, se cobrará el 20% del costo.
 3. Si cumplió al menos con el 70% del plazo, se cobrará el 30% del costo.
