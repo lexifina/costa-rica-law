@@ -4,7 +4,8 @@ a. La compra de boletos o pasajes aéreos, cuyo origen o destino sea el territor
 b. Los servicios de salud privados prestados por centros de salud autorizados, o profesionales en ciencias de la salud autorizados. Los profesionales en ciencias de la salud deberán, además, encontrarse incorporados en el colegio profesional respectivo.
 2. Del dos por ciento (2%) para los siguientes bienes o servicios:
 a. Los medicamentos, las materias primas, los insumos, la maquinaria, el equipo y los reactivos necesarios para su producción, autorizados por el Ministerio de Hacienda.
-b. Los servicios de educación privada.
+b. Los servicios de educación privada, con excepción de los exentos según el inciso 31 del artículo 8 de la Ley 6826, Ley de Impuesto al Valor Agregado, de 8 de noviembre de 1982.
+(Así reformado el inciso anterior por el artículo único de la Ley Exención para la aplicación del Impuesto sobre el Valor Agregado (IVA) a la Educación Superior Privada, N° 10479 del 14 de mayo de 2024)
 c. Las primas de seguros personales.
 d. La compra y la venta de bienes y servicios que hagan las instituciones estatales de educación superior, sus fundaciones, las instituciones estatales, el Consejo Nacional de Rectores (Conare) y el Sistema Nacional de Acreditación dela Educación Superior (Sinaes), siempre y cuando sean necesarios para la realización de sus fines.
 3. Del uno por ciento (1%) para los siguientes bienes o servicios:
