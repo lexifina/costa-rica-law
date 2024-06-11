@@ -15,3 +15,4 @@ Reglamento interior de trabajo de la Municipalida de Cartago
 | --- | --- | --- |
 | 1 | 1983-03-16 | la propia norma |
 | 2 | 1984-11-08 | Reglamento municipal 0 (1984-11-08) |
+| 3 | 2024-06-11 | Reglamento municipal 9 (2024-06-11) |
