@@ -1,1 +1,0 @@
-Articulo 9°—Cualquier modificación de la tasa anual del articulo anterior y del procedimiento técnico de cálculo, debe ser puesto en conocimiento del Sindicato Unitario de 'trabajadores Municipales (SUMTRAMUPC) y dar audiencia por un término de diez días hábiles, a efecto de que se manifieste, sobre la eventual modificación y presente los argumentos que sean de su interés.

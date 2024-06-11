@@ -1,1 +1,0 @@
-Articulo 4°—Que la corporación municipal, reconocerá de conformidad con su escala salarial, para efectos de la anualidad y de la antigüedad, hasta un máximo de treinta aumentos o pasos para cada categoría, hasta llegar al sueldo máximo, que será la suma del salario base, más los treinta pasos o aumentos anuales de la correspondiente categoría.
