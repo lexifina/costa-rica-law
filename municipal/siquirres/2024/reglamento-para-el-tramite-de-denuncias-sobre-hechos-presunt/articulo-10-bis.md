@@ -1,0 +1,2 @@
+Artículo 10 bis. -Reglas de notificaciones: El denunciante deberá señalar en su delación o en el formulario establecido al efecto, de manera oficial un medio para recibir notificaciones, ya sea una dirección de correo electrónico; en aquellos casos que no indique la dirección de correo electrónico, o cuando no se pueda realizar por el medio señalado, las notificaciones se tendrán por realizadas de manera automática transcurridas las 24 horas de dictados los documentos.
+(Así adicionado en sesión N° 06 del 11 de junio de 2024)

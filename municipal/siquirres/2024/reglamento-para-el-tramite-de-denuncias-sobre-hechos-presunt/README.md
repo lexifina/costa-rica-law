@@ -14,3 +14,4 @@ Reglamento para el trámite de denuncias sobre hechos presuntamente irregulares 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-03 | la propia norma |
+| 2 | 2024-06-11 | Reglamento municipal 6 (2024-06-11) |
