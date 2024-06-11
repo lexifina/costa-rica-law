@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Caja Costarricense de Seguro Social (CCSS) podrá destinar recursos propios a la construcción en el terreno donado, así como establecer convenios de cooperación interinstitucional o internacional para los fines establecidos.
