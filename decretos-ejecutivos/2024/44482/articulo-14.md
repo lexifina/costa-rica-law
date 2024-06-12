@@ -1,0 +1,1 @@
+Artículo 14 º-Desinscripción. La Jefatura de la URA podrá solicitar ante el Registro de Bienes Muebles la desinscripción de los vehículos decomisados que se vayan a disponer anticipadamente, de previo a su enajenación o comisados que estime necesario para el desarrollo de sus procesos de administración y disposición de bienes.

@@ -1,0 +1,1 @@
+Artículo 10º-Exclusión. El participante podrá gestionar en el sistema URA Venta de Bienes su exclusión en cualquier momento. La exclusión la ejecutará en sistema URA Venta de Bienes, seleccionando la casilla que así lo indica.

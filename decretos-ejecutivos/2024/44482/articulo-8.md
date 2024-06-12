@@ -1,0 +1,1 @@
+Artículo 8°-lnclusión. Una vez analizada la documentación e información registrada por el interesado y habiéndose comprobado que la misma es la solicitada, esté correcta y completa, la URA aprobará de forma automática en el sistema URA Venta de Bienes la inscripción, la cual será comunicada al correo electrónico aportado.

@@ -1,0 +1,2 @@
+Artículo 28º-Omisión de pago. De no realizarse el pago en el tiempo solicitado por el monto total ofertado, se adjudicará el bien a la oferta que ocupó el segundo lugar y así sucesivamente, en el caso de que hayan manifestado su anuencia, eligiendo de acuerdo con el orden indicado en el documento de análisis comparativo de ofertas admisibles. En caso de empate, se aplicará lo señalado artículo 23 de este reglamento.
+El jefe de la URA firmará la nueva resolución de adjudicación, en los términos indicados en el artículo 24 de este reglamento.

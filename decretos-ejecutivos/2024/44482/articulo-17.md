@@ -1,0 +1,1 @@
+Artículo 17º- Sobre el depósito de placas. En caso de que no se cuente con las placas metálicas o sticker de placa del bien a desinscribir, deberá presentarse declaración jurada suscrita por el jefe de la URA, que sustituirá el citado depósito de placas, en la que se deberán consignar las razones por las que no se cuenta con las placas del vehículo.

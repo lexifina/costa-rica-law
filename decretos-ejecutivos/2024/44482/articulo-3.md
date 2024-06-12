@@ -1,0 +1,3 @@
+Artículo 3º-Prohibición para funcionarios del ICD. No podrán inscribirse en el sistema LIRA Venta de Bienes los funcionarios regulares del ICD, aquellos que gocen de licencias o permisos con o sin goce de sueldo, los funcionarios que por convenio presten sus servicios o estén realizando pasantías, trabajo comunal universitario o permisos temporales.
+También tendrán prohibido inscribirse el cónyuge, el compañero o la compañera en la unión de hecho, de los funcionarios cubiertos por la prohibición, así como sus parientes por consanguinidad o afinidad hasta el tercer grado inclusive.
+La prohibición se aplica a las personas jurídicas en las cuales funjan como miembros de sus juntas directivas o sean titulares de las acciones.

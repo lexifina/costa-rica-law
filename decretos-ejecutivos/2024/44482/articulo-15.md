@@ -1,0 +1,1 @@
+Artículo 15º-Documentos para desinscripción de vehículos decomisados. Para la desinscripción de vehículos decomisados se requerirá, además del oficio de solicitud con boleta de seguridad que deberá ser suscrito por el jefe de la URA, la copia del acta de depósito judicial o cualquier otro documento que demuestre que el vehículo fue entregado en custodia al ICD.

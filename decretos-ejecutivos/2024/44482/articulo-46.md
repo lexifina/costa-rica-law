@@ -1,0 +1,1 @@
+Artículo 46º-Resolución de adjudicación. De acuerdo con la recomendación del análisis comparativo, el jefe de la URA dictará la resolución fundamentada de adjudicación teniendo como plazo un día hábil.

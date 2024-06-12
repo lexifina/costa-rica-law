@@ -1,0 +1,1 @@
+Artículo 43º-Presentación de ofertas. El participante deberá presentar en el sistema URA Venta de Bienes su oferta, en el plazo estipulado en la invitación, que será según lo indique la Administración.

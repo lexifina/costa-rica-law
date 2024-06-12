@@ -1,0 +1,1 @@
+Artículo 50 º-Entrega del bien adjudicado. Una vez verificado el pago, el administrador designado para la venta procederá a la entrega del bien adjudicado en hora y fecha coordinadas por la URA, mediante el acta correspondiente.

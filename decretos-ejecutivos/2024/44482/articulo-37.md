@@ -1,0 +1,1 @@
+Artículo 37º-Estado tributario. En los casos descritos en los artículos 33 y 35 anteriores, estos bienes, aún y cuando tengan algún monto pendiente por impuestos de nacionalización, quedarán inscritos a favor del adjudicatario, con un estado tributario de "Pagó Impuestos".

@@ -1,0 +1,1 @@
+Artículo 44º-Apertura de ofertas. Vencido el plazo que se señale en la invitación, el sistema URA Venta de Bienes ejecutará la apertura de ofertas de manera automática y generará el documento donde las ofertas se ordenarán a partir del monto más alto hasta la del monto más bajo.

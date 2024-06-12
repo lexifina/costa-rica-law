@@ -1,0 +1,1 @@
+Artículo 21º-Apertura de las ofertas. En el plazo indicado en la invitación, el sistema URA Venta de Bienes ejecutará la apertura de ofertas de manera automática y elaborará un documento donde las ofertas se ordenarán a partir de la del monto más alto hasta la del monto más bajo.

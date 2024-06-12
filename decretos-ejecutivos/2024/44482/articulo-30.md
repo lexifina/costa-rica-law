@@ -1,0 +1,2 @@
+Artículo 30º-Sanción por incumplimiento. Si el adjudicatario no cumple con las obligaciones producto de la venta por primera vez, será sancionado con inhabilitación como participante del sistema URA Venta de Bienes por el plazo de un año, contados a partir de la comunicación de la resolución que declaró el incumplimiento.
+En caso del incumplimiento por segunda vez, el plazo de inhabilitación será de cinco años.

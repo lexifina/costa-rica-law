@@ -1,0 +1,1 @@
+Artículo 25º-Acta de adjudicación. Basada en la resolución de adjudicación, la jefatura de la URA firmará el acta de adjudicación por cada uno de los ítems o líneas de cada venta, que será entregada a cada adjudicatario para demostrar la titularidad o propiedad del bien adquirido ante terceros. Este será un documento de mero trámite sobre el cual no cabe recurso alguno.

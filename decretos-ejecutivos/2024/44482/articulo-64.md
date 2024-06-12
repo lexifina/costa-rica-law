@@ -1,0 +1,1 @@
+Artículo 64 º-Derogatoria. Deróguense los artículos 83 y 84 del Reglamento General sobre Legislación contra el Narcotráfico, Actividades Conexas, Legitimación de Capitales, Financiamiento al Terrorismo y Delincuencia Organizada, Decreto Ejecutivo Nº 36948-MP-SP-JP-H-S, del 8 de diciembre de 2011
