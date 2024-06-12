@@ -1,0 +1,2 @@
+Artículo 17.- De la solicitud por desglose de la concesión. Cuando se segregue una propiedad beneficiada con una concesión vigente, él o los titulares propietarios de los inmuebles resultantes de estar interesados en el uso del agua, deberán presentar ante la DA solicitud del desglose de la concesión por medio de la plataforma SIPECO.
+Una vez verificados los requisitos, la DA, dará admisibilidad en un plazo de 3 días, asignándose número de expediente a las nuevas solicitudes. Cumplida esta etapa; en el plazo de 10 días se emitirá la resolución correspondiente.

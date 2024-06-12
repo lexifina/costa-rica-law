@@ -1,0 +1,1 @@
+Artículo 5.- Del uso sostenible de agua. Le corresponde al MINAE, a través de la DA velar por el dominio, aprovechamiento, utilización, gobierno y vigilancia de las aguas de dominio público, para ello deberá gestionar el agua con base en criterios técnicos integrales y controles de campo en cada cuenca hidrográfica, promoviendo el uso y desarrollo sostenible.

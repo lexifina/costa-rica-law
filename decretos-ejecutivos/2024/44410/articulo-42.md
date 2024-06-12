@@ -1,0 +1,3 @@
+Artículo 42.- Del procedimiento de inscripción de la SUA. Recibida la solicitud, se trasladará al Área Legal de la DA, quien verificará el cumplimiento de los requisitos en un plazo de 3 días naturales. En caso de que falte alguno, se procederá a prevenir al solicitante, dándole un plazo de 10 días hábiles para que subsane el defecto u omisión. Pasado ese plazo sin que se cumpla lo prevenido, se archivará la gestión.
+En caso de mantener interés en el trámite, el solicitante deberá gestionar una nueva inscripción.
+Cumplida con la verificación de los requisitos, en un plazo de 3 días naturales se procederá con la inscripción de la sociedad, y emisión de certificación respectiva, previa comprobación del beneficio de la conformación de la misma.

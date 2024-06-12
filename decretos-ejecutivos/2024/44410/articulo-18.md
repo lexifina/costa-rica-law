@@ -1,0 +1,6 @@
+SECCION TERCERA
+DE LA SOLICITUD DE CONCESIONES DE APROVECHAMIENTO DE AGUA
+SUPERFICIAL POR VENCIMIENTO DE PLAZO
+Artículo 18.- De las solicitudes de concesión por vencimiento de plazo. Seis meses antes del vencimiento de la concesión de aprovechamiento de agua, de estar interesados en continuar con el uso del agua, el concesionario deberá realizar el trámite por medio de la plataforma SIPECO presentando la solicitud correspondiente, la cual debe ser firmada por el titular propietario, el autorizado para el uso y/o el poseedor del inmueble en el cual se ubica la concesión y cumplir el procedimiento dispuesto en la sección primera del capítulo segundo.
+En los casos que se solicite una nueva concesión manteniendo las condiciones originales, esta se resolverá sin la inspección de campo, siempre que se cumplan los criterios dispuestos en el artículo siguiente. Para lo cual deberá cumplir con los dispuesto en los artículos 7 y 8 de este reglamento. De conformidad con el artículo 183 de la Ley de Aguas, la concesión tendrá carácter provisional.
+El titular propietario, el autorizado para el uso y/o el poseedor del inmueble o de los inmuebles que hayan sido reunidos en nuevos folios reales podrán optar por este trámite.

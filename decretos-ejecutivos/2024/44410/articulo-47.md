@@ -1,0 +1,2 @@
+Artículo 47.- De los requisitos. Además de lo dispuesto en el artículo anterior el interesado debe presentar el plano catastrado demarcando en este el cuerpo o cuerpos de agua a dictaminar.
+El interesado podrá adjuntar a su solicitud, todo estudio e información adicional que así lo tenga a bien y que a su consideración aporte insumo de análisis. El estudio deberá ser firmado por un profesional responsable.

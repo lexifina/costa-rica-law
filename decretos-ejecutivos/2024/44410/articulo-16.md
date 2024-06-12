@@ -1,0 +1,1 @@
+Artículo 16.- De aumento de caudal y fuentes en concesión vigente. Lo concesionarios podrán solicitar el ajuste de la concesión vigente, de aumento de caudal o más fuentes, para lo cual el concesionario deberá proceder conforme lo dispuesto en Sección Primera de este capítulo.

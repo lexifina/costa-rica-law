@@ -1,0 +1,2 @@
+Artículo 45.- De la resolución de la Concesión de Agua. Una vez inscrita y legalizada la Sociedad de Usuarios de Agua y con los libros legales autorizados, deberá presentarse la solicitud de concesión de agua, para lo cual tendrá un plazo de 30 días. Esta solicitud se regirá por lo dispuesto en el Capítulo II del presente Reglamento.
+Transcurrido el plazo señalado sin que se hubiese presentado la solicitud de concesión se procederá a des inscribir la SUA.

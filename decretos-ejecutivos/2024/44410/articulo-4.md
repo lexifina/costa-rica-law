@@ -1,0 +1,1 @@
+Artículo 4.- Sujetos y ámbito de aplicación. Este Reglamento se aplicará a todo sujeto de derecho público o privado, físico o jurídico, que desee tramitar ante la Dirección de Agua del MINAE lo dispuesto en el artículo 1.

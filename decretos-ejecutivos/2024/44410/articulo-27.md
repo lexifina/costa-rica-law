@@ -1,0 +1,2 @@
+Artículo 27.- De los requisitos y procedimiento. El solicitante deberá presentar la solicitud ante la DA, por medio de la plataforma SIPECO, e indicar la (s) fuente (s) de agua a aprovechar, punto (s) de toma en coordenadas, y números de placa de vehículos a usar para su transporte.
+Recibida la solicitud, y verificados los requisitos, se emitirá la resolución correspondiente en un plazo de 3 días naturales.

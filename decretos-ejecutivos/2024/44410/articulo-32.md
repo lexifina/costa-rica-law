@@ -1,0 +1,11 @@
+Artículo 32.- De los requisitos y procedimiento para obras mayores en cauce. Además de lo señalado en el artículo anterior el interesado deberá de presentar los siguientes requerimientos:
+a) Estudio hidrológico de la cuenca afluente del cauce a intervenir, que determine el caudal de diseño, considerando un período de retorno acorde con la obra de intervención y la seguridad civil.
+b) Estudio hidráulico de la obra conforme secciones transversales del cauce original y del cauce modificado, que demuestre que conforme el caudal de diseño es viable la intervención sin perjuicio a terceros.
+c) Secciones transversales del cauce original y de la propuesta de cauce modificado. Debe levantarse secciones transversales del cauce espaciadas 50 metros entre cada una, a lo largo de la intervención.
+d) Si existe aguas abajo del sitio de intervención y en su área de influencia, obras civiles en el cauce, deben ser evaluadas integralmente en el estudio hidráulico con la intervención solicitada, para no causar daños a terceros.
+e) Plano de planta de la obra y secciones típicas aguas arriba y abajo del sector del cauce a intervenir y acorde con inciso d).
+La DA verificará en el plazo de 3 días naturales:
+a) El cumplimiento de los requisitos formales establecidos en el artículo 285, siguientes y concordantes, de la Ley General de la Administración Pública. Si faltare alguno de los requisitos formales de admisibilidad señalados en la Ley General de la Administración Pública, el DA procederá a declarar la inadmisibilidad de la misma.
+b) El cumplimiento de los requisitos admisibilidad, en caso de que los documentos fueran deficientes en la información aportada u omisos, se prevendrá por una sola vez con un plazo máximo de 10 días hábiles, para que el interesado corrija el proyecto. Si el solicitante no hiciere las rectificaciones en el plazo concedido, la solicitud se tendrá por no presentada y se ordenará su archivo.
+Cumplida la admisibilidad, se pasará la solicitud al área técnica de la Unidad Hidrológica respectiva, quien en un plazo de 15 días naturales emitirá el informe de recomendación correspondiente. Cuando así se requiera se realizará inspección de campo.
+Cumplida la etapa de análisis técnico, se emitirá la resolución correspondiente en un plazo de 5 días naturales.

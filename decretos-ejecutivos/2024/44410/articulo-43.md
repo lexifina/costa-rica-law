@@ -1,0 +1,1 @@
+Artículo 43.- De la personería jurídica. Una vez inscrita la SUA con la certificación emitida por la DA, el representante legal deberá tramitar ante el Registro Nacional, el otorgamiento de la cédula jurídica.
