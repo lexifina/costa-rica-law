@@ -1,0 +1,1 @@
+Artículo 3°-Oportunidad del gasto. Deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del cargo que desempeñan los funcionarios del MJP, donde siempre prive el interés público para el reconocimiento de la erogación.

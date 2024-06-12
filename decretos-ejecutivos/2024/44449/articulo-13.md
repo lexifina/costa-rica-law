@@ -1,0 +1,1 @@
+Artículo 13.-Naturaleza del viático. Queda entendido que todas las sumas que se paguen por concepto de viáticos están destinados a cubrir las necesidades de hospedaje, alimentación, transporte y otros gastos menores, según corresponda y de conformidad a las características del viaje.

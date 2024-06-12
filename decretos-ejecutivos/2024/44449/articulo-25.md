@@ -1,0 +1,1 @@
+Artículo 25.-De las obligaciones de la persona a quien se le gira adelanto de viáticos. Es obligación del funcionario a quien se le giró adelanto por concepto de viáticos, el cumplimiento de la presente disposición normativa, así como, no solicitar el pago de viáticos cuando el motivo de la gira no corresponda al cumplimiento de las obligaciones propias de su cargo.

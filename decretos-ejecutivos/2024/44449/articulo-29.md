@@ -1,0 +1,1 @@
+Artículo 29.-En los casos de incumplimiento. El Departamento Financiero cuando detecte un incumplimiento a la veracidad de forma injustificada a las disposiciones contenidas en el presente Reglamento y en el Reglamento de la Contraloría General de la República y sus reformas, notificará al Despacho del Viceministerio de Gestion Estratégica.

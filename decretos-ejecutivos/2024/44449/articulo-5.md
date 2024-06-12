@@ -1,0 +1,7 @@
+Artículo 5°-Sujetos beneficiarios, excepciones. También serán sujetos de estos pagos:
+a) Los funcionarios que prestan sus servicios en beneficio del Ministerio de Justicia y Paz, aunque el ente que paga su salario sea distinto. Esta situación será procedente siempre que se cumplan simultáneamente las siguientes condiciones:
+i.- Que medie un convenio escrito entre los entes involucrados, en el que estén establecidas las condiciones bajo las cuales se cedió al funcionario, como son, entre otras, el objeto de dicha cesión y el período de duración de ésta.
+Lo anterior, sin perjuicio de lo establecido en los artículos 22 Bis, inciso a); 50, inciso a) y 112, inciso a), del Reglamento del Estatuto de Servicio Civil (Decreto Ejecutivo N° 21, del 14 de diciembre de 1954 y sus reformas).
+ii.- Que el Ministerio de Justicia y Paz al estar recibiendo los servicios de funcionarios pertenecientes a entes ajenos a la institución se haya comprometido, en el convenio suscrito, a reconocer el pago de viáticos y transporte cuando, de acuerdo con las condiciones establecidas en este Reglamento, esto proceda.
+iii.- Que el convenio haya sido suscrito con antelación a la ocurrencia de los eventos o actividades motivo del pago de viáticos y transporte que se pretende reconocer; ello con la finalidad de garantizar que su materialización no se efectúe con el único fin de reconocer dichos pagos.
+iv. Así como, todas aquellas estipuladas en el numeral 4 Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

@@ -1,0 +1,1 @@
+Artículo 4°-Sujetos beneficiarios. Los pagos a que se refiere este Reglamento serán para los funcionarios que prestan sus servicios en el Ministerio de Justicia y Paz, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.

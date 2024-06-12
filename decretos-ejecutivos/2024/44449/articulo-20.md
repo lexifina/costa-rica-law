@@ -1,0 +1,1 @@
+Artículo 20.-Obligaciones de los departamentos solicitantes. Será responsabilidad del departamento solicitante de la realización de la gira de previo a que ésta se realice, consultar sobre la disponibilidad de los recursos presupuestarios ante la Unidad Administrativa del Programa Presupuestario correspondiente.

@@ -1,0 +1,1 @@
+Artículo 27.-Responsable de la autorización y de la ejecución del contenido económico. Es responsable de la autorización del contenido económico del viático la jefatura del programa o en quien ésta delegue y de la ejecución de pago del viático el Departamento Financiero.

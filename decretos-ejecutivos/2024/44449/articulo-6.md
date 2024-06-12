@@ -1,0 +1,4 @@
+CAPÍTULO II
+De los viajes en el interior del país
+Artículo 6°-De los pagos. El Ministerio de Justicia y Paz pagará a sus funcionarios los gastos que incluyen alimentación, hospedaje y transporte cuando en el cumplimiento de las labores propias de su cargo o las que le asignen debidamente justificadas, tengan que viajar o desplazarse en forma temporal a lugares distintos de la ubicación del centro o sede de trabajo a que estén asignados, conforme a lo establecido en el presente reglamento y normativa atinente.
+En casos excepcionales y claramente justificados, se podrá reconocer dichos gastos cuando la gira inicie en su lugar de residencia para lo cual la administración dispondrá de mecanismos de control interno que permita comprobar la realización de la gira, su hora de inicio y finalización.

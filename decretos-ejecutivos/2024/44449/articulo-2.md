@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. El presente Reglamento establece las disposiciones generales a las que serán sometidas las erogaciones que, por concepto de gastos de viaje y de transporte (viáticos), deban realizar los funcionarios del Ministerio de Justicia y Paz cuando en cumplimiento de sus labores se desplacen dentro o fuera del país.

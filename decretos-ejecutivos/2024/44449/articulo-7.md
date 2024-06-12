@@ -1,0 +1,1 @@
+Artículo 7°-Competencia para extender autorizaciones. Corresponderá al jefe inmediato de la persona funcionaria que necesita desplazarse fuera de su sede laboral a realizar funciones relacionadas a su competencia, dar las autorizaciones a los trabajadores que deban realizar viajes en el interior del país, con el visto bueno del jefe de programa presupuestario respectivo.

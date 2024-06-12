@@ -1,0 +1,1 @@
+Artículo 21.-Del pago por desayuno, almuerzo, cena y hospedaje. La suma a cobrar por concepto de desayuno, almuerzo, cena y hospedaje se hará de conformidad con lo tipificado en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
