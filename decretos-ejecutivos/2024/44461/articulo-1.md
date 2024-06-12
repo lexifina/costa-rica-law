@@ -1,0 +1,14 @@
+Nº 44461-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones Nº 29496-J, publicado en La Gaceta Nº 96 del 21 de mayo del 2001, los artículos 25 inciso 1) y 28 inciso 2), acápite a) y b) de la Ley General de la Administración Pública Nº 6227 así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta Nº 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios Nº 4755.
+CONSIDERANDOS
+l. Que el artículo 32 de la Ley de Asociaciones Nº 218 de 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y que por ello contribuyan a solventar una necesidad social.
+II. Que la Asociación Fondo Comunitario Monteverde para el Desarrollo Sostenible, cédula jurídica número 3-002-667368, se inscribió en el Registro de Asociaciones del Registro Público Nacional el 30 de octubre del 2012, bajo el tomo 2012 y el asiento 353991.
+III. Que los fines que persigue la asociación, según sus estatutos son: "( ...) J. Crear oportunidades atractivas tanto para los visitantes como para las diversas entidades y miembros de la comunidad a fin de contribuir con el desarrollo sostenible de la región. 2. Desarrollar programas financieros innovadores que den sustento económico a iniciativas prioritarias para la comunidad definidas mediante procesos participativos y representativos. 3. Promover la comunicación entre los diversos sectores de la comunidad y actores externos. 4. Fortalecer a los grupos comunitarios organizados para la conceptualización, formación, financiamiento, evaluación y adaptación de proyectos. 5. Instaurar procesos de evaluación y monitoreo para los proyectos patrocinados y promovidos por la asociación con el fin de que sus actores visualicen sus avances hacia sus metas de desarrollo sostenible y tendrá la misión de ser una asociación filantrópica que une diversos actores, recursos y estrategias con el fin de impulsar iniciativas de sostenibilidad en la región de Monteverde y comunidades aledañas"(.. ). ".
+IV. Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense.
+POR TANTO
+DECRETAN DECLARAR DE UTILIDAD PÚBLICA A LA
+ASOCIACIÓN FONDO COMUNITARIO MONTEVERDE
+PARA EL DESARROLLO SOSTENIBLE
+Artículo 1.-Declárese de utilidad pública para los intereses del Estado, la Asociación Fondo Comunitario Monteverde para el Desarrollo Sostenible, cédula juridica número 3-002-667368.
