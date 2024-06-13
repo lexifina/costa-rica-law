@@ -1,0 +1,2 @@
+Artículo 4º-Detalle de los premios.
+Los premios especiales consisten en enteros de Lotería Nacional o Lotería Popular (según lo que disponga la Junta), que serán sorteados entre las personas que hayan efectuado la compra requerida de fracciones en los diferentes eventos que realice la Junta de Protección Social, conforme la mecánica de participación definida en el artículo 3) de este procedimiento.

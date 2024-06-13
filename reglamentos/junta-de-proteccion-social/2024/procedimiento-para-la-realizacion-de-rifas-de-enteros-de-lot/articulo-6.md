@@ -1,0 +1,3 @@
+Artículo 6º-Cambio de Premios.
+Los premios correspondientes a enteros de lotería, según la mecánica para la rifa de enteros de lotería, indicada en el artículo 5, serán entregados a los ganadores posterior a la realización de cada rifa, y para ello se confeccionará un acta, donde conste la entrega del premio, misma que deberá ser firmada por el ganador y por los funcionarios de la Junta que participen en dicho acto.
+En el momento en que se entregue el premio a los ganadores, previa autorización por escrito, se efectuará una toma de fotografía para publicar en redes sociales o en diferentes medios, si así lo desea el ganador. La utilización de la imagen del ganador será a título gratuito.
