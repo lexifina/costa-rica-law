@@ -1,0 +1,2 @@
+Artículo 72.- Aprobación de trabajos encomendados a terceros. Solo el IGN podrá aprobar los trabajos previamente realizados y ejecutados, conforme al marco jurídico-técnico establecido por la Institución, para la ejecución de los trabajos encomendados a terceros, siendo obligación del ejecutor la entrega del trabajo final y todos los insumos asociados al mismo, sin costo alguno para el IGN o el Registro Nacional.
+Ningún trabajo realizado dentro del territorio nacional asociado con materias propias del IGN, podrá ser publicado o reproducido con fines comerciales.

@@ -1,0 +1,4 @@
+Capítulo sexto
+Sobre la suscripción de convenios
+Artículo 70.- Suscripción de convenios para la prestación de servicios. El Registro Nacional podrá realizar convenios con otras instituciones, a fin de que estas puedan prestar los servicios que las partes consideren convenientes, conforme a las competencias otorgadas por el ordenamiento jurídico.
+Para la firma del convenio, deberán observarse las disposiciones que a los efectos emita el Registro Nacional; siendo que el superior jerárquico de la institución pública o privada interesada debe remitir en físico o en formato digital un oficio formal ante la Dirección General del Registro Nacional, solicitando la firma del convenio para el uso de los servicios que presta el IGN, indicando un medio de contacto para notificaciones, hasta la suscripción del documento que contenga los términos y condiciones del servicio.

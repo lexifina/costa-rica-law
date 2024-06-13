@@ -1,0 +1,1 @@
+Artículo 9.- Colaboración de terceros en el desarrollo de la Información Geográfica de Interés Nacional. Para el desarrollo de Información Geográfica de Interés Nacional colabora con el Instituto Geográfico Nacional el sector público, el sector privado, la educación superior universitaria y los colegios profesionales.

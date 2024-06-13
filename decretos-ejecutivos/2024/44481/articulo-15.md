@@ -1,0 +1,2 @@
+Artículo 15.- Sobre el deber de señalar medio para recibir notificaciones. La persona usuaria que solicite el servicio sea por los medios digitales dispuestos para la atención de solicitudes o bien de manera presencial, deberá aportar un medio para atender notificaciones, preferiblemente un correo electrónico o bien, un medio o lugar atendiendo lo dispuesto en la Ley de Notificaciones.
+En caso de que la persona usuaria no señale el medio para recibir notificaciones se le tendrá por notificado en el plazo de 24 horas conforme a lo dispuesto por la normativa vigente.

@@ -1,0 +1,3 @@
+Capítulo segundo
+Generalidades
+Artículo 5-Del Instituto Geográfico Nacional. Es una dependencia del Registro Nacional, científica y técnica rectora de la cartografía nacional, que tiene dentro sus competencias la ejecución del Mapa básico oficial y la Descripción básica geográfica de la República de Costa Rica y los estudios, las investigaciones o labores y el desarrollo de políticas nacionales de carácter cartográfico, geográfico, geodésico, geofísico y de índole similar que tenga relación con la definición de los puntos fundamentales de nuestro país con el fin de apoyar los procesos de planificación consignados en su Ley y demás normativa vinculante.
