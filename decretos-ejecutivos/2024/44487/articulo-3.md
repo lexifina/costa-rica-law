@@ -1,0 +1,1 @@
+Artículo 3°-Actualización de los lineamientos. Corresponde al Micitt mantener actualizados los "Lineamientos para la implementación del proyecto de fortalecimiento de las capacidades en ciberseguridad del país", y garantizar su acceso directo en su sitio web institucional www.micitt.go.cr de manera permanente.
