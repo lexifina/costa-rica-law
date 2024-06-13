@@ -1,0 +1,2 @@
+Artículo 21.-Verificación y plazo para ejecutar el arqueo, Arqueos de Caja chica, sorpresivos y periódicos, los Arqueos de Caja Chica sorpresivos corresponde realizarlos a la Unidad de Auditoria Interna y a través de la Dirección Administrativa Financiera, Todo arqueo de Caja Chica se realizará en presencia del tesorero municipal o del funcionario que él designe para tal efecto.
+Los arqueos serán llevados a cabo como mínimo una vez al mes, sin perjuicio de que se puedan realizar tantas veces se considere necesario y completando el formulario respectivo.

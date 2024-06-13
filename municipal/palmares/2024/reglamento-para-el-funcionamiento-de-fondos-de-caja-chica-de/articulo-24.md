@@ -1,0 +1,1 @@
+Artículo 24.-Plazo para el reintegro. La jefatura del encargado del fondo contará con un plazo de 5 días hábiles para realizar el reintegro de los fondos de las Cajas Chicas 1 y 2 a las cuentas respectivas.

@@ -1,0 +1,1 @@
+Artículo 27.-Violación del principio de legalidad. El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales, ni disponerse para actuaciones distintas a las autorizadas por ley o establecidas en este reglamento, normas supletorias o conexas.

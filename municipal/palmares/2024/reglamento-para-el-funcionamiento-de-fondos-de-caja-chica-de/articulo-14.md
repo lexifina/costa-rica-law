@@ -1,0 +1,2 @@
+Artículo 14.-Devolución de dinero. Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del anticipo deberá hacer el reintegro inmediato del dinero entregado, aportando una justificación escrita, avalada con la firma de la jefatura superior inmediata.
+Tratándose de la caja chica 2, se realizará el rechazo del anticipo por parte del encargado del fondo a nivel del sistema informático establecido.
