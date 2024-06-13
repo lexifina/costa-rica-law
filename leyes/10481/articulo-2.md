@@ -1,0 +1,1 @@
+ARTICULO 2- Se desafecta del uso y dominio público el camino público de diez metros (10m) de ancho por sesenta y seis punto dieciséis metros de fondo (66.16m), ubicado en el lindero norte, entre los vértices O al 1 del plano L-tres seis uno tres seis cinco- uno nueve siete nueve (L-361365-1979).
