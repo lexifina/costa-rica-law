@@ -1,3 +1,0 @@
-CAPÍTULO II
-DEL SISTEMA UNIVERSITARIO DE GESTIÓN DOCUMENTAL (SUGED)
-ARTÍCULO 3.De las funciones del Sistema Universitario de Gestión Documental (SUGED). El Sistema Universitario de Gestión Documental, constituye un sistema integrado de información y comunicación que garantiza el acceso oportuno, transparente y confiable a los datos y la información institucional en el momento en que sean requeridos. Este sistema está compuesto por los Archivos de Gestión, Archivos Periféricos, Especializados y el Archivo Institucional los cuales debidamente organizados conforman el fondo documental de la Universidad Técnica Nacional.

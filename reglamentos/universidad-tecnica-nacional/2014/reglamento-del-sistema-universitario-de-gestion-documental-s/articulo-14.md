@@ -1,1 +1,0 @@
-ARTÍCULO 14 Acceso al depósito. El acceso al depósito del Archivo Institucional es restringido, exceptopara el personal que allí labora, los que autorice la jefatura ypara los que la ley en razón de sus funciones les faculteexpresamente su ingreso.
