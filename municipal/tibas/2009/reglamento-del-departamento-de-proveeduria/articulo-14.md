@@ -1,1 +1,0 @@
-Artículo 14.—Conformación del expediente. Una vez que se adopte la decisión de iniciar el procedimiento de contratación se formará un expediente, al cual se le incorporarán los estudios previos que motivaron el inicio de éstos cuando corresponda y todas las actuaciones internas o externas relacionadas con la contratación.

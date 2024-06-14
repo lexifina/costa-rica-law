@@ -1,1 +1,0 @@
-Artículo 8º—Formalidades del pedido. La respectiva requisición deberá estar autorizada por la Jefatura de la dependencia solicitante quien será el funcionario responsable de verificar y justificar la efectiva necesidad del bien, servicio u obra.
