@@ -1,0 +1,2 @@
+Artículo 6. Refórmese el artículo 140 del Reglamento de Personas Refugiadas, Decreto Ejecutivo número 36831-G, publicado en La Gaceta número 209 del 1 de noviembre de 2011, para que en adelante diga:
+"Artículo 140. -Se define como solicitud manifiestamente infundada o claramente abusiva aquella que pudiera tener una connotación fraudulenta o que notoriamente no guarda relación alguna con los criterios para el reconocimiento de la· condición de persona refugiada establecidos en la Ley General de Migración y Extranjería número B764."

@@ -1,0 +1,1 @@
+Artículo 8. Deróguese la resolución D.JUR-0204-12-2022-ABM, que establece la reglamentación de los permisos de trabajo, basado en el decreto 43810-G, publicada en La Gaceta N º 27, del martes 14 de febrero de 2023.
