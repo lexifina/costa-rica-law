@@ -1,0 +1,1 @@
+Artículo 2º-Reenumérese el anterior artículo 78, denominado: "De los nombramientos de funcionarios de la misma categoría", del Reglamento al Estatuto del Servicio Exterior de la República, Decreto Ejecutivo N° 29428-RE del 30 de marzo de 2001 y sus reformas, para que -con la presente reforma- su numeración corresponda al artículo 80.
