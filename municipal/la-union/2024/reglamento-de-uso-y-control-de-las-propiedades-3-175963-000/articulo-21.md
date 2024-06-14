@@ -1,0 +1,1 @@
+Artículo 21.-Ventanales en nuevas construcciones y el impacto a las aves. Las superficies vidriadas verticales (ventanas, ventanales, etc.) deben ser diseñadas para evitar el impacto de las aves contra estas y la reflectividad lumínica.

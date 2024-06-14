@@ -1,0 +1,1 @@
+Artículo 5°-Adaptación al cambio climático. Las actividades de manejo del área deberán estar orientadas a la recuperación del bosque natural, con la finalidad de mejorar la calidad de los servicios ecosistémicos que brinda el área e incrementar la captación de CO2, para aportar de una mejor forma las metas cantonales de carbono neutralidad.

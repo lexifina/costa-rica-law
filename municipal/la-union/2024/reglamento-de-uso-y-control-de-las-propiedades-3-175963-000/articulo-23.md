@@ -1,0 +1,1 @@
+Artículo 23.-Reutilización y aprovechamiento del agua. Se procurará la creación de tanques de recolección de agua pluvial que permita reutilizar este recurso para temas de riego de jardines, servicios sanitarios u otros.

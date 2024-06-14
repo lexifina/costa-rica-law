@@ -1,0 +1,4 @@
+Artículo 3°-Principios. Los principios básicos y funda-mentales de este reglamento son los siguientes:
+a. El derecho universal de todo ser humano a un ambiente sano y ecológicamente equilibrado.
+b. El disfrute del paisaje es un derecho de todos los seres humanos sin distinción de ningún tipo. Todo paisaje en general debe ser accesible, inclusivo y equitativo, de interés general y carácter colectivo, que sustente la identidad de las poblaciones que los habitan y que contribuye a la calidad de vida del ser humano, a su bienestar y superación tanto en lo sociocultural como en lo personal.
+c. La necesidad de armonizar los ingresos a las propiedades, en función de los usos permitidos en el Plan General de Manejo de la Zona Protectora Río Tiribí y la capacidad instalada de la Municipalidad de La Unión para la administración y manejo del área.

@@ -1,0 +1,1 @@
+Artículo 22.-Espacios de parqueos. Los espacios de parqueo deberán incluir la incorporación de infraestructura verde que permita mejorar las condiciones paisajísticas del área en las que se construye y también permita brindar sombra, para contrarrestar los efectos de las islas de calor identificadas en el cantón.

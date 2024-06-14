@@ -1,0 +1,1 @@
+Artículo 19.-Condiciones para la excepción de pago. Para optar por esta excepción, los interesados deberán solicitarlo por escrito a la Unidad Ambiental, indicando el objetivo de la visita al área, el tiempo que permanecerán y las actividades que allí realizarán, así como nombre y número de identificación. La Unidad Ambiental deberá resolver y comunicar oportunamente.

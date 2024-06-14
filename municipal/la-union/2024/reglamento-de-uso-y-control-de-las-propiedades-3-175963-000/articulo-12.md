@@ -1,0 +1,2 @@
+Artículo 12.-Horario de atención para el ingreso. Una vez implementada la segunda etapa, se mantendrá un horario de miércoles a domingo de 8:00 a.m. a 3:00, inclusive feriados, sin perjuicio de que la Unidad Ambiental o Alcaldía Municipal dispongan.
+En el lapso entre las 3:00 p.m. y las 4:00 p.m., todos los visitantes, deberán iniciar con la salida y retorno a la salida, con el fin de hacer efectivo el cierre de las instalaciones a las 4:00 p.m.

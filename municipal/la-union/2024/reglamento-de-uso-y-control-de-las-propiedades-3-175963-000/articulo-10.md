@@ -1,0 +1,3 @@
+Artículo 10.-Senderos de uso investigativo. Los senderos establecidos como senderos de investigación pretenden ser recorridos en donde el fin primordial sea el monitoreo e investigación de especies. El acceso se realizará solamente con la compañía de un funcionario municipal autorizado.
+Este tipo de senderos no será marcado con rotulación, ya que no pretende utilizarse para fines interpretativos. Su mantenimiento deberá ocasionar un impacto medio y el tipo de investigaciones a realizarse deben considerar tecnología que no produzca contaminación o bien con medidas de mitigación, retirando todo tipo de evidencias de la presencia humana una vez terminada la investigación.
+Al igual que el artículo anterior, esta tipología de sendero, será definida con sustento técnico.
