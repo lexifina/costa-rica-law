@@ -1,8 +1,5 @@
-Artículo 2º—De la integración del Comité Gerencial de Tecnologías de Información. El CGTI estará constituido por:
-a. El Gerente General quien lo presidirá;
-b. El Director de Gestión Administrativa-Financiera,
-c. El Encargado del Departamento de Planificación Institucional,
-d. El Encargado del Área de Tecnologías de Información quien fungirá como Secretaría Técnica.
-e. (Derogado este inciso mediante sesión N° 3865 del 14 de noviembre del 2013)
-Asimismo, el Presidente del CGTI nombrará una secretaria para dicho Comité la cual no tendrá ni voz ni voto en el mismo.
-En ausencia del Gerente General, el Director de Gestión Administrativa-Financiera presidirá las sesiones del CGTI.
+Artículo 2º-Definiciones.
+Tecnologías de información: Conjunto de tecnologías dedicadas a la gestión de la información institucional, el cual incluye los recursos de: información, software, infraestructura y personas relacionadas.
+Gestión de tecnología de información: Conjunto de acciones desarrolladas por la administración del INCOP a partir del diseño específico de controles basados en mejores prácticas de la industria y en acatamiento a la normativa vigente.
+Perfil tecnológico: documento que compila la realidad de una organización en materia de tecnología de información considerando como mínimo los aspectos siguientes: "marco de procesos para la gestión de TI, mapeo de procesos y subprocesos de negocio, organigrama de la entidad, conformación del Comité gerencial de tecnología de información, proveedores de TI, servicios de TI, inventario y criticidad de tipos documentales, centros de procesamiento y almacenamiento de datos, inventario de equipos y sistemas de información que soportan los servicios, software, proyectos de TI, planes de adquisición de TI, canales electrónicos y riesgos de TI".
+Marco de gestión de tecnología de información: Conjunto de mecanismos de control interno diseñados para la gestión de las tecnologías de información los cuales se diseñan como mínimo a partir de la consideración de los siguientes aspectos: "perfil tecnológico, naturaleza, complejidad, tamaño, modelo de negocio, volumen de operaciones, criticidad de procesos, riesgos y dependencia tecnológica".

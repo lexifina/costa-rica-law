@@ -1,3 +1,2 @@
 Artículo 10.-De los acuerdos. El comité gerencial de tecnología de información tomará sus acuerdos mediante votación, requiriéndose la mayoría simple de sus votos para la su formalización. Los acuerdos deben ser ejecutados a través de los procesos y estructura organizativa establecida en el INCOP. La responsabilidad de su implementación y seguimiento le corresponde a la persona que ocupe la presidencia del comité.
 Si alguna persona miembro del comité discrepa del criterio de la mayoría de sus integrantes, deberá expresar -de forma verbal o escrita-, las razones que sustentan su desacuerdo, las cuales deberán quedar consignadas en el acta de la sesión y adicionalmente ser firmada por quien discrepe.
-(Así reformado en sesión N° 44237 del 14 de junio de 2024)

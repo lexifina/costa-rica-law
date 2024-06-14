@@ -1,3 +1,0 @@
-Transitorio único.—El Gerente General de INCOP en un plazo no mayor de cinco días hábiles después de publicado el presente reglamento en el Diario Oficial La Gaceta, mediante resolución nombrará al funcionario de la Unidad Técnica de Supervisión y Control, como lo dispone el artículo 2º, así como a los sustitutos que se refiere el artículo 3º ambos del presente reglamento, previa consulta con los encargados de las Unidades que conforman el CGTI.
-Este reglamento deroga el anterior, aprobado por la Junta Directiva del INCOP mediante acuerdo Nº 5 de la sesión Nº 3406 celebrada el 27 de febrero del 2007.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -5,4 +5,3 @@ c) Cumplir los acuerdos establecidos por parte del comité.
 d) Desarrollar propuestas ante el comité cuando sean requeridas.
 e) Comunicar los resultados y avances en el trabajo realizado.
 f) Conformar grupos de trabajo para desarrollar actividades específicas.
-(Así reformado en sesión N 44237 del 14 de junio de 2024)

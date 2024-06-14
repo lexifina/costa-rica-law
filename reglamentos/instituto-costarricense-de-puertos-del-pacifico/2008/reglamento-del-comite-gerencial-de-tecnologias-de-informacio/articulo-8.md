@@ -6,6 +6,5 @@ d) Cada convocatoria deberá contar con la siguiente información:
 . Fecha y hora la sesión.
 . Lugar y/o medio.
 . Orden del día.
-. Documentos vinculados -Si los hubiere-
+. Documentos vinculados -Si los hubiere-.
 . Se podrá solicitar a las personas miembro, algún requerimiento que resulte de interés para el desarrollo de la sesión.
-(Así reformado en sesión N° 44237 del 14 de junio de 2024)
