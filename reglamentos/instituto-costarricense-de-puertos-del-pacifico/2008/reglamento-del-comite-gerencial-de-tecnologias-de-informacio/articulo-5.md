@@ -1,10 +1,11 @@
-Artículo 5º—Atribuciones del Presidente. Al Presidente del Comité Gerencial de Tecnologías de Información, le corresponderá presidir y coordinar las sesiones. Para tales efectos tendrá las siguientes atribuciones:
-a. Fijar el orden de los asuntos que deba conocer el Comité.
-b. Abrir y cerrar las sesiones.
-c. Dirigir los debates y someter a votación los asuntos importantes.
-d. Convocar a sesiones ordinarias y extraordinarias por iniciativa propia o también a instancia de la mayoría de los miembros del Comité.
-e. Comunicar los acuerdos a la Administración Superior, así como a las dependencias que corresponda.
-f. Llevar el control de los acuerdos e informar sobre el avance de los mismos a la Administración Superior.
-g. Le corresponde ser intermediario entre la Administración Superior y el Comité, para todos aquellos asuntos que le competan al mismo.
-h. Analizar previamente las propuestas de proyectos de TI de los usuarios, con el objeto de determinar su necesidad institucional y el respectivo traslado al Comité para su aprobación.
-i. Conformar o nombrar los grupos de trabajo y su coordinador.
+Artículo 5º-Integración del Comité. El comité gerencial de tecnología de información estará conformado por la persona que ocupe el cargo de titular subordinada de las siguientes unidades funcionales, las cuales serán las únicas con voz y voto:
+. Gerencia General -Preside-
+. Tecnologías de Información
+. Administrativa Financiera
+. Planificación Institucional
+. Adicionalmente, se integrará al Comité, la persona que lidere la gestión de Ciberseguridad dentro de la institución, rol determinado por la Unidad de Tecnologías de Información.
+Adicionalmente, se debe considerar lo siguiente:
+a) Ante ausencia de la persona presidente, le corresponderá a la persona que ocupe el cargo de Tecnologías de Información asumir el rol.
+b) El comité gerencial de tecnología de información podrá contar con la colaboración de personas externas en calidad de invitadas (personas asesoras externas, personal de INCOP, etc.) en función de la complejidad o relevancia de los temas por resolver. Tendrá voz, pero no voto.
+c) Contará con el apoyo logístico y administrativo de funciones secretariales y será ejecutado por la persona que el Comité designe mediante acuerdo.
+(Así reformado en sesión N° 44237 del 14 de junio de 2024)

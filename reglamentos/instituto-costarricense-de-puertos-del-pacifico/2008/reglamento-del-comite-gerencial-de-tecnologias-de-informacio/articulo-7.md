@@ -1,11 +1,8 @@
-Artículo 7º—De las funciones de los miembros del CGTI. Corresponde a los demás miembros del CGTI lo siguiente:
-a. Asistir puntualmente a las sesiones ordinarias, extraordinarias y de trabajo para las cuales sea citado y en caso de no poder asistir remitir al Presidente la justificación correspondiente.
-b. Proponer a la Presidencia la inclusión de asuntos a tratar en el orden del día de las sesiones ordinaria s y aprobar este como acto inicial de la reunión.
-c. Desempeñar las funciones que el Presidente asigne e informar por escrito de los resultados en el plazo establecido.
-d. Solicitar la revisión de los acuerdos del CGTI y la revocatoria o modificaciones de los mismos.
-e. Dar su voto sobre los asuntos que se sometan a su conocimiento.
-f. Formular proyectos, proposiciones y mociones que crean oportunas.
-g. Estudiar la información referida por la Secretaria del CGTI, a efecto de tener mejor criterio sobre los asuntos a tratarse en las sesiones.
-h. Participar en todas aquellas actividades de interés para la Institución en materia de informática.
-i. Participar en los grupos de trabajo que le indique el Presidente del CGTI.
-j. Las demás facultades que el CGTI les otorgue mediante acuerdo.
+Artículo 7º-De las sesiones. El comité gerencial de tecnología de información podrá realizar sus sesiones de trabajo de forma ordinaria y extraordinaria, de manera totalmente presencial o virtual o bien, híbrida, según los siguientes términos:
+a) Sesión ordinaria: sesión realizada como mínimo una vez por mes a partir de la convocatoria realizada por quien presida, según la programación establecida.
+b) Sesión extraordinaria: sesión realizada de acuerdo con las necesidades particulares del comité para atender asuntos de alta importancia o relevancia, previa convocatoria de la persona presidente.
+c) Sesiones Virtuales: Deberán realizarse conforme lo consigna el artículo 52 de la Ley General de la Administración pública, inciso 5:
+"Artículo 52.-
+(…)
+5. Tanto las sesiones ordinarias como las extraordinarias del órgano podrán celebrarse de manera virtual, mediante el uso de sistemas telemáticos que permitan una comunicación integral, simultánea e ininterrumpida de video, audio y datos entre sus integrantes y que garanticen en tiempo real la oralidad de la deliberación, la identidad de los asistentes, la autenticidad e integridad de la voluntad colegiada, la conservación e inalterabilidad de lo actuado y su grabación en medios que permitan su íntegra reproducción. En el caso de los órganos que realicen sesiones públicas, se deberá garantizar la publicidad mediante la utilización de medios virtuales, que permitan que la ciudadanía pueda seguir en tiempo real las deliberaciones.
+(Así reformado en sesión N° 44237 del 14 de junio de 2024)
