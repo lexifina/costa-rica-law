@@ -15,3 +15,4 @@ Reglamento de caja chica de INCOP
 | --- | --- | --- |
 | 1 | 2019-06-03 | la propia norma |
 | 2 | 2022-10-12 | Reglamento 4357 (2022-10-12) |
+| 3 | 2024-06-14 | Reglamento 4437 (2024-06-14) |

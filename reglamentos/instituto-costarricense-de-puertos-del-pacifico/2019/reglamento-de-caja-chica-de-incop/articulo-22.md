@@ -1,7 +1,6 @@
-Artículo 22-) Fiscalización:
-a-) Todo reintegro deberá respaldarse con documentos originales (electrónicos o físicos) que serán revisados por la Unidad de Tesorería quien será el responsable de velar por el cumplimiento de la normativa vigente que regula la materia de la Administración de fondos de caja chica, que mantiene la Institución, velando por la integridad y autenticidad de los documentos.
-(Así reformado el inciso anterior mediante sesión N° 4357 del 12 de octubre del 2022)
-b-) Contabilidad que le corresponde la revisión de los códigos contables, la integridad y autenticidad de los documentos, quienes serán los responsables de velar por el cumplimiento de la normativa vigente que regula en materia de administración de fondos de caja chica que mantiene la Institución, velando por la integridad y autenticidad de los documentos.
+Artículo 22.-Fiscalización:
+a-) Todo reintegro deberá respaldarse con documentos originales (electrónicos o físicos) que serán revisados por la Unidad de Tesorería quien será el responsable de velar por el cumplimiento de la normativa vigente que regula la materia de la administración de fondos de caja chica, que mantiene la Institución, velando por la integridad y autenticidad de los documentos.
+b-) A la C contabilidad le corresponde la revisión de los códigos contables, la integridad y autenticidad de los documentos, quienes serán los responsables de velar por el cumplimiento de la normativa vigente que regula en materia de administración de fondos de caja chica que mantiene la Institución.
 c-) Compete a la Administración y a la Auditoría Interna verificar el cumplimiento, la validez y la suficiencia del sistema de control interno, así como examinar regularmente la operación efectiva de las cajas chicas, sus registros, la custodia y el buen uso de los administrados bajo ese mecanismo. Tales funciones las cumplirá con fundamento en este Reglamento y la Ley General de Control Interno.
 d-) El encargado del manejo de los fondos no autorizará la entrega de efectivo por vale de caja chica o adelantos de viáticos, a aquellas personas que tienen liquidaciones pendientes. Salvo excepciones debidamente indicadas en el Procedimiento.
-(Así reformado el inciso anterior mediante sesión N° 4357 del 12 de octubre del 2022)
+(Así reformado en sesión N° 4437 del 14 de junio de 2024)

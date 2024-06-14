@@ -7,5 +7,8 @@ REGLAMENTO PARA LAS CAJAS CHICAS
 DEL INSTITUTO COSTARRICENSE DE PUERTOS DEL PACIFICO
 CAPÍTULO I
 Disposiciones generales
-Artículo 1-) Ámbito de Aplicación: La operación de las cajas chicas, bajo los lineamientos aquí establecidos estará bajo la responsabilidad directa del funcionario designado como encargado titular de la caja chica o del suplente en su ausencia, el cual tendrá la facultad de aprobar o rechazar todos los trámites o pagos efectuados por medio de estos fondos que no reúnan los requisitos estipulados en este reglamento y en los procedimientos correspondientes.
-(Así reformado mediante sesión N° 4357 del 12 de octubre del 2022)
+Artículo 1.-Ámbito de aplicación: El presente Reglamento se emite con sustento en el artículo 12 de Reglamento a la Ley de la Contratación Pública y al punto g) del artículo 3 de la Ley de la Contratación Pública, Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos (viáticos) y sus anexos, con el fin de suministrar a la Administración del INCOP de una herramienta que permita la ejecución y control de gastos menores e indispensables.
+El presente Reglamento no sustituye en forma alguna las normas y reglas establecidas en la Ley de la Contratación Pública y al Reglamento de dicha Ley. Su incumplimiento estará sujeto al régimen de responsabilidad administrativa, civil y penal previsto en la legislación costarricense y sanciones previstas en el mismo Reglamento.
+La operación de las cajas chicas, bajo los lineamientos aquí establecidos estará bajo la responsabilidad directa del funcionario designado como encargado titular de la caja chica o del suplente en su ausencia, el cual tendrá la facultad de aprobar o rechazar todos los trámites o pagos efectuados por medio de estos fondos que no reúnan los requisitos estipulados en este reglamento y en los procedimientos correspondientes.
+El incumplimiento de este artículo hará responsable en forma solidaria tanto al encargado del fondo como al funcionario que autorizó el pago ante la violación de este artículo.
+(Así reformado en sesión N° 4437 del 14 de junio de 2024)
