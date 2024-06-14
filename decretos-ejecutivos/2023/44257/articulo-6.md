@@ -1,0 +1,1 @@
+Artículo 6.- La Política Nacional de Envejecimiento y Vejez 2023-2033 se ejecutará mediante el Plan de Acción que se anexa al presente decreto y que para todos los efectos legales se considerará como parte integrante de este, el cual abarca los ejes y objetivos estratégicos y específicos descritos.

@@ -1,0 +1,1 @@
+Artículo 3.- Todas las dependencias del Sector Público serán responsables por la implementación de la Política Nacional de Envejecimiento y Vejez 2023-2033 y su Plan de Acción, dentro del ámbito de sus competencias legales.

@@ -1,0 +1,1 @@
+Artículo 4.- Para la implementación de la Política Nacional de Envejecimiento y Vejez 2023- 2033 y su Plan de Acción, las dependencias del Sector Público podrán hacer los ajustes internos razonables (modificaciones y adaptaciones necesarias) que se requieran en cada caso particular, para garantizar el ejercicio de los derechos a las personas adultas mayores.
