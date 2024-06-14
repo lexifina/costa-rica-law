@@ -1,0 +1,1 @@
+Artículo 23.-Del reajuste y revisión de precios. Todo reajuste o revisión de precios a los contratos suscritos por la Administración deberán contener la correspondiente validación del AC, mismo que deberá ser autorizado mediante resolución del AM.

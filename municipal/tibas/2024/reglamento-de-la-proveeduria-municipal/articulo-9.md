@@ -1,0 +1,1 @@
+Artículo 9º-Planificación de contrataciones y prevalencia de la Economía a Escala. Todas las Unidades Técnicas deberán consolidar sus requerimientos de obra pública, así como de bienes y servicios con la PI, con el propósito que se promuevan procedimientos de compras que aseguren los mejores precios y las mejores condiciones de eficiencia, eficacia y economía.
