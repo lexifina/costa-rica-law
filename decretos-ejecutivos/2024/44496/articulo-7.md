@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las Obligaciones del Director General
+Artículo 7º-Asignación de Recursos. Para el cumplimiento de sus funciones, la Contraloría de Servicios deberá planificar los requerimientos presupuestarios necesarios que garanticen su óptimo funcionamiento, conforme los procedimientos internos establecidos para ello, remitiéndolos a la Dirección General, para su inclusión dentro de la planificación presupuestaria institucional conforme las normas que regulan la materia. Asimismo, con el fin de garantizar la continuidad y calidad en el servicio que brindan, les dotará con carácter exclusivo, de un mínimo de dos funcionarios, incluida la persona encargada de la Contraloría de Servicios.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la Contraloría de Servicios
+Artículo 3º-Concepto. La Contraloría es un órgano asesor, canalizador y mediador de los requerimientos de efectividad y continuidad de las personas usuarias de los servicios que brinda la Dirección General de Migración y Extranjería. También apoya, complementa, guía y asesora a los Jerarcas o encargados en la toma de sus decisiones, en procura de incrementar la efectividad en el logro de los objetivos que se persiguen, así como la calidad en los servicios prestados.
+Además, tiene como fin promover, con la participación de las personas usuarias, el mejoramiento continuo e innovación en la prestación de los servicios que brinda la Dirección General de Migración y Extranjería, promoviendo la elaboración Y' divulgación de políticas de calidad 9e los servicios que brindan.

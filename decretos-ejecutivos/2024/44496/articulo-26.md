@@ -1,0 +1,2 @@
+Artículo 26. Confidencialidad de la Identidad de la Persona Usuaria. Al presentar su gestión ante la Contraloría de Servicios, la persona usuaria podrá solicitar que se proteja su identidad, para lo cual se deberán tomar las medidas de seguridad y privacidad necesarias, siendo que ninguna otra instancia interna o externa a la institución, incluida cualquier instancia jerárquica superior, institución pública o privada, podrá tener conocimiento en ningún momento de su identidad, salvo en aquellos casos que la ley u orden judicial lo
+determine.

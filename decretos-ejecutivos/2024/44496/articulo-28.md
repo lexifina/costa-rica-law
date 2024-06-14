@@ -1,0 +1,1 @@
+Artículo 28. - Procedimiento. El procedimiento a seguir en cada investigación que surge a partir de la interposición de una inconformidad, deberá ser expedito, claro, eficaz, abriendo un expediente con la información recabada y la recomendación generada enviada y sometida a la valoración y aplicación o no del Director General.
