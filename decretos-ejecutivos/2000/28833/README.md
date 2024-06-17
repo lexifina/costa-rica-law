@@ -18,3 +18,4 @@ Reglamento para la Evaluación y Calificación de la Calidad del Servicio Públi
 | 3 | 2014-09-12 | Decreto Ejecutivo 38603 (2014-09-11) |
 | 4 | 2020-09-03 | Decreto Ejecutivo 42611 (2020-09-03) |
 | 5 | 2021-09-17 | Decreto Ejecutivo 43217 (2021-09-17) |
+| 6 | 2024-06-17 | Decreto Ejecutivo 44870 (2024-06-17) |
