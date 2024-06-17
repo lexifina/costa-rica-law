@@ -1,0 +1,8 @@
+CAPÍTULO III
+Sobre la oficina para la persona adulta mayor
+y persona con discapacidad. (OPAMDIS)
+Artículo 3º-Sobre la creación y fortalecimiento.
+Se establece en la Municipalidad de San José la Oficina de la Persona Adulta Mayor y Persona con Discapacidad (OPAMDIS) como parte integral del desarrollo humano sostenible de la población, tomando como base las acciones que la administración municipal tiene establecidas y que ejecuta en la actualidad para ambos grupos poblacionales.
+La OPAMDIS se conforma de dos dependencias municipales que la definen, las cuales son: Programa de Atención para la Persona Adulta Mayor, que se ejecuta en el Departamento de Servicios Sociales de la Gerencia Provisión de Servicios y el Proceso de Accesibilidad adscrito a la Gerencia de Gestión Municipal y Desarrollo Urbano.
+Esta última es la dependencia encargada del cumplimiento de la ley 7600 (Igualdad de Oportunidades para Personas con Discapacidad), y leyes conexas y también del cumplimiento de la Política institucional en Accesibilidad y Discapacidad 2023- 2028 y sus actualizaciones futuras; la cual formará parte de este Reglamento a través de las acciones que ejecute el Proceso de Accesibilidad en virtud de ser el instrumento autorizado por la administración de la Municipalidad de San José.
+Ambas dependencias institucionales, se encargarán de la atención de estas poblaciones desde sus competencias y desde sus propios Planes Operativos Anuales en correspondencia al Programa de Atención para la Persona Adulta Mayor y el Proceso de Accesibilidad. Por esta razón, en el apartado sobre las competencias de la OPAMDIS (Artículo 5), se indica el término "Ambas Dependencias", a las que hace referencia, y que se regularán por este reglamento.

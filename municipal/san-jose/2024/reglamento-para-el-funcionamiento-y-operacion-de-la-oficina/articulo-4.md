@@ -1,0 +1,3 @@
+Artículo 4º-Objetivo de la OPAMDIS.
+La OPAMDIS, tiene el objetivo de desde el ámbito local, por una efectiva inclusión, promoción y cumplimiento de los derechos de las personas adultas mayores y de las personas con discapacidad, fortaleciendo y ampliando las acciones que actualmente se desarrollan en beneficio de estos grupos poblacionales.
+Para cumplir con este objetivo, la OPAMDIS podrá articular con la Comisión Municipal de Accesibilidad (COMAD), con el Consejo Nacional de Personas con Discapacidad (CONAPDIS) y con el Consejo Nacional de la Persona Adulta Mayor (CONAPAM), así como con cualquier otra organización nacional o internacional o instancia cuya naturaleza sea afín a los propósitos de las dos áreas que conforman la OPAMDIS en la Municipalidad de San José.
