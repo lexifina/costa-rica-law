@@ -1,0 +1,1 @@
+Artículo 33.-Cualquier infracción a este Reglamento, o el uso inadecuado de las herramientas a las que se refiere, autoriza al jefe inmediato del funcionario para que éste inicie el respectivo procedimiento disciplinario contra el funcionario responsable dependiendo de la gravedad de las acciones de las cuales se le acusen e investigue.

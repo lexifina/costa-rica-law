@@ -1,0 +1,1 @@
+Artículo 25.-El Departamento de Tecnologías de Información y Comunicación podrá consultar el historial, bitácora y sus respectivos respaldos sobre las actividades en Internet de todos los usuarios de la red, con el acompañamiento del departamento de auditoría y se establecerán las medidas o proceso disciplinario si fuese el caso.

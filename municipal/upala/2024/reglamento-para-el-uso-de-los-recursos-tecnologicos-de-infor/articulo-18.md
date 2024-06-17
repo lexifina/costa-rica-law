@@ -1,0 +1,1 @@
+Artículo 18.-Los accesos a las redes inalámbricas de la Municipalidad serán restringidos, por el departamento de Tecnologías de Información y Comunicación, para obtener acceso deberá ser justificado por algún medio oficial de La Municipalidad, tanto personal interno como externo.
