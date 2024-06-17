@@ -1,6 +1,7 @@
 CAPÍTULO III
 De los deberes, obligaciones y responsabilidades
-Artículo 7º—Deberes, obligaciones y responsabilidades de los Jefes o Encargados. Sin perjuicio de las enunciadas en otras normas aplicables, son deberes y obligaciones de los Jefes o Encargados respectivos en relación con los servidores de la Dirección Nacional las siguientes:
+Artículo 7: Deberes, obligaciones y responsabilidades de las jefaturas. Sin perjuicio de las enunciadas en otras normas aplicables, son deberes y obligaciones de los jefes o encargados, en relación con las personas servidoras de DINADECO, las siguientes:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44535 del 17 de junio del 2024)
 a) Cumplir y hacer cumplir la Constitución Política, las leyes de la República, así como cumplir con los deberes que exigen las leyes, los reglamentos, las instrucciones y circulares vigentes, atinentes a su puesto.
 b) Supervisar la labor de todos los servidores de su correspondiente nivel, tanto en el aspecto técnico, como en el administrativo.
 c) Dictar las disposiciones necesarias para que los servidores ejecuten sus funciones en forma eficiente y adecuada.
@@ -18,3 +19,5 @@ n) Dictar las disposiciones internas necesarias para el trabajo de su Área, Dep
 o) Planear y elaborar los anteproyectos de presupuesto correspondientes, para someterlos a aprobación del Superior Jerárquico.
 p) Elaborar los informes requeridos por la normativa de Control Interno, y cualquier otra regulación que se dicte en esa materia.
 q) Cumplir con todas las demás obligaciones propias de su cargo además de las contenidas en el artículo 102 de la Ley General de Administración Pública.
+r) Someterse a programas de formación y capacitación en servicio y mejoramiento técnico, competencias gerenciales y de cohesión entre las funciones del personal y las unidades administrativas, que demande el buen desempeño de su cargo.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44535 del 17 de junio del 2024)

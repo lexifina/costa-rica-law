@@ -1,6 +1,7 @@
 CAPÍTULO IV
 Prohibiciones a los servidores
-Artículo 9º—Conforme con lo dispuesto por el artículo 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, el Código de Trabajo, Ley Nº 8131 denominada Ley de Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8422 denominada Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública; Ley Nº 3859 Sobre Desarrollo de la Comunidad y su Reglamento y otras disposiciones del presente reglamento, queda prohibido a los servidores de la Dirección Nacional:
+Artículo 9: Conforme con lo dispuesto por el artículo 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, Ley Nº 9343 Reforma Procesal Laboral, Ley Nº 8131 denominada Ley de Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8422 denominada Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública; Ley Nº 3859 Sobre Desarrollo de la Comunidad y su Reglamento y otras disposiciones del presente reglamento, queda prohibido a los servidores de DINADECO:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44535 del 17 de junio del 2024)
 a) Ausentarse del centro de trabajo o de sus labores en horas de trabajo, sin causa justificada o permiso de su jefe inmediato, o demorar sin justa causa el trámite de los asuntos que le han sido encomendados.
 b) Hacer durante su trabajo, propaganda político-electoral.
 c) Distraer tiempo de sus labores para asuntos ajenos a los correspondientes a su cargo.
@@ -20,3 +21,5 @@ q) Asistir al trabajo en estado de embriaguez o bajo otra condición análoga, i
 r) Portar armas de cualquier clase durante las horas de servicio, salvo que aquellas sean requisito derivado del desempeño de su cargo.
 s) Llevar a cabo trabajos o actividades remuneradas o no, fuera de su servicio que estén en conflicto con sus deberes y responsabilidades como servidor de la Dirección Nacional y que generen motivo de duda razonable sobre la imparcialidad en el ejercicio de su cargo.
 t) Recomendar los servicios de un profesional mediando o no solicitud de las asociaciones de desarrollo comunal o alguno de sus integrantes.
+u) Formar parte de las juntas directivas de organizaciones comunales, ni ser representante ante otras instancias del movimiento comunal.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44535 del 17 de junio del 2024)

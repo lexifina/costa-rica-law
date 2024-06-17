@@ -1,1 +1,1 @@
-Artículo 28.—No se considerará como falta si el servidor que marcó la tarjeta lo hizo por error evidente, o aquel a quien le marcaron la suya, informa del hecho ante quien corresponde, a más tardar en la siguiente jornada que le tocare laborar.
+Artículo 28.- (Derogado por el artículo 3° del decreto ejecutivo N° 44535 del 17 de junio del 2024)

@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio y Organización de la Dirección Nacional de De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-15 | la propia norma |
+| 2 | 2024-06-17 | Decreto Ejecutivo 44535 (2024-06-17) |
