@@ -1,0 +1,1 @@
+Artículo 5º-El CONARE deberá resolver los desacuerdos, reclamos, consultas e impugnaciones que interponga cualquiera de los participantes en las distintas etapas del proceso de selección, antes de remitir a la Contraloría General de la República la solicitud de aprobación del proceso concursal y la terna o nómina respectiva.

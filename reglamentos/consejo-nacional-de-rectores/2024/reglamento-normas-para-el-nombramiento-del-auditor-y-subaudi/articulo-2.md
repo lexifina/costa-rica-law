@@ -1,0 +1,1 @@
+Artículo 2º-El proceso de reclutamiento y selección deberá garantizar el adecuado cumplimiento del principio de idoneidad comprobada del servidor público, así como los fines institucionales y los de la educación superior universitaria estatal, en general.

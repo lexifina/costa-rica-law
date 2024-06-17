@@ -1,0 +1,1 @@
+Artículo 21.-Una vez que la segunda fase de selección haya concluido, la Comisión Calificadora elaborará el cuadro de evaluación para la asignación de porcentajes de selección obtenidos por cada candidato.

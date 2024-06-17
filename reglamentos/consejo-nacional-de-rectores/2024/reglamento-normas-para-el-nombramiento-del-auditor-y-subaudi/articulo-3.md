@@ -1,0 +1,1 @@
+Artículo 3º-Ningún funcionario de CONARE o miembro de su Consejo podrá evaluar las candidaturas que presenten sus parientes por consanguinidad o afinidad de hasta el tercer grado inclusive. En tal caso deberán separarse del conocimiento del proceso.

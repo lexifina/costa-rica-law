@@ -1,0 +1,1 @@
+Artículo 18.-Recibida la resolución administrativa de la fase de reclutamiento, la Comisión Calificadora iniciará el estudio de los atestados y programará la realización de las entrevistas y las pruebas correspondientes.

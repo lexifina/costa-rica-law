@@ -1,0 +1,1 @@
+Artículo 4º-El Departamento de Gestión del Talento Humano (DGTH) elaborará un expediente debidamente foliado y en estricto orden cronológico, en el cual se mantendrá toda la información relativa al proceso de nombramiento efectuado, incluyendo las labores previas y los resultados obtenidos, así como acciones subsecuentes que sean de interés en el proceso.

@@ -1,0 +1,2 @@
+Artículo 30.-En caso de que la persona elegida renunciara al cargo o fuera cesada en un periodo menor a 18 meses a partir del inicio de su contrato, se podrá seleccionar otro candidato entre los que conformaron la terna o nómina del concurso público realizado, de acuerdo con el periodo de validez del concurso que CONARE haya establecido, de lo cual se informará a la Contraloría General de la República.
+Pavas, 10 de junio de 2024.
