@@ -14,3 +14,4 @@ Reglamento para definir caminos públicos, su clasificación y codificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-10 | la propia norma |
+| 2 | 2024-06-17 | Decreto Ejecutivo 44669 (2024-06-17) |
