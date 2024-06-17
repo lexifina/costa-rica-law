@@ -1,1 +1,0 @@
-Artículo XIII.—Cumplidas las formalidades señaladas en el artículo VI, el Tesorero entrega el dinero a quien corresponda, se reserva el original del comprobante y remite la copia al Alcalde. Una vez hecha la compra, el Tesorero solicita a la persona que la realizó, los justificantes originales cancelados, cuando esto proceda.

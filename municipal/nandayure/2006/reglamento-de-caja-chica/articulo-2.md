@@ -1,1 +1,0 @@
-Artículo II.—Sobre los gastos de viáticos ver Ley N° 3462 del 26 de noviembre de 1964 y el respectivo Reglamento que dicta la Contraloría General de la República, que se denomina “Reglamento de gastos de viaje y de transportes para funcionarios o empleados del Estado” conocido como “Reglamento de viáticos”.
