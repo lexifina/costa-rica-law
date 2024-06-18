@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Seguimiento de los resultados y atención de las denuncias. La Auditoría Interna dará seguimiento a la resolución final de los informes resultantes de la investigación de las denuncias tramitadas, para verificar la debida atención de lo señalado en estos, así como de las denuncias que se le trasladen a la administración.

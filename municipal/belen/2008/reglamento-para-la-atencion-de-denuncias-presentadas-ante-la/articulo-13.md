@@ -1,6 +1,3 @@
-Artículo 13.—Comunicación al denunciante. Al denunciante se le deberá comunicar cualquiera de las siguientes resoluciones que se adopten, en relación con su gestión:
-a. El acto de admisión de la denuncia.
-b. La decisión de desestimar la denuncia y de archivarla.
-c. La decisión de trasladar la gestión para su atención a lo interno de la administración.
-d. El resultado final del estudio que se realizó con motivo de su denuncia. Esta comunicación no comprenderá la información, documentación u otras evidencias de las investigaciones, cuyos resultados puedan originar la apertura de un procedimiento administrativo o la interposición de un proceso judicial.
-Las anteriores comunicaciones se realizarán en el tanto el denunciante haya especificado su nombre, calidades y lugar para notificación.
+CAPÍTULO IV
+DE LA FASE DE ADMISIBILIDAD Y ANÁLISIS INICIAL
+ARTÍCULO 13.- Admisibilidad de la denuncia. Una vez ingresada una denuncia se verificará el cumplimiento de los requisitos establecidos en el artículo 9 de este reglamento para su admisibilidad, el cual en un plazo de 10 días hábiles se debe dar respuesta al denunciante, respecto a si se da trámite a la denuncia, si se solicita aclaración o información adicional o se desestima y archiva.

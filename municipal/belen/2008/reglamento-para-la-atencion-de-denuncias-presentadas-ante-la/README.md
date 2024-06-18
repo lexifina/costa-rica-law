@@ -14,3 +14,4 @@ Reglamento para la atención de denuncias presentadas ante la auditoría interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-07 | la propia norma |
+| 2 | 2024-06-18 | Reglamento municipal 36 (2024-06-18) |

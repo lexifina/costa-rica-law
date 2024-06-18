@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Conformación del expediente. La Auditoría Interna deberá documentar en un expediente individual, las acciones realizadas para la atención de las denuncias, mediante los medios definidos y oficializados por este Órgano, velando por la integridad, custodia y confidencialidad de la documentación que lo conforme.

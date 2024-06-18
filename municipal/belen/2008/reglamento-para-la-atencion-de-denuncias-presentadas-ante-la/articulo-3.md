@@ -1,1 +1,14 @@
-Artículo 3º—Principios ordenadores. En el trámite de las denuncias se atenderán los principios de informalidad, oficiosidad, celeridad y eficacia.
+CAPÍTULO II
+DISPOSICIONES GENERALES
+ARTÍCULO 3.- Definiciones. Administración activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen al jerarca, como última instancia.[1]
+Auditor(a) interno(a): funcionario de mayor jerarquía dentro de la Auditoría Interna.
+Auditoría Interna (A.I.): Órgano fiscalizador de la Hacienda Pública en la Municipalidad de Belén.
+Acción: Actuación efectiva de un funcionario público, un exfuncionario o un tercero, que produce efectos previstos en el ordenamiento jurídico. [2]
+Hechos presuntamente irregulares: Conductas entendidas como acciones u omisiones, atribuibles a los sujetos cubiertos por el ámbito de competencia de la Auditoría Interna, que podrían infringir el ordenamiento jurídico, provocar daños o causar perjuicios a la institución pública y que puedan generar algún tipo de responsabilidad a cargo del infractor. [3]
+Denuncia: Acto que realiza una persona física o jurídica, pública o privada, de forma escrita o verbal, para poner en conocimiento de la Auditoría Interna, un hecho que se presume irregular con respecto al manejo de los recursos públicos, con el objetivo de que sea investigado, según su procedencia.
+Denunciante: Persona física o jurídica, pública o privada, que formula una denuncia.
+Denuncia anónima: La realizada por una persona sin identificarse o mediante el uso de un seudónimo o nombre falso.
+Fondos Públicos: Son los recursos, valores, bienes y derechos, propiedad del Estado, de órganos, de empresas o de entes públicos.
+Hacienda Pública: Es la organización formada por los entes y órganos públicos, incluyendo los no estatales, propietarios o encargados, por cualquier título, de la administración del patrimonio público; salvo la contribución obrero patronal que es de naturaleza pública. [4]
+Sector Público: El integrado por el Estado, los órganos y entes de la Administración descentralizada, los entes públicos no estatales y por las empresas públicas, cualquiera que sea su forma jurídica e incluso si esta se encuentra constituida como una entidad jurídica privada, a través de las cuales la Administración Pública ejerza la iniciativa económica, poseyendo la mayoría del capital social o una posición que le otorgue, directa o indirectamente, el control de su gestión.
+Servidor Público: Es servidor público la persona que presta servicios a la Administración o a nombre y por cuenta de ésta, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.[5]

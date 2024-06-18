@@ -1,1 +1,3 @@
-Artículo 7º—Información complementaria. La persona denunciante deberá también brindar información complementaria, respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo, los probables testigos, según corresponda y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.
+CAPÍTULO III
+SOBRE EL TRÁMITE DE LAS DENUNCIAS
+ARTÍCULO 7.- Formas de presentación de las denuncias. Las denuncias podrán presentarse por cualquier medio escrito.

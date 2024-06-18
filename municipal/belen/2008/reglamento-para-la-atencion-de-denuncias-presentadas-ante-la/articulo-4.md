@@ -1,2 +1,10 @@
-Artículo 4º—Confidencialidad. La identidad del denunciante se guardará en todo momento. Todo papel de trabajo, razón de archivo o comunicación a terceros generada por la Auditoría Interna, como resultado de la denuncia recibida, no deben consignar la identidad del denunciante.
-La información, la documentación y otras evidencias de las investigaciones que efectúe la Auditoría, cuyos resultados puedan originar la apertura de un procedimiento administrativo o un proceso judicial, serán confidenciales, de conformidad con lo establecido en los artículos 6° de la Ley Nº 8292 y 8 de la Ley Nº 8422.
+ARTÍCULO 4.- Marco de Legalidad. El presente Reglamento se fundamenta en:
+• Ley General de Control Interno Nro. 8292.
+• Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nro. 8422.
+• Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nro. 8422.
+• Normas para el ejercicio de la auditoría interna en el sector público (R-DC-119-2009).
+• Normas Generales de Auditoría para el Sector Público (R-DC-064-2014).
+• Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR (R-DC-83-2018).
+• Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares R-DC-109-2019.
+• Lineamientos para la atención de denuncias presentadas ante la Contraloría General de la República R-DC-82-2020.
+• Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Belén.
