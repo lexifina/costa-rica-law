@@ -1,3 +1,4 @@
 CAPÍTULO II
 Sobre la organización interna de la Auditoría
-Artículo 3º—Definición de la Auditoría: La Auditoría Interna es la actividad independiente, objetiva y asesora, que proporciona seguridad a Correos de Costa Rica S. A., puesto que se crea para valide y mejore sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para que evalúe y mejore la efectividad de la administración del riesgo, del control y de los procesos de dirección y le facilita una garantía razonable a los ciudadanos costarricense, que Correos de Costa Rica S. A. es administrado conforme al marco legal y técnico aplicables y a las prácticas sanas.
+Artículo 3º-Ámbito de acción: El ámbito de acción está conformado por Correos de Costa Rica y por los entes u órganos públicos y privados sujetos a la competencia institucional de la Auditoría Interna.
+(Así reformado mediante sesión N° 1843 del 18 de junio del 2024)

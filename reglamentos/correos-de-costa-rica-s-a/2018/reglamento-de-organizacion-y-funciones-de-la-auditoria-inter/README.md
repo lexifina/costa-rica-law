@@ -15,3 +15,4 @@ Reglamento de organización y funciones de la auditoría interna de Correos de C
 | --- | --- | --- |
 | 1 | 2018-04-12 | la propia norma |
 | 2 | 2019-07-23 | Reglamento 1570 (2019-07-23) |
+| 3 | 2024-06-18 | Reglamento 1843 (2024-06-18) |

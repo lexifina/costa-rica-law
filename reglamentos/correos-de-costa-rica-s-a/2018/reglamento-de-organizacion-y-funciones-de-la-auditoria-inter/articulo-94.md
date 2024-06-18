@@ -1,3 +1,10 @@
-CAPÍTULO XVI
-Aspectos sobre disposiciones finales
-Artículo 94.—Derogatorias: Deróguese el Reglamento de la Auditoría Interna de Correos de Costa Rica S. A. aprobado por acuerdos No. 4098 y 4197 de Junta Directiva de las sesiones 795 y 821 celebradas el 16 de julio y 18 de octubre, ambos del 2007, respectivamente.
+Artículo 94.-Contenido de la Denuncia Penal.
+a) Eventuales responsables. Identificación de las personas sobre las que podría recaer la responsabilidad, salvo que de acuerdo con los hechos y circunstancias exista imposibilidad real de identificar al eventual responsable o responsables.
+b) Hechos. Descripción clara, precisa, lógica, congruente y en orden cronológico de las acciones u omisiones que se presumen productoras de responsabilidad por la eventual comisión de ilícitos penales.
+c) Consideraciones fáctico-jurídicas. Análisis en el que se detalla en forma razonada por qué se estima que los hechos determinados configuran la comisión de posibles delitos, con indicación de las normas que se consideran transgredidas y los posibles daños y perjuicios que hubiesen sido ocasionados por el eventual responsable o responsables.
+d) Ofrecimiento de prueba. Detalle de la prueba que sustenta los hechos, que puede ser toda aquella permitida por el Derecho Penal. Deberán identificar y señalarse los hechos a los que se referirá en caso de prueba testimonial o pericial.
+e) Aplicación de los artículos 358 del Código Penal y 59 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Se solicitará a la autoridad judicial respectiva, conforme los artículos referenciados y en caso de sentencia condenatoria, imponer como pena accesoria la inhabilitación para el ejercicio del cargo por un plazo acorde con la gravedad de los hechos.
+f) Determinación del daño y perjuicio económico. Cuando sea factible establecer un monto que demuestre la existencia de un daño y perjuicio resultante de la comisión del delito, se debe indicar la cantidad aproximada, así como el método utilizado para realizar la estimación.
+g) Lugar o medio para recibir notificaciones. Solicitar al Ministerio Público información permanente para la Auditoría Interna sobre las resoluciones atinentes a la denuncia presentada, para lo cual se debe señalar con claridad el lugar o medio para recibir notificaciones, así como el nombre del colaborador a quien deben ser dirigidas.
+h) Firma del documento. La denuncia penal deberá ser firmada por El Auditor Interno.
+(Así modificada su numeración en sesión N° 1843 del 18 de junio del 2024, que lo traspaso del antiguo artículo 91 al artículo 94)

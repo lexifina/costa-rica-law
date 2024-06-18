@@ -1,5 +1,2 @@
-Artículo 85.—Requisitos esenciales que deben reunir las denuncias:
-a) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó.
-b) Se deberá señalar la posible situación irregular que afecta la Hacienda Pública por ser investigada.
-c) El denunciante deberá indicar cuál es su pretensión sobre el hecho denunciado.
-d) Nombre, número de cédula, número de teléfono y correo electrónico. Este último puede definirse por el denunciante como el lugar para notificaciones.
+Artículo 85.-Ámbito de competencias de denuncias: La Auditoría Interna dará trámite solo a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública y lo regulado por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública No. 8422 y que analizadas muestren seriedad, oportunidad y de interés empresarial o público.
+(Así modificada su numeración en sesión N° 1843 del 18 de junio del 2024, que lo traspaso del antiguo artículo 82 al artículo 85)

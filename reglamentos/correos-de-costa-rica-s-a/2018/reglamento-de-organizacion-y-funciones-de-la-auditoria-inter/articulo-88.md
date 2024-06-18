@@ -1,1 +1,6 @@
-Artículo 88.—Resolución de las denuncias: El Auditor Interno debe asignar por escrito a uno de sus auditores de campo, el análisis de admisibilidad de la denuncia. Este debe emitir un criterio profesional con los argumentos suficientes para definir si se archiva o se recomienda el inicio de un estudio especial. En este último caso, es decisión del Auditor Interno su realización inmediata o posponerlo para el siguiente año, fundamentado en la programación en curso de la Auditoría, la complejidad del estudio, la disposición de recursos, el interés institucional y eventual daño a la empresa.
+Artículo 88.-Requisitos esenciales que deben reunir las denuncias:
+a) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación: el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó.
+b) Se deberá señalar la posible situación irregular que afecta la Hacienda Pública por ser investigada.
+c) El denunciante deberá indicar cuál es su pretensión sobre el hecho denunciado.
+d) Nombre, número de cédula, número de teléfono y correo electrónico. Este último puede definirse por el denunciante como el lugar para notificaciones.
+(Así modificada su numeración en sesión N° 1843 del 18 de junio del 2024, que lo traspaso del antiguo artículo 85 al artículo 88)
