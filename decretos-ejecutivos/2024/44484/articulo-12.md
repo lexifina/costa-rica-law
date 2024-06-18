@@ -1,0 +1,1 @@
+Artículo 12.-Derogatorias. Deróguese el Decreto Ejecutivo N° 1743-SPPS del 4 de junio de 1971 "Reglamento General de Hospitales Nacionales" publicado en el Alcance N° 71 a La Gaceta N° 143 del 14 de julio de 1971 y el Decreto Ejecutivo N° 19675 del 30 de abril de 1990 "Reglamento Organización Área de Salud", publicado en La Gaceta N° 98 del 24 de mayo de 1990.
