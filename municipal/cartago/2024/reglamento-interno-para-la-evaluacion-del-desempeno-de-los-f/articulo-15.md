@@ -1,0 +1,5 @@
+Capítulo IV Impugnaciones
+Artículo 15. Impugnación a la asignación de metas. En caso de disconformidad con la asignación de metas, el funcionario municipal presentará el recurso de revocatoria ante su Jefatura inmediata en un plazo máximo de un día hábil después de notificadas las metas; y la Jefatura inmediata tendrá dos días hábiles para resolver ese recurso; en caso de que el recurso de revocatoria sea declarado sin lugar por la jerarquía institucional inmediata, esta deberá hacer un oficio formal y trasladará lo resuelto a la Comisión de Apelaciones de Metas, para que conozca en alzada el documento de apelación.
+La Comisión tendrá dos días hábiles para resolver el recurso de apelación; y notificará la resolución a las partes involucradas, sea para que se asignen nuevas metas o se ratifiquen las ya asignadas.
+Lo resuelto por la Comisión agota la vía administrativa.
+En caso de que se declare con lugar el recurso interpuesto por el funcionario, la Jefatura tendrá cinco días hábiles para la asignación de las nuevas metas conforme a la metodología aprobada.

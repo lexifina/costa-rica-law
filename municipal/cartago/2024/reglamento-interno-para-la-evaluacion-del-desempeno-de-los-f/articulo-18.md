@@ -1,0 +1,1 @@
+Artículos 18. Efectos de los actos administrativos apelados. Mientras el acto administrativo se encuentre en estado de resolución, sea por parte del Concejo Municipal, el Alcalde Municipal o una Instancia externa, la evaluación del desempeño no tendrá ninguno de los efectos administrativos indicados en el capítulo V de este reglamento.

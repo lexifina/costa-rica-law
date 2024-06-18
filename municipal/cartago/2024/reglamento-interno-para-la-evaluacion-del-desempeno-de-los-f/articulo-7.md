@@ -1,0 +1,6 @@
+Artículo 7. Escala para la calificación de la evaluación del desempeño. La calificación de la evaluación del desempeño de los servidores de la Municipalidad de Cartago se regirá mediante los siguientes valores, puntajes y conceptos definidos en la siguiente escala:
+Valor (en puntos) | Calificación | Descripción del valor y la calificación
+1 a 69 | Insuficiente / Regular | El rendimiento no cumplió las expectativas. Los resultados fueron muy por debajo a los indicadores de resultados esperados o estándares definidos para los objetivos de trabajo y/o la dificultad en el logro de las metas designadas. Se requiere una mejora oportuna y significativa.
+70 a 84 | Bueno | El rendimiento cumple las expectativas y consistentemente genera fuertes resultados a partir de los requerimientos del trabajo, logrando una contribución significativa a la consecución de las metas vinculantes.
+85 a 94 | Muy Bueno | El funcionario hace una contribución excepcional a las metas y objetivos de la institución, superando consistentemente los requisitos del trabajo, ofreciendo resultados que proporcionan un valor excepcional para el departamento, el equipo de trabajo y hacia los usuarios.
+95 a 100 | Excelente | El desempeño del servidor público se destaca sobre sus pares y excede las expectativas de las labores y metas encomendadas para el cargo. Modelo y referente para seguir.

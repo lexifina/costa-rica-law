@@ -1,0 +1,1 @@
+Artículo2. Ámbito de aplicación. El presente reglamento se aplicará a todos los funcionarios de la Municipalidad de Cartago quienes tendrán el derecho de ser evaluados en su desempeño y también por parte de aquellos funcionarios que tengan responsabilidad de evaluar a los funcionarios a su cargo inmediato.
