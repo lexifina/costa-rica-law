@@ -1,0 +1,3 @@
+ARTÍCULO 14- Planificación y proyección de flujos de caja
+Las entidades públicas o privadas que administren ingresos públicos deberán realizar una planificación de los flujos de caja sustentada en proyecciones que contemple el calce de los posibles ingresos con sus respectivas erogaciones, de manera tal que las entidades dispongan de una posición consolidada diaria, que les permita mantener los recursos necesarios para atender sus obligaciones, minimizando la tenencia de recursos ociosos.
+En el caso de los ingresos públicos que estén en el Sistema de Cuentas del Sector Público, la Tesorería Nacional brindará asistencia técnica y determinará los límites y montos para la planificación y proyección del flujo de caja.

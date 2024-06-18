@@ -1,0 +1,2 @@
+ARTÍCULO 36- Procedimiento administrativo
+La responsabilidad se determinará de conformidad con la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978 y demás aplicables a la entidad competente, asegurando a las partes, en todo caso, las garantías constitucionales relativas al debido proceso y la defensa previa, real y efectiva, y sin perjuicio de las medidas preventivas procedentes.

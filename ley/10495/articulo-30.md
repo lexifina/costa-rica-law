@@ -1,0 +1,3 @@
+ARTÍCULO 30- Fungibilidad y disponibilidad de los recursos
+La Tesorería Nacional podrá disponer de los recursos depositados y no requeridos por las entidades públicas o privadas, para la realización de operaciones de gestión de liquidez, respetando la reserva de liquidez necesaria para atender futuras obligaciones. El monto de dicha reserva será definido por la Tesorería Nacional, para lo cual deberá elaborar una metodología fundamentada técnicamente.
+La Tesorería Nacional deberá garantizar la disponibilidad de los recursos requeridos por las entidades con titularidad, independientemente de la existencia de una programación financiera y las fechas establecidas.

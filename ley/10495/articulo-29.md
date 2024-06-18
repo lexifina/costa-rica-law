@@ -1,0 +1,3 @@
+ARTÍCULO 29- Programación financiera
+Es deber de las entidades públicas o privadas, incluidas obligatoriamente en el Sistema de Cuentas del Sector Público, planificar con suficiente antelación los posibles ingresos y necesidades de pago. Tal programación permite a la Tesorería Nacional conocer las necesidades y disponer de la liquidez necesaria para respaldar las transacciones de pago de las entidades.
+La formulación de la programación financiera será responsabilidad de cada entidad pública o privada en atención a los lineamientos y orientaciones que establezca la Tesorería Nacional para su elaboración.

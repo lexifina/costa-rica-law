@@ -1,0 +1,2 @@
+ARTÍCULO 9- Uso de plataformas orientadas a la ciudadanía
+Las entidades públicas o privadas que administren o custodien ingresos públicos, así como ingresos de origen público que reciban de forma gratuita o sin contraprestación alguna, que no estén en el Sistema de Cuentas del Sector Público, deberán poner a disposición de la ciudadanía plataformas interoperables eficientes de captación de ingresos y realización de pagos.

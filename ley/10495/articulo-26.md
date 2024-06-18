@@ -1,0 +1,2 @@
+ARTÍCULO 26- Auditoría interna
+La Auditoría interna del Ministerio de Hacienda realizará, periódicamente, estudios y evaluaciones para determinar si la Tesorería Nacional cumple en todo momento con los requerimientos establecidos para un buen manejo del riesgo de liquidez y otros asociados al manejo eficiente de la liquidez. La Auditoría interna deberá elaborar un informe, en el cual explicará detalladamente su análisis y hallazgos, el cual deberá enviar a conocimiento del respectivo ministro o ministra y al tesorero o tesorera nacional.
