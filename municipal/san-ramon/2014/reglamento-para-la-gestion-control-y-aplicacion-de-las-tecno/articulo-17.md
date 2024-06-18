@@ -1,2 +1,2 @@
-Artículo 17. Control de Inventario. El inventario del software y hardware de la Municipalidad, será responsabilidad del DIT, la cual estará obligada a llevarlo en forma ordenada y actualizada.
-Dicho inventario será efectuado una vez al año, a fin de determinar las condiciones del mismo, las nuevas necesidades para contemplarlas dentro del plan operativo.
+Artículo 17. Control de Inventario. El inventario del software y hardware de la Municipalidad será responsabilidad de la Dirección Administrativa o quien designe la administración, con la colaboración del Departamento de Informática y Tecnologías de la Información (DIT). El responsable estará obligado a llevarlo en forma ordenada y actualizada. Dicho inventario será efectuado una vez al año, a fin de determinar las condiciones del mismo, así como las nuevas necesidades para contemplarlas dentro del plan operativo.
+(Así reformado mediante session ordinaria N° 11 del 18 de junio de 2024)

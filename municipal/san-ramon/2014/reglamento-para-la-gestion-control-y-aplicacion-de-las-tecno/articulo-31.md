@@ -1,6 +1,6 @@
-Artículo 31. Procedimiento para la adquisición de hardware, software o servicio.
-Para toda solicitud de compra de hardware, software o servicio se procederá de la siguiente manera:
+Artículo 31.-Procedimiento para la adquisición de hardware, software o servicio. Salvo las excepciones debidamente motivadas y dispuestas por la Alcaldía, toda solicitud de compra de hardware, software o servicio se tramitará de la siguiente manera:
 a) Las Jefaturas de la Municipalidad formularán la solicitud formalmente al Departamento de Informática con la justificación detallada de la necesidad de desarrollo o el uso que tendrá el equipo. Será el DIT quién realizará el estudio técnico de factibilidad, y la elaboración de las especificaciones de los equipos que se ajustan a los requerimientos planteados.
 b) Una vez rendido el Informe por parte del Departamento Informática y de resultar procedente, el Departamento de Proveeduría gestionará la compra del equipo mediante los procedimientos establecidos en materia de Contratación Administrativa.
 c) El nuevo hardware, software o servicio que adquiera la institución será ingresado al Departamento de Informática, para que ésta haga una revisión. Éste debe encontrarse en óptimas condiciones de funcionamiento y debe cumplir con las estipulaciones exigidas por la Municipalidad, según lo solicitado.
 d) El funcionario del DIT que reciba el material deberá indicarle por escrito al Departamento de Proveeduría, que los bienes adquiridos cumplen con las exigencias solicitadas.
+(Así reformado mediante session ordinaria N° 11 del 18 de junio de 2024)

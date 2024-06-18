@@ -14,3 +14,4 @@ Reglamento para la gestión, control y aplicación de las Tecnologías de Inform
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-28 | la propia norma |
+| 2 | 2024-06-18 | Reglamento municipal 11 (2024-06-18) |
