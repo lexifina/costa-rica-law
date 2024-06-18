@@ -1,0 +1,3 @@
+ARTÍCULO 7- Gestión de liquidez y de deuda
+Las operaciones de gestión de excedentes de liquidez y la minimización del costo del endeudamiento a corto plazo deberá desarrollarse de manera coordinada, integrada y coherente con la Política de Endeudamiento para el Sector Público Costarricense, la estrategia y los planes de endeudamiento a mediano y largo plazos, definidos para las entidades públicas o privadas.
+En el caso de los recursos del Sistema Banca para el Desarrollo, la gestión de liquidez y deuda se realizará de conformidad con la Ley 8634, Sistema Banca para el Desarrollo, de 23 de abril de 2008.

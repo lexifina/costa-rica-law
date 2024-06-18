@@ -1,0 +1,2 @@
+ARTÍCULO 24- Plan de financiación contingente
+El plan de financiación contingente debe incluir el conjunto de medidas, las líneas de responsabilidad claras y los procedimientos de activación, que permita a la Tesorería Nacional hacer frente a situaciones de iliquidez propias o surgidas de eventos imprevistos del entorno o situaciones de carácter económico, político y social, basado en criterios debidamente fundamentados y respaldados en un plan formalmente establecido que posibilite su implementación.

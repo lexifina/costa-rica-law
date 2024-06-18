@@ -1,0 +1,6 @@
+ARTÍCULO 22- Control y gestión de riesgos de liquidez y otros asociados
+Para un adecuado control y administración de los riesgos de liquidez y otros asociados al manejo eficiente de la liquidez, la Tesorería Nacional como administrador del Sistema deberá:
+a) Aprobar e implementar las políticas, los planes, los objetivos, la estrategia, los lineamientos y procedimientos para la administración del riesgo de liquidez y otros riesgos asociados propios de la gestión de tesorería, así como las modificaciones que se realicen a estos .
+b) Desarrollar los modelos, los indicadores, las herramientas, los parámetros y los escenarios que se utilicen para la medición y control del riesgo de liquidez.
+c) Aprobar los mecanismos de alerta, seguimiento y monitoreo para la implementación de acciones correctivas, en caso de que existan desviaciones con respecto a niveles generalmente aceptados de riesgo de liquidez y otros propios a la gestión de tesorería; asimismo, cuando se presenten cambios relevantes en el entorno.
+d) Aprobar los planes de contingencia y sus modificaciones, revisar y comprobar la efectividad de estos al menos una vez al año e implementar las acciones correctivas cuando corresponda.

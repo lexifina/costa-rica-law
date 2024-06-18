@@ -1,0 +1,2 @@
+ARTÍCULO 11- Oportunidad en el traslado de los ingresos
+Todos los ingresos públicos que se recauden mediante los diversos mecanismos disponibles para la ciudadanía, independientemente de la plataforma o el sistema informático que se utilice, deberán ser depositados diariamente después de recibido el ingreso por los recaudadores en las cuentas que correspondan, sean institucionales o del Sistema de Cuentas del Sector Público, que se mantendrán abiertas para tal fin.

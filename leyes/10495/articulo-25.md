@@ -1,0 +1,2 @@
+ARTÍCULO 25- Reserva de liquidez
+La Tesorería Nacional deberá administrar una reserva de liquidez frente a una serie de escenarios de tensión de liquidez, incluidos los que implican la pérdida o el deterioro de fuentes de ingresos y financiación habitualmente disponibles. La toma de decisiones sobre la administración de reservas de liquidez deberá realizarse dentro de la Comisión Estratégica de Activos y Pasivos Soberanos del Ministerio de Hacienda.

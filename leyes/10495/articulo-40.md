@@ -1,0 +1,29 @@
+ARTÍCULO 40- Modificaciones de otras leyes
+a) Refórmese el párrafo segundo del artículo 61 bis de la Ley 8131, Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, para que se agregue un segundo párrafo. El texto es el siguiente:
+Artículo 61 bis:
+[ ... ]
+Queda prohibido a quien ocupa el cargo de tesorero y subtesorero nacional desempeñar cualquier otro cargo o empleo público.
+b) Refórmese el artículo 5 de la Ley 7428, Ley Orgánica de la Contraloría General de la República, de 7 de setiembre de 1994. El texto es el siguiente:
+Artículo 5- Control sobre fondos y actividades privados. Todo otorgamiento de beneficios patrimoniales, gratuito o sin contraprestación alguna, y toda liberación de obligaciones, por los componentes de la Hacienda Pública, en favor de un sujeto privado, deberán darse por ley o de acuerdo con una ley, de conformidad con los principios constitucionales, y con fundamento en la presente ley estarán sujetos a la fiscalización facultativa de la Contraloría General de la República. Cuando se otorgue el beneficio de una transferencia de fondos del sector público al privado, gratuita o sin contraprestación alguna, la entidad privada deberá administrarla en el Sistema de Cuentas del Sector Público; además, llevará registros de su empleo, independientes de los que corresponden a otros fondos de su propiedad o administración. Asimismo, someterá a la aprobación de la Contraloría General de la República, el presupuesto correspondiente al beneficio concedido.
+c) Refórmese el artículo 43 de la Ley 8488, Ley Nacional de Emergencias y Prevención del Riesgo, de 22 de noviembre de 2005. El texto es el siguiente:
+Artículo 43- Creación del Fondo Nacional de Emergencias. Créase el Fondo Nacional de Emergencias, destinado a los fines y objetivos dispuestos en esta ley.
+Estará conformado por los siguientes recursos:
+a) Los aportes, las contribuciones, donaciones y transferencias de personas físicas o jurídicas, nacionales o internacionales, estatales o no gubernamentales.
+b) La transferencia referida en el artículo 46 de esta ley.
+c) Las partidas asignadas en los presupuestos ordinarios y extraordinarios de la República.
+El Fondo se utilizará para atender y enfrentar las situaciones de emergencia y de prevención y mitigación.
+d) Refórmese el artículo 60 de la Ley 7064, Ley de Fomento a la Producción Agropecuaria Fodea y Orgánica del MAG, de 29 de abril de 1987. El texto es el siguiente:
+Artículo 60- Se autoriza al Ministerio de Agricultura y Ganadería para que dicte un reglamento interno de operaciones, tendiente a agilizar la adquisición de bienes y servicios mediante el presupuesto de las cuentas especiales MAG/Estaciones Experimentales.
+e) Refórmese el artículo 85 de la Ley 7786, Ley sobre Estupefacientes,
+Sustancias Psicotrópicas, Drogas de Uso No Autorizado, Actividades Conexas, Legitimación de Capitales y Financiamiento al Terrorismo, de 30 de abril de 1998. El texto es el siguiente:
+Artículo 85- La autoridad judicial depositará diariamente el dinero decomisado en las cuentas del Sistema de Cuentas del Sector Público, y de inmediato remitirá comprobantes del depósito efectuado a la Tesorería Nacional, la cual deberá mantener la disponibilidad de estos dineros hasta en tanto se ordene el levantamiento del comiso .
+f) Refórmese el artículo 33 de la Ley 3091, Ley Orgánica de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, de 18 de febrero de 1963. El texto es el siguiente:
+Artículo 33- Los ingresos que obtenga la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica de Costa Rica (Japdeva), por concepto del cobro de tarifas, cánones, servicios que preste, de conformidad con lo dispuesto por los incisos b) del artículo 5 bis y h) del artículo 17 de la presente ley, así como los recursos provenientes de los respectivos contratos de prestación, explotación y/o concesión, las cuentas designadas para cumplir con el pago de las prestaciones, de conformidad con lo dispuesto en la Ley 9764, Transformación de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) y Protección de sus Personas Trabajadoras, de 15 de octubre de 2019 y las destinadas al pago de salarios proveniente del Convenio con el Instituto de Desarrollo Rural (lnder), serán inembargables y deberán ser transferidos al Sistema de Cuentas del Sector Público.
+Los recursos del canon de explotación pagados por el operador de la Terminal de Contenedores, según el contrato de concesión vigente, solamente podrán utilizarse para proyectos de impacto económico y social en la vertiente del Atlántico, de acuerdo con los términos previstos en esta ley.
+g) Refórmese el artículo 39 de la Ley 7169, Ley de Promoción del Desarrollo Científico y Tecnológico, de 26 de junio de 1990. El texto es el siguiente:
+Artículo 39- Se crea el Fondo de Incentivos para el Desarrollo Científico, Tecnológico y de la Innovación.
+Los recursos del Fondo serán administrados en el Sistema de Cuentas del Sector Público, con una contabilidad separada .
+El Fondo de Incentivos obtendrá su financiamiento de las siguientes fuentes de ingresos:
+a) Una transferencia del gobierno de la República no inferior a mil millones de colones (?1 000 000 000), indexada anualmente de acuerdo con la meta de inflación anual estimada por el Banco Central en su Programa Macroeconómico, vigente al momento de la aprobación presupuestaria.
+b) Las donaciones, las transferencias, las contribuciones y los aportes, a título gratuito, que realicen las personas físicas y las entidades públicas o privadas, nacionales o extranjeras.
+Quedan autorizadas las instituciones del sector público y las empresas privadas para incluir aportes en sus presupuestos para este Fondo, además del presupuesto específico que destinen para ciencia, tecnología e innovación, conforme al artículo 97 de esta ley .

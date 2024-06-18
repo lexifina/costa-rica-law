@@ -1,0 +1,2 @@
+ARTÍCULO 8- Acceso a la información
+Toda entidad pública o privada que administre o custodie ingresos públicos, así como ingresos de origen público que reciban de forma gratuita o sin contraprestación alguna, deberá garantizar el acceso de la información a la ciudadanía y a los sujetos interesados que cumplen funciones de fiscalización y control; además, se dispondrá de un módulo de consultas en el Sistema de Cuentas del Sector Público o, en su defecto, en los sistemas de información de las entidades.
