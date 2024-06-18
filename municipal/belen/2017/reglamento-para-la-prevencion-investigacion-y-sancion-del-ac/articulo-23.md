@@ -1,7 +1,3 @@
-CAPÍTULOVIII
-LAS SANCIONES
-ARTÍCULO 23. Sanciones. De conformidad con el Informe Final de la CEAL sobre la gravedad de la situación analizada, la Alcaldía impondrá la sanción correspondiente según lo dispuesto en el artículo 13 del presente cuerpo normativo. Las posibles sanciones a aplicar son:
-a. Amonestación verbal frente a una persona.
-b. Amonestación escrita con copia al expediente de personal.
-c. Suspensión de hasta 15 días sin goce de salario.
-d. Despido sin responsabilidad patronal.
+Artículo 23.- Plazos del procedimiento
+El procedimiento deberá llevarse a cabo conforme a los plazos estipulados en el Libro Segundo de la Ley General de la Administración Pública, procurando observer el principio de celeridad y eficiencia en acatamiento a los plazos estipulados en el presente capítulo.
+(Así adicionado mediante sesión N° 36-2024 del 18 de junio de 2024)

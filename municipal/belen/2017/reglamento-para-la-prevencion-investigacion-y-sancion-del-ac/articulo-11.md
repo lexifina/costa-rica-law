@@ -1,7 +1,6 @@
-Artículo 11. Funciones de la CEAL. La Comisión Evaluadora de Acoso Laboral tendrá las siguientes funciones:
-Recibir la queja o denuncia que ha sido trasladada por la Alcaldía Municipal.
-a. Convocar al equipo de trabajo para iniciar la investigación pertinente.
-b. Levantar el expediente y documentar, mediante la presentación de un Informe Final, el estudio correspondiente al diagnóstico técnico-pericial de la denuncia interpuesta por la persona denunciante de acoso.
-c. Dictaminar, en el Informe Final, si se tipificó el acoso laboral o de conducta asociada. Si los antecedentes del caso lo permiten, también debe dictaminar sobre la gravedad de las faltas.
-Este Informe Final, técnico-pericial, será la base para el análisis del expediente que realizará la Alcaldía Municipal.
-d. La persona denunciante y la denunciada tendrán el derecho a patrocinio letrado, si lo consideran necesario.
+Artículo 11.- Funciones de la CEAL. La Comisión Evaluadora de Acoso Laboral tendrá las siguientes funciones:
+a. Recibir, por medio de la Dirección Jurídica, la denuncia inicial y dar curso al procedimiento administrativo disciplinario siempre y cuando la misma cumpla con los requisitos estipulados en el artículo 14; caso contrario, señalar las prevenciones para su corrección, bajo el apercibimiento de que al procedimiento no se le dará curso hasta que tales prevenciones hayan sido subsanadas satisfactoriamente.
+b. Convocar, por medio de la Dirección Jurídica, al equipo de trabajo para iniciar la investigación pertinente
+c. Levantar el expediente y documentar, mediante la presentación de un Informe Final, el estudio correspondiente al diagnóstico técnico-pericial de la denuncia interpuesta por la persona denunciante de acoso.
+d. Dictaminar, en Informe Final, si se tipificó el acoso laboral o de conducta asociada. Si los antecedentes del caso lo permiten, también debe dictaminar sobre la gravedad de las faltas. Este Informe Final, técnico-pericial, será la base para que la Alcaldía Municipal proceda a dictar el acto final del procedimiento.
+(Así reformado mediante sesión N° 36-2024 del 18 de junio de 2024)

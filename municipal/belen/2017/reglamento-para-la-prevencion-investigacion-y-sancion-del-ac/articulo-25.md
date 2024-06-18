@@ -1,5 +1,3 @@
-CAPÍTULO IX
-FALSAS DENUNCIAS
-ARTÍCULO 25. Denuncia falsa. Quien denuncie hostigamiento laboral falso, se expondrá de inmediato a la apertura de un procedimiento ordinario disciplinario por parte de la Alcaldía Municipal según los procedimientos establecidos. Lo anterior no impide que se pueda recurrir a la legislación penal por delitos contra el honor.
-SE ACUERDA POR UNANIMIDAD: No habiendo conocido objeciones al Reglamento para la Prevención, Investigación y sanción del Acoso Laboral en la Municipalidad de Belén, queda el mismo definitivamente aprobado y entra en vigencia a partir de la presente publicación.
-San Antonio de Belén, Heredia, 7 de junio del 2017.
+Artículo 25.- Suspensión del plazo
+La CEAL podrá dictar una resolución de suspensión del plazo de prescripción que interrumpa el cómputo del mismo por medio de acto motivado cuando se esté en presencia de un caso de abstención, recusación, incapacidad, licencia o cualquier otra vicisitud que incida en la conformación de la CEAL y suponga la necesidad de coordinar la sustitución o suplencia respectiva. Dicha interrupción del plazo se mantendrá hasta el tanto la persona suplente o titular esté formalmente instaurada en su cargo respectivo en la CEAL.
+(Así adicionado mediante sesión N° 36-2024 del 18 de junio de 2024)
