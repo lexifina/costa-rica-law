@@ -1,0 +1,2 @@
+Artículo 14°
+DT como órgano rector, por medio del área técnica especializada administra, asesora y direcciona acerca de las diferentes etapas de la gestión de desempeño, misma que define la conceptualización técnica de la medición del desempeño, incluidos: metodología, modelos, diseños, instrumentos, soluciones tecnológicas, herramientas, competencias, pesos, parámetros, niveles y propone directrices entre otros componentes, detallados en la Guía Técnica Modelo de Gestión del Desempeño del ICE.

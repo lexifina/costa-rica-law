@@ -1,0 +1,2 @@
+Artículo 18°
+El Órgano de Dirección y Alta Gerencia en función de sus necesidades y particularidades definen por medio de la persona titular superior un responsable del control y gestión de metas, quien coordinará con la persona administradora general de metas, según corresponda. Dicha persona debe tener acceso a información relacionada al negocio, inteligencia de datos, planificación estratégica, indicadores de gestión y temas afines, en lo sucesivo se denominará con el rol de persona Gestora de Metas.

@@ -1,0 +1,2 @@
+Artículo 42°
+Para la persona evaluadora de desempeño que no cumpla con una o varias de las etapas de la gestión del desempeño, que no tome o constate acciones de mejora para las actividades que conllevan un bajo desempeño atribuible a la administración, le corresponde a la persona titular superior con base en evidencias objetivas evaluar las medidas administrativas de orden correctivo o disciplinarias en concordancia con la normativa según el régimen de contratación de la persona evaluadora de desempeño.

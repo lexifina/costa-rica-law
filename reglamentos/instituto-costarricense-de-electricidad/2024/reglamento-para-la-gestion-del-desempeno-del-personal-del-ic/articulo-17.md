@@ -1,0 +1,2 @@
+Artículo 17°
+En la ejecución de la gestión del desempeño participan las personas titulares del Órgano de Dirección y Alta Gerencia, así como todas sus dependencias adscritas, según estructura vigente. También participan las personas que asumen el rol de: administración general de metas, gestión de metas y de recursos humanos, personal trabajador evaluado y persona evaluadora de desempeño, según los roles establecidos en este reglamento.

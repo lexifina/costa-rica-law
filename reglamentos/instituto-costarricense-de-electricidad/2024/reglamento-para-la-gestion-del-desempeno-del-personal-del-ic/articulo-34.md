@@ -1,0 +1,2 @@
+Artículo 34°
+Todo el personal del ICE que conforme a lo dispuesto en el presente reglamento le corresponda ejecutar alguno de los roles en las diferentes etapas de la gestión del desempeño, debe mantener la reserva de la información provista y todo lo correlacionado con ella, bajo posible apercibimiento de acciones disciplinarias si esto no se cumple. Lo anterior sin perjuicio del derecho de acceso a la información cuando sea solicitada.

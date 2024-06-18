@@ -1,0 +1,2 @@
+Artículo 32°
+Una vez aprobada la modificación o eliminación de una meta, se debe comunicar a las personas: evaluadora de desempeño, trabajadora evaluada, administradora general de metas y gestora de metas y cuando proceda a las instancias que correspondan, aportando las justificaciones que motivaron la toma de decisión. Lo anterior deberá actualizarse en las plataformas tecnológicas pertinentes, por parte de los roles responsables.
