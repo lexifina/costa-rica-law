@@ -1,9 +1,5 @@
-Artículo 9: Exclusión definitiva de la BAS.
-El patrono que incurra en las siguientes conductas será excluido de forma definitiva de la aplicación de la BAS:
-1. No acreditar ante la CCSS su condición de microempresa (PYME o PYMPA) dentro de los siguientes plazos contados a partir de la primera aplicación de la BAS en la planilla.
-i. 12 meses
-ii. 24 meses
-iii. 36 meses
-2. Estar moroso por más de un mes con la CCSS por cuotas obrero-patronales o de trabajador independiente, aportes derivados de la Ley de Protección al Trabajador o contribuciones al Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF) en su condición de patrono.
-3. Cuando el patrono en su condición de persona jurídica se disuelva o el patrono físico fallezca.
-4. Cuando el servicio de inspección registre procesos de investigación por eventuales incumplimientos en las obligaciones patronales o de trabajadores independientes, respecto del correcto aseguramiento y reporte a la CCSS de la totalidad de las remuneraciones o ingresos. Asimismo, cuando se registren investigaciones de responsabilidad solidaria, de conformidad con los artículos 30 y 51 de la Ley Constitutiva de la Caja Costarricense de Seguro Social.
+Artículo 9°—Suspensión de la aplicación del beneficio de la BAS. Se dará la suspensión temporal de la aplicación del beneficio cuando:
+1) El patrono suspenda su planilla o la inactive, mediante el procedimiento institucional establecido para ese efecto.
+2) El patrono omita el cumplimiento de las disposiciones de la CCSS sobre la obligación de actualización de datos.
+3) El patrono incurra en incumplimiento de los requisitos contenidos en el artículo 5 y artículo 6 para la aplicación del beneficio, según corresponda.
+Los periodos durante los cuales el patrono incurra en las conductas de los incisos anteriores serán contabilizados dentro del plazo total de cuarenta y ocho meses de alcance de este Reglamento.

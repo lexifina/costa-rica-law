@@ -1,0 +1,2 @@
+Transitorio II
+Todas aquellas microempresas que, a la fecha de entrada en vigor de la presente reforma reglamentaria, se encuentren inscritas como patronos ante la CCSS y tienen el beneficio de la BAS mantendrán ese beneficio, sin embargo, su continuidad estará sujeta al cumplimiento de las condiciones y requisitos establecidos con esta modificación reglamentaria. Rige a partir de tres meses después de su publicación, en el Diario Oficial La Gaceta.

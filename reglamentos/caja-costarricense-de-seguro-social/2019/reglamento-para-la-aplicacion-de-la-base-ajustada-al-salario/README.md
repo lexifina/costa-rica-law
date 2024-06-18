@@ -14,3 +14,4 @@ Reglamento para la aplicación de la base ajustada al salario para microempresa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-18 | la propia norma |
+| 2 | 2024-06-18 | Reglamento 9457 (2024-06-18) |
