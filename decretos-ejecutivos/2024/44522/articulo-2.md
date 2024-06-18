@@ -1,0 +1,2 @@
+Artículo 2º-Adiciónese al Decreto Ejecutivo N° 44252- MGP "Reglamento sobre requisitos técnicos y administrativos para optar por el financiamiento del Fondo de Proyectos provenientes del 2% de Impuesto sobre la Renta según el Artículo N° 19 de la Ley N° 3859 "Sobre Desarrollo de la Comunidad", lo siguiente:
+Transitorio 1.-Aplíquese las presentes disposiciones incluso a las solicitudes de financiamiento recibidas durante el periodo de recepción de proyectos del año 2023.
