@@ -14,3 +14,4 @@ Reglamento de Teletrabajo de la Municipalidad de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-04 | la propia norma |
+| 2 | 2024-06-18 | Reglamento municipal 36 (2024-06-18) |

@@ -2,5 +2,6 @@ Artículo 5º-Deberes de las personas teletrabajadoras. Sin perjuicio de las dem
 a. Cumplir con los criterios de medición, evaluación y control determinados en el contrato o adenda, así como sujetarse a las políticas y demás disposiciones, respecto a temas de prestación de servicio, comportamiento, confidencialidad, manejo de la información y demás disposiciones aplicables.
 b. La persona teletrabajadora debe cumplir con el horario establecido, su jornada laboral y estar disponible para la persona empleadora durante dicho horario y jornada. El incumplimiento de la jornada u horario de trabajo, o bien, el no estar disponible para la persona empleadora durante dicho horario y jornada serán considerados como abandono de trabajo, conforme al inciso a) del artículo 72 de la Ley N° 2, Código de Trabajo, de 27 de agosto de 1943.
 c. Mantenerse localizable durante toda la jornada laboral destinada para el teletrabajo.
-d. No podrán cobrar remuneración de tiempo extraordinario, en esta modalidad de trabajo.
+d. En cuanto a horas extraordinarias, las mismas serán de carácter excepcional y, a efectos de que sean formalmente reconocidas, la persona teletrabajadora tendrá que contar con la solicitud o autorización escrita previa, extendida por la jefatura inmediata o la jefatura que esté brindando apoyo en tales horas.
+(Así reformado el inciso anterior mediante sesión N° 36-2024 del 18 de junio de 2024)
 e. Otras disposiciones de fiscalización que apruebe la alcaldía por recomendación de la Comisión de Teletrabajo Institucional.
