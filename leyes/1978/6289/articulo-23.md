@@ -1,2 +1,1 @@
-Artículo 23.- El Fondo mencionado en el artículo anterior se depositará en una cuenta especial, abierta en cualquiera de los bancos del Sistema Bancario Nacional. Los procedimientos relativos a la apertura, la forma de llevar la contabilidad y la operación en general de dicha cuenta se harán mediante el Reglamento de la presente Ley.
-(Así reformado por el artículo 18° de la ley N° 8823 del 5 de mayo de 2010)
+Artículo 23.- (Derogado por el artículo 41 inciso b) de la ley Manejo eficiente de la liquidez del sector público, N° 10495 del 17 de junio del 2024)

@@ -1,6 +1,2 @@
-ARTICULO 60.- Se autoriza al Ministerio de Agricultura y Ganadería
-para que dicte un reglamento interno de operaciones, tendiente a agilizar
-la adquisición de bienes y servicios mediante el presupuesto de las
-cuentas especiales MAG/Estaciones Experimentales. Las cuentas especiales
-del Ministerio de Agricultura y Ganadería no formarán parte de la caja
-única del Estado.
+Artículo 60- Se autoriza al Ministerio de Agricultura y Ganadería para que dicte un reglamento interno de operaciones, tendiente a agilizar la adquisición de bienes y servicios mediante el presupuesto de las cuentas especiales MAG/Estaciones Experimentales.
+(Así reformado por el artículo 40 inciso d) de la de la ley Manejo eficiente de la liquidez del sector público, N° 10495 del 17 de junio del 2024)

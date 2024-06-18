@@ -1,6 +1,6 @@
 # Promoción Desarrollo Científico y Tecnológico y Creación del MICYT(Ministerio de Ciencia y Tecnología)
 
-Ley N° 7169 del 1990-06-26. SINALEVI, ficha 11908: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11908&param2=125828&param3=1>.
+Ley N° 7169 del 1990-06-26. SINALEVI, ficha 11908: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11908&param2=141204&param3=1>.
 
 Publicada en La Gaceta N° 144 del 1990-08-01.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2013-01-31 | Ley 9046 | 2012-06-25 |
 | 6 de 8 | 2019-08-29 | Ley 9695 | 2019-06-07 |
 | 7 de 8 | 2021-05-28 | Ley 9971 | 2021-05-11 |
+| 8 de 8 | 2024-06-18 | Ley 10495 | 2024-06-17 |
