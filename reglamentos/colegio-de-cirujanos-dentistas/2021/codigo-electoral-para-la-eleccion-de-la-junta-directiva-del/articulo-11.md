@@ -1,2 +1,1 @@
-Artículo 11 . Profesionales en odontología que deseen postularse para algún puesto de la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, no podrán haber sido funcionarios administrativos del Colegio durante el último mes anterior a la inscripción de la papeleta en la cual vayan a participar.
-(Así reformado en sesión N° 098 del 4 de diciembre de 2022)
+Artículo 11. PUESTOS A ELEGIR. Los puestos a designar en cada elección son: en los años impares se eligen Presidente, Vicepresidente y Dos Vocales. Y en los años pares se eligen Secretario, Tesorero y la tercera Vocalía de la Junta Directiva.

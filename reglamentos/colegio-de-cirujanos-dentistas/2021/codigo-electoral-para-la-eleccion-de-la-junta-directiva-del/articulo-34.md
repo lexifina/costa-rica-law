@@ -1,1 +1,2 @@
-Artículo 34.-Antes de iniciarse la votación, los miembros de la Junta que estén presentes procederán a abrir y revisar el material electoral a fin de consignar en el Documento Electoral el número de papeletas recibidas y llenar el acta.
+Artículo 34. En caso de votación presencial. Antes de iniciarse la votación, los miembros de la Junta que estén presentes procederán a abrir y revisar el material electoral a fin de consignar en el Documento Electoral el número de papeletas recibidas y llenar el acta.
+En el caso de votación electrónica antes de iniciarse la votación, los miembros de la Junta que estén presentes verificarán que el sistema se encuentra en línea y los indicadores en cero, para proceder a llenar el acta de apertura.

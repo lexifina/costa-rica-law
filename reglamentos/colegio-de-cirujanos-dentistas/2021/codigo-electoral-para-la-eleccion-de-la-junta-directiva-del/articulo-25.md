@@ -1,1 +1,1 @@
-Artículo 25.-En el recinto de las Juntas Receptoras se permitirá la presencia de un fiscal por cada grupo contendor. Si el Fiscal propietario no asistiere o se ausentare, lo sustituirá el respectivo suplente.
+Artículo 25. En el recinto de las Juntas Receptoras se permitirá la presencia de un fiscal por cada grupo contendor. Si el Fiscal propietario no asistiere o se ausentare, lo sustituirá el respectivo suplente.

@@ -15,3 +15,4 @@ Código electoral para la elección de la Junta Directiva del Colegio de Cirujan
 | --- | --- | --- |
 | 1 | 2021-05-27 | la propia norma |
 | 2 | 2022-12-04 | Reglamento 98 (2022-12-04) |
+| 3 | 2024-06-19 | Reglamento 0 (2024-06-19) |

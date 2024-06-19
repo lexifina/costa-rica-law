@@ -1,1 +1,2 @@
-Artículo 32.-Los miembros de las Juntas Receptoras tienen la obligación de presentarse al local designado para la votación, el día de las elecciones a las siete horas, con el objetivo de que la votación pueda iniciarse una hora después.
+Artículo 32. Los miembros de la Junta Receptora tienen la obligación de presentarse al local designado para la votación, el día de las elecciones a las siete horas, con el objetivo de que la votación pueda iniciarse una hora después.
+Los miembros de la Junta Receptora tienen la obligación de presentarse al local designado para la votación, el día de las elecciones a las siete horas, con el objetivo de que la votación pueda iniciarse una hora después.

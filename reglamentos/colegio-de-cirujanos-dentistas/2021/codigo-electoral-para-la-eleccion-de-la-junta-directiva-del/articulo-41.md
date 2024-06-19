@@ -1,2 +1,2 @@
-Artículo 41.-El presente Código Electoral deroga en su totalidad y sus reformas y cualquiera otra disposición de igual valor que se le oponga, aprobado en la asamblea general extraordinaria N° 49, celebrada el 31 de mayo del 2011 y publicado en el Diario Oficial La Gaceta el 20 de junio del 2011.
-El presente Código Electoral fue aprobado en la Asamblea General Extraordinaria N° 090, celebrada el 05 de mayo 2021 y rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 41. El presente Código Electoral deroga en su totalidad y sus reformas y cualquiera otra disposición de igual valor que se le oponga, aprobado en la Asamblea General Extraordinaria No.49 celebrada el 31 de mayo del 2011 y publicado en el Diario Oficial La Gaceta el 20 de junio del 2011.
+El presente Código Electoral fue aprobado en la Asamblea General Extraordinaria No.090 celebrada el 05 de mayo 2021 y publicado en el Diario Oficial La Gaceta el 27 de mayo 2021.
