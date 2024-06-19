@@ -14,3 +14,4 @@ Reglamento de la comisión técnica de asuntos jurídicos del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-10 | la propia norma |
+| 2 | 2024-06-19 | Reglamento 6117 (2024-06-19) |
