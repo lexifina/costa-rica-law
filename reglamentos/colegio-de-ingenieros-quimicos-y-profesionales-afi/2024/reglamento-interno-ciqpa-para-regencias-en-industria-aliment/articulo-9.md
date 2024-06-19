@@ -1,0 +1,1 @@
+Artículo 9º-Las regencias que no correspondan a un establecimiento o industria de proceso alimentario, a los efectos de la obtención o renovación del permiso sanitario de funcionamiento, se regirán conforme a la respectiva normativa vigente.

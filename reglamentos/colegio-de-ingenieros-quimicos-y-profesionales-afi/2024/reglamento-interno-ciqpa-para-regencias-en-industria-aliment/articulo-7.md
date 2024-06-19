@@ -1,0 +1,1 @@
+Artículo 7º-Los honorarios de inspección, regencia o profesional responsable, serán los pactados entre el cliente y el profesional, y tendrán como referencia lo establecido en el artículo 126 del Decreto N° 35695-MINAE.
