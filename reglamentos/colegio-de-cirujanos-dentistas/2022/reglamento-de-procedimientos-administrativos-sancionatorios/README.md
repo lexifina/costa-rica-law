@@ -14,3 +14,4 @@ Reglamento de procedimientos administrativos sancionatorios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-13 | la propia norma |
+| 2 | 2024-06-19 | Reglamento 0 (2024-06-19) |

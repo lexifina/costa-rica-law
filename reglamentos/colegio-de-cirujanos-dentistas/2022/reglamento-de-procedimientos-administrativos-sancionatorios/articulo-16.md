@@ -1,1 +1,2 @@
-Artículo 16.-Integración del Tribunal de Honor y cuórum. El Tribunal de Honor estará integrado según lo establecido en el artículo 37 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica. El cuórum para que pueda sesionar válidamente será el de la mitad más uno de sus miembros.
+Artículo 16.-Integración del Tribunal de Honor y cuórum. El Tribunal de Honor estará integrado por cinco miembros propietarios y tres miembros suplentes de acuerdo al artículo 31 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica. El cuórum para que pueda sesionar válidamente será el de la mitad más uno de sus miembros.
+(Así reformado de acuerdo a lo acordado en la Asamblea General Extraordinaria celebrada el 19 de junio de 2024)

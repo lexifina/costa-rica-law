@@ -3,5 +3,8 @@ a. El órgano director será conformado por un mínimo de 3 personas.
 b. Los miembros del Tribunal de Honor pueden participar como Órgano Director en cualquiera de sus modalidades.
 c. Para ser parte de un órgano director se requiere ser miembro activo del Colegio de Cirujanos Dentistas de Costa Rica.
 d. Incompatibilidades: No pueden ser nombrados como Órgano Director:
-1. Los miembros de Junta Directiva, quienes no forman parte del Tribunal de Honor.
+1. Los miembros de Junta Directiva, Fiscalía, Tribunal Electoral, o de cualquier otro cargo remunerado del Colegio.
+(Así reformado el inciso anterior de acuerdo a lo acordado en la Asamblea General Extraordinaria celebrada el 19 de junio de 2024)
 2. Quienes, dentro del caso concreto, tengan un motivo de impedimento o excusa conforme el Código Procesal Civil y la Ley Orgánica del Poder Judicial. Los motivos de abstención serán aplicables a los miembros de la Junta Directiva y Tribunal de Honor.
+3. Quienes hayan sido sancionados por el Tribunal de Honor o quienes tengas un procedimiento disciplinario en curso.
+(Así adicionado de acuerdo a lo acordado en la Asamblea General Extraordinaria celebrada el 19 de junio de 2024)
