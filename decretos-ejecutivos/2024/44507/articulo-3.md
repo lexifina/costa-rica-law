@@ -1,0 +1,2 @@
+Artículo 3º-El Código Nacional de Tecnologías Digitales estará disponible en el sitio web del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt), https:// www.micit.go.cr/micitt/publicaciones.
+(Nota de Sinalevi: El presente Código Nacional de Tecnologías Digitales se extrajo del sitio web del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones, y puede ser consultado en el siguiente Link)
