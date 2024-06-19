@@ -14,3 +14,4 @@ Código de ética del Colegio de Cirujanos Dentistas de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-23 | la propia norma |
+| 2 | 2024-06-19 | Reglamento 0 (2024-06-19) |
