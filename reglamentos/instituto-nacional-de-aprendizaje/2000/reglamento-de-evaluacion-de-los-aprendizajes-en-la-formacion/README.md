@@ -14,3 +14,4 @@ Reglamento de Evaluación de los Aprendizajes en la Formación Profesional del I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-23 | la propia norma |
+| 2 | 2024-06-20 | Reglamento 21 (2024-06-20) |
