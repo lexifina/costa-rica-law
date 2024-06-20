@@ -1,0 +1,1 @@
+Artículo 3º-Transitorio Único. Los obligados tributarios que vendan mercancías o presten servicios sujetos, exentos del pago del impuesto sobre el valor agregado, deberán continuar cumpliendo con el deber formal señalado y reiterado en la presente resolución. Lo anterior, a partir del periodo fiscal siguiente a la entrada en vigencia de la presente resolución.
