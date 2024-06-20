@@ -1,0 +1,1 @@
+Artículo 4°-Apoyo de Iniciativas. El Poder Ejecutivo consciente de la necesidad de sumar esfuerzos público-privados para enfrentar el embate del sistema de préstamos de dinero "Gota a Gota" apoya y estimula las iniciativas para articular respuestas a la sociedad costarricense en general y al sector comercio y productivo en particular.
