@@ -1,2 +1,1 @@
-Artículo 44.—Incompatibilidad de la pensión y el subsidio por enfermedad. No se pueden recibir subsidios por incapacidad en los términos de los artículos 29º y 34º del Reglamento del Seguro de Salud con la pensión por invalidez o por vejez.
-(Así reformado por el artículo 102 del Reglamento para el otorgamiento de licencias e incapacidades a los beneficiarios del seguro de salud, aprobado mediante sesión N° 8712 del 24 de abril del 2014)
+Artículo 44.- Incompatibilidad de la pensión y el subsidio por enfermedad. (Derogado mediante sesión N° 9458 del 20 de junio de 2024)

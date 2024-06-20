@@ -62,3 +62,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 47 | 2021-12-14 | Reglamento 9229 (2021-12-14) |
 | 48 | 2022-03-23 | SINALEVI (sin norma nombrada) |
 | 49 | 2022-09-01 | Reglamento 9275 (2022-09-01) |
+| 50 | 2024-06-20 | Reglamento 9458 (2024-06-20) |
