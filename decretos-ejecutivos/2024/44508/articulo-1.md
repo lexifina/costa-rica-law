@@ -1,0 +1,43 @@
+N° 44508(*) PLAN- H
+(*) (Mediante Fe de Erratas y publicada en el Alcance Digital N° 115 a La Gaceta N° 113 del 21 de junio de 2024, se corrigió el número de decreto ejecutivo, de la presente norma. Anteriormente se indicaba: “N° 115508 PLAN- H”)
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+Y EL MINISTRO DE HACIENDA
+N° 115508 PLAN- H
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en lo establecido en los artículos 140 incisos 3), 8), 18), 146 de la Constitución Política, los artículos 25 inciso l), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley N06227, Ley General de la Administración Pública del 2 de mayo de 1978, en la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, del 18 de setiembre del 2001, Decreto N. 0 32988-H-MP-PLAN, Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, de fecha 3 1 de enero del 2006, publicado en el Diario Oficial La Gaceta N° 74 del 18 de abril del 2006 y sus reformas.
+Considerando:
+1º-Que mediante Ley N° 8131 del 18 de setiembre del 2001, fue aprobada la Ley de la Administración Financiera de la República y Presupuestos Públicos, la cual se publicó en el Diario Oficial La Gaceta N° 198 del 16 de octubre del mismo año.
+2º-Que mediante Decreto Ejecutivo N° 32988-H-MP-PLAN de fecha 31 de enero del 2006, se emitió el Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, el cual fue publicado en el Diario Oficial La Gaceta N°74 del 18 de abril del 2006 y sus reformas.
+3º-Que mediante el Decreto Ejecutivo N° 34534-H, Reglamento de creación de la Comisión de Coordinación de la Administración Financiera, del 5 de marzo de 2008, publicado en La Gaceta N° 108 del 05 de junio de 2008, se creó y reguló el funcionamiento de la Comisión de Coordinación de la Administración Financiera (CCAF) y del Comité Ejecutivo del Sistema de Administración Financiera (CESAF).
+4º-Que el Comité Ejecutivo del Sistema de Administración Financiera tiene como objetivo general el promover el adecuado funcionamiento del Sistema de Administración Financiera (SAF), así como las competencias que con respecto a dicho sistema corresponden al Ministerio de Hacienda en calidad de ente rector del mismo.
+5º-Que la Comisión de Coordinación de la Administración Financiera tiene como objetivo, lograr una visión estratégica integrada para el funcionamiento de los procesos de negocio y sistemas de información que involucren sistemas tecnológicos que por su naturaleza sean incluidos dentro del ámbito de competencia de la Administración Financiera.
+6º-Que, como apoyo a los procesos de gestión de recursos financieros, se han desarrollado sistemas de información de la Administración Financiera, que integran subprocesos en que participan diferentes dependencias del Ministerio de Hacienda, MIDEPLAN y la Dirección General de Servicio Civil, para el caso de los sistemas relacionados con la gestión del recurso humano y planillas de salarios de los funcionarios del Gobierno Central.
+7º-Que la dinámica operativa de la Administración Financiera requiere de una adecuada coordinación de los diferentes aspectos técnicos y operativos, de manera que las definiciones y lineamientos que cada dependencia establezca consideren las implicaciones que estos puedan tener en el quehacer y ámbito de competencia de los otros participantes en el Sistema.
+8º-Que se hace necesario establecer mecanismos de coordinación, que propicien la atención de las particularidades de las diferentes instancias y el análisis conjunto de diferentes situaciones con una visión integral en las decisiones que deban adoptarse.
+9º-Que el artículo 28, inciso a) de la Ley N.0 8131 dispone que, al Ministerio de Hacienda, en su condición de órgano Rector del Sistema de la Administración Financiera, le compete dirigir, coordinar y supervisar los subsistemas que conforman dicho sistema, para lo cual es conveniente definir las instancias que participarán en la coordinación de los diferentes subsistemas y sus integrantes.
+10.-Que deviene de innegable interés público dar cumplimiento y aplicación práctica a la disposición antes citada, para lo cual el establecimiento y operación de un único Comité Ejecutivo del Sistema de Administración Financiera con atribuciones, facultades y competencias jurídicamente definidas, se constituye en un instrumento fundamental.
+11.-Que, en el ejercicio de las competencias del Comité Ejecutivo del Sistema de Administración Financiera, se ha identificado la conveniencia de introducir elementos para la coordinación de aspectos estratégicos en la operación del Sistema de Administración Financiera, ajustarlas a la dinámica operativa, la disponibilidad de recursos y para propiciar una adecuada delimitación de competencias entre las diferentes instancias, en virtud de lo cual se considera oportuno emitir el presente decreto, para centralizar en el Comité Ejecutivo del Sistema de Administración Financiera el funcionamiento adecuado del Sistema de Administración Financiera (SAF), para lo cual se deroga el Decreto Ejecutivo N034534-H.
+12.-Que conforme al artículo 6 de la Ley Marco de Empleo Público, Ley N° 10159 del 8 de marzo de 2022, se crea el Sistema General de Empleo Público, compuesto por el Ministerio de Planificación Nacional y Política Económica y la Dirección General de Servicio Civil, y que el inciso h) del artículo 7 de la misma ley, le establece como competencia a MIDEPLAN dirigir y coordinar la ejecución de las competencias inherentes en materia de empleo público con el Ministerio de Hacienda, entre otras dependencias técnicas en la materia de empleo público, por lo que se considera oportuno integrar a MIDEPLAN y a la Dirección de Servicio Civil en la CESAF.
+13.-Que siendo que el presente Decreto no establece ni modifica trámites, requisitos y/o procedimientos vinculados al administrado, no se requiere someter la presente modificación al control previo de revisión por parte de la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio.
+14.-Que la presente propuesta no implica creación de trámites, requisitos o procedimientos al administrado, en el tanto se orienta a la reglamentación del Título IV de la Ley N° 9635 y sus reformas, por lo que se encuentra fuera del marco de aplicación de la Directriz N° 052-MP-MEIC, llamada: "Moratoria a la creación de nuevos trámites, requisitos o procedimientos al ciudadano para la obtención de permisos, licencias o autorizaciones". Por Tanto:
+Decretan:
+Reglamento del comité ejecutivo del sistema
+de la administración financiera (CESAF).
+Artículo 1º-Del Comité Ejecutivo: Créase el Comité Ejecutivo del Sistema de Administración Financiera en adelante (CESAF), estará integrado ordinariamente por:
+a) El (La) Ministro (a) de Hacienda, a quien corresponderá la coordinación, o en su ausencia el (la) Viceministro (a) asignado (a).
+b) El (La) Director (a) General de Presupuesto Nacional.
+c) El (La) Contador (a) Nacional.
+d) El (La) Director (a) de Crédito Público.
+e) El (La) Director (a) de Contratación Pública.
+f) El (La) Tesorero (a) Nacional.
+g) El (La) Director (a) de la Secretaría Técnica de la Autoridad Presupuestaria.
+h) El (La) Director (a) de Tecnologías de Información y Comunicación.
+Podrá integrarse de manera ampliada con el (la) Ministro (a) de Planificación Nacional y Política Económica o su Viceministro (a) y el (La) Director(a) General de Servicio Civil cuando se traten asuntos relacionados con el Sistema General de Empleo Público, lo cual deberá quedar expresamente señalado en la convocatoria, para efectos de verificación del quorum.
+Los (Las) Subdirectores (as) de las Direcciones que integran el CESAF podrán participar en las convocatorias a sesiones tanto ordinarias como extraordinarias, cuando el (la) Tesorero (a) Nacional, el (la) Contador (a) Nacional y los (las) Directores (as), se encuentren ausentes por motivo de vacaciones, incapacidad, funciones oficiales dentro o fuera del país, u otra situación de ausencia temporal que justifique su ausencia en forma calificada, previa comunicación al (a la) Ministro (a) de Hacienda o en su ausencia, al (a la) Viceministro (a) asignado (a).
+A dichas sesiones podrán asistir los (las) funcionarios (as) en calidad de Subdirectores (as) con las mismas facultades de voz y voto que los (las) Directores (as) que sustituyen.
+Se podrán invitar representantes de otras dependencias del Ministerio de Hacienda o de otras Instituciones, cuando así se requiera en virtud de los temas a tratar, y su participación será con voz, pero sin voto.

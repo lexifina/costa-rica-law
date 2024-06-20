@@ -1,0 +1,1 @@
+Artículo 6°-De la creación de los subcomités técnicos. El CESAF podrá crear subcomités técnicos, para la atención de aspectos específicos de interés especial para deteminadas Direcciones, o para la definición de aspectos técnicos operativos de determinados sistemas de información tecnológica.

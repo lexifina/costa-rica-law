@@ -1,0 +1,7 @@
+Artículo 5º-De las sesiones del CESAF: El CESAF se reunirá ordinariamente una vez al mes y extraordinariamente cuando se considere necesario. Las sesiones podrán ser presenciales o virtuales.
+Las convocatorias ordinarias deben realizarse al menos con dos semanas de anticipación y para efectos de convocar extraordinariamente a una sesión, se requerirá que el (la) Coordinador (a) realice la convocatoria previa, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia.
+Cuando en función de los temas a tratar se requiera la participación de representantes de otras dependencias del Ministerio de Hacienda o de otras instituciones, la convocatoria deberá realizarse con al menos tres días hábiles de anticipación.
+El quórum para sesionar estará constituido por la mitad más uno de los miembros del CESAF.
+Los temas para tratar en las sesiones del CESAF, deben ser dirigidos al (a la) Secretario (a) de Actas para que sean incluidos en la agenda de la sesión, con al menos 3 días hábiles antes de la fecha de la sesión.
+Los acuerdos serán tomados por mayoría simple de los miembros presentes, quedando en firme en la misma sesión. En caso de discrepancia, en el acta se indicarán los argumentos de cada miembro que no concurran con el voto de mayoría. En caso de empate, el (la) Coordinador (a) podrá decidir con voto de calidad.
+En aquellos aspectos que resulten omisos del presente reglamento, serán aplicables las normas contenidas en los artículos 49, siguientes y concordantes de la Ley General de la Administración Pública.
