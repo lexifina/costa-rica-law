@@ -14,3 +14,4 @@ Procedimiento y requisitos para la declaración y pago del impuesto 5% terrestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-30 | la propia norma |
+| 2 | 2024-06-21 | Resolución 11 (2024-06-21) |

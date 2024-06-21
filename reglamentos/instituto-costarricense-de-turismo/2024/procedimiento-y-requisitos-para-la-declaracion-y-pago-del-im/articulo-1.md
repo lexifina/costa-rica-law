@@ -21,7 +21,7 @@ Por tanto,
 I.-Para los fines de control tributario del I.C.T., en su condición de Administración Tributaria del impuesto 5% que dispone el artículo 46, inciso a) de la ley 1917 del 29 de julio de 1955, con las facultades que le confiere el ordinal 99 del Código de Normas y Procedimientos Tributarios, en concordancia con la circular MH-DGA-CIR-0022-2024/G-0866-2024, se establece el siguiente procedimiento y requisitos para la declaración y pago del impuesto 5% terrestre ocasional, que deben cumplir las empresas que brindan servicios de transporte terrestre internacional de pasajeros:
 1. Presentar la solicitud mediante correo electrónico yessenia. calderon@ict.go.cr, roberto.garita@ict.go.cr, o en la ventana de trámites del Departamento de Administración Tributaria, y los siguientes requisitos:
 a. Completar el formulario de declaración jurada de impuestos DO-03, que estará disponible en la página web del ICT en la dirección: https://www.ict.go.cr/ es/servicios-institucionales/administraci%C3%B3n-tributaria.html.
-b. Presentar permiso emitido por el Consejo de Transporte Público (CTP) vigente.
+b. (Derogado por resolución N° 0011 del 21 de junio de 2024, "Procedimiento y requisitos para la declaración y pago del impuesto 5% terrestre ocasional, que deben cumplir las empresas que brindan servicios de transporte terrestre internacional de pasajeros")
 c. Lista de pasajeros, chofer y guía (nombre completo, número documento de identidad).
 d. Estar al día en las obligaciones tributarias ante Hacienda y la CCSS.
 e. Si cumple lo anterior, cancelar el impuesto 5% en las cuentas autorizadas por el ICT del Banco Nacional de Costa Rica y Banco de Costa Rica, sea dólares o colones, registradas en la página Web del ICT.
