@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese el artículo 44 bis al Reglamento de Sesiones y Funcionamiento del Concejo Municipal de Montes de Oro, para que se lea de la siguiente manera:
+Artículo 44 bis- La persona que ejerza la Secretaría del Concejo Municipal realizará un resumen de la correspondencia, y la remitirá mediante los medios de notificación oficial a los regidores propietarios y regidores suplentes a más tardar a las 2:00 p.m. del día de la sesión ordinaria municipal, con excepción de casos fortuitos y fuerza mayor.
