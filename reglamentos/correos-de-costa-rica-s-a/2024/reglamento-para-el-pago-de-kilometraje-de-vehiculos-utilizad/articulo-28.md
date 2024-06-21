@@ -1,0 +1,1 @@
+Artículo 28.-El Correo podrá rescindir unilateralmente y sin responsabilidad de su parte el contrato de pago de kilometraje por razones de interés público, conveniencia u oportunidad, notificando su decisión al trabajador con al menos cinco días hábiles de anticipación.

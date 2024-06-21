@@ -1,0 +1,1 @@
+Artículo 16.-Cuando se determine que no procede el pago, el formulario será devuelto al jefe inmediato del trabajador y se determinará la eventual responsabilidad o perjuicio causado al trabajador, o a la empresa, y el resarcimiento respectivo.

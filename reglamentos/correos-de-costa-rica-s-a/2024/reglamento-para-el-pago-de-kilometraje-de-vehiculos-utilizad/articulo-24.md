@@ -1,0 +1,1 @@
+Artículo 24.-Una vez finalizada la gira o servicio brindado el trabajador deberá entregar a su Supervisor o Jefatura Inmediata la bitácora de los trasiegos del día para que sean archivadas por la Unidad de Trabajo, de manera que a final de mes se pueda generar el reporte de pago mensual.

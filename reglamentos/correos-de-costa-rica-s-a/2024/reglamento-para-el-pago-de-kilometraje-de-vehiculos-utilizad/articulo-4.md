@@ -1,0 +1,1 @@
+Artículo 4º-Del sistema de pago de kilometraje de vehículo. - Cuando las necesidades en la prestación de los servicios que brinda el Correo lo requieran, y no se cuente con vehículos para dichos efectos, podrá contratarse el pago de kilometraje de vehículos de sus trabajadores.

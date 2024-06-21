@@ -1,0 +1,1 @@
+Artículo 17.-La Dirección que cuente con colaboradores bajo la modalidad de pago de kilometraje de vehículos, debe entregar a la Gerencia correspondiente de manera anual y a inicio de año, la justificación por la cual los colaboradores deben seguir trabajando bajo esta modalidad.

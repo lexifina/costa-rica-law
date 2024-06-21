@@ -1,0 +1,1 @@
+Artículo 29.-En lo no previsto en el presente Reglamento se aplicará en forma supletoria la Ley General de Contratación Pública, Ley N° 9986, y su Reglamento, Ley de Correos, su Reglamento, asimismo demás normas jurídicas conexas.

@@ -1,0 +1,1 @@
+Artículo 25.-La gira o desplazamiento efectuado sin la autorización respectiva será por cuenta y riesgo del trabajador; y éste, en ningún caso podrá reclamar el reconocimiento de pago por el kilometraje recorrido.

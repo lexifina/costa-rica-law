@@ -1,0 +1,1 @@
+Artículo 14.-Es responsabilidad del colaborador el cumplir y mantener los requisitos al día establecidos en el Artículo 12 del presente Reglamento, por lo tanto, debe entregar a su jefatura inmediata la documentación en el momento en que la misma sea actualizada, o bien, que por algún cambio de vehículo así se requiera.

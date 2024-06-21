@@ -1,0 +1,1 @@
+Artículo 30.-La presente reforma al Reglamento para el pago de kilometraje de vehículos de los trabajadores de Correos de Costa Rica S.A. fue aprobada por la Junta Directiva de Correos mediante Acuerdo N° 10714, tomado en la Sesión 1835. celebrada el día 19 de abril del 2024.

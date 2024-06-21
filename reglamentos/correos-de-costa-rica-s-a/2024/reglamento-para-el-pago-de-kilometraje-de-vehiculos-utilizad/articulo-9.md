@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del trabajador
+Artículo 9º-El trabajador conducirá el vehículo por su cuenta y riesgo y asumirá la responsabilidad civil y penal que se pudiere derivar de la ejecución del contrato contratos para el pago de kilometraje. El Correo queda totalmente relevado de las mismas y no asumirá responsabilidad alguna por los daños causados al vehículo, a terceras personas o sus bienes en caso de accidente. El Correo únicamente asumirá la responsabilidad de indemnizar a sus trabajadores por concepto de Riesgos Laborales cuando utilicen sus vehículos en la ejecución del contrato para cumplir con sus labores. La disposición anterior deberá constar expresamente en el contrato para el pago de kilometraje.

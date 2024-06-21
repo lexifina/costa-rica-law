@@ -1,0 +1,1 @@
+Artículo 23.-El trabajador deberá llenar una bitácora diaria en donde se debe indicar cada lugar visitado durante el día y el kilometraje marcado por el odómetro en cada una de las paradas realizadas.

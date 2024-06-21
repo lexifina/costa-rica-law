@@ -1,0 +1,1 @@
+Artículo 27.-Las diferentes dependencias del Correo que intervienen en el pago de kilometraje deberán velar por la correcta aplicación del presente Reglamento y de los respectivos contratos de Pago de Kilometraje.
