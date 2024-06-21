@@ -14,3 +14,4 @@ Términos y condiciones de uso del sitio web de la Junta de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-16 | la propia norma |
+| 2 | 2024-06-21 | Reglamento 0 (2024-06-21) |
