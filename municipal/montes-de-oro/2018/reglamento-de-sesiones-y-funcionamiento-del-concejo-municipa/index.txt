@@ -27,6 +27,7 @@ articulo-25.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
+articulo-28-bis.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
@@ -43,6 +44,7 @@ articulo-41.md
 articulo-42.md
 articulo-43.md
 articulo-44.md
+articulo-44-bis.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
