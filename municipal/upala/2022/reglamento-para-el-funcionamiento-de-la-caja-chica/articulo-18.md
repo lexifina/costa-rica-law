@@ -1,1 +1,1 @@
-Artículo 18.-Comprobantes del vale: se debe marcar con un sello u otro medio, todos los comprobantes y justificantes presentados para la liquidación de caja chica, esto con el objetivo de evitar que pueda usarse de nuevo después para otra liquidación.
+Artículo 18.-Comprobantes del vale: (Derogado en sesión N° 13 del 21 de junio de 2024)

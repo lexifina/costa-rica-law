@@ -14,3 +14,4 @@ Reglamento para el funcionamiento de la caja chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-14 | la propia norma |
+| 2 | 2024-06-21 | Reglamento municipal 13 (2024-06-21) |

@@ -29,3 +29,9 @@ Viáticos y Transporte: Son los gastos de viaje y transporte en el interior del 
 Municipalidad: Nombre abreviado que se utilizará en este reglamento para referirse a la Municipalidad de Upala.
 Reintegro de fondos: Solicitud de reintegro de dinero al fondo, por los gastos efectuados, que realiza la Tesorería Municipal.
 Activo Fijo: Un elemento es reconocido como activo si es probable que la entidad reciba beneficios económicos o potenciales servicios asociados al bien y si el valor razonable o el costo del bien puede ser medido de forma fable. El monto mínimo que reconoce la Municipalidad de Upala para capitalizar un activo fijo es de un 25% de un salario base.
+Gastos Menores: Son todosaquellos gastosque corresponden a la adquisición de bienes y servicios indispensables e impostergable no programados de naturaleza no continua y necesarios, originados por causa de un imprevisto o por falta de disponibilidad institucional y cuyo valor monetario total se ajusta al monto vigente autorizado para compras por el fondo de caja chica.
+(Así adicionada la definición anterior en sesión N° 13 del 21 de junio de 2024)
+Compra menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen los límites preestablecidos para los valores de caja chica y cuya necesidad sea urgente y requiere atención inmediata.
+(Así adicionada la definición anterior en sesión N° 13 del 21 de junio de 2024)
+Servicios: Conjunto de actividades y servicios ofrecidos, que por su naturaleza son intangibles, prestados por personas físicas o jurídicas a la Municipalidad para el desarrollo de las actividades municipales.
+(Así adicionada la definición anterior en sesión N° 13 del 21 de junio de 2024)
