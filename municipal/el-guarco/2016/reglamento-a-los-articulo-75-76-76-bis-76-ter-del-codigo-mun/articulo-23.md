@@ -1,1 +1,0 @@
-Artículo 23.—Señales y salientes. Toda señal u objeto saliente colocado en aceras deberá estar a una altura mínima de 2.50 m y no deberá entorpecer el paso del peatón, ni deberá sobrepasar la distancia transversal del ancho del cordón y caño.

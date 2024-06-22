@@ -1,1 +1,0 @@
-Artículo 31.—La Administración y el Concejo Municipal deberán planificar para que en cada ejercicio presupuestario y de forma anual, se determine un monto adecuado para que se cuente con el contenido económico necesario para la realización de las obras por contrato de construcción o de prestación de servicio, de tal forma que se pueda cumplir con lo indicado en este reglamento.

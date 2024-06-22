@@ -1,1 +1,0 @@
-Artículo 8º—Cualquier obra que se realice deberá cumplir con los lineamientos establecidos en la Ley Nº 7600 y su Reglamento, con los lineamientos y especificaciones del presente Reglamento y del Plan Regulador Vigente así como la normativa nacional vigente.

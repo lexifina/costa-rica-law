@@ -1,1 +1,0 @@
-Artículo 4º—La Municipalidad debe velar, de oficio, por el cumplimiento de las disposiciones de este Reglamento, iniciando el procedimiento sancionador en aquellos casos en los cuales detecte a un infractor, para lo cual deberá cumplir con la garantía constitucional del Debido Proceso.

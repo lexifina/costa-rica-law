@@ -1,1 +1,0 @@
-Artículo 14.—Cobro de obras o servicios: Si luego de la respectiva notificación, el propietario no ejecuta las obras señaladas por la Municipalidad, ésta procederá a la ejecución de las obras o servicios y al cobro de los mismos de conformidad con lo señalado en los artículos 75, 76, 76 bis y 76 ter del Código Municipal.
