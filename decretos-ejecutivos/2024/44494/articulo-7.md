@@ -1,0 +1,1 @@
+Artículo 7º Se excepcionan de la aplicación de este decreto los servicios de emergencia, cuidados intensivos, exámenes de laboratorio clínicos y de gabinete, las intervenciones quirúrgicas, citas y programas de atención para la prevención de enfermedades de la Caja Costarricense del Seguro Social.
