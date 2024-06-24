@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Incentivos Tributarios a los Contribuyentes d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-07 | la propia norma |
+| 2 | 2024-06-24 | Reglamento municipal 8 (2024-06-24) |
