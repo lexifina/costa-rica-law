@@ -13,7 +13,8 @@ g) Los inmuebles pertenecientes a iglesias y organizaciones religiosas pero sól
 h) Las sedes diplomáticas y las casas de habitación de los agentes diplomáticos y consulares, con las limitaciones que se generen al aplicar, en cada caso, el principio de reciprocidad sobre los beneficios fiscales.
 i) Los organismos internacionales que, en el convenio de sede aprobado por ley anterior, estén exonerados del impuesto territorial o de tributos en general.
 j) La Cruz Roja y los inmuebles destinados a los bomberos.
-k) Los bienes de uso común, propiedad de las personas jurídicas amparadas a la Ley No. 3859 y sus reformas.
+k) Los bienes propiedad de las personas jurídicas amparadas a la Ley 3859, Ley sobre Desarrollo de la Comunidad (Dinadeco), de 7 de abril de 1967.
+(Así reformado el inciso anterior por el artículo 1° de la Ley Exoneración de impuestos de bienes inmuebles y otros tributos para Asociaciones de Desarrollo, N° 10398 del 14 de noviembre del 2023)
 l) Los inmuebles pertenecientes a las asociaciones declaradas de utilidad pública por las autoridades correspondientes.
 (Así adicionado este inciso por el artículo 2º, inciso a), de la ley No.7729 de 15 de diciembre de 1997)
 m) Las juntas de educación y las juntas administrativas de las instituciones oficiales de enseñanza.

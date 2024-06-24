@@ -1,2 +1,4 @@
-Artículo 38.- En la misma forma quedan exentos del pago de impuestos nacionales y municipales, los bienes que las asociaciones adquieran para el normal desarrollo de sus actividades.
+Artículo 38- En la misma forma quedan exentos del pago de impuestos nacionales y municipales, los bienes que las asociaciones adquieran para el normal desarrollo de sus actividades.
+Además, las asociaciones quedan exentas del pago del impuesto de bienes inmuebles, así como de cualquier tributo nacional o municipal.
+(Así reformado por el artículo 2° de la Ley Exoneración de impuestos de bienes inmuebles y otros tributos para Asociaciones de Desarrollo, N° 10398 del 14 de noviembre del 2023)
 (Nota de Sinalevi: Véase el dictamen C-350-2008 de 29 de setiembre de 2008, el cual concluye que, “Tal y como se desarrolló en la Opinión Jurídica N° OJ-086-2008, las asociaciones de desarrollo comunal no están exentas del pago del impuesto sobre las ventas en las transacciones que hagan para la adquisición de los bienes necesarios para el desarrollo de sus actividades.”)
