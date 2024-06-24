@@ -1,3 +1,3 @@
-Transitorio X.-Los sujetos obligados a presentar la declaración ordinaria para el período 2024, en esta oportunidad, deberán hacerlo en el período comprendido entre el 01 de julio de 2024 y hasta el 31 de julio del 2024, ambos días inclusive, en los años subsiguientes les corresponderá declarar de acuerdo con lo dispuesto en el inciso a) del artículo 6° de la presente Resolución, es decir, en el mes de abril de cada año.
+Transitorio X.-Los sujetos obligados a presentar la declaración ordinaria para el período 2024, en esta oportunidad, deberán hacerlo en el período comprendido entre el 01 de octubre de 2024 y hasta el 31 de octubre del 2024, ambos días inclusive, en los años subsiguientes les corresponderá declarar de acuerdo con lo dispuesto en el inciso a) del artículo 6° de la presente Resolución, es decir, en el mes de abril de cada año.
 (Así adicionado por el artículo 2° de la resolución N° MH-DGT/ICD-RES-0004-2023 del 6 de marzo del 2023)
-(Así reformado por el artículo 1° de la resolución N° MH-DGT-ICD-RES-0005-2024 del 11 de marzo de 2024)
+(Así reformado por el artículo 1° de la resolución N° MH-DGT-RES-0016-2024 / DG-059-2024 del 24 de junio de 2024)
