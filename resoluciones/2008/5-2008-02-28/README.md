@@ -17,3 +17,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 2 | 2018-06-29 | Resolución 6 (2018-06-29) |
 | 3 | 2019-07-29 | Resolución 13 (2019-07-29) |
 | 4 | 2024-06-24 | Resolución 155 (2024-06-24) |
+| 5 | 2024-06-25 | Resolución 7 (2024-06-25) |
