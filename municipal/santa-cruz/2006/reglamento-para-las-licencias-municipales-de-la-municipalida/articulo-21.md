@@ -1,1 +1,2 @@
-Artículo 21.—No se podrán conceder licencias comerciales, para la explotación de actividades lucrativas en casas de habitación, salvo que para efectuar la actividad comercial, se separen totalmente el local comercial de la casa de habitación, y que entre uno y otro no haya comunicación interna.
+Artículo 21: Podrán concederse licencias comerciales para la explotación de actividades lucrativas en casas de habitación, en los siguientes casos: a) Cuando se separen la sección comercial de la casa de habitación, y que entre uno y otro no haya comunicación interna. b) Cuando se trate de hospedaje no tradicional, de acuerdo con lo establecido en la Ley N° 9742 y su reglamento correspondiente.
+(Así reformado mediante sesión N° 13-2024del 25 de junio del año 2024)
