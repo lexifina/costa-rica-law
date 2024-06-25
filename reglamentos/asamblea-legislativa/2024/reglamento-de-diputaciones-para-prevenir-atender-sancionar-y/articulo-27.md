@@ -1,0 +1,1 @@
+Artículo 27.-Comparecencia de la persona denun-ciada. La persona denunciada tendrá derecho a una audiencia oral, en forma separada, ante la comisión Investigadora, la cual deberá ser precedida por al menos quince días hábiles, a partir del traslado de cargos que da inicio al procedimiento.

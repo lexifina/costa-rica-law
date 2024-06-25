@@ -1,0 +1,1 @@
+Artículo 26.-Comparecencia de la persona denun-ciante. Vencido el plazo que determina el artículo 23 anterior y en los siguientes cinco días hábiles, la Comisión Investigadora dará audiencia oral a la persona denunciante, para que comparezca ante esta instancia.

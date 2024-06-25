@@ -1,0 +1,1 @@
+Artículo 21.-De la subsanación de defectos. Cuando la Comisión Investigadora considere que la denuncia pueda contener defectos u omisiones, la persona denunciante contará hasta con tres días hábiles para subsanar estos defectos u omisiones, caso contrario será rechazada, de conformidad con el artículo 285 de la Ley General de la Administración Pública.

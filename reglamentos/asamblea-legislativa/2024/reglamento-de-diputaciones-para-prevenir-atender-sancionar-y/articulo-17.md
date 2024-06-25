@@ -1,0 +1,4 @@
+Artículo 17.-Del plazo para rendir el informe y la integración de la Comisión Investigadora. La moción de orden deberá indicar expresamente el plazo para rendir el informe y la forma de integración de la Comisión Investigadora.
+Dicho plazo en ningún caso podrá excederse de tres meses, contados a partir de la interposición de la denuncia, y se entenderá como un plazo de carácter ordenatorio.
+La Comisión Investigadora deberá estar integrada por distintas fracciones legislativas de manera impar. En ningún caso podrán formar parte de la misma, diputados o diputadas de la misma fracción de las personas involucradas.
+Dicha comisión deberá estar integrada por diputaciones con integridad y con paridad de género y, de ser posible, deberán contar con conocimiento en materia de igualdad de género, derechos humanos, derechos políticos y/o violencia contra las mujeres.

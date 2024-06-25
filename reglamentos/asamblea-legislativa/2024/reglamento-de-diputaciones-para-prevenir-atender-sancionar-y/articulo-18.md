@@ -1,0 +1,3 @@
+Artículo 18.-Designación de la Comisión Inves-tigadora por parte de la Presidencia Legislativa
+La Presidencia de la Asamblea Legislativa deberá realizar en el plazo de tres días posteriores a la firmeza de la moción de orden para el establecimiento de la Comisión Investigadora, el nombramiento de los diputados y diputadas integrantes de la misma, atendiendo a las condiciones establecidas en este reglamento y previa consulta con las jefaturas de fracción.
+Una vez instalada la Comisión Investigadora, esta deberá recibir y conocer la denuncia, y tendrá la obligación de asignar un expediente para la recopilación de la información que se vaya suscitando durante la investigación, así como el informe final que esta comisión deberá rendir.

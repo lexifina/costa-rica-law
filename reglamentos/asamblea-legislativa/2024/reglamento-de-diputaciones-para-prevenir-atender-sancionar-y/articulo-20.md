@@ -1,0 +1,1 @@
+Artículo 20.-De la abstención y de la recusación. La aplicación de la abstención y de la recusación a las personas diputadas integrantes de la Comisión Investigadora, se regirá por el proceso establecido en los artículos 230, siguientes y concordantes, de la Ley General de la Administración Pública y el Código Procesal Civil.

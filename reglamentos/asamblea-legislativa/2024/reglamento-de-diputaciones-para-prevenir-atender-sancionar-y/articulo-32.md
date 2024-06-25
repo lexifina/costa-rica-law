@@ -1,0 +1,2 @@
+Artículo 32.-Sanción a aplicar. Aprobado por parte del Plenario Legislativo, el informe de la Comisión Investigadora en que se determine que el diputado o diputada denunciada es responsable de violencia contra las mujeres en la política, esa conducta se sancionará con una amonestación ética pública, la cual deberá constar en un expediente que, al efecto, llevará el Tribunal Supremo de Elecciones.
+Lo anterior, sin perjuicio de otras acciones judiciales que pueda interponer la persona víctima, de conformidad a la legislación vigente.

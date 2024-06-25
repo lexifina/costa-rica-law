@@ -1,0 +1,1 @@
+Artículo 25.-Plazo de la investigación. El proce-dimiento de investigación regulado en el capítulo V de este Reglamento, tendrá un trámite prioritario y expedito, y deberá resolverse en un plazo ordenatorio de tres meses, incluyendo la resolución final. Los plazos se interrumpirán por la presentación de los recursos fijados por la ley, además por los recesos legislativos.

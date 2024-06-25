@@ -1,0 +1,1 @@
+Artículo 15.-Remisión de la denuncia al Plenario Legislativo. Recibida la denuncia, y conocida por el Directorio Legislativo en pleno, ese órgano la remitirá a conocimiento del Plenario Legislativo, a efectos de que conforme la respectiva Comisión Investigadora.

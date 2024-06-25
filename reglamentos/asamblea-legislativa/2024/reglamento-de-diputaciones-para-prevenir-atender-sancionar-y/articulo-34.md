@@ -1,0 +1,1 @@
+Artículo 34.-Fase recursiva. Contra lo acordado por el Plenario Legislativo, podrá plantearse recurso de revisión, en los términos dispuestos en el artículo 155 del Reglamento de la Asamblea Legislativa.
