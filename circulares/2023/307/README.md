@@ -13,3 +13,4 @@ Actualización de la circular 203-2022, sobre la obligación de las oficinas en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-05 | la propia norma |
+| 2 | 2024-06-25 | Circular 82 (2024-06-25) |
