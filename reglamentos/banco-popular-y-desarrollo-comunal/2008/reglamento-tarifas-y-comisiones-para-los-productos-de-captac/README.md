@@ -20,3 +20,4 @@ Reglamento "Tarifas y Comisiones para los productos de Captación"
 | 5 | 2016-06-14 | Reglamento 5378 (2016-06-14) |
 | 6 | 2018-09-05 | Reglamento 0 (2018-09-05) |
 | 7 | 2023-11-22 | Reglamento 6061 (2023-11-22) |
+| 8 | 2024-06-25 | Reglamento 6118 (2024-06-25) |
