@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE CORREDORES
+CONCEJO MUNICIPAL
+El Concejo Municipal de Corredores comunica el acuerdo N° 32, de la sesión ordinaria N° 202, celebrada el 29 de abril del año 2024, que textualmente dice: Por unanimidad y en firme el Concejo Municipal de Corredores acuerda:
+1.- Aprobar el dictamen de comisión de la Comisión de Becas (Ley 7931) de fecha 29 de abril del 2024.
+2.- Modificar el artículo 16 del reglamento para el otorgamiento de becas estudiantiles provenientes del impuesto a la palma, en el cantón de Corredores que dice:
+(De la cantidad de becas. Se otorgarán 45 becas por año distribuida de la siguiente manera, 15 becas para estudiantes de secundaria, 15 becas para estudiantes de primaria y 15 becas para estudiantes universitarios. De la cantidad de becas que se otorgarán por año, la Comisión Especial de Becas podrá variarlo por razones de conveniencia, así como del contenido presupuestario con el que se cuente. De existir variaciones sobre la cantidad de becas que se otorgarán la Comisión Especial de Becas, deberá informar con al menos 15 días de anticipación, de previo hacer publicados los requisitos para el periodo en cual será aplicado). Para que se diga que se podrá variar en la cantidad y el porcentaje del presupuesto de becas con el que se cuenta, de conformidad con el artículo 12, inciso C) (Evaluar y proponer los cambios al Reglamento y demás normativa atinente).
+Publíquese.
