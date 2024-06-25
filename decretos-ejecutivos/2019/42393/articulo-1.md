@@ -8,10 +8,10 @@ II.-Que el Capítulo VI, artículo 37 de dicho Convenio, relativo a la "Adopció
 todas las cuestiones en que tal uniformidad facilite y mejore la navegación aérea.
 III.-Que de acuerdo con lo prescrito por la Ley General de Aviación Civil, Ley Nº 5150 del 14 de mayo de 1973 y sus reformas, el Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, adscritos al Ministerio de Obras Públicas y Transportes, constituyen los órganos competentes en todo lo referente a la regulación y control de la aviación civil dentro del territorio de la República.
 IV.-Que mediante el artículo 43 del Convenio sobre Aviación Civil Internacional se creó la Organización de Aviación Civil Internacional, compuesta por una Asamblea y Consejo, cuyo objetivo es desarrollar los principios y técnicas de navegación aérea internacional.
-V.-Que el 24 de mayo del 2004, en La Gaceta N° 100, se publica el Decreto Ejecutivo N° 31803-MOPT ‘Regulaciones aeronáuticas costarricense certificación de aeropuertos’ - RAC 139, en su primera edición, sin embargo, en fiel acatamiento a lo establecido por la Organización de Aviación Civil Internacional se debe derogar el Decreto Ejecutivo N° 31803-MOPT ‘Regulaciones aeronáuticas costarricense certificación de aeropuertos’ - RAC 139, y promulgar un nuevo reglamento para el cumplimiento de lo establecido en el Anexo 14, Volumen I, en su enmienda número 14, adoptada por el consejo el 9 de marzo de 2018, aprobada el 16 de julio de 2018 y en vigencia 8 de noviembre de 2018; y en los documentos asociados a este anexo.
-VI.- Que el presente RAC 139 “Certificación, Operación y Vigilancia de Aeródromos” es el complemento del RAC 14 “Diseño y construcción de Aeródromos”, Volumen l, para el cumplimiento de las disposiciones establecidas sobre este tema en el Anexo 14, Volumen I, de la Organización de Aviación Civil Internacional (OACI).
-VII.- Que el presente Decreto Ejecutivo considera recomendaciones del Documento número 9981 “Procedimientos para los Servicios de la Navegación Aérea Aeródromos”, de la Organización de Aviación Civil Internacional en su primera edición, 2015; así mismo, contiene material para la aplicación adecuada y armonizada de las normas y métodos recomendados (SARPS).
-VIII.- Que de conformidad con el artículo 361 de la Ley General de la Administración Pública, fue publicada en La Gaceta número 64 del 01 de abril de 2019, la audiencia pública en relación con el proyecto denominado “RAC 139 Certificación, Operación y Vigilancia de Aeródromos”.
+V.-Que el 24 de mayo del 2004, en La Gaceta N° 100, se publica el Decreto Ejecutivo N° 31803-MOPT 'Regulaciones aeronáuticas costarricense certificación de aeropuertos' - RAC 139, en su primera edición, sin embargo, en fiel acatamiento a lo establecido por la Organización de Aviación Civil Internacional se debe derogar el Decreto Ejecutivo N° 31803-MOPT 'Regulaciones aeronáuticas costarricense certificación de aeropuertos' - RAC 139, y promulgar un nuevo reglamento para el cumplimiento de lo establecido en el Anexo 14, Volumen I, en su enmienda número 14, adoptada por el consejo el 9 de marzo de 2018, aprobada el 16 de julio de 2018 y en vigencia 8 de noviembre de 2018; y en los documentos asociados a este anexo.
+VI.- Que el presente RAC 139 "Certificación, Operación y Vigilancia de Aeródromos" es el complemento del RAC 14 "Diseño y construcción de Aeródromos", Volumen l, para el cumplimiento de las disposiciones establecidas sobre este tema en el Anexo 14, Volumen I, de la Organización de Aviación Civil Internacional (OACI).
+VII.- Que el presente Decreto Ejecutivo considera recomendaciones del Documento número 9981 "Procedimientos para los Servicios de la Navegación Aérea Aeródromos", de la Organización de Aviación Civil Internacional en su primera edición, 2015; así mismo, contiene material para la aplicación adecuada y armonizada de las normas y métodos recomendados (SARPS).
+VIII.- Que de conformidad con el artículo 361 de la Ley General de la Administración Pública, fue publicada en La Gaceta número 64 del 01 de abril de 2019, la audiencia pública en relación con el proyecto denominado "RAC 139 Certificación, Operación y Vigilancia de Aeródromos".
 IX.- Que de conformidad con el artículo 12 bis del Decreto Ejecutivo número 37045-MP-MEIC de fecha 22 de febrero de 2012, se considera que, por la naturaleza del presente reglamento, no es necesario completar el formulario de Evaluación de Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto;
 Decretan:
 RAC 139
@@ -34,7 +34,16 @@ Los explotadores o concesionarios de aeródromos de servicio público que realic
 RAC139.005 Abreviaturas y Definiciones
 En la presente regulación los términos y expresiones indicadas a continuación tienen el siguiente significado
 (a) Abreviaturas
-ACN Número de clasificación de aeronaves.
+ACNª Número de clasificación de aeronaves.
+a Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+ACRb Índice de clasificación de aeronaves
+b Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+ADP Licencia de conductor en la parte aeronáutica
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+AIP Publicación de información aeronáutica
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Aprox. Aproximadamente
 ASDA Distancia disponible de aceleración-Parada
 ARIWS Sistema autónomo de prevención de incursión de pisa
@@ -46,7 +55,14 @@ CIE Comisión Internacional de Iluminación
 cm Centímetro
 CRC Mediante la verificación por redundancia cíclica
 DGAC Dirección General de Aviación Civil
-DME Equipo radio telemétrico
+DME Equipo radiotelemétrico
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+E Módulo de elasticidad
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+FOD Objeto extraño
+Número de clasificación de pavimentos
+Índice de clasificación de pavimentos.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 ILS Sistema de aterrizaje por instrumentos
 IMC Condiciones meteorológicas de vuelo por instrumentos
 K Grados Kelvin
@@ -81,8 +97,14 @@ SOIR Operaciones simultáneas en pistas de vuelo por instrumentos paralelas o ca
 TODA Distancia de despegue disponible
 TORA Recorrido de despegue disponible
 VMC Condiciones meteorológicas de vuelo visual
-VOR Radiofaro omnidireccional VH
-WGS Sistema Geodésico Mundial 1984
+VOR Radiofaro omnidireccional VHF
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+WGS-84 Sistema Geodésico Mundial 1984
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+WHMP Programa de gestión del peligro que representa la fauna silvestre
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+WIP Obras en progreso
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (b) Símbolos
 ° Grado
 = Igual
@@ -126,7 +148,8 @@ a) datos ordinarios: muy baja probabilidad de que, utilizando datos ordinarios a
 b) datos esenciales: baja probabilidad de que, utilizando datos esenciales alterados, la continuación segura del vuelo y el aterrizaje de una aeronave corran riesgos graves que puedan originar una catástrofe; y
 c) datos críticos: alta probabilidad de que, utilizando datos críticos alterados, la continuación segura del vuelo y el aterrizaje de una aeronave corran riesgos graves que puedan originar una catástrofe.
 Clave de estado de la pista (RWYCC). Número que describe el estado de la superficie de la pista que se utilizará en el informe del estado de la pista.
-Nota.— La clave de estado de la pista tiene por objeto permitir a la tripulación de vuelo calcular la performance operacional del avión. En los PANS-Aeródromos (Doc 9981) se describen los procedimientos para determinar la clave de estado de la pista.
+Nota. - La clave de estado de la pista tiene por objeto permitir a la tripulación de vuelo calcular la performance operacional del avión. En los PANS-Aeródromos (Doc. 9981 OACI) se describen los procedimientos para determinar la clave de estado de la pista.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Coeficiente de utilización. El porcentaje de tiempo durante el cual el uso de una pista o sistema de pistas no está limitado por la componente transversal del viento.
 Datos cartográficos de aeródromo (AMD). Datos recopilados con el propósito de compilar información cartográfica de los aeródromos.
 Declinación de la estación. Variación de alineación entre el radial de cero grados del VOR y el norte verdadero, determinada en el momento de calibrar la estación VOR.
@@ -141,18 +164,21 @@ c) Distancia de aceleración-parada disponible (ASDA). La longitud del recorrido
 d) Distancia de aterrizaje disponible (LDA). La longitud de la pista que se ha declarado disponible y adecuada para el recorrido en tierra de un avión que aterrice.
 Elevación del aeródromo. Elevación del punto más alto del área de aterrizaje.
 Estado de la superficie de la pista. Descripción de las condiciones de la superficie de la pista que se utilizan en el informe del estado de la pista y que establecen las bases para determinar la clave de estado de la pista para fines de performance de los aviones.
-Nota 1.— El estado de la superficie de la pista utilizado en el informe del estado de la pista establece los requisitos de performance entre el explotador del aeródromo, el fabricante del avión y el explotador del avión.
-Nota 2.— También se notifican otros contaminantes pero no se incluyen en la lista de los descriptores del estado de la superficie de la pista porque sus efectos en las características de rozaiento de la superrficie de la pista y la clave de estado de la pista no pueden ser evaluadas de manera normalizada.
-Nota 3.— En los PANS-Aeródromos (Doc 9981) figuran los procedimientos para determinar el estado de la superficie de la pista.
-a) Pista seca. Se considera que una pista está seca si su superficie no presenta humedad visible y no está contaminada en el área que se prevé utilizar.
-b) Pista mojada. La superficie de la pista está cubierta por cualquier tipo de humedad visible o agua hasta 3 mm, inclusive, de espesor, dentro del área de utilización prevista.
-c) Pista mojada resbaladiza. Una pista mojada respecto de la cual se ha determinado que las características de rozamiento de la superficie en una porción significativa de la pista se han deteriorado.
-d) Pista contaminada. Una pista está contaminada cuando una parte significativa de su superficie (en partes aisladas o continuas de la misma), dentro de la longitud y anchura en uso, está cubierta por una o más de las sustancias enumeradas en la lista de descriptores del estado de la superficie de la pista.
-Nota.— En los PANS-Aeródromos (Doc 9981) figuran los procedimientos para determinar la cobertura del contaminante en la pista.
-e) Descriptores del estado de la superficie de la pista. Uno de los siguientes elementos en la superficie de la pista:
-Nota.— Las descripciones relativas a e) i), a continuación, se utiliza únicamente en el contexto del informe del estado de la pista y no tienen como objeto sustituir o remplazar las definiciones existentes de la OMM.
+Nota l. - El estado de la superficie de la pista utilizado en el informe del estado de la pista establece los requisitos de performance entre el explotador del aeródromo, el fabricante del avión y el explotador del avión.
+Nota 2. - También se notifican otros contaminantes, pero no se incluyen en la lista de los descriptores del estado de la superficie de la pista porque sus efectos en las características de rozamiento de la superficie de la pista y la clave de estado de la pista no pueden ser evaluadas de manera normalizada.
+Nota 3.- En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar el estado de la superficie de la pista.
+(a) Pista seca. Se considera que una pista está seca si su superficie no presenta humedad visible y no está contaminada en el área que se prevé utilizar.
+(b) Pista mojada. La superficie de la pista está cubierta por cualquier tipo de humedad visible o agua hasta 3 mm, inclusive, de espesor, dentro del área de utilización prevista.
+(c) Pista mojada resbaladiza. Una pista mojada respecto de la cual se ha determinado que las características de rozamiento de la superficie en una porción significativa de la pista se han deteriorado.
+( d) Pista contaminada. Una pista está contaminada cuando una parte significativa de su superficie (en partes aisladas o continuas de la misma), dentro de la longitud y anchura en uso, está cubierta por una o más de las sustancias enumeradas en la lista de descriptores del estado de la superficie de la pista.
+Nota. - En los PANS-Aeródromos (Doc. 9981) figuran los procedimientos para determinar la cobertura del contaminante en la pista.
+(e) Descriptores del estado de la superficie de la pista. Uno de los siguientes elementos en la superficie de la pista:
+Nota. Las descripciones relativas al punto e) i., a continuación, se utiliza únicamente en el contexto del informe del estado de la pista y no tienen como objeto sustituir o remplazar las definiciones existentes de la OMM.
 i. Agua estancada. Agua con un espesor superior a 3 mm.
-Nota.— Por convención, el agua corriente con más de 3 mm de espesor se notifica como agua estancada.
+ii. Por convención, el agua corriente con más de 3 mm de espesor se notifica como agua estancada.
+Índice de clasificación de aeronaves (ACR) Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación.
+Aplicable a partir del 28 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Exactitud de los datos. Grado de conformidad entre el valor estimado o medido y el valor real.
 Faro aeronáutico. Luz aeronáutica de superficie, visible en todos los azimutes ya sea continua o intermitentemente, para señalar un punto determinado de la superficie de la tierra.
 Faro de aeródromo. Faro aeronáutico utilizado para indicar la posición de un aeródromo desde el aire.
@@ -166,7 +192,14 @@ b) proteger a las aeronaves que la sobrevuelan durante las operaciones de despeg
 Geoide. Superficie equipotencial en el campo de gravedad de la Tierra que coincide con el nivel medio del mar (MSL) en calma y su prolongación continental.
 Helipuerto. Aeródromo o área definida sobre una estructura destinada a ser utilizada, total o parcialmente, para la llegada, la salida o el movimiento de superficie de los helicópteros.
 Indicador de sentido de aterrizaje. Dispositivo para indicar visualmente el sentido designado en determinado momento, para el aterrizaje o despegue.
+Índice de clasificación de aeronaves (ACR) Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación.
+Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Índice de clasificación de pavimentos (PCR). Cifra que indica la resistencia de un pavimento. Aplicable a partir del 28 de noviembre de 2024.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Informe del estado de la pista (RCR). Informe normalizado exhaustivo relacionado con el estado de la superficie de las pistas y su efecto en la performance de aterrizaje y despegue de los aviones.
+Aplicable a partir del 4 de noviembre de 2021.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Integridad de los datos (nivel de aseguramiento). Grado de aseguramiento de que no se ha perdido ni alterado ningún dato aeronáutico ni sus valores después de haberse originado o de haberse efectuado una enmienda autorizada.
 Intensidad efectiva. La intensidad efectiva de una luz de destellos es igual a la intensidad de una luz fija del mismo color que produzca el mismo alcance visual en idénticas condiciones de observación.
 Intersección de calles de rodaje. Empalme de dos o más calles de rodaje.
@@ -180,8 +213,14 @@ Luz aeronáutica de superficie. Toda luz dispuesta especialmente para que sirva 
 Luz fija. Luz que posee una intensidad luminosa constante cuando se observa desde un punto fijo.
 Margen. Banda de terreno que bordea un pavimento, tratada de forma que sirva de transición entre ese pavimento y el terreno adyacente.
 Matriz de evaluación del estado de la pista (RCAM). Matriz que permite evaluar la clave de estado de la pista, utilizando procedimientos conexos, a partir de un conjunto de condiciones de la superficie de la pista que se haya observado y del informe del piloto acerca de la eficacia de frenado.
+Aplicable a partir del 4 de noviembre de 2021.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Número de clasificación de aeronaves (ACN). Cifra que indica el efecto relativo de una aeronave sobre un pavimento, para determinada categoría normalizada del terreno de fundación.
+Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Número de clasificación de pavimentos (PCN). Cifra que indica la resistencia de un pavimento para utilizarlo sin restricciones.
+Aplicable hasta el 27 de noviembre de 2024.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Objeto extraño (FOD). Objeto inanimado dentro del área de movimiento que no tiene una función operacional o aeronáutica y puede representar un peligro para las operaciones de las aeronaves.
 Objeto frangible. Objeto de poca masa diseñado para quebrarse, deformarse o ceder al impacto, de manera que represente un peligro mínimo para las aeronaves.
 Obstáculo. Todo objeto fijo (ya sea temporal o permanente) o móvil, o partes del mismo, que:
@@ -194,20 +233,10 @@ Pista. Área rectangular definida en un aeródromo terrestre preparada para el a
 Pista de despegue. Pista destinada exclusivamente a los despegues.
 Pista de vuelo por instrumentos. Uno de los siguientes tipos de pista destinados a la operación de aeronaves que utilizan procedimientos de aproximación por instrumentos:
 (a) Pista para aproximaciones que no sean de precisión. Pista de vuelo por instrumentos servida por ayudas visuales y una ayuda no visual que proporciona por lo menos guía direccional adecuada para la aproximación directa.
-(b) Pista para aproximaciones de precisión de Categoría I. Pista de vuelo por instrumentos servida por ILS o MLS y por ayudas visuales destinadas a operaciones con una altura de decisión no inferior a 60 m (200 ft) y con una visibilidad de no menos de 800 m o con un alcance visual en la pista no inferior a 550 m.
+(b) Pista para aproximaciones de precisión de Categoría l. Pista de vuelo por instrumentos servida por ILS o MLS y por ayudas visuales destinadas a operaciones con una altura de decisión no inferior a 60 m (200 ft) y con una visibilidad de no menos de 800 m o con un alcance visual en la pista no inferior a 550 m.
 (c) Pista para aproximaciones de precisión de Categoría II. Pista de vuelo por instrumentos servida por ILS o MLS y por ayudas visuales destinadas a operaciones con una altura de decisión inferior a 60 m (200 ft) pero no inferior a 30 m (100 ft) y con un alcance visual en la pista no inferior a 300 m.
-(d) Pista para aproximaciones de precisión de Categoría III. Pista de vuelo por instrumentos servida por ILS o MLS hasta la superficie de la pista y a lo largo de la misma; y
-A — destinada a operaciones con una altura de decisión inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista no inferior a 175 m.
-B — destinada a operaciones con una altura de decisión inferior a 15 m (50 ft), o sin altura de decisión, y un alcance a operaciones sin altura de decisión y sin restricciones de alcance visual en la pista inferior a 175 m pero no inferior a 50 m.
-C — destinada a operaciones sin altura de decisión y sin restricciones de alcance visual en la pista.
-Pista de vuelo por instrumentos. Uno de los siguientes tipos de pista destinados a la operación de aeronaves que utilizan procedimientos de aproximación por instrumentos:
-a) Pista para aproximaciones que no son de precisión. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo A y con visibilidad no inferior a 1 000 m.
-b) Pista para aproximaciones de precisión de Categoría I. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinadas a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) no inferior a 60 m (200 ft) y con una visibilidad de no menos de 800 m o con un alcance visual en la pista no inferior a 550 m.
-c) Pista para aproximaciones de precisión de Categoría II. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinadas a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) inferior a 60 m (200 ft) pero no inferior a 30 m (100 ft) y con un alcance visual en la pista no inferior a 300 m.
-d) Pista para aproximaciones de precisión de Categoría III. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B hasta la superficie de la pista y a lo largo de la misma; y
-A — destinada a operaciones con una altura de decisión (DH) inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista no inferior a 175 m.
-B — destinada a operaciones con una altura de decisión (DH) inferior a 15 m (50 ft), o sin altura de decisión, y un alcance visual en la pista inferior a 175 m pero no inferior a 50 m.
-C — destinada a operaciones sin altura de decisión (DH) y sin restricciones de alcance visual en la pista.
+(d) Pista para aproximaciones de precisión de Categoría 111. Pista de vuelo servida por ayudas visuales y ayudas no visuales destinada a operaciones de aterrizaje después de una operación de aproximación por instrumentos de Tipo B con una altura de decisión (DH) inferior a 30 m (100 ft), o sin altura de decisión y un alcance visual en la pista inferior a 300 m o sin restricciones de alcance visual en la pista.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 Pista de vuelo visual. Pista destinada a las operaciones de aeronaves que utilicen procedimientos de aproximación visual o un procedimiento de aproximación por instrumentos a un punto más allá del cual pueda continuarse la aproximación en condiciones meteorológicas de vuelo visual.
 Pista para aproximaciones de precisión. Ver Pista de Vuelo por Instrumentos.
 Pistas casi paralelas. Pistas que no se cortan pero cuyas prolongaciones de eje forman un ángulo de convergencia o de divergencia de 15° o menos.
@@ -294,22 +323,25 @@ RAC139.101 Proceso de certificación.
 (a) Para obtener un Certificado de Aeródromo, el solicitante debe someterse a un proceso de certificación, el cual es instruido y documentado en un expediente de certificación por el Inspector/Auditor de Aeródromos de la DGAC. Este proceso consta de las siguientes etapas:
 (1) Pre solicitud: constituye la gestión que realiza un interesado para obtener información relacionada con el otorgamiento de un Certificado de Aeródromo; durante esta etapa, se produce la primera reunión entre el solicitante y la DGAC, generando un intercambio de información sobre el servicio y orientación, por parte de esta, en relación con las normas, estándares, procedimientos, responsabilidades y atribuciones del servicio que el solicitante pretende brindar y la documentación técnica que debe presentar.
 Esta etapa procedimental puede omitirse, si el solicitante considera que conoce apropiadamente los requisitos de este Reglamento, excepto cuando se requiera efectuar una evaluación operacional del sitio donde se prevé emplazar el aeródromo.
-(2)Solicitud formal: el solicitante debe presentar la fórmula que se indica en el Anexo 3, adjuntando un cronograma de eventos del proceso de certificación, el Manual de Operaciones del Aeródromo (MOA) requerido en el RAC139.201, el Programa de Seguridad del Aeródromo requerido por el RAC17 y el Sistema de Gestión de la Seguridad Operacional del Aeródromo requerido en el RAC139.323.
+(2) Solicitud formal: el solicitante debe presentar la fórmula que se indica en el Anexo 1, adjuntando un cronograma de eventos del proceso de certificación, el Manual de Operaciones del Aeródromo (MOA) requerido en el RAC139.201, el Programa de Seguridad del Aeródromo requerido por el MRAC17 y el Sistema de Gestión de la Seguridad Operacional del Aeródromo requerido en el RAC139.323.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (3)Evaluación: la DGAC revisa la documentación presentada y comunica al solicitante las discrepancias encontradas, si las hubiere; en caso contrario, emite la respectiva aprobación o aceptación.
 (4)Demostración técnica: el solicitante se somete a evaluación y demostración técnica, para determinar la conformidad de las facilidades, marcación, iluminación, señales, pavimentos, obstáculos, SEI, equipo, personal, procedimientos, gestión de seguridad, gestión de plataforma, control de fauna, y entrenamiento.
 (5)Certificación: una vez concluidas con éxito las etapas anteriormente indicadas, la DGAC debe emitir el Certificado de Aeródromo y las condiciones que se hayan establecido y se debe efectuar la publicación correspondiente en el AIP de Costa Rica.
 (b) En ningún caso se puede otorgar el Certificado de Aeródromo, sin haber concluido el proceso de certificación.
 RAC139.103 Otorgamiento del Certificado de Aeródromo.
 (Véase CCA 139.103(a))
-(a) El Director de la DGAC, debe emitir el Certificado de Aeródromo, en el formato que se indica en el Anexo 1, toda vez que:
+(a) El Director General de la DGAC, debe emitir el Certificado de Aeródromo, en el formato que se indica en el Anexo 2, toda vez que:
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (1) El solicitante haya completado satisfactoriamente el proceso de certificación técnica.
 (2) El solicitante y el personal tienen la competencia y experiencia necesarias para operar y mantener adecuadamente el aeródromo.
 (3) El MOA presentado por el solicitante para que sea aprobado / aceptado contiene la información pertinente, correspondiente al sitio del aeródromo, sus instalaciones y servicios, su equipo, sus procedimientos operacionales, su organización y su administración, incluyendo el Sistema de Gestión de la Seguridad Operacional, conforme a lo establecido en este reglamento.
 (4) Las instalaciones, equipo y servicios del aeródromo se ajustan a las disposiciones y estándares de la actividad.
 (5) Los procedimientos de operación del aeródromo satisfacen apropiadamente los aspectos de seguridad operacional de las aeronaves.
 (6) El solicitante ha implementado un sistema aceptable de gestión de la seguridad operacional.
-RAC139.105 Emisión de las Limitaciones y condiciones del certificado de aeródromo.
-Al otorgar el Certificado de Aeródromo, el Inspector/Auditor de Aeródromos debe aprobar en el formato que se indica en el Anexo 2, las limitaciones, exenciones, excepciones, y condiciones de operación para el tipo de uso y otros detalles que se hayan establecido para el aeródromo.
+(*) RAC139.105 Emisión de las Limitaciones y condiciones del certificado de aeródromo.
+Al otorgar el Certificado de Aeródromo, el Inspector/ Auditor de Aeródromos debe aprobar en el formato que se indica en el Anexo 3, las limitaciones, exenciones, excepciones, y condiciones de operación para el tipo de uso y otros detalles que se hayan establecido para el aeródromo.
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 RAC139.107 Vigencia del certificado de Aeródromo.
 (a) Un Certificado de Aeródromo emitido bajo este RAC139, es vigente desde la fecha de su emisión hasta que sea suspendido, transferido o revocado por la DGAC, o hasta que expire el período de vigencia, que puede ser por un máximo de hasta 15 años.
 (b) La DGAC podrá revocar un certificado de aeródromo si durante el proceso de vigilancia el operador no demuestra que mantiene la competencias necesarias o si incurre en faltas recurrentes en la resolución de las no conformidades encontradas.
@@ -407,7 +439,7 @@ Queda a criterio de la DGAC, si en relación a la ondulación del geoide, otorga
 (h)Nombre del operador del aeródromo, y dirección, números telefónicos y correo electrónico en los cuales pueda ser ubicado en todo momento.
 4.2 Dimensiones del aeródromo e información conexa.
 Información general, que incluya lo siguiente:
-(a)Pista–marcación verdadera redondeada a centésimas de grado, número de designación, longitud, anchura, ubicación del umbral desplazado al metro más próximo, pendiente, tipo de superficie y tipo de pista; y, para las pistas de aproximación de precisión Categoría I, existencia de una zona despejada de obstáculos.
+(a)Pista-marcación verdadera redondeada a centésimas de grado, número de designación, longitud, anchura, ubicación del umbral desplazado al metro más próximo, pendiente, tipo de superficie y tipo de pista; y, para las pistas de aproximación de precisión Categoría I, existencia de una zona despejada de obstáculos.
 (b)Longitud, anchura redondeada al metro más próximo y tipo de superficie de las franjas, áreas de seguridad de extremo de pista, zonas de parada.
 (c)Longitud, anchura y tipo de superficie de las calles de rodaje.
 (d)Tipo de superficie y puestos de estacionamiento de aeronaves de la(s) plataforma(s).
@@ -419,9 +451,12 @@ Información general, que incluya lo siguiente:
 (j) Coordenadas geográficas de los puntos apropiados del eje de las calles de rodaje en grados, minutos, segundos y centésimas de segundo. Queda a criterio de la DGAC, si otorga una excepción al operador del aeropuerto, dependiendo de la categoría de aproximación que se defina para la pista de aterrizaje principal.
 (k)Coordenadas geográficas de cada puesto de estacionamiento de aeronaves en grados, minutos, segundos y centésimas de segundo.
 (l) Coordenadas geográficas en grados, minutos, segundos y décimas de segundo y elevación máxima de obstáculos significativos en las áreas de aproximación y despegue, en el área de circuitos y en las vecindades del aeródromo. Esta información puede indicarse mejor en forma de cartas, como las requeridas para la preparación de publicaciones de información aeronáutica, según se especifica en el RAC15 y el Anexo 4 del Convenio sobre Aviación Civil Internacional.
-(m) Tipo de superficie del pavimento y resistencia del mismo, de la pista, calles de rodaje y plataformas. De conformidad con los procedimientos normalizados del método del Número de clasificación de aeronaves - Número de clasificación de pavimentos (ACN-PCN), notificando la siguiente información:
-1) El número de clasificación de pavimento (PCN);
-2) El tipo de pavimento para determinar el valor ACN-PCN;
+(m)Tipo de superficie del pavimento y resistencia del mismo, de la pista, calles de rodaje y plataformas. De conformidad con los procedimientos normalizados del método del Número de clasificación de aeronaves - Número de clasificación de pavimentos (ACN-PCN, a partir del 28 de enero de 2024 las siglas ACN y PCN cambiarán por ACR y PCR respectivamente), notificando la siguiente información:
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+(1) El índice de clasificación de pavimento (PCR);
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+(2) El tipo de pavimento para determinar el valor ACR-PCR;
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 3) La categoría de resistencia del terreno de fundación;
 4) La categoría o el valor de la presión máxima permisible de los neumáticos; y
 5) El método de evaluación.
@@ -446,7 +481,7 @@ Información general, que incluya lo siguiente:
 2) tipo de sistema y, en el caso de una instalación de AT-VASIS, de PAPI o de APAPI, se debe indicar además el lado de la pista en el cual están instalados los elementos luminosos, es decir, izquierda o derecha;
 3) ángulo de divergencia y sentido de tal divergencia, es decir, hacia la izquierda o hacia la derecha, cuando el eje del sistema no sea paralelo al eje de la pista;
 4) ángulos nominales de la pendiente de aproximación. Para un T-VASIS o AT-VASIS éste será el ángulo Ɵ, de conformidad con la fórmula de la Figura 5-18, y para un PAPI y un APAPI, éste será el ángulo (B + C) ÷ 2 y (A + B) ÷ 2, respectivamente, según se indica en la Figura E-20 RAC14.405(e); y
-5) alturas mínimas de la vista sobre el umbral de las señales de posición en pendiente. Para un TVASIS o AT-VASIS ésta será la altura más baja a la que únicamente sean visibles las barras de ala; empero, las alturas adicionales a las que las barras de ala más uno, dos o tres elementos luminosos de indicación “descienda” resultan visibles pueden también notificarse en caso de que dicha información pudiera ser útil para las aeronaves que sigan este sistema de aproximación. Para un PAPI éste será el ángulo de reglaje del tercer elemento a partir de la pista, menos 2′, es decir, el ángulo B menos 2′, y para un APAPI éste será el ángulo de reglaje del elemento más distante de la pista menos 2′, es decir, el ángulo A menos 2′.
+5) alturas mínimas de la vista sobre el umbral de las señales de posición en pendiente. Para un TVASIS o AT-VASIS ésta será la altura más baja a la que únicamente sean visibles las barras de ala; empero, las alturas adicionales a las que las barras de ala más uno, dos o tres elementos luminosos de indicación "descienda" resultan visibles pueden también notificarse en caso de que dicha información pudiera ser útil para las aeronaves que sigan este sistema de aproximación. Para un PAPI éste será el ángulo de reglaje del tercer elemento a partir de la pista, menos 2′, es decir, el ángulo B menos 2′, y para un APAPI éste será el ángulo de reglaje del elemento más distante de la pista menos 2′, es decir, el ángulo A menos 2′.
 (t) Limitaciones, por tipo de avión, en cuanto a resistencia, pistas, calles de rodaje y virajes
 La precisión de la información indicada anteriormente, es fundamental para la seguridad de las aeronaves. La información que exija estudios y evaluaciones de ingeniería debe ser obtenida o verificadas por técnicos calificados.
 Parte 5: Procedimientos operacionales de aeródromo y medidas de seguridad.
@@ -495,7 +530,7 @@ Detalles de las instalaciones y procedimientos para el mantenimiento, incluyendo
 (b)Acciones para el mantenimiento de pistas y calles de rodaje no pavimentadas.
 (c)Acciones para el mantenimiento de las franjas de pista y de calles de rodaje.
 (d)Acciones para el mantenimiento del sistema de drenaje del aeródromo.
-5.8 Trabajos en el aeródromo – Seguridad, según lo requerido en RAC139.341.
+5.8 Trabajos en el aeródromo - Seguridad, según lo requerido en RAC139.341.
 Detalles de los procedimientos para planificar y realizar trabajos de construcción y mantenimiento en condiciones de seguridad (incluyendo obras que deban realizarse con poco aviso previo) en el área de movimiento o en su cercanía, y que puedan extenderse más allá de una superficie limitadora de obstáculos, incluyendo:
 (a)Acciones para comunicarse con el Control de Tránsito Aéreo durante la realización de esas obras
 (b)Nombres, números telefónicos y función de las personas y organizaciones responsables de planificar y realizar la obra, así como arreglos para comunicarse con ellas y sus organizaciones en todo momento.
@@ -509,7 +544,7 @@ Detalles de los procedimientos de gestión de la plataforma, incluyendo:
 (c)Disposiciones para iniciar el arranque de los motores y asegurar márgenes para el retroceso remolcado de aeronaves.
 (d)Servicio de señaleros; y
 (e)Servicio de vehículos de escolta.
-(f) Disposiciones y procedimientos sobre áreas de movimiento–no movimiento, para determinar cuándo ATS toma el control, cuando le corresponde al operador del aeródromo y cuando le corresponde al operador aéreo en operaciones de retro empuje (push back) y rodaje de la aeronave.
+(f) Disposiciones y procedimientos sobre áreas de movimiento-no movimiento, para determinar cuándo ATS toma el control, cuando le corresponde al operador del aeródromo y cuando le corresponde al operador aéreo en operaciones de retro empuje (push back) y rodaje de la aeronave.
 5.10 Gestión de la seguridad en la plataforma.
 Procedimientos para garantizar la seguridad en la plataforma, incluyendo:
 (a)Protección respecto del chorro de reactores.
@@ -582,20 +617,25 @@ SUBPARTE D - OPERACIONES Y OBLIGACIONES DEL OPERADOR
 RAC139.301 Generalidades.
 (Véase CCA 139.301 (a))
 (a)El operador del aeródromo debe administrar, operar y mantener el aeródromo conforme a las políticas y procedimientos establecidos en el Manual de Operaciones del aeródromo (MOA).
-(b)El operador del aeródromo debe establecer un Programa de Mantenimiento preventivo y correctivo, que se ajuste a principios relativos a factores humanos, para garantizar que los pavimentos vallas, sistemas de drenaje, edificios y otras instalaciones, se conserven en condiciones tales que no afecten la seguridad operacional, regularidad o eficiencia de la navegación aérea
+(b) El operador del aeródromo debe establecer un Programa de Mantenimiento preventivo y correctivo, cuya concepción y aplicación que se ajuste a principios relativos a factores humanos, para garantizar que los pavimentos, vallas, sistemas de drenaje, edificios y otras instalaciones, se conserven en condiciones tales que no afecten la seguridad operacional, regularidad o eficiencia de la navegación aérea.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 1.- Los textos de orientación sobre los principios relativos a factores humanos se encuentran en el Manual de instrucción sobre factores humanos (Doc 9683) y en el Manual de servicios de aeropuertos (Doc 9137), Parte 8 - Servicios operacionales de aeropuerto.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 2.- Los principios y procedimientos generales sobre instrucción del personal del aeródromo, incluidos los programas de instrucción y las verificaciones de competencia, se especifican en los PANS-Aeródromos (Doc 9981).
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 RAC139.302 Registros.
 (a) El operador del aeródromo debe establecer un sistema de registros que incluya como mínimo lo siguiente:
 (1)Registros de certificación del aeródromo.
-(2)Registros de entrenamiento del personal requerido en – RAC139.303.
-(3)Registros de entrenamiento en emergencias según requerido en el – RAC139.319(j)(6)
-(4)Registros de entrenamiento en combustibles y mercancías peligrosas según requerido en el RAC– 139.321(f)
-(5)Registros de auditorías e inspecciones según requerido en el RAC– 139.321(d) y RAC– 139.327(g)
-(6)Personas que acceden al área de movimiento según requerido en el RAC– 139.329(e).
-(7)Registros del SMS según requerido en el RAC– 139.323.
-(8)Registros de control del peligro aviario y fauna silvestre según requerido al RAC–139.337(d)(7)
+(2)Registros de entrenamiento del personal requerido en - RAC139.303.
+(3)Registros de entrenamiento en emergencias según requerido en el - RAC139.319(j)(6)
+(4)Registros de entrenamiento en combustibles y mercancías peligrosas según requerido en el RAC- 139.321(f)
+(5)Registros de auditorías e inspecciones según requerido en el RAC- 139.321(d) y RAC- 139.327(g)
+(6)Personas que acceden al área de movimiento según requerido en el RAC- 139.329(e).
+(7)Registros del SMS según requerido en el RAC- 139.323.
+(8)Registros de control del peligro aviario y fauna silvestre según requerido al RAC-139.337(d)(7)
 (9)Registros de condición del aeródromo según requerido en el RAC-139.339
 (10)Registros de calibración de herramienta y equipo según lo requerido en el RAC- 139.349(c).
-(11)Registros de incidentes o accidentes según lo requerido en el RAC– 139.329(f), RAC139.337 y RAC139.353(c).
+(11)Registros de incidentes o accidentes según lo requerido en el RAC- 139.329(f), RAC139.337 y RAC139.353(c).
 (b)Los registros del párrafo (a) anterior se deben mantener permanentemente, excepto que la norma indicada establezca un periodo de tenencia y los registros de entrenamiento recurrente pueden ser eliminados cuando el entrenamiento sea repetido.
 RAC139.303 Competencia y requerimientos de personal.
 (Véase CCA 139.303 (b))
@@ -747,6 +787,10 @@ RAC139.315 Salvamento y extinción de incendios (SEI): determinación de la cate
 (a)La DGAC y la entidad responsable de SEI deben determinar la categoría de los servicios SEI del aeródromo siguiendo lo establecido en la Tabla 3 y proporcionar un nivel de protección igual a la categoría de aeródromo que se haya determinado, considerando lo siguiente:
 (1)El avión de mayor longitud y anchura del fuselaje al que normalmente opera o pretende operar en el aeródromo, iniciando por la longitud y luego evaluando el ancho.
 (2) Excepto que si el número de movimientos de aviones de la categoría más elevada que normalmente utilizan el aeródromo es menos de 700 durante los tres meses consecutivos de mayor actividad, el nivel de protección que se debe proporcionar es un nivel que no se encuentre más de una categoría por debajo de la categoría fijada. Todo despegue o aterrizaje constituye un movimiento.
+Nota 1.- Véase en el Manual de servicios de aeropuertos (Doc 9137), Parte 1, la orientación sobre la clasificación de aeródromos, incluyendo aquellos para operaciones de aviones exclusivamente de carga, para fines de salvamento y extinción de incendios.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 2.- Los principios y procedimientos sobre instrucción, incluidos los programas de instrucción y las verificaciones de competencia, se especifican en los PANS-Aeródromos (Doc 9981 ). En el Adjunto A, Sección 18 y en el Manual de servicios de aeropuertos (Doc 9137), Parte 1, se proporciona orientación adicional la sobre capacitación de personal, equipo de salvamento para lugares difícies y otras instalaciones, así como servicios de salvamento y extinción de incendios.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (3) El nivel de protección en aeródromos internacionales y nacionales, de los servicios SEI, debe ser apropiado a la categoría del aeródromo, de acuerdo a los principios descritos en los incisos anteriores, excepto que si el número de movimientos de aviones de la categoría más elevada que normalmente utilizan el aeródromo es menos de 700 durante los tres meses consecutivos de mayor actividad, el nivel de protección que se proporcionará será un nivel que no se encuentre más de una categoría por debajo de la categoría fijada.
 (b)La cantidad de vehículos de SEI que deben prestar servicio, no deben ser inferior a la indicada en la columna 4 de la Tabla 3.
 Tabla 3. Categoría del aeródromo a efectos de SEI y número de vehículos.
@@ -799,8 +843,8 @@ Cantidades mínimas de agentes extintores - Regímenes de Descarga.
 (4) Una combinación de estos agentes
 Aunque el agente extintor principal para aeródromos de las categorías 1 a 3, debe ser de preferencia una espuma de eficacia nivel B o C
 (d) El agente extintor complementario debe ser un producto químico seco en polvo, adecuado para extinguir incendios de hidrocarburos.
-Nota 1. — Al seleccionar productos químicos secos en polvo, para utilizarlos juntamente con espuma, deben extremarse las precauciones para asegurar la compatibilidad de ambos tipos de agentes.
-Nota 2. — Pueden utilizarse agentes alternativos complementarios que tengan una capacidad de extinción de incendios equivalente. En el Manual de servicios de aeropuertos (Doc 9137), Parte 1, se proporciona información adicional sobre agentes extintores.
+Nota 1. - Al seleccionar productos químicos secos en polvo, para utilizarlos juntamente con espuma, deben extremarse las precauciones para asegurar la compatibilidad de ambos tipos de agentes.
+Nota 2. - Pueden utilizarse agentes alternativos complementarios que tengan una capacidad de extinción de incendios equivalente. En el Manual de servicios de aeropuertos (Doc 9137), Parte 1, se proporciona información adicional sobre agentes extintores.
 (e) Deben proporcionarse suministros de agua suplementarios para el reaprovisionamiento de vehículos SEI en el lugar donde ocurra el accidente.
 (f) Cuando se emplee espuma eficacia nivel A o espuma eficacia nivel B, la cantidad de agua que debe proveerse para la producción de espuma debe basarse, en primer término, en la cantidad que sea necesaria en el caso de emplearse la espuma eficacia nivel A, y reducirla a tres litros por cada dos litros de agua suministrada para el caso de la espuma nivel B.
 (g)Los regímenes de descarga de la solución de espuma no deben ser inferiores a los indicados en la anterior Tabla 4.
@@ -912,11 +956,17 @@ RAC139.323 Sistema de Gestión de la Seguridad Operacional del Aeródromo.
 3) Establecer políticas y procedimientos para la supervisión permanente y la evaluación periódica performance de seguridad operacional lograda. Por medio de auditorías internas y externas.
 4) Tenga como meta mejorar continuamente la performance global del sistema de gestión de la seguridad operacional.
 b) El sistema de gestión de la seguridad operacional debe definir claramente las líneas de responsabilidad, sobre la seguridad operacional en la organización del operador del aeródromo certificado, incluyendo la responsabilidad directa de la administración superior, a efecto de garantizar que el aeródromo se opere con seguridad, en forma controlada y en mejora continua.
-(c) Los proveedores de servicios del aeródromo, servicios de salvamento de extinción de incendios, empresas de asistencia técnica de aeronaves: despacho, servicio de línea, abastecimiento de combustible, suministros de alimentos y bebidas, manejo de carga; y demás organizaciones que realicen o que puedan realizar actividades en forma independiente, deben estar integrados dentro del sistema de gestión de la seguridad operacional del aeródromo conforme al RAC– SEA 1.50 vigente y aplicable. Los proveedores de servicios del aeródromo deben como mínimo, elaborar y mantener un protocolo que garantice la identificación de los peligros operacionales, además de los sistemas de notificación de accidentes e incidentes obligatorios y voluntarios y debe aceptar las auditorias, inspecciones y pruebas que el operador del aeródromo o la DGAC efectúe para garantizar su cumplimiento.
+(c) Los proveedores de servicios del aeródromo, servicios de salvamento de extinción de incendios, empresas de asistencia técnica de aeronaves: despacho, servicio de línea, abastecimiento de combustible, suministros de alimentos y bebidas, manejo de carga; y demás organizaciones que realicen o que puedan realizar actividades en forma independiente, deben estar integrados dentro del sistema de gestión de la seguridad operacional del aeródromo conforme al RAC- SEA 1.50 vigente y aplicable. Los proveedores de servicios del aeródromo deben como mínimo, elaborar y mantener un protocolo que garantice la identificación de los peligros operacionales, además de los sistemas de notificación de accidentes e incidentes obligatorios y voluntarios y debe aceptar las auditorias, inspecciones y pruebas que el operador del aeródromo o la DGAC efectúe para garantizar su cumplimiento.
 (d) Todos los usuarios y proveedores de servicios de aeródromo y demás organizaciones que realicen actividades en forma independiente, están en la obligación de cooperar con el programa, para promover la seguridad operacional y el uso seguro del aeródromo, tomando las acciones correctivas para la mitigación de riesgos, reportando inmediatamente cualquier incidente, accidente, defecto o falla que pueda tener repercusiones en la seguridad operacional, seguridad ocupacional o en la seguridad contra actos de interferencia ilícita.
 e) El sistema de gestión de la seguridad operacional debe ser presentado como la parte 6 del Manual de Operaciones del aeródromo o en un manual o volumen independiente para la aceptación de la DGAC; ver apéndice 1 al RAC139.205 para su estructura.
+Nota- El objetivo de un sistema de gestión de la seguridad operacional es que el explotador del aeródromo cuente con un procedimiento organizado y ordenado para la gestión de la seguridad operacional del aeródromo. El Anexo 19 - Gestión de la seguridad operacional contiene disposiciones sobre gestión de la seguridad operacional aplicables a aeródromos certificados. En el Manual de gestión de la seguridad operacional (SMM) (Doc 9859), y en el Manual de certificación de aeródromos (Doc 9774), se proporciona orientación general sobre los sistemas de gestión de la seguridad operacional. En los PANS-Aeródromos (Doc 9981) se especifican procedimientos para la gestión del cambio; la realización de evaluaciones de seguridad operacional; la notificación y el análisis de sucesos de seguridad operacional en los aeródromos; la seguridad operacional en la pista y fa observación continua, a fin de hacer cumplir las especificaciones pertinentes de manera que se identifiquen los peligros y se evalúen y mitiguen los riesgos detectados.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 RAC139.325 Plan de Emergencias del Aeródromo.
 (Véase CCA 139.325)
+Nota 1.-los textos de orientación sobre factores humanos se encuentran en el Manual de instrucción sobre factores humanos [Doc 9683).
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 2.- los principios y procedimientos generales sobre instrucción del personal del aeródromo, incluidos los programas de instrucción y las verificaciones de competencia, se especifican en los PANS-Aeródromos [Doc 9981).
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 El operador del aeródromo debe establecer un plan de emergencia que guarde relación con las operaciones de las aeronaves y las actividades del aeródromo, que provea la coordinación de medidas que han de adoptarse frente a una emergencia en el aeródromo o sus inmediaciones y que se ajuste a principios relativos de factores humanos a fin de asegurar que todas las entidades intervengan o participen de la mejor manera posible. El plan debe abarcar y satisfacer los siguientes requerimientos:
 a) Organización y operaciones. Incluir al menos lo siguiente:
 (1) Procedimientos que constituyan una respuesta rápida a cualquier emergencia de las enumeradas en el párrafo (b) de esta sección, con suficiente detalle para proporcionar una guía adecuada a cada persona que deba implementarlo.
@@ -985,9 +1035,17 @@ operacional.
 (3) Un sistema de reporte, seguimiento y corrección de irregularidades de las condiciones no seguras observadas durante la inspección.
 (g) El operador del aeródromo debe establecer un sistema de registros de cada auditoria e inspección prescrita en esta sección, que detalle las condiciones que encontró y las acciones correctivas ejecutadas. Los registros se conservarán al menos 24 meses después de la fecha de inspección o de cierre de cada discrepancia encontrada.
 (h) El operador del aeródromo debe establecer un sistema de traslado y comunicación a la DGAC de las discrepancias o hallazgos encontrados en las auditorias e inspecciones efectuadas a los proveedores de servicios del aeródromo, servicios de salvamento de extinción de incendios, empresas de asistencia técnica de aeronaves: despacho, servicio de línea, abastecimiento de combustible, suministros de alimentos y bebidas, manejo de carga; y demás organizaciones que realicen o que puedan realizar actividades en forma independiente en el Aeródromo.
-RAC139.329 Vehículos.
+CCA 139.329 ( a), (b), (e), (d) y (e) Vehículos.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (Ver Apéndice 1/ al RAC139.329 (e))
 (Véase CCA 139.329 (e) y (l))
+Nota 1.- Los procedimientos para el establecimiento de un régimen de licencias de conductores en la parte aeronáutica [ADPJ y requisitos de seguridad operacional de vehículos/equipos, lo que incluye instrucción detallada del personal, se especifican en los FANS-Aeródromos [Doc 9981), Parte II, Capítulo 9.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 2.- El Adjunto A, Sección 19, proporciona orientación sobre las operaciones de los vehículos de aeródromo y en el Manual de sistemas de guía y control del movimiento en la superficie {SMGCS) (Doc 9476), figura orientación sobre reglas de tráfico y reglamentos aplicables a los vehículos.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 3. - Se tiene la intención de que los caminos situados en el área de movimiento sean para uso exclusivo del personal de aeródromo y de otras personas autorizadas y de que, para el acceso a los edificios públicos del personal que no esté autorizado, no sea necesario utilizar dichos caminos.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+El Doc. AC 150/5210-20 Operación de vehículos en aeródromos (Ground Vehicle Operations on Airports) contiene estándares aceptables para el cumplimiento de las secciones RAC139.329 (a), (b), (c), (d) y (e).
 (a) El operador del aeródromo debe limitar el acceso de vehículos a las áreas de movimiento, en particular aquellos vehículos que no sean necesarios para la operación y mantenimiento del aeródromo.
 (b) El operador del aeródromo debe establecer e implementar reglas de tráfico y procedimientos para la operación segura y la circulación ordenada de vehículos en el área de movimiento e identificar las consecuencias del no cumplimiento de las disposiciones.
 (c) Los vehículos pueden circular:
@@ -1061,10 +1119,12 @@ También debe incluir la instalación de dispositivos adecuados en cloacas, tún
 (d) Tomar las previsiones y proveer una valla o barrera adecuada para evitar la incursión al área de movimiento, de personas o vehículos no autorizados, así como de animales que, por su tamaño, lleguen a constituir un peligro para las aeronaves.
 (e) Establecer dentro de programa vigilancia inspecciones diarias tanto diurnas como nocturnas.
 (f) Proteger razonablemente a las personas y propiedades, para prevenir daños por la fuerza del chorro de los gases de escape de motores de aeronaves
-RAC139.337 Reducción de Peligros Debidos a las Aves y otros Animales.
+CCA 139.337 (a) y (t) Protección del peligro por aves y otros animales.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (Véase CCA 139.337 (a) y (f))
 El operador del aeródromo debe:
-(a)Proveer o facilitar un estudio de fauna, a efecto de tomar las acciones pertinentes para minimizar los riesgos debidos a aves u otro tipo de animales:
+(a) En los PANS-Aeródromos (Doc 9981), Parte 11, Capítulos 1 y 6, se especifican procedimientos para controlar el peligro que representa la fauna silvestre en los aeródromos y sus alrededores, incluida la creación de un programa de gestión del peligro que representa la fauna silvestre (WHMP), una evaluación de los riesgos que entrafia la fauna silvestre, la gestión de la utilización de los terrenos y la capacitación. En el Manual de disefio de aeródro mos (Doc 9137), Parte 3 figura orientación adicional al respecto. El Doc 9332 contiene el sistema de notificación a OACI sobre choques contra aves.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (b) El estudio requerido en el párrafo (a) de esta sección debe ser conducido por profesionales en la materia, con experiencia o asistidos en gestión de aeródromos y debe contener por lo menos lo siguiente:
 (1) Identificación de las especies, número, localidad, movimientos locales diarios y por estación, y ocurrencias de observación de animales.
 (2) Identificación y localización de todas las características en el aeródromo y cerca del aeródromo, que atraen aves o animales silvestres.
@@ -1108,15 +1168,16 @@ El operador del aeródromo debe revisar todas las publicaciones de Información 
 (i) La penetración de un objeto en una superficie limitadora de obstáculos relacionada con el aeródromo.
 (ii)La existencia de cualquier obstrucción o condición peligrosa que afecte la seguridad operacional en el aeródromo o en sus cercanías.
 (iii)Objetos en el área de movimiento o franjas de pista.
-(2) Nivel de servicio: la inexistencia o reducción del nivel de servicio de SEI, requerido en RAC139.317 y RAC139.319
-(3) Información sobre el estado del área de movimiento y el funcionamiento de las instalaciones relacionadas con la misma. El operador del aeródromo debe mantener vigilancia sobre las condiciones del área de movimiento y el funcionamiento de las instalaciones relacionadas con las mismas, según el RAC139.327 y facilitar informes a las dependencias de los servicios de información aeronáutica y a los servicios de tránsito aéreo para que estas la proporcionen a las aeronaves que ingresan o salen. La información se debe mantener actualizada y cualquier cambio de las condiciones se debe comunicar sin demora, la información debe de abarcar aspectos de importancia en materia de seguridad (operacional del aeródromo o aquella que afecte el performance de las aeronaves, particularmente respecto a lo siguiente:
+(2) Nivel de servicio: la inexistencia o reducción del nivel de servicio de SEI, requerido
+(3) En los PANS-AIM (Doc 10066) y los PANS-ATM (Doc 4444) se especifica la naturaleza, el formato y las condiciones de la información que debe proporcionarse. En los PANS-Aeródromos (Doc 9981) se especifican procedimientos concretos relativos a las obras en curso en el área de movimientos y la notificación de dichas obras.
+(Así reformado el punto (3) anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 i) Trabajos de construcción o de mantenimiento.
 ii) Partes irregulares o deterioradas de la superficie de una pista, calle de rodaje o plataforma.
 iii) Nota: Este apartado (iii) dejará de regir a partir del 05 de noviembre el 2020.
 Presencia de agua en una pista, utilizando para facilitar su descripción de las condiciones de la superficie de la pista los siguientes términos:
-HÚMEDA — La superficie acusa un cambio de color debido a la humedad.
-MOJADA — La superficie está empapada pero no hay agua estancada.
-AGUA ESTANCADA — Para fines de la performance de un avión, más del 25% del área de la superficie de la pista está cubierta con más de 3 mm de agua (en partes aisladas o continuas de la misma) dentro de la longitud y anchura requeridas en uso.
+HÚMEDA - La superficie acusa un cambio de color debido a la humedad.
+MOJADA - La superficie está empapada pero no hay agua estancada.
+AGUA ESTANCADA - Para fines de la performance de un avión, más del 25% del área de la superficie de la pista está cubierta con más de 3 mm de agua (en partes aisladas o continuas de la misma) dentro de la longitud y anchura requeridas en uso.
 Indicando si fuera posible profundidad del agua, ubicación con respecto al eje y largo de pista y la información de que una pista o parte de la misma puede ser resbaladiza cuando está mojada. Si hay agua en calle de rodaje o plataforma.
 iv) Presencia de derrames de productos químicos u otros contaminantes en una pista calle de rodaje o plataforma.
 v) Otros peligros temporales, incluyendo aeronaves estacionadas o inutilizadas.
@@ -1130,9 +1191,10 @@ vii) Avería de la fuente normal o secundaria de energía eléctrica, o mal func
 (f) El operador del aeródromo debe facilitar información sobre el nivel mínimo de rozamiento, para notificar si la pista esta resbaladiza y el tipo de dispositivo utilizado para medir el rozamiento.
 (g) El operador del aeródromo debe de considerar debidamente lo referente a la exactitud e integridad de los datos aeronáuticos e información que suministre al AIS, para la emisión de NOTAMs, AICs y cambios al AIP.
 (h) El personal que evalúa y notifica las condiciones de la superficie de una pista que se exigen en RAC139.339 (d) (3) debe estar capacitado y ser competente con el fin de ajustarse a los criterios establecidos por la DGAC.
-(i) Estado de la superficie de la pista para uso en el informe del estado de la pista
-Nota: Esta sección (i) entrará en vigencia a partir del 05 de noviembre el 2020.
-Nota introductoria. — La filosofía que subyace al informe del estado de la pista es que el explotador del aeródromo evalúa el estado de la superficie de una pista cuando hay presencia de agua u otros contaminantes en una pista en funcionamiento. A partir de esta evaluación, se notifica una clave de estado de la pista (RWYCC) y una descripción de la superficie de la pista, información que la tripulación de vuelo puede utilizar para calcular la performance del avión.
+(*)(i) Estado de la superficie de la pista para uso en el informe del estado de la pista
+Nota: Esta sección (i) entró en vigencia a partir del 04 de noviembre el 2021.
+(*)(Así reformado el punto (i) anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota introductoria. - La filosofía que subyace al informe del estado de la pista es que el explotador del aeródromo evalúa el estado de la superficie de una pista cuando hay presencia de agua u otros contaminantes en una pista en funcionamiento. A partir de esta evaluación, se notifica una clave de estado de la pista (RWYCC) y una descripción de la superficie de la pista, información que la tripulación de vuelo puede utilizar para calcular la performance del avión.
 Este informe, basado en el tipo, el espesor y la cobertura de los contaminantes, es la mejor evaluación que el explotador del aeródromo puede hacer del estado de la superficie de las pistas; sin embargo, puede tomarse en consideración toda la demás información pertinente. Véase el Adjunto A, Sección 6, para más detalles. En los PANS-Aeródromos (Doc 9981) figuran procedimientos sobre el uso del informe del estado de la pista y para la asignación de la RWYCC, de conformidad con la matriz de evaluación del estado de la pista (RCAM).
 1) El estado de la superficie de la pista se evaluará y notificará por medio de la clave de estado de la pista (RWYCC) y una descripción en la que se empleen los siguientes términos:
 SECA
@@ -1142,7 +1204,9 @@ ARENA SUELTA
 2) Cuando una pista en funcionamiento esté contaminada, se hará una evaluación del espesor y cobertura del contaminante para cada tercio de la pista, que se notificará.
 3) Se facilitará la información que indique que una pista o una porción de la misma está mojada y es resbaladiza.
 4) Se notificará a los usuarios del aeródromo pertinentes cuando el nivel de rozamiento de una pista pavimentada o una porción de la misma sea menor que el nivel de rozamiento mínimo que especifica el Estado de acuerdo con RAC14 304 (b).
-RAC139.341 Identificación y Señalización de Áreas en Construcción.
+CCA 139.341 Identificación y señalización de áreas de construcción, áreas no utilizables y avisos de advertencia.
+La DGAC generará una circular de asesoramiento para gestionar la seguridad operacional durante las actividades de construcción y mantenimiento en aeródromos, la cual provee orientación para mantener la seguridad operacional.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (Ver CCA 139.341)
 (a) El operador del aeródromo debe garantizar:
 (1) La señalización, iluminación e instalación de vallas o barreras en:
@@ -1160,6 +1224,10 @@ RAC139.343 Servicio de dirección en la plataforma.
 (b) Cuando la dependencia ATS no participe en el servicio de dirección en la plataforma, el operador del aeródromo debe establecer procedimientos entre la dependencia de dirección en la plataforma y la Torre de Control del aeródromo, con el fin de facilitar el paso ordenado de las aeronaves.
 (c) El Operador del aeródromo debe proporcionar o se debe asegurar que se proporcione el servicio de dirección en la plataforma, mediante la instalación de comunicaciones radiotelefónicas.
 (d) Cuando estén en vigor los procedimientos relativos a condiciones de visibilidad mínima, el operador del aeródromo debe restringir al mínimo esencial el número de personas y vehículos que circulen en la plataforma.
+Nota 1.- Los principios y procedimientos sobre seguridad operacional en la plataforma se especifican en los PANS-Aeródromos (Doc 9981). El Manual de servicios aeroportuarios, parte 8, y el Manual de sistema de guía y control de movimiento en la superficie {SMGCS) (Doc 9476), de OACI, ofrecen orientación sobre el servicio de dirección en plataforma.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
+Nota 2.- Los procedimientos sobre instrucción del personal operacional y sobre seguridad operacional y operaciones en la plataforma se especifican en los PANS-Aeródromos (Doc 9981), Parte 11, Capítulos 1 y 7.
+(Así adicionada la nota anterior por el artículo 1° del decreto ejecutivo N° 44613 del 25 de junio del 2024)
 (e) Los vehículos de atención de emergencias que circulen en respuesta a una situación de emergencia, deben tener prioridad sobre el resto del tráfico de movimiento en la superficie, y los servicios de tránsito aéreo debe suspender cualquier maniobra en el área de movimiento.
 (f) El operador del aeródromo debe vigilar que los vehículos que circulen en la plataforma:
 (1) Cedan el paso:
@@ -1298,10 +1366,10 @@ e) Pilotos
 f) Cualquier otro grupo que intervenga en las operaciones de la pista.
 Tareas del RST
 Las funciones principales del RST deben ser:
-• Desarrollar planes de acción para la seguridad operacional en la pista
-• Identificar los peligros potenciales de incursiones y excursiones en la pista
-• Recomendar estrategias para eliminar peligros y mitigar riesgos individuales
-• Cualquier otro riesgo en contra de la seguridad operacional considerado como peligroso.
+. Desarrollar planes de acción para la seguridad operacional en la pista
+. Identificar los peligros potenciales de incursiones y excursiones en la pista
+. Recomendar estrategias para eliminar peligros y mitigar riesgos individuales
+. Cualquier otro riesgo en contra de la seguridad operacional considerado como peligroso.
 Frecuencia de las reuniones del RST
 El equipo de trabajo deberá reunirse regularmente con una frecuencia de al menos cada tres meses CCA 139.007 (c) Coordinación operacional con usuarios y proveedores de servicios
 Memorando (carta) de entendimiento.
@@ -1309,13 +1377,13 @@ Memorando (carta) de entendimiento.
 Este CCA es un medio alternativo de cumplimiento de cómo puede ser establecido un Memorando (carta) de entendimiento.
 Memorando de Entendimiento entre el Operador del Aeropuerto ----------------------y ----------------------.
 1) ENCABEZADO.
-“Memorando de Entendimiento entre: Razón Social o Denominación del Operador del Aeropuerto y Razón Social o Denominación de la otra parte firmante”.
+"Memorando de Entendimiento entre: Razón Social o Denominación del Operador del Aeropuerto y Razón Social o Denominación de la otra parte firmante".
 2) PREÁMBULO:
 Las entidades antes indicadas hemos convenido que es de beneficio mutuo establecer un entendimiento formal, para el desarrollo eficiente y seguro de las actividades aeroportuarias.
 3) TEMA:
 (Indicar materia a convenir)
 4) OBJETIVOS:
-“De acuerdo con el tema, describir brevemente los objetivos propuestos”
+"De acuerdo con el tema, describir brevemente los objetivos propuestos"
 5) RESPONSABILIDADES:
 Cada una de las partes de este acuerdo es responsable de que el personal bajo su autoridad cumpla las provisiones aquí establecidas. El entrenamiento inicial y recurrente del personal involucrado será responsabilidad de los firmantes.
 6) PROCEDIMIENTOS DEL OPERADOR DEL AEROPUERTO:
@@ -1344,7 +1412,7 @@ FINALIDAD
 Se realiza un estudio aeronáutico para evaluar las consecuencias de las desviaciones respecto de las normas de aeródromo especificadas en los RAC14 y RAC139 establecidas conforme los requerimientos del Volumen I del Anexo 14 al Convenio sobre Aviación Civil Internacional, para presentar medios alternativos de garantizar la seguridad de las operaciones de aeronave, evaluar la efectividad de cada alternativa y recomendar procedimientos para compensar la desviación.
 APLICACIÓN
 Un estudio aeronáutico puede realizarse cuando las normas de aeródromo no pueden satisfacerse como resultado de desarrollo o ampliaciones. Dicho estudio se utiliza con mayor frecuencia durante la planificación de un nuevo aeropuerto o durante la certificación de un aeródromo existente.
-Nota. — Pueden no realizarse los estudios aeronáuticos en caso de desviaciones respecto de las normas si no se lo recomienda específicamente los RAC14 y RAC139.
+Nota. - Pueden no realizarse los estudios aeronáuticos en caso de desviaciones respecto de las normas si no se lo recomienda específicamente los RAC14 y RAC139.
 DEFINICIÓN
 Un estudio aeronáutico es un estudio de un problema aeronáutico para determinar posibles soluciones y seleccionar una solución que resulte aceptable, sin que afecte negativamente la seguridad.
 ANÁLISIS TÉCNICO
@@ -1386,11 +1454,11 @@ Sección 2. Análisis de Riesgo.
 a) Descripción de la desviación, indicando la diferencia que se tiene respecto de las normas especificadas en la normativa vigente aplicable o conforme lo establece el Anexo 14, Volumen I, al Convenio sobre Aviación Civil Internacional.
 Sección 3. Tolerabilidad del riesgo de seguridad operacional.
 a) Estimar la probabilidad de que ocurra un incidente o accidente atribuible a desviaciones similares a la analizada. La probabilidad se clasificará como: | b) Descripción de la gravedad de las consecuencias de que ocurra el incidente o accidente. Las magnitudes de las consecuencias se clasifican como:
-•Frecuente | •Catastrófico
-•Ocasional | •Peligroso
-•Remoto | •Grave
-•Improbable | •Leve
-•Sumamente Improbable | •Insignificante
+.Frecuente | .Catastrófico
+.Ocasional | .Peligroso
+.Remoto | .Grave
+.Improbable | .Leve
+.Sumamente Improbable | .Insignificante
 Sección 4. Medidas de Mitigación.
 a) Descripción de las medidas de mitigación aplicadas para eliminar o reducir al máximo los riesgos detectados.
 Sección 5. Resultados.
@@ -1402,11 +1470,11 @@ Se debe de incorporar toda aquella documentación (Procedimientos, análisis, re
 SUBPARTE B - CERTIFICACIÓN
 CCA 139.101 Proceso de Certificación
 (Ver RAC139.101)
-Nota. — Los PANS-AERÓDROMOS (Doc 9981) contienen procedimientos específicos cerca de las etapas para certificar un aeródromo. En el Manual de certificación de aeródromos (Doc 9774) se proporciona orientación adicional sobre la certificación de aeródromos.
+Nota. - Los PANS-AERÓDROMOS (Doc 9981) contienen procedimientos específicos cerca de las etapas para certificar un aeródromo. En el Manual de certificación de aeródromos (Doc 9774) se proporciona orientación adicional sobre la certificación de aeródromos.
 CCA 139.103(a) Otorgamiento del Certificado de Aeródromo.
 (Ver RAC139.103(a) )
 Nota 1 - En los PANS-AERÓDROMOS (Doc 9981) figura el texto de un manual de aeródromos que incluye procedimientos para su presentación y aprobación/aceptación, verificación de cumplimiento y otorgamiento de certificados de aeródromo.
-Nota 2 El objetivo de un sistema de gestión de la seguridad operacional es que el explotador del aeródromo cuente, con un procedimiento organizado y ordenado para la gestión de la seguridad operacional del aeródromo. En el RAC139.323 — Gestión de la seguridad operacional contiene disposiciones sobre gestión de la seguridad operacional aplicables a aeródromos certificados y el anexo 19 de la OACI. La orientación sobre el sistema de gestión de la seguridad operacional de aeródromos figura en el Manual de gestión de la seguridad operacional (Doc 9859), y en el Manual de certificación de aeródromos (Doc 9774). Los PANS –Aeródromos (Doc.9981) contiene procedimientos para la gestión del cambio, la realización de evaluación de seguridad operacional, la notificación y el análisis de sucesos de seguridad operacional en los aeródromos y la observación continua, a fin de hacer cumplir las especificaciones pertinentes de manera que se mitiguen los riesgos detectados.
+Nota 2 El objetivo de un sistema de gestión de la seguridad operacional es que el explotador del aeródromo cuente, con un procedimiento organizado y ordenado para la gestión de la seguridad operacional del aeródromo. En el RAC139.323 - Gestión de la seguridad operacional contiene disposiciones sobre gestión de la seguridad operacional aplicables a aeródromos certificados y el anexo 19 de la OACI. La orientación sobre el sistema de gestión de la seguridad operacional de aeródromos figura en el Manual de gestión de la seguridad operacional (Doc 9859), y en el Manual de certificación de aeródromos (Doc 9774). Los PANS -Aeródromos (Doc.9981) contiene procedimientos para la gestión del cambio, la realización de evaluación de seguridad operacional, la notificación y el análisis de sucesos de seguridad operacional en los aeródromos y la observación continua, a fin de hacer cumplir las especificaciones pertinentes de manera que se mitiguen los riesgos detectados.
 SUBPARTE C - MANUAL DE OPERACIONES DEL AERÓDROMO (MOA)
 CCA 139.203 Preparación del Manual de Operaciones del Aeródromo (MOA)
 (Ver RAC139.203)
@@ -1436,8 +1504,8 @@ Para la información sobre servicios de retiro de aeronaves inutilizadas, véase
 SUBPARTE D - OPERACIONES Y OBLIGACIONES DEL OPERADOR
 CCA 139.301 (a) Generalidades.
 (Ver RAC139.301(a))
-1. — Por mantenimiento preventivo se entiende la labor programada de mantenimiento llevada a cabo, para evitar fallas de las instalaciones o una reducción de la eficiencia de los mismos.
-2. — Se entiende por “instalaciones” los pavimentos, ayudas visuales, vallas, sistemas eléctricos y de drenaje y edificios
+1. - Por mantenimiento preventivo se entiende la labor programada de mantenimiento llevada a cabo, para evitar fallas de las instalaciones o una reducción de la eficiencia de los mismos.
+2. - Se entiende por "instalaciones" los pavimentos, ayudas visuales, vallas, sistemas eléctricos y de drenaje y edificios
 CCA 139.301 (b) Generalidades.
 (Ver RAC139.301(b))
 Los textos de orientación sobre los principios relativos a factores humanos se encuentran en el Manual de instrucción sobre factores humanos (Doc 9683). y en el Manual de servicios de aeropuertos (Doc 9137), Parte 8.
@@ -1476,15 +1544,15 @@ Esta auditoria o revisión del programa de entrenamiento por parte del operador 
 La obtención de datos debe ser realizado en forma permanente, a fin de proveer las bases para la validación del proceso de instrucción y proponer las recomendaciones necesarias para mejorar el proceso de instrucción.
 CCA 139.304 Procedimientos específicos para operaciones de aeródromos
 (Ver RAC139.304)
-Nota de introducción. — En esta sección se presentan los PANS-AERÓDROMOS (Doc 9981) para uso de los aeródromos que lleven a cabo una evaluación de su compatibilidad para el tipo de tránsito o de operación a los que se desea dar cabida. Los textos de los PANS-AERÓDROMOS tratan de cuestiones operacionales, que enfrentan los aeródromos existentes y contienen los procedimientos necesarios que permiten garantizar la seguridad permanente de las operaciones.
+Nota de introducción. - En esta sección se presentan los PANS-AERÓDROMOS (Doc 9981) para uso de los aeródromos que lleven a cabo una evaluación de su compatibilidad para el tipo de tránsito o de operación a los que se desea dar cabida. Los textos de los PANS-AERÓDROMOS tratan de cuestiones operacionales, que enfrentan los aeródromos existentes y contienen los procedimientos necesarios que permiten garantizar la seguridad permanente de las operaciones.
 En los casos en los que se hayan definido medidas y procedimientos y restricciones operacionales alternativas, éstos deberían detallarse en el manual de aeródromo y examinarse periódicamente para evaluar constantemente su vigencia. Los PANS-AERÓDROMOS no tienen por objeto sustituir ni eludir las disposiciones de este Anexo. Se espera que la infraestructura nueva en un aeródromo existente o en uno nuevo cumpla plenamente los requisitos de este Anexo. Véase el Anexo 15, 4.1.2 c), sobre las responsabilidades de los Estados en relación con la inclusión en las publicaciones de información aeronáutica de una lista de diferencias respecto a los procedimientos conexos de la OACI.
 CCA 139.304 Procedimientos específicos para operaciones de aeródromos
 (Ver RAC139.304 (a))
-Nota. — Los procedimientos para evaluar la compatibilidad entre la operación de un avión nuevo y un aeródromo existente figuran en los PANS-AERÓDROMOS (Doc 9981).
+Nota. - Los procedimientos para evaluar la compatibilidad entre la operación de un avión nuevo y un aeródromo existente figuran en los PANS-AERÓDROMOS (Doc 9981).
 CCA 139.304 Procedimientos específicos para operaciones de aeródromos
 (Ver RAC139.304 (b))
-Nota 1. — Véase el Anexo 15, Apéndice 1, AD 2.20, sobre la descripción detallada del reglamento local del tránsito.
-Nota 2. — Véanse los PANS-AERÓDROMOS (Doc 9981), Capítulo 3, sección 3.6, sobre la promulgación de información relativa a la seguridad operacional.
+Nota 1. - Véase el Anexo 15, Apéndice 1, AD 2.20, sobre la descripción detallada del reglamento local del tránsito.
+Nota 2. - Véanse los PANS-AERÓDROMOS (Doc 9981), Capítulo 3, sección 3.6, sobre la promulgación de información relativa a la seguridad operacional.
 CCA 139.305 (a) (5) Áreas pavimentadas.
 (Ver RAC139.305(a) (5))
 1- Véase RAC139.327(c) acerca de inspecciones del área de movimiento.
@@ -1497,9 +1565,9 @@ CCA 139.305 (b) Áreas pavimentadas.
 El Manual de servicios de aeropuertos (Doc 9137), Parte 2, contiene información adicional acerca de este tema, así como sobre cómo mejorar las características de rozamiento de las superficies de las pistas.
 CCA 139.305 (b) Áreas pavimentadas.
 (Ver RAC139.305(b))
-1. —En el Anexo A, Sección 7, se proporciona orientación para evaluar las características de rozamiento de las pistas. También se presenta orientación en el Manual de servicios de aeropuertos (Doc 9137), Parte 2.
-2. — El objetivo del RAC139.305 es garantizar que las características de rozamiento de la superficie de toda la pista conserven un nivel mínimo de rozamiento igual o superior al especificado por el Estado.
-3. — En el Anexo A, Sección 7, y en el Manual de servicios de aeropuertos (Doc 9137), Parte 2, Apéndice 5, figura orientación sobre cómo determinar la frecuencia requerida.
+1. -En el Anexo A, Sección 7, se proporciona orientación para evaluar las características de rozamiento de las pistas. También se presenta orientación en el Manual de servicios de aeropuertos (Doc 9137), Parte 2.
+2. - El objetivo del RAC139.305 es garantizar que las características de rozamiento de la superficie de toda la pista conserven un nivel mínimo de rozamiento igual o superior al especificado por el Estado.
+3. - En el Anexo A, Sección 7, y en el Manual de servicios de aeropuertos (Doc 9137), Parte 2, Apéndice 5, figura orientación sobre cómo determinar la frecuencia requerida.
 CCA 139.305 (b) (2) Áreas pavimentadas.
 (Ver RAC139.305(b) (2))
 Los siguientes documentos brindan orientación para establecer los procedimientos sobre la recopilación y difusión sobre los estados de las superficies y mantenimiento cuando se de los niveles de rozamiento: Doc. 9137 parte 2 Manual de servicios de aeródromo, Anexo 14, Adjunto A, parte 7 y AC 150/5320-12C del FAA.
@@ -1538,8 +1606,8 @@ En el Manual de servicios de aeródromo, Doc. 9137 de la OACI, parte 9, y en los
 CCA 139.311 (h) Ayudas visuales y sistemas eléctricos.
 (Ver RAC139.311(h))
 Con respecto a las luces de barretas, barras transversales y de extremo de pista, se considerarán adyacentes si están emplazadas consecutivamente y:
-— lateralmente: en la misma barreta o barra transversal; o
-— longitudinalmente: en la misma fila de luces de borde o barretas.
+- lateralmente: en la misma barreta o barra transversal; o
+- longitudinalmente: en la misma fila de luces de borde o barretas.
 CCA 139.311 (l) Ayudas visuales y sistemas eléctricos.
 (Ver RAC139.311(l))
 En las barretas y en las barras transversales, la guía no se pierde por haber luces adyacentes fuera de servicio.
@@ -1549,8 +1617,8 @@ Véase en el Manual de servicios de aeropuertos (Doc 9137), Parte 1, la orientac
 En el Adjunto A, Sección 18 y en el Manual de servicios de aeropuertos (Doc 9137), Parte 1, se proporciona orientación sobre capacitación de personal, equipo de salvamento para lugares difíciles y otras instalaciones y servicios de salvamento y extinción de incendios.
 CCA 139.317 (a) Salvamento y extinción de incendios SEI. Equipos y agentes de extinción.
 (Ver RAC139.317(a))
-1.— Las cantidades de agua especificadas para la producción de espuma se basan en un régimen de aplicación de 8,2 L/min/m2 para una espuma de eficacia de nivel A, 5,5 L/min/m2 para una espuma de eficacia de nivel B y 3,75 L/min/m2 para una espuma de eficacia de nivel C
-2. — Cuando se utiliza otro agente complementario, debería verificarse el régimen de sustitución.
+1.- Las cantidades de agua especificadas para la producción de espuma se basan en un régimen de aplicación de 8,2 L/min/m2 para una espuma de eficacia de nivel A, 5,5 L/min/m2 para una espuma de eficacia de nivel B y 3,75 L/min/m2 para una espuma de eficacia de nivel C
+2. - Cuando se utiliza otro agente complementario, debería verificarse el régimen de sustitución.
 CCA 139.317 (b) Salvamento y extinción de incendios SEI. Equipos y agentes de extinción.
 (Ver RAC139.317(b))
 Las descripciones de los agentes extintores pueden encontrarse en el Manual de servicios de aeropuertos (Doc 9137), Parte 1.
@@ -1559,7 +1627,7 @@ CCA 139.317 (c) Salvamento y extinción de incendios SEI. Equipos y agentes de e
 En el Manual de servicios de aeropuertos (Doc 9137), Parte 1, se facilita información sobre las propiedades físicas exigidas y los criterios necesarios de eficacia de extinción de incendios para considerar que una espuma tiene una eficacia aceptable de nivel A, B o C.
 CCA 139.317 (d) Salvamento y extinción de incendios SEI. Equipos y agentes de extinción.
 (Ver RAC139.317(d))
-En adición a lo previsto por OACI en el Manual de servicios de aeródromo, parte 1, Doc. 9137, sobre equipo y agentes extintores, este CCA indica algunos estándares que se consideran aceptables para el cumplimiento de la norma 139.317 (d), provenientes de la Asociación Nacional de Protección contra el Fuego (National Fire Protection Asociation–NFPA) y de la Administración Federal de Aviación (Federal Aviation Administration–FAA), ambas de los Estados Unidos de Norteamérica.
+En adición a lo previsto por OACI en el Manual de servicios de aeródromo, parte 1, Doc. 9137, sobre equipo y agentes extintores, este CCA indica algunos estándares que se consideran aceptables para el cumplimiento de la norma 139.317 (d), provenientes de la Asociación Nacional de Protección contra el Fuego (National Fire Protection Asociation-NFPA) y de la Administración Federal de Aviación (Federal Aviation Administration-FAA), ambas de los Estados Unidos de Norteamérica.
 NFPA 412 Estándares para la evaluación de espuma utilizada en el salvamento y extinción de incendios (Standard for Evaluating Aircraft Rescue and Fire Foam Equipment)
 NFPA 414 Vehículos de salvamento y extinción de incendios (Aircraft Rescue and Fire Fighting Vehicles)
 FAA-AC150/5210-14 Vestimenta protectora del personal de salvamento y extinción de incendios de aeródromos (Airport Fire and Rescue Personal Protective Clothing)
@@ -1585,20 +1653,20 @@ CCA 139.319(b) (1) Salvamento y extinción de incendios (SEI): requerimientos op
 En el Capítulo 2 del Manual de servicios de aeropuertos (Doc 9137), Parte 1, figura orientación sobre cómo determinar las cantidades de agua y el régimen de descarga basándose en el largo total de los aviones de mayor longitud de una categoría determinada.
 CCA 139.319(i)(2) Salvamento y extinción de incendios (SEI): requerimientos operacionales.
 (Ver RAC139.319(i)(2))
-1. — Se considera que el tiempo de respuesta es el período entre la llamada inicial al servicio de salvamento y extinción de incendios y la aplicación de espuma por los primeros vehículos que intervengan, cuando menos a un 50% del régimen de descarga especificado en la Tabla 4.
-2. — Se entiende por condiciones óptimas de visibilidad y superficie, las horas diurnas, con buena visibilidad y sin precipitaciones, en rutas de respuesta normal, sin contaminación en la superficie; p. ej., agua, niebla, ceniza, arena, barro.
+1. - Se considera que el tiempo de respuesta es el período entre la llamada inicial al servicio de salvamento y extinción de incendios y la aplicación de espuma por los primeros vehículos que intervengan, cuando menos a un 50% del régimen de descarga especificado en la Tabla 4.
+2. - Se entiende por condiciones óptimas de visibilidad y superficie, las horas diurnas, con buena visibilidad y sin precipitaciones, en rutas de respuesta normal, sin contaminación en la superficie; p. ej., agua, niebla, ceniza, arena, barro.
 CCA 139.319(i)(4) Salvamento y extinción de incendios (SEI): requerimientos operacionales.
 (Ver RAC139.319(i)(4))
 En el Manual de servicios de aeropuertos (Doc 9137), Parte 1, figura orientación adicional.
 CCA 139.319(j) Salvamento y extinción de incendios (SEI): requerimientos operacionales.
 (Ver RAC139.319(j))
-1- En adición a lo previsto por OACI en el Adjunto A Sección 18 del Anexo 14 y Manual de servicios de aeródromo, Parte I, Doc. 9137, sobre el entrenamiento del personal de SEI, este CCA indica algunos estándares aceptables para el cumplimiento de la norma 139.319 (j), los cuales provienen de la Asociación Nacional de Protección contra el Fuego (National Fire Protectión Asociatión-NFPA) y de la Administración Federal de Aviación (Federal Aviation Administration – FAA), ambas de los Estados Unidos de Norteamérica.
+1- En adición a lo previsto por OACI en el Adjunto A Sección 18 del Anexo 14 y Manual de servicios de aeródromo, Parte I, Doc. 9137, sobre el entrenamiento del personal de SEI, este CCA indica algunos estándares aceptables para el cumplimiento de la norma 139.319 (j), los cuales provienen de la Asociación Nacional de Protección contra el Fuego (National Fire Protectión Asociatión-NFPA) y de la Administración Federal de Aviación (Federal Aviation Administration - FAA), ambas de los Estados Unidos de Norteamérica.
 NFPA 402 Guía para las operaciones de salvamento y extinción de incendios (Guide for Aircraft Rescue and Fire Fighting Operations)
 NFPA 405 Entrenamiento para la proficiencia del personal de salvamento y extinción de incendios (Proficency Training of Aircraft Rescue Fire Fighting Personnel)
 FAA-AC 150/5210-7 Entrenamiento en comunicaciones al personal de salvamento y extinción de incendios (Aircraft Rescue and Fire Communications)
 FAA-AC 150/5210-17 Programa de entrenamiento para el personal de salvamento y extinción de incendios (Program for Training of Aircraft Rescue and Fire Fighting Personnel)
 FAA-AC 150/5220-17 Estándares para el diseño de facilidades para el entrenamiento en salvamento y extinción de incendios (Desing Standards for an Aircraft Rescue And Fire Fighting Training Facility).
-2- Los incendios que ocurren cuando hay combustible que sale a presión muy alta por ruptura de un depósito se denominan “incendios alimentados por combustible a presión”.
+2- Los incendios que ocurren cuando hay combustible que sale a presión muy alta por ruptura de un depósito se denominan "incendios alimentados por combustible a presión".
 3- Los textos de orientación para la concepción de programas de instrucción sobre la actuación humana y la coordinación de equipos se encuentran en el Manual de instrucción sobre factores humanos (Doc 9683).
 4- El Manual de servicios de aeropuertos (Doc 9137), Parte 1, contiene orientación sobre el uso de un análisis de recursos necesarios para la tarea.
 CCA 139.319(k) Salvamento y extinción de incendios (SEI): requerimientos operacionales.
@@ -1606,17 +1674,17 @@ CCA 139.319(k) Salvamento y extinción de incendios (SEI): requerimientos operac
 Los caminos de servicio del aeródromo pueden servir como caminos de acceso de emergencia, cuando estén ubicados y construidos adecuadamente.
 CCA 139.319 (l) Salvamento y extinción de incendios: requerimientos operacionales.
 (Ver RAC139.319(l))
-1. — No es necesario que se disponga de equipo especial para la extinción de incendios en extensiones de agua; ello no impide que se proporcione ese equipo donde resultara de uso práctico, p. ej., si en dichas áreas hubiese arrecifes o islas.
-2. — El objetivo consiste en planificar y hacer uso del equipo salvavidas de flotación requerido en la forma más rápida posible, en números proporcionales a las aeronaves de mayor envergadura que utilizan normalmente el aeródromo.
-3. — Se incluyen directrices adicionales en el Capítulo 13 del Manual de servicios de aeropuertos (Doc 9137), Parte 1.
+1. - No es necesario que se disponga de equipo especial para la extinción de incendios en extensiones de agua; ello no impide que se proporcione ese equipo donde resultara de uso práctico, p. ej., si en dichas áreas hubiese arrecifes o islas.
+2. - El objetivo consiste en planificar y hacer uso del equipo salvavidas de flotación requerido en la forma más rápida posible, en números proporcionales a las aeronaves de mayor envergadura que utilizan normalmente el aeródromo.
+3. - Se incluyen directrices adicionales en el Capítulo 13 del Manual de servicios de aeropuertos (Doc 9137), Parte 1.
 CCA 139.319 (n) Salvamento y extinción de incendios: requerimientos operacionales.
 (Ver RAC139.319(n))
-En adición a lo establecido por OACI en el Manual de servicios de aeródromo, parte 1, Doc. 9137, sobre la ubicación y especificaciones de la estación de salvamento y extinción de incendios, este CCA indica algunos estándares considerados como aceptables para el cumplimiento de la norma 139.317 (n), los cuales provienen de la Asociación Nacional de Protección contra el Fuego (National Fire Protección Association-NFPA) y la Administración Federal de Aviación (Federal Aviation Administration –FAA), ambas de los Estados Unidos de Norteamérica.
+En adición a lo establecido por OACI en el Manual de servicios de aeródromo, parte 1, Doc. 9137, sobre la ubicación y especificaciones de la estación de salvamento y extinción de incendios, este CCA indica algunos estándares considerados como aceptables para el cumplimiento de la norma 139.317 (n), los cuales provienen de la Asociación Nacional de Protección contra el Fuego (National Fire Protección Association-NFPA) y la Administración Federal de Aviación (Federal Aviation Administration -FAA), ambas de los Estados Unidos de Norteamérica.
 NFPA 403 Servicios de salvamento y extinción de incendios en aeródromos (Aircraft Rescue and Fire Fighting Services at Airports)
 FAA-AC 150/5210-15 Diseño del edificio de estación de salvamento y extinción de incendios (Airport Rescue and Fire Fighting Station Building Design)
 CCA 139.321 (b) y (c) Manipulación y almacenamiento de sustancias peligrosas.
 (Ver RAC139.321(b)(c))
-En adición a lo establecido en el Manual de Servicios de Aeródromo, parte 1, capítulo 16, Doc. 9137, este CCA indica algunos estándares considerados como aceptables para el cumplimiento de las normas 139.321 (b) y (c) sobre el diseño de facilidades, equipo y sistemas de almacenamiento, manejo y abastecimiento de combustibles, provenientes de la Asociación Nacional de Protección contra el Fuego ((National Fire Protección Association-NFPA) y la Administración Federal de Aviación (Federal Aviation Administration – FAA), ambas de los Estados Unidos de Norteamérica.
+En adición a lo establecido en el Manual de Servicios de Aeródromo, parte 1, capítulo 16, Doc. 9137, este CCA indica algunos estándares considerados como aceptables para el cumplimiento de las normas 139.321 (b) y (c) sobre el diseño de facilidades, equipo y sistemas de almacenamiento, manejo y abastecimiento de combustibles, provenientes de la Asociación Nacional de Protección contra el Fuego ((National Fire Protección Association-NFPA) y la Administración Federal de Aviación (Federal Aviation Administration - FAA), ambas de los Estados Unidos de Norteamérica.
 NFPA 10 Estándares para los extintores de fuego portátiles (Standards for Portable Fire Extinguishers)
 NFPA 30 Código de líquidos combustibles e inflamables (Flammable and Combustible Liquid Code)
 NFPA 385 Vehículos para el servicio de líquidos combustibles e inflamables (Tank Vehicles for Flammable and Combustible Liquids)
@@ -1628,7 +1696,7 @@ CCA 139.323 (a)(4) Sistema de Gestión de la Seguridad Operacional del Aeródrom
 El Anexo 19 y El Manual (9859) de la Gestión de la Seguridad operacional figura orientación, sobre cómo definir la performance de la seguridad operacional.
 CCA 139.323 (e) Sistema de Gestión de la Seguridad Operacional del Aeródromo.
 (Ver RAC139.323(e))
-Nota- El objetivo de un sistema de gestión de la seguridad operacional es que el explotador del aeródromo cuente con un procedimiento organizado y ordenado para la gestión de la seguridad operacional del aeródromo. El Anexo 19 — Gestión de la seguridad operacional contiene disposiciones sobre gestión de la seguridad operacional aplicables a aeródromos certificados. La orientación armonizada sobre el sistema de gestión de la seguridad operacional figura en el Manual de gestión de la seguridad operacional (SMM) (Doc 9859), y en el Manual de certificación de aeródromos (Doc 9774). Los PANSAeródromos (Doc 9981) contienen procedimientos para la gestión del cambio, la realización de evaluaciones de seguridad operacional, la notificación y el análisis de sucesos de seguridad operacional en los aeródromos y la observación continua, a fin de hacer cumplir las especificaciones pertinentes de manera que se mitiguen los riesgos detectados.
+Nota- El objetivo de un sistema de gestión de la seguridad operacional es que el explotador del aeródromo cuente con un procedimiento organizado y ordenado para la gestión de la seguridad operacional del aeródromo. El Anexo 19 - Gestión de la seguridad operacional contiene disposiciones sobre gestión de la seguridad operacional aplicables a aeródromos certificados. La orientación armonizada sobre el sistema de gestión de la seguridad operacional figura en el Manual de gestión de la seguridad operacional (SMM) (Doc 9859), y en el Manual de certificación de aeródromos (Doc 9774). Los PANSAeródromos (Doc 9981) contienen procedimientos para la gestión del cambio, la realización de evaluaciones de seguridad operacional, la notificación y el análisis de sucesos de seguridad operacional en los aeródromos y la observación continua, a fin de hacer cumplir las especificaciones pertinentes de manera que se mitiguen los riesgos detectados.
 Este CCA es un medio alternativo de cumplimiento para establecer y mantener un Sistema de Gestión Operacional del Aeródromo (SMS), por parte del operador del aeródromo y/o los proveedores de servicio. Un SMS es un sistema que una organización utiliza en la gestión de la seguridad operacional.
 El marco incluye cuatro componentes y 12 elementos que representan los requisitos mínimos para la implantación de un SMS. La aplicación del marco o del sistema debe ser directamente proporcional al tamaño del Aeródromo y a la complejidad de sus servicios, no obstante para todos los proveedores de servicio de los Aeródromos como mínimo deben elaborar y mantener un protocolo que garantice la identificación de los peligros operacionales, además de los sistemas de notificación de cualquier incidente, accidente, defecto o falla que pueda tener consecuencias en la seguridad operacional, seguridad ocupacional o en la seguridad contra actos de interferencia ilícita, basados en las directrices del contenido del Manual SMS establecidas a continuación.
 En esta CCA se incluye, además, una breve descripción de cada elemento del marco.
@@ -1687,7 +1755,7 @@ El operador de aeródromo debe elaborar y mantener un medio formal para la comun
 CCA 139.325 Plan de emergencias del aeródromo.
 (Ver RAC139.325)
 La planificación para casos de emergencia en los aeródromos es el procedimiento mediante el cual se hacen preparativos en un aeródromo para hacer frente a una emergencia que se presente en el propio aeródromo o en sus inmediaciones. La finalidad de dicha planificación consiste en reducir al mínimo as repercusiones de una emergencia, especialmente por lo que respecta a salvar vidas humanas y no interrumpir las operaciones de las aeronaves. El plan de emergencia determina los procedimientos que deben seguirse para coordinar la intervención de las distintas entidades del aeródromo (o servicios) y la de las entidades de la comunidad circundante que pudieran prestar ayuda mediante su intervención.
-En el Manual de servicios de aeropuertos, Doc. 9137, parte 7 de OACI y la circular de asesoramiento AE 150/5200–31 A de la FAA proveen orientación y procedimientos estandarizados para el desarrollo del plan de emergencias de aeródromo.
+En el Manual de servicios de aeropuertos, Doc. 9137, parte 7 de OACI y la circular de asesoramiento AE 150/5200-31 A de la FAA proveen orientación y procedimientos estandarizados para el desarrollo del plan de emergencias de aeródromo.
 Algunos ejemplos de emergencia son los siguientes: emergencias que afectan a las aeronaves, casos de sabotaje incluyendo amenazas de bombas, actos de apoderamiento ilícito de aeronaves, incidentes debidos a mercancías peligrosas, incendios de edificios, catástrofes naturales y emergencias de salud pública.
 Emergencias de salud pública son, por ejemplo, un aumento del riesgo de propagación internacional de una enfermedad transmisible grave por medio de viajeros o carga que utilicen transporte aéreo y brotes graves de enfermedades transmisibles, que puedan afectar a una gran parte del personal del aeródromo.
 Los textos de orientación sobre factores humanos se encuentran en el Manual de instrucción sobre factores humanos (Doc 9683).
@@ -1705,13 +1773,13 @@ CCA 139.327 (c) Auditorias e inspecciones de Seguridad Operacional.
 (Ver RAC139.327(c))
 En el Manual de servicios de aeropuertos (Doc 9137), Parte 8, y en el Manual de sistemas de guía y control del movimiento en la superficie (SMGCS) (Doc 9476), se da orientación para llevar a cabo inspecciones diarias del área de movimiento.
 Entre dichas entidades pueden citarse las siguientes:
-— en el aeródromo: las dependencias de control de tránsito aéreo, los servicios de salvamento y extinción de incendios, la administración del aeródromo, los servicios médicos y de ambulancia, los explotadores de aeronaves, los servicios de seguridad y la policía;
-— fuera del aeródromo: los cuartelillos de bomberos, la policía, las autoridades de salud pública (incluidos los servicios médicos, de ambulancia, de hospital y la salud pública), las entidades militares y las patrullas portuarias o guardacostas.
+- en el aeródromo: las dependencias de control de tránsito aéreo, los servicios de salvamento y extinción de incendios, la administración del aeródromo, los servicios médicos y de ambulancia, los explotadores de aeronaves, los servicios de seguridad y la policía;
+- fuera del aeródromo: los cuartelillos de bomberos, la policía, las autoridades de salud pública (incluidos los servicios médicos, de ambulancia, de hospital y la salud pública), las entidades militares y las patrullas portuarias o guardacostas.
 Más que prestar servicios de salud a personas de manera individual, los servicios de salud pública incluyen la planificación para reducir al mínimo las repercusiones negativas que pueden tener para la comunidad los sucesos relacionados con la salud y para atender los problemas de salud de la población.
 CCA 139.329 (a), (b), (c), (d) y (e) Vehículos.
 (Ver RAC139.329)
-— El Adjunto A, Sección 19, proporciona orientación sobre las operaciones de los vehículos de aeródromo y en el Manual de sistemas de guía y control del movimiento en la superficie (SMGCS) (Doc 9476), figura orientación sobre reglas de tráfico y reglamentos aplicables a los vehículos.
-— Se tiene la intención de que los caminos situados en el área de movimiento sean para uso exclusivo del personal de aeródromo y de otras personas autorizadas y de que, para el acceso a los edificios públicos del personal que no esté autorizado, no sea necesario utilizar dichos caminos.
+- El Adjunto A, Sección 19, proporciona orientación sobre las operaciones de los vehículos de aeródromo y en el Manual de sistemas de guía y control del movimiento en la superficie (SMGCS) (Doc 9476), figura orientación sobre reglas de tráfico y reglamentos aplicables a los vehículos.
+- Se tiene la intención de que los caminos situados en el área de movimiento sean para uso exclusivo del personal de aeródromo y de otras personas autorizadas y de que, para el acceso a los edificios públicos del personal que no esté autorizado, no sea necesario utilizar dichos caminos.
 El Doc. AC 150/5210-20 Operación de vehículos en aeródromos (Ground Vehicle Operations on Airports) contiene estándares aceptables para el cumplimiento de las secciones RAC139.329 (a), (b), (c), (d) y (e).
 CCA 139.329 (h) Vehículos - Identificación de vehículos y otros requisitos.
 (Ver RAC139.329)
@@ -1782,20 +1850,20 @@ En los PANS Aeródromos (Doc 9981) se incluyen los procedimientos para vigilar y
 La determinación de que una pista mojada o una porción de la misma pueda considerarse resbaladiza no se basa exclusivamente en la medición del rozamiento empleando un dispositivo de medición continua del rozamiento. En el Manual de servicios de aeropuertos (Doc 9137), Parte 2, se describen dispositivos complementarios para llevar a cabo esta evaluación.
 (h) En el Manual de servicios de aeropuertos (Doc 9137), Parte 8, Capítulo 7, figura orientación sobre
 los criterios de entrenamiento.
-1.— En el Manual de performance del avión (Doc 10064), se ofrece orientación sobre los requisitos de cálculo de performance de las aeronaves, en lo que respecta a la descripción del estado de la superficie de una pista, que figuran en 2.9.2 c), d), y e).
-2.— El origen y la evolución de los datos, el proceso de evaluación y los procedimientos se prescriben en los PANS-Aeródromos (Doc 9981). Estos procedimientos tienen por objeto cubrir los requisitos para lograr el nivel deseado de seguridad operacional para las operaciones de aviones prescrito en los Anexos 6 y 8, y proporcionar información que cumpla los requisitos de sintaxis con fines de difusión que se especifican en el Anexo 15 y en los PANS-ATM (Doc 4444).
+1.- En el Manual de performance del avión (Doc 10064), se ofrece orientación sobre los requisitos de cálculo de performance de las aeronaves, en lo que respecta a la descripción del estado de la superficie de una pista, que figuran en 2.9.2 c), d), y e).
+2.- El origen y la evolución de los datos, el proceso de evaluación y los procedimientos se prescriben en los PANS-Aeródromos (Doc 9981). Estos procedimientos tienen por objeto cubrir los requisitos para lograr el nivel deseado de seguridad operacional para las operaciones de aviones prescrito en los Anexos 6 y 8, y proporcionar información que cumpla los requisitos de sintaxis con fines de difusión que se especifican en el Anexo 15 y en los PANS-ATM (Doc 4444).
 CCA 139.339 Notificación e informes de condición del aeródromo
 (Ver RAC139.339 (i) 1), 2), 3), 4))
 Nota: El contenido de esta CCA 139.339 (i) entrará en vigencia a partir del 05 de noviembre de 2020
-1) Nota 1.— El estado de la superficie de una pista se refiere a las condiciones para las cuales, por medio de los métodos descritos en los PANS-Aeródromos (Doc 9981), la tripulación de vuelo puede derivar la performance apropiada del avión.
-Nota 2.— Las condiciones, solas o en combinación con otras observaciones, constituyen criterios respecto de los cuales el efecto en la performance de los aviones es suficientemente determinante como para permitir asignar una clave específica de estado de la pista.
-Nota 3.— Los términos QUÍMICAMENTE TRATADA y ARENA SUELTA no figuran en la sección de performance del avión, pero se emplean en la sección sobre conciencia de la situación del informe del estado de la pista.
+1) Nota 1.- El estado de la superficie de una pista se refiere a las condiciones para las cuales, por medio de los métodos descritos en los PANS-Aeródromos (Doc 9981), la tripulación de vuelo puede derivar la performance apropiada del avión.
+Nota 2.- Las condiciones, solas o en combinación con otras observaciones, constituyen criterios respecto de los cuales el efecto en la performance de los aviones es suficientemente determinante como para permitir asignar una clave específica de estado de la pista.
+Nota 3.- Los términos QUÍMICAMENTE TRATADA y ARENA SUELTA no figuran en la sección de performance del avión, pero se emplean en la sección sobre conciencia de la situación del informe del estado de la pista.
 2) Los procedimientos de notificación de espesor y cobertura figuran en los PANS-Aeródromos (Doc 9981).
-3) Nota 1.— Las características de rozamiento de la superficie de una pista o parte de la misma pueden deteriorarse debido a depósitos de caucho, pulido de la superficie, drenaje deficiente u otros factores. La determinación de que una pista mojada o una porción de la misma se considere resbaladiza resulta de distintos métodos que se aplican solos o en combinación. Estos métodos pueden ser mediciones de rozamiento funcional, usando un dispositivo de medición continua del rozamiento, por debajo de una norma mínima según defina el Estado, observaciones del personal de mantenimiento de aeródromos, informes reiterados de pilotos y explotadores de aeronaves conforme a la experiencia de la tripulación de vuelo o mediante análisis de la eficiencia de frenado del avión que indica una superficie por debajo de la norma. En los PANS- Aeródromos (Doc 9981), se describen herramientas complementarias para llevar a cabo esta evaluación.
-Nota 2.— Véase 2.9.1 y 2.13 en relación con el suministro de información a las autoridades que corresponda y la coordinación entre ellas.
-4) Nota 1.— En la publicación de la OACI Evaluación, mediciones y notificación del estado de la superficie de la pista (Cir 329) figura orientación para determinar y expresar el nivel de rozamiento mínimo.
-Nota 2.— Los procedimientos sobre cómo llevar a cabo un programa de evaluación de las características de rozamiento de las superficies de las pistas figuran en los PANS-Aeródromos (Doc 9981).
-Nota 3.— La información que se va a promulgar en un NOTAM incluye especificar la porción de la pista que se encuentre debajo del nivel de rozamiento mínimo y su emplazamiento en la pista.
+3) Nota 1.- Las características de rozamiento de la superficie de una pista o parte de la misma pueden deteriorarse debido a depósitos de caucho, pulido de la superficie, drenaje deficiente u otros factores. La determinación de que una pista mojada o una porción de la misma se considere resbaladiza resulta de distintos métodos que se aplican solos o en combinación. Estos métodos pueden ser mediciones de rozamiento funcional, usando un dispositivo de medición continua del rozamiento, por debajo de una norma mínima según defina el Estado, observaciones del personal de mantenimiento de aeródromos, informes reiterados de pilotos y explotadores de aeronaves conforme a la experiencia de la tripulación de vuelo o mediante análisis de la eficiencia de frenado del avión que indica una superficie por debajo de la norma. En los PANS- Aeródromos (Doc 9981), se describen herramientas complementarias para llevar a cabo esta evaluación.
+Nota 2.- Véase 2.9.1 y 2.13 en relación con el suministro de información a las autoridades que corresponda y la coordinación entre ellas.
+4) Nota 1.- En la publicación de la OACI Evaluación, mediciones y notificación del estado de la superficie de la pista (Cir 329) figura orientación para determinar y expresar el nivel de rozamiento mínimo.
+Nota 2.- Los procedimientos sobre cómo llevar a cabo un programa de evaluación de las características de rozamiento de las superficies de las pistas figuran en los PANS-Aeródromos (Doc 9981).
+Nota 3.- La información que se va a promulgar en un NOTAM incluye especificar la porción de la pista que se encuentre debajo del nivel de rozamiento mínimo y su emplazamiento en la pista.
 CCA 139.341 Identificación y señalización de áreas de construcción, áreas no utilizables y avisos de advertencia.
 (Ver RAC139.341)
 El documento Circular de Asesoramiento CA DGAC-AGA-001 Seguridad operacional en aeródromos durante la construcción, provee orientación para mantener la seguridad operacional durante las actividades de construcción y mantenimiento en los aeródromos.
