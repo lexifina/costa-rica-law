@@ -1,0 +1,1 @@
+Artículo 27.-Se confeccionarán reintegros de caja chica cuando se haya gastado el 50% del fondo establecido por este reglamento, además si en el plazo máximo de dos semanas no se ha alcanzado el 50%, el encargado deberá tramitar el reintegro de lo gastado.

@@ -1,0 +1,1 @@
+Artículo 13.-La persona encargada de la Tesorería, como responsable de la caja chica, recibirá devoluciones de dinero por vales de caja chica, únicamente en efectivo, sin ninguna excepción, asimismo deberá ser en moneda nacional. No está autorizado recibir para este fondo notas de crédito.

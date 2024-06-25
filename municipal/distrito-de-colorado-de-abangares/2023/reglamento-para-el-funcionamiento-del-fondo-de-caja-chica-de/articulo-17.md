@@ -1,0 +1,1 @@
+Artículo 17.-El monto de lo gastado no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación el funcionario a nombre de quien se giró el vale debe asumir el gasto diferencial resultante sin que el Concejo Municipal de Distrito de Colorado quede obligada a reintegrarle esa suma.
