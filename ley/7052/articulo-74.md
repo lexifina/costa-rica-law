@@ -1,5 +1,12 @@
-CAPITULO II
-De las asociaciones mutualistas de ahorro y préstamo
-Artículo 74.- Se autoriza la formación de asociaciones mutualistas de derecho privado, de duración indefinida, sin fines de lucro y con autonomía administrativa, en los lugares en que, a su juicio, determine el Banco bajo su control y fiscalización.
-( Así reformado por el artículo 1 de la ley No. 7208 de 21 de noviembre de 1990 )
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 68 al 74)
+Artículo 74- Fuentes generales de financiamiento
+a) Hasta un diez por ciento (10%) de los recursos totales del Fondo del Subsidio para la Vivienda (Fosuvi) serán destinados a vivienda productiva. Estos recursos solo se podrán utilizar para el subsidio del bono familiar para la vivienda y no para la actividad productiva.
+b) El Sistema de Banca para el Desarrollo (SBD) atenderá la demanda crediticia del Programa de Vivienda Productiva creado, procurando siempre contar con los recursos necesarios para capital de trabajo u otros que se requieran para la realización efectiva del Programa, de conformidad con la Ley 8634, Ley Sistema de Banca para el Desarrollo, de 23 de abril de 2008.
+c) Contribuciones especiales creadas para el financiamiento de obras específicas del proyecto y los recursos del presupuesto nacional de la República que se destinen para tal efecto .
+d) Los rendimientos de los recursos que conformen el Fondo, el que queda autorizado para realizar emisiones de títulos de flujos futuros.
+e) Las donaciones, las transferencias y los aportes económicos especiales que podrán realizar todas las instituciones públicas o privadas, las empresas del Estado. Las donaciones que haga al Fovipro cualquier persona natural o jurídica podrán considerarse como gastos para efectos del impuesto sobre la renta.
+f) Recursos de empréstitos internacionales, fondos verdes y de cooperación internacional reembolsables y no reembolsables de los organismos internacionales.
+g) Recursos propios de las entidades autorizadas del Sistema Financiero Nacional para la Vivienda y de las operadoras financieras del Sistema de Banca para el Desarrollo.
+El producto de las inversiones que se realicen, con los recursos del Fondo, deberá destinarse al mismo Fondo para cumplir con sus finalidades.
+Todos los aportes que conformen el patrimonio del Fovipro estarán exentos del ámbito de cobertura del título IV de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.
+Para el uso de recursos del Fovipro deberán seguirse las disposiciones procedimentales y de fondo de la Ley 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi, (Banco Hipotecario de la Vivienda), de 13 de noviembre de 1986, además de la normativa del Banco Hipotecario de la Vivienda (Banhvi) que resulte aplicable.
+(Así adicionado por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)

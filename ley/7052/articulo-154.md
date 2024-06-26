@@ -1,3 +1,6 @@
-Artículo 154.- Todos los actos y contratos que, en cuanto a operaciones del Sistema, realicen el Banco y las entidades autorizadas entre sí o entre otras personas físicas o jurídicas, estarán exonerados del pago de todo tipo de tributos. Esta exención se aplicará únicamente en lo que se refiere a los tributos pagaderos por el Banco o por la respectiva entidad autorizada. Asimismo, estará exento del pago de honorarios notariales, el traspaso de terrenos -a título gratuito u oneroso- de las instituciones públicas a entidades autorizadas, para el desarrollo de proyectos de vivienda.
-( Así reformado por el artículo 1º de la ley No. 7208 del 21 de noviembre de 1990 ).
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 148 al 154)
+Artículo 154.- Créase un fondo para estabilizar el precio y mantener la liquidez de los títulos valores a que se refieren los capítulos II y VII del presente título. Este fondo, que se denominará Fondo de estabilización del mercado secundario de valores del Sistema, se formará de la siguiente manera:
+a) Con un aporte inicial del Banco de treinta millones de colones (30.000,000.00).
+b) Con aportes futuros del mismo Banco.
+c) Con aportes recuperables de las entidades autorizadas, equivalentes a un veinticinco por ciento (25%) del saldo efectivo acumulado de los títulos en circulación de cada uno de ellos. Dicho porcentaje podrá ser modificado periódicamente por la Junta Directiva del Banco.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 140 al 146)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 146 al artículo 154)
