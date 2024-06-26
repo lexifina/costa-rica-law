@@ -15,3 +15,9 @@ k) FONAVI: El Fondo Nacional de Vivienda
 l) FOSUVI: El Fondo de Subsidios para Vivienda.
 m) Profivijo: Programa de Financiamiento de Vivienda para Jóvenes.
 (Así adicionado el inciso anterior por el artículo 5° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+n) Viviendas productivas: viviendas individuales o en proyectos habitacionales verticales, horizontales o mixtos, que cuenten con permiso de uso mixto habitacional, comercial y productivo. El uso de suelo deberá ser compatible con el plan regulador o la normativa urbanística aplicable en la zona.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)
+ñ) Fondo de Vivienda Productiva (Fovipro): es un fondo que se compone de recursos del Fondo de Subsidios para la Vivienda (Fosuvi) y otros, descritos en el artículo 73 de la presente ley; administrado por el Banco Hipotecario de la Vivienda y ejecutado por medio de las entidades autorizadas del Sistema Financiero Nacional para la Vivienda y las operadoras financieras del SBD.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)
+o) Programa de vivienda productiva: es un programa que se compone de recursos del Sistema de Banca para el Desarrollo (SBD), los cuales serán administrados por el Sistema de Banca para el Desarrollo. El programa se desarrollará en forma conjunta con el Banco Hipotecario de la Vivienda (Banhvi) y se ejecutará por medio de las entidades autorizadas del Sistema Financiero Nacional para la Vivienda y a su vez las operadoras financieras del SBD.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)

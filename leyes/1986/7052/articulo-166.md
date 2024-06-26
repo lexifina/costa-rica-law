@@ -1,2 +1,3 @@
-Artículo 166.- En los casos en que se trate de la construcción de unidades habitacionales en condominio, la parte del capital de construcción que aporten los dueños del inmueble, que no sean clientes de las entidades autorizadas que otorgan el financiamiento, deberá ser depositada en ellas para su debida inversión.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 160 al 166)
+Artículo 166.- En los juicios de ejecución que entablen el Banco y las entidades autorizadas, el acreedor hipotecario será depositario de los bienes embargados, sin obligación de rendir fianza.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 152 al 158)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 158 al artículo 166)

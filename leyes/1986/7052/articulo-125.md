@@ -1,4 +1,4 @@
-De las participaciones hipotecarias
-Artículo 125.- Los derechos individualizados podrán ser cedidos, total o parcialmente, mediante un contrato de participación en hipotecas.
-Las citadas participaciones hipotecarias gozarán de la misma confidencialidad establecida para las cuentas bancarias, y se emitirán con los respectivos cupones de intereses. Deberán incluir, como mínimo, los requisitos a que se refiere el artículo 127 de esta ley.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 119 al 125)
+Artículo 125.- Una vez que el Banco acuerde garantizar un crédito hipotecario, le extenderá al solicitante un compromiso de garantía, que tendrá vigencia durante un período suficiente para la tramitación de la operación hipotecaria. En los casos de préstamos para la construcción de una vivienda, el período de compromiso de garantía deberá incluir también el plazo necesario para la construcción contemplada.
+Una vez que la vivienda haya sido entregada al deudor hipotecario, a satisfacción de éste y de la entidad acreedora, se le extenderá a la entidad autorizada de que se trate el correspondiente certificado de garantía hipotecaria, el cual quedará vigente hasta su cancelación, o la cancelación de la deuda hipotecaria.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 111 al 117)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 117 al artículo 125)

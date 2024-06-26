@@ -1,2 +1,3 @@
-Artículo 78.- Dentro de un plazo de treinta días a partir de la fecha de la constitución, el directorio provisional convocará, en la forma prescrita en los estatutos, a la primera asamblea general ordinaria de la mutual, en la cual se nombrará el directorio. Una copia certificada del acta de dicha asamblea deberá enviarse al Banco. Si éste lo aprueba, enviará a la mutual, dentro de un plazo de quince días, un certificado de incorporación al Sistema, que se publicará en el diario oficial "La Gaceta".
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 72 al 78)
+Artículo 78-Obligaciones de instituciones públicas
+El Banco Hipotecario de la Vivienda (Banhvi), el Ministerio de Vivienda y Asentamientos Humanos (Mivah), el Ministerio de Economía Industria y Comercio (MEIC), el Instituto de Desarrollo Rural (lnder) y el Sistema de Banca para el Desarrollo (SBD) deberán promover el modelo de vivienda productiva establecido en la presente ley.
+(Así adicionado por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)

@@ -1,5 +1,9 @@
-Artículo 159.- En el caso de ejecución de créditos otorgados ante el Banco o ante las entidades autorizadas, el deudor hipotecario, los acreedores hipotecarios de grado inferior, los terceros poseedores o demás anotantes, estarán debidamente notificados en el lugar en que indique la escritura de constitución del crédito, de adquisición del inmueble o en el documento anotado al margen del asiento de propiedad. El deudor hipotecario queda en la obligación de comunicar por escrito a los entes acreedores, cualquier cambio de domicilio.
-Si no constara domicilio alguno o, si el notificador informara que alguna de las partes por notificar no se localiza en el lugar indicado como su domicilio, se procederá a comunicarle por medio de un edicto, que se publicará en el Boletín Judicial por tres veces.
-El Banco y las entidades autorizadas no están obligados a comprobar la personería de sus representantes legales en cada juicio. Bastará con que lo hagan por una sola vez y que acrediten, en cada oficina donde se litigue, una certificación donde se indique el plazo de vigencia del poder con que se actúa.
+TITULO SETIMO
+DISPOSICIONES FINALES
+CAPITULO UNICO
+Disposiciones generales
+Artículo 159.- Las inscripciones de las escrituras principales y adicionales, en las que se formalicen las operaciones de las soluciones individuales de vivienda declaradas de interés social, de acuerdo con los reglamentos del Sistema, estarán exentas del pago del ciento por ciento (100%) de los derechos de registro, de los timbres fiscales, de los timbres, de las cargas de los colegios profesionales y del impuesto de transferencia de bienes inmuebles.
+Tratándose de créditos internos, esta exención es aplicable únicamente a los tributos que deban ser pagados por el ejecutor o constructor.
 ( Así reformado por el artículo 1º de la ley No.7208 del 21 de noviembre de 1990 ).
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 153 al 159)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 145 al 151)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 151 al artículo 159)

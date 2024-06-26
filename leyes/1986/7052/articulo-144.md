@@ -1,10 +1,3 @@
-CAPITULO VI
-De otros títulos valores
-Artículo 144.—Autorízase también al Banco y a las entidades que cuenten con autorización previa del primero, para que emitan otros títulos valores, tales, como:
-a) Bonos de vivienda, si el Banco lo estimare conveniente para cumplir con los fines de esta ley.
-b) Certificados de depósito a plazo, por parte del Banco y de las entidades autorizadas. El Banco deberá reglamentar y autorizar, en cada caso, la emisión de estos certificados.
-c) Los títulos o valores emitidos por las entidades autorizadas mediante los procesos de titularización de hipotecas.
-d) Otros títulos valores por parte del Banco, según su conveniencia.
-La Junta Directiva del Banco podrá hacer extensiva la autorización para emitir valores a las demás instituciones del Sistema, si lo considera conveniente.
-(Así reformado por el artículo 1° sub-artículo 24 de la Ley N° 8507 del 28 de abril de 2006)
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 138 al 144)
+Artículo 144.- Las participaciones hipotecarias globales son títulos valores preferenciales y como tales gozan de todos los privilegios que tienen los títulos valores emitidos o garantizados por el Estado; son de libre comercio y pueden ser adquiridas, sin limitación alguna, por las instituciones del Estado, sin perjuicio de otras leyes vigentes.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 130 al 136)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 136 al artículo 144)

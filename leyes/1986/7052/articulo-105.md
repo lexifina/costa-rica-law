@@ -1,4 +1,3 @@
-CAPITULO III
-De los organismos públicos
-Artículo 105.- Para los fines de la presente ley, se entiende que son organismos públicos aquellas instituciones de Derecho público que, como parte de sus actividades propias y legítimas, se dediquen al financiamiento de viviendas.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 99 al 105)
+Artículo 105.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 91 al 97)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 97 al artículo 105)

@@ -1,2 +1,3 @@
-Artículo 107.- Se incorporan al Sistema las instituciones mencionadas, que estarán sujetas a las disposiciones de esta ley en cuanto a los programas de vivienda que específicamente acuerden con el Banco.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 101 al 107)
+Artículo 107.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 93 al 99)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 99 al artículo 107)

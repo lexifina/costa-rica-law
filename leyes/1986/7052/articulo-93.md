@@ -1,2 +1,4 @@
-Artículo 93.- (Derogado por el artículo 164 de la Ley Orgánica del Banco Central de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 87 al 93)
+Artículo 93.- Los directores de las mutuales durarán cuatro años en sus cargos y podrán ser reelegidos.
+En caso de muerte, renuncia o impedimento permanente, físico o legal, de un director, se elegirá a su sucesor en la próxima asamblea general, quien fungirá por el resto del período.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 79 al 85)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 85 al artículo 93)

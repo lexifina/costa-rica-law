@@ -1,3 +1,11 @@
-Artículo 152.- Las anteriores exenciones no se aplicarán en aquellos actos que, aun constando en la misma escritura, no fueran producto directo del financiamiento otorgado por el Sistema, de acuerdo con el Reglamento que redactará el Poder Ejecutivo.
-( Así reformado por el artículo 1º de la ley No. 7208 del 21 de noviembre de 1990 ).
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 146 al 152)
+CAPITULO VI
+De otros títulos valores
+Artículo 152.-Autorízase también al Banco y a las entidades que cuenten con autorización previa del primero, para que emitan otros títulos valores, tales, como:
+a) Bonos de vivienda, si el Banco lo estimare conveniente para cumplir con los fines de esta ley.
+b) Certificados de depósito a plazo, por parte del Banco y de las entidades autorizadas. El Banco deberá reglamentar y autorizar, en cada caso, la emisión de estos certificados.
+c) Los títulos o valores emitidos por las entidades autorizadas mediante los procesos de titularización de hipotecas.
+d) Otros títulos valores por parte del Banco, según su conveniencia.
+La Junta Directiva del Banco podrá hacer extensiva la autorización para emitir valores a las demás instituciones del Sistema, si lo considera conveniente.
+(Así reformado por el artículo 1° sub-artículo 24 de la Ley N° 8507 del 28 de abril de 2006)
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 138 al 144)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 144 al artículo 152)

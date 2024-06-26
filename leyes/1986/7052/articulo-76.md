@@ -1,5 +1,5 @@
-Artículo 76.- Las mutuales deberán cumplir con los siguientes requisitos:
-a) Contar con un fondo inicial no menor de diez millones de colones (¢10.000.000,00), constituido en ahorros en efectivo. Para la constitución de futuras mutuales, el fondo inicial de diez millones de colones deberá aumentarse en la misma proporción en que aumente el índice de precios aprobado por el Ministerio de Economía y Comercio.
-b) Tener un mínimo de quinientas cuentas de ahorro debidamente constituidas.
-c) Las demás condiciones que se señalen en los reglamentos del Banco.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 70 al 76)
+Artículo 76- Aplicación del crédito para la vivienda productiva
+Las entidades autorizadas del Sistema Financiero Nacional para la Vivienda promoverán la implementación de mecanismos crediticios en condiciones financieras accesibles y diferenciadas de acuerdo con las características específicas, así como los requerimientos del proyecto y la actividad productiva que corresponda.
+El monto correspondiente al financiamiento para el desarrollo del proyecto productivo se otorgará mediante líneas de crédito para capital de trabajo y se podrá complementar con recursos de capital semilla. El financiamiento puede destinarse a un área constructiva adicional para efectos del desarrollo de la actividad, de acuerdo con las características específicas, así como los requerimientos del proyecto y la actividad productiva que corresponda y el reglamento de este Fondo.
+La garantía podrá ser prendaría, fiduciaria, hipotecaria, con aval de garantía o cualquier otra, según sea el monto total del crédito de acuerdo con su capacidad de pago y el reglamento de este Fondo.
+(Así adicionado por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)

@@ -1,2 +1,3 @@
-Artículo 149.- Los rendimientos efectivos de las inversiones del Fondo de estabilización se agregarán a su monto total, sin derecho a reembolso por parte de los aportantes.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 143 al 149)
+Artículo 149.- El monto total no amortizado de los certificados de inversión inmobiliaria, emitidos por cada entidad autorizada, será regulado por el BANHVI, sin que en ningún momento el valor no amortizado pueda ser superior al cincuenta por ciento (50%) de los activos totales de una entidad autorizada.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 135 al 141)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 141 al artículo 149)

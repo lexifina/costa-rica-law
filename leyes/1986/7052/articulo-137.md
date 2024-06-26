@@ -1,2 +1,3 @@
-Artículo 137.- Las participaciones hipotecarias globales podrán ser negociadas en la Bolsa Nacional de Valores y serán inscritas en ésta sin más trámite que la constancia de registro en el Banco o en otra institución, previa autorización del Banco.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 131 al 137)
+Artículo 137.- Las participaciones hipotecarias podrán ser negociadas en la Bolsa Nacional de Valores o en otra institución, previa autorización del Banco, para lo cual bastará su inscripción directa por los respectivos cesionarios, mediante la presentación de los contratos que le dieron origen.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 123 al 129)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 129 al artículo 137)

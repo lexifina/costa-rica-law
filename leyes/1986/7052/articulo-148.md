@@ -1,2 +1,3 @@
-Artículo 148.- En sus registros contables, el Banco llevará por separado las operaciones correspondientes al Fondo de estabilización.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 142 al 148)
+Artículo 148.- Estos títulos estarán garantizados por todos los activos de la entidad emitente, y por el BANHVI, si así se hiciera constar en el propio título.
+(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 134 al 140)
+(Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 140 al artículo 148)

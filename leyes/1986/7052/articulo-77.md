@@ -1,9 +1,3 @@
-Artículo 77.- La escritura de constitución de una mutual, que el Registro Público inscribirá sin causar derechos y sin ulterior trámite, deberá contener los siguientes datos:
-a) Los nombres y los apellidos, los números de las cédulas de identidad, las profesiones u oficios, las nacionalidades y los domicilios exactos de los fundadores.
-b) El nombre y el domicilio de la mutual en formación.
-c) El número de personas que integrará su directorio, el cual no podrá ser mayor de siete ni menor de cinco.
-ch) La nómina del directorio provisional, con indicación del nombre y los apellidos de su presidente, que fungirá hasta que se efectúe la primera asamblea general ordinaria.
-d) Los estatutos de la mutual.
-e) La autorización escrita del Banco para constituir la mutual.
-f) Cualquier otra información o documentación que se disponga en el reglamento o que el Banco exija.
-(Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 71 al 77)
+Artículo 77- Costos de administración
+Los costos administrativos necesarios para la administración del Fondo serán cargados al Fovipro, tanto por el Banhvi como por las entidades autorizadas. Los costos serán por un máximo de un ocho por ciento (8%) de las sumas colocadas anualmente por el Fondo. De la suma anterior, el cuatro por ciento (4%) será transferido a las entidades autorizadas; el resto será destinado al Banhvi para el cumplimiento de sus fines.
+(Así adicionado por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024)
