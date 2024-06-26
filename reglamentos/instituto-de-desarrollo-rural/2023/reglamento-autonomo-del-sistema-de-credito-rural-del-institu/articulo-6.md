@@ -1,0 +1,6 @@
+Artículo 6. Condiciones para el otorgamiento
+Según lo establecido en el artículo 218 del Reglamento Ejecutivo de la Ley N.º 9036 para el otorgamiento de cualquier crédito deberá haberse cumplido, al menos, con los siguientes requisitos:
+a) Haber sido declarado admisible por el Inder conforme a los lineamientos y normativa interna atinente al tema. Se debe incorporar al expediente de la solicitud la declaratoria de admisibilidad.
+b) Estar al día en sus obligaciones con el Instituto, lo que, será verificado por parte del funcionario tramitador de forma interna consultando los estados de cuenta de la institución y se incluye en el expediente la constancia de deudas.
+c) No tener atrasos, por más de 90 días naturales con el Sistema Financiero Nacional (SFN), al momento de la solicitud del crédito y durante toda la tramitación y aprobación del crédito, según se desprenda de los estudios del historial crediticio llevados a cabo por el SCR.
+d) Contar con una cuenta bancaria activa, en cualquier entidad del SFN formal y aportar el número de la misma, a la cual, se le harán las trasferencias de los desembolsos, sin perjuicio de que se pueda realizar el desembolso por medio de cheque, en caso de impedimento de obtener dicha cuenta bancaria, para realizar la transferencia

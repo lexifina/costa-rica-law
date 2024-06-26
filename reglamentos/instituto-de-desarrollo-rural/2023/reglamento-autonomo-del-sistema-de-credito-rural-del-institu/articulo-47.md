@@ -1,0 +1,10 @@
+GESTIÓN DE COBRO
+Artículo 47. Tipo de gestión de cobro
+En la gestión de cobro se distinguen dos tipos de procedimiento:
+a) Cobro administrativo: son todas las acciones y procedimientos que se realicen a nivel del Instituto, tendientes a la recuperación de los créditos otorgados, para que los mismos se atiendan en forma oportuna, basados en la forma de pago estipulada, evitando en primera instancia la revocatoria o en su defecto el cobro judicial. Cuando se presenten atrasos iguales o mayores a 90 días en intereses o monto de principal se deberá enviar la información correspondiente a la protectora de crédito contratada para este fin por el Inder. Dentro de estas acciones o procedimientos tenemos:
+a.1) Estado de cuenta: se utiliza cuando la operación está pactada a un único pago y se entregará al cliente al menos 8 días naturales, antes del vencimiento del crédito.
+De no cumplir con el pago correspondiente, se debe proceder con la entrega de la "Carta cobro amonestación".
+a.2) Recordatorio de pago: se utiliza en aquellos casos, en que la operación aún no ha vencido, pero tiene cuotas atrasadas. Para tal efecto, se le otorga un plazo de 15 días hábiles para ponerse al día o realizar un arreglo de pago. Si hiciera caso omiso del recordatorio, se debe proceder con la entrega de la "Carta cobro amonestación".
+a.3) Carta de cobro amonestación: se usa para aquellas operaciones vencidas o cuando no se cumple a tiempo, con lo estipulado en el inciso anterior de este artículo. En la misma se le otorga un plazo de 30 días hábiles, para proceder a la cancelación o realizar un arreglo de pago.
+a.4) Solicitud de revocatoria o cobro judicial: una vez cumplida la etapa anterior se procederá con la solicitud de revocatoria de asignación, extinción del contrato de arrendamiento, concesión, nulidad de título o en su defecto el cobro judicial.
+b) Cobro judicial: cuando una deuda tenga más de 90 días de atraso en los pagos estipulados, se podrá enviar a cobro judicial, una vez cumplida la gestión del cobro administrativo y de no haber cancelado o solicitado un arreglo de pago, aun cuando se esté realizando el proceso de revocatoria.

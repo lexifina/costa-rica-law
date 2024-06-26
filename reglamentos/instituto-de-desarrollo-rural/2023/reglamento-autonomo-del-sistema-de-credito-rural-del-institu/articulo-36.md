@@ -1,0 +1,2 @@
+Artículo 36. Forma de pago
+El Analista de Crédito de la Oficina de Desarrollo Territorial, recomienda la forma de pago que podrá ser mediante cuota fija de acuerdo con los ingresos que genere la actividad. Su periodicidad podrá ser mensual, bimensual, trimestral, cuatrimestral, semestral, anual o en un solo pago a la venta del producto o fecha de vencimiento o dependiendo del ciclo de la actividad.

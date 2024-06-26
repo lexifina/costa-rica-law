@@ -1,0 +1,9 @@
+Artículo 26. Avalúos
+Se requerirá del avalúo de un inmueble:
+a) Cuando se requiera avalúo del inmueble, este podrá ser realizado por un perito del Instituto, siempre y cuando haya disponibilidad de recurso humano en la Regiones de Desarrollo o externo debidamente autorizado por el colegio profesional respectivo, el costo del avalúo externo debe ser cubierto por el solicitante del crédito.
+El valor fiscal se utiliza siempre y cuando ese valor multiplicado por el 90% cubra el monto solicitado. El valor del avalúo se utiliza para montos mayores a 10 millones.
+El valor declarado ante la municipalidad se utiliza para evitar hacer avalúo, se solicita a la Municipalidad una certificación que indique el monto en que lo tiene valorado, el cual multiplicado por el 90% debe de cubrir el monto solicitado; en caso contrario debe presentar avalúo.
+b) En caso de que el monto a financiar o del arreglo supere los 20 millones de colones. No se requerirá de avalúo cuando el 90% del valor fiscal declarado ante el RNP o la Municipalidad correspondiente cubra el monto del préstamo o del saldo adeudado en caso de arreglo de pago.
+c) En caso de que el avalúo lo realice un perito externo, el costo de los honorarios, serán cubiertos en su totalidad por el solicitante.
+Dicho avalúo tendrá la vigencia del plazo del crédito, línea de crédito, hipoteca abierta o arreglo de pago.
+En caso de que se solicite un nuevo crédito, línea de crédito y el plazo solicitado sea menor o igual a 5 años, no se requerirá de un nuevo avalúo, sino que se podrá aceptar una nota del perito valuador, en donde se indique que el bien no ha sufrido cambios que desmejoren su valor, por lo que la propiedad sujeta al avalúo, mantiene o supera el valor tasado en su momento. En la tasación solo se reconocerá el valor de la tierra y de las edificaciones permanentes existentes, por ende, no se reconocerán cultivos de ningún tipo.

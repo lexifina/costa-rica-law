@@ -1,0 +1,3 @@
+Artículo 28. Compra de inmuebles
+El monto a financiar no debe sobrepasar el 90% del monto del menor valor, ya sea, del avalúo o del valor estipulado en la opción de venta, salvo que, se ofrezcan garantías adicionales para cubrir el 100% de la deuda o que el 90% del valor definido de la propiedad supere el 100% de lo solicitado en el préstamo.
+En estos casos se autoriza el SCR, para que pueda establecer como un segundo desembolso el monto a pagar por concepto de los timbres ante el RNP, correspondiente al traspaso de dicha propiedad, los cuales se deducirán del monto a financiar. En caso de no cobro por parte del RNP de dichos timbres, el monto de dicho desembolso será reintegrado al deudor.

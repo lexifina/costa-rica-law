@@ -1,0 +1,6 @@
+Artículo 29. Compra de deudas
+Será procedente la compra de deudas contraídas por el solicitante con un banco del Sistema Bancario Nacional y Cooperativas reguladas por Sugef, siempre y cuando, el objeto de los créditos sea la inversión en un proyecto productivo o de servicios y la deuda esté garantizada por un bien inmueble en el que se desarrolla el proyecto.
+La compra de este tipo de deuda estará condicionada a que la Institución apruebe el proyecto de inversión, sobre el que se otorgó el crédito original, bajo su normativa propia y que el mismo sea conforme al Plan de Desarrollo Rural Territorial correspondiente.
+Para efectos de su trámite, el solicitante, deberá presentar el proyecto de su interés que será analizado por el Fondo de Desarrollo Rural para determinar su viabilidad conforme lo establece el Reglamento a la Ley 9036.
+De la misma forma, el solicitante, deberá presentar un estado de cuenta certificado del crédito que incluya, saldo inicial, pagos realizados, objeto para el que fue otorgado el crédito, términos generales del crédito otorgado (plazo, tasas de interés, cláusulas de pago adelantado, otros) y si se encuentra al día o no.
+El procedimiento será el mismo establecido para los demás créditos, sin embargo, sin importar el monto del crédito, la aprobación será otorgada por la Junta Directiva.

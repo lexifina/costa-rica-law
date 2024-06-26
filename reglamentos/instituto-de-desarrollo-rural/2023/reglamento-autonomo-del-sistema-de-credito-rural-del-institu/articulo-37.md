@@ -1,0 +1,2 @@
+Artículo 37. Cambios en la forma de pago
+Las formas de pago podrán ser cambiadas por la USD/PCR, siempre y cuando se cuente con la debida justificación de la OT, en casos de pagos extraordinarios la modificación no incluye cuotas de gracia ni extensión del plazo. En este caso no se requerirá la confección de un nuevo documento legal. En el caso de arreglos de pago se deberá exigir el pago de los intereses y póliza acumulados a la fecha del llenado de la solicitud, y de ser necesario la confección de un nuevo documento legal.

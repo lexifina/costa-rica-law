@@ -1,0 +1,6 @@
+Artículo 21. Créditos para personas físicas con garantía fiduciaria
+a) Este tipo de garantía se exigirá para aquellas operaciones que no superen el monto máximo establecido para una garantía fiduciaria.
+b) Podrán ser fiadores todas aquellas personas asalariadas que demuestren su capacidad de garantizar el pago de la deuda, cuyo tiempo laborado para el Patrono que extienda la constancia, no debe ser menor a un año de estar laborando. Cuando se trate de funcionarios públicos, su nombramiento deberá ser en propiedad o como interinos. En el caso de los otros trabajadores asalariados deben estar en propiedad.
+c) No se aceptará en calidad de fianza, el salario de trabajadores que por su edad y el plazo del crédito superen el límite establecido para la jubilación o las personas cuyos ingresos provengan de una pensión.
+d) El monto máximo de fianza no podrá exceder el 40% del salario neto mensual y este monto debe de cubrir la cuota establecida, la cual se calculará en forma mensual, tomando en cuenta el plazo total del crédito otorgado.
+e) El fiador podrá garantizar más de una operación de crédito ante el SCR siempre y cuando su capacidad de fianza lo permita y se encuentre al día en sus obligaciones con el Instituto.
