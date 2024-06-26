@@ -1,0 +1,4 @@
+Artículo 33.- Verificación del estado de operación del parque ambiental. El Ministerio de Salud, mediante las Áreas Rectoras de Salud debe verificar, el estado de operación del parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos o rellenos sanitarios existentes, el cumplimiento de las obras de cierre para el caso de los rellenos sanitarios que se encuentren en esa fase, así como las labores de post-cierre que impliquen mantenimiento de los terrenos que fueron sometidos a obras de cierre. Esto incluye:
+a) El estado de operación y mantenimiento de los rellenos sanitarios, vertederos actuales y parques tecnológicos.
+b) El avance y cumplimiento de las obras de cierre para el caso de los rellenos sanitarios, vertederos actuales y parques ambientales que se encuentren en esa fase.
+c) Las labores de mantenimiento post-cierre de los rellenos sanitarios o vertederos actuales y parques.

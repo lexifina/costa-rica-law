@@ -1,0 +1,1 @@
+Artículo 30.- Personal de vigilancia. El parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos o rellenos sanitarios existentes debe contar con personal de vigilancia permanente en la etapa posterior a la vida útil.

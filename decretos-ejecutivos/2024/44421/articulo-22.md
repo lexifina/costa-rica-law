@@ -1,0 +1,2 @@
+Artículo 22.- Cobertura diaria de los residuos. La cobertura diaria de los residuos, en el frente de trabajo mencionado en el artículo 16 inciso f) de este reglamento, puede ser rastrillada de forma mecánica de manera que no se constituya en una capa permanente homogénea y pueda facilitar la filtración de lixiviados a las capas inferiores de la celda, al inicio de la jornada de trabajo.
+Esta práctica se detendrá cuando se detecte movimiento de residuos ya colocados y se presente material de cobertura contaminada con residuos.

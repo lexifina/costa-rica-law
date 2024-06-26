@@ -1,0 +1,3 @@
+CAPÍTULO VII
+VIGILANCIA ESTATAL
+Artículo 31.- Acceso de las autoridades del Ministerio de Salud. El administrador del parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos o rellenos sanitarios existentes debe permitir el libre acceso a las autoridades del Ministerio de Salud debidamente identificadas, con el fin de realizar las inspecciones necesarias para seguimiento a procedimientos legales, denuncias o inspecciones de seguimiento al Permiso Sanitario de Funcionamiento, utilizando los procedimientos e instrumentos oficializados a lo interno del Ministerio de Salud.

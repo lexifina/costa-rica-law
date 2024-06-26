@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente reglamento aplica a todos los sitios de disposición final de residuos, reconversión de vertederos a parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, y obras de cierre de vertederos ubicados en el territorio nacional.

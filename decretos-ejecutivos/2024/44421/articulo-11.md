@@ -1,0 +1,1 @@
+Artículo 11.- Distancia de fallas geológicas. Cualquier tipo de infraestructura de los parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, incluyendo las celdas de disposición final de residuos sólidos, deben de estar a una distancia de 60 metros de fallas geológicas activas.

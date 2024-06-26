@@ -1,0 +1,8 @@
+Artículo 24.- Evento natural que origine daños al parque ambiental. En caso de que ocurra un evento natural o de otro tipo en el parque ambiental que origine daños parciales o totales en equipos, celdas y edificaciones, deberán adoptarse inmediatamente las medidas necesarias para corregir el daño presentado. Asimismo, dentro de las 24 horas siguientes de ocurrido el evento, deberá remitirse para conocimiento e información de la Dirección de Área Rectora de Salud correspondiente un informe que debe contener lo siguiente:
+a) Descripción del evento y de sus causas.
+b) Identificación del área donde ocurrió el evento.
+c) Daños o riesgos sanitarios ambientales provocados.
+d) Acciones o medidas realizadas para la prevención y manejo de la emergencia.
+e) Medidas adoptadas para la limpieza y restauración de la zona afectada.
+Si por causa de un evento natural o humano resulta imposible o riesgosa la utilización de un área o sector del parque ambiental, ésta no podrá ser utilizada. En este caso el administrador del parque ambiental debe presentar en un plazo de 24 horas a la Dirección de Área Rectora de Salud un proyecto que indique las medidas correctivas y de reparación que se requiere implementar para su rehabilitación, elaborado por un profesional en el campo de la ingeniería civil o sanitario. La Dirección de Área Rectora de Salud debe verificar la implementación de las acciones propuestas.
+En los casos anteriores no se requerirá una aprobación o improbación de las acciones por parte de la Dirección de Área Rectora de Salud. Las mismas deben implementarse con celeridad a fin de proteger la vida y la salud pública; pudiendo la Dirección de Área Rectora de Salud realizar las inspecciones para verificar lo implementado.

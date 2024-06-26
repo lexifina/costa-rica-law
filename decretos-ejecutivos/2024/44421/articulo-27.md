@@ -1,0 +1,4 @@
+CAPÍTULO VI
+MANTENIMIENTO POSTERIOR A LA VIDA ÚTIL
+Artículo 27.- Cese de ingreso de residuos. La administración de un parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos o rellenos sanitarios existentes debe notificar al Ministerio de Salud con 6 meses de anticipación la suspensión del ingreso de residuos a todo el proyecto o las celdas de disposición de residuos sólidos. La suspensión puede ser por finalización de la vida útil del proyecto o por razones de fuerza mayor justificadas.
+Transcurrido un año del cese del ingreso de residuos por temas diferentes a la finalización de la vida útil, la administración del parque ambiental deberá de cumplir de igual forma con lo dispuesto en los subincisos i), j) y k) del inciso 1) del artículo 16 del presente reglamento a las celdas que hayan quedado inconclusas, así como lo establecido en este capítulo.

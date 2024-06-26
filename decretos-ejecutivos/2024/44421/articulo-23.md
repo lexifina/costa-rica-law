@@ -1,0 +1,1 @@
+Artículo 23.- Ausencia de material de cobertura en la finca donde funciona el parque ambiental. Los parques ambientales que no cuenten con material de cobertura en el sitio de instalación para las celdas de disposición final de residuos sólidos deben mantener un acopio suficiente para cubrir los residuos diariamente durante 15 días hábiles.

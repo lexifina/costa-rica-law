@@ -1,0 +1,1 @@
+Artículo 12.- Servidumbres establecidas. Cualquier tipo de infraestructura dentro del parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, debe respetar las servidumbres establecidas para líneas de conducción de combustibles, agua potable, agua para riego, energía eléctrica, aguas residuales y aguas pluviales.

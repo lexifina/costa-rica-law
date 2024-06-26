@@ -1,0 +1,3 @@
+CAPÍTULO IX
+PROHIBICIONES
+Artículo 42.- Presencia de personas dedicadas a la recuperación de residuos en la celda de disposición de residuos sólidos en operación. Se prohíbe la presencia de personas dedicadas a la recuperación de residuos de cualquier tipo, sean estos valorizables o no, en la celda en operación. El incumplimiento de esta disposición traerá como consecuencia la notificación de una orden sanitaria para que se proceda al desalojo del inmueble de las personas antes mencionadas, caso contrario, se procederá con la suspensión del permiso sanitario de funcionamiento del establecimiento.

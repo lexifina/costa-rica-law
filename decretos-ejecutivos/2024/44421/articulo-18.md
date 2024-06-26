@@ -1,0 +1,1 @@
+Artículo 18.- Operación en Horario Nocturno. Todo parque ambiental para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos que opere en horario nocturno debe contar con iluminación que permita trabajar sin riesgos en el frente de trabajo, así como en cualquier otro sector o dependencia de la instalación que opere en dicho horario.

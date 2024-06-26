@@ -1,0 +1,1 @@
+Artículo 41.- Proyectos de reconversión de vertederos a parques ambientales. En la reconversión del vertedero a parque ambiental, deben tramitarse los permisos establecidos en el capítulo II de este reglamento.
