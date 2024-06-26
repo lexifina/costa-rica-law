@@ -1,0 +1,6 @@
+ARTÍCULO 3- Adiciónense los incisos f), g) y h) al artículo 5 de la Ley 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi (Banco Hipotecario de la Vivienda), de 13 de noviembre de 1986. El texto es el siguiente:
+Artículo 5- El Banco Hipotecario de la Vivienda tendrá los siguientes objetivos principales:
+[ ... ]
+f) Establecer los mecanismos para la implementación de un régimen especial de viviendas productivas, mediante el subsidio total o parcial otorgado por el Banco Hipotecario de la Vivienda para la vivienda y el crédito otorgado por las entidades autorizadas del Sistema Financiero Nacional para la Vivienda y las operadoras financieras del SBD, para el desarrollo de la actividad productiva.
+g) Diseñar, promover e implementar el modelo de vivienda productiva, conjuntamente con el Sistema de Banca para el Desarrollo y el Instituto Nacional de Aprendizaje (INA).
+h) Financiar, a las entidades autorizadas, proyectos productivos viables mediante la implementación de mecanismos crediticios en condiciones financieras accesibles y diferenciadas de acuerdo con las características específicas, así como los requerimientos del proyecto y la actividad productiva que corresponda.
