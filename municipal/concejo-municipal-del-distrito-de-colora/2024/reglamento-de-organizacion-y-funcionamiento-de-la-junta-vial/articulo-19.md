@@ -1,0 +1,1 @@
+Artículo 19.-Las actas de la Junta Vial deberán ser aprobadas en la siguiente sesión ordinaria, estando habilitados para deliberar y aprobarlas únicamente quienes estuvieron presentes en la sesión objeto de discusión y votación. personal administrativo de la Unidad Técnica, en su condición de Secretaría Técnica.

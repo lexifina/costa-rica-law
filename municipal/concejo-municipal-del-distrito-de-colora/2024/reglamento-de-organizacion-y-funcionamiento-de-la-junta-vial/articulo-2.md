@@ -1,0 +1,1 @@
+Artículo 2°-La Junta Vial es un órgano público, Nombrado por el Concejo Municipal, ante quien responderá por su gestión, la cual será de consulta obligatoria en materia de planificación y evaluación de la obra pública vial distrital y de servicio vial municipal, indistintamente de la proveniencia de los recursos económicos.

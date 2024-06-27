@@ -1,0 +1,1 @@
+Artículo 8°-La Junta Vial elegirá entre sus miembros, en la primera o segunda sesión ordinaria de cada año durante sus períodos de vigencia, un secretario(a) para el respectivo levantamiento de las actas.

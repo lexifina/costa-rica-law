@@ -1,0 +1,1 @@
+Artículo 3°-El objetivo primordial de la Junta Vial es el establecer criterios técnicos de priorización por planes en la inversión de los recursos girados por la Ley de Simplificación y Eficiencia Tributaria N° 8114, tendiente de forma exclusiva a la conservación, mantenimiento rutinario y mantenimiento periódico y rehabilitación de la red vial cantonal.
