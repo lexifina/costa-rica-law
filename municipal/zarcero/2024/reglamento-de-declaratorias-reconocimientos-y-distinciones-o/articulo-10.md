@@ -1,0 +1,1 @@
+Artículo 10.-De la designación desierta. Si a criterio justificado del Concejo Municipal, la o las personas propuestas no reúnen las condiciones requeridas para ser declarado como Servidor/a Comunitario/a, o no se alcanza el quórum requerido de votación, se tendrá por desierta la designación.

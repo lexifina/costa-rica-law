@@ -1,0 +1,1 @@
+Artículo 18.-De la designación desierta. Si a criterio justificado del Concejo Municipal, la persona o personas propuestas no reúnen las condiciones requeridas para ser declarados como Zarcereño/a Distinguido/a, no hay interés manifiesto de recibir la distinción, o no se alcance el quórum de votación requerido, se tendrá por desierta la designación de ese periodo que corresponda.

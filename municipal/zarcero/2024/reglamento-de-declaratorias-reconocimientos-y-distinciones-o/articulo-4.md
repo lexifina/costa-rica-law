@@ -1,0 +1,1 @@
+Artículo 4°-Frecuencia de la declaratoria. La declara-toria de Servidor/a Comunitario/a se otorgará en Sesión del Concejo Municipal a la que se invitará a la comunidad en general. Dichas sesiones para otorgar la misma, se realizarán cada tres años y la municipalidad entregará las declaratorias conforme a criterios de necesidades y oportunidad.

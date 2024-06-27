@@ -1,0 +1,1 @@
+Artículo 17.-De la designación. Recibido el dictamen con la recomendación de la Comisión de Cultura, el Concejo Municipal tomará el acuerdo correspondiente en el que se apruebe la declaratoria y la misma deberá contar con la aprobación de las dos terceras partes de los regidores.

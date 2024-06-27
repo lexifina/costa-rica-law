@@ -1,0 +1,1 @@
+Artículo 25.-De la designación desierta. Si a criterio justificado del Concejo Municipal, la persona propuesta no reúne las condiciones requeridas para ser declarado como Hijo Predilecto o Hija Predilecta, no hay interés manifiesto de recibir la distinción o no se alcanza el quórum requerido para nombramiento, se tendrá por desierta la designación de ese año que corresponda.
