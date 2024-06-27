@@ -1,0 +1,1 @@
+Artículo 7°-El funcionario encargado de la custodia de los fondos asignados responderá por el correcto manejo, así como ante las auditorías internas o las autorizadas por la Contraloría General de la República.

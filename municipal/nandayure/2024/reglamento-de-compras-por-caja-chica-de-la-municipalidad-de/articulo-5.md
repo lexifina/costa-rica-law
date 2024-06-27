@@ -1,0 +1,1 @@
+Artículo 5°-El Concejo Municipal, es el órgano encargado de fijar el límite máximo para la compra de bienes y servicios con este fondo, estableciéndose el mismo en ¢1.000.000,00 (un millón de colones) con la autorización de la Alcaldía sin que se requiera orden de compra.

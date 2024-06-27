@@ -1,0 +1,1 @@
+Artículo 25.-Normas supletorias. Cualquier asunto relacionado con la materia, no contemplado en el presente reglamento se entenderá regulado por la Ley de Administración Financiera, Ley General de la Contratación Pública y su Reglamento, y los Lineamientos de Control Interno emitidos por la Contraloría General de la República.

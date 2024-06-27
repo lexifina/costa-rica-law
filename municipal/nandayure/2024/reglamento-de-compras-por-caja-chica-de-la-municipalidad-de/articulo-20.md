@@ -1,0 +1,1 @@
+Artículo 20.-El fondo de Caja chica estará sujeto a arqueos administrativos por parte del auditor municipal periódicos de máximo 4 meses cada uno y sin aviso previo, el cual quedará constando por escrito y deberá ser firmado por la persona que lo efectúa y por el Encargado del Fondo.

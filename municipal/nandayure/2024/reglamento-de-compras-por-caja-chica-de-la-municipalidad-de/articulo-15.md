@@ -1,0 +1,1 @@
+Artículo 15.-En cuanto a los adelantos que sean reintegrados sin ser utilizados por el funcionario que los solicitó, deberá indicar el reverso del formulario las razones que tuvo para no efectuar la compra y también se adjuntará el visto bueno de la jefatura inmediata.

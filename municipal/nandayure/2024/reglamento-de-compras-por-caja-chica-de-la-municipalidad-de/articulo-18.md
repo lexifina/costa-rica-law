@@ -1,0 +1,1 @@
+Artículo 18.-La Caja Chica debe estar organizada en forma totalmente independiente, para que no sea confundida con otros fondos. Este fondo, así como los vales y comprobantes deben estar en un lugar seguro de la oficina de Tesorería y bajo llave.
