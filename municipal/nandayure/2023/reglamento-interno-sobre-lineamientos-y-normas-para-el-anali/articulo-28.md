@@ -1,0 +1,1 @@
+Artículo 28.-Sobre el medio electrónico para recibir denuncias. La administración municipal está en la obligación de proveer a la auditoría interna una cuenta de correo electrónico institucional, exclusiva para la recepción de denuncias. Para lo cual el auditor interno deberá realizar la respectiva solicitud.

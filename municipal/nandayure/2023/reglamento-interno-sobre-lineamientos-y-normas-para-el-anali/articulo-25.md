@@ -1,0 +1,1 @@
+Artículo 25.-De la desestimación de la denuncia: Cuando la Auditoría Interna desestime una denuncia, deberá hacerlo mediante acto motivado y dejar evidencia en el expediente de la razón de archivo correspondiente, donde se citen los elementos de hecho y de derecho en los que se fundamentó la desestimación de dicha denuncia.
