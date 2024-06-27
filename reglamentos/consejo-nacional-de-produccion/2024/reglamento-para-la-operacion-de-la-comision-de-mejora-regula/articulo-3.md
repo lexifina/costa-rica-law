@@ -1,0 +1,1 @@
+Artículo 3º-La Comisión de Mejora Regulatoria es un Órgano Colegiado de coordinación, consulta, apoyo técnico y construcción de consensos a fin de implementar y conducir los procesos de mejora regulatoria de la Institución.

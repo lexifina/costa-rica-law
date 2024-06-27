@@ -1,0 +1,1 @@
+Artículo 2º-Este reglamento se sujetará a lo previsto en la Ley N° 2035 Orgánica del Consejo Nacional de Producción y la Ley N° 8220 Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y su respectivo Reglamento.

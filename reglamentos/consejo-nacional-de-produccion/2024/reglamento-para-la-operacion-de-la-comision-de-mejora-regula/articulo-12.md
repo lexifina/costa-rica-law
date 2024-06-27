@@ -1,0 +1,1 @@
+Artículo 12.-La Comisión sesionará de manera ordinaria al menos una vez al mes y de manera extraordinaria cuando así los requiere, estas sesiones podrán realizarse de manera virtual a través de una videoconferencia y deberán ser convocadas al menos con 48 horas de antelación.
