@@ -1,0 +1,1 @@
+Artículo 8º-Fecha de presentación. La documentación referida en los artículos 5° y 6º del presente reglamento, deberá ser presentada a la Sección de Cobros, a más tardar durante los quince días naturales posteriores al fin de mes anterior, so pena de las sanciones establecidas en el artículo 14° del presente reglamento.

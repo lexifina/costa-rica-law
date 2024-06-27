@@ -1,0 +1,1 @@
+Artículo 18.-Prescripción. El cobro del impuesto a que se refiere este reglamento prescribirá conforme el artículo 82 del Código Municipal; es decir en un plazo de cinco años; y la acción de la Administración Tributaria para determinar la obligación prescribe a los cuatro años. Igual término rige para exigir el pago del tributo y sus intereses.

@@ -1,0 +1,1 @@
+Artículo 17.-Traslado de cuenta a cobro judicial. Toda deuda con tres o más meses de atraso, podrá ser enviada al cobro por la vía judicial por la Municipalidad de Zarcero, previo trámite de cobro administrativo.

@@ -1,0 +1,1 @@
+Artículo 13.-De la defraudación. Cualquier maniobra que induzca a error a la Administración Tributaria, así como el incumplimiento en el pago puntual de este impuesto, será considerado defraudación fiscal y sujeta a todos los procedimientos y sanciones contemplados en la legislación y reglamentación vigente.
