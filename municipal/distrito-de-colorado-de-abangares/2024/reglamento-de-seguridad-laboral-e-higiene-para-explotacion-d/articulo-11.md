@@ -1,0 +1,1 @@
+Artículo 11.-Se mantendrá un sistema de desniveles y drenajes para la evacuación pronta de las aguas pluviales. Se mantendrá una contrapendiente en la superficie horizontal de la berma de 1% hacia el talud y un pequeño canal en la base del talud para canalizar las aguas fuera de la cabecera de la berma.

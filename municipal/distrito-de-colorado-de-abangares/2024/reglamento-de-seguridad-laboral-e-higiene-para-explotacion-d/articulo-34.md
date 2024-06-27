@@ -1,0 +1,1 @@
+Artículo 34.-Al realizar este proceso debe preverse que no se realice con amenaza de descargas eléctricas y realizando el aterrizaje correspondiente de ambos equipos. Se prohíbe el uso de teléfonos celulares, radios de comunicación y uso de alhajas metálicas mientras se realiza la descarga.

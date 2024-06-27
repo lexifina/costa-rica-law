@@ -1,0 +1,1 @@
+Artículo 6º-El responsable de prevención debe validar anualmente o en el momento de un cambio significativo de proceso, la identificación de peligros y evaluación de riesgos; así como el establecimiento de controles dando prioridad a la eliminación del riesgo seguido de sustitución, controles de ingeniería, administrativo y por último equipo de protección personal y señalización.

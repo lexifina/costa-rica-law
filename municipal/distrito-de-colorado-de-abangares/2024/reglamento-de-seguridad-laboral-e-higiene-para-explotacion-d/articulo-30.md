@@ -1,0 +1,1 @@
+Artículo 30.-Se restringirá al mínimo la circulación de peatones entre cúmulos debido al potencial desprendimiento de material. Está estrictamente prohibida esta circulación en el caso de maniobras de maquinaria o carga y descarga de material.

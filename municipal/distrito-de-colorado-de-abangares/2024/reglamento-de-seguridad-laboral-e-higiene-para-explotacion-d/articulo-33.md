@@ -1,0 +1,1 @@
+Artículo 33.-La descarga de combustible se hará totalmente hermética y segura. Se debe verificar que los accesorios, tales como mangueras, boquillas, acoples (herméticamente cerrados) y demás herramientas estén en condiciones aptas para la función.

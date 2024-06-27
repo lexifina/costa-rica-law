@@ -1,0 +1,1 @@
+Artículo 9º-Cualquier accidente laboral debe investigarse en un plazo máximo de 12 horas siguientes al momento del evento. Se deben establecer las causas y las medidas de control necesarias que minimicen las probabilidades de reincidencia del accidente.

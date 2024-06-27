@@ -1,0 +1,1 @@
+Artículo 32.-La carga de combustible en sitio a la maquinaria de extracción se realizará utilizando el vehículo adaptado para almacenamiento de combustible; utilizando la bomba manual o eléctrica correspondiente.

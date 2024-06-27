@@ -1,0 +1,1 @@
+Artículo 23.-Los responsables del mantenimiento de la maquinaria, deben asegurarse que estos cumplan con las normas de seguridad y prevención que les permita funcionar correctamente. En caso de presentar un mal funcionamiento, no permitirán su uso hasta tanto no sea subsanado.

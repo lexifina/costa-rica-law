@@ -1,0 +1,1 @@
+Artículo 44.-Durante la operación de extracción y carga de material se limitará la presencia de personas en los alrededores. En caso de que la suspensión de polvo proveniente de la actividad sea inevitable, las personas que estén en los alrededores deberán utilizar protección respiratoria contra partículas.

@@ -1,0 +1,1 @@
+Artículo 41.-En caso de que hayan personas cerca de la zona de descarga y carga material y haya polvo en suspensión, las personas deberán utilizar protección respiratoria de acuerdo al tipo de contaminante expuesto.

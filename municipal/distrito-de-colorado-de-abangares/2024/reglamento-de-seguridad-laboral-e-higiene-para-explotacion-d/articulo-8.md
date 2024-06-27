@@ -1,0 +1,1 @@
+Artículo 8º-El responsable de prevención debe comunicar los riesgos laborales y los controles definidos para la actividad a través de capacitaciones, folletos, pizarras informativas, medios digitales con caracteres legibles y otros que sean considerados por la administración; asegurando que esta comunicación llegue a todo el personal que ejecute trabajos en el área del Tajo.

@@ -1,0 +1,1 @@
+Artículo 22.-Se debe asegurar que el personal que opere la maquinaria disponga de la respectiva licencia según el tipo de máquina operada y acorde a lo estipulado en la Ley N° 9078. Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

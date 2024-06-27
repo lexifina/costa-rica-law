@@ -1,0 +1,1 @@
+Artículo 4º-El Concejo asegurará la disponibilidad de los recursos financieros, técnicos y humanos para vigilar, evaluar, inspeccionar y mejorar periódicamente las indicaciones establecidas en el presente reglamento, así como la implementación de cualquier cambio legal que sea identificado.

@@ -1,0 +1,1 @@
+Artículo 24.-Es responsabilidad de los operadores al final de las tareas, aparcar en el área designada y poner los mandos en punto de estacionamiento, colocar los respectivos sistemas de freno y establecer cualquier otra medida de prevención adicional.
