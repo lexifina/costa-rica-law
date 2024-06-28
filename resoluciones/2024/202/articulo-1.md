@@ -1,0 +1,46 @@
+MINISTERIO DE AMBIENTE Y ENERGÍA
+R-0202-2024-MINAE.-Ministerio de Ambiente y Energía, a las nueve horas cinco minutos del doce de junio del dos mil veinticuatro.
+Resultando:
+1º-Que con la suscripción del Convenio de Viena para la Protección de la Capa de Ozono, ratificado por Ley Nº7228, del Protocolo de Montreal relativo a las sustancias agotadoras de la Capa de Ozono, ratificado por Ley Nº7223 y de la enmienda de Kigali al Protocolo de Montreal incorporada al ordenamiento jurídico costarricense mediante Ley Nº 9522 del 14 de febrero de 2018, Costa Rica adquirió compromisos para establecer normas para el control, disminución y sustitución de los hidrofluorocarbonos (HFC), los cuales contribuyen significativamente al efecto invernadero y consecuentemente al calentamiento global.
+2º-Que el Protocolo de Montreal ha demostrado ser altamente efectivo en la protección de la capa de ozono, contribuyendo significativamente a la reducción de sustancias nocivas y ayudando a prevenir efectos adversos en la salud humana y el medio ambiente y la Enmienda de Kigali, adoptada en 2016, amplía el alcance del Protocolo de Montreal al incluir los HFC, potentes gases de efecto invernadero, y establece un calendario para su reducción progresiva, con el objetivo de mitigar el cambio climático.
+3º-Que el Protocolo de Montreal otorgó a Costa Rica una línea base país de 1,450,799,00 toneladas de CO2 equivalente de HFC para importar, este dato puede ser corroborado en la página web del Programa Ambiental de las Naciones Unidas, en el Secretariado de Ozono (https://ozone.unep.org/countries/datatable?report_ type=0&party%5B0%5D=51&peri od_start=1986&period_ end=2023&output_type=odp-CO2e-tonnes).
+4º-Que Costa Rica ha distribuido entre los importadores que operan dentro del territorio nacional, un total de 1,306,133.73 toneladas de CO2 equivalente de HFC de la línea base, por medio de la Dirección de Gestión de Calidad Ambiental (DIGECA), del Ministerio de Ambiente y Energía.
+5º-Que Costa Rica ha dispuesto un 2% de la línea base, correspondiente a 29,015.98 toneladas de CO2 equivalente de HFC, destinado únicamente a usos críticos ya establecidos en el Protocolo de Montreal.
+6º-Que Costa Rica ha dejado un 10% de la línea base, equivalente a 115,649.36 toneladas de CO2 equivalente de HFC, como reserva del Estado, las cuales se requiere ser distribuidas entre nuevos e históricos importadores.
+7º-Que, de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MPMEIC del 22 de febrero de 2012 y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir.
+Considerando:
+1º-Que el cumplimiento de los compromisos internacionales adquiridos por Costa Rica es fundamental para mantener su reputación como líder en políticas ambientales y desarrollo sostenible, y para asegurar el apoyo y cooperación de la comunidad internacional en otros aspectos ambientales y económicos.
+2º-Que, para poder realizar una implementación efectiva de los compromisos adquiridos por Costa Rica ante el Protocolo de Montreal, el Ministerio de Ambiente y Energía, como único ente competente para distribuir las cuotas de importación de HFC designadas por el Protocolo de Montreal y tomando en cuenta la línea base país para importar, podrá distribuir las cuotas de importación de HFC para evitar la obstaculización de las actividades comerciales de los importadores, así como la inviabilidad de aplicación de dichos procedimientos.
+3º-Que la distribución de la línea base de importación de HFC entre los importadores nacionales responde a la necesidad de regular y controlar el uso de estas sustancias, alineándose con los compromisos internacionales adquiridos, y garantizando que todos los actores involucrados contribuyan a la reducción de HFC de manera equitativa y responsable, para lo cual se ha dispuesto de una reserva del Estado, equivalente al 10% de la línea base, al eliminar el 2% dispuesto para usos críticos, tiene como finalidad atender situaciones extraordinarias y asegurar la disponibilidad de HFC para necesidades específicas que puedan surgir, garantizando al mismo tiempo que el país no exceda los límites establecidos internacionalmente.
+4º-Que Costa Rica decide, por única vez, para repartir la reserva del Estado, equivalente a 115,649.36 toneladas de CO2 equivalente de HFC, entre los importadores históricos y los nuevos importadores, establecer un mecanismo de distribución de cuotas para el año 2024, el cual será aplicado por la Dirección de Gestión de Calidad Ambiental (DIGECA), sin que ello genere ninguna clase de derecho adquirido a los registrantes históricos o registrantes nuevos en relación con las cuotas asignadas en los años siguientes, durante los procesos ordinarios de asignación de cuotas. se ha decidido, excepcionalmente para el año 2024. Por tanto,
+EL MINISTRO DE AMBIENTE Y ENERGÍA, DISPONE
+EL PROCESO DE ASIGNACIÓN EXTRAORDINARIA
+POR ÚNICA VEZ DEL FONDO DE RESERVA Y CUOTAS
+REMANENTES DE HIDROFLUOROCARBONOS (HFC),
+DURANTE EL AÑO 2024
+1º-Con fundamento en las consideraciones antes mencionado, por medio de la presente resolución se establece el proceso de Asignación Extraordinaria por unica vez del Fondo de Reserva y cuotas remanentes de Hidrofluorocarbonos (HFC), durante el año 2024.
+2º-La asignación de esta cuota extraordinaria para el año 2024, no generará derechos adquiridos para los importadores históricos o nuevos en relación con las cuotas asignadas en años siguientes, durante los procesos ordinarios.
+El importador debe asegurarse que la cuota de HFC asignada sea nacionalizada durante el año 2024. Si la importación ingresa a puerto en el año 2025, se perdería el derecho a la cuota extraordinaria, y esta sería cubierta con la cuota del año 2025.
+3º-Se establece el calendario de la asignación extraordinaria del total de toneladas de CO2 equivalente de Hidrofluorocarbonos (HFC), correspondiente al Fondo de Reserva del Estado y cuotas remanentes para el año 2024, para un total de 115.649,36 toneladas de CO2 equivalente.
+Para el proceso d asignación extraordinaria y por única vez, se seguirán los siguientes lineamientos:
+1. Sobre la Solicitud:
+Podrán solicitar la cuota extraordinaria de Hidrofluorocarbonos (HFC), durante el año 2024, los siguientes importadores:
+. Todo importador histórico, debidamente inscrito en el registro de importadores y exportadores de sustancias agotadoras de ozono (SAO), de la Dirección de Gestión de Calidad Ambiental (DIGECA), que haya recibido cuota de importación de Hidrofluorocarbonos (HFC), en el año 2024.
+. Todo importador nuevo, es decir, cualquier persona física o jurídica, pública o privada, que desee nacionalizar gases refrigerantes HFC para su comercialización y/o abastecimiento propio en Costa Rica, pero que no se encontraba registrada ante la DIGECA antes del 31 de diciembre de 2022.
+1.1 Distribución de la cuota:
+La cuota será distribuida de forma equitativa entre todas las solicitudes recibidas. Si un solicitante necesita menos de la cantidad asignada, esa cantidad sobrante podrá redistribuirse equitativamente entre los otros solicitantes, si fuese necesario.
+2. Plazos y Procedimiento
+2.1 Recepción de Solicitudes
+La recepción de solicitudes únicamente será entre el 10 y el 22 de julio del 2024, los importadores interesados deberán realizar una solicitud formal por escrito ante la DIGECA, solicitando ser considerado en la distribución de la cuota extraordinaria del año 2024.
+Las solicitudes se recibirán al correo digeca@minae.go.cr La solicitud debe incluir la siguiente información:
+- Si la empresa aún no está registrada ante registro de importadores y exportadores de sustancias agotadoras de ozono (SAO), de la Dirección de Gestión de Calidad Ambiental (DIGECA), deberá realizar este proceso previamente a la presentación de la solicitud.
+- En caso de que un importador histórico o nuevo solicite y se le adjudique esta cuota extraordinaria, pero posteriormente no la utilice, la DIGECA queda facultada para no considerarlo en la distribución de las cuotas remanentes del año 2025.
+- La solicitud deberá indicar la cantidad de HFC, indicada en toneladas de CO2 equivalente, que se requiere importar en el año 2024, por única vez y de manera extraordinaria.
+- La solicitud debe incluir las calidades de la empresa.
+- La solicitud deberá ser firmada por el representante legal de la empresa si es persona jurídica.
+- Señalar medio de notificación.
+2.2. Revisión de Solicitudes
+La Dirección de Gestión de Calidad Ambiental (DIGECA), revisará y responderá las solicitudes entre el 22 y el 26 de julio del 2024.
+2.3. Asignación y Notificación de Cuotas Extraordinarias de HFC 2024
+Las cuotas serán distribuidas de la manera establecida en el punto 1.1 indicado supra, conforme a las solicitudes recibidas. DIGECA realizará una resolución general indicando la distribución de las cuotas, la cual será notificada mediante oficio al medio de notificación establecido por el importador interesado en su solicitud, entre el 29 y el 31 de julio de 2024.
+4º-Rige a partir de su publicación en el Diario Oficial La Gaceta.
