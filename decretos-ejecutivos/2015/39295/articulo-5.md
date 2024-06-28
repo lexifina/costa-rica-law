@@ -1,5 +1,3 @@
-CAPÍTULO II
-DE LA CREAPYME
-Artículo 5.- El MEIC mediante convenios específicos reconocerá a instituciones públicas o privadas, como centros regionales de apoyo y atención a las PYME y a los (as) emprendedores (as), con la finalidad de:
-a).- Contribuir con los objetivos y metas establecidos en los Planes Operativos y Estratégicos; en el Plan Nacional de Desarrollo vigente y en la Política Pública de Fomento a la PYME y al Emprendimiento.
-b).-Además de los objetivos que se determinen en los convenios específicos que se suscriban entre el MEIC y la institución pública o privada.
+CAPÍTULO II. DE LOS CIDE
+(Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 44542 del 28 de junio del 2024. Anteriormente indicaba: CAPÍTULO II DE LA CREAPYME)
+Artículo 5.- (Derogado por el artículo 3° del decreto ejecutivo N° 44542 del 28 de junio del 2024)
