@@ -1,0 +1,1 @@
+ARTÍCULO 29.- Falta grave. El responsable o su superior inmediato que permita u oculte un faltante o cualquier manejo irregular en el Fondo Fijo de Caja Chica a su cargo, incurrirán en falta grave, haciéndose acreedores a las sanciones que corresponda.

@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Revisiones y arqueo. La persona funcionaria responsable del Fondo Fijo de Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones, conciliaciones bancarias, arqueos internos, para el Fondo Fijo-Caja Chica autorizado, de acuerdo con las directrices que ese sentido emita la Tesorería Nacional.

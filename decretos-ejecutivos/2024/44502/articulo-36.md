@@ -1,0 +1,1 @@
+ARTÍCULO 36.- Informes trimestrales. Al final de cada trimestre el Departamento Financiero-Contable enviará a la Tesorería Nacional un informe con arqueos mensuales y anexos correspondientes, firmado por el Jefe de la Unidad Financiera y el Coordinador del Área de Tesorería.

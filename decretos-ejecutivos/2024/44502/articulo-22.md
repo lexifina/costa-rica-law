@@ -1,0 +1,4 @@
+ARTÍCULO 22.- Reintegro de reembolsos. Los reembolsos periódicos tanto de la Caja General como de las Cajas Auxiliares, estipulados en este Reglamento, seguirán el siguiente trámite de reintegro de Fondos:
+a. El encargado del Fondo de la Caja Chica remitirá el formulario de reintegro de Caja Chica debidamente confeccionado, junto con los comprobantes respectivos, sellados, aprobados y debidamente firmados
+b. El superior del encargado de Caja Chica, revisará la solicitud en cuanto a códigos presupuestarios, legitimidad de los comprobantes, operaciones aritméticas y demás requisitos establecidos por este Reglamento.
+c. Una vez cumplido lo estipulado en los incisos anteriores se procederá a la inclusión de cada reintegro en el sistema de reintegro establecido por el Ministerio de Hacienda, para el crédito en la cuenta presupuestaria.

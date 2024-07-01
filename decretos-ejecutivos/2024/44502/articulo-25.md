@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Arqueos. El Fondo de efectivo de caja chica cuando corresponda, así como sus Cajas Auxiliares, estarán sujetos a arqueos mensuales y sorpresivos por parte del superior inmediato, o los encargados de control. La persona funcionaria encargada de la operación del Fondo, está obligada a brindar la información requerida para estos efectos.

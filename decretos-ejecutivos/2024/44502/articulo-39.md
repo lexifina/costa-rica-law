@@ -1,0 +1,1 @@
+ARTÍCULO 39.- Obligatoriedad de aplicación. Este Reglamento es obligatorio para los responsables del control, así como de la persona encargada del manejo del Fondo de la Caja Chica, para los demás funcionarios será de observancia obligatoria.

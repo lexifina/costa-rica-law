@@ -1,0 +1,1 @@
+ARTÍCULO 33.-Visado de documentos. Los documentos de ejecución señalados en este Reglamento deberán ser visados de acuerdo con los procedimientos que establezca el Departamento Financiero del Ministerio de Cultura y Juventud o del Órgano Desconcentrado, y considerando los lineamientos de la Tesorería Nacional en la materia.

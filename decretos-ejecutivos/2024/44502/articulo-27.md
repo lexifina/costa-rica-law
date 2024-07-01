@@ -1,0 +1,1 @@
+ARTÍCULO 27.- Totalidad de los fondos. Todos los Fondos de dinero establecidos al amparo de este Reglamento operarán por medio del Sistema de Fondo Fijo, lo que implica que el Encargado del Fondo tendrá en todo momento la suma total asignada.

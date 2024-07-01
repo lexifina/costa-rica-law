@@ -1,0 +1,5 @@
+ARTÍCULO 17.- Pago de viáticos por concepto de Caja Chica. La Jefatura del Departamento Financiero del Ministerio de Cultura y Juventud o del Órgano Desconcentrado, podrá autorizar el pago de viáticos por medio de Caja Chica en las siguientes situaciones:
+a. Cuando así lo autorice la Tesorería Nacional, debido a situaciones especiales.
+b. Pago de viáticos a asesores extranjeros, funcionarios ad honoren o pasantes que, por Convenio suscrito entre las partes, se autorice el pago de viáticos, y no cuenten con una cuenta corriente domiciliada en el país, y que por lo tanto el pago no se puede realizar por medio de transferencia.
+c. Otras situaciones debidamente justificadas y autorizadas por el Jefe del Departamento Financiero Contable de la entidad.
+Todo lo anterior, de acuerdo con lo dispuesto en la Resolución No. 4-DI-AA-200 l, Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos, emitida por el Despacho del Contralor General de la República, a las quince horas del día diez de mayo de dos mil uno y sus reformas.
