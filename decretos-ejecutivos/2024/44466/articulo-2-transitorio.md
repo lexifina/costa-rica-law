@@ -1,0 +1,1 @@
+Transitorio II.- Los servicios de salud públicos, privados o mixtos cuentan con el plazo de dos años a partir de la publicación del presente Decreto Ejecutivo, para que todos los dispositivos que utilicen para la toma de la presión arterial sean automáticos.
