@@ -1,0 +1,2 @@
+Artículo 38º-Del cobro. La Municipalidad pondrá al cobro la facturación correspondiente de los servicios brindados al abonado, mediante recibo, que indicará los rubros pagados, los montos de cada uno, el o los periodos cancelados y el total facturado.
+El Departamento de Servicios Públicos, encargado del Acueducto Municipal colaborará con el departamento de Gestión de Cobro, aplicando medidas coercitivas para la recuperación del pendiente de cobro por concepto del servicio de agua.

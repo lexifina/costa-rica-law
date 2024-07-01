@@ -1,0 +1,1 @@
+Artículo 51º-Del interés público. El Concejo Municipal se reserva el derecho de autorizar el servicio de agua potable sin costo alguno en casos debidamente calificados, donde medie el interés público, para desarrollar actividades estrictamente de carácter social o de emergencia. La autorización está sujeta a ser aprobada por dos terceras partes del Concejo Municipal.

@@ -1,0 +1,7 @@
+Artículo 49º-Prohibiciones al abonado. Se prohíbe al abonado realizar las siguientes acciones:
+a) Tomar de las tuberías intradomiciliarias o directamente de los tanques de almacenamiento, derivación alguna (ramal) para dar servicio a otra edificación o lote independiente. Tales derivaciones sólo se podrán hacer en casos muy especiales previa autorización escrita del Alcalde Municipal y con la recomendación técnica de los Departamentos de Acueducto.
+b) Se prohíbe a los abonados o usuarios, reconectar un servicio que había sido suspendido conforme a lo establecido en el presente reglamento.
+c) Se prohíbe la conexión de mecanismos de bombeo y de mangueras directamente de las conexiones de agua del acueducto, si las mismas no están debidamente autorizadas por el Departamento de Servicios Públicos, encargado del Acueducto Municipal. En este caso, este departamento procederá de inmediato a la desconexión de lo no autorizado.
+d) En los casos de instalarse fuentes públicas, se prohíbe derivar conexiones de agua y conectar mangueras de ellas para servicios particulares.
+e) Cubrir el hidrómetro con tierra, escombros, desechos, arena, piedra o cualquier otro material, que no permita la lectura de este.
+Al abonado que incurra en alguna de las faltas indicadas en los incisos anteriores, se les notificará para que corrijan dicha situación dentro de los tres días hábiles siguientes a la notificación, so pena, se procederá de inmediato a la desconexión y se cobrará el equivalente a un 15% del salario base como costo por este trabajo.

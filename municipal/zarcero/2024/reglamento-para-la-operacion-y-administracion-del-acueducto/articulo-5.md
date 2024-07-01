@@ -1,0 +1,21 @@
+29. Prevista: Sección de tubería y accesorios dispuesta para la conexión de la red pública con la red privada del cliente, que se instala hasta el medidor o lugar donde éste debería cobrarse, pero que no se encuentra en uso.
+30. Ramal: La extensión o aumento de longitud de la red de distribución local del acueducto, que se hace necesario para el servicio hasta la propiedad. Así como las variaciones de diámetro o sustituciones requeridas.
+31. Red privada: La red de distribución del sistema interno en propiedad del contribuyente.
+32. Red pública: La red de distribución, del sistema público propiedad de la Municipalidad.
+33. Revisiones de medidores: Servicio que la Municipalidad presta a sus abonados, con el propósito de que estos aclaren las dudas acerca de la facturación de su servicio.
+34. Servicio de Acueducto: Suministro de agua potable que es prestado por la Municipalidad al abonado.
+35. Suspensión de servicio: Privación temporal del servicio de agua potable.
+36. Unidad de ocupación: Se refiere al espacio físico en donde existe una estructura que se fija o incorpora al terreno, destinado a vivienda, comercio, culto, instalaciones deportivas, instituciones del gobierno, organizaciones de beneficencia o bien social, centros educativos, industrias, al que se le asignará el uso del agua a que se refiere este Reglamento. Toda remodelación, alteración o ampliación que se realice a una estructura existente deberá ser valorada por la Dirección de Desarrollo Urbano a efectos de determinar si origina una nueva unidad de ocupación.
+37. Uso del agua: Es el destino principal que le da el abonado al agua suministrada o que determina la Municipalidad que se le da al servicio de agua potable. Misma que se clasifica como:
+1. Domiciliaria o residencial.
+2. Ordinaria.
+3. Reproductiva o comercial.
+4. Preferencial.
+5. Gobierno.
+38. Tarifa: Cobro por unidad de uso de los servicios que se prestan en forma permanente o temporal a los abonados y de aplicación general a todos los que estén en las mismas condiciones.
+39. Tasa: Tributo cuya obligación tiene como hecho generador la prestación efectiva o potencial de un servicio público de suministro de agua potable, calculado sobre los costos de materiales, equipo de mano de obra y gastos administrativos, más la utilidad, individualizado para cada abonado como una suma equivalente ya sea fija o por unidad.
+40. Desconexión: Solicitud que hace el propietario registral o representante facultado legalmente, para hacer retiro o renuncia del servicio de agua potable y que debe estar al día con el pago de tasas, impuestos y tributos municipales.
+41. Disponibilidad de agua: Documento que emite el Departamento de Servicios Públicos encargado del acueducto municipal para hacer constar que, en el sector dónde se solicita el agua, la Municipalidad cuenta con red de distribución y el caudal necesario para abastecer más unidades de ocupación, pero que sólo se dará con previa inspección que determine la factibilidad de la prestación del servicio y la cual no implica la obtención del derecho a la interconexión o aprobación de un nuevo servicio.
+42. Vía pública: Camino que forma parte del dominio público.
+Artículo 5º-Del servicio. La Municipalidad prestará el servicio de agua potable, tomando las medidas necesarias para asegurar la operación, mantenimiento, la adecuada calidad del agua potable, mejoras, desarrollo, inversiones y servicio. Está obligada a prestar el servicio de agua a todos los propietarios y poseedores de inmuebles construidos, dedicados al trabajo o residencia de personas, ubicados dentro de la jurisdicción del cantón de Zarcero, cuando las redes del sistema pasen frente a las propiedades, mientras los inmuebles cumplan con todos los requisitos de las leyes nacionales y reglamentos municipales. Los abonados deberán hacer buen uso del servicio, dándole el destino exclusivo para el que fue contratado.
+En lo referente a la calidad del agua, la Municipalidad seguirá las disposiciones contenidas en el Reglamento para la Calidad del Agua, N° 25991-S, publicado en La Gaceta N° 100 del 27 de mayo de 1997 y su reforma Reglamento para la calidad del agua potable 32327 del 3 de mayo del 2005. Así como también la Ley General de Salud N° 5395, las cuales serán parte integrante del presente reglamento.
