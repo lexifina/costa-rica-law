@@ -1,0 +1,1 @@
+Artículo 2º-Aplicación del nivel mínimo de tributación. En consideración a que la CMV en el año 2023 corresponde al precio de ¢2.200,00 (dos mil doscientos colones exactos) por cajetilla, se debe modificar el nivel mínimo de tributación vigente, según se detalla en el artículo siguiente.
