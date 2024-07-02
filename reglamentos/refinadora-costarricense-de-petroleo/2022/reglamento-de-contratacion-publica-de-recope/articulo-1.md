@@ -1,8 +1,0 @@
-REFINADORA COSTARRICENSE DE PETRÓLEO S. A.
-REGLAMENTO DE CONTRATACION PÚBLICA RECOPE
-De conformidad con el artículo 6 de la Ley No.6588, artículo 1 de la Ley N° 7356 "Monopolio a favor del Estado para la Importación, Refinación y Distribución al Mayoreo del Petróleo Crudo, sus Combustibles Derivados, Asfaltos y Naftas", artículo 3 de la Ley General de la Administración Pública N° 6227, los artículos 2 y 131 de la Ley General de Contratación Pública N° 9986 y los artículos 2, 314 y 317 de su Reglamento; la Junta Directiva de la Refinadora Costarricense de Petróleo Sociedad Anónima (en adelante RECOPE), en uso de sus atribuciones y facultades promulga la presente reglamentación interna.
-Artículo 1°-Objeto y alcance. El presente reglamento es de acatamiento obligatorio para todo el personal de RECOPE y miembros de Junta Directiva de la empresa.
-Cuando en el presente Reglamento se hace referencia a las gestiones que deben tramitar las diferentes dependencias de la empresa (gerencias, direcciones y departamentos), se refiere a que la aprobación corresponde al titular subordinado que ostenta la jefatura.
-El presente Reglamento tiene como objeto establecer el marco normativo interno que guiará el actuar de RECOPE en la gestión de los procesos de contratación pública a la luz del marco legal vigente.
-Quedan comprendidas dentro del alcance de la presente regulación, todas las contrataciones que se realicen en la actividad ordinaria y no ordinaria de RECOPE.
-Según lo dispuesto en el artículo 2, inciso a) de la Ley General de Contratación Pública, la actividad ordinaria queda excluida de la aplicación de dicha Ley.

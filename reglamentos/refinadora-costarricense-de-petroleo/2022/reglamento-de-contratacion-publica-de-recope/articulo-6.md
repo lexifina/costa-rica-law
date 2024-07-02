@@ -1,1 +1,0 @@
-Artículo 6°-Exportación de productos. Para la exportación de productos deberá promoverse un concurso internacional, salvo que concurran situaciones de excepción que justifiquen acudir al procedimiento establecido en el inciso 4.2 del artículo 4, lo cual deberá quedar acreditado en el expediente respectivo.
