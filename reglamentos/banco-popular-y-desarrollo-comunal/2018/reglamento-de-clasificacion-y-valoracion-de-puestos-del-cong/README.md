@@ -16,3 +16,4 @@ Reglamento de clasificación y valoración de puestos del Conglomerado Financier
 | 1 | 2018-09-04 | la propia norma |
 | 2 | 2019-01-23 | Reglamento 5610 (2019-01-23) |
 | 3 | 2024-04-03 | Reglamento 6094 (2024-04-03) |
+| 4 | 2024-07-02 | Reglamento 6120 (2024-07-02) |
