@@ -1,0 +1,2 @@
+Artículo 6º-Se agrega un artículo 12ter, cuya redacción será la siguiente:
+"Artículo 12ter. Denuncia contra Alcaldía. En el caso de que la denuncia sea presentada en contra de la persona que ocupa la Alcaldía Municipal, dada la investidura de tal cargo y al ser de elección popular, la persona denunciante deberá acudir a la vía judicial, conforme a las estipulaciones incluidas en el artículo 18, inciso c) del Código Municipal".
