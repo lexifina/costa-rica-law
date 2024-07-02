@@ -1,0 +1,1 @@
+Artículo 3º-La Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada determinará el procedimiento que se seguirá para el desarrollo de la Asamblea de Representantes Patronales y para la designación de sus tres representantes ante la Junta Directiva de la Caja Costarricense de Seguro Social, conforme a lo establecido en la Ley y este Reglamento.

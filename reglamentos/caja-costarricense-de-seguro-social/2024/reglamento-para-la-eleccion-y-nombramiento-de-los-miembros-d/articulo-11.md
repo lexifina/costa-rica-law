@@ -1,0 +1,1 @@
+Artículo 11.-Los miembros de la Junta Directiva de la Caja Costarricense de Seguro Social que representen a los Sectores Laboral y Patronal serán nombrados por períodos de cuatro años y podrán ser reelegidos.
