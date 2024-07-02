@@ -1,0 +1,1 @@
+Artículo 19.-La identificación de cualquier información falsa aportada por el funcionario o el incumplimiento de obligaciones laborales de éste durante las giras será sancionada conforme a la legislación laboral correspondiente, sin perjuicio de otras sanciones administrativas, civiles o penales que correspondan.

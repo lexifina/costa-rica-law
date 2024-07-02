@@ -1,0 +1,2 @@
+Artículo 2º-Fundamento legal.
+El presente reglamento establece los lineamientos para el pago de kilometraje a los funcionarios de BN Sociedad Corredora de Seguros que utilicen su vehículo propio o en copropiedad para cumplir con las obligaciones de acuerdo con la naturaleza del cargo, constituido al amparo de la Ley número 9343 Código de Trabajo.

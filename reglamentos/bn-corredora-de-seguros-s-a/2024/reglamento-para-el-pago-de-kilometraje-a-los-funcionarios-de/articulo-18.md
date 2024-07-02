@@ -1,0 +1,4 @@
+CAPÍTULO SEXTO:
+Disposiciones finales
+Artículo 18.-Vigencia del reconocimiento del Kilometraje.
+El reconocimiento del pago de kilometraje finalizará en caso del incumplimiento de los requisitos establecidos en el artículo 6 anterior, así como también se entenderá por finalizado en caso de renuncia, despido o jubilación del funcionario.

@@ -1,0 +1,1 @@
+Artículo 7º-Una vez revisada la Solicitud para el pago de kilometraje a los funcionarios del BNCS por parte de la Unidad Administrativa Financiera (UAF), se le comunicará al funcionario y a su jefatura inmediata la decisión adoptada.

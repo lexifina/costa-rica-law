@@ -1,0 +1,2 @@
+Artículo 20.-Toda modificación al presente Reglamento es potestad exclusiva de BNCS y para su aplicación deberá obtenerse la autorización de la Junta Directiva General, y su publicación en el Diario Oficial La Gaceta.
+En cualquier tiempo podrá BNCS modificar las disposiciones del presente reglamento, sin que para evadir o excusar su aplicación el funcionario pueda alegar derechos adquiridos o situaciones jurídicas consolidadas.

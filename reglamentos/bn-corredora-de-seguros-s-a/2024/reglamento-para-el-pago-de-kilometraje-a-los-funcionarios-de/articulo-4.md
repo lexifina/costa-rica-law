@@ -1,0 +1,1 @@
+Artículo 4º-Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de la Junta Directiva, toda persona o asesor contratado por BNCS sin que medie relación laboral con la BNCS.
