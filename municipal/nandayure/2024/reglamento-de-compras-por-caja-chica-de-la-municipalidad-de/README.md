@@ -14,3 +14,4 @@ Reglamento de compras por caja chica de la Municipalidad de Nandayure
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-27 | la propia norma |
+| 2 | 2024-07-03 | Reglamento municipal 6 (2024-07-03) |
