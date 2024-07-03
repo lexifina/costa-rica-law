@@ -192,6 +192,8 @@ articulo-188.md
 articulo-189.md
 articulo-190.md
 articulo-191.md
+articulo-191-bis.md
+articulo-191-ter.md
 articulo-192.md
 articulo-193.md
 articulo-194.md
@@ -272,3 +274,5 @@ articulo-7-anexo.md
 articulo-8-anexo.md
 articulo-9-anexo.md
 articulo-10-anexo.md
+articulo-11-anexo.md
+articulo-12-anexo.md
