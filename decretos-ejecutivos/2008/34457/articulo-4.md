@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la Organización de la Auditoría Interna
-Artículo 4º—De la Auditoría Interna. Independencia Funcional y de Criterio. La Auditoría Interna es un órgano asesor dependiente del Presidente y del Ministro, con quienes coordinará los asuntos de interés institucional que correspondan. Ejercerá sus funciones con independencia funcional y de criterio, respecto del Presidente, Ministro y demás órganos de la Administración Activa. Así, el Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones en ninguna otra unidad de la Presidencia ni del Ministerio, ni tampoco ser miembros de comisiones de trabajo o similares.

@@ -1,2 +1,0 @@
-Artículo 21.—Forma de cumplir con las funciones. El Auditor deberá cumplir sus funciones con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, y ser vigilante que el personal de la Auditoría actúe de igual manera, observando los principios éticos pertinentes, las disposiciones emitidas o que en el futuro emita la Contraloría General de la República y demás normativa aplicable.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41402 del 9 de agosto de 2018)

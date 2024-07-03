@@ -1,1 +1,0 @@
-Artículo 48.—De las faltas al reglamento. Las faltas que se cometan respecto al presente reglamento serán declaradas a criterio del Ministro, con asesoría de la instancia jurídica competente, y previo debido proceso, como leves o graves, y se aplicarán las sanciones previamente determinadas en la normativa relativa a la materia.

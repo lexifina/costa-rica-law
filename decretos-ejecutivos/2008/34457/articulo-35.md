@@ -1,2 +1,0 @@
-Artículo 35.—Normativa aplicable a la formalidad de los informes. En cuanto a los requisitos, partes, revisión, remisión y comunicación de los informes, se aplicará, principalmente, lo dispuesto en la Ley General de Control Interno, Normas para el Ejercicio de la Auditoría en el Sector Público, Normas Generales de Auditoría para el Sector Público y Normas Internacionales de Auditoría.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41402 del 9 de agosto de 2018)

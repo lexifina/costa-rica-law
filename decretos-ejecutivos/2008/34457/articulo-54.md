@@ -1,3 +1,0 @@
-CAPÍTULO X
-Disposiciones finales
-Artículo 54.—Interpretación del reglamento y resolución de discrepancias. Las disposiciones del presente Reglamento son de aplicación en todas las unidades y dependencias que conforman la Presidencia, Ministerio y programas adscritos, en lo que corresponda, según sea el caso. Cualquier discrepancia que se presente, en cuanto a su ejecución e interpretación, será resuelta por el Ministro, de común acuerdo con el Auditor. Si la discrepancia se refiere a aspectos funcionales, de previo a la aprobación, se planteará una consulta a la Contraloría, la que dispondrá lo que proceda.

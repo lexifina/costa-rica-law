@@ -1,1 +1,0 @@
-Artículo 47.—De la fijación de plazo de atención de indicaciones. La Relación de Hechos advertirá a la Administración sobre la celeridad en la cual ha de atender las recomendaciones relativas a las responsabilidades civiles, penales y administrativas, para prevenir el cumplimiento de los plazos de prescripción.
