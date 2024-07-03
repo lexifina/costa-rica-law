@@ -1,1 +1,0 @@
-Artículo 3º—Que únicamente podrán solicitar patente comercial para la actividad de Casino, aquellos hoteles que tengan como mínimo categorización de tres o más estrellas por parte del ICT, categorización que debe permanecer vigente durante el tiempo que funcione el local del casino y que perdida la misma implica la pérdida de la patente, dada la falta de dicho requisito de Ley.

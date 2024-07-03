@@ -1,1 +1,0 @@
-Artículo 10.—Que lo Juegos de mesa que serán permitidos, son todos aquellos que no estén prohibidos por la Ley de Juegos, así las cosas, únicamente se tendrán como prohibidos y por ende no podrán ser jugados en ningún casino los que la Ley determine como tales.

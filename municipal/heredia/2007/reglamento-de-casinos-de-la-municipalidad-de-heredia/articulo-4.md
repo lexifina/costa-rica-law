@@ -1,1 +1,0 @@
-Artículo 4º—Las Licencias anteriores al articulo ocho de la Ley 7088, que no cumplan con el requisito ahí definido podrán operar siempre y cuando hayan tenido por más de diez años con el respectivo pago del impuesto de Patente al día.

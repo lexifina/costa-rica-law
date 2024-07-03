@@ -1,1 +1,0 @@
-Transitorio 2º—En un plazo de un mes calendario a partir de la entrada en vigencia de este Reglamento, deberá el Jefe de Patentes, solicitar al ICT el detalle de la categorización de los hoteles donde funcionan casinos en el Cantón.
