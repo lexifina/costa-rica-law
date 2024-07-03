@@ -15,3 +15,4 @@ Reglamento a la Ley 9023 Impuestos Municipales del Cantón Central de Heredia
 | --- | --- | --- |
 | 1 | 2016-02-17 | la propia norma |
 | 2 | 2017-08-21 | Reglamento municipal 107 (2017-08-21) |
+| 3 | 2024-07-03 | Reglamento municipal 0 (2024-07-03) |
