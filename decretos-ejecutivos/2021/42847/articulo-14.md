@@ -51,13 +51,13 @@ Aprobación de un programa de estudios de posgrado (residencia médica) de cuatr
 14.10 Especialidad Médica en Cirugía Pediátrica.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cinco (5) años en la Especialidad de Cirugía Pediátrica, en un Hospital de Tercer Nivel, Regional, Periférico o Centro Especializado, perteneciente o adscrito a una Universidad.
-14.11 Especialidad Médica en Cirugía Plástica, Reconstructiva y Estética.
+14.11 Especialidad Médica en Cirugía Plástica, Reconstructiva y Estética. Se reconoce como sinónimos de esta especialidad los siguientes términos: Cirugía Plástica y Reconstructiva; Cirugía Plástica y Caumatología.
 Requisitos específicos:
-a. Estar debidamente inscrito como Médico y Cirujano, ante el Colegio de Médicos y Cirujanos.
+Estar debidamente inscrito como Médico y Cirujano, ante el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de seis (6) años en la Especialidad de Cirugía Plástica, Reconstructiva y Estética, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
 Podrán también solicitar la inscripción en esta Especialidad, aquellos Médicos Especialistas en Cirugía General o Especialista en Cirugía Pediátrica que cumplan con la aprobación de un programa de estudios de posgrado (residencia médica) de mínimo tres (3) años en la Especialidad de Cirugía Plástica, Reconstructiva y Estética, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
-Se reconoce como sinónimo de esta especialidad: Cirugía Plástica y Reconstructiva
-(Así adicionado el párrafo anterior mediante sesión ordinaria 2022-11-16, celebrada el 16 de noviembre de 2022)
+(Así adicionado el párrafo anterior mediante Sesión Ordinaria 2022-11-16, celebrada el 16 de noviembre de 2022)
+(Así reformado el inciso 14.11) anterior mediante sesión ordinaria 2024-07-03, celebrada el 3 de julio del 2024)
 14.12 Especialidad Médica en Cirugía Torácica General.
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos.
