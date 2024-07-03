@@ -1,1 +1,0 @@
-Articulo 12.—El permiso otorgado conforme este Reglamento deberá especificar el tipo de producto o productos autorizados y no podrán venderse otros autorizados, so pena de cancelarse el permiso concedido y confiscarse la mercadería que no tiene autorización para su venta.

@@ -1,1 +1,0 @@
-Articulo 7°—El beneficiario deberá mantener y velar por la limpieza de su local tanto dentro, afuera, como en sus alrededores, y para tales efectos, deberá cumplir con todas las obligaciones que establece para estos casos el Ministerio de Salud. Deberá también mantener dentro del local un recipiente para basura bajo su entera responsabilidad.

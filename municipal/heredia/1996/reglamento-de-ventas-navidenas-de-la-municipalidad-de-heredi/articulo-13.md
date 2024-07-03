@@ -1,1 +1,0 @@
-Articulo 13.—Fuera del área asignada para la explotación de un local, no podrá colocarse mercadería ni artículos que obstruyan el paso peatonal. El incumplimiento de estas obligaciones será sancionado conforme al articulo anterior.
