@@ -3,3 +3,4 @@ Artículo 4°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44374 del 14 de febrero del 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44434 del 16 de abril del 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44478 del 17 de mayo del 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44543 del 21 de junio de 2024)

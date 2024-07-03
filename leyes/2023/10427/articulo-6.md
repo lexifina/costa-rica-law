@@ -9,3 +9,4 @@ Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44478 del 17 de mayo del 2024)
 (Así reformado por el artículo 2° y 3° de la ley N° 10490 del 20 de mayo del 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44492 del 3 de junio del 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44543 del 21 de junio de 2024)
