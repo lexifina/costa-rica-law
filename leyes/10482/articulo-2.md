@@ -1,0 +1,1 @@
+ARTÍCULO 2- Autorizaciones . Se autoriza a las instituciones del Estado y a los gobiernos locales para que se promueva la celebración de este día en todas sus oficinas, con el fin de reconocer y hacer visible el aporte de las empresas en la reactivación económica, en el progreso de las comunidades y en el desarrollo nacional.
