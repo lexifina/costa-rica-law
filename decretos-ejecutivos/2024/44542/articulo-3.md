@@ -1,0 +1,1 @@
+Articulo 3.-Derogatoria. Deróguese el numeral 10 del artículo 3, el artículo 5 y el artículo 7, todos del Decreto Ejecutivo N° 39295-MEIC del 22 de junio de 2015, publicado en el Alcance N°99, del Diario Oficial La Gaceta N°227 del 23 de noviembre del 2015.
