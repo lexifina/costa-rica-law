@@ -1,0 +1,1 @@
+Artículo 18.-Actualización de los límites Los límites en los montos a utilizar la caja chica de la Unidad Ejecutora se deben revisar anualmente con el fin de determinar si requieren algún tipo de ajuste, el cual debe ser sometido a aprobación por parte del Comité Director.

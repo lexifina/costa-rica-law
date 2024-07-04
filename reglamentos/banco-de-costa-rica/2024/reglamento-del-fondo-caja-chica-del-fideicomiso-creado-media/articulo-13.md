@@ -1,0 +1,2 @@
+Artículo 13.-De la revisión del sistema de control y auditoría del Fondo de Caja Chica. En la Auditoría Externa que contrate el Fideicomiso, una vez al año, se incluirá como parte de su servicio, auditar las contrataciones realizadas con cargo al Fondo de Caja Chica; a fin de evaluar el uso correcto, suficiencia y la efectividad de los controles.
+El fiduciario realizará dos arqueos al año: uno en enero, con corte a diciembre del año anterior, y otro en julio, con corte a junio del mismo año. Además, podrá realizar arqueos aleatorios sin necesidad de una coordinación previa.

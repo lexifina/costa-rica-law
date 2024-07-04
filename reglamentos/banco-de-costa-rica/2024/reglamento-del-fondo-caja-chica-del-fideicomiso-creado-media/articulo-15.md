@@ -1,0 +1,1 @@
+Artículo 15.-Régimen Sancionatorio. El incumplimiento de este Reglamento faculta al Fiduciario a imponer contra la persona trabajadora responsable, previo cumplimiento del debido proceso, las sanciones disciplinarias correspondientes, sin perjuicio de accionar en vía civil y penal, si es del caso, conforme la normativa aplicable en cuanto al uso y disposición de fondos públicos.

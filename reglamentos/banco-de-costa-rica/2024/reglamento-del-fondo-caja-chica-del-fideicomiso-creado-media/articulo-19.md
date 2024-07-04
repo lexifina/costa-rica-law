@@ -1,0 +1,1 @@
+Artículo 19.-Este reglamento fue aprobado por el Comité Director según acuerdo 079-2024 del acta 012-2024 del 26 de junio de 2024; por tanto, toda disposición vigente que establezca regulaciones en torno al funcionamiento de la Caja Chica de FIDEIMAS quedará sin efecto a partir de la publicación del presente reglamento en el Diario Oficial La Gaceta.
