@@ -14,3 +14,4 @@ Emite resoluciones DG-019-98 y DG-021-98
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-01 | la propia norma |
+| 2 | 2024-07-04 | Resolución 170 (2024-07-04) |

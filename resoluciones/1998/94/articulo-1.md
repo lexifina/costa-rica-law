@@ -30,3 +30,5 @@ MT6 25 548 126450
 Dir. de Colegio Técnico Prof. 3
 MT5 25 541 124450
 MT6 26 559 129350
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución N° DG-RES-170-2024 del 4 de julio de 2024, se acordó modificar el Manual de Clases Anchas, contenido en la Resolución N° DG-055-97 del 5 de junio de 1997 y sus reformas, así como el Manual Institucional de la Imprenta Nacional, contenido en la Resolución N° DG-021-98 del 24 de febrero de 1998 y sus reformas, con el fin de estandarizar la redacción dispuesta en el Factor de Clasificación de Requisitos, Subfactor Experiencia en Funciones, de las clases de puesto, de la siguiente manera:
+[imagen] )
