@@ -1,0 +1,36 @@
+EMPRESA DE SERVICIOS PUBLICOS DE HEREDIA, SOCIEDAD ANÓNIMA
+CONSENTIMIENTO INFORMADO
+PARA PERSONAS JURÍDICAS
+USO DE LOS DATOS PERSONALES SUMINISTRADOS
+A LA EMPRESA DE SERVICIOS PUBLICOS
+DE HEREDIA, SOCIEDAD ANONIMA.
+El suscrito _____________________ cédula de identidad número ___________, en mi condición de (presidente/ secretario/tesorero) ______________, con carácter de apoderado generalísimo sin límite de suma de la sociedad denominada ____________cédula jurídica ____________ a nombre de mi representada, otorgo consentimiento informado a la Empresa de Servicios Públicos de Heredia SA conforme a lo dispuesto en la Ley No. 8968 Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales (artículo 1 y 5), y su Reglamento a la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales No. 37554 (artículo 4), además manifiesto que he sido informado conforme a este artículodel alcance y trascendencia legal.
+Por lo que consiento el uso de la información personal que se me ha solicitado.
+I. INFORMACION GENERAL: La Empresa de Servicios Públicos de Heredia, Sociedad Anónima, en adelante ESPH S.A., reconoce el derecho a la autodeterminación informativa, por lo que la información personal que usted brinde será recopilada y protegida en bases de datos institucionales para el control y seguimiento de los diferentes servicios que la Empresa ofrece.
+II. UTILIZACIÓN DE DATOS PARA LOS FINES: Los datos serán utilizados con el fin de gestionar el servicio solicitado, así como una adecuada prestación de los servicios públicos, de modo que exista una comunicación efectiva empresa usuario, para fines informativos de interés (comunicación de averías, suspensiones programadas de los servicios, facturas al cobro, facturas pendientes, actualización de datos vía física en su domicilio o electrónica), convocatorias, elaborar estadísticas agregadas, así como cualquier uso referente a la prestación de los servicios públicos.
+III. TIPO DE DATOS QUE SE ALMACENA: Nombre completo con apellidos, número de cédula, dirección exacta, números telefónicos y correos electrónicos.
+IV. PROCEDIMIENTO DE ACTUALIZACION Y ELIMINACIÓN DE DATOS: La ESPH S.A., procederá a la actualización de datos como correo electrónico y número de teléfono cuando se solicite por vía digital o personalmente en la plataforma de servicios, los datos corresponderán al abonado o titular del servicio, comprometiéndose el abonado a mantener actualizada la información suministrada.
+Al incluir los nuevos datos se eliminarán los anteriores de la base de datos. En los casos de cambio de nombre del servicio se procederá conforme a lo establecido en el Reglamento de Prestación de Servicios de la ESPH S.A. Los datos del antiguo cliente se mantendrán en el histórico de la base inactiva en forma perenne.
+V. RESGUARDO Y PROTECCION DE LOS DATOS: Los datos de los clientes se almacenan bajo custodia digital en la base de datos de la ESPH S.A., en un servidor seguro de acuerdo con los parámetros de Seguridad de Información Institucional y la Ley Prodhab. Los expedientes físicos que contiene datos personales de los clientes se mantendrá bajo custodia y almacenamiento permanente en Archivo Central deposito documental Access, con acceso restringido.
+VI. DERECHO AL OLVIDO: La ESPHSA, en cuanto a cuentas pendientes que se encuentran en las bases de datos y con relación al “derecho al olvido”, tal y como lo ha manifestado la Sala Constitucional: “Al respecto, el artículo 984 del Código de Comercio establece una prescripción ordinaria de cuatro años, plazo que deberá ser tenido como límite al almacenamiento de datos referentes al historial de incumplimientos crediticios.
+Dicho plazo deberá ser computado a partir del momento en que se declaró incobrable el crédito, o bien desde que se dio su efectiva cancelación, luego de efectuado un proceso cobratorio. La idea es que dicho término ocurra una veztranscurridos cuatros años a partir del momento en que el crédito en cuestión dejó ser cobrable. “
+VII. TRANSFERIR O CEDER DATOS A TERCEROS: La ESPH podrá ceder o transferir datos a instituciones o terceros de conformidad con lo estipulado en el artículo 6 y 8 de la Ley N° 8968 Protección de la Persona frente al Tratamiento de sus Datos Personales, por los siguientes motivos:
+a) La seguridad del Estado.
+b) La seguridad y el ejercicio de la autoridad pública.
+c) La prevención, persecución, investigación, detención y represión de las infracciones penales, o de las infracciones de la deontología en las profesiones.
+d) El funcionamiento de bases de datos que se utilicen con fines estadísticos, históricos o de investigación científica, cuando no exista riesgo de que las personas sean identificadas.
+e) La adecuada prestación de servicios públicos.
+f) La eficaz actividad ordinaria de la Administración, por parte de las autoridades oficiales.
+Lo anterior cuando exista:
+a) Resolución dictada por autoridad judicial competente o acuerdo adoptado por una comisión especial de investigación de la Asamblea Legislativa en el ejercicio de su cargo.
+b) Por disposición constitucional o legal.
+c) Resolución administrativa por parte de las autoridades oficiales para la eficaz actividad de la administración, previo acuerdo de confidencialidad y no divulgación de la información.
+VIII. AUTORIZACION: Para la correcta prestación del servicio y una adecuada relación entre las partes, en cumplimiento con la normativa de Prestación de Servicios de ARESEP, el cliente autoriza:
+El uso de la información almacenada en las bases de datos para la adecuada prestación de los servicios públicos (comunicación de averías, suspensiones programadas de los servicios, facturas al cobro, facturas pendientes, envió de facturas, actualización de datos vía física en su domicilio o electrónica, o cualquier otra referente a la prestación de servicios, lo anterior bajo plataformas como:
+Mensajes texto SMS [imagen]
+Correo electrónico [imagen]
+Teléfono personal (casa de habitación o celular) [imagen]
+Consiento que la Empresa de Servicios Públicos de Heredia, Sociedad Anónima en su página electrónica sea facilitado el acceso vía web para conocer detalles sobre mi facturación (servicios brindados, montos a cancelar con detalle, clasificación del servicio), utilizando como requisito de ingreso al sistema: mi número de contrato de servicio o cédula de identidad
+He leído y entendido a plenitud el supra citado consentimiento informado, manifiesto estar de acuerdo conforme a la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales (Nº 8968) y su reglamento. En fe de lo anterior firmo en las oficinas Comerciales de la Empresa de Servicios Públicos de Heredia S.A, el día: ______________________________________
+Firma del usuario _____________________________
+Administración de Contratos y Gestión de Compras.
