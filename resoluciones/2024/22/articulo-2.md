@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución MH-DGH-RES-0001-2024, del 08 de enero de 2024, publicada en el Alcance número 11 a La Gaceta número 13 del 24 de enero de 2024.
