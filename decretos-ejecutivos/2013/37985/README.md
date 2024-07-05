@@ -18,3 +18,4 @@ Reglamento a la Ley de Armas y Explosivos
 | 3 | 2018-06-22 | Decreto Ejecutivo 41258 (2018-06-22) |
 | 4 | 2018-10-05 | Decreto Ejecutivo 41418 (2018-10-05) |
 | 5 | 2022-06-20 | Decreto Ejecutivo 43858 (2022-06-20) |
+| 6 | 2024-07-05 | Decreto Ejecutivo 44634 (2024-07-05) |
