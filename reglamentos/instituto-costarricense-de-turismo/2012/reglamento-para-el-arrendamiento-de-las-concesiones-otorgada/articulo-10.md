@@ -1,1 +1,0 @@
-Artículo 10.—Cuando se compruebe que el arrendatario está realizando actos que van en contra del Plan Maestro del Proyecto y de la normativa que rige el Polo Turístico Golfo de Papagayo, el Instituto podrá acordar la cancelación del contrato de arrendamiento, sin perjuicio de los eventuales procedimientos que puedan realizarse en contra de la concesionaria arrendante.

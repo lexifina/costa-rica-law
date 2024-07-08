@@ -1,1 +1,0 @@
-Artículo 5º—Los contratos de arrendamiento, parciales o totales, pagarán al Instituto, independientemente del plazo concedido, el canon que se encuentre vigente para efecto de las cesiones parciales y totales al momento de la solicitud de previo a su aprobación, reembolsable solamente en caso de que el Instituto no apruebe el arrendamiento.
