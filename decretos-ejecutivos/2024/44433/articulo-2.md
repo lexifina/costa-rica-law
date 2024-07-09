@@ -1,1 +1,0 @@
-Artículo 2 º- Deróguese el Decreto Ejecutivo número 44387-H de fecha 24 de enero de 2024, publicado en el Alcance número 44 a La Gaceta número 40 de fecha 01 de marzo de 2024, a partir de la vigencia del presente decreto.
