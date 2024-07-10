@@ -1,0 +1,1 @@
+Artículo 16.-Libro de actas. Existirá un libro de actas en el que, una vez firme las actas respectivas, se transcribirán inmediatamente. El manejo, cuido y custodia de dicho libro de actas, será total responsabilidad de la Secretaría. Dicho Libro deberá tener razón de apertura y cierre de conformidad con la legislación al respecto.

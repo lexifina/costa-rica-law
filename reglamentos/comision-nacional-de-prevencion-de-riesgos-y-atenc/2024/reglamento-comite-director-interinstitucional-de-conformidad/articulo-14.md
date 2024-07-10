@@ -1,0 +1,1 @@
+Artículo 14.-Comunicación. Una vez que los acuerdos queden en firme, serán comunicados a los interesados, por la Secretaría del Comité Director Interinstitucional, salvo que ésta disponga que otra persona realice la comunicación. Los acuerdos, los actos y las resoluciones del Comité, serán notificados a las partes de los procedimientos, y comunicados a los interesados.

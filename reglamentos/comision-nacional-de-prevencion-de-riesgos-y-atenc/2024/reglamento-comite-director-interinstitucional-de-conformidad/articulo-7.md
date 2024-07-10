@@ -1,0 +1,1 @@
+Artículo 7º-Privacidad de las sesiones. Las sesiones del Comité Director Interinstitucional serán privadas, pero este podrá disponer, acordándolo así por la unanimidad de los miembros presentes, que tenga acceso a dichas sesiones el público en general o bien determinadas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.

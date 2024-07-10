@@ -1,0 +1,1 @@
+Artículo 9º-Mociones. Los miembros del Comité Director Interinstitucional podrán en cualquier momento de la Sesión presentar mociones sobre los asuntos que se estén discutiendo, y aquellas que se refieran a cuestiones de orden o procedimiento tendrán prioridad en la discusión.

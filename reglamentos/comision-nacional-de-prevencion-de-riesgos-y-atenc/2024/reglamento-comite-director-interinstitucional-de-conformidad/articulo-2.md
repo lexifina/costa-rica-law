@@ -1,0 +1,3 @@
+CAPÍTULO II
+De su conformación y facultades
+Artículo 2º-Conformación del Comité Director Interinstitucional. Este Comité Director Interinstitucional, estará conformado por la Junta Directiva de la Comisión Nacional para la Prevención de Riesgos y Atención de Emergencias, más los jerarcas del Ministerio de Educación Pública, el Instituto Costarricense de Ferrocarriles, el Consejo Nacional de Vialidad y el representante de la Firma de Implementación General, quien actuará con voz pero sin voto, para apoyar en la coordinación del programa, funciones que se definirán en el Manual de Operaciones del Programa.
