@@ -1,0 +1,1 @@
+Artículo 13.-De la atención de denuncias trasladadas por la Contraloría General de la República: El Concejo Municipal atenderá bajo los mismos criterios antes indicados, las denuncias que le sean remitidas por el Órgano Contralor, y podrá dar prioridad a su atención de conformidad con el contenido de lo denunciado.
