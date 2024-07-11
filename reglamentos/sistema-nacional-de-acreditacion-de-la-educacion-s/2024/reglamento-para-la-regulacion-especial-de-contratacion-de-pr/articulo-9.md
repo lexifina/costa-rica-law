@@ -1,0 +1,1 @@
+Artículo 9º-Previsión presupuestaria. Para responder al pago de los servicios de los profesionales nombrados, la DSAG deberá asegurar que se cuente con recursos financieros suficientes para cada período presupuestario.

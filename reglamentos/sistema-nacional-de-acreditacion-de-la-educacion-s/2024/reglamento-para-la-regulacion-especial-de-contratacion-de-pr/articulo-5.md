@@ -1,0 +1,3 @@
+CAPÍTULO II
+Registro de Profesionales
+Artículo 5º-Registro de Expertos. El SINAES contará con una plataforma como instrumento idóneo donde los profesionales interesados podrán registrar y ofrecer sus servicios de acuerdo con su especialidad académica, méritos en docencia, investigación y gestión académica. Cada profesional accederá de forma personal al Registro de Expertos (REX), cumpliendo con cada uno de los requisitos para que, oficialmente, quede registrado como un posible candidato a considerar en los procesos de acreditación de conformidad con los requerimientos internos de la institución.

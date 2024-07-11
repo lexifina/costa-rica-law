@@ -1,0 +1,1 @@
+Artículo 3º-Excepciones: Las regulaciones contenidas en el presente reglamento no son aplicables para la atención de los procedimientos de contratación establecidos en la Ley General de Compras Públicas No. 9986 del 31 de mayo de 2021.

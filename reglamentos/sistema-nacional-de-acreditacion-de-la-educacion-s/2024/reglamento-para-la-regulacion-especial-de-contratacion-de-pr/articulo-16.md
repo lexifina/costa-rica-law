@@ -1,0 +1,1 @@
+Artículo 16.-Modificaciones contractuales. Cualquier variación a los elementos esenciales del contrato se efectuará previa justificación y conforme con los lineamientos y las disposiciones internas, debidamente ajustadas a derecho.

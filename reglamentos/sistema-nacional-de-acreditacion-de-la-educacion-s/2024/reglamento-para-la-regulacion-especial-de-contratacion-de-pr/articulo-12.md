@@ -1,0 +1,1 @@
+Artículo 12.-Verificación final del cumplimiento de requisitos: Cada expediente de contratación deberá contar con la certificación de cumplimiento o verificación final de los requisitos establecidos para las contrataciones relativas a la actividad ordinaria.

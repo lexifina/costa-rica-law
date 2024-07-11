@@ -1,0 +1,1 @@
+Artículo 11.-Formalización contractual. Una vez conformado el expediente, este será trasladado por la DSAG a la Asesoría Legal quien deberá elaborar un contrato para este procedimiento, en el cual se establezcan las condiciones de responsabilidad y las obligaciones de ambas partes para su efectiva ejecución.
