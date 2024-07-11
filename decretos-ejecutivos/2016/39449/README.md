@@ -14,3 +14,4 @@ Reglamento sobre la Protección de los Jerarcas del Poder Ejecutivo y Dignatario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-22 | la propia norma |
+| 2 | 2024-07-11 | Decreto Ejecutivo 44637 (2024-07-11) |
