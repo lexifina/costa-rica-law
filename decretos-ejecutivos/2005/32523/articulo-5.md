@@ -1,1 +1,0 @@
-Artículo 5º—Área de Asesoría Legal. La Asesoría Legal estará a cargo de un profesional en Derecho cuyo currículum lo acredite para el efectivo desempeño de su cargo. Estará subordinada a la Dirección General y sus responsabilidades serán coordinar y asesorar todo lo relacionado con los asuntos legales, tanto de carácter sustantivo como administrativo de la institución.
