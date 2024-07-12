@@ -1,2 +1,0 @@
-Artículo 11.—El predio donde se pretenda ubicar e instalar la obra constructiva deberá tener como área mínima la cantidad 120 metros cuadrados, con un mínimo de 6,0 metros de frente; salvo mejor criterio según Plan Regulador; los accesos se regularán conforme a la Ley de Construcciones, y a los reglamentos nacionales de construcción y fraccionamiento, sin perjuicio de las disposiciones propias de la Municipalidad.
-(Así reformado mediante sesión rodinaria N° 304 del 11 de marzo del 2014)
