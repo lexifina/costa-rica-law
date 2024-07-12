@@ -1,0 +1,2 @@
+Artículo 19.- De la subsanación de requisitos.
+En caso de que el interesado en arrendar el estadio, al momento de realizar la solicitud hubiese omitido incorporar información o documentación subsanable y que por motivos legales o técnicos fuere requerida para conceder el arrendamiento, deberá la administración del estadio, en el término de 2 días contados a partir de la recepción de la solicitud, emplazar por cinco días al solicitante al final del plazo otorgado no cumpliere la prevención, la solicitud se tendrá por desestimada y así se hará constar en la resolución final.

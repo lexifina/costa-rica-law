@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación.
+Las disposiciones contenidas en el presente reglamento son de orden público, interés social y tiene por objeto establecer las políticas, las normas y acciones para el uso, operación y conservación de las instalaciones deportivas dentro del Estadio Municipal de Puriscal, por lo cual es de cumplimiento obligatorio para la administración de los usuarios, arrendatarios y demás personas que de alguna otra forma utilicen o efectúen trabajos en las instalaciones de dicho inmueble.
