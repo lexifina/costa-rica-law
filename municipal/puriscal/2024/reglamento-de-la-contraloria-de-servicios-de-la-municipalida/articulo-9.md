@@ -1,0 +1,1 @@
+Artículo 9.- Asignación de Recursos.- La Contraloría de Servicios contará con los recursos materiales y tecnológicos, necesarios para el cumplimiento eficiente y efectivo de los objetivos definidos en la Ley N° 9158 y este Reglamento.

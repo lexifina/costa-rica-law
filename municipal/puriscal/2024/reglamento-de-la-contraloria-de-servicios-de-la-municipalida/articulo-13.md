@@ -1,0 +1,1 @@
+Artículo 13.- Mediación y acompañamiento. Actuar como oficina mediadora y de acompañamiento de los usuarios cuando estos consideren que se les ha violentado sus derechos como administrados, en la prestación de los servicios que brinda la Municipalidad.

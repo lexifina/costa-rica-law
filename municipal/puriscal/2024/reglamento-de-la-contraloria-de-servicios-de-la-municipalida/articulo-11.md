@@ -1,0 +1,1 @@
+Artículo 11.- Asesoría y colaboración. El (a) Contralor (a) podrá requerir la asesoría, colaboración y facilidades necesarias por parte de los diferentes órganos y unidades de la organización para el cabal cumplimiento de sus funciones. En casos muy calificados también podrá requerir la asesoría necesaria de expertos externos a la Municipalidad.

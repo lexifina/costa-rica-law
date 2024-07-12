@@ -1,0 +1,1 @@
+Artículo 8.- Causales de Despido.- Al contralor o contralora de Servicios le serán aplicables las causales de despido del Código Municipal, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Puriscal, Código de trabajo, y demás causales que establezcan las leyes aplicables a los funcionarios públicos.
