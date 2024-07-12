@@ -1,0 +1,1 @@
+Artículo 14.-Incompatibilidades para la contratación pública. La unidad a cargo de los procesos de contratación pública debe adoptar las medidas de verificación necesarias para evitar violaciones al régimen de prohibiciones establecido en la Sección I y II del capítulo V denominado "Régimen de Prohibiciones" de la Ley General de Contratación Pública y su Reglamento.

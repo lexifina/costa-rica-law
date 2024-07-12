@@ -1,0 +1,1 @@
+Artículo 31.-Aceptación de trato preferente. Las personas que laboran para RECOPE no deben aceptar ningún trato de favor o situación que implique privilegio o ventaja injustificada por parte de personas físicas, entidades públicas o privadas.

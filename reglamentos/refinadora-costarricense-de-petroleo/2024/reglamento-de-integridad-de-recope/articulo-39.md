@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 39.-Carácter complementario. Esta normativa es complementaria de las leyes que regulan la probidad, la corrupción y enriquecimiento ilícito en la función pública y del marco legal empresarial. Todas las personas que laboran para RECOPE, además de lo regulado en estas normas, están obligadas a cumplir con las leyes conexas, la normativa vigente en el tema, incluyendo la Directriz D-2-2004-CO "Directrices Generales sobre Principios y Enunciados Éticos a observar por parte de los jerarcas, titulares subordinados, funcionarios de la Contraloría General de la República, Auditorías Internas y Servidores Públicos en General" y cualquier otra vigente que resulte de aplicación.

@@ -1,0 +1,2 @@
+Artículo 37.-Revelación de agendas. Las personas dentro del ámbito de aplicación de este Reglamento tienen la obligación, cuando así sea requerido, de hacer públicas sus agendas de trabajo, es decir, los compromisos, reuniones, eventos, viajes y actividades que realizan en el ejercicio de sus funciones.
+La revelación de agendas tiene como objetivo garantizar la transparencia en la gestión pública, permitiendo que la ciudadanía conozca las actividades realizadas por los servidores públicos y pueda supervisar su desempeño.

@@ -1,0 +1,2 @@
+Artículo 25.-Prestación de servicios a terceros. El ersonal de RECOPE no debe dirigir, administrar, patrocinar, representar o prestar servicios remunerados o no, a personas que gestionen o exploten concesiones o privilegios de la administración o que fueren sus proveedores o contratistas, con las excepciones de la ley para actividades académicas, en cuyo caso se requerirá la aprobación previa de la Gerencia General.13
+13 Directriz D-2- 2004 de la Contraloría General, punto 1.4. inciso 14

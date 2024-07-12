@@ -1,0 +1,2 @@
+Artículo 40.-Deber de seguimiento por parte de los órganos competentes. Será responsabilidad de la persona que ostente el cargo de presidente y de los titulares subordinados establecer, mantener, perfeccionar y evaluar las medidas de control que sean necesarias para cumplimiento de este Reglamento, así como su adecuado seguimiento.
+La Auditoría Interna deberá contemplar dentro de su universo auditable, la fiscalización de las actuaciones de los responsables de esta normativa.

@@ -1,0 +1,2 @@
+Artículo 32.-Información confidencial. El personal de RECOPE no debe participar, directa o indirectamente, en transacciones comerciales o financieras, aprovechándose de información confidencial de la cual tengan conocimiento debido a su cargo, de forma tal que ello les confiera una situación de privilegio de cualquier carácter, para sí, o para terceras personas.17
+17 Directriz D-2- 2004 de la Contraloría General, punto 1.4. inciso 6.

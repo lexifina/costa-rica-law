@@ -1,0 +1,3 @@
+Artículo 19.-Colaboraciones para viajes, pago de estudios y otras liberalidades. Ninguna persona que labore en RECOPE, en virtud de su gestión, podrá solicitar o recibir de personas físicas o jurídicas, directa o indirectamente, colaboraciones para viajes, aportes en dinero, pago de estudios o cursos, u otras liberalidades semejantes, con excepción de las becas oficiales, para su propio beneficio o de una persona ligada por parentesco o afinidad en los términos señalados en el artículo anterior7.
+7 Directriz D-2- 2004 de la Contraloría General, punto 1.4. inciso 8
+Tampoco podrá aceptar remuneraciones en dinero o especie, ni patrocinio de las personas usuarias interesadas en un proceso, por actividades relacionadas con el ejercicio del cargo.

@@ -1,0 +1,3 @@
+Artículo 23.-Regalos del personal. No se deben aceptar regalos, invitaciones o atenciones sociales del personal, fuera del convencionalismo social, que puedan dar motivo razonable a que una persona que le observe dude de su imparcialidad en el ejercicio de las funciones de supervisión y disciplina que les corresponden respecto a estos.
+El personal de RECOPE puede tener relaciones estrictamente personales, ajenas al ejercicio de su cargo, que eventualmente podrían implicar la recepción de un obsequio con ocasión de sus circunstancias, festejos o relaciones estrictamente personales, lo cual no podría calificarse como una conducta indebida10.
+10 Dictamen N° C-305-2012 del 7 de diciembre del 2012.

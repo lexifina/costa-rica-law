@@ -1,0 +1,1 @@
+Artículo 13.-Consideración de los conflictos de interés en procesos de selección de personal. La Unidad a cargo de los procesos de selección de personal debe adoptar medidas que les permitan identificar eventuales situaciones de conflictos de interés, que puedan afectar a aspirantes a puestos en RECOPE, y valorar su relevancia en aras de determinar su condición de idoneidad.

@@ -1,0 +1,6 @@
+Artículo 6°-Principios esenciales para el manejo de la corrupción. El personal de la Empresa y las autoridades encargadas de la gestión de la ética en RECOPE, frente a los problemas de este tipo, deben cumplir los siguientes principios:
+. Servir al interés público: debe asegurarse que la función pública sea ejercida buscando la satisfacción del interés público, con apego a la legalidad, sin la menor consideración de provecho o ventaja personal.
+2 Definición dada por la Organización para la Cooperación y el Desarrollo Económicos (OCDE).
+. Transparencia y escrutinio: los intereses y relaciones privadas del personal de la Empresa que puedan comprometer el ejercicio desinteresado de las funciones públicas deben ser revelados de manera apropiada y oportuna, como garantía de transparencia y correcta gestión de las situaciones de conflictos de interés.
+. Promover la responsabilidad individual y ejemplo personal: las personas trabajadoras deben comportarse en todo momento con integridad, y asumir la responsabilidad de organizar sus asuntos privados para evitar los conflictos de interés.
+. Protección de la confianza y credibilidad de las funciones empresariales: Adopción de medidas efectivas y oportunas que den solución a los comportamientos antiéticos.

@@ -1,0 +1,2 @@
+Artículo 15.-Ejemplo de las personas en puesto de Titular Subordinado. Las personas en puesto de Titular Subordinado deberán dar el ejemplo personal al organizar sus intereses privados de manera que quede protegida su propia reputación de integridad y la de la Empresa5.
+5 Artículo N° 13 inciso a) de la Ley General de Control Interno. Adicionalmente, ver: OECD guidelines for Managing Conflict of Interest in the Public Service, punto 2.1.

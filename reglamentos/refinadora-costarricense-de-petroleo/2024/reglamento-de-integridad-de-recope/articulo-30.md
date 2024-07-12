@@ -1,0 +1,3 @@
+Artículo 30.-Emisión de cartas de recomendación. El personal de RECOPE no debe aceptar o emitir cartas de recomendación, haciendo uso de su cargo, en beneficio de personas o grupos específicos para procurar nombramientos, ascensos u otros beneficios.
+Lo anterior, excluye las solicitudes de certificación y evaluación con fines laborales, así como las recomendaciones de tipo académico, emitidas en ese carácter. En el supuesto anterior, no podrá utilizarse papelería u otros recursos de RECOPE, ni tampoco la referencia del cargo.16
+16 Directriz D-2- 2004 de la Contraloría General, punto 1.4. inciso 16.

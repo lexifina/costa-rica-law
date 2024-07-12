@@ -1,0 +1,5 @@
+Artículo 33.-Participación política y uso indebido del cargo para beneficio de agrupaciones políticas18.
+18 Artículo N° 146 Código Electoral.
+Se prohíbe al personal de RECOPE dedicarse a trabajos o discusiones de carácter político-electoral, durante las horas laborales y usar su cargo para beneficiar a un partido político. Los titulares subordinados inmediatos de dicho personal serán los responsables de vigilar el cumplimiento de esta disposición.
+Quienes ejerzan la presidencia de RECOPE, los integrantes de Junta Directiva y Gerentes no podrán participar en las actividades de los partidos políticos, asistir a clubes ni reuniones de carácter político, utilizar la autoridad o influencia de sus cargos en beneficio de los partidos políticos, colocar distintivos en sus viviendas o vehículos, ni hacer ostentación partidista de cualquier otro género.
+También se prohíbe a las personas en puesto de Auditor, Sub auditor y personal de la auditoria de participar en actividades político-electorales, conforme lo dispuesto en el Art. 34 d) de la Ley General de Control Interno.
