@@ -1,3 +1,0 @@
-Transitorio I: Sistema de Trazabilidad.
-Durante los primeros 8 meses de la entrada en vigor del presente reglamento, se deberá desarrollar e implementar el sistema de trazabilidad indicado en el artículo 25 de la Ley 10113.
-Durante ese período el Ministerio de Agricultura y Ganadería (MAG), el Ministerio de Salud (MS) y el Instituto Costarricense sobre Drogas (ICD), coordinarán entre ellas la fiscalización y control desde la adquisición de las semillas por las personas productoras hasta la adquisición de la materia prima por los laboratorios y las industrias autorizadas, el transporte, almacenamiento, comercialización o exportación de los productos finales, incluyendo la adecuada disposición de los residuos, de conformidad con el presente reglamento.
