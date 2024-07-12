@@ -14,3 +14,4 @@ Reglamento para la realización de pruebas toxicológicas a todo el personal de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-05 | la propia norma |
+| 2 | 2024-07-12 | Decreto Ejecutivo 44631 (2024-07-12) |
