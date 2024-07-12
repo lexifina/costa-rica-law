@@ -1,0 +1,20 @@
+Artículo 6°-Comité de Contratación de Combustible (CCC).
+6.1 Funciones.
+El Comité de Contratación de Combustible (CCC) será la instancia funcional encargada de realizar las recomendaciones finales en los procedimientos de contratación de la actividad ordinaria que son aprobados por la Junta Directiva y aprobar aquellos que están bajo su propia competencia o delegados por la Junta Directiva. Además, deberá velar por la eficiencia, transparencia y debido proceso en las contrataciones que se realicen dentro de la actividad ordinaria de RECOPE.
+6.2 Integración.
+El Comité de Contratación de Combustible estará integrado por la persona que ocupe el cargo de titular en la Gerencia General, Dirección de Operaciones, Dirección de Desarrollo, Dirección de Aseguramiento y Dirección de Administración y Finanzas. La Presidencia del Comité estará a cargo de la Gerencia General. El cargo de la Vicepresidencia del Comité será asumido por la Dirección de Operaciones.
+6.3 Suplencias.
+En caso de ausencia de la persona que ostente la Presidencia del Comité, el cargo lo asumirá la Vicepresidencia. En caso de ausencia simultánea de la Presidencia y de la Vicepresidencia, la Presidencia será asumida por la Dirección de Administración y Finanzas.
+6.4 Sesiones.
+El Comité se reunirá cada vez que sea convocado por la Presidencia o la Vicepresidencia, conforme sea demandado por parte de unidad gestionante encargada de tramitar las modalidades de contratación reguladas en el artículo 5 de este Reglamento. El Comité podrá excepcionalmente realizar sesiones virtuales, debiendo garantizarse en éstas, la simultaneidad, la deliberación y la integración de la información.
+Las sesiones del Comité serán privadas y deberán grabarse en audio y video. De cada sesión se levantará un acta de conformidad con lo establecido en el artículo 56 de la Ley General de la Administración Pública.
+Podrán tener acceso a las sesiones personas internas y externas a la Empresa, cuando así lo disponga el órgano colegiado mediante un acuerdo unánime de las personas integrantes. Sin necesidad de acuerdo previo, podrá asistir a las sesiones del Comité, con voz, pero sin voto, personal de la unidad gestionante en aquellas sesiones en que se tramiten contrataciones correspondientes a su dependencia.
+Las personas integrantes del Comité no devengarán pago de dietas por su participación en las sesiones.
+6.5 Quórum para sesionar.
+El quórum para sesionar será de la mitad más uno de sus integrantes.
+6.6 Votación.
+Las personas integrantes del Comité deberán votar cada uno de los asuntos sometidos a su conocimiento, también podrán salvar su voto en forma razonada. En ningún caso podrán abstenerse de votar, salvo por impedimento legal. Las causales de impedimento se regirán por lo establecido en el artículo 12, siguientes y concordantes del Código Procesal Civil. La abstención y recusación se regirán por lo establecido en la Ley General de la Administración Pública.
+6.7 Acuerdos.
+Para su validez, los acuerdos del Comité se tomarán por mayoría absoluta y serán de acatamiento obligatorio. En caso de empate, decidirá la Presidencia, quien contará con doble voto. Todos los acuerdos del Comité adquieren firmeza en la sesión de su adopción.
+6.8 Actas
+De cada sesión del Comité se levantará un acta que contendrá: la fecha exacta de la reunión, el horario de inicio y finalización, y el lugar donde se llevó a cabo; los nombres de los integrantes del CCC presentes en la sesión, así como de los invitados que hayan participado. Se detallarán los temas que se abordaron en la reunión, siguiendo el orden en que fueron discutidos, para lo cual se realizará una transcripción literal de la sesión para documentar en detalle los debates y argumentos expresados. El acta de cada sesión del CCC será aprobada en la siguiente sesión ordinaria del Comité y solo podrá abstenerse de votar aquel integrante que no haya asistido a la sesión. En caso de disconformidad con los acuerdos adoptados o con el contenido del acta, los miembros del CCC podrán presentar un recurso de revisión con base en lo establecido en el artículo 55 de la Ley General de la Administración Pública.

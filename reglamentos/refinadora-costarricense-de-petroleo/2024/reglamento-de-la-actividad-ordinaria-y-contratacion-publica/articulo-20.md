@@ -1,0 +1,2 @@
+Artículo 20.-Reclamos económicos.
+El acto administrativo mediante el cual se apruebe o rechace el reclamo económico que presenten los contratistas, debe ser emitido por quien tenga competencia para adoptarlo según la cuantía a reconocer conforme a los niveles de competencia regulados en el artículo 18 de este reglamento. Corresponderá a la Gerencia General aprobar los reclamos cuya cuantía sean competencia de la Junta Directiva.

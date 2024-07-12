@@ -1,0 +1,3 @@
+Artículo 10.-Confidencialidad de la información.
+La información enviada por los proveedores para la inscripción en el Registro de Proveedores será de carácter confidencial, así como el expediente que se conforme para tal efecto.
+Cuando en los concursos se hubiese previsto la utilización del mecanismo de mejora de precio, los oferentes podrán conocer el precio de las ofertas hasta que se realice el acto final de apertura de la mejora de precios. El expediente administrativo durante las etapas de inicio del proceso de compra y proceso de contratación de la actividad ordinaria serán de carácter público hasta que se formalice la adjudicación del concurso.

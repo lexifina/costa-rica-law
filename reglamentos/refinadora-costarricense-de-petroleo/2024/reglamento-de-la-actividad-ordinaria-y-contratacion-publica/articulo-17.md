@@ -1,0 +1,2 @@
+Artículo 17.-Normativa aplicable.
+En estricto acatamiento al principio de legalidad que rige el actuar de la Administración Pública, la actividad de contratación pública de la actividad no ordinaria llevada a cabo por RECOPE se rige por la Ley General de Contratación Pública N° 9986 y su Reglamento, el presente Reglamento y la Normativa Interna en Contratación Pública. Ésta última será aprobada por la Gerencia General a solicitud de la Dirección de Administración y Finanzas y el Departamento de Proveeduría.
