@@ -13,8 +13,10 @@ D. Impugnación por el sujeto pasivo.
 Dentro de los diez días hábiles siguientes a la fecha de notificación del traslado de cargos, el sujeto pasivo puede impugnar por escrito, por los medios que establezca la Administración Tributaria, los cargos formulados, debiendo especificar los hechos y las normas jurídicas en que fundamenta su reclamo, alegar las defensas que considere pertinentes y aportar las pruebas que considere pertinentes, con respecto a los hechos que se le atribuyan.
 Vencido el plazo de diez días a que se refiere este artículo, no cabe ninguna impugnación. En caso de presentarse la impugnación de forma extemporánea, la misma será rechazada ad portas, quedando posibilitado el obligado tributario a presentar sus alegatos en las etapas recursivas subsecuentes. La Administración Tributaria deberá poner en conocimiento al interesado, notificando el carácter extemporáneo de la impugnación presentada.
 El contribuyente podrá pagar bajo protesta, el monto del tributo, junto con los intereses respectivos.
-E. Resolución de la Administración Tributaria.
-Interpuesta o no la impugnación dentro del plazo de diez días hábiles establecido en el apartado D) de este artículo, el Gerente y Subgerente de la Administración Tributaria Territorial competente, o el Director y Subdirector de la Dirección de Grandes Contribuyentes Nacionales, deberán dictar y firmar en forma conjunta la resolución que determina la obligación tributaria.
+E. Resolución que determina la obligación tributaria.
+(Así reformado el enunciado anterior por el artículo 1° del decreto ejecutivo N° 44597 del 12 de julio del 2024)
+Interpuesta o no la impugnación dentro del plazo de diez días hábiles establecido en el apartado D) de este artículo, el titular del órgano competente de la Dirección General de Tributación deberá dictar y firmar la resolución que determina la obligación tributaria.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44597 del 12 de julio del 2024)
 La Administración Tributaria deberá dictar y notificar la resolución al sujeto pasivo dentro los dos meses siguientes al vencimiento del plazo para interponer el reclamo, se haya interpuesto o no la impugnación respectiva.
 Para efectos de la Administración Tributaria, este plazo será ordenatorio, debiendo notificarse la resolución, aun vencido este plazo.
 La resolución deberá atenerse a lo dispuesto en el artículo 147 del Código e indicarle al sujeto pasivo los recursos que procedan contra la misma.
