@@ -5,4 +5,5 @@ Articulo 16.-Los requisitos para la autorización de uso de las instalaciones de
 4. Cumplir con los requisitos para patente temporal contemplados en la Ley N°9015 y su respectivo reglamento.
 5. En caso de requerir los servicios públicos de electricidad, agua y recolección de residuos deberá de tramitarse de forma particular.
 6. Firmar un convenio de uso de las instalaciones.
-7. Pago del canon de arrendamiento.
+7. Pago del canon de arrendamiento, salvo los grupos de acción social los cuales deberán de presentar dentro se la solicitud el objetivo social de la actividad, para que este sea analizado por la oficina de Servicios públicos para el pago o no del canon de arrendamiento.
+(Así reformado el inciso anterior mediante publicación en La Gaceta N° 128 del 12 de julio del 2024)

@@ -5,6 +5,8 @@ Costo efectivo del servicio: Corresponde a la sumatoria de costos directos e ind
 Costos indirectos: Corresponden al 10% de gastos administrativos, calculados con la aplicación de ese porcentaje sobre el total de los costos directos.
 Espacios Públicos: Los parques municipales, parques infantiles, parques deportivos, zonas verdes, jardines, bulevares, plazas, orillas de caminos o carreteras del cantón, zonas comunales de urbanizaciones y barrios, zonas de protección, propiedades donadas a la municipalidad sin uso definido, rondas e islas sobre carreteras del cantón, riveras de ríos y demás afines.
 Eventos de afluencia masiva: Los eventos masivos son aglomeraciones de público reunidas en espacios determinados, con el objetivo de participar de actividades reguladas en su propósito, tiempo, duración y contenido (espectáculo).
+Grupos de acción social: Son aquellas personas jurídicas que se dedican a realizar programas y ayudas que buscan satisfacer necesidades básicas de la población
+(Así adicionada la definición anterior mediante publicación en La Gaceta N° 128 del 12 de julio del 2024)
 Parques Municipales: Áreas destinadas a la recreación pasiva o activa de los vecinos o visitantes, de acuerdo al uso para el cual fueron diseñados o para el cual se destinen.
 Servicio de Mantenimiento: Se entenderá por servicio de mantenimiento: la conservación, la ampliación, el mantenimiento y mejoramiento de parques y espacios públicos.
 Tasa: Tributo cuya obligación tiene como hecho generador, la prestación efectiva o potencial de un servicio público que brinda la Municipalidad, individualizando en el contribuyente, cuyo producto no debe tener un destino ajeno al servicio / razón de ser de la obligación.
