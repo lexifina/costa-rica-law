@@ -14,3 +14,4 @@ Reglamento Técnico "Prestación del suministro de los Servicios de Acueducto, A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-17 | la propia norma |
+| 2 | 2024-07-12 | Resolución 78 (2024-07-12) |

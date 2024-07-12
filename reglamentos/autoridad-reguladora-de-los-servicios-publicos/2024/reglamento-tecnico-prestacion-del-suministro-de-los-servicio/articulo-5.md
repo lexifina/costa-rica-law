@@ -96,7 +96,8 @@ Sistema de tratamiento: Conjunto de operaciones y procesos unitarios de tipo fí
 Tarifa fija: De acuerdo con la estructura tarifaria vigente, corresponde a uno de los componentes de la tarifa que deben cancelar mensualmente, los servicios de acueducto y alcantarillado sanitario que no poseen medición.
 Tarifa medida o tarifa variable: Dentro de la tarifa establecida, corresponde a la cantidad que se tiene que pagar de forma periódica y en función del consumo realizado mensualmente.
 Tarifa para la protección del recurso hídrico: Corresponde a la tarifa establecida para generar ingresos a los prestadores del servicio de acueducto, con el fin de promover proyectos orientados a la mejora de la disponibilidad y calidad del agua en las fuentes de abastecimiento del recurso hídrico.
-Unidad de consumo: Cada una de las unidades destinadas a: vivienda, comercio, industria u otras, incluidos condominios, que cuenta con instalaciones propias de agua potable, alcantarillado sanitario y pluvial, que reciben los servicios brindados por el prestador del servicio.
+Unidad de consumo: Cada una de las unidades destinadas a: vivienda,comercio, industria u otras, que cuenta con instalaciones propias de aguapotable, alcantarillado sanitario y pluvial, que reciben los servicios brindadospor el prestador del servicio.
+(Mediante resolución N° RE-0078-JD-2024 del 12 de julio del 2024, se reformó la definición anterior y se acordó suspender de manera parcial y temporal la definición de Unidad de Consumo anterior. La suspensión parcial y temporal indicada, será por un plazo de 12 meses.")
 Uso del agua: Destino o actividad que el usuario le da al servicio de agua.
 Usuario: Persona física o jurídica que hace uso del servicio público.
 Usuario autorizado: Persona física o jurídica que cuenta con autorización por escrito por parte del abonado, para efectuar trámites, presentar quejas o efectuar cualquier gestión cuando por disposición del prestador lo requiera.

@@ -1,5 +1,6 @@
 CAPÍTULO XI
 APLICACIÓN DE TARIFAS Y FACTURACIÓN
+(Nota de Sinalevi: Mediante resolución N° RE-0078-JD-2024 del 12 de julio del 2024, se acordó suspender de manera parcial y temporal este artículo. La suspensión parcial y temporal indicada, será por un plazo de 12 meses)
 Artículo 124.- Tarifas para los servicios brindados.
 Los prestadores cobrarán las tarifas y precios fijados por la Autoridad Reguladora para la prestación de los servicios de acueducto, sistema de alcantarillado sanitario, hidrantes, especiales, conexos y la tarifa para la protección del recurso hídrico (cuando aplique) y cualquier otra que se determine por la Aresep.
 Para las propiedades en las que existe más de una unidad de consumo, pero con un solo medidor, el cobro por los servicios se realizará de la siguiente manera:
