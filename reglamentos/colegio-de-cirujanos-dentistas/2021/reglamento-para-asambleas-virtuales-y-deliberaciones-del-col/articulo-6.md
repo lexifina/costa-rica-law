@@ -1,0 +1,1 @@
+Artículo 6º-El presidente de la Junta Directiva del Colegio presidirá las sesiones de Asamblea General. En su ausencia o por delegación lo hará el vicepresidente, y en ausencia de éste un Vocal. Actuará como secretario, el titular del Colegio y en su ausencia un vocal designado por el presidente.

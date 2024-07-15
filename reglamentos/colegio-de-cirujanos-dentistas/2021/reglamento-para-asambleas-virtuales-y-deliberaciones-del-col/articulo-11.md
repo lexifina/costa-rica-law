@@ -1,0 +1,1 @@
+Artículo 11.-Las mociones de orden previas a las de cualquier otro asunto que está en debate, serán puestas a votación sin discusión, aunque exista oposición y deberán ser presentadas por escrito formalmente y mediante la herramienta virtual a la Presidencia de la Asamblea, indicando que es moción de orden y se procederá a su lectura y votación.

@@ -1,0 +1,1 @@
+Artículo 7º-Los acuerdos de la Asamblea serán tomados por simple mayoría de votos de los colegiados asistentes y presentes en el momento de la votación. Es decir, la mitad más uno. En caso de empate, el voto del presidente se tomará como doble.

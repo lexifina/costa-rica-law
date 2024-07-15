@@ -1,0 +1,1 @@
+Artículo 20.-Todos aquellos asuntos que no estuviesen contemplados en esta normativa, los decidirá el presidente de la Asamblea de conformidad con la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.

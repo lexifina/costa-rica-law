@@ -1,0 +1,1 @@
+Artículo 17.-El presidente o quien presida podrá suspender en el uso de la palabra a los colegiados participantes, si se pasó del tiempo reglamentado para su intervención, si considera que la intervención se sale del tema tratado o se alude a personas o entidades con palabras o frases ofensiva e inconvenientes.

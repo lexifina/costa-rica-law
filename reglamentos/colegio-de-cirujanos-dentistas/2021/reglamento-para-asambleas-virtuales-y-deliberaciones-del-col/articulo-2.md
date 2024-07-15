@@ -1,0 +1,1 @@
+Artículo 2º-Para participar de la Asamblea Virtual del Colegio de Cirujanos Dentistas, el odontólogo (a), contará con una clave de usuario confidencial y personal que será facilitada a su correo personal reportado al Colegio de Cirujanos Dentistas, previo a la realización de la Asamblea virtual, en el plazo determinado en la convocatoria.
