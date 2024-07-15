@@ -1,0 +1,3 @@
+Artículo 56. Aceptación o rechazo de las solicitudes de prórrogas
+La respectiva Superintendencia valorará los fundamentos presentados en la solicitud de prórroga y aceptará o rechazará dicha solicitud.
+Las Superintendencias comunicaran a las entidades y empresas supervisadas, dentro del plazo de diez días hábiles contados a partir de recibida la solicitud de prórroga, la aceptación o rechazo de dicha solicitud. En caso de aceptación de la solicitud, se comunicará a la entidad o empresa supervisada el plazo adicional concedido. Dichas comunicaciones se realizarán mediante los canales oficiales de comunicación de cada Superintendencia.

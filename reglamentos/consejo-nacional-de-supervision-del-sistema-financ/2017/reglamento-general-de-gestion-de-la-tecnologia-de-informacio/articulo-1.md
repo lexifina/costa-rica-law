@@ -46,8 +46,9 @@ La pretensión última de esta estrategia es generar, bajo un esquema de supervi
 resolvió:
 Aprobar el Reglamento General de Gestión de la Tecnología de Información, de conformidad con el siguiente texto:
 REGLAMENTO GENERAL DE GESTIÓN DE LA TECNOLOGÍA DE INFORMACIÓN
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesiones N° 1876-2024 y 1877-2024 del 15 de julio del 2024, publicado en el Alcance Digital N° 134 a La Gaceta N° 130 del 22 de julio del 2024, y se transcribe a continuación:)
 CAPÍTULO I
 DISPOSICIONES GENERALES
 Artículo 1. Objeto
-Este Reglamento establece los requerimientos mínimos para la gestión de la tecnología de información que deben acatar las entidades y empresas supervisadas y reguladas del sistema financiero costarricense.
-(Así reformado por el inciso a) del artículo 116 del Reglamento sobre supervisión consolidada (Acuerdo CONASSIF 16-22), aporbado mediante session N° 1759-2022 del 26 de setiembre del 2022)
+Este reglamento tiene como finalidad establecer los requerimientos para el gobierno y la gestión de la tecnología de información y sus riesgos asociados, que deben ser acatados por las entidades y empresas supervisadas del sistema financiero costarricense.
+La presente regulación se tendrá como plenamente integrada y complementaria al marco general de gobierno y de gestión de riesgos establecido en el Reglamento de Gobierno Corporativo, Acuerdo CONASSIF 4-16 y en el marco de regulación vigente sobre gestión de riesgos de cada Superintendencia.

@@ -1,0 +1,3 @@
+Artículo 40. Comunicado de incidentes a los clientes
+Cuando la confidencialidad o integridad de la información de los clientes sea afectada debido a un incidente de seguridad de la información o de seguridad cibernética, las entidades y empresas supervisadas deberán comunicarles a estos sobre la afectación. Será responsabilidad de las entidades y empresas supervisadas definir el tipo, el alcance y el contenido mínimo de la comunicación, la cual, deberá ser oportuna, clara y con un alcance apropiado en función del incidente.
+Además, las medidas adoptadas para remediar el incidente se deben comunicar a los clientes en un plazo máximo de cinco días hábiles posteriores al cierre del incidente.

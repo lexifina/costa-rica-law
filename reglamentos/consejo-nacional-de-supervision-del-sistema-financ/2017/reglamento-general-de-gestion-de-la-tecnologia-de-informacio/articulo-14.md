@@ -1,9 +1,7 @@
-Artículo 14. Presentación de resultados de la auditoría externa de TI. Las entidades supervisadas deben convocar, previa coordinación con el supervisor, una reunión de salida para la presentación de los resultados de la auditoría externa de TI.
-El plazo otorgado para convocar la presentación de resultados de la auditoría externa será definido en los Lineamientos Generales.
-El auditor externo de TI debe presentar los resultados de la auditoría externa de TI. Los contenidos mínimos de la presentación se establecen en los Lineamientos Generales.
-En la presentación de resultados de la auditoría externa deben participar al menos las personas siguientes:
-a) Los colaboradores que estimen las superintendencias.
-b) El Gerente General de las entidades supervisadas.
-c) El responsable de la unidad de TI, o similar, de las entidades supervisadas.
-d) El auditor interno, cuando exista, de cada una de las entidades supervisadas.
-e) El presidente del comité de vigilancia, cuando exista, de cada una de las entidades supervisadas.
+Sección IV. Responsabilidades de los Órganos de Control
+Artículo 14. Responsabilidades sobre la Auditoría Interna o de la función equivalente
+En relación con las tecnologías de información, la Auditoría Interna o la función equivalente, como parte de la planificación de los estudios de la auditoría interna y su universo auditable, al menos, debe:
+a) Verificar el cumplimiento de las políticas y los procedimientos que se establezcan en relación con TI.
+b) Implementar un plan de auditoría basado en el riesgo, el cual, permita evaluar la calidad y la eficacia del marco de gobierno y gestión de TI, de la seguridad de la información y de la seguridad cibernética.
+c) Evaluar la calidad y eficacia de los planes de acción elaborados por la entidad o empresa supervisada que atenderán los hallazgos que se identifiquen como resultado de la auditoría externa de TI.
+d) Ejecutar trabajos específicos requeridos por las Superintendencias.

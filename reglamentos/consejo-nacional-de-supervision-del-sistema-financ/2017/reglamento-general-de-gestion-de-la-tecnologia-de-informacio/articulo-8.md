@@ -1,4 +1,10 @@
-Artículo 8. Gestión de TI Las entidades supervisadas son responsables de planificar, implementar, controlar y mantener un marco de gestión de TI, conforme a los procesos descritos en los Lineamientos Generales y considerando los riesgos de TI establecidos en la gestión integral de riesgos aprobada por el órgano de dirección de cada una de las entidades.
-El marco de gestión de TI debe formularse, considerando las particularidades de cada entidad supervisada, en atención a su naturaleza, complejidad, modelo de negocio, volumen de operaciones, criticidad de sus procesos y la dependencia tecnológica. Cualquier otra particularidad o aspecto puede ser considerada por la entidad supervisada o por la Superintendencia. Los procesos del marco de gestión de TI que no aplican para su modelo de negocio deberán ser justificados razonadamente mediante un estudio técnico.
-Cuando la gestión de TI sea tipificada como corporativa, la entidad puede coordinar, aplicar y mantener un único marco de gestión de TI corporativo, el cual debe contemplar los riesgos de TI establecidos en la gestión integral de riesgos aprobada por el órgano de dirección de cada una de las entidades.
-De acuerdo con las necesidades de supervisión, el riesgo identificado, o cuando se determine que el marco de gestión de TI no es acorde a las particularidades de la entidad supervisada, las Superintendencias pueden requerir, mediante resolución razonada, la inclusión de procesos en el marco de gestión de TI establecido por las entidades supervisadas.
+Sección II. Responsabilidades del Órgano de Dirección
+Artículo 8. Responsabilidades generales sobre el gobierno de TI
+En relación con el gobierno de TI, el Órgano de Dirección, al menos, debe:
+a) Aprobar el marco de gobierno y gestión de TI, así como asegurar que la declaración de apetito de riesgo incorpore el apetito, la tolerancia y la capacidad de los riesgos asociados a TI.
+b) Establecer un Comité de TI o una función equivalente y aprobar sus normas de gobierno y gestión.
+c) Aprobar las políticas, estructuras, estrategias, recursos, inversiones y presupuestos necesarios para la implementación del marco de gobierno y gestión de TI, así como para las tecnologías emergentes que se implementen.
+d) Aprobar los informes de la auditoría externa de TI que serán remitidos a las Superintendencias.
+e) Aprobar los planes de acción para la atención de los hallazgos y de los riesgos que se identifiquen como resultado de la auditoría externa de TI.
+f) Asegurar que se consideren las necesidades de las partes interesadas para lograr un equilibrio entre los objetivos del negocio y los objetivos de TI definidos por la entidad o empresa supervisada.
+g) Designar las áreas de negocio y de TI responsables de diseñar e implementar el marco de gobierno y de gestión TI.

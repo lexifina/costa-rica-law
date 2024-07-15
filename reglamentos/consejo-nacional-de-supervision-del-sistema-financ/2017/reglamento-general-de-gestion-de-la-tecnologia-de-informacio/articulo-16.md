@@ -1,6 +1,10 @@
-Artículo 16. Plan de Acción La entidad supervisada debe presentar el plan de acción con el formato y plazo establecidos en los Lineamientos Generales.
-El plan de acción debe ser aprobado por el Órgano de Dirección de la entidad supervisada y debe estar firmado por su representante legal o gerente general. Las actividades incluidas en el plan de acción deben solventar los hallazgos o mitigar los riesgos indicados en el reporte de supervisión.
-Los supervisores pueden hacer observaciones al plan de acción, sugerir mejoras o advertir sobre riesgos significativos. Si a criterio de los supervisores las actividades incluidas en el plan de acción no atienden adecuadamente los hallazgos y riesgos, el plazo solicitado es mayor al razonablemente necesario o la frecuencia de presentación de los informes de avances no permite un adecuado seguimiento al plan de acción, los supervisores deben solicitar las modificaciones pertinentes a la entidad supervisada.
-La entidad supervisada debe ejecutar las modificaciones solicitadas por el supervisor y comunicar a éste las variaciones en el plazo requerido. El plan de acción, así modificado, debe ser comunicado al Órgano de Dirección de la entidad supervisada, y debe estar firmado por su representante legal o gerente general.
-Las Superintendencias pueden coordinar el reporte y proceso de supervisión.
-La aprobación de los planes de acción por parte del supervisor procederá en aquellos casos en que así lo defina su regulación específica.
+CAPÍTULO III
+ORGANIZACIÓN DE LAS TECNOLOGÍAS DE INFORMACIÓN
+Sección I. Generalidades de la gestión de TI
+Artículo 16. Gestión de TI individual o función corporativa
+La gestión de TI de las entidades y empresas supervisadas es tipificada de manera predeterminada como gestión de TI individual.
+Los grupos y conglomerados financieros pueden solicitar al supervisor responsable, un permiso para tipificar su gestión de TI como corporativa, en cuyo caso, se podrá coordinar, aplicar y mantener un único marco de gobierno y de gestión de TI, el cual debe contemplar los riesgos de TI establecidos en la declaración de apetito de riesgo aprobada por el Órgano de Dirección para cada una de las entidades y empresas supervisadas.
+La solicitud debe contener una justificación debidamente sustentada que demuestre que se cumplen las condiciones para que la gestión de TI sea tipificada como corporativa.
+Las condiciones para tipificar la gestión de TI como corporativa están establecidos en los lineamientos generales del presente reglamento, así como el plazo de respuesta. Las Superintendencias deben coordinar la respuesta a esta solicitud.
+En el caso que se determine que la gestión de TI corporativa no atiende en forma adecuada y oportuna las funciones y obligaciones indicadas en este reglamento, para alguna de las entidades o empresas que constituyen el grupo o conglomerado, la Superintendencia responsable de la supervisión de dicha entidad o empresa puede requerir que se establezca una gestión de TI individual para la respectiva entidad o empresa.
+El proceso de intercambio de información entre Superintendencias se hará en los términos dispuestos en Reglamento sobre procedimiento de intercambio de información entre las Superintendencias del sistema financiero, Acuerdo CONASSIF 7-19.

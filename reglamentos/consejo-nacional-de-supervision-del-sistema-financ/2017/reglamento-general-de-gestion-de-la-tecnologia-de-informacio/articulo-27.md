@@ -1,0 +1,2 @@
+Artículo 27. Identificación, evaluación y monitoreo de los riesgos de tercerización de información y de los bienes y servicios de TI críticos
+Las entidades y empresas supervisadas deben identificar, evaluar y monitorear, de conformidad con sus políticas establecidas, los riesgos de tercerización de la información clasificada como confidencial o sensible, así como los riesgos de tercerización de bienes y servicios de TI críticos. Además, se deben revelar dichos riesgos en el perfil tecnológico.

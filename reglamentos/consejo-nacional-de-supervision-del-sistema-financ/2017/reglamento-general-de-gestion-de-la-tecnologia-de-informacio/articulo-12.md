@@ -1,6 +1,5 @@
-Artículo 12. Alcance y plazo de la auditoría. El supervisor debe comunicar a las entidades supervisadas el alcance y plazo de remisión de los productos entregables de la auditoría externa de TI. El alcance lo establece el supervisor mediante la definición de al menos los aspectos siguientes:
-a) Procesos y objetivos de control a evaluar, con base en el marco de gestión de TI aplicables en el momento de la solicitud de la auditoría externa de TI.
-b) Entidades supervisadas y áreas de negocio a considerar en cada proceso.
-c) Servicios de TI suministrados por proveedores de TI.
-d) El periodo de cobertura.
-El plazo otorgado para la remisión de los productos entregables será definido en los Lineamientos Generales.
+Artículo 12. Comité de TI o función equivalente
+Las entidades y empresas supervisadas deben contar con un Comité de TI o función equivalente, el cual responderá al Órgano de Dirección en sus funciones.
+Los grupos y conglomerados financieros pueden contar con un Comité de TI corporativo o funciones equivalentes a nivel corporativo, en cuyo caso se podrá coordinar, aplicar y mantener un único marco de gobierno y gestión de TI. Las condiciones para tipificar un Comité de TI como corporativo están establecidas en los lineamientos generales del presente reglamento.
+La designación de los integrantes del Comité de TI corporativo la determinará el propio grupo o conglomerado financiero y deberá asegurarse la representación de las entidades y empresas que lo integran, así como un balance entre conocimiento del negocio y de TI.
+En el caso de que se determine que el Comité de TI corporativo no atiende en forma adecuada y oportuna las funciones y obligaciones indicadas en este reglamento, para alguna de las entidades o empresas que constituyen el grupo o conglomerado, la Superintendencia responsable de la supervisión de dicha entidad o empresa puede requerir que se proceda con la conformación de un Comité individual de TI para la respectiva entidad o empresa.

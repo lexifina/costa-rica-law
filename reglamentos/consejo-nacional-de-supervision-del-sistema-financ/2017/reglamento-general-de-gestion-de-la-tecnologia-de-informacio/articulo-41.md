@@ -1,0 +1,3 @@
+Artículo 41. Información histórica de incidentes de seguridad de la información y seguridad cibernética
+Las entidades y empresas supervisadas deben mantener información histórica de los incidentes de seguridad de la información y seguridad cibernética. La información histórica deberá estar a disposición de las Superintendencias cuando estas lo requieran como parte de las labores de supervisión; en dicho caso, las Superintendencias comunicarán los canales de remisión de la información.
+El contenido y el plazo de conservación de la información histórica está establecido en los lineamientos generales del presente reglamento.

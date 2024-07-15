@@ -1,9 +1,12 @@
-Sección II:
-Auditoría Externa de TI
-Artículo 11. Auditoría de las Tecnologías de Información El supervisor solicitará a las entidades supervisadas la contratación de una auditoría externa de TI sobre sobre el marco de gestión de TI y su aplicación, lo anterior según se determine en el alcance de la auditoría definido por el supervisor.
-El intervalo entre una y otra solicitud no puede ser menor a dos años ni mayor a cuatro años, excepto, cuando el supervisor considere, con base en los resultados de la supervisión, la necesidad de adelantarla.
-La auditoría externa de TI debe cumplir con el ciclo de auditoría de TI conforme a las Normas de Auditoría y Aseguramiento de Sistemas de Información emitidas por ISACA.
-Sin embargo; los superintendentes pueden establecer mediante los Lineamientos Generales criterios complementarios para la ejecución del ciclo de la auditoría.
-El auditor externo de TI que lleve a cabo esta auditoría debe estar inscrito en el Registro de Auditores Elegibles que forma parte del Registro Nacional de Valores e Intermediarios, dispuesto en la Ley Reguladora del Mercado de Valores de conformidad con el reglamento correspondiente.
-El contrato con el auditor externo de TI debe incluir una cláusula que obligue a éste a entregar al supervisor, copia de la información recopilada y procesada que sirve como respaldo de las labores de auditoría, así como los papeles de trabajo, en un plazo máximo de cinco días hábiles contados a partir de recibida la solicitud de entrega.
-Si la unidad de TI es corporativa le corresponde a los Órganos de Dirección asegurarse que el alcance de la auditoría incluya todo aquello que corresponde a cada una de las entidades supervisadas, de tal forma, que los productos a entregar evalúen la gestión de TI a nivel de los procesos, pero también incluya aquellos riesgos particulares del negocio que desarrolla cada entidad supervisada. En caso de que se contrate una auditoría externa corporativa, los Órganos de Dirección de las entidades supervisadas deben dejar constancia de la aprobación del contrato de servicios, el cual debe cumplir con todos los requisitos establecidos en las regulaciones vigentes.
+Sección III. Responsabilidades de la Alta Gerencia y del Comité de TI o de la función
+equivalente
+Artículo 11. Responsabilidades de la Alta Gerencia sobre el gobierno y la gestión de TI
+En relación con el gobierno y la gestión de TI, la Alta Gerencia, al menos, debe:
+a) Implementar el marco de gobierno y gestión de TI aprobado por el Órgano de Dirección.
+b) Proponer al Órgano de Dirección la estrategia y los recursos requeridos para la implementación del marco de gobierno y gestión de TI.
+c) Implementar las políticas relacionadas con TI aprobadas por el Órgano de Dirección.
+d) Implementar los planes de acción para la atención de los hallazgos de la auditoría externa de TI.
+e) Asegurar que se resguarde la confidencialidad e integridad de los datos y de la información crítica de las partes interesadas y de la entidad o empresa supervisada que sea utilizada, almacenada o procesada por terceros.
+f) Asegurar que se establezcan las medidas para la gestión de los incidentes de seguridad de la información y seguridad cibernética.
+g) Asegurar que los requerimientos de seguridad de la información y de seguridad cibernética de la entidad o empresa supervisada sean de cumplimiento por parte de sus proveedores de bienes y servicios de TI.
+h) Asegurar que la gestión de los datos de la entidad o empresa supervisada se realice de manera efectiva y eficiente; asimismo, que las necesidades de confidencialidad, integridad, disponibilidad, no repudio y auditabilidad, sean atendidas, en función de sus riesgos.

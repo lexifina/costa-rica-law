@@ -1,4 +1,7 @@
-CAPITULO II
-ORGANIZACIÓN DE LAS TECNOLOGÍAS DE INFORMACIÓN
-Artículo 6. Unidad de TI La Unidad de TI es individual, cuando ésta forma parte de la estructura organizativa de la entidad supervisada, o es un proveedor de TI domiciliado en el territorio nacional o en el extranjero, que brinda servicios en forma particular a una entidad supervisada.
-La Unidad de TI es corporativa, cuando el servicio lo realiza una unidad que forma parte de la estructura organizacional de una empresa integrante del mismo grupo o conglomerado financiero al que pertenece la entidad supervisada, o bien, es un proveedor de TI domiciliado en el territorio nacional o en el extranjero, que brinda servicios a varias empresas integrantes de un mismo grupo o conglomerado financiero. La responsabilidad del gobierno, la gestión y de la seguridad de información en los servicios que estén tercerizados recaerá en las entidades supervisadas.
+CAPÍTULO II
+GOBIERNO Y GESTIÓN DE TI
+Sección I. Marco de gobierno y gestión de TI
+Artículo 6. Marco de gobierno y gestión de TI
+Las entidades y empresas supervisadas deben diseñar, implementar, controlar y mantener un marco de gobierno y gestión de TI de conformidad con: la estrategia organizacional; el apetito, la tolerancia y la capacidad de riesgo; el tamaño, complejidad, modelo de negocio y las políticas aprobadas por el Órgano de Dirección.
+Asimismo, las entidades y empresas supervisadas podrán utilizar los estándares internacionales, mejores prácticas y marcos de referencia que la industria de tecnologías ha desarrollado para la implementación del marco de gobierno y gestión de TI, sin perjuicio del cumplimiento de las disposiciones establecidas en este reglamento.
+El marco de gobierno y gestión de TI puede ser implementado en las unidades de TI, en las áreas de negocio o ser externalizado mediante servicios.
