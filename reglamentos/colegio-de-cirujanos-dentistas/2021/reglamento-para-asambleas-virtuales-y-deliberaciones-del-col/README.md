@@ -14,3 +14,4 @@ Reglamento para asambleas virtuales y deliberaciones del Colegio de Cirujanos De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-15 | la propia norma |
+| 2 | 2024-07-15 | Reglamento 0 (2024-06-19) |
