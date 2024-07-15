@@ -1,2 +1,4 @@
 Artículo 106.- Empate en las votaciones
 Cuando hubiere empate en la votación de una moción, de acuerdo o de otra disposición de la Asamblea, así como en la de un proyecto de ley, ya sea en general o en detalle, será puesto el asunto de nuevo en discusión, y si resultare otro empate en la segunda votación, se tendrá entonces por desechado el asunto sobre el cual versó la votación, el que se archivará sin más trámite.
+Se exceptúa de lo indicado en el párrafo anterior, el resultado de empate en la votación de nombramientos, ratificaciones y/o renuncias en la Comisión Permanente Especial de Nombramientos. En estos casos no se procederá con el archivo del expediente; la Comisión rendirá al Plenario Legislativo los informes que correspondan, los que tendrán el carácter de minoría, sea afirmativo o negativo, y se conocerán en el orden en que fueron presentados.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 34 del 15 de julio de 2024)
