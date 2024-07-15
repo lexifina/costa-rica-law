@@ -2,3 +2,4 @@ Artículo 5°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consulta el Alcance Digital N° 245 a La Gaceta N° 229 del 11 de diciembre de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44434 del 16 de abril del 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44543 del 21 de junio de 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44566 del 15 de julio de 2024)
