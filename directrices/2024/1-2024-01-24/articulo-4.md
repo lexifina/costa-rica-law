@@ -1,0 +1,1 @@
+Artículo 4.- El Consejo de Salud Ocupacional se encargará de orientar los esfuerzos para el cumplimiento de la presente directriz y brindar los aportes técnicos necesarios para fortalecer las acciones de capacitación, a través de una guía práctica de funcionamiento.

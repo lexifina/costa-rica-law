@@ -1,0 +1,17 @@
+TRABAJO Y SEGURIDAD SOCIAL
+DIRECTRIZ No. DUG-MTSS-CSO-1-2024
+EL CONSEJO DE SALUD OCUPACIONAL
+Con fundamento en lo dispuesto en los artículos 50, 56 y 66 de la Constitución Política de la República de Costa Rica; en el numeral 303 de la Ley No. 5395 del 30 de octubre de 1973, Ley General de Salud; en los ordinales 273, 274, 282, 284 inciso b), 288 y 300 de la Ley No. 02 del 27 de agosto de 1943, Código de Trabajo; en el artículo 41 del Decreto Ejecutivo Nº 13466-TSS del 24 de marzo de 1982, Reglamento General de los Riesgos del Trabajo y; lo establecido en el Decreto Ejecutivo N° 39408-MTSS, del 23 de noviembre del 2015, Reglamento de Comisiones y Departamentos de Salud Ocupacional.
+CONSIDERANDO
+I. Que en el año 2015 se emitió un nuevo Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional, bajo el Decreto Ejecutivo N° 39408-MTSS, es necesario actualizar la Directriz No. CSO 001-2009, denominada, "Sobre los contenidos teóricos mínimos que debe contener un programa de capacitación básica para las comisiones de salud ocupacional".
+II. Que las comisiones de salud ocupacional son reconocidas, como un instrumento de la organización de la salud y seguridad en la empresa o institución, para garantizar la participación concertada entre personas trabajadoras y empleadoras, en materia de prevención de riesgos laborales, en aquellos centros de trabajo que cuenten con 10 o más personas trabajadoras que requieren conocimientos básicos e instrumentos para desarrollar sus funciones.
+III. Que las comisiones de salud ocupacional deberán estar integradas con igual número de representantes de la persona empleadora y trabajadora y tendrán como finalidad de investigar las causas de los riesgos laborales, determinar las medidas para prevenirlos y vigilar que se cumplan las disposiciones de salud ocupacional en el centro de trabajo, de acuerdo con la normativa.
+IV. Que una de las condiciones básicas para lograr el buen desempeño de las personas integrantes de las comisiones de salud ocupacional, es la capacitación oportuna, integral y práctica, sobre aspectos técnicos básicos de salud ocupacional, la aplicación de la normativa nacional y sus responsabilidades como estructura formal dentro de las empresas e instituciones.
+V. Que es una obligación de la persona empleadora capacitar a las personas integrantes de las comisiones de salud ocupacional, como mínimo una vez al año, en materia de salud ocupacional.
+VI. Que es necesario tener un perfil básico de contenidos para la capacitación de las comisiones de salud ocupacional, según análisis de las funciones asignadas por el Código de Trabajo, el Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional y los conocimientos mínimos que requieren las personas integrantes de estas estructuras, para desarrollar su labor preventiva.
+VII. Que es necesario unificar los contenidos de la capacitación básica que deben tener las comisiones de salud ocupacional, para evitar duplicidades y maximizar los recursos de las diversas entidades públicas y privadas que brindan capacitación a estos grupos.
+Por tanto, se emite la siguiente;
+DIRECTRIZ DE CONTENIDOS DE UN PROGRAMA DE CAPACITACIÓN
+BÁSICA PARA COMISIONES DE SALUD OCUPACIONAL
+DISPOSICIONES GENERALES
+Articulo 1.- La presente directriz establece los contenidos mínimos que debe tener un programa de capacitación básica para comisiones de salud ocupacional dirigido al fortalecimiento de dichas estructuras, según las funciones que deben desarrollar de conformidad con lo dispuesto en la normativa nacional.

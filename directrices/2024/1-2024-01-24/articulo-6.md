@@ -1,0 +1,1 @@
+Artículo 6.- Deróguese la Directriz N° CSO 001-2009, denominada "Directriz sobre los contenidos teóricos mínimos que debe contener un programa de capacitación básica para las Comisiones de Salud Ocupacional", aprobada mediante el acuerdo Nº 710-09, tomado en la Sesión Ordinaria de la Junta Directiva del Consejo de Salud Ocupacional Nº 1569-2009 del 11 de marzo del 2009.

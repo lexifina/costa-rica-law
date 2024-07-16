@@ -1,0 +1,1 @@
+Artículo 5.- El Consejo de Salud Ocupacional a solicitud de la persona interesada, podrá brindar un aval técnico al programa de capacitación para comisiones de salud ocupacional, en concordancia con el perfil de contenidos que se deben abordar en el programa de capacitación básica para las comisiones de salud ocupacional establecido en esta directriz.
