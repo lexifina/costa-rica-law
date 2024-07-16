@@ -1,0 +1,5 @@
+Artículo 15. Aplicación de la evaluación.
+La evaluación se realizará mediante actividades evaluativas de proceso y resultados. En el caso de la evaluación de proceso se diseñan y aplican durante el proceso de aprendizaje y las establece la persona docente.
+La evaluación de resultados se desarrolla mediante actividades de comprobación cuya descripción general e indicadores se establecen en el diseño curricular; a partir de estos lineamientos, el docente ejecutor es el responsable de establecer la estrategia y el instrumento de evaluación, las cuales podrán aplicarse de forma ordinaria o extraordinaria, conforme a los términos siguientes:
+a) Ordinarias: Cuando la persona docente establece, dentro de su planificación curricular el día, hora y lugar para la aplicación de las actividades de comprobación e incluidas en el "Documento para la Persona Estudiante".
+b) Extraordinarias: Se realizan para reprogramas la actividad de comprobación ordinaria cuando exista ausencia justificada por parte de la persona estudiante o a criterio debidamente justificado por la persona docente o la PECE.

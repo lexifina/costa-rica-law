@@ -1,0 +1,2 @@
+Transitorio único. El Reglamento de Evaluación de los Aprendizajes aprobado por la Junta Directiva en la sesión Nº 3825 celebrada el 18 de diciembre del 2000, mantendrá vigencia hasta durante 36 meses a partir de la publicación de este reglamento y que la oferta curricular de los SCFP se encuentre alineada a lo dispuesto en el Modelo Curricular para la Formación Profesional del Instituto Nacional de Aprendizaje, de manera que cada uno regule su ámbito de aplicación, de acuerdo con su objeto.
+<span style='font-family:"Arial",sans-serif; </body>

@@ -1,0 +1,8 @@
+Artículo 7. Funciones de la evaluación de proceso:
+La evaluación de proceso tiene un rol protagónico en el aprendizaje de las personas estudiantes, ya que con ella se determina si se está logrando el nivel esperado de aprendizaje.
+La evaluación de proceso se realiza a través de la aplicación de instrumentos de evaluación que acompañan las actividades de aprendizaje.
+Las funciones de la evaluación de los aprendizajes en el proceso educativo son.
+a) Diagnóstica: determina el grado de conocimientos, saberes, habilidades, destrezas, actitudes, particularidades y expectativas de las personas estudiantes.
+Lo que permite el ajuste de las acciones que ha de tener en cuenta la persona docente para el proceso de aprendizaje del estudiantado.
+b) Formativa: toma en cuenta las necesidades, intereses y contexto de las personas estudiantes para vincularlas en todo momento y propiciar el aprendizaje situado.
+c) Formadora: toma en cuenta las necesidades intereses y contexto de las personas estudiantes para vincularlas en todo momento y propiciar el aprendizaje situado, promueve la evaluación de las personas estudiantes mediante estrategias de Autoevaluación, que es el proceso mediante el cual la persona docente comparte la responsabilidad con la persona estudiante para que se evalúe, reflexione, valore y regule, con el fin de generar su propio aprendizaje; y la Coevaluación, la cual permite a las personas estudiantes evaluarse entre sí el nivel de logro de las capacidades, lo que promueve la realimentación, un clima de confianza, responsabilidad, compromiso, respeto, tolerancia, bien común y reflexión constructiva, bajo el enfoque de derechos humanos, al reconocer el esfuerzo del grupo, para la mejora continua del aprendizaje.
