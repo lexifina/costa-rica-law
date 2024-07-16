@@ -1,0 +1,1 @@
+Artículo 27.-Formalización Contractual. Únicamente requerirán formalización los contratos derivados de procedimientos de contratación correspondientes a la prestación de un servicio o en el caso de obra pública.

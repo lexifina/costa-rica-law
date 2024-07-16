@@ -1,0 +1,1 @@
+Artículo 45.-Recurso de Revocatoria. Tratándose del recurso de revocatoria contra el acto final (adjudicación o declaratoria de infructuoso o desierto), la Proveeduría será la encargada de conducir el trámite y la resolución final.

@@ -1,0 +1,3 @@
+Artículo 48.-Finiquito. El Administrador del contrato gestionará con el contratista el finiquito del contrato una vez se haya recibido a satisfacción el objeto contractual que corresponda, para lo cual coordinará con el Proceso de Proveeduría de la Institución la elaboración del documento correspondiente.
+En los contratos de obra, la Administración deberá de realizar el finiquito dentro del plazo máximo de un año a partir de la recepción definitiva de la obra.
+En los contratos de servicios o suministros de bienes, a solicitud del Administrador del contrato, podrán pactarse finiquitos dentro de los seis meses contados a partir de la recepción definitiva.

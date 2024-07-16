@@ -1,0 +1,1 @@
+Artículo 52.-Se podrá rescindir del contrato por mutuo acuerdo cuando existan razones de interés público y no se presenten causas de resolución contractual imputables al contratista. Para ello, la Proveeduría Institucional, en coordinación con el Administrador del contrato motivarán mediante resolución administrativa las razones que fundamentan tal determinación.

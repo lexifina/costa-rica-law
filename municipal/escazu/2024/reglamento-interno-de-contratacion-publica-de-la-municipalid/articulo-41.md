@@ -1,0 +1,3 @@
+Artículo 41.-Trámite de Pago y Plazos. Los bienes y servicios se pagarán como máximo a los 30 días naturales siguientes a la recepción definitiva de los bienes o servicios.
+Para contratos de servicios continuos el plazo será de 15 días hábiles después de presentada para el cobro la factura.
+Para los contratos de obra o servicios, en los cuales se haya pactado el pago por etapas o por avance de obra, el plazo para el pago será de 15 días hábiles después de presentada la factura del avance o etapa, para el pago final, el plazo será de 30 días naturales después emitido el acto de recepción definitiva.

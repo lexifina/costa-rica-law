@@ -1,0 +1,1 @@
+Artículo 29.-Decisión Final. En cuanto a las instancias competentes para la emisión de la decisión final se aplicará lo establecido en Reglamento para definir niveles de adjudicación y autorización de compras y contratos de los procedimientos de contratación administrativa de la Municipalidad de Escazú.

@@ -1,0 +1,2 @@
+Artículo 50.-Resolución del contrato. La institución podrá resolver unilateralmente sus contratos por motivo de incumplimiento grave imputable al contratista.
+Para ello, el Administrador del contrato deberá documentar preliminarmente el incumplimiento y coordinar con la Proveeduría Institucional la orden de suspensión del contrato. Una vez suspendido el contrato, la Proveeduría Institucional tramitará el procedimiento de resolución contractual de conformidad con lo dispuesto en el artículo 114 de la LGCP.

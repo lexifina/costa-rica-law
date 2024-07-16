@@ -1,0 +1,1 @@
+Artículo 55.-La Municipalidad cuenta con un Manual de Compras Sustentables, en el cual debe ser tomado en consideración por todas las unidades solicitantes y técnicas para la elaboración de los respectivos pliegos de condiciones.

@@ -1,0 +1,16 @@
+Artículo 4º-Definiciones:
+Acto final: Acto administrativo de adjudicación, readjudicación, declaración de desierto o infructuoso con el cual se pone fin a un procedimiento de contratación pública.
+Contratación Electrónica: Proceso de contratación que se realiza, todas sus etapas, a través del Sistema Digital Unificado de Compras Públicas.
+Contratación por excepción: Contrataciones que por su propia naturaleza se encuentran excluidas de los procedimientos ordinarios de concurso.
+Contratista: Persona física o jurídica que una vez presentada su oferta es seleccionada como adjudicataria para proveer un determinado bien, servicio u obra.
+Decisión Inicial: Acto administrativo que marca el inicio del procedimiento derivado de la presentación del formulario denominado "Solicitud de Contratación" en el cual se definen los requisitos y especificaciones técnicas del bien, obra o servicio requerido, emitido por el Jerarca de cada Unidad Técnica o Solicitante, según sea el caso o por el titular subordinado y aprobado por el alcalde o Concejo Municipal según sea el caso.
+Encargado/a de Presupuesto: funcionario/a designado a lo interno como encargado de emitir las certificaciones de fondos y la realización de las reservas presupuestarias.
+Encargado General del Contrato. Funcionario responsable de la contratación que por su experiencia y grado académico cuenta con la capacidad para verificar el fiel cumplimiento de las condiciones técnicas en los diferentes contratos que suscriba la Administración Municipal.
+Fragmentación ilícita: Acto mediante el cual, la institución y sus órganos desconcentrados, fragmentan las adquisiciones de los bienes, las obras y los servicios que requiera, con el propósito de variar el procedimiento de contratación o evadir el que corresponde.
+Indispensables: Adquisición de bienes, servicios u obras, de los que no se puede prescindir y que son necesarios para el alcance de los fines institucionales.
+Impostergables: Adquisición de bienes, servicios u obras, que no puede diferirse o demorarse, de necesidad inmediata.
+Proveedor Institucional: funcionario/a de la Municipalidad encargado de instruir y tramitar los procedimientos licitatorios que se generen.
+Solicitud de Bienes y Servicios: Documento de carácter presupuestario, aprobado por el encargado/a de presupuesto, mediante el cual se separan los recursos presupuestarios correspondientes para la adquisición de bienes, servicios u obras.
+Pliego de condiciones: Documento mediante el cual se establecen los requisitos que determine la LGCP y su Reglamento, entre ellos los aspectos de admisibilidad, las especificaciones técnicas, los parámetros para verificar la calidad y el sistema de calificación de ofertas.
+Unidad Solicitante: Unidad dentro de la estructura organizacional de la Municipalidad de Escazú que gestiona ante la Proveeduría, según corresponda, la adquisición de un determinado bien, obra o servicio. También conocida como gestor de compras.
+Unidad Técnica: Unidad dentro de la estructura organizacional de la Municipalidad de Escazú que, de acuerdo con el objeto a contratar, cuenta con la experiencia necesaria para emitir criterio técnico en las diferentes etapas de los procedimientos de contratación administrativa. En ciertos casos la Unidad Técnica es al mismo tiempo Unidad Solicitante.
