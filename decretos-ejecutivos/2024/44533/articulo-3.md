@@ -1,0 +1,1 @@
+Artículo 3 º En relación con los funcionarios de la Dirección General de Aduanas, será el jerarca del Ministerio de Hacienda, quien determine con base en el a1tículo 14, párrafo segundo de la Ley General de Aduanas y mediante circular interna, si el día señalado en las horas indicadas, se les otorgará como asueto a los funcionarios de esa Dirección que laboren en ese cantón.
