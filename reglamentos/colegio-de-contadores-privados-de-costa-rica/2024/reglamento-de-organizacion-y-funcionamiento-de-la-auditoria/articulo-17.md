@@ -1,0 +1,2 @@
+Artículo 17º - Vacantes en la plaza de Auditor Interno.
+Cuando se presenten vacantes permanentes en las plazas de Auditor Interno o Sub auditor, la Junta Directiva debe ordenar al titular subordinado que corresponda, que se dé inicio al nombramiento respectivo, el cual se realizará mediante concurso público promovido por la organización, por tiempo indefinido. Mientras se resuelve el concurso, la Junta Directiva podrá nombrar a un Auditor Interno o Sub auditor de forma interina, de conformidad con lo establecido en la normativa externa e interna vigente.

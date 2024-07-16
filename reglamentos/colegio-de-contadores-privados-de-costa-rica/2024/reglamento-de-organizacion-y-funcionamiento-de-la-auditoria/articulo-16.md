@@ -1,0 +1,2 @@
+Artículo 16º - Solicitud de Dictamen de la Contraloría General de la República conforme a la normativa que rige
+La solicitud de dictamen a la Contraloría General debe ser suscrita por la Junta Directiva, aportando el expediente administrativo correspondiente. Tratándose de un órgano colegiado, la solicitud puede ser remitida por la secretaría de éste, haciendo referencia expresa al acuerdo mediante el cual se resolvió remitir la gestión.

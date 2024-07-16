@@ -1,0 +1,2 @@
+Artículo 42 - Procesamiento de la información
+Los funcionarios de la Auditoría Interna deberán identificar y analizar información que les permita cumplir con los objetivos del trabajo. Deben registrar información suficiente, confiable, relevante y útil que les permita apoyar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo, y almacenarla en el medio electrónico designado con la debida estructura documental.

@@ -1,0 +1,3 @@
+Artículo 13º - Estructura funcional
+La Auditoría Interna dispondrá de una estructura funcional interna adecuada, concordante con la razón de ser y la normativa que regula al Colegio de Contadores Privados de Costa Rica, que le permita garantizar razonablemente la efectividad en el cumplimiento de sus obligaciones legales y técnicas, y una administración eficaz y eficiente de los recursos que obtiene.
+Esa estructura deberá contar con funcionarios especializados, que reúnan condiciones de idoneidad profesional para desempeñar las funciones encomendadas. Previa aprobación de la Junta Directiva y a criterio del Auditor Interno, en el futuro se podrán establecer otras áreas de trabajo en la Auditoría Interna.

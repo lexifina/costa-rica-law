@@ -1,0 +1,2 @@
+Artículo 49º - Obligación de acudir a la conferencia final de análisis de resultados
+Los funcionarios convocados a una conferencia final para analizar un informe de auditoría en borrador tendrán obligación de asistir a dicha reunión en la fecha y hora previamente coordinada; caso contrario, deberán informarlo al Auditor (a) Interno (a) en forma justificada, con el propósito de reprogramar la Conferencia en el menor plazo posible.

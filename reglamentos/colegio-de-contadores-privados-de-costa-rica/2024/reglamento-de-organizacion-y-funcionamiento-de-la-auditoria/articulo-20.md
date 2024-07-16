@@ -1,0 +1,4 @@
+SECCIÓN QUINTA - DEL PERSONAL DE LA AUDITORÍA INTERNA
+Artículo 20º - Subordinación del personal de la Auditoría Interna
+El personal de la Auditoría Interna depende directamente del Auditor Interno y responde ante él por su desempeño. Estarán sujetos a las disposiciones administrativas aplicadas al resto de los funcionarios del Colegio; no obstante, se requiere autorización del Auditor(a) Interno(a) para el nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de su personal; todo de acuerdo con el marco jurídico que rige para la organización.
+Las regulaciones de tipo administrativo que se mencionan no deberán afectar negativamente la actividad de auditoría interna, en relación con la independencia funcional y de criterio que le asiste al Auditor Interno y a su personal.

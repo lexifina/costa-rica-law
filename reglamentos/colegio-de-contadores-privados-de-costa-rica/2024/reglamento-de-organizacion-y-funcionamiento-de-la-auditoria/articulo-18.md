@@ -1,0 +1,2 @@
+Artículo 18º - Conformación de la Auditoría Interna.
+La Auditoría Interna estará conformada por el Auditor(a) Interno(a) y el personal administrativo auxiliar (preferiblemente profesionales en Contaduría Pública o carrera afín) que se le asigne para el cumplimiento de sus funciones, sobre el cual tendrá las potestades de superior jerárquico inmediato. La conformación del equipo y sus plazas queda sujeta a la aprobación de la Junta Directiva.
