@@ -1,1 +1,1 @@
-Artículo 31.—Interpretación, reforma y derogatoria. Corresponde a la Junta Directiva interpretar, reformar y derogar el presente reglamento.
+Artículo 31.-Interpretación, reforma y derogatoria. Corresponde a la Junta Directiva interpretar, reformar y derogar el presente reglamento.

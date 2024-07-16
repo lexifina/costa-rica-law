@@ -14,3 +14,4 @@ Reglamento Orgánico del Instituto Nacional de Fomento Cooperativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-03 | la propia norma |
+| 2 | 2024-07-16 | Reglamento 4339 (2024-07-16) |

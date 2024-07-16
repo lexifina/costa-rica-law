@@ -1,1 +1,1 @@
-Artículo 12.—Derechos y obligaciones laborales. Los derechos y obligaciones laborales del Director(a) Ejecutivo(a) y el Subdirector(a) Ejecutivo(a) serán los que de acuerdo con el ordenamiento jurídico resulten aplicables para los funcionarios públicos de su naturaleza y categoría.
+Artículo 12.-Derechos y Obligaciones Laborales. Los derechos y obligaciones laborales del Director(a) Ejecutivo(a) y el Subdirector(a) Ejecutivo(a) serán los que de acuerdo con el ordenamiento jurídico resulten aplicables para los funcionarios públicos de su naturaleza y categoría.

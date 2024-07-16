@@ -1,1 +1,1 @@
-Artículo 33.—Transitorios.
+Artículo 33.-Transitorios.
