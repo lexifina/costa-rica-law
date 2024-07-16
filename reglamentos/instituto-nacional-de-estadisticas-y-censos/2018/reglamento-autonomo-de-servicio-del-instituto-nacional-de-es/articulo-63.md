@@ -1,1 +1,0 @@
-ARTÍCULO 63. Con respecto a la organización interna de la Comisión de Relaciones Laborales, se regirá por lo dispuesto en el capítulo tercero: De los órganos colegiados, del título segundo de la Ley General de la Administración Pública.

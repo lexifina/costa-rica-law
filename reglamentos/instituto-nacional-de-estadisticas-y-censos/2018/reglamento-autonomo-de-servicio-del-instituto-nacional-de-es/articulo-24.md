@@ -1,2 +1,0 @@
-ARTÍCULO 24. Se considerará ausencia la falta de un día completo al trabajo. La inasistencia a una fracción de la jornada se computará como la mitad de una ausencia.
-Dos ausencias de media jornada en un mismo mes calendario se considerarán como una ausencia. Salvo disposición legal en contrario, toda ausencia, total o parcial, se rebajará del salario, sin perjuicio de la medida disciplinaria que se le pueda aplicar al personal.

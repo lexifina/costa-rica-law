@@ -1,9 +1,0 @@
-ARTÍCULO 2. Para todos los efectos legales que se deriven de la aplicación de este Reglamento, deberá entenderse por:
-a. El INEC: El Instituto Nacional de Estadística y Censos, creado mediante la Ley n.º 7839 del 15 de octubre de 1998.
-b. El personal: Las personas físicas, sin discriminación de edad, sexo, etnia, color, origen social, idioma, religión, orientación sexual, posición económica, condición de salud, discapacidad o cualquier otra condición, que prestan sus servicios en forma material o intelectual al Instituto Nacional de Estadística y Censos, subordinadas a este, por lo cual reciben una retribución o salario, en virtud de un acto válido y eficaz de investidura. También, se considerará en esta condición a las personas contratadas por servicios especiales. Se entenderán como sinónimos de funcionario o funcionaria los conceptos de servidores, personal y empleados.
-c. Gerente: La persona representante judicial y extrajudicial, con facultades de apoderado generalísimo del Instituto Nacional de Estadística y Censos, según los alcances del artículo 27, literal a), de la Ley n.º 7839 del 15 de octubre de 1998.
-d. Dependencia encargada de la administración de personal: La dependencia encargada de los trámites y otras responsabilidades concernientes al personal, con la responsabilidad inmediata de velar por la aplicación del presente Reglamento.
-e. El Reglamento: El presente Reglamento Autónomo de Servicio del Instituto Nacional de Estadística y Censos.
-f. Relación de servicio: El vínculo que se establece entre el INEC y su personal, con el fin de ejecutar prestaciones recíprocas en aras de la eficiencia de la Administración Pública.
-g. El Consejo Directivo: La autoridad máxima del Instituto Nacional de Estadística y Censos.
-h. Titular subordinado: Persona de la Administración activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.

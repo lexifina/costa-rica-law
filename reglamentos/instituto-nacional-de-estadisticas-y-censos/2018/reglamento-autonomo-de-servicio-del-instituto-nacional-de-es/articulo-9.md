@@ -1,4 +1,0 @@
-ARTÍCULO 9. En todo nombramiento habrá un período de prueba hasta de tres meses.
-Durante este período y sin previo aviso, cualquiera de las partes podrá dar por terminada la relación que los une.
-Este período de prueba se aplicará también en los casos de traslado o ascenso, siempre y cuando la persona en ascenso o traslado tenga un puesto en propiedad, de tal manera que la persona trasladada o ascendida podrá ser reintegrada a su anterior puesto cuando la jefatura inmediata compruebe que no reúne las condiciones requeridas o no es eficiente en el desempeño del puesto en cuestión. Los ascensos y nombramientos se considerarán consolidados una vez aprobado el período de prueba.
-El puesto que deja la persona no podrá llenarse en propiedad hasta tanto su anterior titular no haya consolidado su ascenso.

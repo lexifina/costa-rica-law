@@ -1,1 +1,0 @@
-ARTÍCULO 75. La dependencia encargada de la administración de personal será responsable directa de implementar los rebajos de salario por las llegadas tardías, las ausencias, el abandono de trabajo, o las suspensiones sin goce de salario del personal, de acuerdo con los reportes que de esas faltas deben realizar las jefaturas.

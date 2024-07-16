@@ -1,1 +1,0 @@
-ARTÍCULO 29. El personal tendrá la obligación de justificar aquellas llegadas tardías que superen los cinco minutos después de su ingreso y hasta quince minutos, a partir de la cuarta que se compute en el mismo mes calendario.

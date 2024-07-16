@@ -1,1 +1,0 @@
-ARTÍCULO 53. Transcurrido el plazo de traslado de la denuncia, la Comisión de Relaciones Laborales, dentro de un plazo que no podrá exceder de cinco días hábiles, dictará una resolución mediante la cual hará comparecer a las partes involucradas a una audiencia oral y privada, y ordenará recibir las probanzas que considere admisibles.

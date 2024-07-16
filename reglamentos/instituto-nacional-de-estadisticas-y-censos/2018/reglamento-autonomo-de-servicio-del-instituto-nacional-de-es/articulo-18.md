@@ -1,1 +1,0 @@
-ARTÍCULO 18. No se reconocerá el tiempo extraordinario laborado sin el visto bueno de la autoridad responsable asignada por la Gerencia. La jornada extraordinaria es de naturaleza excepcional, por lo que no se puede autorizar jornada extraordinaria permanente.

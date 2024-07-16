@@ -1,1 +1,0 @@
-ARTÍCULO 38. Las servidoras interinas solo podrán acogerse a la licencia por maternidad, en los términos anteriormente indicados, cuando hayan completado no menos de un mes de trabajo ininterrumpido inmediato anterior al disfrute del subsidio.

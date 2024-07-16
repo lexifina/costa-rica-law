@@ -1,2 +1,0 @@
-ARTÍCULO 27. Se considerará llegada tardía la presentación al trabajo después de cinco minutos de la hora señalada para el comienzo de las labores de la jornada respectiva.
-En casos especiales y atendiendo a la naturaleza del trabajo, los superiores inmediatos podrán justificar, a partir de la cuarta llegada tardía de su personal, hasta tres adicionales durante el mismo mes calendario, ante la dependencia encargada de la administración de personal.

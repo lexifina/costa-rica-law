@@ -1,1 +1,0 @@
-ARTÍCULO 71. Las medidas disciplinarias indicadas en el presente capítulo deberán imponerse dentro del mes siguiente a aquel en que se cometió la falta o en que fue de conocimiento de la dependencia encargada de la administración de personal o del Despacho Gerencial, según corresponda.
