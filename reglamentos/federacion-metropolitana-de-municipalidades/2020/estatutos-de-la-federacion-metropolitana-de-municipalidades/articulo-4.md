@@ -2,7 +2,8 @@ CLÁUSULA CUARTA
 Ámbitos de acción
 Respetando la autonomía municipal, la legislación vigente y en concordancia con los objetivos generales, en aras de lograr un desarrollo local y regional sostenible, la Federación tendrá cinco ámbitos principales de acción, que deberán implementarse teniendo presentes como ejes transversales, la participación ciudadana, la transparencia, la eficiencia, la honestidad y la rendición de cuentas, debiendo asimismo incorporar el respeto a las minorías, personas con discapacidad, tolerancia con los distintos credos religiosos, diferencias políticas, socioeconómicas, culturales y étnicas, así como el equilibrio de los géneros y grupos etéreos.
 1. Planificación y desarrollo urbano:
-1.1 Participar y apoyar la elaboración y ejecución de un proceso de planificación de desarrollo del área metropolitana de San José, en una forma coherente con los planes cantonales y el plan nacional elaborado, así como los reglamentos y proyectos que de ellos se deriven, los cuales deben ser aprobados por las entidades que la ley determine y por las municipalidades que se adhieran al mismo.
+1.1 Participar y apoyar la elaboración y ejecución de un proceso de planificación de desarrollo del área metropolitana y de los cantones rurales colindantes, en una forma coherente con los planes cantonales y el plan nacional elaborado, así como los reglamentos y proyectos que de ellos se deriven, los cuales deben ser aprobados por las entidades que la ley determine y por las municipalidades que se adhieran al mismo.
+(Así reformado el punto anterior mediante publicación en el Diario Oficial La Gaceta N° 131 del 17 de julio del 2024)
 1.2 Promover programas y proyectos para el tratamiento de aguas residuales y la canalización de aguas pluviales.
 1.3 Participar y apoyar la formulación y ejecución de cualquier otro instrumento de planificación urbana.
 1.4 Recomendar límites al crecimiento del sector urbano, teniendo como objetivo esencial la
@@ -30,7 +31,8 @@ De la misma forma, se impulsará un sano y amplio intercambio de experiencias en
 3.5 Buscar mecanismos para ahorrar costos en la adquisición de bienes y servicios.
 3.6 Promover cualquier otro mecanismo o instrumento en pro de la eficiencia y eficacia administrativa.
 3.7 Promover el traslado hacía las municipalidades, de aquellas competencias y recursos que las municipalidades de la Federación quieran y puedan desarrollar en forma conjunta.
-3.8 Promover estándares de calidad y eficiencia en los servicios públicos municipales del área metropolitana de San José.
+3.8 Promover estándares de calidad y eficiencia en los servicios públicos municipales del área metropolitana y de los cantones rurales colindantes.
+(Así reformado el punto anterior mediante publicación en el Diario Oficial La Gaceta N° 131 del 17 de julio del 2024)
 3.9 Propiciar y coordinar la creación, ampliación y mantenimiento de la infraestructura pública de servicios.
 4. Cooperación y asistencia técnica:
 4.1 Propiciar la suscripción de convenios intermunicipales de cooperación y asistencia técnica, profesional, o de cualquier ámbito municipal y local, poniendo especial énfasis en la promoción de las reformas legales que el régimen municipal requiere para poder trabajar con un marco legal adecuado a la realidad.

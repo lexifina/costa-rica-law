@@ -15,3 +15,4 @@ Estatutos de la Federación Metropolitana de Municipalidades de San José, por s
 | --- | --- | --- |
 | 1 | 2020-06-05 | la propia norma |
 | 2 | 2020-10-14 | Reglamento 29 (2020-10-14) |
+| 3 | 2024-07-17 | Reglamento 0 (2024-07-17) |
