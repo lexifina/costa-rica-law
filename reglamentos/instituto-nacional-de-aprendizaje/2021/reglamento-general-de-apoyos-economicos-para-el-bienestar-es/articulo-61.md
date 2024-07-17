@@ -5,7 +5,7 @@ c. Garantizar que la persona profesional en trabajo social disponga de los recur
 d. Apoyar operativamente, para facilitar la gestión de las personas profesionales en trabajo social que realizan los estudios socioeconómicos, de acuerdo con los lineamientos y directrices institucionales aplicables para tales efectos. Esta función podrá ser delegada por la PECE a quién esta considere.
 e. Coordinar y comunicar oportunamente al personal de trabajo social la información periódica suministrada por la persona docente referente al control de ausencias de las personas que tienen ayuda económica, fallecimientos, riesgos de abandono de SCFP, abandono de SCFP, modificaciones en los SCFP en cuanto a horarios y fechas, incapacidades, nivel de avance del logro de las capacidades y cualquier situación anómala en la que haya incurrido la persona estudiante, en los plazos establecidos en las normativa institucional o mediante las directrices y lineamientos institucionales, para que se proceda según corresponda.
 f. Realizar un seguimiento oportuno y periódico, a través de las listas aportadas por las personas docentes, a la asistencia de las personas que tienen aprobado el beneficio de reubicación geográfica.
-g. Aplicar de oficio los rebajos de las ayudas económicas en los supuestos descritos en el artículo 48 del presente reglamento.
+g. Aplicar de oficio los rebajos de las ayudas económicas en los supuestos descritos en el artículo 48del presente reglamento.
 h. Aplicar rebajos por las ausencias según lo dispuesto en el artículo 48 y sus incisos.
 i. Informar mediante oficio a las personas profesionales en trabajo social, los datos de las personas estudiantes que participarán en actividades de representación estudiantil dentro y fuera del país, según los procedimientos establecidos.
 j. Elaborar la proyección presupuestaria para definir las prioridades en el otorgamiento de las ayudas económicas.
@@ -13,10 +13,11 @@ k. Elaborar en las fechas establecidas en el cronograma oficial la nómina de la
 l. Solicitar y justificar de manera expedita ante la Jefatura Regional, la necesidad de apertura de cronograma de trámite y pago de becas y ayudas económicas para nómina extraordinaria por causas excepcionales.
 m. Llevar el control del presupuesto ejecutado en el servicio de ayudas económicas y comunica oportunamente su estado a la persona profesional en trabajo social.
 n. Verificar y garantizar, con la información contenida en el SIAE, que no se genere pago alguno a la persona estudiante que haya abandonado un SCFP.
-o. Supervisar que las personas estudiantes con ayuda económica reciban el depósito correspondiente y en tiempo, según lo establecido en la normativa institucional y el Control Interno.
+o. Supervisar que las personas estudiantes con ayuda económica reciban el depósito correspondiente yen tiempo, según lo establecido en la normativa institucional y el Control Interno.
 p. Supervisar y dar seguimiento administrativo de las labores de las personas de trabajo social.
-q. Tramitar la apertura de cuentas bancarias de personas estudiantes nacionales o extranjeras para el pago de las ayudas económicas. En el caso de personas estudiantes menores de edad, informa sobre el requisito de presentar la certificación de cuenta bancaria y dar trámite vía sistemas según instructivo “Sistema de becas y ayudas económicas”.
+q. Tramitar la apertura de cuentas bancarias de personas estudiantes nacionales o extranjeras para el pago de las ayudas económicas. En el caso de personas estudiantes menores de edad, informa sobre el requisito de presentar la certificación de cuenta bancaria y dar trámite vía sistemas según instructivo "Sistema de becas y ayudas económicas".
 r. Verificar que las cuentas bancarias aportadas por las personas estudiantes se encuentren activas, según cronograma de trámite y pago de las becas y ayudas económicas.
 s. Matricular las cuentas bancarias en el SIAE y la plataforma bancaria respectiva, según cronograma de trámite y pago de becas y ayudas económicas.
 t. Recibir y tramitar las solicitudes de las personas estudiantes para el pago de la ayuda económica por cheque en casos excepcionales.
-u. Cualquier otra función que sea definida por Ley, reglamento, normativa o instrucción institucional vigente.
+u. Cualquier otra función que sea definida por Ley, reglamento, normativa o instrucción institucional vigente
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

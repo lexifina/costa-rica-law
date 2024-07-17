@@ -1,1 +1,2 @@
 Artículo 82. De la lista de personas prioritarias para las becas del INA. La lista final de personas priorizadas según los criterios definidos en este reglamento para el SCFP preinscrito será remitido por el Servicio de Orientación Laboral de cada Unidad Regional al servicio de Trabajo Social designado para el trámite de Becas INA, por medio de la Plataforma ane.cr y según los procedimientos establecidos por la Unidad de Servicio al Usuario.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

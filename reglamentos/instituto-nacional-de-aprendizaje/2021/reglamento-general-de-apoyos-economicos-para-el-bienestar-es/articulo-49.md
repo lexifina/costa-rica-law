@@ -1,1 +1,2 @@
 Artículo 49. De la periodicidad del pago de las ayudas económicas. El pago de los beneficios se hará de acuerdo con el cronograma de trámite y pago establecido por el PRBE por medio del depósito a la entidad bancaria correspondiente o bien por medio de cheque cuando así se requiera.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

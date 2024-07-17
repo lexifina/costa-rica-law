@@ -34,3 +34,4 @@ STEAM: Términos en inglés de Ciencia, Tecnología, Ingeniería, Artes y Matem�
 UR: Unidad Regional.
 URF: Unidad de Recursos Financieros.
 USU: Unidad de Servicio al Usuario.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

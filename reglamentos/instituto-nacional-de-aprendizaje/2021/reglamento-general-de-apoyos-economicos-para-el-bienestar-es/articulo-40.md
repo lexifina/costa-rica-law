@@ -9,11 +9,12 @@ e. Reubicación geográfica:
 Los requisitos para solicitar este beneficio son los siguientes:
 i. Personas de escasos recursos económicos que deben reubicarse geográficamente para asistir oportunamente al SCFP en el CE. El lugar seleccionado para ello debe estar dentro del área de atracción dicho centro.
 ii. Personas estudiantes que deban reubicarse geográficamente para asistir a su práctica en la empresa.
-iii . Personas estudiantes que deban reubicarse geográficamente por enfrentar condiciones de vulnerabilidad social u otras especiales valoradas por la persona profesional en trabajo social.
-iv. La persona estudiante debe adjuntar a la solicitud el formulario “Declaración jurada sobre el lugar de reubicación geográfica”, anexa a este Reglamento.
+iii. Personas estudiantes que deban reubicarse geográficamente por enfrentar condiciones de vulnerabilidad social u otras especiales valoradas por la persona profesional en trabajo social.
+iv. La persona estudiante debe adjuntar a la solicitud el formulario "Declaración jurada sobre el lugar de reubicación geográfica", anexa a este Reglamento.
 El monto máximo para otorgar será el establecido en la Tabla de becas y ayudas económicas del INA. El seguimiento a este beneficio se da por la constatación de su lugar de residencia consignado en la solicitud de matrícula y la verificación de la asistencia al SCFP.
 f. Ayuda para personas estudiantes jefaturas de hogar en condición de desempleo:
 Se otorga este beneficio a las personas matriculadas y activas en un SCFP brindado por el INA, referidas por el Proceso de Servicio al Usuario de la Unidad Regional (Orientación, Psicología, Personas Gestoras de Empleo y Administradoras de Servicios), identificadas como jefatura de hogar en condición de desempleo según el Artículo 4 de este Reglamento, toda referencia debe contar con la documentación de respaldo. Este beneficio podrá ser complementario con otros establecidos por este reglamento, de acuerdo con la situación y condición socioeconómica, previo estudio de la persona profesional de Trabajo Social. El monto máximo para otorgar mensualmente será el equivalente al de reubicación geográfica, establecido en la Tabla de becas y ayudas económicas del INA.
 Para la solicitud de este beneficio, la persona estudiante debe:
-i. Presentar el formulario “Solicitud de beneficios”, el cual se encuentra anexo a este Reglamento.
-ii. Aportar documentos probatorios de la condición de desempleo, los cuales pueden ser: carta de despido emitida por el patrono (para personas que contaban con patrono) o “Declaración jurada de ingresos” (para los casos de empleo informal o personas trabajadoras independientes), según sea el caso.
+i. Presentar el formulario "Solicitud de beneficios", el cual se encuentra anexo a este Reglamento.
+ii. Aportar documentos probatorios de la condición de desempleo, los cuales pueden ser: carta de despido emitida por el patrono (para personas que contaban con patrono) o "Declaración jurada de ingresos" (para los casos de empleo informal o personas trabajadoras independientes), según sea el caso.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

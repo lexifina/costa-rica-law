@@ -11,3 +11,4 @@ i. Justificar por escrito ante el Centro de Formación prestatario del servicio 
 j. Realizar el pago del SCFP para el cual se aprobó la beca al Centro de Formación, mediante la autorización del débito automático en la tarjeta bancaria proporcionada por el INA, de acuerdo con la periodicidad de pagos establecida por la institución.
 k. Reintegrar al Proceso Financiero Contable del INA, en un plazo máximo de 5 días hábiles el dinero otorgado por ayuda económica cuando por razones debidamente justificadas se lo solicita la persona encargada del centro externo (sea público o privado), PECE, persona profesional en trabajo social, CRBAE o CIBAE.
 l. Acatar los lineamientos o instrucciones indicados por la persona de Trabajo Social del INA en apego a las disposiciones de este reglamento.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

@@ -3,3 +3,4 @@ a. Cuando mediante la emisión del juicio criterial por parte de la persona doce
 b. Cuando la persona estudiante repruebe tres módulos matriculados, ya sean consecutivos o no y cuente con beca o ayuda económica.
 c. Cuando la persona estudiante abandone definitivamente el SCFP.
 d. Cuando la persona pierde su condición de estudiante.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

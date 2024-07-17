@@ -8,5 +8,6 @@ e. Cancelar el costo de formación al centro educativo con servicios acreditados
 f. Cumplir con la normativa establecida en los reglamentos del centro educativo, empresa o centro de formación para la empleabilidad.
 g. Respetar los horarios de asistencia establecidos para cada programa educativo de EFTP Dual.
 h. Someterse a las evaluaciones establecidas en el programa de EFTP Dual.
-i. Reportar por escrito a la persona profesional en Trabajo Social correspondiente, en un plazo máximo de 3 días hábiles, a partir del día siguiente en que se tenga conocimiento, cualquier cambio en su situación socioeconómica, domicilio o cualquier otra situación que pueda afectar el otorgamiento de los beneficios. Este deber aplica para aquellas personas que tengan los beneficios socioeconómicos aprobados del artículo 105, incisos b) y c).
-j. Lograr el cumplimiento del programa de EFTP Dual según los parámetros curriculares establecidos en cada centro educativo.
+i. Reportar por escrito a la persona profesional en Trabajo Social correspondiente, en un plazo máximo de 3 días hábiles, a partir del día siguiente en que se tenga conocimiento, cualquier cambio en su situación socioeconómica, domicilio o cualquier otra situación que pueda afectar el otorgamiento delos beneficios. Este deber aplica para aquellas personas que tengan los beneficios socioeconómicos aprobados del artículo 105, incisos b) y c).
+j. Lograr el cumplimiento del programa de EFTP Dual según los parámetros curriculares establecidos encada centro educativo.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

@@ -1,2 +1,3 @@
 Artículo 85. De la vigencia de la beca. La beca del INA se encontrará sujeta a la duración del servicio educativo en el que se encuentra matriculada la persona estudiante. Asimismo, la aprobación de una beca dependerá de la disponibilidad presupuestaria.
 Una vez recibida la resolución de la beca del INA por medio del correo electrónico, la persona beneficiada contará con un plazo máximo de 2 días hábiles para concretar su trámite de matrícula en el SCFP preinscrito en el Centro de Formación. Para tales efectos el INA comunicará dicha resolución de beca al centro respectivo.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

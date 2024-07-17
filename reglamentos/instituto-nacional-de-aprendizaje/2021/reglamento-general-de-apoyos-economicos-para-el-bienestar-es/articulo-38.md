@@ -2,7 +2,7 @@ TÍTULO III
 DEL SERVICIO DE AYUDAS ECONÓMICAS
 CAPÍTULO I
 DE LAS AYUDAS ECONÓMICAS
-Artículo 38. De las ayudas económicas en general. Las ayudas económicas podrán ser de dos tipos:
+Artículo 38. De las ayudas económicas en general. Las ayudas económicas podrán ser de tres tipos:
 a. Ayuda socioeconómica: Se brinda a la persona estudiante por la condición socioeconómica o vulnerabilidad social que presente de acuerdo con la calificación asignada por el SINIRUBE, el mecanismo alterno propio del INA o valoración y criterio técnico de la persona trabajadora social del INA, las cuales cubren gastos de transporte, alimentación, gastos personales, cuido de personas dependientes, reubicación geográfica, ayuda para persona estudiante jefatura de hogar en condición de desempleo, ayudas para personas con discapacidad u otra situación de caso fortuito o fuerza mayor.
 b. Ayudas económicas de estímulo: Se otorga a la persona estudiante independientemente de su condición socioeconómica, son para cubrir actividades de representación estudiantil dentro y fuera del país, realización de la práctica en la empresa y módulos exclusivos para el desarrollo de prácticas, así como para la participación de mujeres en servicios de capacitación y/o formación profesional intensivos en empleo o de alta demanda ocupacional, incluyendo áreas STEAM.
 c. Ayuda económica especial: Se brinda a poblaciones específicas según las condiciones establecidas en un programa, proyecto o convenio de interés institucional.
@@ -10,3 +10,4 @@ El monto aprobado no podrá sobrepasar lo establecido en la Tabla de becas y ayu
 Cuando la persona solicitante contó con ayuda económica en un SCFP y presenta nueva solicitud de ayuda económica en otro SCFP que no es transversal ni complementario, la institución resolverá la ayuda económica amparada en el artículo 58, inciso k), del presente Reglamento.
 En el caso de que la verificación se realice antes del otorgamiento de la ayuda y se compruebe datos falsos u omisión de información de forma dolosa, la institución denegará la ayuda económica amparada en el artículo 66 del presente reglamento. En caso de que la verificación se realice posterior al otorgamiento de la ayuda económica y se determine que la persona solicitante o su familia proporcionaron datos falsos u omisión de información de forma dolosa, se debe elevar el caso al CRBAE para su debida valoración por incumplimiento al artículo 56 inciso c).
 En todo caso, la Administración, previa justificación se reservará el derecho de otorgar o no una ayuda económica, ya que dependerá de las posibilidades administrativas y presupuestarias.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

@@ -6,7 +6,7 @@ d. Resolver excepcionalmente, apartándose de la clasificación socioeconómica 
 e. Aplicar la cancelación automática de las Becas del INA y ayudas económicas, según lo establecido en el presente reglamento.
 f. Informar a las personas estudiantes el resultado de la solicitud de la beca y ayuda económica en los plazos definidos en el presente reglamento, de acuerdo con el medio establecido institucionalmente y las instrucciones internas atinentes al fortalecimiento del control interno.
 g. Conformar y custodiar el expediente electrónico en el SIAE por cada persona solicitante de beca y ayuda económica.
-h. Ingresar y mantener actualizada en el sistema informático (SIAE) la información aportada por la persona estudiante de acuerdo con los lineamientos institucionales y en estricto apego de la Ley 8968 “Ley de protección de la persona frente al tratamiento de sus datos personales”.
+h. Ingresar y mantener actualizada en el sistema informático (SIAE) la información aportada por la persona estudiante de acuerdo con los lineamientos institucionales y en estricto apego de la Ley 8968 "Ley de protección de la persona frente al tratamiento de sus datos personales".
 i. Aprobar las ayudas económicas complementarias a la Beca del INA, con base en lo establecido en el artículo 58, inciso j) del presente Reglamento.
 j. Aprobar las becas del INA con base en los parámetros establecidos en el presente reglamento y los criterios de priorización respectivos.
 k. Denegar las solicitudes de ayudas económicas complementarias a las Becas del INA, según lo establecido en el artículo 66 inciso c) de este Reglamento.
@@ -15,3 +15,4 @@ m. Colaborar con las evaluaciones al SIAE y SISAE, cuando lo solicite el PRBE.
 n. Acatar las recomendaciones producto de las supervisiones administrativas por parte de la PEPSU y las asesorías técnicas realizadas y normalizadas por el PRBE de la USU.
 o. Realizar los cambios en las becas y las ayudas económicas de acuerdo con el reporte de ausencias, deserciones, reprobaciones, retiros justificados o injustificados y fallecimientos que realicen los Centros de Formación.
 p. Cualquier otra función que sea definida por Ley, Reglamento normativa o instrucción institucional vigente.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

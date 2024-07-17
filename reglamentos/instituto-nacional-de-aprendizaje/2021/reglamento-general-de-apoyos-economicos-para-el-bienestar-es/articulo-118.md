@@ -1,7 +1,6 @@
 Artículo 118. Funciones de la Unidad de Recursos Financieros. Además de sus funciones habituales, la Unidad de Recursos Financieros, tendrá las siguientes funciones:
-a. Definir los procedimientos relacionados con el depósito del aporte mensual al Fondo de becas para la EFTP Dual por parte de las empresas.
-b. Articular lo correspondiente al depósito del aporte mensual al Fondo de becas para la EFTP con las otras dependencias del INA que se requiera.
-c. Efectuar el depósito de la beca y los beneficios complementarios que aquí se regulan en el banco estatal correspondiente y en las fechas estipuladas según cronograma institucional.
-d. Mantener actualizada la ejecución de la cuenta de becas de formación dual y generar las proyecciones e informes que se le soliciten.
-e. Informar a la Unidad de Servicio al Usuario sobre los depósitos realizados por las empresas o centros de formación para la empleabilidad de conformidad con el cronograma establecido.
-f. Presentar a la Gerencia General los estados financieros del fondo de Becas para la EFTP Dual.
+a. Definir en la normativa interna atinente, las acciones relacionadas con el registro del aporte, traslados entre cuentas de bancos, transferencias a beneficiarios y custodia de los recursos por concepto del Fondo de becas para la EFTP Dual.
+b. Actualizar las conciliaciones y auxiliares relacionados con los aportes de las empresas participantes al Fondo a la cuenta de becas de formación dual.
+c. Revelar el impacto contable en las notas a los Estados Financieros Institucionales del periodo a presentar a la Dirección General de Contabilidad Nacional, lo relacionado al fondo de becas para la EFTP Dual.
+d. Cualquier otra función conferida por Ley, Reglamento, normativa o instrucción institucional vigente y aplicable.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

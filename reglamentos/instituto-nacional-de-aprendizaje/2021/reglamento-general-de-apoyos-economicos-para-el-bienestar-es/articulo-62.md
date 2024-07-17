@@ -2,3 +2,4 @@ Artículo 62. De los deberes de las personas encargadas del Proceso Financiero C
 a. Realizar el trámite de aprobación, en el SIAE, de los compromisos presupuestarios de las ayudas económicas en las fechas establecidas, según cronograma institucional.
 b. Elaborar, cuando proceda, los cheques que correspondan al pago de las ayudas económicas por medio del sistema institucional establecido.
 c. Ejecutar otras funciones asignadas por Ley, reglamento o normativa institucional vigente y aplicable.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

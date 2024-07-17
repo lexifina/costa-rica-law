@@ -1,1 +1,2 @@
 Artículo 133. Transitorio. La Administración tendrá máximo seis meses a partir de la entrada en vigencia de este Reglamento para realizar los ajustes requeridos en los sistemas o en la documentación respectiva que se establezca en el mismo.
+(Así reformado mediante el artículo 131 del Reglamento general de apoyos económicos para el bienestar estudiantil del INA, publicado en el Alcance N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

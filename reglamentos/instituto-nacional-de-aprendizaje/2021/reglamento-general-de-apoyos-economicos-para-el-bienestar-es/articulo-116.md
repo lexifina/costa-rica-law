@@ -7,3 +7,4 @@ e. Comunicar a las personas solicitantes el resultado de su solicitud, modificac
 f. Custodiar y mantener actualizado el expediente administrativo físico y/o digital en el sistema de información establecido.
 g. Cancelar los beneficios de EFTP Dual, cuando la persona estudiante haya abandonado el programa de EFTP Dual.
 h. Proceder conforme lo disponga el CIBAE y su marco jurídico, en términos de procedimiento administrativo y garantías procesales. Lo anterior, en aras de asegurar el cumplimento de todas las protecciones jurídicas que se estimen oportunas.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

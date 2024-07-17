@@ -10,3 +10,4 @@ h. Reportar por el medio establecido cuando la persona beneficiaria no cancele e
 i. Facilitar el seguimiento y supervisión que el INA realice al cumplimiento de las obligaciones establecidas en este reglamento, al personal del INA asignado para tal fin.
 j. Contar con el beneficio de Acreditación para la EFTP Dual, según lo consignado en el presente reglamento.
 k. Proceder con la reubicación de la persona estudiante en el caso de que la empresa o centro para la empleabilidad haya incumplido con sus obligaciones y con el aporte al Fondo especial de becas de la EFPT dual.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

@@ -1,1 +1,2 @@
 Artículo 69. Del reintegro de la ayuda económica otorgada. Cuando por incumplimiento del artículo 56 inciso b), c), d), e), f), i), k) y l) se emita una resolución de pérdida de la ayuda económica, la persona estudiante deberá reintegrar al INA el dinero otorgado desde la aprobación de la ayuda económica hasta su revocación.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

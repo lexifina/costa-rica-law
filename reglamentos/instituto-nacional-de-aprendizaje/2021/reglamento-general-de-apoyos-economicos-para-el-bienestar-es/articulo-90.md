@@ -7,7 +7,7 @@ e. Mantener actualizada la información de la ejecución presupuestaria de la cu
 f. Generar los reportes requeridos que permitan caracterizar la población beneficiada de becas del INA.
 g. Generar los reportes y estadísticas de becas del INA que le sean solicitados en el ámbito institucional.
 h. Mantener actualizado el SIAE y la metodología del índice de medición del nivel socioeconómico, previa aprobación del CIBAE, como mecanismo alternativo del INA al SINIRUBE.
-i. Solicitar en forma anual a la Unidad de Recursos Financieros la actualización de los montos máximos establecidos en la Tabla de becas y ayudas económicas del INA y realizar su presentación al CIBAE.
-Capacitar a las personas usuarias sobre las disposiciones del presente reglamento y sistemas asociados.
+i. Solicitar en forma anual a la Unidad de Recursos Financieros la actualización de los montos máximos establecidos en la Tabla de becas y ayudas económicas del INA y realizar su presentación al CIBAE. Capacitar a las personas usuarias sobre las disposiciones del presente reglamento y sistemas asociados.
 j. Consolidar las nóminas de pago regional debidamente aprobadas por las jefaturas regionales en una sola nómina institucional para que sea trasladada por la Jefatura de la USU a la Unidad de Recursos Financieros y se efectúen los depósitos correspondientes, según el cronograma establecido.
 k. Cualquier otra función atinente en el marco de las disposiciones del presente reglamento y trámites asociados.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

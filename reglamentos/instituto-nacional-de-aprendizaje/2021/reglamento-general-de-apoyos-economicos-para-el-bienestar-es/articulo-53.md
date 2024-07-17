@@ -9,3 +9,4 @@ f. CIBAE, CRBAE.
 g. Asesoría Legal.
 h. ODP, según corresponda y se haya dado su nombramiento según la normativa institucional vigente.
 Las anteriores personas guardarán en todo momento la confidencialidad de la información y documentación contenida en este, de acuerdo con la Ley de Protección de la Persona frente al tratamiento de sus datos personales N°8968 y su Reglamento. Los documentos que debe contener el expediente serán regulados por el PRBE.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

@@ -1,2 +1,3 @@
 Artículo 89. De la USU. La USU tendrá como función principal realizar la definición de la población de personas prioritarias de conformidad con los criterios de priorización dispuestos en el presente reglamento, para ello, además, deberá considerar las dinámicas de mercado laboral propiciando una respuesta en plazo oportuno a la demanda.
 Adicionalmente, deberá dar seguimiento al registro de los centros de formación y los SCFP con aval técnico en la plataforma ane.cr e informar a la Gestión Rectora de SINAFOR sobre el incumplimiento del registro y reserva de cupos por parte de estos.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

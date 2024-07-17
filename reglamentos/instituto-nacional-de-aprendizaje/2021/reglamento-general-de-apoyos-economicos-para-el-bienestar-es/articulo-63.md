@@ -4,3 +4,4 @@ b. Solicitar y justificar de manera expedita ante la Persona Encargada del Proce
 c. Designar a una persona responsable, la cual debe tener un rango profesional de jefatura para cumplir con la responsabilidad asignada en este reglamento, en caso de encontrarse ausente por motivos de incapacidad, permisos, vacaciones u otros motivos de caso fortuito o fuerza mayor.
 d. Designar e informar por medio de oficio al PRBE en el mes de enero una persona suplente para cada PECE de un rango profesional de jefatura para que cumpla con el artículo 61 inciso k) del presente reglamento, en el caso de que este se encuentre ausente por motivos de incapacidad, permisos, vacaciones u otras razones como caso fortuito o fuerza mayor.
 e. Ejecutar otras funciones asignadas por Ley, Reglamento, normativa o instrucción institucional vigente y aplicable.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

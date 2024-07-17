@@ -3,3 +3,4 @@ a. Cuando la persona estudiante repruebe tres módulos matriculados, ya sean con
 b. Cuando de manera justificada o no, la persona estudiante abandone definitivamente el SCFP en el que se encuentra matriculada.
 c. Cuando la persona no realice su proceso de matrícula después de notificada la aprobación de la beca.
 d. Cuando la persona pierda su condición de estudiante.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

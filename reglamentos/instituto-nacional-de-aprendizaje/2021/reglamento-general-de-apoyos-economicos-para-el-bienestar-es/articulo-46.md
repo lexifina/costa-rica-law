@@ -2,5 +2,6 @@ Artículo 46. De las ayudas económicas de estímulo para práctica en la empres
 El monto correspondiente a este beneficio será el dispuesto en la Tabla de becas y ayudas económicas, específicamente al monto del 50% del beneficio de reubicación geográfica, como monto máximo.
 Si por disposición administrativa, la persona estudiante es ubicada en un centro de práctica que no esté cerca de su centro de formación o de su residencia, se le podrá asignar el beneficio de reubicación geográfica, sin necesidad de realizar el estudio por condición socioeconómica.
 Para obtener este beneficio la persona estudiante deberá cumplir los siguientes requisitos:
-a. Llenar el formulario “Solicitud de ayuda económica de estímulo para práctica en la empresa”, anexo a este reglamento.
+a. Llenar el formulario "Solicitud de ayuda económica de estímulo para práctica en la empresa", anexo a este reglamento.
 b. Cursar el o los módulos de práctica en la empresa.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

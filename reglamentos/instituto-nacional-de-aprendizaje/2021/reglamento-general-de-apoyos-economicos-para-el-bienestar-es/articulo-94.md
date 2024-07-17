@@ -3,3 +3,4 @@ a. Tramitar y aprobar la nómina regional de becas del INA y las ayudas económi
 b. Designar a una persona responsable, la cual debe tener un rango profesional de jefatura para cumplir con la responsabilidad asignada en este reglamento, en caso de encontrarse ausente por motivos de incapacidad, permisos, vacaciones u otros motivos de caso fortuito o fuerza mayor.
 c. Designar en el mes de enero o cuando se requiera una persona suplente para la PEPSU, con un rango profesional de jefatura para que cumpla con el artículo 60 inciso k) del Servicio de ayudas económicas contemplado en el presente documento, en el caso de que este se encuentre ausente por motivos de incapacidad, permisos, vacaciones u otros motivos de caso fortuito o fuerza mayor.
 d. Ejecutar otras funciones asignadas por Ley, Reglamento, normativa o instrucción institucional vigente y aplicable.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)

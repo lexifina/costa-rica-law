@@ -1,2 +1,3 @@
 Artículo 74. Del impedimento por doble beneficio. No podrán ser sujetas de las becas del INA, aquellas personas que ya cuenten con otro beneficio del Estado, igual al que estas otorgan, es decir que otorguen beca por costo de formación en un SCFP igual al que ostenta con la solicitud de la beca en el INA. No puede existir duplicidad de estos beneficios.
 El otorgamiento de una beca para SCFP que complementen el proceso de formación o capacitación que una persona está cursando en el INA o en otro centro de formación público o privado no constituye doble beneficio.
+(Así reformado y publicado en el Alcance Digital N° 128 a La Gaceta N° 131 del 17 de julio del 2024)
