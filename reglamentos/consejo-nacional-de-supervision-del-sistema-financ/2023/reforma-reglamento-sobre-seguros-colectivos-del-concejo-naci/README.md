@@ -14,3 +14,4 @@ Reforma Reglamento sobre seguros colectivos del Concejo Nacional de Supervisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-17 | la propia norma |
+| 2 | 2024-07-17 | Reglamento 1840 (2023-12-11) |
