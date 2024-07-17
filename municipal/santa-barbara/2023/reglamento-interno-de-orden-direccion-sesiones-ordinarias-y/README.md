@@ -14,3 +14,4 @@ Reglamento Interno de orden, dirección, sesiones ordinarias y extraordinarias, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-07 | la propia norma |
+| 2 | 2024-07-17 | Reglamento municipal 6 (2024-07-17) |
