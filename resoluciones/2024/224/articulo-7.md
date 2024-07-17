@@ -1,0 +1,1 @@
+Artículo 7°-Derogaciones. Se deroga la Resolución N° 200-2023-MGP de las diez horas veintidós minutos del veinticinco de mayo del dos mil veintitrés, publicada en el Diario Oficial La Gaceta N° 125 del 11 de julio del 2023.
