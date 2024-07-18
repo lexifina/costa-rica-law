@@ -1,0 +1,6 @@
+Artículo 27. Quater.-Del Pago. El pago podrá realizarse en la moneda fijada en la contratación o en colones costarricenses, salvo lo dispuesto en el artículo 49 de la Ley Orgánica del Banco Central de Costa Rica, vigente al momento de la confección del cheque o medio de pago seleccionado, para lo cual, la CNE contará con treinta días naturales una vez presentada la factura, previa verificación del cumplimiento a satisfacción, de conformidad con lo indicado en el cartel.
+Bajo ninguna circunstancia el plazo antes indicado podrá superarse sin que se haya hecho efectivo el pago, el atraso injustificado acarrea responsabilidad del o los funcionario(s).
+Las diferentes Unidades de la CNE deberán establecer sus propios procedimientos internos para cancelación de facturas, que sumados no podrán superar los treinta días naturales que se indica en el párrafo primero.
+El Proceso de Tesorería está en la obligación de comunicar al contratista dentro de los tres días hábiles siguientes a la confección del cheque o depósito, que el mismo se encuentra a su disposición.
+Para lo no dispuesto en el presente apartado, se aplicará de manera supletoria la Ley General de Contratación Pública y su Reglamento.
+(Así adicionado mediante sesión ordinaria Nº 13-07-2024 del 18 de julio del 2024)

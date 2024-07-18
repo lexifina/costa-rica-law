@@ -14,3 +14,4 @@ Reglamento para las contrataciones públicas amparadas por el régimen de excepc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-20 | la propia norma |
+| 2 | 2024-07-18 | Reglamento 13 (2024-07-18) |
