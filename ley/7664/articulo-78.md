@@ -1,3 +1,2 @@
-ARTICULO 78.- Importe por penas en días multa
-El importe por las penas en días multa se determinará de conformidad
-con el artículo 53 del Código Penal.
+ARTICULO 78.- Incumplimiento de los artículos 28 y 29. Será sancionado con prisión de tres meses a tres años e inhabilitación especial para ejercer sus funciones profesionales durante un máximo de tres años, el profesional que, en el desempeño de sus labores, incumpla lo establecido en los artículos 28 y 29 de la presente ley.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 71 al artículo 78)

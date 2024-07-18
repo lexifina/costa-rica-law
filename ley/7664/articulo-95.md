@@ -1,0 +1,7 @@
+ARTICULO 95.- Reglamento. El Poder Ejecutivo reglamentará esta ley en un plazo de noventa días contados a partir de su publicación.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 88 al artículo 95)
+TRANSITORIO I.- Se mantiene el contenido material del artículo 43 de la Ley No. 6248, de 2 de mayo de 1978, que se leerá así:
+"Artículo 43.- Se establece una tasa de medio por ciento sobre el valor CIF, declarado por cada importador de productos químicos destinados al uso agrícola, que se cancelará en cada solicitud de autorización de desalmacenaje que se presente ante el Servicio Fitosanitario del Estado."
+(Nota: Mediante el artículo N° 13 de la ley Trámite de las Solicitudes de Registro de Agroquímicos N° 8702 del 14 de enero de 2009, se incrementa la tasa establecida en el transitorio anterior, de un cero coma cinco por ciento (0,5%) a un uno coma cinco por ciento (1,5%))
+TRANSITORIO II.- Como estrategia para promover la producción orgánica, el Estado cubrirá los gastos de certificación durante un período hasta de dos años de los agricultores que demuestren, ante el Servicio Fitosanitario del Estado, ser pequeños productores orgánicos y no estar en capacidad financiera de pagar la certificación. Los parámetros para calificar como pequeños productores, serán desarrollados por el Ministerio mediante reglamento.
+Rige a partir de su publicación.

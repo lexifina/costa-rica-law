@@ -1,0 +1,2 @@
+ARTICULO 93.- Sustitución de dependencias. Las dependencias que, en virtud de esta ley, constituyan el Servicio Fitosanitario del Estado, sustituirán en sus funciones, obligaciones y atribuciones a la Dirección General de Sanidad Vegetal, creada por el Decreto Ejecutivo No. 8887-A, de 28 de agosto de 1978.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 86 al artículo 93)

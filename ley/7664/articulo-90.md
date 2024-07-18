@@ -1,0 +1,2 @@
+ARTICULO 90.- Donación de decomisos. Sin trámite de escritura pública, el Servicio Fitosanitario del Estado podrá donar a instituciones u organizaciones sin fines de lucro los bienes decomisados cuyo valor no exceda de un millón de colones (¢1.000.000,00). El procedimiento por seguir se establecerá en el reglamento respectivo.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 83 al artículo 90)
