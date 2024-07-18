@@ -1,4 +1,4 @@
 Artículo 120.- Vigencia.
-El presente Reglamento(*) deroga íntegramente el anterior y regirá seis meses después a partir de su publicación en el diario oficial La Gaceta.
-(*) (Así modificada su denominación por acuerdo N° 2477 del 26 de julio de 2022. Anteriormente se indicaba: "Manual"))
+El presente Manual(*) deroga íntegramente el anterior y regirá seis meses después a partir de su publicación en el diario oficial La Gaceta.
+(*) (Mediante acuerdo N° 2477 del 26 de julio de 2022, se había reformado la frase "Manual" por "Reglamento". Posteriormente mediante acuerdo N° DH-A-2723-2024 del 18 de julio de 2024, se revocó el acuerdo N° 2477 del 26 de julio de 2022, de modo que para referirse al instrumento normativo interno que regula todos los procesos de trabajo y las estrategias de defensa que utiliza la Defensoría de los Habitantes emitido mediante Acuerdo N° 2268 de fecha 19 de diciembre de 2019, dejará de utilizarse el nombre de Reglamento para la atención, trámite y registro de las quejas, reclamos y consultas de las y los habitantes de la República y en su lugar, se restablece el uso del nombre Manual de Macroproceso de Defensa de los Derechos e Intereses de la Defensoría de los Habitantes de la República.)
 COMUNÍQUESE Y PUBLÍQUESE. Dado en la Ciudad de San José, a las trece horas del día diecinueve de diciembre de dos mil diecinueve.

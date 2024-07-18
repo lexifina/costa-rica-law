@@ -1,5 +1,5 @@
 CAPÍTULO XIV DISPOSICIONES FINALES
 Artículo 117.- De los plazos. Los plazos para los actos de trámite de las estrategias de defensa, se contarán en días naturales. En ningún caso ningún expediente deberá permanecer inactivo por más de un mes.
 Los plazos que la Ley de la Defensoría y el reglamento contemplen en meses se contarán según calendario.
-Todos los plazos que contempla este Reglamento(*) podrán ser prorrogados mediante resolución motivada del o la Jerarca de la Institución.
-(*) (Así modificada su denominación por acuerdo N° 2477 del 26 de julio de 2022. Anteriormente se indicaba: "Manual"))
+Todos los plazos que contempla este Manual(*) podrán ser prorrogados mediante resolución motivada del o la Jerarca de la Institución.
+(*) (Mediante acuerdo N° 2477 del 26 de julio de 2022, se había reformado la frase "Manual" por "Reglamento". Posteriormente mediante acuerdo N° DH-A-2723-2024 del 18 de julio de 2024, se revocó el acuerdo N° 2477 del 26 de julio de 2022, de modo que para referirse al instrumento normativo interno que regula todos los procesos de trabajo y las estrategias de defensa que utiliza la Defensoría de los Habitantes emitido mediante Acuerdo N° 2268 de fecha 19 de diciembre de 2019, dejará de utilizarse el nombre de Reglamento para la atención, trámite y registro de las quejas, reclamos y consultas de las y los habitantes de la República y en su lugar, se restablece el uso del nombre Manual de Macroproceso de Defensa de los Derechos e Intereses de la Defensoría de los Habitantes de la República.)
