@@ -14,3 +14,4 @@ Reforma Reglamento para la atención, trámite y registro de las quejas, reclamo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-08-01 | la propia norma |
+| 2 | 2024-07-18 | Acuerdo 2723 (2024-07-18) |
