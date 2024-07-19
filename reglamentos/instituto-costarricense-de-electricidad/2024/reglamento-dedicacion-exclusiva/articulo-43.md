@@ -1,0 +1,1 @@
+Artículo 43.-El Régimen de Dedicación Exclusiva se aplicará a las modalidades de contratos laborales que se mantengan vigentes en la Empresa o que a futuro se autorice, siempre que cumpla con las condiciones indicadas en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.-El Titular Subordinado (a) y la persona trabajadora serán los responsables de velar por los términos del contrato y realizar las gestiones presupuestarias y administrativas que correspondan ante la Dirección Talento.

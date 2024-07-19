@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Aplica a las personas trabajadoras que estén nombradas en puestos profesionales, de dirección, gerenciales o sus homólogos en el tanto ejerzan la profesión liberal, los cuales requieren como mínimo el grado académico de bachiller universitario, que les permita el ingreso al Régimen de Dedicación Exclusiva.

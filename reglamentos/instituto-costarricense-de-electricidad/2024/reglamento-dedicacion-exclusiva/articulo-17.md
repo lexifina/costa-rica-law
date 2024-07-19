@@ -1,0 +1,1 @@
+Artículo 17.-Estar incorporado en el colegio profesional respectivo en caso de que dicha incorporación gremial exista y que la incorporación sea exigida como una condición necesaria para el ejercicio liberal de la profesión de que se trate.

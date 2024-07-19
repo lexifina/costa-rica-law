@@ -1,0 +1,1 @@
+Artículo 25.-Las áreas o dependencias por medio de los coordinadores de presupuesto deberán garantizar las previsiones para incluir dentro de la formulación presupuestaria el contenido necesario en la partida de remuneraciones.

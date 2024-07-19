@@ -1,0 +1,1 @@
+Artículo 47.-Revisiones y Actualizaciones. El proceso desempeño y compensación será el encargado de la revisión y actualización del presente documento, con una periodicidad anual y planteará las modificaciones que estime pertinentes.

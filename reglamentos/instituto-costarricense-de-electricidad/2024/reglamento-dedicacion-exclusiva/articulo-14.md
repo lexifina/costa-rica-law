@@ -1,0 +1,1 @@
+Artículo 14.-Fomentar en la persona trabajadora de nivel profesional la obtención del más alto nivel académico para realizar con mayor eficiencia las tareas que se le encomiendan y que contribuyan al logro de las metas y objetivos de la Empresa, que solamente se pueden lograr si se cuenta con el personal idóneo y dedicado.

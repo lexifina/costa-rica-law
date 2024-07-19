@@ -1,0 +1,1 @@
+Artículo 35.-La Empresa se reserva el derecho de aceptar la solicitud de rescindir el contrato de Dedicación Exclusiva, todo de conformidad con los intereses, conveniencia institucional, objetivos legales y públicos que reviste el contrato en aplicación de los objetivos señalados en el artículo 1°.

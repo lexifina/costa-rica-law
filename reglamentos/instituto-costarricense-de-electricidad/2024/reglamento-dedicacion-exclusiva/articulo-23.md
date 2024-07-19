@@ -1,0 +1,1 @@
+Artículo 23.-La Empresa reconocerá un 25% sobre el salario base al personal de nivel profesional que ostente el grado académico de licenciatura u otro grado académico superior cuya profesión, especialidad profesional, actividades y responsabilidades del puesto.

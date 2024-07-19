@@ -1,0 +1,1 @@
+Artículo 30.-La persona trabajadora que se incorpore al Régimen de Dedicación Exclusiva mantiene la retribución y obligaciones que establecen las normas de este reglamento, así como el respectivo contrato cuando esté de vacaciones, incapacitado o disfrute con un permiso con goce de sueldo total o parcial.
