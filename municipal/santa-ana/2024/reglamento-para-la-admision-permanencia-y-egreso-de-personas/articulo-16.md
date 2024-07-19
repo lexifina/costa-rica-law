@@ -1,0 +1,1 @@
+Artículo 16.-En cualquiera de las situaciones antes mencionadas la persona adulta mayor, familiar o encargado legal debe presentarse al centro diurno y llenar y firmar la boleta de egreso del programa, reservándose el centro el derecho de readmisión. Si el adulto mayor o la persona encargada no se presenta la administradora realizara un oficio indicando las razones del egreso
