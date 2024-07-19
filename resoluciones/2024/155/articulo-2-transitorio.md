@@ -1,0 +1,1 @@
+Transitorio 2: Las solicitudes de estudios de ajustes de incentivo por carrera profesional presentados para ser reconocidos previo a la publicación de esta resolución se tramitarán conforme con la normativa anterior.
