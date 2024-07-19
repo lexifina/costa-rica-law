@@ -1,0 +1,1 @@
+Artículo 26.-Otorgamiento del certificado de licencia de uso. Corresponderá al Proceso de Cooperación Técnica el otorgamiento de las licencias de uso de la Marca Cantón Santa Ana mediante la emisión de un certificado de licencia de uso.

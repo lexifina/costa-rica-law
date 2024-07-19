@@ -1,0 +1,1 @@
+Artículo 25.-Comité interno de evaluación de solicitudes de marca cantón. Toda solicitud de uso de Marca Cantón deberá ser evaluada y resuelta por el Proceso de Cooperación Técnica; quien a su vez podrá solicitar el apoyo técnico de las dependencias municipales que considere necesarias.

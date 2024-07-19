@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones contenidas en el presente reglamento son de cumplimiento obligatorio para los funcionarios de la Municipalidad de Santa Ana, así como para todos los sujetos interesados en solicitar y obtener una licencia de uso de la Marca Cantón Santa Ana, así como cualquier otra autorización especial relacionada con ésta.

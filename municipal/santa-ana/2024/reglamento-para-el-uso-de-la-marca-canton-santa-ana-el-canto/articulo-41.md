@@ -1,0 +1,1 @@
+Artículo 41.-Evaluación de seguimiento. Las empresas licenciadas deben de someterse a un proceso de evaluación de seguimiento al menos cada ocho meses de otorgada la licencia, con el objetivo de validar que la organización continúe cumpliendo con las condiciones de otorgamiento previsto en el protocolo de evaluación.

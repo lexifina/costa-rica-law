@@ -1,0 +1,6 @@
+Artículo 13.-Del ente ejecutor de la Marca Cantón. El Libro de Marca vigente y sus posteriores adiciones son de acatamiento obligatorio para todos los funcionarios y sus diversas dependencias, así como al sector privado al que se le autorice, concernientes al uso y aplicación de los elementos de Identidad Visual.
+La dependencia, organización, empresa, persona o institución que utilice elementos de la Identidad Corporativa, será responsable de velar porque se cumplan con todos los requerimientos establecidos en el presente reglamento y en el Libro de Marca, por lo que es necesario informar al ente regulador de cualquier anomalía o incumplimiento en ese sentido.
+De forma particular, la vigilancia en el cumplimiento del Libro de Marca será responsabilidad de:
+a) Proceso de Comunicación y Proceso de Coordinación Técnica del Gobierno Local de Santa Ana.
+b) Área de Diseño Gráfico: Toda persona encargada de diseños o de propagar la identidad del cantón deberá de velar por que el Libro de Marca sea utilizado correctamente.
+c) Toda empresa subcontratada por el Gobierno Local de Santa Ana debe estar sujeta y autorizada en forma escrita por cualquiera de las instancias antes mencionadas para el uso de la marca y la aplicación de este Manual de Marca.
