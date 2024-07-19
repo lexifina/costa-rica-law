@@ -1,0 +1,1 @@
+Artículo 9º-Base imponible. En el caso de Patentes de Espectáculos, donde se cobre entrada, se pagará un impuesto según lo establecido en la Ley 6844, del 11 de enero de 1983, y del dispuesto en artículo 3° Ley N° 228-1948 Reforma Ley Impuesto Empresas Teatrales Espectáculos Públicos, sobre cada valor del tiquete, boleto, entrada individual o medio utilizado de pago.

@@ -1,0 +1,1 @@
+Artículo 11.-Tarifa. La Municipalidad del Cantón de Tilarán cobrará un impuesto del once por ciento (11%) sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos y de diversión que se realicen con fines de lucro o ganancia, señalados en el artículo 3° de este Reglamento.

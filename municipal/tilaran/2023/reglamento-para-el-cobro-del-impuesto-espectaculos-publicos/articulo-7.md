@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del impuesto de espectáculos públicos
+Artículo 7º-Del hecho generador del impuesto de espectáculos públicos. Constituye el hecho generador de la obligación tributaria, la representación transmisión o captación pública que congregue, en cualquier lugar, a personas para presenciarla o escucharla, tales como: Circos, carruseles, así como toda función, representación de tipo artística, incluyendo a los karaokes, así como cualquier otra actividad que pueda catalogarse como entretenimiento, diversión, recreación o espectáculo, en los cuales se cobre cuota de ingreso, entendiéndose dicho cobro también como aquellos montos que se cancelen por consumo mínimo, barra libre, admisión consumible, derecho de admisión y similares.

@@ -1,0 +1,8 @@
+Artículo 2º-De las definiciones. Se establecen las siguientes definiciones para la aplicación del presente reglamento.
+Administración Tributaria: Se refiere al Proceso de Servicios Ciudadanos y Técnicos de la Municipalidad de Tilarán, que en este caso opera como Administración Tributaria.
+Espectáculos públicos permanentes: Son aquellos que por su naturaleza constituyen la actividad ordinaria del lugar y se desarrollan durante todo el año, tales como: Karaokes, cines, teatros, salones de baile, discotecas, restaurantes o bares con variedades artísticas, salas de conciertos o de convenciones y otros similares.
+Espectáculos públicos ocasionales: Son aquellas actividades que por su naturaleza se desarrollan ocasionalmente, tales como: festivales, ferias, festejos cívicos patronales, novilladas, peñas culturales, clausuras, conciertos y otros espectáculos similares.
+Impuesto: Es el gravamen que deben cancelar las personas interesados al realizar eventos en el Cantón de Tilarán, y medie el cobro de un boleto o similar.
+Karaoke: Es el sistema de audiovisual que reproduce la música y la letra escrita de una canción para facilitar su interpretación por un cantante no profesional.
+Música en vivo: Son aquellas que por su naturaleza constituyen una actividad ordinaria del lugar y se desarrollan durante todo el año en bares, restaurantes, discotecas y otros similares.
+Organizaciones comunales sin fines de lucro: Aquellas organizaciones que tienen como fin común solucionar problemas comunes, beneficencia y tienen como objetivo ser capaces de dinamizar y crear nuevas formas de participación que permitan a la comunidad ser un actor protagonista en el mejoramiento de la calidad de vida de los habitantes y en cumplimiento de la Políticas Culturales y Deportivas.

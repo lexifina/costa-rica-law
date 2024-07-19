@@ -1,0 +1,1 @@
+Artículo 4º-Del procedimiento para la tramitación de licencias, en el caso de espectáculos públicos permanentes. En este caso, deberá seguirse el procedimiento que se establece en el Reglamento General de Patentes Comerciales de la Municipalidad de Tilarán.
