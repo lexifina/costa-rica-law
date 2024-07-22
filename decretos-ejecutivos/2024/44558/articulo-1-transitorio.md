@@ -1,0 +1,1 @@
+Transitorio Único: El Ministerio de Ambiente y Energía tendrá un plazo de hasta 2 meses a partir de la publicación de este Reglamento para establecer el Manual de operación de reconocimiento de servicios ambientales o ecosistémicos en Bosques de Mangle.
