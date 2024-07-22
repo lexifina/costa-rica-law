@@ -1,1 +1,0 @@
-Artículo 68. Advertencia. La advertencia se brinda fundamentalmente a la Administración Activa y consiste en prevenir respecto a posibles consecuencias de determinadas conductas o decisiones, cuando sean del conocimiento de la persona Contralora Empresarial o del personal de la Contraloría Empresarial y que contradigan al ordenamiento jurídico, técnico y a las sanas prácticas

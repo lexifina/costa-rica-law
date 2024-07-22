@@ -1,5 +1,0 @@
-Sección Segunda. Etapas de los servicios de Auditoría
-Artículo 71. Etapas del proceso de auditoría (a posteriori). Las etapas generales del proceso de auditoría son:
-a. Planificación. Se elaborará el programa de trabajo para la planificación, con el propósito de adquirir el conocimiento del proceso sujeto a examen, el plan general de auditoría y el programa específico para examen del estudio que se realice.
-b. Ejecución del trabajo. Se cumplirá con los objetivos propuestos y el alcance en cada uno de los estudios o investigaciones. Se recopilará, analizará e interpretará la información obtenida para compararla con los criterios establecidos y la normativa aplicable que respalde razonablemente los resultados, conclusiones y recomendaciones.
-c. Comunicación de resultados. Se definirán las conclusiones y recomendaciones dirigidas a la Administración Activa, una vez determinados los hallazgos del estudio, con el propósito de que se corrijan o eliminen las deficiencias y se implementen mejoras a los procesos, controles o procedimientos en el desarrollo de esas actividades.

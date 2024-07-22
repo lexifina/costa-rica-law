@@ -1,1 +1,0 @@
-Artículo 77. Riesgo. La actividad de la Contraloría Empresarial coadyuvará, conforme a sus competencias, en la mejora del Sistema Específico de Valoración del Riesgo Institucional (SEVRI) de la ESPH y de los sistemas de control respectivos. La actividad de la Contraloría Empresarial fiscalizará la efectivid9d del SEVRI.

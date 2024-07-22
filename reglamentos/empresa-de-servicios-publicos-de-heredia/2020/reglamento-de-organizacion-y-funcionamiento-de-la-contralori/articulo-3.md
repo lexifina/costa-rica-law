@@ -1,1 +1,0 @@
-Artículo 3. Ámbito de aplicación. Este Reglamento es de carácter obligatorio para todas las personas funcionarias de la Contraloría Empresarial y de la Administración Activa, así como otros actores a quienes resulte aplicable.

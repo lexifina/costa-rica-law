@@ -1,1 +1,0 @@
-Artículo 89. Comunicación de Informe de Control Interno cuando también hay Relación de Hechos. Cuando un estudio origina un Informe de Control Interno y una investigación preliminar, será criterio de la persona Contralora Empresarial realizar la conferencia final de la relación de hechos, máxime si se señalan como posibles responsables a funcionarios de niveles jerárquicos altos.

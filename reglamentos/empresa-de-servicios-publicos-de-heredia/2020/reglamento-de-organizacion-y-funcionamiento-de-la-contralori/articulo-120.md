@@ -1,8 +1,0 @@
-Artículo 120. Archivo y desestimación de la denuncia. La Contraloría Empresarial desestimará o archivará las denuncias cuando se presenten algunas de las siguientes situaciones:
-a. Los hechos son ajenos al ámbito de competencia de la Contraloría Empresarial.
-b. La situación ya ha sido investigada o se encuentra en otra instancia con competencia para realizar el análisis, la valoración, el control y las potestades disciplinarias atinentes.
-c. Los hechos constituyen una reiteración o reproducción de asuntos o gestiones que, sin aportar elementos nuevos, se refieren a temas resueltos con anterioridad por la Contraloría Empresarial u otras instancias competentes.
-d. Si se refieren a problemas de índole estrictamente laborales que se presentan entre funcionarios de la Empresa y la Administración Activa, o a desavenencias de tipo personal entre funcionarios, excepto que de los hechos se desprendan aspectos relevantes que ameritan ser valorados por la Contraloría Empresarial en razón de sus competencias.
-e. Cuando el costo aproximado de los recursos a invertir para la investigación de los hechos presuntamente irregulares sea superior al valor del hecho denunciado, sin perjuicio de cualquier otra acción alternativa que la Contraloría Empresarial pudiera realizar en el ejercicio de sus competencias. Para aducir esta causal, la Contraloría Empresarial debe fundamentarse en elementos objetivos o haber establecido de previo metodologías para el análisis de costos.
-f. Cuando el asunto denunciado se refiere de manera exclusiva a intereses personales del denunciante, en relación con conductas ejercidas u omitidas por la Administración.
-g. Si en el análisis inicial resulta evidente que no se ha cometido ninguna infracción al ordenamiento jurídico.

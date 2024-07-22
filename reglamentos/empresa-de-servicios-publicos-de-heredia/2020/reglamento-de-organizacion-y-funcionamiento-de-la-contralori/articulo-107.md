@@ -1,2 +1,0 @@
-Sección Segunda. Servicio de Seguimiento de acciones sobre resultados
-Artículo 107. Servicio de acciones sobre resultados. La persona Contra lora Empresarial establecerá y mantendrá un sistema de seguimiento a las acciones de los servicios a priori y posteriori. Se realizará con base en los informes que remita a la Administración Activa, contendrá los avances y observaciones que le haya realizado respecto a la implementación de las recomendaciones y demás anotaciones que realice la Contraloría Empresarial.

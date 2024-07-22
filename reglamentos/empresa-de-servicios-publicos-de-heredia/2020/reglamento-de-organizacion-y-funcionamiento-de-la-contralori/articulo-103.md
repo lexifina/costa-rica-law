@@ -1,1 +1,0 @@
-Artículo 103. Servicios a priori. En el caso de los servicios a priori, sobre todo respecto a las advertencias, se aplicará el mismo procedimiento, los plazos y las responsabilidades descritas en este capítulo.

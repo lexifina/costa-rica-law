@@ -1,1 +1,0 @@
-Artículo 39. Servicio Asesoría Legal. Es obligación de la Asesoría Legal de la ESPH brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Contraloría Empresarial, a fin de establecer su ámbito de acción de manera adecuada y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33 de la Ley General de Control Interno.

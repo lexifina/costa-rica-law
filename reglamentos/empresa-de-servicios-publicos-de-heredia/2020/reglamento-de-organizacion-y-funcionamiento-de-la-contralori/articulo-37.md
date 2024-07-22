@@ -1,1 +1,0 @@
-Artículo 37. Dependencia de personas profesionales asesoras. Las personas profesionales que sean asignadas o contratadas en virtud del artículo anterior y que participen en estudios de auditoría, estarán bajo la autoridad de la persona Contralora Empresarial y los informes deberán rendirlos ante dicha jefatura.

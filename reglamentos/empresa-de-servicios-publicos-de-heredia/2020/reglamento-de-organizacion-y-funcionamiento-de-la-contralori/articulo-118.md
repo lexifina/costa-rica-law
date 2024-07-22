@@ -1,1 +1,0 @@
-Artículo 118. Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas mientras aporten todos los elementos de convicción suficientes y se sustenten en medios probatorios idóneos que admitan iniciar la investigación. De no ser así, se archivará la denuncia.

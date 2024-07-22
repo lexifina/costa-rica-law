@@ -1,1 +1,0 @@
-Artículo 83. Análisis y evaluación. Las personas funcionarias de la Contraloría Empresarial fundamentarán los hallazgos, conclusiones, recomendaciones, observaciones y demás resultados del trabajo en un adecuado análisis y evaluación.

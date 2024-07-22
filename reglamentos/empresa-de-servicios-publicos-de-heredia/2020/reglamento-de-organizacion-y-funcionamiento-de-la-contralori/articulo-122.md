@@ -1,5 +1,0 @@
-Artículo 122. Comunicación a la persona o personas denunciantes. La persona Contralora Empresarial comunicará a la persona denunciante el trámite que se le ha dado a su denuncia, sin comprometer las reglas de confidencialidad, cuando:
-a. Se deba remitir el asunto a las autoridades internas pertinentes de la institución si se trata de casos que deba atender la Administración Activa en primera instancia y que no haya sido enterada de la situación, o está realizando una investigación por los mismos hechos. De igual manera, cuando existan causales de abstención o conflictos de interés que puedan afectar al auditor o a algún funcionario de la Contraloría Empresarial.
-b. Corresponde trasladar el asunto a autoridades externas a la institución, sean administrativas o judiciales, por especialidad de la materia o porque en otra instancia existe una investigación avanzada de los mismos hechos.
-c. Se incluyen hechos presuntamente irregulares para examinarse en una auditoría que se encuentra en ejecución, o para la programación de un nuevo estudio o proceso de auditoría.
-d. Se decida desestimar la denuncia y archivarla.

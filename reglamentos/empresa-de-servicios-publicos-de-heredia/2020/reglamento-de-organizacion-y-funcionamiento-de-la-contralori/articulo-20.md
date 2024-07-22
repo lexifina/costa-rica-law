@@ -1,1 +1,0 @@
-Artículo 20. Delegación de funciones. La persona Contralora Empresarial podrá delegar funciones en su personal, al utilizar criterios de idoneidad y conforme lo establece la Ley General de la Administración Pública. El personal estará obligado a cumplir con el marco legal, reglamentario y técnico que regula su accionar.

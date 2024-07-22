@@ -1,1 +1,0 @@
-Artículo 43. Responsabilidades por el incumplimiento del plazo. Si una persona funcionaria de la Administración Activa incumple el plazo determinado por la Contraloría Empresarial, quedará sujeto a las sanciones previstas en el capítulo V de la Ley General de Control Interno (Responsabilidades y Sanciones).

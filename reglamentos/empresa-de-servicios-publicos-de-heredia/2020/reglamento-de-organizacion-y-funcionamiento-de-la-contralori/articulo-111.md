@@ -1,1 +1,0 @@
-Artículo 111. Reiteración de recomendaciones. Si los Auditores Externos repiten recomendaciones en los años siguientes, se indicará en los informes que constituyen una reiteración a años anteriores; se deben identificar el número de informe y de recomendación.

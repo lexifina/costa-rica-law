@@ -1,1 +1,0 @@
-Artículo 97. Errores, omisiones y correcciones. Si una comunicación contuviese un error u omisión significativa, la persona Contralora Empresarial notificará la corrección a todas las partes que recibieron la información original.

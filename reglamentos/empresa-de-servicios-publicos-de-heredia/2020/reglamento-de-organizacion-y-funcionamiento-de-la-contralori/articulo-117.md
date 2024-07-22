@@ -1,1 +1,0 @@
-Artículo 117. Solicitud de aclaración. Si la Contraloría Empresarial determina que existe imprecisión de los hechos, se otorgará a la parte un plazo para que la persona denunciante complete su información. De lo contrario, se podrá archivar o desestimar la denuncia sin perjuicio de que luego se presente como una nueva gestión con mayores elementos.

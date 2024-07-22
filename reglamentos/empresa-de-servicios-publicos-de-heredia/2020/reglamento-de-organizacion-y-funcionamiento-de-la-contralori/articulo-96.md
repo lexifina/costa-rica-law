@@ -1,1 +1,0 @@
-Artículo 96. Difusión de resultados. En el caso de Informes de Control Interno que tengan disposiciones para las personas titulares subordinadas, será criterio de la persona Contralora Empresarial el remitirles una copia.

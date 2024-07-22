@@ -1,7 +1,0 @@
-Artículo 123. Comunicación del resultado de la investigación. El resultado de la investigación se informará de la siguiente manera:
-1. Cuando se admita, se le podrá informar a la persona denunciante la actuación que se le dará.
-2. Al final de la investigación:
-i. En caso de que la denuncia dé por resultado un Informe de Control Interno, será remitido a la persona denunciante, previa solicitud formal.
-ii. Si la denuncia origina una investigación preliminar, en virtud de la confidencialidad no se entregará copia del producto final hasta que se resuelva lo que corresponda por la instancia competente. En este caso, únicamente se le informará que la investigación resultó en una investigación preliminar.
-iii. Cuando en las investigaciones se resuelve la presentación de una denuncia penal o la remisión de una relación de hechos; la comunicación al denunciante o solicitante se limitará a indicar la respectiva remisión o presentación del informe, sin hacer referencia a ningún elemento específico o valoración efectuada.
-3. Lo resuelto debe ser comunicado al denunciante, si este hubiese señalado lugar para atender notificaciones; de lo contrario, la Contraloría Empresarial elaborará el documento pertinente de conformidad con su regulación interna, para hacer constar los resultados de la investigación y los motivos que imposibilitan su comunicación al denunciante. Dicho documento deberá integrarse en el expediente respectivo.

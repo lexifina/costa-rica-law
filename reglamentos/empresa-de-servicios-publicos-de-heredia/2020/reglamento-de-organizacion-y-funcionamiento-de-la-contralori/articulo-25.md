@@ -1,3 +1,0 @@
-Sección Quinta. Recursos en general
-Artículo 25. Recursos. La ESPH deberá dotar a la Contraloría Empresarial de los recursos humanos, materiales, tecnológicos, de capacitación, entrenamiento, transporte y otros necesarios y suficientes para que pueda cumplir con su gestión, de conformidad con el artículo 27 de la Ley General de Control Interno.
-La persona Contralora Empresarial deberá proponer la debida justificación ante la Junta Directiva, la creación de plazas y servicios, así como la dotación de recursos que considere indispensables para dar una cobertura adecuada al universo auditable, para el cumplimiento de su Plan de Trabajo y el buen funcionamiento de la Contraloría Empresarial en general.

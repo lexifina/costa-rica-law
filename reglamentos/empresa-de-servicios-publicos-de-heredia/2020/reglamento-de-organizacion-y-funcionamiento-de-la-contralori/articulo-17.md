@@ -1,1 +1,0 @@
-Artículo 17. Nombramiento de la persona Contralora Empresarial. La Junta Directiva nombrará a la persona Contralora Empresarial de conformidad con la Ley General de Control Interno, los lineamientos que al respecto establezca la Contraloría General de la República y la normativa aplicable.
