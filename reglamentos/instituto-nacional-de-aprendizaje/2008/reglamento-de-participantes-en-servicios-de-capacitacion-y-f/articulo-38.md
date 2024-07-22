@@ -1,2 +1,2 @@
-Artículo 38.—Ausencia a la comparecencia. La ausencia injustificada de la o las partes, no impide que la comparecencia se lleve a cabo. EI Órgano Director evacuará la prueba previamente ofrecida por la parte ausente, si ello es posible.
+Artículo 38.-Ausencia a la comparecencia. La ausencia injustificada de la o las partes, no impide que la comparecencia se lleve a cabo. EI Órgano Director evacuará la prueba previamente ofrecida por la parte ausente, si ello es posible.
 En caso de ausencia justificada, de la persona investigada o de alguna de las personas que conforman el Órgano Director deberá, señalar nueva fecha, hora y lugar para comparecer.

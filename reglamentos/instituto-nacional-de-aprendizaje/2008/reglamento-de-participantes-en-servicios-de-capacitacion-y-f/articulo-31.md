@@ -1,1 +1,1 @@
-Artículo 31. Del Órgano Director. En caso de hallarse mérito, la persona Encargada del Centro de Formación o del Proceso de Servicio al Usuario de la Unidad Regional, nombra por escrito el Órgano Director del Procedimiento Disciplinario, a quién se le traslada la denuncia. ,
+Artículo 31. Del Órgano Director. En caso de hallarse mérito, la persona Encargada del Centro de Formación o del Proceso de Servicio al Usuario de la Unidad Regional, nombra por escrito el Órgano Director del Procedimiento Disciplinario, a quién se le traslada la denuncia.

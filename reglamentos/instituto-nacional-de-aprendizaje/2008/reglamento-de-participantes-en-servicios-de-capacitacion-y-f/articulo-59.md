@@ -1,1 +1,1 @@
-Artículo 59.—Acuerdos firmes. Se declarará firme un acuerdo, cuando así se determine por unanimidad en el momento de tomarlo. Situación que debe constar en el acta. De lo contrario adquirirá firmeza en la próxima sesión.
+Artículo 59.-Acuerdos firmes. Se declarará firme un acuerdo, cuando así se determine por unanimidad en el momento de tomarlo. Situación que debe constar en el acta. De lo contrario adquirirá firmeza en la próxima sesión.

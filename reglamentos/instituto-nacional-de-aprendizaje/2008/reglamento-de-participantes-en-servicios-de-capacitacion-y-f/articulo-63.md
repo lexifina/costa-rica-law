@@ -2,7 +2,7 @@ TÍTULO VI
 De la responsabilidad del personal docente, encargado de proyecto y servicios de apoyo
 CAPÍTULO I
 De la responsabilidad del personal docente
-Artículo 63.—Son responsabilidades del personal docente:
+Artículo 63.-Son responsabilidades del personal docente:
 a) Llevar al día el control de asistencia de las personas participantes de los servicios de capacitación y formación profesional, el cual deberá entregar a la persona que corresponda y en el tiempo establecido de acuerdo a las directrices que establezca cada Centro de Formación o las Unidades Regionales.
 b) Participar en el Comité Local Disciplinario, cuando la persona haya sido asignada como parte del Comité o de forma consultiva y en el Comité Institucional Disciplinario cuando se le convoque.
 c) Registrar las amonestaciones verbales según lo estipulado en el artículo 21 de este Reglamento y cualquier otra conducta antirreglamentaria que permita iniciar un proceso correctivo.

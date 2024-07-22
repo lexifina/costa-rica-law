@@ -20,3 +20,4 @@ Reglamento de participantes en servicios de Capacitación y Formación Profesion
 | 5 | 2020-06-15 | Reglamento 22 (2020-06-15) |
 | 6 | 2022-08-08 | Reglamento 28 (2022-08-08) |
 | 7 | 2023-11-13 | Reglamento 0 (2023-11-13) |
+| 8 | 2024-07-22 | Reglamento 25 (2024-07-22) |

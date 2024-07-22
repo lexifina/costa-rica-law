@@ -5,5 +5,6 @@ b) burlas, bromas ofensivas e insultos dirigidos directamente hacia la persona, 
 c) uso de vocabulario discriminador para insultar a terceras personas;
 d) trato diferencial o despectivo hacia una persona, personas o colectivo de personas en cualquier ámbito de las actividades del INA.
 e) exclusión o segregación de una persona, personas o colectivo de personas de sus actividades educativas, docentes o laborales;
-g) desinterés, negligencia o maltrato en la atención de una persona, personas o colectivo de personas
-h) cualquier otra prevista en el ordenamiento jurídico costarricense que resulte aplicable a esta normativa.
+f) desinterés, negligencia o maltrato en la atención de una persona, personas o colectivo de personas
+g) cualquier otra prevista en el ordenamiento jurídico costarricense que resulte aplicable a esta normativa.
+(Así ajustados la letra correspondiente a los incisos f y g, mediante reforma aprobada por la Junta Directiva del INA, Acuerdo firme N°JD-AC-212-2024, tomado en la sesión N° 25-2024 del día 22 de julio de 2024).

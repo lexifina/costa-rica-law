@@ -1,4 +1,4 @@
-Artículo 12.—Justificación de ausencias. Se considerarán justificadas las ausencias que se originen por los siguientes motivos:
+Artículo 12.-Justificación de ausencias. Se considerarán justificadas las ausencias que se originen por los siguientes motivos:
 a) Enfermedad o accidente de la persona participante, certificada por incapacidad médica.
 b) Paternidad comprobada del participante. Esta justificación no podrá exceder a dos días hábiles a partir del día siguiente del alumbramiento, todo de acuerdo a lo que establece el artículo 13 del presente Reglamento.
 c) Enfermedad grave o internamiento hospitalario de cualquiera de sus familiares en primer grado de consanguinidad o afinidad, para lo cual debe presentar incapacidad médica.

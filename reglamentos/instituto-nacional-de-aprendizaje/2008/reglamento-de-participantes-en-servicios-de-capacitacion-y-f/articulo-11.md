@@ -1,4 +1,5 @@
-Artículo 11. Reprobación del servicio de capacitación y formación profesional por ausencias. Las ausencias injustificadas implicarán la pérdida del módulo cuando el número de horas de ausencia:
+Artículo 11. Reprobación del servicio de capacitación y formación profesional por ausencias.
+Las ausencias injustificadas implicarán la pérdida del módulo cuando el número de horas de ausencia:
 a) Del servicio de capacitación y formación profesional de hasta 50 horas, sea superior al 10% del total de horas
 b) Del servicio de capacitación y formación profesional de 51 horas hasta 200 horas, sea superior al 8% del total de horas
 c) Del servicio de capacitación y formación profesional de 201 horas hasta 500 horas, sea superior al 4% del total de horas

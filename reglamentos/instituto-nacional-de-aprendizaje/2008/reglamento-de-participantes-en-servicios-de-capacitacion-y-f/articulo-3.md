@@ -14,5 +14,6 @@ j) Propiciar la integración de las personas participantes en actividades educat
 k) Facilitar a la población participante la información referida sobre la normativa aplicable al proceso de formación.
 l) Velar por que se cumpla el principio de igualdad de oportunidades para las personas participantes.
 m) Propiciar que el personal docente y administrativo establezca un trato respetuoso e igualitario para la población participante.
-n) Actuar diligentemente en los casos que se presenten denuncias o) Cubrir con la póliza de riesgo del trabajo a la persona participante, del servicio de capacitación y formación profesional, de acuerdo con la naturaleza de la formación y el nivel de riesgo.
+n) Actuar diligentemente en los casos que se presenten denuncias
+o) Cubrir con la póliza de riesgo del trabajo a la persona participante, del servicio de capacitación y formación profesional, de acuerdo con la naturaleza de la formación y el nivel de riesgo.
 p) Velar porque cada Centro Ejecutor elabore las directrices que especifiquen las normas de higiene, presentación personal, salud ocupacional y cualquier otra que debe cumplir cada participante.
