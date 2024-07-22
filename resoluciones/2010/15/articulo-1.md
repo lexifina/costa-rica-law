@@ -6,3 +6,12 @@ DG-285-2010. Crear la codificación de los elementos del sistema clasificatorio 
 (Mediante resolución N° DG-AV-003-2018 del 5 de marzo del 2018, se emitió la resolución N° DG-016-2018 que modifica la resolución N° DG-285-2010 del 18 de agosto del 2010 tal como se indica en dicha resolución)
 (*)(Mediante resolución N° DG-AV-008-2019 del 28 de mayo del 2019 se emitió la resolución N° DG-106-2019, la cual establece Actualizar la codificación para los componentes del Sistema Clasificatorio del Título I (De la Carrera Administrativa) y del Título IV (De la Carrera Artística) del Estatuto de Servicio Civil, manteniendo para ello la estructura de codificación establecida en el Artículo 3° de la Resolución DG-285-2010, la cual indica que para la creación de los códigos se dispondrá de, al menos, dieciséis campos.)
 (*)(Mediante resolución N° DG-AV-10-2022 del 04 de noviembre del 2022 se emitió la resolución N° DG-RES-85-2022, la cual actualiza la codificación de las clases de puestos que integran el Manual Descriptivo de Clases de Puestos Docente aplicable al Título II -De la Carrera Docente-, artículo 4° y 8°, inciso b))
+(Mediante resolución N° DG-RES-186-2024 del 22 de julio de 2027, se acordó actualizar el código de los Estratos dispuestos en la Resolución N° DG-285-2010 del 18 de agosto del 2010 y sus reformas, para las clases institucionales de la Imprenta Nacional pertenecientes al Título I del Estatuto de Servicio Civil, "De la Carrera Administrativa"; para que en adelante se integren de la siguiente manera:
+Estrato | Clase Genérica | Clase Ancha o Institucional | Nivel Salarial | Título de la Carrera
+03 | 02 | 131 | 191 | Técnico (a) de Artes Gráficas (G. de E.) Grupo A - Imprenta Nacional
+03 | 02 | 132 | 225 | Técnico (a) de Artes Gráficas (G. de E.) Grupo B - Imprenta Nacional
+03 | 02 | 133 | 254 | Técnico (a) de Artes Gráficas (G. de E.) Grupo C - Imprenta Nacional
+03 | 02 | 134 | 265 | Técnico (a) de Artes Gráficas (G. de E.) Grupo D - Imprenta Nacional
+03 | 03 | 116 | 376 | Coordinador (a) de Artes Gráficas (G. de E) - Imprenta Nacional
+03 | 03 | 117 | 278 | Encargado (a) de Procesos Técnicos 1 (G. de E.) - Imprenta Nacional
+03 | 03 | 118 | 311 | Encargado (a) de Procesos Técnicos 2 (G. de E.) - Imprenta Nacional")

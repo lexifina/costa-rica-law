@@ -18,3 +18,4 @@ Comunica emisión de resolución de la Dirección General de Servicio Civil (DG-
 | 3 | 2018-03-05 | Resolución 3 (2018-03-05) |
 | 4 | 2019-05-28 | Resolución 8 (2019-05-28) |
 | 5 | 2022-11-04 | Resolución 10 (2022-11-04) |
+| 6 | 2024-07-22 | Resolución 186 (2024-07-22) |
