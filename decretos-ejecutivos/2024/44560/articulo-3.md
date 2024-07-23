@@ -1,0 +1,2 @@
+Artículo 3°-Para la conservación de las especies forestales que se puedan ver afectadas, COOPELESCA R.L., deberá reponer y dar mantenimiento en la proporción que recomienden las autoridades del Sistema Nacional de Áreas de Conservación y el Plan de Gestión Ambiental del Proyecto.
+Los árboles deberán plantarse en la misma zona de la cuenca donde se produzca la corta. Esta acción y las derivadas de la misma se resolverán en coordinación con el Área de Conservación respectiva del Ministerio de Ambiente y Energía, la que por su parte certificará el cumplimiento de la reposición.
