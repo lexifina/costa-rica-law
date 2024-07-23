@@ -1,2 +1,0 @@
-Artículo 3°-Obligaciones del jugador.
-El jugador es responsable de verificar, en el momento de realizar la transacción que los datos de la apuesta sean correctos conforme lo establecido en el presente Reglamento.
