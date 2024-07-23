@@ -1,14 +1,16 @@
 Artículo 17
 De los plazos máximos a trabajadores independientes.
-a) Arreglos de pago.
-Se otorgará un plazo máximo de doce años en garantías hipotecarias de primer grado, cédulas hipotecarias en primer grado o fideicomisos de garantía donde el bien fideicometido sea un inmueble y la Institución sea el fideicomisario principal; para las demás garantías el plazo máximo será de siete años.
-b) Convenios de pago:
-Para convenios de pago el plazo máximo será definido de la siguiente manera:
-Si el deudor pagó al menos un 15% del total de las cuotas atrasadas, el plazo del convenio será de hasta 12 meses máximo.
-Si el deudor pagó al menos un 18% del total de las cuotas atrasadas, el plazo del convenio será de hasta 24 meses máximo.
-Si el deudor pagó al menos un 20% del total de las cuotas atrasadas, el plazo del convenio será de hasta 36 meses máximo.
-Si el deudor pagó al menos un 25% del total de las cuotas atrasadas, el plazo del convenio será de hasta 42 meses máximo.
-Si el deudor pagó al menos un 30% del total de las cuotas atrasadas, el plazo del convenio será de basta 48 meses máximo.
-c Readecuaciones de pago
-Para las readecuaciones de arreglo de pago, el plazo máximo será de siete o doce años, según el tipo de garantía ofrecida conforme a lo establecido en el inciso a) de este artículo.
-Para las readecuaciones de convenios de pago, el plazo máximo será 48 meses según las condiciones indicadas en el inciso b de este artículo.
+1. Arreglos de pago:
+El plazo máximo será de quince años con garantías hipotecarias de primer grado, garantías de cumplimiento, cédulas hipotecarias en primer grado o fideicomisos de garantía cuando el bien fideicometido sea un inmueble y la Institución sea el fideicomisario principal. Para las demás garantías el plazo máximo será de ocho años.
+2. Convenios de pago:
+Para convenios de pago el plazo máximo se define de la siguiente manera:
+. Si el deudor paga al menos un 5% del total de las cuotas atrasadas, el plazo del convenio será hasta por 12 meses máximo.
+. Si el deudor paga al menos un 10% del total de las cuotas atrasadas, el plazo del convenio será hasta por 24 meses máximo.
+. Si el deudor paga al menos un 12% del total de las cuotas atrasadas, el plazo del convenio será hasta por 36 meses máximo.
+. Si el deudor paga al menos un 15% del total de las cuotas atrasadas, el plazo del convenio será hasta por 42 meses máximo.
+. Si el deudor paga al menos un 18% del total de las cuotas atrasadas, el plazo del convenio será hasta por 48 meses máximo.
+. Si el deudor paga al menos un 20% del total de las cuotas atrasadas, el plazo del convenio será hasta por 60 meses máximo.
+3. Readecuaciones de pago
+Para las readecuaciones de arreglo de pago, el plazo máximo es de ocho o quince años, según el tipo de garantía ofrecida conforme a lo establecido en el punto 1 de este artículo.
+Para las readecuaciones de convenios de pago, el plazo máximo es de 60 meses según las condiciones indicadas en el punto 2 de este artículo.
+(Así reformado mediante sesión N°9468 del 23 de julio del año 2024)
