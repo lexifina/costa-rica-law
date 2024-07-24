@@ -1,0 +1,1 @@
+Artículo 2º-Objetivo: este Reglamento tiene por objeto regular la organización y el funcionamiento de los fondos de Trabajo y Caja Chica que a Municipalidad de Monteverde tenga establecidos o establezca en sus dependencias.

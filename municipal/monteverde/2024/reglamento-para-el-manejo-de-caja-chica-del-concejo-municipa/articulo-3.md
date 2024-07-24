@@ -1,0 +1,3 @@
+Artículo 3º-Se establecen los fondos de caja chica general.
+El monto establecido para el fondo de caja chica general será de *¢1.500.000 (un millón quinientos mil colones netos)
+La custodia de los fondos será responsabilidad del Tesorero Municipal, quien deberá actuar de conformidad con lo que el efecto disponga la normativa vigente y aplicable en la materia y este reglamento, correspondiéndole a este funcionario revisar anualmente esos fondos y proponer ante a la Alcaldía si se requiere, el aumento que se estime conveniente para satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

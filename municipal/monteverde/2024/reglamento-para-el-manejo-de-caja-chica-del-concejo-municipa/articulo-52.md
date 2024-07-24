@@ -1,0 +1,1 @@
+Artículo 52.-Obligación del usuario de los fondos de caja chica: de Todo funcionario que haga uso de los fondos de caja chica, tiene la obligación de conocer el presente reglamento, el incumplimiento del mismo será sancionado conforme a lo dispuesto en el Código Municipal y Código de Trabajo.

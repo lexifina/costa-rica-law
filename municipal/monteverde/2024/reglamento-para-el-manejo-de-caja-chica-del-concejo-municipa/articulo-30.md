@@ -1,0 +1,1 @@
+Artículo 30.-El monto de lo gastado no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario a nombre de quien se giró el vale debe asumir el gasto diferencial resultante si no hay contenido presupuestario. De haber contenido presupuestario se estará realizando lo indicado en el artículo 23.

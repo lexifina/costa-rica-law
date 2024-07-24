@@ -1,0 +1,4 @@
+Artículo 10.-Control y responsabilidad de la caja chica: El manejo de la caja chica estará a cargo del Tesorero(a) Municipal, quien es responsable de su correcto funcionamiento, todo egreso debe de estar autorizado por el Alcalde o bien a quien este designe.
+a. El control y la supervisión del funcionario encargado de la Caja Chica, estará bajo la responsabilidad del alcalde o quien delegue este, quien puede realizar arqueos programados, aleatorios o redundantes, para comprobar su integridad. El encargado de la Caja podrá recibir devoluciones de dinero únicamente en efectivo.
+b. De constatarse por medio de la realización de un arqueo que existe un faltante, el encargado de la Caja deberá reintegrarlo de inmediato de su propio peculio. En el evento de que se produjere un sobrante, deberá ser depositado en las cuentas generales de la Municipalidad.
+c. El funcionario que revisa las liquidaciones del fondo deberá ser diferente del que efectúa su registro contable.

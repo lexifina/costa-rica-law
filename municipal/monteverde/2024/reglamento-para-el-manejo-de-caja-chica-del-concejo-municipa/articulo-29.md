@@ -1,0 +1,6 @@
+Artículo 29-Los comprobantes (facturas o recibos) de las adquisiciones o servicios que se hagan con fondos de la Caja Chica y que son el sustento del egreso, deberán cumplir con los siguientes requisitos:
+a. Ser documentos originales, estar timbrados, membre-tados o dispensados del mismo por la Dirección General de la Tributación y del Ministerio de Hacienda y estar emitidos en favor de La Municipalidad de Monteverde.
+b. Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale.
+c. Indicar claramente y con detalle la compra o servicio recibido, la cual debe coincidir con lo estipulado en el vale y en caso de tratarse de facturas físicas, deberá traer impreso el sello de cancelado de la casa proveedora o tiquete de caja y por ningún motivo, deben contener tachaduras ni borrones.
+d. Si la factura no tiene logotipo debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones.
+e. El documento (facturas o recibos) deberá de contar con una nota que describa el detalle de la compra.

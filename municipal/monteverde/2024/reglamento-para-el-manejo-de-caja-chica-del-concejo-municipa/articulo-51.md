@@ -1,0 +1,1 @@
+Artículo 51-No se podrá mantener en su poder fondos de caja chica por más de 3 días hábiles: Ningún funcionario en la Municipalidad de Monteverde, con la excepción de los que tengan en custodia las reservas de cajas chica, podrá mantener en su poder fondos de caja chica por más de 3 días hábiles siguientes a la solicitud del dinero.

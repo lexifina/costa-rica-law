@@ -1,0 +1,1 @@
+Artículo 46.-Fraccionamiento ilícito en las compras: Por ninguna razón se aceptará el fraccionamiento ilícito en las compras de Caja Chica, por ende, no se podrá acudir a la formalización de más de un vale para pagar un mismo bien o servicio, conforme a lo preceptuado en el numeral 33 de la Ley General de Contratación Pública, N° 9986.

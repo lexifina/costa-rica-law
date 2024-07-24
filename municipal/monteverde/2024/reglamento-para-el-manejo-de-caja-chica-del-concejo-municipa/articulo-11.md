@@ -1,0 +1,1 @@
+Artículo 11.-Ausencia del encargado del fondo: Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia la Alcaldía o a quien esta designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo.

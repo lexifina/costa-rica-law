@@ -1,0 +1,1 @@
+Artículo 27.-Tiempo para liquidar vales provisionales: Los vales de caja chica deberán ser liquidados dentro de los tres días hábiles siguientes a su entrega, salvo en aquellos casos de fortuito o fuerza mayor no puedan liquidarse en ese plazo, en cuyo hecho podrá hacerse con posterioridad, siempre y cuando se justifique el retraso en forma debidamente documentada.

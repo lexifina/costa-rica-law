@@ -1,0 +1,2 @@
+Artículo 4°-El monto máximo de vale para el fondo de caja chica general, será la suma de ¢600.000 (seiscientos mil colones).
+Cuando el monto del vale supere el extracto económico definido por hacienda para el 2%, según artículo 11 de la Ley del impuesto sobre la renta, el usuario solicitante deberá contemplarlo así, al momento de la elaboración del vale a través del sistema informático, momento en el cual dicho sistema practicará la retención correspondiente. Será obligación del solicitante prevenir al proveedor sobre la retención de este impuesto.
