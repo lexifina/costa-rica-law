@@ -1,1 +1,0 @@
-Artículo 9° Del Servicio en la Web. - La Junta vela por las reglas de ciberseguridad; no obstante, las medidas adoptadas para prevenir la interrupción del servicio en el sitio no es garantizable al 100%. En todo momento el jugador debe tomar medidas adecuadas para garantizar la seguridad de su equipo.

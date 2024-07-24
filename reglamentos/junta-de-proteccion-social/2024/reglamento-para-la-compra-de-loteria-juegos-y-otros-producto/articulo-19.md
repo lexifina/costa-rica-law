@@ -1,1 +1,0 @@
-Artículo 19°: Derogatorias. El presente reglamento deroga el Reglamento para realizar compras en el sitio Web publicado en La Gaceta N° 99 del 03/05/2020, así de cualquier otra disposición que se oponga al nuevo reglamento.

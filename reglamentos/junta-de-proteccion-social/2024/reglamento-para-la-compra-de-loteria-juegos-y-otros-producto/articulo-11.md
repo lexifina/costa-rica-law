@@ -1,6 +1,0 @@
-Artículo 11° De la inhabilitación de la condición de usuario registrado. La Junta podrá inhabilitar la cuenta de un jugador e iniciar las acciones legales y administrativas que estime pertinentes, si se comprueba:
-. La violación de cualquiera de las estipulaciones de los "Términos y Condiciones de Uso Sitio Web", de alguna ley o u otra normativa atinente.
-. Se configuran los presupuestos establecidos los "Términos y Condiciones de Uso Sitio Web".
-. La existencia de una resolución judicial que determine que se incurrió en conductas o actos dolosos o fraudulentos.
-. Que no se puede verificar la identidad del jugador, o cualquier información proporcionada por este es errónea.
-En el caso de la inhabilitación de un jugador, todas las transacciones u operaciones del jugador serán inactivadas del sistema. La Junta se reserva el derecho de inhabilitar la cuenta del jugador que hubiere incumplido sus obligaciones derivadas de una apuesta, o si se detectare en su conducta intencionalidad de perjudicar o defraudar a otros jugadores. La Junta se reserva el derecho de reversar apuestas o congelar el premio ganado, si considera que el jugador ha incurrido en algún error involuntario o por cualquier otra razón que la Junta considere justificada.
