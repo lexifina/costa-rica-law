@@ -1,0 +1,1 @@
+ARTÍCULO 4- Autorícese al Instituto Costarricense de Turismo (ICT) para que incorpore, en las acciones de mercadeo para promover a Costa Rica como destino turístico que corresponda, el distrito de La Tigra, del cantón de San Carlos, como el sitio emblemático del primer sufragio de mujeres en Costa Rica, con el fin de dar a conocer el hecho histórico.
