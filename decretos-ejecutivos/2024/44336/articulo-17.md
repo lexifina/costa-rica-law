@@ -1,0 +1,3 @@
+ARTICULO 17.- Registro de ingreso y sacrifico en mataderos.
+Los responsables de los mataderos están obligados a registrar, todos los bovinos que ingresen al establecimiento, previo a su sacrifico y asegurar que el CIIO de cada animal sacrificado sea registrado en el sistema de control interno del matadero, de tal forma que se asegure de forma inequívoca la relación entre la identificación de las canales con los CIIO correspondiente al individuo del que se originan.
+Los mataderos deberán poner a disposición de la Autoridad Sanitaria en condiciones higiénicas los DIIO de los animales sacrificados a fin de que se garantice que no sea posible la reutilización de las partes o componentes del DIIO.

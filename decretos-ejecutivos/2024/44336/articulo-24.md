@@ -1,0 +1,1 @@
+ARTICULO 24.- Lista de lectores. El SENASA establecerá una lista de los lectores (transceptores) que cumplan con las características técnicas de hardware y software que garanticen su compatibilidad con el Sistema Nacional de Identificación Individual y Rastreabilidad del Ganado Bovino. Dicha lista deberá ser actualizada semestralmente y publicada en su página web.

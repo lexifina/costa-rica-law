@@ -1,0 +1,1 @@
+ARTÍCULO 29.- Deróguense el inciso e) del Artículo 29 y los artículos 37 bis, 57; 58; 60 y 61 del Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su robo, hurto y receptación", Decreto Ejecutivo N° 37918 del 08 de julio de 2013.

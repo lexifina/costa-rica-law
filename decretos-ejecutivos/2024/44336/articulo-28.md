@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Agréguese un artículo 35 bis al Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su robo, hurto y receptación", Decreto Ejecutivo N° 37918 del 08 de julio de 2013 y sus reformas que se leerá de la siguiente manera:
+"Artículo 35 bis. - La obligación del marcaje de los animales con su respectiva marca de ganado es independiente del cumplimiento de las disposiciones emitidas para la identificación individual de los animales."

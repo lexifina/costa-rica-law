@@ -1,0 +1,2 @@
+ARTICULO 23.- Habilitación de fabricantes y proveedores de DIIO. Los requisitos y condiciones para la habilitación de empresas fabricantes y proveedores de DIIO, será definidos y publicados por medio de directriz del SENASA.
+El SENASA podrá implementar los mecanismos necesarios, para verificar que los dispositivos ofrecidos por los proveedores, cumplan efectivamente con las características y condiciones especificadas, en caso de detectarse incumplimiento el SENASA podrá inhabilitar a fabricantes y proveedores.

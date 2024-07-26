@@ -1,0 +1,3 @@
+ARTICULO 16.- Registro de ingresos en subastas.
+Los encargados de recibo en las subastas ganaderas están obligados a notificar al SENASA de forma inmediata la no correspondencia entre la identificación oficial individual de los bovinos recibidos y los indicados en la guía de movilización que los acompañe. Aquellos animales cuyo DIIO no corresponda con el CIIO indicado en la guía oficial de movilización no podrán ser ingresados ni movilizados, hasta tanto el SENASA determine el destino de los mismos.
+Las subastas ganaderas deberán de disponer de un sistema de registro interno que permita vincular de forma inequívoca, el CIIO de cada bovino ingresado al establecimiento con el número consecutivo interno asignado.

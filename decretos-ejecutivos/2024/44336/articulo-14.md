@@ -1,0 +1,3 @@
+ARTICULO 14.- Registro de movimientos
+Los responsables de las fincas, subastas ganaderas, ferias o exposiciones ganaderas, mataderos, redondeles, o cualquier otro tipo de establecimiento donde ingrese o salga ganado bovino deberá de registrar en la base de datos oficial de SENASA los movimientos de ganado que se produzcan en su establecimiento. El establecimiento de origen registrará la salida de los animales y el de destino su entrada.
+El movimiento de animales hacia un establecimiento en el que permanezcan de forma transitoria y por un plazo no mayor a la vigencia de la GMG con la que se haya realizado el movimiento, no tendrán que registrar el movimiento de entrada ni el de salida, vencido ese plazo debe de cumplirse con la obligación del registro del movimiento.

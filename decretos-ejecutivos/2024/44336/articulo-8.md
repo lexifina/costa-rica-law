@@ -1,0 +1,2 @@
+ARTICULO 8.- De los Dispositivos de Identificación Oficiales.
+Se considerarán oficialmente identificados y registrados, aquellos animales que cuenten con el "Dispositivo de Identificación Individual Oficial" (DIIO) completo y hayan sido registrados en la base de datos oficial del Sistema Nacional de Identificación Individual y Rastreabilidad del Ganado Bovino. El SENASA aplicará las medidas sanitarias que la Ley General del Servicio Nacional de Salud Animal, Ley Nº 8495 del 6 de abril del 2006 le autoriza en caso de animales no identificados o registrados oficialmente.

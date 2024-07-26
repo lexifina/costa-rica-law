@@ -1,0 +1,2 @@
+ARTICULO 11.- Registro en base de datos.
+Todo bovino oficialmente identificado debe de ser registrado en la base de datos oficial del SENASA. El CIIO de cada individuo debe de asociarse con los datos descriptores requeridos para el mismo: sexo, código del establecimiento de nacimiento o código del establecimiento donde ha sido identificado por primera vez, identificación del propietario o poseedor, CIIO de la madre cuando corresponda, fecha de nacimiento cuando corresponda, fecha de identificación.
