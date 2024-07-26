@@ -1,6 +1,6 @@
 # Ley sobre Registro, Secuestro y Examen de Documentos Privados e Intervención de las Comunicaciones
 
-Ley N° 7425 del 1994-08-09. SINALEVI, ficha 16466: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=16466&param2=137734&param3=1>.
+Ley N° 7425 del 1994-08-09. SINALEVI, ficha 16466: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=16466&param2=141695&param3=1>.
 
 Publicada en La Gaceta N° 171 del 1994-09-08.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 8 | 2002-01-14 | Ley 8200 | 2001-12-10 |
 | 4 de 8 | 2002-04-18 | Ley 8238 | 2002-03-26 |
 | 5 de 8 | 2023-09-26 | Ley 10373 | 2023-09-20 |
+| 6 de 8 | 2024-07-26 | Ley 10500 | 2024-07-17 |

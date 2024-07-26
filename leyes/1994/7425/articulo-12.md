@@ -1,2 +1,2 @@
-ARTÍCULO 12.- Plazos y prórrogas de la intervención.
-La intervención ordenada se autorizará por un lapso máximo hasta de tres meses, salvo en los casos de extrema gravedad o de difícil investigación, en los que el Juez, mediante resolución fundada, disponga una prórroga. Excepcionalmente, se podrán ordenar, por igual plazo, hasta dos prórrogas como máximo.
+Artículo 12- Plazos y prórrogas de la intervención. La intervención ordenada se autorizará por un lapso máximo hasta de cuatro meses, salvo en los casos de extrema gravedad o de difícil investigación, en los que el juez, mediante resolución fundada, disponga una prórroga. Excepcionalmente, se podrán ordenar, por igual plazo, hasta dos prórrogas como máximo. En todo caso, la intervención no podrá exceder el plazo máximo de un año.
+(Así reformado por el artículo único de la Ley para la modernización de la intervención de las comunicaciones, N° 10500 del 17 de julio de 2024)
