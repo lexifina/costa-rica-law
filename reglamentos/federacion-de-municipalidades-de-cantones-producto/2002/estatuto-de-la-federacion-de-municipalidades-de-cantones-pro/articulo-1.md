@@ -4,5 +4,5 @@ En acatamiento a lo dispuesto por el artículo 10 del Código Municipal la Feder
 ESTATUTOS FEMUCARIBE Y ASOCIADOS
 CAPÍTULO PRIMERO
 Disposiciones Generales
-Artículo 1º-Constitución. Las Municipalidades de Talamanca, Matina, Guácimo, Pococí y Parrita constituyen una Federación de Municipalidades de conformidad con lo dispuesto en los artículos 9, 10 y 11 de la Ley N° 7794 de abril de 1998 "Código Municipal de Costa Rica.
-(Así reformado en sesión N° 01 del 24 de mayo de 2024)
+Artículo 1°-Constitución. Las Municipalidades de Talamanca, Limón, Matina, Guácimo, Pococí y Parrita constituyen una Federación de Municipalidades de conformidad con lo dispuesto en los artículos 9, 10 y 11 de la Ley 7794 de abril de 1998 "Código Municipal de Costa Rica.
+(Así reformado en sesión N° 03 del 27 de julio de 2024)

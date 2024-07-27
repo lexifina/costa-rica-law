@@ -24,3 +24,4 @@ Estatuto de la Federación de Municipalidades de cantones productores de banano 
 | 9 | 2022-09-14 | Reglamento 0 (2022-09-14) |
 | 10 | 2024-05-24 | Reglamento 1 (2024-05-24) |
 | 11 | 2024-06-15 | Reglamento 2 (2024-06-15) |
+| 12 | 2024-07-27 | Reglamento 3 (2024-07-27) |
