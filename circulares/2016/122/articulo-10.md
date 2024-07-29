@@ -1,3 +1,0 @@
-Artículo 10.- Publicación localizada mediante buscadores en Internet.
-No obstante lo dispuesto en el artículo anterior y a fin de eliminar la posibilidad de consultar los datos protegidos mediante los diferentes buscadores en Internet, se debe remitir una copia de lo resuelto, por la oficina que conozca de la solicitud de la persona interesada, a la Dirección de Tecnología de la Información, para que gestione lo correspondiente.
-Cuando corresponda a la Dirección de Tecnología de la Información la eliminación de los datos, esa Dirección deberá notificar a la persona solicitante la respuesta sobre dicha despersonalización, en el día inmediato siguiente a que se ha realizado la despersonalización.
