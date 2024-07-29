@@ -1,4 +1,6 @@
 CAPITULO XIII
 De las funciones y obligaciones de los miembros del Comité de CEN CINAI
-Artículo 54.- Ausencias injustificadas a las sesiones del Comité de CEN CINAI.
+Artículo 54.-Ausencias injustificadas a las sesiones del Comité de CEN CINAI.
 Perderá su condición de miembro del Comité, quien falte injustificadamente a tres sesiones ordinarias consecutivas o seis alternas ordinarias o extraordinarias; o por la comisión u omisión de actos graves imputables al miembro del comité, que perjudique la marcha o el prestigio del Comité.
+En los casos de ausencias, se deberá dejar constancia en las actas respectivas de las sesiones a las cuales el miembro del Comité no haya atendido.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 44583 del 29 de julio del 2024)

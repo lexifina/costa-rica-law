@@ -14,3 +14,4 @@ Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-17 | la propia norma |
+| 2 | 2024-07-29 | Decreto Ejecutivo 44583 (2024-07-29) |
