@@ -1,1 +1,0 @@
-Artículo 2°—A toda persona que haciendo uso de esta norma, encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, podrá notificarlo sin demora a la Oficina Nacional de Normas y Unidades de Medida, aportando si fuera posible, la información correspondiente para que esa Oficina efectúe las investigaciones pertinentes y tome las previsiones correspondientes.
