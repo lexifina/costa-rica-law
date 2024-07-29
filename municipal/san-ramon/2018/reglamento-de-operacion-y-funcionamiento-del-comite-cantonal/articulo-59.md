@@ -1,6 +1,6 @@
 Artículo 59: De las principales instalaciones deportivas y recreativas existentes.- Son instalaciones deportivas y recreativas cantonales aquellas que se encuentren a nombre de la Municipalidad de San Ramón y que estén destinadas, en forma permanente, al desarrollo de actividades recreativas o deportivas. Por ejemplo las siguientes:
 a) El Estadio Municipal Guillermo Vargas Roldán.
-b) El Polideportivo de San Ramón,
+b) (Derogado por el artículo 21 del Reglamento para el uso de la cancha de fútbol del polideportivo de San Ramón " Edwin López González", aprobado en sesión N° 19 del 29 de julio de 2024)
 c) El Complejo deportivo Rafael Rodríguez,
 d) las canchas de fútbol y otros deportes existentes en las comunidades del cantón, entre otras.
 Las personas que administren las instalaciones deportivas o recreativas, no pueden formar parte de Asociaciones Deportivas o Recreativas reconocidas por el Comité Cantonal de Deporte y Recreación de San Ramón, a efecto de impedir conflicto de intereses. En las instalaciones deportivas y recreativas administradas por el CCDRSR, está prohibido el consumo de licor, el fumado y cualquier manifestación de discriminación. Quien lo haga y así se demuestre, será expulsado de las instalaciones y no se permitirá de nuevo su acceso por un período no menor de un año.

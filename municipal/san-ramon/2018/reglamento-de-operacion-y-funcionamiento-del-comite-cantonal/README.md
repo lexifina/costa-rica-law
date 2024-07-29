@@ -15,3 +15,4 @@ Reglamento de operación y funcionamiento del Comité Cantonal de Deportes y la 
 | --- | --- | --- |
 | 1 | 2018-12-10 | la propia norma |
 | 2 | 2021-02-05 | Reglamento municipal 59 (2021-02-05) |
+| 3 | 2024-07-29 | Reglamento municipal 19 (2024-07-29) |
