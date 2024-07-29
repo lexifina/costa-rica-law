@@ -1,2 +1,0 @@
-Artículo 19.—Almacenamiento de textos originales. Para efectos de uso institucional y para garantizar a las partes, su derecho de acceso a la información, es deber de los despachos u oficinas, conservar los textos originales, conforme a las políticas institucionales establecidas.
-El Digesto de Jurisprudencia y los Centros de Jurisprudencia de las Salas deberán conservar los textos originales con respecto a la información que administran.

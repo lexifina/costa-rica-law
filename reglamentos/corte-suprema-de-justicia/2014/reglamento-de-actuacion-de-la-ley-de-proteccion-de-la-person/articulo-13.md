@@ -1,1 +1,0 @@
-Artículo 13.—Reemplazo de Datos Sensibles. Los datos que serán objeto de protección serán los datos personales. En relación con los datos sensibles estos se conservarán con el fin de mantener la historia y estadística para rescatar temas de interés relacionados con derechos humanos, género, violencia doméstica, accesibilidad, entre otros.

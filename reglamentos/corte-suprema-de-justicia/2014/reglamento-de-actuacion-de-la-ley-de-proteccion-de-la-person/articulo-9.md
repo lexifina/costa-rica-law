@@ -1,7 +1,0 @@
-Artículo 9º—Obligaciones de las personas encargadas de la protección de datos. Son obligaciones de las personas encargadas de la protección de datos:
-a) Implementar las medidas de seguridad a) que correspondan y cumplir con lo dispuesto en la Ley N° 8968, en el reglamento institucional y demás disposiciones aplicables.
-b) Analizar si procede la despersonalización de la información en las resoluciones o documentos que se le han remitido para estudio.
-c) Proceder a despersonalizar los datos personales de acceso restringido y de carácter sensible, de conformidad con lo dispuesto en la Ley N° 8968 y este reglamento.
-d) Depositar en el Repositorio Único de Sentencias Judiciales Despersonalizadas (RUSJD), la resolución o documento elaborado, una vez que ha sido despersonalizado. En caso de no haber requerido el documento, la despersonalización, deberá depositarlo en la carpeta habitual correspondiente.
-e) Corresponderá al Digesto y a los centros jurisprudenciales de las Salas, la publicación respectiva de las resoluciones y sentencias, una vez que han sido depositadas en el Repositorio Único de Sentencias Judiciales Despersonalizadas (RUSJD).
-f) En caso de que el Digesto y los Centros de Jurisprudencia verifiquen la existencia de errores u omisiones en la aplicación de este reglamento, devolverán los documentos al funcionario o funcionaria encargada para la corrección respectiva, lo cual deberá realizar en un plazo no mayor a dos días hábiles una vez recibido el reporte del error u omisión señalada.

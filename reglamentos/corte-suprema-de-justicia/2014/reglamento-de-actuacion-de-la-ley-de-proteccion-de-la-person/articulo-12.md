@@ -1,4 +1,0 @@
-SECCIÓN III:
-Despersonalización de los documentos y resoluciones judiciales
-Artículo 12.—Datos que deben protegerse. Para efectos de publicitar la información deberán ocultarse o eliminarse los datos personales contenidos en una resolución o sentencia, que permitan identificar a una persona, cuando se haga alusión a datos sensibles o de acceso restringido.
-No podrá divulgarse bajo ninguna circunstancia, la información personal relativa a personas menores de edad, personas mentalmente incapaces, víctimas referidas a acoso, delitos penales y de violencia doméstica. De igual manera no se podrán publicar en ningún caso, la dirección de la residencia, fotografías, número de teléfonos privados y otros de igual naturaleza cuyo tratamiento pueda afectar los derechos y los intereses de la persona titular.

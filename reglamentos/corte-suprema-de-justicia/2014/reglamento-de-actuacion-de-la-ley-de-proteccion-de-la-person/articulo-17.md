@@ -1,1 +1,0 @@
-Artículo 17.—Herramienta tecnológica y recurso humano. Se podrán utilizar y mejorar las herramientas tecnológicas que faciliten la labor de despersonalización, sin que esto sustituya la labor de revisión y supervisión en cuanto a la calidad de la información por parte de las personas encargadas y responsables de este proceso.
