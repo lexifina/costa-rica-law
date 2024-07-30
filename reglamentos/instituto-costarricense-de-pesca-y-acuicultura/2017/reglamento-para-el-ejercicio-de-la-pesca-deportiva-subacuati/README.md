@@ -15,3 +15,4 @@ Reglamento para el ejercicio de la pesca deportiva subacuática (acuerdo AJDIP/0
 | --- | --- | --- |
 | 1 | 2017-03-15 | la propia norma |
 | 2 | 2017-08-11 | Acuerdo 329 (2017-08-11) |
+| 3 | 2024-07-30 | Acuerdo 194 (2024-07-30) |
