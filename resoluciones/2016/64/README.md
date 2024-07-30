@@ -14,3 +14,4 @@ Habilita ruta de manera temporal para la importación de materia prima, naranja 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-01 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
