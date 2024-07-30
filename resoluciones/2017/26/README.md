@@ -14,3 +14,4 @@ Habilita de manera temporal la ruta Cuatro Esquinas-Las Tablillas (rutas 35, 4 y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-02 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
