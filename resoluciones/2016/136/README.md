@@ -14,3 +14,4 @@ Habilita de manera temporal a efectos de importar plátano verde la ruta para el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-01 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
