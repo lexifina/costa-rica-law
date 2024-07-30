@@ -14,3 +14,4 @@ Habilita de manera temporal por razones de urgencia para movilizar unidades de t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-01 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
