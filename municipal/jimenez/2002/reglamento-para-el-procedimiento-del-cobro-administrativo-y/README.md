@@ -17,3 +17,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial de la Munic
 | 2 | 2005-08-23 | Reglamento municipal 115 (2005-08-23) |
 | 3 | 2009-08-10 | Reglamento municipal 834 (2009-08-10) |
 | 4 | 2011-11-07 | Reglamento municipal 73 (2011-11-07) |
+| 5 | 2024-07-30 | Reglamento municipal 13 (2024-07-30) |
