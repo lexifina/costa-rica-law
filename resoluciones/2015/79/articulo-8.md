@@ -1,1 +1,0 @@
-8°—Indicar que a partir del día 20 de abril del 2015 con la implementación de la presente resolución, no es necesaria la presentación ante el Departamento de Estadística y Registro de la Dirección General de Aduanas, del formulario “FT2 Formulario para la inscripción y desincripción de conductores”, para los transportistas categoría 1021 - internacional.
