@@ -14,3 +14,4 @@ Declaración Aduanera de Exportación con forma de Despacho Dad, con salida por 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-24 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
