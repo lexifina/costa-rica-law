@@ -14,3 +14,4 @@ Habilita de manera temporal por razones de urgencia para el tránsito internacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-22 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
