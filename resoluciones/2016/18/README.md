@@ -14,3 +14,4 @@ Habilita varias rutas de manera temporal para la Importación de materia prima, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-02 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
