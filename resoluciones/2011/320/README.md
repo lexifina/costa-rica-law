@@ -14,3 +14,4 @@ Implementa el Procedimiento del Régimen de Tránsito Internacional Terrestre y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-13 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
