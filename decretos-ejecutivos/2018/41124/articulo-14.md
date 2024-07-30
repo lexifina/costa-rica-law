@@ -1,2 +1,0 @@
-Artículo 14.—Suscripción de convenios. Para la implementación de los mecanismos económicos y no económicos para compensar a terceros, el SINAC podrá establecer convenios con organizaciones o entes públicos o privados de carácter nacional, regional y local, debidamente reconocidos y con experiencia en la administración de fondos.
-En caso de requerirse establecer convenios con organizaciones o entes públicos o privados de carácter internacional, la suscripción de estos le corresponderá al Ministro de Ambiente y Energía previa aprobación del CONAC.

@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Gestión y Administración
-Artículo 8º—Del Programa de Servicios Ecosistémicos. Créase el Programa de Servicios Ecosistémicos como un programa interinstitucional adscrito al Departamento de Conservación y Uso Sostenible de la Biodiversidad y Servicios Ecosistémicos de la Secretaría Ejecutiva del Sistema Nacional de Áreas de Conservación (SINAC), como el responsable de desarrollar procesos que permitan incentivar el reconocimiento de los SE y su valoración, así como diseñar, administrar, promover, implementar y monitorear los mecanismos económicos y no económicos, que contribuyan a la conservación y uso sostenible de la biodiversidad.

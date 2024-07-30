@@ -1,1 +1,0 @@
-Artículo 13.—Destino de los recursos. Los recursos provenientes de la internalización de los servicios ecosistémicos serán utilizados por el SINAC para el fortalecimiento de la gestión institucional en conservación y uso sostenible de la biodiversidad en el Patrimonio Natural del Estado y proyectos de manejo comunitario de la biodiversidad.

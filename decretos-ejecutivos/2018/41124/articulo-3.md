@@ -1,1 +1,0 @@
-Artículo 3º—Autorización. El MINAE, a través del SINAC tendrá la potestad exclusiva para establecer acuerdos necesarios para cumplir con las etapas de la cadena de valor de los servicios ecosistémicos que brinden las tierras del Patrimonio Natural del Estado y las áreas marinas comprendidas en las ASP.
