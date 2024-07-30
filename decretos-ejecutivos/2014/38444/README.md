@@ -14,3 +14,4 @@ Reglamento de Regencias Forestales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-16 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44607 (2024-07-30) |
