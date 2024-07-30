@@ -14,3 +14,4 @@ Prorroga la habilitación de manera temporal para movilizar unidades de transpor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
