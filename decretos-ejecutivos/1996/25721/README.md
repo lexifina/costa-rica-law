@@ -40,3 +40,4 @@ Reglamento a la Ley Forestal
 | 25 | 2022-08-09 | Decreto Ejecutivo 43648 (2022-08-09) |
 | 26 | 2022-08-09 | Decreto Ejecutivo 43649 (2022-08-09) |
 | 27 | 2024-07-12 | Decreto Ejecutivo 44558 (2024-07-12) |
+| 28 | 2024-07-30 | Decreto Ejecutivo 44607 (2024-07-30) |

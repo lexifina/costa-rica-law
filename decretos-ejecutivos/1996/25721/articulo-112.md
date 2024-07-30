@@ -1,0 +1,7 @@
+Artículo 112: - Para el periodo 2024, los montos a reconocer a los propietarios y poseedores que se acojan al Programa de Pago por Servicios Ambientales serán los siguientes:
+a) Un monto base para la mitigación de gases de efecto invernadero y biodiversidad general, de veintiún mil colones exactos (?21.000,00) por hectárea por año).
+b) Un monto adicional para la protección de los bosques que se ubiquen en áreas consideradas de alta biodiversidad o megadiversos, de dieciséis mil colones exactos (?16.000,00) por hectárea por año.
+c) Un monto adicional para la protección del recurso hídrico, de dieciséis mil colones exactos (?16.000,00) por hectárea por año.
+Para los pagos anuales posteriores, el Ministerio de Ambiente y Energía, mediante resolución razonada, podrá variar estos montos y actualizarlos. De igual forma podrá decretar aumentos extraordinarios en los montos a pagar, según la situación fiscal del país y su inclusión en los presupuestos correspondientes. Lo anterior considerando la disponibilidad presupuestaria.
+El Fondo Nacional de Financiamiento Forestal podrá establecer otros montos diferentes, a reconocer o incluir servicios ambientales o Ecosistémicos no establecidos, cuando negocie o contrate con socios cooperantes, nacionales o internacionales donaciones o contratos de compraventa de servicios ambientales o ecosistémicos, en cualquiera de los mecanismos establecidos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44607 del 30 de julio del 2024)

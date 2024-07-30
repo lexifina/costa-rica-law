@@ -1,0 +1,2 @@
+Artículo 123: - El Fondo Nacional de Financiamiento Forestal, realizará la determinación definitiva del área de bosque para el contrato correspondiente, basado en la información que aporta en su informe el profesional forestal, las imágenes de satélite, datos de contratos anteriores y capas georreferenciadas. Sin perjuicio de las visitas de campo del personal del Fonafifo cuando así se considere necesario o conveniente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44607 del 30 de julio del 2024)

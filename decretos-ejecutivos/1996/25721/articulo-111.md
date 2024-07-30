@@ -1,0 +1,3 @@
+Artículo 111: - Se reconocerá un pago adicional a los bosques que por su ubicación coadyuven a la protección del recurso hídrico para fines de consumo humano, rural e hidroeléctrico. En casos de consumo humano comprende zonas debidamente identificados por la Dirección de Aguas del MINAE, por el Instituto de Acueductos y Alcantarillados, Municipalidades, Asadas o entidades que brinden servicios de agua potable a comunidades.
+Para los otros usos, serán desarrollados y establecidos según estudios y análisis posteriores por otras entidades públicas o privadas o cuando exista el reconocimiento o pago por parte de estás, mediante acuerdos, convenios y tarifas hídricas.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44607 del 30 de julio del 2024)
