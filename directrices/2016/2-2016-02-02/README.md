@@ -14,3 +14,4 @@ Correcto registro del consignatario de las mercancías en la Declaración Única
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-16 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
