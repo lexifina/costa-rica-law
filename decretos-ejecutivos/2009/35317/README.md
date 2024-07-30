@@ -15,3 +15,4 @@ Disposiciones respecto a las entradas, salidas y permanencia de vehículos, unid
 | --- | --- | --- |
 | 1 | 2009-06-26 | la propia norma |
 | 2 | 2019-11-07 | Decreto Ejecutivo 42017 (2019-11-07) |
+| 3 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
