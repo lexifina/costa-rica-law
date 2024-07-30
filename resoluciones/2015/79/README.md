@@ -15,3 +15,4 @@ Implementación del registro en línea de conductores costarricenses utilizados 
 | --- | --- | --- |
 | 1 | 2015-04-20 | la propia norma |
 | 2 | 2018-08-06 | Resolución 23 (2018-08-06) |
+| 3 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
