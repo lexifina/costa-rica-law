@@ -16,3 +16,4 @@ Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018
 | 1 | 2019-04-01 | la propia norma |
 | 2 | 2019-04-02 | Decreto Ejecutivo 41687 (2019-04-02) |
 | 3 | 2021-03-08 | Decreto Ejecutivo 42887 (2021-03-08) |
+| 4 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
