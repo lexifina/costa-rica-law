@@ -14,3 +14,4 @@ Disposiciones para agilizar la salida de unidades de transporte por la aduana de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-11 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
