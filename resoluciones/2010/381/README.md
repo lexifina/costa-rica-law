@@ -14,3 +14,4 @@ Reforma Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-17 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
