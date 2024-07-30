@@ -14,3 +14,4 @@ Habilita el funcionamiento en la Aduana de Peñas Blancas de las Ventanillas Ún
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-05 | la propia norma |
+| 2 | 2024-07-30 | Decreto Ejecutivo 44677 (2024-07-30) |
