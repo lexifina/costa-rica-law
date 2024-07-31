@@ -15,3 +15,4 @@ Requisitos y procedimiento para la homologación o reconocimiento del registro s
 | --- | --- | --- |
 | 1 | 2022-12-01 | la propia norma |
 | 2 | 2022-12-01 | Decreto Ejecutivo 43766 (2022-08-25) |
+| 3 | 2024-07-31 | SINALEVI (sin norma nombrada) |

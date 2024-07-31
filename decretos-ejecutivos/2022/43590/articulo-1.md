@@ -1,4 +1,6 @@
+(Anulada)
 N° 43590-S
+(Este decreto ejecutivo fue Anulado por resolución de la Sala Constitucional, N° 021860 del 31 de julio de 2024)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 Con fundamento en los artículos 11, 140 incisos 3), 8), 18) y 20); 146 de la Constitución Política; l l, 25, 27, 28, párrafo 2, inciso b) de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley N° 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud".
