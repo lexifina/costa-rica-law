@@ -192,6 +192,38 @@ Actividades generales:
 Ejecutar labores de limpieza y aseo en las instalaciones de la Asamblea Legislativa.
 Ejecutar la distribución de correspondencia, la entrega de materiales y el acarreo de mercadería, equipo y mobiliario.
 Sustituir a sus compañeros cuando se requiera y de acuerdo con las necesidades institucionales.
+Coordinar la correspondencia interna generada por las diferentes oficinas administrativas y material informativo recibido (revistas, periódicos, entre otros).
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Distribuir la correspondencia externa recibida por la Ventanilla Única, así como la interna generada en el ámbito institucional.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Colaborar con la distribución periódicos, revistas, boletines informativos, entre otros.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Atender las sesiones del Plenario Legislativo: manejo de cuórum, control de puertas, trasiego de correspondencia, recolección de firmas para convocatorias y desconvocatorias de sesiones de comisiones, colocación del Orden del Día, completar la hoja de control de asistencia a la sesión plenaria de los diputados y diputadas y trasladarla al Departamento de Servicios Parlamentarios.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Coordinar y organizar la atención del Cafetín del Plenario Legislativo.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Atender los requerimientos que demanda el Cafetín, tales como: preparar y limpiar las mesas, tomar pedidos, servir bebidas calientes, frías y alimentos varios, remover y lavar menaje sucio, entre otros.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Atender las comisiones legislativas: encargados de brindar el apoyo operacional y logístico para la realización de las sesiones tanto ordinarias.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Preparar y acondicionar los salones con el mobiliario y mantelería conforme al requerimiento solicitado por el Departamento de Protocolo y Diplomacia Parlamentaria, para el desarrollo de diferentes actividades y reuniones.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Desmontar y trasladar a las bodegas el mobiliario y mantelería utilizado en las diferentes actividades y reuniones.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Atender actividades y reuniones de los diputados y diputadas, fracciones políticas, departamentos administrativos, entre otros, tales como montar, alistar y servir todo lo necesario para la realización del evento.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Prestar y trasladar menaje, sillas, mesas, mantelería, entre otros, solicitados por otras dependencias a nivel institucional.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Realizar traslados varios (mobiliario, equipo, requisiciones, materiales, entre otros) a otras dependencias, solicitados por fracciones políticas y departamentos en general.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Suplir vacaciones e incapacidades de los ujieres destacados cuando se requiera y de acuerdo con las necesidades institucionales.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Brindar apoyo en la supervisión del contrato de limpieza.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Coordinar la bodega del Área de Ujieres.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
+. Cualquier otra que la Institución demande asociada estrictamente al servicio que brinda el Área de Ujieres.
+(Así adicionado el párrafo anterior en sesión N° 105 del 31 de julio de 2024)
 Funciones en Plenario y comisiones legislativas:
 Atender el teléfono en el salón de sesiones y trasladar las llamadas o los mensajes al diputado correspondiente y distribuir la correspondencia a los diputados cuando se encuentren en el Plenario.
 Llevar documentos para fotocopiar cuando el diputado lo requiera y buscar en la Biblioteca y otras instancias los documentos que los diputados soliciten, tales como: leyes, acuerdos, libros, expedientes y otros.
