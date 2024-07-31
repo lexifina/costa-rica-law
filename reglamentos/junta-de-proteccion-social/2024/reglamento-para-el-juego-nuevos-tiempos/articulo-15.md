@@ -1,0 +1,3 @@
+Artículo 15.- Término para reclamos.
+En caso de que exista disconformidad por parte de algún jugador sobre el pago o no de un premio o sobre el monto respectivo que se haya pagado, se podrá presentar el respectivo reclamo, el cual debe dirigirse a la Unidad de Pago de Premios, como responsable de resolver los reclamos de premios.
+Se establece un plazo de 10 días naturales para presentar el reclamo contados a partir del día hábil siguiente de realizado el cambio del premio. La Unidad de Pago de Premios, atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de 30 días naturales al recibido de la solicitud firmada por el reclamante.

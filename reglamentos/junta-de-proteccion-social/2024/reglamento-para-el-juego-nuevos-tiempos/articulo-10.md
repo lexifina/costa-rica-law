@@ -1,0 +1,6 @@
+Artículo 10.- De los días de sorteos.
+Los sorteos de Nuevos Tiempos y sus modalidades se realizarán los días, en el horario y la frecuencia, que determine el Calendario de Sorteos aprobado por la Junta Directiva, en las instalaciones de la Junta o en el lugar que ésta defina.
+El Calendario de Sorteos para Nuevos Tiempos será publicado en los medios oficiales para conocimiento de los jugadores.
+El día, la hora o el lugar de realización de estos sorteos podrán ser modificados por la Junta Directiva, previa comunicación al público general por los medios correspondientes según la Ley.
+Así mismo la Junta se reserva el derecho de eliminar o suprimir sorteos, siempre y cuando existan razones de fuerza mayor o caso fortuito que impidan su realización.
+En caso de anticipar o suprimir el sorteo, la comunicación debe hacerse con al menos 5 días hábiles de anticipación a la fecha señalada para celebrar el sorteo, siempre y cuando no se hayan capturado apuestas para el caso de supresión del sorteo y en caso de posposición, la comunicación podrá hacerse con no menos de un día hábil de anticipación a la fecha original. Los sorteos serán realizados y fiscalizados de conformidad con lo establecido en la normativa interna que regula esta materia.
