@@ -1,0 +1,1 @@
+Artículo 5° Se excepcionan de la aplicación del decreto a los miembros de los cuerpos policiales del Ministerio de Seguridad Pública y de la Policía de Tránsito del Ministerio de Obras Públicas y Transportes.
