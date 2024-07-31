@@ -1,0 +1,2 @@
+Artículo 9.- Validación de apuestas
+Para participar en el respectivo sorteo, cada apuesta debe estar válidamente registrada en el sistema, bajo las diferentes modalidades indicadas para la captura de apuestas. Para efectos de control, cada apuesta registrada tendrá asignado un número de transacción que la identifica dentro del sistema. Para reclamar su premio, el jugador debe presentar su comprobante de apuesta en perfectas condiciones y sin ningún tipo de alteración o deterioro.

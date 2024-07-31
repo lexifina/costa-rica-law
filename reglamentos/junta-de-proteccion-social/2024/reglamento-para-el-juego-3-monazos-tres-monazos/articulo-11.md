@@ -1,0 +1,3 @@
+Artículo 11.- Metodología para la realización de los sorteos.
+Los sorteos de 3 Monazos se realizarán mediante la extracción de bolitas que conformen la combinación de tres números del 0 al 9, dicha extracción se hará utilizando tómbolas de aire, tómbolas manuales, tómbolas mecánicas, tómbolas electromecánicas u otro tipo de tómbolas autorizadas por la Junta para la realización de los sorteos.
+Luego de la realización del sorteo, los funcionarios designados para tal efecto, procederán a incluir la información correspondiente en los sistemas de la Junta, elaborarán y firmarán el acta respectiva mediante la cual se oficialicen los resultados del sorteo y se lleven a cabo todos los trámites internos necesarios para generar el pago de los premios.
