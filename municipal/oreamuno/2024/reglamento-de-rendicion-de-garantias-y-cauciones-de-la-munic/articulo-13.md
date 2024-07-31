@@ -1,0 +1,1 @@
+Artículo 13.-Los funcionarios que al momento de entrada en vigor de este reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una fotocopia de la póliza del ente asegurador ante la Tesorería Municipal.
