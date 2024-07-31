@@ -1,0 +1,1 @@
+ARTÍCULO 39- Permisos de media jornada. Las jefaturas inmediatas, de nivel de Encargado de Proceso hacia arriba, podrán otorgar discrecionalmente, permisos a sus subalternos para ausentarse no más de media jornada diaria, en casos justificados, sin rebaja de salario y hasta un máximo de cuatro medias jornadas por mes.

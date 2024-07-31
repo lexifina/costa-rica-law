@@ -1,0 +1,2 @@
+Artículo 19.- Comisiones de salud ocupacional. De conformidad con el artículo 288 del Código de Trabajo, en el INA se establecerán las Comisiones de Salud Ocupacional que sean necesarias, integradas por igual número de representantes patronales y de las personas servidoras.
+Dichas comisiones tendrán por finalidad investigar las causas de los riesgos del trabajo, proponer medidas para prevenirlos y vigilar porque las mismas se cumplan. Su constitución se hará conforme a lo dispuesto en el Reglamento de la Ley.

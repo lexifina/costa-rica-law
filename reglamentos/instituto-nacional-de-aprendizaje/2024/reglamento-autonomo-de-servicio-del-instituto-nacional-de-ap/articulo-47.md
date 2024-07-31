@@ -1,0 +1,1 @@
+ARTÍCULO 47- Zonaje. Las personas funcionarias que sean trasladas por decisión de la administración a un lugar distinto al de su domicilio o del lugar para el que fue contratada, con una permanencia de más de 180 días en forma continua, tendrá derecho a un sobresueldo denominado "zonaje", que será cancelado de conformidad con el respectivo reglamento.

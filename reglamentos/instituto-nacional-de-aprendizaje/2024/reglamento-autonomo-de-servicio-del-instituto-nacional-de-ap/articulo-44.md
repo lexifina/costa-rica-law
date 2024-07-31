@@ -1,0 +1,1 @@
+ARTÍCULO 44- Pago de subsidio. La persona servidora que fuere declarada incapacitada por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, conforme con las estipulaciones que para tales efectos emita la Dirección General del Servicio Civil.

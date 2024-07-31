@@ -1,0 +1,2 @@
+ARTÍCULO 45- Licencias por gravidez. Todas las servidoras en estado de gravidez tendrán derecho a licencia con goce de sueldo completo durante un mes anterior y los tres posteriores al alumbramiento. El INA completará el monto del subsidio pagado por la CCSS.
+Las servidoras deberán tramitar su licencia por medio del jefe inmediato, por lo menos con 15 días hábiles de anticipación a sur etiro. Esto salvo excepciones con lad ebida justificación médica certificada, en cuyo caso se deberá dar aviso y tramitar la licencia en un plazo razonable.

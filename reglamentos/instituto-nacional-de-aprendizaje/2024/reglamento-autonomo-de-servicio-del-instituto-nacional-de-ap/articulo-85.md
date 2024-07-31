@@ -1,0 +1,1 @@
+Artículo 85.- Presidencia Ejecutiva. El nombramiento y remoción de la persona que ocupa la Presidencia Ejecutiva del INA es realizado de forma discrecional por el Consejo de Gobierno, de conformidad con lo establecido en el artículo 9° de la Ley Orgánica del INA, Ley No. 6868 y sus reformas.

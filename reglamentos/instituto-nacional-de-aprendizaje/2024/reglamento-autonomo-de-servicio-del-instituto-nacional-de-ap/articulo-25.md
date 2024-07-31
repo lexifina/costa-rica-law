@@ -1,0 +1,1 @@
+ARTÍCULO 25- Ajustes de salarios. Los reajustes de salarios que se ordenen por parte de las autoridades nacionales que los ordenen, regirán a partir de su fecha de vigencia, siempre y cuando los recursos económicos del INA lo permitan y la Contraloría General de la República apruebe la modificación presupuestaria correspondiente.

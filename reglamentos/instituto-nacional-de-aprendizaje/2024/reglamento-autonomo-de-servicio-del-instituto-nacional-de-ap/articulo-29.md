@@ -1,0 +1,1 @@
+ARTÍCULO 29- Vacaciones proporcionales. Para tener derecho a vacaciones, es necesario que la persona servidora haya prestado sus servicios durante 50 semanas continuas; si por cualquier causa no completare este término, tendrá derecho a vacaciones en forma proporcional al tiempo trabajado.

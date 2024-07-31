@@ -1,0 +1,1 @@
+Artículo 17.- Ambiente de trabajo. El INA garantizará un ambiente adecuado para que los personas servidoras puedan desempeñarse eficientemente, así como implementará las medidas necesarias en aras de que este sea un ambiente seguro, libre de toda discriminación y propicio para el desarrollo laboral.

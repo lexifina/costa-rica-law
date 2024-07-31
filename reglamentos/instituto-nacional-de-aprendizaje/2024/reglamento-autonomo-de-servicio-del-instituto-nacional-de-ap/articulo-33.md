@@ -1,0 +1,2 @@
+Artículo 33.- Fijación de la fecha del disfrute. En coordinación con la dependencia que tiene a su cargo la Gestión del Talento Humano, la respectiva jefatura inmediata señalará la época en que los personas servidoras disfrutarán de sus vacaciones.
+Si pasadas quince semanas desde que se cumplieron las respectivas cincuenta semanas de trabajo no se hubiere hecho tal señalamiento, la persona servidora deberá reclamar por escrito sus vacaciones.

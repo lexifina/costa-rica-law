@@ -1,0 +1,3 @@
+CAPITULO XIV
+PROCEDIMIENTOS ADMINISTRATIVOS DISCIPLINARIOS
+ARTÍCULO 73- Orden Jerárquico en la presentación de peticiones. Todas las quejas, peticiones, reclamos, sugerencias, nacidas de la relación de servicio, deberán ser dirigidas por las personas solicitantes a la jefatura inmediata. No obstante, cuando ésta se considere incompetente, podrá indicarle a la persona solicitante que se dirija a la persona superior en grado, debiéndose seguir en todo caso el estricto orden jerárquico, en caso de impedimento o conflicto de intereses podrá acudirse a la dependencia que tiene a su cargo la Gestión del Talento Humano.

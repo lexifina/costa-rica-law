@@ -1,0 +1,3 @@
+CAPITULO XVI
+DISPOSICIONES FINALES
+ARTÍCULO 87.- Prohibición de ingreso. No podrán ingresar al servicio del Instituto, quienes estén ligados por consanguinidad o afinidad en línea directa o colateral hasta tercer grado inclusive, con miembros de la Junta Directiva, la persona titular de la Presidencia Ejecutiva; Gerencia General; Subgerencia y Auditoría. Tampoco podrán ingresar quienes están ligados por consanguinidad o afinidad en línea directa o colateral hasta tercer grado inclusive, con cualquier persona funcionaria, cuando el nombramiento implique laborar en la misma dependencia para la que labora ésta o cuando se considere que existen posibilidades de que se afecten los controles de la Institución.
