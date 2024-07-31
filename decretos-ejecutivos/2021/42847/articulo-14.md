@@ -157,7 +157,8 @@ Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Legal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 14.37 Especialidad Médica en Medicina Nuclear.
 Requisitos específicos:
-Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Medicina Nuclear, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+Aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Medicina Nuclear, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 2024-07-31 del 31 de julio de 2024)
 14.38 Especialidad Médica en Medicina Paliativa.
 Se reconoce como sinónimos de esta especialidad el siguiente término: Medicina Paliativa en Adultos.
 Requisitos específicos:
