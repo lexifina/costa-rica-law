@@ -223,11 +223,14 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1)
 año en la Subespecialidad en Neuro-Oncología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
-(*)16.15.4. Neurorradiología Quirúrgica Endovascular.
-Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neurorradiología Intervencional y Terapéutica; Neurorradiología Intervencional y Vascular; Neurorradiología Diagnóstica e Intervencional; Neurorradiología Intervencional; Neurorradiología Endovascular y Neurorradiología Terapéutica
+(*)16.15.4. Neurorradiologia Quirúrgica Endovascular.
+Se reconocen como sinónimos de esta Subespecialidad, los siguientes términos: Cirugía Neurointervencional; Neurorradiología Intervencional y Terapéutica; Neurorradiología Intervencional y Vascu lar; Neurorradiología Diagnostica e Intervencional; Neurorradiología Intervencional; Neurorradiología Endovascular, Neurorradiología Terapéutica y Neurocirugía Vascular y Endovascular.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 2024-07-31 del 31 de julio de 2024)
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Neurocirugía ante el Colegio de Médicos y Cirujanos.
-b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad de Neurorradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 2024-07-31 del 31 de julio de 2024)
+b. Aprobación de un programa de estudios de posgrado (residencia medica) de un (1) ano en la Subespecialidad de Neurorradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 2024-07-31 del 31 de julio de 2024)
 Este programa de estudios debe contemplar y garantizar:
 i. Un curso de conocimientos básicos de radiología, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
 ii. Certificación de haber realizado e interpretado un mínimo de 50neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neurorradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con formación adecuada).
