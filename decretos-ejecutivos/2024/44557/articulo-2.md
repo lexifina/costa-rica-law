@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 44433-H de fecha 08 de abril de 2024, publicado en el Alcance número 81 a La Gaceta número 75 de fecha 29 de abril de 2024, a partir de la vigencia del presente decreto.
