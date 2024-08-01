@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación de Documentos del Departam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-24 | la propia norma |
+| 2 | 2024-08-01 | Circular 165 (2024-08-01) |
