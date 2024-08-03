@@ -1,0 +1,9 @@
+ARTÍCULO 60.- ACUERDOS. TIPOS DE VOTACIÓN. Para resolver los asuntos en discusión en el Concejo Municipal, se tendrán tres clases de votaciones:
+1. VOTACIÓN SECRETA: Utilizada únicamente en los casos dispuestos por Ley, se vota en papeletas debidamente identificadas, mediante mecanismos de seguridad que no permitan la identificación de la voluntad de los regidores en ejercicio, y ante un fiscalizador que garantizará la fidelidad del resultado de la votación mediante el conteo y anuncio de los votos.
+2. VOTACIÓN ORDINARIA: Los regidores, una vez que se haya agotado la lista de oradores, expresarán levantando su mano, o mediante un medio electrónico previamente adaptado, su voto afirmativo o negativo, en ningún caso y bajo ninguna circunstancia, podrán abstenerse de emitirlo, salvo ante la declaratoria con lugar de alguna excusa o recusación tramitada conforme a la Ley, dado que lo contrario se configuraría un incumplimiento de deberes.
+3. VOTACIÓN NOMINAL: Los regidores, una vez agotada la lista de oradores, que se cerrará en el momento en que un regidor solicite la votación nominal, expresarán su voluntad en forma verbal, votando positivo o negativo, no pudiendo abstenerse en ningún caso. Esta votación se iniciará por el Regidor situado a la derecha de la posición ocupada por la Presidencia, y avanzará hacia su izquierda, concluyendo con el voto de la Presidencia. Esta votación será utilizada en cualquier tipo de elección o nombramiento los cuales se deciden por mayoría simple donde cada miembro con derecho a voto indica la opción por la cual se decanta. Para iniciar una votación nominal deberá verificarse que todos los regidores estén en sus curules o realizar las sustituciones correspondientes.
+No podrá solicitarse votación nominal para las siguientes actuaciones:
+a) Aprobación del Acta
+b) Alteración al orden del día
+c) Dispensa de trámites de comisión
+d) Declaración de firmeza de acuerdos

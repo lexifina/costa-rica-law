@@ -1,0 +1,1 @@
+ARTÍCULO 31.- SESIONES ORDINARIAS Y CAMBIO DE DIA Y HORA. Las sesiones ordinarias se celebrarán los días y a la hora que fije mediante acuerdo el Concejo Municipal, contando éste con la potestad de cambiar la fecha y la hora de realización de las sesiones ordinarias en cualquier momento y cuantas veces lo desee, previa publicación en el diario oficial La Gaceta.

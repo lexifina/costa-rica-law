@@ -1,0 +1,1 @@
+ARTÍCULO 102.- DE LA ATENCIÓN DE DENUNCIAS TRASLADADAS POR LA CONTRALORÍA GENERAL DE LA REPÚBLICA: El Concejo Municipal atenderá bajo los mismos criterios antes indicados, las denuncias que le sean remitidas por el Órgano Contralor, y podrá dar prioridad a su atención de conformidad con el contenido de lo denunciado.

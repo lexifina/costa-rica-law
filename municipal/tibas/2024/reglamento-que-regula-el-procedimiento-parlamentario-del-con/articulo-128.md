@@ -1,0 +1,4 @@
+ARTÍCULO 128.- CLASIFICACIÓN DE LOS ACTOS DE CONTROL POLÍTICO: Existen tres manifestaciones del Control Político:
+1. CONTROL PREVENTIVO: Tiene por finalidad ejercer los mecanismos de coordinación y control en el nombramiento y designación de representantes o funcionarios de control de la Administración Activa del Municipio y autoridades públicas en el Cantón.
+2. CONTROL FUNCIONAL: Desarrolla las actividades de fiscalización parlamentaria, orientadas a verificar o proteger los principios políticos, legales y constitucionales.
+3. CONTROL REPRESIVO: Organiza y pone en funcionamiento medios de represión para destituir del cargo al ejecutivo a miembros del parlamento o a personas designadas por el Concejo Municipal, mediante la utilización e impulso de mecanismos de investigación y sanción por parte del Parlamento.

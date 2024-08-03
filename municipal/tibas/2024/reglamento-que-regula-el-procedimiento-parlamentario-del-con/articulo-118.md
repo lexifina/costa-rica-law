@@ -1,0 +1,1 @@
+ARTÍCULO 118.- ANULACIÓN DE ACUERDOS POR EL CONTRALOR NO JERÁRQUICO. Cuando se reciban resoluciones del Contralor no jerárquico de legalidad, y esta fuera adversa a la Municipalidad y se anulen los acuerdos dictados por el pleno, el Concejo solicitará criterio a la Asesoría Legal para que emita dictamen en torno a las acciones que puede realizar.

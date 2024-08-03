@@ -1,0 +1,1 @@
+ARTÍCULO 76.- SECRETARÍA. COMUNICACIÓN DE ACUERDOS. El Departamento de Secretaría del Concejo deberá velar porque los acuerdos tomados por el Concejo Municipal sean debidamente Notificados a quien corresponda, devolviendo luego de ello los expedientes respectivos a la Sección de Archivo del Departamento, añadiendo el respectivo acuerdo y su constancia de Notificación.

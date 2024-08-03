@@ -1,0 +1,1 @@
+ARTÍCULO 69.-DE LAS REFORMAS. Cuando lo que se requiera sea la reforma de uno o más artículos de un reglamento, deberá seguirse el mismo procedimiento para su aprobación por parte del Concejo Municipal.

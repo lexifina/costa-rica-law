@@ -1,0 +1,2 @@
+ARTÍCULO 86.- COMISIONES. TRÁMITE DE DICTÁMENES LUEGO DE SU
+APROBACIÓN. Los informes o dictámenes de Comisión serán entregados a la Secretaria Municipal, una vez que hayan sido suscritos por los miembros presentes en la reunión respectiva, por lo menos tres horas antes del inicio de la sesión del Concejo Municipal en que se analizarán, si fueran presentados con posterioridad se incluirán en el capítulo de la sesión ordinaria siguiente.

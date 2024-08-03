@@ -1,0 +1,1 @@
+ARTÍCULO 125.- PROPORCIONAR INFORMACIÓN DEL PRESUPUESTO: El Parlamento tiene la responsabilidad de publicar de manera amplia, detallada y fácilmente comprensible, la información sobre el presupuesto incluida la información acerca de su propia ejecución, licitaciones y contratos, y otros fondos. Esta información debe hacerse pública en su totalidad.

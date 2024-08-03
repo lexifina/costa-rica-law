@@ -1,0 +1,1 @@
+ARTÍCULO 120.- INVOLUCRAR A LOS CIUDADANOS Y A LA SOCIEDAD CIVIL: El Parlamento tiene el deber de comunicar y vincular activamente a los ciudadanos y la sociedad civil en los procesos parlamentarios y la toma de decisiones, con el fin de representar eficazmente a los ciudadanos y hacer efectivo el derecho de petición de los munícipes a sus gobernantes locales.

@@ -1,0 +1,1 @@
+ARTÍCULO 68.- SANCIÓN Y PROMULGACIÓN. Luego de la aprobación definitiva, sin que haya sido ejercido el veto, el reglamento debe ser sancionado por la Alcaldía, procediendo a su promulgación para otorgarle certeza jurídica al texto mediante la debida publicación en el diario oficial la Gaceta.

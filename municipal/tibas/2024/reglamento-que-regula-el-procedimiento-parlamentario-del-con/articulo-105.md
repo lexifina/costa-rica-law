@@ -1,0 +1,4 @@
+CAPÍTULO 2.
+DEL PROCEDIMIENTO PARA EL TRATAMIENTO DE DENUNCIAS
+ARTÍCULO 105.- INGRESO DE DENUNCIAS Y DOCUMENTOS CONFIDENCIALES: Toda denuncia, sea provenga de alguna persona, instituciones, o dependencias del ente local, serán tramitadas por la Secretaría del Concejo Municipal en un expediente independiente, que será trasladado a la Presidencia del Concejo Municipal, a efecto de que verifique preliminarmente la información allí contenida, con motivo que pueda realizar alguna advertencia o recomendación de inhibición a alguno de los regidores propietarios del Concejo Municipal.
+En aquellas denuncias o documentos confidenciales donde, previamente, se recomiende a la Presidencia o a la Secretaría del Concejo abstenerse de conocer el contenido de la informaciónremitida, la Presidencia designará a la Vicepresidencia del Concejo Municipal las labores previas a la remisión del asunto al Concejo Municipal para su puesta en conocimiento.

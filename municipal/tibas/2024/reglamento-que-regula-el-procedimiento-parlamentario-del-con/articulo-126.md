@@ -1,0 +1,1 @@
+ARTÍCULO 126.-ASEGURAR EL ACCESO FÍSICO AL PARLAMENTO: El Parlamento y sus sesiones plenarias serán accesibles y abiertas a todos los ciudadanos, y sólo serán restringidos en caso demostrable de inseguridad pública y por límites de espacio.

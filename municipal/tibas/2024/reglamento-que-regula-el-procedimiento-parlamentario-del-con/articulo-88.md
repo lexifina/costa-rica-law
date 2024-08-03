@@ -1,0 +1,1 @@
+ARTÍCULO 88.- COMISIONES. AUDIENCIAS. Las sesiones de las comisiones son públicas. No obstante, la propia comisión podrá declarar, en memorial razonado, una sesión privada para atender asuntos que sean calificados de manera legal como confidenciales, en dichas sesiones solo podrán participar los miembros de la comisión y los asesores que sean convocados a tal efecto.

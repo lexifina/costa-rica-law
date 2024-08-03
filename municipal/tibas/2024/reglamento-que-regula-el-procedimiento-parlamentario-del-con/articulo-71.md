@@ -1,0 +1,1 @@
+ARTÍCULO 71.- PUBLICIDAD DE LA BASE DE DATOS. Toda iniciativa reglamentaria deberá indicar la fecha de su o sus publicaciones y la fecha de vigencia, esta base de datos será abierta al público y divulgada por los medios que la Municipalidad tenga a su alcance.

@@ -1,0 +1,1 @@
+ARTICULO 45.- FORMA DE PRESENTACIÓN: La moción principal, las de enmiendas a la moción principal, las que se presentan para enmendar una enmienda y las que pretendan dividir un asunto, deberán ser presentadas por escrito, todas las demás mociones e incidencias se reputan como de forma o de mero trámite podrán ser presentadas de manera oral.

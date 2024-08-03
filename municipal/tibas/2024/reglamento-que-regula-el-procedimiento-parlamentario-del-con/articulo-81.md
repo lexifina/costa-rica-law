@@ -1,0 +1,1 @@
+ARTÍCULO 81. COMISIONES PERMANENTES ASUNTOS QUE DEBEN TRATAR. Las comisiones permanentes analizarán, dictaminarán y recomendarán, sobre los traslados que realice el Concejo Municipal, procurando despachar los trámites de la manera más célere posible acorde con sus posibilidades y cargas de trabajo asignadas.

@@ -1,0 +1,1 @@
+ARTÍCULO 41.- RETIRO DE MOCIONES, DICTÁMENES O INICIATIVAS. Una vez que las iniciativas, mociones o dictámenes han ingresado a la Secretaría, estas no pueden salir de la custodia de ésta, en caso de retiro esta deberá ser presentada, justificada y discutida en la sesión correspondiente.

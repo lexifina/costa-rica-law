@@ -1,0 +1,1 @@
+ARTÍCULO 24.- ASISTENCIA ADMINISTRATIVA, TÉCNICA Y MATERIAL DE LA JUNTA DE PORTAVOCES. Corresponde a las Unidades de Apoyo Institucional y a los asesores del propio parlamento local, la asistencia administrativa, técnica y material de la Junta para el ejercicio de sus funciones.

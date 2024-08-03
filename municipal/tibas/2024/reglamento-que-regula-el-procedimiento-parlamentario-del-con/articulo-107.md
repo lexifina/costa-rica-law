@@ -1,0 +1,1 @@
+ARTÍCULO 107.- FORMALIDADES DEL EXPEDIENTE: En el orden del día o cualquier otro documento oficial del Concejo Municipal se tramitará el tema como confidencial y se indicará el número de expediente, sin revelar de manera pública en las sesiones del Concejo Municipal, datos que puedan identificar al denunciante o a los denunciados.

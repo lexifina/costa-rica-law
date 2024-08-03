@@ -1,0 +1,1 @@
+ARTÍCULO 75.- SECRETARÍA. APOYO DE COMISIONES. Los funcionarios de la Secretaria del Concejo prestarán su colaboración y asesoría técnica a las comisiones con motivo de llevar las actas de las sesiones y la redacción de los dictámenes, así como para efectos del respaldo en audio y video de dichas comisiones.

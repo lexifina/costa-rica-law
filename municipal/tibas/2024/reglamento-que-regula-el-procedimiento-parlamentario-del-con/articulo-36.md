@@ -1,0 +1,1 @@
+ARTÍCULO 36.- REGIDORES Y EL DEBER DE PERMANENCIA EN SUS CURULES PARA EMITIR VOTO. Los regidores deben encontrarse ocupando sus respectivas curules, para que de inicio la sesión y para que se les reciba el voto, cuando se someta a votación cualquier asunto. De no encontrarse en su sitio, el señor presidente deberá llamar al orden previo a realizar la votación.

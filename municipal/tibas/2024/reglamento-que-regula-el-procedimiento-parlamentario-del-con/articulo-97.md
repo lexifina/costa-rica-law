@@ -1,0 +1,1 @@
+ARTÍCULO 97.- PREVENCIÓN DE CUMPLIMIENTO DE REQUISITOS: En caso de que la denuncia no cumpla con los requisitos esenciales, el Concejo Municipal, una vez se tenga definida la integración del colegio para conocer el caso, acordará prevenir al denunciante su cumplimiento, indicándole que cuenta con 10 días hábiles para corregir la situación.

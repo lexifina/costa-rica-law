@@ -1,0 +1,1 @@
+ARTÍCULO 122.- PROPORCIONAR INFORMACIÓN COMPLETA: La información parlamentaria a disposición del público debe ser lo más completa posible, reflejando la totalidad de la acción parlamentaria, sujeta únicamente a las excepciones estrictamente definidas que determine la ley.

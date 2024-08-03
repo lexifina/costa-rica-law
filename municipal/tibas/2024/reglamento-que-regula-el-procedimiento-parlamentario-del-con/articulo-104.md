@@ -1,0 +1,1 @@
+ARTÍCULO 104.- DEL TRATAMIENTO A LAS RELACIONES DE HECHOS REMITIDAS POR AUDITORÍA INTERNA: El Concejo Municipal atenderá, complementariamente bajo los criterios indicados en el presente capítulo, las relaciones de hechos que remita al órgano colegiado la Auditoría Interna, inclusive dándole prioridad a su atención, de conformidad con el contenido de lo denunciado.

@@ -1,0 +1,1 @@
+ARTÍCULO 80.-COMISIONES ESPECIALES. El Concejo Municipal, al constituir una Comisión Especial, le fijará el plazo en el que debe analizar y dictaminar el asunto asignado para su estudio, plazo que podrá serle prorrogado por acuerdo del Concejo Municipal por una única vez.

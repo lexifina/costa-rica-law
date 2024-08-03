@@ -1,0 +1,1 @@
+ARTÍCULO 10.- ACTOS PROTOCOLARIOS. Durante estas sesiones se iniciará con el canto del Himno Nacional y el Himno de Tibás, también se podrá integrar actividades culturales previamente coordinadas por la Junta de Jefaturas de Fracción y la Presidencia del Concejo con el apoyo de los funcionarios de la secretaria del Concejo Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 123.- PROPORCIONAR INFORMACIÓN DE FORMA OPORTUNA: La información parlamentaria se proporcionará al público de manera oportuna. Como regla general, la información deberá ser proporcionada en tiempo real. En la medida en que ello no sea posible, la información parlamentaria se hará pública tan pronto como esté disponible internamente.

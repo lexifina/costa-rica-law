@@ -1,0 +1,1 @@
+ARTÍCULO 70.- BASE DE DATOS DE NORMATIVA EMITIDA. La Secretaría del Concejo Municipal, mantendrá actualizada una base de datos donde se incluya en estricto orden cronológico toda la normativa que sea promulgada por el Concejo Municipal, cuando se realice una reforma a un reglamento esta reforma deberá incorporarse en el texto del reglamento, actualizando el mismo.

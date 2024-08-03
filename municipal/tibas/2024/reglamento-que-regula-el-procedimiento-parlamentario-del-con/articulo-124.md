@@ -1,0 +1,1 @@
+ARTÍCULO 124.- PUBLICAR ACTAS DE LAS DELIBERACIONES PLENARIAS: El Parlamento deberá crear, mantener y publicar registros accesibles de sus actuaciones plenarias en forma de grabaciones audio o de vídeo, presentado online en un lugar permanente, como así también la transcripción escrita de las mismas.
