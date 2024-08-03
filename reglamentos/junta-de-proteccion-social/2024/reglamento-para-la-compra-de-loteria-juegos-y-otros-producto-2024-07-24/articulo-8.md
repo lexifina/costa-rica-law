@@ -1,0 +1,1 @@
+Artículo 8.- De la exclusión de responsabilidad. La Junta no se hace responsable por el uso, interpretación y/o entendimiento que los jugadores realicen y tengan de la Web Comercial, por el contrario, el uso de la información y manejo dentro de la web comercial es responsabilidad exclusiva del jugador.

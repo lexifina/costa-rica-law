@@ -1,0 +1,2 @@
+Artículo 3.- De las Obligaciones de los Jugadores- Cualquier jugador que desee acceder y/o utilizar la Web Comercial de la Junta deberá sujetarse a las disposiciones de este Reglamento.
+Cada jugador deberá leer, entender y aceptar todas las condiciones establecidas en los "Términos y Condiciones de Uso Sitio Web" y en las "Políticas de Seguridad y Privacidad Sitio Web" y demás disposiciones que se emitan en la materia.

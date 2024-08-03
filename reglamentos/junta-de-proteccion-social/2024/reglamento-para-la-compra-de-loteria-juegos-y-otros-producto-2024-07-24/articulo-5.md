@@ -1,0 +1,8 @@
+Artículo 5° De la Inscripción y Activación de la Cuenta. Para acceder y utilizar los servicios de la Web Comercial será obligatorio que el jugador complete el formulario de inscripción que para tal efecto disponga la Junta Deberán completarse todos los campos requeridos con su información personal de manera exacta, precisa y verdadera, asumiendo el compromiso de actualizar los "Datos Personales" conforme sea necesario.
+La Junta podrá utilizar diversos medios para identificar a sus jugadores, pero no se responsabiliza por la certeza de los datos personales provistos por estos, será responsabilidad de los jugadores garantizar y responder ante cualquier situación que así lo requiera, por la veracidad, exactitud, vigencia y autenticidad de los datos ingresados.
+El jugador accederá a su cuenta personal mediante el ingreso de su cédula de identidad y una clave de seguridad personal elegida por él.
+El jugador será el responsable de mantener la confidencialidad de su clave de seguridad y en ese sentido también será responsable de todas las operaciones efectuadas en su cuenta.
+Si el jugador cree que alguna información de su cuenta está siendo mal utilizada por un tercero, su cuenta ha sido hackeada o si su contraseña ha sido descubierta por un tercero, deberá ponerse en contacto de inmediato con el centro de atención al cliente.
+Una misma persona sólo puede tener una cuenta. Si se detecta más de una cuenta la Junta procederá a deshabilitar y bloquear las cuentas de manera inmediata y permanente.
+De inactivarse la cuenta por no uso, el jugador deberá realizar el proceso de activación nuevamente.
+Será prohibido crear una cuenta utilizando uno o más datos personales que pertenezcan a otra persona.

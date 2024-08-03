@@ -1,0 +1,5 @@
+Artículo 16.- De los días de sorteos. Los sorteos se realizarán en las instalaciones de la Junta o en el lugar que ésta defina, los días, en el horario y la frecuencia que determine el Calendario de Sorteos aprobado por la Junta Directiva.
+El día, la hora o el lugar de realización de estos sorteos podrá ser modificado por la Junta, previa comunicación al público general por los medios correspondientes según la Ley.
+Así mismo la Junta se reserva el derecho de eliminar o suprimir sorteos, siempre y cuando existan razones de fuerza mayor o caso fortuito que impidan su realización.
+Los sorteos serán realizados y fiscalizados de conformidad con lo establecido en la normativa interna que regula esta materia.
+En caso de anticipar o suprimir el sorteo o evento, la comunicación debe hacerse con al menos 5 días hábiles de anticipación a la fecha señalada para celebrar el sorteo y en caso de posposición, la comunicación deberá hacerse con no menos de un día hábil de anticipación a la fecha original.

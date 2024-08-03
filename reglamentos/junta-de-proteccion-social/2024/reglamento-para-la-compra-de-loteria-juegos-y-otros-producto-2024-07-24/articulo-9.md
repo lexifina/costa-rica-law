@@ -1,0 +1,1 @@
+Artículo 9.- De las Modificaciones en la Web Comercial. La Junta está facultada para modificar unilateralmente el contenido de la web comercial y los servicios que brinda mediante la misma, todo ello atendiendo a razones de oportunidad y conveniencia para el quehacer institucional.

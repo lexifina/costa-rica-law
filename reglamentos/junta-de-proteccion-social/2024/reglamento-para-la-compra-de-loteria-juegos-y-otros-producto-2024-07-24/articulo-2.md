@@ -1,0 +1,1 @@
+Artículo 2°. Objeto. - El objeto de este reglamento es establecer las regulaciones, políticas, términos de uso y condiciones generales para la compra de lotería Nacional y Popular, loterías electrónicas y cualquier otro juego o producto de azar que se autorice, desarrolle o implemente a futuro, mediante el sitio web de la Junta.
