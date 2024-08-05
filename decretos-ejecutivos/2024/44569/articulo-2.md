@@ -1,0 +1,1 @@
+Artículo 2°- Condiciones. Estos contratos, en ningún caso, podrán comprender la autorización del acceso a elementos de la biodiversidad en favor de terceros o la explotación de recursos naturales, así como tampoco, la construcción de edificaciones privadas.

@@ -1,0 +1,1 @@
+Artículo 22°- Expediente. De cada organización, el AC levantará un expediente donde consignará toda la información relevante, desde la solicitud de inscripción hasta su incorporación al registro, así corno las invitaciones y participaciones que tenga cada organización en los procesos referentes al ASP.

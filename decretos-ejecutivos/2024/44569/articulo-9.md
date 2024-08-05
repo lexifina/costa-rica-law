@@ -1,0 +1,1 @@
+Artículo 9°- Procedimiento. El procedimiento para la contratación de servicios y actividades no esenciales se realizará a través de la Proveeduría Institucional del SINAC. Corresponde a la Dirección Ejecutiva del SINAC, la formalización de los contratos respectivos.

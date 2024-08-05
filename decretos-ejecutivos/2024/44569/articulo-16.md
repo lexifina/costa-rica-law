@@ -1,0 +1,1 @@
+Artículo 16º- Acreditación. Para efectos de comprobar que una persona es habitante de una comunidad la junta directiva de las Asociaciones de Desarrollo Comunal podrá emitir Cartas de Vecindad para acreditarle como miembro de la comunidad.
