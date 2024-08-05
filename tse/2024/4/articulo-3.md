@@ -1,0 +1,1 @@
+Artículo 3°-Contenido. Este Reglamento contiene los criterios y las formalidades que se deben cumplir para el proceso del seguimiento a las observaciones, disposiciones, recomendaciones y acciones de mejora, emitidas en los diferentes servicios la Auditoría Interna y las demás instituciones de control y fiscalización.

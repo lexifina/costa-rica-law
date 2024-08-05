@@ -1,0 +1,5 @@
+Artículo 14.-Solicitud de prórroga. En caso de que se determinaren problemas u obstáculos concretos de índole administrativo, legal, técnico o presupuestario, la instancia responsable de implementar las recomendaciones o acciones de mejora podrá solicitar una única prórroga del plazo de cumplimiento por cada recomendación, cuando medien circunstancias debidamente justificadas que se fundamentan en términos de razonabilidad, lógica y conveniencia, que le imposibiliten cumplir en el plazo establecido la implementación de estas. Para ello, deberá presentar ante la Auditoría Interna los siguientes requisitos:
+a) Solicitud formal de la prórroga con al menos quince días hábiles previo al vencimiento de la fecha de cumplimiento de la recomendaciones o acciones de mejora.
+b) Justificación de la solicitud por cada recomendación o acción de mejora.
+c) La evidencia completa, verificable, suficiente y apropiada que respalde la solicitud de la prórroga de cada recomendación o acción de mejora.
+d) Un nuevo plan de implementación que contemple las acciones correctivas a ejecutar, su calendarización, la instancia y funcionarios responsables de la ejecución de estas.

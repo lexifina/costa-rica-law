@@ -1,0 +1,1 @@
+Artículo 19.-Programación del seguimiento. Corresponde a la Auditoría interna, el seguimiento de las recomendaciones como actividad permanente conformante de su proceso de auditoría, por lo que ésta dará seguimiento a las recomendaciones y acciones de mejora, conforme con el Plan Anual de Trabajo que se determine y los recursos disponibles.

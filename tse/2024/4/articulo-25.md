@@ -1,0 +1,1 @@
+Artículo 25.-Derogatoria. El presente reglamento deja sin efecto el Decreto 9-2022 aprobado por el Tribunal en sesión ordinaria N° 86-2022, celebrada el 08 de setiembre de 2022, publicado en La Gaceta N° 188 de 4 de octubre de 2022.

@@ -1,0 +1,1 @@
+Artículo 22.-Estado de cumplimiento de las recomen-daciones y acciones de mejora. La Auditoría Interna dos veces al año -según los recursos disponibles con que se cuente-, informará al Tribunal del estado general de cumplimiento de las recomendaciones y acciones de mejora emitidas en sus informes, de conformidad con el marco normativo que lo regula.
