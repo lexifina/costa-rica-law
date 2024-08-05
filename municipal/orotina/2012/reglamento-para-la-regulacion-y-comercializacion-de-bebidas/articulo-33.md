@@ -1,1 +1,0 @@
-Artículo 33.—La licencia otorgada por la municipalidad para la comercialización de bebidas con contenido alcohólico, solo puede ser utilizada en el establecimiento para el cual se solicitó. No podrá cambiar de ubicación, de nombre o de dueño.

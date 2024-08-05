@@ -1,1 +1,0 @@
-Artículo 31.—Se cobrará además una multa del uno por ciento (1%) por mes o fracción de mes sobre el monto del impuesto no pagado de manera oportuna, sin que esta supere el veinte por ciento (20%) del impuesto trimestral adeudado. Y a los intereses correspondientes.

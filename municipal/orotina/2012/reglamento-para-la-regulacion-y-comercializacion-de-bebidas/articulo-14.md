@@ -1,1 +1,0 @@
-Artículo 14.—Los acuerdos del Concejo Municipal aprobando o rechazando las solicitudes, deberán ser comunicados por esa instancia al solicitante, quién podrá recurrir conforme lo indica el Código Municipal.

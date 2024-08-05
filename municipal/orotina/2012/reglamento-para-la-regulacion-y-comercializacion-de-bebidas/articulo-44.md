@@ -1,2 +1,0 @@
-Artículo 44.—La Administración Tributaria, en su oficina de patentes, procederá a renovar los quinquenios mediante la emisión del certificado correspondiente, mismo que deberá estar firmado por la Administradora Tributaria y por la encargada de patentes.
-Se deberá observar que en el quinquenio anterior el funcionamiento de ese establecimiento no haya infringido las leyes y reglamentos vigentes. No se considerará en el proceso de renovación la aplicación de distancias indicadas en el artículo 37 de este reglamento.

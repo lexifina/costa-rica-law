@@ -1,1 +1,0 @@
-Artículo 45.—Para denegar una renovación de quinquenio, La Administración Tributaria, en su oficina de patentes, deberá haber comprobado las denuncias presentadas en el plazo del quinquenio anterior, cumpliendo con el proceso debido correspondiente.

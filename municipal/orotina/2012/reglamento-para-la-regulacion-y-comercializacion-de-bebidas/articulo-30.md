@@ -1,1 +1,0 @@
-Artículo 30.—El impuesto de las licencias para comercialización de bebidas con contenido alcohólico será trimestral y se pagará por adelantado entre el primer día y el último día de los meses enero, abril, julio y octubre de cada año. El pago extemporáneo acarreará un cargo de intereses que deberán cobrarse a partir del primer día hábil de cada trimestre.
