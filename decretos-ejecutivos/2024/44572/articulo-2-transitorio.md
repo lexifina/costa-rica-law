@@ -1,0 +1,1 @@
+Transitorio 2.- A la Secretaría Técnica de Salud Mental se le otorga un plazo de un año contado a partir de la publicación del presente Decreto Ejecutivo para que elabore y ejecute los programas de capacitación necesarios en el abordaje integral para la atención de las personas con agitación psicomotora y/o necesidades de atención en salud mental.
