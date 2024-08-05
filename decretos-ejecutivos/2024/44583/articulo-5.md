@@ -1,0 +1,7 @@
+Artículo 5- Refórmese el Capítulo XI, artículo 49 del "Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles y de Atención Integral", Decreto Ejecutivo Nº 37270-S, de 27 de junio del 2012 publicado en el Alcance Nº 132 a La Gaceta Nº 179 del 17 de setiembre del 2012, con el fin de mejorar la operatividad en la gestión institucional a instancia local y de los órganos de apoyo denominados Comités de CEN CINAl, para que en lo sucesivo se lean como sigue:
+''Artículo 49.- Funciones de los Comités de CEN CINAI.
+Los Comités, ejecutarán sus funciones en apego a las normas vigentes y lineamientos emitidos por la Dirección Nacional de CEN CINAI, incluyendo:
+a) Participar, en conjunto con los y las funcionarias, en la planificación de las actividades del Establecimiento a fin de elaborar su plan de trabajo y participar activamente en la promoción de los servicios de la Dirección Nacional de CENCINAI en las comunidades atendidas, reafirmando ante éstas el valor imprescindible del apoyo comunal para la consecución de los objetivos de la Dirección.
+b) Apoyar a los y las funcionarias en las diferentes actividades de los establecimientos de la Dirección Nacional de CEN-CINAI cuando se considere pertinente.
+c) Apoyar en la distribución de leche en polvo, raciones de alimentos u otros alimentos para el consumo en el· hogar entregado periódicamente a clientes y beneficiarios de la Dirección Nacional de CEN CINAI
+d) Referir al nivel que corresponda las anomalías detectadas en la prestación de los servicios. "

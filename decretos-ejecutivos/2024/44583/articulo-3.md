@@ -1,0 +1,8 @@
+Artículo 3.- Refórmese el Capítulo VIII, artículos 35, 36 y 41, del "Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles y de Atención Integral", Decreto Ejecutivo Nº 37270-S, de 27 de junio del 2012 publicado en el Alcance Nº132 a La Gaceta Nº 179 del 17 de setiembre del 2012, con el objetivo de actualizar la operatividad en la gestión institucional a instancia local y de los órganos de apoyo denominados Comités de CEN CINAI, para que en lo sucesivo se lean como sigue:
+''Artículo 35.- Comités de CEN CINAI.
+Para efectos del presente reglamento el Comité de CEN CINAI es el órgano de apoyo para la ejecución de las actividades de los establecimientos de la Dirección Nacional de CEN-CINAL integrados por miembros de la comunidad y que colaborarán con estos Centros, ejerciendo las atribuciones conferidas por el presente Reglamento. "
+"Artículo 36.- Sede de los Comités de CEN CINAI.
+Los Comités se integrarán en las comunidades donde funcione un CEN, un CINAI o un CENCE. La sede del Comité se ubicará en el establecimiento que representa. "
+"Articulo 41.- Funciones de coordinación de los Comités de CEN CINAI
+A los Comités les corresponderá en conjunto con los y las funcionarias del Establecimiento respectivo, la coordinación con el gobierno local, organizaciones no gubernamentales, entidades públicas y privadas, para la gestión de alianzas entre entes públicos y alianzas público-privadas con el fin de coadyuvar con la consecución de los objetivos de la Dirección Nacional de CEN CINAI
+Las propuestas desarrolladas a partir de dicha coordinación deberán remitirse al Despacho del Director o Directora Nacional para su valoración y tramitación mediante los procedimientos administrativos correspondientes"

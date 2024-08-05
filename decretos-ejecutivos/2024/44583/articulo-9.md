@@ -1,0 +1,3 @@
+Artículo 9.- Refórmese el Capítulo XV, en el artículo 62 y deróguese los artículo 63 y 64 del "Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles y de Atención Integral", Decreto Ejecutivo Nº 37270-S, de 27 de junio del 2012 publicado en el Alcance Nº 132 a La Gaceta N º 179 del 17 de setiembre del 2012, con el fin de mejorar la operatividad en la gestión institucional a instancia local y de los órganos de apoyo denominados Comités de CEN CINAI, para que en lo sucesivo se lean como sigue:
+''Artículo 62.-Auditorías.
+La auditoría interna de la Dirección Nacional de CEN CINAI hará auditorias periódicas de la utilización de los recursos y de los registros contables de la Dirección Nacional de CEN CINAI"

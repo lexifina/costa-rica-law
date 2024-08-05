@@ -1,0 +1,6 @@
+Artículo 10.- Refórmese el Capítulo XVI, en el artículo 65 y 66 del "Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles y de Atención Integral", Decreto Ejecutivo Nº 37270-S, de 27 de junio del 2012 publicado en el Alcance Nº l32 a La Gaceta N º 179 del 17 de setiembre del 2012, con el fin de mejorar la operatividad en la gestión institucional a instancia local y de los órganos de apoyo denominados Comités de CEN CINAI, para que en lo sucesivo se lean como sigue:
+''Artículo 65.- Disolución del Comité de CEN CINAI.
+En todos los casos donde el establecimiento de CEN-CINAI deje de funcionar o se cierre el servicio, se procederá a la disolución del Comité, conforme con los procedimientos internos establecidos por la Dirección Nacional de CEN-CINAI "
+''Artículo 66.- Destino de bienes y valores de Comités de CEN CINAI disueltos.
+Cuando el Comité se disuelva, todos los bienes inmuebles y mobiliario que haya obtenido pasarán a ser parte del patrimonio de la Dirección Nacional de CEN-CINAI.
+En los casos de valores que hayan obtenidos y que consten en las cuentas denominadas "Fondos Propios", se depositarán en el Fondo Federal del Ministerio de Hacienda"
