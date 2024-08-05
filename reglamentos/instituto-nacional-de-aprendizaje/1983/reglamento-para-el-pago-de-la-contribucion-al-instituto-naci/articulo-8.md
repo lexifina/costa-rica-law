@@ -1,3 +1,0 @@
-Requerimiento de pago
-Artículo 8.—La Unidad de Inspección y Cobros del Departamento Financiero será la encargada de constatar la morosidad en el pago de las contribuciones y de gestionar el cobro administrativo de esos tributos, mediante carta certificada en la que indicará al contribuyente el monto adeudado y le concederá un
-plazo de 30 días para que proceda a la cancelación de la deuda. Vencido este plazo sin que el deudor haya regularizado la situación, la Unidad de Inspección y Cobros emitirá una certificación de lo adeudado que enviará al Departamento Legal para la respectiva acción judicial o extrajudicial de cobro.

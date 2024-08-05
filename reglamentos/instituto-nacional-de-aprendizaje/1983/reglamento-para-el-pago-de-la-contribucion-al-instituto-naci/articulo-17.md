@@ -1,3 +1,0 @@
-Intereses
-Artículo 17.—En todo arreglo de pago se cobrará un interés fluctuante comente. sobre el saldo de la deuda, equivalente a un 2% por encima de la tasa de interés activa comercial, a seis meses, fijada por el Banco Central de Costa Rica. para los bancos comerciales del Sistema Bancario Nacional, o en su defecto, un porcentaje igual sobre la tasa correspondiente fijada por el Banco Nacional de Costa Rica. Si los pagos se realizan fuera del término convenido, se cobrará un interés moratorio del mismo tipo sobre las cuotas dejadas de pagar. Las tasas de interés serán ajustables cada seis meses.
-(Así Reformado por Sesión No. 3317, celebrada el 22 de enero de 1996, publicado en La Gaceta No. 37 del 21 de febrero de 1996)
