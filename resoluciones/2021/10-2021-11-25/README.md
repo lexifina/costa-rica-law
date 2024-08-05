@@ -16,3 +16,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 1 | 2021-12-03 | la propia norma |
 | 2 | 2022-10-03 | Resolución 9 (2022-10-03) |
 | 3 | 2023-01-23 | Resolución 1 (2023-01-23) |
+| 4 | 2024-08-05 | Resolución 196 (2024-08-05) |
