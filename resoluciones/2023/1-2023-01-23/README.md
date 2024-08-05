@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-27 | la propia norma |
+| 2 | 2024-08-05 | Resolución 196 (2024-08-05) |
