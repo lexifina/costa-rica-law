@@ -1,1 +1,0 @@
-Artículo 11°- Para otorgar la beca se tomará en cuenta dentro de los requisitos la información presentada mediante Formulario de Solicitud de Becas Temporales para Estudiantes de Escasos Recursos del Cantón de San Ramón del/la solicitante, el cual será identificado por el folio, sello del Concejo y firma del Presidente de la Comisión Especial de Becas.

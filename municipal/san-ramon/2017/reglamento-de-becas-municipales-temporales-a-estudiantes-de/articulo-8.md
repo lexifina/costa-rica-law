@@ -1,2 +1,0 @@
-Artículo 8º—Los Síndicos propietarios serán los encargados de entregar a la Comisión de Becas, en la primera semana del mes de febrero de cada año, el formulario completo, con los documentos y datos que se soliciten para cumplir con los requisitos que establece este Reglamento. No se tramitarán solicitudes incompletas, tampoco las presentadas fuera de los plazos establecidos o las que no sean tramitadas utilizando el correspondiente formulario.
-(Así reformado en sesión N° 242 del 18 de junio de 2019)

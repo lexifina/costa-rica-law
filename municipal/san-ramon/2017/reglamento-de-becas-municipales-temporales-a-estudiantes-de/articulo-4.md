@@ -1,1 +1,0 @@
-Artículo 4°- Para la adjudicación de becas el Concejo Municipal nombrará una Comisión Especial de Becas que se encargará de recibir las solicitudes de beca, que cumplan con todos los requisitos de presentación, para analizarlas y oficializar mediante dictamen la lista de becarios asignados.
