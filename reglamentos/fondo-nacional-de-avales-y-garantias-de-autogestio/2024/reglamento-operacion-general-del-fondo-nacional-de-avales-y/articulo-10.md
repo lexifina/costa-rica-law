@@ -1,0 +1,2 @@
+Artículo 10.-Modalidad de los avales. El Fondo Nacional de Avales y Garantías de Autogestión, podrá otorgar avales en modalidad individual o cartera. También podrá emitir garantías de participación y cumplimiento.
+Toda gestión del aval debe ser resuelta en un plazo de 10 días hábiles contados a partir del ingreso de la solicitud del aval al Fondo Nacional de Avales y Garantías de Autogestión, siempre que no medien solicitudes de documentación adicional y/o subsanaciones de documentación solicitada por el Comité de Avales o los especialistas técnicos.

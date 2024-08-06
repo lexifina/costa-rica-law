@@ -1,0 +1,2 @@
+Artículo 16.-De las comisiones. El Fondo Nacional de Avales y Garantías de Autogestión, establecerá un sistema de comisiones sobre los avales y las garantías de conformidad con las condiciones económicas del país y bajo el principio de sostenibilidad y racionalidad. Para la definición del modelo se deberá considerar como base el cálculo de la pérdida esperada.
+Las comisiones serán únicamente sobre el monto del aval otorgado, no sobre el principal del crédito.

@@ -1,0 +1,1 @@
+Artículo 17.-Monitoreo y control. El Fondo Nacional de Avales y Garantías de Autogestión, deberá contratar o elaborar en forma directa los mecanismos de monitoreo que permitan prever siniestros, suspender el otorgamiento de nuevos avales, llevar un control estadístico y asegurar el cumplimiento de los objetivos de la creación de este Fondo.

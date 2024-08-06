@@ -1,0 +1,1 @@
+Artículo 13.-La aprobación de los avales. Toda solicitud de aval o convenios para el otorgamiento de avales de cartera deberá ser aprobada por el COMITÉ DE AVALES que estará conformado por tres miembros a saber: Uno nombrado por el Plenario de la CPCA, Uno nombrado por el Directorio y Un técnico de la CPCA. La aprobación de los avales se realizará por mayoría simple.

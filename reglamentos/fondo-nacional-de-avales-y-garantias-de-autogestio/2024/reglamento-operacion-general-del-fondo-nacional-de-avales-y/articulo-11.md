@@ -1,0 +1,2 @@
+Artículo 11.-Formalización de los avales y garantías. Para formalizar los avales, el beneficiario deberá firmar un contrato y la documentación que en cada caso defina el Comité de Avales debiendo como mínimo suscribir un pagaré a favor del FONAGA.
+Para el caso de avales de cartera, el beneficiario deberá seguir el procedimiento acordado por el FONAGA y el intermediario para la constitución de avales.
