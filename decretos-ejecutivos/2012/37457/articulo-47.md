@@ -16,7 +16,7 @@ l. Cuando lo requiera el jerarca, representar a la institución ante comisiones,
 m. Asistir a reuniones con superiores o subalternos y representar a la institución, con el fin de coordinar actividades, mejorar métodos y procedimientos de trabajo, analizar y resolver problemas que se presentan en el desarrollo de las labores y proponer a los niveles superiores las políticas, planes, programas y proyectos de trabajo a realizar.
 n. Coordinar con la Unidad de Planificación(*) la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
-(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
+(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: "Unidad de Cooperación Internacional")
 o. Brindar la información solicitada por la Unidad de Planificación Institucional, en tiempo, suficiencia, certeza y claridad.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 p. Cuando informes, investigaciones y/o estudios que se realicen arrojen datos no confidenciales económicos, mercado y otro de un bien, servicio y/o sector se debe remitir una copia de los mismos a la Dirección de Investigaciones Económicas y de Mercado, para alimentar la base de datos económicos y de mercado.
@@ -26,3 +26,7 @@ r. Coordinar con la Unidad de Planificación Institucional la elaboración y eje
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 s. Ejecutar y administrar los convenios que suscriba el Ministerio en el ámbito de su respectiva competencia.
 t. Utilizar, mantener y respetar la imagen corporativa de la institución a partir del libro de marca.
+u. Brindar la información en tiempo y forma solicitada por la Unidad de Planificación Institucional, en relación con las disposiciones y recomendaciones emitidas por la Contraloría General de la República, otros entes fiscalizadores y la Auditoría Interna del MEIC; esto, dado al seguimiento y monitoreo que debe realizar esa unidad
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44683 del 6 de agosto del 2024)
+v. Brindar a la Unidad de Planificación Institucional la información pertinente para el registro, control y seguimiento de los instrumentos de cooperación nacional e internacional, proyectos nacionales e internacionales, e instrumentos de planificación.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 44683 del 6 de agosto del 2024)

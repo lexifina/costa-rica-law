@@ -1,23 +1,10 @@
-Artículo 45.-CIDE: Para el cumplimiento de las funciones del Departamento señalado en el artículo anterior, tendrá a su cargo los Centros Integrales de Desarrollo Empresarial (CIDE) que se establezcan en el territorio nacional, las cuales tendrán las siguientes funciones:
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
-a. Apoyar con visión territorial, la construcción de políticas, estrategias y programas para el emprendimiento y la empresariedad.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-b. Identificar demandas y necesidades de las PYME, en la región de influencia y articular las mismas con los programas de la DIGEPYME.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-c. Estimular las alianzas estratégicas y apoyar a las organizaciones empresariales y asociativas.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-d. Coordinar la ejecución de los programas de empresariedad y emprendimiento con los actores locales y los centros de desarrollo empresarial ubicados en el territorio nacional.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-e. Coordinar, desarrollar y ejecutar programas de articulación productiva a fin de fortalecer la cadena de valor en las que puedan participar las PYME.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-f. Ejecutar cualquier otra función del ámbito de su competencia, asignada por sus superiores, cuando las necesidades de la institución lo sugieran, con el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-g. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-h. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-i. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-j. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-k. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-l. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-m. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-n. (Derogado por el artículo 3° del decreto ejecutivo N° 44267 del 27 de setiembre de 2023)
-o. Cualquier función asignada por sus superiores.
+Artículo 45. Departamento de Registro. Para el cumplimiento de sus objetivos, tendrá las siguientes funciones:
+a. Administrar y mantener en coordinación con el Departamento de Tecnologías de Información y Comunicación del Ministerio, la Plataforma Empresarial Digital (PED).
+b. Mantener actualizado el registro de emprendedores y de las PYME y a su vez mantener ordenado y bajo condiciones de seguridad el archivo de expedientes de las empresas registradas en el PED.
+c. Emitir las certificaciones de la condición de emprendedor y PYME que se soliciten.
+d. Establecer una política de registro en línea de las solicitudes de Registro PYME, de manera que lleguen a eliminarse los expedientes físicos.
+e. Coordinar con las CIDE, todas las tareas de registro en el PED, desde la recepción de la solicitud, análisis de esta y hasta el otorgamiento o rechazo de la condición PYME. Igualmente, corresponderá coordinar con estas unidades el registro ordenado de los expedientes físicos que tramiten, requiriendo informes trimestrales del listado de expedientes que mantienen bajo su custodia; estando obligados a acatar las directrices que, para la conformación, manejo y custodia de tales expedientes, se emitan.
+f. Atender las solicitudes de recomendación para la exoneración de diferentes tributos que debe emitir el Ministerio de Economía, Industria y Comercio.
+g. Elaborar estadísticas y reportes de las empresas registradas. en el PED, así como el análisis de diferente información sobre las características de las empresas integradas al registro, del trámite de exoneraciones y otras tareas.
+h. Cualquier función asignada por sus superiores.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44683 del 6 de agosto del 2024)

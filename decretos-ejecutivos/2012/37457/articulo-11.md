@@ -1,20 +1,22 @@
-Artículo 11.— De la Unidad de Planificación(*). A Esta Unidad le corresponderá ejecutar las siguientes funciones:
-(*) (Modificada su denominación por el artículo 4° del decreto ejecutivo N° 41689 del 28 de febrero del 2019. Anteriormente se indicaba: “Unidad de Cooperación Internacional”)
-a. Brindar a MIDEP LAN la información para la elaboración de la Agenda de Cooperación Internacional No Reembolsable u otros documentos similares.
-b. Coordinar y fortalecer las relaciones con los organismos de Cooperación Internacional, para facilitar y complementar el cumplimiento de las prioridades institucionales definidas en el Plan .Nacional de Desarrollo y el Plan Estratégico Institucional, para ello se respetarán los canales oficiales de acuerdo con la normativa vigente.
-c. Ser el representante del MEIC ante el Sistema de Enlaces de Cooperación Internacional y el Comité Técnico de Cooperación Internacional, en el marco de la Cooperación Técnica entre Países en Desarrollo (CTPD) y la Triangulación.
-d. Velar en el ámbito ministerial y sectorial, por el cumplimiento de los instrumentos y mecanismos de cooperación internacional.
-e. Coordinar las visitas de funcionarios y funcionarias de alto nivel de otros países relacionados con la labor del Ministerio en apoyo al Ministro (a) y Viceministro (a) y darle seguimiento a los acuerdos que de las reuniones se deriven.
-f Elaborar una base de datos con la información actualizada de los convenios internacionales que son competencia del MEIC, y darle seguimiento, en coordinación con el Ministerio de Relaciones Exteriores y Culto, además contar con un inventario permanente de las fuentes financieras del sector.
-g. Planificar, coordinar y asesorar a nivel ministerial y sectorial las áreas de cooperación internacional, así como lo relativo a la coordinación de la internalización de fondos internacionales y la ubicación de cooperación técnica nacional e internacional.
-h. Asesorar a las dependencias del Ministerio en la formulación de proyectos de interés institucional para ser presentados tanto a MIDEP LAN, como a los organismos cooperantes, para su aprobación; además liderar el proceso de negociación y dar seguimiento a la implementación y evaluación de los mismos.
-i. Elaborar y dar seguimiento al banco de proyectos institucionales que permita articular las iniciativas a presentar ante los organismos cooperantes, así como los resultados y buenas prácticas derivadas de proyectos de cooperación implementados
-j. Ejercer labores de monitoreo y seguimiento de las agendas complementarias de cooperación.
-k. Coordinar, atender y dar seguimiento a las misiones técnicas de las instituciones, países amigos u organismos que otorgan cooperación técnica o financiera al MEIC y al sector.
-l. Establecer y coordinar acciones de capacitación institucional en aspectos de cooperación internacional.
-m. Realizar un registro y control de los viajes al exterior de los funcionarios de la institución.
-n. Requerir a los (l.as) funcionarios (as) que viajan al exterior en representación de la Institución, un informe sobre el mismo, siguiendo los lineamientos que gire esta Dirección, dentro de los cinco días hábiles a partir de su arribo al país. El material que le fue entregado debe estar a disposición de los (las) funcionarios(as) de la oficina a la que pertenece.
-o. Brindar un informe anual sobre los viajes al exterior que hayan realizado los funcionarios de la Institución, el cual deberá ser presentado en los primeros 15 días del marzo de cada año
-p. Asesorar en asuntos internacionales.
-q. Cualquier otra función relacionada con su competencia.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+Artículo 11.-De la Contraloría de Servicios: A la Contraloría de Servicios, le corresponderá ejecutar las siguientes funciones:
+a. Ser miembro de la Comisión de Mejora Regulatoria Institucional.
+b. Ser el oficial de acceso de la información institucional y la oficina de Información al ciudadano.
+c. Atender, de manera oportuna y efectiva, las gestiones que presenten las personas usuarias sobre los servicios que brinda la organización, con el fin de procurar la solución y orientación de las gestiones que plantee.
+d. Vigilar el cumplimiento del derecho que asiste a las personas usuarias de recibir respuesta pronta a gestiones referidas a servicios, presentadas ante la institución.
+e. Evaluar la prestación de los servicios de apoyo y las ayudas técnicas requeridos por las personas con discapacidad, en cumplimiento de la legislación vigente en la materia.
+f Vigilar la debida prestación de servicios, identificando deficiencias y situaciones de conflicto con el propósito de emitir las recomendaciones pertinentes ante el superior jerárquico que corresponda.
+g. Elaborar y aplicar, al menos una vez al año, instrumentos que permitan medir la percepción para obtener la opinión de las personas usuarias sobre la calidad de prestación de los servicios, grado de satisfacción y las mejoras requeridas; para ello contará con los recursos y el apoyo técnico de las unidades administrativas.
+h. Impulsar y verificar el cumplimiento de la efectividad de los mecanismos y procedimientos de comunicación a las personas usuarias, de manera tal que, les permita contar con información actualizada en relación con los servicios que ofrece la institución, sus procedimientos y los modos de acceso.
+i. Velar por el cumplimiento de las directrices y los lineamientos de política pública emitidos por MIDEPLAN, en materia de mejoramiento continuo e innovación de los servicios, sin perjuicio de las acciones que se desarrollen y respondan a las necesidades específicas de la institución.
+j. Atender las quejas relacionadas con la falta de atención de las solicitudes de información pública presentadas ante instancias internas de la institución.
+k. Recibir las sugerencias planteadas de forma oral, física o electrónica referentes a conductas administrativas que obstaculizan o afecten el ejercicio del derecho de acceso a la información pública.
+l. Coordinar los procesos de acceso a la información pública y transparencia proactiva con el Departamento de Tecnología de Información y Comunicaciones y la Unidad de Relaciones Públicas y Prensa.
+m. Promover, ante el jerarca o ante las unidades administrativas, mejoras en los trámites y procedimientos del servicio que se brinda.
+n. Emitir y dar seguimiento a las recomendaciones dirigidas a la administración activa respecto de los servicios que brinda la institución con el fin de mejorar su prestación, en búsqueda del mejoramiento continuo e innovación y de cumplimiento de las expectativas de las personas usuarias.
+o. Proponer al Jerarca todo tipo de recomendaciones de mejora en materia de la gestión institucional de cumplimiento efectivo del derecho de acceso a la información pública.
+p. Informar al jerarca cuando las recomendaciones realizadas por la Contraloría de Servicios hayan sido ignoradas y, por ende, las situaciones que provocan inconformidades en las personas usuarias permanezcan sin solución.
+q. Recomendar al jerarca la apertura de investigación de personas funcionarias institucionales debido al incumplimiento de acceso a la información.
+r. Realizar las investigaciones internas preliminares, de oficio o a petición de parte, sobre las fallas en la prestación de los servicios, con el fin de garantizar la eficiencia de las gestiones de la organización. Lo anterior, sin perjuicio de los procedimientos administrativos que la administración decida establecer para encontrar la verdad real de los hechos y que la Contraloría de Servicios permita a cualquier funcionario involucrado brindar explicaciones sobre su gestión, así como proteger sus derechos fundamentales.
+s. Ser el usuario de control de calidad para los trámites del MEIC que constan en la plataforma digital Trámites Costa Rica.
+t. Cualquier otra función relacionada con su competencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44683 del 6 de agosto del 2024)
