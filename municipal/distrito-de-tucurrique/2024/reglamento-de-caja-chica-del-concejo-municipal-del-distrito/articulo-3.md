@@ -1,0 +1,1 @@
+Artículo 3º-Se establece un fondo de caja chica cuyo monto será aprobado por el Concejo Municipal y podrá aumentarse previo estudio enviado por la Tesorería Municipal con el visto bueno del intendente Municipal.

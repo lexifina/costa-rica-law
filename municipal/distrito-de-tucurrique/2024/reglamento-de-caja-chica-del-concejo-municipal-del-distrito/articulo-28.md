@@ -1,0 +1,1 @@
+Artículo 28.-Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el responsable, quien además deberá, en forma inmediata y en el acto, depositar el sobrante o reintegrar el faltante, según corresponda.

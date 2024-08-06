@@ -1,0 +1,1 @@
+Artículo 6º-La Caja Chica mantendrá dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios de conformidad con el artículo nueve de este Reglamento, así como para pagar viáticos y gastos de viaje.

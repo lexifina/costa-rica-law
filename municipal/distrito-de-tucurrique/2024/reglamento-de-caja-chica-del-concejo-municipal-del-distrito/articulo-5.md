@@ -1,0 +1,1 @@
+Artículo 5º-El monto del fondo de la caja chica será de hasta Seiscientos mil colones exactos (¢600.000,00), y podrá aumentarse a solicitud del encargado del fondo fijo con la autorización de la alcaldía, de conformidad con lo establecido en los artículos tres y cuatro anteriores del presente reglamento.

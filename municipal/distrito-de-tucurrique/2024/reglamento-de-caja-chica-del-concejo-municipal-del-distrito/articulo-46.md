@@ -1,0 +1,1 @@
+Artículo 46.-Las sanciones que correspondan, según lo dispuesto en este Capítulo, serán aplicadas por el Intendente Municipal, de conformidad con lo que establece en esta materia, el Código Municipal, el Código de Trabajo y otras normas conexas.

@@ -1,0 +1,1 @@
+Artículo 40.-Ningún funcionario municipal, con excepción del Encargado del Fondo, quien tendrá en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de tres días.

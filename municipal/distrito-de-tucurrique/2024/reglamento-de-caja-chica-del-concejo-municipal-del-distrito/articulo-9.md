@@ -1,0 +1,7 @@
+Artículo 9º-La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones: Si ninguna dependencia o funcionario Municipal, según sus funciones, está en la posibilidad de prestar el servicio de que se trate.
+1. Si en la Bodega Municipal no hay existencia del bien que se solicita.
+2. Cuando de existir comprobada emergencia en la que el equipo automotor del Concejo Municipalidad requiere de urgencia las adquisiciones de suministros, repuestos o servicios especializados para seguir funcionando de forma normal, así como otros asuntos o servicios que requieran de una atención inmediata y no puedan esperar el proceso normal de Contratación.
+3. Si el bien o servicio son tan indispensables y de verdadera urgencia que se justifique su pago fuera de los trámites ordinarios que establece la Ley y el Reglamento de Contratación Administrativa.
+4. Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas.
+5. Gastos por concepto de viáticos, debidamente autorizados por la Intendencia, lo cuales deben ser debidamente justificados y no deben ser superiores al máximo autorizado para vales de caja chica, siempre y cuando cuenten con contenido económico en la partida correspondiente.
+6. No se debe cancelar servicios profesionales o técnicos, así como salarios, extras, vacaciones etc.
