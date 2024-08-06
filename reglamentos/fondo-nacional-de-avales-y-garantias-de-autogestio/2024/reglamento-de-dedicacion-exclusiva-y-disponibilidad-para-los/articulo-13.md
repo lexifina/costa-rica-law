@@ -1,0 +1,1 @@
+Articulo 13.-Los beneficios de la Dedicación Exclusiva se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 3° de este reglamento. En tal caso, la Dirección Ejecutiva deberá comunicarlo oficialmente a la Contraloría General de la República.

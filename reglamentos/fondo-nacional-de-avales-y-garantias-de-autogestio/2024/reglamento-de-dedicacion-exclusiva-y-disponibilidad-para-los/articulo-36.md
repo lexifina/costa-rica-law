@@ -1,0 +1,4 @@
+Artículo 36.-El incumplimiento de las disposiciones que rigen el presente reglamento o el respectivo contrato, por parte del funcionario que disfruta del beneficio de la disponibilidad, tiene como consecuencias:
+a) La rescisión inmediata del contrato de disponibilidad.
+b) El reintegro a la CPCA por parte del funcionario, de las sumas que haya recibido por este concepto a partir de la fecha en que ocurrió el incumplimiento.
+c) El incumplimiento por parte del beneficiario de lo establecido en el presente Reglamento en cuanto a la disponibilidad se considerará como infracción grave a la relación laboral y por tanto será causal de despido sin responsabilidad patronal, adicional a los contemplados en el artículo 81 del Código de Trabajo, sin perjuicio de la responsabilidad penal y administrativa que pudiera generarse con base en dicho reglamento.

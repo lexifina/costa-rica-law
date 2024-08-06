@@ -1,0 +1,5 @@
+Artículo 2º-La Dedicación Exclusiva tiene como objetivos primordiales:
+a) Obtener del funcionario de nivel profesional. su completa dedicación a la Comisión Permanente de Cooperativas de Autogestión, no solo con su aporte de conocimientos en las ramas de su especialidad, sino también para evitar la consecuente fuga de conocimientos y del misino personal, privando de esta manera a la administración de la idoneidad de estos funcionarios.
+b) Motivar al funcionario a capacitarse y prepararse para hacer frente a las necesidades que demanda el ámbito de trabajo.
+c) Evitar a la Administración conflictos de intereses que se puedan presentar por el ejercicio liberal de las profesiones con respecto al conocimiento interno de la materia. Toda vez que los clientes del profesional, pueden ser usuarios de los servicios CPCA.
+d) Establecer la prohibición a los trabajadores de participar en actividades vinculadas con empresas de intereses privados que puedan causar evidente perjuicio a los intereses de la CPCA o donde pueda existir un evidente conflicto de intereses.

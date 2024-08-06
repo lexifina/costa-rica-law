@@ -1,0 +1,1 @@
+Artículo 5º-Esta compensación económica se les pagará a los funcionarios que califiquen según lo estipulado en el artículo 3° de este reglamento. Para el pago se debe contar con el contenido presupuestario en las partidas y por los montos correspondientes.

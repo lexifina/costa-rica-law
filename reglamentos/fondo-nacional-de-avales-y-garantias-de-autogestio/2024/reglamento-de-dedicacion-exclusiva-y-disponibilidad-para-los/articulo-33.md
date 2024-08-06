@@ -1,0 +1,1 @@
+Articulo 33.-Los beneficios de la disponibilidad se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 34 de este reglamento. En tal caso, la Dirección Ejecutiva deberá comunicarlo oficialmente a la Contraloría General de la República.

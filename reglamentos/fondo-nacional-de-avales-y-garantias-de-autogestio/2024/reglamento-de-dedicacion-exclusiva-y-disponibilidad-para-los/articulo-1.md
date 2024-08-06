@@ -1,0 +1,14 @@
+FONDO NACIONAL DE AVALES Y GARANTÍAS DE AUTOGESTIÓN
+COMISIÓN PERMANENTE DE COOPERATIVAS DE AUTOGESTIÓN
+Reglamento de Dedicación Exclusiva y Disponibilidad para los funcionarios de la Comisión Permanente de Cooperativas de Autogestión.
+Considerandos
+. Que la Comisión permanente de Cooperativas de Autogestión fue creado mediante el artículo 140 de la Ley 4179, ley de Asociaciones Cooperativas y Creación del INFOCOOP.
+. Que La Asesoría Jurídica de la CPCA, mediante oficio AJ- 414-2022 del 31 de octubre de 2022, analizó la naturaleza jurídica del CONACOOP y de la CPCA, delimitando los alcances de la personería jurídica instrumental con que cuenta esta última, siendo que al respecto concluyó:
+a) "La personalidad jurídica instrumental dada a la Comisión Permanente de Cooperativas de Autogestión, se otorgó como una potestad para el manejo del presupuesto del Fondo Nacional de Cooperativas de Trabajo Asociado y Autogestión, salvo en la administración financiera, sin que se le transforme en persona jurídica independiente.
+b) La Comisión Permanente de Cooperativas de Autogestión forma parte del CONACOOP, el cual es un ente público no estatal por expresa disposición legal, también forma parte de la organización descentralizada del Estado y ejerce función administrativa en el tanto le han sido asignados fines públicos.
+c) El CONACOOP posee personalidad jurídica propia, y por tanto ostenta capacidad de actuar a fin de asumir plenamente derechos y obligaciones, mientras que la CPCA goza de personalidad jurídica instrumental para cumplir los propósitos del Fondo Nacional de Cooperativas de Trabajo Asociado y Autogestión, así como las funciones y atribuciones que se le confieren.
+d) La Comisión Permanente de Cooperativas de Autogestión es lo que la doctrina jurídica pública ha denominado un órgano- persona, por ende, posee personalidad jurídica instrumental dentro del Consejo Nacional de Cooperativas, con las funciones de representar, coordinar y asesorar a las cooperativas de autogestión, manejo patrimonial del Fondo Nacional de Cooperativas de Trabajo Asociado y Autogestión y otras definidas en la Ley 4179 y sus reformas.
+CAPÍTULO I
+De la definición y objetivos de la Dedicación Exclusiva
+Artículo 1º-Se entenderá por dedicación exclusiva para efectos del presente reglamento, aquella obligación que adquiere el profesional en forma voluntaria y por vía contractual, permanente o durante el periodo que se contrate con la CPCA de no ejercer en forma particular, remunerada, ad honorem, la profesión por la cual está contratado, con las excepciones que se establecen en este Reglamento.
+La dedicación exclusiva del empleado profesional a la Comisión Permanente de Cooperativas de Autogestión será remunerada por parte de esta última conforme a un porcentaje aplicable a las bases salariales y de acuerdo con los porcentajes que más adelante se detallan.
