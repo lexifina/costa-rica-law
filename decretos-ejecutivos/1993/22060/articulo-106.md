@@ -1,0 +1,2 @@
+Artículo 106.-Participación política y uso indebido del cargo para beneficio de agrupaciones políticas. Ningún funcionario de la Dirección General de Migración y Extranjería podrá utilizar el cargo, sus funciones, la autoridad o influencia que pueda derivarse de él, para beneficiar a un partido político o candidato a puesto de elección popular, así como cualquier otro recurso público asociado a su ejercicio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

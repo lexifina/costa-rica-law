@@ -1,0 +1,2 @@
+Artículo 92.-Prestación de servicios a terceros. Ningún funcionario de la Dirección General de Migración y Extranjería deberá patrocinar, representar o prestart servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a éstos o cualquier otro tipo de asunto.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

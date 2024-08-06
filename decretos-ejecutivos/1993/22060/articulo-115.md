@@ -1,0 +1,2 @@
+Artículo 115.-La Dirección se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este Reglamento, las cuales previamente deberán ser sometidas al trámite de conocimiento y aprobación de la Dirección General Servicio Civil.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44646 del 6 de agosto de 2024, que lo traspaso del antiguo artículo 87 al artículo 115)

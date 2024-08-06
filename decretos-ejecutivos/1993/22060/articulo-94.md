@@ -1,0 +1,2 @@
+Artículo 94.-Solicitud de colaboración para la institución. Los funcionarios de la Dirección General de Migración y Extranjería no deberán solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones a cargo de esa institución.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

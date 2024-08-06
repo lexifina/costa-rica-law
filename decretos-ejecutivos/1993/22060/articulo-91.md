@@ -1,3 +1,3 @@
-Artículo 91.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.
-San José, a los quince días del mes marzo de mil novecientos noventa y tres.
+Artículo 91.-Prohibición de realizar actividades privadas incompatibles. Los funcionarios de la Dirección General de Migración y Extranjería no podrán ofrecer o desempeñar trabajos o actividades privadas, remuneradas o no, que comprometan su imparcialidad, posibiliten un conflicto de intereses, favorezcan el interés privado en detrimento del interés público o estén en conflicto con sus deberes y responsabilidades en la función pública, so pena de incurrir en el supuesto de responsabilidad previsto en el artículo 38 inciso b) de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+La presente disposición es aplicable a todo el personal en todos los estratos, indistintamente si este se encuentra sometido al régimen de prohibición o dedicación exclusiva, si está disfrutando de vacaciones, licencias con o sin goce de salario, suspensión con o sin goce de salario, permisos con o sin goce de salario o incapacidad.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

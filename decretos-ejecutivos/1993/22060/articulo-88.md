@@ -1,2 +1,2 @@
-Artículo 88.—El presente Reglamento entrará en vigencia en forma de Decreto Ejecutivo, una vez sea publicado en el Diario Oficial.
-Se imprimirá en caracteres fácilmente legibles en forma permanente, en pe menos dos de los lugares más visibles de cada dependencia.
+Artículo 88.-Obsequios dirigidos a familiares. Los servidores de la Dirección General de Migración y Extranjería deberán adoptar todas las medidas que, razonablemente, sean necesarias para garantizar que su círculo familiar conformado por las personas ligadas por parentesco de consanguinidad o afinidad hasta tercer grado inclusive, no reciban ningún regalo o beneficio, entregado con motivo u ocasión del desempeño de sus funciones y cumplir con su deber de denunciarlos cuando tenga conocimiento de este tipo de ofrecimientos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

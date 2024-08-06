@@ -1,0 +1,2 @@
+Artículo 111.-Incompatibilidades para la contratación administrativa. Las autoridades a cargo de los procesos de contratación administrativa deberán adoptar las medidas de verificación necesarias para evitar violaciones al régimen de prohibiciones establecido en la Ley de General de Contratación Pública número 9986, conforme al Título I Disposiciones Generales, Capítulo V: Régimen de Prohibiciones.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

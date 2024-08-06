@@ -1,0 +1,2 @@
+Artículo 107.-Cabildeo. Quienes ejercen cargos públicos en la Dirección General de Migración y Extranjería con nivel de influencia, poder o decisión deberán implementar mecanismos para transparentar las gestiones o actividad de las personas físicas o jurídicas que se les dirijan con la intención de influenciar de manera directa o indirecta el proceso de toma de decisiones propias de su competencia y promover sus propios intereses o de terceros.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 44646 del 6 de agosto de 2024)

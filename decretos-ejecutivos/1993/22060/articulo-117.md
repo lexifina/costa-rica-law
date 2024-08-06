@@ -1,0 +1,2 @@
+Artículo 117.-A falta de disposiciones en el Estatuto de Servicio Civil Reglamento en el presente Reglamento, aplicables a un caso determinado, debe tenerse como normas supletoria, el Código de Trabajo, la Ley General Administración Publica.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44646 del 6 de agosto de 2024, que lo traspaso del antiguo artículo 89 al artículo 117)
