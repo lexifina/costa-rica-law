@@ -1,4 +1,4 @@
-Artículo 4º—Sobre el Registro.
+Artículo 4º-Sobre el Registro.
 4.1. Sobre el registro de persona física o jurídica:
 4.1.1. Toda persona física o jurídica que desee importar, exportar, reexportar, producir, reempacar, reenvasar y comercializar, organismos invertebrados de uso agrícola, o realizar
 investigaciones con fines de registro de productos, deberá estar inscrita ante el SFE(*) según las disposiciones de este Reglamento.
@@ -76,6 +76,8 @@ d) Documentación aportada por la empresa que indique los beneficios relacionado
 (Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se indica que las funciones asignadas al SFE serán realizadas por el Departamento de Biotecnología.")
 4.2.10. Toda solicitud de inscripción deberá publicarse en el diario oficial por tres días consecutivos, haciendo una breve descripción de la misma y confiriendo a terceros un plazo de diez días hábiles a partir de la tercera publicación, para presentar oposiciones.
 4.2.11. De presentarse una oposición se notificará al registrante, quien deberá ofrecer sus pruebas de descargo dentro del término de 3 días hábiles contando a partir del momento en que fue notificado. Transcurrido este plazo, el SFE(*) debe resolver en el período de 8 días hábiles.
+4.2.12. Presentar el comprobante de pago de la tarifa 3.a establecida en el Decreto Ejecutivo N° 27763 Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería, del 10 de marzo de 1999.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44720 del 6 de agosto del 2024)
 (Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se indica que las funciones asignadas al SFE serán realizadas por el Departamento de Biotecnología.")
 4.3. De la vigencia, modificación, suspensión y cancelación del registro
 4.3.1. El Registro de organismos invertebrados de uso agrícola tendrá una vigencia de diez años, sin perjuicio de la potestad que tiene el SFE(*) para realizar estudios sobre la base de los programas de seguimiento y vigilancia post registro, adoptando las disposiciones pertinentes conforme a la ley.

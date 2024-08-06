@@ -15,3 +15,4 @@ Reglamento Técnico para el Registro de Organismos Invertebrados (Artrópodos y 
 | --- | --- | --- |
 | 1 | 2006-06-21 | la propia norma |
 | 2 | 2011-09-20 | Decreto Ejecutivo 36801 (2011-09-20) |
+| 3 | 2024-08-06 | Decreto Ejecutivo 44720 (2024-08-06) |
