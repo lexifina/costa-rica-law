@@ -1,0 +1,10 @@
+N° 10503
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA DECRETA:
+CUARTO PRESUPUESTO EXTRAORDINARIO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO 2024 Y
+TERCERA MODIFICACIÓN LEGISLATIVA DE LA LEY 10427, LEY DE PRESUPUESTO ORDINARIO Y
+EXTRAORDINARIO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO2024, DE 4 DE DICIEMBRE DE 2023
+ARTÍCULO 1 º: Modificase el inciso A del artículo 1 ° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico de 2024, Ley N.0 10427, publicada en el Alcance Digital No.245 al Diario Oficial La Gaceta No.229 del 11 de diciembre del 2023, y sus reformas, de la forma que se muestra a continuación:
+INCISO A:
+DETALLE DEL CÁLCULO DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE LA REPÚBLICA
+PARA EL EJERCICIO ECONÓMICO DE 2024 (en colones corrientes).
+[imagen]
