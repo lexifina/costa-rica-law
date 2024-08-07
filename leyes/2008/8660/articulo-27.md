@@ -1,1 +1,2 @@
-ARTICULO 27.- Tipos abiertos. (Derogado por el artículo 135 inciso c) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021)
+ARTICULO 27.- Tipos abiertos. Facúltase al ICE para que emplee los tipos abiertos de contratación administrativa que sean debidamente incorporados a la reglamentación de esta Ley.
+(Este numeral había sido derogado por el artículo 135 inciso c) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021. Posteriormente mediante resolución de la Sala Constitucional N° 022483 del 7 de agosto de 2024, se anuló el numeral 135 inciso c) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021, que había derogado este artículo. Por lo que este numeral recobra su vigencia.)
