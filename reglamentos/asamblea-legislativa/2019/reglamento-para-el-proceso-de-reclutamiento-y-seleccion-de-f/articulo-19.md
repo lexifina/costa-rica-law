@@ -1,3 +1,1 @@
-Artículo 19.—El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Acuerdo Firme.
-San José, a los catorce días del mes de octubre del dos mil diecinueve.
+Artículo 19.- Los nombramientos de funcionarios interinos por sustitución o en plaza vacante, no se aplicarán de manera retroactiva, sino que podrán regir a partir del primer día hábil siguiente a su designación por parte del Directorio Legislativo en el tanto se cumpla con la comunicación formal al postulante y la aceptación del nombramiento por parte de este.

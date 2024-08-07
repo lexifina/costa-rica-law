@@ -17,3 +17,4 @@ Reglamento para el proceso de reclutamiento y selección de funcionarios interin
 | 2 | 2021-10-27 | Reglamento 180 (2021-10-27) |
 | 3 | 2022-08-09 | Reglamento 13 (2022-08-09) |
 | 4 | 2024-01-24 | Reglamento 77 (2024-01-24) |
+| 5 | 2024-08-07 | Reglamento 106 (2024-08-07) |

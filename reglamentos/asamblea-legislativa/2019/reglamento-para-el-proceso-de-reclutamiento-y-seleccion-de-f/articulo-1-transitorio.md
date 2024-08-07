@@ -1,1 +1,0 @@
-Transitorio único. Mientras el Departamento de Recursos Humanos no tenga implementado el registro de oferentes a que hace referencia este reglamento, el Directorio podrá realizar los nombramientos interinos cuando las necesidades institucionales lo demanden.
