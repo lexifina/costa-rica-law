@@ -18,3 +18,5 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 4° del decreto ejecutivo N° 44543 del 21 de junio de 2024)
 (Modificado por el artículo 5° del decreto ejecutivo N° 44543 del 21 de junio de 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44566 del 15 de julio de 2024)
+(Así reformado por el artículo 2° de la ley N° 10503 del 1° de agosto del 2024)
+(Así reformado por el artículo 3° de la ley N° 10503 del 1° de agosto del 2024)
