@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la junta vial Cantonal de Parrit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-11 | la propia norma |
+| 2 | 2024-08-07 | Reglamento municipal 46 (2024-08-07) |
