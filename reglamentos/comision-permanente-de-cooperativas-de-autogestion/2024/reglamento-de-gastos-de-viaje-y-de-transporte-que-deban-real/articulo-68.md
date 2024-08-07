@@ -1,0 +1,1 @@
+Artículo 68 Pago: Para el pago correspondiente de kilometraje se tomará como referencia la tabla establecida por la Contraloría General de la Republica y lo establecido en el artículo 139, inciso l) del «Reglamento a la Ley de Contratación Administrativa» (Decreto Ejecutivo N° 33411-H de 27 de septiembre de 2006 y sus reformas).

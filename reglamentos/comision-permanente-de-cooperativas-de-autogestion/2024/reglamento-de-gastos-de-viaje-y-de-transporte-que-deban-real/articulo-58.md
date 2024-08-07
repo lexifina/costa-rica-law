@@ -1,0 +1,1 @@
+Artículo 58º.- Tarifas en el exterior del país. La suma diaria por concepto de viáticos en el exterior para sufragar gastos de hospedaje, alimentación y otros gastos menores por lavado y planchado de ropa y traslados dentro de la ciudad, se regirá por las tarifas establecidas en el artículo 34 del Reglamento de Viáticos de la Contraloría General de la Republica.

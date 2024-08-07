@@ -1,0 +1,1 @@
+Artículo 50º.- Asignación de sumas fijas. Los "Gastos de Representación Institucional" no se podrán asignar como sumas fijas, sino que deben liquidarse o girarse contra la presentación de los respectivos justificantes.

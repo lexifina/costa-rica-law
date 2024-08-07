@@ -1,0 +1,1 @@
+Artículo 37º. - Escalamiento tarifario para otros funcionarios con rango asesor. Se podrá reconocer la tarifa de la columna II de la tabla del artículo 34º, a aquellos funcionarios ubicados en la columna III de esa misma tabla. Lo anterior siempre y cuando se incluya esa circunstancia en el acuerdo de viaje, con la debida justificación del Director Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 2º.- Concepto. Por viático debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación y otros gastos menores, que se reconocen a sus colaboradores, cuando éstos deban desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.

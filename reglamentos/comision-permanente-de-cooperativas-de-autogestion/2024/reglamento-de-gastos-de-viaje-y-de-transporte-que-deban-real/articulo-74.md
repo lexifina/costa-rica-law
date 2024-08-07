@@ -1,0 +1,1 @@
+Artículo 74.- Autorizaciones especiales. Las situaciones excepcionales que se presenten podrán someterse a consideración del Directorio de la CPCA con el propósito de resolver autorizaciones especiales, sobre cualquier aspecto no contemplado en este Reglamento.

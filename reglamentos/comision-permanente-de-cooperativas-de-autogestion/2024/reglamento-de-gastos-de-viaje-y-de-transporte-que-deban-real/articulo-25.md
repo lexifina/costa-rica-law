@@ -1,0 +1,1 @@
+Artículo 25º.- Gastos de hospedaje en lugar distinto del destino. Cuando el gasto por el servicio de hospedaje a que se refiere el Artículo 18º deba realizarse durante el traslado al lugar de destino, se reconocerá la suma autorizada correspondiente para el lugar de tránsito donde ese gasto se concretó.

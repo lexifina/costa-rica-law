@@ -1,0 +1,2 @@
+CAPÍTULO V GASTOS DE REPRESENTACIÓN INSTITUCIONAL
+Artículo 48º.- Gastos de Representación Institucional. Designase "Gastos de Representación Institucional" aquellas erogaciones ocasionales en que incurren ciertos funcionarios de la Comisión Permanente de Cooperativas de Autogestión, para brindar atención oficial a personas o entidades ajenas a la Institución, ya sea dentro del país o fuera de él, siempre y cuando estén relacionadas con las actividades de la CPCA y exista relación directa entre el motivo del gasto y el cumplimiento del cargo.
