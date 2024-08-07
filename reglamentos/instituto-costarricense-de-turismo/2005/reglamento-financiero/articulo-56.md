@@ -1,3 +1,0 @@
-Artículo 56.—Fondo de Caja Chica N° 3 Oficina Proyecto Turístico Golfo de Papagayo.
-Se establece con un fondo de ¢75.000,00 (setenta y cinco mil colones exactos). El cuidado y manejo de estos recursos estará a cargo de un funcionario delegado en ese puesto, quien será responsable directo de su correcto manejo en apego a este reglamento. Únicamente podrán tramitarse aquellas compras de bienes y servicios que no sobrepasen la suma de ¢20.000,00 (veinte mil colones), quedando expresamente prohibido fraccionar compras que se pretendan hacer mayores de ese monto.
-(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)

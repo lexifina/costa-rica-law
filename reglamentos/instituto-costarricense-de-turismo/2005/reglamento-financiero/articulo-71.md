@@ -1,2 +1,0 @@
-**Artículo 71.—Fondo de Caja Chica Nº 13 Paradero Turístico Playa de Doña Ana. Se establece con un fondo de ¢50.000,00 (cincuenta mil colones exactos). El cuidado y manejo de estos recursos estará a cargo de un funcionario delegado en ese puesto, quien será responsable directo de su correcto manejo en apego a este reglamento. Únicamente se utilizarán para dar cambios por la venta de tiquetes en el Paradero.
-(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

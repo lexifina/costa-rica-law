@@ -1,2 +1,0 @@
-Artículo 83.—En el momento en que una liquidación de gastos es devuelta con el fin de que sean corregidas las inconsistencias, el funcionario quedará nuevamente con Liquidación Pendiente, impidiendo de esta forma que se pueda autorizar otro adelanto de gastos, incluyendo gastos de viaje o adelantos por caja chica, hasta tanto dicha liquidación sea totalmente corregida y presentada ante la persona que tenga a cargo la revisión.
-(Así adicionado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

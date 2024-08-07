@@ -1,3 +1,0 @@
-Artículo 88.—En el momento en que se suspenda la orden de ejecutar el gasto que originó el adelanto y el cheque o transferencia de fondos se encuentra en trámite, se debe enviar nota de anulación del mismo dirigida a la oficina de cheques, con copia al encargado de liquidaciones, con la finalidad de actualizar los controles de liquidaciones y contables.
-En caso de que el cheque por adelanto haya sido retirado y se suspenda la contratación, se reintegrará el dinero inmediatamente y también se enviará la nota de anulación en los términos expuestos anteriormente.
-(Así adicionado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)
