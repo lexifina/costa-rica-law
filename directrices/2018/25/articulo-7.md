@@ -1,1 +1,0 @@
-Artículo 7º—Se invita a las universidades estatales, municipalidades, Poder Legislativo, Poder Judicial y al Tribunal Supremo de Elecciones, así como a sus dependencias y órgano auxiliares, a aplicar las disposiciones de la presente directriz.
