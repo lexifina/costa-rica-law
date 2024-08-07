@@ -1,0 +1,2 @@
+Artículo 28º. Excepción
+Cuando por razones de urgencia del servicio que se presta, y en los casos excepcionales autorizados por la ley, no se conceda el día de descanso semanal, día feriado o día de asueto, el patrono pagará a la persona trabajadora el tiempo laborado como tiempo extraordinario el salario correspondiente a ese día adicional trabajado, de acuerdo con lo que dispone este mismo cuerpo normativo. Quienes por las razones apuntadas deban laborar y no lo hagan justificadamente, acarrearán con las sanciones disciplinarias del caso.

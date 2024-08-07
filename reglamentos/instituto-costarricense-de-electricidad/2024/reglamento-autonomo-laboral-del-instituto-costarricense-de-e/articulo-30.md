@@ -1,0 +1,2 @@
+Artículo 30º. Fraccionamiento de vacaciones
+En caso de necesidad y de común acuerdo, el disfrute del período de vacaciones se puede fraccionar razonablemente en aras de procurar la buena marcha dentro del centro de trabajo, pero sin detrimento de la efectividad del descanso a que tiene derecho la persona trabajadora, conforme a las disposiciones laborales que establezca la normativa vigente y aplicable respecto a este tema.

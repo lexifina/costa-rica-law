@@ -1,0 +1,2 @@
+Artículo 21º. Autorización
+Toda autorización para el trabajo extraordinario debe contar con la firma de la jefatura formal inmediata y debe quedar debidamente documentada. El pago de tiempo extraordinario para las personas trabajadoras nombradas en puestos profesionales debe realizarse previa autorización del Gerente respectivo. No se computará como extraordinario el tiempo que ocupe la persona trabajadora en subsanar sus errores o en recibir formación.

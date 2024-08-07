@@ -1,0 +1,9 @@
+Artículo 20º. De la jornada extraordinaria.
+Será jornada extraordinaria aquella en la que el trabajo efectivo se ejecute fuera de los límites de las jornadas de trabajo en sus diferentes modalidades. Por su naturaleza siempre será excepcional.
+Todas las personas trabajadoras están en la obligación de laborar jornada extraordinaria, salvo por impedimento grave debidamente justificado y aprobado por la jefatura formal inmediata, cuando por necesidad de la empresa así se requiera y no exceda el tiempo máximo establecido por ley.
+El cálculo de la hora extra se efectuará conforme con la jornada diurna, mixta o nocturna en que la persona trabajadora inicie su jornada ordinaria diaria, independientemente del tiempo laborado en jornada extraordinaria y su finalización.
+Cuando se da una interrupción de la jornada ordinaria, el tiempo extraordinario se paga en función de la jornada anterior en que se inició la labor, dándose así una ampliación o acumulación de la jornada que se vio interrumpida.
+El tiempo extraordinario debe pagarse a razón de una hora ordinaria laborada más un cincuenta por ciento (tiempo y medio) por la cantidad de horas extras laboradas.
+salvo cuando exista norma expresa que permita un pago mayor y se calculará conforme a las disposiciones que al efecto establezcan las normas laborales vigentes y aplicables en el ICE.
+El tiempo extraordinario laborado en días libres, feriados o asuetos, por no existir una jornada ordinaria para este fin, se reconoce según la hora que se labore.
+Las personas trabajadoras nombradas en puestos de coordinación o supervisión pueden devengar tiempo extraordinario los días libres, días feriados o los días hábiles después de 12 horas de jornada ordinaria, en concordancia con lo establecido en el Código de Trabajo específicamente en el artículo 143.

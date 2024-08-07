@@ -1,0 +1,2 @@
+Artículo 8°. Contrato de aprendizaje
+Tiene como propósito la formación o especialización de la persona aprendiente, relación que es temporal y que no genera responsabilidad para las partes una vez concluido. Se formalizarán por escrito y se constituye a través de la negociación con instituciones educativas o empresas que brindan formación y práctica a las personas participantes. Todo lo anterior conforme con las disposiciones que al efecto regule la Institución.

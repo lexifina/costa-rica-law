@@ -1,0 +1,2 @@
+Artículo 25º. Horarios Rotativos
+Para aquellas actividades en las que la prestación del servicio comprenda las veinticuatro horas, las personas trabajadoras están en la obligación de rotar en los diferentes turnos de trabajo de acuerdo con los horarios que se establezcan. Estos turnos deben ser conocidos de forma previa por las personas trabajadoras Lo relativo a los horarios se rige por lo que la empresa establezca como normativa aplicable.

@@ -1,0 +1,3 @@
+Artículo 16º. Modalidades de salario
+La empresa aplicará el esquema de salario global, el mismo no contempla pluses salariales adicionales. En el caso de los funcionarios que por ley devenguen el pago por prohibición, este se contemplará en la definición de la remuneración del salario global. Así mismo, la empresa puede establecer otros esquemas de remuneración, según las necesidades empresariales y sean permitidos por la legislación vigente tanto interna como externa.
+Puede, además, establecer esquemas de compensación variables de acuerdo con la actividad que se desarrolle y conforme con la normativa que para estos efectos apruebe el Consejo Directivo.

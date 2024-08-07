@@ -1,0 +1,2 @@
+Artículo 15°. Revaloraciones salariales
+Se podrán realizar revaloraciones salariales de clases o puestos por ajuste técnico, cuando sea necesario reconocer nuevas actividades o tareas encomendadas a las personas trabajadoras, para la atención de actividades técnicas fuera de la jornada laboral, debiendo contar con un estudio técnico, jurídico y económico según corresponda, que justifique el ajuste; así como una adenda al contrato de trabajo, firmada por la persona trabajadora y el titular subordinado correspondiente.

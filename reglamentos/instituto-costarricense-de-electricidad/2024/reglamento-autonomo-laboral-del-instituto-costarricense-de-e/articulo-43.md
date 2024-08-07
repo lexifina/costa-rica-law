@@ -1,0 +1,1 @@
+Artículo 43º. Responsabilidad para el control de asistencia y puntualidad Cada persona trabajadora es responsable de registrar puntualmente su asistencia y cumplimiento de la jornada en el sistema que para esos efectos defina la empresa.

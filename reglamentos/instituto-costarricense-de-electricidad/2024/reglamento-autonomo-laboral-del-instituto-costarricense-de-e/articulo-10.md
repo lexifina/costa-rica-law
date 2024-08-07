@@ -1,0 +1,10 @@
+CAPITULO IV
+SELECCIÓN DE PERSONAL
+Artículo 10º. Selección de Personal
+Los puestos de Jefe de División, Jefe de Dirección y Coordinadores de Proceso, serán elegidos según los procedimientos internos establecidos Los puestos restantes, son objeto de la carrera administrativa, por lo que el nombramiento de cada uno de ellos está sujeto a la competencia de las personas trabajadoras que quieran ocuparlos y a la idoneidad para el desempeño demostrado, por los medios que se establezcan.
+La dependencia encargada de gestión humana analizará y recomendará a la Gerencia de soporte respectiva, las acciones correspondientes en materia de selección de personal y en los casos en que proceda - de acuerdo con la normativa interna-, esta remitirá a aprobación de la Gerencia General.
+Asimismo, la dependencia encargada de gestión humana podrá recomendar a la Gerencia de soporte respectiva la emisión de lineamientos en esta temática para las dependencias de la Empresa.
+El proceso de selección debe garantizar la idoneidad de los aspirantes, mediante procedimientos según los criterios de equidad, especificidad y diversidad, considerando las necesidades y ámbito de la organización, así como la especialización, ubicación de los puestos, y la oferta existente. La selección de personal está sujeta a la comprobación previa de la idoneidad de los oferentes, que se demostrará según los procedimientos e instrumentos de evaluación definidos para cada caso.
+El personal nombrado en forma ocasional o indefinida podrá participar en los procesos de selección interna, siempre y cuando tenga al menos tres meses de laborar en forma continua.
+En casos de demostrada necesidad y a manera de excepción debidamente establecida por un informe técnico de la dependencia encargada de la gestión humana y con la debida aprobación de la Gerencia General, se podrá autorizar para el llenado de plazas vacantes o de nueva creación, mediante el reclutamiento de candidatos en el mercado laboral externo.
+La dependencia encargada de la gestión humana mantendrá un registro de elegibles, acorde con la planificación del recurso humano.

@@ -1,0 +1,2 @@
+Artículo 31º. Disfrute anticipado de vacaciones
+Cuando la persona trabajadora no haya cumplido las cincuenta semanas de trabajo continuo y necesite vacaciones, la jefatura formal inmediata, puede autorizar únicamente en casos excepcionales, debidamente justificados a su criterio, el disfrute proporcional de una parte del periodo anual de vacaciones. El disfrute proporcional no puede ser superior al número de días que corresponda a los meses trabajados.
