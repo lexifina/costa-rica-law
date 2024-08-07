@@ -1,2 +1,3 @@
 ARTÍCULO 70- Contratación de tecnología para instituciones y empresas en competencia
 Las instituciones y empresas en competencia podrán utilizar el procedimiento especial regulado en el artículo 68 de la presente ley cuando contraten la adquisición, el mantenimiento y la actualización o el arrendamiento de equipos tecnológicos para la informática, hardware y software y desarrollos de sistemas informáticos.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 022483 del 7 de agosto de 2024, se declaró que el presente artículo es inconstitucional en cuanto a su aplicación al Instituto Costarricense de Electricidad.)
