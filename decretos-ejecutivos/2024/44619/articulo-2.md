@@ -1,0 +1,1 @@
+Artículo 2º-Nombrar en representación de la Caja Costarricense de Seguro Social al señor Carlos Roberto Cob Delgado, cédula de identidad N° 1-1128-0922, ante la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
