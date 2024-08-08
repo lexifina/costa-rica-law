@@ -14,3 +14,4 @@ Nombramiento de los miembros del Consejo Nacional de Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-09-07 | la propia norma |
+| 2 | 2024-08-08 | Decreto Ejecutivo 44603 (2024-08-08) |
