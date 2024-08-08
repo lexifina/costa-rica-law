@@ -16,6 +16,7 @@ Artículo 1° - Integrar la Junta Directiva del Patronato Nacional de Ciegos con
 . Jorge Arturo Rivas Campos, cédula de identidad 1 0886 0683, representante del Ministerio de Salud.
 . Abel Augusto Valerio Gómez, cédula de identidad 4 0213 0426, representante de las Organizaciones de personas con discapacidad visual.
 . Sandra Paola Ross Varela, cédula de identidad 1 0995 0346, representante del Ministerio de Trabajo y Seguridad Social (MTSS).
-. José Miguel Angulo Castro, cédula de identidad 1 0530 0008, representante de la Caja Costarricense de Seguro Social (CCSS).
+. Carlos Roberto Cob Delgado, cédula de identidad N° 1-1128-0922 , representante de la Caja Costarricense de Seguro Social (CCSS)
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44619 del 8 de agosto del 2024. Asimismo por el artículo 1° del decreto ejecutivo antes mencionado, se ordenó cesar al José Miguel Angulo Castro, cédula de identidad 1 0530 0008, como representante de la Caja Costarricense de Seguro Social (CCSS))
 . Johana Andrea Sánchez Guerrero, cédula de identidad 7 0209 0053, representante de las Organizaciones de personas con discapacidad visual.
 . Gabriel Andrés Rodríguez Vargas, cédula de identidad 1 1356 0050, representante del Colegio de Médicos y Cirujanos de Costa Rica.

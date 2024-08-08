@@ -14,3 +14,4 @@ Integración de la Junta Directiva del Patronato Nacional de Ciegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-12 | la propia norma |
+| 2 | 2024-08-08 | Decreto Ejecutivo 44619 (2024-08-08) |
