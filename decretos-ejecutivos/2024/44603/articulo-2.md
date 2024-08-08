@@ -1,0 +1,1 @@
+Artículo 2°- Nombrar en representación de la unión nacional de gobiernos locales al señor José Manuel Jiménez Gómez, cédula de identidad N º 1-0688-0182 y a la señora Kimberly Charlin Castro Villalobos, cédula de identidad Nº 6-0342-0461, ante el Consejo Nacional de Desarrollo de la Comunidad de la Dirección Nacional de Desarrollo de la Comunidad (DINADECO).
