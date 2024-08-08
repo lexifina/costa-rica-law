@@ -16,3 +16,4 @@ Reglamento autónomo de Organización y Servicios de la Municipalidad de Turruba
 | 1 | 2010-02-25 | la propia norma |
 | 2 | 2020-08-26 | Reglamento municipal 0 (2020-08-26) |
 | 3 | 2020-09-09 | Reglamento municipal 39 (2020-09-09) |
+| 4 | 2024-08-08 | Reglamento municipal 36 (2024-08-08) |
