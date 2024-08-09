@@ -1,0 +1,1 @@
+Artículo 18.- Aplicación supletoria del Código de Normas y Procedimientos Tributarios. Para lo no previsto expresamente en el presente reglamento y en la Ley Nº 10066 de reiterada cita, se aplicará supletoriamente lo previsto en la Ley Nº 4755 del 3 de mayo de 1971 "Código de Normas y Procedimientos Tributarios".

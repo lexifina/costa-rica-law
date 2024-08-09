@@ -1,0 +1,1 @@
+Articulo 11.- Contribuyentes que son sujetos pasivos del impuesto. Serán contribuyentes de este impuesto el fabricante, en el caso de la producción nacional y el declarante, en el caso de la importación del producto terminado.

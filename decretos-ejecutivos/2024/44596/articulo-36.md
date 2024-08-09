@@ -1,0 +1,1 @@
+Artículo 36.- Monto de las multas. El salario base que se utilizará para fijar las multas establecidas en la Ley será el dispuesto en la Ley Nº 7337 del 5 de mayo de 1993 que crea el concepto salario base para delitos especiales del Código Penal.

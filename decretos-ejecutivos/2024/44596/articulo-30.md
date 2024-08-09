@@ -1,0 +1,2 @@
+Artículo 30.- Informe sanitario y policial. El informe sanitario, el informe policial de la Fuerza Pública, dará lugar al inicio del procedimiento administrativo sumario de manera oficiosa.
+Para tal efecto la autoridad que emitió el informe, deberá remitirlo impreso o en digital a la Dirección del Área Rectora de Salud de la jurisdicción territorial correspondiente, dentro del plazo de cinco días hábiles. Por su parte la Dirección del Área Rectora de Salud, tendrá un plazo de tres días hábiles, para remitir el informe al Órgano Director.

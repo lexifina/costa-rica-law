@@ -1,0 +1,5 @@
+Artículo 13.- Declaración jurada del impuesto específico establecido por la Ley.
+Mediante resolución de carácter general la Dirección General de Tributación establecerá el formulario de declaración del Impuesto específico establecido por el artículo 4 y siguientes de la Ley, así como los medios para su presentación ante la Administración Tributaria.
+Dicha declaración deberá presentarse, durante los primeros quince días naturales del mes siguiente al período fiscal de que se trate, salvo si el día en que se vence este plazo no es hábil, en cuyo caso se entenderá como prorrogado hasta el próximo día hábil.
+Si por motivos no imputables a los sistemas de la Administración Tributaria, la declaración jurada del obligado Tributario, no ingresa dentro de los plazos establecidos, el obligado tributario, será el único responsable por la presentación ocurrida fuera de los plazos legales establecidos en la Ley.
+Así mismo, el obligado tributario deberá conservar por el plazo de ley el comprobante emitido por la Administración Tributaria que respalde dichas declaraciones,

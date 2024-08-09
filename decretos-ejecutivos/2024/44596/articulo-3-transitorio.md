@@ -1,0 +1,1 @@
+Transitorio III.- Los vendedores al por mayor o al detalle, contarán con un plazo de tres meses, a partir de la publicación del presente reglamento, para cumplir con la obligación establecida en el artículo 9 párrafo segundo del presente reglamento.
