@@ -14,3 +14,4 @@ Reglamento para la operación y administración de los acueductos de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-22 | la propia norma |
+| 2 | 2024-08-09 | Reglamento municipal 15 (2024-08-09) |
