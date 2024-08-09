@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas a funcionarios de las Instituciones que
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-15 | la propia norma |
+| 2 | 2024-08-09 | Reglamento 0 (2024-08-09) |
