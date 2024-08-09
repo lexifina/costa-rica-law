@@ -1,0 +1,1 @@
+Artículo 3º-El Concejo tendrá sesiones ordinarias y extraordinarias según lo dispuesto por la ley. Todas sus sesiones serán públicas sin perjuicio de que, en casos muy especiales por mayoría calificada, determinada sesión o parte de ella sea declarada secreta.

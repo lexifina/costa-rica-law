@@ -1,0 +1,1 @@
+Artículo 12.-El uso de la palabra será regulada por el presidente, respetando el orden en que se le solicitó. También podrá retirar el uso de la palabra a quien intervenga sin permiso o quien se exceda en sus expresiones, reitere lo dicho por otro regidor o que se salga del tema en discusión. Además de lo que establece el Código Municipal.

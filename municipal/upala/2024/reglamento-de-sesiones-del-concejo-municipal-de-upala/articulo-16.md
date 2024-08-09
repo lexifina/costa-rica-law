@@ -1,0 +1,1 @@
+Artículo 16.-De las mociones, acuerdos, votaciones y actas: En cuanto a las iniciativas de los regidores, deberán presentar sus mociones, preferiblemente, por escrito en hojas que para ese efecto confeccione la secretaria del Concejo, sin perjuicio de que sea presentada en otro tipo de papel.

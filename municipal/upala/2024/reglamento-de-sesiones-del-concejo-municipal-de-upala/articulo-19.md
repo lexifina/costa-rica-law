@@ -1,0 +1,1 @@
+Artículo 19.-Toda iniciativa tendiente a reformar disposiciones reglamentarias deberá ser dictaminada por la Comisión Permanente de Asuntos Jurídicos que establece el Artículo 49 del Código Municipal.

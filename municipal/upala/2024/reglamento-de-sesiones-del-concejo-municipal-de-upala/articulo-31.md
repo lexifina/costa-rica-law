@@ -1,0 +1,1 @@
+Artículo 31.-Los participantes en las sesiones deberán de hacer uso del celular, computadoras y otros dispositivos electrónicos en modo de vibración, para asuntos de interés institucional y de manera razonable.

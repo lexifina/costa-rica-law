@@ -1,0 +1,1 @@
+Artículo 21.-Los acuerdos del Concejo se tomarán por mayoría absoluta, salvo los casos que de conformidad con la ley se requiera una mayoría diferente, (se entenderá por mayoría absoluta la mitad más uno de los votantes de los regidores).

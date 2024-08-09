@@ -1,0 +1,1 @@
+Artículo 27.-Las actas se aprobarán en la sesión ordinaria inmediata posterior salvo por razones de fuerza mayor. En este caso la aprobación se pospondrá para la siguiente sesión ordinaria de la atención audiencias e intervención de los particulares.

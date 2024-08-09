@@ -1,0 +1,1 @@
+Artículo 22.-Todo acuerdo de Concejo se tomará previo dictamen de una comisión del Concejo y después de considerarse suficientemente discutido el asunto. El trámite de comisión podrá dispensarse en casos urgentes y si el Concejo así lo autoriza por mayoría establecida en el artículo 44 del Código Municipal.

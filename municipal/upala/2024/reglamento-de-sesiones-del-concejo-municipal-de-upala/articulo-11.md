@@ -1,0 +1,1 @@
+Artículo 11.-El Orden del Día contará con los puntos siguientes: Aprobación de actas; Audiencias y juramentaciones; lectura de la correspondencia; Informes de Comisión; Asuntos de trámite Urgente; Mociones y Asuntos de Alcaldía.

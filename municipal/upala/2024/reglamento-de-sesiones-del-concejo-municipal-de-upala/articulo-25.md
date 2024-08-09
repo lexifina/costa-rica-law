@@ -1,0 +1,1 @@
+Artículo 25.-Las actas serán preparadas por la secretaría y se entregarán a todos los regidores y síndicos, Una para el alcalde municipal. Los dictámenes de Comisión solo se entregarán a los regidores propietarios y suplentes.
