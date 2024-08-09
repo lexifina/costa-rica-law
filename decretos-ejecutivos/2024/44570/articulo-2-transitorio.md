@@ -1,0 +1,1 @@
+Transitorio II.-A partir de la entrada en vigor de la presente reforma, las empresas que no cuenten con sistemas de información para el registro, trazabilidad y control de inventarios, contarán con un plazo máximo de seis meses para su adquisición e instalación.
