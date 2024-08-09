@@ -1,0 +1,1 @@
+Artículo 15.-El monto de la compra no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario a nombre de quien se giró el vale debe justificar el gasto diferencial resultante de la compra imprevista inicialmente.

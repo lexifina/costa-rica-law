@@ -1,0 +1,1 @@
+Artículo 22.-Todo arqueo de Caja Chica lo realizará la Dirección Ejecutiva en presencia del Tesorero de la Federación, según lo dispuesto en el numeral 118 del Código Municipal. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

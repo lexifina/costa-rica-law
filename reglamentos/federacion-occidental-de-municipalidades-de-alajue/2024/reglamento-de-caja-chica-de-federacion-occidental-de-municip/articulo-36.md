@@ -1,0 +1,1 @@
+Artículo 36.-Las sanciones que correspondan, según lo dispuesto en el Reglamento anterior, serán aplicadas por la Dirección Ejecutiva, a través de la Oficina de Recursos Humanos, conforme lo establece, el Código Municipal, el Código de Trabajo.
