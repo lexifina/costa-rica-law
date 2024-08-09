@@ -1,0 +1,2 @@
+Artículo 43. Pendiente de acera.
+La pendiente en el sentido transversal de la acera tendrá como máximo el 3% y como mínimo el 1%. Las entradas de edificios o propiedades que no se encuentren a nivel con la acera, deberán contar con una rampa; no obstante, esta se tendrá que construir a partir de la línea de propiedad y nunca en la acera. En el caso de rampas construidas sobre la acera que contravengan lo indicado, deberán ser demolidas y ajustarse a lo señalado en el presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 45. No se permitirán gradas para salvar el desnivel en las aceras.
+Para resolver los desniveles topográficos se construirá una rampa longitudinal, cuya pendiente máxima no deberá ser mayor al 10%, salvo casos excepcionales debido a desniveles topográficos. Si la altura a salvar se encuentra entre dos predios, los propietarios deben coordinar las obras para que la rampa desarrolle 50% del total de frente a cada predio.

@@ -1,0 +1,2 @@
+Artículo 53. Estacionamiento
+No se permite el estacionamiento de vehículos sobre las aceras. En los casos que existan o se diseñen parqueos contiguos a aceras, se deberá separar físicamente la acera del parqueo. El propietario debe asegurar el parqueo de los vehículos dentro de los límites de su predio y no obstaculizar el paso de los peatones por la acera. En caso de incumplimiento de las citadas disposiciones se procederá a la imposición de las sanciones correspondientes.

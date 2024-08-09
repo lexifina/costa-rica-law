@@ -1,0 +1,28 @@
+MUNICIPALIDAD DE EL GUARCO
+CONCEJO MUNICIPAL
+La Secretaría del Concejo Municipal, comunica lo acordado por el Concejo Municipal de El Guarco, en la sesión ordinaria N° 018-2024, celebrada el 22 de Junio de 2024, mediante acuerdo N° 079 definitivamente aprobado "REGLAMENTO PARA EL PROCEDIMIENTO Y COBRO DE TARIFAS Y MULTAS POR OMISIONES A LAS OBLIGACIONES DE LOS PROPIETARIOS Y POSEEDORES DE BIENES INMUEBLES LOCALIZADOS EN EL CANTÓN DE EL GUARCO"
+CONSIDERANDOS
+1. Que conforme lo indicado en el artículo 170 de la Constitución Política, se reconoce la autonomía, competencia y autoridad a los gobiernos municipales.
+2. Que el artículo 4 del Código Municipal, establece que la Municipalidad posee, la autonomía política, administrativa y financiera; que dentro de sus atribuciones incluye según lo indicado en el inciso a)la de Dictar los reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
+3. Que el artículo 13 inciso c) del Código Municipal, establece que es atribución del Concejo Municipal dictar los reglamentos de la Corporación, conforme a esta ley. Así como de los entes adscritos a ella, como lo es el Comité Cantonal de Deportes y Recreación.
+4. Que con respecto procedimiento y el trámite para aprobar disposiciones reglamentarias, existe la jurisprudencia emanada por parte del Tribunal Contencioso Administrativo Sección Tercera, (Resolución N° 27-2009 de las once horas y cuarenta y cinco minutos del 12 de enero del 2009 Tribunal Contencioso Administrativo y Civil de Hacienda Sección Tercera)"
+5. Que tal y como consta en el acta de la Sesión Ordinaria número 013, del Concejo Municipal de fecha 24 de Junio del 2024, Acuerdo N°052, el Concejo Municipal de conformidad con el artículo 43 del Código Municipal; se acordó proceder a publicar y someter a consulta pública no vinculante, por un plazo de diez días hábiles, contados a partir de la publicación en el Diario Oficial La Gaceta, el proyecto de cita.
+6. Que dicha publicación fue realizada tal y como consta en el Diario Oficial La Gaceta N° 121, de fecha 03 de julio del 2024.
+7. Que consta que, durante el periodo de consulta del Proyecto Reglamento, no se presentaron dentro del plazo de ley otorgado, objeciones u observaciones al texto propuesto y publicado.
+8. Que este Concejo Municipal, debe tomar el Acuerdo Municipal de adopción del Reglamento, para proceder a publicar en el Diario Oficial la Gaceta, el comunicado de adopción del reglamento y su fecha de entrada en vigencia.
+POR TANTO.
+En apego a las competencias y atribuciones que establecen los artículos 169 y 170 de la Constitución Política; artículos 4 inciso a), 13 inciso c, 43 y 174 del Código Municipal y los fundamentos de hecho y derecho expuestos; proceda este Concejo Municipal a la aprobación de lo siguiente;
+1. Se aprueba y adopta para su aplicación, publicación y entrada en vigencia el NUEVO REGLAMENTO PARA EL PROCEDIMIENTO Y COBRO DE TARIFAS Y MULTAS POR OMISIONES A LAS OBLIGACIONES DE LOS PROPIETARIOS Y POSEEDORES CONCEJO MUNICIPAL
+La Secretaría del Concejo Municipal, comunica lo acordado por el Concejo Municipal de El Guarco, en la sesión ordinaria N° 018-2024, celebrada el 22 de Junio de 2024, mediante acuerdo N° 079 definitivamente aprobado "REGLAMENTO PARA EL PROCEDIMIENTO Y COBRO DE TARIFAS Y MULTAS POR OMISIONES A LAS OBLIGACIONES DE LOS PROPIETARIOS Y POSEEDORES DE BIENES INMUEBLES LOCALIZADOS EN EL CANTÓN DE EL GUARCO" DE BIENES INMUEBLES LOCALIZADOS EN EL CANTON DE EL GUARCO. Texto final que se trascribe seguidamente a este acuerdo de aprobación para que conste en forma literal en el acta respectiva.
+2. Se acuerda que el nuevo Reglamento de cita; para efectos de su entrada en vigencia, de conformidad con lo indicado en el artículo 43 del Código Municipal, entrará a regir un día después de la respectiva publicación en el Diario Oficial La Gaceta del aviso correspondiente.
+3. Que el presente acuerdo de aprobación y adopción del nuevo reglamento de cita, deroga tácitamente cualquier Reglamento anterior y actual que se encuentre vigente. Por lo cual una vez realizada la respectiva publicación y entrada en vigencia de este nuevo reglamento, se deberá acatar obligatoriamente lo indicado en esta nueva reglamentación en forma exclusiva.
+4. Para los efectos de materializar el trámite de la respectiva publicación en el Diario Oficial La Gaceta y entrada en vigencia del citado reglamento, se procede a delegar a la Secretaría del Concejo Municipal, para que en conjunto con la Alcaldía Municipal procedan conforme a derecho al aviso de dicha publicación en el Diario Oficial La Gaceta.
+Con dispensa de trámite de Comisión que establece el artículo 44 y aplicación del artículo 45 del Código Municipal, procédase a declarar el presente acuerdo como definitivamente aprobado y en firme. Notifíquese.
+REGLAMENTO PARA EL PROCEDIMIENTO Y COBRO DE TARIFAS Y
+MULTAS POR OMISIONES A LAS OBLIGACIONES DE LOS PROPIETARIOS Y
+POSEEDORES DE BIENES INMUEBLES LOCALIZADOS
+EN EL CANTÓN DE EL GUARCO
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1. Objetivo.
+Reglamentar las disposiciones contenidas en los artículos 83, 83 bis, 84, 85, 85 bis y 85 del Código Municipal y de la Ley 9976 de Movilidad Peatonal, las cuales refieren a las obligaciones de las personas físicas y jurídicas, propietarias o poseedoras de cualquier título de bienes inmuebles; establecer el procedimiento para la imposición y cobro de multas por incumplimiento, así como establecer el procedimiento para el cobro por ejecución sustitutiva de las obras y servicios realizados por este Municipio.

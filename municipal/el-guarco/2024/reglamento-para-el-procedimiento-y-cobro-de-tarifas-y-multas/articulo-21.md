@@ -1,0 +1,2 @@
+Artículo 21. Vigencia de las Multas.
+Las multas a las que hace referencia el artículo anterior se cargarán trimestralmente, dentro del cobro de servicios e impuestos municipales y durante todo el tiempo que dure la omisión de los deberes establecidos en este Reglamento. Cuando el omiso sea una institución pública, la multa se disminuirá en un veinticinco por ciento (25%); para las actividades agrícolas, ganaderas, industriales, comerciales y turísticas se aumentará un cincuenta por ciento (50%).

@@ -1,0 +1,2 @@
+Artículo 38. Zonas Verdes.
+Las zonas verdes sólo se permitirán en aceras con franja de equipamiento y mobiliario o franjas de arborización. Estas franjas serán interrumpidas veinte (20) metros antes de las esquinas. El tipo de plantas a utilizar deberá incluir especies nativas y especies que den alimento a la fauna, ajustándose a las recomendaciones técnicas que al respecto dicte la Municipalidad por medio de su catálogo de vegetación y arborización para aceras. No se permitirá la eliminación de estas zonas.

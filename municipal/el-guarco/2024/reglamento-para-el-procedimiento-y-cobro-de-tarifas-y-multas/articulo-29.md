@@ -1,0 +1,2 @@
+Artículo 29. Destinos de los recursos generados por motivo de la aplicación de este Reglamento.
+Los montos anuales recaudados por motivo de las obligaciones establecidas en el artículo 85 del Código Municipal y este Reglamento, se destinarán de forma proporcional a lo recaudado por cada Proceso o Gestión para la aplicación de este Reglamento, asimismo, serán separados en la liquidación presupuestaria como un fondo específico para la aplicación de este Reglamento.

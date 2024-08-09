@@ -1,0 +1,2 @@
+Artículo 57. Lotes con vegetación sin mantenimiento.
+Se considerará un lote sin mantenimiento, enmontado, abandonado todo aquel con vegetación de 10 o más centímetros de altura consistiendo en maleza, matorral, tacotal, charral u otras hierbas sin valor ornamental o agrícola, así como objetos, deshechos, escombros o materiales contaminantes, con aspecto de descuido o ruinoso que ayudan a la proliferación de alimañas, vectores fitosanitarios o que facilitan el acometido de actos de delincuencia.

@@ -1,0 +1,2 @@
+Artículo 26. Modificaciones a accesos.
+La persona propietaria o poseedora de cualquier título de bien inmueble, cuyo acceso se vea comprometido por la construcción de aceras frente a su propiedad, deberá realizar las modificaciones necesarias a lo interno de su propiedad por su cuenta, para habilitar el acceso a la vía pública desde su bien inmueble, respetando la normativa vigente, lo anterior conforme al Artículo 15 de la Ley de Movilidad Peatonal y se le prohíbe cualquier intervención a realizar sobre la vía pública, previo permiso municipal.

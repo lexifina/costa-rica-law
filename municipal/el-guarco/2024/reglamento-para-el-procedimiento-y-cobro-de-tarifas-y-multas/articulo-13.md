@@ -1,0 +1,2 @@
+Artículo 13. Facultad de construcción.
+La Municipalidad se encuentra facultada para realizar las labores de construcción de obra nueva de acera de forma directa, según el Plan de Movilidad, con el fin de garantizar la accesibilidad y la seguridad de todas las personas, posterior a la debida notificación a las personas propietarias o poseedoras de los inmuebles; conforme al Artículo 83 bis del Código Municipal. El costo efectivo de estas obras nuevas se trasladará a las personas propietarias o poseedoras de los inmuebles.

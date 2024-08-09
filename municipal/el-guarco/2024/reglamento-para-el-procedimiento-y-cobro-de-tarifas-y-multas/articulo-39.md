@@ -1,0 +1,2 @@
+Artículo 39. Construcción de las aceras.
+La construcción de aceras se realizará mediante losas de concreto, en paños con un área máxima de 3 m 2. Las juntas entre los paños se deberán hacer de una profundidad entre 3 a 4 cm y un ancho de 6 a 8 mm. La resistencia del concreto a compresión a los 28 días, deberá ser de al menos f'=210 kg/cm2. Se deberá usar una herramienta de acabado redondeado de orillas para el borde y las juntas.
