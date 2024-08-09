@@ -1,5 +1,6 @@
-Artículo 81. El abandono de trabajo sin causa justificada o sin permiso del superior inmediato, se sancionará de la siguiente forma:
-a. Amonestación escrita la primera vez.
-b. Suspensión hasta por ocho días la segunda vez.
-c. Despido sin responsabilidad patronal, la tercera vez.
-Estas faltas se computarán, para efectos de reiteración, en un lapso de tres meses.
+Artículo 81. Las ausencias injustificadas computables al final de un mismo mes calendario, se sancionarán en la siguiente forma:
+a. Por una ausencia: suspensión por dos días sin goce de salario.
+b. Por dos ausencias alternas: suspensión por ocho días sin goce de salario.
+c. Por dos ausencias consecutivas: despido sin responsabilidad patronal.
+d. Por tres ausencias alternas: despido sin responsabilidad patronal.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 80 al artículo 81)

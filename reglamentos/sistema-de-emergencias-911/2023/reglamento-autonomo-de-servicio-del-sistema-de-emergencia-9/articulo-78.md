@@ -1,5 +1,4 @@
-Artículo 78. El despido sin responsabilidad patronal se efectuará por parte de la Dirección del Sistema, en los siguientes casos:
-a. Cuando la persona funcionaria incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo, o en faltas expresamente sancionadas con el despido por la legislación aplicable a los empleados del sector público.
-b. Cuando a la persona funcionaria se le haya impuesto suspensión de conformidad con lo dispuesto en el artículo anterior e incurra en causa para una suspensión más en el plazo máximo de tres meses.
-c. Cuando la persona funcionaria se niegue de manera reiterada a cumplir con los protocolos, procedimientos, instructivos u otros necesarios para el cumplimiento de sus funciones, lo cual constituye una falta grave por la trascendencia del servicio que se presta.
-d. En los casos previstos en el presente Reglamento.
+Artículo 78. La suspensión sin goce de salario se aplicará previa celebración de diligencias que garanticen el debido proceso. Esta sanción solo puede ser impuesta por la Dirección del 9-1-1, y aplicada por el Superior Jerárquico inmediato en los siguientes casos:
+a. Cuando la persona después de haber sido amonestado por escrito incurra de nuevo en la falta que motivo la amonestación, en un plazo no mayor de tres meses.
+b. Cuando la persona viole alguna de las prohibiciones definidas en el presente Reglamento, en la Ley General de la Administración Pública o cualesquiera otras normativas aplicables a los funcionarios públicos, salvo que la falta de mérito para el despido, o esté sancionada por otra disposición de este Reglamento.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 77 al artículo 78)

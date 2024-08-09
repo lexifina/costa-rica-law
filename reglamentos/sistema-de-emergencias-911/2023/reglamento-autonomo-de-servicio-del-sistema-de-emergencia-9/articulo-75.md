@@ -1,4 +1,8 @@
-Artículo 75. La Amonestación Verbal podrá ser aplicada por parte del Superior Jerárquico inmediato, cuando:
-a. La persona funcionaria cometa alguna falta leve a las obligaciones que le impone el contrato o relación de trabajo.
-b. En los casos expresamente previstos en el presente Reglamento.
-La amonestación verbal será notificada por escrito a la persona que corresponda y se enviará copia al expediente de personal.
+Capítulo XVI
+Del Orden y la Disciplina
+Artículo 75. Las faltas a las disposiciones del presente Reglamento, políticas que se emitan y demás instrumentos que conforman la legislación y normas aplicables a las relaciones de servicio entre el 9-1-1 y las personas funcionarias, serán sancionadas conforme a la siguiente escala:
+a. Amonestación Verbal
+b. Apercibimiento escrito
+c. Suspensión sin goce de salario
+d. Despido sin responsabilidad patronal
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 74 al artículo 75)

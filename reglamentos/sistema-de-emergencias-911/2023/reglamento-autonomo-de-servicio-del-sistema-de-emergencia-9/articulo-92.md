@@ -1,5 +1,2 @@
-Artículo 92. Por acuerdo entre el Superior Jerárquico inmediato y la funcionaria con infante recién nacido, esta última tendrá derecho a optar por uno de los siguientes periodos de lactancia, contados a partir de la fecha de nacimiento del infante y hasta por un máximo de 6 meses:
-a. Que el ingreso al trabajo ocurra media hora después del inicio de la jornada y la terminación de esta ocurra media hora antes de su horario normal.
-b. Que el ingreso se produzca una hora después del inicio de su jornada de trabajo.
-c. Que la salida se produzca una hora antes de la terminación de su jornada de trabajo.
-d. Que la funcionaria destine un máximo de una hora dentro de su jornada ordinaria de trabajo para los efectos de la alimentación del infante.
+Artículo 92. Los permisos con goce de salario que no se encuentren contemplados en este Reglamento, serán aprobados por la Dirección. Para este fin, la persona interesada deberá presentar a su Superior Jerárquico inmediato la solicitud por escrito con la justificación correspondiente, quien dará su opinión sobre la procedencia o no del permiso, considerando ante todo el servicio que se brinda, lo someterá a conocimiento de la Dirección o quién este faculte para tal efecto, quien decidirá su aprobación y lo enviará a Capital Humano para el trámite correspondiente.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 91 al artículo 92)

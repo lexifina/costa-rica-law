@@ -1,3 +1,5 @@
-Artículo 77. La suspensión sin goce de salario se aplicará previa celebración de diligencias que garanticen el debido proceso. Esta sanción solo puede ser impuesta por la Dirección del 9-1-1, y aplicada por el Superior Jerárquico inmediato en los siguientes casos:
-a. Cuando la persona después de haber sido amonestado por escrito incurra de nuevo en la falta que motivo la amonestación, en un plazo no mayor de tres meses.
-b. Cuando la persona viole alguna de las prohibiciones definidas en el presente Reglamento, en la Ley General de la Administración Pública o cualesquiera otras normativas aplicables a los funcionarios públicos, salvo que la falta de mérito para el despido, o esté sancionada por otra disposición de este Reglamento.
+Artículo 77. El apercibimiento escrito podrá ser aplicado por el Superior Jerárquico inmediato cuando:
+a. Se haya amonestado a la persona en los términos del artículo anterior e incurra nuevamente en la misma falta en un plazo máximo de tres meses.
+b. Cuando incumpla alguna de las obligaciones establecidas en el artículo 71 del Código de Trabajo, del presente Reglamento, en la Ley General de la Administración Pública o cualesquiera otras leyes aplicables a las personas funcionarias públicas, si la falta no da mérito para una sanción mayor.
+c. En los casos especialmente previstos en este Reglamento o cuando las leyes de trabajo exijan la amonestación escrita antes del despido.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 76 al artículo 77)

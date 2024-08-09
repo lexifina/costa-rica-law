@@ -1,1 +1,2 @@
-Artículo 22. Todas las personas funcionarias, independientemente de su condición de contratación, sea por nuevo ingreso, ascenso o reasignación, traslados u otros deberán de cumplir con los tres meses de prueba. Los nombramientos de carácter temporal inferiores a tres meses no tienen que cumplir con un período de prueba. Con base en lo dispuesto en la Ley Marco de Empleo Público el puesto de Dirección tendrá un periodo de prueba de seis meses.
+Artículo 22.-Todas las personas funcionarias, independientemente de su condición de contratación, sea por nuevo ingreso, ascenso o reasignación, traslados u otros deberán de cumplir con los tres meses de prueba.
+(Así reformado y publicado en La Gaceta N° 146 del 9 d agosto de 2024)

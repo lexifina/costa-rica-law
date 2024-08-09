@@ -1,10 +1,10 @@
-Artículo 70. El Superior Jerárquico, además de lo indicado anteriormente, tiene las siguientes obligaciones propias de su cargo:
-a. Efectuar la evaluación del desempeño del personal a su cargo, en forma objetiva, oportuna y veraz, comunicando su resultado en el plazo que se indique, tanto a los interesados, como a Capital Humano.
-b. Velar porque el personal, bajo su coordinación y supervisión cumplan con las normas de disciplina y asistencia, así como con las obligaciones y responsabilidades del cargo y no incurran en las prohibiciones descritas en el presente Reglamento;
-c. Planificar y autorizar el disfrute de vacaciones del personal a su cargo, considerando en el programa que no se perjudique el debido funcionamiento del servicio institucional;
-d. Autorizar todos aquellos actos para los que se encuentre legítimamente habilitado, relacionados con las personas a su cargo.
-e. Mantener el ritmo normal de trabajo de su correspondiente proceso, por lo que debe redistribuir el trabajo del personal que esté ausente, para que no se produzcan atrasos en la ejecución normal de las labores.
-f. Velar por el cumplimiento del horario del personal a su cargo, así como de aplicar las acciones disciplinarias que le competan o bien elevarlas cuando sea necesario a quien corresponda.
-g. Incorporar las medidas de Seguridad y Salud Ocupacional que el 9-1-1 establezca y velar por su cumplimiento.
-h. Velar por la correcta asignación, custodia y utilización de los activos del personal a su cargo. Además, reportar y gestionar las acciones correspondientes cuando se presente el robo, hurto, pérdida o deterioro de los activos.
-i. Gestionar el permiso institucional de conducción para que el personal a su cargo pueda utilizar los vehículos institucionales.
+Artículo 70. Además de las señaladas anteriormente, la Administración tendrá las siguientes obligaciones:
+a. Velar porque el personal se encuentre libre de hostigamiento e intimidación en cualquiera de sus formas.
+b. Planear y programar, en los niveles que lo exijan, las acciones estratégicas y operativas pertinentes, y formular los anteproyectos de presupuesto correspondientes;
+c. Planificar sus labores, orientar y guiar al personal a cargo, para que las actividades y procesos asignados, se desarrollen conforme con las normas de eficiencia y calidad deseadas;
+d. Crear y mantener una cultura de trabajo, orientada a estimular, en el personal a cargo el trabajo en equipo, valores, y confianza, sustentado en un enfoque de procesos y servicios con una actitud de creatividad y anticipación a los cambios;
+e. Dotar al personal de un espacio donde puedan guardar sus implementos personales mientras realizan su labor.
+f. Establecer mecanismos de control de marcas que considere pertinentes, con el fin de verificar el cumplimiento de los horarios de trabajo. Los controles a que se refiere este artículo deben ser razonables y proporcionales a los fines de un registro de asistencia y debidamente informados al personal.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 146 del 9 de agosto de 2024)
+g. Participar y apoyar los programas que procuren el mejoramiento de la Salud Mental, Física, Emocional y Ambiental de las personas funcionarias dentro de la institución.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 69 al artículo 70)

@@ -1,10 +1,2 @@
-Artículo 117.Todo lo que no se encuentre definido en este Reglamento será regulado por medio de las políticas y procedimientos administrativos.
-DOCUMENTOS Y REFERENCIAS
-ü Ley Marco Empleo Público
-ü Ley Fortalecimiento a las Finanzas Públicas
-ü Código de Trabajo
-ü Políticas y reglamentos internos del Sistema de Emergencias 9-1-1
-CONTROL DE CAMBIOS
-Versión | Descripción de la modificación | Nombre de quién realizó la modificación | Fecha de Vigencia
-| | |
-| | |
+Artículo 117. En defecto de disposiciones propias de este reglamento, se tendrán como supletorias en primer lugar las disposiciones de derecho público que configuran el llamado derecho laboral administrativo y, en segundo término, los principios y disposiciones del Código de Trabajo.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 116 al artículo 117)

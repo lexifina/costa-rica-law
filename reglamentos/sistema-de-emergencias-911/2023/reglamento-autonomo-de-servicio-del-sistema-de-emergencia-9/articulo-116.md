@@ -1,1 +1,2 @@
-Artículo 116. En defecto de disposiciones propias de este reglamento, se tendrán como supletorias en primer lugar las disposiciones de derecho público que configuran el llamado derecho laboral administrativo y, en segundo término, los principios y disposiciones del Código de Trabajo.
+Artículo 116. Se tendrá implícitamente modificado o derogado, según sea el caso, si durante su vigencia se aprobaren leyes que dispongan en sentido contrario; o bien, si se produce jurisprudencia obligatoria en tal sentido.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 115 al artículo 116)

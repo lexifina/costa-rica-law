@@ -1,3 +1,2 @@
-Capítulo XXII
-Del pago de prestaciones
-Artículo 109.El pago de prestaciones por finalización del contrato de trabajo se efectuará únicamente en los casos en los que las leyes específicamente así lo obliguen, por sentencia firme de los tribunales o por movilidad laboral promovida por la Administración.
+Artículo 109.Para la atención de estas peticiones y sugerencias el personal deberá cumplir la normativa que la Administración establezca.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 108 al artículo 109)

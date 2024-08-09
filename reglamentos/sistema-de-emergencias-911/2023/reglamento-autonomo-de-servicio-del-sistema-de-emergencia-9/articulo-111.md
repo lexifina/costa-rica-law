@@ -1,2 +1,5 @@
-Artículo 111.Cuando una persona funcionaria supere los 18 meses de incapacidad continua podrá solicitar la finalización del contrato de trabajo con responsabilidad patronal con base en el artículo 79 del Código de Trabajo, quedando el resultado de su petición sujeto a estudio y recomendación de profesional competente.
-Para los casos de riesgos del trabajo, el plazo de la incapacidad será de 24 meses, conforme lo dispone el artículo 237 del Código de Trabajo.
+Artículo 111.La persona funcionaria a la que se dé por terminado su contrato de trabajo con reconocimiento de prestaciones legales, tendrá derecho al pago de auxilio de cesantía de acuerdo con su antigüedad, en la siguiente forma:
+a. A las personas que a la entrada en vigencia de la Ley 9635 contaban con 12 o más años de laborar continuamente para la institución, recibirán hasta 12 años de auxilio de cesantía.
+b. A las personas que a la entrada en vigencia de la Ley 9635 contaban con menos de 12 años de laborar continuamente para la institución, recibirán hasta 8 años de pago de auxilio de cesantía.
+La persona funcionaria que se haya acogido a la liquidación de sus prestaciones con base en el presente artículo no podrá volver a trabajar en el 9-1-1, conforme la normativa vigente. La Dirección podrá hacer la excepción en caso de inopia previo estudio de la Unidad de Capital Humano.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 110 al artículo 111)

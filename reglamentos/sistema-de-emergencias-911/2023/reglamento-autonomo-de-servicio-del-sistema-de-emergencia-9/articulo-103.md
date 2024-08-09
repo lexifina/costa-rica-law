@@ -1,1 +1,4 @@
-Artículo 103.Corresponde a la institución la promoción y mantenimiento del más alto grado de bienestar del personal, la prevención de todo daño a la salud de éste, ocasionado por las disposiciones de trabajo, la protección en su empleo contra los riesgos resultantes de la existencia de agentes nocivos a la salud, y colocar y mantener a la persona funcionaria en un empleo acorde a sus aptitudes.
+Capítulo XX
+De la Seguridad, Higiene y Salud Ocupacional
+Artículo 103.Es deber del 9-1-1 procurar el bienestar físico, mental y social del personal para lo cual deberá mostrar atención e interés en todo lo relacionado con la salud ocupacional.
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 102 al artículo 103)

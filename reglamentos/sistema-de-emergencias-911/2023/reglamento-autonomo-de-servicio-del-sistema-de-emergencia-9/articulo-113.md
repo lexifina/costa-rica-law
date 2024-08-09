@@ -1,3 +1,3 @@
-Capítulo XXIII
-Disposiciones Finales
-Artículo 113.La Institución se reserva el derecho de adicionar o modificar, en cualquier momento, las disposiciones de este reglamento, sin perjuicio de cumplir con lo dispuesto por el artículo 361 de la Ley General de la Administración Pública, si fuera del caso.
+Artículo 113-Cuando a una persona funcionaria le sea suspendida por seis meses o más la licencia para conducir, por infringir la Ley de Tránsito, siendo este indispensable para el desempeño de su puesto y no sea posible asignarle otras labores acordes con sus competencias, clasificación, obligaciones y responsabilidades de conformidad con el estudio técnico respectivo, se podrá plantear la liquidación de su contrato con responsabilidad patronal, previa valoración y estudio vinculante de Capital Humano, de las razones que motivaron la suspensión de la licencia de conducir y su aprobación por la Dirección. Si la suspensión fuera inferior a seis meses el trabajador podrá ser reubicado temporalmente en otras labores.
+(Así reformado y publicado en La Gaceta N° 146 del 9 de agosto de 2024)
+(Así modificada su numeración y publicado en La Gaceta N° 146 del 9 de agosto de 2024, que lo traspaso del antiguo artículo 112 al artículo 113)
