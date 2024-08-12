@@ -1,2 +1,0 @@
-Artículo 32.-La municipalidad realizará las labores de construcción de obra nueva de aceras de forma directa, con el fin de garantizar la accesibilidad, la integridad y la seguridad de todas las personas, previa notificación a la persona propietaria.
-De igual manera podrá disponer de los fondos indicados en el inciso b) del artículo 5 de la Ley 8114, Ley de Simplificación y Eficiencia Tributarias y Ley 9329, Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, según la planificación que realice la municipalidad.

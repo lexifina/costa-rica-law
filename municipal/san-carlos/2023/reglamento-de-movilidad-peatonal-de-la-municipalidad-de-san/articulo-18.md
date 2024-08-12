@@ -1,1 +1,0 @@
-Artículo 18.-El costo efectivo de estas obras nuevas se trasladará a las personas propietarias o poseedoras de los inmuebles con base a lo establecido en el artículo 31 del presente reglamento, y a los artículos 83 y siguientes del Código Municipal.

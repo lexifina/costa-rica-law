@@ -1,4 +1,0 @@
-CAPÍTULO III
-Diagnóstico y ejecución
-Artículo 11.-Determinación de necesidades. La determinación según las necesidades y los criterios de priorización de los lugares a intervenir, según el presente reglamento, serán establecidas en primer término por parte de los Concejos de Distrito del lugar conforme a las obligaciones establecidas en la ley 8114, Podrán ser incluidas dentro del planeamiento y construcción de las obras, aquellas recomendaciones de las personas usuarias relacionadas a las necesidades y usos de la infraestructura peatonal para que sean valoradas y determinadas por los Concejos de distrito.
-De igual manera podrá la Comisión Municipal de Movilidad Peatonal, amparada en aspectos técnicos que justifiquen una necesidad urgente y criterios de priorización tal y como se indicó anteriormente determinar lugares a intervenir según el presente reglamento, sin necesidad de la intervención o participación del Concejo de Distrito.
