@@ -1,1 +1,0 @@
-Artículo 26. Contra los actos finales en contratación pública que emita la Junta de Adquisiciones ICE, procederán los recursos que se establecen en la Ley 9986 General de Contratación Pública, así como la Ley 8660 de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones, en los términos del Transitorio II, de la referida Ley 9986.

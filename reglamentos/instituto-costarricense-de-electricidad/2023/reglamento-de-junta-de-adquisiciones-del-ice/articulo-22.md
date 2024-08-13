@@ -1,1 +1,0 @@
-Artículo 22°. No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que estén presentes dos tercios de la totalidad de los miembros del órgano y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
