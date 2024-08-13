@@ -1,1 +1,0 @@
-Artículo 10.—La Junta Directiva no conocerá, ni resolverá solicitud alguna de rehabilitación de licencias de pesca vencidas, sin que se cuente con el criterio emitido por parte de la Comisión para el Estudio, Análisis, Revisión y Recomendación de las solicitudes de rehabilitación de Licencias Vencidas.
