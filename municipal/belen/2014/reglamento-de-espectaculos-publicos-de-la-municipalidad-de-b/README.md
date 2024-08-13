@@ -14,3 +14,4 @@ Reglamento de espectáculos públicos de la Municipalidad de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-09 | la propia norma |
+| 2 | 2024-08-13 | Reglamento municipal 48 (2024-08-13) |
