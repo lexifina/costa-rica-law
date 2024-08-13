@@ -14,3 +14,4 @@ Reglamento para el registro de inspectores autorizados de instalaciones de gas l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-19 | la propia norma |
+| 2 | 2024-08-13 | Reglamento 30 (2024-08-13) |
