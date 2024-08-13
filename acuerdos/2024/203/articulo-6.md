@@ -1,0 +1,3 @@
+Artículo 6º-Del trámite de la solicitud: Una vez recibida la documentación de conformidad con lo indicado en el artículo 5 el responsable de la oficina, éste deberá:
+A. Ordenar de inmediato la inspección de la embarcación, en un plazo no menor a 48 horas hábiles.
+B. Preparar y remitir el correspondiente informe, conjuntamente con la documentación aportada por el petente, el informe de inspección y su recomendación en relación a la pertinencia o no de la rehabilitación de la licencia o cambio de flota de pesca y/o cambio de zona de pesca de la embarcación solicitada, en un plazo no mayor a 48 horas a la secretaria de la Comisión.

@@ -1,0 +1,4 @@
+Artículo 11.-Del Coordinador: Le corresponderá al Coordinador de la Comisión:
+A. Nombrar de manera permanente al secretario de la Comisión, quien será un funcionario de la Dirección de Ordenamiento Pesquero y Acuícola.
+B. Preparar conjuntamente con el secretario, el orden del día de las sesiones de Comisión. c- Firmar conjuntamente con el secretario las actas en el libro de actas. d- Dirigir las sesiones de la Comisión. e- Ejercer voto de calidad o doble en caso de empate en la votación de un trámite.
+C. En caso de ausencia en la sesión del Coordinador, este será sustituido por su suplente; sin embargo, en su ausencia en la sesión, le corresponderá al Director de la Dirección de Fomento Pesquero y Acuícola o al Asesor Jurídico propietario, asumir en ese orden la coordinación de la sesión, en caso de ausencia total de los miembros propietarios, le corresponderá al suplente de la Dirección de Ordenamiento Pesquero y Acuícola.
