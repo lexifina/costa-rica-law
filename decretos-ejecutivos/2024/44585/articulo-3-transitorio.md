@@ -1,0 +1,1 @@
+Transitorio III. El Ministerio de Salud contará con un plazo de diez meses a partir de la entrada en vigencia del presente reglamento, para elaborar la reglamentación técnica señalada en los artículos 16, 17 y 22 del presente reglamento.

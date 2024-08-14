@@ -1,0 +1,4 @@
+Artículo 6. Clases de solicitudes. Las solicitudes en materia de autorizaciones serán de las siguientes clases:
+a) Por primera vez: en forma previa al inicio de las actividades objeto de la solicitud.
+b) Por renovación: cuando se requiera continuar con las mismas actividades y bajo las mismas condiciones contenidas en la autorización vigente que está próxima a vencerse. La renovación de la autorización se deberá solicitar al menos con 3 meses de antelación a su vencimiento y para su otorgamiento el solicitante deberá cumplir con los requisitos generales y específicos, y presentar nuevamente los documentos que hayan vencido al momento de solicitar la prórroga.
+De lo contrario, para todos los efectos y sin especial declaración por parte del Ministerio de Agricultura y Ganadería o el Ministerio de Salud, se tendrá esta por vencida al término del plazo de 6 años. En caso de que el administrado desee continuar con la 1actividad, deberá tramitar una nueva solicitud.

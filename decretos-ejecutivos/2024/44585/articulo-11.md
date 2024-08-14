@@ -1,0 +1,6 @@
+Artículo 11. Verificación de otros requisitos por el Ministerio de Salud. El Ministerio de Salud además de lo señalado en el artículo 10 verificará lo siguiente:
+a) Que el solicitante cuente con la autorización de cultivo extendida por el Ministerio de Agricultura y Ganadería, en caso de que el fabricante sea el mismo cultivador.
+b) Cuando el solicitante de la autorización de fabricación no sea el mismo cultivador, deberá indicar las personas físicas o jurídicas con su respectivo número de autorización extendida por el Ministerio de Agricultura y Ganadería, a las cuales les comprará el material vegetal para su industrialización. O indicar el número de autorización del importador del material vegetal o el derivado en caso de que sea importado.
+c) Que el solicitante cuente con el permiso sanitario de funcionamiento vigente del Ministerio de Salud, siempre y cuando corresponda de acuerdo con el tipo de establecimiento donde se desarrollará la actividad productiva.
+d) Que el solicitante cumpla con las Buenas Prácticas de Manufactura de acuerdo con el tipo de actividad, cuando corresponda.
+e) Verificar que el solicitante está inscrito como patrono y se encuentra al día en todas sus obligaciones con la Caja Costarricense de Seguro Social (CCSS) y Asignaciones Familiares.
