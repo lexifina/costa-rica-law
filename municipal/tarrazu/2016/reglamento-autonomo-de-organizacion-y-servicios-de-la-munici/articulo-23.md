@@ -6,3 +6,11 @@ Los viernes en jornada continua de las 5:00 a las 13:00 horas, con treinta minut
 3) Trabajadores operativos del acueducto: Estos trabajadores prestarán servicios en los siguientes horarios: De lunes a jueves de las 6:00 horas a las 15:00 horas, con una hora de
 almuerzo de las 12:00 a las 13:00 horas, y con derecho a quince minutos para tomar café en la jornada de la mañana y de la tarde.
 Los viernes en jornada continua de las 6:00 a las 14:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde.
+4) Director de Banda Municipal: Prestará servicios en el siguiente horario: Lunes, Jueves, Sábados y Domingos de las 7:00 a las 16:00 horas, con una hora de almuerzo de las 12 a las 13 horas y quince minutos para tomar café durante las fracciones de jornada de la mañana y de la tarde.
+Lo viernes en jornada continua de las 7:00 a las 15:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde.
+(Así adicionado el inciso 4) anterior en sesión N° 016 del 14 de agosto de 2024)
+5) Encargado de la Biblioteca Pública Municipal: Prestará servicios en el siguiente horario: de lunes a jueves de las 8:00 a las 17:00 horas, con una hora de almuerzo de las 12 a las 13 horas y quince minutos para tomar café durante las fracciones de jornada de la mañana y de la tarde.
+Lo viernes en jornada continua de las 8:00 a las 16:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde.
+(Así adicionado el inciso 5) anterior en sesión N° 016 del 14 de agosto de 2024)
+6) Encargado de Archivo Central: Prestará servicios en el siguiente horario: Lunes y Martes de las 7:00 a las 16:00 horas, con una hora de almuerzo de las 12 a las 13 horas y quince minutos para tomar café durante las fracciones de jornada de la mañana y de la tarde. Miércoles de 8:00 a las 12:00 horas, con quince minutos para tomar café en la jornada de la mañana.
+(Así adicionado el inciso 6) anterior en sesión N° 016 del 14 de agosto de 2024)
