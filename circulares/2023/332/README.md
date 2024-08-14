@@ -14,3 +14,4 @@ Disposiciones sobre la aplicación del teletrabajo para las materias que compone
 | --- | --- | --- |
 | 1 | 2023-12-20 | la propia norma |
 | 2 | 2024-02-22 | Circular 44 (2024-02-22) |
+| 3 | 2024-08-14 | Circular 173 (2024-08-14) |

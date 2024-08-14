@@ -1,5 +1,6 @@
-(Suspendida)
+(Derogado)
 CIRCULAR N° 332-2023
+(Las afectaciones realizadas a esta norma mediante circular N° 173-2024 del 14 de agosto de 2024, "Modificación de las disposiciones sobre la aplicación del teletrabajo para las materias que componen la Jurisdicción de Familia y cantidad de días máximos que se puede teletrabajar.", fue derogada posteriormente mediante mediante circular N° 196-2024 del 26 de setiembre del 2024. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver este al estado anterior de dicha reforma)
 (Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
 Asunto: Disposiciones sobre la aplicación del teletrabajo para las materias que componen la Jurisdicción de Familia y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN SOBRE MATERIA DE FAMILIA, PENSIONES ALIMENTARIAS, VIOLENCIA DOMÉSTICA, NIÑEZ Y ADOLESCENCIA
