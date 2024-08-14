@@ -15,3 +15,4 @@ Política del Poder Ejecutivo para erradicar de sus instituciones la discriminac
 | --- | --- | --- |
 | 1 | 2015-05-15 | la propia norma |
 | 2 | 2017-05-25 | Decreto Ejecutivo 40422 (2017-05-25) |
+| 3 | 2024-08-14 | SINALEVI (sin norma nombrada) |
