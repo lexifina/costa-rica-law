@@ -1,0 +1,1 @@
+Artículo 3º. Que el ICE como desarrollador del Proyecto Geotérrnico Borinquen, deberá cumplir con los requerimientos de la Secretaría Técnica Nacional Ambiental según Resoluciones Nº 1686-2014-SETENA y Nº2285-2016-SETENA, así como con las obligaciones contraídas en el Estudio de Impacto Ambiental y las medidas ambientales de mitigación y compensación aprobadas.
