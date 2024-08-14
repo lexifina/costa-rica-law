@@ -1,0 +1,1 @@
+Artículo 27. Dado que el pago del arriendo es adelantado, si un arrendatario dejase la posesión de su inmueble antes del vencimiento de su contrato y hubiera cancelado el arriendo, no se le devolverá lo cancelado, ya que lo cancelado es parte de un pago previamente acordado.

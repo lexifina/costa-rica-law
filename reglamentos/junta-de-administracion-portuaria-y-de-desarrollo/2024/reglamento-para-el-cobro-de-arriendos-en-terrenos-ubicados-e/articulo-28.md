@@ -1,0 +1,1 @@
+Artículo 28. JAPDEVA podrá rescindir de forma unilateral el o los contratos suscritos, por motivo de caso fortuito, fuerza mayor o por conveniencia institucional. Todos los términos de las rescisiones contractuales serán acordados y definidos en cada contrato que se suscriba., o por razones de utilidad pública cuando así lo considere la ADMINISTRACIÓN.

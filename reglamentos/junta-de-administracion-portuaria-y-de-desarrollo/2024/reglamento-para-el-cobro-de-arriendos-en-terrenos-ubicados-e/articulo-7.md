@@ -1,0 +1,4 @@
+Artículo 7. Los ingresos que perciba JAPDEVA por concepto de arrendamiento se distribuirán en la siguiente forma:
+a) Un cuarenta y cinco por ciento será invertido en gastos corrientes y en programas y proyectos de mejoramiento en las correspondientes zonas que conforman las fincas administradas por JAPDEVA, el cual será administrados por la Administración de Desarrollo
+b) El cincuenta y cinco por ciento restantes serán recursos de la Administración que las podrá utilizar en gastos corrientes de la institución.
+Cuando los fondos indicados en los dos incisos anteriores no fueren total o parcialmente necesarios para el desarrollo de las zonas que conforman las fincas administradas por JAPDEVA, a juicio del Consejo de Administración, el remanente podrá destinarse a otras necesidades de la institución.

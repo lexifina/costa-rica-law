@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LOS IMPEDIMENTOS
+Artículo 13.- JAPDEVA no podrá otorgar ningún contrato de arrendamiento con cobro de arriendo a favor de sus Directivos, Presidente Ejecutivo, o de sus parientes en primero o segundo grados por consanguinidad o afinidad tanto respecto a ellos como para quienes intervinieran en el otorgamiento o autorización de los Contratos de Arrendamiento concesiones y en general regirán las disposiciones que establece la Ley N°8422 Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Se exceptúan las concesiones otorgadas antes de elegirse o nombrarse el funcionario respectivo.

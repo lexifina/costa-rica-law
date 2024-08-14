@@ -1,0 +1,3 @@
+Artículo 32. En caso de que el ARRENDATARIO desee renunciar al arrendamiento ante JAPDEVA, deberá hacerlo por escrito o de manera verbal ante JAPDEVA, en presencia de un testigo, quien levantará el acta correspondiente.
+El arrendatario debe encontrarse al día en el pago de los arriendos anteriores a la fecha de la renuncia. JAPDEVA procederá a verificar internamente el monto adeudado; en caso de que exista deuda, el arrendatario deberá cancelar el saldo pendiente de inmediato. Si se niega a realizar el pago, la Administración tomará las medidas necesarias para el cobro judicial de las cuotas adeudadas.
+La respuesta a la solicitud será notificada al arrendatario, por el medio de notificaciones señalado en un plazo máximo de hasta 14 días naturales.

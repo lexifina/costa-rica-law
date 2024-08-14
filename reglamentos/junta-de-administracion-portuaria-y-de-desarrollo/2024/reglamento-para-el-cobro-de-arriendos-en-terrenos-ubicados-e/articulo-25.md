@@ -1,0 +1,1 @@
+Artículo 25. En caso de que el arrendatario sea persona física y falleciera, podrá asumir el contrato quien sea declarado legítimo heredero, o bien el designado como Albacea, hasta tanto no se defina el proceso sucesorio, sin embargo, el pago del arriendo y cumplimiento de las obligaciones contractuales deberá mantenerse conforme las estipulaciones acordadas.

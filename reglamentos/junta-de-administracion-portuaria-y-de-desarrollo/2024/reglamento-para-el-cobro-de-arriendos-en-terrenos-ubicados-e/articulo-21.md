@@ -1,0 +1,1 @@
+Artículo 21. Aprobado el trámite del contrato de arrendamiento por parte del Consejo de Administración, se designará la coordinación de la confección del contrato a la CEPOT y a la Unidad de Asesoría Jurídica de JAPDEVA, los cuales, una vez aprobado el contrato, dispondrán de 35 días naturales para coordinar las firmas respectivas.

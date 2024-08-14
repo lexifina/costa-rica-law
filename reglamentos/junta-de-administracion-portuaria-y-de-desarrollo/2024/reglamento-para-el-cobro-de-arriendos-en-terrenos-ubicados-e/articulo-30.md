@@ -1,0 +1,1 @@
+Artículo 30. Para solicitar prórroga, el arrendatario cancelará la suma correspondiente para que se efectúe una nueva inspección en el predio arrendado y se practique el respectivo avalúo una vez cubiertos los costos de la inspección, se realizará en un plazo de hasta 22 días naturales a partir de su pago.
