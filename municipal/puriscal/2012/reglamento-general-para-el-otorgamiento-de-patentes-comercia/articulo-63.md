@@ -2,5 +2,5 @@ Artículo 63. Las licencias de espectáculos públicos permanentes se tramitará
 a- Certificación Notarial o Registral de personería en caso de persona jurídica.
 b- Detalle de la actividad a realizarse.
 c- Medio para atender notificaciones.
-d- Teléfono donde comunicarse con el responsable.
+d- .(Eliminado en sesión N° 22 del 16 de agosto de 2024)
 e- Visto Bueno de ACAM

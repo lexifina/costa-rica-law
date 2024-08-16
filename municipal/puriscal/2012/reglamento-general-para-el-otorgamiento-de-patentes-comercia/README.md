@@ -14,3 +14,4 @@ Reglamento general para el otorgamiento de Patentes Comerciales y similares de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-09 | la propia norma |
+| 2 | 2024-08-16 | Reglamento municipal 22 (2024-08-16) |

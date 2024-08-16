@@ -11,7 +11,7 @@ i) Permiso del Ministerio de salud
 j) Certificado de SENASA
 k) Documento de aprobación del Departamento de Planes y operaciones del Ministerio de Seguridad
 l) Documento de autorización de cierre temporal de calles públicas emitida por la Dirección de Ingeniería de Tránsito del MOPT. VER A QUE INSTITUCION CORRESPONDE SEGÚN EL TIPO DE CALLE QUE SE SOLICITA CERRAR PARA EL EVENTO.
-m) Visto bueno de la cruz roja
+m) (Eliminado en sesión N° 22 del 16 de agosto de 2024)
 n) Visto bueno de ACAM
 o) Cancelación del permiso municipal
 p) Cancelación del servicio de recolección de basura y aseo de vías, previa autorización del encargado de servicios Comunales de la Municipalidad.

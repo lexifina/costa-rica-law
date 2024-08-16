@@ -6,3 +6,4 @@ d) Certificación de la Caja Costarricense de Seguro Social, en donde indique qu
 e) Copia del formulario de inscripción de Ministerio de Hacienda
 f) Para las sociedades, aportar la personería jurídica con no más de un mes de extendida, certificada por el Registro Nacional o por un Notario Público y copia de la cédula o documento de identidad del representante legal.
 g) El solicitante y el propietario del inmueble, deben estar al día en la cancelación de los tributos, tasas y precios públicos municipales.
+(Nota de Sinalevi: Mediante sesión N° 22 del 16 de agosto de 2024, se ordenó derogar el inciso j) de este numeral. No obstante; dicho numeral no tiene dicho inciso.)

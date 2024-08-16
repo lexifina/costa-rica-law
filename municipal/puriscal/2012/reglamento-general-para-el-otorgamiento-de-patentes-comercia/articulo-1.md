@@ -9,7 +9,7 @@ CAPITULO I
 DISPOSICIONES GENERALES
 El presente Reglamento se dicta con fundamento en La ley de Patentes de la Municipalidad de Puriscal Nº 9015 Ley de Juegos Nº 3, Ley 8767 protección de niños y niñas y adolecentes contra la Ludotopía, Ley 9047, Regulación y comercialización de bebidas con contenido alcohólico y Ley Nº 6844 Cobro de Impuestos Espectáculos Públicos a favor de las Municipalidades.
 Artículo 1. Definiciones. Para efectos de este reglamento para el otorgamiento, fiscalización y recaudación de actividades lucrativas de la Municipalidad de Puriscal se entenderán como:
-ACAM: Asociación de Compositores y Autores Musicales
+ACAM: (Eliminada esta definición en sesión N° 22 del 16 de agosto de 2024)
 Área de Influencia de la Municipalidad: Comprende todo el cantón de Puriscal.
 Autorización: Documento escrito mediante el cual una determinada autoridad pública o persona privada de derecho faculta a otra u otras para la realización de un determinado acto. Cuando se trate de autorizaciones emitidas entre personas jurídicas pueden darse bajo el formato del “Poder Especial” conforme lo regula el Código Civil.
 Certificación: Documento escrito emitido por autoridad pública o notario público conforme lo establece el Código Notarial y la Ley General de Administración Pública.
