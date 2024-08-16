@@ -14,3 +14,4 @@ Reforma Reglamento interior de orden, dirección, debates y votaciones de la Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-31 | la propia norma |
+| 2 | 2024-08-16 | Reglamento municipal 16 (2024-08-16) |
