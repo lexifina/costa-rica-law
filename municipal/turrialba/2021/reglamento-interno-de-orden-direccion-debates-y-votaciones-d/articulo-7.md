@@ -1,2 +1,2 @@
-Artículo 7, el Concejo Municipal celebrará su sesión ordinaria por semana los días viernes a partir de las 15:00 horas hasta las 18:00 horas en el salón de sesiones(*) se debe procurar que se dé por agotada la agenda en conocimiento. Para su extensión de la sesión, debe someterse a votación dicha extensión debe ser acordada de manera unánime de los Regidores Propietarios presentes.
-(*)(Así reformado el párrafo anterior mediante sesión ordinaria N° 186-2023 del 24 de noviembre del 2023)
+Artículo 7.-El Concejo Municipal celebrará Sesiones Municipales Ordinarias se realizarán los días martes a partir de las 15:00 horas hasta las 18:00 horas, en el Salón de Sesiones de la Municipalidad de Turrialba, procurando que se dé por agotada la agenda en conocimiento. Para la extensión de la Sesión debe someterse a votación y ser aprobada de manera unánime de los Regidores.
+(Así reformado en sesión N° 016 del 16 de agosto de 2024)
