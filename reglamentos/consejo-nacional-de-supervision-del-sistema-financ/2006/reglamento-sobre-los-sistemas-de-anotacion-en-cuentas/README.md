@@ -17,3 +17,4 @@ Reglamento sobre los Sistemas de Anotación en Cuentas
 | 2 | 2014-02-04 | Reglamento 1088 (2014-02-04) |
 | 3 | 2021-10-04 | Reglamento 1692 (2021-10-04) |
 | 4 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
+| 5 | 2024-08-19 | Reglamento 1884 (2024-08-19) |
