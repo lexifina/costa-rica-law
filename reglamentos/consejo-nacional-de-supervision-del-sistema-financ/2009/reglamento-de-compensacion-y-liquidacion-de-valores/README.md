@@ -19,3 +19,4 @@ Reglamento de Compensación y Liquidación de Valores
 | 4 | 2010-02-26 | Reglamento 838 (2010-02-26) |
 | 5 | 2022-12-22 | Reglamento 1777 (2022-12-22) |
 | 6 | 2023-07-17 | Reglamento 1808 (2023-07-17) |
+| 7 | 2024-08-19 | Reglamento 1884 (2024-08-19) |
