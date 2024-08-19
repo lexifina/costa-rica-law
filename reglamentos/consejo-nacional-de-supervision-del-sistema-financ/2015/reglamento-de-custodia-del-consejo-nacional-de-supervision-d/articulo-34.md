@@ -1,6 +1,9 @@
 CAPÍTULO V
 Operaciones de reporto
-Artículo 34. Liquidación de operaciones de reporto tripartito
-En todas las operaciones de reporto tripartito, ya sea por cuenta propia o por cuenta de terceros, cuyas asignaciones de contratos hayan sido confirmadas por la entidad de custodia, esta se obliga ante el Sistema de compensación y liquidación de valores en los términos y condiciones que se establezcan en el reglamento operativo de la entidad de compensación y liquidación.
-Las entidades de custodia deben velar por que sus clientes tengan recursos para atender oportunamente las obligaciones que resulten de dichas operaciones. Este deber aplica tanto para el pago de la obligación a plazo el día del vencimiento de las operaciones, como para el aporte de las garantías requeridas para mantener la vigencia de las operaciones de reporto tripartito. Para ello, las entidades de custodia pueden exigir a los titulares requerimientos de garantías adicionales, y estipularlo así en el contrato que debe suscribirse con estos.
-(Así reformado mediante sesión N° 1808-2023 del 17 de julio del 2023 )
+Artículo 34.-Confirmación y liquidación de operaciones de reporto
+La entidad de custodia que confirme los contratos debe atender los términos y condiciones que se establezcan en el Acuerdo Sugeval 10-09 Reglamento de Compensación y Liquidación de Valores y el Reglamento operativo de la entidad de compensación y liquidación.
+Además, previo a la confirmación de un reporto por cuenta de terceros, la entidad de custodia debe comprobar y documentar al menos lo siguiente:
+a) El cliente conoce y comprende los riesgos asociados de las operaciones de reporto durante la vigencia de las operaciones y las consecuencias en caso de un incumplimiento.
+b) La evaluación de la situación financiera del cliente que permita conocer su capacidad para cumplir oportunamente con las obligaciones que asume.
+c) En los casos en que la entidad de custodia requiere a los clientes garantías adicionales, para la prestación del servicio de custodia y liquidación de reportos, la documentación contractual establecerá los términos y condiciones correspondientes.
+(Así reformado en sesión N° 1884 del 19 de agosto de 2024)

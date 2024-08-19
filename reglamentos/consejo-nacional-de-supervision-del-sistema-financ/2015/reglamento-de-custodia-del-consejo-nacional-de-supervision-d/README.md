@@ -18,3 +18,4 @@ Reglamento de Custodia del Consejo Nacional de Supervisión del Sistema Financie
 | 3 | 2021-01-18 | Reglamento 1637 (2021-01-18) |
 | 4 | 2021-10-04 | Reglamento 1692 (2021-10-04) |
 | 5 | 2023-07-17 | Reglamento 1808 (2023-07-17) |
+| 6 | 2024-08-19 | Reglamento 1884 (2024-08-19) |
