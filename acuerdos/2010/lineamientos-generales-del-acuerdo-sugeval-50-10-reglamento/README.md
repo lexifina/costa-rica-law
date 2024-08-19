@@ -15,3 +15,4 @@ Lineamientos Generales del Acuerdo SUGEVAL-50-10 Reglamento de Bolsas de Valores
 | --- | --- | --- |
 | 1 | 2010-12-10 | la propia norma |
 | 2 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
+| 3 | 2024-08-19 | Reglamento 1884 (2024-08-19) |

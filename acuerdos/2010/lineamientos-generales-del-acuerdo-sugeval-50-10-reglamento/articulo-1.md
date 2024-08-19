@@ -9,7 +9,7 @@ considerando que:
 7. el Acuerdo SGV-A-106 hace referencia a los inversionistas calificados, concepto que ya no se utiliza en el Reglamento sobre Oferta Pública de Valores, por lo que puede eliminarse del Acuerdo;
 8. en cumplimiento de lo establecido en el artículo 361, numeral 2, de la Ley General de Administración Pública, los presentes lineamientos fueron sometidos en consulta;
 dispuso:
-1. Emitir los “Lineamientos Generales del Acuerdo SUGEVAL-50-10, Reglamento de Bolsas de Valores” de conformidad con el siguiente texto:
+1. Emitir los "Lineamientos Generales del Acuerdo SUGEVAL-50-10, Reglamento de Bolsas de Valores" de conformidad con el siguiente texto:
 LINEAMIENTOS GENERALES
 DEL ACUERDO SUGEVAL-50-10
 REGLAMENTO DE BOLSAS DE VALORES
@@ -18,12 +18,7 @@ Los directivos, gerentes, representantes legales, auditor interno, director de s
 II. Características únicas de ventanas en pantalla (art. 21)
 Todos los caracteres desplegados en las ventanas que dan acceso a las ruedas de los mercados de valores No inscritos deben ser de color rojo con fondo blanco. Estas ventanas deben estar debidamente identificadas como pertenecientes al mercado primario de valores No inscritos o al mercado secundario de valores No inscritos, respectivamente. Además deben incluir un mensaje rotativo en la parte superior que indique que los valores ahí negociados no están sujetos a la supervisión de la SUGEVAL y que la liquidación de las operaciones ahí realizadas es responsabilidad exclusiva de las partes. Esta advertencia debe tener un tamaño de letra igual o mayor al utilizado para desplegar la información contenida en la ventana.
 Las ventanas en la pantalla de los agentes de bolsa a través de las cuales se tiene acceso a las ruedas pertenecientes al mercado de valores inscritos no pueden utilizar el color rojo para ninguno de los elementos que las componen.
-III. Valores de mayor y menor liquidez (art. 23)
-a) Definición del índice de bursatilidad b:
-[imagen]
-Quedan excluidas del cálculo las operaciones fuera de las ruedas de negociación. El índice de calcularse cada trimestre calendario.
-b) Umbral de diferenciación:
-Los valores con un índice de bursatilidad b > 0,3 deben considerarse de mayor liquidez.
+III. Valores de mayor y menor liquidez (art. 23). (Derogado en sesión N° 1884 del 19 de agosto de 2024)
 IV. Monto mínimo de las operaciones fuera de las ruedas de negociación (art. 24)
 El monto mínimo para realizar operaciones fuera de las ruedas de negociación es de 100 UDES.
 V. Comunicación inmediata e Información mensual sobre inversiones propias (arts. 38 y 39)
