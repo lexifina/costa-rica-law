@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del control y sanciones
+Artículo 8º-Del control en el cumplimiento de las disposiciones del presente reglamento. Corresponderá a la Unidad de Gestión Institucional de Recursos Humanos, comunicar a cada persona funcionaria a nombrar en alguno de los cargos que se señalan en el artículo 3 de este reglamento, la obligación de rendir de previo la garantía correspondiente.
+Asimismo, le corresponderá a la citada dependencia supervisar que todas las personas funcionarias obligadas a rendir la garantía con la entrada en vigencia del presente reglamento, y a los que ostenten el nombramiento respectivo, suscriban la correspondiente póliza de fidelidad, según corresponda, conforme las disposiciones transitorias aquí dispuestas, y que; la mantengan vigente.
+Se llevará un registro de las personas funcionarias que se encuentren obligadas a rendir la caución, así como la fecha de vencimiento de éstas, lo anterior con el fin de tomar las providencias del caso a efecto de que en todo momento se mantengan vigentes.
