@@ -1,0 +1,1 @@
+Artículo 3°-Nombrar a la señora Noylin Cruz Suárez, cédula de identidad: 2-0509-0772, como miembro suplente de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal en representación del Poder Ejecutivo, por el período comprendido entre el veinte de agosto de dos mil veinticuatro y hasta el treinta y uno de julio de dos mil veintiséis.

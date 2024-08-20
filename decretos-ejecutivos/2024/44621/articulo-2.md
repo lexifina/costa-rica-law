@@ -1,0 +1,1 @@
+Artículo 2°-Nombrar a la señora Nidia Solano Brenes, cédula de identidad 3-0246-0547, como miembro titular de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal en representación del Poder Ejecutivo, por el período comprendido entre el veinte de agosto de dos mil veinticuatro y hasta el treinta y uno de julio de dos mil veintiséis.
