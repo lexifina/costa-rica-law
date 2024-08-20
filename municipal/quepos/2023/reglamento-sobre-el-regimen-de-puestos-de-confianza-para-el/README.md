@@ -14,3 +14,4 @@ Reglamento sobre el régimen de puestos de confianza para el Concejo Municipal d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-03 | la propia norma |
+| 2 | 2024-08-20 | Reglamento municipal 27 (2024-08-20) |
