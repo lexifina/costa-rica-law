@@ -1,1 +1,0 @@
-Artículo 28.—Nombramiento de los Delegados de los Trabajadores. Para la elección de los delegados de los trabajadores, se seguirá el procedimiento que establecerá el Departamento de Recursos Humanos vía directriz, el cual podrá contar con la asesoría de la Dirección General del Servicio Civil.

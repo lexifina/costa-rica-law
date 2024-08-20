@@ -1,1 +1,0 @@
-Artículo 3º—Principios. Los principios que rigen el procedimiento de adjudicación de becas o facilidades de DINADECO son los de eficiencia, igualdad, libre competencia y democratización del acceso a becas, licencias o facilidades por parte de todos sus funcionarios.

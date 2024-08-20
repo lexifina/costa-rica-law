@@ -1,1 +1,0 @@
-Artículo 41.—En caso de que sea necesario, se aplicarán con carácter suplementario, las disposiciones afines contenidas en el Código de Trabajo, el Reglamento Autónomo de Servicio y Organización, la ley General de la Administración Pública y demás normativa conexa.

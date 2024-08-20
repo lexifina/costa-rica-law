@@ -1,1 +1,0 @@
-Artículo 42.—La Dirección Administrativa Financiera podrá mediante resolución razonada establecer o aprobar políticas, manuales, procedimientos, metodologías, instructivos y demás instrumentos administrativos de gestión, con el fin de normar y/o mejorar las acciones realizadas con base en el presente cuerpo normativo.

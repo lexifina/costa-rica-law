@@ -1,1 +1,0 @@
-Artículo 21.—Acuerdo de viaje. Según la naturaleza y condiciones de la beca, se procederá a la emisión de un Acuerdo de Viaje y a la elaboración y firma del respectivo contrato, todo conforme a la Ley de Licencias para Adiestramiento de Servidores Públicos y este Reglamento.

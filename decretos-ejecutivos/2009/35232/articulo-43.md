@@ -1,1 +1,0 @@
-Artículo 43.—La cantidad de becas y/o licencias que se concedan anualmente la dictará el Director Nacional, tomando en consideración razones de necesidad institucional de recurso humano, contenido presupuestario, prestación de los servicios institucionales y los demás que considere necesarios. Para esto podrá solicitar asesoría al Departamento de Recursos Humanos y/o la Comisión.

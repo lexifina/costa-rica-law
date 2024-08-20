@@ -1,1 +1,0 @@
-Artículo 36.—Toda decisión o modificación, con relación a los beneficios aprobados, que varíe alguno de los elementos sustanciales del contrato, deberá constar por escrito y agregarse al expediente respectivo y en un tiempo no mayor a ocho días hábiles, deberá ser entregado al Departamento de Recursos Humanos y agregarse al expediente respectivo.
