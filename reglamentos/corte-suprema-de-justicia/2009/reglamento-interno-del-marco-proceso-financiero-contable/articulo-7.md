@@ -1,1 +1,0 @@
-Artículo 7º—La Jefatura del Macro Proceso Financiero Contable contará con los dos Jefes de los Procesos que lo integran, quienes sustituirán al titular en sus ausencias temporales y con el personal de apoyo necesario para cumplir con lo dispuesto en el artículo anterior.

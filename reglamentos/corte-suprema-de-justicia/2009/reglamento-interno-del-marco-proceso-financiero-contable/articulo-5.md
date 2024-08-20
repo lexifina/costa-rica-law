@@ -1,1 +1,0 @@
-Artículo 5º—Con el fin de avalar el correcto cumplimiento de sus deberes y obligaciones y de previo a entrar en el ejercicio de sus funciones, el Consejo Superior definirá los funcionarios que integran el Macro Proceso Financiero Contable que deban rendir caución así como el monto respectivo.
