@@ -14,3 +14,4 @@ Código de ética profesional del Colegio de Contadores Públicos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-21 | la propia norma |
+| 2 | 2024-08-20 | Reglamento 8 (2024-08-20) |
