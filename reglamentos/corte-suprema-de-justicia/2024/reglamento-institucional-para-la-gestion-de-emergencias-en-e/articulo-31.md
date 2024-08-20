@@ -1,0 +1,1 @@
+Artículo 31. -Capacitación de las brigadas de emergencias. La asesoría y capacitación corresponderá a la Dirección de Gestión Humana, así como a otras instancias pertinentes según la temática requerida, en función de lo establecido en el Plan Institucional de Gestión de Emergencias, planes de emergencia y protocolos.

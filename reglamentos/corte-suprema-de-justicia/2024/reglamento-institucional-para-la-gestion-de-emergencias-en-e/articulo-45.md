@@ -1,0 +1,1 @@
+Artículo 45.-Entrega de las donaciones. Para la logística de la entrega de las donaciones se podrá coordinar con la Dirección del Organismo de Investigación Judicial, Administraciones Regionales, los departamentos de Proveeduría y Servicios Generales, y los vehículos de los diferentes ámbitos, así como con los que sean requeridos según la situación.

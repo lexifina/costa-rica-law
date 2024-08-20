@@ -1,0 +1,1 @@
+Artículo 32. -Permisos de capacitación para las personas Brigadistas de emergencias. La jefatura deberá brindar el permiso respectivo, procurando la menor afectación al servicio, para que el personal judicial que actúa como integrante de las brigadas de emergencia participe en los cursos de capacitación, que serán comunicados con previo aviso.

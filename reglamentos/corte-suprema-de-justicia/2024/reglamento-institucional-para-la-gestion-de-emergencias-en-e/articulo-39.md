@@ -1,0 +1,1 @@
+Artículo 39.-Coordinación Nacional de la labor preventiva. La persona representante del Organismo de Investigación Judicial, ante la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, será la misma que integre la Comisión Institucional de Emergencias, ello con el objetivo de agilizar la coordinación de la labor preventiva en el Poder Judicial.

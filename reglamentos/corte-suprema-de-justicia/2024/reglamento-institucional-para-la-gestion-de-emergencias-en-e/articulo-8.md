@@ -1,0 +1,1 @@
+Artículo 8.-Actuación de los órganos. El actuar de cada uno de los órganos será según lo establecido en el Plan Institucional de Gestión de Emergencias y en los correspondientes planes de emergencia y protocolos según sea el tipo de evento.

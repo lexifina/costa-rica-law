@@ -1,0 +1,4 @@
+Capítulo III
+Prevención, atención de emergencias y rehabilitación del servicio
+Artículo 36.-Prevención. El Poder Judicial, a través de los órganos designados en este Reglamento, estudiará, valorará y actuará en el campo de la prevención de los diversos riesgos que por zona o por importancia, puedan preverse que afectarán potencialmente a la Institución.
+Mediante la capacitación se formará una cultura de prevención para motivar y comprometer a todo el personal judicial, con las actividades que se promuevan en las áreas de prevención y atención de emergencias. Para tal efecto, las jefaturas de las distintas oficinas judiciales coordinarán con el Subproceso de Salud Ocupacional de la Dirección de Gestión Humana, o con otras instancias correspondientes, el desarrollo de estas acciones formativas.

@@ -1,0 +1,1 @@
+Artículo 41.-Rehabilitación. La etapa de rehabilitación de la emergencia incluirá coordinación y logística con diversos departamentos tales como Proveeduría, Financiero Contable, Seguridad, Servicios Generales, entre otras instancias que se activarán con la finalidad de velar por el orden de prioridad indicado en el artículo 3 del presente Reglamento.
