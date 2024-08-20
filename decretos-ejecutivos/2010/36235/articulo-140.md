@@ -1,1 +1,1 @@
-Artículo 140.—Deber de comportarse con decoro y respeto. Todo servidor(a) debe ser justo, respetuoso y cortés en el trato con los usuarios del servicio, sus jefes(as), subalternos(as) y compañeros(as).
+Artículo 140.-Deber de comportarse con decoro y respeto. (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

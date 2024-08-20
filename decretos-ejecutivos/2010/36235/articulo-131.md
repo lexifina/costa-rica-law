@@ -1,1 +1,1 @@
-Artículo 131.—Deber de lealtad. Todo servidor(a) debe ser fiel a los principios éticos del servicio público, al Ministerio, y a sus superiores.
+Artículo 131.- (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

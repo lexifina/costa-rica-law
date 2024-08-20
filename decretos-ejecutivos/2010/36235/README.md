@@ -20,3 +20,4 @@ Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transporte
 | 5 | 2015-10-15 | Decreto Ejecutivo 39307 (2015-10-15) |
 | 6 | 2016-04-19 | Decreto Ejecutivo 39722 (2016-04-19) |
 | 7 | 2019-11-20 | Decreto Ejecutivo 42118 (2019-11-20) |
+| 8 | 2024-08-20 | Decreto Ejecutivo 44734 (2024-08-20) |

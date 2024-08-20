@@ -1,1 +1,1 @@
-Artículo 130.—Todo servidor(a) debe acatar los deberes que se señalan en los artículos siguientes, sin perjuicio de las disposiciones legales aplicables.
+Artículo 130.- (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

@@ -1,1 +1,1 @@
-Artículo 136.—Deber de imparcialidad. El servidor(a) debe ejercer el cargo sin discriminar, en cuanto a las formas y condiciones del servicio, a ninguna persona por razón de color, género, religión, nacionalidad, situaciones económicas, ideología o afiliación política.
+Artículo 136.-Deber de imparcialidad. (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

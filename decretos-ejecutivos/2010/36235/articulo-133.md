@@ -1,1 +1,1 @@
-Artículo 133.—Deber de probidad. Todo servidor(a) debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines estatales, o cuando participe en actividades o negocios de la administración que comprometen esos recursos.
+Artículo 133.-Deber de probidad. (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

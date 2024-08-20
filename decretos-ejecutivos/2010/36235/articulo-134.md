@@ -1,1 +1,1 @@
-Artículo 134.—Deber de responsabilidad. Todo servidor(a) debe actuar con sentido del deber que le corresponde para el cumplimiento del fin público y que compete a este Ministerio y de las consecuencias que el cumplimiento o incumplimiento de ese deber tiene, en relación con ese cometido institucional.
+Artículo 134.-Deber de responsabilidad. (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)

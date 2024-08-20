@@ -1,1 +1,1 @@
-Artículo 142.—Deber de denuncia. Es obligación de todo servidor(a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad o ilegalidad en perjuicio del Ministerio y del Estado.
+Artículo 142.-Deber de denuncia. (Derogado por el artículo 15 del Código de ética del Ministerio de Obras Públicas y Transportes, aprobado mediante decreto ejecutivo N° 44734 del 20 de agosto de 2024)
