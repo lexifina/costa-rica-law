@@ -1,0 +1,5 @@
+Artículo 43. De la aplicación de las medidas disciplinarias. La aplicación de las correcciones disciplinarias quedará sujeta a las siguientes reglas:
+a) Podrán imponer sanciones disciplinarias, cuando las faltas cometidas por las personas servidoras sean leves o graves, según corresponda.
+b) También podrá aplicar sanciones hasta por 8 ó 15 días de suspensión sin goce de salario, de acuerdo con los supuestos que se establecen en el presente Reglamento.
+c) De todo lo actuado se deberá remitir copia a la dependencia encargada del recurso humano, para anexarlo al expediente de la persona servidora, que se llevará para esos efectos.
+d) En caso de faltas graves que ameriten gestiones de despido, la resolución con el acto final deberá ser remitida a la dependencia encargada del recurso humano, con la finalidad que, en esta instancia, se actualice el expediente personal y se eleve a la Gerencia General, para que decida sobre el trámite a seguir. Si decidiere tramitar el despido sin responsabilidad patronal, pasará el expediente a la Asesoría Jurídica, para que se elabore el respectivo informe.

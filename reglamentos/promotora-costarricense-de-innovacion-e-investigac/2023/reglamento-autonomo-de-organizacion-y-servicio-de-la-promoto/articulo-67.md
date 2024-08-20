@@ -1,0 +1,1 @@
+Artículo 67. Improcedencia de despido sin debido proceso. No es jurídicamente procedente el despido de una persona servidora, sin que se le haya seguido, previamente, un procedimiento administrativo con observancia de todas las garantías del debido proceso y del ordenamiento jurídico.

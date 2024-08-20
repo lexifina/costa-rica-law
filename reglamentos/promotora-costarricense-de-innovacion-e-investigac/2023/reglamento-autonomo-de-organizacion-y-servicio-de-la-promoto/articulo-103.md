@@ -1,0 +1,4 @@
+Capítulo XVII
+De las peticiones y reclamos
+Artículo 103. Forma en que se tramitan las quejas, peticiones, reclamos y sugerencias. Todas las quejas, peticiones, reclamos y sugerencias en general, originadas con ocasión de la relación de servicio, deberán ser dirigidas por escrito a la jefatura inmediata, quien resolverá lo procedente dentro de los quince días hábiles siguientes en la misma forma.
+No obstante, cuando la jefatura inmediata considere que no se puede resolver la gestión planteada, dejará constancia de los motivos y fundamentos; la persona servidora podrá recurrir a la Gerencia General, si demuestra que su jefatura inmediata no ha cumplido con la obligación de atender su gestión o, no tomare decisión alguna, o si por algún motivo, se establece conflicto entre una persona servidora y la jefatura inmediata.

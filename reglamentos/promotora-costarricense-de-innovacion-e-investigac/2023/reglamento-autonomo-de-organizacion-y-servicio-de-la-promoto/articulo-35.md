@@ -1,0 +1,1 @@
+Artículo 35. Circunstancias que no interrumpen el tiempo de la relación de servicios. No interrumpirán el tiempo de la relación de servicio: las licencias sin goce de salario, las licencias para estudio, los descansos otorgados legalmente, las incapacidades debidamente justificadas, la prórroga o renovación inmediata de la prestación u otra causa análoga que no termine con ésta.

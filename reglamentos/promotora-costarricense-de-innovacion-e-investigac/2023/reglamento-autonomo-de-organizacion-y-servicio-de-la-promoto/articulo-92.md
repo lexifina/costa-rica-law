@@ -1,0 +1,1 @@
+Artículo 92. De los testigos por acoso laboral o sexual. Todo testigo en un procedimiento administrativo sancionador por acoso, tiene la garantía de que no sufrirá consecuencia alguna por sus declaraciones, sin perjuicio de las responsabilidades penales que le derive la falta a la verdad.

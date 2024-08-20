@@ -1,0 +1,1 @@
+Artículo 4. Sometimiento al Principio de Legalidad. En virtud del principio de legalidad, la persona servidora no podrá disfrutar de más beneficios, ni la Administración ejercer mayores potestades que las expresamente autorizadas por este Reglamento o, en su defecto, por las demás normas del ordenamiento jurídico costarricense que le sean aplicables.

@@ -1,0 +1,1 @@
+Artículo 101. Plazo para conceder nuevas licencias. No podrá concederse nuevas licencias sin goce de salario hasta que transcurra un año de haberse reincorporado la persona servidora a sus labores, excepto en casos muy calificados a juicio de la Gerencia General, siempre y cuando no se perjudique la realización de los fines institucionales ni el interés Público.

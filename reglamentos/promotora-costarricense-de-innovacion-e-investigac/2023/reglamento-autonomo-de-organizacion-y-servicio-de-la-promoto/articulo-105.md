@@ -1,0 +1,3 @@
+Capítulo XVIII
+Del Uso de Vehículos de la Promotora
+Artículo 105. Utilización de vehículos y remisión reglamentaria. Las personas servidoras que utilizan vehículos de la Institución deberán observar y cumplir lo dispuesto en la Ley N° 9078, "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial" vigente y en el Reglamento General de Transportes y uso de vehículos de la Promotora. La inobservancia e incumplimiento de las disposiciones indicadas en este artículo por parte de las personas servidoras, constituirán falta(s) a la relación de servicio que tienen con la Institución y se sancionará(n) conforme a lo dispuesto en este Reglamento y demás normas del ordenamiento jurídico vigente.

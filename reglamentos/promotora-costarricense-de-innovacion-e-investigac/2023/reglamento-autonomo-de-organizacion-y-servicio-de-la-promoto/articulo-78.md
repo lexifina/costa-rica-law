@@ -1,0 +1,1 @@
+Artículo 78. Servicios médicos brindados por la Promotora. La Promotora, dentro de sus posibilidades económicas, brindará los servicios médicos requeridos a todo el personal. Para ello, contará con el Sistema de Atención Integral de Salud de la Caja Costarricense de Seguro Social.

@@ -1,0 +1,1 @@
+Artículo 23. Jornada extraordinaria. Deberán observarse los lineamientos para la previa autorización y el reconocimiento de Jornada Extraordinaria, dispuestos por la dependencia encargada del recurso humano, la Gerencia General y la normativa vigente.

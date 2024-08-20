@@ -1,0 +1,1 @@
+Artículo 63. Del despido justificado. Todo despido justificado de las personas servidoras regulares se entenderá sin responsabilidad patronal para la Promotora, y hará perder a la persona servidora todos los derechos que este Reglamento y el ordenamiento jurídico le confieren.

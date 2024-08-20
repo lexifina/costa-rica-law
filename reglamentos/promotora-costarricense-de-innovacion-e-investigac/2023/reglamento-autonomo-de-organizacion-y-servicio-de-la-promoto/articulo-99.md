@@ -1,0 +1,13 @@
+Artículo 99. Pautas que observar para el otorgamiento de licencias sin goce de salario. Las licencias sin goce de salario podrán otorgarse, previo estudio, según las siguientes pautas:
+a) Seis meses para asuntos personales de la persona servidora.
+Esta licencia podrá ser prorrogada hasta por seis meses más en casos muy especiales a juicio del Gerente General.
+b) Para laborar en el sector privado, hasta por cuatro meses, prorrogable una única vez por un período no mayor al primero.
+c) Para laborar en el sector público, se concederá una licencia hasta por dos años, pudiendo ser prorrogable únicamente por un año más. Si se comprobare por cualquier medio que la persona servidora no labora para el sector público, se considerará falta grave con la consecuente sanción disciplinaria.
+d) Para laborar en el Poder Ejecutivo, hasta cuatro años, a instancia de cualquier dependencia del Poder Ejecutivo.
+e) Para realizar actividades de capacitación se regirá por lo establecido en los lineamientos internos vigentes.
+f) Para atender asuntos familiares debidamente justificados tales como: tiempo adicional para atender al hijo o hija una vez finalizada la incapacidad por maternidad, por enfermedad grave o terminal, convalecencias o tratamientos de familiares: de padres biológicos, adoptivos, o de crianza, hijos e hijas, cónyuge, conviviente de hecho, hermanos o hermanas, entre otros, el período de licencia se otorgará, previo análisis de la solicitud y de conformidad con ella.
+La aprobación o denegación de las solicitudes de licencias sin goce de salario, deberá comunicarse por escrito, o por cualquier medio electrónico, a la persona servidora en el plazo de diez días hábiles después de ser conocidas por quien competa resolverlas. En caso de ser rechazada la solicitud, se debe fundamentar los motivos por los cuales se procede al rechazo.
+Si la persona servidora se ausenta del trabajo antes de completar debidamente el trámite, lo hará bajo su responsabilidad y quedará sujeto a la aplicación de lo que corresponda por parte de la Administración, conforme la normativa vigente.
+Una vez que estos permisos otorgados cumplen su plazo de vigencia, la persona servidora sin excepción deberá reintegrarse a sus laborares al día hábil siguiente del vencimiento.
+Las licencias podrán ser prorrogables en casos muy especiales por una única vez, siempre y cuando no afecte o entorpezca el trabajo del área donde presta sus servicios el colaborador ni el interés Público.
+Las licencias se otorgarán después de que la persona servidora haya cumplido el tiempo mínimo de un año de prestar servicios continuos para la Institución y cuente con nombramiento en propiedad.

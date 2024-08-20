@@ -1,0 +1,2 @@
+Artículo 59. Justificación de ausencias en casos excepcionales.
+Para casos muy calificados no contemplados en este Reglamento, que no sean originados en una incapacidad por enfermedad comprobada de la persona servidora, queda a juicio de la jefatura inmediata, quien informará a la dependencia encargada del recurso humano, para justificar las ausencias, hasta por dos días, a efecto de evitar la sanción disciplinaria, sin que ello signifique obligación de pago del salario. Las justificaciones de ausencias mayores de dos días, requerirán la aprobación de la Gerencia General.

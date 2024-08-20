@@ -1,0 +1,4 @@
+Capítulo IX
+De las ausencias y los subsidios por enfermedad y licencias
+Artículo 69. Del subsidio por incapacidad, por enfermedad o riesgo del trabajo. En caso de incapacidad, la persona servidora deberá dar aviso de su ausencia laboral a su jefatura inmediata por cualquier medio, en un período no mayor a 24 horas e indicar el período de la incapacidad. sin que ello implique la obligación de pago de salario.
+Asimismo, en un plazo máximo de 48 horas, deberá presentar la incapacidad extendida por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, según corresponda. La persona servidora que fuere declarada incapacitada para trabajar, por enfermedad o riesgos del trabajo, gozará del subsidio correspondiente, de conformidad con las estipulaciones vigentes por parte de la Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros, y el ordenamiento jurídico, según el tipo de incapacidad de que se trate.

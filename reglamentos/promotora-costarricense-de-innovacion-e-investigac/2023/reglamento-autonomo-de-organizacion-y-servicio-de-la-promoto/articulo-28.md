@@ -1,0 +1,1 @@
+Artículo 28. Aguinaldo. Las personas servidoras de la Promotora, cualquiera que sea la función que desempeñen, tendrán derecho a un sueldo adicional en el mes de diciembre, en los términos que establece la Ley Nº 1981 "Ley de Pago de Aguinaldo a Servidores de Instituciones Autónomas", del 9 de noviembre de 1955.

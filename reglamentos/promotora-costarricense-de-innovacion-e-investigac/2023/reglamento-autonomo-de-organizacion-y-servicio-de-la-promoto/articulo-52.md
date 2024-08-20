@@ -1,0 +1,1 @@
+Artículo 52. De las faltas no señaladas expresamente. Las faltas no señaladas expresamente en este Reglamento, serán sancionadas conforme lo establezca la Ley N° 6227 "Ley General de la Administración Pública", la Ley N° 2 "Código de Trabajo" y las demás leyes específicas del ordenamiento jurídico vigente.

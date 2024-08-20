@@ -1,0 +1,1 @@
+Artículo 55. De las llegadas tardías injustificadas que excedan de veinte minutos. La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso o reingreso y que, a juicio de la jefatura inmediata carezca de justificación, acarreará a la persona servidora la pérdida de media jornada, para efectos de sanción y deducción de su salario.

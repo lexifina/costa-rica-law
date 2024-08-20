@@ -1,0 +1,1 @@
+Artículo 5. Eficacia del Acto Administrativo. El acto administrativo sólo producirá su efecto después de notificado a la persona servidora, excepto, si concede derechos o beneficios, en cuyo caso lo producirá desde que se adopte.

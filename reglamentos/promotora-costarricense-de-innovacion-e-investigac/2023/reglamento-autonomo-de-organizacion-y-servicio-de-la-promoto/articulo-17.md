@@ -1,0 +1,1 @@
+Artículo 17. Carrera administrativa. La carrera administrativa se establece como un derecho reconocido en el ordenamiento jurídico, mediante el cual se desarrolla un proceso de desarrollo (ascenso y aprendizaje continuo) regido por la excelencia de los servicios de la persona servidora y sus competencias.

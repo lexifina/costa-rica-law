@@ -1,0 +1,1 @@
+Artículo 13. Contrato de servicio: Toda persona servidora que ingrese a la Institución deberá estar amparada por un contrato de servicio, que deberá extenderse por escrito, dentro de los quince días naturales posteriores a su celebración, modificación o novación, y podrá ser acompañado por la "Acción de Personal", firmada al inicio de la relación de servicio.

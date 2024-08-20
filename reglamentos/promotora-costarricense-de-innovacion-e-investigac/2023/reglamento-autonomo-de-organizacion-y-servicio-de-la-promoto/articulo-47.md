@@ -1,0 +1,8 @@
+Artículo 47. Despido. El despido se efectuará, sin responsabilidad patronal para la Promotora, en los siguientes casos:
+a) uando la persona servidora, en tres ocasiones se le haya impuesto suspensiones del trabajo sin goce de salario, e incurra en causal para una cuarta suspensión de la misma naturaleza en un período de tres meses, contado a partir de la fecha en que se le comunique y aplique a la persona servidora la primera suspensión.
+b) uando hubiere dado motivo para la aplicación de tres o más apercibimientos por escrito en un período de tres meses contados a partir de la fecha en que se comunique y aplique a la persona servidora el primer apercibimiento por escrito, ya que la repetición de infracciones se considerará como conducta irresponsable y contraria a las obligaciones de la relación de servicio.
+c)Cuando la persona servidora, haga del conocimiento de terceras personas, deliberadamente o por negligencia, absolutamente inexcusable, cualquier documento o información que tenga carácter confidencial.
+d) Cuando la persona servidora incurra en acoso laboral, en cualesquiera modalidades, y el hostigamiento o acoso sexual, ambos comprobables, en las relaciones con sus personas servidoras a cargo, demás personas servidoras de la Promotora, contraviniendo las disposiciones del inciso aa) del artículo 37 del presente Reglamento.
+e)Cuando la persona servidora incurra en cualquier otra falta de acuerdo con las causas que señala el artículo 81 del Código de Trabajo.
+f) Por las causales especialmente previstas en este Reglamento, que sean analizadas de conformidad con lo dispuesto en el artículo 41 de este Reglamento.
+g) Las causales previstas en la Ley N° 10159 "Ley Marco de Empleo Público" y su Reglamento.

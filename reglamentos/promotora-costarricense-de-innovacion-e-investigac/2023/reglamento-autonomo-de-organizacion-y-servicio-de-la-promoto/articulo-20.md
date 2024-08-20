@@ -1,0 +1,4 @@
+Artículo 20. Horario de prestación de servicios. Las personas servidoras deberán cumplir el siguiente horario de servicio: de lunes a viernes de las 8:00 a las 16:00 horas, jornada continua.
+Para descanso y comidas, todas las personas servidoras tendrán derecho a disfrutar de quince minutos en la fracción de la jornada de la mañana y treinta minutos en la fracción de la jornada de la tarde. Las jefaturas y las personas servidoras que tengan personal a cargo reglamentarán la forma y horas en que harán uso de este derecho, con el fin de que no se afecte la continuidad del servicio de la dependencia que tienen a cargo.
+Las personas servidoras que no hicieren uso de estos descansos oportunamente, no tendrán derecho a reclamar compensación de éstos.
+Se exceptúan de esta jornada los puestos indicados en el artículo 143 de la Ley N° 2 "Código de Trabajo".

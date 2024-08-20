@@ -1,0 +1,3 @@
+Capítulo VIII
+De la suspensión y del régimen de despido
+Artículo 62. Suspensión de salario y despido sin responsabilidad patronal. Las personas servidoras de la Promotora sólo podrán ser suspendidos del trabajo, sin goce de salario o despedidos sin responsabilidad patronal, si incurren en las causales que determina este Reglamento, la Ley N°2 "Código de Trabajo", la Ley N° 6227 "Ley General de la Administración Pública", la Ley N° 8131 "Ley de la Administración Financiera de la República y Presupuestos Públicos", la Ley N° 8422 "Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública", la Ley N° 8292 "Ley General de Control Interno" y aquellas causales, que sobre esas materias disponga el ordenamiento jurídico vigente.

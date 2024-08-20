@@ -1,0 +1,1 @@
+Artículo 11. Asignación de labores. La Promotora está facultada para asignar a las personas servidoras las labores que considere necesarias, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición, y siempre que se encuentren comprendidas dentro de aquellas funciones establecidas en la relación de servicio y perfil del puesto por el que ha sido nombrado.

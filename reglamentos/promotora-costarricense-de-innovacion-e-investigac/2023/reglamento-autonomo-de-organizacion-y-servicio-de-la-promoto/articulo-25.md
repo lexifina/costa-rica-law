@@ -1,0 +1,1 @@
+Artículo 25. Prohibición de asistencia irregular. Salvo lo dispuesto en el párrafo segundo del artículo anterior, las personas servidoras estarán obligadas al desempeño de sus funciones durante los días hábiles y durante las horas reglamentarias y, no se podrá por lo mismo conceder privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular.
