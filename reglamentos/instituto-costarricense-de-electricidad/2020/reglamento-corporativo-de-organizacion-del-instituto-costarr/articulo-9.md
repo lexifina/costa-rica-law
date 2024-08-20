@@ -1,3 +1,3 @@
-SECCIÓN III
-Presidente Ejecutivo
-Artículo 9º-Presidente Ejecutivo. Es el órgano unipersonal de mayor jerarquía con alcance corporativo, encargado de articular las instrucciones que dicte el Consejo Directivo, asociadas a la gestión del ICE y sus empresas, asegurando el cumplimiento de los objetivos corporativos. Ejerce la Presidencia del Comité Corporativo, así como cualquier otra que le asigne el propio Consejo Directivo.
+Sección III
+Presidencia Ejecutiva
+Artículo 9º-Presidencia Ejecutiva. Es el órgano unipersonal de mayor jerarquía con alcance corporativo. Como Presidente del Consejo Directivo es encargado de articular las instrucciones que dicte el Órgano Colegiado, asociadas a la gestión del ICE y sus empresas, asegurando el cumplimiento de los objetivos corporativos. Además, ejerce la Presidencia del Comité Corporativo, así como cualquier otra que le asigne el propio Órgano de Dirección.

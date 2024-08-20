@@ -1,1 +1,5 @@
-Artículo 21.-Nombramiento de los miembros de las Juntas Directivas de las Empresas ICE. Se rige por el "Procedimiento para la Selección de los Miembros de Juntas Directivas de Empresas ICE" aprobado por el Consejo Directivo en sesión N° 6355, Capítulo III, artículo 2° del 04 de febrero del 2020.
+Artículo 21º-Competencias. Las competencias son las siguientes:
+1. Velar por el cumplimiento de la Estrategia Corporativa.
+2. Velar por el cumplimiento de la Estrategia Empresarial.
+3. Velar por la implementación del Modelo de Gobierno Corporativo del Grupo ICE y sus instrumentos.
+4. Cualquier otra que indique el Ordenamiento Jurídico.

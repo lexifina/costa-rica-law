@@ -1,5 +1,1 @@
-CAPÍTULO IV
-SECCIÓN I
-Comité Corporativo
-Artículo 23.-Comité Corporativo. Órgano de apoyo al Centro Corporativo en la coordinación y articulación de temas estratégicos que procuran la sostenibilidad, competitividad y evolución del ICE y sus empresas.
-(Así reformado mediante publicación en La Gaceta N° 66 del 7 de abril del 2021)
+Artículo 23º-Atribuciones. Tienen las atribuciones establecidas en el ordenamiento jurídico vigente, sus pactos constitutivos, estatutos, así como las que se determinan en las políticas, reglamentos o acuerdos emitidos por el Consejo Directivo.

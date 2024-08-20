@@ -1,6 +1,5 @@
 CAPÍTULO II
 Estructura de Gobierno Corporativo
-SECCIÓN I
+Sección I
 Centro Corporativo
-Artículo 5º-Centro Corporativo. Ejerce la Administración Superior del Grupo ICE y es el responsable de garantizar la unidad de propósito y de dirección, para lo cual proporciona orientación
-estratégica y ejerce control a nivel corporativo.
+Artículo 5°- Centro Corporativo. Conjunto de dependencias y órganos, que, a partir de las disposiciones del Consejo Directivo, son responsables del establecimiento de la unidad de propósito, dirección y control para el ICE y sus empresas, mediante un modelo de relacionamiento que permite generar valor, explotar sinergias, conocimientos y experiencias; así como diseñar directrices y políticas con el objetivo principal de satisfacer el interés primario del Grupo ICE, considerando para ello, el marco jurídico aplicable a cada empresa, los requerimientos de los propietarios interesados en su gestión.

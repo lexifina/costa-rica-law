@@ -1,23 +1,15 @@
-Artículo 19.-Funciones. Les corresponde cumplir de manera colegiada al menos las siguientes funciones:
-1. Establecer la visión, misión estratégica y los valores con base en la estrategia corporativa.
-2. Supervisar a la Gerencia General y exigir explicaciones claras e información suficiente y oportuna, a efecto de formarse un juicio crítico de su actuación.
-3. Nombrar al Gerente General y a los miembros del Comité de Auditoría y demás comités de apoyo, cuando corresponda, necesarios para el cumplimiento eficiente de los objetivos asignados a dichos comités.
-4. Analizar los informes que les remitan los comités de apoyo, los órganos supervisores, las auditorías interna y externa, y tomar las decisiones que consideren procedentes.
-5. Designar al auditor interno.
-6. Conocer el plan anual de trabajo de la auditoría interna y solicitar la incorporación de los estudios que se consideren necesarios.
-7. Aprobar y dar seguimiento al cumplimiento del plan empresarial.
-8. Solicitar a la auditoría interna los informes sobre temas específicos, en el ámbito de su competencia e independencia funcional y de criterio, que requieran los órganos supervisores.
-9. Dar seguimiento a los informes de la auditoría interna, relacionados con la atención, por parte de la administración, de las debilidades comunicadas por los órganos supervisores, auditores y demás entes de fiscalización.
-10. Aprobar las políticas de Gobierno Corporativo, dentro de ellas las de la relación con clientes, y otras partes interesadas; así como la relación con proveedores o terceros contratados, y las relaciones entre empresas del Grupo.
-11. Aprobar los procedimientos respectivos para establecer un adecuado ambiente de control interno de la entidad supervisada, así como las políticas de los comités de apoyo.
-12. Evaluar al menos anualmente sus propias prácticas de gobierno corporativo y ejecutar los cambios a medida que se hagan necesarios, lo cual debe quedar debidamente documentado.
-13. Incluir o velar porque se incluyan en el informe anual, los aspectos relevantes de los trabajos realizados por cada uno de los comités y la cantidad de reuniones que se celebran durante el periodo.
-14. Establecer una comunicación ágil, oportuna y transparente con el Presidente Ejecutivo para comunicar situaciones, eventos o problemas que afecten o pudieran afectar significativamente a la empresa.
-15. Velar por el cumplimiento de las normas y por la gestión de los riesgos. Para estos efectos se deben aprobar las políticas que se consideren necesarias.
-16. Aprobar el informe anual de Gobierno Corporativo.
-17. Aprobar y dar seguimiento al plan presupuesto asegurándose que se encuentra alineado con la estrategia corporativa.
-18. Analizar los estados financieros mensuales y aprobar los estados financieros auditados que se remitan a las superintendencias correspondientes.
-19. Aprobar el apetito de riesgo de la entidad.
-20. Aprobar y supervisar el cumplimiento de la declaración de apetito de riesgo.
-21. Aprobar la estructura organizacional y funcional de la entidad.
-22. Cualquier otra función que establezca el ordenamiento jurídico, el Consejo Directivo o los accionistas de la empresa.
+Artículo 19º-Competencias. Las competencias son las siguientes:
+1. Ejercer la rectoría en materia de comunicación en relación con el enfoque estratégico del Grupo ICE, de manera que se fortalezca la identidad, imagen y reputación, las relaciones
+institucionales y corporativas, mediante acciones innovadoras y creativas.
+2. Elaborar y someter a consideración de la Presidencia Ejecutiva el Plan Anual de Comunicación del Grupo ICE.
+3. Elaborar y someter a consideración de la Presidencia Ejecutiva el informe anual sobre la gestión de comunicación corporativa.
+4. Gestionar y desarrollar las relaciones con los medios de prensa.
+5. Coordinar y articular la vocería oficial institucional y corporativa, sirviendo como enlace en materia de comunicación interna y externa.
+6. Someter a aprobación de la Presidencia Ejecutiva la propuesta de vocería corporativa.
+7. Desarrollar y elevar a la Presidencia Ejecutiva las acciones tendientes a comunicar a públicos internos y externos los mensajes empresariales y corporativos.
+8. Asesorar a los voceros institucionales y corporativos en sus relaciones con la prensa.
+9. Desarrollar relaciones positivas con públicos estratégicos con el fin de afianzar la identidad del Grupo ICE y asegurar un ambiente propicio para la ejecución de la actividad dentro de su entorno.
+10. Administrar el protocolo y logística de actividades oficiales.
+11. Conceptualizar, diseñar y producir los mensajes a través de procesos innovadores y creativos que permitan fortalecer la cultura corporativa e identidad y por ende el fortalecimiento de su imagen y reputación del ICE y sus empresas, en cumplimiento con la normativa.
+12. Administrar la comunicación digital institucional y corporativa utilizando de forma estratégica los medios digitales para brindar datos que faciliten la toma de decisiones y la consecución de los objetivos de comunicación.
+13. Cualquier otra función que indique el Ordenamiento Jurídico, así como aquellas que se le otorguen por acuerdo del Consejo Directivo.

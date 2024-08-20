@@ -1,8 +1,5 @@
 CAPÍTULO III
-Estructura de las empresas del ICE
-SECCIÓN I
-Administración Superior
-Artículo 13.-Administración Superior. La Administración Superior de las empresas está integrada por los siguientes órganos:
-a) Asamblea de Accionistas.
-b) Junta Directiva.
-c) Gerencia General.
+Comité Corporativo, Comités de Apoyo al Centro Corporativo y Auditorías Internas
+Sección I
+Comité Corporativo
+Artículo 13º- Comité Corporativo. Órgano de apoyo al Centro Corporativo en la coordinación y articulación de temas estratégicos que procuran la sostenibilidad, competitividad y evolución del ICE y sus empresas.

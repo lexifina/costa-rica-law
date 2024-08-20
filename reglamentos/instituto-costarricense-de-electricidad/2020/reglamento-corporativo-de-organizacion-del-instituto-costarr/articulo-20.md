@@ -1,1 +1,5 @@
-Artículo 20.-Verificación de la razonabilidad de la información financiera y los sistemas de control interno. Cada Junta Directiva es responsable de que la información financiera de la entidad esté en apego a la legislación y reglamentación vigentes, políticas, normas y procedimientos; en este sentido el Presidente debe rendir una declaración jurada de su responsabilidad sobre los estados financieros y el control interno.
+CAPÍTULO V
+Empresas propiedad del ICE
+Sección I
+Asamblea de Accionistas, Junta Directiva y Gerencia General
+Artículo 20º-Asamblea de accionistas. Es el máximo órgano legal de las empresas propiedad del ICE y está compuesta por los accionistas de éstas.
