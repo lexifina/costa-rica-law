@@ -22,3 +22,4 @@ Reglamento General de los Riesgos del Trabajo
 | 7 | 1997-04-17 | Decreto Ejecutivo 26086 (1997-04-17) |
 | 8 | 2014-10-20 | Decreto Ejecutivo 38748 (2014-10-20) |
 | 9 | 2016-03-03 | Decreto Ejecutivo 39611 (2016-03-03) |
+| 10 | 2024-08-21 | Decreto Ejecutivo 44616 (2024-08-21) |
