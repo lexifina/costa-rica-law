@@ -1,1 +1,0 @@
-Artículo 5º.- En presencia de autoridades extranjeras el Ministro de Relaciones Exteriores y Culto tendrá precedencia sobre todos los demás y presidirá si no están presentes el señor Presidente de la República o un Vicepresidente.

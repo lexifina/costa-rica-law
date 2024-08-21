@@ -1,1 +1,0 @@
-Artículo 33.- Al llegar a la Presidencia de la República el jefe de misión entrará acompañado a su derecha por el funcionario de protocolo acompañante y a su izquierda por el Jefe de Protocolo de la Presidencia, siguiéndoles los demás miembros de la comitiva de protocolo.
