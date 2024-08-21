@@ -14,3 +14,4 @@ Modificación de las circulares 127-2019 y 67-2021, sobre "Información contenid
 | --- | --- | --- |
 | 1 | 2021-05-14 | la propia norma |
 | 2 | 2023-04-24 | Circular 88 (2023-04-24) |
+| 3 | 2024-08-21 | Circular 178 (2024-08-21) |
