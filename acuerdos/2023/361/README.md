@@ -14,3 +14,4 @@ Nombra Comisión de Baja de Bienes por Donación de la Dirección General de Mig
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-29 | la propia norma |
+| 2 | 2024-08-21 | Resolución 353 (2024-08-21) |
