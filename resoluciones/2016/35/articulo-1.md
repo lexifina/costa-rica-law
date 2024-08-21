@@ -1962,7 +1962,8 @@ iii. La situación de "corredor común" se circunscribe a aquellos casos en los 
 Si se determina que existe una situación de corredor común de acuerdo con los criterios anteriores, se establece como criterio tarifario que, para contrarrestar la competencia desleal en contra de las rutas urbanas involucradas en una situación de corredor común, a las rutas interurbanas se les fijará una tarifa superior solamente para el fraccionamiento en común, como mínimo en una cuya diferencia del 20% de la tarifa de la ruta urbana. Dicho margen es un parámetro por medio del cual existirán diferencias tarifarias significativas.
 Tomando en cuenta lo expresado en párrafos anteriores resulta claro que cuando varias rutas de transporte remunerado de personas converjan en un mismo núcleo de población, sea o no destino final, pero tengan recorridos distintos, éstas no deben considerarse rutas vinculadas mediante corredor común, y por tanto no se aplicará el procedimiento de fijación tarifaria por corredor común.
 4.13 Aplicación de la metodología
-4.13.1 Aplicación general
+4.13.1 Aplicación general: Las tarifas finales por pasajero se fijarán redondeando al múltiplo más cercano de la moneda de menor denominación emitida y puesta en circulación por el Banco Central de Costa Rica, a la fecha del dictado de la resolución tarifaria correspondiente.
+(Así reformado el párrafo anterior mediante resolución N° RE-0101-JD-2024 del 21 de agosto de 2024)
 a. Vigencia
 La presente metodología, una vez aprobada, y publicada en el diario oficial La Gaceta, entrará a regir un día después de su publicación.
 b. Tipo de fijación tarifaria

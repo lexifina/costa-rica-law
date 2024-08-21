@@ -48,3 +48,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 33 | 2024-03-12 | Resolución 6 (2024-03-12) |
 | 34 | 2024-04-26 | Resolución 24 (2024-04-26) |
 | 35 | 2024-07-01 | Resolución 38 (2024-07-01) |
+| 36 | 2024-08-21 | Resolución 101 (2024-08-21) |
