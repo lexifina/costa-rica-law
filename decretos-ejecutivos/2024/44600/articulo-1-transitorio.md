@@ -1,0 +1,1 @@
+Transitorio 1. - Se dará un plazo de dos años para el cumplimiento del requisito descrito en el artículo RAC-45.015 (a) párrafo tercero, correspondiente a la placa de identificación de matrícula con los nuevos lineamientos.

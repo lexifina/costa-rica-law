@@ -1,0 +1,12 @@
+APÉNDICE "A"
+(Ver RAC-45.070 inciso (c) Certificado de matrícula)
+Certificado de Matrícula
+[imagen]
+[imagen]
+SECCIÓN II: MÉTODOS ALTERNOS DE CUMPLIMIENTO
+MAC RAC-45.015 Generalidades
+La placa de identificación de registro de nacionalidad que se menciona en el RAC 45.015 en la que aparecerán inscrita la marca de nacionalidad deberá ser de un material incombustible como el acero inoxidable o bien un material que posea una resistencia igual o superior a este, adicionalmente deberá estar fijada de modo visible cerca de la entrada principal ya sea con una sujeción permanente con remaches o bien adherida a la estructura con un adhesivo de alta calidad y permanencia. La misma deberá contar con una escritura que no permita la perdida de información por desgaste normal o alta temperatura, para lo cual se podría utilizar el troquelado de los datos. También estaría permitido el uso de placas de imagen de alta durabilidad de Metalphoto, la cual proviene de una impresión, que está sellada dentro de aluminio anodizado, lo que proporciona resistencia a la corrosión, la luz solar, la abrasión, la temperatura y los productos químicos.
+MAC RAC-45.020 Datos de identificación
+La placa de identificación de fabricación requerida en la Sección 45.020, será la base de certificación utilizada para la conformidad e incorporación de aeronaves al parque aéreo nacional, por consiguiente, el número de Certificado de Tipo que posea este identificativo será el utilizado por el operador, propietario y la DGAC como base para las recomendaciones emitidas por el país dueño del Certificado de Tipo, como por ejemplo: Servicio de Boletín, Directivas de Aeronavegabilidad, Documento Maestro de Equipo Mínimo, Programa de Mantenimiento, entre otros. Esto será fundamental para la presentación de la totalidad de sus registros técnicos.
+MAC RAC-45.025 identificación de componentes críticos
+La placa de identificación indicada en la sección 45.025 otorgada por el fabricante para los componentes críticos, en ocasiones y dependiendo del contorno de este y su condición aerodinámica, no permite la colocación de estos dispositivos de identificación, por lo cual y en condiciones excepcionales se aceptará la demarcación o identificación de componentes mediante el troquelado, uso de tinta indeleble, lapis eléctrico o neumático, o bien cualquier otro medio que asegure la permanencia de la identificación otorgada por el fabricante.
