@@ -1,0 +1,3 @@
+ARTÍCULO 2. Interpretación de normas.
+Las normas de este Reglamento deberán interpretarse según su literalidad y, de ser necesario, en relación con el contexto y a los antecedentes históricos, de acuerdo con la realidad social y empresarial del tiempo que han de ser aplicadas, atendiendo a su finalidad y, sobre todo, a los fines de la Empresa y al servicio público a su cargo, siempre y cuando no se contravenga el principio de legalidad.
+Para interpretar, delimitar e integrar las fuentes escritas, se acudirá a fuentes no escritas como la jurisprudencia, el principio de legalidad y demás principios generales del derecho aplicable, en la forma que se garantice de la mejor manera la realización del fin público y el respeto a los derechos de las personas trabajadoras.

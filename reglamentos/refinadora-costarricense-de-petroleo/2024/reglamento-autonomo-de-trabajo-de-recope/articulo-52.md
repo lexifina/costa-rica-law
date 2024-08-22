@@ -1,0 +1,3 @@
+ARTÍCULO 52. Licencia con goce de salario relacionada al nacimiento o adopción.
+En los casos de nacimiento o adopción de una persona menor de edad, la persona trabajadora tendrá derecho a disfrutar de las licencias establecidas en el artículo 95 del Código de Trabajo cuando cumpla con los requisitos para ello. En el caso de la licencia por paternidad, aplicará lo dispuesto en el artículo 41 de la Ley Marco de Empleo Público en lo que resulte más beneficiosa.
+La licencia remunerada por maternidad regulada en el artículo 95 del Código de Trabajo se podrá extender hasta por dos meses calendario adicionales en los términos del artículo 42 de la Ley Marco de Empleo Público.

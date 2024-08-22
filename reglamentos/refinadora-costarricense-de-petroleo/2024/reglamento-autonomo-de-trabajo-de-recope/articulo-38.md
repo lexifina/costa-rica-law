@@ -1,0 +1,3 @@
+ARTÍCULO 38. Pago de salario durante las vacaciones.
+Para calcular el salario que las personas trabajadoras deberán recibir durante el disfrute de sus vacaciones, se tomará el promedio de las remuneraciones ordinarias y extraordinarias devengadas durante las últimas cincuenta semanas, contadas a partir del momento en que se adquiera el derecho al descanso.
+Lo que se haya percibido como subsidio durante las cincuenta semanas que se deben considerar para promediar la remuneración de las vacaciones, no se considerará para efectos de dicho cálculo; el que también se verá afectado por permisos sin goce de salario u otras condiciones análogas por las que la persona trabajadora no haya laborado de forma efectiva y, por ende, no haya devengado salario.

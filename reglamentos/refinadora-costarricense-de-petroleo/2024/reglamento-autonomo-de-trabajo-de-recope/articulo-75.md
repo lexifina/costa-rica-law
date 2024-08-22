@@ -1,0 +1,4 @@
+ARTÍCULO 75. Publicidad.
+RECOPE dará publicidad al presente Reglamento por medio de correo electrónico empresarial o cualquier otra plataforma virtual de uso interno que considere pertinente.
+Lo anterior, sin perjuicio de que se utilicen otros medios para brindar publicidad, como la impresión u otros.
+Aprobado por la Junta Directiva de RECOPE, mediante acuerdo adoptado por la Junta Directiva de RECOPE en el artículo 04, de la sesión extraordinaria No. 5417-115, celebrada el viernes 12 julio de 2024 y verificado por la Secretaría Técnica de la Autoridad Presupuestaria, mediante el oficio MH-STAP-OF-0881-2024 del 30 de julio de 2024.

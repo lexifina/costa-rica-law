@@ -1,0 +1,2 @@
+ARTÍCULO 32. Límite de la jornada.
+La suma de la jornada ordinaria y la extraordinaria, no podrá exceder de doce horas diarias. La eventual superación del límite no exonerará a RECOPE del pago de las horas laboradas en la jornada extraordinaria que superen ese límite. Sin embargo, podría generar responsabilidad para el superior subordinado que ordenó o consintió el exceso de doce horas diarias, excepto cuando haya mediado caso fortuito o fuerza mayor.

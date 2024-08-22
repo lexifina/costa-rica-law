@@ -1,0 +1,6 @@
+ARTÍCULO 49. Obligaciones de las jefaturas relacionadas al deber de probidad y buena fe.
+Sin perjuicio de otras obligaciones relacionadas al deber de probidad y buena fe, contenidas en el presente reglamento y demás normativa aplicable, quienes ocupen un puesto de jefatura, deberán tomar acciones y medidas tendientes a la debida gestión de los conflictos de intereses y cumplir con las siguientes obligaciones:
+1. Determinar los principales riesgos de conflictos de intereses de la empresa y aquellos que puedan afectar a su personal, en razón del puesto, funciones y circunstancias personales.
+2. Abrir espacios adecuados para que su personal, de manera transparente, oportuna y en un ambiente de confianza, formulen sus dudas sobre las obligaciones en esta materia y revelen los intereses privados que los puedan colocar en una situación de conflicto de intereses potencial o aparente.
+3. Estar vigilantes para identificar las situaciones de conflicto de intereses que puedan afectar a las personas trabajadoras a su cargo para el desempeño de las funciones.
+4. Reportar, de forma oportuna, las infracciones a la regulación de conflictos de intereses, y cualquier conducta que ponga en riesgo la imparcialidad, la integridad de los fondos públicos que maneja la Empresa o genere dudas razonables sobre la independencia y objetividad de la actuación de la administración.

@@ -1,0 +1,3 @@
+ARTÍCULO 4. Principios que orientan las relaciones laborales en la Empresa.
+El cumplimiento de los objetivos estratégicos y los fines públicos encargados a la Empresa orientarán las relaciones de empleo que se establece entre las personas trabajadoras y RECOPE.
+Las personas trabajadoras de RECOPE se regirán por los principios fundamentales de legalidad, uso eficiente de los fondos públicos, transparencia, eficiencia, responsabilidad y probidad, sin perjuicio de aquellos propios del derecho laboral. Asimismo, durante la relación laboral, las partes mantendrán los principios recíprocos, entre los cuales se encuentran: buena fe, igualdad y no discriminación, justicia y equidad, así como la irrenunciabilidad de los derechos fundamentales del trabajo.

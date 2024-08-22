@@ -1,0 +1,4 @@
+CAPÍTULO XI. SALUD OCUPACIONAL
+ARTÍCULO 73. Comisiones de Salud Ocupacional.
+RECOPE reconoce la importancia de mantener condiciones de seguridad e higiene apropiadas en la Empresa, con el fin de prevenir riesgos y enfermedades relacionadas al trabajo, velando por el bienestar, la salud física, la salud mental y las condiciones seguras de trabajo del personal.
+Para los efectos señalados la Empresa desarrollará la gestión en salud ocupacional y prevención de riesgos de trabajo, mediante políticas, planes, programas, proyectos y acciones permanentes que busquen el pleno cumplimiento de la legislación vigente en materia de salud ocupacional y prevención de riesgos de trabajo y el mejoramiento continuo de las acciones institucionales en la materia. Lo anterior se cumplirá por medio de la oficina de Salud Ocupacional y de las Comisiones de Salud Ocupacional nombradas en cumplimiento del Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional.

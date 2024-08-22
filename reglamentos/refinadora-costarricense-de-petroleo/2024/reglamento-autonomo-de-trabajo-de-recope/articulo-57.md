@@ -1,0 +1,2 @@
+ARTÍCULO 57. Deberes de la persona trabajadora durante el permiso.
+Durante el tiempo que dure el permiso sin goce de salario, la persona trabajadora mantendrá, respecto a la Empresa, su deber de actuar conforme al principio de buena fe, deber de confidencialidad y no incurrir en actos que puedan generar conflicto de intereses. Lo anterior sin perjuicio de otros deberes que por su naturaleza subsistan.

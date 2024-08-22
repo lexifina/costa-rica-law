@@ -1,0 +1,3 @@
+ARTÍCULO 14. Plaza vacante.
+El nombramiento de las plazas vacantes en forma definitiva se efectuará, conforme a los procedimientos, regulaciones y trámites que para tales efectos se deban realizar. Lo anterior considerando la normativa interna y externa que resulte vigente y aplicable.
+RECOPE reservará, al menos, un porcentaje de un cinco por ciento de las plazas vacantes para que sean cubiertas por personas con discapacidad, siempre que exista oferta de empleo y se superen las pruebas selectivas y de idoneidad, de conformidad con el artículo 5 del Reglamento a la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público, Ley N° 8862.

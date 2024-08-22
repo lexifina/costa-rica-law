@@ -1,0 +1,2 @@
+ARTÍCULO 5. Deber de probidad.
+Toda persona trabajadora de RECOPE está obligada a orientar su gestión hacia la satisfacción del interés público, por lo que deberá atender de manera planificada, regular, eficiente y continua las necesidades colectivas prioritarias encomendadas por ley a la Empresa, con rectitud y buena fe, asegurándose de que sus actuaciones estén alineadas con los objetivos empresariales.

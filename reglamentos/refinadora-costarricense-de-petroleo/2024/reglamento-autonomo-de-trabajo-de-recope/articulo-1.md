@@ -1,0 +1,8 @@
+REFINADORA COSTARRICENSE DE PETRÓLEO S. A.
+SECRETARÍAS DE ACTAS
+REGLAMENTO AUTÓNOMO DE TRABAJO DE RECOPE
+CAPÍTULO I. DISPOSICIONES GENERALES
+ARTÍCULO 1. Objetivo y ámbito de aplicación.
+El presente Reglamento Autónomo (en adelante denominado "Reglamento"), tiene por objetivo regular las relaciones laborales entre la Refinadora Costarricense de Petróleo Sociedad Anónima (en adelante denominado "RECOPE" o "Empresa") y sus personas trabajadoras, en concordancia con la Constitución Política, los Convenios y Tratados Internacionales ratificados por Costa Rica, la ley especial que la regula, la Ley de Fortalecimiento de las Finanzas Públicas y su reglamento, la Ley Marco de Empleo Público y su reglamento, la Ley General de Control Interno, la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su reglamento, el Código de Trabajo, y demás legislación vigente y aplicable, incluida la Convención Colectiva de Trabajo vigente o las que a futuro se emitan.
+Este cuerpo normativo se aplicará a todas las personas trabajadoras de la Empresa, en todo lo que resulte pertinente según la naturaleza de cada puesto; esto es, a personas trabajadoras en propiedad o contratados a plazo indefinido, interinos o nombradas a plazo definido, personas servidoras públicas en sentido estricto, personal cubierto por la legislación laboral ordinaria o común y personal de confianza.
+La aplicación del presente Reglamento se entenderá sin perjuicio de condiciones laborales más favorables reguladas en la normativa que resulte vigente y aplicable, así como sin perjuicio de derechos adquiridos y situaciones jurídicas consolidadas.
