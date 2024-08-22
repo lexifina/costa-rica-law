@@ -1,1 +1,0 @@
-Artículo 16: De la utilización de los vehículos oficiales. Todo vehículo oficial deberá ser utilizado exclusivamente en el desempeño de las labores propias de la institución y aquellas que se determinen de interés público.

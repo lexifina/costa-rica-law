@@ -1,1 +1,0 @@
-Artículo 36: Derogatoria. El presente Reglamento deroga íntegramente el Reglamento para la Administración y Prestación de Servicios de Transporte en el IMAS, aprobado por acuerdo del Consejo Directivo N°159-04-2015 del 30 de abril del 2015, así como toda otra normativa de rango inferior que se le oponga.

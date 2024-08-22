@@ -1,1 +1,0 @@
-Artículo 22: Contingencias. En caso de fuerza mayor, caso fortuito o alguna contingencia que no permita o dificulten la utilización del Sistema de combustible, se deberá seguir el mecanismo alternativo establecido en la normativa institucional vigente, para la adquisición, uso y control del combustible,

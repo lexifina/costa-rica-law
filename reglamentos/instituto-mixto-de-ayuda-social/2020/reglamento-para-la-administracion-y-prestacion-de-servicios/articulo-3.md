@@ -1,1 +1,0 @@
-Artículo 3: De las responsabilidades de aplicación. Son responsables de la aplicación del presente reglamento, los Titulares Subordinados de las Áreas Regionales de Desarrollo Social, de los órganos adscritos, de Empresas Comerciales, el Área de Servicios Generales y en los casos de competencia la Subgerencia de Soporte Administrativo.

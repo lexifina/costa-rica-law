@@ -1,1 +1,0 @@
-Artículo 39: Transitorio único. Los procesos administrativos o judiciales que estuviesen pendientes, a la fecha de la publicación del presente Reglamento, se seguirán tramitando con la normativa anterior y en lo que sea posible, se ajustarán a las nuevas disposiciones, armonizándolas en lo pertinente, con las actuaciones ya practicadas.
