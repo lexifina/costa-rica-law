@@ -1,1 +1,0 @@
-Artículo 12.—Eficacia. El personal de Auditoría debe preocuparse por obtener los mejores resultados en un esfuerzo permanente por alcanzar estándares de excelencia, mientras se apoya el logro efectivo de la satisfacción del interés público y el cumplimiento de las metas y objetivos tanto de la Unidad de Auditoría como los institucionales.

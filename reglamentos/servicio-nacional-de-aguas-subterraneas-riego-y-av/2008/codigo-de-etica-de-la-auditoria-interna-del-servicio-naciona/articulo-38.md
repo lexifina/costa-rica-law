@@ -1,1 +1,0 @@
-Artículo 38.—Credibilidad. El personal de Auditoría debe realizar su labor aplicando los más altos valores morales y las normas legales, profesionales y técnicas actuales y reconocidas generalmente, así como su experiencia, de manera tal que el resultado final represente un aporte y reúna todas las condiciones requeridas para considerar su criterio plenamente creíble y confiable.

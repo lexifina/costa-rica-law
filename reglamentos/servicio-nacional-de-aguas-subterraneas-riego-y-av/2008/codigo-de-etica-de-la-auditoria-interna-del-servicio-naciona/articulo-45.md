@@ -1,1 +1,0 @@
-Artículo 45.—El personal de Auditoría está obligado a cumplir normas elevadas de conducta. Para preservar la confianza de la sociedad, la conducta del personal de Auditoría debe ser irreprochable y estar por encima de toda sospecha.

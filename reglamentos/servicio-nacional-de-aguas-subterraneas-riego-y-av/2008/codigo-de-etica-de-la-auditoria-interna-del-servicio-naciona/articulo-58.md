@@ -1,1 +1,0 @@
-Artículo 58.—Está absolutamente prohibido para el personal de Auditoría, la revelación sobre las auditorías o estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.

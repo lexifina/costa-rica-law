@@ -1,1 +1,0 @@
-Artículo 7º—Neutralidad política. El personal de Auditoría debe conservar su independencia con respecto a las influencias político-partidistas o electorales para desempeñar con imparcialidad las responsabilidades propias de su cargo. La neutralidad política debe mantenerse tanto en el ámbito público como privado, de conformidad con el régimen de prohibiciones legales vigente.

@@ -1,1 +1,0 @@
-Artículo 28.—Búsqueda de la excelencia. El personal de Auditoría debe actuar promoviendo la calidad y eficiencia a través de la evaluación y contribución en la mejora constante de los procesos de gestión de riesgos, control y gobierno corporativo. Debe existir un compromiso diario y riguroso a agregar valor a la institución.

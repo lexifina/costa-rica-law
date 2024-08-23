@@ -1,1 +1,0 @@
-Artículo 3º—Revisión. La revisión y actualización del código de ética es responsabilidad de la Auditora Interna quien debe participar en el proceso de actualización a los demás funcionarios de la unidad. La revisión se debe realizar cada vez que se determine un cambio en la normativa a la que se hace referencia en el artículo 2 de este código o se agregue nueva normativa.

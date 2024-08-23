@@ -1,1 +1,0 @@
-Artículo 54.—La Auditora Interna está inhibida de formar parte de la Junta Directiva de la Asociación Solidarista del SENARA, por cuanto se compromete su objetividad e imparcialidad. Asimismo, está inhibida de participar en comités o comisiones de dicha asociación.

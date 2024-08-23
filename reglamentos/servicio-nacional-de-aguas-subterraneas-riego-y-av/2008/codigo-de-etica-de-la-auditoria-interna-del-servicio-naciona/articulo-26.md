@@ -1,1 +1,0 @@
-Artículo 26.—Sinceridad. En el ejercicio de sus actividades, el personal de Auditoría debe buscar el predominio del criterio de veracidad, franqueza y honestidad en sus acciones, con el propósito de fundamentar la confianza y la credibilidad en sus trabajos.

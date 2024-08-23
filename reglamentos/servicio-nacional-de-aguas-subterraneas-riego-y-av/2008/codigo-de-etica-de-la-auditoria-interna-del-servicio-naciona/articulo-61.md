@@ -1,1 +1,0 @@
-Artículo 61.—Está prohibido para el personal de Auditoría el utilizar su cargo oficial, instalaciones, recursos, sistemas de cómputo, información, datos o servicios del SENARA con propósitos privados, de negocios o personales; o facilitar transacciones indebidas que propicien irregularidades.

@@ -1,1 +1,0 @@
-Artículo 33.—Espíritu de servicio. El personal de Auditoría debe trabajar de manera entusiasta y comprometida con la satisfacción del interés general, poniendo esfuerzo, dedicación y esmero para que los usuarios de SENARA y de la Unidad reciban servicios oportunos y de la mejor calidad y cantidad.

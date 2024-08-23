@@ -1,1 +1,0 @@
-Artículo 18.—Austeridad. El personal de Auditoría administrará los recursos y fondos públicos orientando su actuación a la satisfacción plena del interés público, haciendo el más racional y económico uso de los mismos.

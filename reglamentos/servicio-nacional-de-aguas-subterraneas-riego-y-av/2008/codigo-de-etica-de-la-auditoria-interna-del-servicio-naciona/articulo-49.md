@@ -1,1 +1,0 @@
-Artículo 49.—El personal de Auditoría no debe utilizar su cargo oficial con propósitos privados y deberá evitar relaciones que impliquen un riesgo de corrupción o que puedan generar dudas acerca de su objetividad e independencia.

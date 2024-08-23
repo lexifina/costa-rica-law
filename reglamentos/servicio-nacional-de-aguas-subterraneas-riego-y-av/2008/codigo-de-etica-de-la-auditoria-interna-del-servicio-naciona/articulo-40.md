@@ -1,1 +1,0 @@
-Artículo 40.—Orientación a la obtención de resultados. El personal de Auditoría debe preocuparse por obtener los mejores resultados dentro de los plazos establecidos en un esfuerzo permanente por alcanzar estándares de excelencia, optimizando la contribución unitaria mientras se apoyan los objetivos tanto de la Unidad de Auditoría como los institucionales.

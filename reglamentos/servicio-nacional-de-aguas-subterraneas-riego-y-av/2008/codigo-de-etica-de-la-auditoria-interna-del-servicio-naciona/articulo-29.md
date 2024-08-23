@@ -1,1 +1,0 @@
-Artículo 29.—Flexibilidad. Los valores que rigen la actuación del personal de Auditoría deben regular dicha actuación no de forma mecánica y absoluta, sino a partir del análisis de las situaciones concretas que se presentan y de la búsqueda, por tanto, de alternativas diferentes de solución a los problemas que el personal enfrenta en su actuación.
