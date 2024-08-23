@@ -1,2 +1,1 @@
-ARTICULO 89.- Las marcas, pesos, distintivos códigos y cualquier otra indicación deben estar impresas en el embalaje de la carga en forma clara y legible. Las marcas pesos y distintivos deben coincidir con las indicadas en los documentos de viaje.
-Los contenedores vacíos a embarcar o desembarcar deben venir libres de marcas o etiquetas IMO.
+ARTÍCULO 89.- El operador portuario responde por la desestiba, descargue, transferencia y colocación en bodegas y patios de la carga de importación lo mismo que de su entrega a los consignatarios o sus representantes cuando cumplan los requisitos para retiro.

@@ -1,3 +1,1 @@
-CAPITULO XIII
-Mercancías de Importación Instituto Costarricense de Puertos del Pacífico
-ARTICULO 93.- El Prestatario del Servicio de carga responde por la desestiba y descargue de las mercancías de importación, pero las recibe al costado de la nave, sujeto a lo estipulado en el Artículo 95 de este mismo reglamento.
+ARTÍCULO 93.- Es obligación del armador procurar que la carga destinada al puerto se encuentre distribuida de manera equilibrada por escotillas para mejorar la productividad de la operación de descargue, en caso contrario no se podrá garantizar la productividad esperada, de existir problemas con el equilibrio de la carga el operador portuario lo informara a la autoridad portuaria.

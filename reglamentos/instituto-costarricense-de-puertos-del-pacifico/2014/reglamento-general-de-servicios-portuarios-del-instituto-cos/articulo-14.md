@@ -1,1 +1,1 @@
-ARTICULO 14.- No se podrán bajar botes salvavidas de las naves ni maniobrar ningún tipo de embarcación en la rada ni en la dársena de los puertos, sin la debida autorización de la autoridad competente.
+ARTÍCULO 14.- A los servidores del Operador portuario les será prohibida la compra de mercancías de las naves. El incumplimiento acarreará la sanción disciplinaria y legal que corresponda.

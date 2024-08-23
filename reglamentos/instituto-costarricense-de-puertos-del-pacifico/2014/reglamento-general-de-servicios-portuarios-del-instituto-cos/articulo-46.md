@@ -1,1 +1,1 @@
-ARTICULO 46.- El Agente Naviero tiene la responsabilidad de coordinar la visita de las autoridades de conformidad con la programación de la nave. Dicha visita puede hacerse cualquier día y hora en que labora el puerto.
+ARTÍCULO 46.- El Agente Naviero debe abordar la nave con los funcionarios antes referidos, debiendo prestar su asistencia para facilitar la recepción y libre plática de la nave. Además, es el responsable de suministrar al operador portuario la documentación que se indica en el artículo 49 de este Reglamento.

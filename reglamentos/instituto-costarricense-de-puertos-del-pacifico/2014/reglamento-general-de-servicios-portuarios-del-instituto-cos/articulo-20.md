@@ -1,1 +1,2 @@
-ARTICULO 20.- Una vez prestado el servicio, los cargos respectivos se presentarán en una factura diseñada al efecto. Se efectuará una liquidación sobre la base del depósito previamente efectuado.
+ARTÍCULO 20.- El usuario o su representante, deberá depositar el valor estimado de los servicios que requiere. Este valor se lo comunicará el Operador portuario, de conformidad con el procedimiento vigente al momento de confirmar la llegada de la embarcación.
+En cuanto al pago de los servicios que corresponden al INCOP, el depósito debe ser pagado mediante transferencia bancaria, cancelados directamente a este.

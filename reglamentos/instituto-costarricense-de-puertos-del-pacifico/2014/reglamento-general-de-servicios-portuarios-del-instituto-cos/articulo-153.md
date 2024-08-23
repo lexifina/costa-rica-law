@@ -1,1 +1,1 @@
-ARTICULO 153.- Es prohibida la navegación en la rada para toda embarcación de recreo o propiedad de particulares, sea de motor o vela sin la autorización de la autoridad competente.
+ARTÍCULO 153.- Los vehículos para transporte de carga se ajustarán a lo dispuesto en los artículos del 167, siguientes y concordantes.

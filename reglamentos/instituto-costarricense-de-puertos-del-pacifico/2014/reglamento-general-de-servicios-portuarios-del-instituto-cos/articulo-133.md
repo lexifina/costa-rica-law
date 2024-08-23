@@ -1,1 +1,5 @@
-ARTICULO 133.- El Prestatario del Servicio de carga entregará al porteador las mercancías debidamente chequeadas y con anotación sobre su condición. Con este acto finaliza la responsabilidad del Prestatario del Servicio de carga en relación con la carga.
+TÍTULO VII
+REGULACIONES EN LA TERMINAL MULTIPROPÓSITO
+CAPÍTULO I
+Disposiciones Generales
+ARTÍCULO 133.- Se define para el almacenamiento de contenedores los patios números 1,2,3,4,6 y 7; los que se adicionen en el futuro con autorización de la administración concedente; además, los puestos de atraque 1, 2 y 3, conforme con la prioridad indicada en el artículo 56 de este Reglamento.

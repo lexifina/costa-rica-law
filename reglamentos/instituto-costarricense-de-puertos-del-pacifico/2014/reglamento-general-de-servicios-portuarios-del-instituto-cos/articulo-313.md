@@ -1,0 +1,1 @@
+ARTÍCULO 313.- En caso de naves que no reúnan las condiciones que exige la Autoridad Portuaria y/o el Oficial de Protección de Instalaciones Portuarias, podrán suspenderse las operaciones o no dar inicio a las mismas hasta que las anomalías sean corregidas o se pronuncie al respecto el Encargado del Muelle o el Oficial de Protección de las Instalaciones Portuarias (OPIP).

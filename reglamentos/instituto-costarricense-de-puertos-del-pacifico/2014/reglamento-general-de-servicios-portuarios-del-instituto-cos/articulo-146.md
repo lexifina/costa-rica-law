@@ -1,2 +1,1 @@
-ARTICULO 146.- Los daños que puedan sufrir los equipos del Prestatario del Servicio de carga o de la nave por sobrepeso son responsabilidad del armador.
-Por seguridad a personas, equipos y mercancías, no serán embarcados aquellos contenedores que se identifiquen con un peso mayor a la capacidad máxima permitida por tipo de contenedor. Asimismo, el Prestatario del Servicio de carga no será responsable de las repercusiones de esta decisión, las mismas correrán por cuenta del exportador o embarcador.
+ARTÍCULO 146.- Los contenedores que contengan carga clasificada como peligrosa por IMCO deben estar rotulados con las etiquetas correspondientes. Esta responsabilidad es del armador o su representante.

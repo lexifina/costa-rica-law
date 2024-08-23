@@ -1,1 +1,1 @@
-ARTICULO 42.- Si un barco no anunciado arriba al puerto, será atendido inmediatamente después de surtidos los trámites documentales, siempre y cuando su operación no afecte la prelación de las embarcaciones previamente programadas; en caso contrario, será atendida después del último barco anunciado que llegue durante las siguientes 24 horas.
+ARTÍCULO 42.- Se considera como hora de arribo para efectos de prioridad de atraque, el momento en que la nave arriba a la estación de pilotos que es el sitio oficial de abordaje del piloto.

@@ -1,1 +1,1 @@
-ARTICULO 224.- La tripulación de los remolcadores que prestan este servicio debe ser personal idóneo.
+ARTÍCULO 224.- El INCOP podrá cancelar la autorización, si los intereses de la Institución así lo justifican. Igualmente se cancelará la autorización concedida si se infringen las disposiciones contenidas en este Reglamento.

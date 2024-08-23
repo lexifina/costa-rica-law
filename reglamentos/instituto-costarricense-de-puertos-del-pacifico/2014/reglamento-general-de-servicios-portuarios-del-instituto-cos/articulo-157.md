@@ -1,1 +1,1 @@
-ARTICULO 157.- Es prohibido fumar en las bodegas y sitios donde se almacena y manipula carga, se deben atender los avisos de precaución que se instalen.
+ARTÍCULO 157.- Todas las personas que ingresen, con excepción de los empleados del Operador portuario, con funciones en el área portuaria y conforme al artículo 151 de este Reglamento, deberá acatar las políticas de ingreso establecidas por el operador portuario.

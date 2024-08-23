@@ -1,1 +1,1 @@
-ARTICULO 69.- El atraque de naves que transporten productos de origen animal, vegetal, procesados o semiprocesados, susceptibles de servir como vehículos para contaminación y transmisión de enfermedades, está sujeto a los resultados de la inspección sanitaria que realicen las autoridades competentes.
+ARTÍCULO 69.- El operador portuario se reserva el derecho de autorizar el atraque cuando las condiciones de la nave o de la carga sean inseguras y puedan constituir riesgo potencial para las instalaciones, otras naves, los usuarios o el personal.

@@ -1,1 +1,1 @@
-ARTICULO 236.- Estarán aquellas embarcaciones obligadas a acatar las instrucciones de la Autoridad Competente sobre el lugar de fondeo y amarre, cuando se les informe.
+ARTÍCULO 236: Ámbito de aplicación. La presente normativa establece las disposiciones a que deberán someterse las personas físicas y jurídicas que presten servicios y/o suministros de manera estable tanto a los buques que arriben a los puertos administrados actualmente por INCOP, como a las actividades conexas que se desarrollan dentro de estos.

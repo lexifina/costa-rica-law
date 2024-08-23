@@ -1,1 +1,1 @@
-ARTICULO 137.- Para todo lo que no esté específicamente contemplado en este capítulo, son aplicables las demás disposiciones de este reglamento.
+ARTÍCULO 137.- El armador o su agente deben entregar el programa de descarga y carga al Operador portuario de carga con veinticuatro horas de anticipación a la llegada de la nave.

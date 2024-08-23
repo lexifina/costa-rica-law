@@ -1,1 +1,1 @@
-ARTÍCULO 205.- Suministro de agua potable: Consiste en el suministro de agua potable a las naves atracadas que lo soliciten. La tarifa es por TM.
+ARTÍCULO 205.- Servicio para embarcaciones menores de pasajeros: Para las embarcaciones de pasajeros que hagan uso de las instalaciones portuarias, que sean menores de 3000 TRB y de hasta 100 metros de eslora, se aplicarán las tarifas ordinarias existentes correspondientes a las naves, cobrándose una estadía mínima de doce horas. Por hora adicional se cobrará un doceavo del total resultante del cobro de las primeras doce horas.

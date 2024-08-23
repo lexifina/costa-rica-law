@@ -1,0 +1,1 @@
+ARTÍCULO 267.- De las responsabilidades de los usuarios: Acatamiento de las disposiciones que, en materia de protección: los procedimientos de protección estipulados en el Plan de Protección de las Instalaciones Portuarias (PPIP), el Código PBIP y directrices emitidas por el OPIP.

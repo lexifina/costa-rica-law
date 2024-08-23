@@ -1,1 +1,1 @@
-ARTICULO 218.- El orden de prioridad para la prestación del servicio de pilotaje para atraque y zarpe es el establecido en el capítulo IV de este reglamento.
+Artículo 218.- La autoridad Portuaria velará por la implementación de las disposiciones de la Norma INTE G122:2022, Calidad del servicio de ayudas a la Navegación Marítima, a fin de contribuir con la mejora continua del servicio.

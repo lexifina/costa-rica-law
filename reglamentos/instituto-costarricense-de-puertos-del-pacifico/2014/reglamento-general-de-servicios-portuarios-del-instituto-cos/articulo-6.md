@@ -1,1 +1,2 @@
-ARTICULO 6.- Es prohibido para los usuarios y proveedores ofrecer directa o indirectamente a los empleados y funcionarios del INCOP o de los Concesionarios de sus servicios gratificaciones y/o compensaciones por servicios que en el ejercicio de sus cargos deban suministrar. En caso que éstos las acepten acarrearán las sanciones legales y disciplinarias que correspondan.
+ARTÍCULO 6.- Para las operaciones de los puertos, relativas a la atención de buques y mercancías, éstos permanecerán debidamente habilitados los 365 días del año las 24 horas del día.
+Por cuestiones de seguridad a la navegación y de protección portuaria, las maniobras de atraque y desatraque podrán ser suspendidas por la Autoridad Competente cuando así lo disponga.

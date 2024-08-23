@@ -1,1 +1,1 @@
-ARTICULO 90.- El Prestatario del Servicio de carga responde por la desestiba, descargue, transferencia y colocación en bodegas y patios de la carga de importación lo mismo que de su entrega a los consignatarios o sus representantes cuando cumplan los requisitos para retiro.
+ARTÍCULO 90.- El operador portuario responde por la recepción en patios y bodegas de la carga de exportación, su transferencia, cargue y estiba a bordo.

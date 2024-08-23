@@ -1,7 +1,1 @@
-CAPITULO XIX
-Entrega de Carga de Importación Instituto Costarricense de Puertos del Pacífico
-Articulo 129.—Todo usuario para retirar o introducir carga del terminal marítimo podrá remitir de manera digital al concesionario, la solicitud de servicios detallando:
-a) El número del documento aduanero que autoriza fiscalmente el ingreso o salida de la carga.
-b) El número de comprobante de pago al prestatario del Servicio, el cual debe estar de previo cancelado.
-c) Otros permisos que requieran cargas especiales por sus dimensiones o características de igual forma se podrán remitir digitalmente.
-(Así reformado mediante sesión N° 4246 del 29 de setiembre del 2020)
+ARTÍCULO 129.- Cuando una mercancía sobrepase el plazo de almacenamiento, establecido por la Ley General de Aduanas y no se haya realizado el desalmacenaje, redestinado a un almacén fiscal o sujeto a cualquier otra destinación aduanera, la misma causará abandono a favor del FISCO, pudiendo la aduana disponer de esa mercancía de conformidad con lo establecido en dicha ley.

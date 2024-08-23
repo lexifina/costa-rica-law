@@ -1,0 +1,1 @@
+ARTÍCULO 256.- Del valor del canon. El valor del canon será definido anualmente por la Dirección Financiera, del INCOP, mediante los cálculos correspondientes, los cuales serán debidamente informados en un periódico de publicación nacional.

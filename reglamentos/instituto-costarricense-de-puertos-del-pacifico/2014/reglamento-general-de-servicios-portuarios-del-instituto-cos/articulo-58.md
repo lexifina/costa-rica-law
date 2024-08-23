@@ -1,5 +1,1 @@
-ARTICULO 58.- Este régimen de prioridades no se aplica para las siguientes excepciones:
-a) Naves pertenecientes al Ministerio de Seguridad Pública y demás instituciones del Estado, siempre que no estén afectados al tráfico comercial.
-b) Embarcaciones de las autoridades del orden público ( Ley No. 7929, Acuerdo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de América para la Cooperación para Suprimir el Tráfico Ilícito.
-c) Embarcaciones pertenecientes a los cuerpos de bomberos o servicios médicos.
-d) Embarcaciones que el INCOP exceptúe por razones de interés público y conveniencia nacional, mediante resolución administrativa, debidamente razonada.
+ARTÍCULO 58.- Cuando los representantes de una nave soliciten un cambio de lugar de atraque en el muelle, o salida a bahía, la agencia de la nave respectiva deberá coordinar este movimiento con el operador portuario. Todos los costos relacionados con este servicio son por cuenta del armador o su representante.

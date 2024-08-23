@@ -1,4 +1,1 @@
-ARTICULO 161.- Toda persona vinculada al quehacer portuario y conforme con el artículo 154 de este Reglamento, debe proveerse de un pase para poder ingresar al recinto portuario. Existen tres tipos de pases:
-a) Permanentes.
-b) Temporales.
-c) Para visitantes.
+ARTÍCULO 161.- Las personas que ingresen en calidad de visitantes, recibirán una autorización de visitante del operador portuario mediante la unidad responsable de la protección portuaria y deben cumplir con lo estipulado en el artículo 151 de este Reglamento.

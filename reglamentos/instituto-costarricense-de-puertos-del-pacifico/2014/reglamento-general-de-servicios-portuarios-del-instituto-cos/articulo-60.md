@@ -1,1 +1,1 @@
-ARTICULO 60.- El Prestatario del Servicio podrá disponer la salida de una nave a fondeo por baja productividad. Este movimiento y el posterior atraque son por cuenta del armador o de su representante.
+ARTÍCULO 60.- El operador portuario podrá disponer el movimiento de una nave a otra posición de atraque o a fondeo por necesidades operacionales; en este caso, los movimientos son por cuenta del operador portuario. Los costos serán responsabilidad del armador, agente naviero o su representante, si el movimiento es a solicitud de éstos.

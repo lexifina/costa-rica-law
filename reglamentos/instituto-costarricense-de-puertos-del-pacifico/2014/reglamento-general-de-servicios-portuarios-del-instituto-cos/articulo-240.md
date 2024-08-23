@@ -1,5 +1,5 @@
-ARTICULO 240.- Para la determinación del plazo a suspender el atraque o solicitar que se mantenga desatracado, se debe tomar en cuenta:
-a) La gravedad de la Infracción;
-b) Los daños causados, y
-c) La reincidencia.
-En caso de reincidencia, se duplicará el plazo de suspensión impuesta en la última sanción.
+TÍTULO XIV
+DISPOSICIONES PARA LAS PERSONAS FÍSICAS Y JURÍDICAS QUE BRINDAN
+SERVICIOS O SUMINISTROS A BUQUES QUE ARRIBAN A LOS PUERTOS
+ADMINISTRADOS POR INCOP (Muelle de Puntarenas, Quepos y Golfito)
+ARTÍCULO 240: No se permitirá a los clientes o particulares dejar basuras o desperdicios dentro de las instalaciones del muelle. Estos deben ser retirados una vez concluida la operación por cuenta del cliente.

@@ -1,1 +1,1 @@
-ARTICULO 173.- Los trenes al transitar dentro del recinto portuario lo harán a la mínima velocidad posible y aplicando las normas de seguridad correspondientes a su desplazamiento en espacios reducidos. Se deben usar señales de sonido y luz según corresponda para indicar que el tren está en marcha.
+ARTÍCULO 173.- Los oficiales de protección en los accesos, tienen la obligación de acatar las políticas de PBIP establecidas por el operador portuario.

@@ -1,0 +1,1 @@
+ARTÍCULO 319.- Todo usuario del dique seco deberá hacerse responsable de los daños que pueda sufrir la instalación. Deberán de retirar de las instalaciones cualquier desecho o basura resultante de las labores que realizan.

@@ -1,3 +1,1 @@
-CAPITULO XVI
-Transporte y Manipulación de Carga Peligrosa
-ARTICULO 111.- El término de carga peligrosa se aplica a aquellas mercancías clasificadas como tales por el IMCO (OCMI) (Organización Consultiva Marítima Intergubernamental).
+ARTÍCULO 111.- Los buques en puerto esperando turno para atraque o efectuando operaciones de embarque o desembarque de carga peligrosa o que esté a bordo con destino a otros puertos, deben desplegar las señales establecidas en los reglamentos internacionales, tanto de día como de noche.

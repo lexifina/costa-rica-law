@@ -1,0 +1,1 @@
+ARTÍCULO 251: La administración de cada muelle y/o Unidad de Protección tendrán la potestad de solicitar el desatraque inmediato, ante el riego de incendio o algún otro accidente de peligro inminente abordo, que ponga en peligro las instalaciones portuarias.

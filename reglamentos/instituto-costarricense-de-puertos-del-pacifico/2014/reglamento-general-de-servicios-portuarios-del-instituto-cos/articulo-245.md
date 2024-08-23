@@ -1,0 +1,1 @@
+ARTÍCULO 245: La Administración de INCOP se reserva el derecho de designar el orden de atención y/o atraque de las embarcaciones o limitar su permanencia en cada muelle, cuando esto se requiera por razón de orden operativo, siempre y cuando no se expongan las instalaciones del muelle o a los usuarios y funcionarios destacados en el recinto portuario.

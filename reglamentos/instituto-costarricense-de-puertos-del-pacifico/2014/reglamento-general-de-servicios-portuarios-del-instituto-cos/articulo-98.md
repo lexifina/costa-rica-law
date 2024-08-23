@@ -1,2 +1,4 @@
-ARTICULO 98.- Se considera que en la carga de importación constituyen consignación única, todos los bultos que figuran en el mismo conocimiento de embarque, aún cuando sean de diferentes marcas, tipo, contenido peso y tamaño.
-En el caso que un importador requiera la segregación de las mercancías de importación amparadas por un mismo conocimiento de embarque, debe cancelar los costos que implique realizar esta labor conforme a las tarifas existentes.
+CAPÍTULO III
+Mercancías de Exportación
+ARTÍCULO 98.- El armador o su representante, debe enviar previamente al operador portuario la lista de la carga de exportación indicando: embarcador, consignatario, puerto de destino, Nave y N° de viaje, cantidad, descripción de la carga, peso, marcas, código IMO, N° del conocimiento embarque, nombre de la agencia aduanal y cualquier información adicional que considere pertinente. En el caso de carga en contenedores se debe incluir, además, el N° del contenedor, si es condición FCL o LCL, la longitud y su tipo, los números de los precintos de la naviera; si el embarcador ha colocado un precinto propio, este número también debe ser incluido.
+Esta lista es indispensable para la entrega de la carga a la nave por parte del operador portuario.

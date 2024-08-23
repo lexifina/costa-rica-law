@@ -1,1 +1,1 @@
-ARTICULO 9.- Todo daño a las instalaciones portuarias propiedad del Estado Costarricense o equipo propiedad del concesionario, causado por embarcaciones o cualquier otro vehículo, será indemnizado en el costo real del daño causado por el o los responsables, al INCOP o al concesionario según sea el caso, incluyendo los gastos de avalúo, actas notariales y demás gastos derivados del daño.
+ARTÍCULO 9.- En caso de duda sobre la interpretación de este Reglamento, corresponderá a la Junta Directiva del INCOP aclarar o interpretar correctamente las disposiciones contenidas.

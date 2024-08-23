@@ -1,0 +1,1 @@
+ARTÍCULO 289.- Podrán tener acceso a las instalaciones portuarias para dejar o llevar pasajeros de buques cruceros, fondeados en la zona de maniobra del puerto, o atracados, a aquellos vehículos que cuenten con los respectivos permisos para desarrollar dicha actividad.

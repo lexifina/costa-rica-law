@@ -1,0 +1,1 @@
+ARTÍCULO 322.- Las disposiciones contempladas deben ser estrictamente acatadas por todos los funcionarios del INCOP y los particulares que hagan uso de las instalaciones portuarias o que por razones de visita o trabajo transiten o permanezcan dentro de ellas.

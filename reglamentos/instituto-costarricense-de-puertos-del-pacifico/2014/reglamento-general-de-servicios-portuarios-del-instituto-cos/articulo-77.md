@@ -1,1 +1,1 @@
-ARTICULO 77.- Es obligación de toda nave mantener la escala de costado y las de las bodegas en buenas condiciones de uso y de las dimensiones adecuadas, con objeto de garantizar la seguridad abordo.
+ARTÍCULO 77.- Todo buque atracado debe usar redes salva cargas de costado, en las escotillas que se encuentren en operación.

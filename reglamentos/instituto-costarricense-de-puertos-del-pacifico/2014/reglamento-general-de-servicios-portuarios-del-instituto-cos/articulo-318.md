@@ -1,0 +1,1 @@
+ARTÍCULO 318.- Los usuarios que hagan uso de las instalaciones dique seco deberán eximir por escrito al INCOP, de toda responsabilidad derivada de la actividad que desarrollen en las instalaciones de este. Así como por los daños que resulten por accidentes a las embarcaciones en las maniobras de varado o botado, así como al personal que ellos contratan.

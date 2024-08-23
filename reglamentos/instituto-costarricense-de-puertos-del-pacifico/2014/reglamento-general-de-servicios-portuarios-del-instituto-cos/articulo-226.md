@@ -1,4 +1,1 @@
-CAPITULO XXXIV
-Servicio de Ayudas a la Navegación
-ARTICULO 226.- Los servicios de ayudas a la navegación comprenden los servicios de rompeolas, faros, dragados y boyas que dispone el INCOP en el litoral pacífico como ayuda a la navegación marítima. La tarifa es por TRB.
-Este servicio es básico a la nave.
+ARTÍCULO 226.- Hecha la comunicación anterior, la Autoridad Portuaria deberá extender una tarjeta que consigne la hora de salida, actividad, destino, nombre del Capitán y hora de regreso, que deberá refrendar el guarda del INCOP en el puesto de seguridad.

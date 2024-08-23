@@ -1,1 +1,1 @@
-ARTICULO 34.- Los buques que se encuentren trabajando fondeados o atracados no podrán hacer reparaciones al casco por su parte exterior que requieran equipo de soldar, piquetear, pintar, etc., sin obtener el previo permiso del Prestatario del Servicio.
+ARTÍCULO 34.- Se prohíbe cualquier clase de reparación a bordo que, a juicio del Operador portuario, ponga en peligro la vida de su personal, instalaciones, equipos o el medio ambiente.

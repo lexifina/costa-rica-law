@@ -1,1 +1,1 @@
-ARTICULO 244: Derogatoria. Este Reglamento deroga todos los anteriores, se mantiene vigente solamente el transitorio único publicado en La Gaceta No.51 del jueves 13 de marzo del 2014, así como los plazos estipulados en el mismo. No obstante al haberse corrido la numeración de los artículos en esta última reforma integral el transitorio debe leerse así:
+ARTÍCULO 244: No podrá ninguna embarcación utilizar la pantalla de atraque sin la debida autorización de la Administración del muelle.

@@ -1,0 +1,1 @@
+ARTÍCULO 253.- Dentro del recinto portuario no se podrá embarcar o desembarcar ninguna clase de mercancía, materiales, provisiones, equipajes o elementos de uso personal sin el previo cumplimiento de los requisitos exigidos por la ley y el presente Reglamento.

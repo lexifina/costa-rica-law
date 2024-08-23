@@ -1,1 +1,1 @@
-ARTICULO 8.- En caso de duda sobre la interpretación de este Reglamento, corresponderá a la Junta Directiva del INCOP aclarar o interpretar correctamente las disposiciones contenidas.
+ARTÍCULO 8.- El Operador portuario se reserva el derecho de no prestar o suspender los servicios a aquellos usuarios que no se encuentren a derecho en sus obligaciones o que incumplan con el presente Reglamento.

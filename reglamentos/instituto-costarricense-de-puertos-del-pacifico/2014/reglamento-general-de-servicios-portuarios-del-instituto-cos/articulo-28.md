@@ -1,1 +1,1 @@
-ARTICULO 28.- Los capitanes de las naves menores de doscientos cincuenta (250) TRB, deben informar con suficiente anticipación a la autoridad marítima, el INCOP y /o al concesionario, sobre las maniobras y movimientos que pretenden hacer dentro del puerto.
+ARTÍCULO 28.- Toda nave que transite o se movilice dentro de los canales de acceso, la zona de maniobra y zona de fondeo del puerto o sus inmediaciones está obligada a aplicar las disposiciones de la OMI y las señales de la IALA.

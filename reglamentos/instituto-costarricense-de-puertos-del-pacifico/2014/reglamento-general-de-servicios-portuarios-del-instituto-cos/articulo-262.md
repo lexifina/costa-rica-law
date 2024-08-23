@@ -1,0 +1,1 @@
+ARTÍCULO 262.- De la creación del permisionario. A efectos de fomentar un correcto control sobre los permisos a otorgar, así como de los servicios prestados por los permisionarios en los Muelles, deberá el interesado registrarse en el sistema de Gestión Portuaria (SGP) y cumplir con los requisitos respectivos.

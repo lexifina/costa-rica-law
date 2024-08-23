@@ -1,1 +1,1 @@
-ARTICULO 72.- Mientras se encuentre atracado, todo buque colocará protectores contra ratas en las amarras. Estos deben colocarse inmediatamente después de terminar la maniobra de atraque.
+ARTÍCULO 72.- Durante la noche y mientras el barco esté trabajando, se debe mantener iluminación adecuada en las bodegas y escalas en uso. El operador portuario determinará si la iluminación es apropiada y de no serlo exigirá al capitán mejorar las condiciones.

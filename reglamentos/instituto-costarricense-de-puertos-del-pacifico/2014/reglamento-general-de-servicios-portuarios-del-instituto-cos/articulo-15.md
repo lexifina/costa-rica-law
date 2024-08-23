@@ -1,4 +1,1 @@
-ARTICULO 15.- Los prestatarios de los servicios en la atención de las embarcaciones y sus cargas son los responsables por la pérdida, averías, daños o perjuicios causados a las mercancías mientras éstas se encuentren bajo su responsabilidad, excepto en los siguientes casos:
-a) Los ocasionados por causas fortuitas o fuerza mayor.
-b) Los causados por la deficiente condición de la carga.
-c) Las que se originen por responsabilidad del armador, los usuarios o sus agentes; y en general por hechos de terceros.
+ARTÍCULO 15.- No se podrán bajar botes salvavidas de las naves ni maniobrar ningún tipo de embarcación en la zona de maniobra ni en la dársena de los puertos, sin la debida autorización de la autoridad competente, excepto en los casos de emergencia que se comprometa la vida humana en el mar.

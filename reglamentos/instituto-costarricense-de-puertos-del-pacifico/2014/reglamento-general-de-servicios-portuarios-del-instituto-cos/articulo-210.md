@@ -1,1 +1,1 @@
-ARTÍCULO 210.- Servicio de báscula: Consiste en pesar los vehículos de carga cuando entran al recinto portuario o cuando salen del mismo y el repesaje de camiones recargados. Incluye la emisión del tiquete de peso. La tarifa es por cada pesaje de vehículo.
+ARTÍCULO 210.- El servicio de pilotaje será pagado normalmente por el armador o su representante, o por quien solicita el servicio en cada caso.

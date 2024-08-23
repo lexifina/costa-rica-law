@@ -1,12 +1,3 @@
-ARTICULO 143.- Todo contenedor que entre o salga del puerto en cualquier condición debe ser inspeccionado en el portón de acceso así:
-a) Contenedores llenos de importación.
-1. Que el contenedor que se retira corresponda a la autorización expedida por el armador.
-2. El estado de los sellos y precintos.
-3. No deben portar etiquetas de clasificación peligrosa, como las asignadas por la IMCO (OCMI: Organización Consultiva Marítima Internacional), si la carga contenida no se ajusta con ese tipo de mercancía.
-b) Contenedores llenos de exportación.
-1. Que el contenedor corresponda al listado entregado por el armador
-2. El estado de los sellos y precintos.
-3. No deben portar etiquetas de clasificación peligrosa, como las asignadas por la IMCO (OCMI: Organización Consultiva Marítima Internacional), si la carga contenida no se ajusta con ese tipo de mercancía.
-c) Contenedores vacíos al ingreso o retiro.
-1. No podrán salir o entrar precintados, su colocación sobre la plataforma que lo transporta debe permitir la apertura del las puertas para verificar que efectivamente está completamente vacío.
-2. Los contenedores que ingresen vacíos, no deben portar etiquetas de clasificación peligrosa, como las asignadas por la IMCO (OCMI: Organización Consultiva Marítima Internacional) como si estuvieran llenos.
+ARTÍCULO 143.- Los daños que puedan sufrir los equipos del Operador portuario de carga o de la nave por sobrepeso son responsabilidad del armador.
+Por seguridad a personas, equipos y mercancías, no serán embarcados aquellos contenedores que se identifiquen con un peso mayor a la capacidad máxima permitida por tipo de contenedor.
+Asimismo, el Operador portuario de carga no será responsable de las repercusiones de esta decisión, las mismas correrán por cuenta del exportador o embarcador

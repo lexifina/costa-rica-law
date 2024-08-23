@@ -1,1 +1,1 @@
-ARTICULO 163.- Los pases temporales se otorgan a los ocasionales y a los empleados de los usuarios que deban realizar constantemente labores en el recinto. Los pases indicarán su vigencia.
+ARTÍCULO 163.- Cuando una persona pierda su carné de autorización, debe informarlo al oficial de protección de instalaciones portuaria, para la expedición de una nueva tarjeta, previo pago del valor de expedición.

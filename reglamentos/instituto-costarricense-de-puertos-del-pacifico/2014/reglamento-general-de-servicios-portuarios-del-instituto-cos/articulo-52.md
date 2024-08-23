@@ -1,3 +1,1 @@
-CAPITULO VIII
-Despacho y zarpe
-ARTICULO 52.- Para el zarpe de los buques, incluyendo naves de cabotaje y cualquier otro tipo, el armador por conducto del agente naviero, debe solicitar el zarpe a la Autoridad competente en el formato establecido.
+ARTÍCULO 52.- Antes de que el delegado de la Capitanía de Puerto emita la autorización de zarpe de la nave y en caso de que existan deudas o incumplimientos, el Operador portuario lo informará a la Capitanía de Puerto para lo de su competencia. En caso contrario, el Operador portuario, le remitirá una comunicación en la que conste que el barco no tiene asuntos pendientes.

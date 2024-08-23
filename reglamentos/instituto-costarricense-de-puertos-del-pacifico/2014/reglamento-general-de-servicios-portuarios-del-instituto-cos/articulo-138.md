@@ -1,1 +1,1 @@
-ARTICULO 138.- Las naves portacontenedores tendrán prioridad en el uso del puesto de atraque de la terminal, según la prioridad establecida en este reglamento.
+ARTÍCULO 138.- Con el aviso de arribo, el armador o su agente deben entregar tres copias en formato electrónico de la lista de contenedores a descargar indicando en cada caso si es condición FCL o LCL, el listado debe incluir el Nº del contenedor, el Nº del (los) Precinto (s), tamaño y clase de contenedor y su peso. Cuando se trate de contenedores RF llenos, se debe indicar si contienen carga refrigerada o seca.

@@ -1,1 +1,1 @@
-ARTICULO 54.- Si no hubieran cumplido los requisitos mencionados anteriormente, las autoridades competentes impedirán la salida de la nave.
+ARTÍCULO 54.- La Capitanía de Puerto es la Autoridad competente para autorizar el zarpe o para negarlo.

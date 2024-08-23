@@ -1,0 +1,1 @@
+ARTÍCULO 250: En caso de naves que no reúnan las condiciones que exige la Administración del muelle y/o Unidad de Protección Portuaria para la seguridad y de protección de las instalaciones de este o su personal, podrán suspenderse las operaciones o no dar inicio hasta que las anomalías sean corregidas o se pronuncien al respecto.

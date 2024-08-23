@@ -1,0 +1,1 @@
+ARTÍCULO 298: El ingreso al recinto portuario a efectos de proceder con el aprovisionamiento a las embarcaciones regirá conforme a las directrices emitidas por la administración del muelle y/ o el encargado de la protección portuaria.

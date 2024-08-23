@@ -1,0 +1,1 @@
+ARTÍCULO 277: Queda terminantemente prohibido ingerir bebidas alcohólicas dentro de las instalaciones portuarias. Así mismo, no podrá ingresar persona alguna que se encuentre en aparente estado de ebriedad.

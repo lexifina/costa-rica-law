@@ -1,1 +1,3 @@
-ARTICULO 92.- Cuando en las bodegas de la nave la carga viene mal estibada, derrumbada o visiblemente saqueada, no se iniciarán las operaciones de descarga en esas bodegas hasta tanto se levante un acta firmada por el representante del Prestatario del Servicio de carga, de la agencia naviera y del capitán del buque en la que se haga constar las condiciones encontradas y se exima al Prestatario del Servicio de carga de toda responsabilidad por daños, averías y o faltantes de mercancía. En el caso de los contenedores además de verificar que no presentan daños evidentes, se verificará durante el descargue, que los sellos y precintos corresponden a los reportados en los documentos de viaje, de no ser así, se dejará constancia en el libretín de chequeo y en el cierre del manifiesto.
+CAPÍTULO II
+Mercancías de Importación
+ARTÍCULO 92.- El operador portuario responde por la desestiba y descarga de las mercancías de importación.

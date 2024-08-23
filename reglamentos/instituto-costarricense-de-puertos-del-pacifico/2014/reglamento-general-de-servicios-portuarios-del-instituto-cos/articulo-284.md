@@ -1,0 +1,1 @@
+ARTÍCULO 284: Toda persona al ingresar a las instalaciones portuarias deberá presentar su identificación en el puesto de entrada al oficial de protección seguridad, la cual será escaneada por un dispositivo tecnológico o listado para su respectivo ingreso, además deberá acatar las disposiciones dadas en este capítulo.

@@ -1,1 +1,1 @@
-ARTICULO 164.- Las personas que ingresen en calidad de visitantes, recibirán un pase de visitante de la unidad responsable de la vigilancia portuaria y deben cumplir con lo estipulado en el artículo 160 de este reglamento.
+ARTÍCULO 164.- El Oficial de Protección de las Instalaciones Portuarias llevará el control y registro de los pases otorgados. Los pases permanentes y temporales requieren la autorización del Gerente General del Operador portuario, los demás por el oficial.

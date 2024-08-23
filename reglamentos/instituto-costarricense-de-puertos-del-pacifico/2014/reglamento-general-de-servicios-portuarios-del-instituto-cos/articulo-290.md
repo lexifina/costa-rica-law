@@ -1,0 +1,1 @@
+ARTÍCULO 290.- Todo vehículo que ingrese debe estar previamente identificado por parte de la administración y/o unidad de protección portuaria, cumplir con los requisitos expuestos en este reglamento y en la normativa del INCOP que les afecte. El conductor del vehículo, así como sus acompañantes deben contar con la autorización previa para su ingreso.

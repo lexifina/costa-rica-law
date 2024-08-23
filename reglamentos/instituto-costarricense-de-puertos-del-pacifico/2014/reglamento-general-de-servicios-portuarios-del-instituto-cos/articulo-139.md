@@ -1,1 +1,1 @@
-ARTÍCULO 139.- El anuncio y confirmación de arribo de la nave se debe ajustar a lo dispuesto en la regla respectiva de este reglamento.
+ARTÍCULO 139.- Para la entrega de cada contenedor de importación, el Operador portuario de carga lo hará de acuerdo con el listado oficial que publica la Dirección General de Aduanas del Ministerio de Hacienda en el sistema de esta autoridad.

@@ -1,1 +1,1 @@
-ARTICULO 79.- Inmediatamente después que concluya el atraque, los barcos deben tapar los puntos de desagüe para evitar que sean arrojados al muelle desechos o agua.
+ARTÍCULO 79.- Las naves que porten explosivos en tránsito, deben poner señales especiales de día y de noche y atender las normas de seguridad de acuerdo con la Organización Marítima Internacional (OMI).

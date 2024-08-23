@@ -1,1 +1,1 @@
-ARTICULO 149.- Los contenedores que contengan carga clasificada como peligrosa por IMCO deben estar rotulados con las etiquetas correspondientes. Esta responsabilidad es del armador o su representante.
+ARTÍCULO 149.- La zona de maniobra es en esencia el área que se utiliza para movilizar embarcaciones hasta el puesto de atraque y debe permanecer libre de embarcaciones por razones de seguridad a la navegación y de protección.

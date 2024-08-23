@@ -1,0 +1,1 @@
+ARTÍCULO 292. Aquellos que pertenezcan a los miembros de las tripulaciones de las embarcaciones y se solicite su ingreso por parte de la agencia representante de la embarcación estarán sujetos a la autorización, que emita la administración del puerto, quien estipulará el tiempo por el que podrá hacer ingreso dicho vehículo.

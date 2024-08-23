@@ -1,1 +1,1 @@
-ARTICULO 109.- El Prestatario del Servicio de carga es responsable por la seguridad de las mercancías en tránsito durante su permanencia en la terminal.
+ARTÍCULO 109.- Todos los cargos tarifarios que origine el servicio a mercancías en tránsito, se aplicarán al armador o su agente y al corredor aduanero cuando corresponda. Esta situación debe quedar definida al momento de solicitar el servicio.

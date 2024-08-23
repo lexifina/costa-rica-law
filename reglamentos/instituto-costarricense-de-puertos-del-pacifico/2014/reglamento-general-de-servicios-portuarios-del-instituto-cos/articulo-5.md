@@ -1,2 +1,1 @@
-ARTICULO 5.- Para las operaciones de los puertos, relativas a la atención de buques y mercaderías, éstos permanecerán debidamente habilitados los 365 días del año las 24 horas del día.
-Por cuestiones de seguridad a la navegación, las maniobras de atraque y desatraque podrán ser suspendidas por la Autoridad Competente cuando así lo disponga.
+ARTÍCULO 5.- Las demoras en el servicio portuario ocasionadas por huelgas, perturbaciones de orden público, de fuerza mayor o caso fortuito no serán imputables al Operador portuario.

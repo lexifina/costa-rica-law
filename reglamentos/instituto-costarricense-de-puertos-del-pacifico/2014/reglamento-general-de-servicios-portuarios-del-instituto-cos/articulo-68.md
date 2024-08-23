@@ -1,1 +1,1 @@
-ARTICULO 68.- En caso de incendio abordo, la nave debe ser desatracada inmediatamente con o sin ayuda de remolcadores y fondeada en aguas seguras donde se pueda atender el siniestro.
+ARTÍCULO 68.- El atraque de naves que transporten productos de origen animal, vegetal, procesados o semiprocesados, susceptibles de servir como vehículos para contaminación y transmisión de enfermedades, está sujeto a los resultados de la inspección sanitaria que realicen las autoridades competentes.

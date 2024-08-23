@@ -1,3 +1,1 @@
-CAPITULO XXX
-Servicios Complementarios
-ARTÍCULO 201.- Servicio de reestiba de carga a bordo o vía muelle: Es la movilización transitoria de mercaderías de otros puertos que deba efectuarse para dar salida a la carga con destino local. La unidad de tarificación es por TM movilizada, excepto los contenedores que se cobrarán por movimiento. Las reestibas de contenedores se cobrarán como un movimiento de carga y descarga si la reestiba es a bordo del buque y como doble movimiento si es a través del muelle.
+ARTÍCULO 201.- Servicio de báscula: Consiste en pesar los vehículos de carga cuando entran al recinto portuario o cuando salen del mismo y el repesaje de camiones recargados. Incluye la emisión del tiquete de peso. La tarifa es por cada pesaje de vehículo.

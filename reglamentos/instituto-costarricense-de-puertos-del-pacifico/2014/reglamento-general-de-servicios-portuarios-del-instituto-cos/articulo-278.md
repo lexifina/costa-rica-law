@@ -1,0 +1,1 @@
+ARTÍCULO 278: El ingreso de las personas al recinto portuario se efectuará por la entrada principal donde está la casetilla y se realizara la inspección visual y física cuando lo amerite de todos los bultos de mano o espalda (salveques, bolsos, neveras maletas, entre otros); en este lugar se identificarán con la unidad de protección seguridad.

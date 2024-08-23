@@ -1,6 +1,1 @@
-ARTICULO 66.- Terminadas las operaciones de carga y descarga, el buque deberá abandonar el puesto de atraque hasta una hora después. De no hacerlo se deberá cancelar la suma de $1.200,00 (Unos mil doscientos dólares sin centavos) por hora o fracción que permanezca atracado. No se considerará incumplimiento a esta norma un atraso en el desatraque del buque que no supere los treinta minutos adicionales a la hora otorgada. Se tendrán como excepciones a esta regla las siguientes:
-a) Los buques con carga en tránsito que deban realizar un DRAFT SURVEY (MEDICION DE CALADOS) podrán permanecer atracados, una vez concluida la operación hasta dos horas sin la imposición del cargo por no hacer el abandono del muelle.
-b) En los casos de demoras causadas debido a la operatividad del puerto y mientras subsistan las condiciones que ocasionan el atraso, no se dará la imposición del cargo por no hacer el abandono oportuno del muelle.
-Una vez desaparecidas esas causas se procederá conforme corresponda.
-En el caso de las ventanas de atraque, las sanciones se aplicarán en concordancia con lo dispuesto en el artículo 56 del presente reglamento.
-(Así reformado en sesión N° 4079 del 2 de noviembre de 2017)
+ARTÍCULO 66.- Toda embarcación que, estando atracada en los muelles, fondeada o en tránsito en la zona de maniobra y descubra daños en sus máquinas que le impidan la movilización normal, debe ser retirada por el armador o su agente fuera de las aguas del puerto.

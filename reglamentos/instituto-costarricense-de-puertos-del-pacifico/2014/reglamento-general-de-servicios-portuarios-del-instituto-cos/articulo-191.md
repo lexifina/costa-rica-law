@@ -1,22 +1,5 @@
-ARTICULO 191.- El Prestatario del Servicio de carga debe prestar los siguientes servicios:
-a) Servicio de estadía
-b) Servicio de amarre y desamarre
-c) Servicio de limpieza del muelle
-d) Servicios de carga y descarga de naves
-e) Servicio de muellaje
-f) Servicio de transferencia de mercadería
-g) Servicio de almacenaje
-h) Servicio de recepción y despacho en bodegas y patios
-i) Servicio a contenedores refrigerados
-j) Servicio de transferencia de contenedores en patios
-k) Servicio de movimiento de contenedores en patios
-l) Servicio de reestiba de carga a bordo o vía muelle.
-m) Servicio de personal de refuerzo
-n) Servicio de ingreso de vehículos a la zona portuaria
-o) Servicio de báscula
-p) Servicio de consolidación y desconsolidación de contenedores
-q) Servicio de atención a naves de pasajeros
-r) Servicio de embarque y desembarque de pasajeros
-s) Servicio de suministro de agua potable.
-t) Servicio de alquiler de equipos y maquinaria
-u) Servicio de maquinaria a bordo.
+ARTÍCULO 191.- Servicio de Almacenaje: Consiste en la asignación de espacios en bodegas y patios para depositar las mercancías mientras son retiradas de la terminal en el caso de la importación, o son entregadas para cargue en el caso de la exportación. La permanencia sin costo de contenedores en los depósitos del puerto será la que indica el Artículo 132 de este Reglamento.
+La tarifa diaria para la carga es por TM, para los contenedores según el tamaño se establece por unidad/día y para las tolvas, almejas, chasis o equipo vario es por unidad/día. Las cargas peligrosas tendrán una tarifa especial. Las mercancías clasificadas como inflamables, corrosivas, infecciosas, tóxicas, radioactivas o explosivas, deberán estar debidamente etiquetadas según el Código de ms (IMDG) de la Organización Marítima Internacional; si estas fuesen almacenadas dentro del puerto pagarán un recargo de $10,00 (diez dólares, moneda de curso legal de Estados Unidos de América) por tonelada métrica por día. Si hubiera omisiones en cuanto al etiquetado o no hay entrega oportuna de documentación de soporte, se cobrará un recargo adicional de $5,00 (cinco dólares, moneda de curso legal de Estados Unidos de América) por tonelada métrica por día.
+El operador portuario debe registrar de manera explícita en cada facturación el precio negociado con el usuario de los servicios y enviar a INCOP quien posteriormente remite la información a la Autoridad Reguladora de los Servicios Públicos (ARESEP) los respectivos reportes semestrales con estadísticas de los precios facturados e ingresos generados por cada uno de estos servicios, según lo estipulan los lineamientos de la Autoridad reguladora.
+Para el almacenaje de mercadería general que depende del peso en TM y valor CIF Almacenaje, se debe calcular:
+($0.14TM*día+ valor CIF*0.033%*día)* Cantidad de días.

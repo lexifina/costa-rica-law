@@ -1,0 +1,1 @@
+ARTÍCULO 275: En el acceso vehicular se revisará visual y físicamente, todos los vehículos que ingresan y egresan, si se observa un conductor al ingreso en aparente estado de ebriedad, se le denegará el acceso y se informar a la Administración inmediatamente.

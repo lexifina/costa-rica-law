@@ -1,1 +1,1 @@
-ARTICULO 37.- El aviso de arribo de cada nave, constituye también la solicitud de atraque y atención para las operaciones de embarque y desembarque, debe notificarlo el armador o su agente al prestatario del servicio con una anticipación no menor de 48 horas con respecto a la hora estimada de llegada al puerto.
+ARTÍCULO 37.- La confirmación de arribo es obligatorio presentarla con una antelación mínima de 24 horas con respecto a la hora estimada de llegada a puerto.

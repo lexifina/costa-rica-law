@@ -1,5 +1,3 @@
-TITULO XII
-Disposiciones finales
-CAPITULO XXXVI
-Régimen de sanciones
-ARTICULO 239.- En caso de incumplimiento de este reglamento, sea por acción u omisión y que no se regule una sanción específica a dicha falta, la Autoridad Competente estará autorizada para denegar, por el plazo que estime razonable, la escala, salida, carga o descarga del buque infractor. En caso de que el buque se encuentre atracado, la Autoridad Competente podrá solicitar el desatraque del buque, siendo responsable de correr con todos los cargos correspondientes al desatraque y posterior nuevo atraque, el armador o su representante.
+ARTÍCULO 239.- Todo daño a las instalaciones y equipos propiedad de INCOP o bajo su administración, causados por terceros, embarcaciones, vehículos o cualquier otra clase de equipo, será indemnizado por el responsable (representantes legales, armadores, capitanes o agentes de éstos) en el costo real del daño.
+El avalúo será establecido de inmediato por un perito experto luego del daño sufrido, dejando constancia mediante acta que se levantará. El responsable depositará a favor del INCOP en dinero en efectivo o mediante transferencia bancaria a satisfacción de INCOP, el monto correspondiente por los eventuales daños y/o perjuicios.
+O, por un proceder más eficiente, si existe aval de la Gerencia General, el daño podrá ser reparado por quien genere el mismo.

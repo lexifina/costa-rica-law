@@ -1,3 +1,3 @@
-CAPITULO XXVIII
-Servicios a las Naves
-ARTICULO 192.- Servicio de estadía: Corresponde a la ocupación del muelle por parte de las embarcaciones atracadas desde que se asegura la primera línea de amarre al atracar, hasta que se larga la última línea de amarre al zarpe. Su tarifa es por metro de eslora/hora o fracción.
+CAPÍTULO IV
+Servicios Complementarios
+ARTÍCULO 192.- Servicio de reestiba de carga a bordo o vía muelle: Es la movilización transitoria de mercancías de otros puertos que deba efectuarse para dar salida a la carga con destino local. La unidad de tarificación es por TM movilizada, excepto los contenedores que se cobrarán por movimiento. Las reestibas de contenedores se cobrarán como un movimiento de carga y descarga si la reestiba es a bordo del buque y como doble movimiento si es a través del muelle.

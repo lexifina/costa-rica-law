@@ -1,1 +1,1 @@
-ARTICULO 108.- Todos los casos de mercancías en tránsito requieren autorización previa del Prestatario del Servicio de carga y el cumplimiento de las normas aduaneras que regulan esta actividad.
+ARTÍCULO 108.- El Operador portuario de carga es responsable por la protección de las mercancías en tránsito durante su permanencia en la terminal.

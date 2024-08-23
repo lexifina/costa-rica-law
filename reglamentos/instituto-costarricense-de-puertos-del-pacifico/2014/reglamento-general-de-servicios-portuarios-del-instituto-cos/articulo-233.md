@@ -1,1 +1,5 @@
-ARTICULO 233.- La prestación del servicio de estas lanchas a los usuarios del INCOP debe ser comunicada previamente, indicando con claridad la clase de servicio que prestará, el día y la hora en que se realizará.
+TÍTULO XIII
+Gestión Ambiental
+CAPÍTULO I
+Regulaciones Ambientales Portuarias
+ARTÍCULO 233.- La actividad ambiental deberá regularse en todas las acciones que se produzcan en los diferentes Servicios Portuarios que se brindan dentro de la jurisdicción del INCOP, para ello es necesario que se respeten las disposiciones contempladas en Reglamento para la Prevención y Control de la Contaminación en los Puertos dados en Concesión o bajo jurisdicción del INCOP.

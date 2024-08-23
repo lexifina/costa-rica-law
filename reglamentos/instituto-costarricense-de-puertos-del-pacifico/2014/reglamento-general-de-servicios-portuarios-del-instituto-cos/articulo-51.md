@@ -1,1 +1,3 @@
-ARTICULO 51.- Los documentos que deben entregarse estarán escritos a máquina o manuscritos en tinta indeleble en forma clara y legible.
+CAPÍTULO IV
+Despacho y zarpe
+ARTÍCULO 51.- Para el zarpe de los buques, incluyendo naves de cabotaje y cualquier otro tipo, el armador por conducto del agente naviero, debe solicitar el zarpe a la Autoridad competente.

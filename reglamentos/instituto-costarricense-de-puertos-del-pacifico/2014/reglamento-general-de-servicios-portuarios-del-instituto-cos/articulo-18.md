@@ -1,2 +1,2 @@
-ARTICULO 18.- Todo usuario que necesite el servicio de ayudas a la navegación, deberá requerirlo por escrito ante el INCOP, mediante registro de la Solicitud de Servicios en el Sistema Web de INCOP.
-Dicho registro será firmado por el usuario o su representante previamente acreditado como tal ante la Institución, para lo cual esta llevará un registro de firmas de las personas facultadas por el usuario para contraer las responsabilidades que implica la prestación del servicio
+ARTÍCULO 18.- Para efectos de cobro por el servicio de ayudas a la navegación, el INCOP lo realizará de acuerdo con la información consignada en el Certificado Internacional de Tonelaje de las embarcaciones.
+El INCOP se reserva el derecho de verificar la información de ese documento, ya sea a través de consultas a los registros públicos o internacionales o cualquier otra metodología apropiada.

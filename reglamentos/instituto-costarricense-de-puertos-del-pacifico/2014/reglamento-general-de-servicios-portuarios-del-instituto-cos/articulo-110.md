@@ -1,1 +1,3 @@
-ARTICULO 110.- Todos los cargos tarifarios que origine el servicio a mercancías en tránsito, se aplicarán al armador o su agente y al corredor aduanero cuando corresponda. Esta situación debe quedar definida al momento de solicitar el servicio.
+CAPÍTULO V
+Transporte y Manipulación de Carga Peligrosa
+ARTÍCULO 110.- El término de carga peligrosa se aplica a aquellas mercancías clasificadas como tales por el IMCO (OCMI, Organización Consultiva Marítima Intergubernamental). Toda carga clasificada como peligrosa debe ser informada con un tiempo de 48 horas de antelación a su llegada y además deben estar acompañadas de sus respectivas fichas de seguridad o MSDS.

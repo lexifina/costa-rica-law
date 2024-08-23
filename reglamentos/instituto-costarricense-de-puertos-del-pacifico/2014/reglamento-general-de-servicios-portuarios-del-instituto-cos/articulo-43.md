@@ -1,1 +1,4 @@
-ARTICULO 43.- Se considera como hora de arribo para efectos de prioridad de atraque, el momento en que la nave arriba a la estación de pilotos que es el sitio oficial de abordaje del piloto.
+ARTÍCULO 43.- Cuando arriben al puerto varias naves dentro de un mismo período de 12 horas y que hayan sido previamente anunciadas, confirmadas, que tengan solicitado servicios, presentada la documentación completa y dispongan de todos los elementos para garantizar la operación, la preferencia para iniciar operaciones se determinará teniendo en cuenta los siguientes criterios:
+a) Orden de arribo y tiempo estimado de operaciones, para garantizar la mayor rotación de los puestos de atraque.
+b) Si el factor determinante es el espacio disponible en muelle y se han agotado todas las posibilidades operativas para recuperar espacios, se dará prioridad a las embarcaciones que permitan mantener el mayor número de naves en los muelles.
+En caso de modificaciones en los avisos, regirá para cualquier efecto la última modificación.

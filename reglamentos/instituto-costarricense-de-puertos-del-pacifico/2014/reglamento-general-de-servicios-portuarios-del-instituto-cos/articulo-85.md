@@ -1,1 +1,1 @@
-ARTICULO 85.- Es obligación del armador suplir servicios higiénicos y agua potable abordo para el personal que deba laborar en la nave.
+ARTÍCULO 85.- La cancelación del manifiesto contendrá los resultados de la entrega y recepción de carga y debe estar diligenciado al terminar las operaciones teniendo en cuenta las observaciones hechas en las libretas de chequeo. El operador portuario informará al capitán de la nave y a su agente naviero cuando la carga a desembarcar o embarcar, incluyendo contenedores, presente averías o daños de empaque.

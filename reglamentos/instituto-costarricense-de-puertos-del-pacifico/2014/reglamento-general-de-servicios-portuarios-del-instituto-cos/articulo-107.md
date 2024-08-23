@@ -1,6 +1,1 @@
-CAPITULO XV
-Mercancías en Tránsito
-ARTICULO 107.- Se considera carga en tránsito la siguiente:
-a) Cuando ingrese al terminal de Caldera por vía marítima, permanezca en él y sea embarcada nuevamente en un buque diferente.
-b) Cuando ingrese a territorio nacional por las fronteras terrestres o por otros puertos del país y se embarque por el terminal de Caldera.
-c) Cuando ingrese al terminal de Caldera por vía marítima y salga del territorio nacional por cualquier otro lugar.
+ARTÍCULO 107.- Todos los casos de mercancías en tránsito requieren autorización previa del Operador portuario de carga y el cumplimiento de las normas aduaneras que regulan esta actividad.

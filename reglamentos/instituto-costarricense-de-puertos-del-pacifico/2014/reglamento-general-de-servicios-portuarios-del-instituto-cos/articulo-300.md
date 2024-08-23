@@ -1,0 +1,1 @@
+ARTÍCULO 300: Es prohibido para cualquier trabajador manejar u operar equipos sin autorización de la Administración del muelle, así como abrir o cerrar válvulas, interruptores de electricidad, gas, vapor, aire, etc., y si está autorizado para ello, deberá cerciorarse que su acción no ponga en peligro a otras personas.

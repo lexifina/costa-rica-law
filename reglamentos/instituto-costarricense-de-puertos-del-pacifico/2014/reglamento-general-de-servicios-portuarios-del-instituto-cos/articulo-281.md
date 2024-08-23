@@ -1,0 +1,1 @@
+ARTÍCULO 281: Los ingresos ocasionales serán otorgados a trabajadores de los usuarios que deban realizar esporádicamente labores dentro de las instalaciones del muelle, mismos que se incluirán con base en nota firmada por el o los dueños de las embarcaciones a quien le trabaja.

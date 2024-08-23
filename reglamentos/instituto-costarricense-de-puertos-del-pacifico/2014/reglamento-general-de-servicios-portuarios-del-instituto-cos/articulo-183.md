@@ -1,1 +1,3 @@
-ARTICULOS 183.- Los camiones cisterna que operan con carga peligrosa deben cumplir los requisitos establecidos en este reglamento para el manejo de esta clase de carga y contar con la autorización de la autoridad competente para el transporte de estos productos.
+CAPÍTULO II
+Servicios a las Naves
+ARTÍCULO 183.- Servicio de estadía: Corresponde a la ocupación del muelle por parte de las embarcaciones atracadas desde que se asegura la primera línea de amarre al atracar, hasta que se suelta la última línea de amarre al zarpe. Su tarifa es por metro de eslora/hora o fracción.

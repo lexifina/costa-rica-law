@@ -1,1 +1,1 @@
-ARTICULO 78.- Todo buque atracado debe usar redes salvacargas de costado, en las escotillas que se encuentren en operación.
+ARTÍCULO 78.- Inmediatamente después que concluya el atraque, los barcos deben tapar los puntos de desagüe para evitar que sean arrojados al muelle desechos o agua.

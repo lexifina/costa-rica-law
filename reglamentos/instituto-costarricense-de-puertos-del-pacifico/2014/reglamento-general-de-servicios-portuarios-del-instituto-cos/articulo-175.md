@@ -1,1 +1,1 @@
-ARTICULO 175.- Los vagones deben ser debidamente cerrados y marchamados en la bodega donde toman carga. En la puerta de salida se verificarán los documentos y el estado de los precintos colocados a los vagones y contenedores.
+ARTÍCULO 175.- Al ingresar al recinto portuario, todo vehículo debe declarar a la protección portuaria, la portación de herramientas o equipos del vehículo y la operación que deba realizar, de manera que a la salida no sean confundidas con carga portuaria.

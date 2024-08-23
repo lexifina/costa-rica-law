@@ -1,1 +1,5 @@
-ARTICULO 219.- El servicio de pilotaje será pagado normalmente por el armador o su representante, o por quien solicita el servicio en cada caso.
+TÍTULO XI
+Permiso para el funcionamiento de lanchas particulares
+CAPÍTULO I
+Disposiciones generales
+ARTÍCULO 219.- El INCOP podrá autorizar la operación de lanchas de particulares en actividades relacionadas con las operaciones portuarias. Esta autorización será extendida por la Gerencia General y/o Presidencia Ejecutiva de la Institución.

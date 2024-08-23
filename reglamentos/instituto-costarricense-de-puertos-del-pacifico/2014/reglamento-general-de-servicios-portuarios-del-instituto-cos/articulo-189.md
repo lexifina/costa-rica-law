@@ -1,8 +1,5 @@
-ARTÍCULO 189.- Los conductores de vehículos dentro del recinto portuario están obligados a:
-a) Circular por las vías señaladas.
-b) Respetar el límite de velocidad establecido (20 Kilómetros por hora)
-c) Estacionar únicamente en los lugares indicados para tal fin.
-d) Abstenerse de hacer reparaciones, lavar los vehículos y arrojar basuras o residuos.
-e) En caso de avería, retirar de inmediato el vehículo de la zona portuaria.
-f) Permanecer cerca de sus vehículos y abstenerse de deambular por el recinto portuario.
-g) Respetar todas las disposiciones de este Título VIII.
+CAPÍTULO III
+Servicios Básicos a la Carga
+ARTÍCULO 189.- Servicio de Transferencia: Consiste en la transferencia mecánica de las mercancías desde el muelle al pie del gancho hasta el sitio de estiba en bodegas y patios o viceversa.
+El Operador portuario asignará el equipo de transferencia que se requiera para atender la nave según las características de la carga buscando la máxima eficiencia y productividad en las operaciones de cargue y descargue. En el caso del despacho directo de carga (contenedor, mercancía general, cajas hierro, etc) del buque, si al bajar la carga al piso no hay un camión del transportista asignado a este buque, la carga será trasladada con equipo del puerto a un patio y por ende aplicará la tarifa correspondiente de transferencia. La tarifa es por TM excepto en el caso de los contenedores (incluye los de tránsito o trasbordo) que es por movimiento.
+El cobro se hará al armador, al consignatario o al embarcador según las condiciones del contrato de transporte. Situación que se debe informar al momento de presentar la solicitud de servicios.

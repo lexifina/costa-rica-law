@@ -1,0 +1,1 @@
+ARTÍCULO 247: Por determinación de la administración de cada muelle y/o el Oficial de Protección de Instalaciones Portuarias, toda embarcación que ponga en riesgo de peligro o pueda dañar las instalaciones portuarias, no será atracada.

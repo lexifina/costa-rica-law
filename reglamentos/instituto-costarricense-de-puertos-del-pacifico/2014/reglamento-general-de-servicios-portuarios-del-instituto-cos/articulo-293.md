@@ -1,0 +1,1 @@
+ARTÍCULO 293.- El INCOP determinará la cantidad de vehículos que podrán ingresar en función de la operatividad del puerto, para tales efectos los representantes de las embarcaciones deberán coordinar lo pertinente con el funcionario de INCOP asignado, procurando un ordenamiento adecuado y seguro para las personas, vehículos e infraestructura del puerto.

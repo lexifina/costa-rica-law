@@ -1,1 +1,1 @@
-ARTICULO 118.- Durante las operaciones de cargue o descargue de explosivos y productos inflamables, se deben colocar en el sitio y en las escalerillas de acceso, letreros indicativos de peligro y las prohibiciones pertinentes.
+ARTÍCULO 118.- Toda carga clasificada como peligrosa debe tener colocado en parte visible el rótulo que especifique la clasificación IMCO para que el Operador portuario de carga pueda tomar las medidas de almacenaje y segregación que sean necesarias. La responsabilidad por la rotulación de la carga es del armador o su representante.

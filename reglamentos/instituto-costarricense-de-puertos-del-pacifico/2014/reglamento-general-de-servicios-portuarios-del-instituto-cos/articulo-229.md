@@ -1,1 +1,1 @@
-ARTICULO 229.- Los permisos otorgados tendrán una duración de un año, al cabo del cual quedarán automáticamente caducos.
+ARTÍCULO 229.- El propietario de la embarcación autorizada para operar por el INCOP, deberá cubrir los costos de las inspecciones que efectúe el INCOP sobre la nave, mediante sus funcionarios técnicos cuando el Gerente General considere que dicha embarcación debe someterse a una revisión.

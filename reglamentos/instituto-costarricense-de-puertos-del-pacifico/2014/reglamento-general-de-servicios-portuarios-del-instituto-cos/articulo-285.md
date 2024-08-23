@@ -1,0 +1,1 @@
+ARTÍCULO 285: Cuando una persona ya no labore para una embarcación, el dueño o administrador deberá informarlo a la Administración del muelle mediante una nota o correo electrónico para proceder a retirarlo de la Lista correspondiente.

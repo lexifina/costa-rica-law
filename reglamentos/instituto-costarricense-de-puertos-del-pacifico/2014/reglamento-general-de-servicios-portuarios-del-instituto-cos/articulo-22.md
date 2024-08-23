@@ -1,1 +1,2 @@
-ARTICULO 22.- La solicitud de atención al buque implica todo tipo de servicio propio de la operación. Los servicios adicionales, tales como teléfono a bordo, telex, energía eléctrica, etc., deben solicitarse según sea necesario conforme se indica en el Artículo 18 de este Reglamento.
+ARTÍCULO 22.- En caso de que el cobro de los servicios prestados sobrepase el depósito, el usuario debe cancelar a más tardar el quinto día hábil siguiente de la remisión de la factura la diferencia que corresponda; de no hacerlo, el Operador portuario podrá actuar conforme al artículo 8 de este reglamento.
+En caso de que el saldo de la liquidación sea acreedor, su importe permanecerá acreditado para aplicarse a próximos servicios.

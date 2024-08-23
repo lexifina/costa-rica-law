@@ -1,1 +1,1 @@
-ARTICULO 174.- Está terminantemente prohibido lanzar desechos o basuras desde las plataformas y vagones en el área portuaria. La limpieza de este equipo se debe hacer fuera del terminal.
+ARTÍCULO 174.- Los camiones cisterna que operan con carga peligrosa deben cumplir con el Reglamento para el Transporte Terrestre de Productos Peligrosos y contar con la autorización de la autoridad competente para el transporte de estos productos.

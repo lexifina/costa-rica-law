@@ -1,0 +1,1 @@
+ARTÍCULO 252: La Administración de cada muelle puede ordenar la suspensión de labores y el desatraque de una embarcación cuando considere que la forma y condiciones de trabajo perjudican las labores en el Muelle, la atención de otras naves o dañen de alguna manera las instalaciones del muelle.

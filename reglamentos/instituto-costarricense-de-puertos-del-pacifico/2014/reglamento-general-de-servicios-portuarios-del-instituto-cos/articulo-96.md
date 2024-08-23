@@ -1,1 +1,1 @@
-ARTICULO 96.- En el recibo de la carga del buque por parte del Prestatario del Servicio de carga, éste no es responsable por el contenido ni por vicios ocultos o daños que la mercancía haya sufrido. Tampoco responderá por averías o pérdidas debido a fuerza mayor o caso fortuito.
+ARTÍCULO 96.- El operador portuario tendrá los mismos derechos y protección que los barcos porteadores en relación con el conocimiento de embarque.
