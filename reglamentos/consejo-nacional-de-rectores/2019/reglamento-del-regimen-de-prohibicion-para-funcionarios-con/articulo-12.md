@@ -1,0 +1,1 @@
+Artículo 12.-Cuando el Departamento de Gestión y Talento Humano tenga evidencia del incumplimiento del presente régimen, procederá de inmediato a informar a la Dirección de OPES, a fin de que se proceda a conformar un órgano director del debido proceso que emita su recomendación.
