@@ -1,0 +1,2 @@
+ARTÍCULO 27- Modificación de las condiciones para la prestación del servicio
+Cuando pueda afectarse el interés público o la prestación del servicio, de forma excepcional, previa autorización de JAPDEVA, podrán modificarse las condiciones de la prestación del servicio de cabotaje autorizadas en el permiso. Lo anterior, mediante nota formal a JAPDEVA la cual tendrá un plazo de hasta 14 días naturales para responder a quien lo solicita y la vigencia es de 28 días naturales.

@@ -1,0 +1,3 @@
+ARTÍCULO 8- Unidad competente.
+La aplicación de este reglamento estará a cargo de la Unidad de Tierras y Canales de la Gerencia de Desarrollo y tendrá dentro de sus competencias la realización de los estudios para regular toda la navegación de los Canales del Norte, las regulaciones que surjan de dichos estudios deberán ser aprobados por el Consejo de Administración Superior.
+La Unidad de Tierras y Canales procurará fomentar la sostenibilidad, la eficiencia en la gestión de los recursos naturales y la protección de los ecosistemas. Todo esto se logrará a través de la implementación de estrategias de desarrollo sostenible y la promoción de la navegación segura y responsable en los Canales del Norte.

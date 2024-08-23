@@ -1,0 +1,2 @@
+ARTÍCULO 38- Levantamiento de las actas
+Según lo estipulado en este reglamento, cualquier irregularidad que resulte en una infracción será documentada en un acta elaborada por la Unidad de Tierras y Canales de JAPDEVA. El contenido de dicha acta estará sujeto a las regulaciones establecidas en el reglamento y deberán ser adjuntada al expediente que se cree para cada embarcación que gestione la solicitud de autorización para navegar.

@@ -1,0 +1,2 @@
+ARTÍCULO 31- Obligación de notificar eventos de contaminación
+Los capitanes, armadores, propietarios y responsables de las embarcaciones están obligados a informar de manera inmediata a la Unidad de Tierras y canales de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) y al Ministerio de Ambiente y Energía sobre cualquier incidente de contaminación del que tengan conocimiento o evidencia.

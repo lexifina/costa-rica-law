@@ -1,0 +1,5 @@
+ARTÍCULO 16- Navegación dentro de los límites del Parque Nacional Tortuguero
+La administración de la vía acuática, asignada a JAPDEVA en el segmento del Parque Nacional Tortuguero, requiere una coordinación efectiva con SINAC y la División Marítimo-Portuaria del MOPT.
+Aunque cada entidad tiene responsabilidades y competencias distintas, la sinergia y coordinación con ellas son fundamentales para alcanzar los objetivos sociales, ambientales y de desarrollo económico.
+El Plan de Manejo del SINAC para el Parque Nacional Tortuguero, se utilizarán como guía para que JAPDEVA pueda establecer las restricciones de navegación necesarias en las diferentes zonas.
+Además, es esencial que JAPDEVA se integre completamente en los procesos de creación y actualización de los Planes de Manejo de las Áreas Silvestres Protegidas que promueva el SINAC, cuando puedan afectar los intereses de la institución. Debiendo asegurarse de que sus competencias no se vean disminuidas, y teniendo capacidad de generar sus propios estudios técnicos, y comparar con lo que aporten otras instituciones.
