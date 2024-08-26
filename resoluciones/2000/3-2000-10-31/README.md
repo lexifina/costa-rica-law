@@ -16,3 +16,4 @@ Definición de títulos y categorías ocupacionales
 | 1 | 2001-01-01 | la propia norma |
 | 2 | 2009-12-14 | Acuerdo 0 (2009-12-14) |
 | 3 | 2024-07-08 | Resolución 1 (2024-07-08) |
+| 4 | 2024-08-26 | Resolución 3 (2024-08-26) |
