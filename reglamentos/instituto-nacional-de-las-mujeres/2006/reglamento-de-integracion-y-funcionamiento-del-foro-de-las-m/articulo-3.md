@@ -1,5 +1,7 @@
 CAPÍTULO II
 Naturaleza y funciones del foro de las mujeres
-Artículo 3º—Naturaleza y funciones. El Foro de las Mujeres del INAMU es el órgano de carácter consultivo del Instituto. Tendrá competencia para discutir y emitir criterio sobre aquellos asuntos que:
-a) La Junta Directiva o la Presidencia Ejecutiva del Instituto someta a su conocimiento, relacionados con los fines del Instituto.
-b) Aquellos asuntos relacionados con los fines del Instituto que este órgano consultivo determine. Para estos efectos, el Foro podrá solicitar a la Junta Directiva y la Presidencia Ejecutiva del INAMU los informes que requiera para cumplir con esta función y tener acceso a la documentación generada por estas instancias.
+Artículo 3º-Naturaleza y ámbito de competencias. El Foro de las Mujeres es la instancia de diálogo y generación de acuerdos con la participación conformado por las representantes de organizaciones sociales de hecho o derecho, que trabajan a favor de los derechos humanos de las mujeres, en todas sus diversidades y en todas sus condiciones.
+El objetivo del Foro de las Mujeres será fungir como órgano colegiado de carácter consultivo del Instituto Nacional de las Mujeres cuando así lo decida la Presidencia Ejecutiva o la Junta Directiva, en el marco de sus competencias.
+El ámbito de sus competencias estará delimitado por aquellos asuntos que le sean sometidos por la Junta Directiva o la Presidencia Ejecutiva del INAMU, de forma discrecional, a través de la dependencia designada, quien deberá establecer los alcances de la consulta.
+Sus pronunciamientos no serán vinculantes y por ningún motivo se podrá entender como obligatoria la consulta de algún tema al Foro, sin importar la naturaleza de esta. En ninguna circunstancia, el Foro asumirá o sustituirá las competencias del Instituto.
+Los pronunciamientos del Foro se emitirán mediante informe sobre el asunto sometido a consideración. Dicho informe deberá consignar decisiones de consenso de mayoría, así como posiciones de minoría indicando, para todos los casos, quienes las respaldan.

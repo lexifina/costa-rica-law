@@ -17,3 +17,4 @@ Reglamento de Integración y Funcionamiento del Foro de las Mujeres del Institut
 | 2 | 2007-06-14 | Reglamento 0 (2007-06-14) |
 | 3 | 2009-10-19 | Acuerdo 114 (2009-10-19) |
 | 4 | 2012-04-25 | Reglamento 11 (2012-04-25) |
+| 5 | 2024-08-26 | Reglamento 31 (2024-08-26) |
