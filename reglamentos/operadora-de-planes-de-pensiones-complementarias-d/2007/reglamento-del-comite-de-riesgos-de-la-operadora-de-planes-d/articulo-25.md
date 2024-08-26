@@ -1,5 +1,7 @@
 Artículo 25.-Actas. El libro de actas se llevará conforme a lo establecido en el Reglamento de Riesgo y las disposiciones de la Superintendencia de Pensiones para la utilización del libro de actas electrónico.
-Las actas electrónicas deberán ser firmadas por el Presidente y el Secretario del Comité de Riesgos.
+Las actas deberán ser firmadas por el Presidente y el Secretario del Comité de Riesgos, debidamente facultados o designados para tales efectos, mediante el uso de un certificado de firma digital, según lo dispuesto en la legislación vigente.
 De cada sesión se elabora un acta digital, la cual deberá contener la asistencia, las circunstancias de lugar físico o virtual y el tiempo en que se ha celebrado, los puntos principales de la deliberación, el plazo con el que los encargados de cumplir los acuerdos cuentan para ello, la forma y el resultado de la votación indicando expresamente cómo votó cada integrante y el contenido de los acuerdos, todo lo cual permitirá conocer el motivo de los actos.
 Los acuerdos tomados carecen de firmeza, salvo que las personas presentes que integren el Comité acuerden su firmeza por votación de dos tercios de la totalidad de las personas que integran el órgano correspondiente. Las personas integrantes del Comité pueden hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen; contenido del voto salvado que debe comunicarse junto con el acto adoptado.
+Las actas de las sesiones del Comité de Riesgos deben estar a disposición de la Superintendencia de Pensiones, por los medios que para tal efecto determine el Superintendente.
 (Así adicionado mediante sesión ordinaria Nº 684 del 15 de junio del 2022)
+(Así reformado en sesión N° 756 del 26 de agosto de 2024)

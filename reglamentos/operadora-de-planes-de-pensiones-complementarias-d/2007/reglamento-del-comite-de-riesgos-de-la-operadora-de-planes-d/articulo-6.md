@@ -1,5 +1,5 @@
 Artículo 6º-De la conformación del Comité de Riesgos. El Comité de Riesgos de la Operadora estará integrado por los siguientes miembros los cuales tendrán derecho a voz y voto:
-a) Al menos dos miembros del Órgano de Dirección de Popular Pensiones OPC.
+a) Un mínimo de tres miembros, uno de los cuales debe ser un director independiente del Órgano de Dirección de Popular Pensiones OPC.
 b) Un miembro externo, quien presidirá el Comité de Riesgos en cumplimiento a lo establecido en el artículo 14 del Reglamento de Riesgo aplicable a la industria de pensiones. En caso de empate, ejercerá el doble voto de acuerdo con la Ley General de la Administración Pública.
 La conformación del Comité de Riesgo se estará rotando cada cuatro años naturales con nuevos miembros para evitar la concentración excesiva del poder y promover nuevas perspectivas. Le corresponderá al Órgano de Dirección establecer si dicha rotación será total o parcial.
 Los miembros del Comité de Riesgos deberán de cumplir con los requisitos indicados en el artículo 15 del Reglamento de Riesgo aplicable a la industria de pensiones.
@@ -7,4 +7,4 @@ Podrán asistir con derecho a voz, pero sin voto el Gerente General de la Operad
 El quórum para sesionar quedará conformado por dos miembros con derecho a voz y voto, siempre y cuando se encuentre presente al menos una persona integrante de la Junta respectiva. Quienes se abstengan, se computan para efectos de quórum.
 El representante designado por cada uno de los fondos especiales, que mediante convenio o relación contractual sean administrados por Popular Pensiones, podrá participar en las sesiones del Comité de Riesgo, con voz y voto, únicamente en aquellos asuntos que tengan relación directa con el Fondo que representa, no siendo considerado este miembro para efectos de la conformación del quórum.
 Las decisiones de los miembros no deben estar afectadas por conflictos de intereses, por lo tanto, los miembros deberán abstenerse de emitir su criterio y/o votar en los temas en los cuales podrían tener algún interés propio ajeno a su labor dentro del Comité y retirarse temporalmente de las sesiones mientras se discute la información pertinente. Sus acciones deberán cumplir lo establecido en el "Código de Gobierno Corporativo del Conglomerado Financiero Banco Popular y de Desarrollo", específicamente lo establecido en el Capítulo IV Otros Lineamientos Generales de Gobierno Corporativo.
-(Así reformado mediante sesión ordinaria Nº 684 del 15 de junio del 2022)
+(Así reformado en sesión N° 756 del 26 de agosto de 2024)

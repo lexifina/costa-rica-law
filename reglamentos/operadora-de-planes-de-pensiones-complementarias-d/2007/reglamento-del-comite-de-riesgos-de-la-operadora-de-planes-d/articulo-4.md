@@ -2,23 +2,26 @@ TÍTULO II
 Administración del riesgo
 CAPÍTULO I
 Del Órgano de Dirección
-Artículo 4º—De la Junta Directiva. Corresponde a la Junta Directiva de la Operadora las siguientes funciones de revisión y crítica determinativa:
-a) Establecer las políticas para que la Operadora mantenga, permanentemente, una adecuada evaluación, administración y valoración de los riesgos. Tales políticas deben definir los criterios bajo los cuales la organización en general debe evaluar, calificar y controlar los riesgos de la entidad y de los fondos administrados.
-b) Adoptar las políticas y acciones necesarias para asegurar el cumplimiento estricto de las instrucciones mínimas que hayan sido definidas por la Junta Directiva.
-c) Velar por el correcto cumplimiento de las políticas definidas en procura de un adecuado control de los riesgos a los que se expone la Operadora.
-d) Nombrar el miembro externo que participa en el Comité, señalado en el Reglamento de Inversiones de las Entidades Reguladas, mediante terna presentada por la Gerencia de la Operadora, por un plazo de dos años, pudiendo ser prorrogado su nombramiento por periodos iguales. Será potestad de la Junta Directiva de Popular Pensiones S. A., el nombramiento y remoción del mismo.
-e) Comprobar el cumplimiento de los requisitos establecidos para los miembros del Comité de Riesgos, según lo establece el Reglamento de Inversiones de las Entidades Reguladas y ratificar el nombramiento realizado por la Gerencia del resto de los miembros del Comité, de acuerdo con lo establecido en dicho artículo. Complementariamente, deberá verificar que los miembros del Comité cuenten con experiencia en el análisis de riesgos.
-F) Aprobar:
-i. Los límites de exposición al riesgo de manera global y por tipo de riesgo.
-ii. Las estrategias de cobertura de riesgo cambiario necesarias para la operativa de las inversiones en distintas monedas.
-iii. La metodología para identificar, medir, monitorear, limitar, controlar, informar y revelar los distintos tipos de riesgos a que se encuentren expuestos los recursos que administran. Para cada tipo de riesgo la entidad deberá definir una estrategia para su administración y control.
-iv. Los modelos, parámetros y escenarios que habrán de utilizarse para llevar a cabo la medición y el control de los riesgos.
-v. La realización de nuevas operaciones y prestación de nuevos servicios que, por su propia naturaleza, conlleven un riesgo. Lo anterior, de previo a su discusión en el Comité de Inversiones de la Operadora.
-vi. Las estrategias necesarias para la administración de riesgos de productos financieros que involucren el uso de derivados financieros por parte de la entidad regulada.
-Los puntos antes indicados formarán parte del Manual de Políticas y Procedimientos para la Administración Integral de Riesgos de la Operadora, de acuerdo con lo establecido en el Reglamento de Inversiones de las Entidades Reguladas.
-Lo señalado en los puntos i) y ii) del inciso d) deben ser revisados, cuando menos, una vez al año, sin perjuicio de realizar dicha función con mayor frecuencia en respuesta a las condiciones del mercado o de la Operadora.
-g) Conocer y analizar, al menos trimestralmente, los informes remitidos por el Comité de Riesgos sobre la exposición de los fondos administrados a los distintos riesgos y los potenciales efectos negativos que se podrían producir en la marcha de la Operadora, por la inobservancia de los límites de exposición previamente establecidos, así como establecer las acciones que considere pertinentes.
-h) En caso de incumplimiento del régimen de inversión aplicable, conocer el informe correspondiente y sus posibles repercusiones, de acuerdo con lo establecido en el Reglamento de Inversiones de las Entidades Reguladas.
-i) Aprobar la estrategia de cobertura de riesgo cambiario en función de las divisas en que se denominen las inversiones de emisores extranjeros. Esta estrategia debe ser elaborada por el Comité de Riesgos de la Operadora.
-j) Nombrar, mediante acuerdo, al responsable de la auditoría de riesgos. La firma, su personal o el experto independiente que lleve a cabo esta función deberá cambiarse al menos cada cinco años.
-k) Conocer y analizar los informes finales sobre las auditorías de riesgos y los informes que le someta el Comité de Riesgos sobre las medidas correctivas derivadas de las auditorías relativas a los procedimientos de administración de riesgos.
+Artículo 4º-Del Órgano de Dirección. Corresponde a la Junta Directiva de la Operadora las siguientes responsabilidades de aprobar y mantener la estrategia de gestión de riesgos de los fondos administrados. En este rol le corresponde, entre otros:
+a) Actuar de buena fe, en busca de los mejores intereses de los afiliados y pensionados; es decir, tiene una responsabilidad fiduciaria con los afiliados y pensionados de los fondos administrados. Además, sus decisiones no deben estar afectadas por conflictos de intereses.
+b) Aprobar y revisar periódicamente la planificación estratégica, incluida la de tecnologías de información. La planificación estratégica incluye metas, objetivos, identificación de los procesos sustantivos, de los riesgos relevantes que podrían afectar la consecución de los objetivos de la entidad y de los fondos administrados.
+c) Aprobar y evaluar periódicamente la planificación estratégica de las inversiones De acuerdo con las características de cada fondo administrado, la planificación debe incluir la declaración de apetito de riesgo para los riesgos a los que están expuestas las inversiones, los objetivos de rentabilidad para los fondos administrados y la asignación estratégica de activos.
+d) Aprobar, revisar y ajustar periódicamente, si corresponde, las políticas de inversión de los recursos pertenecientes a los fondos administrados.
+e) Velar, con el apoyo de los comités técnicos, porque la gestión de las inversiones se realice de una manera prudente para alcanzar los objetivos planteados, con base en criterios técnicos, transparencia y estándares éticos.
+f) Vigilar, para el caso de los fondos de beneficio definido, la solvencia del fondo e informar a los afiliados, pensionados y otras partes interesadas acerca de ello y de las acciones que se están tomando para conseguir o mantener el nivel de solvencia adecuado y los riesgos que se están asumiendo para ello.
+g) Aprobar la estructura organizacional y funcional de la entidad regulada y proporcionar los recursos necesarios para el cumplimiento de sus responsabilidades.
+h) Asegurar que la organización cumple con la legislación y regulación aplicable, con las políticas, códigos y otras disposiciones internas aprobados por esta, así como con los planes de acción presentados a la SUPEN y a los Órganos de Control o al mismo Órgano de Dirección.
+i) Aprobar el marco de gestión de riesgos.
+j) Aprobar y mantener una estrategia de gestión de riesgo y políticas asociadas, cerciorándose de su difusión e implementación por las restantes áreas de la organización. Además, debe velar por el desarrollo de una Cultura de Riesgo, la formulación de la Declaración de Apetito de Riesgo y la definición de las responsabilidades sobre la gestión y control de riesgos. El análisis de los riesgos considerados debe contemplar aquellos asociados a factores ambientales, sociales y de gobernanza.
+k) Aprobar y dar seguimiento, junto con la Alta Gerencia y, cuando corresponda, con el gerente o director de riesgos o equivalente, el Apetito de Riesgo de la entidad en relación con los fondos administrados.
+l) Aprobar y supervisar el cumplimiento de la Declaración de Apetito de Riesgo. Esta incluye, entre otros:
+i. Consideraciones cuantitativas y cualitativas.
+ii. El nivel y tipos de riesgo que la entidad está dispuesta a asumir con el fin de desarrollar sus actividades o negocios dentro de su Capacidad de Riesgo individual y agregada.
+iii. Límites y consideraciones comerciales u operacionales, de conformidad con la estrategia de negocio o actividades sustantivas.
+El Apetito de Riesgo debe comunicarse a toda la entidad para que sea vinculado a la toma de decisiones operativas diarias.
+m) Aprobar y supervisar la implementación de procesos de autoevaluación de riesgos de la entidad, las políticas de cumplimiento y el sistema de control interno.
+n) Aprobar planes de contingencia y de continuidad del negocio, incluyendo tecnologías de información, que aseguran su capacidad operativa y que reducen o limitan las pérdidas en caso de una interrupción de sus operaciones.
+o) Establecer los mecanismos de aprobación requeridos para las desviaciones de la estrategia de gestión de riesgos o de los riesgos tomados en exceso respecto del Apetito de Riesgo declarado.
+p) Definir y comunicar las responsabilidades en torno a la gestión y control de los riesgos. Esta responsabilidad implica la identificación de las Líneas de Defensa, así como la formulación de políticas y controles apropiados y alineados a la Declaración de Apetito de Riesgo.
+q) Aprobar la designación o el cese del director de riesgos o equivalente.
+(Así reformado en sesión N° 756 del 26 de agosto de 2024)

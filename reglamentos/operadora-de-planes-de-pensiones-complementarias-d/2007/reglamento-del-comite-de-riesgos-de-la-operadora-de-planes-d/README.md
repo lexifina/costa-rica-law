@@ -23,3 +23,4 @@ Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complem
 | 8 | 2020-02-26 | Reglamento 586 (2020-02-26) |
 | 9 | 2021-06-16 | Reglamento 645 (2021-06-16) |
 | 10 | 2022-06-15 | Reglamento 684 (2022-06-15) |
+| 11 | 2024-08-26 | Reglamento 756 (2024-08-26) |
