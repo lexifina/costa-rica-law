@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-03-15 | la propia norma |
+| 2 | 2024-08-26 | Resolución 217 (2024-08-26) |
