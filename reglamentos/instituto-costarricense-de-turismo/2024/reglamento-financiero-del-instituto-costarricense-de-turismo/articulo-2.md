@@ -1,0 +1,1 @@
+Artículo 2. Objetivos. El presente reglamento será aplicable para los trámites, cumplimiento normativo y para la emisión de información financiera-contable o presupuestaria por parte del Departamento Financiero y el Departamento de Administración Tributaria.

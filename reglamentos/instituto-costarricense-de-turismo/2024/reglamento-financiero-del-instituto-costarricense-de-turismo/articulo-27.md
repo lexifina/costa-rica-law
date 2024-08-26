@@ -1,0 +1,1 @@
+Artículo 27. Contenido presupuestario y económico. Todas las compras o pagos que se realicen por medio de Caja Chica Funcionarios deberán contar con el debido contenido presupuestario y económico, siendo responsabilidad de las jefaturas de las unidades ejecutoras del ICT velar por el cumplimiento de esta disposición.

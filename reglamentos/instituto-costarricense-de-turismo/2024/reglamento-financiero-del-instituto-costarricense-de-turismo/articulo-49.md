@@ -1,0 +1,2 @@
+Gastos por situaciones de emergencia
+Artículo 49. Los gastos en declaratorias de emergencia. En cumplimiento a lo dispuesto en la Ley Nacional de Emergencias y Prevención del Riesgo N°8488, artículo 45, estos gastos deberán ser autorizados por los funcionarios asignados por la Administración, de conformidad con los procedimientos que se establezcan y con el asesoramiento de la Comisión Nacional de Emergencias.

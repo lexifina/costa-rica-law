@@ -1,0 +1,1 @@
+Artículo 9. De la coordinación. La Jefatura del Departamento Financiero contará con el apoyo de un Coordinador, quien sustituirá al titular en sus ausencias temporales, el cual deberá atender, de igual forma, las funciones del titular durante ese período.

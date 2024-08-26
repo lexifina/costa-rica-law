@@ -1,0 +1,1 @@
+Artículo 4. Estructura orgánica. El Departamento Financiero y el Departamento de Administración Tributaria dependen de la Dirección Administrativa Financiera, y son los departamentos competentes de control en cuanto al seguimiento, evaluación, fiscalización y ejecución de los ingresos y egresos del ICT y su correspondiente registro, según las funciones de su competencia.

@@ -1,0 +1,1 @@
+Artículo 53. Lineamiento de adelantos de pago. Se observará lo que indica el "Lineamiento para el uso, control y liquidación de los adelantos de pagos" del Instituto Costarricense de Turismo, en donde se indicará como gestionar esa facilidad.

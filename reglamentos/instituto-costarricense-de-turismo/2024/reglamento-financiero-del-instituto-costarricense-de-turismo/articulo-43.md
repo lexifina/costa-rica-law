@@ -1,0 +1,1 @@
+Artículo 43. Liquidación. Estas erogaciones están sujetas a liquidación y posterior verificación. Cuando participen en atenciones y recepciones (cenas, bufetes, entre otros), no pueden hacer uso de la tarifa que se estipula en el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos.

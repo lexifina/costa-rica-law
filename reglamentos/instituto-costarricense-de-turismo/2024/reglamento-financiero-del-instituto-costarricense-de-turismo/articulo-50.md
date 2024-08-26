@@ -1,0 +1,2 @@
+Gastos de alimentos y bebidas
+Artículo 50. Gastos de alimentos y bebidas. Los gastos de la partida presupuestaria de alimentos y bebidas incluyen los gastos de comida y otros servicios de restaurante brindados en la atención de usuarios externos que participen en reuniones de trabajo y otras actividades, los cuáles se regulan de forma específica en el: "Lineamiento para el uso, control y liquidación de los gastos con cargo a la partida presupuestaria "Alimentos y Bebidas".

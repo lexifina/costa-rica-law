@@ -1,0 +1,1 @@
+Artículo 41. Publicación del trámite. Todo trámite que se realice mediante el mecanismo de Caja Chica de excepción deberá ser publicado en el sistema digital unificado, SICOP, dejando constancia de toda la documentación generada en relación con la compra realizada y atendiendo lo que pida la normativa externa o interna.

@@ -1,0 +1,1 @@
+Artículo 29. Monto para la apertura del fondo. La propuesta del Departamento Financiero presentada a la Dirección Administrativa Financiera para su autorización se hará con base en la estimación de los gastos menores a atender mediante esta modalidad, en aras de una ágil y eficiente gestión institucional.

@@ -1,0 +1,5 @@
+Artículo 20. Recaudación. Funciones. Las funciones del área de Recaudación son las siguientes:
+a) Llevar el control, registro y seguimiento en la recaudación de los impuestos 5% a) "CR", 5% b) "OU" y $15 "NW".
+b) Llevar el control, registro y seguimiento en la recaudación del impuesto 5% a) "CR", a las empresas de transporte terrestre internacional, en la modalidad regular y ocasional.
+c) Llevar el control, registro y seguimiento en la recaudación del impuesto $15 a empresas que prestan servicio de transporte aéreo no itinerado, denominados vuelos "chárter", así como "vuelos privados", los cuáles se encuentran regulados en el "Reglamento para la percepción, control, administración y fiscalización del impuesto de quince dólares netos (USD $15.00) por el ingreso al país vía aérea, mediante boleto adquirido en el exterior."
+d) Aplicar los pagos por concepto de ingresos tributarios y no tributarios, percibidos a través de depósitos o transferencias, y de la ventana de trámites ubicada en el Departamento.

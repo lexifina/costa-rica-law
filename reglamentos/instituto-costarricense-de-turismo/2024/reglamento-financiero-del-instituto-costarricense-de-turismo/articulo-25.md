@@ -1,0 +1,1 @@
+Artículo 25. Creación del Fondo. Se establece un Fondo Fijo-Caja Chica funcionarios, para el cual se utiliza como referencia, para su cálculo, el salario base vigente. El monto autorizado, de previo, por el Director Administrativo Financiero se fijará utilizando un factor para multiplicar el monto del salario base y así obtener la suma fija para operar dicho fondo.

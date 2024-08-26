@@ -1,0 +1,1 @@
+Artículo 28. Normativa aplicable al Fondo Fijo-Caja Chica funcionarios. La operación de Caja Chica Funcionarios deberá sujetarse a las disposiciones emitidas por la Gerencia General del ICT en relación con este tema.

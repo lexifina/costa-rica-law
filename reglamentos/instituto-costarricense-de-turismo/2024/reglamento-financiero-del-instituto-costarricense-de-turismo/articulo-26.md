@@ -1,0 +1,1 @@
+Artículo 26. Disposiciones generales. Regular la creación, manejo, custodia y cierre de la Caja Chica Funcionarios, del Instituto Costarricense de Turismo. Las compras que se realicen mediante este mecanismo no pueden corresponder a un procedimiento ordinario de contratación o exceptuado. Cada vale tramitado no podrá sobrepasar el monto de un salario base.

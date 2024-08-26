@@ -1,0 +1,1 @@
+Artículo 48. Trámites de gastos por actividades protocolarias. Los gastos por actividades protocolarias y sociales, que por su naturaleza y debidamente justificado, no se enmarcan dentro de los procedimientos ordinarios de contratación pública, se tramitarán según lo indicado en este reglamento y en los lineamientos o circulares que emita la Proveeduría Institucional.

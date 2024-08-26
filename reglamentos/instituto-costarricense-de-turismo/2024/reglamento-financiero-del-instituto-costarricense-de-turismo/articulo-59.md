@@ -1,0 +1,1 @@
+Artículo 59. Calificación de faltas. Para la calificación de las faltas se aplicará la normativa que corresponda indicada en el artículo No. 1 de este Reglamento, sin menoscabo de que la misma sea competencia de otra normativa en vigencia, en cuyo caso se deberán de realizar los procesos necesarios para ser atendida como corresponda.
