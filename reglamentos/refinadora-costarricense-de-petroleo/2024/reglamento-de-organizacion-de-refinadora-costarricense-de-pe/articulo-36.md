@@ -1,0 +1,15 @@
+Artículo 36°- Unidad de Inteligencia de Negocios: Su objetivo es realizar investigación y analítica de datos para mejorar los procesos productivos y productos de la empresa, con el fin de contar con información para desarrollar el Plan Maestro del Sistema Nacional de Combustibles y tomar decisiones empresariales.
+Tiene las siguientes funciones:
+1. Monitorear las tendencias mundiales y nacionales y las proyecciones de consumo de energía a fin de generar información y herramientas que den soporte al desarrollo de proyectos, e identificar cómo estos pueden impactar y ser aprovechados por RECOPE en el planteamiento de su estrategia de negocio.
+2. Implementar herramientas que permitan elaborar el Plan Maestro del Sistema Nacional de Combustibles, según la evolución de la oferta y demanda de energía y sus tendencias a nivel nacional e internacional.
+3. Realizar los diagnósticos de la infraestructura como insumo de las herramientas de planificación del Sistema Nacional de Combustibles (SNC).
+4. Elaborar las estimaciones de demanda de combustibles de mediano y largo plazo.
+5. Recibir insumos de otras áreas sobre combustibles alternativos y aditivos para el transporte y la industria, o mejoras de procesos, que puedan afectar el Plan Maestro del SNC o las proyecciones de demanda de mediano y largo plazo con el fin de analizarlas y, si fuera el caso, incluirlas dentro de los modelos.
+6. Elaborar investigaciones y diagnósticos relacionados con el rendimiento, eficiencia y emisiones de los combustibles actuales y alternativos, aditivos y tecnologías para el transporte y la industria que puedan afectar el Plan Maestro del SNC o las proyecciones de demanda de mediano y largo plazo con el fin de analizarlas y, si fuera el caso, incluirlas dentro de los modelos.
+7. Colaborar, en lo que a la Empresa compete, en la elaboración del balance energético nacional, diagnóstico energético integral y plan nacional de energía.
+8. Coordinar con los equipos multidisciplinarios interdepartamentales de las actividades asignadas a la Unidad de Inteligencia de Negocios.
+9. Gestionar todos los diagnósticos empresariales enfocados a generar los insumos necesarios en la toma de decisiones de los proyectos de mejora del Sistema Nacional de Combustibles.
+La Unidad de Inteligencia de Negocios está a cargo de una jefatura que tiene un puesto de jefe(a), posee las características de un órgano operativo. El superior inmediato es la jefatura del Departamento de Modernización Empresarial.
+Por la naturaleza de sus funciones, mantiene relaciones con todos los órganos de la Estructura.
+La coordinación con entidades externas se debe llevar a cabo por medio de la jefatura del departamento al que está adscrito y tiene relaciones externas con empresas suplidoras de bienes y servicios, Ministerios del Gobierno, entidades públicas relacionadas con la actividad de la Empresa, empresas que suministran información sobre mercado petrolero y flete marítimo, Organismos Internacionales del sector energético.
+No tiene dependencias directas.
