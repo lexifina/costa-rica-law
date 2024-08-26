@@ -1,0 +1,1 @@
+ARTÍCULO 4º-Derogatorias. Deróguese el Decreto Ejecutivo N°41124-MINAE del cinco de abril del 2018, publicado en la Gaceta 94, del 29 de mayo del 2018, Reglamento para la Gestión y Reconocimiento de Servicios Ecosistémicos.
