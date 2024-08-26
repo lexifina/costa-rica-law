@@ -1,1 +1,0 @@
-Artículo 15.—Toda la información empresarial deberá clasificarse según lo que se establece en la Política Corporativa de Confidencialidad de la Información, aprobada por el Consejo Directivo del ICE en la sesión N°6360 de marzo 2020 y de acuerdo con lo señalado en el Procedimiento para Declarar Confidencial la Información.

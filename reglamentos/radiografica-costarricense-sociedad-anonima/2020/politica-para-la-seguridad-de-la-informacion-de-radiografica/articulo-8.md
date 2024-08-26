@@ -1,1 +1,0 @@
-Artículo 8º—El Proceso de Seguridad de la Información definirá los roles y responsabilidades de la Gerencia General, directores, jefaturas, procesos y funcionarios involucrados en relación con la seguridad de la información.

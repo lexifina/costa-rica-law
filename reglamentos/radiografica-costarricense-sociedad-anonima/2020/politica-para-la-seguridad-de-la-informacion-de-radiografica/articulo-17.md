@@ -1,1 +1,0 @@
-Artículo 17.—El personal que posea información clasificada como privada o confidencial, deberá asegurar los medios de protección físicos o digitales brindados por el Departamento de Soporte Interno e Infraestructuras para que la misma no pueda ser accedida de forma no autorizada por terceros.
