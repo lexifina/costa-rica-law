@@ -34,6 +34,7 @@ articulo-33.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
+articulo-36-bis.md
 articulo-37.md
 articulo-38.md
 articulo-39.md
