@@ -1,1 +1,0 @@
-Artículo 17.—El Auditor Interno debe presentar su plan de trabajo de conformidad con los lineamientos de la Contraloría General de la República y proponer al Jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.

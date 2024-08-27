@@ -1,1 +1,0 @@
-Artículo 48.—Cuando el Informe de Auditoría es dirigido a los titulares subordinados, se procederá de acuerdo al artículo 36 de la Ley General de Control Interno. En caso de contener recomendaciones dirigidas al Jerarca, el proceder se realizará de conformidad con el artículo 37 de esa Ley.

@@ -1,1 +1,0 @@
-Artículo 32.—Es obligación del Auditor Interno incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no del Ministerio, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Auditoría Interna.

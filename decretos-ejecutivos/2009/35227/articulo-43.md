@@ -1,1 +1,0 @@
-Artículo 43.—La Auditoría Interna comunicará los resultados de sus auditorías o estudios especiales de auditoría mediante informes objetivos dirigidos al Jerarca, a los titulares subordinados o ambos, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones.
