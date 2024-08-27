@@ -1,0 +1,1 @@
+Artículo 20.-Presentación extemporánea. Todo reconocimiento de tiempo extraordinario presentado para el pago fuera del tiempo reglamentado en el artículo anterior deberá ser autorizado por la Alcaldía, y deberá ser sustentado y respaldado con motivos ajenos al funcionario que solicitó y laboró el tiempo extraordinario.

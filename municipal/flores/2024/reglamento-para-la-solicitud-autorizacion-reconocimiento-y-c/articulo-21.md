@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Sobre los Sistemas de Control
+Artículo 21.-Registro de asistencia. Todo funcionario(a) a quien se le autorice laborar tiempo extraordinario, deberá efectuar los registros respectivos de entrada y salida en el sistema de registro establecido por la Municipalidad, incluso por medio de otros instrumentos tecnológicos, donde se demuestre el tiempo laborado, salvo casos especiales debidamente autorizados por la jefatura inmediata o el patrono respectivo, mediante una nota de justificación que deberá acompañar la boleta o informe técnico de horas extraordinarias que se envía al Departamento de Recursos Humanos.

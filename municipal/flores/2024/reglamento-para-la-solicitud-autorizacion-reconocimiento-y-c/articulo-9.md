@@ -1,0 +1,1 @@
+Artículo 9°-Tiempo mínimo que se autoriza, reconoce y paga de tiempo extraordinario. Se podrá autorizar, reconocer y pagar el tiempo extraordinario a servidores que laboren efectivamente como mínimo media hora extraordinaria o más después de concluida o antes de su jornada ordinaria, siempre que medie contenido presupuestario para afrontar la erogación.

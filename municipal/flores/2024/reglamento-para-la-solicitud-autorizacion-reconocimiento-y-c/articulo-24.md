@@ -1,0 +1,1 @@
+Artículo 24.-Deber del Departamento de Recursos Humanos de conciliar información. Con dicha información el encargado de Recursos Humanos, deberá conciliar la información brindada por cada jefatura en coordinación con el área Financiera, con la intención de mantener un control cruzado de los programas presupuestarios que disponen de fondos para cubrir tiempo extraordinario.

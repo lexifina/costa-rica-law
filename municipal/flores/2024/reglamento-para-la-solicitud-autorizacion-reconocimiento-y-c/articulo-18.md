@@ -1,0 +1,1 @@
+Artículo 18.-Reconocimiento y pago de horas extraordinarias. La Municipalidad sólo reconocerá el pago de trabajo laborado en jornada extraordinaria, que se haya ejecutado de conformidad con las disposiciones del presente Reglamento.
