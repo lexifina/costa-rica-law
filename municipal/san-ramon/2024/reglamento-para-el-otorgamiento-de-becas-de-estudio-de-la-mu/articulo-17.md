@@ -1,0 +1,1 @@
+Artículo 17.-Una vez firme el acuerdo de aprobación de becas estudiantiles, la Comisión de Becas notificará los beneficiarios o sus encargados en el medio de notificación previamente establecido dentro de formulario.

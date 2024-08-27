@@ -1,0 +1,1 @@
+Artículo 16.-Una vez que el Concejo Municipal, conozca el dictamen de la Comisión de Becas, referente a la aprobación de becas municipales, se procederá a su votación en forma inmediata y sin dilaciones.

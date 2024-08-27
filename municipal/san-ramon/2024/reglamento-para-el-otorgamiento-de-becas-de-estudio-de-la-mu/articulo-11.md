@@ -1,0 +1,1 @@
+Artículo 11.-La Comisión de Becas, contará con los primeros 15 días hábiles del mes de febrero para que, mediante un acta oficial, presente ante el Concejo Municipal, la recomendación de los estudiantes que consideren ser beneficiados, así como los que se rechazaron de plano porque incumplieran con uno o varios requisitos, indicando los motivos.

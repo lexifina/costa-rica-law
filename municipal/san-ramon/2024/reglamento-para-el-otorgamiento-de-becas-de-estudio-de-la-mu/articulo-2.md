@@ -1,0 +1,1 @@
+Artículo 2º-Órgano competente para el otorgamiento de becas. Corresponderá en forma exclusiva al Concejo Municipal de San Ramón el otorgamiento de becas municipales de estudio, previa recomendación no vinculante de los Concejos de Distrito y dictamen de la Comisión de Becas.

@@ -1,0 +1,22 @@
+CAPÍTULO II
+Del procedimiento para concursar por
+la asignación de Becas Municipales
+Artículo 4º-Requisitos. Para que una persona estudiante sea beneficiaria de una beca municipal, su padre, madre o encargado, o bien, directamente la persona estudiante si fuese mayor de edad, deberá llenar el formulario digital que estará colgado en el sitio web de la Municipalidad de San Ramón o de formato físico, asimismo, deberá adjuntar en los espacios correspondientes, los requisitos a los que se refiera dicho formulario, transcritos a continuación:
+1. Llenar debidamente el formulario correspondiente que al efecto apruebe la Comisión Becas, el cual contendrá como mínimo los siguientes datos, sin perjuicio que la Comisión de becas, por justificación motivada incluya otros más:
+a) Nombre completo y número de identificación del estudiante.
+b) Fecha de nacimiento del estudiante.
+c) Dirección exacta del domicilio del estudiante (cantón, distrito, barrio, caserío, señas).
+d) Último año (nivel/curso o materia) aprobado del estudiante y año (nivel/curso o materia) para el cual solicitará beca.
+e) Nombre, ubicación y teléfono del Centro Educativo donde se encuentra matriculado el estudiante.
+f) En caso de personas solicitantes menores de dieciocho años: nombre completo de sus padres, así como el nombre del encargado (a) legal, en caso de que no sea alguno de sus padres. Además, número de documento de identidad (pasaporte/cédula de residencia).
+g) Teléfono y correo electrónico donde eventualmente se le pueda contactar durante el periodo de recepción del beneficio.
+h) Indicación de la residencia del estudiante (casa propia, alquiler u otra).
+i) Información sobre el cuadro familiar de las personas que residen en el mismo hogar que el estudiante (nombre completo, edad, número de identificación, estado civil, parentesco con el estudiante, situación laboral.
+j) Información sobre los ingresos y egresos básicos del hogar donde reside la persona solicitante.
+k) Una leyenda que señale que con el llenado del formulario se acepta que cualquiera de los miembros de su Concejos de Distrito o Miembros de Comisión de Becas realice una visita no programada al domicilio del estudiante para verificar domicilio en caso de ser necesario.
+l) Medio de notificación.
+2. Reporte de calificaciones o su equivalente aprobado por el estudiante emitido por la Institución Educativo Estatal. En caso de ser una persona que aún no ha ingresado al sistema educativo formal o técnico y va a ingresar en el año para el cual solicita el subsidio, deberá presentar un documento emitido por el Centro Educativo que acredite que la persona se encuentra matriculada o en trámite de matrícula.
+3. La persona solicitante, o bien, el padre, madre o encargado (a) de las personas menores edad, deberán rendir declaración bajo fe de juramento, mediante documento oficial emitido por la Municipalidad de San Ramón, donde indiquen que absolutamente toda la información suministrada en el formulario digital o físico de becas es completamente verídica, además de que queda en entero conocimiento de las implicaciones legales a las que se sometería en caso de cometer perjurio o falso testimonio. Asimismo, se compromete a informar a la Municipalidad, si su condición socioeconómica llegara a mejorar en el transcurso de la recepción del beneficio.
+4. Copia de un recibo de agua, luz o teléfono, en el cual se verifique claramente la dirección exacta de quien sería beneficiario de la beca (puede estar a nombre de un tercero siempre que se trate de la dirección exacta del domicilio del solicitante).
+5. Copia de la orden patronal de todas las personas mayores de edad que viven con el solicitante. En caso de no contar con este documento podrá presentarse una constancia salarial emitida por el patrono, firmada y sellada, con máximo 3 meses de antigüedad. En caso de que los recursos de la familia no se obtengan por medio de salario, sino por ingresos propios deberá especificar en los espacios en blanco indicados en el formulario digital o físico, el motivo por el cual obtiene esos ingresos y en caso de ser por pensión alimenticia, pensión por invalidez, vejez o muerte, u otro tipo de motivo comprobable, obligatoriamente deberá adjuntar copia del documento que lo acredite.
+6. En caso de tener casa propia deberá indicarlo, asimismo proporcionar el documento correspondiente en caso de que se emita un pago por concepto de préstamo o hipoteca de dicha casa propia. En caso de alquiler deberá presentarse copia del contrato de arrendamiento o recibos de pago.

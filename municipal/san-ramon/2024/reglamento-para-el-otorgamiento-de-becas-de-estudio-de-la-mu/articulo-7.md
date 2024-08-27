@@ -1,0 +1,1 @@
+Artículo 7º-Las fechas en las cuales se podrá acceder al llenado del formulario, serán comunicadas al público en general por todos los medios institucionales posibles, con al menos diez días hábiles de antelación al inicio de la fecha que se disponga, dicha gestión estará a cargo de la Oficina de Comunicación Institucional.

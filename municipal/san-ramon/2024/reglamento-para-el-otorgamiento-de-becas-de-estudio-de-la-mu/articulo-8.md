@@ -1,0 +1,1 @@
+Artículo 8º-Todo documento oficial que contemple este Reglamento y hayan sido diseñados en el seno de la Comisión de Becas, deberán ser aprobados por el Concejo Municipal mediante acuerdo para su oficialización.
