@@ -1,0 +1,1 @@
+Artículo 28.-Asuntos Varios. Se entiende por asuntos varios, aquellos planteamientos o inquietudes que las personas miembros de la Junta Directiva formulen, sin que necesariamente procuren un acuerdo.

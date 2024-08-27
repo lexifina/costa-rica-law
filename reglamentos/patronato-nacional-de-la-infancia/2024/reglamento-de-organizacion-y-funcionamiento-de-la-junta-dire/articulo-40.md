@@ -1,0 +1,1 @@
+Artículo 40.-Firma de las actas. Las actas serán firmadas por quien ejerza la Presidencia de la Junta Directiva, la persona que funja como secretaria del órgano y por los miembros que hayan votado en contrario a un acuerdo contenido del acta.

@@ -1,0 +1,9 @@
+CAPÍTULO III
+SOBRE LAS SESIONES DEL ÓRGANO COLEGIADO
+SECCIÓN I
+Tipos y Publicidad de las Sesiones
+Artículo 16.-Sesiones Ordinarias. En la última sesión ordinaria de cada año, la Junta Directiva determinará el día y hora de sus sesiones ordinarias y tomará un acuerdo con la programación y planificación de las fechas y horas que, en principio, serán conocidos en las sesiones ordinarias del año siguiente, salvo su decisión o modificación en contrario.
+Las sesiones serán convocadas de oficio por la persona presidente de la Junta Directiva. La Junta Directiva se reunirá ordinariamente una vez cada semana en el lugar y hora que determine pudiendo sesionar de forma presencial, virtualmente o de manera híbrida inclusive, para lo cual, no hará falta convocatoria especial. Lo anterior sin perjuicio de que posteriormente se disponga su modificación.
+Corresponderá a la persona secretaria preparar el orden del día y remitirla a la persona que ocupa la Presidencia con suficiente antelación y previo a la convocatoria a la sesión correspondiente para su aprobación. Posteriormente, dicha Presidencia podrá comisionar al personal administrativo para remitir al correo electrónico de las personas miembros de la Junta Directiva, la convocatoria de la sesión correspondiente acompañándola del orden del día y los documentos relacionados con cada punto de agenda convocado, lo cual deberá realizarse con una antelación, al menos de cuarenta y ocho horas o dos días hábiles, salvo casos que detalle como de urgencia.
+En el transcurso de la sesión solamente se conocerá un resumen de los asuntos. Los mismos serán incluidos en el acta correspondiente para el debido análisis, conocimiento y acceso.
+Ninguna persona miembro de la Junta Directiva podrá delegar el ejercicio de la representación y atribuciones que le confiere este cuerpo colegiado y el presente reglamento.

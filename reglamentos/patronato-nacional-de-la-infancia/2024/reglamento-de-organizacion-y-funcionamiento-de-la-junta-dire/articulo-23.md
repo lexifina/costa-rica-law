@@ -1,0 +1,10 @@
+SECCIÓN II
+Del Quorum, el Orden del Día y las Mociones
+Artículo 23.-Quorum. Se distinguen para los efectos de estas disposiciones tres tipos de quorum:
+a. Quorum Integral o legal: Para la existencia del órgano colegiado se requiere que estén debidamente nombrados la totalidad de los miembros que lo integran, de conformidad con el artículo 5 de la Ley Orgánica del Patronato Nacional de la Infancia, Ley N° 7648 del 9 de diciembre de 1996 y sus reformas. A falta de nombramiento de uno de los citados miembros, se entenderá que no existe el quorum integral, por lo que el órgano colegiado se encontrará legalmente imposibilitado para sesionar válidamente y, por consiguiente, ejercer las funciones para las cuales ha sido creado.
+En caso de quebranto del quorum integral ya sea por renuncia, muerte u otra circunstancia de cualquiera de sus miembros, la Presidencia Ejecutiva deberá proceder a solicitar al Consejo de Gobierno, mediante oficio formal, la designación de la persona miembro con el objetivo de sustituirlo a la mayor brevedad.
+b. Quorum Estructural: Se refiere al número de miembros que se requieren para que pueda sesionar válidamente la Junta Directiva en la forma o el lugar y hora previamente señalados, el cual se integrará con al menos tres miembros.
+Si no hubiere quorum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
+c. Quorum Funcional: Se refiere a la cantidad de personas miembros de la Junta Directiva requeridas para que el Órgano Colegiado pueda aprobar los asuntos sometidos a su conocimiento, la cual será de mayoría absoluta, es decir, al menos la mitad más uno de los miembros presentes en la sesión.
+Por consiguiente, el quórum para que pueda sesionar válidamente la Junta Directiva se constituirá con la presencia de al menos tres de sus miembros.
+Cuando se trate de nombramientos o de aplicación del régimen disciplinario al personal que designa la Junta Directiva, se requerirá mayoría calificada.

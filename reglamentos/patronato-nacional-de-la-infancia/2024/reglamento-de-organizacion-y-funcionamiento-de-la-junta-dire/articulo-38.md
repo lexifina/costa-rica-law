@@ -1,0 +1,1 @@
+Artículo 38.-Transcripción de las Actas para aprobación. Las actas de las sesiones de la Junta Directiva serán transcritas por la Despacho asistencial de la Junta Directiva y deberán remitirse junto con la convocatoria de las sesiones ordinarias para su conocimiento y eventual aprobación, en la siguiente sesión ordinaria.

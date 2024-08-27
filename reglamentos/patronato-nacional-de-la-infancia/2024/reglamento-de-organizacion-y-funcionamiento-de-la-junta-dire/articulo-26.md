@@ -1,0 +1,3 @@
+Artículo 26.-Procedimiento para la planificación y programación de los temas del orden del día de las sesiones ordinarias. Cuando cualquier instancia institucional o persona, requieran presentar un tema ante la Junta Directiva, deberán enviar la solicitud y los documentos de respaldo de este al Despacho asistencial de la Junta Directiva.
+Corresponderá al Despacho asistencial de la Junta Directiva establecer coordinación con la persona secretaria para planificar y programar con anticipación, la sesión o sesiones de la Junta Directiva en las que serían incluidos en el orden del día.
+Este procedimiento deberá estar debidamente aprobado por la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 46.-Informe de las evaluaciones. Concluida la evaluación referida en el artículo anterior de este capítulo, la Junta Directiva designará un espacio de discusión en la sesión en pleno para el análisis de los resultados de esta, la valoración del instrumento aplicado y las propuestas de mejora encontradas y el informe final será incluido en la memoria anual de labores de la Institución.
+En la primera sesión del año de la Junta Directiva se conocerá el informe de gestión del año anterior.

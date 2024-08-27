@@ -1,0 +1,1 @@
+Artículo 34.-De la firmeza de los acuerdos. Podrá declararse en firme un acuerdo durante la misma sesión en que se tome, con el voto favorable de la mayoría absoluta de las personas miembros presentes de la Junta Directiva. De otra forma, todo acuerdo quedará en firme con la aprobación del acta en la sesión ordinaria siguiente.

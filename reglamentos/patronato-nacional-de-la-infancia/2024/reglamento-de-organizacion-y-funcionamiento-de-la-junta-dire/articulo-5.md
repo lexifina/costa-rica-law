@@ -1,0 +1,1 @@
+Artículo 5º-Impedimentos y Causales de Cese. Los impedimentos para ser miembro de la Junta Directiva y las causales de cese para miembros en ejercicio, se regirán por los alcances de los artículos 7 y 9 respectivamente, de la Ley Orgánica del Patronato Nacional de la Infancia, Ley N° 7648 del 9 de diciembre de 1996 y sus reformas.

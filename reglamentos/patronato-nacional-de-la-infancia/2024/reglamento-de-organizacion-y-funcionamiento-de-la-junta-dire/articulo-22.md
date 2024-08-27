@@ -1,0 +1,4 @@
+Artículo 22.-Asistencia a las sesiones de la Junta Directiva de personas invitadas. A las sesiones de la Junta Directiva podrá asistir, cuando sea requerida, tanto cualquier persona funcionaria del Patronato Nacional de la Infancia como de cualquier otra institución, o cualquier persona que la Junta Directiva considere que puede coadyuvar con el cumplimiento de los objetivos del PANI o para definir temas del quehacer institucional. Estas personas podrán participar en la sesión con voz, pero sin voto.
+La invitación será consignada en el orden del día para su análisis y aprobación por parte de las personas miembros de la Junta Directiva.
+La participación deberá ser acordada por voto positivo de la mayoría absoluta de las personas presentes de la Junta Directiva.
+Toda persona durante su participación deberá contar con el audio habilitado y la cámara abierta.

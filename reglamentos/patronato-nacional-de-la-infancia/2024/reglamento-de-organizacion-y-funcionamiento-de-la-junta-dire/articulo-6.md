@@ -1,0 +1,1 @@
+Artículo 6º-Responsabilidad de las personas miembros. Las personas miembros de la Junta Directiva serán responsables civil y penalmente en el ejercicio de sus cargos. Previo a asumir sus funciones rendirán la caución que determine periódicamente el Consejo de Gobierno.

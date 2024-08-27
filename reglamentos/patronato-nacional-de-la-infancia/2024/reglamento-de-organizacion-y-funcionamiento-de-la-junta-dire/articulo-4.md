@@ -1,0 +1,1 @@
+Artículo 4º-Requisitos. Las personas miembros de la Junta Directiva del Patronato Nacional de la Infancia deberán ser costarricenses, de reconocida solvencia moral y contar con al menos cinco años de experiencia comprobada en el campo de la niñez, la adolescencia y la familia.
