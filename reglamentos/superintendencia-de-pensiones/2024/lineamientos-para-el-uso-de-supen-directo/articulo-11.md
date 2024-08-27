@@ -1,0 +1,6 @@
+Artículo 11.-Verificación de la autenticidad del sitio. El usuario, para verificar la autenticidad del sitio, debe realizar las siguientes validaciones antes de iniciar una sesión de trabajo en SUPEN Directo:
+a. Que durante el acceso a SUPEN Directo, su navegador no le haga una advertencia con respecto a la autenticidad del sitio.
+b. Que en la línea de la dirección electrónica de su navegador se visualice literalmente el nombre www.supendirecto. supen.fi.cr y que este se encuentre precedido de los caracteres https://.
+c. Que al abrir el ícono de candado (con doble clic sobre su imagen) que aparece en la parte inferior de su navegador, la dirección registrada en el certificado digital corresponda con la dirección www.supendirecto.supen. fi.cr.
+Ante cualquier anomalía o alerta que ponga en duda la autenticidad del sitio Web, el usuario, deberá comunicar la situación de inmediato al número o correo electrónico de SUPEN, indicado en la página web. Asimismo, deberá abstenerse de ingresar al sitio mientras no esté seguro de que la sesión de trabajo que intenta iniciar es auténtica.
+El participante es responsable por las consecuencias que se puedan derivar del ingreso a un sitio web distinto al de SUPEN Directo.

@@ -1,0 +1,1 @@
+Artículo 23.-Condiciones legales de la autenticación. El participante o usuario que ingrese a SUPEN Directo autenticándose con un certificado digital, lo hace con los derechos y responsabilidades que establece la Ley 8454, su reglamento general y las demás normas jurídicas que resulten aplicables.

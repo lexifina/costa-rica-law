@@ -1,0 +1,4 @@
+Artículo 20.-Revocación de la suscripción. Para los servicios disponibles en el portal web Supen Directo que requieran del proceso de suscripción por parte del participante, la suscripción quedará revocada ante cualquiera de las siguientes situaciones:
+a. Cuando el participante solicite su revocación por decisión propia, por los medios que así disponga la Superintendencia.
+b. Incumplimiento de las responsabilidades del participante establecidas en los lineamientos para el uso de SUPEN Directo, debidamente comprobada por la Superintendencia, lo anterior, de conformidad con los principios del debido proceso legal.
+c. Remisión por parte del participante de información falsa, equívoca, incierta o inexacta, otorgada debido al trámite de suscripción, o de los servicios prestados a través de esta plataforma.

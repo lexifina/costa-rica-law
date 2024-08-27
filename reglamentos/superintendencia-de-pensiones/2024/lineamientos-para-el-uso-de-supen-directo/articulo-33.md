@@ -1,0 +1,1 @@
+Artículo 33.-Actualización de información. Los participantes deberán establecer mecanismos de control interno que les asegure mantener actualizada la información de sus usuarios en el portal Web de SUPEN Directo, así como los perfiles de usuario creados como parte de la administración de la seguridad.

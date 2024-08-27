@@ -1,0 +1,2 @@
+Artículo 19.-Vigencia de la suscripción. Para los servicios disponibles en el portal web SUPEN Directo que requieran del proceso de la suscripción, la misma tiene vigencia a partir del momento en que se completa el proceso necesario para constituirse como participante de SUPEN Directo.
+Mientras la suscripción esté vigente, el titular, mantendrá la condición de participante activo en SUPEN Directo, con los derechos y las responsabilidades que la normativa establece por tiempo indefinido.

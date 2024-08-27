@@ -1,0 +1,1 @@
+Artículo 35.-Carácter probatorio de los registros. Los registros electrónicos administrados por SUPEN Directo, así como por sus sistemas de soporte tecnológico a nivel de registro y control, constituyen respaldo pleno de los trámites que realice la SUPEN y los participantes por medio de SUPEN Directo.

@@ -1,0 +1,1 @@
+Artículo 24.-Obtención del dispositivo para Certificado Digital. El participante es el encargado de gestionar y obtener su(s) dispositivos(s) de certificado digital respectivo(s) de la Autoridad Certificadora Registrada de su preferencia, para él y para quien(es) lo represente(n), si es el caso. El costo de los elementos de autenticación corre por cuenta del participante.

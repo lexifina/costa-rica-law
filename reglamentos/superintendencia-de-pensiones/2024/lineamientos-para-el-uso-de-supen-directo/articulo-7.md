@@ -1,0 +1,1 @@
+Artículo 7º-Normas supletorias. Para las situaciones no reguladas por las presentes disposiciones, rigen, supletoriamente, las disposiciones contenidas en la normativa para el uso de certificados digitales, así como las demás normas jurídicas que resulten aplicables.

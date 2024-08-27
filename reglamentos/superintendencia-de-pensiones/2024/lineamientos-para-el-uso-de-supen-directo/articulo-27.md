@@ -1,0 +1,1 @@
+Artículo 27.-Usuarios responsables. El usuario que realiza el proceso de suscripción se asigna como responsable de seguridad total, el cual, le permite crear otros usuarios con su mismo perfil de administrador de la seguridad.
