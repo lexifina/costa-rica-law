@@ -1,0 +1,5 @@
+Artículo 8º-El producto de las tarifas de estacionamiento constituirá un fondo que se destinará a:
+1. Pago de gastos administrativos y operativos del departamento encargado del control del estacionamiento vehicular en el Cantón de San Ramón (Departamento de Parquímetros) y a la Policía Municipal, cubriendo todos sus programas y el fortalecimiento de la seguridad.
+2. Acondicionamiento del departamento encargado del control del estacionamiento vehicular en el Cantón de San Ramón y Policía Municipal, sistemas de videovigilancia y otras actividades atinentes a la seguridad de los ciudadanos del cantón.
+3. Lo estipulado en el artículo 7° de la Ley de Instalación de Estacionómetros (Parquímetros), N° 3580, del 13 de noviembre de 1965 y sus reformas.
+4. Construcción y mantenimiento de caminos, destinando el 10% a la seguridad vial, demarcación y otros, además de mejorar el ordenamiento vial. 5. De acuerdo con lo establecido en el artículo 83 del Código Municipal, N° 7794, del 30 de abril de 1998 y sus reformas.

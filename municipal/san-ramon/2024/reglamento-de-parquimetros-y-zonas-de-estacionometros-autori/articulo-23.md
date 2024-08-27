@@ -1,0 +1,9 @@
+Artículo 23.-Deberes de los notificadores autorizados. Corresponderá a la persona física contratada como notificador autorizado el cumplimiento de las siguientes obligaciones:
+a) Desempeñar su cargo digna y diligentemente con respeto.
+b) Mantener respeto en el trato con los usuarios, para lo cual, siempre que deba abordar a uno de ellos, deberá identificarse previamente mostrando el gafete oficial suministrado por la Municipalidad, o en su caso, por la empresa subcontratada.
+c) Observar en el ejercicio del puesto reglas acordes a la moral y las buenas costumbres, ética profesional y una postura de respeto y servicio a la comunidad. En caso de incumplimiento de estas normas, cuando el notificador autorizado sea funcionario municipal, se procederá a aplicar el procedimiento disciplinario administrativo contenido en el Código de Trabajo, N° 2, del 27 de agosto de 1943 y sus reformas, el Código Municipal, N° 7794, del 30 de abril de 1998 y sus reformas, y demás normas pertinentes.
+d) Respetar las normas aplicables a las funciones que le sean encomendadas.
+e) Cuidar y mantener en buen estado los implementos que le sean entregados para la prestación del servicio y responsabilizarse por cada uno de ellos.
+f) Participar de forma activa en el mantenimiento de la señalización del sistema de estacionamiento de vehículos en las vías públicas cuando así le sea requerido.
+Para cualquier efecto legal, se entenderán incluidas las anteriores obligaciones dentro del contrato de trabajo del Notificador Autorizado. Lo anterior, sin perjuicio de las demás obligaciones que señala el Código Municipal, N° 7794, del 30 de abril de 1998 y sus reformas, y el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San Ramón.
+En caso de que el notificador autorizado no sea funcionario municipal, deberá respetar las mismas normas de conducta y comportamiento que regula este artículo.

@@ -1,0 +1,1 @@
+Artículo 34.-Servicio de estacionamiento mensual. Bajo estudio financiero, se podrá definir la tarifa para los períodos mensuales y corresponderá al Concejo Municipal la aprobación de dichas tarifas; este beneficio no garantiza ni la disponibilidad ni el derecho de uso exclusivo de determinado espacio de estacionamiento. Las zonas estarán debidamente demarcadas con color verde.
