@@ -14,3 +14,4 @@ Reglamento para ayudas temporales de la Municipalidad de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-26 | la propia norma |
+| 2 | 2024-08-27 | Reglamento municipal 51 (2024-08-27) |
