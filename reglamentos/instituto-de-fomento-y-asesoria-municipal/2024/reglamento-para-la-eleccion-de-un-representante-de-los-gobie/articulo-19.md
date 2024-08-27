@@ -1,0 +1,2 @@
+Artículo 19.-Recursos Contra los Actos del Tribunal Ad-Hoc. Contra los actos del Tribunal Ad-Hoc, durante la realización de la Asamblea, únicamente cabrá el recurso de reconsideración para ante el mismo tribunal, el cual deberá ser resuelto inmediatamente, y de previo a ejecutar cualquier otro acto.
+Debido a la delegación concedida reglamentariamente al Tribunal Ad-Hoc y la inexistencia de un superior de alzada, lo resuelto por este Tribunal carece de ulterior recurso. Consecuentemente, sus resoluciones agotan la vía administrativa.

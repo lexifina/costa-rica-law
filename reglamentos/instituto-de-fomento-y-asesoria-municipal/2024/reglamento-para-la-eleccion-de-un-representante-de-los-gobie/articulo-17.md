@@ -1,0 +1,1 @@
+Artículo 17.-Impedimento para ser miembro del tribunal. No podrán ser miembros del tribunal, quienes tengan un ligamen laboral, contractual o vínculo por afinidad o consanguinidad hasta tercer grado inclusive con quienes ocupan la Alcaldía o Regidurías de cualquier municipalidad del país.

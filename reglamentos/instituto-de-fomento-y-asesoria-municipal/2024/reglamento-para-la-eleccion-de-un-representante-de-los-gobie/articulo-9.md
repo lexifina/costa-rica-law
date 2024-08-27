@@ -1,0 +1,1 @@
+Artículo 9º-Derechos de los representantes municipales Cada representante municipal tendrá el derecho a voz y voto dentro de la asamblea, así como a postular su nombre o el de cualquier otro representante como candidato al Consejo Nacional de Salud Mental.

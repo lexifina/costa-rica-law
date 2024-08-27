@@ -1,0 +1,1 @@
+Artículo 23.-Apertura de la Asamblea de representante municipales. El día señalado en la convocatoria, revisado y completado el quórum, quien presida el Tribunal Ad-Hoc, dará por abierta la asamblea, y procederá a recibir candidaturas para el cargo de representante de los gobiernos locales ante el Consejo Nacional de Salud Mental.

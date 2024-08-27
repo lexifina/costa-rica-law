@@ -1,0 +1,2 @@
+Artículo 24.-Votación. Si en la primera votación alguno de los candidatos no obtiene la mayoría absoluta de los votos de los miembros presentes, se realizará una segunda votación por mayoría simple con los dos candidatos que obtuvieron la mayor votación en la primera ronda.
+Las votaciones serán secretas, para lo cual el Tribunal Ad-Hoc dispondrá de las medidas necesarias para hacer valer el principio. El voto hecho público, será nulo.

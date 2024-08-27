@@ -1,0 +1,1 @@
+Artículo 26.-Obligaciones y Derechos del representante municipal ante el Consejo Nacional de Salud Mental. Una vez juramentado por el presidente de la Junta Directiva del IFAM, el representante municipal tendrá todos los derechos y obligaciones derivadas de su naturaleza de miembro del Consejo Nacional de Salud Mental contenidas en la Ley N° 9213.

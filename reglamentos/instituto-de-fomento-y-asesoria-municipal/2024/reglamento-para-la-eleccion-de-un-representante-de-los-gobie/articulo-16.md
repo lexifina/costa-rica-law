@@ -1,0 +1,2 @@
+Artículo 16.-Integración del Tribunal. El tribunal estará integrado por tres miembros propietarios y tres suplentes, en ambos casos, al menos uno de ellos deberá ser abogado.
+El tribunal podrá ser conformado por personas ajenas al IFAM. Dichos cargos se ejercerán de forma gratuita. En caso de que algún miembro designado sea funcionario público, a este se le deberá otorgar el tiempo laboral suficiente para la prestación de esa función.

@@ -1,0 +1,1 @@
+Artículo 27.-Vigencia del nombramiento. La persona representante de las municipalidades que integrará el Consejo Nacional de Salud Mental ostentará el cargo durante cuatro años, pudiendo ser reelegido por una única vez.

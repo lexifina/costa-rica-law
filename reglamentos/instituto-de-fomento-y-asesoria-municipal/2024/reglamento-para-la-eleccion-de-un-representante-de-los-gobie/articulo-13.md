@@ -1,0 +1,1 @@
+Artículo 13.-Quórum. Para la validez en primera convocatoria, la asamblea requerirá de la presencia de la mitad más uno de los representantes acreditados formalmente en el padrón electoral de representantes municipales. En segunda convocatoria, una hora después, la asamblea será válida con el número de representantes municipales presentes.

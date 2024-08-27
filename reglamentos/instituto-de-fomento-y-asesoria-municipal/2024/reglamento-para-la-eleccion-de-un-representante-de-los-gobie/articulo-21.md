@@ -1,0 +1,2 @@
+Artículo 21.-Convocatoria a asamblea .Mediante acuerdo de la Junta Directiva, el IFAM convocará a la Asamblea una vez cada cuatro años, dentro de los tres meses siguientes a la toma de posesión de quien ejercerá la Presidencia de la República y con al menos un mes de anticipación de la fecha de realización.
+Dicho acuerdo deberá ser publicado en al menos un diario de circulación nacional y notificada a cada municipalidad; sin perjuicio de la utilización adicional de otros instrumentos de información.
