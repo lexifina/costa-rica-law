@@ -1,0 +1,23 @@
+N° 44608 - MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y E L MINISTRO DE TRABAJO SEGURIDAD SOCIAL
+En ejercicio de las potestades conferidas en el artículo 140, incisos 3) y 18) y 146 de la Constitución Política del 07 de noviembre de 1949, 25 inciso 1 ), 27 inciso 1) y 28 inciso 2), acápite b) de la Ley General de la Administración Pública, Ley Nº6227 de 02 de mayo de 1978 y en los artículos 7, 103, 104, 105, 106, 107 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley Nº l 860 de 21 de abril de 1955.
+Considerando:
+I.- Que al Consejo Superior de Trabajo le corresponde colaborar con el Ministerio de Trabajo y Seguridad, en las cuestiones que éste le someta referentes a los problemas económico-sociales del país, con funciones preferentes de realizar estudio permanente del desenvolvimiento económico- industrial del país y de las condiciones de vida y labores de los trabajadores, de la legislación social e informar sobre proyectos de ley y reglamentos se le determine.
+II.- Que mediante Decreto Ejecutivo Nº36157-MTSS del 19 de agosto de 2010, se establece el Reglamento de Funcionamiento del Consejo Superior de Trabajo, en el cual se indica que dicho Consejo estaría integrado, entre otros, por tres representantes del Poder Ejecutivo: el (la) Ministro (a) de Trabajo y Seguridad Social, el (la) Ministro(a) de Economía, Industria y Comercio, y el (la) Ministro(a) de la Presidencia.
+III.- Que el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones tiene como misión, generar e impulsar el cumplimiento de las políticas públicas en materia de ciencia, innovación, tecnología y telecomunicaciones del país mediante el ejercicio de la rectoría sectorial y la ejecución efectiva de sus procesos sustantivos y de gestión, para mejorar la competitividad en beneficio del bienestar social, la igualdad y la prosperidad de la sociedad costarricense en el marco de la transformación digital y la cuarta revolución.
+IV.- Que ante los nuevos desafíos de la transformación digital y la evolución tecnológica que presenta el mundo del trabajo y sus componentes tripartitos, es indispensable que el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones tenga representación en el Consejo Superior de Trabajo, para que dicho consejo, pueda cumplir con sus funciones desde un marco de acción actualizado, pudiendo atender las necesidades de la cuarta revolución tecnológica de las relaciones laborales y de diálogo social. Para ello, es necesario realizar una reforma al Reglamento de Funcionamiento del Consejo Superior de Trabajo, con el fin de que el mencionado Ministerio, esté incluido como representante del Poder Ejecutivo.
+V.- Que la presente modificación, no implica la creación de trámites, requisitos o procedimientos, ni reformas a los existentes que impliquen nuevas cargas administrativas, por lo que regulación no requiere del control previo del Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+POR TANTO:
+DECRETAN:
+REFORMA AL ARTÍCULO 4 DEL DECRETO EJECUTIVO N°36157-MTSS
+DEL 19 DE AGOSTO DE 2010, "REGLAMENTO DE FUNCIONAMIENTO
+DEL CONSEJO SUPERIOR DE TRABAJO"
+Artículo 1º-Modifíquese el artículo 4 del Decreto Ejecutivo Nº 36157-MTSS del 19 de agosto de 2010, "Reglamento de Funcionamiento del Consejo Superior de Trabajo, publicado en el Diario Oficial La Gaceta Nº 174 del 7 de setiembre de 2010, para que en adelante se lea:
+"Artículo. 4 º-Composición del Consejo. El Consejo Superior de Trabajo está integrado de la siguiente manera.:
+a) Tres representantes del Poder Ejecutivo: el(la) Ministro(a) de Trabajo y Seguridad Social, el (la) Ministro(a) de Economía, Industria y Comercio, y el (la) Ministro(a) de Ciencia, Innovación, Tecnología y Telecomunicaciones, que podrán ser sustituidos por sus respectivos Viceministros en caso de ausencia. Dependiendo de los temas a tratarse en el Consejo, el Poder Ejecutivo podrá invitar a sus sesiones con voz pero sin voto a otros Ministros o Viceministros y Presidentes Ejecutivos.
+b) Tres representantes de las organizaciones de empleadores y tres suplentes.
+c) Tres representantes de las organizaciones de trabajadores y tres suplentes.
+Podrán participar en las sesiones del consejo otros actores sociales para la discusión de temas que así lo requieran, siempre que tal participación sea aprobada unánimemente en su seno. Además podrán ser convocados en audiencia otros actores sociales por mayoría simple.
+Los miembros suplentes tienen derecho a participar con voz en las deliberaciones. Participarán con derecho a voto cuando actúen en sustitución del respectivo miembro propietario.
+Los miembros del consejo recibirán la denominación de "consejeros" o Cconsejeras"."
