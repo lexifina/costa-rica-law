@@ -1,0 +1,1 @@
+Artículo 22.-Incautación por cancelación. La Dirección de Seguridad Ciudadana y Policía Municipal, frente al incumplimiento del retiro del dispositivo indicado en el artículo anterior, procederá con su incautación inmediata conforme a lo establecido en el artículo catorce del presente reglamento.

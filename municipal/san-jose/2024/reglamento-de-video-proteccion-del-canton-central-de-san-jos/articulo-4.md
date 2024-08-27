@@ -1,0 +1,8 @@
+Artículo 4º-Tipos de Dispositivos de Interés Público. Para efectos del presente reglamento, serán dispositivos de interés público y, por ende; regulados mediante lo aquí establecido, los siguientes dispositivos de video protección:
+a) Las cámaras de cualquier tipo, instaladas por parte de la Dirección de Seguridad Ciudadana y Policía Municipal de San José en espacios públicos.
+b) Las cámaras de cualquier tipo, instaladas por parte de la Dirección de Seguridad Ciudadana y Policía Municipal de San José en los inmuebles o muebles propios u ocupados por parte de la municipalidad.
+c) Las cámaras de cualquier tipo, instaladas por parte de la Dirección de Seguridad Ciudadana y Policía Municipal de San José en las unidades o vehículos municipales.
+d) Las cámaras de cuerpo, facilitadas por parte de la Dirección de Seguridad Ciudadana y Policía Municipal de San José a sus funcionarios.
+e) Las cámaras de cuerpo personales, utilizadas por parte de los funcionarios de la Dirección de Seguridad Ciudadana y Policía Municipal de San José en el ejercicio de sus funciones.
+f) Las cámaras de cualquier tipo, instaladas por parte de personas físicas o jurídicas propietarios y/u ocupantes de inmuebles o muebles, instituciones públicas o empresas privadas, situadas el cantón central de San José que se encuentren colocadas en cualquier tipo de estructura y/o edificación externa al límite de la propiedad privada, o espacio público.
+g) Las cámaras de cualquier tipo de grupos organizados legalmente constituidos o bien de hecho, previamente así reconocidos por parte de la administración o el concejo municipal, que se encuentren en espacios públicos o bien en cualquier tipo de estructura y/o edificación externa al límite de la propiedad privada.

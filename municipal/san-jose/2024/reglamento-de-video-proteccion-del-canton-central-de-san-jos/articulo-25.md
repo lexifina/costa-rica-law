@@ -1,0 +1,4 @@
+CAPÍTULO X
+FINANCIAMIENTO
+Artículo 25.-Financiamiento de los dispositivos de video protección de la Dirección de Seguridad Ciudadana y Policía Municipal de San José. Tanto los dispositivos de video protección como de cualquier otro recurso necesario para su operación podrán financiarse de los recursos institucionales destinados para tal fin, así como los establecidos por la legislación vigente.
+También, podrá la municipalidad, en amparo del artículo ochenta y tres del Código Municipal, cobrar una tasa por seguridad o vigilancia electrónica, la cual se calculará de manera anual, considerando el costo efectivo más un diez por ciento de utilidad para su desarrollo; tal suma se cobrará proporcionalmente entre los contribuyentes de los distritos en dónde existan dispositivos de video protección, según el valor de la propiedad.

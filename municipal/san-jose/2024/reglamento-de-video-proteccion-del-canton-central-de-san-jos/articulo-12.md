@@ -1,0 +1,1 @@
+Artículo 12.-Comunicación Ciudadana. Todo dispositivo de video protección que sea instalado por parte de la administración municipal en espacio público; deberá de informarse a la ciudadanía que se encuentra monitoreado por nuestra institución.

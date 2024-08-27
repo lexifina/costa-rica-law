@@ -1,0 +1,1 @@
+Artículo 6º-Protección de datos: Todo lo establecido en el presente reglamento, se regulará según lo establecido en la Ley de protección de datos y el derecho a la intimidad, así como normativa conexa vigente.

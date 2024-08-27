@@ -1,0 +1,1 @@
+Artículo 2º-Declaratoria de Interés Público y Cantonal. Se declara de interés público y cantonal la privacidad de las personas y la seguridad en el manejo de los dispositivos de video protección instalados en el marco del presente reglamento.
