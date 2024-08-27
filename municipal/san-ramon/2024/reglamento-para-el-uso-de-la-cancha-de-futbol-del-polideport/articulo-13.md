@@ -1,0 +1,2 @@
+Artículo 13.-Del acceso de las Asociaciones y otras organizaciones al uso de las instalaciones deportivas. Las asociaciones deportivas legalmente constituidas y reconocidas por la Municipalidad o el Comité Cantonal de Deporte y Recreación podrán hacer uso, durante el año, de las instalaciones deportivas o recreativas ya sea con fines de entrenamiento o competición.
+También podrán hacer uso de las instalaciones otras asociaciones o grupos organizados siempre que realicen la debida coordinación con la Municipalidad.

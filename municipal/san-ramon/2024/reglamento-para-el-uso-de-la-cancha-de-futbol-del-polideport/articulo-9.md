@@ -1,0 +1,1 @@
+Artículo 9°-Responsabilidad con Terceros. La Municipalidad es responsable de todas las obligaciones legales, contractuales o extracontractuales que surjan con terceros en relación con este reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.-Fiscalización. Los términos de este reglamento serán supervisados por una unidad fiscalizadora conformada por un representante de la Administración Activa de la Municipalidad y la presidencia del Comité Cantonal de Deportes. La Unidad debe presentar un informe semestral al Concejo Municipal sobre el grado de cumplimiento del presente reglamento.

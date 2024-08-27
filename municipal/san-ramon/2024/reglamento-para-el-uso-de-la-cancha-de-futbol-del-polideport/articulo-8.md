@@ -1,0 +1,1 @@
+Artículo 8°-Gestión Contable. La Municipalidad debe llevar un sistema diferenciado de contabilidad para los ingresos y egresos relacionados con el Polideportivo utilizando prioritariamente los beneficios económicos para el mantenimiento, inversión y mejora de las instalaciones.

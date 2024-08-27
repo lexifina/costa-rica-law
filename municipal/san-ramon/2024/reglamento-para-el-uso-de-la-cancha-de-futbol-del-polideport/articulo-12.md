@@ -1,0 +1,2 @@
+Artículo 12.-De los otros usos de las instalaciones del Polideportivo. La Municipalidad, por intermedio del Concejo Municipal, podrá? autorizar actividades culturales, artísticas o religiosas en las instalaciones deportivas del Polideportivo siempre y cuando se garantice que las mismas no ocasionarán un daño al inmueble.
+No obstante, no se autorizara?el uso de las instalaciones deportivas y recreativas para actividades en las que haya consumo de licor o cualquier otra droga o sustancia enervante, prohibida o ilegal.
