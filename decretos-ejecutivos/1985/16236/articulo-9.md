@@ -1,2 +1,0 @@
-Articulo 9°-La reposición o reconstrucción de inscripciones deja a salvo los derechos de los interesados -en las anotaciones o referencias que constaren en los folios desaparecidos o partes destruidas, inutilizadas o ilegibles.
-En todo caso podrán adicionarse a la inscripción reconstruida o repuesta y al folio respectivo de la Reforma, después de autorizados, los datos o anotaciones comprobados con el testimonio respectivo u otro documento fehaciente presentados al Registro.

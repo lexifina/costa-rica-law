@@ -1,1 +1,0 @@
-Articulo 6°-La reposición de inscripciones que hayan desaparecido, se hará confeccionando un nuevo folio en que se transcribirán los asientos correspondientes de acuerdo con todos los elementos que se puedan recopilar, trasladando de inmediato esa inscripción al folio de la Reforma .

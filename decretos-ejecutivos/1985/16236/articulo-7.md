@@ -1,1 +1,0 @@
-Articulo 7°-La reconstrucción de inscripciones destruidas parcialmente se hará uniendo las piezas desprendidas y completando los datos faltantes, o agregando los datos que faltaren si no se encontraren esas piezas, procediendo en lo demás conforme se dispone en el artículo anterior.
