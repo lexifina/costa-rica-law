@@ -9,3 +9,5 @@ f) Los convenios de colaboración entre entes de derecho público, entendidos co
 g) Las contrataciones que realice la Comisión Nacional de Emergencias, en virtud de la actividad extraordinaria definida en el artículo 4 de la Ley 8488, Ley Nacional de Emergencias y Prevención del Riesgo, de 22 de noviembre de 2005.
 Las restantes contrataciones se regirán por lo previsto en la presente ley.
 h) La adquisición de combustible.
+i) Las contrataciones que realice la Oficina de Atención a la Víctima del Delito del Ministerio Público, al amparo de lo establecido en la Ley 8720, Ley de Protección a Víctimas, Testigos y demás Sujetos Intervinientes en el Proceso Penal, Reformas y Adición al Código Procesal Penal y al Código Penal, de 4 de marzo de 2009.
+(Así adicionado el inciso anterior por el artículo único de la Ley Protección de datos sensibles de víctimas y testigos, N° 10466 del 6 de mayo del 2024)
