@@ -1,5 +1,10 @@
-Artículo 35.—Deber de informar.
-El Notario deberá informar a la Dirección Nacional de Notariado:
-a) Cuando cambie su firma o traslade el lugar de su notaría, con anterioridad o dentro del mes siguiente a que ocurra el hecho.
-b) La pérdida o destrucción de alguno de los medios de seguridad o del tomo de protocolo. Debe dar cuenta por escrito a la Dirección Nacional de Notariado y detallará los hechos en un plazo máximo de quince días hábiles, contados a partir de la pérdida o destrucción.
-(Así reformado en sesión ordinaria celebrada el 07 de febrero de 2019, mediante acuerdo firme 2019-003-007 del Acta 2019-003)
+Artículo 35.-Deber de informar. El Notario deberá informar a la Dirección Nacional de Notariado:
+a) Cuando cambie su firma o sellos.
+b) Cuando traslade el lugar de su notaría o cambie los medios de contacto.
+c) Cuando se destruya, inutilice, o se deteriore el tomo de protocolo.
+d) Cuando se extravíe o sea sustraído de su lugar de custodia el tomo de protocolo.
+e) Cuando sea sustraída la firma digital del notario.
+f) Cuando le sea sustraído papel de seguridad utilizable.
+De lo anterior deberá dar cuenta, por escrito, a la Dirección Nacional de Notariado, en un plazo máximo de tres días hábiles siguientes a que el notario conozca de la ocurrencia del hecho. Los reportes se harán mediante el formulario y canales dispuestos por la Dirección Nacional de Notariado, cumpliendo con los requisitos establecidos para cada caso.
+De no cumplirse con este requisito, el notario podrá ser sancionado por la Dirección Nacional de Notariado de acuerdo con el artículo 140 del Código Notarial.
+(Así reformado en sesión N° 19 del 28 de agosto de 2024)
