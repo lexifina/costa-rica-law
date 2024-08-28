@@ -1,2 +1,0 @@
-Artículo 67.—De la Base de Datos. La base de datos constituye un medio de registración en donde se transcribe el contenido del estado jurídico registral de cada inmueble, sociedad mercantil o civil, persona física, asociación, concesión y cualquier otra inscripción que se lleve a cabo en este Registro, mediante un elemento de unidad, legajo o ficha, en el cual queda satisfecho el principio de especialidad registral.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 65 al 67 actual)

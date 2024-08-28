@@ -1,1 +1,0 @@
-Artículo 6°—(Derogado por artículo 1° del decreto ejecutivo N° 27934 del 26 de mayo de 1999, “Suprime la estructura orgánica del Registro Nacional, las Asesorías Jurídicas de los Registros de Bienes Muebles, Bienes Inmuebles, Personas Jurídicas y Catastro Nacional, como estructuras independientes”)

@@ -1,2 +1,0 @@
-Artículo 64.—Unidad de información. La inscripción de un inmueble se efectuará consignándole a éste un número de matrícula, bajo el cual se indicará toda la información referente a este. Igualmente existirá una unidad de información para las inscripciones que no correspondan a inmuebles y que deben realizarse en este Registro.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 62 al 64 actual)

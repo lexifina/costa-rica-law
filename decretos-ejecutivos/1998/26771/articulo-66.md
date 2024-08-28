@@ -1,2 +1,0 @@
-Artículo 66.—Base de la publicidad registral. La publicidad registral está constituida por la información contenida en los tomos, sistemas de procesamiento electrónico de datos, digitalización y la microfilmación. Debe existir entre esos sistemas una estrecha relación. siendo ambos auxiliares recíprocos y complementarios, a fin de garantizar la unidad, seguridad y congruencia de la información registral.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 64 al 66 actual)

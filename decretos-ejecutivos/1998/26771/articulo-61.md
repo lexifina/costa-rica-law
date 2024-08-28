@@ -1,2 +1,0 @@
-Artículo 61.—División ,o reunión de fincas. Si el inmueble se dividiera, se confeccionarán tantas nuevas inscripciones y matrículas como fincas resultaren, anotándose en la inscripción primitiva, los números de matrículas de las fincas resultantes. Cuando se reúnan inmuebles, se hará una nueva y única matrícula.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 59 al 61 actual)

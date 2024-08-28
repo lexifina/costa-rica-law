@@ -1,1 +1,0 @@
-Artículo 10.-De la Coordinación de Servicios Regístrales. (Derogado por el artículo 79 del Reglamento de la Dirección de Servicios del Registro Nacional, aprobado mediante decreto ejecutivo N° 42835 del 2 de febrero del 2021)

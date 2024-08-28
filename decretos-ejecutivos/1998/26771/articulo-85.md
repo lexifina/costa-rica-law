@@ -1,2 +1,0 @@
-Artículo 85.—Error material. Se entenderá que se comete error material cuando sin intención, se escriban unas palabras por otras, se omita la expresión de alguna circunstancia formal de la inscripción o se equivoquen los nombres propios o las cantidades al copiarlas del título, sin cambiar por ello el sentido general de la inscripción o asiento de que se trate, ni el de ninguno de sus conceptos.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 83 al 85 actual)

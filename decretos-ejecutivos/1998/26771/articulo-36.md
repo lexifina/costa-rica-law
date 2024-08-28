@@ -1,2 +1,0 @@
-Artículo 36.—Plazo para calificar. A más tardar dentro de los ocho días siguientes a su recibo y guardando estricto orden de presentación, procederán los Registradores a calificar los documentos que les hubiere sido entregados. Dicho plazo no correrá para los documentos a los que se les de el carácter de complejos.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 34 al 36 actual)

@@ -1,2 +1,0 @@
-Artículo 81.—Sustitución de hipoteca común por hipoteca de cédula. La sustitución de una hipoteca común por una de cédula se hará en la misma escritura en que ésta se constituye, de conformidad con lo dispuesto por el artículo 428 del Código Civil.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 79 al 81 actual)

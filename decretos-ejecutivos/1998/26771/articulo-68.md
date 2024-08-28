@@ -1,2 +1,0 @@
-Artículo 68.—Procesamiento electrónico de datos. El procesamiento electrónico de datos es el medio técnico de la registración, por el cual se introduce, procesa, actualiza y archiva la información registral contenida en la unidad de información, en dispositivos propios de un ordenador o computador.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 66 al 68 actual)

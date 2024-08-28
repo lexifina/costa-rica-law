@@ -1,2 +1,0 @@
-Artículo 24.—Del Registro Mercantil. En el Registro Mercantil se inscribirá todo lo indicado en el artículo 235 del Código de Comercio y. cualquier otro acto o contrato que por ley o reglamento se indicare. En el asiento donde se practique la inscripción se indicará la información más importante, del acto o contrato que se registra, para los efectos de la publicidad.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541 del 6 de marzo de 2000, que lo traspasó del antiguo artículo 22 al 24 actual)

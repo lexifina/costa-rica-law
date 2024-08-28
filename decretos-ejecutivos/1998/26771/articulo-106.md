@@ -1,2 +1,0 @@
-Artículo 106.—Del documento otorgado ante dos o más Notarios. En caso de que un documento se haya otorgado ante dos o más notarios, deberá presentarse con una boleta de seguridad de las asignadas al notario dueño del protocolo donde se otorgó la escritura; en caso de que se presente con una boleta de cualquiera de los otros conotarios, no se le cancelara la presentación y deberá indicarse el defecto correspondiente.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 104 al 106 actual)

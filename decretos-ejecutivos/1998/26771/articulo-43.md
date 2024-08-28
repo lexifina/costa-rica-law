@@ -1,2 +1,0 @@
-Artículo 43.—Elementos de juicio a la hora de calificar. Tanto el Registrador, el Jefe, el Director o el Subdirector, en su caso, se atendrán para la calificación, sólo a lo que resulte del título, de los asientos del Registro y en general de la información registral. Sus resoluciones no impedirán ni prejuzgarán el juicio sobre la validez del título o de la acción judicial que llegare a entablarse.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 41 al 43 actual)

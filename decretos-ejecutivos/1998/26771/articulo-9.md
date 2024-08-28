@@ -1,1 +1,0 @@
-Artículo 9°—De los Registradores. Corresponde a los Registradores la calificación e inscripción de los documentos sometidos a su estudio, lo cual harán por los medios de que dispongan en coordinación con la Dirección, con la obligación de brindar un eficiente servicio.

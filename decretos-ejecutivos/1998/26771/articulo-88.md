@@ -1,3 +1,0 @@
-Artículo 88.—La inmovilización. Si en el caso del artículo 85(*) anterior existiera oposición de algún interesado en la corrección del error, la Dirección o la Subdirección, mediante resolución, ordenará poner una nota de advertencia en la inscripción, que inmovilizará la inscripción hasta tanto no se aclare el asunto en vía judicial o las partes no lo autoricen. De igual forma se procederá cuando la rectificación del error cause algún perjuicio.
-(*)(Nota de Sinalevi: Actualmente artículo 87)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 86 al 88 actual)

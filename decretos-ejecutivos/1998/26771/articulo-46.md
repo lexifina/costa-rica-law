@@ -1,2 +1,0 @@
-Artículo 46.—La inscripción. Si el documento calificado no presenta defecto alguno, se procederá a su debida inscripción, por los medios técnicos que la Dirección considere más ágiles, eficientes y seguros, valiéndose para ello de las técnicas de computación, microfilmación, digitalización y cualquier otra tecnología.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 44 al 46 actual)

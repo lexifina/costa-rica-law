@@ -1,2 +1,0 @@
-Artículo 79.—Expedición y entrega de la cédula hipotecaria. Inscrito el documento, el Registrador de Cédulas Hipotecarias entregará al interesado la cédula, en la cual constará su firma y la del dueño del mueble hipotecado o su legitimo representante. Dicho acto se hará constar por escrito en un libro de entrega de cédulas que se llevará al efecto y el recibo será firmado por el funcionario y el interesado, o su apoderado.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 77 al 79 actual)

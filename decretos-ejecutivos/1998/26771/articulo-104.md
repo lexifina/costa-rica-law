@@ -1,2 +1,0 @@
-Artículo 104.—De la Revisión de la Boleta de Seguridad. El Registrador a quien se le asignó el documento deberá corroborar que la boleta que acompaña el documento corresponda a las asignadas al notario autorizante. El Registrador cancelará la presentación de todo documento que no porte la Boleta de Seguridad, o no esté autorizado por el Jefe del Departamento o el Director o Subdirector del Registro Público.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 102 al 104 actual)

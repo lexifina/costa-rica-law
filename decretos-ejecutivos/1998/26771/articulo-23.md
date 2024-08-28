@@ -1,2 +1,0 @@
-Artículo 23.—Del Registro de Personas. En el Registro de Personas se inscribirá todo lo indicado en el artículo 466 del Código Civil y cualquier otro acto o contrato que por ley o por reglamento se indicare. El asiento donde se realice la inscripción deberá contener los requisitos indicados en el artículo 467 de dicho Código.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541 del 6 de marzo de 2000, que lo traspasó del antiguo artículo 21 al 23 actual)

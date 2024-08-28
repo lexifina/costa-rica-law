@@ -1,2 +1,0 @@
-Artículo 18.—Del Departamento Mercantil y de Personas. El Departamento Mercantil y de Personas está constituido por un Jefe, los Registradores y Certificadores dedicados a la registración y certificación de todo lo relativo al Registro Mercantil, de Personas y de Asociaciones, para lo cual deberán cumplir lo que establecen los artículos 8, 9 y 14 este Reglamento.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541 del 6 de marzo de 2000, que lo traspasó del antiguo artículo 16 al 18 actual)

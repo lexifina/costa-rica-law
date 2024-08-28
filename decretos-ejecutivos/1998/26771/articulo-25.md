@@ -1,2 +1,0 @@
-Artículo 25.—Del Registro de Asociaciones. En el Registro de Asociaciones se inscribirán las asociaciones con fines artísticos, científicos, benéficos, de recreo y cualesquiera otros lícitos que no tengan por único y exclusivo objeto el lucro o ganancia. En el asiento donde se registre constará un resumen de los datos más importantes de su. inscripción.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541 del 6 de marzo de 2000, que lo traspasó del antiguo artículo 23 al 25 actual)

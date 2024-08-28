@@ -1,2 +1,0 @@
-Artículo 90.—Efectos de la inscripción de la rectificación. La inscripción de la rectificación surtirá efecto a partir de la fecha en que se realice, sin perjuicio del derecho que puedan tener los terceros para reclamar en vía judicial contra la falsedad o nulidad del título a que se refiere la inscripción que contenía el error.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 88 al 90 actual)
