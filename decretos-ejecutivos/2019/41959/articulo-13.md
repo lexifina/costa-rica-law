@@ -1,1 +1,0 @@
-Artículo 13.- Levantamiento de la medida. El levantamiento de la nota de bloqueo registral, y en su caso, la nota de prevención, corresponderá a la autoridad judicial que conozca de la validez de los asientos registrales, salvo que de la publicidad registral se determine el saneamiento de la situación que dio origen a la medida cautelar correspondiente.

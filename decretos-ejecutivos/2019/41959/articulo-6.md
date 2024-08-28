@@ -1,1 +1,0 @@
-Artículo 6.- Legitimación. La solicitud de cancelación de asientos, podrán realizarla los afectados de la inscripción o anotación provisional fraudulenta, siempre que cumpla con los requisitos establecidos al efecto.

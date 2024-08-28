@@ -1,3 +1,0 @@
-CAPÍTULO II:
-Del procedimiento y requisitos para la cancelación de asientos irregulares
-Artículo 5.- Cancelación de asientos de presentación o de inscripción definitiva de origen fraudulento. De oficio o a solicitud de los afectados de una inscripción fraudulenta, serán cancelados, sin perjuicio de la tutela jurisdiccional de los asientos, las inscripciones o las anotaciones provisionales inmobiliarias generadas a partir de documentación fraudulenta, por contener un acto inexistente dado que no consta en escritura matriz; por la inexactitud de fondo entre ésta y el documento presentado a la corriente registral; o por contener una rogación basada en un poder especial que no consta en una escritura matriz.

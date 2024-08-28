@@ -1,1 +1,0 @@
-Artículo 21.- Disposiciones derogatorias. Para los efectos del presente Reglamento deróguese el inciso a) del artículo 32 del Reglamento de Organización del Registro Inmobiliario, Decreto Nº 35509-J de 30 de setiembre de 2009.

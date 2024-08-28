@@ -1,5 +1,0 @@
-Artículo 9.- De la notificación a los interesados. A todos los interesados o afectados se les notificará la solicitud de cancelación, para que se manifiesten según corresponda a sus intereses, por un plazo que no exceda de 8 días hábiles, contado a partir del día hábil siguiente a la notificación hecha al último de ellos; o en su defecto, a partir del día hábil siguiente luego de la publicación del edicto que se dirá.
-Se les notificará en el domicilio más reciente y completo que conste de la publicidad registral, por medio de correo certificado mediante el sistema de acuse de recibo, el cual se incorpora al expediente respectivo.
-En caso de que la notificación no pueda ser llevada a cabo conforme el sistema de acuses de recibo, se publicará, por una sola vez un edicto en el Diario Oficial La Gaceta.
-La notificación al gestionante, se realizará en el lugar o por los medios señalados, de acuerdo al inciso b) del artículo 7 de este Reglamento.
-El plazo concedido corre a partir del día hábil siguiente de la notificación del último interesado o afectado, o de la publicación del referido edicto.

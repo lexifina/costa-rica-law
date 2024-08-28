@@ -1,4 +1,0 @@
-Artículo 2°- Definiciones. Para los fines del presente Reglamento, se entenderá por:
-a) Asiento irregular: Un asiento se considerará irregular si para su anotación provisional, constitución, cancelación o modificación tuvo como medio de rogación un testimonio notarial que no esté asentado en el correspondiente documento matriz; o que tal testimonio contenga diferencias sustanciales, en relación con los efectos materiales o de fondo con la escritura matriz.
-b) Escritura matriz: Para los efectos de la aplicación de los alcances de la Ley Nº 9602 y del presente Reglamento, se entenderá por escritura matriz el documento protocolar extendido ante un fedatario público, de conformidad con lo dispuesto por los artículos 81, siguientes y concordantes del Código Notarial, Ley Nº 7764 del 17 de abril de 1998.
-c) Inexactitud de fondo: es aquella que altera la voluntad de las partes y modifica en su esencia el acto o contrato.
