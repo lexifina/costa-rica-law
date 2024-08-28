@@ -1,0 +1,1 @@
+ARTÍCULO 2- El lote a segregar mide mil trescientos noventa y un metros cuadrados (1.391 m2) y corresponde al plano catastrado número SJ- uno nueve dos cuatro siete nueve dos - dos cero uno seis (N.º SJ-1924792-2016). La donación se hace libre de gravámenes y anotaciones.
