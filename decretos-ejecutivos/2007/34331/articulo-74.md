@@ -1,1 +1,0 @@
-Artículo 74.—Finca filial. En todo plano de agrimensura de fincas filiales se deberá incluir un diseño esquemático con la distribución arquitectónica del piso o nivel en que se ubica la finca filial. En ese diseño se deberá resaltar con un sombreado la ubicación de la finca filial a catastrar.

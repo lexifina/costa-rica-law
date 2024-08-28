@@ -1,1 +1,0 @@
-Artículo 73.—Plano de finca madre. Cuando el plano a registrar corresponda a un único edificio construido sometido al régimen de propiedad en condominio, se deberá indicar el número de plano catastrado donde se asienta el edificio, independientemente del piso al que corresponda el plano a catastrar.

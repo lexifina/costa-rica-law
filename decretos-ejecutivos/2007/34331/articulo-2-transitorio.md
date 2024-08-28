@@ -1,3 +1,0 @@
-Transitorio II.—La exigencia de la georeferenciación se aplicará paulatinamente a criterio de la autoridad Registral competente. Mientras no se cuente con la información necesaria para realizar el enlace de los levantamientos de agrimensura de aplicación catastral a la Red Oficial de Coordenadas Nacionales, el área se obtendrá con los datos del levantamiento topográfico convencional del inmueble, reducidos al horizonte.
-(Así reformado por el artículo 7° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
-Dado en la Presidencia de la República.—San José, a los veintinueve días del mes de noviembre del dos mil siete.

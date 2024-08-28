@@ -1,2 +1,0 @@
-TRANSITORIO IV Para los planos catastrados a los que se refiere el artículo 71, inciso d), inscritos con anterioridad a la entrada en vigencia de esta reforma, quedará de pleno derecho cancelada su inscripción al año de entrada en vigencia de esta reforma, para lo cual la Subdirección Catastral ordenará la cancelación correspondiente, mediante los procedimientos técnicos de que disponga.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 42793 del 8 de diciembre del 2020)

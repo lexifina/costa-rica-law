@@ -1,1 +1,0 @@
-Artículo 55.—Principio del Tracto Sucesivo. El Catastro procurará los medios necesarios para que se de una perfecta concatenación entre las inscripciones de los planos catastrados. Deberá existir una perfecta secuencia y correlación entre las inscripciones y sus modificaciones, cancelaciones o extinciones.

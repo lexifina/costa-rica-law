@@ -1,1 +1,0 @@
-Artículo 11.—Investigaciones catastrales. El Catastro Nacional de oficio podrá realizar las investigaciones que sirvan para los fines del catastro, de conformidad con lo establecido en la Ley de Catastro.

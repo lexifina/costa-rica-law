@@ -1,2 +1,0 @@
-Artículo 84.—Plano general de urbanización. El Catastro Nacional no registrará ningún plano de lotes de urbanización que afecte el plano general de la misma, presentado y visado por el INVU y la municipalidad, cualquier variación en ese sentido implicará un nuevo visado del plano a inscribir o en el plano general, con los cambios efectuados en la disposición de los lotes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)

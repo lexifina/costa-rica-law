@@ -1,1 +1,0 @@
-Artículo 15.—Procesos judiciales y audiencia al Catastro. En todos los juicios que se entablen cuestionando la ubicación, linderos y su correspondencia o identidad de determinada finca o fincas, provenientes de la exposición pública, el Catastro Nacional podrá emitir su criterio técnico si la autoridad jurisdiccional así lo requiere.

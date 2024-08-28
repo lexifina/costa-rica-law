@@ -1,8 +1,0 @@
-Artículo 35.—Derrotero. El espacio para el derrotero, contendrá:
-a. Ubicación: Se ubicará en el extremo superior derecho del plano.
-b. Dimensiones: Se establece un ancho mínimo de siete centímetros para el cuadro donde se localiza el derrotero.
-(Así reformado el inciso anterior por el artículo 4° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)
-c. Cuando se disponga de los insumos para la georeferenciación, deberán usarse, para efectos del derrotero, las coordenadas respectivas de cada uno de los vértices del polígono, siempre y cuando éstas sean referidas al sistema de coordenadas oficiales, calculadas con la información de enlace a la Red Nacional de Coordenadas y los datos del levantamiento del inmueble, para el cual se ha utilizado metodología topográfica convencional, indicándose la exactitud absoluta del enlace, la exactitud relativa del levantamiento topográfico convencional del inmueble y el tipo de proyección o transformación utilizado para pasar del levantamiento topográfico convencional al de enlace, incluyendo los errores obtenidos al proyectar o transformar; y
-d. El derrotero del contorno de cada polígono contemplado en el plano, indicará claramente los números de los vértices que determinan cada línea recta, rumbos o acimutes expresados en unidades del sistema sexagesimal o centesimal y la distancia en metros y sus fracciones.
-e. Cuando exista presentación electrónica de planos el profesional deberá aportar el archivo digital de las coordenadas o el derrotero de cada uno de los planos que presente, en los formatos electrónicos que mediante directriz se determinen.
-(Así adicionado el inciso anterior por el artículo 6 del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)

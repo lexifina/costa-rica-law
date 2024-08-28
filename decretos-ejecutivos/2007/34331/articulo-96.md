@@ -1,1 +1,0 @@
-Artículo 96.—Secciones especiales. Para los casos de las Secciones especiales mencionadas en este Reglamento, en las cuales no se aplica el mapa catastral, el plano catastrado es la descripción gráfica de la finca.

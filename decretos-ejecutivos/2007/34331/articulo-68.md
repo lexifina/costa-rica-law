@@ -1,1 +1,0 @@
-Artículo 68.—Comprobante de inscripción del plano. Una vez inscrito el plano, se emitirá un comprobante de inscripción, autorizado por el registrador por los medios técnicos y tecnológicos que se dispongan, este comprobante indicará el plazo de inscripción provisional respectivo.

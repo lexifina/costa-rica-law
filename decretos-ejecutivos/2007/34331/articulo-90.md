@@ -1,1 +1,0 @@
-Artículo 90.—Recursos. Contra lo resuelto por la Dirección, cabrá recurso de apelación para ante el Tribunal Registral Administrativo, en los términos establecidos en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, Ley Nº 8039 del 27 de octubre del 2000.

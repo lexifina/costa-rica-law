@@ -1,2 +1,0 @@
-Transitorio III.—Las remisiones que se realicen en el presente reglamento a nuevas estructuras administrativas aún no establecidas, se entenderán pospuestas hasta su implementación, sin embargo, en uso de las potestades de autoorganización la administración del Registro Nacional podrá designar y delimitar competencias hasta que se efectúen tales modificaciones administrativas.
-(Así adicionado por el artículo 8° del decreto ejecutivo N° 34763 del 16 de setiembre de 2008)

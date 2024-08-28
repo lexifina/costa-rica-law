@@ -1,1 +1,0 @@
-Artículo 6º—Antecedentes catastrales. Para la ejecución del catastro se utilizarán y aprovecharán, todos los trabajos realizados o antecedentes que figuren en el Registro Inmobiliario y cualesquiera levantamientos efectuados con anterioridad, por otras personas públicas o privadas, que puedan obtenerse.

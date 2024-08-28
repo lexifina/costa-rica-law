@@ -1,1 +1,0 @@
-Artículo 7º—Zonas catastrales del país. Se comprende como Zona Catastral la totalidad de los cantones del territorio nacional conforme al Decreto Nº 30106-J de fecha 6 de diciembre del 2001, publicado en el Diario Oficial La Gaceta Nº 19 del 28 de enero del 2002.

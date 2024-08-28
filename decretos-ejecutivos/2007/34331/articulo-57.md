@@ -1,7 +1,0 @@
-Artículo 57.—Efectos de la publicidad catastral. El objetivo principal del plano de agrimensura es contribuir al establecimiento, mejora y mantenimiento del catastro, definir en forma gráfica el inmueble y dar publicidad a sus linderos.
-El plano catastrado no es de por sí prueba absoluta de lo que en él se consigna.
-El plano de agrimensura levantado unilateralmente por el interesado, aunque esté inscrito en el Catastro, por sí mismo no puede afectar a terceros, no constituye título traslativo de dominio, no comprueba la propiedad ni la posesión de conformidad con lo dispuesto por el artículo 301 del Código Civil.
-Los documentos que contengan información catastral, emitidos por la oficina autorizada para tal efecto en el Registro Nacional o sus regionales, darán fe de su contenido y probarán que esa información proviene del Catastro.
-La registración catastral no convalida los documentos que sean nulos o anulables conforme con la ley, ni subsanará sus defectos.
-Las Oficinas Públicas, no otorgarán permisos, autorizaciones ni gestionarán trámite alguno, con base en un plano catastrado, si la finca a que se refiere el plano no se encuentra inscrita en el Registro de la Propiedad Inmueble.
-Cualquier permiso o autorización debe ser hecha por el propietario inscrito en el Registro de la Propiedad. Se exceptúa de lo anterior, los planos catastrados y que sirven para titulaciones, segregaciones, divisiones y concesión en zona marítimo terrestre, a los cuales por ley le corresponda el permiso o autorización, para los efectos que fue levantado.
