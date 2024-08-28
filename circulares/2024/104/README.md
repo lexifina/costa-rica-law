@@ -13,3 +13,4 @@ Unificación de las circulares número 223-2023 y 271-2023 relacionadas con: 1.)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-16 | la propia norma |
+| 2 | 2024-08-28 | Circular 184 (2024-08-28) |
