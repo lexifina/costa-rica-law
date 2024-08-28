@@ -1,6 +1,6 @@
 # Ley General de Contratación Pública
 
-Ley N° 9986 del 2021-05-27. SINALEVI, ficha 94469: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=94469&param2=141965&param3=1>.
+Ley N° 9986 del 2021-05-27. SINALEVI, ficha 94469: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=94469&param2=142828&param3=1>.
 
 Publicada en La Gaceta N° 103 del 2021-05-31.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 15 | 2024-01-01 | Resolución 123 (2023-12-12) | 2023-12-12 |
 | 4 de 15 | 2024-05-07 | Ley 10472 | 2024-04-19 |
 | 5 de 15 | 2024-08-28 | Ley 10466 | 2024-05-06 |
+| 6 de 15 | 2024-08-28 | Sala Constitucional, resolución 022483 (2024-08-07) | 2024-08-07 |
