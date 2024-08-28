@@ -1,1 +1,0 @@
-Artículo 11°- Seguimiento institucional La Unidad de Planificación Institucional, es la instancia designada por parte del Jerarca Institucional, para brindar el seguimiento a las recomendaciones emitidas por la Auditoría Interna y disposiciones de la Contraloría General de la República.
