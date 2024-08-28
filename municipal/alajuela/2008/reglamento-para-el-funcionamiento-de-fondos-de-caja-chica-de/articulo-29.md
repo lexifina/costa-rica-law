@@ -1,1 +1,0 @@
-Artículo 29.—Aplicación de sanciones: Las sanciones que correspondan según lo dispuesto en el artículo anterior, serán aplicadas por el titular de la Alcaldía Municipal de acuerdo con el Procedimiento establecido en el artículo 150 del Código Municipal.

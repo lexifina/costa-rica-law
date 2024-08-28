@@ -1,1 +1,0 @@
-Artículo 22.—Periodicidad: Se confeccionarán reintegros de caja chica, cuando se haya gastado más del 60% del total del fondo fijo correspondiente, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

@@ -1,1 +1,0 @@
-Artículo 7º—Monto del vale: se establece en la suma de ¢75.000 (setenta y cinco mil colones) la suma máxima que podrá adelantarse o liquidarse mediante el sistema de caja chica. Dicho monto podrá actualizarse mediante el mismo procedimiento establecido en el artículo 4 de este Reglamento.
