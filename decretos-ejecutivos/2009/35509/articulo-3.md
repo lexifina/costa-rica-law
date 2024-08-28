@@ -1,1 +1,0 @@
-Artículo 3º—Finalidad del Registro Inmobiliario. El Registro Inmobiliario tiene como finalidad fortalecer la seguridad inmobiliaria registral, por medio de los efectos jurídicos de su publicidad, atendiendo a la eficacia y eficiencia en la tramitación de los documentos presentados.

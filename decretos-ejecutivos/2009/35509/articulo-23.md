@@ -1,1 +1,0 @@
-Artículo 23.—Legitimación para gestionar. Pueden promover la gestión administrativa los titulares de los derechos inscritos en el Registro; y toda aquella persona interesada o afectada de la existencia de una inexactitud que pruebe tener interés, de acuerdo con los asientos y la publicidad del Registro.

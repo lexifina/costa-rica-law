@@ -1,3 +1,0 @@
-Artículo 16.—Inexactitudes de origen extrarregistral. Las inexactitudes extra registrales son las que tienen su origen fuera del ámbito registral, y se producen por:
-a) Información inexacta en cuanto a la realidad física, descripción gráfica o jurídica del inmueble, siempre y cuando dicha inexactitud no pueda ser detectada ni valorada en el proceso de calificación de los documentos por parte del Registrador.
-b) Información proveniente de documentos fehacientes conforme a la ley cuyo antecedente no es auténtico o por contener información presumiblemente falsa o adulterada, sin que la inexactitud o falsedad documental pueda ser detectada ni valorada en el proceso de calificación de los documentos por parte del Registrador.

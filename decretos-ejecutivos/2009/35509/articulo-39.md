@@ -1,1 +1,0 @@
-Artículo 39.—Procedimiento de resolución alternativa de conflictos. En cualquier tiempo, los interesados podrán acudir al procedimiento de resolución alternativa de conflictos, con el fin de sanear la información registral.

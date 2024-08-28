@@ -1,1 +1,0 @@
-Artículo 40.—Conocimiento de la Gestión Administrativa para el saneamiento de inmuebles producto del levantamiento catastral. El conocimiento de la Gestión Administrativa para el saneamiento de inmuebles producto del levantamiento catastral será de la Subdirección correspondiente del Registro Inmobiliario. Su presentación y tramitación se hará ante dicha instancia.
