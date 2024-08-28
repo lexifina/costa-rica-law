@@ -1,6 +1,6 @@
 # Ley de Opciones y Naturalizaciones
 
-Ley N° 1155 del 1950-04-29. SINALEVI, ficha 38386: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38386&param2=118007&param3=1>.
+Ley N° 1155 del 1950-04-29. SINALEVI, ficha 38386: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38386&param2=141974&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 1995-09-14 | Ley 7033 | 1986-08-04 |
 | 7 de 9 | 1995-09-14 | SINALEVI | 1991-05-09 |
 | 8 de 9 | 2019-10-10 | Ley 9710 | 2019-08-09 |
+| 9 de 9 | 2024-08-28 | Ley 10508 | 2024-08-26 |
