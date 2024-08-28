@@ -14,3 +14,4 @@ Establece que las Direcciones de los diferentes Registros que conforman el Regis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-03 | la propia norma |
+| 2 | 2024-08-28 | Decreto Ejecutivo 44647 (2024-08-28) |
