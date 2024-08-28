@@ -1,0 +1,3 @@
+TRANSITORIO- A la entrada en vigencia de la presente ley, el Ministerio de Hacienda deberá realizar los ajustes presupuestarios necesarios en el próximo presupuesto ordinario y extraordinario de la República, y subsiguientes, para equilibrar de contenido presupuestario del Fondo Social Migratorio. Asimismo, podrá incluir en un presupuesto extraordinario de la República la correspondiente compensación del presente ejercicio económico, de acuerdo con lo señalado en el artículo 4 de esta ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cinco días del mes de junio del año dos mil veinticuatro.
