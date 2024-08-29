@@ -1,0 +1,1 @@
+Artículo 10. Misiones de los Organismos Financieros. Los organismos financieros internacionales deberán comunicar al Ministerio de Hacienda las misiones en las que participarán de previo a la contratación de las operaciones de crédito.

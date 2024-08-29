@@ -1,0 +1,1 @@
+Artículo 14. Medios electrónicos. La negociación podrá llevarse a cabo en forma física o mediante el uso de. los medios electrónicos disponibles por las partes; asimismo la minuta de negociación y la documentación que la acompaña podrá firmarse electrónicamente.

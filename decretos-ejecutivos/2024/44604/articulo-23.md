@@ -1,0 +1,1 @@
+Artículo 23. Derogatoria. Se deroga el Decreto Ejecutivo 35222-H denominado "Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda".

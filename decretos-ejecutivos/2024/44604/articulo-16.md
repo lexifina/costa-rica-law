@@ -1,0 +1,1 @@
+Artículo 16. Suscripción de contratos de préstamo o garantía. La Dirección de Crédito Público coordinará con los acreedores y las entidades proponentes lo pertinente para la suscripción de los contratos de préstamo o contratos de garantía por parte del Ministro de Hacienda, así como coordinar la elaboración del respectivo proyecto de ley.

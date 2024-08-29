@@ -1,0 +1,1 @@
+Artículo 19. Información adicional. La Dirección de Crédito Público, en caso de requerirse, solicitará a la Secretaría Técnica de la Autoridad Presupuestaria criterio sobre la capacidad financiera de la institución pública para disponer de los recursos financieros que le permitan cumplir con el servicio de deuda generado por la línea de crédito.

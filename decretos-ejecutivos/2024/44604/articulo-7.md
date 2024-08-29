@@ -1,0 +1,1 @@
+Artículo 7. Nulidad de operaciones de Crédito Público. De conformidad con lo dispuesto en el artículo 87 de la Ley de Administración Financiera de la República y Presupuestos Públicos .-Ley Nº 8131-, resultarán nulas las operaciones de crédito público que no se ajusten a dicha norma, sin perjuicio de la responsabilidad personal de quienes las ejecuten.

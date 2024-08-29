@@ -1,0 +1,3 @@
+CAPÍTULO III
+PROCEDIMIENTO DE NEGOCIACIÓN DEL ENDEUDAMIENTO PÚBLICO
+Artículo 11. Representación. Cuando el Gobierno de la República figure como prestatario o garante de la operación de crédito, durante la negociación conforme a lo dispuesto en el artículo 8º de este Reglamento, la representación será ejercida por la Dirección de Crédito Público, para lo cual el Ministro de Hacienda designará al equipo que acompañará al Director o Subdirector, previa recomendación de éstos para dichas negociaciones. Lo anterior, sin perjuicio de la participación de la entidad proponente del programa/proyecto en cuestión como parte interesada.

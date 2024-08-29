@@ -1,0 +1,1 @@
+Artículo 13. De la entidad proponente. Será responsabilidad de la entidad proponente la formulación técnica del programa/proyecto, así como la designación de los funcionarios que conformaran el equipo institucional que lo representará durante la negociación del contrato de préstamo.

@@ -1,0 +1,1 @@
+Artículo 4. Autorización para la contratación de crédito público. La autorización para contratación de crédito público del Gobierno de la República, entidades públicas y demás órganos según corresponda, se ajustará a la normativa vigente y a las disposiciones del presente Reglamento.

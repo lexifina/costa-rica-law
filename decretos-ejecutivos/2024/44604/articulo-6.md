@@ -1,0 +1,1 @@
+Artículo 6. Operaciones de Crédito Público. El endeudamiento resultante de las operaciones de crédito público se denominará deuda pública y podrá originarse en las operaciones descritas en el artículo 81 de la Ley Nº 8131. El presente decreto aplica en lo atinente a los incisos a), b), c) y e) del artículo mencionado.

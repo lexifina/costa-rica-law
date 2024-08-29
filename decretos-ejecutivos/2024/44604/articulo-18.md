@@ -1,0 +1,12 @@
+Artículo 18. De la solicitud de recomendación para la contratación de las líneas de crédito. Las entidades públicas deberán presentar la solicitud de contratación de las líneas de crédito debidamente rubricada mediante firma digital o excepcionalmente en forma física por la máxima autoridad competente para ello, ante la Dirección de Crédito Público con copia a la Secretaría Técnica de la Autoridad Presupuestaria acompañada de la siguiente documentación:
+a) Oficio mediante el cual la entidad proponente solicita el dictamen de autorización al Ministerio de Planificación Nacional y Política Económica, así como el dictamen de autorización.
+b) Oficio mediante el cual la entidad proponente solicita el dictamen de. autorización para contratar líneas de crédito al Banco Central de Costa Rica, así como el dictamen favorable.
+c) Justificación para la contratación de la línea de crédito.
+d) Carta (s) de términos y condiciones financieras referenciales de la (s) línea (s) (monto, moneda, tasa de interés, plazo de gracia, amortización, período de desembolso, tipo de garantía, y comisiones).
+e) Proyecciones de desembolsos y pago􀁫 de la línea de crédito.
+f) Estados financieros auditados (Balance general, Estados de resultados, Estado de origen y aplicación de fondos y Flujo de caja) y razones financieras de la institución de los últimos 2 años (cuando corresponda), así como las proyecciones de estados financieros, razones financieras y flujos de caja que incorporen el efecto de los créditos y líneas de crédito en proceso de negociación y ejecución, que cubran el plazo del servicio de la deuda de las líneas de crédito en trámite, adjuntando los supuestos utilizados ( cuando corresponda).
+g) Cuadro con información relativa a las líneas de crédito previamente autorizadas a contratar y utilizadas, que incluya las condiciones financieras y los saldos adeudados (cuando corresponda).
+h) Para aquellas instituciones públicas que presenten líneas de crédito con saldos adeudados, deberán presentar un informe detallado que indique la forma y plazos en que cancelará dicho saldo.
+i) Fundamento legal de la entidad para contratar o avalar crédito público.
+j) Cuando corresponda, deberá aportar además, personería jurídica y acuerdo de la Junta Directiva u órgano colegiado que autoriza a la institución a gestionar la solicitud.
+En caso de que la información esté incompleta o confusa, la Dirección de Crédito Público le solicitará a la entidad que complete o aclare la información que acompaña la solicitud de recomendación, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 21. Plazo de utilización de la autorización para contratar las líneas de crédito. El plazo de autorización para contratar líneas de crédito será aprobado para períodos de un año, periodo que no necesariamente debe de coincidir con el Periodo de Ejecución Presupuestaria.
