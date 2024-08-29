@@ -1,4 +1,0 @@
-Artículo 29. De la determinación de operaciones. Cuando un titular de una licencia vaya a cesar actividades ya sea por expiración de licencia o por cancelación de la misma a solicitud de parte, el titilar deberá presentar al Ministerio de Salud o al Ministerio de Agricultura y Ganadería por lo menos con 10 días hábiles de anticipación al vencimiento de la licencia o cese de las actividades, lo siguiente:
-. Plan de terminación de operaciones en el cual se indique cuando se estima cesar actividades.
-. Cantidad de cannabis psicoactivo; derivados o productos terminados remanentes, dicho remanente deberá ser destruido o solicitar una autorización excepcional para su uso o comercialización.
-El titular debe llevar a cabo la destrucción correspondiente según lo señalado en el artículo 28 del presente reglamento.
