@@ -17,10 +17,12 @@ Artículo 3 -Definiciones. Para efectos del presente Reglamento los siguientes t
 16. Efluente: En manejo de aguas residuales se refiere al flujo que sale de la última unidad de conducción o tratamiento.
 17. Ente generador: Persona física o jurídica, pública o privada, responsable de la actividad causante del vertido, del tratamiento y disposición final de las aguas residuales.
 18. Ente administrador de alcantarillado sanitario (EMS): Persona física o jurídica, pública o privada, que es el autorizado responsable para administrar un sistema de alcantarillado sanitario.
-19. Limite permisible de vertido: Corresponde a la concentración máxima de una sustancia contaminante permitida en el Reglamento que regula el vertido y uso de aguas residuales 0 33601 del 9 de agosto de 2006.
+19. Limite permisible de vertido: Corresponde a la concentración máxima de una sustancia contaminante permitida en el Reglamento que regula el vertido y uso de aguas residuales vigente.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44790 del 29 de agosto de 2024)
 20. ,Parámetros de contaminación: Sustancias contaminantes reguladas o sujetas a límites permisibles de vertido y/o a la aplicación del canon.
 21. Período de descarga: Lapso en el cual se genera un vertido o vertimiento. Para efectos del presente Reglamento se expresará en horas por día, días al mes y meses por año.
-22. Permiso de vertido: Autorización emitida por el Ministerio de Ambiente y Energía (MINAE) que faculta a los entes generadores, a usar los cuerpos receptores de caudal permanente, para hacer sus descargas de aguas residuales.
+22. Permiso de vertido: Autorización emitida por el Ministerio de Ambiente y Energía (MINAE), que faculta a los entes generadores a usar un cuerpo receptor para hacer sus descargas de aguas residuales tratadas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44790 del 29 de agosto de 2024)
 23. Punto de captación: Es el lugar en el cual, el usuario toma el recurso hídrico para cualquier uso.
 24. Punto de descarga: Sitio o lugar donde se realiza un vertimiento en el cuerpo receptor.
 25. Servicios ambientales: Los servicios ambientales son aquellos derivados directamente de elementos de la naturaleza y cuyos valores y beneficios pueden ser económicos, ecológicos o socioculturales y que inciden directamente en la protección y el mejoramiento del medio ambiente, propiciando una mejor calidad de vida de los habitantes.
