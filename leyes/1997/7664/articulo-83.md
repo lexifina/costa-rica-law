@@ -1,6 +1,2 @@
-ARTICULO 83.- Donación de decomisos
-Sin trámite de escritura pública, el Servicio Fitosanitario del
-Estado podrá donar a instituciones u organizaciones sin fines de lucro
-los bienes decomisados cuyo valor no exceda de un millón de colones
-(¢1.000.000,00). El procedimiento por seguir se establecerá en el
-reglamento respectivo.
+ARTICULO 83.- Falta de inscripción y registro de sustancias. Será reprimido con tres a veinte días multa quien, importe, exporte, fabrique, formule o venda sustancias químicas, biológicas o afines para uso agrícola, sin la inscripción y el registro citados en los artículos 23 y 24 de esta ley.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 76 al artículo 83)

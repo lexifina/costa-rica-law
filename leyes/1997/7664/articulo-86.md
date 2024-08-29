@@ -1,5 +1,2 @@
-ARTICULO 86.- Sustitución de dependencias
-Las dependencias que, en virtud de esta ley, constituyan el Servicio
-Fitosanitario del Estado, sustituirán en sus funciones, obligaciones y
-atribuciones a la Dirección General de Sanidad Vegetal, creada por el
-Decreto Ejecutivo No. 8887-A, de 28 de agosto de 1978.
+ARTICULO 86.- Destino de las multas. Los montos recaudados de multas formarán parte de los fondos que el Ministerio de Agricultura y Ganadería destinará al Servicio Fitosanitario del Estado. Serán depositados en su cuenta especial o en fideicomiso, dentro de los quince días siguientes a la firmeza de la sentencia que establezca la multa. Si el condenado no pagare la multa dentro de este plazo, el juzgador estará facultado para hacerla efectiva en los bienes de aquel o de su garante.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 79 al artículo 86)

@@ -1,5 +1,2 @@
-ARTICULO 76.- Falta de inscripción y registro de sustancias
-Será reprimido con tres a veinte días multa quien, importe, exporte,
-fabrique, formule o venda sustancias químicas, biológicas o afines para
-uso agrícola, sin la inscripción y el registro citados en los artículos
-23 y 24 de esta ley.
+ARTICULO 76.- Incumplimiento del artículo 49. Será sancionado con prisión de uno a tres años quien, incumpliendo las disposiciones cuarentenales establecidas en el artículo 49 de la presente ley, importe o haga ingresar en tránsito, vegetales, agentes de control biológico u otros organismos de uso agrícola, prohibidos o restringidos.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 69 al artículo 76)
