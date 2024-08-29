@@ -1,0 +1,5 @@
+ARTÍCULO 10- Reinserción
+El Ministerio de Justicia y Paz incluirá en sus planes un programa de reinserción con enfoque restaurativo, para la persona menor de edad y personas jóvenes que sean procesadas por delitos y/o contravenciones.
+El Ministerio de Educación Pública (MEP) establecerá en sus programas un eje de recuperación de personas menores de edad y personas jóvenes víctimas y victimarias de bul/ying.
+El Instituto sobre Alcoholismo y Farmacodependencia (IAFA) establecerá en sus programas el asesoramiento y apoyo en centros educativos, gobiernos locales, Ministerio de Seguridad para la reinserción y recuperación de la adicción al alcohol, al tabaco y a otras drogas lícitas o ilícitas de personas menores de edad y personas jóvenes.
+El Instituto Costarricense del Deporte y Recreación (lcoder) incluirá, dentro de los programas deportivos, un eje transversal que promueva la prevención de violencia en la población menor de edad y población joven, procurando el mayor alcance y acceso de dichos programas para todas las personas.

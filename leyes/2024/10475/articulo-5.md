@@ -1,0 +1,2 @@
+ARTICULO 5- Protección de datos e información de personas menores de edad y personas jóvenes
+Se garantizarán, a toda persona menor de edad y persona joven, los derechos establecidos para la protección de sus datos personales, de conformidad con lo que se establece en la Ley 1 O 238, Ley de Protección de la Imagen, la Voz y los Datos Personales de las Personas Menores de Edad, de 11 de julio de 2022 y la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, del 7 de julio de 2011.
