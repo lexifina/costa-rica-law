@@ -1,1 +1,0 @@
-Artículo 4º—Derogar el Decreto Ejecutivo Nº 27934-J publicado en el Diario Oficial La Gaceta Nº 115 del 15 de junio de 1999, por el cual se fusionaban las anteriormente denominadas Asesorías Jurídicas, en un Departamento de Asesoría Jurídica para el Registro Nacional.

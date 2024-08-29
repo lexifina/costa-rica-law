@@ -1,1 +1,0 @@
-Artículo 3º—Los funcionarios de las anteriormente denominadas Asesorías Jurídicas de los Registros de Bienes Muebles, Bienes Inmuebles, Personas Jurídicas y del Catastro Nacional, se trasladan al respectivo Registro de origen con todos sus derechos y deberes, a efecto de que continúen con las funciones propias de su especialidad dentro del Departamento Jurídico respectivo.

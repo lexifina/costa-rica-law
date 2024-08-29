@@ -1,9 +1,0 @@
-Artículo 2º—Estos Departamentos Jurídicos estarán integrados por funcionarios que deberán ser abogados debidamente incorporados al Colegio de Abogados, y tendrán las siguientes funciones dentro de los procesos de calificación e inscripción de documentos de su especialidad:
-a) Instruir jurídica y registralmente a los Registradores y Jefes de Registradores con respecto, tanto a la calificación de los documentos en proceso de registración, así como de los procedimientos de corrección de errores en la inscripción de los mismos, en los casos en que tal corrección perjudique a terceros interesados, y deba aplicarse el proceso de la Gestión Administrativa.
-b) Colaborar con la Dirección y Subdirección en todas sus funciones, emitir criterios, informes, aportar jurisprudencia y doctrina sobre los puntos de derecho que se les someta y dar a conocer las diferentes normas que se emitan, en la materia propia de su especialidad.
-c) Mantener contacto permanente con las instituciones que se relacionan con el Registro en los aspectos jurídicos, a fin de uniformar políticas y procedimientos entre aquellas instituciones y el Registro.
-d) Certificar los expedientes administrativos que les sean solicitados por las distintas autoridades judiciales o administrativas que los requieran.
-e) Certificar asientos de inscripción y documentos públicos de su especialidad para que sirvan en los procesos que se ventilan en sede jurisdiccional o administrativa.
-f) Revisar periódicamente la jurisprudencia de interés para la calificación e inscripción de los documentos de su especialidad.
-g) Inscribir las notas de advertencia e inmovilización sobre los derechos publicitados que estén involucrados dentro de un proceso de gestión administrativa y cualquier otra inscripción que ordene la Dirección respectiva.
-h) Dictaminar la procedencia de apertura de los procesos de gestión administrativa.
