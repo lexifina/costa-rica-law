@@ -1,8 +1,2 @@
-ARTICULO 81.- Procedimiento especial
-En el reglamento respectivo, también se definirá el procedimiento
-especial que se utilizará cuando técnicamente se requiera la destrucción
-o reexpedición inmediata de vegetales, agentes de control biológico y
-otros tipos de organismos para uso agrícola y sus empaques, como único
-medio para eliminar una plaga de importancia cuarentenal que, por sus
-características, puede introducirse, diseminarse, establecerse
-rápidamente y causar graves daños a la agricultura nacional.
+ARTICULO 81.- Actuación indebida de funcionarios públicos. Las sanciones estipuladas en este capítulo se aplicarán aumentadas en un tercio, si quien resultare responsable es el funcionario público que, con su actuación, pudo haber evitado el resultado. Además, se le impondrá inhabilitación especial, consistente en la pérdida del cargo público y la imposibilidad de ser nombrado nuevamente en cualquier cargo público durante cinco años.
+(Así modificada su numeración por el artículo 2° de la ley N° 10497 del 18 de julio del 2024, que lo traspasó del antiguo artículo 74 al artículo 81)

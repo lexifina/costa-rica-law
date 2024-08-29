@@ -1,7 +1,3 @@
-Sección II
-DELITOS
-ARTICULO 68.- Incumplimiento de los artículos 17 y 18
-Será sancionado con prisión de tres meses a tres años quien,
-incumpliendo las disposiciones cuarentenales establecidas en los
-artículos 17 y 18 propague o propicie la diseminación, en áreas libres,
-de una plaga introducida en el país.
+Artículo 68- Sanciones administrativas
+Las infracciones señaladas en el artículo 67 de esta ley serán sancionadas con multa de uno a cinco salarios base, de conformidad con el artículo 2 de la Ley 7337, de 5 de mayo de 1993.
+(Así adicionado por el artículo 2° de la ley N° 10497 del 18 de julio del 2024)
