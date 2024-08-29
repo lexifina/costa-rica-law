@@ -1,7 +1,0 @@
-Artículo 52.—Excepciones al principio de tracto sucesivo
-No será necesaria la previa inscripción o anotación, a los efectos de la continuidad del tracto sucesivo con respecto al documento presentado para su inscripción, en los siguientes casos:
-a) Cuando el documento sea otorgado o expedido por lo jueces, herederos declarados o sus representantes, en cumplimiento de contratos u obligaciones inscritos a su nombre.
-b) Cuando los herederos declarados o sus sucesores transmitieren o cedieren bienes hereditarios inscritos a nombre del causante.
-c) Cuando se trate de documentos no contradictorios que se refieran a negocios jurídicos sobre el mismo bien, no obstante la presentación no sea en el orden cronológico correspondiente y aunque en las respectivas autorizaciones hayan intervenido distintos Notarios. En este caso no será necesario un documento especial de posposición del primer documento.
-d) Cuando se inscriban simultáneamente los documentos por lo cuales se adquirió la titularidad del derecho transmitido y su adquisición aunque la presentación al Diario de los títulos no haya sido en el orden cronológico del otorgamiento o en el supuesto del artículo 455 del Código Civil.
-En todos los casos indicados anteriormente, el documento deberá expresar la relación de los antecedentes del dominio o de los derechos motivo de la transmisión o adjudicción, a partir del que figure inscrito o pendiente de inscripción en el Registro, circunstancia que se consignará en el asiento del documento.

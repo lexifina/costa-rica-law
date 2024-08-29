@@ -1,2 +1,0 @@
-Artículo 51.—Principio de tracto sucesivo
-No se inscribirá documento en el que aparezca como titular del derecho una persona distinta de la que figura en la inscripción precedente, o exista documento anotado o inscrito que se le oponga. De los asientos existentes en el Registro deberá resultar una perfecta secuencia y encadenamiento del titular del dominio y de los demás derechos registrados, así como la correlación entre las inscripciones y sus modificaciones, cancelaciones o extensiones.

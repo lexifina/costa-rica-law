@@ -1,3 +1,0 @@
-Artículo 64.—Requisitos para la inscripción de buques Fuera de los requisitos establecidos en el artículo 39 para la inscripción de buques deberán observarse los siguientes requisitos:
-a) Únicamente podrán registrar buques los ciudadanos y empresas costarricenses, los entes públicos nacionales, los representantes navieros y las empresas extranjeras que tengan representante legal o sucursal en el país.
-b) En la inscripción de buques a nombre de personas jurídicas deberá aportarse su número de cédula jurídica, dirección exacta de su domicilio social y adjuntar personería jurídica vigente a la fecha de la solicitud.

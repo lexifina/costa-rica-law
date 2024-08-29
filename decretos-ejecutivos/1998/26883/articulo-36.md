@@ -1,2 +1,0 @@
-Artículo 36.—De la clave de acceso a la base de datos y su uso
-La clave de acceso es un código que sirve para entrar a la base de datos del Registro Nacional y así poder introducir nueva información o variar la existente ya sea eliminándola o modificándola. Esta clave es de uso único y exclusivo del funcionario a quien que se le asigna y será el responsable único por su utilización irregular. Por razones de seguridad, cuando se estime conveniente, el funcionario responsable podrá cambiar clave de acceso, comunicando formalmente dicha circunstancia a su superior inmediato.

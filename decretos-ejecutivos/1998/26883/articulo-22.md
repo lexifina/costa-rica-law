@@ -1,2 +1,0 @@
-Artículo 22.—Examen de documentos por parte del Registrador
-Recibidos los documentos por el Registrador, procederá éste a su examen y verán que cumplan los requisitos legales, generales o especiales requeridos y que cumplan los principios sustantivos del ordenamiento jurídico y contengan los datos necesarios para la práctica del asiento respectivo. Si no se encontrare ningún defecto sustancial que lo impida, ordenará con su firma la inscripción.

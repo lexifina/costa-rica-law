@@ -1,8 +1,0 @@
-Artículo 56.—Documentos inscribibles provisionalmente
-Las inscripciones provisionales originadas en una orden judicial, se convertirán en definitivas mediante la presentación en el Registro de la sentencia, pasada de autoridad de cosa juzgada. Son inscripciones de este tipo:
-1. Las demandas sobre la propiedad de determinados bienes muebles, y cualesquiera otras que versen sobre propiedad de derechos reales o que se pida la constitución, declaración, modificación o extinción de cualquier derecho real sobre muebles.
-2. Las demandas sobre cancelación o rectificación de asientos en el Registro. En estos dos primeros casos será aplicable la prescripción decenal.
-3. El decreto de embargo y el secuestro de bienes muebles. Esta inscripción durará tres meses; si dentro de este término no se presenta el embargo hecho para su inscripción, quedará cancelada la inscripción sin necesidad de declaratoria ni de asiento.
-4. El embargo practicado que se haga en bienes muebles. Dicha inscripción, conforme lo dispuesto por el artículo 14 inciso ch) de la Ley N° 7293 de 22 de abril de 1993, "Ley de Tránsito por Vías Públicas Terrestres", caduca de pleno derecho a los cuatro años y el registrador al inscribir nuevos títulos procederá a su cancelación de oficio. Al certificar el asiento respectivo se hará caso omiso de ella.
-5. Los gravámenes prendarios y los contratos de arrendamiento sobre bienes muebles se tendrán por prescritos a los cuatro años posteriores a la fecha de vencimiento del plazo y en tal caso se le aplicará lo dispuesto en el artículo 78 de este Reglamento.
-(Así reformado el punto 5. por el artículo 1 del Decreto Ejecutivo N° 27904 de 5 de abril de 1999)

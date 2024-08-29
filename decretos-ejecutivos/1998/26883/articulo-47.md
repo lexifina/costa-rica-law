@@ -1,4 +1,0 @@
-Artículo 47.—Cambio de características e inscripción de vehículos reconstruidos.
-Todo cambio de características básicas de un vehículo, aeronave o buque, deberá ser informado al Registro por escrito y por su propietario o representante legal, y en caso de que se incorporen partes nuevas, tales como el motor o chasis, deberá adjuntarse los documentos respectivos que demuestren la causa adquisitiva y la procedencia de las mismas.
-Tratándose de importación del chasis, excepción hecha de los casos especialmente autorizados por Ley, deberá constar la información respectiva del vehículo al que pertenece en el Certificado Electrónico de Aduana y precederse a la desinscripción del automotor cuyo chasis va a quedar inutilizado. El Registro autorizará una nueva matrícula al vehículo reconstruido.
-(Así reformado por el artículo 1 del Decreto Ejecutivo N° 27904 de 5 de abril de 1999)

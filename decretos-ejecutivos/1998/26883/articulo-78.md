@@ -1,2 +1,0 @@
-Artículo 78.—Cancelación de las prendas por prescripción
-De conformidad con los artículos 542, 543, y 578 del Código de Comercio, el Registro de oficio o a instancia de parte interesada, conforme las anotaciones o inscripciones constantes en el Registro, procederá a la cancelación de los gravámenes prendarios luego de transcurrido el plazo de la prescripción declarando, la cancelación de los asientos; y al inscribir nuevos títulos el Registrador deberá cancelar de oficio los gravámenes prescritos.

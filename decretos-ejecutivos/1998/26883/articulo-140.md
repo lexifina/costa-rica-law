@@ -1,2 +1,0 @@
-Artículo 140.—Incompatibilidades y prohibiciones
-Es incompatible con cualquier otro destino público el cargo de empleado a tiempo completo del Registro. Es prohibido a los empleados del Registro intervenir o participar de manera alguna en la redacción de documentos sujetos a Registro y en su presentación, trámite e inscripción, a menos que estén interesados personalmente ellos, su cónyuge, hermanos, ascendientes o descendientes consanguíneos o afines.

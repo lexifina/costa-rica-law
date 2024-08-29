@@ -1,2 +1,0 @@
-Artículo 125.—Requisitos de la gestión
-La gestión administrativa que se relaciona en el artículo anterior deberá contener en forma clara la petitoria, debidamente razonada y con su fundamento legal. Tendrá que indicarse casa u oficina dentro de la ciudad de San José en donde oír notificaciones. Además deberá presentarse un juego de copias de la solicitud, para cada uno de los interesados que deban notificarse.

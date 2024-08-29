@@ -1,2 +1,0 @@
-Artículo 4.—Del Director
-El Director será el superior jerárquico del Registro y tendrá el carácter de Registrador General. Deberá velar porque los empleados cumplan sus funciones y obligaciones de conformidad con el Reglamento Autónomo de Servicio del Registro Nacional, el Estatuto del Servicio Civil y su Reglamento, la Ley General de la Administración Pública, este Reglamento y demás normas conexas.

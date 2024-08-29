@@ -1,3 +1,0 @@
-Artículo 23.—Calificación unitaria
-Como principio general se dispone que el acto de la calificación será unitario y debe comprender todos los defectos que en ese momento tenga el documento y que impliquen la denegatoria o suspensión del mismo, debiendo consignar en la minuta de calificación el fundamento jurídico en que sustente el reparo. Comprobada la reincidencia en la inobservancia injustificada de esta regla, se consideraría falta grave del funcionario a efectos de aplicar las sanciones disciplinarias que correspondan.
-Si posterior a la primera calificación, se determinara la existencia de un defecto sustancial en el documento, deberá precederse a su subsanación para autorizar la inscripción.

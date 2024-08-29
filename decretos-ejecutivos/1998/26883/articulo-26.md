@@ -1,2 +1,0 @@
-Artículo 26.—Calificación de documentos por parte de la Dirección
-En todos los casos en que el Coordinador haya confirmado el defecto o cuando los Registradores juzgaren necesaria la apreciación jurídica de los defectos anotados al documento, someterá el punto a la Dirección del Registro, indicando claramente los argumentos en favor de la calificación. El pronunciamiento de la Dirección es obligatorio para el Registrador y su inobservancia se considerará falta grave.

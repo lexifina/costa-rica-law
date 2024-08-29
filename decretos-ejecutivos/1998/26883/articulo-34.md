@@ -1,3 +1,0 @@
-Artículo 34.—De la inscripción parcial
-De conformidad con el artículo 12 de la Ley sobre Inscripción de Documentos en el Registro Público, a solicitud de las partes legitimadas o del Notario Autorizante, procederá la inscripción parcial de uno o más documentos cuando se hubieren presentado conjuntamente, o de la parte correcta de un documento, siempre que fuere legalmente posible. Tratándose de documentos privados la solicitud deberá ser formulada por la parte o partes interesadas, cuyas firmas deberán ser autenticadas por un Notario Público.
-En ambos casos, el Registrador dejará constancia en el documento y en la base de datos de haberse practicado la inscripción parcial.

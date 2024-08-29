@@ -1,2 +1,0 @@
-Artículo 24.—Suspensión de inscripción
-De los documentos sometidos a su examen, el registrador suspenderá la inscripción de aquellos que registren actos o contratos absolutamente nulos o que carezcan de alguna de las formalidades extrínsecas que las leyes exijan, o de alguno de los requisitos que debe contener su inscripción. El registrador ordenará la inscripción de los documentos sometidos a su examen que no presentaren defectos.

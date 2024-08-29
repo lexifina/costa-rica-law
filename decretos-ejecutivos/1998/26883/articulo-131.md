@@ -1,2 +1,0 @@
-Artículo 131.—Sanción por no señalamiento de lugar para oír notificaciones
-Si la parte involucradas, habiendo sido apercibido el señalamiento de lugar para oír notificaciones, no lo hicieren dentro del término conferido al efecto, o cuando la notificación se ha practicado mediante edicto en el Diario Oficial, para todo efecto legal se tendrá por comunicada cualquier resolución por el solo transcurso de veinticuatro horas.

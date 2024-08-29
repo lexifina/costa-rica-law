@@ -1,2 +1,0 @@
-Artículo 5.—Del Subdirector
-El Subdirector será el superior jerárquico adjunto del Registro y tendrá el carácter de Registrador General Asistente. En ausencia del Director, el Subdirector debe asumir todas las atribuciones y deberes propios de este cargo y en coordinación con él debe velar por la observancia de las leyes, reglamentos y demás normas que regulan el funcionamiento y organización del Registro.

@@ -1,2 +1,0 @@
-Artículo 71.—Anotación del gravamen prendario
-De toda inscripción que se haga de un gravamen prendario sobre un bien mueble inscrito, se practicará la anotación en el asiento de inscripción respectivo. Si el gravamen afectare bienes no inscribibles o aún inscribibles, pero cuya registración no se solicite, se practicará el gravamen y se incluirá en un índice de deudores, clasificando el mismo según el tipo de garantía otorgada.

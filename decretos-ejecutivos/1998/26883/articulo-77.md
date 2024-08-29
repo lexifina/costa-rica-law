@@ -1,2 +1,0 @@
-Artículo 77.—Requisitos adicionales en las prendas sobre cosechas y semovientes
-Además de los requisitos generales dispuestos por la Ley y este Reglamento, tratándose de prendas sobre cosechas deberá indicarse expresamente en el contrato el año agrícola y en caso de semovientes donde están o vayan estar radicados los bienes, consignándose el número de finca y su situación, excepto si se trata de fincas sin inscribir, en las que bastará dar su descripción y su localización.

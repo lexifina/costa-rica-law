@@ -1,2 +1,0 @@
-Artículo 28—Recurso de apelación
-De lo resuelto por la Dirección del Registro cabrá apelación ante la Sección Tercera del Tribunal Contencioso Administrativo, de conformidad con el procedimiento de ocurso establecido en el artículo 18 y siguientes de la Ley sobre Inscripción de Documentos en el Registro Público y la Ley No 7274 de 10 de diciembre de 1991, Ley de Creación de la Sección Tercera del Tribunal Contencioso Administrativo.

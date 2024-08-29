@@ -1,2 +1,0 @@
-Artículo 75.—Identificación de los bienes dados en garantía
-En cumplimiento del principio de especialidad registral, los bienes muebles objeto de prenda deberán estar plenamente identificados conforme lo dispuesto en este Reglamento. A falta de elementos de identificación de los bienes deberán las partes manifestar que se carece de los mismos y liberar al Registro de la responsabilidad en que pudiera incurrir al practicar la inscripción.

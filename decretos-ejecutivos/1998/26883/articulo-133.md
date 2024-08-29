@@ -1,2 +1,0 @@
-Artículo 133.—De la apelación
-Contra la resolución dictada por la Dirección o Subdirección procederá el recurso de apelación, el cual debe interponerse ante esa oficina dentro de los cinco días hábiles siguientes a la notificación de la resolución. Presentada en tiempo la apelación, sin más trámite se remitirá el expediente a la Sección Tercera del Tribunal Superior Contencioso Administrativo para que proceda de conformidad con la Ley Número 7274 de 25 de febrero de 1992.
