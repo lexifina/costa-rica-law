@@ -1,2 +1,0 @@
-Artículo 36.-De las ausencias previstas de la persona administradora del fondo fijo. Por tratarse de una ausencia prevista, se deberá hacer un arqueo de forma previa en donde esté presente la persona administradora del fondo fijo (Titular), la persona funcionaria designada para dicha sustitución y el Titular Subordinado.
-La persona funcionaria o trabajadora del IMAS designada asume las mismas responsabilidades de la persona titular del puesto.

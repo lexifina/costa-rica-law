@@ -1,1 +1,0 @@
-Transitorio II.-El Área de Administración Financiera, deberá elaborar el Manual de Procedimientos de este Reglamento y remitirlo en un plazo máximo de ocho meses a la Subgerencia de Soporte Administrativo y Gerencia General para su revisión, valoración y respectiva aprobación. Pública.

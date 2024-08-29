@@ -1,1 +1,0 @@
-Artículo 20.-De la presentación de liquidaciones de adelantos fuera de plazo. Para las liquidaciones que no se presenten en los plazos establecidos, deberá intimarse a la persona funcionaria o trabajadora del IMAS, otorgando un día hábil adicional posterior a la intimación, para la presentación de la liquidación o el reintegro total del anticipo.

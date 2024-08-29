@@ -1,2 +1,0 @@
-Artículo 3º-Responsabilidades de aplicación. Son responsables de la aplicación del presente reglamento, las personas funcionarias y trabajadoras del IMAS que utilizan fondos fijos y sus Titulares Subordinados, las personas administradoras de fondos fijos y sus Titulares Subordinados.
-Corresponderá a las Unidades que conforman el Área de Administración Financiera el fiscalizar la correcta aplicación del presente Reglamento y su manual. En el caso de Empresas Comerciales, la fiscalización corresponderá a la Unidad de Coordinación Administrativa.
