@@ -14,3 +14,4 @@ Reglamento para la gestión integral de residuos en el Cantón de Desamparados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-08 | la propia norma |
+| 2 | 2024-08-29 | Reglamento municipal 54 (2024-08-29) |
