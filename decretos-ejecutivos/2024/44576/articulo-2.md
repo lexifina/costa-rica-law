@@ -1,0 +1,2 @@
+Artículo 2°-Adiciónese un artículo 271 Bis al Capítulo Cuarto del Titulo Décimo del Decreto Ejecutivo N° 36769-G del 23 de mayo de 2011, publicado en el Diario Oficial La Gaceta número 184 del 26 de setiembre de 2011, denominado Reglamento de Control Migratorio, cuyo texto dirá:
+"Artículo 271 BIS.-No cabra recurso alguno contra la resolución que inicie el proceso de expulsión, en virtud de lo indicado en el inciso 1 del artículo 344 de la Ley General de la Administración Pública".
