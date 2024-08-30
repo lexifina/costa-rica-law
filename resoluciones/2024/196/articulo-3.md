@@ -1,0 +1,1 @@
+Artículo 3º-Para la evaluación del desempeño del año 2025, las instituciones cubiertas por el Régimen de Servicio Civil deberán aplicar los modelos creados o ajustados a los lineamientos metodológicos generales emitidos en la Directriz N° 029-PLAN.

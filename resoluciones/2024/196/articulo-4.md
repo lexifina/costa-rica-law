@@ -1,0 +1,1 @@
+Artículo 4º-Deróguense las Resoluciones número: DG- 043-2021 del 31 de agosto del 2021 y DG-RES-2-2023 del 16 de enero del 2023, los Oficios Circular número: DG-006-2020 del 16 de marzo del 2020, DG-CIR-018-2020 del 10 de setiembre del 2020 y AGRH-CIR-0022022 de 25 de marzo del 2022.
