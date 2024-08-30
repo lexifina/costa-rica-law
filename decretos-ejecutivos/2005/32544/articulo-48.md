@@ -1,1 +1,5 @@
-Artículo 48.—Las jefaturas, dispondrán la fecha en que sus colaboradores disfrutarán de sus vacaciones. Sin embargo esto se deberá hacer dentro de las quince semanas posteriores a la fecha en que se cumplan las cincuenta semanas de servicio continuo y otorgarlas antes que se acumule con otro período, procurando con esto que no se afecten las actividades de la dependencia, la continuidad en el servicio público, ni la efectividad del descanso del servidor.
+Artículo 48.- Pautas para el disfrute de vacaciones. Para el disfrute de vacaciones de las personas servidoras públicas se hará efectivo de conformidad con las siguientes pautas, no excluyentes entre sí:
+a) Los períodos de vacaciones colectivas que establezca el Poder Ejecutivo.
+b) La programación de vacaciones anuales establecida al interior del Ministerio, según las necesidades de servicio de las unidades organizativas.
+c) El común acuerdo entre la persona servidora pública y la jefatura superior inmediata.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

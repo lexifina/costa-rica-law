@@ -1,5 +1,2 @@
-Artículo 14.—Serán servidores del Ministerio de Salud los que ingresen como servidor regular, en nombramiento interino o nombramiento eventual.
-a) Se entenderá por servidor regular aquel nombrado de acuerdo con las disposiciones del Estatuto de Servicio Civil y que ha cumplido el periodo de prueba.
-b) En cuanto a los servidores interinos, se considerará aquel que fuere nombrado para sustituir a un servidor regular por motivo de permiso sin goce de salario o bien para ocupar plazas vacantes, siempre y cuando la Dirección General de Servicio Civil deba realizar un concurso al no haber registro de elegibles.
-c) En cuanto a los servidores eventuales serán aquellos nombrados a plazo fijo, pagados con partidas especiales.
-d) Se entenderá como servidores de confianza aquellos que se rigen por los artículos 4 y 5 del Estatuto de Servicio Civil.
+Artículo 14.- Personas servidoras públicas. Son personas servidoras públicas del Ministerio las nombradas con sujeción a la Ley Marco de Empleo Público, al Régimen de Servicio Civil, sean propietarios o interinos, los nombrados en puestos de confianza y los excluidos de dicho Régimen; todas las cuales deben ser investidas mediante acto válido y eficaz de nombramiento que ha de cumplir los requisitos legales pertinentes, según el régimen de empleo público aplicable a la persona servidora pública de que se trate.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

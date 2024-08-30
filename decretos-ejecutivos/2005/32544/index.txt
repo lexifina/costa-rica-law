@@ -22,7 +22,12 @@ articulo-21.md
 articulo-22.md
 articulo-23.md
 articulo-24.md
+articulo-24-bis.md
 articulo-25.md
+articulo-25-bis.md
+articulo-25-ter.md
+articulo-25-quater.md
+articulo-25-quinquies.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
@@ -88,8 +93,10 @@ articulo-85.md
 articulo-86.md
 articulo-86-bis.md
 articulo-86-ter.md
+articulo-86-quater.md
 articulo-87.md
 articulo-88.md
+articulo-88-bis.md
 articulo-89.md
 articulo-90.md
 articulo-91.md

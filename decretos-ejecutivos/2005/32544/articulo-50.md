@@ -1,1 +1,2 @@
-Artículo 50.—Excepto los fraccionamientos decretados por el Poder Ejecutivo, los servidores del Ministerio gozarán sin interrupción del período de vacaciones y éstas solo podrán dividirlas en tres fracciones como máximo y en aquellos casos en que la ausencia prolongada del servidor pudiese causar detrimento en las actividades que se desarrollan en la respectiva dependencia.
+Artículo 50.- Acumulación de vacaciones. No se podrá acumular más de dos periodos de vacaciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

@@ -1,1 +1,2 @@
-Artículo 55.—La Comisión requerirá de previo a otorgar la licencia, como mínimo, el horario de lecciones, detalle de las asignaturas que comprenderá el curso lectivo, la aprobación del jefe inmediato, las calificaciones obtenidas del curso anterior, entre otros.
+Artículo 55.- Requisitos para otorgar licencia para estudios. Se requerirá de previo a otorgar la licencia para estudios el Programa de la carrera universitaria a cursar, el horario de lecciones, detalle de las asignaturas que comprenderá el curso lectivo, la aprobación de la jefatura inmediata y las calificaciones obtenidas del curso anterior.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

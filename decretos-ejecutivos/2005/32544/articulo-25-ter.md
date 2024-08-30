@@ -1,0 +1,3 @@
+Artículo 25 ter.- Permiso no remunerado para reducir hasta en un tercio la jornada laboral, cuando se requiera cuidar a un familiar con enfermedad o discapacidad. Permiso no remunerado para reducir hasta en un tercio la jornada laboral, cuando se requiera cuidar a un familiar con enfermedad o discapacidad.
+Se podrá otorgar un permiso no remunerado, hasta en un tercio de la jornada laboral, durante un período máximo de un año calendario, para que la persona servidora pública pueda cuidar a un familiar por consanguinidad o afinidad hasta el segundo grado, con discapacidad en situación de dependencia funcional o por razones de enfermedad terminal o accidente grave.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

@@ -1,0 +1,2 @@
+Artículo 25 quater.- Licencias y permisos. Las licencias y los permisos que se concedan a las personas servidoras públicas del Ministerio, serán las expresamente dispuestas en el Estatuto de Servicio Civil y su Reglamento, en la Ley Marco de Empleo Público y su Reglamento. Las licencias y permisos que se otorguen deberán ser comunicadas a la Dirección General de Servicio Civil.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

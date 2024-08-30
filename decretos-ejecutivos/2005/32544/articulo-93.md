@@ -1,7 +1,10 @@
-Artículo 93.—De conformidad con los artículos 40 y 41 del presente Reglamento las llegadas tardías superiores a 5 minutos y menores a 15 minutos en que incurran los servidores dentro de las fracciones de la jornada de trabajo no serán justificables, se computarán dentro del mismo mes calendario y serán sancionadas de la siguiente forma:
-Por siete: amonestación escrita.
-Por ocho: suspensión por tres días.
-Por nueve: suspensión por ocho días.
-Por diez: suspensión por quince días.
-Por once o más: despido sin responsabilidad patronal.
-Las sanciones se harán efectivas a partir del momento en que se prepare el informe definitivo de asistencia y su correspondiente valoración por parte de la Unidad de Recursos Humanos y las Unidades Administrativas Regionales, quienes tendrán quince días naturales posteriores al mes en que el servidor incurrió en falta para preparar dicho informe.
+Artículo 93.- Cómputo y sanción de llegadas tardías injustificadas. De conformidad con lo dispuesto en los artículos 40 y 41 del presente Reglamento las llegadas tardías injustificadas superiores a 5 minutos y menores a 15 minutos en que incurran las personas servidoras públicas dentro de las fracciones de la jornada de trabajo se computarán dentro del mismo mes calendario y serán sancionadas de la siguiente forma:
+a) Por dos: amonestación verbal.
+b) Por tres: amonestación escrita
+c) Por cuatro: suspensión hasta por dos días.
+d) Por cinco: suspensión hasta por cuatro días.
+e) Por seis: suspensión por seis días.
+f) Por siete: suspensión por ocho días.
+g) Por más de siete: despido sin responsabilidad patronal.
+Para la aplicación de las sanciones señaladas en el presente artículo, deberá cumplirse el debido proceso tomando en consideración el informe definitivo de asistencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

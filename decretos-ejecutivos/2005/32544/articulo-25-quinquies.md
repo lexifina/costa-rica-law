@@ -1,0 +1,2 @@
+Artículo 25 quinquies.- Personas servidoras públicas que podrán disfrutar de permisos y licencias ocasionales de excepción. Podrán disfrutar de permisos y licencias ocasionales de excepción, las personas servidoras públicas cubiertas por la rectoría de MIDEPLAN, de conformidad con los requisitos y formalidades que en cada dependencia establezca su normativa interna.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)

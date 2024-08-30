@@ -1,1 +1,2 @@
-Artículo 49.—Queda prohibido la acumulación de vacaciones, salvo cuando el servicio público así lo requiera y a solicitud del servidor, se podrá acumular únicamente un periodo, mediante resolución razonada de la máxima autoridad que así lo autorice, de acuerdo con las disposiciones contenidas en el artículo 159 del Código de Trabajo.
+Artículo 49.- Modificación a la programación de vacaciones. La programación de vacaciones sólo puede ser modificada cuando así lo ameriten las necesidades del servicio o situaciones extraordinarias de las personas servidoras públicas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44715 del 30 de agosto del 2024)
