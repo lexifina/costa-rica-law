@@ -1,0 +1,2 @@
+Artículo 3º-Declaración de ociosidad. La ociosidad será declarada mediante resolución administrativa razonada y justificada, emitida por el máximo jerarca del ente u órgano de la Administración Pública titular o propietario del bien, según los parámetros establecidos en los artículos 2 y 3 de la Ley N° 10092.
+Dicha resolución deberá ser comunicada a la Dirección General de la Contabilidad Nacional, Dirección General de Presupuesto Nacional, a la Tesorería Nacional y a la Dirección de Crédito Público del Ministerio de Hacienda.

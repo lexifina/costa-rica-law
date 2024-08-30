@@ -1,0 +1,14 @@
+N° 44599-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, y los artículos 25, inciso l), 27, inciso 1) y 28, inciso 2), acápite b) de la Ley N° 6227, Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas.
+Considerando:
+I.-Que mediante el artículo I de la Ley de Reducción de la Deuda Pública por Medio de la Venta de Activos Ociosos o Subutilizados del Sector Público, Ley N° 10092 del 28 enero de 2022 (en adelante Ley N° 10092), se autorizó a todos los entes y órganos de la Administración Pública para enajenar o liquidar, de manera directa, los bienes muebles e inmuebles inscritos a su nombre y que no estén afectados al uso o dominio público sobre los que proceda la compra directa, de acuerdo con los parámetros de la Ley de Contratación Administrativa, Ley N° 7494 del 2 de mayo de 1995 y su reglamento; siempre y cuando dichos bienes no estén siendo utilizados en modo alguno y a criterio de la institución resulten ociosos, de acuerdo con el efectivo cumplimiento del fin público por el que fueron adquiridos.
+II.-Que el artículo 49 y siguientes de la Ley de Contratación Administrativa, establecían el procedimiento de remate para vender o arrendar bienes, muebles o inmuebles, cuando resultara el medio más apropiado para satisfacer los intereses de la Administración; sin embargo, dicha Ley fue derogada por la Ley General de Contratación Pública, Ley N° 9986 del 27 de mayo de 2021 (en adelante Ley N° 9986).
+III.-Que la Ley N° 9986 en su artículo 64 establece el procedimiento de remate, para que la Administración pueda vender o arrendar bienes muebles o inmuebles que sean de su propiedad, cuando ello se constituya en el medio más apropiado para satisfacer el interés público, estableciendo el procedimiento y reglas básicas que deben seguirse.
+IV.-Que en los artículos 157 y siguientes del Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo N° 43808-H del 22 de noviembre de 2022, se instrumentaliza el procedimiento de remate y se establecen los aspectos básicos para el mismo.
+V.-Que se hace necesario instrumentalizar y clarificar el procedimiento para la venta de activos ociosos o subutilizados del Sector Público, conforme a la Ley N° 10092, y con ello alcanzar el efecto esperado en la reducción de la deuda pública. Por tanto;
+Decretan:
+Procedimiento para la venta de activos ociosos o subutilizados del Sector Público, para el cumplimiento
+de la Ley N° 10092
+Artículo 1º-Del objeto. El presente decreto tiene por objeto establecer el procedimiento para que los entes u órganos de la Administración Pública puedan enajenar o liquidar los bienes muebles e inmuebles que se encuentren declarados como ociosos o subutilizados y que no estén afectados al uso o dominio público, al amparo de la Ley N° 10092.

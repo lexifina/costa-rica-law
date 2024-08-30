@@ -1,0 +1,5 @@
+Artículo 2º-Definiciones. Para el mejor entendimiento del presente procedimiento se establecen las siguientes definiciones:
+a) Bien ocioso o subutilizado: Conforme al artículo 2 de la Ley N° 10092, se entenderá por bien ocioso o subutilizado aquel bien mueble o inmueble que, estando disponible para su uso, en la ubiqación y en las condiciones esperadas, requeridas y necesarias para utilizarlo, no genere utilidades, beneficios o rentabilidad alguna, ni se le pueda dar el uso previsto para el que fue adquirido o algún otro que sea en función de su naturaleza.
+b) Ente u órgano de la Administración Pública: Comprende a la Administración Pública constituida por el Estado y los demás entes públicos, cada uno con personalidad jurídica y capacidad de derecho público y privado, conforme al artículo 1 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978.
+c) Enajenar: Transmitir, ceder o transferir el dominio, propiedad o derecho de un bien mueble o inmueble.
+d) Liquidar: Vender un bien mueble o inmueble.
