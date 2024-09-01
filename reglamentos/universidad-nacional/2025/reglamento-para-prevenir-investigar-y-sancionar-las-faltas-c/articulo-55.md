@@ -1,0 +1,13 @@
+CAPÍTULO VI. CONCILIACIÓN
+ARTÍCULO 55. SOBRE EL TRÁMITE DE LA CONCILIACIÓN
+En cualquier momento, antes de que se emita la resolución final, las partes podrán solicitar la conciliación ante el órgano de conciliación correspondiente. En prioridad como órgano convencional, la Junta de Relacionales Laborales; o la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral, en los casos que así se solicite.
+En los casos de conductas de acoso laboral o faltas comunes donde media un acto de violencia, por tratarse de un tema de violencia, no se consideran técnicamente procedentes los mecanismos de resolución alterna de conflictos.
+En el caso de estudiantes, que soliciten conciliar, serán atendidos ante el órgano de conciliación correspondiente, la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral o la Defensoría de los Estudiantes.
+Recibida la solicitud de conciliación la Presidencia de la Comisión de Faltas Comunes consultará a la otra parte en el plazo de tres días hábiles si está interesada en conciliar, para lo cual se le otorgará tres días hábiles. En caso de negativa o que no se responda, se continuará con el procedimiento.
+Convenida la conciliación, la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral, trasladará el expediente al órgano de conciliación correspondiente, la cual tendrá un plazo de quince días hábiles, para efectuar la audiencia de conciliación, prorrogable de forma razonada por un período igual por una única vez.
+En caso de que no se efectúe la audiencia en el plazo indicado por causas imputables a cualquiera de las partes, se continuará con el procedimiento, para lo cual si la Junta de Relaciones Laborales tuviere el expediente tendrá un plazo de dos días para su devolución.
+Los procedimientos en los que se investiguen faltas contra la Hacienda Pública sólo se podrán conciliar con autorización de la Rectoría, y en estos casos se deberá incluir en el acuerdo conciliatorio el resarcimiento económico de los daños y perjuicios ocasionados al patrimonio institucional.
+Previo a la realización del acto conciliatorio, será responsabilidad de la Fiscalía de Investigación de Faltas Comunes y Acoso Laboral gestionar la autorización correspondiente ante la Rectoría, en caso de asuntos en que se investiguen faltas contra la Hacienda Pública.
+Será responsabilidad de los miembros de la Junta de Relaciones Laborales verificar la autorización de la Rectoría, en el acto de conciliación, en caso de investigarse faltas contra la Hacienda Pública.
+El incumplimiento de los anteriores requisitos podrá generar responsabilidad administrativa y disciplinaria, para las personas involucradas en el acto de conciliación.
+Se modifica según el oficio UNA-SCU-ACUE-237-2025.

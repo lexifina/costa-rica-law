@@ -1,0 +1,2 @@
+ARTÍCULO 95. SUSPENSIÓN CON GOCE DE SALARIO DURANTE LA INVESTIGACIÓN
+El Teuna, únicamente cuando lo exija la urgencia para evitar daños graves a las personas o de imposible reparación de las cosas, en el entretanto se cumplen los procedimientos respectivos, mediante resolución razonada, podrá separar de su cargo con goce de salario durante la investigación, al funcionario que se pretende sancionar, sin perjuicio del debido proceso. Cumplido el procedimiento, si no hay mérito para la sanción, se ordenará la reinstalación en el cargo.

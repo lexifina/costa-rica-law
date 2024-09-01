@@ -1,0 +1,5 @@
+ARTÍCULO 90. VALORACIÓN PRELIMINAR DE LA DENUNCIA
+Una vez recibida la denuncia, el Teuna en el plazo máximo de 10 días hábiles, deberá revisar aspectos formales de admisibilidad en cuanto a una clara exposición de los hechos denunciados, así como las pruebas que los sustentan.
+De considerar que existen indicios suficientes que ameriten la apertura de una investigación preliminar remitirá dicha documentación a la Fiscalía de Investigación de Faltas Comunes y Acoso Laboral, para que ésta proceda de conformidad.
+Si la denuncia carece de sustento, deberá declarar que no es admisible y ordenará su archivo mediante resolución razonada.
+Se modifica según el oficio UNA-SCU-ACUE-237-2025.

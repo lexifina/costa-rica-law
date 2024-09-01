@@ -1,0 +1,5 @@
+ARTÍCULO 46. PRESCINDENCIA DE LA COMPARECENCIA.
+Solo se podrá prescindir de la comparecencia en los siguientes casos:
+a) Excepcionalmente, y con base en lo regulado en el numeral 219 de la Ley General de Administración Pública, cuando lo exija la urgencia para evitar daños graves a las personas o de imposible reparación en las cosas, la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral podrá, mediante resolución fundada, prescindir de los trámites de comparecencia o reducir los plazos establecidos. La omisión injustificada de dichos trámites causará indefensión y la nulidad de todo lo actuado posteriormente
+Modificado según oficio UNA-SCU-ACUE-297-2022
+b) Igualmente, si cumplido el emplazamiento indicado en el artículo 43, inciso a), el miembro del funcionariado o de la población estudiantil admitió los cargos o no presentó alegación alguna y tampoco existe prueba que deba evacuarse, la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral tendrá un plazo de quince días hábiles para emitir su resolución o recomendación si se tratare de un despido o expulsión, con base en el elenco probatorio que conste en el expediente.

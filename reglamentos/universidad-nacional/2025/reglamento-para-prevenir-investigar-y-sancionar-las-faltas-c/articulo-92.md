@@ -1,0 +1,10 @@
+ARTÍCULO 92. RESOLUCIÓN DEL TEUNA
+La Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral luego de realizado el procedimiento disciplinario, trasladará la recomendación junto con el expediente al Teuna.
+El Teuna tendrá un plazo de 10 días hábiles para resolver mediante resolución razonada, tomar una de las siguientes decisiones:
+a) Que por la gravedad de la falta cometida, su reiteración o circunstancias específicas debidamente comprobadas corresponde el despido. En este caso se elevará la recomendación al Rector, para la decisión final. Si el funcionario investigado es el Rector o Rector Adjunto en cuyo caso lo eleva al Consejo Universitario para la decisión final.
+b) Que por la gravedad de la falta cometida, su reiteración o circunstancias específicas debidamente comprobadas corresponde únicamente la destitución del cargo. En este caso elevará el asunto a la Asamblea Plebiscitaria correspondiente, para la decisión final.
+c) Que si la autoridad cometió una falta, que por su gravedad corresponde ser sancionada con una sanción desde la amonestación verbal hasta suspensión sin goce de salario hasta por treinta días, así como la destitución del cargo si corresponde. En este caso la sanción de amonestación verbal hasta suspensión sin goce de salario será impuesta por el Teuna y remitirá la recomendación de destitución del cargo a la Asamblea Plebiscitaria correspondiente, para la decisión que corresponda.
+d) Que si la autoridad cometió una falta, que por su gravedad corresponde ser sancionada con una sanción desde la amonestación verbal hasta suspensión sin goce de salario hasta por treinta días. En este caso la sanción la impone el Teuna.
+e) Que la autoridad no es responsable de las faltas denunciadas, en cuyo caso la exonerará de responsabilidad y ordenará el archivo del expediente.
+La decisión tomada tendrá recurso de revocatoria ante el Teuna y apelación ante el TUA de conformidad con el artículo 80 del Estatuto Orgánico.
+La decisión de la Asamblea Plebiscitaria sobre la destitución únicamente tendrá recurso de reposición.

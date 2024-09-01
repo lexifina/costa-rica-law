@@ -1,0 +1,9 @@
+ARTÍCULO 6. CONFORMACIÓN Y FUNCIONES DE LA FISCALÍA DE FALTAS COMUNES Y ACOSO LABORAL.
+La Fiscalía de Faltas Comunes y Acoso laboral, estará conformada por una persona que ejerza el cargo de fiscal titular y un Fiscal Adjunto, quienes deberán poseer grado mínimo de licenciatura en Derecho con experiencia de al menos 5 años en derecho administrativo y un profesional grado mínimo de licenciatura en Psicología, todos con experiencia demostrables en resolución alterna de conflictos y conocimiento en el tema de acoso laboral. Los requisitos específicos se detallarán en el correspondiente perfil del cargo administrativo.
+Ambos puestos serán nombrados por el Consejo Universitario y estarán adscritos a ese órgano.
+Para los nombramientos se respetará lo establecido en el ARTÍCULO 37 de la Convención Colectiva de Trabajo.
+El fiscal titular y el Profesional en Psicología con jornada a tiempo completo, y el fiscal adjunto con una jornada de medio tiempo. En caso de ausencia del Fiscal titular, el Fiscal adjunto lo sustituirá asumiendo la jornada a tiempo completo.
+TRANSITORIO AL ARTÍCULO 6
+El Programa Desarrollo de Recursos Humanos, cuentan con un plazo de 6 meses posterior a la publicación de este reglamento realizar las acciones pertinentes que permitan la contratación del recurso humano para conformar la fiscalía de Fiscalía de faltas Comunes y Acoso Laboral.
+Las personas que sean designadas por primera vez en los cargos de la fiscalía titular y la adjunta, así como el profesional en psicología, serán nombradas por un plazo de un año con posibilidad de prórroga. Durante este periodo se realizará un estudio de cargas laborales por la instancia técnica competente, con el fin de definir el periodo de nombramiento y la jornada asignada.
+Este estudio será remitido para su valoración al Consejo Universitario, órgano encargado de realizar las modificaciones pertinentes en este reglamento.

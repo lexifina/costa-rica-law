@@ -1,0 +1,9 @@
+CAPÍTULO XII. DISPOSICIONES FINALES
+ARTÍCULO 101. PRESCRIPCIÓN
+El derecho y acción de la universidad para disciplinar las faltas de sus trabajadores y estudiantes será de un mes, el cual comenzará a correr desde que se dio la causa para el inicio o, en su caso, desde que fueran conocidos los hechos. No obstante, si se tratara de faltas relacionadas con hacienda pública y el ordenamiento de control y fiscalización superiores, el plazo será de cinco años, conforme al artículo 71 de la Ley Orgánica de la Contraloría General de la República.
+Cuando se requiera efectuar una investigación preliminar, el plazo de prescripción no correrá durante su tramitación, sino que iniciará a partir de que se ponga en conocimiento de la Comisión los resultados de dicha investigación. Igualmente, el plazo se entenderá interrumpido con la notificación de la resolución inicial del procedimiento a las personas denunciadas.
+El mes comenzará a correr de nuevo en el momento en que la Oficina o la Rectoría, según corresponda, esté en posibilidad de resolver.
+Si un procedimiento se paraliza o detiene por culpa atribuible exclusivamente a la Fiscalía o a la Oficina, la prescripción será aplicable, si la paralización o suspensión alcanza a cubrir ese plazo de un mes.
+La prescripción de las faltas relacionadas con estudiantes será de 1 año que comenzará a correr desde que se dio la causa para el inicio o, en su caso, desde que fueran conocidos los hechos.
+La prescripción no se declarará de oficio, por lo que debe ser alegada por la parte interesada. Se podrá resolver al conocerse los recursos contra la resolución inicial o durante la comparecencia oral, sin perjuicio de que la Oficina decida resolverla en la resolución final, como excepción de fondo.
+Se modifica según el oficio UNA-SCU-ACUE-237-2025.

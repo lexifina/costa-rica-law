@@ -1,0 +1,2 @@
+ARTÍCULO 70. SANCIONES POR ENCUBRIMIENTO O FAVORECIMIENTO
+Cualquier superior jerárquico que haya sido puesto en conocimiento, por el medio que sea, de una posible causa de acoso laboral hacia una persona trabajadora de la Universidad, estará en la obligación de informar a la Fiscalía en un plazo máximo de 3 días hábiles. Quien no lo hiciere, será sujeto a una posible sanción de conformidad con el régimen disciplinario de la Universidad, previo cumplimiento del debido proceso.

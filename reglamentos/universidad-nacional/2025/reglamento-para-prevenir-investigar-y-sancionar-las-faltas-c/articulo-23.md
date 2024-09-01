@@ -1,0 +1,10 @@
+ARTÍCULO 23. CONFORMACIÓN DEL EXPEDIENTE Y SUS PIEZAS
+Durante las investigaciones preliminares, la información contenida en el expediente tendrá carácter confidencial, a la cual nadie tiene acceso, únicamente la instancia que la realiza.
+De todo procedimiento administrativo se deberá conformar un expediente debidamente numerado, completo, pertinente y foliado, el cual deberá ser resguardado bajo un mecanismo de control que garantice su confidencialidad durante la tramitación del asunto.
+Las partes y sus representantes tendrán derecho en cualquier etapa del procedimiento, a examinar, leer y copiar cualquier pieza del expediente, así como a solicitar certificaciones de ellas.
+La información contenida en el expediente será confidencial, salvo para las partes involucradas, quienes tendrán libre acceso a todos los documentos y las pruebas que consten en el expediente administrativo. Sin embargo, la información relacionada con el denunciante debe ser protegida de manera permanente, incluso una vez finalizada la actuación administrativa.
+La violación de la confidencialidad será considerada falta grave.
+Emitida la resolución de inicio del procedimiento disciplinario, las partes involucradas podrán acceder a todos los documentos, grabaciones y a las pruebas contenidas en el expediente, así como obtener copias y solicitar certificaciones de este.
+El costo de las copias y certificaciones será por cuenta del petente. Quien también, podrá solicitar el envío digital del expediente sin costo alguno al correo electrónico que indique, siempre que la Administración cuente con los medios técnicos para ello y garantice en todo momento la confidencialidad del denunciante.
+Una vez concluido el procedimiento, el expediente será de acceso público. Sin embargo, la información relacionada con el denunciante, así como los datos sensibles y de acceso restringido, deberán mantenerse protegidos bajo el deber de confidencialidad, incluso después de finalizada la actuación administrativa. La violación de esta confidencialidad será considerada una falta grave.
+Se modifica según el oficio UNA-SCU-ACUE-237-2025.

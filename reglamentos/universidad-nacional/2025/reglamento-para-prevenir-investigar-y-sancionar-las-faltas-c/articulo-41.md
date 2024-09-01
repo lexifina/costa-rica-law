@@ -1,0 +1,7 @@
+ARTÍCULO 41. MEDIDAS CAUTELARES
+En cualquier etapa del procedimiento la Oficina podrá decretar las siguientes medidas cautelares por periodos máximo de seis meses prorrogables de conformidad con el grado de avance del procedimiento sea a solicitud de parte o de oficio.
+a) La suspensión con goce de salario de la persona denunciada.
+b) Traslado temporal de la persona denunciada a otro lugar de trabajo.
+c) En los casos de conductas de acoso laboral, se podrán tomar medidas cautelares especiales, que se dirijan a la protección de la víctima y que resguarden los intereses institucionales.
+d) Otras medidas que se consideren pertinentes, para lo cual deberá considerarse especialmente, el principio de proporcionalidad, ponderando la eventual lesión al interés público, los daños y los perjuicios provocados con la medida, así como los caracteres de instrumentalidad y provisionalidad, de modo que no se afecte la gestión sustantiva de la universidad, ni se afecte en forma grave la situación jurídica de terceros. También se deberá tomar en cuenta las posibilidades y previsiones financieras que la institución deberá efectuar para la ejecución de la medida cautelar.
+Se modifica según el oficio UNA-SCU-ACUE-237-2025.

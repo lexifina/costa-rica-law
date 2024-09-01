@@ -1,0 +1,2 @@
+ARTÍCULO 98. OBLIGACIÓN DE LEVANTAR LISTA DE ASISTENCIA
+En todas las reuniones o asambleas en las que sea obligatoria la asistencia de los funcionarios, se deberá levantar una lista de asistencia. Quien presida la reunión o asamblea deberá comunicar, cuando corresponda, al respectivo superior jerárquico, la ausencia de los funcionarios que estén a su cargo, dentro de los cinco días hábiles siguientes a la fecha de la reunión o asamblea, para que se proceda de conformidad con la normativa establecida en el presente reglamento.
