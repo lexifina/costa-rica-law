@@ -1,0 +1,6 @@
+Artículo 7.- De la cantidad de días. El cálculo sobre la cantidad de días a asignar a cada una de las organizaciones, entidades o agrupaciones gremiales se realizará mediante la siguiente fórmula:
+DxA=(CDT*% APJ*F(APJ)+ (CTD*%DPJ*F(DPJ))
+La cantidad de días totales a otorgar será definida por el Consejo Superior, en función del criterio de interés institucional y tendencia histórica. Considerando la normativa externa y "benchmarking" realizado por la Dirección de Planificación, donde se analizan y comparan otras instituciones del sector público.
+Los días asignados a cada tipo de agrupación, se distribuirán proporcionalmente en función de las siguientes variables, a las cuales se les aplica el método de ponderación de criterios cualitativos:
+b.1) Cantidad de directivos de la agrupación que son empleados activos del Poder Judicial, la cual se calculará por medio de la proporción correspondiente multiplicada por la ponderación de criterios cualitativos (30%) y la cantidad de días a otorgar por el tipo de agrupación.
+b.2) Cantidad de agremiados del Poder Judicial que no son directivos de la agrupación, la cual se calculará por medio de la proporción correspondiente para cada agrupación según el tipo de esta, multiplicado por el factor de ponderación de criterios cualitativos definido del 70% y la cantidad de días a otorgar por el tipo de agrupación.

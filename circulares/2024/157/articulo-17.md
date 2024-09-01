@@ -1,0 +1,1 @@
+Artículo 17. Del incumplimiento de presentar el informe anual ante el Consejo Superior. No se tramitarán horas o días en calidad de permiso con goce de salario a la agrupación o entidad que no cumpla con lo establecido en el inciso c) del artículo anterior hasta tanto no remita el informe correspondiente.

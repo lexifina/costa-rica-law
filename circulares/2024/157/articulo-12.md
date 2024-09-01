@@ -1,0 +1,1 @@
+Artículo 12.- Recurso de apelación. Contra lo resuelto por la respectiva jefatura, cabrá recurso de apelación ante el Consejo Superior, el cual podrá presentarse dentro de los tres días siguientes a la comunicación de la denegatoria.
