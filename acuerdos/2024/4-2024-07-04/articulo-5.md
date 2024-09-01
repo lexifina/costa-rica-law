@@ -1,0 +1,3 @@
+Artículo 5. Momento de presentación de información por la entidad
+La presentación por parte de la entidad supervisada de la información requerida debe cumplir los requisitos de forma y tiempo que se indiquen para su presentación a través del sistema, salvo los casos excepcionales que sean debidamente justificados.
+El sistema "TeamMate+ Audit" permite la presentación de documentos por parte de las entidades supervisadas las veinticuatro horas del día. No obstante, para documentos que se envíen en cumplimiento de plazos, los regulados deben observar el horario establecido en forma oficial en la Superintendencia General de Valores.

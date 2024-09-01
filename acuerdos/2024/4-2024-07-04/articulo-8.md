@@ -1,0 +1,7 @@
+Artículo 8. Mecanismos de Contingencia
+En caso de ocurrir inconvenientes técnicos comprobados y demostrados en el acceso a los servicios del "TeamMate+ Audit" o situaciones de fuerza mayor que impidan su normal uso, la entidad debe comunicar inmediatamente la situación a la Superintendencia para que se active el acceso al mecanismo de contingencia. Dicha activación se realizará en el plazo de un día hábil a partir de la comunicación.
+Una vez activado el mecanismo de contingencia, la entidad debe suministrar la información a la Superintendencia General de Valores por la plataforma Microsoft Sharepoint Online habilitada por el Banco Central para uso de esta Superintendencia.
+Para el uso de la plataforma Microsoft Sharepoint Online, la entidad debe acatar lo señalado en el anexo al presente lineamiento, según se detalla a continuación:
+a) Usuario lector: ingresa a una colección de documentos por medio de una ruta de acceso y puede abrir un documento sin la posibilidad de realizar modificaciones. También puede descargar el documento a la ruta de almacenamiento propia. No puede cargar documentos. La acción se denomina "Leer".
+b) Usuario Colaborador: ingresa a una colección de documentos por medio de una ruta de acceso y puede abrir, editar y guardar un documento. La acción se denomina "colaborar".
+Los Usuarios con Acceso al "TeamMate+ Audit" serán los designados en el artículo 3 de este Acuerdo. En caso de utilizar la plataforma Microsoft Sharepoint Online igualmente se deben respetar los plazos y horarios establecidos en este Lineamiento.

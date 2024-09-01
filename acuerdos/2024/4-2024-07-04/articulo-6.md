@@ -1,0 +1,3 @@
+Artículo 6. Momento de notificación a la entidad de solicitudes de información enviadas por SUGEVAL
+Cuando la Superintendencia General de Valores envía una solicitud de información a la entidad supervisada por medio del "TeamMate+ Audit", ésta se entiende notificada al día hábil siguiente a la fecha de su registro en el sistema. Si el documento contiene un plazo que debe observar el regulado, éste empezará a correr a partir del día hábil siguiente al día en que se tiene por efectuada la notificación.
+La entidad es responsable de revisar periódicamente el sistema, para efectos de cumplir con los plazos previamente establecidos.
