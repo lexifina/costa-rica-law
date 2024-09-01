@@ -1,0 +1,2 @@
+ARTÍCULO 81. EFECTOS DE LA SUSPENSIÓN
+La suspensión implica la imposibilidad del estudiante de asistir regularmente a clases y le correrán las ausencias en forma injustificada para aquellos cursos en los cuales es obligatoria la asistencia; la sanción, sin embargo, no puede implicar, automáticamente, la pérdida del derecho de realizar las pruebas y exámenes ordinarios y extraordinarios cuando proceda, ni perder el derecho a la reposición de una prueba.

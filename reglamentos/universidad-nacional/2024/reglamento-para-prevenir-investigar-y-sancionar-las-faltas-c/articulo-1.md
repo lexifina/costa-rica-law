@@ -1,0 +1,18 @@
+UNIVERSIDAD NACIONAL
+REGLAMENTO PARA PREVENIR, INVESTIGAR Y SANCIONAR LAS
+FALTAS COMUNES Y EL ACOSO LABORAL
+PRESENTACIÓN
+El presente reglamento regula el trámite de los procedimientos disciplinarios relacionados con faltas comunes, así como con el acoso laboral. Su objetivo es garantizar los derechos fundamentales del personal y del estudiantado universitarios, asegurar el cumplimiento de la función pública y sentar las responsabilidades de los incumplimientos y las consecuencias por la afectación a la institución y su misión y principios. Como aspectos relevantes de esta reglamentación se destacan los siguientes:
+1. Sistematiza en un solo reglamento la normativa relacionada con el régimen disciplinario, con excepción de los casos de hostigamiento sexual.
+2. Se mantienen dos tipos de procedimientos disciplinarios: el ordinario para los casos de faltas graves, y el abreviado para las faltas leves, las cuales por su naturaleza y gravedad no ameritan mayores trámites.
+3. Traslada la potestad sancionatoria de los respectivos superiores jerárquicos a órganos especializados, con los consecuentes beneficios, pues el superior jerárquico ya no tendrá que asumir competencias de carácter técnico, y por otra parte procura un trato similar ante situaciones semejantes. Para ese fin se crea una Fiscalía que sustituye al órgano instructor del Programa Desarrollo de Recursos Humanos y se crea una comisión de resolución de los asuntos, integrada por dos secciones, una para las faltas relacionadas con las faltas comunes y otra para el acoso laboral.
+4. Se establece una regulación específica del acoso laboral, con lo cual se atiende lo establecido por la Convención Colectiva en esta materia. La Universidad Nacional está consciente de que en los últimos tiempos se ha acrecentado un fenómeno denominado hostigamiento laboral el cual afecta a los funcionarios en la esfera laboral sin distinguir sexos, edades, condición social ni grupos étnicos. Esta situación transgrede los derechos humanos, afecta directamente la salud mental de la víctima comprometiendo incluso su vida, e influye de forma negativa en el ambiente laboral, y compromete a la institución al tratarse de un mal con dos víctimas, tanto la persona trabajadora como la universidad.
+Lamentablemente este tipo de conductas han sido históricamente abordadas bajo el esquema disciplinario, planteándose como conflictos, cuando en realidad constituyen actos de violencia que requieren mecanismos particulares de atención.
+5. En concordancia, el presente reglamento pretende dar respuesta a los principios establecidos en el Estatuto Orgánico referidos al humanismo y la probidad que deben estar implícitos en el accionar de las personas funcionarias que tienen el deber de cumplir sus actividades laborales en pro del respeto mutuo y la dignidad y estudiantes cuando corresponda.
+REGLAMENTO PARA PREVENIR, INVESTIGAR Y SANCIONAR LAS
+FALTAS COMUNES Y EL ACOSO LABORAL
+CAPÍTULO I
+DE LA JURISDICCIÓN DISCIPLINARIA
+ARTÍCULO 1. ÁMBITO OBJETIVO DE APLICACIÓN:
+El presente Reglamento regula el procedimiento disciplinario para investigar la posible comisión de faltas ordinarias comunes por parte de las personas funcionarias y estudiantes universitarios ,y las faltas de acoso laboral, con la finalidad de garantizar el pleno ejercicio de los derechos fundamentales así como asegurar el cumplimiento de la función administrativa sancionatoria, procurando prevenir y sancionar acciones de hostigamiento contra la dignidad, integridad y bienestar de los miembros de la comunidad universitaria.
+Se excluye de esta reglamentación lo concerniente al hostigamiento sexual.

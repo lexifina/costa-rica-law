@@ -1,0 +1,2 @@
+ARTÍCULO 76. CONDUCTAS NO CONTEMPLADAS EXPRESAMENTE
+Cualquier otra infracción o negligencia en el cumplimiento de las obligaciones y deberes propios de la condición de la persona funcionaria, no prevista en los artículos anteriores, será conocida por los órganos competentes, a efecto de determinar su gravedad y la sanción correspondiente. Para ello se tomarán como referencia las acciones u omisiones señaladas en los artículos anteriores.

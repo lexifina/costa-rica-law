@@ -1,0 +1,3 @@
+ARTÍCULO 40 TRÁMITE POSTERIOR A LA ADMISIBILIDAD DE LA DENUNCIA
+Si la Fiscalía de Faltas Comunes y Acoso Laboral determina que se debe tramitar un procedimiento, sea abreviado u ordinario, emitirá una solicitud de inicio del procedimiento a la Oficina, la cual contendrá una indicación circunstanciada de los hechos, pruebas que los fundamentan y la calificación de la presunta falta a investigar, según la naturaleza de los hechos denunciados y las normas que supuestamente se violentaron. Asimismo, remitirá el expediente completo. Esta solicitud carecerá de recursos.
+Si se trata de un hecho que afecte a la hacienda pública, deberá la Fiscalía indicar con claridad en qué consiste la afectación y el monto estimado.

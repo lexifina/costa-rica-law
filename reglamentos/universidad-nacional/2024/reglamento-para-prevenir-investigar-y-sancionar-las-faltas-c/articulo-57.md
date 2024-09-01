@@ -1,0 +1,2 @@
+ARTÍCULO 57. RESPONSABILIDADES DE LA FISCALÍA Y DE LOS MIEMBROS DE LA JUNTA DE RELACIONES LABORALES
+En caso de que se logre comprobar, mediante el debido proceso, que el acuerdo conciliatorio al que se llegó no es lícito ni razonable, podría generar responsabilidad administrativa, tanto para el miembro de la Fiscalía que participó en la conciliación, como para los miembros de los órganos que avalaron el acuerdo

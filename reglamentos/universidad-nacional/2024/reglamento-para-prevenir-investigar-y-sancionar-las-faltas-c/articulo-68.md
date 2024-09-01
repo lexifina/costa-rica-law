@@ -1,0 +1,2 @@
+ARTÍCULO 68. MEDIDAS CORRECTIVAS
+Además de las sanciones indicadas en el artículo anterior, se podrán aplicar medidas correctivas, por una única vez, ya sea por solicitud de la persona acosadora, por iniciativa del superior jerárquico, por recomendación de la Junta de Relaciones Laborales cuando medie proceso de conciliación o por la imposición de la Oficina, en la resolución final emitida dentro del procedimiento.

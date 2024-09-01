@@ -1,0 +1,2 @@
+ARTÍCULO 45: CONVOCATORIA A COMPARECENCIA
+Una vez firme el acto de apertura, la Oficina de Investigación y Sanción de Faltas Comunes y Acoso Laboral emitirá una resolución de convocatoria con diez días de anticipación, a una comparecencia oral, privada o pública de evacuación de pruebas y fijará fecha y hora para su realización, dentro de un plazo máximo de quince días hábiles. En la resolución se prevendrá a las partes que en la comparecencia se recibirá la prueba, incluida la testimonial y se escucharán sus alegatos.
