@@ -14,3 +14,4 @@ Reglamento para la asignación, giro y fiscalización de recursos públicos para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-14 | la propia norma |
+| 2 | 2024-09-02 | Decreto Ejecutivo 44717 (2024-09-02) |
