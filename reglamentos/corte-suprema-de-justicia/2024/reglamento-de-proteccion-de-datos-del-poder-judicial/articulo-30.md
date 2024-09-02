@@ -1,0 +1,3 @@
+Capítulo V
+Del acceso a la información, la transmisión o la difusión de la información del Poder Judicial y otros.
+Artículo 30.- Acceso a documentación que consta en Nexus.PJ. Cuando alguna persona interesada solicite resoluciones judiciales y/o documentos administrativos que estén disponibles en Nexus.PJ, se procurará entregar la información contenida en ese medio oficial, sea mediante el enlace de acceso específico, descarga digital o versión impresa. Lo anterior, toda vez que la información contenida en la base de datos en línea ya ha pasado por el proceso de tratamiento de datos personales.

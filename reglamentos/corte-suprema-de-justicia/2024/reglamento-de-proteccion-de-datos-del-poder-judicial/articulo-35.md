@@ -1,0 +1,2 @@
+Artículo 35.- Conservación de textos originales. Para efectos de uso institucional, procesal y para garantizar a las partes su derecho de acceso a la información, es deber de los despachos y oficinas emisoras de las resoluciones judiciales y documentos administrativos mantener los textos originales por el tiempo y la forma que lo dispongan los lineamientos institucionales y el ordenamiento jurídico, así como seguir las políticas y disposiciones relacionadas con conservación de documentos.
+Las oficinas sistematizadoras recibirán una copia fiel de los textos originales.

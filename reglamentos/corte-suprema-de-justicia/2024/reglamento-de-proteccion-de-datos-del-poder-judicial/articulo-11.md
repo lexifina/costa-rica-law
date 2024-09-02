@@ -1,0 +1,10 @@
+Artículo 11.- Obligaciones de las personas protectoras de datos. Son obligaciones de las personas protectoras de datos, las siguientes:
+a. Anonimizar los datos que le sean alertados por las personas identificadoras de conformidad con los lineamientos vigentes. No obstante, en aquellos casos que la persona protectora de datos detecte información que considera debe protegerse; sin embargo, no le fue así alertado, hará la observación a la persona identificadora correspondiente, para que analice nuevamente el tema y se pronuncie de forma definitiva en el plazo de dos días.
+De no recibirse respuesta, la persona encargada de la anonimización aplicará su criterio, siempre en estricto apego de lo normado en este reglamento y demás instrumentos jurídicos, pero ello no relevará de la responsabilidad correspondiente a quien omitió identificar un dato y/o pronunciarse respecto a las observaciones hechas.
+El procedimiento antes indicado no será necesario si la falta de alerta está relacionada con una causal de mera constatación, como lo es que consten datos de personas menores de edad, se trate de asuntos de familia o violencia doméstica, etc.; no obstante, cuando exista margen de interpretación o duda, deberá procederse según los términos indicados.
+b. Remitir solicitud escrita a la Dirección de Tecnología de la Información y Comunicaciones cuando deba proteger los datos personales en la base de datos que el despacho u oficina tenga a su cargo y posterior a la modificación deberá verificar la correcta protección de la información.
+c. Implementar las medidas de seguridad y control interno que correspondan, así como, cumplir con lo dispuesto en la Ley de Protección de la persona frente al tratamiento de sus datos personales, el Reglamento institucional y demás disposiciones aplicables.
+d. Publicar las resoluciones judiciales y documentos administrativos, cuando corresponda.
+e. Guardar confidencialidad respecto de los datos personales tratados.
+f. Abstenerse de transferir, difundir o usar los datos sensibles o de acceso restringido para fines distintos a los autorizados.
+g. Velar por el cumplimiento de este reglamento y demás normas relacionadas.

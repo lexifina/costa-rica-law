@@ -1,0 +1,1 @@
+Artículo 27.- Protección de resoluciones orales. Deberán protegerse previo a su publicación o difusión, todas aquellas resoluciones orales que contengan datos sensibles o de acceso restringido. No obstante, hasta tanto no se cuente con las herramientas tecnológicas que permitan dicha protección, no se podrá publicar este tipo de información.

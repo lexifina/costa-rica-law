@@ -1,0 +1,6 @@
+Artículo 5.- Derechos relacionados con el tratamiento de datos personales. Con las salvedades de ley, toda persona interesada o quien este legitimada, podrá solicitar el acceso a la información que conste sobre su persona. Asimismo, podrá solicitar la rectificación, actualización, anonimización o eliminación de esta, en atención a los derechos de acceso a la información y de rectificación de todas las personas con respecto a sus datos personales contenidos en la Ley de Protección de la persona frente al tratamiento de sus datos personales.
+Las solicitudes relacionadas con los derechos anteriormente indicados deberán ser resueltas en un plazo de cinco días hábiles contados a partir de la recepción de la solicitud. Lo que podrá derivar en:
+a) Rechazo de la solicitud, que deberá notificar por escrito y de manera fundamentada.
+b) Actualización, eliminación o anonimización de los datos, dependiendo del caso concreto, que se deberá notificar por escrito.
+Deberá llevar un archivo de control interno de todas las solicitudes con la finalidad de verificar el respeto a los plazos y demás derechos de la persona interesada.
+A efectos de estandarizar la atención de solicitudes de los derechos anteriormente indicados, deberá aplicar un procedimiento para atender solicitudes de Protección de Datos, debidamente aprobado por Consejo Superior.

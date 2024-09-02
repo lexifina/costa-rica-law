@@ -1,0 +1,6 @@
+Artículo 6.- Derecho al Olvido. Mediante el derecho al olvido, toda persona tiene derecho a que los datos de carácter personal que pudieran afectarla de alguna forma no estén disponibles para terceros, una vez transcurrido el plazo de 10 años desde la fecha de ocurrencia de los hechos registrados, salvo disposición normativa especial que disponga otro plazo para datos específicos.
+Toda persona interesada o quien este legitimada para ello, podrá solicitar que se eliminen de los documentos judiciales o administrativos, los datos personales que consten sobre su persona. Asimismo, podrá solicitar que se eliminen aquellos datos que permitan su identificación, transcurridos diez años desde la emisión del documento judicial o administrativo, o del conjunto estructurado de datos que la contenga.
+El plazo podrá variar en supuestos específicos si existe normativa o disposición jurídica vinculante que así lo avale.
+Las solicitudes de anonimización deberán ser resueltas en un plazo no mayor a cinco días hábiles.
+Deberá llevarse un archivo de control interno de todas las solicitudes con la finalidad de verificar el respeto a los plazos y demás derechos de la persona interesada.
+Para efectos de aplicación en el presente reglamento, el derecho al olvido corresponderá exclusivamente a las bases de datos de acceso público del Poder Judicial.

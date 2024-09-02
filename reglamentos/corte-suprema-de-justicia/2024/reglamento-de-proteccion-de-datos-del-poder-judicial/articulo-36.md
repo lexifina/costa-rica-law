@@ -1,0 +1,2 @@
+Artículo 36. De la responsabilidad. El Poder Judicial es custodio de la información que ha solicitado a las personas usuarias, por lo que, es responsable de guardar reserva, proteger datos o informaciones sensibles de terceros, a fin de tutelar los derechos de las personas usuarias de quienes recibe y produce información de la relación del servicio público justicia que brinda.
+Asimismo, toda persona servidora judicial es responsable por el tratamiento que realice sobre los datos que, con ocasión de sus respectivas funciones, haga.

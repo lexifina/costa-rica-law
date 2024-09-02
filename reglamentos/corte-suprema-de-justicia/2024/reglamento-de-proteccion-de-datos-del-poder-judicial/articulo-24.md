@@ -1,0 +1,2 @@
+Artículo 24.- Adecuación de documentos ya publicados al nuevo Reglamento. Cuando una persona interesada, cuyos datos consten en una resolución o documento ya publicado en Nexus.PJ, considere que sus datos deben tratarse de acuerdo con las disposiciones de este Reglamento, podrá gestionar la readecuación de su caso.
+Ante este tipo de solicitudes, la oficina sistematizadora encargada del documento o resolución tendrá un plazo de 5 días hábiles para resolver la gestión, cuyo resultado deberá ser notificado por escrito y de manera fundamentada a la persona interesada.

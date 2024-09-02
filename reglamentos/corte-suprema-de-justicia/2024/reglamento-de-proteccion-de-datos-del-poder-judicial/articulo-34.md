@@ -1,0 +1,2 @@
+Artículo 34.- Registro de entrega de la información. De entregar una resolución judicial o documento administrativo de acceso público no disponible en Nexus.PJ, estará obligado a llevar una bitácora o registro que permita dar trazabilidad al suministro de la información.
+Como mínimo el control deberá indicar el nombre completo de la persona usuaria, tipo y número de identificación, documentos o resoluciones suministradas, forma en el que se le entregó y confirmación, en caso de existir, de que se protegieron los datos sensibles y/o de acceso restringido.

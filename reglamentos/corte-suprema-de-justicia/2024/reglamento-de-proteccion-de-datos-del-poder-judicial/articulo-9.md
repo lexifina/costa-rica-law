@@ -1,0 +1,7 @@
+Artículo 9.- Obligaciones de las personas identificadoras de datos. Toda persona identificadora de datos deberá:
+a) Identificar si en las resoluciones judiciales (orales o escritas), documentos administrativos (documentos escritos, videos o audio) o cualquier otro conjunto estructurado de información a su cargo, existen datos sensibles o de acceso restringido que deban ser anonimizados de acuerdo con la normativa vigente.
+b) Dejar constancia de cuáles datos deben ser anonimizados y el motivo por el cual son objeto de protección. En casos donde el fundamento no se desprenda de este reglamento, indicar la norma jurídica que lo respalda. Lo anterior debe quedar por escrito en la casilla electrónica o archivo físico que a los efectos se disponga.
+c) Remitir los documentos al despacho o a la persona protectora de datos que realizará la protección material. En casos donde la persona identificadora sea la misma que la que debe realizar la protección material, igualmente se deberá dejar constancia del motivo que justifica la anonimización.
+d) Utilizar, de acuerdo con sus atribuciones, las herramientas tecnológicas que facilite la Dirección de Tecnologías de la Información y Comunicaciones, con la finalidad de establecer las medidas de seguridad que garanticen la confidencialidad, disponibilidad e integridad de la información que custodia el Poder Judicial.
+e) Guardar confidencialidad respecto de los datos personales tratados.
+f) Velar por el cumplimiento de este reglamento y demás normas relacionadas.

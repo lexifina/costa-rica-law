@@ -1,0 +1,6 @@
+Capítulo IV.
+Anonimización de documentos administrativos y resoluciones judiciales.
+Artículo 25.- Datos que deben protegerse. Deberán anonimizarse, previo a cualquier publicación, todos aquellos datos personales contenidos en resoluciones judiciales o documentos administrativos que permitan identificar a una persona sobre la que consten datos sensibles o de acceso restringido.
+Los datos sensibles se conservarán con el fin de mantener la historia y facilitar la investigación jurídica, así como para rescatar temas relacionados con derechos humanos, género, violencia doméstica, accesibilidad, entre otros; no obstante, no se podrán revelar los datos personales que permitan identificar a los titulares de la información sensible.
+Los datos de acceso restringido, tales como números de teléfono privados, correos electrónicos personales, dirección exacta del domicilio, cuentas bancarias y cualquier otro que la ley o disposiciones constitucionales cataloguen como tal, lo que se anonimizará será el dato restringido específico.
+En aquellos casos en los que datos sensibles o de acceso restringido consten en imágenes insertadas en el documento o resolución, éstas deberán sustituirse a efectos de no vulnerar la autodeterminación informativa del titular de los datos.
