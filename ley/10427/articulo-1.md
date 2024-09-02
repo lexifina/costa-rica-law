@@ -16,3 +16,4 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10459 del 4 de marzo de 2024)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10468 del 22 de marzo de 2024)
 (Así reformado el inciso b) y c) anterior por el artículo 1° de la ley N° 10490 del 20 de mayo del 2024)
+(Así modificado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 44628 del 2 de setiembre del 2024)
