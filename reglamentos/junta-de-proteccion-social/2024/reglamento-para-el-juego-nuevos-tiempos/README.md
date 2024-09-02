@@ -14,3 +14,4 @@ Reglamento para el juego nuevos tiempos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-31 | la propia norma |
+| 2 | 2024-09-02 | Reglamento 47 (2024-09-02) |
