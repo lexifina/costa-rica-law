@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2024
 
-Ley N° 10427 del 2023-12-04. SINALEVI, ficha 100996: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=100996&param2=141778&param3=1>.
+Ley N° 10427 del 2023-12-04. SINALEVI, ficha 100996: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=100996&param2=142042&param3=1>.
 
 Publicada en La Gaceta N° 229 del 2023-12-11.
 
@@ -24,3 +24,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 25 | 2024-07-03 | Decreto Ejecutivo 44543 (2024-06-21) | 2024-06-21 |
 | 15 de 25 | 2024-07-23 | Decreto Ejecutivo 44566 (2024-07-15) | 2024-07-15 |
 | 16 de 25 | 2024-08-07 | Ley 10503 | 2024-08-01 |
+| 17 de 25 | 2024-09-03 | Decreto Ejecutivo 44628 (2024-09-02) | 2024-09-02 |
