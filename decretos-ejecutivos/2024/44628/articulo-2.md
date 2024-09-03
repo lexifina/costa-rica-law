@@ -1,0 +1,1 @@
+Artículo 2°.-Modificase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2024, Ley No.10.427 y sus reformas antes citada, con el fin de realizar el traslado de partidas en el Ministerio de Educación Pública, conforme a lo consignado en el considerando 8 de este decreto.
