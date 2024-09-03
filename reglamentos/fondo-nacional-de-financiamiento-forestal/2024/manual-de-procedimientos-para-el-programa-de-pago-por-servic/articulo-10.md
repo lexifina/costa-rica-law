@@ -1,0 +1,10 @@
+Capítulo III. De la valoración legal y técnica de las solicitudes de ingreso al PSA.
+Artículo 10.- Valoración de aspectos legales de las solicitudes de ingreso.
+Además de lo dispuesto en el artículo 39 del Reglamento a la Ley Forestal y sus modificaciones, la valoración se realizará de la siguiente manera:
+1. Terminada la etapa de calificación de todas las solicitudes, las OR de Fonafifo remitirán las solicitudes a la DSA de Fonafifo, en estricto orden de calificación o puntuación para su valoración.
+2. Gestionar cuando corresponda los oficios o criterios del INDER, MAG y SINAC, requeridos para la valoración de las solicitudes de ingreso.
+3. La DSA de Fonafifo, en estricto orden de calificación o puntuación iniciará la autorización, para que se proceda con el trámite de la valoración legal de las solicitudes de ingreso de mayor puntaje hasta agotar el presupuesto aprobado.
+Solamente en caso de que la calificación de las solicitudes refleje un empate entre dos o más de ellas, se remitirán a la Dirección Jurídica de acuerdo con el principio de primero en tiempo primero en derecho.
+4. La DAJ de Fonafifo dispondrá de hasta 30 días naturales para la valoración de cada solicitud. Si se determinara que la misma no cumple con los requisitos o condiciones legales establecidas al efecto, la DAJ emitirá un documento con los requisitos faltantes y lo remitirá junto con los antecedentes a la OR del Fonafifo la cual concederá a la persona solicitante, un plazo de hasta 20 días hábiles para corregir y completar los requisitos legales.
+5. Si vencido el plazo otorgado, la persona solicitante no ha cumplido en su totalidad con lo prevenido o lo presenta nuevamente incorrecto, la Oficina Regional procederá con el archivo de la solicitud. Se debe emitir el oficio o resolución de archivo según corresponda, debidamente firmada por la Jefatura Regional.
+6. Si la solicitud es aprobada por la DAJ de Fonafifo, se le notificará a la persona interesada para que proceda a presentar los requerimientos técnicos en un plazo de 15 días hábiles a la Oficina Regional respectiva.

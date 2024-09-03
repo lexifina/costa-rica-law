@@ -1,0 +1,20 @@
+CAPÍTULO IX. De las obligaciones.
+Artículo 18.- Obligaciones generales.
+Son obligaciones de las personas beneficiarias de PSA en esta actividad las siguientes:
+1. Ceder al Fonafifo los derechos derivados por los servicios ambientales o ecosistémicos por un período igual a la vigencia del contrato suscrito.
+2. Cumplir con las estipulaciones del contrato, recomendaciones del Profesional Forestal o del personal de Fonafifo.
+3. Mantener en lo posible identificada en el campo el área sujeta a PSA, linderos limpios.
+4. Prevenir y controlar los incendios forestales sobre todo en zonas de alto riesgo, no realizar o permitir cacería o captura de fauna silvestre y realizar acciones necesarias que estén a su alcance, para evitar que terceras personas practiquen este tipo de acciones en su finca.
+5. No desarrollar actividades agrícolas, ganaderas o actividades dentro de las áreas bajo contrato que alteren la estructura del bosque.
+6. Comunicar al Fonafifo cualquier alteración o contingencia que ocasione cambios en el área bajo contrato de PSA.
+7. Permitir al Fonafifo a través de su personal, los órganos de control y supervisión del Estado; así como, al personal de empresas privadas debidamente autorizadas por Fonafifo, el libre acceso al inmueble para que realicen acciones de monitoreo, cuantificación, supervisión e investigación.
+8. Cumplir con las obligaciones establecidas en la Ley Forestal N° 7575, su Reglamento y sus modificaciones, el presente Manual y otras disposiciones aplicables.
+9. Para el ingreso al PPSA en la actividad de Protección de Bosque, la persona solicitante deberá contratar a un o una Profesional Forestal debidamente acreditado y vigente en el Colegio de Ingenieros Agrónomos, quien le asesorará para el cumplimiento de los requerimientos técnicos.
+10. También, deberá contratar los servicios de un o una Profesional Forestal para realizar los informes de los años 3 y 5 de acuerdo con lo establecido en el decreto y este Manual de Procedimientos.
+11. Implementar las recomendaciones técnicamente justificadas emitidas por Fonafifo, por el Profesional Forestal, igualmente deberá colaborar en las visitas que Fonafifo o sus representantes, eventualmente cuando se realicen a los proyectos PSA.
+12. Identificar adecuadamente el área sujeta a PSA, con un rótulo por cada 50 hectáreas como mínimo. Los rótulos deben contener información sobre el nombre de la persona beneficiaria, actividad, número de contrato y cantidad de área PSA sometida.
+13. Mantener activa una cuenta bancaria IBAN en colones emitida por una entidad bancaria, financiera, mutual y/o cooperativa de ahorro y crédito, a excepción de aquellos contratos de PSA que sean supervisados por las organizaciones.
+14. Garantizar al Fonafifo durante toda la vigencia del contrato, la posesión y propiedad de los inmuebles objeto de este contrato.
+15. Estar al día con las obligaciones de la CCSS, con Fodesaf, la Dirección de Aguas y con el impuesto a las personas jurídicas cuando corresponda.
+16. De presentarse acciones de tala y/o, alteraciones al bosque, realizadas por terceras personas, actividades de cacería, o cualquier otra que pueda dañar el bosque, la "persona beneficiaria" deberá presentar dentro de los 15 días naturales posteriores al conocimiento de los hechos, la denuncia penal interpuesta al Ministerio Público, y la denuncia administrativa ante el SINAC, según corresponda. La copia de estas denuncias deberá ser remitida a la Oficina Regional del Fonafifo a más tardar 30 días naturales después de haber sido interpuestas, acompañadas del informe de visita, donde cuantifique los daños e impactos producidos con su respectiva recomendación técnica, si eventualmente dispone de un Profesional Forestal.
+17. Para proyectos de Reforestación, Regeneración Natural, Manejo de Bosque y Sistemas Agroforestales se mantendrá el esquema de regencias forestales. A partir del 2024 los proyectos de Protección de Bosques no se requerirá de la regenciaforestal, en su lugar el seguimiento técnico estará a cargo de Profesionales Forestales.

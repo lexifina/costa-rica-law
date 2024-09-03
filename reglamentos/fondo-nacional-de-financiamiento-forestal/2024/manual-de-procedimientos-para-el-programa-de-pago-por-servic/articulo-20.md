@@ -1,0 +1,8 @@
+CAPÍTULO XI. Disposiciones del seguimiento y monitoreo a los proyectos de PSA.
+Artículo 20.- Control de los proyectos de PSA.
+1. El personal profesional de Fonafifo, de la fiscalía del Colegio de Ingenieros Agrónomos y del SINAC, podrán visitar cuando se requiera y previa coordinación el área contratada para corroborar el estado de esta y la información consignada en los informes de visita.
+2. El Fonafifo llevará una base de datos de los proyectos de PSA en el SIG institucional y en el SiPSA.
+3. El personal del Departamento de Control y Monitoreo utilizará en sus visitas de control, los formularios de indicadores diseñados para esta actividad reconocida. Los mismos serán anexados a los expedientes respectivos y tendrán el seguimiento correspondiente.
+4. El personal del Departamento de Control y Monitoreo, realizarán el seguimiento con base en los medios y sistemas que se dispone.
+5. Para el seguimiento de los años dos y cuatro y eventualmente otros años según se requiere, del contrato de Pago por Servicios Ambientales o Ecosistémicos, las OR de Fonafifo procederán a corroborar la información con las imágenes satelitales en su poder, datos de contratos anteriores y/o capas georreferenciadas.
+6. Se faculta al Fondo Nacional de Financiamiento Forestal, para que establezca una clasificación de las personas beneficiarias, según el grado de cumplimiento de estos en años anteriores, de forma tal que se establezca un esquema de mejora continua y a través de mecanismos de fomento se premie la excelencia. Para el cumplimiento de este aspecto la Junta Directiva del Fonafifo deberá establecer un reglamento con la normativa para su funcionamiento.

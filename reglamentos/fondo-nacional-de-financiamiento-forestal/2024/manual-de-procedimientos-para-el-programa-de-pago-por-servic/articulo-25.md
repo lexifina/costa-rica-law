@@ -1,0 +1,4 @@
+Artículo 25.- De la devolución de recursos, pago de intereses y otros.
+1. Declarado el incumplimiento mediante una resolución, cuando corresponda la devolución de recursos, estos serán realizados reconociendo al Fonafifo, el pago de intereses corrientes a partir de la verificación del incumplimiento, los cuales corresponderán a la tasa básica más tres puntos y como interés moratorio una tasa del uno por ciento mensual.
+2. En caso de devoluciones no derivadas de incumplimiento contractual, el monto será devuelto al Fonafifo sin intereses corrientes, pero si se cobrarán intereses moratorios en un porcentaje del uno por ciento mensual a partir de la mora.
+3. En ambos casos, el Fonafifo y la persona beneficiaria podrán acordar arreglos de pago cuyas condiciones deberán ser adecuadas y convenientes al Fonafifo.
