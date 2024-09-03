@@ -1,8 +1,6 @@
-Artículo 5°—Declaración jurada.
-El concursante adjuntará a su oferta una declaración jurada rendida ante notario público, en la que expresamente indique que:
+Artículo 5º-Declaración jurada. El concursante adjuntará a su oferta una declaración jurada rendida ante notario público, en la que expresamente indique que:
 a) No es cónyuge ni tiene parentesco hasta tercer grado por consanguinidad o afinidad con alguno de los funcionarios del Banco o de las Sociedades propiedad del Banco a quien le ofrece sus servicios y que ocupen los puestos de director de la Junta Directiva del Banco o de sus Sociedades, fiscal, Gerente General Corporativo, Subgerente General de Negocios, Subgerente General de Operaciones, Gerente de la Sociedad, Auditor General y Subauditor General del Banco o de sus Sociedades Anónimas.
 b) No ha sido declarado culpable en la vía judicial, durante los cinco años anteriores a la fecha de convocatoria a concurso, en una demanda fundada en el atraso o la falta de pago de obligaciones propias con cualquiera de las entidades financieras sujetas a la fiscalización de la Superintendencia General de Entidades Financieras, Superintendencia General de Valores o Superintendencia de Pensiones y Superintendencia General de Seguros.
-d) Está al día en el pago de sus obligaciones con las entidades integrantes del Sistema Financiero Nacional.
-e) No tiene impedimento para el ejercicio de sus funciones profesionales.
-f) No tiene impedimento para desplazarse dentro y fuera del país.
-(Así reformado mediante sesión ordinaria N° 5736 del 25 de mayo del 2020)
+c) Está al día en el pago de sus obligaciones con las entidades integrantes del Sistema Financiero Nacional.
+d) No tiene impedimento para el ejercicio de sus funciones profesionales.
+e) No tiene impedimento para desplazarse dentro y fuera del país.
