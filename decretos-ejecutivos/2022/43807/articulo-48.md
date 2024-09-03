@@ -1,1 +1,1 @@
-Artículo 48. Validación contra registros de funcionarios. Las instituciones usuarias del sistema digital unificado están obligadas a la validación periódica del nombre de sus funcionarios, al menos contra los registros que mantiene el operador del sistema, procediendo a realizar la desactivación inmediata del acceso al sistema, en caso de cambios de funcionarios.
+Artículo 48. Validación contra registros de funcionarios. (Derogado por el artículo 3° del decreto ejecutivo N° 44743 del 3 de setiembre de 2024)

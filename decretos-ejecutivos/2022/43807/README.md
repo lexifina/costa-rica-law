@@ -14,3 +14,4 @@ Reglamento del modelo tarifario para el uso del sistema digital unificado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2024-09-03 | Decreto Ejecutivo 44743 (2024-09-03) |

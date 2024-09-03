@@ -1,1 +1,2 @@
-Artículo 34. Procedimiento de pago. Cada institución usuaria del sistema digital unificado efectuará el pago por el uso de plataforma directamente al proveedor del servicio, atendiendo las disposiciones previstas para ello en la Ley General de Contratación Pública y su Reglamento
+Artículo 34.-Procedimiento de pago. Cada institución usuaria del sistema digital unificado efectuará el pago por el uso de plataforma directamente al operador del servicio, atendiendo las disposiciones previstas para ello en la Ley General de Contratación Pública, su Reglamento y la resolución de tarifas que para tales efectos emita la Dirección de Contratación Pública.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44743 del 3 de setiembre de 2024)
