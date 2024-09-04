@@ -1,2 +1,2 @@
-ARTÍCULO 5.- Al recibir la ayuda económica, cada beneficiario firmará un finiquito a favor del Estado, mediante el que se dará por satisfecho sin ulterior reclamo de cualquier consecuencia económica o social derivada de la apertura de los servicios de estiba y desestiba de los muelles de Limón.
+ARTÍCULO 5.- (Derogado por el artículo 2° de la ley N° 10525 del 4 de setiembre de 2024)
 Rige a partir de su publicación.
