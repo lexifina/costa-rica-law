@@ -1,1 +1,0 @@
-Artículo 12.—Para todas aquellas personas jurídicas inscritas en el Registro de Personas Jurídicas del Registro Nacional, cuyo documento de cédula jurídica haya sido expedido con un plazo definido y que éste haya expirado, que se encuentre deteriorado o extraviado, no requerirán solicitar su reposición, en razón de lo dispuesto por los artículos 6 y 8 anteriores.
