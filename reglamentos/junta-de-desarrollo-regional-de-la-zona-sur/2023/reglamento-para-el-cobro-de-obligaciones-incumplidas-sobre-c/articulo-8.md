@@ -1,0 +1,1 @@
+Artículo 8º-Cumplido el desalojo, existiendo montos de arrendamiento insolutos, la Administración Financiera en conjunto con la Unidad de Cobro, procederá a certificarlos a fin de que sean cobrados por la vía judicial de conformidad con los procedimientos establecidos en el Código Procesal Civil y este Reglamento.

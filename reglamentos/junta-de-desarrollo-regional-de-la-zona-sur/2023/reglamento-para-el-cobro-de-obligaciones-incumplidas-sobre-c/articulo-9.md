@@ -1,0 +1,1 @@
+Artículo 9º-En el caso de cobro judicial la Administración Financiera en conjunto con el departamento comercial podrán realizar contrataciones administrativas de abogados externos de cobro siguiendo los procedimientos establecidos en la ley N° 9986 o bien estos podrán ser atendidos por la asesoría legal institucional.
