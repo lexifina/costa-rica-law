@@ -1,2 +1,0 @@
-Artículo 6°—Calificación. Recibidas ¡as solicitudes por el registrador de la Oficina, se procederá a su calificación, la cual deberá realizar en un plazo máximo de tres días hábiles. El incumplimiento injustificado de esta disposición, ocasionará la apertura de un procedimiento administrativo contra el servidor negligente, en donde se lijarán las responsabilidades del caso.
-La calificación se realizará con estricto apego a las disposiciones legales que regulen la materia, este reglamento, así como de los criterios regístrales que al efecto se emitan.
