@@ -15,3 +15,4 @@ Reglamento a la Ley de Marcas de Ganado
 | --- | --- | --- |
 | 1 | 2011-03-23 | la propia norma |
 | 2 | 2012-11-01 | Acuerdo 471 (2012-11-01) |
+| 3 | 2024-09-05 | Decreto Ejecutivo 44650 (2024-09-05) |
