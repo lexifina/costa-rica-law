@@ -1,1 +1,0 @@
-Artículo 8º—Interinos y suplentes. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos obligados a caucionar, deberán rendir garantía cuando su nombramiento sea mayor de un mes.

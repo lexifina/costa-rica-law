@@ -1,3 +1,0 @@
-Artículo 4º—Deber de solventar la caución. A tenor de lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor de JAPDEVA.
-Los montos de las cauciones que regula este Reglamento son mínimos, de manera que cada obligado puede voluntariamente incrementarlos a su discreción.
-Cuando las condiciones de los mercados de seguros y otras garantías establezcan solo productos que obligan al caucionante a ajustar el monto de su garantía a sumas superiores, será su obligación adaptarse a esas condiciones.

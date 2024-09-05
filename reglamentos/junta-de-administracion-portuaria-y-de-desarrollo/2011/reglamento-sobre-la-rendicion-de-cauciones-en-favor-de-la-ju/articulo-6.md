@@ -1,2 +1,0 @@
-Artículo 6º—Momento para rendir la caución. Los funcionarios obligados a rendir caución, deberán rendirla una vez notificado el nombramiento en el puesto y haber recibido la acción de personal, que avale la designación al puesto y antes de asumirlo.
-Corresponderá al Departamento de Recursos Humanos velar porque la persona obligada haya rendido la garantía correspondiente al momento de asumir el cargo, sin perjuicio de las responsabilidades que corresponden al jerarca y los titulares subordinados.

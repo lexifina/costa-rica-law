@@ -1,1 +1,0 @@
-Artículo 2º—Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable, en el ejercicio de sus funciones, pueda producir al patrimonio de JAPDEVA, sin que ello limite la eventual responsabilidad civil.

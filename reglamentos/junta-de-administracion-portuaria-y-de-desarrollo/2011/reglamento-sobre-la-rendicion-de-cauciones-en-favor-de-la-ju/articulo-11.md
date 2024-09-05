@@ -1,1 +1,0 @@
-Artículo 11.—Cálculo de la caución en el nivel C. Quienes desempeñen puestos contemplados dentro de los incisos h), i), j), K) y l) del artículo 13 del presente Reglamento, deberán rendir una caución equivalente a seis salarios base.

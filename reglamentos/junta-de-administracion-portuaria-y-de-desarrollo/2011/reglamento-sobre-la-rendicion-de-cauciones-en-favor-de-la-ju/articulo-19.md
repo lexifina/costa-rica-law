@@ -1,2 +1,0 @@
-Artículo 19.—Responsabilidades por la no rendición de caución. El no rendir la caución, el rendirla de manera insuficiente y el no renovar la garantía dentro de los plazos previstos al efecto, originará al servidor responsabilidad administrativa.
-En el caso de los funcionarios encargados de administrar y controlar la presentación de cauciones constituirá un hecho generador de responsabilidad administrativa y la aplicación del régimen sancionatorio correspondiente, el darle al servidor obligado a caucionar, posesión del cargo, sin rendir previamente la caución dispuesta.
