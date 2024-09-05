@@ -1,0 +1,1 @@
+ARTÍCULO 7º.- DE LOS PARTICIPANTES. Podrán postularse propuestas de obras de artes visuales en etapa de desarrollo realizadas por personas de nacionalidad costarricense o extranjeros residentes con estatus migratorio regular, mayores de 18 años.

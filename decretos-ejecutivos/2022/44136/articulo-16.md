@@ -1,0 +1,3 @@
+ARTÍCULO 16º.-DE LA FORMALIZACIÓN DEL PAGO DE LOS FONDOS DE PRODUCCIÓN. El Museo de Arte Costarricense efectuará las transferencias correspondientes a los artistas seleccionados para recibir los fondos de producción de obras de arte en dos tractos:
+a) Primer tracto: En los 60 días naturales luego de la suscripción del documento que formaliza los compromisos y obligaciones de las partes en el marco de la producción, seguimiento y exposición de las obras de arte.
+b) Segundo tracto: En los 60 días naturales luego del término del proceso curatorial, cuya conclusión será formalizada por un informe de la Curaduría Jefe del Museo de Arte Costarricense, indicando el cabal cumplimiento del proceso y responsabilidades por parte del beneficiario.
