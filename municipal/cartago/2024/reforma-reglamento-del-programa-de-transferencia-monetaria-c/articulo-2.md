@@ -1,0 +1,1 @@
+Artículo 2º—Se derogan los artículos 15 inciso I, 18, 20 y el inciso e. del artículo 31 del Reglamento del Programa de transferencia monetaria condicionada de la Municipalidad de Cartago del día 16 de noviembre del 2021.
