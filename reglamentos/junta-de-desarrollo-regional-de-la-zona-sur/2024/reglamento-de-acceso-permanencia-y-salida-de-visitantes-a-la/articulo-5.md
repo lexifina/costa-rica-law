@@ -1,0 +1,25 @@
+Artículo 5º-Definiciones. Para efectos de la interpretación de este reglamento, se definen los siguientes términos:
+Acción, conducta, comportamiento prohibido: Quedan terminantemente prohibidas las siguientes acciones, conductas o comportamientos:
+5.1 El consumo, comercio, expendio, venta, prescripción, manipulación, uso, tenencia, tráfico, suministro, comercialización y/o distribución de cualquier tipo de estupefacientes, psicotrópicos, sustancias inhalables y/o drogas prohibidas de conformidad con la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de uso No Autorizado y Actividades Conexas, Ley N.º 7786 y sus reformas.
+5.2. El consumo, comercio, expendio, venta, prescripción, manipulación, uso, tenencia, tráfico, suministro, comercialización y/o distribución de bebidas alcohólicas, a excepción de los concesionarios definidas por la Administración.
+5.3. El consumo de tabaco en cualquier área interna o externa del Depósito Libre Comercial de Golfito. El fumado (tabaco, cáñamo, vapeo) en cualquier área interna o externa de Depósito Libre Comercial de Golfito.
+5.4. La portación, manipulación, uso o tenencia de armas de fuego y/o armas punzocortantes. Lo anterior, salvo por oficiales pertenecientes a las agencias de seguridad gubernamentales, y/o de empresas de seguridad privadas, cuyo ingreso haya sido previamente autorizado por la Administración del Depósito Libre Comercial de Golfito.
+5.5. La portación, manipulación, uso o tenencia de explosivos dentro de cualquier área interna o externa del Depósito Libre Comercial de Golfito.
+5.6. Mantener una conducta agresiva, insultante, amenazante o violenta dentro de las instalaciones del Depósito Libre Comercial de Golfito.
+5.7. Realizar cualquier actos de odio, violencia y discriminación, determinada por distinciones, exclusiones o preferencias, fundadas en consideraciones sobre raza, color, sexo, edad, religión, estado civil, opinión política, ascendencia nacional, origen social, filiación o situación económica.
+5.8. Realizar indecorosas, escenas amorosas, escenas libidinosas o de contenido sexual.
+5.9. Realizar actos de maltrato animal, crueldad contra los animales, o que causen su muerte.
+5.10. Incumplir con las medidas de seguridad que hayan sido dispuestas por la Administración para el resguardo de los visitantes.
+5.11. Cualquier otra conducta, acción o comportamiento prohibido expresamente por la Administración o leyes de la República de Costa Rica y/o establecida en cualquiera de los reglamentos específicos de JUDESUR.
+5.12. Ventas ambulantes, acarreo no autorizado de mercadería con fines lucrativos, rifas, repartir boletines o solicitudes de ayuda económica excepto que cuente con la debida autorización por parte de la administración.
+5.13. Ofrecer y brindar el servicio de acarreo de mercancías sin la autorización de la administración.
+5.14. Ejecutar actos intencionales que dañen o alteren el buen funcionamiento de las instalaciones y los bienes de la institución o propiedad de funcionarios y empleados
+5.15. Introducir o mantener en la institución sustancias inflamables, tóxicas u otras que atenten contra la salud o el bienestar de los funcionarios, empleados y visitantes.
+5.16. Cometer actos constitutivos de hurto, apropiación indebida y robo cometidos en perjuicio de la administración, los funcionarios y visitantes del Depósito Libre Comercial de Golfito.
+5.17. Realizar dentro del Depósito ventas, rifas, repartición de boletines o solicitudes de ayuda económica, sin la debida autorización de la administración del depósito libre comercial de Golfito.
+Administración: Autoridad competente para la toma de decisiones
+Depsito: Se entiende por Depósito Libre Comercial de Golfito el área física, debidamente cercada, administrada por la Junta de Desarrollo Regional de la Zona Sur (Judesur), cuyos límites son vigilados por la aduana, en la que se encuentran almacenes y expendios para la venta de mercaderías, nacionales y extranjeras, libres de todo tributo, salvo el dispuesto en el artículo 40 de la presente Ley No. 9356.
+El horario de funcionamiento del Depósito Libre Comercial de Golfito será acorde a las necesidades de atención de los visitantes que acudan a realizar sus compras y definidos por la Junta Directiva de Judesur.
+Incumplimiento: acción u omisión contraria a lo establecido como permitido en este reglamento.
+Revisión de ingreso de visitantes: revisión realizada por el agente de seguridad al visitante, para corroborar que no porta armas de fuego, armas punzocortantes, contuso cortantes, substancias explosivas, inflamables, volátiles, armas eléctricas o cualquier objeto que pueda ser utilizado para atentar contra la integridad de una persona o pueda ocasionar daños en la infraestructura.
+Permanencia temporal: Estancia por un tiempo determinado, de personas físicas o jurídicas que debidamente autorizadas por la administración, se encuentren en las instalaciones del Depósito realizando alguna actividad de interés institucional, social, económico o cultura.
