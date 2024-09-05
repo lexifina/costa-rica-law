@@ -16,3 +16,4 @@ Reglamento de la Ley de Marcas y otros Signos Distintivos
 | 1 | 2002-04-04 | la propia norma |
 | 2 | 2007-03-14 | Decreto Ejecutivo 33743 (2007-03-14) |
 | 3 | 2008-09-17 | Decreto Ejecutivo 34760 (2008-09-17) |
+| 4 | 2024-09-05 | Decreto Ejecutivo 44650 (2024-09-05) |
