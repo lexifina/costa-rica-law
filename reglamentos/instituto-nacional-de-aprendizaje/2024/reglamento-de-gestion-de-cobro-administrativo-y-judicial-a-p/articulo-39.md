@@ -1,0 +1,1 @@
+Artículo 39.- Procedimiento sancionatorio a las personas abogadas externas. Cuando las personas abogadas externas comentan una falta que amerite la aplicación de una sanción, se someterán al procedimiento sancionatorio contenido en la Ley General de Contratación Pública y su Reglamento.

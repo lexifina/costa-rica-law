@@ -1,0 +1,1 @@
+Artículo 55.- De la formalización y custodia de la garantía. Le corresponde al Proceso de Inspección y Cobros, confeccionar y custodiar el documento que garantice la readecuación de la deuda aprobada.

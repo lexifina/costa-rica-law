@@ -1,0 +1,1 @@
+Artículo 45.- De la cancelación definitiva del proceso. La cancelación definitiva del proceso implicará su finalización y sólo podrá realizarse si se cancela la totalidad de la deuda junto con intereses, recargos y gastos legales, o si el patrono con adeudo parafiscal sujeto de ejecución formaliza un arreglo extrajudicial debidamente garantizado por medio de un pagaré.

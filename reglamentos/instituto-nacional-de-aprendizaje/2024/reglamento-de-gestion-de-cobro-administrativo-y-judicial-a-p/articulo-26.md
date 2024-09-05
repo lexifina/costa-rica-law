@@ -1,0 +1,1 @@
+Artículo 26.- De la suspensión del remate. La persona abogada INA o persona abogada externa, según corresponda sólo podrá solicitar la suspensión del remate cuando exista autorización expresa y por escrito de la persona encargada del Proceso de Inspección y Cobros.

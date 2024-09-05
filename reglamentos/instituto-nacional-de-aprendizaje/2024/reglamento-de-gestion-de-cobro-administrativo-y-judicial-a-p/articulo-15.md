@@ -1,0 +1,10 @@
+Artículo 15.- De las obligaciones generales de las personas abogadas externas. Serán obligaciones generales de las personas abogadas externas encargarse de la dirección de los procesos de cobro judicial de la institución:
+a) Dirigir con la mayor diligencia y celeridad los procesos ejecutivos que le sean asignados.
+b) Cumplir las disposiciones del presente Reglamento.
+c) Remitir en los términos establecidos, de acuerdo con el artículo 20 del presente Reglamento, los informes que detallen las gestiones realizadas en cada cobro que al efecto le sean solicitados por parte del Proceso de Inspección y Cobros.
+d) Devolver dentro de los cinco días hábiles, todo aquel documento en su poder que ya no le sea necesario para la dirección de un proceso ejecutivo.
+e) Informar al Proceso de Inspección y Cobros cuando se traslade de oficinas o se vaya a ausentar de ellas por un término superior a cinco días hábiles. Dado el caso que un abogado se ausente por un período superior a los cinco días hábiles, deberá indicar por escrito el profesional en derecho que queda temporalmente a cargo de los juicios que le hayan sido asignados, quien acepta el control y seguimiento del Proceso de Inspección y Cobros en idénticos términos del titular a quien temporalmente sustituye.
+f) Informar al Proceso de Inspección y Cobros si se presentara alguna circunstancia de hecho o derecho que le imposibilitare para la dirección de uno o varios de los juicios sometidos a su cargo.
+g) En caso de que el patrono moroso quisiera un arreglo extrajudicial, el abogado debe de enviar al deudor al Proceso de Inspección y Cobros para la formalización del arreglo respectivo.
+h) Toda persona abogada deberá, como mínimo, contar en su oficina con teléfono, facsímil, correo electrónico y casillero en el circuito judicial segundo de San José.
+i) La persona abogada externa mantendrá la cartera de casos actualizada y deberá realizar las gestiones procesales que correspondan para evitar que los casos se declaren Caducos en Sede Judicial

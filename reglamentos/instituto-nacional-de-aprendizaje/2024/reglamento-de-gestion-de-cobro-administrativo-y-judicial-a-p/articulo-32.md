@@ -1,0 +1,1 @@
+Artículo 32.- De la comunicación de los bienes adjudicados. Le corresponde al Proceso de Inspección y Cobros informar a la Unidad de Compras Institucionales, sobre el o los bienes adjudicados y debidamente inscritos a nombre del INA en el Registro Nacional Público.

@@ -1,0 +1,1 @@
+Artículo 33.- Sobre la Disposición de los bienes adjudicados. Corresponde a la Unidad de Compras Institucionales a través del Almacén o a la Unidad de Recursos Materiales, según corresponda, establecer el procedimiento de resguardo, controles, logística, conservación, entre otros, de los bienes adjudicados por la vía judicial.

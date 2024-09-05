@@ -1,0 +1,1 @@
+Artículo 57.- Del término inicial de pago. El término a partir del cual el deudor empezará a pagar las cuotas fijadas de acuerdo con el arreglo de pago o readecuación de la deuda será en la misma fecha en que se firma la respectiva garantía.

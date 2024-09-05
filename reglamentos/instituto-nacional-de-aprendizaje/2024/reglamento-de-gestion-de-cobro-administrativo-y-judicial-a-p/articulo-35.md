@@ -1,0 +1,3 @@
+Artículo 35.- De los gastos de protocolización. Si dentro del desarrollo del proceso fuese necesaria la presentación de un documento protocolizado los gastos de protocolización y honorarios se cancelará a la persona abogada externa con la presentación de una copia de la respectiva escritura.
+Si fuese necesaria la presentación de ese documento al diario del Registro Público, los gastos de protocolización se cancelarán con la presentación de la boleta respectiva.
+El pago de honorarios se cancelará con la presentación de la escritura debidamente inscrita. Para tal efecto, las personas abogadas externas tendrán plazo máximo de tres meses para la inscripción del documento.

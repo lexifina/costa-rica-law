@@ -1,0 +1,1 @@
+Artículo 38.- Causales de sanciones a las personas abogadas externas. Serán causales de sanciones cualesquiera de las contenidas la Ley General de Contratación Pública y su Reglamento, así como el criterio de valoración que deberá constar de estas conforme a la referida Ley.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del sistema de pago de honorarios
+Artículo 34.- Del pago de los honorarios a los profesionales. El área de Cobro Judicial del Proceso de Inspección y Cobros será el responsable del cálculo y trámite de pago de los honorarios profesionales a devengar por las personas abogadas externas, de conformidad con el arancel de profesional de derecho vigente al momento de la interposición de la demanda ante los juzgados correspondientes. Corresponderá al patrono moroso cubrir dichos costos por concepto de costas cuando se logre la recuperación de lo adeudado, ya sea por diligencia judicial o extrajudicial.

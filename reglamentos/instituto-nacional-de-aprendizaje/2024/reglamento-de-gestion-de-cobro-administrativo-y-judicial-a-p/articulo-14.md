@@ -1,0 +1,1 @@
+Artículo 14.- De la contratación de las personas abogadas externas. El INA contratará a personas abogadas externas encargadas de incoar y dirigir los procesos para el cobro judicial, de conformidad con los mecanismos y procedimientos establecidos en la Ley General de Contratación Pública y su Reglamento.

@@ -1,0 +1,3 @@
+Artículo 63.- De los casos recomendados como incobrables ante la Junta Directiva. Le corresponde al Proceso de Inspección y cobros gestionar como máximo anualmente, para aprobación de la Junta Directiva de la Institución, la propuesta de las operaciones que se recomiendan incobrables.
+Con la recomendación de incobrables se incluirá el listado de las personas representantes legales, en caso de que el patrono moroso sea una persona jurídica. Esto para que se determine por parte de la Junta si alguno de sus miembros debe inhibirse de conocer la declaratoria.
+La solicitud de aprobación de las operaciones que se recomiendan incobrables se efectuará dentro de los primeros cuatro meses de cada año.

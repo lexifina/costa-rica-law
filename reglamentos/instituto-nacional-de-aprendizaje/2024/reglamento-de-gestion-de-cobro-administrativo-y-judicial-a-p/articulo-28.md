@@ -1,0 +1,1 @@
+Artículo 28.- Del registro de bienes adjudicados. Una vez adjudicado el bien a nombre del INA mediante resolución judicial, el Proceso de Inspección y Cobros informará al Proceso de Contabilidad sobre esa resolución y solicitará el registro contable del bien mueble o inmueble, cuando se inscriba en el Registro Nacional.
