@@ -14,3 +14,4 @@ Establecimiento de la inclusión y la accesibilidad en el Sistema Educativo Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-19 | la propia norma |
+| 2 | 2024-09-05 | Decreto Ejecutivo 44654 (2024-09-05) |
