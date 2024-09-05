@@ -1,5 +1,7 @@
-Artículo 24.—En caso de que la solicitud se refiera a la autorización de nuevos libros, por haberse concluido los anteriores, además de los requisitos generales antes mencionados, el interesado deberá indicar el número del libro nuevo por autorizar y aportar:
-a) El libro que concluye, dejando la última plana en blanco para su cierre.
-b) El libro nuevo para autorizar.
-c) Las especies fiscales correspondientes.
-d) Certificación de contador público autorizado, declarando que los registros contables se encuentran al día, caso contrario, debe aportarse declaración jurada del Presidente y Tesorero de la Asociación indicando los motivos por los cuales los registros contables no están al día o lo que corresponda en su caso.
+Artículo 24. La solicitud de autorización de libros nuevos por conclusión o por deterioro deberá ser firmada por el representante o apoderado de la Asociación indicándose las calidades completas, o en caso de ausencia de éste. por dos miembros del órgano directivo cuyo nombramiento conste en el Registro, actuando conjuntamente, bastando su dicho para tener por comprobada dicha ausencia. En ambos casos, sus firmas deberán ser autenticadas por un abogado o por notario, cumpliendo los siguientes requisitos:
+a) Indicarse el nombre de la Asociación y número de cédula jurídica. el tipo y número del libro que concluyó y el número del que solicita.
+b) Debe aportarse el libro en uso, dejando la última plana en blanco para su cierre por parte del Registro Nacional. En el trámite de legalización. no es competencia del Registro la revisión del contenido de las actas asentadas, lo cual es de control interno de cada asociación.
+c) Las hojas sueltas para conformar el libro nuevo para autorizar, ajustándose a los requisitos del inciso b) del artículo 21.
+d) El pago de tributos correspondientes.
+e) Cuando se trate de los libros contables. aportar certificación de contador público autorizado, declarando que los registros contables se encuentran al día, caso contrario, debe aportarse declaración jurada del Presidente y Tesorero de la Asociación indicando los motivos por los cuales los registros contables no están al día o lo que corresponda en su caso.
+(Así reformado por el artículo 198 del Reglamento del registro de personas jurídicas, aprobado mediante decreto ejecutivo N° 44648 del 5 de setiembre del 2024)
