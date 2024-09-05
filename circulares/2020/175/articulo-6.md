@@ -1,2 +1,0 @@
-Artículo 6°—AUTENTICIDAD Y TECNOLOGÍA SEGURA
-Las aplicaciones y plataformas utilizadas para la realización de actos procesales por videoconferencia, no deberán comprometer los equipos y bases de datos institucionales. Serán las autorizadas por la Dirección de Tecnología de la Información, la cual es responsable de elegir aquellas herramientas que garanticen la seguridad, autenticidad y desempeño.

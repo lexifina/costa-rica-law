@@ -1,2 +1,0 @@
-Artículo 9°—DEBERES ÉTICOS
-Los deberes de buena fe procesal, lealtad, probidad, uso racional del sistema, cooperación, entre otros, que establecen la normativa procesal agraria y otras supletorias de la materia, regirán las actuaciones judiciales realizadas por videoconferencia y otros medios tecnológicos. También serán de aplicación la Ley Orgánica del Poder Judicial y el Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho y afines.

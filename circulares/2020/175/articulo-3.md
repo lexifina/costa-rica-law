@@ -1,2 +1,0 @@
-Artículo 3°—ÓRGANOS RESPONSABLES
-Corte Suprema de Justicia, Consejo Superior, Comisión de la Jurisdicción Agraria, Dirección Ejecutiva, Dirección de Tecnología de la Información, Dirección de Planificación, Contraloría de Servicios y Departamento de Prensa, Comunicación del Poder Judicial, Administraciones Regionales, tribunales que conocen materia agraria.
