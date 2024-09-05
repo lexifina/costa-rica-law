@@ -1,0 +1,1 @@
+Artículo 22.-Exoneración del impuesto al valor agregado. Para el trámite de compra por el fondo de caja chica, la persona que lo gestione para la adquisición de bienes y servicios deberá gestionar un comprobante de exoneración de pago del impuesto al valor agregado.

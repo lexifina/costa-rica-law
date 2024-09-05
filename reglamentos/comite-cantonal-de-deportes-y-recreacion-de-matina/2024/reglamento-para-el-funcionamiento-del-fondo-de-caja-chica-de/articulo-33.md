@@ -1,0 +1,4 @@
+Artículo 33.-Responsabilidades de los usuarios en los procesos de compra por medio de la caja chica. En el cumplimiento de sus funciones, todos los usuarios de los fondos de la Caja Chica deberán:
+a. Procurar el eficiente y eficaz uso de los fondos asignados a la caja chica y denunciando ante la autoridad competente cualquier actividad o situación contraria al correcto manejo de los recursos bajo este mecanismo.
+b. Dejar evidencia de lo actuado desde la planificación, gestión y liquidación de las compras por medio de la caja chica, documentación que deberá ser registrada posteriormente en el Sistema Digital Unificado.
+c. Actuar en el ejercicio de sus funciones, con estricto apego al bloque de legalidad, al deber de probidad y mantener un actuar apegado a los más altos principios éticos como funcionario público.
