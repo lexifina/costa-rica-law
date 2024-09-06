@@ -1,0 +1,1 @@
+Artículo 2º-Durante la suspensión señalada, seguirán vigentes las demás disposiciones aplicables al registro, fabricación y etiquetado de los jabones contenidas en los reglamentos técnicos centroamericanos en materia de productos higiénicos y cosméticos, según sea el caso, así como cualquier otra normativa aplicable a este producto.
