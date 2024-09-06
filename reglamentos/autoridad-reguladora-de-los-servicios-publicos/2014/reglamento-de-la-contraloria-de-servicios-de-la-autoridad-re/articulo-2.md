@@ -1,1 +1,0 @@
-Artículo 2º—Registro. La Contraloría de Servicios deberá estar inscrita en el registro que, para tales efectos, lleva la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).

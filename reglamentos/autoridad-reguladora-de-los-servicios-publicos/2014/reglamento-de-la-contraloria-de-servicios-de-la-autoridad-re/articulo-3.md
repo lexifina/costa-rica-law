@@ -1,1 +1,0 @@
-Artículo 3º—Recursos y ubicación. La Contraloría de Servicios contará al menos con dos funcionarios regulares de la institución. Además sus oficinas se ubicarán en un lugar cercano a las oficinas que prestan atención directa al público.
