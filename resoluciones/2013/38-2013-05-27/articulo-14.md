@@ -1,20 +1,12 @@
-Artículo 14. Departamento de Comunicación Institucional.
-Su superior inmediato es el Regulador General. Está a cargo de un Profesional.
-Es responsable de desarrollar la comunicación organizacional de Aresep con el propósito de promover la transparencia, mejorar la imagen de la entidad, facilitar sinergias con otras organizaciones y satisfacer las necesidades de información y comunicación de usuarios internos y externos.
-Tiene las siguientes funciones:
-1. Asesorar a la Junta Directiva, al Regulador General y a los Intendentes en materia de su competencia.
-2. Administrar las relaciones con la prensa nacional e internacional.
-3. Administrar los medios de comunicación colectiva de Aresep, incluyendo el portal electrónico y las redes sociales.
-4. Planificar, implementar, evaluar y mejorar estrategias y tácticas para el fortalecimiento de la imagen institucional y la apropiada satisfacción de requerimientos de comunicación.
-5. Publicar en Internet la información de Aresep que, conforme al ordenamiento jurídico, deba ser de conocimiento público.
-6. Desarrollar y mantener con efectividad las relaciones públicas de Aresep.
-7. Coordinar la logística de los eventos nacionales o internacionales de relaciones públicas y prensa en que participe Aresep.
-8. Realizar la divulgación colectiva de actividades, resultados y hechos de interés para Aresep.
-9. Coordinar la elaboración y uso de los materiales de comunicación (gráfico, audiovisual y cualquier otro) requeridos en la Institución.
-10. Resguardar la correcta utilización de la imagen institucional.
-11. Divulgar, internamente, información de interés institucional proveniente de distintas fuentes tales como: prensa, Diario Oficial La Gaceta, Asamblea Legislativa, entre otros.
-12. Reseñar y conservar las memorias de los eventos donde participe la Aresep.
-13. Determinar los requerimientos de capacitación del área y coordinar con la Dirección de Recursos Humanos su consideración en el plan anual de capacitación.
-14. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
-15. Todas aquellas otras funciones que le asigne la Junta Directiva o el Regulador General, atinentes al Departamento de Comunicación Institucional.
-El alcance de las funciones de este departamento no incluye de forma directa a Sutel.
+Artículo 14. Dirección de Relaciones Institucionales.
+Su superior inmediato es la persona Regulador General. Está a cargo de una persona director.
+Es responsable de dirigir los procesos de articulación y comunicación corporativa, las relaciones e imagen institucional, para el fortalecimiento de la transparencia y rendición de cuentas, el compromiso y la relación con las partes interesadas, como parte del modelo de gobernanza basado en los principios de gobierno corporativo. Tiene las siguientes funciones:
+1. Asesorar a la persona Regulador General, sobre la comunicación estratégica, el desarrollo de relaciones corporativas, el posicionamiento oportuno y proactivo de la imagen institucional y del criterio técnico especializado, que fortalezcan la transparencia y rendición de cuentas para el cumplimiento del valor público institucional.
+2. Dirigir la comunicación estratégica interna, la promoción de la identidad y valores institucionales, las relaciones con las personas funcionarias y la responsabilidad social corporativa en vinculación con la estrategia y la cultura organizacional.
+3. Dirigir la comunicación estratégica externa desarrollando propuestas innovadoras para gestionar la imagen, anticipar posibles reacciones, manejar situaciones de crisis y promocionar la gestión regulatoria con los diferentes públicos meta, en congruencia con la estrategia, los principios de gobierno corporativo y las políticas institucionales.
+4. Dirigir las relaciones con los medios de comunicación y las partes interesadas, incluyendo la cooperación nacional e internacional, guardando la autonomía e independencia institucional y generando oportunidades de colaboración, en el marco de los principios de gobierno corporativo.
+5. Dirigir el diseño, la medición, el monitoreo y el análisis de la información proveniente de los medios de comunicación y otras partes interesadas para anticipar cambios y atender de forma oportuna las demandas en regulación de los servicios públicos.
+6. Coordinar la organización, participación, relaciones corporativas, comunicación y divulgación, de las actividades nacionales e internacionales organizadas por la Institución.
+7. Coordinar la investigación de mercados para la optimización de los medios de comunicación y las redes sociales que permitan una comunicación proactiva y segmentada de los mensajes clave, según públicos meta.
+El alcance de las funciones de esta Dirección no incluye de forma directa a la Sutel.
+(Así reformado mediante session N° 74-2024 del 6 de setiembre del 2024)

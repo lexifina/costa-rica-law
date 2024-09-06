@@ -1,34 +1,14 @@
-Artículo 13. Dirección General de Asesoría Jurídica y Regulatoria
-Su superior inmediato es el Regulador General. Está a cargo de un Director General.
-Es responsable de brindar asesoría jurídica y regulatoria a la Junta Directiva, al Regulador General y a las dependencias que forman parte de su Despacho, así como a la Dirección General de Operaciones. Las Intendencias de Regulación de Servicios Públicos tendrán sus propias asesorías jurídicas.
-En el desempeño de sus funciones, la Dirección General de Asesoría Jurídica y Regulatoria mantendrá una adecuada organización e independencia a lo interno, de modo que, ningún asunto que deba ser conocido por la Junta Directiva, sea sometido al dictamen de los mismos asesores que hayan brindado sus criterios a las instancias preliminares. Para ello, contará con una Asesoría Legal que estará a cargo de un Director y que atenderá los asuntos de las dependencias que forman parte del Despacho del Regulador General y de la Dirección General de Operaciones.
-La Dirección General tiene las siguientes funciones:
-1. Rendir criterio sobre los recursos administrativos que deba conocer la Junta Directiva.
-2. Rendir criterio sobre las consultas que le formule la Junta Directiva.
-3. Apoyar en la atención de las consultas planteadas por terceros a la Junta Directiva.
-4. Elaborar los proyectos de resolución que deba emitir la Junta Directiva.
-5. Atender los asuntos judiciales en que sea parte la Aresep, sin asumir la representación de Sutel.
-6. (Derogado mediante sesión N° 26-2017 del 2 de junio del 2017)
-7. Elaborar y someter a aprobación de la Junta Directiva, las propuestas de normativa administrativa que ésta deba emitir, para lo cual contará con el apoyo de las demás dependencias de la Aresep.
-8. Participar, como parte de equipos designados por el Regulador General, en la ejecución de proyectos para el diseño de metodologías de fijación de tarifas y normativa de calidad.
-Asimismo, brindar las recomendaciones que correspondan en caso de eventuales recursos relacionados con las propuestas realizadas.
-9. Todas aquellas otras funciones que le asigne la Junta Directiva o el Regulador General, en congruencia con el ámbito de su competencia.
-La Dirección de Asesoría Legal tiene las siguientes funciones:
-10. Rendir criterio sobre los recursos administrativos que deban conocer las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones, con la salvedad de los recursos relativos al procedimiento de contratación administrativa, propiamente los recursos de objeción al cartel, revocatoria contra el acto de adjudicación, y sobre el acto que declara desierto o infructuoso el concurso y cualquier otro, cuya atención corresponderá al asesor o asesores legales del Departamento de Proveeduría.
-(Así reformado el inciso 10) anterior mediante sesión N° 26-2017 del 2 de junio del 2017)
-11. Rendir criterio sobre la ratificación o no de los contratos y adendas que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
-12. Rendir criterio sobre el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
-13. Rendir criterio jurídico sobre las consultas que le formulen las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones.
-14. Apoyar en la atención de las consultas planteadas por terceros a las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones.
-15. Coordinar la revisión de proyectos de ley, reglamentos, decretos ejecutivos, normas técnicas u otros instrumentos jurídicos que involucren a la Aresep.
-16. Elaborar los proyectos de resolución que deban emitir las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación y de la Dirección General de Operaciones.
-17. Realizar la instrucción formal de procedimientos administrativos disciplinarios relacionados con los funcionarios de la Aresep, salvo con los funcionarios de la Sutel.
-18. Realizar la gestión de los procedimientos administrativos de la Aresep que se refieran únicamente a asuntos administrativos, tales como contratación administrativa, reclamos administrativos y todos aquellos en los cuales el órgano decisor recaiga en las dependencias que forman parte del Despacho del Regulador General, Dirección General de Desarrollo de la Regulación, y de la Dirección General de Operaciones. Se exceptúan los procedimientos administrativos de quejas, denuncias, controversias y conflictos de competencia por razón de territorio, así como aquellos en los cuales, se conozca sobre presuntas infracciones a los artículos 38, 39, 41 y 44 de la Ley 7593, sean promovidos por un tercero o por la propia Autoridad Reguladora, los cuales serán instruidos por la Dirección General de Atención del Usuario.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 49-2014 del 21 de agosto del 2014)
-19. Brindar asesoría legal a las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación y de la Dirección General de Operaciones, cuando así se le requiera, sobre aspectos formales o de fondo de los proyectos de resolución que estas dependencias deban redactar.
-20. Actuar como Unidad interna de aprobaciones en materia de contratación administrativa.
-21. Extender las certificaciones de personería de la Aresep, excepto las de Sutel.
-22. Apoyar en la atención de sus funciones a la Dirección General, en lo que corresponda.
-23. Determinar los requerimientos de capacitación del área y coordinar con la Dirección de Recursos Humanos su consideración en el Plan anual de capacitación.
-24. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
-25. Todas aquellas funciones que le asigne la Junta Directiva o el Regulador General, atinentes a la Dirección General de Asesoría Jurídica y Regulatoria.
+Artículo 13. Dirección General de Gobierno Corporativo.
+Su superior inmediato es la persona Regulador General. Está a cargo de la persona director general.
+Es responsable de dirigir los procesos de definición de política y estrategia, gobernanza institucional, planificación y sostenibilidad financiera, diseño organizacional, dirección y ejecución de programas, rendición de cuentas y evaluación y mejora continua.
+Tiene las siguientes funciones:
+1. Asesorar a la Junta Directiva y a la persona Regulador General sobre las actuaciones y decisiones institucionales que permitan una adecuada gobernanza, planificación, sostenibilidad financiera y coherencia de la gestión y su control, alineadas con los principios de gobierno corporativo y rendir criterio técnico en estos temas, así como asesorar a la Junta Directiva sobre las propuestas en materia de planificación que presente la Sutel para su aprobación.
+2. Dirigir el diseño de lineamientos, políticas y estrategia institucional, brindando las recomendaciones técnicas y especializadas para contribuir a la toma de decisiones estratégicas en el marco de gestión de gobierno corporativo y el cumplimiento del valor público.
+3. Dirigir el diseño de la estructura organizacional que permita el balance e integridad de funciones, la gestión por procesos, la mejora continua y el uso eficiente de los recursos para el cumplimiento de la gobernanza institucional.
+4. Dirigir el proceso de planificación estratégica, táctica y operativa, mediante el uso de herramientas de gestión, en congruencia con las políticas y planes nacionales y sectoriales aplicables y los lineamientos establecidos por la Junta Directiva.
+5. Dirigir el diseño, la medición y el análisis de los sistemas de control interno y de administración de riesgos, con los titulares subordinados responsables, para facilitar el cumplimiento de los objetivos propuestos y la aplicación adecuada de la normativa vigente.
+6. Dirigir el diseño, la medición y el análisis del sistema de gestión de la calidad del servicio interno, promoviendo la innovación, productividad y mejora continua institucional.
+7. Dirigir el diseño, la medición, el monitoreo y el análisis del entorno vinculado a las políticas, la estrategia, la gestión institucional y los principios de gobierno corporativo.
+8.Dirigir el proceso de rendición de cuentas a partir de lo establecido en los principios de Gobierno Corporativo para el cumplimiento del valor público institucional.
+9. Evaluar el impacto de la gestión institucional, los resultados de la planificación y la sostenibilidad financiera, de conformidad con la estrategia institucional y los principios de gobierno corporativo para el cumplimiento del valor público, así como las propuestas en materia de planificación que presente la Sutel para aprobación de la Junta Directiva.
+(Así reformado mediante session N° 74-2024 del 6 de setiembre del 2024)

@@ -1,26 +1,27 @@
-Artículo 2. Estructura organizativa.
+Artículo 2. Estructura organizativa
 La Aresep está constituida por los siguientes órganos:
-JUNTA DIRECTIVA (JD)
+. Junta Directiva (JD)
 - Auditoría Interna (AI)
-DESPACHO DEL REGULADOR (RG)
+. Despacho del Regulador General
 - Secretaría de Junta Directiva (SJD)
-- Dirección General de Estrategia y Evaluación (DGEE)
 - Dirección General de Asesoría Jurídica y Regulatoria (DGAJR)
-- Departamento de Comunicación Institucional (DECI)
-- Contraloría de Servicios Institucionales (CSI)
-INTENDENCIAS DE REGULACIÓN DE SERVICIOS PÚBLICOS
+- Dirección General de Gobierno Corporativo (DGGC)
+- Dirección de Relaciones Institucionales (DRI)
+- Dirección de Transformación Tecnológica (DTT)
+. Intendencias
 - Intendencia de Agua (IA)
 - Intendencia de Energía (IE)
 - Intendencia de Transporte (IT)
-DIRECCIONES GENERALES DE REGULACIÓN
-- Centro de Desarrollo de la Regulación (CDR)
-- Dirección General de Atención del Usuario (DGAU)
-DIRECCIÓN GENERAL DE OPERACIONES (DGO)
+. Direcciones Generales de Regulación
+- Dirección General de Desarrollo de la Regulación (DGDR)
+- Dirección General de Atención al Usuario (DGAU)
+- Dirección General Legal (DGL)
+. Dirección General de Operaciones (DGO)
 - Dirección de Recursos Humanos (DRH)
-- Dirección de Tecnologías de Información (DTI)
 - Dirección de Finanzas (DF)
 - Departamento de Gestión Documental (DEGD)
 - Departamento de Proveeduría (DEP)
 - Departamento de Servicios Generales (DESG)
-ORGANO DESCONCENTRADO
+. Órgano Desconcentrado
 - Superintendencia de Telecomunicaciones (Sutel)
+(Así reformado mediante session N° 74-2024 del 6 de setiembre del 2024)

@@ -1,5 +1,4 @@
-Artículo 26. Dirección de Finanzas.
-Su superior inmediato es el Director General de Operaciones. Está a cargo de un Director.
+Artículo 26. Dirección de Finanzas. Su superior inmediato es el Director General de Operaciones. Está a cargo de un Director.
 Esta Dirección es responsable de brindar los servicios financieros y contables que requiere la Institución. Tiene las siguientes funciones:
 1. Implementar, divulgar, controlar y ejecutar las estrategias, políticas, lineamientos y normas en materia de gestión financiera, contable, presupuestaria, tesorería y administración de activos institucionales.
 2. Realizar el registro de las transacciones financieras, registros presupuestarios, conciliaciones bancarias, arqueos y emisión de reportes contable-presupuestarios de Aresep y mantenerlos debidamente actualizados.
@@ -13,4 +12,8 @@ Esta Dirección es responsable de brindar los servicios financieros y contables 
 Además deberá enviar la propuesta de resolución correspondiente.
 10. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
 11. Todas aquellas otras funciones que le asigne la Junta Directiva, el Regulador General o el Director General de Operaciones, en congruencia con el ámbito de su competencia.
+12. Elaborar, en coordinación con las distintas dependencias, los proyectos de presupuestos ordinarios y extraordinarios, así como las modificaciones presupuestarias.
+(Así adicionado el punto anterior mediante session N° 74-2024 del 6 de setiembre del 2024)
+13. Preparar, cada año, en coordinación con las distintas dependencias, el anteproyecto de cánones y presupuesto de la Aresep.
+(Así adicionado el punto anterior mediante session N° 74-2024 del 6 de setiembre del 2024)
 El alcance de las funciones de esta Dirección no incluye de forma directa a Sutel

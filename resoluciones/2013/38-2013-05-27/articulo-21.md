@@ -1,17 +1,13 @@
 Sección Cuarta: De las Direcciones Generales de Regulación
-Artículo 21. Centro de Desarrollo de la Regulación.
-Su superior inmediato es el Regulador General. Está a cargo de un Director General.
-Es responsable del proceso institucional de investigación y desarrollo de la regulación. Tiene las siguientes funciones:
-1. Liderar la generación, conservación y transmisión de conocimiento de la Aresep.
-2. Liderar la innovación y mejora continua del proceso de regulación.
-3. Revisar la validez y competitividad de los modelos que están siendo aplicados por Aresep para regular los servicios públicos
-4. Investigar las mejores prácticas y estado del conocimiento sobre regulación de servicios públicos y su aplicabilidad en la Aresep.
-5. Proponer las directrices para sistematizar, evaluar y centralizar la información estadística relacionada con la regulación, la cual es generada y utilizada por las distintas dependencias de la Institución, de manera que se garantice su consistencia, uniformidad, conservación y accesibilidad.
-6. Promover, en coordinación con la Dirección de Recursos Humanos, programas de capacitación sobre regulación, requeridos por los funcionarios de Aresep.
-7. Coordinar la formulación de un Plan de desarrollo de metodologías tarifarias y normativa de calidad de acuerdo con los lineamientos del Regulador General.
-8. Elaborar propuestas de proyectos orientados a la cooperación técnica.
-9. Participar, como parte de equipos designados por el Regulador General, en la ejecución de proyectos para el diseño de metodologías de fijación de tarifas y normativa de calidad, así como para elaborar propuestas de políticas regulatorias a ser sometidas a la Junta Directiva. Asimismo, brindar las recomendaciones que correspondan en caso de eventuales impugnaciones relacionadas con las propuestas realizadas.
-10. Asesorar a la Junta Directiva en materia técnica de regulación de servicios públicos, según sea requerido, con excepción de aquellos casos que por su naturaleza competan a la Dirección General de Asesoría Jurídica.
-11. Determinar los requerimientos de capacitación del área y coordinar con la Dirección de Recursos Humanos su consideración en el Plan anual de capacitación.
-12. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
-13. Todas aquellas otras funciones que le asigne la Junta Directiva o el Regulador General, atinentes al Centro de Desarrollo de la Regulación.
+Artículo 21. Dirección General de Desarrollo de la Regulación
+Su superior inmediato es la persona Regulador General. Está a cargo de una persona director general.
+Es responsable del proceso institucional de investigación, análisis, validación y desarrollo de la regulación.
+Tiene las siguientes funciones:
+1. Asesorar a la Junta Directiva y a la persona Regulador General en materia regulatoria para la definición, desarrollo y validación de instrumentos regulatorios.
+2. Dirigir el proceso de desarrollo de los instrumentos regulatorios promoviendo la innovación y la mejora continua.
+3. Dirigir la investigación, el análisis de mejores prácticas en regulación de servicios públicos y la divulgación del conocimiento en materia regulatoria.
+4. Dirigir el proceso de inteligencia de negocios de la regulación de los servicios públicos mediante políticas internas y lineamientos para la consistencia, uniformidad, conservación y accesibilidad de la información regulatoria.
+5. Dirigir la planificación del desarrollo de metodologías tarifarias y normativa de calidad de acuerdo con los lineamientos de la persona Regulador General y la Junta Directiva.
+6. Dirigir el proceso de validación de las acciones y de los instrumentos regulatorios aplicados por la institución para los servicios públicos regulados, de conformidad con los principios regulatorios para el cumplimiento del valor público.
+7. Evaluar el proceso de desarrollo de instrumentos regulatorios, la aplicación de metodologías tarifarias y el impacto regulatorio a partir de una adecuada implementación del proceso de inteligencia de negocios de los servicios públicos regulados, de acuerdo con los lineamientos de la persona Regulador General y la Junta Directiva.
+(Así reformado mediante sesión N° 74-2024 del 6 de setiembre del 2024)
