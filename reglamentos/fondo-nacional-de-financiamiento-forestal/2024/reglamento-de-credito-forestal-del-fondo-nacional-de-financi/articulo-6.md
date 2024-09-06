@@ -1,0 +1,2 @@
+CAPÍTULO III COMPROBACIÓN DE REQUISITOS Y CONDICIONES.
+Artículo 6. Recepción y trámite inicial de solicitudes de crédito forestal. El personal de la Dirección de Fomento Forestal recibirá las solicitudes de crédito forestal y realizará los trámites de valoración inicial de las solicitudes según los procedimientos internos establecidos por FONAFIFO, para lo que dispone de 10 días naturales (LGAP art. 262).

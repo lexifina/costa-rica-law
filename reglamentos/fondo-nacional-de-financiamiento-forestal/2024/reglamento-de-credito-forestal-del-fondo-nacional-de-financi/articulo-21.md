@@ -1,0 +1,1 @@
+Artículo 21: Condiciones de los Subprogramas de Fomento Productivo, Industria Forestal y Fomentando el Desarrollo. los requisitos para solicitar un Crédito Forestal bajo estos subprogramas serán los listados en el artículo 5 del presente Reglamento.

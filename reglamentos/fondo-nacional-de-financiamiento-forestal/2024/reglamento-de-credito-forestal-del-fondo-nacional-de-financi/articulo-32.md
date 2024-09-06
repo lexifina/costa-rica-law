@@ -1,0 +1,1 @@
+Artículo 32. De la formalización de créditos hipotecarios. La formalización de crédito se realizará mediante un abogado asignado por el Fideicomitente de acuerdo al rol establecido y consignado en la caratula de crédito por el fideicomitente.

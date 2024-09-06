@@ -1,0 +1,4 @@
+Artículo 4. Condiciones de los clientes. los solicitantes de crédito forestal deberán cumplir con:
+a. El cliente deberá demostrar capacidad de pago según lo normado en el capítulo VII del presente Reglamento.
+b. Deberá presentar la solicitud de crédito debidamente firmada, en formato oficial, en forma ordenada, completa y legible, según formulario que se adjunta en el anexo 1 del presente Reglamento. Así como el documento denominado "Consentimiento Informado" el cual es proporcionado por el FONAFIFO y se adjunta en el anexo 2 del presente Reglamento.
+c. Deberá de indicar la información de contacto (correo electrónico, número de teléfono, dirección) del o los propietarios del inmueble y el medio de notificación. Sin esta información la Administración estimará como incompleta la solicitud y procederá a su archivo. Dicha información es fundamental para el proceso de notificación.

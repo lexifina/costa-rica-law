@@ -1,0 +1,1 @@
+Artículo 8. Si vencido el plazo otorgado en el artículo 7 y el cliente no ha cumplido en su totalidad con lo prevenido o se presenta nuevamente incorrecto, el Departamento de Crédito Forestal procederá con el archivo de la solicitud.

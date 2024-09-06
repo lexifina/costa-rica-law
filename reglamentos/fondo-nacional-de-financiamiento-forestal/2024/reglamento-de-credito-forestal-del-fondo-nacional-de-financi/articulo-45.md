@@ -1,0 +1,1 @@
+Artículo 45. De la programación financiera de la cartera. FONAFIFO es el responsable de la programación financiera de los gastos de crédito del Fideicomiso y de la verificación que los datos entregados por los clientes sean verídicos.

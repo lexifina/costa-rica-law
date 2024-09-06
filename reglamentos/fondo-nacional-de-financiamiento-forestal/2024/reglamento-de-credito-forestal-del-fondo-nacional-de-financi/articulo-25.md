@@ -1,0 +1,1 @@
+Artículo 25. De los gastos de formalización. Los gastos por formalización de las operaciones de créditos deben ser pagados por el deudor, pudiendo ser rebajada del primer desembolso del préstamo si así se indica en la respectiva carátula de crédito.

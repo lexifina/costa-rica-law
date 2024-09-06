@@ -1,0 +1,1 @@
+Artículo 42. De los pagos parciales a las operaciones de crédito: El Fiduciario queda autorizado a recibir cualquier pago parcial a la operación, si no existe instrucción de cobro judicial remitida por el Fideicomitente.

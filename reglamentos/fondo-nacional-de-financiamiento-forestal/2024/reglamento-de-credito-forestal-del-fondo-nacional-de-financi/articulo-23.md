@@ -1,0 +1,1 @@
+Artículo 23. De los plazos. Los plazos máximos de todos los subprogramas quedan sujetos al periodo de retorno de capital o liquidez del proyecto, según sea el criterio del Departamento de Crédito Forestal.
