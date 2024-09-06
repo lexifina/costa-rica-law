@@ -1,0 +1,2 @@
+Artículo 7°. - MIDEPLAN impulsará la actualización de los PRD para la formulación de sus respectivos Planes de Acción; para ello, contará con la participación activa de los actores responsables de su ejecución, siendo estas las instituciones públicas que conforman el Sistema Nacional de Planificación (SNP) y el Subsistema de Planificación Regional.
+Asimismo, podrá invitar a colaborar a los Poderes de la República y sus órganos auxiliares, a organismos internacionales, al sector privado, al sector académico, a la sociedad civil organizada, a las AREDE y a los CTDR.

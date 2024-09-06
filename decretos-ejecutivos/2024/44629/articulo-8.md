@@ -1,0 +1,1 @@
+Artículo 8°. - El documento que contiene la PNDR 2024-2034, se encuentra disponible en el sitio web MIDEPLAN (http://www.mideplan.go.cr). Una versión impresa de la PNDR 2024-2034 se custodiará en el Centro de Documentación de Planificación (CEDOP) de MIDEPLAN.

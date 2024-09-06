@@ -1,0 +1,1 @@
+Artículo 3°. - Se instruye a las instituciones, los órganos y los entes de la Administración Centralizada y se insta a la Administración Descentralizada, para aplicar la PNDR 2024-2034; según su marco jurídico, ámbito de acción y de acuerdo con sus posibilidades económicas.
