@@ -1,0 +1,1 @@
+Artículo 14.- Funciones de la presidencia de la Junta Directiva. Son funciones de la persona que ostente el cargo de presidente (a) de la Junta Directiva las establecidas en el artículo 13 de la Ley n. º 9943.

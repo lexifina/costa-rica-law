@@ -1,0 +1,8 @@
+CAPÍTULO II
+De la Agencia Nacional de Gobierno Digital.
+Artículo 5.- Naturaleza Jurídica de la ANGD. La Agencia Nacional de Gobierno Digital, cuyo acrónimo será ANGD, creada mediante el artículo 4 de la Ley n. 0 9943, es un órgano con desconcentración mínima del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt).
+Las materias desconcentradas en la Agencia Nacional de Gobierno Digital, establecidas en los artículos 6 y 12 de la Ley n. 0 9943; son las relacionadas con la ejecución de los servicios y los proyectos transversales o estratégicos para las instituciones de la Administración Pública en materia de gobierno digital y con la ejecución, en general, de la política de gobierno digital.
+Micitt definirá e instruirá a la ANGD sobre el modo de ejecución de la política pública.
+Fuera de aquellas competencias desconcentradas; el Micitt, retiene las competencias para la gestión de la ANGD, específicamente, las que están relacionadas con el nombramiento de sus personas funcionarias; excepción hecha del nombramiento y destitución del Gerente, pues es una competencia de la Junta Directiva de la ANGD.
+Además, la ANGD depende del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones en las materias relacionadas con la administración financiera y presupuestaria, asimismo en relación con la función de proveeduría y contratación pública.
+El Micitt podrá girar órdenes particulares, instrucciones o circulares sobre el modo de ejercicio de las funciones de la ANGD; sin embargo, la persona jerarca del Micitt no podrá revisar o sustituir las decisiones que adopte la Junta Directiva de la ANGD. Tampoco podrá avocarse las competencias de esta Agencia establecidas por la Ley n. º 9943 y este reglamento.

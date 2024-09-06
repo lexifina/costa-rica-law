@@ -1,0 +1,1 @@
+Artículo 8.- Requerimiento de información a las instituciones del sector público. Las instituciones públicas deben brindar la información sobre asuntos de interés público que sea requerida por la ANGD en el ámbito de su competencia, cuando esta sea necesaria para el cumplimiento de los objetivos y funciones previstos en la Ley n.º 9943 y este Reglamento.

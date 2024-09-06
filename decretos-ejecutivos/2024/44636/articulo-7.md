@@ -1,0 +1,3 @@
+Artículo 7.- Funciones de la ANGD. La Agencia Nacional de Gobierno Digital cumplirá las funciones establecidas en el artículo 6 de la Ley n.º 9943.
+Además, le corresponde proponer los proyectos y servicios transversales o estratégicos, los cuales serán presentados a su Junta Directiva; deberán estar alineados con la política pública que emita el ente rector, serán incluidos en los planes de acción de la política pública y en un catálogo de proyectos y servicios transversales que estará disponible públicamente en la página web de la ANGD y del Micitt.
+La fiscalización estará a cargo de la Contraloría General de la República.

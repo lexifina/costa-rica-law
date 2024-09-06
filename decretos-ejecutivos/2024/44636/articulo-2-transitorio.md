@@ -1,0 +1,1 @@
+TRANSITORIO II- El ente rector, en un plazo máximo de seis meses luego de iniciar operaciones la ANGD, trasladará todos los proyectos en materia de gobierno digital para que sean ejecutados y administrados por la ANGD.

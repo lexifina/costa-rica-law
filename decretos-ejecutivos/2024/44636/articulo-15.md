@@ -1,0 +1,2 @@
+Artículo 15.- Gerencia de la ANGD. La ANGD estará a cargo de un o una gerente nombrado (a) por su Junta Directiva, previo concurso público, de acuerdo con las facultades conferidas en el artículo n.º 11 de la Ley n.º 9943. Su nombramiento y remoción se realizará de conformidad con lo dispuesto en dicha ley.
+El Gerente deberá cumplir con la idoneidad del cargo y los requisitos establecidos en este reglamento.

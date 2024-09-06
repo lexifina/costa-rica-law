@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las disposiciones contenidas en este reglamento serán de aplicación para la Administración Pública, entendida en el sentido amplio, de conformidad con lo que dispone el artículo 1 de la Ley n. º 6227, Ley General de la Administración Pública, en concordancia con lo dispuesto en el artículo 2 de la Ley n.º 9943.
