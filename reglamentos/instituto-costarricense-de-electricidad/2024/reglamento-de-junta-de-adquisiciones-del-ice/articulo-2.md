@@ -1,0 +1,2 @@
+Artículo 2°. Alcance.
+Este reglamento es aplicable a la Junta de Adquisiciones del ICE y a los demás funcionarios que colaboren en las funciones de dicho órgano.
