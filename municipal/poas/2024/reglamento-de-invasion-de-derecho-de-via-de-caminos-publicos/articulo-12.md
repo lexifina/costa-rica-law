@@ -1,0 +1,7 @@
+Artículo 12.-Red Vial Cantonal Estará constituida por los siguientes caminos, no incluidos por el Ministerio de Obras Públicas y Transporte dentro de la Red Vial Nacional.
+a) Especiales: Aquellas que se indican en los Planes Reguladores o en proyectos especiales o parciales debidamente aprobados por el INVU, tales como zonas industriales. Su sección será la indicada en cada caso y deberán integrarse adecuadamente a la vialidad existente o propuesta para la zona.
+b) Primarias: Aquellas que constituyen una red vial continua, sirven para canalizar las vías locales hacia sectores de la ciudad o bien, hacia carreteras de enlace entre el desarrollo propuesto y otros núcleos poblados o que se considere que puedan llegar a tener esa función. c) Secundarias: Aquellas vías colectoras de las vías internas de la urbanización.
+d) Terciarias: Aquellas que sirvan a 100 o menos unidades de vivienda o lotes.
+e) De uso restringido: Son las vías terciarias que por sus características de continuidad limitada tendrán un derecho de vía menor.
+f) Peatonales: Alamedas o senderos peatonales.
+g) Caminos no clasificados: Caminos públicos no clasificados dentro de las categorías descritas anteriormente, tales como, sendas, veredas, que proporcionen acceso a muy pocos usuarios, quienes sufragarán los costos de mantenimiento y mejoramiento. Dicha clasificación, está indicada en el mapa de la propuesta vial, e incluye aquellas vías o segmentos de vías que no cumplen con los parámetros de las categorías anteriores.
