@@ -1,0 +1,8 @@
+CAPÍTULO II
+De la conformación de la Autoridad
+de Contratación Pública
+Artículo 3º-Conformación de la Autoridad de Contratación Pública. La ACP, según lo establecido en la LGCP, estará integrada por los(as) ministros(as) de Hacienda; de Planificación Nacional y Política Económica; y de Ciencia, Innovación, Tecnología y Telecomunicaciones.
+Su incorporación no está sujeta a ninguna formalidad adicional a la requeridas para la designación del cargo de ministros(as) de las respectivas carteras. Cuando un(a) ministro(a) integrante sea removido, renuncie al cargo o llegue al término de su nombramiento en el cargo; deberá ser reemplazado por quien asuma el cargo de ministro(a) de la respectiva cartera, con la finalidad de no afectar la conformación de la ACP.
+Cualquier ministro(a) miembro de la ACP, podrá delegar sus funciones en un(a) viceministro(a) de su cartera, para ello, deberá realizarse el procedimiento previsto al efecto en los artículos 89, siguientes y concordantes de la Ley General de la Administración Pública y comunicar lo correspondiente al secretario de la ACP, surtiendo efecto su nombramiento en la siguiente sesión salvo disposición expresa en contrario.
+En caso de ausencia temporal de alguno de los miembros que conforman la ACP, éste será sustituido por un viceministro de la respectiva cartera.
+Quien esté designado previamente como suplente de un miembro de la ACP, podrá asistir junto con el titular tanto a las sesiones ordinarias como extraordinarias en calidad de oyente, sin voz ni voto. En el caso que el titular deba retirarse temporal o permanentemente de la sesión, ésta podrá continuar consignándose que el suplente asumirá las competencias que asistían al titular que se ausentará.

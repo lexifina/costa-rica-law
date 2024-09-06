@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 16.-Ingreso y tramitología de correspondencia de la ACP. La correspondencia dirigida a la ACP ingresará por el medio electrónico oficial, el cual será gestionado por el secretario (a) o por quien éste designe, o bien de forma física, en cuyo caso la documentación se recibirá en la sede de la DCoP.
+La correspondencia recibida con al menos tres días hábiles de anticipación se incluirá en el último apartado del orden del día de la sesión ordinaria inmediata. En casos de urgencia, a consideración del secretario, se podrá incorporar en el orden del día correspondencia ingresada hasta un día hábil antes de la sesión de que se trate, e informar sobre la condición de urgencia de la gestión al inicio de la sesión y recomendar su atención prioritaria.
+Para la atención de correspondencia, la ACP podrá acudir a sus instancias de apoyo para generar el insumo técnico, financiero, legal o de cualquier otra índole necesario para conocer y resolver asertivamente el asunto expuesto en la correspondencia.

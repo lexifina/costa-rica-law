@@ -1,0 +1,19 @@
+Nº 44626-H-MIDEPLAN-MICITT
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE HACIENDA, LA MINISTRA
+DE PLANIFICACIÓN NACIONAL Y POLÍTICA
+ECONÓMICA a. í. Y LA MINISTRA DE CIENCIA, INNOVACIÓN, TECNOLOGÍA YTELECOMUNICACIONES
+En ejercicio de las atribuciones que les confieren los artículos 140 inciso 18) y 146 de la Constitución Política, así como los artículos 25, inciso l), 27 inciso 1) y 28 inciso 2, acápite b) de la Ley General de la Administración Pública, Nº 6227 del 2 mayo de 1978 y en cumplimiento de lo dispuesto en los artículos 128 siguientes y concordantes de la Ley General de Contratación Pública, Nº 9986 de 27 de mayo de 2021; así como el artículo 99, siguientes y concordantes de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Nº 8131 de 18 de setiembre de 2001.
+Considerando:
+1º-Que por la Ley Nº 9986 de 27 de mayo de 2021, publicada en el' Alcance 109 del Diario Oficial La Gaceta N0 103 del 31 de mayo de 2021, se promulgó la Ley General de Contratación Pública, la cual se encuentra vigente desde el | 0 de diciembre del 2022.
+2º-Que el artículo 128 de la citada Ley Nº 9986 dispone la creación de la Autoridad de Contratación Pública como órgano rector exclusivamente para la materia de contratación para toda la Administración Pública estableciendo su conformación de la siguiente manera "(...) el ministro de Hacienda, quien lo presidirá; el ministro de Planificación Nacional y Política Económica, y el ministro de Ciencia, Innovación, Tecnología y Telecomunicaciones."
+3º-Que el artículo 99 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Nº 8131 de 18 de setiembre de 2001, establece que la Autoridad de Contratación Pública es el órgano rector del subsistema de contratación pública, previsto en esa Ley.
+4º-Que al ser la Autoridad de Contratación Pública un órgano colegiado, estará sujeto a las disposiciones conducentes establecidas en el Capítulo Tercero del Título Segundo del Libro Primero de la Ley General de la Administración Pública, Nº 6227 de 02 de mayo de 1978.
+5º-Que dadas las competencias reconocidas a la Autoridad de Contratación Pública por la Ley General de Contratación Pública, resulta necesario reglamentar su funcionamiento de manera tal que sea acorde con las necesidades que genera el subsistema de contratación pública, así como, para dotar de seguridad jurídica a todas las entidades partícipes de dicho subsistema y partes interesadas de la contratación pública en general.
+6º-Que la presente reglamentación fue objeto de discusión por parte de la Autoridad de Contratación Pública, durante la sesión ordinaria N° 01-2023 de la Autoridad de Contratación Pública, celebrada el 23 de enero del 2023, generándose el acuerdo Nº 3 que dispuso en su literalidad "Se aprueba la propuesta del Reglamento de funcionamiento de la Autoridad de Contratación Pública, para remitirla afirma (...)", procediéndose conforme.
+7º-Que conforme a lo dispuesto en el artículo 12 del Decreto Ejecutivo N°37045-MP-MEIC de fecha 22 de febrero de 2012, denominado Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y su reforma, es oportuno señalar que la presente regulación, no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir, por lo que no se requiere el control previo de la Dirección de Mejora Regulatoria. Por tanto,
+Decretan:
+Reglamento de funcionamiento de la Autoridad de Contratación Pública
+CAPÍTULO I
+Generalidades
+Artículo 1º-Objetivo. El presente reglamento tiene por objetivo definir la organización interna para el ejercicio de las potestades, competencias y funciones de la Autoridad de Contratación Pública que le señala la Ley General de Contratación Pública, Nº 9986 y normativa conexa, como rector exclusivamente para la materia de contratación pública para toda la Administración.
