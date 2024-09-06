@@ -1,0 +1,1 @@
+Artículo 36.-La(s) parte(s) podrá(n) recurrir lo resuelto de acuerdo con lo dispuesto en el artículo 342, siguientes y concordantes de la Ley General de la Administración Pública. El Órgano Director deberá resolver el recurso de Revocatoria, en el plazo de los ocho días siguientes a su interposición y el superior en el plazo de los diez días siguientes.

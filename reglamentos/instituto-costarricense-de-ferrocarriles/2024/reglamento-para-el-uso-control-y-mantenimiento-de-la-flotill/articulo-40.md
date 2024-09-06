@@ -1,0 +1,1 @@
+Artículo 40.-Todos los vehículos del INCOFER estarán cubiertos por una póliza de seguros de automóviles contra todo riesgo, correspondiéndole a la Dirección de Servicios Administrativos el oportuno y permanente cumplimiento de esta disposición.

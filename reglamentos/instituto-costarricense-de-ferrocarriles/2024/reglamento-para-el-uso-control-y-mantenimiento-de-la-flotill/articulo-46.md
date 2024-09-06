@@ -1,0 +1,1 @@
+Artículo 47.-Lo no previsto en el presente Reglamento se resolverá de conformidad a lo dispuesto en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, la Ley General de la Administración Pública, el Código de Trabajo y demás normativa concordante.

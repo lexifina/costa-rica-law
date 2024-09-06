@@ -1,0 +1,1 @@
+Artículo 21.-Para los vehículos oficiales en que se determine como incosteable, según el criterio técnico emitido para su reparación, la Dirección de Servicios Administrativos deberá presentar la justificación correspondiente a la Gerencia Administrativa, solicitando la baja correspondiente a efecto de que esta autorice el traslado del vehículo al lugar que se indique.

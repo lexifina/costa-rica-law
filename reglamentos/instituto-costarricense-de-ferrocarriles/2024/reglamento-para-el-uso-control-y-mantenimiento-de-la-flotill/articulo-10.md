@@ -1,0 +1,1 @@
+Artículo 10.-La atención de los servicios de transporte será tramitada, de acuerdo con un orden cronológico de presentación de las solicitudes, estas se resolverán dependiendo de los recursos con que se cuente en ese momento, salvo aquellos casos de urgencia comprobada.

@@ -1,0 +1,1 @@
+Artículo 20.-Las dependencias que tengan a su servicio vehículos de la Institución serán responsables a través de sus Jefaturas de velar por el buen mantenimiento de los vehículos, debiendo hacer oportunamente cuando fuera necesario, las observaciones pertinentes a la Dirección de Servicios Administrativos.

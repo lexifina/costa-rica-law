@@ -1,0 +1,1 @@
+Artículo 19.-Se deberá mantener un registro por vehículo en el que consten las reparaciones, los servicios de mantenimientos, repuestos y demás materiales suministrados a cada vehículo. Asimismo, se deberá verificar periódicamente el estado del vehículo, con el propósito de tener un control permanente de las condiciones físicas y mecánicas de cada vehículo.

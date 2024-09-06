@@ -1,0 +1,1 @@
+Artículo 9º-Toda dependencia que requiera la prestación de servicios de transporte para el cumplimiento de sus labores deberá gestionar la respectiva solicitud de vehículo debidamente autorizada por el jefe del departamento correspondiente, a través del módulo de transportes ante la Dirección de Servicios Administrativos, justificando claramente la necesidad del servicio.

@@ -1,0 +1,1 @@
+Artículo 17.-Para los niveles regionales, la autorización a que se hace referencia es competencia del encargado de la región, por lo tanto, éste será el responsable y deberá velar por el uso adecuado de los vehículos oficiales.

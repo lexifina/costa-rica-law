@@ -1,0 +1,1 @@
+Artículo 35.-Una vez notificado el acto final del procedimiento por parte del Órgano Decisor, la Dirección de Recursos Humanos ejecutará la sanción impuesta, dentro del término de ley, en el caso de que la sanción se trate de una suspensión sin goce de salario.

@@ -1,0 +1,1 @@
+Artículo 12.-Para optimizar el uso de los vehículos de uso administrativo y del combustible, la Dirección de Servicios Administrativos podrá agrupar en un mismo viaje solicitudes de diferentes funcionarios o Departamentos cuando se dirigen a un mismo sitio o ruta. El encargado avisará a los interesados, para obtener la mejor coordinación del viaje que se vaya a realizar.

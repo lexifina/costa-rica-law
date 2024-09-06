@@ -1,0 +1,6 @@
+CAPÍTULO II
+Clasificación de los vehículos
+Artículo 4º-Para los efectos de este Reglamento y de conformidad con la Ley de Tránsito por Vías Públicas y Terrestres y Seguridad Vial, los vehículos oficiales del Instituto Costarricense de Ferrocarriles se clasifican de la siguiente manera:
+a) Uso discrecional: Forman esta categoría los vehículos asignados al Presidente Ejecutivo, de conformidad con los artículos 237 y 238 de la Ley de Tránsito por Vías Públicas y Terrestres y Seguridad Vial, los cuales, no cuentan con restricción en cuanto a consumo de combustible, horario de operación, ni recorrido, características que asumirá, bajo su estricto criterio y responsabilidad de la persona funcionaria a quien se hubiere asignado el vehículo y sin perjuicio de los controles mínimos que se pueden establecer, de acuerdo con los principios de sana administración y uso racional de los recursos públicos.
+Estos vehículos pueden portar placas particulares y no tienen marcas visibles que los identifiquen como vehículos oficiales, salvo que por normativa especial se determine lo contrario.
+b) De uso administrativo: Los vehículos que se utilicen para el desarrollo normal de las actividades del INCOFER, en las cuales se requiera el traslado de personas, materiales o equipos y deben estar sometidos a las regulaciones vigentes para el uso y control de los vehículos oficiales.
