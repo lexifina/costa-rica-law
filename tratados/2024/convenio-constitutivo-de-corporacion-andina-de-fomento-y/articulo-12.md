@@ -1,0 +1,4 @@
+Artículo 12. Asambleas Ordinarias y Extraordinarias8
+8. Adecuado de conformidad con la Decisión Nº 187/2009,
+La Asamblea Ordinaria se reunirá una vez al año dentro de los noventa (90) días siguientes a la terminación del ejercicio anual, previa convocatoria hecha por el Presidente Ejecutivo de la Corporación, y la Extraordinaria previa convocatoria hecha por el Presidente Ejecutivo de la Corporación, a iniciativa propia, del
+Directorio, de por lo menos el cuarenta por ciento (40%) de los accionistas de la Serie "A", o de accionistas que representen el veinticinco por ciento (25%) por lo menos del capital pagado. La citación a Asamblea Extraordinaria deberá efectuarse con treinta (30) días calendario de anticipación a la fecha de la reunión, con indicación del motivo por el que se la convoca.

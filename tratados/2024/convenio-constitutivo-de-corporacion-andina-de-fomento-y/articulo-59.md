@@ -1,0 +1,4 @@
+Artículo 59. Adhesión 25-
+25. Adecuado ele conformidad con la Decisión N" 164/2005 y el Protocolo Modificatorio 2005.
+El presente Convenio queda abierto a la adhesión de todos aquellos países de América Latina y el Caribe que cumplan las condiciones para su adhesión que determine la Asamblea de Accionistas. Los instrumentos de adhesión se depositarán en el Ministerio de Relaciones Exteriores de la República Bolivariana de Venezuela.
+El Convenio entrará en vigor para el país adherente treinta (30) días después de que la Asamblea de Accionistas determine que se han cumplido las condiciones para su adhesión, incluyendo la presentación del correspondiente instrumento de adhesión. La Asamblea de Accionistas considerará y aprobará el ajuste de las disposiciones pertinentes del presente Convenio, motivado por la adhesión de un nuevo Estado.

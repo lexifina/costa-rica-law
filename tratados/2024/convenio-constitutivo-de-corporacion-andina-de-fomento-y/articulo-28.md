@@ -1,0 +1,5 @@
+Artículo 28. Reemplazo 18
+18. Adecuado de conformidad con la Decisión Nº 204/2012
+Para reemplazar un Director imposibilitado, fallecido o que hubiere renunciado se seguirán las siguientes normas:
+a) Si se trata de un Director representante de la Serie "A", será designado directamente por el propietario de la acción representada por aquél, y b) Si se trata de un Director representante de las acciones de la Serie "B", el Directorio designará como titular al respectivo suplente y a falta de éste solicitará al País Miembro cuyos tenedores de acciones de la Serie "B" se encuentran representados en el Directorio que provea lo necesario para designar al Director y su Suplente. El Director así nombrado durará en el cargo sólo por el tiempo que falte para completar el período del Director reemplazado.
+c) Si se trata de un Director representante de las entidades bancarias y financieras privadas de los Países Miembros accionistas de la Corporación o de los tenedores de Acciones Serie "C", el Director será reemplazado por el suplente y, a falta de éste, se procederá a designarlo de conformidad con la norma prevista en el inciso final del Artículo 24.

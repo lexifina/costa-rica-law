@@ -1,0 +1,3 @@
+Artículo 47. Inmunidad de los Activos
+Los bienes y demás activos de la Corporación, en cualquier lugar en que se encuentren, gozarán de inmunidad con respecto a expropiaciones, pesquisa, requisición, confiscación, comiso, secuestro, embargo, retención o cualquier otra forma de aprehensión forzosa que turbe el dominio de la entidad sobre dichos bienes por efecto de acciones ejecutivas o administrativas de parte de cualquiera de los Estados Contratantes.
+Dichos bienes y activos gozarán de idéntica inmunidad respecto de acciones judiciales mientras no se pronuncie sentencia definitiva contra la Corporación.

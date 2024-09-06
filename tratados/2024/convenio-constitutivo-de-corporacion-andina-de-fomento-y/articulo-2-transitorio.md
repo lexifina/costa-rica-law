@@ -1,0 +1,1 @@
+Segunda: Dentro del lapso comprendido entre la fecha de entrada en vigor del Convenio y la celebración de la Asamblea Extraordinaria a que se refiere el Artículo 57, la Corporación Andina de Fomento será administrada provisional mente en la forma que establezca su Asamblea de acuerdo con los criterios generales que se señalen en este Convenio.

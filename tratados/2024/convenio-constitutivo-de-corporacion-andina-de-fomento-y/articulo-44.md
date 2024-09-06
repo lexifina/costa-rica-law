@@ -1,0 +1,5 @@
+CAPITULO VII
+Liquidación y Arbitraje
+Artículo 44. Liquidación
+Acordada la disolución de la Corporación, se procederá a su liquidación por un liquidador o una comisión liquidadora, de acuerdo con la decisión que al efecto tome la Asamblea de accionistas. El liquidador o la comisión liquidadora representará a la Corporación durante el proceso de liquidación, pagará las deudas pendientes, cobrará los créditos, distribuirá el sobrante entre los accionistas, en proporción al capital pagado representado por cada acción; y, en general, ejercerá todas las funciones concernientes al proceso de liquidación.
+La Asamblea que haga la designación del liquidador o de la comisión liquidadora, fijará el plazo que deben durar en sus cargos y establecerá las reglas fundamentales que regirán para la realización de la liquidación. Al término de su encargo, o de los períodos que determine la Asamblea, los liquidadores deberán rendir cuenta detallada de las actividades realizadas y, al finalizar su labor, presentarán un informe pormenorizado de toda la liquidación.

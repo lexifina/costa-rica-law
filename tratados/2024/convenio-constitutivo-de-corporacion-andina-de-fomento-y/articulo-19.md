@@ -1,0 +1,2 @@
+Artículo 19. Envío de Informes y Balances
+Todo accionista tiene derecho, durante los quince (15) días calendario anteriores a la reunión de la Asamblea, a examinar en la sede de la Corporación el inventario y la lista de accionistas, y puede exigir copia del balance general y del informe de los auditores. Por lo menos quince (15) días calendario antes de cada Asamblea, los informes y balances deberán ser remitidos a todos los accionistas a la dirección que aparezca registrada en la Corporación.
