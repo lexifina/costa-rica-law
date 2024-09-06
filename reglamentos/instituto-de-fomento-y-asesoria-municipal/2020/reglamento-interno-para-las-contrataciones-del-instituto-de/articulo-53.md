@@ -1,1 +1,0 @@
-Artículo 53.- Vigencia de las garantías de participación, de cumplimiento y colaterales. La UAC será la encargada de velar por la vigencia de las garantías y deberá presentar una vez al año un informe a la Junta Directa sobre el estado de las licitaciones abreviadas y públicas.

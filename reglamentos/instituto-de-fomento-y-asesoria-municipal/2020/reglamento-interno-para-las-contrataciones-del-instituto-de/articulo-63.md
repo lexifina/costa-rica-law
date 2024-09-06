@@ -1,3 +1,0 @@
-Sanciones a particulares
-Artículo 63.- De la investigación preliminar. Cuando un contratista incurra en hechos o actuaciones previstos y sancionados conforme la LCA, corresponderá a la DS o UT acreditar los hechos y la prueba respectiva de la falta, y con base en ellos la UAC realizará la investigación preliminar con el concurso obligado de la DS o UT, siempre que se comprometan aspectos técnicos. La AJ brindará asesoría legal en la tramitación de esta fase.
-En los procedimientos en los que se deban estimar daños y perjuicios, la DS o UT indicará en qué consisten y a cuánto ascienden, sin perjuicio de que en el trámite pueda requerir la asesoría de la UAC, u otros funcionarios o personas externas a la institución si fuera necesario.

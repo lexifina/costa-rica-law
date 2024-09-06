@@ -1,1 +1,0 @@
-Artículo 43.- Recursos, aclaraciones, modificaciones y prórrogas. Los recursos, aclaraciones y modificaciones al cartel, así como las prórrogas al plazo de recepción de ofertas que se deriven de éstas, serán resueltas y comunicadas por la UAC, quien podrá requerir la obligada colaboración de las unidades participantes.

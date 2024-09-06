@@ -1,1 +1,0 @@
-Artículo 36.- Sobre la solicitud de contratación. En caso de que la ficha técnica requerida no esté disponible se solicitará su creación al SECP. Una vez aprobada la ficha técnica la DS procederá a confeccionar la solicitud de contratación y adjuntar los documentos correspondientes, de acuerdo, con el procedimiento descrito en el Manual de Usuario.

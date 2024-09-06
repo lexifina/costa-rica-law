@@ -1,2 +1,0 @@
-Artículo 20.- Presupuestación de las adquisiciones. La inclusión de recursos en el presupuesto para las contrataciones, deberá estar precedida de la identificación de las características esenciales requeridas y de una estimación sustentada del precio por parte de la DS o UT correspondiente.
-De la anterior obligación se entenderán exceptuadas las previsiones para capacitaciones abiertas prevista en el artículo 139 inciso e), del Reglamento a la Ley de Contratación Administrativa, así como los mantenimientos correctivos.
