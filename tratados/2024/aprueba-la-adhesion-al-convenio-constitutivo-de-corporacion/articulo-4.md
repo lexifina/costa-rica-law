@@ -1,0 +1,1 @@
+ARTÍCULO 4- Facúltese al Poder Ejecutivo para otorgar los documentos relacionados con la ratificación del Convenio Constitutivo de la Corporación Andina de Fomento y el depósito de los instrumentos correspondientes en la sede designada al efecto.

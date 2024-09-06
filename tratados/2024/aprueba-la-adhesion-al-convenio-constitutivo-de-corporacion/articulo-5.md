@@ -1,0 +1,4 @@
+ARTÍCULO 5- Norma de ejecución
+Se otorga al ministro de Hacienda la representación oficial del Gobierno de la República ante la Corporación Andina de Fomento y la autorización para que, una vez incorporadas en el presupuesto de la República, cancele las cuotas por concepto de suscripción de capital, correspondientes a la incorporación de Costa Rica como miembro pleno a la Corporación Andina de Fomento, así como los futuros aumentos de capital que sean aprobados por la Asamblea de Accionistas de la Corporación.
+Todo pago por concepto de suscripción de acciones será realizado por el Ministerio de Hacienda, con sus propios fondos.
+El cambio de representación aquí establecido será comunicado por la vía correspondiente juntamente con el depósito del respectivo acuerdo de ratificación del convenio constitutivo.

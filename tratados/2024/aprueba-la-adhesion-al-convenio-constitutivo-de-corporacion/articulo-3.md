@@ -1,0 +1,1 @@
+ARTÍCULO 3- Para efectos de la República de Costa Rica, las futuras enmiendas al Convenio Constitutivo de la Corporación Andina de Fomento, entrarán en vigor cuando se haya cumplido con la aprobación legislativa y la ratificación ejecutiva de las enmiendas correspondientes.
