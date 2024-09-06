@@ -1,0 +1,1 @@
+Artículo 38.-Informe de seguimiento de recomendaciones. La Auditoría Interna realizará un informe del seguimiento de recomendaciones dirigido al jerarca o titulares subordinados según corresponda, sin perjuicio de cualesquier otra verificación y evaluación que realice en ejercicio de su competencia.

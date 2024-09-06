@@ -1,0 +1,1 @@
+Artículo 27.-Informes dirigidos al Jerarca. Cuando los informes de Auditoría Interna estén dirigidos al jerarca, se procederá de acuerdo con lo establecido en el artículo 37 de la Ley General de Control Interno.

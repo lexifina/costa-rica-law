@@ -1,0 +1,1 @@
+Artículo 20.-Del personal de la Auditoría Interna. Los funcionarios de la Auditoría Interna, en el ejercicio de sus funciones, actuarán objetivamente en las labores encomendadas en forma constructiva, con buen trato verbal, tacto y cortesía, con el fin de agregar valor y mejoramiento de la organización interna de la Administración y para el cumplimiento de sus funciones.

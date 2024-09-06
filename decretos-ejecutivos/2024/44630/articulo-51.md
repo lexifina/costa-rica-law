@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 51.-Aplicación del reglamento y resolución de discrepancias. Las disposiciones del presente Reglamento se aplican en todas las unidades y dependencias que conforman la Presidencia de la República, Ministerio de la Presidencia y programas adscritos. Cualquier discrepancia que se presente en cuanto a su ejecución e interpretación será resuelta por el jerarca de común acuerdo con el Auditor. Si la discrepancia se refiere a aspectos funcionales, el asunto en conflicto se podrá remitir a la Contraloría General de la República, quién dispondrá lo que corresponda.

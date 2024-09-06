@@ -1,0 +1,1 @@
+Artículo 37.-Incumplimiento de implementación de recomendaciones. De determinar la Auditoría Interna incumplimiento injustificado de las recomendaciones podrá ponerlo en conocimiento del jerarca, sin perjuicio de realizar informes de control interno o eventual responsabilidad administrativa.

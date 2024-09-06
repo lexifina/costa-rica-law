@@ -1,0 +1,1 @@
+Artículo 28.-Informes dirigidos a titulares subordinados. Cuando los informes de Auditoría Interna contengan recomendaciones dirigidas a los titulares subordinados se procederá de acuerdo con lo establecido en la Ley General de Control Interno.

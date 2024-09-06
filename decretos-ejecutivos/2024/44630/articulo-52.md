@@ -1,0 +1,1 @@
+Artículo 52.-Derogatoria. Deróguese el Decreto Ejecutivo N° 34457MP, publicado en La Gaceta N° 84 del 02 de mayo 2008 y el Decreto N° 41402-MP del 09 de agosto del 2018, referentes al Reglamento de Organización y Funciones de la Auditoría Interna del Ministerio de la Presidencia y Presidencia de la República.

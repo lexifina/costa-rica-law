@@ -1,0 +1,1 @@
+Artículo 36.-Deber del auditado. El funcionario a quien se giran las recomendaciones deberá implementar las medidas y acciones para su oportuna, eficiente y eficaz cumplimiento, y comunicar a la auditoría interna en un lapso no mayor de diez días hábiles posterior a la comunicación del informe de la auditoría el plan de acciones y los plazos para la implementación.

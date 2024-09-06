@@ -1,0 +1,1 @@
+Artículo 39.-Seguimiento de los servicios preventivos. La Auditoría Interna verificará lo actuado por la Administración Activa respecto a los servicios de asesoría y advertencias que se hayan emitido.

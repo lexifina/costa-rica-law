@@ -1,0 +1,1 @@
+Artículo 34.-Plan de seguimiento. La Auditoría Interna incluirá en su plan anual operativo el seguimiento de las recomendaciones aceptadas por los auditados y de auditores externos cuando sean de su conocimiento para velar su cumplimiento.

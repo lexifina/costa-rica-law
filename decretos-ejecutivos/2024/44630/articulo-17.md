@@ -1,0 +1,1 @@
+Artículo 17.-Ejecución presupuestaria. Para ejecutar las partidas y modificaciones correspondientes al presupuesto de la Auditoría Interna, se requiere que los documentos de ejecución presupuestaria contengan la autorización previa del Auditor Interno o del funcionario designado por este para esa función.

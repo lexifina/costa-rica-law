@@ -1,0 +1,1 @@
+Artículo 41.-Contenido de la relación de hechos. La relación de hechos es un informe sobre una serie de actos presuntamente irregulares, acciones u omisiones, ligados mediante un nexo de causalidad a una falta y un eventual responsable, contendrá los elementos necesarios que permitan identificar a los presuntos partícipes.

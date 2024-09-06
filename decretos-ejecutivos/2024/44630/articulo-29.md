@@ -1,0 +1,1 @@
+Artículo 29.-Forma de resolver conflictos por discrepancia sobre recomendaciones de Auditoría Interna. En caso de conflictos entre lo recomendado por la Auditoría Interna y lo decidido por el jerarca, se procederá de acuerdo con el procedimiento establecido en el artículo 38 de la Ley General de Control Interno.

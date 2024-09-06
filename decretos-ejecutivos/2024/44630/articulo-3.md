@@ -1,0 +1,1 @@
+Artículo 3°-Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para el personal de la Auditoría Interna y para el resto de los funcionarios de la Administración Activa de la Presidencia de la República y el Ministerio de la Presidencia, y programas adscritos, en la materia que resulte aplicable.

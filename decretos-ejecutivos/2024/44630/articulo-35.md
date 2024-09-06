@@ -1,0 +1,1 @@
+Artículo 35.-Información del estado de cumplimiento. La Auditoría Interna podrá solicitar al auditado o responsable de cumplir las recomendaciones informar por escrito el avance alcanzado de implementación.

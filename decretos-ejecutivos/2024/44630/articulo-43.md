@@ -1,0 +1,1 @@
+Artículo 43.-De los plazos de atención en relaciones de hechos. En el informe de relación de hechos se apercibirá al jerarca sobre los plazos de prescripción que rigen a efecto de prevenir eventuales cumplimientos.

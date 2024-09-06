@@ -1,0 +1,1 @@
+Artículo 49.-Denuncias anónimas. Las denuncias anónimas serán atendidas siempre que contengan elementos suficientes que permitan analizar los hechos, se aplicaran los procedimientos de auditoría y se tomarán en cuenta los elementos de prueba aportados que la respalden para iniciar la investigación, de lo contrario procederá su archivo.
