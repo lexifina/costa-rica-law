@@ -1,0 +1,1 @@
+Artículo 3°-Esta Comisión tendrá como fin incorporar la perspectiva de género en todo el quehacer municipal, a través del cumplimiento efectivo de las funciones que se le asigne y cualquier otra que corresponda a su competencia que le sea asignada por el Código Municipal, los reglamentos que se dicten al efecto y cualquier Ley vigente.

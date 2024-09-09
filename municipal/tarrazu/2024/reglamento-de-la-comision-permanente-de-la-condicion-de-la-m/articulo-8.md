@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del nombramiento de la Comisión
+Artículo 8°-Esta comisión estará integrada por tres o más miembros representantes de las fracciones políticas presentes en el Concejo, designadas por el/la presidente, dos de éstas deberán escogerse dentro de las/los personas regidoras propietarias y suplentes. Como asesores de la CMCM se elegirán a las personas síndicas propietarias o suplentes, personas funcionarias municipales o representante del Instituto Nacional de la Mujer. Los asesores que se nombren formarán parte de la comisión con voz y sin voto. La presidencia municipal deberá realizar la juramentación solemne y formal de las personas integrantes de la Comisión, en sesión previa al inicio de sus funciones.
