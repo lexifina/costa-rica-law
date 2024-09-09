@@ -1,1 +1,0 @@
-Artículo 2º—Del ámbito de aplicación. Las disposiciones del presente Reglamento se aplican para la entrega, selección y otorgamiento de becas para estudiantes de Primaria, Secundaria, Banda Municipal, Mujer Adulta, Servidores (as) Municipales y Personas con Discapacidad, conforme se establece en los artículos 1º y 62° del Código Municipal.

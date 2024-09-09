@@ -1,1 +1,0 @@
-Artículo 7º—De la asignación. Los Concejos de Distrito en Sesión, de acuerdo con los estudios socioeconómicos pertinentes a este Reglamento y de conformidad con el perfil elaborado por la Dirección de Desarrollo Humano, recomendarán los beneficiarios de las becas mediante acuerdo por mayoría simple del Concejo de Distrito.

@@ -1,1 +1,0 @@
-Artículo 13.—De la aprobación definitiva. El Concejo Municipal conocerá en definitiva a más tardar el primer lunes de febrero de cada año, el dictamen rendido por la Comisión de Asuntos Sociales sobre las becas asignadas tanto para la Banda Municipal, Personas con Discapacidad, hijos (as) de Servidores (as) Municipales y los demás vecinos (as) del cantón.

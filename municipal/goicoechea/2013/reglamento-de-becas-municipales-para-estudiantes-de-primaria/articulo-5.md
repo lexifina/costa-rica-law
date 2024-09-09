@@ -1,1 +1,0 @@
-Artículo 5º—Distribución por distritos. Por acuerdo del Concejo Municipal conforme a dictamen de la Comisión de Asuntos Sociales el número de becas a asignar a cada distrito se establecerá de acuerdo a la población y al Índice de Desarrollo Social, establecidos por MIDEPLAN, el que esté vigente.

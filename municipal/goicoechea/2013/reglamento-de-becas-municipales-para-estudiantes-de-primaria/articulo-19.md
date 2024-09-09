@@ -1,2 +1,0 @@
-Artículo 19.—Prohibición para dar becas. No podrán ser beneficiarios de este tipo de becas las personas que tengan parentesco dentro de tercer grado de consanguinidad o segundo de afinidad con miembros del Concejo Municipal, miembros del Concejo de Distrito, Alcalde Municipal, Vicealcaldes, Asesores del Alcalde, Auditor, Sub Auditor y Directores de la Municipalidad.
-No se otorgaran becas los (as) solicitantes que tengan ese beneficio por parte de FONABE y otras instituciones que brinden ayuda para educación.

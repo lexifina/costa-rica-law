@@ -1,1 +1,0 @@
-Artículo 18.—La Dirección de Desarrollo Humano deberá informar al finalizar el primer y segundo semestre de cada año a la Comisión de Asuntos Sociales sobre el cumplimiento de lo establecido por los artículos 14, 15, 16 y 17 de este Reglamento.
