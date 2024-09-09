@@ -1,3 +1,0 @@
-Artículo 3º-Objetivo del presente reglamento. Este reglamento tiene como objetivo apoyar a la población estudiantil del cantón de Goicoechea que se encuentra en vulnerabilidad socioeconómica, para que se mantenga dentro del sistema de educación formal y concluya sus estudios.
-Asimismo, este reglamento busca promover en la población estudiantil del cantón, la práctica de valores como la solidaridad, responsabilidad, honestidad, compromiso y respeto a la diversidad.
-La Municipalidad de Goicoechea, a través de la Dirección de Desarrollo Humano, suscribirá en conjunto con las personas beneficiarias un convenio al efecto.

@@ -1,1 +1,0 @@
-Artículo 12.-De la capacitación a los Concejos de Distrito. La Dirección de Desarrollo Humano capacitará durante el mes de setiembre a los Concejos de Distrito sobre el trámite del presente procedimiento.

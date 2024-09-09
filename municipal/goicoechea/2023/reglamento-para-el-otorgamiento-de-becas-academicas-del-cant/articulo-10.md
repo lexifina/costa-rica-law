@@ -1,1 +1,0 @@
-Artículo 10.-De las becas sin asignación. Durante el año en curso, en caso que queden becas disponibles por asignar, la Dirección de Desarrollo Humano remitirá la recomendación de asignación al Concejo Municipal para que sea dictaminado por la Comisión de Asuntos Sociales, y su posterior aprobación por parte del Concejo Municipal.
