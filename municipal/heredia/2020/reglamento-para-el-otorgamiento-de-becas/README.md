@@ -18,3 +18,4 @@ Reglamento para el otorgamiento de becas
 | 3 | 2023-03-20 | Reglamento municipal 246 (2023-03-20) |
 | 4 | 2024-04-16 | Reglamento municipal 338 (2024-04-16) |
 | 5 | 2024-09-09 | Reglamento municipal 31 (2024-09-09) |
+| 6 | 2024-09-09 | Reglamento municipal 31 (2024-09-09) |
