@@ -1,1 +1,0 @@
-Artículo 16.—Régimen recursivo. Las recomendaciones y actos tomados por la Comisión Institucional o Auxiliares de Teletrabajo, tendrán los recursos establecidos en la Ley General de Administración Pública.

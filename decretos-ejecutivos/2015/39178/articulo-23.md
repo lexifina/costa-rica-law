@@ -1,1 +1,0 @@
-Artículo 23.—Regreso al trabajo presencial. Para que el teletrabajador retorne a sus labores de forma presencial, la Jefatura Inmediata y/o el Director de Programa correspondiente, deberá presentar ante la Comisión Institucional o Auxiliares de Teletrabajo, una justificación que explique los motivos que sustentan esta decisión, para aplicar las acciones correspondientes.

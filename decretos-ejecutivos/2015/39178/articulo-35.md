@@ -1,1 +1,0 @@
-Artículo 35.—Gastos. El teletrabajador debe asumir los gastos de electricidad, agua, internet, telefonía y alimentación, relacionados con el desarrollo de las actividades teletrabajables. En el caso de traslados para realizar giras o reuniones de trabajo como parte de sus funciones, aplica lo establecido en la normativa laboral vigente.

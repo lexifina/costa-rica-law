@@ -1,1 +1,0 @@
-Artículo 32.—Formalización del acuerdo. De previo a iniciar las labores teletrabajables, el funcionario debe firmar un “Acuerdo de teletrabajo”, donde se especifican las condiciones del Programa de Teletrabajo, el plazo de vigencia, las responsabilidades que debe cumplir y cualquier otra cuestión relevante para el éxito de las labores que se desarrollarán como parte del programa.

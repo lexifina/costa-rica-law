@@ -1,1 +1,0 @@
-Artículo 11.—Horario de teletrabajo. Para todos los casos, el teletrabajador en acuerdo con su jefatura inmediata, deberá indicar el horario en el cual se encontrará disponible para teletrabajar, durante los días en que se encuentre fuera de la sede del MCJ. En ningún caso, se podrá trabajar menos tiempo de la jornada ordinaria.
