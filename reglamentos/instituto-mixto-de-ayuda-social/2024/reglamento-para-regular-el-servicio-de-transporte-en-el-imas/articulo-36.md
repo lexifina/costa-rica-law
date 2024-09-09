@@ -1,0 +1,1 @@
+Artículo 36.-Derogatoria. El presente Reglamento deroga íntegramente Reglamento para regular el Servicio de Transportes en el IMAS, aprobado por acuerdo del Consejo Directivo N° 455-11-2020 del 12 de noviembre 2020 y publicado en el Diario Oficial La Gaceta N° 294 en el Alcance N° 329 del 16 de diciembre de 2020, así como toda otra normativa de rango inferior que se le oponga.

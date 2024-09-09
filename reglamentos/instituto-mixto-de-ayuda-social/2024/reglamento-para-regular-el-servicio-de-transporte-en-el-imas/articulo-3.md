@@ -1,0 +1,1 @@
+Artículo 3º-De los encargados de aplicación. Son encargados de la aplicación del presente reglamento, los Titulares Subordinados de las Áreas Regionales de Desarrollo Social, de Empresas Comerciales, el Departamento de Servicios Generales y en los casos de competencia la Dirección de Soporte Administrativo.

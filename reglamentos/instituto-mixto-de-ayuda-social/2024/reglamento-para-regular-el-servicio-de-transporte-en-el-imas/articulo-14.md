@@ -1,0 +1,5 @@
+Artículo 14.-De los deberes u obligaciones del Departamento de Proveeduría Institucional. Deberá atender los siguientes deberes u obligaciones:
+a. Realizar la gestión de pago de los derechos de circulación de los vehículos oficiales, en coordinación con el Departamento de Servicios Generales.
+b. Tramitar los seguros institucionales, de acuerdo con el procedimiento estipulado para tal efecto, de modo que se de protección a las personas funcionarias y trabajadoras del IMAS, durante el ejercicio de sus funciones, personas servidoras públicas, personas voluntarias o particulares, que se transporten en los vehículos oficiales.
+c. Garantizar que todos los vehículos oficiales cuenten, como mínimo, con las pólizas de: seguro obligatorio de vehículos, responsabilidad civil por lesión o muerte de personas particulares y responsabilidad civil por daños materiales a la propiedad de terceros.
+d. Actualizar la información de los vehículos oficiales, dentro de la toma física anual de activos que realiza y trasladarla al Departamento de Servicios Generales.

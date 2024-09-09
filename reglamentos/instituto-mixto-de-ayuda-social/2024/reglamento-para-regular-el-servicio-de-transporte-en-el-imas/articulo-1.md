@@ -1,0 +1,16 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+En uso de las facultades y atribuciones que confiere el artículo 103 párrafo primero de la Ley Nº6227, Ley General de la Administración Pública, y los artículos 2 y 4, siguientes y concordantes de la Ley 4760, Ley de Creación del Instituto Mixto de Ayuda Social.
+Considerando:
+1º-Que mediante Acuerdo de Consejo Directivo Nº455- 11-2020 del 12 de noviembre 2020, se aprobó el "Reglamento para regular el Servicio de Transportes en el IMAS", el cual fue publicado en el Diario Oficial La Gaceta N°294 en el Alcance N° 329 del miércoles 16 de diciembre de 2020.
+2º-Que mediante oficio IMAS-DSA-0130-2024 del 22 de abril de 2024, la Dirección de Soporte Administrativo remite a Planificación Institucional la propuesta de modificación del Reglamento para regular el Servicio de Transportes en el IMAS, para la emisión del criterio técnico correspondiente, de conformidad a lo establecido en el Manual de Procedimientos para Elaborar, Modificar y Derogar Documentos Normativos y otros Instrumentos Institucionales.
+3º-Que la Administración realizó las acciones requeridas conforme lo establece el Manual de Procedimientos para Elaborar, Modificar y Derogar Documentos Normativos y otros Instrumentos Institucionales, con el objetivo de elaborar la propuesta presentada.
+4º-Que mediante oficio IMAS-GG-1441-2024 del 08 de agosto de 2024, la Gerencia General remite propuesta de modificación del Reglamento para regular el Servicio de Transportes en el IMAS, para su aprobación por parte del Consejo Directivo.
+5º-Que la propuesta de modificación del Reglamento para regular el Servicio de Transportes en el IMAS no establece nuevos requisitos a las personas administradas, ni modifican los ya existentes, conforme lo establece el Por Tanto doceavo de la Directriz de la Gerencia General IMAS-GG-0487-2022 del 17 de marzo de 2022.
+6º-Que el Consejo Directivo del IMAS, mediante el artículo quinto, acuerdo N°149-02-2024 del acta 35-08-2024, acuerda: 1. Aprobar la propuesta de modificación del Reglamento para regular el Servicio de Transportes en el IMAS. 2. En cumplimiento al principio de transparencia, se deberá tramitar el formulario de Control Previo ante el Ministerio de Economía Industria y Comercio y en virtud de que el Reglamento indicado no establece nuevos requisitos a las personas administradas ni modifican los ya existentes, se podrá continuar con el punto 3 del presente acuerdo. 3. Solicitar a la Dirección de Soporte Administrativo que realice todas las acciones administrativas necesarias para la publicación del Reglamento para regular el Servicio de Transportes en el IMAS, en el Diario Oficial La Gaceta. 4. Incorporar la prohibición de no usar el vehículo con más personas de las que el fabricante ha dispuesto en la ficha técnica como ocupación total.
+7º-Que la propuesta de normativa resulta fundamental para la gestión institucional, sin generar trámites, requisitos o procedimientos nuevos, por tanto, se emite
+REGLAMENTO PARA REGULAR EL SERVICIO
+DE TRANSPORTE EN EL IMAS
+CAPÍTULO PRIMERO
+Disposiciones Generales
+Artículo 1º-Del objetivo. Establecer las regulaciones que faciliten al personal del IMAS, la realización de las tareas que materialicen el combate a la pobreza por medio de la prestación de servicios de transporte interno eficientes.
+<span style='font-size:10.0pt; </body>
