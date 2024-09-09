@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoria interna de Racsa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-10 | la propia norma |
+| 2 | 2024-09-09 | Reglamento 2508 (2024-09-09) |

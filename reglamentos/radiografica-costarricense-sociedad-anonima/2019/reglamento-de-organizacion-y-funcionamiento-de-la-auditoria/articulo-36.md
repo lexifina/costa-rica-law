@@ -1,2 +1,2 @@
-Artículo 36. Requisitos de los puestos.
-El Departamento de Talento Humano, con la colaboración de la Auditoría Interna, definirá en sus respectivos manuales de cargos y clases, la descripción de las funciones y los requisitos correspondientes para cada uno de los cargos, de conformidad con los lineamientos que emita al respecto la Contraloría General.
+Artículo 36.-Requisitos de los puestos. El Departamento de Talento Humano y Cultura, con la colaboración de la Auditoría Interna, definirá en sus respectivos manuales de cargos y clases, la descripción de las funciones y los requisitos correspondientes para cada uno de los cargos, de conformidad con los lineamientos que emita al respecto la Contraloría General.
+(Así reformado mediante sesión ordinaria N° 2508 del 9 de septiembre del 2024)

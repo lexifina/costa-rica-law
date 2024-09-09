@@ -1,3 +1,3 @@
 SECCIÓN VI. Potestad del Auditor Interno sobre el personal de la Auditoría
-Artículo 32. Obligación.
-Es obligación del Auditor Interno vigilar que los colaboradores de la Auditoría cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que les sean aplicables. El Auditor Interno y la Jefatura de Auditoría son los responsables, en ese orden, del correcto cumplimiento de las funciones encomendadas a la Auditoría.
+Artículo 32.-Obligación. Es obligación del Auditor Interno vigilar que los colaboradores de la Auditoría cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que les sean aplicables. El Auditor Interno con el apoyo del Coordinador de Auditoría son los responsables, en ese orden, del correcto cumplimiento de las funciones encomendadas a la Auditoría.
+(Así reformado mediante sesión ordinaria N° 2508 del 9 de septiembre del 2024)

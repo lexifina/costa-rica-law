@@ -1,2 +1,2 @@
-Artículo 34. Responsable de gestionar la creación y sustitución de plazas.
-También le corresponderá proponer ante la Junta Directiva la creación de plazas y servicios, así como la sustitución de las mismas, para el buen funcionamiento de la Auditoría, conforme a las normas y procedimientos establecidos por la Empresa en esta materia y en los artículos 27 y 28 de la Ley General de Control Interno.
+Artículo 34.-Responsable de Gestionar la Creación y Sustitución de Plazas. Le corresponderá al Auditor Interno proponer ante la Junta Directiva la creación de plazas y servicios, así como la sustitución de las mismas, para el buen funcionamiento de la Auditoría, conforme a las normas y procedimientos establecidos por la Empresa en esta materia y en los artículos 27 y 28 de la Ley General de Control Interno.
+(Así reformado mediante sesión ordinaria N° 2508 del 9 de septiembre del 2024)

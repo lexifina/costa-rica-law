@@ -1,2 +1,2 @@
-Artículo 19. Área de Auditoría Operativa.
-Las tareas de la Auditoría Operativa consisten en el examen de las áreas de operación de la Empresa, para determinar si se tienen los apropiados controles y procedimientos, tanto administrativos como operativos y poder así lograr la mayor eficiencia y economía en la Organización, incluyendo la revisión del control interno de RACSA.
+Artículo 19.-Área de Auditoría Operativa. Las tareas de la Auditoría Operativa consisten en el examen de las áreas de operación de la Empresa, para determinar si se tienen los apropiados controles y procedimientos, tanto administrativos como operativos y poder así lograr la mayor eficiencia y economía en la Organización, incluyendo la revisión del control interno de RACSA, así como lo establecido en los perfiles de puestos.
+(Así reformado mediante sesión ordinaria N° 2508 del 9 de septiembre del 2024)

@@ -1,2 +1,2 @@
-Artículo 20. Área de Auditoría Financiera-Contable.
-Las funciones de la Auditoría Financiera-Contable tienen como propósito fundamental la evaluación de la legitimidad y legalidad de los ingresos y egresos de la Empresa y verificar la razonabilidad de los estados financieros, incluyendo la revisión del control interno de RACSA.
+Artículo 20.-Área de Auditoría Financiera / Contable. Las funciones de la Auditoría Financiera-Contable tienen como propósito fundamental la evaluación de la legitimidad y legalidad de los ingresos y egresos de la Empresa y verificar la razonabilidad de los estados financieros, incluyendo la revisión del control interno de RACSA, así como lo establecido en los perfiles de puestos.
+(Así reformado mediante sesión ordinaria N° 2508 del 9 de septiembre del 2024)
