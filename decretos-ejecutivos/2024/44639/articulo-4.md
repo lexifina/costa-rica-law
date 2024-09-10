@@ -1,0 +1,1 @@
+Artículo 4.- En las Asambleas de Representantes y en los procesos de elección no podrán participar organizaciones ni entes morosos en sus obligaciones con la Caja Costarricense de Seguro Social. La condición a que se refiere este artículo deberá ser debidamente acreditada ante la Asamblea de Representantes convocada al efecto.
