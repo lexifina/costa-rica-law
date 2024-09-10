@@ -1,0 +1,1 @@
+Artículo 4 º - Las contrataciones de servicios con cargo a la subpartida presupuestario 1-01-01 de Alquiler de edificios, locales y terrenos, se seguirán rigiendo conforme a la Directriz N º 085-H denominada "Uso de la moneda nacional en las contrataciones de arrendamientos de edificios, locales y terrenos", por existir disposiciones expresas sobre el tema.
