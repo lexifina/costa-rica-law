@@ -1,0 +1,9 @@
+CIRCULAR N° 190-2024
+Asunto: Juzgados de Familia y contra la Violencia Doméstica de Primera Instancia del país deberán cumplir con las recomendaciones establecidos en el informe N°758-PLA-MI(NPL)-2024.
+A TODOS LOS JUZGADOS DE FAMILIA Y CONTRA LA VIOLENCIA DOMÉSTICA DE PRIMERA INSTANCIA DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 79-2024 celebrada el 03 de setiembre de 2024, artículo LII, dispuso aprobar las recomendaciones establecidos en el informe N°758-PLAMI(NPL)-2024 del 25 de junio de 2024, relacionado con el cierre de la fase 1 del seguimiento en aplicación del Modelo de Mejora Continua Institucional y la conformación de las secciones del Tribunal de Familia. Por lo que deberán los Juzgados de Familia y contra la Violencia Doméstica de Primera Instancia del país como parte del protocolo de pase a fallo en segunda instancia:
+a) Crear una carpeta recurso por cada resolución apelada: Si en un expediente se dictan dos resoluciones diferentes y las dos o más son apeladas, aunque el emplazamiento se dicte en conjunto; debe de crearse una carpeta RR por cada resolución apelada para itinerarlo al Tribunal de Apelación. El tribunal entonces conocerá las apelaciones en carpetas separadas y las registrará individualmente en el módulo de pase a fallo.
+b) En caso de que una misma resolución sea apelada por las dos partes deberá crearse una sola carpeta recurso "carpeta RR" e itinerarla para resolver ambos recursos. El tribunal atenderá lo pertinente en esa única carpeta y se registrará solo 1 vez en el módulo de pase a fallo. c) En caso de expedientes que aún se mantengan híbridos, remitir al Tribunal de Familia, el expediente itinerado, así como la parte física, y las pruebas físicas o sobres que corresponda, todo en un mismo día, de manera que el Tribunal no deba estar remitiendo recordatorios o llamadas por recursos incompletos.
+Publíquese una vez en el Boletín Judicial.
+San José, 10 de setiembre de 2024.
