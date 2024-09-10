@@ -1,0 +1,1 @@
+Artículo 12.- Uso del Fondo de Caja Chica. Para efectuar compras por medio del Fondo de Caja Chica la jefatura del programa presupuestario deberá solicitar la reserva presupuestaria correspondiente y emitir el formulario de solicitud de pedido de compra por medio del Fondo Caja Chica, aprobado por el responsable.

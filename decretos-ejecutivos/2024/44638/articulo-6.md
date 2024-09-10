@@ -1,0 +1,1 @@
+Artículo 6.- Responsable. El responsable del Fondo de Caja Chica en lo sucesivo en este Reglamento se le denominará como "el Responsable", será el Jefe del Departamento Financiero, o en quien se delegue el cumplimiento de las funciones atinentes a dicho cargo.

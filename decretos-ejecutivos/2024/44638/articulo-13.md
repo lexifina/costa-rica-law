@@ -1,0 +1,11 @@
+Artículo 13.- Trámite para adquisición de bienes o servicios mediante el Fondo de Caja Chica:
+a. La persona solicitante deberá emitir una justificación sobre el uso del Fondo de Caja Chica, en la que se acrediten los elementos indicados en el artículo 8 de este Reglamento con visto bueno de la Jefatura de programa presupuestario.
+b. La persona solicitante deberá realizar tres cotizaciones sobre el bien o servicio a adquirir y deberá realizar una revisión de éstas determinando cuál es la que mejor se adapta a las necesidades institucionales.
+c. La persona solicitante debe tramitar una reserva presupuestaria para la adquisición de bienes o servicios mediante el Fondo de Caja Chica ante el Departamento Financiero.
+d. La persona solicitante debe emitir el formulario de solicitud de pedido de compra por medio del Fondo Caja Chica. Esta persona es responsable de verificar que el material o suministro que se pretende adquirir no exista en el inventario de suministros de la Presidencia o el Ministerio, según corresponda. Esto se comprobará mediante la firma y sello de la Jefatura de la Proveeduría Institucional.
+Una vez cumplido este requisito, el formulario debe ser autorizada por la Jefatura de programa presupuestario. Este documento deberá formar parte de los documentos de respaldo de la liquidación de la compra efectuada.
+e. La Proveeduría Institucional deberá revisar el cumplimiento de los requisitos establecidos en el presente Reglamento conforme al artículo 12 del Reglamento a la Ley General de Contratación Pública. En caso de no cumplir con todos los requisitos indicados en el presente Reglamento, se devolverá la solicitud sin trámite.
+f. La Proveeduría Institucional deberá emitir la orden de compra respectiva.
+g. El responsable del Fondo deberá aprobar la orden de compra, previo a comunicarla a la persona solicitante.
+h. La persona solicitante recibirá la orden de compra y la comunicará al proveedor, quien, además, deberá encargarse de la recepción del bien o servicio.
+i. La persona solicitante deberá liquidar la Caja Chica ante el Departamento Financiero en un plazo no mayor a siete días hábiles. Para ello deberá presentar la factura y acta de recepción definitiva de los bienes o servicios adquiridos.

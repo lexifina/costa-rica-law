@@ -1,0 +1,1 @@
+Artículo 17.- Trámite y liquidación. Para la adquisición de tiquetes aéreos se deberá seguir el trámite establecido en el artículo 13 del presente Reglamento, adjuntando los requisitos señalados en el ordinal anterior. Y para la liquidación de éstos se deberá seguir el procedimiento establecido en el artículo 15 del Reglamento de marras.
