@@ -14,3 +14,4 @@ Guía mínima de implementación del sistema de gestión de calidad para firmas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-02 | la propia norma |
+| 2 | 2024-09-10 | Reglamento 9 (2024-09-10) |
