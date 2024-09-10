@@ -1,1 +1,0 @@
-Artículo 12.—Lo acordado por la Comisión es de acatamiento obligatorio para todos los programas o instituciones. Cualquier funcionario, oficina o dependencia que estime lesionado su derecho podrá establecer su reclamo dentro de los diez días hábiles siguientes a la firmeza del acuerdo, y se sustanciará mediante el debido proceso.

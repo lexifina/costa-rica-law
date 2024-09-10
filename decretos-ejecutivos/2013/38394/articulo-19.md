@@ -1,2 +1,0 @@
-Artículo 19.—Se levantará un directorio con el nombre de las instituciones y funcionarios que ocupan el Edificio, con el fin de facilitar la ubicación del personal.
-También se deberá levantar un directorio de emergencia donde se indicará el nombre de la institución, uno o varios enlaces y número de teléfono donde se le pueda ubicar en horas no laborales. Estas personas deberán tener disponibilidad para presentarse en cualquier momento ante una emergencia o catástrofe.

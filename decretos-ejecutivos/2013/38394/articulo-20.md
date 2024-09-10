@@ -1,1 +1,0 @@
-Artículo 20.—El Edificio solamente contará con un área de parqueo, ubicado junto al cementerio y corresponderá a esta Comisión definir por acuerdo que carros pueden parquear en esa zona bajo el entendido que solo se permitirá el parqueo de autos oficiales.

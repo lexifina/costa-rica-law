@@ -1,1 +1,0 @@
-Artículo 14.—Cada oficina o dependencia contará con los espacios necesarios para su cabal aprovechamiento, asignados por el Ministerio de Cultura y Juventud, quien, según sus necesidades tendrá el derecho de aprovechar los espacios comunes conforme a su destino.

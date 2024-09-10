@@ -1,1 +1,0 @@
-Artículo 9º—El quórum para todas las reuniones será de cuatro miembros y los acuerdos serán tomados por la mayoría de los votos presentes; en caso de empate decidirá quien preside, con su doble voto. Los acuerdos quedarán en firme al leerse y aprobarse el acta en la siguiente Sesión.
