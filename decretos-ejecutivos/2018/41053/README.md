@@ -14,3 +14,4 @@ Reglamento de trámites del Centro de Investigación y Conservación del Patrimo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-07 | la propia norma |
+| 2 | 2024-09-10 | Decreto Ejecutivo 44666 (2024-09-10) |

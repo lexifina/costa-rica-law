@@ -9,7 +9,7 @@ Considerando:
 4-. Que el artículo 26 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto N° 37045-MP-MEIC, dispone que, para el trámite de cualquier petición dirigida a la Administración Pública, el interesado únicamente deberá presentar la información, documentos y requisitos normativos, económicos y técnicos previamente señalados en las Leyes, Decretos Ejecutivos o Reglamentos de que se trate.
 5-. Que el artículo 27 del Decreto Ejecutivo N° 37045-MP-MEIC, establece que los Órganos y Entidades de la Administración deben ofrecer a los ciudadanos información completa, oportuna y veraz en relación con los trámites que se realicen.
 6-. Que se hace necesario establecer los trámites y requisitos de los servicios que brinda el Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud, con el fin de atender los principios de celeridad, simplicidad, economía, eficiencia y eficacia vigentes en la Administración Pública.
-7-. Que desde la perspectiva de la Dirección de Mejora Regulatoria, la propuesta “Reglamento de Trámites del Centro de Investigación y Conservación del Patrimonio Cultural (CICPC)”, cumple con lo establecido (DMR-DAR-INF-101-17). Por lo tanto,
+7-. Que desde la perspectiva de la Dirección de Mejora Regulatoria, la propuesta "Reglamento de Trámites del Centro de Investigación y Conservación del Patrimonio Cultural (CICPC)", cumple con lo establecido (DMR-DAR-INF-101-17). Por lo tanto,
 DECRETAN:
 Reglamento de Trámites del Centro de Investigación y Conservación
 del Patrimonio Cultural (CICPC)
@@ -22,7 +22,7 @@ Tramitar mediante el formulario de afectación en zonas de control especial muni
 Sustento legal:
 Planes Reguladores Municipales, Reformas a los Reglamentos de Desarrollo Urbano del Cantón de San José (RDU), Sección II Licencias Urbanísticas, publicado en el Alcance Digital N° 2 de La Gaceta N° 29 del 11 de febrero de 2014, inciso 9.
 Trámite:
-El solicitante deberá presentar ante el CICPC el formulario respectivo de “Zonas de Control Especial Municipal”, debidamente lleno y con la documentación adjunta solicitada. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
+El solicitante deberá presentar ante el CICPC el formulario respectivo de "Zonas de Control Especial Municipal", debidamente lleno y con la documentación adjunta solicitada. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
 Requisitos:
 a) Una copia del plano catastrado.
 b) Una certificación literal del Registro Público de la Propiedad.
@@ -49,7 +49,7 @@ Tramitar mediante el formulario de permiso especial para obras en Cementerios, d
 Sustento Legal:
 Ley N° 7555 y su Reglamento DE 32749-C, capítulo V, de los permisos para ejecutar obras sobre bienes patrimoniales, artículos 37, 38, 39, 40, 41, 42, 43, 43 bis.
 Trámite:
-El solicitante deberá presentar ante este CICPC el formulario respectivo de “Permiso Especial para Obras en Cementerios Declarados” debidamente lleno y con la documentación adjunta que se solicita.
+El solicitante deberá presentar ante este CICPC el formulario respectivo de "Permiso Especial para Obras en Cementerios Declarados" debidamente lleno y con la documentación adjunta que se solicita.
 La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
 Documentos a aportar junto al Formulario:
 a) Constancia expedida por la Administración del Cementerio donde se indique el nombre del propietario y las personas autorizadas.
@@ -74,7 +74,7 @@ Tramitar mediante el formulario de permiso especial para Edificios declarados pa
 Sustento Legal:
 Ley N° 7555 y su Reglamento DE 32749-C, Capítulo V, de los permisos para ejecutar obras sobre bienes patrimoniales, artículos 37, 38, 39, 40, 41, 42, 43 y 43bis.
 Trámite:
-El solicitante deberá presentar ante este CICPC el formulario respectivo de “Permiso Especial para Obras en Edificios Declarados Patrimonio Histórico Arquitectónico” debidamente lleno y con la documentación adjunta que se solicita. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
+El solicitante deberá presentar ante este CICPC el formulario respectivo de "Permiso Especial para Obras en Edificios Declarados Patrimonio Histórico Arquitectónico" debidamente lleno y con la documentación adjunta que se solicita. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
 Documentos por Aportar junto con el Formulario:
 a) Un juego de planos del proyecto de intervención en formato digital DWG y PDF, debidamente firmados por el profesional responsable ante el CFIA.
 b) En caso de obras menores (según definición del Reglamento para la Contratación de Servicios de Consultoría en Ingeniería y Arquitectura; Capítulo 1, Principios generales, artículo 3 bis del CFIA de Costa Rica) se solicitará una descripción detallada de las obras por realizar y en letra legible, así como los planos en formato DWG y PDF en los casos que se requiera.
@@ -100,7 +100,7 @@ Histórico Arquitectónico debidamente lleno.
 Sustento Legal:
 Reglamento DE 32749-C a la Ley N° 7555, Capítulo: IV, del Procedimiento de Declaratoria e Incorporación de Bienes Inmuebles al Patrimonio Histórico Arquitectónico, artículos 21 al 36.
 Trámite:
-El solicitante deberá presentar ante este CICPC el formulario respectivo de “Solicitud de estudio de Declaratoria de Patrimonio histórico arquitectónico” debidamente lleno y con la documentación adjunta que se solicita. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
+El solicitante deberá presentar ante este CICPC el formulario respectivo de "Solicitud de estudio de Declaratoria de Patrimonio histórico arquitectónico" debidamente lleno y con la documentación adjunta que se solicita. La entrega de la documentación se hará en la sede del CICPC, sita en avenida central, calle 1ª y 3ª, frente a la Librería Lehmann.
 Documentos por aportar junto al Formulario:
 Formulario debidamente lleno, fotografías exteriores e internas, antiguas y actuales, plano de catastro, datos registrales y referencias históricas.
 Plazo de Resolución:
@@ -131,3 +131,18 @@ La declaratoria patrimonial no releva al (a) (los) propietario(s) de la responsa
 Este trámite es gratuito.
 Nombre y firma del solicitante:
 Fecha:
+(*)2. UNIDAD DE PATRIMONIO CULTURAL INMATERIAL
+2.1 Solicitud de Declaratoria de Patrimonio Cultural Inmaterial. Ley No. 8560 ratifica la Convención para la Salvaguardia del Patrimonio Cultural Inmaterial de la UNESCO.
+Sustento Legal: Ley Nº 8560, APROBACIÓN DE LA CONVENCIÓN PARA LA SALVAGUARDIA DEL PATRIMONIO CULTURAL INMATERIAL (2003) de la Organización de las Naciones Unidas para la Educación, la Ciencia y la Cultura, denominada "UNESCO ", sus Artículos 11, 12 y 13. Decreto Ejecutivo Nº 41090-C, REFORMAS AL DECRETO EJECUTIVO Nº 38325-C DEL 22 DE ENERO DE 2014, DENOMINADO CREA COMISIÓN NACIONAL DE PATRIMONIO CULTURAL INMATERIAL, PUBLICADO EN LA GACETA Nº 82 DEL 30 DE ABRIL DE 2014, sus Artículos 18, 19 y 20.
+2.2 Requisitos para solicitar una Declaratoria de Patrimonio Cultural Inmaterial. Ley Nº 8560.
+2.2.1 Que la manifestación cultural figure en un inventario del patrimonio cultural inmaterial de su cantón o a nivel nacional. Para ello, se verificará si en bases de datos del Ministerio de Cultura y Juventud o las municipalidades cuenten con un inventario cultural cantonal o nacional o de registro en el Sistema de Información Cultural, en donde figure la manifestación cultural. Lo anterior a fin de resguardar el principio de coordinación institucional, regulado en los artículos 8 y 9 de la Ley Nº8220 y sus reformas.
+2.2.2 La propuesta de declaratoria de patrimonio cultural inmaterial debe contar con la participación más amplia posible de la comunidad o la agrupación portadora de la tradición, con su consentimiento, a fin de evidenciar la organización social detrás de la manifestación cultural. Para esto el formulario debe hacerse acompañar por un documento con la firma de consentimiento de la mayor parte de los miembros de la comunidad portadora de la tradición.
+2.2.3 Se elaboran medidas de salvaguardia, por parte de la comunidad portadora, para la protección y promoción de su manifestación cultural. Para esto debe aportar plan de trabajo o documentos en los cuáles se registren acciones que realiza la comunidad portadora de tradición que sirvan como medidas para la salvaguardia, protección y revitalización de la manifestación cultural.
+2.2.4 Completar y presentar el formulario de solicitud de Declaratoria Nacional de una manifestación cultural como Patrimonio Cultural Inmaterial (Anexo No.I.), así como todas las evidencias que se solicitan en el formulario.
+2.2.5 Documentos por aportar junto al Formulario: fotografías, audios, videos, documentos impresos, objetos ligados a la manifestación cultural, investigaciones científicas, entre otros, que considere la persona o comunidad portadora de tradición solicitante. Además de un documento con la firma de consentimiento de la mayor parte de los miembros de la comunidad portadora de la tradición. En caso de existir una prevención, la misma es única y suspende el plazo de resolución tal como lo estipula el articulo 39 del Decreto Ejecutivo Nº 37045-MP-MEIC y sus reformas. Los plazos empezarán a partir del día siguiente a la última comunicación de los mismos o del acto impugnable, caso de recurso, según inciso 3 del artículo 256 de la LGAP.
+Trámite: El solicitante puede descargar el formulario de "Solicitud de Declaratoria Nacional una Manifestación Cultural como Patrimonio Cultural Inmaterial" en la página web del Centro de Patrimonio Cultural: www.patrimonio.go.cr. Una vez completado el formulario junto a las evidencias que se le solicitan. La entrega de la documentación puede realizarse de manera digital, a través de correo de la Comisión Nacional de Patrimonio Cultural Inmaterial, conapaci@patrimonio.go.cr o, bien, de manera física en un sobre rotulado dirigido a la Comisión Nacional de Patrimonio Cultural Inmaterial, en la sede del Centro de Patrimonio Cultural ubicada en Avenida Central, calle r y 3􀂇 frente a la Tienda Eta Fashion, San José, Costa Rica. Plazo de Resolución: 60 días naturales.
+Vigencia de la Licencia, Autorización o Permiso: No aplica.
+Costo del Trámite: Gratis.
+Formulario: "Solicitud de Declaratoria Nacional una manifestación cultural como Patrimonio Cultural Inmaterial".
+Funcionario de Contacto: Paola Salazar Arce, secretaria de la Comisión Nacional de Patrimonio Cultural Inmaterial. Correo Electrónico: conapaci@patrimonio.go.cr
+(*)(Así adicionado el punto 2) anterior por el artículo 1° del decreto ejecutivo N° 44666 del 10 de setiembre del 2024)
