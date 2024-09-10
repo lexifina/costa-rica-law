@@ -16,3 +16,4 @@ Lineamientos para el Sistema de Control de Calidad del Colegio de Contadores Pú
 | 1 | 2017-11-02 | la propia norma |
 | 2 | 2020-08-24 | Reglamento 16 (2020-08-24) |
 | 3 | 2020-10-05 | Reglamento 19 (2020-10-05) |
+| 4 | 2024-09-10 | Reglamento 90 (2024-09-10) |
