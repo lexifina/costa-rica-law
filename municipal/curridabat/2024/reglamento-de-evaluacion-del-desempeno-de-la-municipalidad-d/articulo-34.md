@@ -1,0 +1,1 @@
+Artículo 34.-Modificación, eliminación o adición de metas de nivel 1: Las metas de nivel 1 solo podrán modificarse, eliminarse o adicionarse el año anterior a su ejecución, salvo excepciones calificadas por la Alcaldía Municipal. Si una meta de nivel 1 no se cumple en el plazo establecido, se trasladará al año siguiente y aplicará para un nuevo ciclo de evaluación.

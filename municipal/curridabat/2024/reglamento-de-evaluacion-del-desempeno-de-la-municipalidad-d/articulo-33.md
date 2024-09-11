@@ -1,0 +1,1 @@
+Artículo 33.-Justificaciones: Las personas servidoras municipales deberán presentar justificaciones ante el incumplimiento parcial o total de metas dentro de los tres días hábiles posteriores a la conclusión del ciclo a evaluar. La jefatura correspondiente valorará estas justificaciones y comunicará su decisión al notificar la evaluación.

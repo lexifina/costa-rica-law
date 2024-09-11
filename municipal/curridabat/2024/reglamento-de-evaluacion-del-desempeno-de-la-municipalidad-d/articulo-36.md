@@ -1,0 +1,1 @@
+Artículo 36.-Modificación, eliminación o adición de metas de nivel 3 y 4: Las metas de nivel 3 y 4 podrán ajustarse bimestralmente por iniciativa de la jefatura o ante asignaciones nuevas de la Alcaldía. La justificación y el aval de la Alcaldía para estos ajustes deberán constar por escrito, y la jefatura deberá promediar la nota de calificación para el período ejecutado.

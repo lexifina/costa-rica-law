@@ -1,0 +1,1 @@
+Artículo 47.-Procedimiento: Si se interponen ambos recursos, el órgano evaluador resolverá el recurso de revocatoria en un plazo de ocho días hábiles. Si es declarado sin lugar, se elevará el recurso de apelación en subsidio a la Alcaldía Municipal, que decidirá sobre su admisibilidad y resolución.

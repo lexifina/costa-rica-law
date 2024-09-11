@@ -1,0 +1,1 @@
+Artículo 44.-Evaluación de personal con el Concejo Municipal como superior jerárquico: Los puestos bajo la supervisión del Concejo Municipal serán evaluados por esta misma instancia. El personal subordinado al Concejo será evaluado por su jefatura, siguiendo los parámetros generales de este reglamento.

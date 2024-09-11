@@ -1,0 +1,1 @@
+Artículo 9º-Deber de coordinación. Las unidades de Planificación, Recursos Humanos, las jefaturas y jerarquías institucionales, tendrán la obligación de coordinar lo necesario para el funcionamiento y mejora continua del sistema de evaluación del desempeño.

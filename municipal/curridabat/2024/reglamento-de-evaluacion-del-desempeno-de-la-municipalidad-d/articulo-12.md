@@ -1,0 +1,4 @@
+Capítulo III
+Efectos y usos de la Evaluación del Desempeño
+Artículo 12.-Efectos de la evaluación del Desempeño. Las calificaciones anuales constituirán antecedente para la concesión de estímulos establecidos por ley y para sugerir recomendaciones relacionadas con el mejoramiento y el desarrollo de los recursos humanos. Dicho antecedente se considerará para los ascensos, traslados horizontales, la admisibilidad en concursos internos y/o externos, los reconocimientos, las capacitaciones, los adiestramientos, así como de incentivos no remunerativos, los cuales estarán determinados por el historial de evaluaciones del desempeño del funcionario. Los incentivos no remunerativos serán fijados por la administración, de conformidad con su conveniencia y oportunidad.
+El proceso de evaluación deberá ser considerado para implementar las acciones de mejora y fortalecimiento del potencial humano.

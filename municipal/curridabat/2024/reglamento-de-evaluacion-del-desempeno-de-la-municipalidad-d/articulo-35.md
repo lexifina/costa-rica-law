@@ -1,0 +1,1 @@
+Artículo 35.-Modificación, eliminación o adición de metas de nivel 2: Cualquier solicitud de modificación, eliminación o adición de metas de nivel 2 deberá tramitarse mediante una modificación presupuestaria, una variación al Plan Operativo Anual, o un presupuesto extraordinario, con la validación de la Alcaldía Municipal.

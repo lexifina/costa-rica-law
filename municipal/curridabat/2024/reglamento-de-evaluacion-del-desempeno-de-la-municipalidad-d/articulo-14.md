@@ -1,0 +1,7 @@
+Artículo 14.-Del incentivo por anualidad. El reconocimiento del incentivo de anualidad atenderá a los siguientes lineamientos:
+a) Será aplicable a las personas servidoras municipales que se encuentren en el esquema de salario compuesto.
+b) El resultado de la evaluación anual será el único parámetro para su otorgamiento.
+c) Se concederá únicamente mediante la evaluación del desempeño para aquellas personas servidoras que hayan cumplido con una calificación mínima de "muy bueno" o su equivalente numérico, según la escala definida. Para las evaluaciones con calificación de "bueno" o "insuficiente", la jefatura inmediata deberá señalar a la persona servidora municipal los motivos que las sustentan.
+d) Posterior a la evaluación del desempeño, según el plazo definido en el artículo 20 de este reglamento, en la primera quincena del mes de abril de cada año se reconocerá que la persona servidora municipal tiene derecho a una nueva anualidad en virtud de la calificación obtenida en la evaluación del desempeño, salvo que se hayan presentado los recursos administrativos que correspondan.
+e) Se pagará la nueva anualidad al mes siguiente posterior al cumplimiento del año adicional de antigüedad. En el caso de que la persona servidora municipal ingresará a laborar antes del mes de abril, al momento de evaluarse y darse el reconocimiento, deberá pagársele retroactivamente la nueva anualidad.
+f) El monto del incentivo atenderá a lo dispuesto por la Ley de Salarios de la Administración Pública.

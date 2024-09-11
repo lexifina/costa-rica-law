@@ -1,0 +1,1 @@
+Artículo 32.-Evaluación de metas con coordinación: En las metas de nivel 1 ejecutadas por varias áreas con asignación de una coordinación, la evaluación se dividirá según el nivel de participación de cada área. La coordinación recibirá entre el 10% y el 80% de la evaluación, dependiendo de sus responsabilidades, y el resto se dividirá entre los ejecutores de apoyo.

@@ -1,0 +1,1 @@
+Artículo 42.-Instrumentos de evaluación: Las áreas de Planificación y Recursos Humanos definirán los instrumentos y fórmulas para determinar las ponderaciones y calificaciones en la evaluación del desempeño.

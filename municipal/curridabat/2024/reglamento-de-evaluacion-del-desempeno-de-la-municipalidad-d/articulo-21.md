@@ -1,0 +1,2 @@
+Artículo 21.-La realimentación a la persona servidora municipal: La realimentación se realizará personalmente a todas las personas servidoras municipales durante las etapas de seguimiento y evaluación.
+En los casos en que la calificación sea igual o superior a "Bueno", se podrán dar recomendaciones de mejora, las cuales se enlazarán con el siguiente ciclo de evaluación. Si la calificación es igual o inferior a "Insuficiente", se procederá a elaborar un Plan de Seguimiento y Mejora del Desempeño.

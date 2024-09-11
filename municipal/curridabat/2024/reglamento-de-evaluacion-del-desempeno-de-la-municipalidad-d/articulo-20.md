@@ -1,0 +1,3 @@
+Artículo 20.-La evaluación del desempeño: Esta etapa tiene como propósito comparar los criterios de evaluación definidos con el grado de cumplimiento de los objetivos y metas planificados para cada persona servidora municipal.
+La evaluación será realizada por la jefatura inmediata a más tardar el último día de marzo de cada año, evaluando los resultados del año anterior (con un ciclo de evaluación del 1º de enero al 31 de diciembre de cada año).
+Cada jefatura será responsable de completar toda la información necesaria para la evaluación de su personal a cargo. El Departamento de Recursos Humanos será responsable de verificar que la evaluación del desempeño haya sido aplicada a todo el personal municipal.

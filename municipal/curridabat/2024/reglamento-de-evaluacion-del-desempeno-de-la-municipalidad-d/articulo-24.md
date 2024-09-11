@@ -1,0 +1,2 @@
+Artículo 24.-Componentes de la evaluación del desempeño: La evaluación del desempeño se compondrá en un 80% por el cumplimiento de metas y el 20% restante corresponderá a la valoración de las competencias individuales, y será aplicada por la jefatura.
+Los componentes de la evaluación del desempeño se ponderarán según la familia de puestos a la que pertenezca la persona servidora, con el objetivo de garantizar coherencia entre el grado de responsabilidad, el nivel de contribución al cumplimiento de los objetivos y metas institucionales, y sus funciones.

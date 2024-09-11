@@ -1,0 +1,1 @@
+Artículo 43.-Evaluación de las instancias evaluadoras: La Alcaldía Municipal evaluará el desempeño en el nivel 3 y las competencias de direcciones y jefaturas, así como las áreas de Planificación, Contraloría de Servicios y Recursos Humanos.

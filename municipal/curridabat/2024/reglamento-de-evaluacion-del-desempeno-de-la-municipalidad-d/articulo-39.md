@@ -1,0 +1,1 @@
+Artículo 39.-Aplicación de l a evaluación de competencias: La evaluación de competencias será responsabilidad del superior inmediato de cada persona servidora municipal. Las direcciones y jefaturas evaluarán el desempeño de su personal, mientras que la Alcaldía evaluará el de las direcciones y jefaturas.

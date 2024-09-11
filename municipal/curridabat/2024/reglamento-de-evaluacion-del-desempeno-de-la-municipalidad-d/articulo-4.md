@@ -1,0 +1,1 @@
+Artículo 4º-Objetivo de la evaluación del desempeño. La evaluación del desempeño tendrá como principal objetivo buscar la mejora continua de la gestión pública de la Institución y del desempeño y desarrollo integral de sus servidores y servidoras.

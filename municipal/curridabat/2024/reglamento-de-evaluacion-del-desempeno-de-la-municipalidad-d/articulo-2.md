@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Las disposiciones establecidas en este reglamento, serán de acatamiento obligatorio para todos los servidores y las servidoras de la Institución y para la Municipalidad en general.

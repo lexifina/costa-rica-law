@@ -1,0 +1,2 @@
+Artículo 17.-Etapas: La evaluación del desempeño se dividirá en las siguientes etapas: a) Planificación de la evaluación del desempeño. b) Seguimiento de la evaluación del desempeño. c) Evaluación del desempeño. d) Realimentación.
+La Municipalidad de Curridabat asegurará el acceso oportuno a toda la información relacionada con la evaluación del desempeño de la persona servidora municipal en cada una de estas etapas.
