@@ -1,0 +1,3 @@
+Artículo 10.-Derogaciones: El presente reglamento deroga en su totalidad cualquier Reglamento Interno para el pago de gastos de representación de esta corporación municipal, publicado con anterioridad.
+Vigencia.-El Presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Por unanimidad se acuerda: se Aprueba el Reglamento Interno de Gastos de Representación de la Municipalidad de Pococí. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese una única vez. Se dispensa del trámite de Comisión. Acuerdo Definitivamente Aprobado. Acta N° 53, Artículo IV, Acuerdo N° 1472 de la Sesión Ordinaria 53 del 13 de agosto de 2024.

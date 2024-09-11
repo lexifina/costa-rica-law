@@ -1,0 +1,1 @@
+Artículo 2º-Carácter oficial de la atención: La atención que se cubra mediante gastos de representación debe revestir carácter oficial, es decir, efectuarse dentro de un evento o actividad en la que el funcionario o funcionarios autorizados a incurrir en ese tipo de gastos participen en nombre o representación de la Municipalidad.
