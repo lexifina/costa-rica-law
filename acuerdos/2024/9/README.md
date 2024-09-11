@@ -14,3 +14,4 @@ Plan de manejo para el aprovechamiento de recurso camarón de Cultivo (Litopenae
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-01 | la propia norma |
+| 2 | 2024-09-11 | Aviso 0 (2024-09-11) |
