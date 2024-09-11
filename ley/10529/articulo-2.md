@@ -1,0 +1,2 @@
+Artículo 2: Modifícanse los artículos 2° y 6° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2024, Ley No. 10.427, publicada en el Alcance Digital No. 245 a La Gaceta No. 229 del 11 de diciembre de 2023, en la forma que se muestra a continuación:
+(Nota de Sinalevi: Por lo extenso de su contendido y tipo de formato consultar Alcance Digital N° 157 a La Gaceta N° 168 del 11 de setiembre de 2024)
