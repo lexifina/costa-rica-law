@@ -1,0 +1,1 @@
+Artículo 2º-En todo lo no regulado en los presentes lineamientos aplicará lo dispuesto en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, N° 8422 y su reglamento, y la Ley Orgánica de la Contraloría General de la República, N° 7428.
