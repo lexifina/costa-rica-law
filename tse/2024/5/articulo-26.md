@@ -1,0 +1,1 @@
+Artículo 26.-Transferencia de documentos. Los archivos de gestión, al menos una vez al año, deberán transferir sus documentos al AC, de acuerdo con las vigencias definidas por el CSED en las tablas de plazos de conservación de documentos de cada dependencia.

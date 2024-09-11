@@ -1,0 +1,1 @@
+Artículo 12.-Conservación de documentos. La conservación de los documentos que sean transferidos al AC se realizará de conformidad con los procedimientos internos y las regulaciones establecidas en la Ley del Sistema Nacional de Archivos N° 7202 y su reglamento ejecutivo.

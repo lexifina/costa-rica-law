@@ -1,0 +1,1 @@
+Artículo 10.-Remisión de documentos. El AC comunicará a las oficinas, las fechas en que podrán entregar las remisiones de documentos, las cuales deben cumplir con los requisitos que establezca el AC. Las remisiones que no cumplan con estos requisitos serán devueltas con la prevención correspondiente.

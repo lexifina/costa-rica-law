@@ -1,0 +1,1 @@
+Artículo 9º-Plazos de ingreso de documentos. Los plazos de ingreso de los documentos al AC estarán determinados por las vigencias que defina el CSED en las tablas de plazos de conservación de documentos, las solicitudes de valoración parcial de documentos y excepcionalmente según criterio de la jefatura del AC.

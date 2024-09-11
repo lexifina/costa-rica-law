@@ -1,0 +1,1 @@
+Artículo 29.-Medidas por afectación de documentos. En caso de que una persona usuaria (interna o externa) afecte de algún modo un documento facilitado para consulta o préstamo por parte del AC, se procederá con los procedimientos administrativos y denuncias judiciales que correspondan.

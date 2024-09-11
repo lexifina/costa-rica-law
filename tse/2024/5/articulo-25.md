@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Archivos de Gestión
+Artículo 25.-Funciones de los archivos de gestión. Son funciones de los archivos de gestión las siguientes: reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación gestionada por la unidad administrativa y que se encuentra en trámite, sometida a continua utilización y consulta por las mismas unidades u otras que la soliciten. Estas funciones se fundamentan en la ley N° 7202, su reglamento ejecutivo, las resoluciones de la CNSED, la normativa emitida por Junta Administrativa del Archivo Nacional adoptada por el TSE y las regulaciones emitidas por el AC.

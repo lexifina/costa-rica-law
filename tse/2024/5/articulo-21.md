@@ -1,0 +1,1 @@
+Artículo 21.-Entrega de trabajo realizado. Las personas usuarias externas que consulten documentos administrados por el AC para realizar investigaciones académicas deberán entregar a este Archivo, una copia del trabajo realizado.

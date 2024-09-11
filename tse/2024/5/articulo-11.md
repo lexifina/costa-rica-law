@@ -1,0 +1,1 @@
+Artículo 11.-Organización de documentos. El AC organizará los documentos que custodia de acuerdo con sus procedimientos internos, las regulaciones establecidas en la Ley del Sistema Nacional de Archivos N° 7202 y su reglamento ejecutivo.

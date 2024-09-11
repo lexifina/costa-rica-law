@@ -1,0 +1,1 @@
+Artículo 20.-Personas usuarias externas. Las personas usuarias externas interesadas en consultar documentos en custodia del AC deberán gestionarlo ante esta dependencia, de forma escrita, de manera presencial o vía electrónica según lo establecido en el procedimiento respectivo, indicando el objetivo de su consulta.
