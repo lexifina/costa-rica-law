@@ -43,3 +43,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 28 | 2022-03-07 | Reglamento 9244 (2022-03-07) |
 | 29 | 2022-05-05 | Reglamento 9257 (2022-05-05) |
 | 30 | 2022-09-01 | Reglamento 9275 (2022-09-01) |
+| 31 | 2024-09-12 | Reglamento 9478 (2024-09-12) |

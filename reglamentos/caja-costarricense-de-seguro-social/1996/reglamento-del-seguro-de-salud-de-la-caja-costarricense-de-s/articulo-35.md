@@ -1,2 +1,7 @@
-Artículo 35º. Del inicio del pago de subsidios.
-El pago de subsidio en dinero procede a partir del cuarto día de incapacidad. Si una incapacidad fuere extendida dentro de los treinta días posteriores a la precedente, el subsidio correspondiente a la nueva incapacidad se pagará desde el primer día. El cargo presupuestado por los pagos efectuados, corresponde al centro asistencial que extendió la incapacidad.
+Artículo 35. Del inicio del pago de subsidio, oportunidad de pago y requisitos cuando el trámite se realicé presencialmente o a través de un tercero. El pago del subsidio en dinero procede a partir del cuarto día de incapacidad. Si una incapacidad fuere extendida dentro de los treinta días posteriores a la precedente, el subsidio correspondiente a la nueva incapacidad se pagará desde el primer día. El cargo presupuestario por los pagos efectuados corresponde al centro asistencial que extendió la incapacidad.
+Todo subsidio, licencia o ayuda económica deberán ser cancelados por las unidades financieras de la CCSS en un plazo máximo de diez días hábiles, contados a partir del día siguiente hábil de la aprobación de la incapacidad o licencia por parte del establecimiento de salud, debiendo constar dicha aprobación en el sistema de Registro, control y pago de Incapacidades o en su defecto en el sistema que llegare a implementar la CCSS en su sustitución.
+En el caso de que el trámite se haga de forma personal, se deberá presentar el documento de identidad correspondiente. Asimismo, en caso de que el interesado no pueda apersonarse a gestionar el trámite, este puede realizarlo un tercero, portando los siguientes documentos:
+. Documento de identidad vigente según sea nacional o extranjero
+. Carta de autorización firmada por el interesado
+. Copia de documento de identidad del interesado
+(Así reformado en sesión N° 9478 del 12 de setiembre de 2024)
