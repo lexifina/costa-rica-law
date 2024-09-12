@@ -1,0 +1,3 @@
+Artículo 54.-Deber de verificación de insumos. El Área de Infocomunicaciones deberá verificar la existencia de inventarios de hardware propiedad de la Municipalidad asignados a cada persona teletrabajadora para el desempeño de sus funciones.
+Para ello, podrán realizar visitas a los lugares dispuestos para teletrabajar, lo cual se deberá comunicar con al menos 24 horas de antelación a la persona que teletrabaja; la falta de anuencia de quien teletrabaja a brindar acceso a estas visitas se tendrá como causal de culminación de la modalidad de teletrabajo, una vez que sea debidamente comprobada.
+En caso de identificar alguna anomalía en las visitas programadas, se comunicará al teletrabajador y a la jefatura inmediata, para que se tomen las medidas correspondientes.

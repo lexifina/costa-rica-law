@@ -1,0 +1,1 @@
+Artículo 17.-Signatarios del contrato. Los contratos que incluyan la modalidad de teletrabajo, deberán ser signados por el titular de la Alcaldía Municipal; en los casos de personas servidoras del Concejo Municipal, indefectiblemente se deberá contar con anuencia del Concejo Municipal.

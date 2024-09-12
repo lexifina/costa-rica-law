@@ -1,0 +1,1 @@
+Artículo 34.-Disponibilidad de la persona teletrabaja-dora. La persona servidora acogida a esta modalidad de trabajo debe estar disponible dentro de su horario laboral, para atender asuntos referidos a su labor, compañeros y usuarios de sus servicios, ya sea por medio del correo electrónico, teléfono u otro medio convenido de previo.

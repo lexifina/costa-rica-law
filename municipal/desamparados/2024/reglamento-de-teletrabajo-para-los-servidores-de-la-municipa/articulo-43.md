@@ -1,0 +1,2 @@
+Artículo 43.-Sobre las razones de conveniencia institucional. Las razones de conveniencia institucional deberán ser sustanciadas en criterio del superior inmediato de la persona teletrabajadora, así como del Área de Talento Humano y del Área de Salud Ocupacional.
+La decisión de reingresar a una persona teletrabajadora a la presencialidad, deberá serle comunicado, con un plazo de antelación de al menos 10 días naturales, pasado el cual deberá reintegrarse al centro de trabajo.

@@ -1,0 +1,1 @@
+Artículo 4°-Normativa supletoria y complementaria: Para la regulación del teletrabajo, el ente municipal tendrá en cuenta las cláusulas del contrato correspondiente, así como el presente reglamento; de manera supletoria y complementaria, se deberá considerar el reglamento emitido por el Poder Ejecutivo, así como la Ley para regular el teletrabajo.

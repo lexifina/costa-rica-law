@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Comisión de teletrabajo institucional
+Artículo 56.-Creación de la Comisión de Teletrabajo Institucional. La Municipalidad contará con una Comisión de Teletrabajo Institucional, conformada por la Alcaldía Municipal o quien ésta designe en su representación, las Áreas de tecnologías de las Infocomunicaciones, Talento Humano y el Área Jurídica, debiendo sesionar, al menos, una vez al mes.
+Este órgano colegiado será presidido por el titular de la Alcaldía Municipal o quien ésta designe, y nombrará de su seno a un secretario, quien llevará el libro de actas de conformidad con las disposiciones en materia de Control Interno. Esta comisión salvo lo expresamente regulado en este reglamento, se guiará con las reglas para su funcionamiento acorde a lo establecido en la Ley General de la Administración Pública.
