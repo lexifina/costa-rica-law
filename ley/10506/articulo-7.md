@@ -1,0 +1,5 @@
+ARTÍCULO 7- Iniciación de trámites de adopción por el Patronato Nacional de la Infancia
+Dictada la resolución a la que se refiere el artículo anterior, el Patronato Nacional de la Infancia (PANI) iniciará de inmediato los trámites de adopción ante el juzgado de familia correspondiente.
+También procederá el inicio del trámite de adopción, si integrantes de la familia extensa manifiestan expresamente su interés en adoptar y siempre que ya haya sido planteada la solicitud de acogimiento prenatal a la que se refiere esta ley.
+En ese caso, el Patronato Nacional de la Infancia dictará resolución administrativa de acogimiento prenatal, una vez practicada las entrevistas a las que se refiere el artículo 4 de esta ley, así como las valoraciones técnicas pertinentes.
+La manifestación de interés, por parte de integrantes de la familia extensa a la que se refiere este artículo, debe ser comunicada a la mujer solicitante, al progenitor, dígase cónyuge o conviviente de hecho si fuera el caso, por parte del PANI previo al inicio del trámite de adopción.

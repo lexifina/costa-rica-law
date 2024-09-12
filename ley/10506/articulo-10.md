@@ -1,0 +1,9 @@
+ARTÍCULO 10- Ampliación de las sanciones en casos de trata de personas y acogimiento prenatal
+Se reforma el primer párrafo y se adiciona un inciso g) al artículo 172 de la Ley 4573, Código Penal, de 4 de mayo de 1970. El texto es el siguiente:
+Artículo 172- Trata de personas. Será sancionado con pena de prisión de seis a diez años, quien mediante el uso de las tecnologías o cualquier otro medio, recurriendo a la amenaza, al uso de la fuerza u otras formas de coacción, al rapto, al fraude, al engaño, al abuso de poder, a una situación de vulnerabilidad, o a la concesión o recepción de pagos o beneficios para obtener el consentimiento de una persona que tenga autoridad sobre otra, promueva, facilite, favorezca o ejecute la captación, el traslado, el transporte, el alojamiento, el ocultamiento, la retención, la entrega o la recepción de una o más personas dentro o fuera del país, para someterlas a trabajos o servicios forzados y otras formas de explotación laboral, la servidumbre, la esclavitud o las prácticas análogas a la esclavitud, el matrimonio servil o forzado, la adopción irregular, la intermediación ilegal en procesos de acogimiento prenatal, la mendicidad forzada, el embarazo forzado y el aborto forzado, y la ejecución de cualquier forma de explotación sexual.
+La pena de prisión será de ocho a dieciséis años, si media, además, alguna de las siguientes circunstancias:
+( ... )
+g) El autor actué realizando intermediación en solicitudes de acogimiento prenatal. La intermediación consiste en cualquier acercamiento o acuerdo, sea que medie o no una retribución económica o promesa de retribución económica y que tenga como propósito o resultado que, el ser en gestación, sea colocado en acogimiento prenatal con una persona o pareja específica .
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de setiembre del año dos mil venticuatro.
+<span style='font-family:"Arial",sans-serif; </body>
