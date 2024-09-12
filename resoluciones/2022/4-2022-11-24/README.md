@@ -14,3 +14,4 @@ Reforma Establece normas de acatamiento obligatorio para las Instituciones que c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-21 | la propia norma |
+| 2 | 2024-09-12 | Resolución 1 (2024-09-12) |
