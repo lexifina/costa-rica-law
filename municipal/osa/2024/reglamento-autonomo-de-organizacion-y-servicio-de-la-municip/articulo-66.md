@@ -1,0 +1,1 @@
+Artículo 66: Se considerará un acto de discriminación, cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los solicitantes o cuando no se emplee a un trabajador idóneo por razones de su discapacidad.

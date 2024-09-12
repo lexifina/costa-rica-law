@@ -1,0 +1,2 @@
+Artículo 76: Cuando se presente un caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del servidor en vacaciones, podrá pedirse a este su regreso.
+Si está anuente, se interrumpirá el disfrute por todo el tiempo que sea necesario y, al término de la situación que la originó, continuará el servidor el disfrute de su derecho. Esto lo deberá informar por escrito el jefe inmediato al Departamento de Recursos Humanos, para el control correspondiente y con la debida motivación que justifique dicha acción.

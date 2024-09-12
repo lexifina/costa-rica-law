@@ -1,0 +1,1 @@
+Artículo 46. Quedan protegidos por el Código Municipal y son responsables de sus disposiciones todos los funcionarios municipales nombrados conforme al sistema de selección de dicha ley y remunerados por el presupuesto de la Municipalidad.

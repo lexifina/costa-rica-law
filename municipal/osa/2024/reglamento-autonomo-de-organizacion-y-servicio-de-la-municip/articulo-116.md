@@ -1,0 +1,1 @@
+Artículo 116.-En defecto de disposiciones propias de este Estatuto deberá tenerse como supletorias la Ley General de La Administración Pública, el Código Municipal y el Código de Trabajo, y demás leyes, decretos y reglamentos conexos en la materia, que estén en vigentes.

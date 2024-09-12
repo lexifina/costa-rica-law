@@ -1,0 +1,1 @@
+Artículo 40. Las reasignaciones entrarán en vigencia a partir de la aprobación del documento presupuestario por el Concejo Municipal y la Contraloría General de la Republica en presupuesto ordinario, en el cual se incluyó el movimiento respectivo.

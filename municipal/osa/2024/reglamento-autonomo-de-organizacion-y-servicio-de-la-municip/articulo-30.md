@@ -1,0 +1,1 @@
+Artículo 30: Son servidores municipales los nombrados de acuerdo con el artículo 134 del Código Municipal y que satisfacen los requisitos que establece el Manual Descriptivo de Puestos de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública, y lo estipulado en el artículo 127 y 128 del Código Municipal.

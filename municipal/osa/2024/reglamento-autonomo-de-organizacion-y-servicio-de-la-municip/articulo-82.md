@@ -1,0 +1,1 @@
+Artículo 82: En los casos que estén debidamente justificados y por presentarse alguna emergencia de tipo familiar, la jefatura del departamento estará facultada para otorgar el permiso con goce salarial correspondiente, siempre que no exceda de un día.

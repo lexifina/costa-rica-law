@@ -1,0 +1,1 @@
+Artículo 44. Los servidores municipales interinos y el personal de confianza no quedarán amparados por los derechos ni beneficios de la Carrera Administrativa Municipal, aunque desempeñen puestos comprendidos en ella.

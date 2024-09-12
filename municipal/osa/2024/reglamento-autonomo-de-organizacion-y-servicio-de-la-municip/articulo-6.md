@@ -1,0 +1,1 @@
+Artículo 6: Los jefes de departamento y todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el alcalde de velar por la correcta aplicación de todas las disposiciones de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 97: Para casos muy calificados no contemplados en este reglamento, quedará a juicio del responsable de la unidad administrativa, justificar las ausencias que no cuenten con comprobante médico, por un máximo de un día, dentro de un mismo mes calendario.

@@ -1,0 +1,1 @@
+Artículo 41. El mismo procedimiento anterior se aplicará para el caso de las reclasificaciones, con la salvedad que estas regirán a partir de la fecha en que sean aprobadas por la Alcaldía Municipal y previa aprobación del presupuesto ordinario por parte de la Contraloría General de la Republica.

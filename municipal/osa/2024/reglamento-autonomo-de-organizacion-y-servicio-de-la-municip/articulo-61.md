@@ -1,0 +1,2 @@
+Artículo 61. En la Municipalidad se establecerán las Comisiones de Salud Ocupacional que sean necesarias. Estas comisiones deberán estar integradas con igual número de representantes del Patrono y de los servidores y tendrán como finalidad específica, investigar las causas de los riesgos de trabajo, determinar las medidas para prevenirlos y vigilar para que, en el centro de trabajo, se cumplan las disposiciones de salud ocupacional.
+Operarán dentro de la jornada de trabajo sin perjuicio o menoscabo de ninguno de los derechos labores que correspondan al servidor.

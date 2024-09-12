@@ -1,0 +1,1 @@
+Artículo 42. La institución debe mantener actualizado el Manual descriptivo de Puestos. Por lo menos cada dos años, el Departamento de Recursos Humanos debe efectuar un estudio integral de los puestos y así actualizar el Manual descriptivo de Puestos.

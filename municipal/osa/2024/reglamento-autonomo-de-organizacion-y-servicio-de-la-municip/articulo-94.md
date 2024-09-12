@@ -1,0 +1,2 @@
+Artículo 94: La llegada tardía injustificada que exceda de diez minutos, contados a partir de la hora de ingreso establecida, pero no supere los treinta minutos, se tomara como ausencia injustificada de media jornada. Si la llegada tardía excede de los treinta minutos se tomará como ausencia injustificada de la jornada completa.
+Las llegadas tardías para efectos de su sanción se computarán el día hábil siguiente al día último del mes calendario que comprende el período respectivo.

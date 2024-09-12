@@ -1,0 +1,1 @@
+Artículo 25: Para efectos de protectores y refrescadores de pantalla, podrán utilizarse únicamente los definidos por la Municipalidad y conforme lo estable la directriz Nª.30 de El presidente de la República, el Ministro de Gobernación y Policía y la Ministra de la Condición de la Mujer, publicada el día 22 de agosto del 2001, así como las reformas que se realicen en la misma.

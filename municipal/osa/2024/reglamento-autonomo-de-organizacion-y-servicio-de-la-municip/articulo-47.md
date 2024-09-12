@@ -1,0 +1,1 @@
+Artículo 47. El Manual Descriptivo de Puestos General es responsabilidad de la Unión de Gobiernos Locales, quienes adecuarán el Manual descriptivo integral para el régimen municipal, para la organización y funcionamiento de los puestos municipales, los cuales no podrán crear plazas sin que estén incluidas, en dichos manuales, los perfiles ocupacionales correspondientes.

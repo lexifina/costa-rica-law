@@ -1,0 +1,2 @@
+Artículo 107: Tanto la amonestación verbal como la amonestación escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como jefe inmediato del funcionario, previo cumplimiento del debido proceso.
+Las sanciones de suspensión sin goce de salario o despido, por inasistencia al trabajo corresponderá aplicarlas al alcalde, previo informe del Departamento de Recursos Humanos y el debido proceso.
