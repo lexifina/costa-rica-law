@@ -1,0 +1,2 @@
+Artículo 11.-Revocación. El Concejo Municipal de Cartago podrá revocar la declaratoria en caso de que se compruebe que las actividades, eventos, proyectos o productos declarados de interés cultural, incumplen lo dispuesto en el presente reglamento, sea por falsedad de la documentación y justificaciones presentadas durante el trámite de la solicitud o por incumplimiento sobreviniente.
+Rige a partir de la publicación en el Diario Oficial La Gaceta, de acuerdo con lo dispuesto en el artículo 43 del Código Municipal.

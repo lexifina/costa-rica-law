@@ -1,0 +1,2 @@
+Artículo 9°-Propiedad intelectual. Corre bajo exclusiva responsabilidad del solicitante obtener las autorizaciones correspondientes para el uso de material protegido por Propiedad Intelectual, así como cubrir su pago, cuando corresponda, en caso que su actividad, evento, proyecto o producto requiera materiales elaborados por terceras personas.
+El Área de Cultura y Comunicación solicitará los documentos de autorización o recibos que acrediten el cumplimiento de esta obligación.
