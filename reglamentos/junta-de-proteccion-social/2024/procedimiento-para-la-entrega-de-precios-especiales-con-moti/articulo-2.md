@@ -1,0 +1,9 @@
+Artículo 2º-Definiciones
+Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Junta: Junta de Protección Social.
+Premios especiales: Consisten en premios en dinero.
+Participantes: Toda persona física mayor de 18 años, nacional o extranjera, que escanee al menos 5 fracciones de un mismo sorteo de Lotería Nacional o Lotería Popular de noviembre de 2024, con lo cual podrá acceder a jugar Dadomanía y así obtener un puntaje de participación para el sorteo, dicha mecánica promocional se encontrará en la App JPS a su Alcance.
+Dadomanía: Es un juego digital que se encuentra en el App JPS a su Alcance y consiste en lanzar un dado de 6 dígitos (1 al 6), el puntaje obtenido en cada tiro irá sumando a un marcador total, el objetivo del juego es intentar completar el puntaje 21 para participar en el sorteo del Premio Mayor u otro puntaje del 17 al 20 para participar por otros premios.
+Sorteo: Proceso de selección al azar que determina la combinación ganadora de un premio, realizado y fiscalizado de acuerdo con lo establecido en el Reglamento a la Ley de Loterías, en el Reglamento interno para regular las actividades relacionadas con la realización y la asistencia a la celebración de los sorteos de lotería y a la recepción de excedentes de loterías, así como cualquier otra normativa que se emita al efecto.
+Tómbola electrónica: Tómbola generada con las activaciones que realizan los participantes a través de la App JPS A SU ALCANCE. Los ganadores se determinan de manera aleatoria a través de un sistema informático.
+Vendedor Autorizado de la Junta de Protección Social: son los que se encuentren activos en los sistemas institucionales. (Estado activo, es el estado que indica que un vendedor puede retirar las loterías).
