@@ -1,0 +1,9 @@
+Artículo 5°-Mecánicas de los Sorteos. Se realizarán en total 8 sorteos, entre todos los participantes mayores de 18 años, nacionales o extranjeros, que activen al menos 2 fracciones del Sorteo Extraordinario de Navidad N° 4829, hasta un máximo por participante de 200 fracciones para cada sorteo de la promoción. Estos sorteos se realizarán los viernes, siendo el primer sorteo el viernes 11 de octubre del 2024 y el último, el viernes 29 de noviembre del 2024; todos los sorteos se efectuarán a través de una tómbola electrónica.
+En el siguiente cuadro el participante podrá observar las fechas de corte de activación y de los sorteos de enteros de lotería del Sorteo Extraordinario de Navidad N°4829, que se otorgarán en cada sorteo de esta promoción:
+[imagen]
+(Corregido el cuadro anterior mediante Fe de Erratas y publicado en La Gaceta N° 174 del 19 de setiembre de 2024)
+Se aclara que, la persona favorecida no podrá escoger la serie y número al momento de reclamar el premio.
+Una misma persona no podrá salir favorecida más de una vez en cada sorteo de esta promoción. Es decir, una misma persona solo podrá obtener un premio en cada sorteo de la promoción.
+Si es permitido que, una persona que resulte ganadora en un sorteo de la promoción, pueda salir favorecida en el siguiente sorteo de esta promoción.
+Se aclara que, para participar en cada uno de los sorteos de esta promoción los participantes deben realizar activaciones nuevas; por ejemplo, las fracciones que haya activado para el primer sorteo de esta promoción no podrán activarse para el segundo sorteo de esta promoción y así sucesivamente para cada uno de los sorteos de esta promoción.
+Los ganadores de este sorteo se darán a conocer en el sitio oficial de la Junta de Protección Social en la red social de Facebook "Junta de Protección Social (oficial)".
