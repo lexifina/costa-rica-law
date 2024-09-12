@@ -1,0 +1,1 @@
+Artículo 11.-Frecuencia de revisión y actualización. La revisión y actualización del reglamento del Comité Gerencial de Informática se llevará a cabo siempre y cuando exista una solicitud por parte de la Dirección Ejecutiva o algún otro miembro del Comité que identifique cambios normativos que modifiquen las disposiciones establecidas en el presente reglamento.

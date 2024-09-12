@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Las disposiciones del presente reglamento serán aplicables a las personas integrantes del Comité Gerencial de Informática del Consejo de Seguridad Vial de acuerdo con las respectivas funciones asignadas dentro del mismo, así como a los procesos estratégicos relacionados con Tecnologías de Información.
