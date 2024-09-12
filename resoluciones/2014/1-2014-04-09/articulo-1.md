@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DEL ARCHIVO NACIONAL
+(Esta norma fue derogada mediante resolución N° CNSED-01-2024 del 12 de setiembre del 2024 "Emite norma sobre valoración documental, cuyo cumplimiento resulta obligatorio para todas las instituciones regidas por el artículo 53 de la Ley 7202")
 COMISIÓN NACIONAL DE SELECCIÓN Y
 ELIMINACIÓN DE DOCUMENTOS
 Resolución CNSED-01-2014.-Comisión Nacional de Selección y Eliminación de Documentos.-San José a las nueve horas del nueve de abril del dos mil catorce.
