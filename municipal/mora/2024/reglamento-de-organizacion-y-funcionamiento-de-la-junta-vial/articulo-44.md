@@ -1,0 +1,1 @@
+Artículo 44.-Una vez que hayan sido identificadas, la alcaldía municipal deberá confeccionar la convocatoria para que participen en la asamblea de elección del representante propietario y suplente ante la junta vial cantonal.

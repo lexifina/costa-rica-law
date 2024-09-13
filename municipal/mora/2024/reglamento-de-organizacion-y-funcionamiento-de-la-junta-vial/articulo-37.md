@@ -1,0 +1,1 @@
+Artículo 37.-Una vez que hayan sido identificados, el secretario municipal deberá confeccionar la convocatoria para que participen en la asamblea de elección del representante propietario y suplente ante la junta vial cantonal.

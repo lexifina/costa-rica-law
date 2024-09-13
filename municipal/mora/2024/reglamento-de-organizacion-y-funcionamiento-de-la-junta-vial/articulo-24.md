@@ -1,0 +1,1 @@
+Artículo 24.-Las sesiones serán privadas, permitiéndose la asistencia de asesores(as) para prestar asistencia o para algún requerimiento en particular. No obstante, lo anterior, por unanimidad de los miembros presentes, se puede acordar la presencia de público en general o de personas determinadas.

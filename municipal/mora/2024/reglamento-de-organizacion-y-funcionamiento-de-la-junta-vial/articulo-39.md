@@ -1,0 +1,1 @@
+Artículo 39.-La convocatoria deberá ser comunicada de forma personal al presidente del concejo de distrito, por medio de los notificadores municipales, la policía municipal o la Fuerza Pública, los cuales deberán levantar un acta para tales efectos. En caso de que no sea posible encontrar al presidente, se podrán notificar la convocatoria con el vicepresidente.
