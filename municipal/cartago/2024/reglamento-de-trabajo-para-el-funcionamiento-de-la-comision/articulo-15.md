@@ -1,0 +1,1 @@
+Artículo 15.—Sesiones. La Comisión se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario. La persona a cargo de la coordinación es quien convocará a los miembros de la Comisión tanto a las reuniones ordinarias como las extraordinarias.
