@@ -1,0 +1,1 @@
+Artículo 36.-De los recursos contra lo resuelto por la persona titular. Contra lo resuelto por el Alcalde o Alcaldesa, sobre sanciones disciplinarias, procederán los recursos dispuestos por el Código Municipal.

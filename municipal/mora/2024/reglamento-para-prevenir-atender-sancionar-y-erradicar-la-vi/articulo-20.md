@@ -1,0 +1,1 @@
+Articulo 20.-Apertura de órgano director. En el caso de que, en la investigación se recomienda la apertura de órgano, este deberá contratarse, por lo que, la administración municipal deberá contar con la previsión presupuestaria para este insumo.
