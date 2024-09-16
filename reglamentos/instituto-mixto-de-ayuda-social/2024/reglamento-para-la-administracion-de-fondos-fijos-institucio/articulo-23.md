@@ -1,0 +1,7 @@
+Capítulo Cuarto
+Del uso y administración de los fondos fijos para viáticos y transporte
+Artículo 23. De los adelantos de viáticos y gastos de transporte. Se podrá reconocer el pago de viáticos y transporte a todas las personas funcionarias de IMAS y personas trabajadoras de Empresas Comerciales, que lo requieran para el cumplimiento de sus deberes y funciones, según los siguientes lineamientos:
+a. Desplazamiento dentro o fuera del cantón: procederá el pago de viáticos cuando se cumplan las siguientes condiciones:
+A las personas funcionarias de IMAS y personas trabajadoras de Empresas Comerciales, que requieran desplazarse dentro del mismo cantón o a un cantón diferente donde se ubica su sede de trabajo o su domicilio, para atender asuntos propios de su cargo, cuando la distancia sea superior a los diez kilómetros establecidos en la limitación territorial contenida en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos o normativa equivalente.
+Para los casos anteriores si la distancia es inferior a los 10 kilómetros, se le reconocerán únicamente los gastos de transporte.
+b. Para atender situaciones de emergencia: cuando las personas funcionarias de IMAS y personas trabajadoras de Empresas Comerciales requieran desplazarse al lugar de la emergencia y permanezcan por al menos cuatro horas continuas. Se deberá adjuntar al adelanto, una justificación del motivo de la atención de la emergencia, firmada digitalmente por la Persona Titular Subordinada.

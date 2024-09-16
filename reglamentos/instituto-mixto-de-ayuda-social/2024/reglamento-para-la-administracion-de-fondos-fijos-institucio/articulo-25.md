@@ -1,0 +1,11 @@
+Artículo 25. Requisitos de las solicitudes de adelantos de gastos de viaje y transporte.
+Los adelantos para el reconocimiento de viáticos y gastos de transporte deben cumplir con los siguientes requisitos:
+a. Adelanto de solicitud de gastos de viaje y transporte del sistema informático respectivo, con la autorización mediante firma digital de la Persona Titular Subordinada.
+b. Documento de Programación de la gira con la justificación de esta firmada por la Persona Titular Subordinada.
+c. Justificación expresa en caso de que la gira incluya días feriados, sábados y domingos firmada por la Persona Titular Subordinada.
+d. Indicar el uso de transporte a ser utilizado (transporte fluvial, marítimo, aéreo y terrestre). Cuando no exista servicio de transporte público remunerado en las modalidades de autobús, ferrocarril o taxi, se podrá hacer uso de semovientes, pangas u otro medio similar, para lo cual también se autoriza el pago de la tarifa que establezcan las personas encargadas de dichos medios de transporte, la cual deberá entregar un documento probatorio del gasto. Las personas funcionarias deberán reflejar fehacientemente el costo del servicio, que será requerido para el reconocimiento del gasto y liquidación respectiva. El pago de los servicios de transporte público se hará de acuerdo con la tarifa autorizada por la ARESEP.
+e. En el caso de transporte aéreo la justificación debe corresponder con lo establecido en el artículo N°25 del presente reglamento.
+f. La solicitud de reconocimiento de gastos de viaje deberá ser elaborada por la suma total estimada de acuerdo con la programación de la gira, hasta por el monto máximo autorizado, definido por la Administración.
+g. Indicar si se requiere el servicio de estacionamiento y parqueo que será únicamente para los vehículos propiedad del IMAS.
+h. Si se prevé un mayor gasto al monto máximo autorizado, podrá solicitar el adelanto por medio del formulario de Solicitud de Orden de Pago por un monto superior, adjuntando una justificación expresa del monto a excederse y la programación de la gira, debidamente autorizada y firmada digitalmente por la Persona Titular Subordinada.
+i. Correo electrónico con la asignación de contenido presupuestario para los adelantos a Nivel Central y Empresas Comerciales.

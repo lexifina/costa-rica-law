@@ -1,0 +1,5 @@
+Artículo 15. Deberes u obligaciones de la Dirección de Soporte Administrativo. Son deberes u obligaciones de la Dirección de Soporte Administrativo, los siguientes:
+a. Autorizar los tipos de fondos fijos que se pueden utilizar en la Institución, los montos límites asignados a cada fondo fijo, así como el medio de giro a utilizar, según lo recomendado por el Departamento de Administración Financiera, la cuál debe ser realizada a más tardar en el mes de abril de cada año.
+b. Trasladar a la Gerencia General los informes de hallazgos emitidos por el Departamento de Administración Financiera o por otra instancia administrativa que administre fondos fijos para el debido proceso, cuando así se requiera.
+c. Emitir la lista de bienes y servicios que, previo a su adquisición, requieren de autorizaciones técnicas de las Unidades respectivas a más tardar en el mes de abril de cada año.
+d. Autorizar, mediante Resolución Administrativa los gastos por medio de caja chica en los casos cuando el monto sea superior a los autorizados, pero inferior al monto máximo permitido por el inciso g) del artículo 3 de la Ley General de Contratación Pública N°9986.
