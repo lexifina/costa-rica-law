@@ -1,0 +1,1 @@
+6º-Derogar el artículo 6 del Acuerdo Sugeval 6-06, Reglamento sobre el Sistema de Anotación en Cuenta, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 10 del Acta de la Sesión 606- 2006, celebrada el 28 de septiembre del 2006.
