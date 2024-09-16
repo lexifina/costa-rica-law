@@ -1,1 +1,0 @@
-Artículo 32.—Queda prohibido ejercer alguna profesión liberal fuera del cargo, salvo en asuntos estrictamente personales, en los del cónyuge, ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado y actividades docentes, siempre fuera de la jornada laboral.

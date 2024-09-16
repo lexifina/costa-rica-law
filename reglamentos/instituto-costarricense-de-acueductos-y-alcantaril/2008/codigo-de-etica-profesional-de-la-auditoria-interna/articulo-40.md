@@ -1,1 +1,0 @@
-Artículo 40.—Los funcionarios de la Auditoría Interna, no deben desempeñar simultáneamente dos cargos públicos al tenor de lo dispuesto en el artículo Nº 17 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito Nº 8422.

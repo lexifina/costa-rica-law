@@ -1,1 +1,0 @@
-Artículo 22.—Los funcionarios no darán ni recibirán obsequios, descuentos, invitaciones o dinero en efectivo, a cambio de un acto propio de sus funciones o a cambio de un acto contrario a sus funciones.

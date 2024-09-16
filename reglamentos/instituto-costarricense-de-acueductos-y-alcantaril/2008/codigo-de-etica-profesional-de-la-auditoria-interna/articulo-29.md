@@ -1,1 +1,0 @@
-Artículo 29.—Los funcionarios no pueden tratar a personas externas a la Auditoría Interna en forma indiferente o poco respetuosa, de manera que pueda dar lugar a que se sienta maltratado o que no se dio la debida atención.

@@ -1,1 +1,0 @@
-Artículo 39.—Los funcionarios no deben percibir compensaciones salariales distintas de las reguladas en el servicio público, otorgadas por el cumplimiento de su deber como funcionarios públicos dentro o fuera del país.

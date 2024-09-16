@@ -1,1 +1,0 @@
-Artículo 15.—Probidad. La función pública debe ejercerse con prudencia, integridad, honestidad, decencia seriedad, moralidad, ecuanimidad y rectitud. El funcionario de auditoría debe actuar con honradez, tanto en el ejercicio de su cargo como en el uso de los recursos públicos que le son confiados en razón de su función. Debe repudiar toda forma de corrupción.

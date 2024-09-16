@@ -1,1 +1,0 @@
-Artículo 37.—Queda totalmente prohibido comercializar bienes dentro del Instituto, tanto en horas laborales como fuera de estas, así como utilizar el tiempo laboral para realizar dichas actividades fuera de las Instalaciones de AyA.

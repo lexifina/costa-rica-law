@@ -1,1 +1,0 @@
-Artículo 30.—Incurrirá en falta grave aquel funcionario de la Auditoría Interna que se aproveche de sus poderes y facultades de acceso a la información de las diferentes dependencias del Instituto, para realizar o facilitar transacciones indebidas que puedan ocasionar irregularidades.

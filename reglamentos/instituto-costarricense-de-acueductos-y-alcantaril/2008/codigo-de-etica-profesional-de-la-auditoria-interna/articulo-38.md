@@ -1,1 +1,0 @@
-Artículo 38.—Queda prohibido a los funcionarios de la Auditoría Interna, utilizar vestimenta de mezclilla, camisetas, zapatos deportivos, u otra vestimenta informal, como forma de presentación personal, dentro de su tiempo laboral.

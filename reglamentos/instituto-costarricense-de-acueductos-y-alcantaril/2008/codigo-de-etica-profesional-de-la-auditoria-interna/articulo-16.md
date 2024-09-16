@@ -1,1 +1,0 @@
-Artículo 16.—Debido cuidado profesional. Al realizar sus actividades, los funcionarios de esta Unidad deben ejecutarlas con la debida diligencia, guardando el cuidado, la pericia y el buen juicio profesional, todo en total apego con la normativa legal y técnica aplicable, y bajo los procedimientos e instrucciones pertinentes.

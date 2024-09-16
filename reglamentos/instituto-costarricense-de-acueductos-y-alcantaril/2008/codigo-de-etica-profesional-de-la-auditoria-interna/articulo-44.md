@@ -1,3 +1,0 @@
-Artículo 44.—Todo aquel funcionario de esta Auditoría que incumpla con el presente Código de Ética estará sometido a una llamada de atención por parte del Jerarca de esta Auditoría, sin perjuicio de la aplicación de otras medidas disciplinarias establecidas en el Reglamento Autónomo de Personal del Instituto Costarricense de Acueductos y Alcantarillados, el Código de Trabajo y cualquier otra legislación conexa. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese. Comuníquese.
-Acuerdo firme.
-Acuerdo Nº 2008-342, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados en el inciso a), del artículo 4, de la sesión ordinaria Nº 2008-045, celebrada el 15/07/2008.

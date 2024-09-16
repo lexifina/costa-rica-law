@@ -1,1 +1,0 @@
-Artículo 35.—Está totalmente prohibido revelar información sobre las auditorías o los estudios especiales de auditoría que se esté realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los entes y órganos sujetos a la Ley General de Control Interno.

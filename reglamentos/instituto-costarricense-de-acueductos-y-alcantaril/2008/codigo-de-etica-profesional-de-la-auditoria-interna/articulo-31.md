@@ -1,1 +1,0 @@
-Artículo 31.—Queda prohibido a los funcionarios utilizar en el equipo de cómputo destinado para sus labores, programas no autorizados por la institución o que no cuenten con la licencia respectiva de uso; salvo que exista autorización expresa para esto.

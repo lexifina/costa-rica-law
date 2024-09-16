@@ -1,1 +1,0 @@
-Artículo 24.—Los funcionarios no utilizarán las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, la metodología, los sistemas de cómputo, los datos o los servicios del Instituto, en negocios o asuntos personales.

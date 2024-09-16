@@ -1,1 +1,0 @@
-Artículo 23.—Los funcionarios de esta Unidad no se aprovecharán de su posición, ni utilizarán influencias personales en favor propio o de persona alguna, física o jurídica, en la adquisición de bienes o servicios, así como hacer negocios sobre la base de vínculos familiares o intereses personales.
