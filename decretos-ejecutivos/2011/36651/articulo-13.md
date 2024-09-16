@@ -1,4 +1,4 @@
-Artículo 13.—Conservación de la documentación. Tanto la documentación de respaldo del origen de las mercancías, la información contenida en el cuestionario de origen, la que conste en el certificado de origen o en la declaración de origen, la que conste en los Certificados de Exportación de Banano o de Productos Textiles y de Confección a la Unión Europea o a Reino Unido, así como todos los registros contables y documentos relativos al origen de la mercancía, deberá conservarlos el exportador de conformidad con los siguientes casos:
+Artículo 13.-Conservación de la documentación. Tanto la documentación de respaldo del origen de las mercancías, la información contenida en el cuestionario de origen, la que conste en el certificado de origen o en la declaración de origen, la que conste en los Certificados de Exportación de Banano o de Productos Textiles y de Confección a la Unión Europea o a Reino Unido, así como todos los registros contables y documentos relativos al origen de la mercancía, deberá conservarlos el exportador de conformidad con los siguientes casos:
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 42298 del 21 de enero del 2020)
 a) En el caso del Tratado de Libre Comercio entre Costa Rica y la Comunidad del Caribe, por un plazo de 5 años.
 b) En el caso del Acuerdo de Alcance Parcial Costa Rica- Venezuela, por un plazo de 4 años.
@@ -8,6 +8,8 @@ e) En el caso del Tratado de Libre Comercio entre la República de Costa Rica y 
 f) En el caso del Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro, por un plazo de 3 años
 g) En el caso del Acuerdo por el que se establece una Asociación entre el Reino Unido de Gran Bretaña e Irlanda del Norte y Centroamérica, por un plazo de 3 años.
 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 42298 del 21 de enero del 2020)
+h) En el caso del Acuerdo de Asociación Comercial entre el Gobierno de la República de Costa Rica y el Gobierno de la República del Ecuador, por un plazo de 5 años.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44760 del 16 de setiembre del 2024)
 El plazo anterior se contará a partir de la fecha en que se suscribe el cuestionario o se emite el certificado de origen.
 Dichos registros y documentos deberán incluir información referente a:
 1) La adquisición, los costos, el valor y el pago de la mercancía que se exporte.
