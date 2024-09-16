@@ -9,22 +9,19 @@ Cuando en estos casos no exista precio de compra o valor de contrato, el valor c
 (*) (Así reformado el inciso anterior por el artículo único de la ley N° 10390 del 2 de octubre del 2023, "Modificación al impuesto sobre la propiedad de vehículos automotores, embarcaciones y aeronaves")
 c) Contribuyentes. Son contribuyentes de este tributo las personas físicas o jurídicas, públicas o privadas, de hecho o de derecho, que sean propietarias de un vehículo de los citados en el inciso a).
 ch) No están sujetos a este impuesto:
-(Así reformado este encabezado por el artículo 31 de la Ley 7293 de 31 de marzo de 1992 )
+(Así reformado este encabezado por el artículo 31 de la Ley 7293 de 31 de marzo de 1992)
 1) Los Estados Extranjeros que los destinen para el uso exclusivo de sus embajadas y consulados acreditados en el país con las limitaciones que se generen de la aplicación, en cada caso, del principio de reciprocidad sobre los beneficios fiscales.
-(Así reformado este numeral 1º por el artículo 31 de la Ley Nº 7293 de 31 de marzo de 1992 )
+(Así reformado este numeral 1º por el artículo 31 de la Ley Nº 7293 de 31 de marzo de 1992)
 2) Los organismos internacionales que los destinen exclusivamente para sus funciones.
 3) El Gobierno Central y la Municipalidades.
 También estarán exentos los siguientes vehículos:
 4) Las ambulancias y unidades de rescate de la Cruz Roja Costarricense, del Sistema Hospitalario Nacional, de los Asilos de Ancianos y del Instituto Nacional de Seguros, así como las máquinas para extinguir incendios.
 (NOTA: La ley Nº 7396 de 3 de mayo de 1994 exonera de los impuestos establecidos en el presente artículo a los tractores de llantas de caucho, los tractores de oruga, los cargadores de caña, las cosechadoras de granos y cualquier otro tipo de maquinaria agrícola con propulsión propia)
 5) Las bicicletas.
-6) DEROGADO.-
-( DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992
-7) DEROGADO.-
-( DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992 )
-8) DEROGADO.-
-( DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992 )
-(*)d) Devengo del impuesto, periodo fiscal y pagos parciales. El devengo del impuesto se dará en los siguientes momentos:
+6) (DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992
+7) (DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992 )
+8) (DEROGADO por el artículo 31 de la ley 7293 de 31 de marzo de 1992 )
+(*) d) Devengo del impuesto, periodo fiscal y pagos parciales. El devengo del impuesto se dará en los siguientes momentos:
 i. Inicialmente, al momento de la inscripción del bien en los registros oficiales.
 ii. Posterior a ello, al 30 de setiembre del año calendario previo al periodo fiscal.
 El periodo fiscal de este impuesto será del 1 de enero al 31 de diciembre de cada año natural.
@@ -32,10 +29,10 @@ El impuesto deberá cancelarse de forma anual y será exigible en el periodo del
 Alternativamente, el impuesto podrá cancelarse mediante la realización de tres pagos parciales anticipados a la fecha en que sea exigible el pago del impuesto del periodo fiscal en cuestión.
 Los pagos parciales anticipados del impuesto podrán realizarse de conformidad con los siguientes plazos: el primer pago parcial se efectuará desde el primer día hábil hasta el último día hábil del mes de marzo; el segundo pago parcial se efectuará desde el primer día hábil hasta el último día hábil del mes de junio y el tercer pago parcial se efectuará desde el primer día hábil hasta el último día hábil del mes de setiembre; de forma tal que, para la fecha de exigibilidad del pago del impuesto del periodo respectivo, este haya sido pagado por adelantado en su totalidad.
 Para efectos de la realización de los pagos parciales anticipados correspondientes a este impuesto, el Ministerio de Hacienda deberá habilitar los medios electrónicos o digitales necesarios, dentro de los que se incluye la Administración Tributaria Virtual (A TV), la página oficial del Ministerio de Hacienda, o los que sean de más fácil acceso y uso para el contribuyente, para que este realice los pagos parciales anticipados del impuesto a la propiedad de vehículos automotores, aeronaves o embarcaciones de recreo o pesca deportiva, cada año de previo a la fecha de nacimiento de la obligación.
-(*) (Así reformado el inciso anterior por el artículo único de la ley N° 10390 del 2 de octubre del 2023, "Modificación al impuesto sobre la propiedad de vehículos automotores, embarcaciones y aeronaves")
+(*) (Así reformado el inciso d) anterior por el artículo único de la ley N° 10390 del 2 de octubre del 2023, "Modificación al impuesto sobre la propiedad de vehículos automotores, embarcaciones y aeronaves")
 e) Comprobación del pago del impuesto para la inscripción. El Registro de la Propiedad de Vehículos, el Registro de Aviación Civil o la Dirección General de Transporte Marítimo, no dará curso al traspaso de vehículos, aeronaves o embarcaciones, si el solicitante no está al día en el pago de este impuesto.
 Para cumplir con lo anteriormente dispuesto, el contribuyente deberá presentar ante el registro respectivo, el comprobante de pago del impuesto, referido al período fiscal correspondiente, tal como se establezca en el reglamento.
-(*)f) Cálculo del impuesto.
+(*) f) Cálculo del impuesto.
 Las tarifas establecidas son progresivas. El impuesto sobre la propiedad de vehículos automotores, aeronaves o embarcaciones de recreo o pesca deportiva y motocicletas se calculará tomando la base imponible que le corresponde a cada vehículo, según lo establecido en el inciso b) de este artículo, a la que se le deberá aplicar la depreciación correspondiente.
 Para efectos de la depreciación, la vida útil aplicable a los vehículos automotores, aeronaves o embarcaciones de recreo o pesca deportiva será de quince años. De forma anual, le será aplicable al valor inicial del vehículo automotor, aeronave o embarcación, según su año, modelo, el siguiente factor de depreciación anual y acumulada:
 [imagen]
@@ -48,11 +45,13 @@ A los vehículos usados de primer ingreso no se les aplicarán deducciones por c
 Las tarifas aplicables serán las siguientes:
 Para vehículos automotores, embarcaciones y aeronaves:
 [imagen]
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 44658 del 16 de setiembre de 2024)
 Para motocicletas:
 [imagen]
-[imagen]
+(Así reformado el cuadro anterior por el artículo 2° del decreto ejecutivo N° 44658 del 16 de setiembre de 2024)
 De forma anual, el Poder Ejecutivo deberá indexar, por medio de decreto ejecutivo, los valores en los tramos supraestablecidos sobre los cuales aplican las escalas de tipos impositivos. La indexación aplicable será la que resulte de la variación interanual del promedio anual del Índice de Precios al Consumidor (IPC), definido por el Instituto Nacional de Estadística y Censos (INEC). La indexación será aplicable únicamente a los valores en los tramos sobre los cuales aplican las escalas de tipos impositivos, los cuales deberán estar a disposición del contribuyente un mes antes de la entrada en vigencia del cobro del impuesto.
-Para los vehículos que sean utilizados como taxis, autobuses y vehículos de carga pesada, el impuesto corresponderá al monto equivalente a dos por ciento (2%) de un salario base, definido de conformidad con el artículo 2º de la Ley 7337, de 5 de mayo de 1993.
+(*)Para los vehículos que sean utilizados como taxis, autobuses y vehículos de carga pesada, el impuesto corresponderá al monto equivalente a dos por ciento (2%) de un salario base, definido de conformidad con el artículo 2º de la Ley 7337, de 5 de mayo de 1993.
+(*) (Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 44658 del 16 de setiembre de 2024, se actualizará el monto del impuesto para los vehículos que sean utilizados como taxis, autobuses y vehículos de carga pesada, según lo establecido en la Ley número 7088 de 30 de noviembre de 1987 y sus reformas, articulo número 9 inciso f), a la suma ¢9.200,00 (nueve mil doscientos colones exactos), monto equivalente a un dos por ciento (2%) de un salario base, definido de conformidad con el Artículo 2° de la Ley 7337, de 05 de mayo de 1993.)
 Para incentivar la renovación de la flota vehicular y tomando en consideración las consecuencias positivas para el ambiente y para la red vial, al resultado del cálculo del impuesto le será aplicable una deducción de acuerdo con:
 i. El peso del vehículo, por lo que le será aplicable una deducción a automóviles. Para estos efectos, se considerarán automóviles los vehículos automotores que se apeguen a las características definidas en el artículo 2, inciso 8), de la Ley 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012.
 ii. Las emisiones contaminantes, según la antigüedad del automóvil de acuerdo con su año de fabricación y modelo.
@@ -80,8 +79,7 @@ Cuando no exista información sobre el valor de un determinado vehículo automot
 Las tarifas porcentuales establecidas para los fines de este impuesto no podrán ser modificadas ni ajustadas como resultado de la inflación. Con respecto a los valores de los tramos, estos serán modificados según lo establecido en este inciso con respecto a la indexación.
 (*) (Así reformado el inciso f) anterior por el artículo único de la ley N° 10390 del 2 de octubre del 2023, "Modificación al impuesto sobre la propiedad de vehículos automotores, embarcaciones y aeronaves")
 (*) g) Pago del impuesto. La Dirección General de Tributación liquidará el impuesto sobre la propiedad de vehículos con base en los datos de los respectivos registros y de acuerdo con los valores fijados en la forma señalada en el inciso f) de este artículo. El Ministerio de Hacienda deberá habilitar los medios electrónicos o digitales necesarios, dentro de los que se incluye la Administración Tributaria Virtual (A TV), la página oficial del Ministerio de Hacienda, o los que sean de más fácil acceso y uso para el contribuyente, para que este realice los pagos parciales anticipados del impuesto a la propiedad de vehículos automotores, aeronaves o embarcaciones de recreo o pesca deportiva, previo a la fecha del nacimiento de la obligación. Lo anterior podrá determinarse por vía reglamentaria o por la vía de resolución emitida de conformidad con el artículo 99 del Código de Normas y Procedimientos Tributarios.
-Las placas, el plástico adhesivo, que se entrega con posterioridad al pago del derecho de propiedad entendido como "marchamo", o cualquier otro distintivo no se entregarán al contribuyente sino hasta que este haya cumplido con la totalidad del
-pago de la obligación tributaria devengada por concepto de este impuesto.
+Las placas, el plástico adhesivo, que se entrega con posterioridad al pago del derecho de propiedad entendido como "marchamo", o cualquier otro distintivo no se entregarán al contribuyente sino hasta que este haya cumplido con la totalidad del pago de la obligación tributaria devengada por concepto de este impuesto.
 Tratándose de vehículos exentos se entienden los que se destinen al uso exclusivo de embajadas, consulados, organismos internacionales, Gobierno central, municipalidades, ambulancias, unidades de rescate de la Cruz Roja Costarricense, del sistema hospitalario nacional, de los asilos de ancianos, del Instituto Nacional de Seguros, así como las máquinas para extinguir incendios y las bicicletas; del pago de este tributo, las placas, marchamos o distintivos serán entregados a los interesados previa comprobación de su derecho, mediante nota de la Dirección General de Tributación. Dicha excepción no abarca el seguro obligatorio de vehículos, así como las obligaciones relativas al derecho de circulación.
 La Dirección General de Tributación deberá autorizar a diferentes agentes recaudadores de los sectores, público y privado, con la finalidad de facilitar la realización del pago de este impuesto.
 Estos agentes deberán cumplir con los estándares de calidad y seguridad necesarios para garantizar un proceso de cobro efectivo y confiable para los contribuyentes que así disponga la Dirección General de Tributación, para ser debidamente autorizados.
@@ -106,7 +104,7 @@ l) Actualización del registro de propietarios de vehículos.
 Se faculta a la Dirección General de la Tributación Directa a fin de que contrate, por un lapso de seis meses, al personal necesario para la documentación del registro de propietarios de vehículos. Con este propósito, el Ministerio de Hacienda incluirá las partidas necesarias en un presupuesto ordinario o extraordinario.
 ll) Si la Administración Tributaria no publicara en "La Gaceta", en enero de cada año, la lista con los valores de los vehículos, el impuesto se pagará sobre la base de los precios fijados el año anterior. Esto mientras no se publique la lista actualizada.
 m) Del ingreso que produzca este tributo se financiará parte de los programas de caminos vecinales, mantenimiento de carreteras y vías urbanas.
-n) En adición al impuesto a la propiedad de vehículos, de conformidad con los incisos anteriores, se establece un aporte anual por vehículo de mil setecientos colones (􀃨1 700,00). Dicho aporte se distribuirá en la siguiente proporción: el cincuenta y seis por ciento (56%) a la Asociación de Guías y Scouts de Costa Rica; el diez por cien1o ('10%) al Centro Diurno de Atención al Ciudadano en la Tercera Edad (Ascat,:i}; el cuatro por ciento (4%) a la Asociación Hogar de Ancianos de Pérez Zeledón el quince por ciento (15%) al Consejo Nacional de Personas con Discapacidad (Conapdis) y el quince por ciento (15%) a la Asociación Pueblito de Costa Rica. El aporte se actualizará anualmente con base en el índice de precios al consumidor.
+n) En adición al impuesto a la propiedad de vehículos, de conformidad con los incisos anteriores, se establece un aporte anual por vehículo de mil setecientos colones (¢1 700,00). Dicho aporte se distribuirá en la siguiente proporción: el cincuenta y seis por ciento (56%) a la Asociación de Guías y Scouts de Costa Rica; el diez por ciento (10%) al Centro Diurno de Atención al Ciudadano en la Tercera Edad (Ascate); el cuatro por ciento (4%) a la Asociación Hogar de Ancianos de Pérez Zeledón el quince por ciento (15%) al Consejo Nacional de Personas con Discapacidad (Conapdis) y el quince por ciento (15%) a la Asociación Pueblito de Costa Rica. El aporte se actualizará anualmente con base en el índice de precios al consumidor.
 (Así reformado el inciso anterior por el artículo 5° de la Ley para fusionar el Patronato Nacional de Rehabilitación con el Consejo Nacional de Personas con Discapacidad, N° 10077 del 5 de noviembre de 2021)
 ñ) Se derogan todas las disposiciones contrarias al impuesto sobre la propiedad de vehículos.
 (*)(La Sala Constitucional mediante resolución N° 10015-12 del 24 de julio de 2012, declaró inconstitucional los Decretos Ejecutivos N° 34109-H, 34871-H y 35605-H en la medida que aplican el cobro del tributo aquí dispuesto "a la maquinaria de construcción". Así mismo, interpretó la Sala este artículo en el sentido que, el tributo aquí establecido "lo es respecto de los vehículos automotores, embarcaciones y aeronaves dispuestos para el traslado y transporte de personas o cosas")
