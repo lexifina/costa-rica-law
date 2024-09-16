@@ -14,3 +14,4 @@ Ajuste de los Umbrales de Contratación Pública establecidos en diferentes trat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-01 | la propia norma |
+| 2 | 2024-09-16 | Decreto Ejecutivo 44760 (2024-09-16) |
