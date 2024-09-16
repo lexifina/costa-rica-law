@@ -1,9 +1,10 @@
-Artículo 14.—Revocación anticipada de la Licencia. Siguiendo el debido proceso, la municipalidad podrá revocar la licencia para comercialización de bebidas con contenido alcohólico, en los siguientes casos:
-a. Por muerte, disolución, quiebra o insolvencia judicialmente declarada.
-b. Por renuncia expresa del patentado.
-c. Cuando el patentado deje de explotar el negocio por más de seis meses sin justificación alguna.
-d. Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine.
-e. Por el no pago de los derechos trimestrales, sus intereses, la multa impuesta por pago extemporáneo cuando estos alcancen los seis meses.
-f. Por la desobediencia a la sanción impuesta por parte de la Municipalidad. Cuando esta sea una sanción dineraria, el no pago de esta en el periodo de tres meses desde la notificación será causal para revocar la licencia.
-g. Por cualquiera de las causales establecidas en el artículo 6 de la Ley.
-h. Por el incumplimiento de los requisitos y prohibiciones establecidos en la Ley, previa suspensión establecida en el párrafo segundo del artículo 10 de la Ley.
+Artículo 14
+Revocación anticipada de la Licencia. En los casos que se catalogan como de mera constatación y que no suponen una infracción al ordenamiento jurídico, que se enumeran a continuación, constatados los hechos, sea por denuncia o de oficio, se tendrá por extinguida la licencia para la comercialización de bebidas con contenido alcohólico:
+a. Por muerte, que se deberá demostrar mediante certificado de defunción expedido por el Tribunal Supremo de Elecciones.
+b. Disolución, que se deberá demostrar la inscripción de ese movimiento en los términos del artículo 235 inciso a) del Código de Comercio.
+c. Quiebra o insolvencia judicialmente declarada lo cual se deberá constar o aportarse la declaratoria judicial firme correspondiente, sea en original que deberá ser confrontada con su original o en su defecto certificación original con no más de un mes de emitida.
+d. Por renuncia expresa del patentado, la Municipalidad procederá a tener por cancelada la licencia con la presentación del escrito correspondiente. En el evento de que el patentado se encontrase en mora en el pago del impuesto de patente de licores, la Municipalidad a través del Proceso de Cobro iniciará el correspondiente procedimiento de cobro.
+e. Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine, lo cual se deberá constar con el documento expedido por el Ministerio de Salud.
+f. Por incumplimiento del horario establecido para la licencia respectiva, lo cual se podrá constatar por acta municipal o policial.
+La resolución que se dicte tendrá los recursos que señala el Código Municipal.
+(Así reformado mediante sesión N° 030 del 16 de setiembre del 2024)
