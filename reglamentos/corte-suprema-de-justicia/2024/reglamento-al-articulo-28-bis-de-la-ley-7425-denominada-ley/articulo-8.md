@@ -1,0 +1,1 @@
+Artículo octavo: Del control: Corresponderá a la persona cargo de la Dirección del Organismo de Investigación Judicial evaluar los riesgos y adoptar las medidas de control interno necesarias para su administración como parte del Sistema Específico de Evaluación de Riesgos de dicho órgano, así como ser el responsable del cumplimiento de las disposiciones del presente reglamento.

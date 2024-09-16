@@ -1,0 +1,1 @@
+Artículo vigésimo: De las contrapartes: Los cuerpos policiales internacionales cooperantes designarán contrapartes con competencia suficiente para responder, informar y adoptar decisiones ante el Organismo de Investigación Judicial. La representación por parte de este último órgano estará a cargo de la persona responsable de su Dirección o a quien este delegue de manera formal.

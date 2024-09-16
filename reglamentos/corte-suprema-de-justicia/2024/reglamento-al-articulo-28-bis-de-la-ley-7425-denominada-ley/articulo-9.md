@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+DE LA INFORMACIÓN A COMPARTIR EN EL MARCO DE LOS DISPUESTO EN EL ARTÍCULO 28 BIS DE LA LEY 7425, LEY SOBRE REGISTRO, SECUESTRO Y EXAMEN DE DOCUMENTOS PRIVADOS E INTERVENCIÓN DE LAS COMUNICACIONES, DE 9 DE AGOSTO DE 1994
+Artículo noveno: Del objetivo buscado con la investigación colaborativa realizada: Será objeto de la colaboración a que se refiere el presente reglamento, la interrelación de información técnica asociada a números telefónicos y patrones de comunicación que se realicen en llamadas interceptadas, con los cuales el personal policial de los países cooperantes pueda definir los canales de su interés y asociarlos con la persona que sea titular de dichos números, o haga uso de los mismos en el marco de sus pesquisas.

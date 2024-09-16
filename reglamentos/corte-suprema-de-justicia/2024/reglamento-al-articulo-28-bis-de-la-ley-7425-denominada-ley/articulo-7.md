@@ -1,0 +1,10 @@
+Artículo sétimo: De las responsabilidades del Organismo de Investigación Judicial: Para efectos de la aplicación del presente reglamento, son responsabilidades del Organismo de Investigación Judicial, lo siguiente:
+a) Destinar la información técnica compartida por el Centro Judicial de Intervención de las Comunicaciones únicamente para el ejercicio de sus competencias legales dentro de los límites establecidos en el artículo décimo segundo del presente reglamento.
+b) Establecer mecanismos de coordinación con el Centro Judicial de Intervención de las Comunicaciones para la implementación del presente reglamento.
+c) Establecer los protocolos, manuales y procedimientos necesarios para la implementación del presente reglamento, los cuales deberán ser aprobados por la persona a cargo de su Dirección.
+d) Establecer el sistema de intermediación para la recepción y disposición de la información técnica que le será suministrado por el Centro Judicial de Intervención de las Comunicaciones.
+e) Destinar los recursos humanos, técnicos y financieros que sean necesarios para asegurar los objetivos del artículo 28 bis la Ley 7425, Ley sobre Registro, Secuestro y Examen de Documentos Privados e Intervención de las Comunicaciones, de 9 de agosto de 1994, reformado por la Ley para la Modernización de las Intervenciones Telefónicas.
+f) Coordinar con otros cuerpos policiales internacionales el intercambio de la información técnica, en el marco de la cooperación internacional en la investigación de estos delitos.
+g) Monitorear, dar seguimiento y adoptar las medidas correctivas que sean necesarias respecto de la información técnica que suministre a otros cuerpos policiales internacionales.
+h) Dar adecuado uso a la información técnica que le sea suministrada de manera recíproca por otros cuerpos policiales internacionales.
+i) Cualquier otra competencia que defina la Corte Suprema de Justicia para efectos del eficaz y eficiente cumplimiento del artículo objeto de reglamentación en el presente cuerpo normativo.

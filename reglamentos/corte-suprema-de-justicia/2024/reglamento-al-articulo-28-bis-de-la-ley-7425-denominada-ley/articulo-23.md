@@ -1,0 +1,1 @@
+Artículo vigésimo tercero: De la urgencia: En casos de urgencia manifiesta, se procederá a compartir la información técnica mediante simple comunicado entre la persona a cargo de la Dirección del Organismo de Investigación Judicial y el responsable del cuerpo policial internacional cooperante.

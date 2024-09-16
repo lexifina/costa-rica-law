@@ -1,0 +1,1 @@
+Artículo décimo séptimo: Del alcance de los acuerdos que podrían darse con motivo de la aplicación del artículo décimo sexto del presente reglamento: Los acuerdos que se realicen podrán tener carácter bilateral o multilateral conforme sea posible y según el interés de los cuerpos policiales internacionales cooperantes.

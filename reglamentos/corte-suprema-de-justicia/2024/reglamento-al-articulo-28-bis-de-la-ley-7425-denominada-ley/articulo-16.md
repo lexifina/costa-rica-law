@@ -1,0 +1,4 @@
+CAPÍTULO QUINTO
+DE LA COOPERACIÓN INTERNACIONAL
+Artículo décimo sexto: Del órgano responsable de articular y controlar la Cooperación internacional en cumplimiento del presente convenio:Corresponderá a la persona directora del Organismo de Investigación Judicial, ser el órgano responsable de formular, adoptar y aprobar los acuerdos, instrumentos y mecanismos de cooperación internacional con otras policías del mundo dedicadas a la investigación de los delitos establecidos en el artículo cuarto del presente reglamento. Para este fin, la Dirección Jurídica colaborará en el proceso de redacción y revisión legal de las propuestas que sean sometidas a su consideración.
+Dichas acciones de cooperación gozarán de confidencialidad cuando se trate de temas vinculados directamente con la seguridad nacional costarricense.

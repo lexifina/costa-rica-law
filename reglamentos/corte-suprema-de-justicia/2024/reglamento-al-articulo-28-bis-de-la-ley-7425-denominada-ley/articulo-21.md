@@ -1,0 +1,1 @@
+Artículo vigésimo primero: De las potestades de monitoreo en el trasiego y uso de la información: El Organismo de Investigación Judicial deberá controlar y monitorear en el sistema de intermediación, la actividad de este mediante las herramientas que estime procedentes conforme la disponibilidad de recursos existentes.
