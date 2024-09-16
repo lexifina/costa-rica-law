@@ -1,0 +1,2 @@
+Artículo 7º-Verificación de contenido presupuestario. Una vez recibida la solicitud la persona encargada de Gestión de Talento Humano deberá solicitar constancia de contenido presupuestario para pagar las horas extras con la persona encargada de presupuesto, quien atenderá lo requerido de manera inmediata.
+En caso de no contar con contenido presupuestario deberá denegar la solicitud e informarle al solicitante.

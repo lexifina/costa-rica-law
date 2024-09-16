@@ -1,0 +1,2 @@
+Artículo 9º-Informe de labores extraordinarias. Una vez realizadas las labores en jornada extraordinaria deberá el trabajador presentar ante su jefe inmediato un informe de labores, que indicará como mínimo: nombre completo, cédula, fecha de realización de las labores, horario, actividades realizadas y firma.
+La jefatura inmediata le brindará el visto bueno y aprobación al informe de labores, el cual deberá remitirse a la persona encargada de Gestión de Talento Humano. En el caso de la Secretaria del Concejo dicho informe deberá ser aprobado por la Presidente Municipal.

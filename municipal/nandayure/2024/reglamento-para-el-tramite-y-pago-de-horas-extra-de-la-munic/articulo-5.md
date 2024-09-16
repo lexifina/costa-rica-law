@@ -1,0 +1,2 @@
+Artículo 5º-Requerimiento mínimo para autorización de horas extra. Se podrá autorizar el tiempo extraordinario a funcionarios que deban laborar como mínimo una hora extra después de concluida su jornada ordinaria.
+En el caso de la Secretaria del Concejo, el tiempo extraordinario que deba permanecer hasta la conclusión de la sesión se le sumará por minutos y se autorizará el pago por cada hora acumulada, quedando el resto del tiempo no reconocido reservado.
