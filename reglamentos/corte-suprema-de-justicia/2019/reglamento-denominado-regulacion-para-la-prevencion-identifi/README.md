@@ -13,3 +13,4 @@ Reglamento denominado “Regulación para la Prevención, Identificación y la G
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-01 | la propia norma |
+| 2 | 2024-09-16 | Reglamento 41 (2024-09-16) |
