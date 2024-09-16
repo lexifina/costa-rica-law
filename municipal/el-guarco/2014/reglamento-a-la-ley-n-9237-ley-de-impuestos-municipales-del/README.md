@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9237 Ley de Impuestos Municipales del Cantón de El Guar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-17 | la propia norma |
+| 2 | 2024-09-16 | Reglamento municipal 30 (2024-09-16) |
