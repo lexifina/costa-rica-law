@@ -14,3 +14,4 @@ Reglamento de espectáculos públicos de la Municipalidad del Guarco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-26 | la propia norma |
+| 2 | 2024-09-16 | Reglamento municipal 30 (2024-09-16) |
