@@ -1,0 +1,2 @@
+Artículo 5.- El Ministerio de Comercio Exterior, pondrá a disposición en su sitio web oficial durante la primera semana del mes de diciembre de cada año, el detalle con el volumen disponible de los contingentes regulados por el presente Reglamento. Igualmente, se publicará un aviso en el Diario Oficial La Gaceta y en un medio de circulación nacional, indicando la disponibilidad de la información.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 44760 del 16 de setiembre del 2024)

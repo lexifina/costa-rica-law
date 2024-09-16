@@ -14,3 +14,4 @@ Reglamento Administración de los Contingentes Arancelarios de Importación Cont
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-20 | la propia norma |
+| 2 | 2024-09-16 | Decreto Ejecutivo 44760 (2024-09-16) |

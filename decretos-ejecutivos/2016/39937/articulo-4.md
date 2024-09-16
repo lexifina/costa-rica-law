@@ -1,1 +1,2 @@
-Artículo 4.- Rige a partir del 01 de agosto de 2016.
+Artículo 4.- El Ministerio de Comercio Exterior solicitará a la Dirección General de Aduanas del Ministerio de Hacienda la habilitación de una nota técnica en el Sistema "Tecnología de Información para el Control Aduanero" (TIC@) o en el sistema que le sustituya, con el volumen de los contingentes arancelarios indicados en el artículo anterior, al amparo del Acuerdo de Asociación Comercial entre el Gobierno de la República de Costa Rica y el Gobierno de la República del Ecuador.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44760 del 16 de setiembre del 2024)
