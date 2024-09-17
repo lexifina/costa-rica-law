@@ -1,1 +1,0 @@
-Artículo 9º—Jornada extraordinaria. Para laborar horas extraordinarias, la persona teletrabajadora deberá necesariamente contar, de previo, con la solicitud o autorización escrita de su jefatura inmediata y demás autoridades que determine la Institución. Caso contrario el Patronato no tendrá como existente la jornada extraordinaria.

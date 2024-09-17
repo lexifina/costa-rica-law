@@ -1,1 +1,0 @@
-Artículo 7º—Condiciones laborales. El servidor o servidora, en el tiempo que desempeñe sus labores bajo la modalidad de Teletrabajo, tendrá las mismas obligaciones, beneficios, cargas de trabajo y responsabilidades que cuando las desempeñe en el centro de trabajo.
