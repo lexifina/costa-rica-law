@@ -1,1 +1,0 @@
-Artículo 3º—El agente de aduanas responsable del desalmacenaje de vehículos, deberá consignar en la declaración aduanera una descripción detallada de las características de los vehículos, conforme al artículo 86 de la Ley General de Aduanas, así como la clase tributaria correspondiente de la Lista de Valores de Vehículos de Tributación.
