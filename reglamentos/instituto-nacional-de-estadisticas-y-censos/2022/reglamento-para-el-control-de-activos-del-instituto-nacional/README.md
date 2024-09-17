@@ -14,3 +14,4 @@ Reglamento para el control de activos del Instituto Nacional de Estadística y C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-27 | la propia norma |
+| 2 | 2024-09-17 | Reglamento 33 (2024-09-17) |
