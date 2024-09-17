@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante el artículo 38 de la resolución N° MH-DGT-RES-0020-2024 / DG-336-2024 del 17 de setiembre de 2024, "Resolución conjunta de alcance general para el registro de transparencia y beneficiarios finales", se acordó derogar parcialmente la presente norma, manteniendo vigencia lo señalado en el "Transitorio X", de esta resolución)
 E INSTITUTO COSTARRICENSE SOBRE DROGAS
 Resolución Conjunta de Alcance General para el Registro de Transparencia y Beneficiarios Finales
 Nº DGT-ICD-R-06-2020.-Dirección General de Tributación.- Instituto Costarricense sobre Drogas.-San José, a las de las ocho y cinco horas del veintiséis de marzo de dos mil veinte.
