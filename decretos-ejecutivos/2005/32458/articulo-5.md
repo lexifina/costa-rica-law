@@ -1,7 +1,0 @@
-Artículo 5º—Constitúyase una Comisión integrada por un representante del sector de los importadores de vehículos nuevos y otro de los importadores de vehículos usados, clasificables en las partidas arancelarias 87.02, 87.03 y 87.04, así como por un representante de los importadores de vehículos nuevos y otro de los importadores de vehículos usados, clasificables en la partida arancelaria 87.11 y cuadraciclos, con los siguientes objetivos:
-a) Recomendar ajustes a la Lista de Valores de la Dirección General de Tributación, para que la misma refleje los verdaderos valores del mercado interno de vehículos.
-b) Analizar diversas prácticas comerciales que la actividad ha generado.
-c) Evaluar la problemática de cada sector importador de vehículos nuevos y usados.
-d) Revisar los procedimientos establecidos o recomendar otros a la Administración Tributaria, en lo referente a la materia de valoración de vehículos.
-Para estos efectos, cada sector importador de vehículos, escogerá su representante de una lista de candidatos nominados por la respectiva junta directiva de cada cámara o asociación y los comunicará al Ministerio de Hacienda. Dicha Comisión además, estará integrada por un representante de las Direcciones Generales de Tributación, Aduanas y Hacienda. Deberá nombrarse un suplente para que reemplace a los titulares en su ausencia.
-Dicha Comisión será presidida por el representante de la Dirección General de Tributación y se reunirá ordinariamente cada mes y extraordinariamente cada vez que se requiera.

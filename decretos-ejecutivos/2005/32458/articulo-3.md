@@ -1,1 +1,0 @@
-Artículo 3º—La presentación, transmisión y verificación de la declaración aduanera de importación de vehículos indicados en el artículo anterior, será el que al efecto ha establecido el Servicio Nacional de Aduanas para cualquier otro tipo de mercancías, conforme lo dispuesto en el CAUCA III y la Ley General de Aduanas, así como sus respectivos reglamentos.
