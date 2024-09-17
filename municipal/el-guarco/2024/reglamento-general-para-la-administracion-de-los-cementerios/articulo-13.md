@@ -1,0 +1,1 @@
+Artículo 13.-Las Juntas deberán presentar al Concejo Municipal un plan anual de trabajo y el correspondiente presupuesto de gastos para su aprobación, lo cual deberá hacerse con mínimo un mes de antelación al inicio del ejercicio económico respectivo (anual).

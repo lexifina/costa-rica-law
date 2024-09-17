@@ -1,0 +1,2 @@
+De la administración de los cementerios
+Artículo 3º-La planificación, dirección, administración, vigilancia y conservación de los cementerios municipales estará a cargo de una Junta Administradora, la que velará por el cumplimiento del presente reglamento. Todos los cementerios municipales del cantón de El Guarco serán administrados por una Junta Administradora, debidamente nombrada y juramentada por el Concejo Municipal. Así mismo, contará con el recurso humano necesario para brindar un servicio de calidad.

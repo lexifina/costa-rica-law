@@ -1,0 +1,1 @@
+Artículo 21.-Los cadáveres serán inmediatamente inhumados por el panteonero o persona encargada del cementerio, en presencia de las personas que integren el séquito mortuorio, o al menos ante un testigo, en cuyo caso deberá levantarse un acta.

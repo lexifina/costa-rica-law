@@ -1,0 +1,2 @@
+Sobre los contratos de arrendamiento
+Artículo 16.-Cada vez que la Junta dé en arrendamiento una parcela, un nicho o cualquier otro, se deberá confeccionar un contrato, en el cual se establecerán en forma clara y concisa los derechos y obligaciones de ambas partes, precio del arrendamiento, plazo y los parámetros para su actualización, medio para recibir notificaciones, y demás condiciones de término, modo y causales de resolución.

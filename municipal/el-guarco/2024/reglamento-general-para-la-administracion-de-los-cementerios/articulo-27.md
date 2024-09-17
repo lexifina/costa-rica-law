@@ -1,0 +1,2 @@
+Artículo 27.-También se considerarán exhumaciones ordinarias las que son de interés de la Junta para cumplir con situaciones relacionadas con contingencias o para indigentes.
+En este tipo de exhumaciones ordinarias, cuando el plazo de arrendamiento se encuentra vencido la Junta queda facultada para exhumar y trasladar al osario general los restos de contenido en los respectivos nichos, previa comunicación al arrendatario, siempre y cuando exista un medio para comunicación, caso contrario, la Junta dispondrá de los restos y de los nichos mediante acuerdo.

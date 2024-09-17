@@ -1,0 +1,1 @@
+Artículo 17.-Una vez vencido el plazo del contrato y en caso de no prorrogarse el mismo, se procederá a la exhumación de los cuerpos que contenga la bóveda o nicho. Para los cuerpos con menos de cinco años de inhumados, se dará el tiempo de ley, una vez vencido, se procederá a la exhumación, sin previo aviso (según lo establecido en el art. 32 del Decreto Ejecutivo N° 32833-S).

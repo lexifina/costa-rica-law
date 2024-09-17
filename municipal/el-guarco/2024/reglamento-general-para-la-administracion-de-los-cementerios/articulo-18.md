@@ -1,0 +1,1 @@
+Artículo 18.-Cuando la extensión del área del cementerio lo permita o cuando existan suficientes parcelas libres, previo estudio técnico, la Junta podrá adjudicarlos como derecho en arrendamiento, siempre y cuando, quienes lo soliciten demuestren tener domicilio fijo en el Cantón de El Guarco. La Junta solicitará los documentos probatorios que consideren necesarios.

@@ -1,0 +1,1 @@
+Artículo 11.-Dejará de ser integrante de la Junta, quien faltare a tres (3) sesiones consecutivas sin causa justificada. Para sustituirlo la Junta enviará una propuesta al Concejo Municipal, para que proceda al nombramiento y juramentación respectiva, solo para el periodo restante del miembro que cesó en su cargo.

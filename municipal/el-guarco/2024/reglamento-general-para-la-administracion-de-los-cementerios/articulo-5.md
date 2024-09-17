@@ -1,0 +1,1 @@
+Artículo 5º-Los nombramientos de las Juntas Administradoras y la Fiscalía se realizarán por dos años, pudiendo ser reelectos y serán cargos ad honórem. El Concejo Municipal podrá revocar los nombramientos por mayoría calificada cuando el caso lo amerite.

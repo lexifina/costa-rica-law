@@ -1,0 +1,1 @@
+Artículo 6º-Las Juntas Administradoras escogerán en su seño las personas que ocuparán los siguientes cargos: presidencia, vicepresidencia, secretaría, tesorería, un vocal. Todos los cargos se escogerán en la primera sesión y serán ad honórem. La Fiscalía serán directamente nombrada por el Concejo Municipal.
