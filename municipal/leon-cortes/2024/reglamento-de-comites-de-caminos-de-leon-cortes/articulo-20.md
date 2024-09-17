@@ -1,0 +1,1 @@
+Artículo 20.-Vigencia y acatamiento. El presente Reglamento deroga cualquier disposición relacionada con esta materia que se le oponga y rige a partir de su publicación como Reglamento en el Diario Oficial La Gaceta. El presente reglamento es de acatamiento obligatorio dentro de la jurisdicción territorial del Cantón León Cortés.
