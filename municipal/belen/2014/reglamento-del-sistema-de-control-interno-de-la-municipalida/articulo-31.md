@@ -1,4 +1,3 @@
-CAPÍTULO VI
-Mecanismos para la operación, seguimiento, evaluación
-y mejora del Sistema de Control Interno
-Artículo 31.—Objetivo de la Capacitación. Establecer un proceso constante de capacitación y permanente que se extienda a todos los niveles de la institución, para crear un conocimiento homogéneo y balanceado entre todos los actores del proceso, que permita desarrollar una apropiación y empoderamiento de los mismos.
+Artículo 31.-Coordinación de la Capacitación. Las capacitaciones deberán ser organizadas por la Unidad de Control Interno en coordinación con la Comisión Institucional de Control Interno. Ambas instancias deberán decidir si la capacitación se contratará externamente o si se utilizará otra metodología, así como la cantidad de recursos que se necesitarán y su debido trámite. Además, la Comisión de Control Interno deberá decidir los temas que se impartirán en la capacitación y avalar la metodología a utilizar, mientras que la Unidad de Control Interno, deberá asumir todos los aspectos de apoyo técnico y administrativo.
+(Así reformado en sesión N° 56 del 17 de setiembre de 2024)
+(Así modificada su numeración en sesión N° 56 del 17 de setiembre de 2024, que lo traspaso del antiguo artículo 32 al artículo 31. Lo anterior ya que en dicha sesión se ordenó eliminar el artículo 4 y correr la numeración de los restantes artículos)

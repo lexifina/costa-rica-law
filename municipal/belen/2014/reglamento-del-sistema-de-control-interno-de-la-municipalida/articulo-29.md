@@ -1,5 +1,3 @@
-Artículo 29.—Funciones. Se creará la Unidad de Control Interno, como ente asesor, con el propósito de asegurar el cumplimiento de los objetivos instituciones en materia de Control Interno y Sistema Específico de Valoración del Riesgo. Asumiendo las siguientes responsabilidades:
-a) Promover e impulsar la creación, funcionamiento, seguimiento, y perfeccionamiento del Sistema de Control Interno.
-b) Asesorar a la Comisión de Control Interno.
-c) Gestionar el proceso de evaluación y autoevaluación del Sistema de Control Interno.
-d) Gestionar el proceso de creación de instrumentos, aplicación, seguimiento y perfeccionamiento del sistema específico de valoración del riesgo.
+Artículo 29.-Objetivo de la Capacitación. Establecer, mantener y perfeccionar un proceso permanente de capacitación y actualización de conceptos, que se extienda a todos los niveles de la institución, para crear un conocimiento homogéneo y balanceado entre todos los actores del proceso.
+(Así reformado en sesión N° 56 del 17 de setiembre de 2024)
+(Así modificada su numeración en sesión N° 56 del 17 de setiembre de 2024, que lo traspaso del antiguo artículo 30 al artículo 29. Lo anterior ya que en dicha sesión se ordenó eliminar el artículo 4 y correr la numeración de los restantes artículos)

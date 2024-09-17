@@ -1,3 +1,3 @@
-CAPÍTULO V
-Unidad de Control Interno (UCI)
-Artículo 28.—Objetivo. Velar por el correcto funcionamiento del Sistema Específico de Valoración del Riesgo y del Sistema del Control Interno, de conformidad con la Legislación vigente, los manuales, directrices y disposiciones emitidas por la Contraloría General de la República.
+Artículo 28.-Solicitudes formuladas por la Comisión Institucional de Control Interno y la Unidad de Control Interno. Todos los Titulares Subordinados deberán atender las convocatorias para la aplicación de instrumentos, a fin de implementar mejoras en el Sistema de Control Interno. El Proceso de Planificación Institucional, Control Presupuestario, Recursos Humanos, Informática, Comunicación y Archivo Institucional, así como cualquier otro proceso de trabajo, deberán brindar el apoyo necesario para que todo el Sistema de Control Interno cumpla con sus objetivos y funciones en el mejoramiento institucional.
+(Así reformado en sesión N° 56 del 17 de setiembre de 2024)
+(Así modificada su numeración en sesión N° 56 del 17 de setiembre de 2024, que lo traspaso del antiguo artículo 29 al artículo 28. Lo anterior ya que en dicha sesión se ordenó eliminar el artículo 4 y correr la numeración de los restantes artículos)

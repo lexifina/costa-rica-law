@@ -1,5 +1,2 @@
-CAPÍTULO II
-Ética Institucional, obligatoria para la totalidad de los (as)
-funcionarios (as), incluyendo los Jerarcas, y Titulares
-Subordinados
-Artículo 6º—Principios fundamentales. Todas y todos se deberán comportar según las normas éticas derivadas de su condición de personas, de servidores públicos, de miembros del Gobierno Local Municipal y de funcionarios (as) municipales. Por ello deberán actuar conforme a los principios fundamentales de honestidad, lealtad, sinceridad, buena FE, responsabilidad, respeto mutuo, cortesía, solidaridad, y de acuerdo con la legislación vigente, así como los valores y principios institucionales.
+Artículo 6º--Respeto al honor. Todas las personas deberán respetar, en todo momento y en cualquier circunstancia, el buen nombre, la dignidad y la honra de la Institución, de los miembros del Gobierno Local Municipal y de su administración; deberán abstenerse de expresiones injuriosas, calumnias, difamación o juicios de valor, que puedan ir en mengua de la reputación y prestigio.
+(Así modificada su numeración en sesión N° 56 del 17 de setiembre de 2024, que lo traspaso del antiguo artículo 7 al artículo 6. Lo anterior ya que en dicha sesión se ordenó eliminar el artículo 4 y correr la numeración de los restantes artículos)

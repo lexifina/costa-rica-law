@@ -14,3 +14,4 @@ Reglamento del Sistema de Control Interno de la Municipalidad de Belén
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-14 | la propia norma |
+| 2 | 2024-09-17 | Reglamento municipal 56 (2024-09-17) |

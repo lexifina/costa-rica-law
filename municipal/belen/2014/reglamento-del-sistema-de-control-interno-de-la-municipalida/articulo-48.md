@@ -1,2 +1,2 @@
-Disposiciones finales
-Artículo 48.—Vigencia y revisión. Este Reglamento rige a partir de la aprobación del Concejo Municipal y su publicación definitiva, en el Diario Oficial La Gaceta o alguna otra disposición que se requiera por parte del Concejo Municipal de Belén.
+Artículo 48.-AspectosnonormadosporesteReglamento. En los aspectos o temas específicos no normados por este Reglamento, se aplicará complementaria o supletoriamente según corresponda, lo establecido en el Diagnóstico de la Gestión Integral del Control Interno y Riesgos, en la Guía para la Gestión del Sistema de Control Interno y en la Guía para el Establecimiento y Funcionamiento del SEVRI conocido como Marco Orientador.
+(Así reformado en sesión N° 56 del 17 de setiembre de 2024)
