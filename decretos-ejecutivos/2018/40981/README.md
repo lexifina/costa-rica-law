@@ -31,3 +31,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 16 | 2019-07-30 | Decreto Ejecutivo 41895 (2019-07-30) |
 | 17 | 2019-08-09 | Decreto Ejecutivo 41920 (2019-08-09) |
 | 18 | 2019-08-14 | Decreto Ejecutivo 41961 (2019-08-14) |
+| 19 | 2024-09-18 | Ley 10524 |
