@@ -2,43 +2,16 @@ Nº 23510-H
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA,
 Considerando:
-1º. Que en la Ley de Presupuesto Nacional para 1994, Nº 7375 del 17 de
-diciembre de 1993, en su articulo 4º, título presupuestario 109,
-Ministerio de Hacienda, programa 128-Reajuste de Remuneraciones, se
-incluye una partida global a desglosar por decreto ejecutivo, para
-reconocer el pago de ajustes salariales que se decretan para el 1º
-semestre de 1994, de conformidad con la resoluciones emitidas por la
-Dirección General de Servicio Civil y la Autoridad Presupuestaria.
-2º. Que la Dirección General de Servicio Civil emitió las resoluciones
-Nº DG-206-93, DG-207-93, DG-209-93 y DG-210- 93, todas del 23 de
-diciembre de 1993. Asimismo la Autoridad Presupuestaria emitió las
-resoluciones Nº AP-08- 94, AP-11-94, AP-17-94, AP-20-94 del 14 de enero
-de 1994 y acuerdo Nº 3031, AP-Acta Nº 5-94.
-3º. Que se hace necesario incluir los recursos presupuestarios para que
-las instituciones adscritas a los Ministerios, cubran la erogación
-presupuestaria producto del reconocimiento de los incrementos salariales
-decretados para el 1º Semestre de 1994, con fundamento en las
-resoluciones citadas en el considerando anterior, asi como cualquier otra
-que se emitiere para dichos fines. Igualmente se hace necesaria reforzar
-presupuestariamente renglones de gastos de la partida de Servicios
-Personales, que se ven afectados por los aumentos salariales ya
-mencionados.
-4º. Que la norma de Ejecución del Presupuesto contenida en el articulo
-12, numeral 14 en su inciso a) de la ley Nº 7375 del 17 de diciembre de
-1993, establece:
-"Facultase al Ministerio de Hacienda, mediante decreto del
-poder ejecutivo, para lo siguiente:
-a) Efectuar transferencias de recursos entre las
-subpartidas y los programas del titulo de la Deuda
-Publica y para crear las subpartidas y programas
-necesarios para esos fines".
-5º. Que la Dirección de Crédito Público, solicitó el presente decreto
-ejecutivo mediante oficio Nº DCP-990-94 del 7 de julio de 1994. Por
-tanto,
+1º. Que en la Ley de Presupuesto Nacional para 1994, Nº 7375 del 17 de diciembre de 1993, en su articulo 4º, título presupuestario 109, Ministerio de Hacienda, programa 128-Reajuste de Remuneraciones, se incluye una partida global a desglosar por decreto ejecutivo, para reconocer el pago de ajustes salariales que se decretan para el 1º semestre de 1994, de conformidad con la resoluciones emitidas por la Dirección General de Servicio Civil y la Autoridad Presupuestaria.
+2º. Que la Dirección General de Servicio Civil emitió las resoluciones Nº DG-206-93, DG-207-93, DG-209-93 y DG-210- 93, todas del 23 de diciembre de 1993. Asimismo la Autoridad Presupuestaria emitió las resoluciones Nº AP-08- 94, AP-11-94, AP-17-94, AP-20-94 del 14 de enero de 1994 y acuerdo Nº 3031, AP-Acta Nº 5-94.
+3º. Que se hace necesario incluir los recursos presupuestarios para que las instituciones adscritas a los Ministerios, cubran la erogación presupuestaria producto del reconocimiento de los incrementos salariales decretados para el 1º Semestre de 1994, con fundamento en las resoluciones citadas en el considerando anterior, asi como cualquier otra que se emitiere para dichos fines. Igualmente se hace necesaria reforzar presupuestariamente renglones de gastos de la partida de Servicios Personales, que se ven afectados por los aumentos salariales ya mencionados.
+4º. Que la norma de Ejecución del Presupuesto contenida en el articulo 12, numeral 14 en su inciso a) de la ley Nº 7375 del 17 de diciembre de 1993, establece:
+"Facultase al Ministerio de Hacienda, mediante decreto del poder ejecutivo, para lo siguiente:
+a) Efectuar transferencias de recursos entre las subpartidas y los programas del titulo de la Deuda Publica y para crear las subpartidas y programas necesarios para esos fines".
+5º. Que la Dirección General de Gestión de Deuda Pública (*), solicitó el presente decreto ejecutivo mediante oficio Nº DCP-990-94 del 7 de julio de 1994. Por tanto,
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 DECRETAN:
-Artículo 1º.- Modificase al artículo 4º de la Ley de Presupuesto
-Nacional para 1994, Nº 7375 del 17 de diciembre de 1993, en la forma que
-se indica a continuación:
+Artículo 1º.- Modificase al artículo 4º de la Ley de Presupuesto Nacional para 1994, Nº 7375 del 17 de diciembre de 1993, en la forma que se indica a continuación:
 REBAJAR
 Título 109
 Ministerio de Hacienda
