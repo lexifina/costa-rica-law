@@ -14,3 +14,4 @@ Reglamento para la Renegociación, Amortización de la Deuda Externa del Gobiern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-23 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
