@@ -13,3 +13,4 @@ Reforma Ley de Presupuesto para 1994 (ordinario y extraordinario)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-08-30 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
