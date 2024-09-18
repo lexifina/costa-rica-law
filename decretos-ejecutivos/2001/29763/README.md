@@ -14,3 +14,4 @@ Reforma al Reglamento General Sistema Presupuestario de la Administración Centr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-07 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
