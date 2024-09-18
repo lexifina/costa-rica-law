@@ -14,3 +14,4 @@ Plan de emisión de deuda interna estandarizada del Gobierno Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-06 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
