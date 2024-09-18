@@ -14,3 +14,4 @@ Reforma Reglamento de Organización de la Tesorería Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-21 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
