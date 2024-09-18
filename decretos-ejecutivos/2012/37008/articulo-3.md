@@ -1,1 +1,0 @@
-Artículo 3.- Asignación de la Subasta Competitiva. Este es el proceso mediante el cual se aceptan ofertas recibidas en la subasta competitiva. Esto incluye la determinación del rendimiento de corte, es decir el rendimiento al que o por debajo del cual se aceptan ofertas recibidas, y el monto subastado al rendimiento establecido.

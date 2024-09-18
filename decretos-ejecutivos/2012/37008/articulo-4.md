@@ -1,1 +1,0 @@
-Artículo 4.-Creación de la Comisión de Subastas de Deuda Interna del Gobierno de la República. Se crea la Comisión de Subastas de Deuda Interna del Gobierno de la República para la convocatoria y asignación de la subasta como órgano del Ministerio de Hacienda.

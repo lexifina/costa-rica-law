@@ -1,1 +1,0 @@
-Artículo 10. Comunicación. El mismo día de realizada la subasta, la Tesorería Nacional comunicará los resultados de la asignación a las instancias correspondientes a lo interno del Ministerio de Hacienda e informará al medio financiero mediante los canales establecidos en un plazo no mayor de un día después de realizada la subasta.

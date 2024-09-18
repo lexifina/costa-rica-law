@@ -1,1 +1,0 @@
-Artículo 2.- Convocatoria a Subasta Competitiva o No Competitiva. La Convocatoria incluirá los instrumentos financieros a subastar y, cuando sea pertinente, las tasas de interés de referencia y montos a subastar.
