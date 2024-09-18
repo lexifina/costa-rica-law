@@ -15,3 +15,4 @@ Procedimiento para la Convocatoria y Asignación de las subastas de Valores de G
 | --- | --- | --- |
 | 1 | 2012-02-17 | la propia norma |
 | 2 | 2021-04-16 | Decreto Ejecutivo 42964 (2021-04-16) |
+| 3 | 2024-09-18 | Ley 10524 |
