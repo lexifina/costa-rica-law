@@ -15,3 +15,4 @@ Procedimientos para la aplicación y seguimiento de la Política Presupuestaria 
 | --- | --- | --- |
 | 1 | 2007-03-30 | la propia norma |
 | 2 | 2008-03-05 | Decreto Ejecutivo 34406 (2008-03-05) |
+| 3 | 2024-09-18 | Ley 10524 |
