@@ -15,3 +15,4 @@ Procedimientos para la aplicación y seguimiento de las directrices generales de
 | --- | --- | --- |
 | 1 | 2012-04-30 | la propia norma |
 | 2 | 2015-03-13 | Decreto Ejecutivo 38916 (2015-03-13) |
+| 3 | 2024-09-18 | Ley 10524 |
