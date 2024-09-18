@@ -69,7 +69,8 @@ Para el caso del control externo le corresponderá a la Contraloría General de 
 Disposiciones del Contrato de Préstamo BCIE / Gobierno
 Desembolsos: En cuanto a los desembolsos para la ejecución del proyecto, estos se realizarán cumpliendo con los requisitos y condiciones definidas en el Art. 6 de la ley del contrato préstamo 10230 y conforme al programa de desembolsos establecido, el cual se elabora con base en la programación de ejecución de cada una de las contrataciones de obra definidas en el Plan General de Adquisiciones.
 Esta programación se vincula con la planeación presupuestaria plurianual y el Plan Operativo Institucional.
-El programa de desembolsos forma parte de la información que se suministra a la Dirección de Crédito Público del Ministerio de Hacienda para el seguimiento y control de la ejecución de los recursos del contrato préstamo. Por tal razón, estos son tramitados por el SENARA en calidad de Organismo Ejecutor ante el Ministerio de Hacienda y éstos a su vez ante el BCIE en calidad de prestatario.
+El programa de desembolsos forma parte de la información que se suministra a la Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda para el seguimiento y control de la ejecución de los recursos del contrato préstamo. Por tal razón, estos son tramitados por el SENARA en calidad de Organismo Ejecutor ante el Ministerio de Hacienda y éstos a su vez ante el BCIE en calidad de prestatario.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 Contabilidad del Proyecto: De acuerdo con la Sección 9.04 del ART. 9.-0BLIGACIONES GENERALES DE HACER contenida en la ley del Contrato de préstamo, la institución mantendrá todos los registros y libros actualizados relacionados con la ejecución del proyecto y en los cuáles, se identifiquen claramente y de forma separada de las demás fuentes de financiamiento, todos los gastos efectuados, tanto con fondos provenientes del contrato como de la contrapartida nacional.
 Así mismo, identificará claramente la asignación de costos y gastos de acuerdo con una estructura contable según los componentes y subcomponentes que integran el proyecto y fueron aprobados como parte del financiamiento e incluidos en el Plan Global de Adquisiciones y el Plan Global de Inversiones.
 Conformación:
@@ -102,7 +103,8 @@ iv. Auditoría Externa: Esta será financiada en su totalidad con fondos del BCI
 En relación al seguimiento y supervisión interna de la Unidad Ejecutora según la estructura organizativa definida para el proyecto estará a cargo de la Gerencia general y ésta a su vez de la Junta Directiva quien, a su vez, será responsable de velar por la dirección y supervisión de los resultados del Proyecto y cumplimiento de las condiciones del Contrato en calidad de máximo jerarca del Senara como organismo Ejecutor, según lo establecido en la Sección 2.03 de la Ley del Contrato de préstamo.
 3. Integración de la gestión de riesgos
 La gestión de riesgos se realizará e integrará en todo el proyecto, utilizando la Metodológica para el Análisis de Riesgos con Enfoque Multiamaneza y Criterios Probabilísticos para proyectos de Inversión Pública y la Guía de aplicación de la matriz general de Riesgos del Ministerio de Planificación y Política Económica (Mideplan) vigente y de aplicación para todos los proyectos de inversión incluidos en el Banco de Proyectos de Inversión Pública de dicho ente.
-Esta gestión de riesgos también estará integrada a los informes semestrales de evaluación y seguimiento del proyecto que realiza la Dirección de Crédito Público del Ministerio de Hacienda.
+Esta gestión de riesgos también estará integrada a los informes semestrales de evaluación y seguimiento del proyecto que realiza la Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 4. Seguimiento ambiental, social, laboral, de cambio climático, de comunicación y mecanismo de denuncias.
 El seguimiento de estos temas se realizará por parte de la DIGEP y forman parte de las actividades y entregables de la Unidad consultora de apoyo de la DIGEP y se realizará siguiendo lo señalado en la Sección 9.03 Normas Ambientales de la ley de contrato préstamo relacionadas con el Plan de Acción Ambiental y Social del Sistema de Identificación, Evaluación y Mitigación de los Riesgos Ambientales y Sociales (SIEMAS) y considerando el anexo G del Contrato de préstamo. Así como toda la legislación nacional que sea aplicable.
 5. Disposiciones del contrato de préstamo (s) y de otras fuentes para la supervisión de las inversiones. De acuerdo con el contrato la DIGEP debe presentar los siguientes entregables en relación con el seguimiento y supervisión de las inversiones:
@@ -110,7 +112,8 @@ BCIE
 Evaluación I-BCIE Medio Término
 Evaluación I-BCIE Ex-Post
 Informes trimestrales de avance físico y financiero de las inversiones
-Dirección de Crédito Público del Ministerio de Hacienda
+Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 Informes trimestrales de seguimiento
 Informes semestrales de evaluación de las inversiones
 Definir mecanismos para verificar el cumplimiento del alcance. (Aseguramiento)

@@ -14,3 +14,4 @@ Reglamento operativo del proyecto de abastecimiento de agua para la Cuenca media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-04 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
