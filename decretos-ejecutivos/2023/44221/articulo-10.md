@@ -1,2 +1,3 @@
 Artículo 10.-Informe de Riesgos Fiscales por proyectos desarrollados bajo la modalidad de Asociaciones Público-Privadas.
-La Unidad de Asociaciones Público-Privadas de la Dirección de Crédito Público, generará el Informe de Riesgos Fiscales por proyectos desarrollados bajo la modalidad de Asociaciones Público-Privadas para integrarlo al informe ejecutivo que contiene el resto de los riesgos fiscales.
+La Unidad de Asociaciones Público-Privadas de la Dirección General de Gestión de Deuda Pública (*) , generará el Informe de Riesgos Fiscales por proyectos desarrollados bajo la modalidad de Asociaciones Público-Privadas para integrarlo al informe ejecutivo que contiene el resto de los riesgos fiscales.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

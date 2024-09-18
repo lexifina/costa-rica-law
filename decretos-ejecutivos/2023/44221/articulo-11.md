@@ -1,1 +1,2 @@
-Artículo 11.-Coordinación. La Dirección de Crédito Público coordinará con las entidades, la remisión de la información e informes sobre identificación, análisis y cuantificación de los riesgos fiscales.
+Artículo 11.-Coordinación. La Dirección General de Gestión de Deuda Pública (*) coordinará con las entidades, la remisión de la información e informes sobre identificación, análisis y cuantificación de los riesgos fiscales.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

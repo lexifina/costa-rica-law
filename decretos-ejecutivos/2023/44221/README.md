@@ -14,3 +14,4 @@ Reglamento para gestionar la autorización de compromisos y contingencias fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-16 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
