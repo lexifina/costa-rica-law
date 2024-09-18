@@ -1,2 +1,0 @@
-Artículo 5º—De la División de Programación y Gestión de
-Caja: La División de Programación y Gestión de Caja tendrá como objetivo programar, revisar y ejecutar los pagos del Gobierno Central, a instituciones Públicas, Privadas, personas físicas y jurídicas, con base en las solicitudes de pagos que presentan los diferentes Ministerios y Poderes de la República, en concordancia con la Ley de Presupuesto Ordinario y Extraordinario de la República.

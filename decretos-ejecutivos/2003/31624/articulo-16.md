@@ -1,7 +1,0 @@
-Artículo 16.—De la División de Fiscalización y Control: Con elpropósito de ejercer el control de las operaciones contables, financieras y administrativas, así como de los procedimientos relativos a las fuentes y usos de los recursos del Tesoro Público y velar por la aplicación de la normativa aplicable sea efectiva en todas las fases del proceso administrativo, con el fin de garantizar corrección y transparencia en su manejo y brindar un servicio constructivo y de protección a la Tesorería Nacional, corresponden a la Unidad de Fiscalización y Control las siguientes funciones:
-a) Elaborar y someter a consideración del Tesorero Nacional el plan anual de fiscalización y proceder a su ejecución una vez aprobado.
-b) Realizar investigaciones administrativas y ejercer el seguimiento de lo actuado por los entes administrativos públicos y privados en relación con el Sistema de Tesorería y en especial con lo dispuesto por la Tesorería Nacional en su carácter de órgano rector.
-c) Velar por el correcto ejercicio de su función asesora y la asignación de funciones congruente con su actividad sustantiva de fiscalización y control.
-d) Asesorar a las áreas componentes de la Tesorería Nacional para fortalecer los controles internos y el buen uso de los recursos.
-e) Promover y coordinar actividades en las que participa con los sujetos fiscalizados para buscar soluciones a los problemas identificados.
-f) Otras funciones que determine la Dirección de la Tesorería Nacional y que correspondan para el cumplimiento de sus objetivos.

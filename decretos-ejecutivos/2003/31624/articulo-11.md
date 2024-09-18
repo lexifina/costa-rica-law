@@ -1,1 +1,0 @@
-Artículo 11.—De la División de Gestión de Deuda: La División deGestión de Deuda tendrá como objetivo Promover la adecuada utilización del crédito por parte del Sector Público, así como la atención de la estrategia de financiamiento elaborada.
