@@ -14,10 +14,11 @@ Los textos del referido Convenio de cooperación, su anexo único, las política
 MINISTERIO DE HACIENDA
 DIRECCIÓN JURÍDICA
 CERTIFICACIÓN AJMH-295-2008
-DAGMAR HERING PALOMAR, DIRECTORA JURÍDICA, MINISTERIO DE HACIENDA, CERTIFICA: Que las siguientes nueve fotocopias, las cuales llevan el sello de esta Dirección Jurídica y mi firma, son copias fieles y exactas de sus originales sobre el Convenio de Cooperación para el Financiamiento de Proyectos de Inversión CR-X1007. Es todo. Exenta de los timbres de ley. Expido esta certificación a solicitud de la Licenciada Rosibel Bermúdez Fernández, Asesora; Asesoría Legal, Dirección de Crédito Público, en la Ciudad de San José a las once horas y treinta minutos del veinte de octubre del dos mil ocho.--------------------------
+DAGMAR HERING PALOMAR, DIRECTORA JURÍDICA, MINISTERIO DE HACIENDA, CERTIFICA: Que las siguientes nueve fotocopias, las cuales llevan el sello de esta Dirección Jurídica y mi firma, son copias fieles y exactas de sus originales sobre el Convenio de Cooperación para el Financiamiento de Proyectos de Inversión CR-X1007. Es todo. Exenta de los timbres de ley. Expido esta certificación a solicitud de la Licenciada Rosibel Bermúdez Fernández, Asesora; Asesoría Legal, Dirección General de Gestión de Deuda Pública (*), en la Ciudad de San José a las once horas y treinta minutos del veinte de octubre del dos mil ocho.--------------------------
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 20 24. Anteriormente indicaba "Dirección de Crédito Público")
 Firma
 Resolución DE-82/08
-“CONVENIO DE COOPERACIÓN PARA EL FINANCIAMIENTO
+"CONVENIO DE COOPERACIÓN PARA EL FINANCIAMIENTO
 DE PROYECTOS DE INVERSIÓN
 CR-X1007
 entre la
@@ -26,4 +27,4 @@ y el
 BANCO INTERAMERICANO DE DESARROLLO
 Programa de Infraestructura de Transporte
 8 de septiembre de 2008
-(Nota de Sinalevi: Por tener articulado propio el “ Convenio de Cooperación para el Financiamiento de Proyectos de Inversión C-X1007 entre la República de Costa Rica y el Banco Interamericano de Desarrollo” debe consultarse en el sistema en forma independiente)
+(Nota de Sinalevi: Por tener articulado propio el " Convenio de Cooperación para el Financiamiento de Proyectos de Inversión C-X1007 entre la República de Costa Rica y el Banco Interamericano de Desarrollo" debe consultarse en el sistema en forma independiente)
