@@ -15,3 +15,4 @@ Procedimiento para la incorporación y desincorporación presupuestaria de las f
 | --- | --- | --- |
 | 1 | 2015-09-21 | la propia norma |
 | 2 | 2020-11-09 | Decreto Ejecutivo 42712 (2020-11-09) |
+| 3 | 2024-09-18 | Ley 10524 |
