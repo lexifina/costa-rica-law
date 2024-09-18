@@ -1,2 +1,0 @@
-Artículo 10.- Criterio de validación. Deberá contarse con el criterio positivo de la Dirección General de Gestión de Deuda Pública(*) del Ministerio de Hacienda desde el punto de vista de la responsabilidad fiscal indicado en el artículo 8 de este Decreto, previo a los proceso de licitación y adjudicación.
-(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
