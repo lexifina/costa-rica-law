@@ -14,3 +14,4 @@ Reforma Reglamento de organización de la Dirección de Crédito Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-05 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
