@@ -1,8 +1,0 @@
-Artículo 6º—Funciones del Consejo Presidencial de Cooperación Internacional, Política Exterior y Negocios Internacionales. El Consejo actuará con fundamento en las funciones establecidas para el Consejo Técnico de la Cooperación Internacional, creado mediante artículo 5º del Reglamento al artículo 11 de la Ley de Planificación Nacional, así como las siguientes funciones específicas:
-a) Facilitar la expedita tramitación de programas, proyectos y acciones de Cooperación Internacional No Reembolsable.
-b) Elaborar un plan de trabajo sobre las áreas objeto de articulación, al inicio de la Administración y en forma anual con base en el Plan Nacional de Desarrollo, el Plan Nacional de Inversión Pública y la Política de Cooperación Internacional, respetando y observando las competencias legales atribuidas a cada miembro del Consejo.
-c) Procurar una evaluación constante de los programas, proyectos y acciones de Cooperación Internacional, a partir de los informes que le corresponde elaborar a MIDEPLAN.
-d) Articular la política exterior del Estado costarricense para el cumplimiento de los objetivos del PND y prioridades de largo plazo, tales como la descarbonización de la economía, cambio climático, Objetivos de Desarrollo Sostenibles (ODS), empoderamiento económica de las mujeres, ordenamiento urbano, etc.
-e) Conocer informes anuales sobre la atracción de inversión extranjera directa.
-f) Recibir informes sobre los resultados de las estrategias de promoción y fortalecimiento de la industria turística.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 41265 del 7 de setiembre del 2018)
