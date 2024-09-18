@@ -9,6 +9,7 @@ b. Los precios/rendimientos del mercado secundario, proveedores de precios y mod
 c. Los planes de financiamiento de corto plazo.
 d. La estrategia de endeudamiento de mediano y largo plazo.
 e. La situación de liquidez de corto y mediano plazo, considerando tanto el criterio de caja como el presupuestario.
-3. Recibir de la Tesorería Nacional y de la Dirección de Crédito Público los insumos y análisis necesarios sobre los rendimientos de corte, montos a captar, disponibilidad presupuestaria y cualquier otra característica relevante de previo a la asignación del evento correspondiente.
+3. Recibir de la Tesorería Nacional y de la Dirección General de Gestión de Deuda Pública(*) los insumos y análisis necesarios sobre los rendimientos de corte, montos a captar, disponibilidad presupuestaria y cualquier otra característica relevante de previo a la asignación del evento correspondiente.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 4. Coordinar con el Banco Central de Costa Rica, especialmente cuando se ofrecen títulos similares, pretendiendo que se tenga coherencia en las condiciones de la asignación, sin dejar de lado los diferentes objetivos que cada uno persigue, procurando que no se constituya en una limitante para la asignación.
 5. Otras funciones que resulten atinentes a su ámbito de acción y naturaleza.

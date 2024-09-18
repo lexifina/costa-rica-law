@@ -14,3 +14,4 @@ Creación de la Comisión estratégica de activos y pasivos soberanos, y la Comi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-04 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
