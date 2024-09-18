@@ -14,3 +14,4 @@ Reforma Reglamento para la Constitución y Funcionamiento del Sistema Nacional d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-02 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
