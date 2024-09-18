@@ -14,3 +14,4 @@ Reglamento para los Contratos de Colaboración Público Privada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-22 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
