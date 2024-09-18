@@ -16,3 +16,4 @@ Lineamientos Generales de Política Presupuestaria para 1993
 | 1 | 1992-06-26 | la propia norma |
 | 2 | 1992-11-03 | Decreto Ejecutivo 21696 (1992-11-03) |
 | 3 | 1993-03-23 | Decreto Ejecutivo 22095 (1993-03-23) |
+| 4 | 2024-09-18 | Ley 10524 |
