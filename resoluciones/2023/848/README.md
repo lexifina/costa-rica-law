@@ -14,3 +14,4 @@ Aplicación del artículo 172 del Reglamento a la Ley General de Contratación P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-12 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
