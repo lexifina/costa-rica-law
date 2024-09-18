@@ -14,3 +14,4 @@ Procedimiento para la selección y contratación del banco o bancos colaboradore
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-20 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
