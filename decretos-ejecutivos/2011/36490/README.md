@@ -15,3 +15,4 @@ Procedimiento para la Aplicación y Seguimiento de las Directrices Generales de 
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
 | 2 | 2012-03-19 | Decreto Ejecutivo 37077 (2012-03-19) |
+| 3 | 2024-09-18 | Ley 10524 |
