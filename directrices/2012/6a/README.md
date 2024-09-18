@@ -15,3 +15,4 @@ Plan General de Contabilidad Nacional (PGCN)
 | --- | --- | --- |
 | 1 | 2016-01-01 | la propia norma |
 | 2 | 2021-03-03 | Resolución 2 (2021-03-03) |
+| 3 | 2024-09-18 | Ley 10524 |
