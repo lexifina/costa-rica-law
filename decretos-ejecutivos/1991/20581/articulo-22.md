@@ -1,1 +1,2 @@
-Artículo 22.-Todas aquellas dependencias e instituciones públicas que lleven registros o realicen gestiones en relación con el crédito público, están obligadas a suministrar la información requerida por la Dirección de Crédito Público.
+Artículo 22.-Todas aquellas dependencias e instituciones públicas que lleven registros o realicen gestiones en relación con el crédito público, están obligadas a suministrar la información requerida por la Dirección General de Gestión de Deuda Pública(*).
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

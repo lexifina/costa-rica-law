@@ -1,4 +1,5 @@
-Artículo 3°-La Dirección de Crédito Público tendrá las siguientes funciones y atribuciones:
+Artículo 3°-La Dirección General de Gestión de Deuda Pública (*) tendrá las siguientes funciones y atribuciones:
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 a) Fungir como oficina del Ministerio de Hacienda en todo lo relativo a la deuda pública. .
 b) Actuar como secretaría técnica del Consejo Nacional de Financiamiento Externo.
 c) Centralizar las gestiones de crédito externo del Gobierno de la República y de las instituciones públicas y privadas que requieran la garantía del Estado.

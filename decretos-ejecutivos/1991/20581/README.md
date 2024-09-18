@@ -15,3 +15,4 @@ Regula los Órganos del Ministerio de Hacienda Competentes en Materia de Crédit
 | --- | --- | --- |
 | 1 | 1991-08-12 | la propia norma |
 | 2 | 1992-04-13 | Decreto Ejecutivo 21240 (1992-04-13) |
+| 3 | 2024-09-18 | Ley 10524 |
