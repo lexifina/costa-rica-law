@@ -14,3 +14,4 @@ Reglamento de Contratación Pública del Instituto Nacional de Vivienda y Urbani
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-15 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
