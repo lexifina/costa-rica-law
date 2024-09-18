@@ -15,3 +15,4 @@ Procedimiento Política Presupuestaria Ministerios y Entidades PúblicasCubierta
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2024-09-18 | Ley 10524 |
