@@ -1,1 +1,0 @@
-Artículo 10.—Los recursos locales que se requieran para la ejecución de proyectos, en adición a los provenientes de fuentes externas y en especial de endeudamiento público, serán aportados por la dependencia encargada de la ejecución del mismo.

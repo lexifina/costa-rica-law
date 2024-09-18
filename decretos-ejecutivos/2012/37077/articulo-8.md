@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De la deuda pública
-Artículo 8º—Para la contratación de crédito interno y externo para el financiamiento de proyectos y de líneas de crédito, las entidades públicas, los ministerios y demás órganos, cumplirán con los trámites pertinentes ante los órganos y entidades respectivas, de conformidad con el “Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda publicado mediante Decreto Ejecutivo No. 35222-H y lo dispuesto en la Política de Endeudamiento Público aprobada mediante Decreto Ejecutivo No. 35270-H” y demás normativa vigente.
