@@ -14,3 +14,4 @@ Reforma decretos N° 33646, N° 33647 y N° 34404 referentes a directrices de po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-30 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
