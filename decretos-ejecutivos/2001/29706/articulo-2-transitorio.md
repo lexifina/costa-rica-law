@@ -1,2 +1,0 @@
-Transitorio II.-Los funcionarios de la Dirección General de Gestión de Deuda Pública (*) pasarán a formar parte de la Dirección de Tesorería Nacional y Crédito Público, mediante el proceso de reestructuración aprobado que se desarrolla en dicha dependencia con el fin de ser ubicados dentro de la estructura organizacional y ocupacional aprobada.
-(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
