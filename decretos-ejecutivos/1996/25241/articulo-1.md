@@ -2,69 +2,22 @@ Nº 25241-H
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 Considerando:
-1º.-Que la Norma de Ejecución del Presupuesto contenida en el
-artículo 12 en su sección II AUTORIZACIONES, en el numeral 14 en su
-inciso a) de la Ley Nº 7563 del 13 de diciembre de 1995, establece:
-"Se faculta, mediante decreto ejecutivo, al Ministerio de
-Hacienda para modificar dentro de un mismo programa, lo
-siguiente:
-a) Efectuar traspasos de recursos entre las subpartidas de
-cada programa y crear las subpartidas necesarias, dentro
-del Título 124, Servicio de la Deuda Pública".
-2º.- Que el artículo 13, sección V de la Ley Nº 7563 del
-Presupuesto Ordinario y Extraordinario de la República para 1996
-del 13 de diciembre de 1995, establece:
-"Con el fin de cubrir el faltante de la Deuda Pública, se
-autoriza al Ministerio de Hacienda, mediante decreto
-ejecutivo, para incorporar en el Presupuesto Nacional los
-recursos que el Gobierno reciba del Instituto Costarricense de
-Acueductos y Alcantarillados, el Banco Central de Costa Rica
-y la Caja Costarricense de Seguro Social, como repago por los
-servicios de la deuda que el Ministerio haya contraído con
-organismos, por créditos otorgados a estas Instituciones.
-Mientras se procede con el decreto ejecutivo
-correspondiente, estos recursos se trasladarán a la cuenta
-"Saldos del presupuesto por ejecutar de la Contabilidad
-Nacional".
-3º.- Que el artículo 14, Sesión V de la Ley Nº 7563 del
-Presupuesto Ordinario y Extraordinario de la República para 1996,
-del 13 de diciembre de 1995, establece:
-"Con el fin de cubrir el faltante de la Deuda Pública,
-mediante decreto ejecutivo, se autoriza al Ministerio de
-Hacienda para incorporar en el Presupuesto Nacional, los
-recursos originados en la deuda bilateral del Gobierno con las
-instituciones del Sector Público, como producto de los
-convenios amparados en las Minutas del Club de París, para el
-faltante de la Deuda Externa del Gobierno Central, según la
-documentación respectiva.
-Mientras se procede con el decreto ejecutivo, estos
-recursos se trasladarán a la cuenta "Saldos del presupuesto
-por ejecutar en la Contabilidad Nacional".
-4º.- Que el artículo 17, sección V de la Ley Nº 7563 del
-Presupuesto Ordinario y Extraordinario de la República para 1996,
-del 13 de diciembre de 1995, establece:
-"Con el fin de cubrir el faltante de la Deuda Pública, se
-autoriza al Ministerio de Hacienda para incorporar, en el
-Presupuesto Nacional, mediante decreto ejecutivo, los recursos
-que el Gobierno Central reciba del Banco Nacional de Costa
-Rica como repago, según e] contrato de prestamo subsidiario
-con ese Banco derivado del contrato de préstamo suscrito con
-el Banco Internacional de Reconstrucción y Fomento Nº 2764-CR,
-aprobado en la Ley Nº 7090, del l0 de febrero de 1988.
-Mientras se procede con el decreto ejecutivo correspondiente,
-estos recursos se acreditarán a la cuenta "Saldos de
-Presupuesto por ejecutar en la Contabilidad Nacional".
-5º.- Que la Contabilidad Nacional, mediante oficio Nº
-SD-51-96, de fecha 26 de abril de 1996, certificó los saldos
-efectivamente disponibles.
-6º.- Que la Dirección del Crédito Público mediante oficios
-Nos. DCP-498 del 8 de mayo de 1996 y DCP-522, de 10 de mayo de 1996
-solicitó la confección del presente decreto ejecutivo. Por tanto,
+1º.-Que la Norma de Ejecución del Presupuesto contenida en el artículo 12 en su sección II AUTORIZACIONES, en el numeral 14 en su inciso a) de la Ley Nº 7563 del 13 de diciembre de 1995, establece: "Se faculta, mediante decreto ejecutivo, al Ministerio de Hacienda para modificar dentro de un mismo programa, lo siguiente:
+a) Efectuar traspasos de recursos entre las subpartidas de cada programa y crear las subpartidas necesarias, dentro del Título 124, Servicio de la Deuda Pública".
+2º.- Que el artículo 13, sección V de la Ley Nº 7563 del Presupuesto Ordinario y Extraordinario de la República para 1996 del 13 de diciembre de 1995, establece:
+"Con el fin de cubrir el faltante de la Deuda Pública, se autoriza al Ministerio de Hacienda, mediante decreto ejecutivo, para incorporar en el Presupuesto Nacional los recursos que el Gobierno reciba del Instituto Costarricense de Acueductos y Alcantarillados, el Banco Central de Costa Rica y la Caja Costarricense de Seguro Social, como repago por los servicios de la deuda que el Ministerio haya contraído con organismos, por créditos otorgados a estas Instituciones.
+Mientras se procede con el decreto ejecutivo correspondiente, estos recursos se trasladarán a la cuenta "Saldos del presupuesto por ejecutar de la Contabilidad Nacional".
+3º.- Que el artículo 14, Sesión V de la Ley Nº 7563 del Presupuesto Ordinario y Extraordinario de la República para 1996, del 13 de diciembre de 1995, establece:
+"Con el fin de cubrir el faltante de la Deuda Pública, mediante decreto ejecutivo, se autoriza al Ministerio de Hacienda para incorporar en el Presupuesto Nacional, los recursos originados en la deuda bilateral del Gobierno con las instituciones del Sector Público, como producto de los convenios amparados en las Minutas del Club de París, para el faltante de la Deuda Externa del Gobierno Central, según la documentación respectiva.
+Mientras se procede con el decreto ejecutivo, estos recursos se trasladarán a la cuenta "Saldos del presupuesto por ejecutar en la Contabilidad Nacional".
+4º.- Que el artículo 17, sección V de la Ley Nº 7563 de Presupuesto Ordinario y Extraordinario de la República para 1996, del 13 de diciembre de 1995, establece:
+"Con el fin de cubrir el faltante de la Deuda Pública, se autoriza al Ministerio de Hacienda para incorporar, en el Presupuesto Nacional, mediante decreto ejecutivo, los recursos que el Gobierno Central reciba del Banco Nacional de Costa Rica como repago, según e] contrato de prestamo subsidiario con ese Banco derivado del contrato de préstamo suscrito con el Banco Internacional de Reconstrucción y Fomento Nº 2764-CR, aprobado en la Ley Nº 7090, del l0 de febrero de 1988.
+Mientras se procede con el decreto ejecutivo correspondiente, estos recursos se acreditarán a la cuenta "Saldos de Presupuesto por ejecutar en la Contabilidad Nacional".
+5º.- Que la Contabilidad Nacional, mediante oficio Nº SD-51-96, de fecha 26 de abril de 1996, certificó los saldos efectivamente disponibles.
+6º.- Que la Dirección General de Gestión de Deuda Pública (*) mediante oficios Nos. DCP-498 del 8 de mayo de 1996 y DCP-522, de 10 de mayo de 1996 solicitó la confección del presente decreto ejecutivo. Por tanto,
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 DECRETAN
-Artículo 1º.- Modifícase los artículos 2º y 4º de la Ley Nº
-7563 del Presupuesto Ordinario y Extraordinario de la República
-para 1996, de la forma que se indica a continuacion:
-Artículo 2º
+Artículo 1º.- Modifícase los artículos 2º y 4º de la Ley Nº 7563 del Presupuesto Ordinario y Extraordinario de la República para 1996, de la forma que se indica a continuacion: Artículo 2º
 AUMENTAR:
 DETALLE DEL CALCULO DE LOS INGRESOS
 EXTRAORDINARIOS INTERNOS
