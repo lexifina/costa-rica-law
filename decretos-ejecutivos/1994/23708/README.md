@@ -13,3 +13,4 @@ Autoriza Cancelar Bonos Deuda Interna 15% 1993 IV Emisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-25 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
