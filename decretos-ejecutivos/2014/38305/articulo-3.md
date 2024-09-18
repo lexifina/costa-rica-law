@@ -1,7 +1,9 @@
-Artículo 3º—Del Director. El Director deberá planificar, dirigir, coordinar y controlar las actividades de la dependencia a su cargo, en procura de promover la adecuada obtención, utilización y control del endeudamiento público, así como la elaboración de la propuesta de la política y estrategia del financiamiento público; dentro de sus funciones principales están las siguientes:
+Artículo 3º-Del Director. El Director deberá planificar, dirigir, coordinar y controlar las actividades de la dependencia a su cargo, en procura de promover la adecuada obtención, utilización y control del endeudamiento público, así como la elaboración de la propuesta de la política y estrategia del financiamiento público; dentro de sus funciones principales están las siguientes:
 a. Establecer las políticas y orientaciones para el funcionamiento de la dependencia a su cargo.
-b. Planificar, dirigir, supervisar, controlar y evaluar las actividades desarrolladas dentro de la Dirección de Crédito Público.
-c. Representar a la Dirección de Crédito Público ante las autoridades gubernamentales y organismos nacionales e internacionales.
+b. Planificar, dirigir, supervisar, controlar y evaluar las actividades desarrolladas dentro de la Dirección General de Gestión de Deuda Pública(*).
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
+c. Representar a la Dirección General de Gestión de Deuda Pública(*) ante las autoridades gubernamentales y organismos nacionales e internacionales.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 d. Proponer la política de endeudamiento público a la Autoridad Presupuestaria y dar el seguimiento a la ejecución de la misma.
 e. Recomendar a la Autoridad Presupuestaria la autorización de las solicitudes de entidades y los organismos del sector público para contratar operaciones de crédito público.
 f. Procurar el desarrollo y utilización de instrumentos para determinar y gestionar los niveles de sostenibilidad de la deuda.
@@ -21,5 +23,6 @@ s. Llevar un control y dar seguimiento a los diferentes informes sobre la ejecuc
 t. Planificar y dar seguimiento a la ejecución presupuestaria de la Dirección de Crédito Público en conjunto con la gestoría.
 u. Definir las necesidades de bienes y servicios con el insumo presentado por los Departamentos, así como en la formulación del Plan de compras conforme a los lineamientos y directrices emitidos por la Proveeduría Institucional.
 v. Promover la gestión de calidad en los productos, servicios y acciones que realice la Dirección.
-w. Aprobar el Plan Estratégico de la Dirección de Crédito Público.
+w. Aprobar el Plan Estratégico de la Dirección General de Gestión de Deuda Pública(*).
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 x. Las demás funciones que correspondan de conformidad con la constitución, las leyes y demás disposiciones normativas.

@@ -1,4 +1,5 @@
-Artículo 2º—De la estructura organizacional. La Dirección de Crédito Público dispondrá de la siguiente estructura organizacional para el cumplimiento de sus funciones:
+Artículo 2º-De la estructura organizacional. La Dirección General de Gestión de Deuda Pública(*) dispondrá de la siguiente estructura organizacional para el cumplimiento de sus funciones:
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 A. Dirección
 B. Asesoría Legal
 C. Departamento de Inversión Pública

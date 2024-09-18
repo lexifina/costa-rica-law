@@ -15,3 +15,4 @@ Reglamento de organización de la Dirección de Crédito Público
 | --- | --- | --- |
 | 1 | 2014-04-14 | la propia norma |
 | 2 | 2016-12-19 | Decreto Ejecutivo 40355 (2016-12-19) |
+| 3 | 2024-09-18 | Ley 10524 |
