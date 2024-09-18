@@ -1,1 +1,1 @@
-ARTÍCULO 28.- Nombramiento de árbitros. Cuando deban nombrarse tres árbitros, cada una de las partes nombrará a uno de ellos. Los árbitros así nombrados escogerán al tercer árbitro, quien ejercerá las funciones de presidente del tribunal.
+ARTÍCULO 28.- Nombramiento de árbitros. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)
