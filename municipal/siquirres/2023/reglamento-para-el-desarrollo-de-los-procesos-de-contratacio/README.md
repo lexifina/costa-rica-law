@@ -14,3 +14,4 @@ Reglamento para el desarrollo de los procesos de contratación pública de la Mu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-01 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
