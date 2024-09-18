@@ -15,3 +15,4 @@ Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Aten
 | --- | --- | --- |
 | 1 | 2017-02-23 | la propia norma |
 | 2 | 2023-09-19 | Decreto Ejecutivo 44263 (2023-09-19) |
+| 3 | 2024-09-18 | Ley 10524 |
