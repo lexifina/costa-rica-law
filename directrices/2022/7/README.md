@@ -14,3 +14,4 @@ Estrategia de Deuda de Mediano Plazo 2022-2027
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-02 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
