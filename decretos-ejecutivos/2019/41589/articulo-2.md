@@ -5,4 +5,5 @@ c) Programación de los desembolsos de los recursos del financiamiento en trámi
 d) Borrador del contrato de préstamo con los términos y condiciones financieras del crédito (acreedor, monto y moneda a contratar, tasa de interés, plazo de gracia, amortización, período de desembolso, tipo de garantía, comisiones y otros).
 e) Fundamento legal de la entidad para contratar o avalar crédito público.
 f) En el caso de que la Dirección lo considere necesario, podrá solicitar información adicional para el análisis de la solicitud.
-La Dirección de Crédito Público analizará la información remitida y emitirá la recomendación correspondiente dentro de un plazo de 1 O días hábiles al Ministro de Hacienda, para la aprobación o denegatoria del aval.
+La Dirección General de Gestión de Deuda Pública (*) analizará la información remitida y emitirá la recomendación correspondiente dentro de un plazo de 10 días hábiles al Ministro de Hacienda, para la aprobación o denegatoria del aval.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

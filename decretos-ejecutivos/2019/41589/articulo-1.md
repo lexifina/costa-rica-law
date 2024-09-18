@@ -13,4 +13,5 @@ Por tanto,
 DECRETAN:
 REGLAMENTO AL ARTÍCULO 15 DE LA LEY Nº 8634, SISTEMA DE BANCA
 PARA EL DESARROLLO
-Artículo 1 º- Garantía solidaria. Para iniciar trámites para obtener créditos en el exterior así como créditos internos, en los cuales se requiera garantía solidaria del Estado, el Sistema de Banca para el Desarrollo deberá contar con el aval del Ministerio de Hacienda. Para estos efectos, el Ministerio de Hacienda a través de la Dirección de Crédito Público participará en las negociaciones de crédito.
+Artículo 1 º- Garantía solidaria. Para iniciar trámites para obtener créditos en el exterior así como créditos internos, en los cuales se requiera garantía solidaria del Estado, el Sistema de Banca para el Desarrollo deberá contar con el aval del Ministerio de Hacienda. Para estos efectos, el Ministerio de Hacienda a través de la Dirección General de Gestión de Deuda Pública (*) participará en las negociaciones de crédito.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

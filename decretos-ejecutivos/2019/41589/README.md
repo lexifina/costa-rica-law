@@ -14,3 +14,4 @@ Reglamento al artículo 15 de la Ley N° 8634 "Ley Sistema de Banca para el Desa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-28 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
