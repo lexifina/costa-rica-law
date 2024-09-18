@@ -2609,8 +2609,9 @@ G-O FF C-E CF I-P CONCEPTO MONTO EN ¢
 107 CAPACITACION Y PROTOCOLO 2,000,000
 10701 001 1120 1112 ACTIVIDADES DE CAPACITACION
 (PARA PAGO DE CAPACITACIÓN A FUNCIONARIOS DE LA
-DIRECCIÓN DE CRÉDITO PÚBLICO EN MATERIA DE
+Dirección General de Gestión de Deuda Pública(*) EN MATERIA DE
 ENDEUDAMIENTO) .
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 20 24. Anteriormente indicaba "Dirección de Crédito Público")
 2,000,000
 108 MANTENIMIENTO Y REPARACION 2,500,000
 10801 001 1120 1112 MANTENIMIENTO DE EDIFICIOS,LOCALES Y TERRENOS 2,500,000
