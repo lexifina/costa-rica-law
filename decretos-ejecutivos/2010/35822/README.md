@@ -14,3 +14,4 @@ Procedimientos para la aplicación y seguimiento de las Directrices Generales de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-19 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
