@@ -14,3 +14,4 @@ Deroga decreto que Crea Unidad de Apoyo a la Gestión de Proyectos del Minist. d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-19 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
