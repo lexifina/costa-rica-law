@@ -8,7 +8,8 @@ c. Oficio del Ministro de Hacienda que valide el apoyo financiero al Proyecto, c
 d. Plan de inversión del ente público, que refleje el orden de prioridades de sus proyectos de inversión.
 e. Resumen ejecutivo del programa o proyecto por financiar con los recursos del endeudamiento solicitado.
 f. Borrador del contrato de la operación de crédito.
-g. Criterio de la Dirección de Crédito Público del Ministerio de Hacienda que valide las condiciones financieras de la operación de endeudamiento en cuestión.
+g. Criterio de la Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda que valide las condiciones financieras de la operación de endeudamiento en cuestión.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 h. Criterio emitido por Mideplan sobre el proyecto de inversión pública.
 i. Sobre gestión del riesgo cambiario se refiere a las medidas que tomará el deudor para la gestión del riesgo cambiario, cuando sus ingresos sean en colones y el servicio de la deuda se deba realizar en una moneda distinta.
 j. Cualquier otra información que el Banco Central considere relevante para el análisis de la solicitud.

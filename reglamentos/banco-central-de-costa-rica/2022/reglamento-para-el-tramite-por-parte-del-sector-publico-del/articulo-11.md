@@ -1,4 +1,4 @@
-Artículo 11.-Criterio de la Dirección de Crédito Público La entidad solicitante del dictamen del BCCR deberá acompañar su solicitud con el criterio de la Dirección de Crédito Público del Ministerio de Hacienda que valide las condiciones financieras de la operación de endeudamiento en cuestión.
+Artículo 11.-Criterio de la Dirección General de Gestión de Deuda Pública (*) La entidad solicitante del dictamen del BCCR deberá acompañar su solicitud con el criterio de la Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda que valide las condiciones financieras de la operación de endeudamiento en cuestión.
 El Banco Central revisará que este criterio contenga la siguiente información que se estima fundamental para la valoración del caso específico y por ende para la emisión del dictamen solicitado. De no incorporar esa información, la entidad solicitante deberá aportarla mediante los mecanismos que estime pertinentes, previa coordinación con el BCCR:
 1. Un análisis sobre:
 a. Si las condiciones financieras son adecuadas y convenientes para el país.

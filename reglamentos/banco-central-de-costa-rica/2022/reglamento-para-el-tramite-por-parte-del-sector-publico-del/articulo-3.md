@@ -7,8 +7,8 @@ c. Deuda Pública: Es el endeudamiento resultante de las operaciones de crédito
 3) El otorgamiento de avales, fianzas y garantías, cuyo vencimiento supere el período del ejercicio económico en que se contraen.
 4) La consolidación, conversión y renegociación de deudas.
 5) La adquisición de bienes y servicios que se paguen total o parcialmente en el transcurso de un ejercicio económico posterior al período de su presupuestación.
-d. Dirección de Crédito Público del Ministerio de Hacienda: Órgano rector del Subsistema de Crédito Público. Este último está conformado por los mecanismos y procedimientos utilizados, así como por los organismos que participan en la obtención, el seguimiento y control de los recursos internos y externos originados por la vía del endeudamiento
-público de mediano y largo plazo.
+d. Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda: Órgano rector del Subsistema de Crédito Público. Este último está conformado por los mecanismos y procedimientos utilizados, así como por los organismos que participan en la obtención, el seguimiento y control de los recursos internos y externos originados por la vía del endeudamiento público de mediano y largo plazo.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 e. Mideplan: Ministerio de Planificación Nacional y Política Económica.
 f. PND: Plan Nacional de Desarrollo.
 g. Reglamento: El presente instrumento normativo.

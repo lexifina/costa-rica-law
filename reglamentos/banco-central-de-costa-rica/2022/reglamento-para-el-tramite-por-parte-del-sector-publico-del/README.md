@@ -14,3 +14,4 @@ Reglamento para el trámite por parte del sector público del dictamen del Banco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-07-05 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
