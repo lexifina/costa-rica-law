@@ -15,3 +15,4 @@ Normas Técnicas Lineamientos y Procedimientos de Inversión Pública
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
 | 2 | 2021-09-15 | Decreto Ejecutivo 43251 (2021-09-15) |
+| 3 | 2024-09-18 | Ley 10524 |
