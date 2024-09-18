@@ -14,3 +14,4 @@ Modifica Ley Presupuesto Ordinario y Extraordinario de la República para Ejerci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-07 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
