@@ -1,4 +1,5 @@
-Artículo 6. Requisitos de los informes de seguimiento a ser presentados a la Dirección de Crédito Público. Todo informe de seguimiento facilitado por los Organismos Ejecutores a través de sus-Unidades Ejecutoras o Coordinadoras de programas/proyectos deberá contener al menos la siguiente información actualizada según fecha de corte:
+Artículo 6. Requisitos de los informes de seguimiento a ser presentados a la Dirección General de Gestión de Deuda Pública (*). Todo informe de seguimiento facilitado por los Organismos Ejecutores a través de sus-Unidades Ejecutoras o Coordinadoras de programas/proyectos deberá contener al menos la siguiente información actualizada según fecha de corte:
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 a) Montos desembolsados y ejecutados según fuente de financiamiento y sus respectivas programaciones.
 b) Avances físicos y financieros de las actividades/obras y sus respectivas programaciones.
 c) Principales problemas y riesgos presentes en la ejecución y sus respectivos planes de acción para gestionarlos.

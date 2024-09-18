@@ -14,3 +14,4 @@ Reglamento para el seguimiento de programas y proyectos financiados mediante cr√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-28 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
