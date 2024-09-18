@@ -19,3 +19,4 @@ Reglamento de la Organización de la Tesorería Nacional
 | 4 | 2007-03-27 | Decreto Ejecutivo 33653 (2007-01-24) |
 | 5 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |
 | 6 | 2014-01-30 | Decreto Ejecutivo 38263 (2014-01-30) |
+| 7 | 2024-09-18 | Ley 10524 |
