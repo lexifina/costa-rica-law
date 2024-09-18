@@ -1,4 +1,5 @@
-Artículo 5º—Las entidades públicas, ministerios y demás órganos según corresponda, podrán solicitar autorización para contratar créditos internos y externos para el financiamiento de proyectos, siempre y cuando:
+Artículo 5º-Las entidades públicas, ministerios y demás órganos según corresponda, podrán solicitar autorización para contratar créditos internos y externos para el financiamiento de proyectos, siempre y cuando:
 a) Se trate de proyectos definidos como prioritarios por parte del Gobierno de la República de conformidad con el PND o el Plan Nacional de Inversión Pública, o en caso de emergencia nacional sea necesario destinar recursos a la compra de bienes y servicios o la realización de obras.
 b) La ejecución, pago de intereses y comisiones, estén contemplados dentro de los montos del gasto presupuestario máximo, establecidos para cada entidad y ministerio.
-c) Cumplan con lo estipulado en el Procedimiento para el endeudamiento público que emita la Dirección de Crédito Público como órgano rector del Subsistema de Crédito Público.
+c) Cumplan con lo estipulado en el Procedimiento para el endeudamiento público que emita la Dirección General de Gestión de Deuda Pública (*) como órgano rector del Subsistema de Crédito Público.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
