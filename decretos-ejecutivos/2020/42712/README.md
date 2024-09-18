@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9524 Ley de Fortalecimiento del Control Presupuestario d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-08 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |

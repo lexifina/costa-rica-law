@@ -1,1 +1,2 @@
-Artículo 30.—Deber de información. Todo OD comunicará a la Dirección de Crédito Público, sobre cualquier situación adversa que pueda poner en riesgo, el cumplimiento a sus obligaciones financieras relacionadas con los contratos de préstamo que suscriba.
+Artículo 30.-Deber de información. Todo OD comunicará a la Dirección General de Gestión de Deuda Pública(*), sobre cualquier situación adversa que pueda poner en riesgo, el cumplimiento a sus obligaciones financieras relacionadas con los contratos de préstamo que suscriba.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
