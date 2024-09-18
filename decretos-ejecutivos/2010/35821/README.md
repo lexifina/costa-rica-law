@@ -35,3 +35,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 20 | 2011-08-25 | Decreto Ejecutivo 36753 (2011-08-25) |
 | 21 | 2011-08-25 | Decreto Ejecutivo 36772 (2011-08-25) |
 | 22 | 2011-08-25 | Decreto Ejecutivo 36756 (2011-08-25) |
+| 23 | 2024-09-18 | Ley 10524 |

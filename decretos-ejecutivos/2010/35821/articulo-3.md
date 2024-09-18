@@ -1,6 +1,6 @@
 CAPÍTULO II
 De las inversiones financieras
-Artículo 3º—Las inversiones financieras se regirán por las siguientes disposiciones:
+Artículo 3º-Las inversiones financieras se regirán por las siguientes disposiciones:
 a) Las nuevas adquisiciones de activos financieros a plazo en moneda nacional o extranjera o la renovación de este tipo de operaciones, con excepción de lo que establecen los incisos f) y g) de este mismo artículo, se harán únicamente en títulos de deuda interna del Gobierno, que ofrecerá el Ministerio de Hacienda (MH), según el siguiente detalle:
 Plazo en moneda nacional Tipo de Título
 Menor o igual a 30 días- Cero cupón del MH
@@ -9,7 +9,8 @@ Mayor a 30 a menos de 365 días- Cero cupón del MH
 TUDES
 Igual o mayor a un año plazo- TUDES del MH
 Bonos de Renta Fija
-Lo anterior según las condiciones de rendimiento que defina el MH, a través de las Políticas Generales de Captación de la Tesorería Nacional. En caso de que la programación financiera de la Dirección de Tesorería Nacional o la Política de Endeudamiento Público de la Dirección de Crédito Público, indiquen que no se requiere la captación de recursos de las entidades públicas, la Dirección de Tesorería Nacional podrá autorizarlos temporalmente para que puedan invertir en los instrumentos de corto plazo del Banco Central de Costa Rica (BCCR).
+Lo anterior según las condiciones de rendimiento que defina el MH, a través de las Políticas Generales de Captación de la Tesorería Nacional. En caso de que la programación financiera de la Dirección de Tesorería Nacional o la Política de Endeudamiento Público de la Dirección General de Gestión de Deuda Pública(*), indiquen que no se requiere la captación de recursos de las entidades públicas, la Dirección de Tesorería Nacional podrá autorizarlos temporalmente para que puedan invertir en los instrumentos de corto plazo del Banco Central de Costa Rica (BCCR).
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 20 24. Anteriormente indicaba "Dirección de Crédito Público")
 Las entidades públicas invertirán en colones y unidades de desarrollo, según sea la política del MH.
 Las inversiones en moneda extranjera únicamente se aceptarán de manera excepcional y de conformidad con la Política de Endeudamiento del MH. No obstante, la Dirección de Tesorería Nacional podrá, en caso de que por alguna razón el plazo y monto de la inversión no sea de interés del MH, autorizar a la entidad pública a colocar los recursos de manera temporal en los bancos del Estado.
 b) Las inversiones de las entidades públicas en valores emitidos por el Estado, deberán realizarse mediante compra directa en el MH o por medio de los mecanismos que este autorice en su oportunidad. También podrán realizarse en el BCCR de forma excepcional según lo indicado en el inciso a).
