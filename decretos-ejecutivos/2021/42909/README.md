@@ -14,3 +14,4 @@ Directrices generales de Política Presupuestaria, salarial, empleo, inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-25 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
