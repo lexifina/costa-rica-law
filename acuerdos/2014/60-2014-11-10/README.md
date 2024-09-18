@@ -15,3 +15,4 @@ Procedimiento para la selección de contratación del banco o bancos colocadores
 | --- | --- | --- |
 | 1 | 2014-11-10 | la propia norma |
 | 2 | 2015-01-21 | Acuerdo 5 (2015-01-21) |
+| 3 | 2024-09-18 | Ley 10524 |
