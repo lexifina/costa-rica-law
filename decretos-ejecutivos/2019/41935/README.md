@@ -14,3 +14,4 @@ Aprobación de la Política de Endeudamiento para el Sector Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-26 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
