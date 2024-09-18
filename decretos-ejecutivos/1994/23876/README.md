@@ -13,3 +13,4 @@ Modificación Presupuestaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-12-21 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
