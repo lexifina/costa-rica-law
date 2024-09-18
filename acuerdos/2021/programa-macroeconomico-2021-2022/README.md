@@ -14,3 +14,4 @@ Programa Macroeconómico 2021-2022
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-09 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
