@@ -71,3 +71,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 56 | 2013-11-01 | Decreto Ejecutivo 38026 (2013-11-01) |
 | 57 | 2013-11-12 | Decreto Ejecutivo 38048 (2013-11-12) |
 | 58 | 2013-11-12 | Decreto Ejecutivo 38052 (2013-11-12) |
+| 59 | 2024-09-18 | Ley 10524 |
