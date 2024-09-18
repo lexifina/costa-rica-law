@@ -14,3 +14,4 @@ Reforma decreto N° 38148 Crea la Unidad de Asuntos Internacionales del Minister
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-26 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
