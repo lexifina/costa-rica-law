@@ -1,3 +1,0 @@
-Transitorio único.-Las solicitudes para gestionar las autorizaciones de endeudamiento que hubieran sido presentadas junto con la información requerida ante la Dirección General de Gestión de Deuda Pública (*) antes de la entrada en vigencia del presente reglamento, no tendrán que ajustarse a lo dispuesto en este reglamento, en cuyo caso el trámite de autorización continuará conforme las disposiciones previas vigentes.
-(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
-Dado en la Presidencia de la República.-San José, a los dos días del mes marzo del año dos mil nueve.

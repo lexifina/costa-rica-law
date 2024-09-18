@@ -1,1 +1,0 @@
-Artículo 2º—Formulación de proyectos. Para el trámite de un crédito interno o externo, previamente deberá formularse el respectivo proyecto, conforme la metodología y orientaciones que emitan los órganos competentes en materia de inversión pública, exceptuando el caso en el cual el crédito no esté asociado a un proyecto

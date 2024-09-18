@@ -1,2 +1,0 @@
-Artículo 19.-Ampliación de las líneas de crédito. En caso de que una entidad requiera incrementar el monto autorizado a utilizar por concepto de una línea de crédito, ésta debe presentar a la Dirección General de Gestión de Deuda Pública (*) la solicitud con la información descrita en el artículo 15 del presente reglamento.
-(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

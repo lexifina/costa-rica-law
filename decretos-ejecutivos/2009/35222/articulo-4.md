@@ -1,1 +1,0 @@
-Artículo 4º—Trámite de endeudamiento. Para la autorización de crédito público del Gobierno de la República, entidades públicas, y demás órganos según corresponda, se ajustarán a la normativa vigente y a las disposiciones que se establecen en el presente Reglamento, según el mecanismo de endeudamiento.
