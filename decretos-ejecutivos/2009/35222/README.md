@@ -15,3 +15,4 @@ Reglamento para Gestionar la Autorización para la Contratación del Crédito P�
 | --- | --- | --- |
 | 1 | 2009-05-14 | la propia norma |
 | 2 | 2024-07-31 | Decreto Ejecutivo 44604 (2024-07-31) |
+| 3 | 2024-09-18 | Ley 10524 |
