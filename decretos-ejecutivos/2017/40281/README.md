@@ -34,3 +34,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | 19 | 2018-09-12 | Decreto Ejecutivo 41321 (2018-09-12) |
 | 20 | 2018-10-08 | Decreto Ejecutivo 41355 (2018-10-08) |
 | 21 | 2018-11-26 | Decreto Ejecutivo 41477 (2018-11-26) |
+| 22 | 2024-09-18 | Ley 10524 |
