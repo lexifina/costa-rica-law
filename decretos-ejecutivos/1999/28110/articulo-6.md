@@ -1,1 +1,2 @@
-Artículo 6º—Tanto los intereses como la amortización se cancelarán previa comunicación del Banco Central de Costa Rica a la Dirección de Crédito Público del Ministerio de Hacienda, para el respectivo respaldo presupuestario.
+Artículo 6º-Tanto los intereses como la amortización se cancelarán previa comunicación del Banco Central de Costa Rica a la Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda, para el respectivo respaldo presupuestario.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

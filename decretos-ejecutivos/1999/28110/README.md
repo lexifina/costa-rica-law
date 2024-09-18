@@ -15,3 +15,4 @@ Reglamento para Emisión de Títulos Valores de Deuda Interna
 | --- | --- | --- |
 | 1 | 1999-01-01 | la propia norma |
 | 2 | 1999-09-06 | SINALEVI (sin norma nombrada) |
+| 3 | 2024-09-18 | Ley 10524 |
