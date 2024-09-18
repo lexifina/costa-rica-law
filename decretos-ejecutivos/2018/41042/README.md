@@ -15,3 +15,4 @@ Procedimiento para la determinación de riesgos fiscales y de contingencias fisc
 | --- | --- | --- |
 | 1 | 2018-05-07 | la propia norma |
 | 2 | 2023-06-08 | Decreto Ejecutivo 44221 (2023-06-08) |
+| 3 | 2024-09-18 | Ley 10524 |
