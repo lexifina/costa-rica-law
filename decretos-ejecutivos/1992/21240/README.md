@@ -14,3 +14,4 @@ Reforma Órganos del Ministerio de Hacienda Competentes en Materia de Crédito P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-05-11 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
