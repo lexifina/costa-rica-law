@@ -14,3 +14,4 @@ Reglamento para la negociación y la contratación del endeudamiento público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-08-29 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
