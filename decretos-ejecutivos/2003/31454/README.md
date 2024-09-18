@@ -14,3 +14,4 @@ Crea Dependencia Ejecutora MOPT-KFW adscrita a la División de Obras Públicas p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-18 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
