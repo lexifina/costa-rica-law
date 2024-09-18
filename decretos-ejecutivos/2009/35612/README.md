@@ -14,3 +14,4 @@ Modifica Ley de presupuesto Ordinarioy Extraordinario de la República para el E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-26 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
