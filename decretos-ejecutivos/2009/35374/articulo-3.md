@@ -1,1 +1,0 @@
-Artículo 3º—Las modificaciones a las “Normas Técnicas, Lineamientos y Procedimientos de Inversión Pública” estarán a cargo de MIDEPLAN, se publicarán en su sitio electrónico y se comunicarán vía circular a los Ministros Rectores Sectoriales y a los jerarcas institucionales.
