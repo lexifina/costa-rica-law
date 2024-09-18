@@ -1,2 +1,0 @@
-Artículo 138.—Presentación de informes. Dentro de los primeros quince días del mes de enero de cada año, el Titular de cada Institución del Gobierno Central, remitirá a la Dirección General de Administración de Bienes y Contratación Administrativa, el inventario general de los bienes nacionales que se encuentran bajo su administración. Adicionalmente, presentará los informes periódicos que la Dirección General le requiera en el ejercicio de su competencia.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 32815 del 9 de noviembre del 2005)

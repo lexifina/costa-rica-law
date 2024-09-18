@@ -1,1 +1,0 @@
-Artículo 98.—Cesiones de créditos. Toda persona que posea derechos de crédito cuyo deudor sea el Tesoro Público y los ceda a un tercero, deberán presentar el contrato respectivo respetando todas las formalidades que para tales efectos establece el Código Civil, de conformidad con las disposiciones y procedimientos que al efecto establezca la Tesorería Nacional.

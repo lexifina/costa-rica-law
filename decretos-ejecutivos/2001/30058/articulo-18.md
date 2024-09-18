@@ -1,2 +1,0 @@
-Artículo 18.—Secretaría Técnica. La Autoridad Presupuestaria contará con una Secretaría Técnica, que actuará como órgano ejecutivo. El Director de la Secretaría Técnica es un funcionario de confianza, cuyo nombramiento lo hará el Ministro de Hacienda, pudiendo recaer en el Director General de Presupuesto Nacional.
-El Director de la Secretaría Técnica asistirá a las sesiones de la Autoridad Presupuestaria, con voz pero sin derecho a voto.

@@ -1,2 +1,0 @@
-Artículo 53.—Registro, control y aprobación de la ejecución. El registro, control y aprobación de las operaciones contables que se realizan durante el proceso de ejecución presupuestaria, se hará por los medios electrónicos y documentos autorizados por el rector del Sistema de Administración Financiera y conforme a los Manuales de Procedimientos del Sistema Integrado de la Gestión de la Administración Financiera y la normativa legal vigente.
-(Así reformado por el artículo 2 del decreto ejecutivo N° 31975 del 13 de agosto del 2004)

@@ -1,1 +1,0 @@
-Artículo 117.—Conformación de la Contabilidad Nacional. La Contabilidad Nacional contará con el personal que sea necesario para el cumplimiento de sus labores y tendrá la estructura organizativa que defina el Poder Ejecutivo, mediante Reglamento, a propuesta del Contador Nacional.

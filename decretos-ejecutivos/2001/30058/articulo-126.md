@@ -1,4 +1,0 @@
-Artículo 126.—Respaldo documental del registro contable. El archivo documental resultante de las operaciones contables se mantendrá por 5 años, salvo en el caso de los salarios devengados por los funcionarios del Gobierno de la República, que se mantendrá por 35 años. Posteriormente será trasladado al Archivo Nacional.
-Será responsabilidad de las unidades financieras a que se refiere el artículo 21 del presente Reglamento, archivar y custodiar la documentación que respalde esas operaciones contables, también durante un período de 5 años.
-Los archivos documentales podrán ser sustituidos por archivos electrónicos o microfilmados al amparo de las disposiciones legales establecidas.
-(Así reformado por artículo 1° del Decreto ejecutivo N° 30903 de 9 de diciembre de 2002)

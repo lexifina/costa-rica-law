@@ -1,1 +1,0 @@
-Artículo 143.—Control interno. La Administración Central deberá adecuar y perfeccionar sus métodos y procedimientos de control interno, respecto del mantenimiento, conservación y disposición de sus bienes, de acuerdo con las normas que dicte la Dirección General de Administración de Bienes y Contratación Administrativa.

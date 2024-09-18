@@ -1,1 +1,0 @@
-Artículo 106.—Control. La Tesorería Nacional deberá mantener un control estricto y revisión periódica de las emisiones de los valores. Para tal efecto, levantará un registro de las fechas de vencimiento y emisión de valores que se ofrezcan por los diferentes mecanismos de colocación, y las oficializará como considere pertinente.

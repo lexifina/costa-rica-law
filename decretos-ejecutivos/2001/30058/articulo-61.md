@@ -1,2 +1,0 @@
-Artículo 61.—Consolidación preliminar. Con base en las propuestas de programación que presenten los órganos del Gobierno de la República, la Dirección General de Presupuesto Nacional procederá a realizar una consolidación preliminar de la ejecución, que servirá para determinar, en coordinación con la Tesorería Nacional, las cuotas periódicas máximas por las que el Gobierno de la República podrá comprometerse al pago de sus obligaciones.
-(Así reformado por artículo 1° del Decreto Ejecutivo N° 30903 de 9 de diciembre de 2002).

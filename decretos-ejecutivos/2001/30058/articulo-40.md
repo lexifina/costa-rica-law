@@ -1,1 +1,0 @@
-Artículo 40.—Clasificación de ingresos. El presupuesto de ingresos se elaborará considerando su naturaleza económica, para lo cual se distinguirá entre ingresos corrientes, ingresos de capital y fuentes de financiamiento.

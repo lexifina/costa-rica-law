@@ -1,1 +1,0 @@
-Artículo 25.—Conformación de la Dirección de Presupuesto. La Dirección General de Presupuesto Nacional contará con el personal que sea necesario para el cumplimiento de sus labores y tendrá la estructura organizativa que defina el Poder Ejecutivo, mediante Reglamento, a propuesta del Director General de Presupuesto.

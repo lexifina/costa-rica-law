@@ -1,2 +1,0 @@
-Artículo 57.—Compromisos no devengados. Los compromisos no devengados a que se refiere el artículo 46 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, son aquellas obligaciones que tienen su origen en una relación jurídica con un tercero y se respaldan en documentos de ejecución debidamente aprobados, autorizados, refrendados y registrados en los sistemas informáticos de apoyo a la gestión financiera, antes del 31 de diciembre de cada año.
-(Así reformaod por el artículo 1 del Decreto Ejecutivo N° 30662 de 1 de julio del 2002)

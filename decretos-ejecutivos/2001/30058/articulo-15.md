@@ -1,1 +1,0 @@
-Artículo 15.—Control y seguimiento. Corresponderá a la Secretaría Técnica de la Autoridad Presupuestaria mantener un control del cumplimiento de las directrices y lineamientos, generales y específicos.

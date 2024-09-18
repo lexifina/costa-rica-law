@@ -1,2 +1,0 @@
-Artículo 65.—Programación de transferencias. Corresponderá a la Dirección General de Presupuesto Nacional en coordinación con la Tesorería Nacional establecer la programación financiera de las transferencias corrientes y de capital de cada ejercicio económico, tomando en consideración la programación que los destinatarios remitan, a más tardar el 31 de diciembre del ejercicio anterior, y la disponibilidad de recursos con que cuente el Estado en cada periodo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31975 del 13 de agosto del 2004)

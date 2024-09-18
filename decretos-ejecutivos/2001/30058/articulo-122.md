@@ -1,1 +1,0 @@
-Artículo 122.—Informes. Además de los informes que se consignan en el artículo 96 de la Ley de Administración Financiera de la República y Presupuestos Públicos, la Contabilidad Nacional elaborará y presentará al Ministro de Hacienda un informe mensual de los ingresos, gastos y financiamiento de la Administración Central.

@@ -1,1 +1,0 @@
-Artículo 86.—Coordinación. Con el propósito de confeccionar los contratos a que se refiere el artículo anterior, la Tesorería Nacional deberá coordinar con las Administraciones Tributarias los aspectos que estén bajo el ámbito de su competencia.

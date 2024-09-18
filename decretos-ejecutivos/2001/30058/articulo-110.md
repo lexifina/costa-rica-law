@@ -1,2 +1,0 @@
-Artículo 110.-Órgano rector. La Dirección General de Gestión de Deuda Pública (*) del Ministerio de Hacienda es el órgano rector del Subsistema de Crédito Público. Dicho órgano depende jerárquicamente del Tesorero Nacional.
-(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")

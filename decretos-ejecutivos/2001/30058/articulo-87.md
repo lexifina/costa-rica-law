@@ -1,1 +1,0 @@
-Artículo 87.—Suministro de información. La Tesorería Nacional suministrará a las Administraciones Tributarias la información que éstas requieran, para efectos estadísticos y del control de la gestión cobratoria.
