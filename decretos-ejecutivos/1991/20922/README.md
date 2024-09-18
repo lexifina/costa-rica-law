@@ -14,3 +14,4 @@ Toda Negociación Crédito Externo debe Autorizarse en forma escrita por MIDEPLA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-01-15 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
