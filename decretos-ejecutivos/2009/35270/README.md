@@ -15,3 +15,4 @@ Aprueba Política de Endeudamiento Público
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
 | 2 | 2019-08-16 | Decreto Ejecutivo 41935 (2019-08-16) |
+| 3 | 2024-09-18 | Ley 10524 |
