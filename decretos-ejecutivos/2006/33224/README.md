@@ -15,3 +15,4 @@ Procedimiento para la incorporación y desincorporación de saldos disponibles d
 | --- | --- | --- |
 | 1 | 2006-07-24 | la propia norma |
 | 2 | 2015-07-22 | Decreto Ejecutivo 39183 (2015-07-22) |
+| 3 | 2024-09-18 | Ley 10524 |
