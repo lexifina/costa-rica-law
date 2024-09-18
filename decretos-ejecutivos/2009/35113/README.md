@@ -15,3 +15,4 @@ Procedimientos para la Aplicación y Seguimiento de las Directrices generales de
 | --- | --- | --- |
 | 1 | 2009-03-24 | la propia norma |
 | 2 | 2010-03-04 | Decreto Ejecutivo 35822 (2010-03-04) |
+| 3 | 2024-09-18 | Ley 10524 |
