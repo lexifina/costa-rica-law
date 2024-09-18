@@ -45,3 +45,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 30 | 2017-10-09 | Decreto Ejecutivo 40702 (2017-10-09) |
 | 31 | 2017-10-18 | Decreto Ejecutivo 40731 (2017-10-18) |
 | 32 | 2017-10-25 | Decreto Ejecutivo 40732 (2017-10-25) |
+| 33 | 2024-09-18 | Ley 10524 |
