@@ -87,3 +87,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 72 | 2009-11-24 | Decreto Ejecutivo 35639 (2009-11-24) |
 | 73 | 2009-11-30 | Decreto Ejecutivo 35643 (2009-11-30) |
 | 74 | 2012-05-11 | Ley 9036 |
+| 75 | 2024-09-18 | Ley 10524 |
