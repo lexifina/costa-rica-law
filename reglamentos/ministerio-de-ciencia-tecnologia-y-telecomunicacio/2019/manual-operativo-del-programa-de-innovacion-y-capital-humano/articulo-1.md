@@ -5,8 +5,8 @@ LA COMPETITIVIDAD
 2852/OC-CR
 CONTENIDO
 Contenido
-SIGLAS……………………………………………………………………………………………………………5
-DEFINICIONES…………………………………………………………………………………………………..5
+SIGLAS.........................................5
+DEFINICIONES.......................................5
 CAPÍTULO I. MARCO REFERENCIAL .........................................................................................8
 1) Objetivo General.....................................................................................................................8
 2) Objetivos Específicos ...........................................................................................................8
@@ -16,7 +16,7 @@ CAPÍTULO I. MARCO REFERENCIAL .................................................
 4) Detalle de la inversión ...........................................................................................................9
 5) Documentos del Programa .................................................................................................. 10
 CAPÍTULO II. MANUAL DE OPERACIONES DEL PROGRAMA (MOP) ....................................... 11
-1) Propósito………………………………………………………........................................................ 11
+1) Propósito............................................................................. 11
 2) Vigencia y procedimiento para realizar modificaciones al MOP .............................................. 11
 CAPÍTULO III. LINEAMIENTOS GENERALES DE ...................................................................... 12
 EJECUCIÓN DE LOS COMPONENTES ................................................................................... 12
@@ -54,12 +54,12 @@ CAPÍTULO IV MONITOREO Y EVALUACIÓN ...........................................
 CAPÍTULO SÉPTIMO: COMPONENTES DEL PROGRAMA ............................................. 27
 SECCIÓN I: COMPONENTE I. INVERSIÓN PARA LA INNOVACIÓN EMPRESARIAL ........ 27
 Subcomponente I.1: Desarrollo de Capacidades Empresariales ...................................... 27
-1) Objetivo………………………....................................................................................... 27
+1) Objetivo................................................................................................ 27
 2) Beneficiarios ............................................................................................................ 27
-3) Proyectos a financiar…………………………………...................................................... 27
-4) Condiciones de financiamiento………………………..................................................... 27
+3) Proyectos a financiar................................................................... 27
+4) Condiciones de financiamiento.............................................................. 27
 5) Rubros financiables ................................................................................................. 28
-6) Evaluación de las solicitudes de financiamiento………………………………................. 28
+6) Evaluación de las solicitudes de financiamiento............................. 28
 7) Ejecución del proyecto ............................................................................................ 28
 Subcomponente I.2: Proyectos de Innovación y de Transferencia de Tecnología ............ 29
 1) Objetivo .................................................................................................................. 29
@@ -72,8 +72,8 @@ Subcomponente I.2: Proyectos de Innovación y de Transferencia de Tecnología ..
 Subcomponente I.3: Nuevas Empresas de Base Tecnológica ........................................ 30
 1) Objetivo .................................................................................................................. 30
 2) Beneficiarios ........................................................................................................... 31
-3) Proyectos a financiar………………………………………………………........................... 31
-4) Condiciones de financiamiento………………………………………………………............. 31
+3) Proyectos a financiar................................................ 31
+4) Condiciones de financiamiento.................................. 31
 5) Evaluación de solicitudes de financiamiento ............................................................. 31
 6) Ejecución del proyecto ............................................................................................ 31
 Sección II: COMPONENTE CAPITAL HUMANO AVANZADO PARA LA COMPETITIVIDAD ....................... 32
@@ -85,7 +85,7 @@ Subcomponente II.1. Programa de Formación de Recursos Humanos Avanzados .......
 5) Rubros financiables ................................................................................................ 34
 6) Evaluación de solicitudes de financiamiento ............................................................ 36
 Subcomponente II.2 Programa de Atracción de Talentos .............................................. 37
-1) Objetivo………………………………………………………….......................................... 37
+1) Objetivo................................................................ 37
 2) Beneficiarios .......................................................................................................... 37
 3) Proyectos a financiar............................................................................................... 37
 4) Condiciones de financiamiento................................................................................ 37
@@ -185,8 +185,8 @@ TOTAL | 35.000.000 | 100
 En caso de que aún se cuente con recursos una vez adjudicada la cantidad de beneficios establecida al Programa, el MICITT, previa recomendación de la Comisión de Incentivos, podrá trasladar recursos entre subcomponentes, así como incrementar la cantidad de beneficios. Ambos deberán contar con la anuencia del Ministerio de Hacienda y la no objeción del Banco Interamericano de Desarrollo.
 5) Documentos del Programa
 Disposiciones especiales aplicables al Programa en orden de prelación:
-A. Ley No.9218 “Aprobación del Contrato de Préstamo No. 2852/OC-CR suscrito entre la República de Costa Rica y el Banco Interamericano de Desarrollo para financiar el Programa de Innovación y Capital Humano para la Competitividad”.
-B. Ley No.9241 “Modificación de la Ley No. 9193, Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio económico 2014, y primer presupuesto extraordinario de la República para el ejercicio económico 2014”.
+A. Ley No.9218 "Aprobación del Contrato de Préstamo No. 2852/OC-CR suscrito entre la República de Costa Rica y el Banco Interamericano de Desarrollo para financiar el Programa de Innovación y Capital Humano para la Competitividad".
+B. Ley No.9241 "Modificación de la Ley No. 9193, Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio económico 2014, y primer presupuesto extraordinario de la República para el ejercicio económico 2014".
 C. Contrato de préstamo No.2852/OC-CR suscrito entre la República de Costa Rica y el Banco Interamericano de Desarrollo y su Anexo Único.
 D. El presente Manual de Operaciones del Programa.
 E. Convenios y acuerdos interinstitucionales de cooperación suscritos entre el MICITT y otras entidades.
@@ -228,11 +228,11 @@ La Secretaria Técnica de la Comisión de Incentivos tendrá al menos las siguie
 3. Suministrar a la Comisión de Incentivos la información y el apoyo logístico necesario para la buena marcha de la Comisión.
 4. Otras que la Comisión de Incentivos le asigne.
 E. Dirección de Innovación del MICITT
-La Dirección de Innovación del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de los concursos, referido principalmente al Componente I “Inversión para la Innovación Empresarial” y complementariamente, en coordinación con la Dirección de Apropiación Social del Conocimiento del MICITT, lo que se refiere al Componente II “Capital Humano Avanzado para la Competitividad”.
+La Dirección de Innovación del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de los concursos, referido principalmente al Componente I "Inversión para la Innovación Empresarial" y complementariamente, en coordinación con la Dirección de Apropiación Social del Conocimiento del MICITT, lo que se refiere al Componente II "Capital Humano Avanzado para la Competitividad".
 F. Dirección de Apropiación Social del Conocimiento del MICITT
-La Dirección de Apropiación Social del Conocimiento del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de las concursos, referido principalmente al Componente II “Capital Humano avanzado para la Competitividad” y complementariamente, en coordinación con la Dirección de Innovación del MICITT, lo que se refiere al Componente I “Inversión para la Innovación Empresarial”. Asimismo, debe emitir a solicitud de la UE, criterio razonado en torno al contenido innovador y a la atinencia con las áreas estratégicas del PNCTI, de las solicitudes de financiamiento recibidas.
+La Dirección de Apropiación Social del Conocimiento del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de las concursos, referido principalmente al Componente II "Capital Humano avanzado para la Competitividad" y complementariamente, en coordinación con la Dirección de Innovación del MICITT, lo que se refiere al Componente I "Inversión para la Innovación Empresarial". Asimismo, debe emitir a solicitud de la UE, criterio razonado en torno al contenido innovador y a la atinencia con las áreas estratégicas del PNCTI, de las solicitudes de financiamiento recibidas.
 G. Dirección de Investigación y Desarrollo Tecnológico del MICITT
-La Dirección de Investigación y Desarrollo Tecnológico del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de los concursos, de los Componentes I “Inversión para la Innovación Empresarial” y II “Capital Humano avanzado para la Competitividad”, en coordinación con las Direcciones de Innovación y de Apropiación Social del Conocimiento del MICITT. Asimismo, debe emitir a solicitud de la UE, criterio razonado en torno al contenido innovador y a la atinencia con las áreas estratégicas del PNCTI, de las solicitudes de financiamiento recibidas.
+La Dirección de Investigación y Desarrollo Tecnológico del MICITT debe definir la estrategia de implementación y asesorar a la UE en la elaboración de los lineamientos técnicos de las bases de los concursos, de los Componentes I "Inversión para la Innovación Empresarial" y II "Capital Humano avanzado para la Competitividad", en coordinación con las Direcciones de Innovación y de Apropiación Social del Conocimiento del MICITT. Asimismo, debe emitir a solicitud de la UE, criterio razonado en torno al contenido innovador y a la atinencia con las áreas estratégicas del PNCTI, de las solicitudes de financiamiento recibidas.
 H. Unidad Ejecutora (UE)
 La UE tendrá al menos las siguientes funciones y atribuciones:
 1. Velar por el cumplimiento de las disposiciones contenidas en el Contrato de Préstamo No.2852/OC-CR y en el presente MOP.
@@ -257,7 +257,8 @@ La UE tendrá al menos las siguientes funciones y atribuciones:
 20. Preparar los contratos tipo de cada subcomponente. Previo a la solicitud de no objeción del BID, estos contratos tipo deberán contar con el visto bueno de la Asesoría Jurídica del MICITT, el cual se deberá emitir en el plazo máximo de 10 días hábiles.
 21. Crear y custodiar los expedientes de los beneficios otorgados.
 22. Preparar las solicitudes de desembolso al BID.
-23. Elaborar en tiempo y forma los distintos informes requeridos por el BID, la Dirección de Crédito Público y la Dirección General de Presupuesto Nacional, ambas del Ministerio de Hacienda, y las dependencias internas del MICITT.
+23. Elaborar en tiempo y forma los distintos informes requeridos por el BID, la Dirección General de Gestión de Deuda Pública(*) y la Dirección General de Presupuesto Nacional, ambas del Ministerio de Hacienda, y las dependencias internas del MICITT.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 24. En casos especiales, solicitar al CONICIT o a PROCOMER su criterio para continuar con el giro de los desembolsos aprobados en el contrato.
 25. Elaborar las liquidaciones correspondientes para la Tesorería Nacional (Caja única).
 26. Cualquier otra que el MICITT le asigne en el marco de las competencias que le corresponden a la UE.
@@ -320,7 +321,7 @@ F. Presentar certificación de personería jurídica con no más de un mes de ex
 G. Presentar certificación de propiedad y naturaleza de las acciones, con no más de un mes de expedida.
 En ambos casos, para mantener la condición de beneficiario, los solicitantes deberán cumplir con los requisitos A, B, C, D y E durante todo el plazo de vigencia del contrato de incentivos.
 5) Participación de grupos de empresas
-En los casos de los concursos en los que se habilite la participación de grupos de empresas, cada grupo deberá estar constituido como un consorcio pyme de conformidad con lo establecido en la “Ley para el fomento de la competitividad de la PYME mediante el desarrollo de consorcios” No.9576, y deberá aportar un contrato consorcial que contendrá como mínimo, lo siguiente:
+En los casos de los concursos en los que se habilite la participación de grupos de empresas, cada grupo deberá estar constituido como un consorcio pyme de conformidad con lo establecido en la "Ley para el fomento de la competitividad de la PYME mediante el desarrollo de consorcios" No.9576, y deberá aportar un contrato consorcial que contendrá como mínimo, lo siguiente:
 A. Lugar y fecha de constitución del consorcio.
 B. Definición del tipo de consorcio empresarial.
 C. Objeto.

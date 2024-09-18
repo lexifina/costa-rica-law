@@ -14,3 +14,4 @@ Manual Operativo del Programa de Innovación y Capital humano para la competitiv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-03-26 | la propia norma |
+| 2 | 2024-09-18 | Ley 10524 |
