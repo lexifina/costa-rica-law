@@ -1,10 +1,11 @@
-Artículo 39°— De las Funciones de la Unidad de Control y Servicio de Operaciones de Deuda. Las principales funciones de la Unidad de Control y Servicio de Operaciones de la Deuda son las siguientes:
+Artículo 39°- De las Funciones de la Unidad de Control y Servicio de Operaciones de Deuda. Las principales funciones de la Unidad de Control y Servicio de Operaciones de la Deuda son las siguientes:
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 a) Realizar el análisis, control e informes sobre las transacciones de la deuda Gobierno Central.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 b) Administrar y efectuar control transaccional de la emisión de los valores de deuda con las dependencias e instituciones correspondientes.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
-c) Brindar a la Dirección de Crédito Público información complementaria de gestión de pasivos del Gobierno Central, para que el mismo consolide y publique las estadísticas y registros de deuda consolidada del Sector Público.
+c) Brindar a la Dirección General de Gestión de Deuda Pública(*) información complementaria de gestión de pasivos del Gobierno Central, para que el mismo consolide y publique las estadísticas y registros de deuda consolidada del Sector Público.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024. Anteriormente indicaba "Dirección de Crédito Público")
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 d) Realizar el pago del servicio de la deuda interna, de los títulos valores desmaterializados emitidos por el Ministerio de Hacienda.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)

@@ -15,3 +15,4 @@ Reglamento de Organización de la Tesorería Nacional
 | --- | --- | --- |
 | 1 | 2014-04-09 | la propia norma |
 | 2 | 2017-06-19 | Decreto Ejecutivo 40641 (2017-06-19) |
+| 3 | 2024-09-18 | Ley 10524 |
