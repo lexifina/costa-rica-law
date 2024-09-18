@@ -1,1 +1,2 @@
-Artículo 6º—Las entidades públicas y demás órganos que utilicen líneas de crédito, deberán seguir el procedimiento que estipule la Dirección de Crédito Público en la normativa vigente.
+Artículo 6º-Las entidades públicas y demás órganos que utilicen líneas de crédito, deberán seguir el procedimiento que estipule la Dirección General de Gestión de Deuda Pública(*) en la normativa vigente.
+(*)(Así modificada su denominación por el artículo 4 de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 20 24. Anteriormente indicaba "Dirección de Crédito Público")
