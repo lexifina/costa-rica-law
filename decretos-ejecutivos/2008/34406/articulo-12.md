@@ -1,1 +1,0 @@
-Artículo 12.—Los recursos locales que se requieran en adición a los provenientes de fuentes externas y en caso de proyectos financiados parcialmente con empréstitos del exterior, serán aportados por la dependencia encargada de la ejecución del proyecto.

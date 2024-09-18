@@ -1,3 +1,0 @@
-CAPÍTULO IV
-De la deuda pública
-Artículo 10.—Para la contratación de crédito interno y externo para el financiamiento de proyectos y de líneas de crédito, las entidades públicas, los ministerios y demás órganos según corresponda, cumplirán con los trámites respectivos ante los órganos y entidades correspondientes, de conformidad con la normativa vigente.
