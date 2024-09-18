@@ -1,1 +1,0 @@
-Artículo 3º—Del ámbito. Las disposiciones de este reglamento son de aplicación a todos los entes y órganos del sector público costarricense en lo que respecta al registro de las transacciones referidas a la deuda externa.

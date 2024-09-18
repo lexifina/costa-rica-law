@@ -1,2 +1,0 @@
-Artículo 10.—Registro del servicio de la deuda. Para efectos del registro del servicio de la deuda externa, las entidades que conforman el Sector Público Costarricense deberán aportar a la Tesorería Nacional, la información correspondiente, atendiendo los formatos y especificaciones que establezca la misma y comunique formalmente a los prestatarios.
-Además, dichas entidades deberán indicar cuando el pago es realizado a través del Banco Central de Costa Rica, Bancos del Estado o cualquier otra entidad financiera.
