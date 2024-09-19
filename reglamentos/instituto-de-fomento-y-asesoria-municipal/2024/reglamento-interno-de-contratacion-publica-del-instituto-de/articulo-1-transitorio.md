@@ -1,0 +1,1 @@
+.Transitorio I.- Todos los procedimientos de compra iniciados con anterioridad a la entrada en vigor del presente Reglamento se regirán por los requisitos internos que se describan tanto en el presente reglamento como en el Instructivo del Reglamento.

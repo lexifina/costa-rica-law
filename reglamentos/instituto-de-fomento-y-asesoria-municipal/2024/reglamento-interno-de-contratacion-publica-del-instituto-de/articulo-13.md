@@ -1,0 +1,2 @@
+Artículo 13.- Seguimiento del Programa de Adquisiciones.
+Corresponderá a la UAC presentar semestralmente a la Dirección Ejecutiva una evaluación del Programa de Adquisiciones, documentando su porcentaje de cumplimiento. En caso de solicitudes de contratación que no se hayan recibido en el plazo previsto, deberá adjuntar el detalle de éstas, para que sea valorado por la Dirección Ejecutiva, juntamente con la DS queno requirió la contratación conforme lo programado.

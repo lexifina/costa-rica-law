@@ -1,0 +1,3 @@
+Artículo 29.- Convocatoria a sesiones.
+La JA podrá reunirse en cualquier momento, debiendo existir una antelación mínima de un día hábil entre el llamado a sesionar que gestione la UAC y el día de la sesión. En caso de estar todos los miembros de acuerdo, podrá sesionarse el mismo día en que se remite la onvocatoria.
+El quórum se formará por mayoría absoluta, es decir, la mitad más uno de los miembros presentes. Si no hubiere quórum, la JA podrá sesionar válidamente en segunda convocatoria, después de media hora y para ello deberán estar presentes al menos dos de los miembros con derecho a voto.

@@ -1,0 +1,3 @@
+Artículo 39.- Gestión de pago.
+La forma de pago será parcial o total, conforme se defina en el apartado de especificaciones técnicas del pliego de condiciones, una vez que se cuenta con el trámite correspondiente en el SAF y el acta provisional y definitiva en el SDU, así como realizada la solicitud de gestión de pago por parte del contratista, lo anterior conforme se establezca en el Instructivo de Reglamento.
+Cuando se requiera, en forma extraordinaria, y así lo establezca el pliego de condiciones, podrá convenirse adelanto de pagos o pagos por anticipado, en cuyo caso la DS o Área Técnica deberá asegurar previamente el cumplimiento de lo que establece la LGCP y su Reglamento.

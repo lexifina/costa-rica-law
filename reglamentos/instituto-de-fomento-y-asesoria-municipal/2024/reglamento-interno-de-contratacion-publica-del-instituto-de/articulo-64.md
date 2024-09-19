@@ -1,0 +1,6 @@
+Artículo 64.- Suspensión del plazo y de la ejecución del contrato.
+a. Suspensión del plazo del contrato: La CSC por sí misma o a solicitud del contratista, podrá solicitar la suspensión del plazo del contrato por motivos de fuerza mayor o caso fortuito por un plazo debidamente acreditado y justificado.
+b. Suspensión de la ejecución del contrato: La CSC, podrá solicitar la suspensión del plazo del contrato por motivos de interés público, institucional o causas imprevistas o imprevisibles en la contratación por un plazo debidamente acreditado y justificado.
+La solicitud de suspensión del plazo y de la ejecución del contrato deberá ser resuelta en el plazo que establezca la UAC. Para formalizar la solicitud de suspensión se deberá cumplir con lo que al respecto señala la LGCP y su reglamento y los requisitos que se indique en el Instructivo del Reglamento.
+La solicitud de suspensión será conocida y resuelta por la UAC, independientemente del tipo de procedimiento, en caso de que la UAC considere conveniente podrá someter a conocimiento y resolución de la JA la solicitud de suspensión de cualquier contratación.
+Cuando se trate de una licitación mayor la resolución sobre la solicitud de suspensión será comunicada por la UAC a la JD.

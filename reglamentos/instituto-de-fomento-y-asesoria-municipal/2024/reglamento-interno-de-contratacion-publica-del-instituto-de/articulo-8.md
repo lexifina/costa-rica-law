@@ -1,0 +1,2 @@
+Artículo 8.- Alertas tempranas.
+La DS está facultada en el empleo de alertas tempranas que constituyen avisos mediante los cuales se comunica la intención de efectuar un procedimiento de compra, antes de que se ponga a disposición el pliego de condiciones con el propósito de informar a los terceros interesados y para alertar a los posibles oferentes y permitirles una preparación previa al momento de la promoción del concurso. La realización de alertas tempranas no implica una obligación de promover el procedimiento.

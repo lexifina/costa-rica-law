@@ -1,0 +1,2 @@
+Artículo 43.- Modificaciones al pliego de condiciones y prórrogas al plazo de apertura de ofertas.
+La CSC y la UAC podrán requerir de oficio, la modificación del pliego de condiciones o del plazo para la apertura de ofertas, de acuerdo con las competencias de cada una, conforme los procedimientos que deberá conocer la JD de acuerdo con su competencia, la JD deberá conocer las modificaciones del pliego de condiciones de fondo, con excepción de las solicitudes de prorroga al plazo de apertura de ofertas.

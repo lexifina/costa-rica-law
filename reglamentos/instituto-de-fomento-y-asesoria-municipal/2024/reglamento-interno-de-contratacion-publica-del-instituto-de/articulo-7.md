@@ -1,0 +1,3 @@
+Artículo 7.- Presupuestación de las adquisiciones.
+La inclusión de recursos en el presupuesto para las contrataciones deberá estar precedida de la identificación de la necesidad que se pretende satisfacer, la solución técnica que mejor se ajusta a la satisfacción del interés público y de una estimación sustentada del precio por parte de la DS - o AT, correspondiente.
+De la anterior obligación se entenderán exceptuadas las previsiones para los mantenimientos correctivos, previstos en la Ley General de Contratación pública y su Reglamento y aquellas que por su condición de emergencia no fue posible incluir un monto aproximado en el presupuesto ordinario del año siguiente.

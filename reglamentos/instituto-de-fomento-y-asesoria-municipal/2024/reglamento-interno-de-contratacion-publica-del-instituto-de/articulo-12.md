@@ -1,0 +1,3 @@
+Artículo 12.- Cronograma de las actividades.
+La UAC deberá elaborar un cronograma de actividades estándar para cada tipo de procedimiento de contratación, de manera que resulte en un insumo para que, junto con los plazos de entrega estimados de cada proceso, las Dependencias Solicitantes determinen las fechas probables de recepción de los productos del objeto de la contratación, de manera que se estime el monto a presupuestar conforme la periodicidad de los pagos y que no se presupueste en un año recursos que no van a ser desembolsados.
+Dichos cronogramas serán ajustados por la UAC cada vez que resulte necesario ajustar los tiempos estimados de alguna de las actividades.

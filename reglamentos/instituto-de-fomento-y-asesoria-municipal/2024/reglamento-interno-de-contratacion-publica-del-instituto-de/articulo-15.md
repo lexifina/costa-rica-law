@@ -1,0 +1,4 @@
+Artículo 15.- Plazos para solicitar el inicio de los procedimientos.
+En los seis primeros meses de cada año deberá solicitarse por medio del SDU a la UAC las compras programadas y solo en casos excepcionales, podría programarse para diferentes meses, conforme se defina en el Instructivo Reglamentario.
+Le corresponderá a la UAC comunicar, entre los meses de enero y febrero, las fechas máximas para la emisión de la solicitud de contratación, correspondiente a los procedimientos de contratación previstos dentro del Programa de Adquisiciones, de acuerdocon la información indicada por las DS.
+La UAC de acuerdo con la capacidad instalada de recurso humano y su programación de actividades atenderá las solicitudes que reciba de acuerdo con el orden de recepción y solo en caso debidamente justificados podrá alterar el orden de atención.

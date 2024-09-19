@@ -1,0 +1,2 @@
+Artículo 68.- Expediente de contratación electrónica.
+En la tramitación de contrataciones el expediente será el que mantenga el sistema respectivo. En el expediente electrónico deberán adjuntarse todos los documentos que respaldan la contratación, si no pueden ser incluidos en un módulo específico del SDU se incluirán en un apartado general de este.

@@ -1,0 +1,2 @@
+Artículo 70.- Sanciones a funcionarios públicos.
+Los tipos de sanciones y los motivos para aplicarlas a funcionarios públicos, así como el plazo de prescripción, serán los establecidos en la LGCP. El proceso para imponer sanciones se regirá por lo dispuesto en el Reglamento Autónomo de Organización y Servicio del IFAM y, en ausencia de este, por lo establecido en la Ley General de la Administración Pública.

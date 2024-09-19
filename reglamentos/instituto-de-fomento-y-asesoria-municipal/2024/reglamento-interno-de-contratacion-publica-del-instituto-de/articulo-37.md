@@ -1,0 +1,3 @@
+Artículo 37.- Solicitud de una contratación por excepción o especial.
+Para las contrataciones que se requieran, al amparo de alguna de las excepciones o procedimientos especiales incluida en la Ley General de Contratación Pública, corresponderá a CSC, antes de formalizar la decisión inicial en el SDU, analizar cuál de las opciones del mercado es la idónea para satisfacer la necesidad Institucional y determinar por qué la aplicación de una excepción o procedimiento especial es el que mejor satisface el interés público.
+La CSC debe verificar el cumplimiento por parte del proveedor seleccionado de todos los requisitos que se detallan en el Instructivo del Reglamento.
