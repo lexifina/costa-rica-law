@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE SAN CARLOS
+POLÍTICA MUNICIPAL DE LAS PERSONAS ADULTAS
+MAYORES DE SAN CARLOS
+RESUMEN EJECUTIVO 2023 - 2033
+El Concejo Municipal de San Carlos en su Sesión Ordinaria celebrada el lunes 22 de enero del 2024, en el Salón de Sesiones de la Municipalidad de San Carlos Artículo N.º XI, Acuerdo N.º 11 Acta N.º 05, ACORDÓ: Aprobar la POLÍTICA MUNICIPAL PARA LA PERSONA ADULTA MAYOR presentada por la Administración Municipal para el periodo 2023-2033 y procedan con los necesario para su legalización.
+I. PRESENTACIÓN
+Con su Política Municipal de las Personas Adultas Mayores de San Carlos 2023 - 2033, la Municipalidad busca confirmar su compromiso por garantizar el ejercicio efectivo de los derechos humanos de todas las personas que habitan en el Cantón sin discriminación de ninguna naturaleza.
+Además, apunta a cumplir con los compromisos nacionales e internacionales en materia de defensa de los derechos de las personas adultas mayores y avanzar para convertirse en un Cantón amigable con esta población. En esta línea, durante el proceso de su construcción y planificación hubo una participación amplia, permanente y representativa de las personas adultas mayores (PAM) de los trece distritos de San Carlos.
+Además de los diferentes sectores directamente relacionados, a saber: gobierno local, instituciones, líderes y lideresas comunales, organizaciones locales, sector privado, personas cuidadoras de PAM, personas expertas en cuido y atención de PAM y otros, en un esfuerzo de trabajo conjunto bajo la supervisión de la Dirección de Desarrollo Social.
+En una primera fase del proyecto se elaboró un Diagnóstico completo del Estado de las Personas Adultas Mayores de San Carlos donde se presentaron datos y análisis relacionados con aspectos demográficos, económicos, de salud integral, bienestar familiar y cuido de las personas adultas mayores del Cantón.
+La segunda fase consistió en la construcción del documento de la Política con los antecedentes, una síntesis del abordaje metodológico, el marco normativo, un marco de referencia conceptual, los objetivos y ejes estratégicos y las matrices de planificación estratégica para el periodo de vigencia del instrumento.
+El presente resumen ejecutivo presenta los elementos más destacados de la Política, sintetizando los diferentes apartados con el fin de proveer a la persona lectora un documento con los elementos cruciales que ofrecen un panorama general de lo que encontrará en el informe completo.
