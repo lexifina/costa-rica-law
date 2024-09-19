@@ -1,0 +1,1 @@
+TRANSITORIO TERCERO. La aplicación de este reglamento tendrá vigencia en cada una de las islas y en cada una de las zonas indicadas en la Ley N.º 9779, hasta tanto se cuenten con un plan regulador debidamente aprobado y en vigor.

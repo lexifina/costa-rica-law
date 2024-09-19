@@ -1,0 +1,3 @@
+Artículo 7º-Pago de Canon. Sobre él avaluó DZMT señalado en él inciso g) del artículo 3 de presente reglamento, para los casos que no califiquen pobreza extrema, la Municipalidad cobrará por concepto de canon el 1% y para los casos calificados en pobreza extrema se aplicará el cobro por el 0,25%, éste último es el porcentaje mínimo establecido en el artículo 52 del Reglamento de la Ley 6043.
+Este canon no genera ningún tipo de derecho de titulación o concesión a la persona que se lo otorga el uso de suelo.
+Por su naturaleza e interés público, se exceptúa del pago de este canon los proyectos de bonos comunales o colectivos.

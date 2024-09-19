@@ -1,0 +1,1 @@
+TRANSITORIO CUARTO. Con la entrada en vigencia de los planes reguladores en cada una de las zonas de las islas y la comunidad de la Islita, las personas en posesión de un uso de suelo deberán, en un plazo no mayor a 12 meses, realizar el procedimiento de concesión que la Ley N.º 6043 y el plan regulador determinen.

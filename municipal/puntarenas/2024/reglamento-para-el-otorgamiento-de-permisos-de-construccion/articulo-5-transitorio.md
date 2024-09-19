@@ -1,0 +1,4 @@
+TRANSITORIO QUINTO. Durante los primeros seis meses de la entrada en vigencia del presente reglamento, la Municipalidad de Puntarenas trasladará funcionarios de las oficinas correspondientes a la Isla Chira, al menos cada 15 días, para brindar información sobre los alcances de esta reglamentación, recibir solicitudes de uso de suelo, permisos de construcción y elaborar los avalúos correspondientes. La Municipalidad de Puntarenas calendarizará todas las fechas de estos traslados y llevará a cabo un proceso de difusión a través de su página web y redes sociales para informar a la comunidad de estas visitas y sus propósitos web y pondrá a través de este medio a disposición los formularios de solicitudes.
+El presente reglamento entra en vigencia a partir de la publicación en el Diario Oficial La Gaceta.
+Puntarenas, 29 de agosto de 2024.-
+<span style='font-family:"Arial",sans-serif; </body>

@@ -1,0 +1,1 @@
+TRANSITORIO SEGUNDO. Las solicitudes de permisos de construcción y la generación de fincas sin inscribir pendientes de aprobación previo a la entrada en vigencia del presente reglamento, se deberán tramitar y aprobar en la forma en que la administración municipal lo ha realizado anteriormente.

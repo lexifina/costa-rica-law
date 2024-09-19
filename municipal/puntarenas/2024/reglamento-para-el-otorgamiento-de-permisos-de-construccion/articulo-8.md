@@ -1,0 +1,4 @@
+CAPÍTULO V
+Artículo 8º-Plazos de resolución. Toda solicitud de licencia deberá resolverse por la Unidad de Gestión Urbana y Territorial dentro del término de diez días hábiles contados a partir del día siguiente de su presentación. Los proyectos complejos y atípicos o que implican un estudio técnico especial
+tendrán un plazo de resolución de treinta días hábiles. La Municipalidad podrá solicitar el criterio de otras instituciones o solicitar la ampliación de la información al interesado para tomar la decisión final.
+En cualquiera de los casos, si no se diere respuesta a la solicitud, dentro del término de diez días hábiles posteriores al vencimiento del plazo se deberá cumplir con lo que establece la Ley Nº 8220. Pudiendo operar el silencio positivo a favor del administrado, de conformidad con el procedimiento establecido en la Ley General de la Administración Pública.
