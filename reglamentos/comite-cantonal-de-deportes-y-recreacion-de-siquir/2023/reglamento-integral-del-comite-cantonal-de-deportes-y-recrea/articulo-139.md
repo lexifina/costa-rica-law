@@ -1,0 +1,1 @@
+ARTÍCULO 139.. La Junta Directiva deberá someter el presupuesto anual, para su conocimiento al Concejo Municipal en la primera semana del mes de julio, de conformidad con el artículo 181 del Código Municipal, juntamente con el Plan Anual Operativo que lo respalde, que serán trasladados a la Comisión de Hacienda y Presupuesto para su estudio y recomendaciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. El CCDRS deberá elaborar un plan presupuestario ordinario anual y los extraordinarios correspondientes, por medio de los cuales se proyecte la ejecución del destino de los recursos conforme a los programas anuales de actividades, obras e inversión. Estos deben siembre ajustarse al Plan Operativo Anual, previamente presentado por el Concejo entiempo y forma.

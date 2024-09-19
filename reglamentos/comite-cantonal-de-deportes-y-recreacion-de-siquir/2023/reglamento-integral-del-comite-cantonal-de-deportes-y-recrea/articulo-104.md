@@ -1,0 +1,2 @@
+ARTÍCULO 104.. Cierre de las instalaciones.
+El CCDRS se reserva el derecho a cerrar las instalaciones deportivas municipales dadas en administración por el Concejo Municipal, mediante resolución o acuerdo debidamente motivado por la Junta Directiva, por razones sanitarias, de orden público y seguridad, programaciones propias como competiciones, partidos, cursos o cualesquiera otra que debidamente justifique e implique el mencionado cierre.

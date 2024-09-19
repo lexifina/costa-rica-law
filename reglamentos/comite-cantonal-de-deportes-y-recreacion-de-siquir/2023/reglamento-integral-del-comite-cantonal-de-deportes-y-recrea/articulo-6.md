@@ -1,0 +1,1 @@
+ARTÍCULO 6. Tendrá su domicilio legal, en el Distrito Central, en el Polideportivo Municipal de Siquirres ubicado en Barrio Mangal de Siquirres, pudiendo variar la sede de manera temporal, para realizar actividades especiales, siempre dentro del Cantón de Siquirres.

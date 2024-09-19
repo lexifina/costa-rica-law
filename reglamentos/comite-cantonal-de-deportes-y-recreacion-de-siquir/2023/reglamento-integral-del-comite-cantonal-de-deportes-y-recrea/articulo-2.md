@@ -1,0 +1,1 @@
+ARTÍCULO 2. El CCDRS podrá dictar lineamientos para el desarrollo e implementación de lo dispuesto en este reglamento, en aras a obtener una mejor prestación del servicio público; en el tanto no violente la jerarquía de las fuentes del ordenamiento jurídico administrativo conforme lo establece el artículo 6 de la Ley General de la Administración Pública.

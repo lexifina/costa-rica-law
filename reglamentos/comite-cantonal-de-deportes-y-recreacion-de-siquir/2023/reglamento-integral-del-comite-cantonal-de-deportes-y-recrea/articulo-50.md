@@ -1,0 +1,1 @@
+ARTÍCULO 50. Para todas las sesiones, será aplicable lo dispuesto en este reglamento para la Junta Directiva del CCDRS, y en general toda la normativa de este reglamento en cuanto sea aplicable a los CC.

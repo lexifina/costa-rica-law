@@ -1,0 +1,1 @@
+ARTICULO 149. El CCDRS deberá ajustar sus procedimientos para con los proveedores de bienes y servicios, respecto de las regulaciones pertinentes sobre la factura electrónica sin excepción alguna; salvo los casos explícitos contemplados en la Ley del Impuesto sobre el Valor Agregado.

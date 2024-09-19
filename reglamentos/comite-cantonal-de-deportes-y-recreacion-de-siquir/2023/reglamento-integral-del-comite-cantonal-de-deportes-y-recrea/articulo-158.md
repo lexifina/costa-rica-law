@@ -1,0 +1,1 @@
+ARTICULO 158. Toda compra pública deberá hacerse con cargo a la partida presupuestaria respectiva. Para esos efectos, el Tesorero de Junta Directiva con apoyo del contador deberá hacer constar de previo y por escrito a iniciar un procedimiento de contratación, que existe el respectivo contenido presupuestario en relación al PAO, sobre cada nuevo proceso de compra.

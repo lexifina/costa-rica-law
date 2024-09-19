@@ -1,0 +1,2 @@
+NORMAS DE UTILIZACIÓN DE LOS ESPACIOS DEPORTIVOS PARA OTRAS ACTIVIDADES (NO DEPORTIVAS).
+ARTICULO 113.. Para el uso de instalaciones municipales en el cantón y bajo administración del CCDRS, en cuanto a la celebración de actividades culturales, espectáculos deportivos extraordinarios, actividades extradeportivas, o en su defecto la utilización dentro de las instalaciones deportivas de espacios para alquiler de locales comerciales, rótulos, bodegas u otros, se deberá ajustar a lo que se indica en los siguientes artículos.

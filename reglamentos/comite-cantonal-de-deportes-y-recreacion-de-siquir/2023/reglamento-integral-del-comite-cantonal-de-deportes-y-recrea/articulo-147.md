@@ -1,0 +1,1 @@
+ARTICULO 147. Todos los egresos deberán encontrarse respaldados por facturas debidamente autorizadas por el Ministerio de Hacienda, salvo aquellas que la ley misma las exceptúe, pero sometido a los procedimientos pertinentes.

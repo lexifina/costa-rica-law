@@ -1,0 +1,2 @@
+ARTÍCULO 90.. Las Instalaciones deportivas y recreativas municipales podrán ser destinadas al deporte y recreación de tipo educativo escolar, ocio, competición, social, en el tanto se cumplan los requisitos reglamentarios.
+En cada instalación podrá practicarse los deportes para los cuales fue destinada. Será también posible la práctica de otros deportes, siempre que se pueda técnicamente y previa autorización de la Junta Directiva del CCDR o CC que ejerza la administración.

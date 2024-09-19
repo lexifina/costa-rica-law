@@ -1,0 +1,1 @@
+ARTÍCULO 134.. El CCDRS, con antelación suficiente, comunicará a los CC o las comisiones de administración de instalaciones deportivas los días reservados por el propio CCDRS para el desarrollo de sus actividades, en los cuales no se podrán conceder reservas.

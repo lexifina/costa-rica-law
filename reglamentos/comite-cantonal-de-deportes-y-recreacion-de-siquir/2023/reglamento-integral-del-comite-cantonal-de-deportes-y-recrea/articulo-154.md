@@ -1,0 +1,1 @@
+ARTICULO 154. El refrendo de los contratos se regirán con las estipulaciones que al efecto establece las normas técnicas emanadas por las autoridades competentes. Los refrendos, los otorgará el asesor legal del CCDRS o en su defecto la Unidad Jurídica de la Municipalidad de Siquirres.

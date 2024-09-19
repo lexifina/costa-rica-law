@@ -1,0 +1,4 @@
+DE LAS ESCUELAS DEPORTIVAS.
+ARTÍCULO 131. Desarrollo de Escuelas Deportivas.
+El CCDRS debe de establecer programas bajo el modelo de desarrollo de escuelas deportivas, utilizando las instalaciones deportivas municipales administradas por el CCDRS por sí mismo o por medio de los CC, Comisiones estructuradas para ese fin, o bien por asociaciones deportivas como se indica más adelante.
+Entidades adscritas al CCDRS, legalmente constituidas e inscritas ante los respectivos registros nacionales, que se encuentren al día con todas sus obligaciones tributarias, laborales, municipales y ante la CCSS; podrán en coordinación con el aval de la Junta Directiva del CCDRS, desarrollar escuelas deportivas o en su defecto tomar en arrendamiento las instalaciones del CCDRS para la realización de esa función.

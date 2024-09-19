@@ -1,0 +1,1 @@
+ARTÍCULO 35. Todos los órganos colegiados a que se refiere este reglamento, deberán llevar un libro de Actas, donde consten en forma suscrita los acuerdos y demás incidencias que éstos traten, debidamente autorizados por la Auditoria Municipal.

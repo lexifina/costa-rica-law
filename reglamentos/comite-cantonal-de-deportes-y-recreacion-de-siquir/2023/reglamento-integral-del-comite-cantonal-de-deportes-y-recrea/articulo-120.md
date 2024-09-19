@@ -1,0 +1,4 @@
+ARTÍCULO 120. Criterios y condiciones de cesión de las instalaciones.
+Los criterios y condiciones de cesión o uso de instalaciones a los centros estudiantiles se fijarán cada año en el mes de marzo, teniendo en cuenta los intereses del CCDRS y en coordinación de los centros educativos.
+Para ello, con la antelación necesaria al inicio de las competiciones deportivas, y en el plazo establecido para los equipos, asociaciones deportivas y federaciones, se formulará la solicitud de reservas de horario y días para la práctica de deportes, por la dirección del Centro Educativo.
+Para tal efecto, previa solicitud de los centros educativos, dentro de la planificación anual del CCDRS deberá incorporarse este apartado como sustento, apoyo y coordinación con los centros educativos del cantón que requieran de instalaciones deportivas.

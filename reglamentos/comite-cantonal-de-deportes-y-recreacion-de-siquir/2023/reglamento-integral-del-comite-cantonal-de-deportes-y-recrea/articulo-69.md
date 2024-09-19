@@ -1,0 +1,1 @@
+ARTÍCULO 69.Ninguna asociación, organización o federación deportiva o recreativa, podrá inscribir como propias a las categorías de liga menor de ningún deporte que pertenezcan a la estructura deportiva del CCDRS.

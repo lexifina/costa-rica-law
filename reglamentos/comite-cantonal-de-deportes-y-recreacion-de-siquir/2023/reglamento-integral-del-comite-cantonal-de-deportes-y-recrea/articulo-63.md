@@ -1,0 +1,5 @@
+ARTÍCULO 63. Normas comunes para los CC y sub-comités comunales.
+Tanto los CC como los sub-comités cantonales de deporte y recreación deberán cumplir con las siguientes obligaciones para ante el CCDRS:
+a) Presentar anualmente durante los primeros quince días del mes de mayo, una propuesta no vinculante de presupuesto con su respectivo Plan Anual Operativo.
+b) Presentar semestralmente (en los meses de junio y diciembre) un informe de labores, actividades, ingresos, egresos, cumplimiento de metas y objetivos establecidos en el plan anual operativo.
+El CCDRS deberá tomar en consideración (no vinculante) los insumos indicados en los incisos a) y b) para la elaboración de presupuesto anual y plan anual operativo. No obstante, la no presentación de dichas obligaciones no dará derecho a los CC y subcomités a requerir del CCDRS la inversión de recursos en sus actividades deportivas o recreativas. Para tal efecto la Junta Directiva durante el mes de enero respectivo enviara el respectivo recordatorio a estos.

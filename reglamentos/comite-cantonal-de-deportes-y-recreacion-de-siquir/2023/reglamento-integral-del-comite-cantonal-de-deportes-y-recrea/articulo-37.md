@@ -1,0 +1,2 @@
+AGREGAR LA PARTE DEL OFICIO QUE SE HIZO AL AUDITOR PARA ACTAS
+ARTÍCULO 37. Las actas de Junta Directiva del CCDRS, deberán ser aprobadas en la sesión inmediata posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión. Antes de la aprobación del acta, cualquier miembro podrá presentar revisión de acuerdos, salvo los aprobados definitivamente conforme a este Reglamento. Para la revisión se necesitará la misma mayoría requerida para dictar el acuerdo.

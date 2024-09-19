@@ -1,0 +1,1 @@
+ARTÍCULO 30. En la primera sesión, que se celebrará después de su juramentación por el Concejo Municipal, los miembros del CCDRS se reunirán a más tardar durante los siguientes ocho días hábiles, y mediante votación por mayoría simple, designarán los cargos a que se refiere el artículo13 de este reglamento.

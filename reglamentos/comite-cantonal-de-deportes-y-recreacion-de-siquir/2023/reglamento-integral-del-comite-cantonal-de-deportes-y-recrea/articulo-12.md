@@ -1,0 +1,2 @@
+ARTÍCULO 12. Los Concejales, Regidores, Alcalde, Primer Vicealcalde, Segundo Vicealcalde, Tesorero, Auditor y Contador municipales, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar la Junta Directiva del CCDRS.
+Dicha prohibición alcanza a los integrantes de Juntas Directivas de Asociaciones de Desarrollo Comunal, Asociaciones Específicas, Asociaciones Deportivas y Comités Comunales.

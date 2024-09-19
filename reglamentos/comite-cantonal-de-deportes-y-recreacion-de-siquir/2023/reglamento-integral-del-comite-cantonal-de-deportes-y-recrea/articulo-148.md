@@ -1,0 +1,1 @@
+ARTICULO 148.La contabilidad del CCDRS deberá seguir el procedimiento establecidos en las Normas Internacionales de Contabilidad del Sector Público, de acuerdo con lo dispuesto para entidades públicas por la Contraloría General de la República y la Contabilidad Nacional del Ministerio de Hacienda y normas internacionales de contabilidad.

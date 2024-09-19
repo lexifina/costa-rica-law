@@ -1,0 +1,3 @@
+DE LA ELECCIÓN Y NOMBRAMIENTO DE LOS REPRESENTANTES ANTE EL CCDRS
+ARTÍCULO 70.. De los miembros nombrados por el concejo municipal
+El Concejo Municipal nombrará dos representantes ante la Junta Directiva del CCDRS a que se refiere el artículo 174 inciso a) del Código Municipal, en la segunda quincena del mes de enero cada dos años, para lo cual se requerirá mayoría simple de los miembros del Concejo Municipal. En caso de empate en los votos obtenidos por dos o más postulantes, se realizará una nueva votación con los que resultaron empatados. De persistir el empate se elegirá al candidato de mayor edad y se respetará el principio de paridad de género.

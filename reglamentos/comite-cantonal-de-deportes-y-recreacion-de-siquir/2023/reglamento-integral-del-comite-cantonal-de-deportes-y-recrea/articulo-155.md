@@ -1,0 +1,1 @@
+ARTICULO 155. Todos los pagos por concepto de órdenes de compra y pagos por bienes y servicios se efectuarán únicamente mediante transferencia electrónica, excepto aquellos que se realicen a través de Caja Chica de acuerdo con la normativa especial en la materia que establece este reglamento.

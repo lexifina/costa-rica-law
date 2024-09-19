@@ -1,0 +1,1 @@
+ARTICULO 151. El CCDRS realizará todo su proceso de compras públicas, por medio del sistema digital unificado de compras público que establezca el Ministerio de Hacienda. Toda adquisición que se realice fuera de este sistema será inválida.

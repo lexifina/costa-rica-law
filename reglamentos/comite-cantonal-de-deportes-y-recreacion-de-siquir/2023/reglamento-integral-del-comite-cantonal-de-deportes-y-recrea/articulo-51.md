@@ -1,0 +1,1 @@
+ARTÍCULO 51. Las Juntas Directivas de los CC deberán llevar al día los libros de Actas y Tesorería, así como recibos de dinero; los que serán facilitados por el CCDRS, debidamente legalizados por la Auditoría Municipal, en los que constarán todos los acuerdos tomados en las sesiones. Dichos libros podrán ser solicitados para su revisión por el Concejo Municipal y el propio CCDRS.

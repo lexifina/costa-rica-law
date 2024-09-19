@@ -1,0 +1,2 @@
+ARTÍCULO 125. Los programas.
+Los programas deportivos y recreativos serán actividades cuya duración estará diseñada en función de la evolución de los alumnos de carácter en principio indefinido, sujetos a temporadas y condiciones del tipo de deporte o actividad recreativa lo demande. Estos programas serán diseñados para que cualquier persona pueda integrarse, sea cual fuere su nivel. En todo caso responderán siempre a la mayor excelencia con que cuente el CCDRS y conforme la planificación institucional.

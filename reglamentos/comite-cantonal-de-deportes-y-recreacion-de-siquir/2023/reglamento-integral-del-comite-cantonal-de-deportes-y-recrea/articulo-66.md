@@ -1,0 +1,2 @@
+ARTÍCULO 66.. Para ejercer el derecho de voto en las organizaciones y asociaciones deportivas y recreativas cantonales, deberán contar por lo menos con dos años de antigüedad, inscritas ante el CCDRS.
+Durante los primeros quince días del mes de mayo las asociaciones afiliadas a los CC o subcomités comunales e inscritos ante el CCDRS deberán presentar su plan anual operativo y proyección presupuestaria, a efecto de ser considerado su incorporación al presupuesto anual.

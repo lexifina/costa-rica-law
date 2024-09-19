@@ -1,0 +1,1 @@
+ARTICULO 75. Las personas nombradas deben de tener una edad entre los 15 y menos de 18 años, los cuales no ostentarán representación ante el CCDRS, quienes participarán con voz, pero sin voto ante la Junta Directiva del CCDRS.

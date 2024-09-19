@@ -1,0 +1,2 @@
+NORMAS DE UTILIZACIÓN DEL POLIDEPORTIVO MUNICIPAL
+ARTÍCULO 106.. Descripción. El polideportivo municipal es el área en donde se encuentra edificadas varias instalaciones deportivas, reconocido como un completo deportivo, que permite realizar una gran variedad de deportes y ejercicios. Se encuentra ubicado en el Distrito Central del Cantón de Siquirres en el Barrio denominado "El Mangal" y es propiedad municipal. El polideportivo esta? bajo administración del CCDRS, según acuerdo municipal firme y vigente.

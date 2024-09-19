@@ -1,0 +1,5 @@
+DE LOS CURSOS Y PROGRAMAS DEPORTIVOS Y RECREATIVOS
+ARTÍCULO 123.. Organización de cursos y programas deportivos y recreativos.
+La Junta Directiva del CCDRS, previo estudio técnico y de demanda y vialidad económica, sujeto a la existencia verificada de los recursos necesarios, materializados previo informe, podrá organizar los cursos y/o programas deportivos y recreativos que demanden los usuarios del cantón.
+Dichos cursos y programas se organizarán, tomando en cuenta la cantidad suficiente de ciudadanos interesados en participar, para garantizar su viabilidad y tengan cabida en las infraestructuras que albergan las instalaciones deportivas y recreativas con que cuenta el cantón y en especial las que están bajo su administración.
+Estos cursos y programas, deberán estar integrados para su ejecución necesariamente en el Plan Anual Operativo y el Presupuesto anual del CCDRS, cumpliendo en un todo el principio de programación deportiva y recreativa establecido en los artículos 173 y 181 del Código Municipal y en correlación al principio de legalidad imperante en la función municipal y deportiva.

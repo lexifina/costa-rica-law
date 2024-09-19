@@ -1,0 +1,2 @@
+ARTÍCULO 46.. En caso de renuncia, deserción o destitución de un miembro de la Junta Directiva del CC, la Junta Directiva del CCDRS procederá a elegir al sucesor de la terna presentada por el CC. El postulante elegido será juramentado por el CC y ejercerá el cargo por el resto del período.
+Ante la renuncia o destitución de tres o más miembros del CC se deberá convocar una nueva Asamblea, para conformar un nuevo Comité. En caso de no poder realizar lo, lo hará la Junta Directiva del CCDRS.

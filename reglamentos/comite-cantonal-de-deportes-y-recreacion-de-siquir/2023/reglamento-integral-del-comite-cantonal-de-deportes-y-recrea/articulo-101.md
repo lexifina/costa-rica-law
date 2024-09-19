@@ -1,0 +1,3 @@
+ARTÍCULO 101.Normas de conducta de los usuarios.
+Los usuarios estarán obligados a utilizar las elementales normas de respeto y decoro dentro delas instalaciones, así como mantener el aseo para que el recinto se encuentre en las debidas condiciones de su uso, haciendo especial mención a la utilización de papeleras, servicios sanitarios, basureros y similares.
+Los usuarios que se percaten de que alguna persona incumple las normas contenidas en este reglamento, sin que haya sido apercibido por el encargado, podrán poner en conocimiento del personal de las instalaciones deportivas municipales o de los concesionarios de los servicios de forma inmediata; así como de la Junta Directiva del CCDRS para que procedan como corresponda.

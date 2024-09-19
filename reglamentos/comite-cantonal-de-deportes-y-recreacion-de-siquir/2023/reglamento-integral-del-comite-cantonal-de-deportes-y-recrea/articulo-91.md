@@ -1,0 +1,2 @@
+ARTÍCULO 91.. Responsabilidad de los administradores de las instalaciones. El funcionario, empresa o tercero que tenga a su cargo la administración de la(s) instalación(es) deportiva(s), será responsable de mantenerlas en perfecto estado de funcionamiento, y limpieza total de las mismas, destacando la cancha, los servicios sanitarios, vestuarios, duchas, jardines y zonas verdes, etc.
+El CCDRS deberá brindar seguimiento al buen mantenimiento de todas las instalaciones deportivas bajo su administración directa o indirecta.
