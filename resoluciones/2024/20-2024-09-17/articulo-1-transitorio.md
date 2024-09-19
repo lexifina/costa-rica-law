@@ -1,0 +1,1 @@
+Transitorio Primero. - Los obligados que a la fecha de la entrada en vigor del Reglamento a la Ley N°9416, que tengan declaraciones pendientes al periodo 2024, para todos los efectos se le aplicará los dispuesto en la Resolución Conjunta de Alcance General NºDGT-ICD-R-06-2020.

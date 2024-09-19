@@ -1,0 +1,1 @@
+Artículo 5.-Suscripción en el portal Central Directo. Para cumplir con las obligaciones del RTBF, cada obligado debe completar el proceso de suscripción en el sitio web Central Directo del Banco Central de Costa Rica. https://www.centraldirecto.fi.cr.

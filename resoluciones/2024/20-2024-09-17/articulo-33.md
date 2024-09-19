@@ -1,0 +1,3 @@
+Capítulo VII. Asociaciones Mutualistas de Ahorro y Préstamo, Cooperativas y
+Asociaciones Solidaristas
+Artículo 33.- Asociaciones Mutualistas de Ahorro y Préstamo (Mutuales), Cooperativas, Asociaciones Solidaristas. Las mutuales, cooperativas y asociaciones solidaristas que se establezcan en el país y tengan asignado un número de cédula jurídica por parte del Registro Nacional, por medio de su representante legal o apoderado, deberán ingresar en la página web: https://www.centraldirecto.fi.cr, Central Directo del Banco Central de Costa Rica, para completar la declaración y suministrar la información requerida de conformidad con el artículo 6 de la Ley N°9416.

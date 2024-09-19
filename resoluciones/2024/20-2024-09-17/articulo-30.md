@@ -1,0 +1,1 @@
+Artículo 30.- Inscripción del representante legal o similar. En el caso de que la OSFL no tenga inscrito a su representante legal o similar, previo a presentar la declaración en el RTBF, deberá realizar la inscripción respectiva ante el Registro Nacional.

@@ -1,0 +1,1 @@
+Artículo 36.-Determinación de los beneficiarios finales. Los beneficiarios finales serán todas las personas físicas que figuren dentro de la estructura administrativa de control, entendida esta como la junta directiva, consejo de administración, directores, cuerpo gerencial o equivalentes.

@@ -1,0 +1,1 @@
+Artículo 28.- Verificación de la condición de administrador de recursos de terceros: El representante legal o apoderado deberá indicar en la declaración si es administrador de recursos de terceros. El sistema consultará en tiempo real a la base de datos de la Superintendencia General de Entidades Financieras para determinar esta condición y lo consignará en la declaración.

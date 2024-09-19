@@ -1,0 +1,2 @@
+Artículo 14.- Acuse de recibo. Cuando el obligado envíe una declaración ordinaria, extraordinaria o una correctiva, el sistema RTBF enviará un acuse de recibo, electrónico y firmado digitalmente por el Banco Central al correo electrónico suministrado para notificaciones, según lo dispuesto en el artículo 6 de esta resolución.
+El acuse de recibo comprueba que la declaración fue registrada en el sistema RTBF.

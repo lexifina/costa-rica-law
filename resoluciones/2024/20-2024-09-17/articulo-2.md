@@ -1,0 +1,2 @@
+Artículo 2.-Objetivo. Registrar la información que permita identificar a los beneficiarios finales en función de la naturaleza jurídica de cada obligado, para lo cual deben suministrar los datos requeridos en los artículos 5 y 6 de la Ley N°9416, y el artículo 6 del reglamento a dicha Ley, según corresponda a cada tipo de sujeto obligado.
+Para registrar las declaraciones el representante legal o el apoderado, debe acceder a la página web Central Directo del Banco Central de Costa Rica: https://www.centraldirecto.fi.cr en donde está disponible el sistema RTBF.

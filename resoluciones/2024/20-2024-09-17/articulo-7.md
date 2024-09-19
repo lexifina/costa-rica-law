@@ -1,0 +1,3 @@
+Artículo 7.- Otras personas autorizadas a suministrar la información. El suministro de información al sistema RTBF, lo realiza el representante legal de los sujetos obligados indicados en el artículo 3 de esta resolución.
+El representante legal de manera excepcional, cuando no cuente con firma digital, podrá a través de un poder generalísimo regulado en el artículo 1253 del Código Civil, autorizar a una persona física a suministrar la declaración en el sistema RTBF.
+Una vez registrado el poder generalísimo en el Registro Nacional, el apoderado por excepción podrá ingresar al sistema RTBF para completar y presentar la declaración.

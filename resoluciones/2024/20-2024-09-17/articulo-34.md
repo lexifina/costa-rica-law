@@ -1,0 +1,2 @@
+Artículo 34.- Inscripción en el padrón del RTBF. Previo a presentar la declaración en el sistema RTBF, el representante legal o similar debe acudir ante un notario público para que incluya en el padrón del RTBF los datos identificativos de la organización, así como los datos del representante legal o apoderado.
+El notario público debe ingresar al padrón del RTBF para registrar la organización y la información del representante y adjuntar la documentación que lo respalde. Para estos efectos el notario público debe contar con un certificado válido de firma digital.

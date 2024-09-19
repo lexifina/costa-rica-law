@@ -1,0 +1,1 @@
+Artículo 4.-De la firma digital. De acuerdo con lo dispuesto en el artículo 5 del Reglamento a la Ley N°9416, para realizar cualquier gestión en el RTBF el interesado debe contar con un certificado válido de firma digital para personas físicas.
