@@ -1,0 +1,1 @@
+Artículo 17.-Protección Física y Digital. El personal que posea información clasificada como privada o confidencial, deberá asegurarse que cuenta con los medios de protección físicos o digitales, brindados por el Departamento de Gestión de Infraestructura de Tecnologías de Información para que la misma no pueda ser accedida de forma no autorizada por terceros.

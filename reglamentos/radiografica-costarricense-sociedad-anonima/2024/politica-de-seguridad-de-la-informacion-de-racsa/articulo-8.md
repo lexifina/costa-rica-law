@@ -1,0 +1,1 @@
+Artículo 8º-Acompañamiento. El Área de Gestión Operativa acompañará a la Gerencia General, Directores, Jefaturas, procesos y funcionarios involucrados en la definición de roles y responsabilidades en relación con la Seguridad de la Información.

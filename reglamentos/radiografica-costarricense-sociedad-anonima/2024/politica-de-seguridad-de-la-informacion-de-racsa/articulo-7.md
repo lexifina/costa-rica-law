@@ -1,0 +1,1 @@
+Artículo 7º-Protección. RACSA establecerá los mecanismos para proteger la información catalogada como confidencial mediante declaratorias de confidencialidad, controles de seguridad y convenios de confidencialidad en las relaciones comerciales o de otra índole.

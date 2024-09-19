@@ -1,0 +1,1 @@
+Artículo 5º-Cultura. RACSA promoverá y mantendrá una cultura orientada a las mejores prácticas de Seguridad de la Información mediante la capacitación y concientización de los funcionarios de RACSA, para minimizar el impacto y probabilidad de la materialización de incidentes de Seguridad de la Información.

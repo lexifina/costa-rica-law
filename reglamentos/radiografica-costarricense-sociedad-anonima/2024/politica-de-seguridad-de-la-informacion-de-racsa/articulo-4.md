@@ -1,0 +1,1 @@
+Artículo 4º-Normativa Interna. RACSA creará y dará mantenimiento al cuerpo normativo que instrumentalice esta política. Dicho cuerpo normativo será de acatamiento obligatorio para funcionarios y terceros que posean información de RACSA.

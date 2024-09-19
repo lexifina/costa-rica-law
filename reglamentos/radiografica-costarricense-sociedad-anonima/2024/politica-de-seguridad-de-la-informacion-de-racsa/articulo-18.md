@@ -1,0 +1,1 @@
+Artículo 18.-Lineamientos. El Área de Gestión Operativa desarrollará los lineamientos que instrumentalicen la presente política tomando como base lo consignado en las normas ISO 27001 "Sistemas de gestión de la seguridad de la información" e ISO 27002 "Controles de seguridad de la información" y otras que a futuro sean de interés empresarial.

@@ -1,0 +1,1 @@
+Artículo 15.-Confidencialidad. La información que se identifique como confidencial deberá cumplir lo establecido en la Política Corporativa de Confidencialidad de la Información y en el Procedimiento para Declarar Confidencial la Información vigentes.

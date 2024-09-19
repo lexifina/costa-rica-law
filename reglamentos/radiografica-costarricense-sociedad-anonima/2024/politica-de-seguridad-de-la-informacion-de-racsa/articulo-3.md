@@ -1,0 +1,1 @@
+Artículo 3º-Cumplimiento Normativo. RACSA aplicará la legislación vigente en materia de Seguridad de la Información y la norma internacional ISO 27001 "Sistemas de gestión de la seguridad de la información" como marco de referencia y de mejores prácticas para aplicación interna.

@@ -1,0 +1,1 @@
+Artículo 11.-Controles de Acceso. Los sistemas de información y plataformas tecnológicas deberán contar con controles de acceso, que garanticen que únicamente los usuarios autorizados puedan accederlos. Lo anterior de conformidad con los privilegios definidos de acuerdo con las funciones que le hayan sido asignadas.

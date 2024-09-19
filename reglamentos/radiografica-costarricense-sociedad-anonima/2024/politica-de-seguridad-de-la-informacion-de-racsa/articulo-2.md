@@ -1,0 +1,1 @@
+Artículo 2º-Recursos. Los procesos responsables de la Gestión de la Seguridad en sus distintos enfoques serán provistos de los recursos tanto financieros como humanos necesarios para su correcto funcionamiento.
