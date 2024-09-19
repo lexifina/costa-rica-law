@@ -1,6 +1,0 @@
-Artículo 66.-Para la selección y nombramiento de los coordinadores de carreras y programas se recurrirá a los concursos ordinarios correspondientes, el procedimiento de selección y nombramiento de los coordinadores será llevado a cabo por la Unidad de Recursos Humanos al amparo de lo dispuesto en este Reglamento y lineamientos del concurso para la selección de los coordinadores de carrera, programas y sedes regionales.
-En caso de no existir candidato calificado, la Dirección recurrirá al Registro de Elegibles, nombrando a un funcionario interino hasta tanto se resuelva realizar un nuevo concurso.
-De persistir la no existencia de candidato calificado para ocupar el puesto de coordinador dentro del Registro de Elegibles, la Direcciones Académicas y de Asistencia Técnica, podrán nombrar a profesional, dispensado parcialmente alguno de los requisitos para su nombramiento.
-Dicha selección y nombramiento, así como el dispensado parcial de algún requisito, deberá contar con las justificaciones respectivas, además de contar con la aprobación de la Decanatura del Colegio.
-Las funciones y normas de contratación de los coordinadores de carrera o de programa serán las establecidas en el manual descriptivo de puestos, bases y lineamientos del concurso; y este reglamento.
-(Así reformado mediante sesión Ordinaria Nº 16-2021 del 12 agosto 2021)

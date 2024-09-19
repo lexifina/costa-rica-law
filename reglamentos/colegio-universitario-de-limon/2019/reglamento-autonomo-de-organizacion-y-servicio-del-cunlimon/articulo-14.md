@@ -1,6 +1,0 @@
-TITULO III
-DE LA RELACION DE SERVICIO
-CAPÍTULO V
-DE LA NATURALEZA Y CONTENIDO DE LA RELACIÓN DE SERVICIO
-ARTÍCULO 14:
-La relación que vincula al CUNLIMÓN y sus servidores, es de empleo público.

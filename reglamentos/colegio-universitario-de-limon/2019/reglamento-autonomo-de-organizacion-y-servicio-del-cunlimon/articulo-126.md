@@ -1,2 +1,0 @@
-ARTÍCULO 126:
-Una vez que se asigne a un funcionario un salario base de la categoría que corresponda no podrá asignarse un salario diferente, salvo que se le recarguen funciones de otros puestos con salario de categoría superior, pues tendrá derecho a percibir el salario base del puesto de categoría superior de acuerdo a lo establecido en la Ley General de Administración Pública.

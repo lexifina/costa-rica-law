@@ -1,2 +1,0 @@
-ARTÍCULO 25:
-Cuando resulte necesario realizar un concurso por oposición, la Unidad de Recursos Humanos iniciará el procedimiento dentro de los siguientes ocho días naturales posteriores a aquel en que se produjo la vacante.

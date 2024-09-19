@@ -1,2 +1,0 @@
-ARTÍCULO 77:
-Para los efectos de los artículos anteriores, la Unidad de Recursos Humanos en coordinación con las Direcciones según corresponda, establecerá los instrumentos técnicos necesarios para la evaluación y calificación de los servidores tanto administrativos como docentes.
