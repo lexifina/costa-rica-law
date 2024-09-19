@@ -14,3 +14,4 @@ Criterios de evaluación de publicidad comercial para cumplir con lo establecido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-18 | la propia norma |
+| 2 | 2024-09-19 | Reglamento 29 (2024-09-19) |
