@@ -1,1 +1,0 @@
-Artículo 20°— Valor del activo. El valor de registro del activo será el que indique la factura comercial del bien. Si por cualquier circunstancia se desconoce su valor, el valor de registro será. El valor de mercado o bien el valor de peritaje, dicho valor siempre deberá ser en moneda local (colones).

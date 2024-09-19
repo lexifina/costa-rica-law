@@ -1,3 +1,0 @@
-CAPITULO II
-De la donación
-Artículo 8°—.-.Capacidad jurídica para donar. Podrán efectuar donaciones a favor de la Caja Costarricense de Seguro Social personas físicas o jurídicas, públicas o privadas, nacionales o internacionales, con capacidad jurídica para disponer de los bienes o servicios ofrecidos en donación, en los términos establecidos en el ordenamiento jurídico nacional. La administración activa podrá participar en la planificación del uso y el fin de los recursos donados, lo cual se realizará en observancia a las Normas de Control Interno en el Sector Público, para determinar si es conveniente aceptar dicha donación.

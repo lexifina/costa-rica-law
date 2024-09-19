@@ -1,5 +1,0 @@
-Artículo 6°— De la competencia para formalizar donaciones. Dentro de las competencias propias de cada órgano descrito en el Modelo de Distribución de Competencias se encuentran:
-a) Aceptar o rechazar las intenciones de donación y la donación en si, según el valor del bien o servicio ofrecido.
-b) Celebrar los trámites de donaciones una vez aprobadas, según el valor de la misma.
-c) Autorizar los trámites y pagos asociados a la donación cuando la Institución se constituya en beneficiada de la donación.
-Cuando las donaciones sean objeto de aceptación o donación por parte de la Junta Directiva, el Gerente del órgano beneficiario u otorgante del bien o servicio deberá tramitas en escritura pública la donación de los bienes sujetos a inscripción registral. En las restantes donaciones de bienes no registrables los trámites anteriores corresponden al mismo órgano institucional que la formalizó. En el mismo sentido, dichas instancias serán las responsables de diligencias los demás trámites adyacentes, en el marco de sus competencias.
