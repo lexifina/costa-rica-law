@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE CARTAGO
+CONCEJO MUNICIPAL
+El Concejo Municipal de Cartago, con sustento en los artículos 169 y 170 de la Constitución Política, y en los artículos 13 inciso c) y 43 del Código Municipal acuerda el proyecto de "Reglamento a la Ley de Comercio al Aire Libre, Ley N° 10126 del 25 de enero de 2022, de la Municipalidad de Cartago", aprobado en sesión ordinaria N° 026-2024 del 27 de agosto del 2024, artículo N° 22, que en adelante se leerá:
+PROYECTO DE REGLAMENTO A LA LEY DE COMERCIO AL AIRE LIBRE, LEY N° 10126 DEL 25 DE ENERO DE 2022, DE LA MUNICIPALIDAD DE CARTAGO
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Objeto. Este reglamento tiene como objeto tutelar las actividades lucrativas que se derivan de la Ley de Comercio al Aire Libre, Ley N° 10126 del 25 de enero de 2022 y normas conexas, para autorizar a los patentados el desarrollo temporal de la actividad comercial en los espacios públicos, tales como aceras, parques, plazas, vía pública, calles u otros lugares públicos, adyacentes a los respectivos establecimientos comerciales, con la intención de mejorar dichos espacios para la estancia y convivencia de los mismos a partir de las actividades socio-comerciales que permitan una mejor dinámica comercial y turística del escenario urbano.
+El fin último es promover y ampliar el comercio a partir del encuentro social, aprovechando las bondades del espacio público, para promover la seguridad ciudadana y generar mayor actividad económica, en un marco de respeto del derecho al libre tránsito, la accesibilidad, el mantenimiento y la protección de los espacios públicos.

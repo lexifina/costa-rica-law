@@ -1,0 +1,1 @@
+Artículo 12.-Criterio técnico de la Unidad Técnica de Gestión Vial. El Departamento de Patentes deberá solicitar el criterio técnico de los inspectores de la Unidad Técnica de Gestión Vial para los casos en los que se solicite autorización de comercio al aire libre en calles, vías públicas y/o aceras.

@@ -1,0 +1,1 @@
+Artículo 22.-Reparación de daños al área pública. En caso de que la desinstalación de obras físicas e infraestructura permanente implique un daño al área pública, el patentado deberá proceder a la reparación total del sitio, de manera inmediata

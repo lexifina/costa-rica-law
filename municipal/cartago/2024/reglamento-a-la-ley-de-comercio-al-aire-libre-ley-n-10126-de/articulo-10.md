@@ -1,0 +1,1 @@
+Artículo 10.-Horarios de utilización de la autorización de comercio al aire libre. Las actividades comerciales que se autoricen para ser desarrolladas en espacio público podrán operar los siete días de la semana, únicamente de las seis a las veintidós horas y siempre dentro de lo permitido por la patente correspondiente.

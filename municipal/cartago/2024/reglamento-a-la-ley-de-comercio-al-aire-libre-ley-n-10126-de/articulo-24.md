@@ -1,0 +1,1 @@
+Artículo 24.-Pago anticipado del derecho de comercio al aire libre. Los patentados que obtengan la autorización de comercio al aire libre, deberán realizar a la municipalidad respectiva el pago anticipado de este derecho.

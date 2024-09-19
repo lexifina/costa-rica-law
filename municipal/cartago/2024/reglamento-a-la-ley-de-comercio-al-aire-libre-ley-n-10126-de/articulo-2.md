@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. Las disposiciones de este reglamento son aplicables a las personas patentadas de actividad comercial en el cantón de Cartago que cumplan con los requisitos establecidos en la Ley N° 10.126, leyes conexas y de este reglamento, siempre y cuando propicie una mejora integral al espacio público e imagen urbana.

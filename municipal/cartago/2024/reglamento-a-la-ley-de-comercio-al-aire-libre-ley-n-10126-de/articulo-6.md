@@ -1,0 +1,2 @@
+Artículo 6°-Monto a pagar por el derecho de comercio al aire libre. El monto a cobrar por la municipalidad por el derecho de uso de espacios públicos será del veinticinco por ciento (25%) del impuesto de patentes que paga el contribuyente solicitante por patente comercial.
+La totalidad de los ingresos generados por la autorización de comercio al aire libre deberá de utilizarse para el mejoramiento general y la seguridad del espacio público, únicamente.

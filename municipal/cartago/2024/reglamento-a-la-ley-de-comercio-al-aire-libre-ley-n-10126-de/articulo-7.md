@@ -1,0 +1,4 @@
+Artículo 7°-Lineamientos de utilización del espacio. La utilización del espacio público definidos en la Ley N° 10.126 no podrá contravenir el derecho de libre tránsito, el acceso y la movilidad de peatones, el cumplimiento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad N° 7600 del 2 de mayo de 1996 y sus reformas, y la Ley N° 9078.
+Igualmente deberá utilizarse por parte del patentado autorizado, el mobiliario adecuado al desarrollo de la actividad comercial de forma lógica y conforme a su naturaleza, que no lleve a la contaminación visual y sonora al entorno en que se desarrolla la misma.
+El mobiliario que no resulte ser acorde a la actividad comercial deberá de ser removido de inmediato por el comercio autorizado.
+Todo mobiliario deberá ser retirado diariamente al finalizar la actividad comercial y dejar el espacio autorizado en precario en el mismo estado natural estructural, de orden y limpieza.
