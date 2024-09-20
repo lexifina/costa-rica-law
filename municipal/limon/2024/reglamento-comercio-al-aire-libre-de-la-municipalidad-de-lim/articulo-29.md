@@ -1,0 +1,1 @@
+Artículo 29.-Fórmula de cobro y monto a pagar. El monto a pagar por concepto del derecho de uso de espacios públicos otorgado como autorización de comercio al aire libre, será de un diez por ciento del monto a cancelar por concepto de patente comercial.

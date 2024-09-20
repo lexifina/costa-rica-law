@@ -1,0 +1,1 @@
+Artículo 27.-Denegatoria de autorización. En caso de que la solicitud deba ser rechazada se emitirá resolución debidamente motivada. Contra dicha resolución cabrán los recursos que establece el artículo 171 del Código Municipal.

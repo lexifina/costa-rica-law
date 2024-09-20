@@ -1,0 +1,4 @@
+Artículo 21.-Obligaciones de los licenciatarios. Las personas licenciatarias que cuenten con autorización de comercio al aire libre tendrán las siguientes obligaciones:
+a) Desarrollar la actividad comercial en los términos establecidos en la autorización de comercio al aire libre.
+b) Gestionar de manera integral los residuos generados, de conformidad con la legislación vigente, incluyendo la limpieza general, recolección, almacenamiento y disposición final de los residuos que genere el desarrollo de la actividad.
+c) Cumplir con lo establecido en la Ley N° 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, la Ley N° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012, Ley N° 9976, Ley de Movilidad Peatonal, de 09 de mayo de 2021, Ley N° 9660, Ley de Movilidad y Seguridad Ciclística, de 24 de octubre de 2019 y sus respectivos reglamentos municipales.
