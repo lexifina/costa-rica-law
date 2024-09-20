@@ -1,0 +1,1 @@
+Artículo 6º-Deber de solventar la caución. A tenor de lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor de JAPDEVA.
