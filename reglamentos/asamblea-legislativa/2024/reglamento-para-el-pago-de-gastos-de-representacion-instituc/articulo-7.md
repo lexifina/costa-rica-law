@@ -1,0 +1,2 @@
+Artículo 7º-El acuerdo del Directorio Legislativo que autorice la salida del país de quien ejerce la Gerencia General, autorizará el uso de los gastos de representación en el exterior, los cuales no podrán exceder los límites presupuestarios establecidos en este reglamento.
+La liquidación de gastos en el exterior se realizará por medio de una factura de gobierno, al tipo de cambio vigente a la fecha de emisión de dicha factura.

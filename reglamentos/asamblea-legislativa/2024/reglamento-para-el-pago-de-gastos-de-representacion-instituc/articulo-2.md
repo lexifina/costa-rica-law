@@ -1,0 +1,4 @@
+Artículo 2º-Para los efectos del presente Reglamento, se entenderá por:
+- Actividad o evento oficial: Acto en el que la persona que ejerce el cargo de Gerente General representa a la Asamblea Legislativa, y en el cumplimiento de sus funciones se constituye en anfitriona o invitada. La Gerencia General será la que establecerá la oficialidad del acto.
+- Gastos de representación institucional: Contemplan las sumas, que se asignan a funcionarios debidamente autorizados para la atención oficial de personas ajenas a la institución para la cual laboran. Estas erogaciones están sujetas a la liquidación y a la verificación posterior y no forman parte de la remuneración salarial.
+- Liquidación: Acto mediante el cual la persona que ejerce la Gerencia General solicita al Departamento Financiero, que se le reintegren las sumas por conceptos de gastos de representación institucionales.

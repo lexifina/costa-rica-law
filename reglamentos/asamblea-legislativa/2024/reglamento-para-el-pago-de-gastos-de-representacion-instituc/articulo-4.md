@@ -1,0 +1,3 @@
+Artículo 4º-El presupuesto anual de los gastos de representación institucional corresponderá al cincuenta por ciento de los gastos de representación anual que se le otorga a una persona diputada.
+La programación, formulación y administración de la subpartida presupuestaria corresponderá a la persona que ostenta la Gerencia General en calidad de unidad técnica usuaria, la cual deberá ajustarse a las necesidades institucionales para la totalidad del periodo presupuestario.
+Para efectos presupuestarios y de ejecución, ese monto deberá destinarse en la subpartida de gastos de representación institucional según el Clasificador por objeto del gasto del Sector Público.

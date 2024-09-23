@@ -1,0 +1,1 @@
+Artículo 13.-La remisión de liquidaciones que de forma dolosa o mediando culpa grave, contuvieren información falsa, constituirá falta grave. Lo anterior sin perjuicio de las responsabilidades civiles y penales, que de ella deriven.

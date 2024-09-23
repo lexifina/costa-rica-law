@@ -1,0 +1,2 @@
+Artículo 15.-En todo lo no previsto en el presente Reglamento, se aplicarán supletoriamente la Ley General de la Administración Pública, la Ley de la Administración Financiera de la República y Presupuestos Públicos, el Reglamento de Gastos de Viajes y de Transporte para Funcionarios Públicos de la Contraloría General de la República, y demás normas que resulte aplicable y no se oponga a estas regulaciones.
+Rige a partir de su publicación. Acuerdo firme.

@@ -1,0 +1,2 @@
+Artículo 9º-Las facturas para la asignación de gastos de representación deberán de estar debidamente autorizadas y cumplir con las especificaciones técnicas y formato de los documentos físicos o electrónicos según corresponda, establecidos por la Administración Tributaria. Deberán ser emitidas a nombre de la Asamblea Legislativa o de quien ejerce la Gerencia General.
+Todas las facturas digitales deberán ser enviadas al medio electrónico designado por la institución para la respectiva recepción, y las físicas deberán ser digitalizadas y remitidas al mismo correo electrónico.
