@@ -1,4 +1,4 @@
-Capítulo V
-De las personas trabajadoras de la Auditoría Interna
-Artículo 20
-Para la dotación de los recursos de la Auditoría Interna, la Junta Directiva de BCR SAFI S.A. debe tomar en consideración el estudio elaborado por el auditor interno de BCR SAFI S.A., según lo dispuesto en el artículo 22 de este reglamento. La dotación de recursos debe asignarse de conformidad con los plazos establecidos en el artículo 27 de la Ley general de control interno.
+Artículo 20 Pericia y cuidado profesional
+El auditor interno debe ejercer sus funciones en relación con todas las gerencias y demás dependencias de la institución, mediante la asignación de funciones a cualquier persona trabajadora idónea bajo su dirección.
+Tanto el auditor interno como las personas trabajadoras de la Auditoría Interna deben cumplir con los requisitos de pericia y cuidado profesional establecidos en las Normas generales de la auditoría interna en el sector público; de manera que hagan valer su competencia con independencia funcional y de criterio.
+El auditor interno de BCR SAFI S.A. y las personas trabajadoras de la Auditoría Interna, deben ejecutar sus funciones de conformidad con el Manual de la Auditoría Interna de BCR SAFI S.A. y en apego al marco jurídico y técnico establecido para el ejercicio de la función de auditoría.

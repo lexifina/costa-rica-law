@@ -1,2 +1,4 @@
-Artículo 18
-Los requisitos para el nombramiento, así como los requisitos necesarios para el cargo del auditor interno de BCR SAFI S.A. deben establecerse en los respectivos perfiles de puestos en concordancia con lo establecido en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, emitidos por la Contraloría General de la República.
+Artículo 18. Trámite de aprobación de las regulaciones administrativas y régimen de empleo para el auditor interno
+Con el propósito de asegurar razonablemente la observancia de lo mencionado en el artículo anterior, se debe someter a conocimiento del auditor interno las propuestas relacionadas con las regulaciones administrativas, de previo a su aprobación, modificación o derogatoria.
+La opinión del auditor interno no es vinculante y en caso de duda se debe agotar la consulta ante la Junta Directiva de BCR SAFI S.A., previo a elevar la consulta la consulta ante el órgano contralor de conformidad con lo establecido en el artículo 24 de la Ley General de Control Interno.
+Lo anterior, según lo establecido en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

@@ -1,5 +1,4 @@
-Capítulo VI
-Servicios preventivos
-Artículo 43
-Los servicios de asesoría se deben brindar a solicitud expresa y preferiblemente por escrito, del jerarca. Queda a criterio del auditor interno de BCR SAFI S.A. proporcionar estos servicios ante solicitudes de otros niveles de la administración activa.
-En los casos en donde se presenten solicitudes de la Junta Directiva de BCR SAFI S.A., los objetivos y alcance del trabajo, se deben establecer en el acuerdo respectivo de la Junta Directiva de la Sociedad. En caso de modificaciones o ampliaciones de las solicitudes, éstas deben ser definidas y formalizadas mediante acuerdo de la Junta Directiva de BCR SAFI S.A.
+Artículo 43. Lineamientos para realizar servicios de auditoría interna
+El auditor interno es el responsable de establecer lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría interna por su personal; así como también sobre la custodia y control de acceso a los registros del trabajo.
+Los lineamientos para ejecutar servicios de auditoría interna están contenidos en el Manual de la Auditoría Interna de BCR SAFI S.A, donde se detallan las fases normales en que se desarrolla son: planeación, examen, comunicación de los resultados y seguimiento de disposiciones o recomendaciones.
+En la ejecución de dichos servicios de auditoría también se debe considerar lo dispuesto en las Normas para el ejercicio de la Auditoría Interna en el Sector Público, emitidas por la Contraloría General de la República, en las cuales también se establecen regulaciones de acatamiento obligatorio, sobre los servicios de la auditoría interna.

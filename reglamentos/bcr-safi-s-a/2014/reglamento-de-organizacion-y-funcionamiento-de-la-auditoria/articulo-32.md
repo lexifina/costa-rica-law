@@ -1,4 +1,4 @@
-Capítulo II
-Ejecución de estudios
-Artículo 32
-El auditor interno de BCR SAFI S.A. y demás personas trabajadoras de la Auditoría Interna, deben ejecutar los servicios de auditoría de conformidad con los alcances dispuestos en las Normas Generales de Auditoría para el sector público, en lo atinente a cada uno de ellos, en el Manual de la Auditoría Interna de BCR SAFI S.A. y procedimientos aplicables.
+Capítulo VII
+Relaciones y coordinaciones
+Artículo 32. Coordinación de las actividades de Auditoría Interna
+El auditor interno debe coordinar a lo interno de la institución la realización de los servicios de la actividad de auditoría interna, así como compartir información y coordinar actividades con la Contraloría General de la República, los auditores externos que se contraten en la Institución, con otros entes u órganos de control que correspondan y con los órganos judiciales, para minimizar la duplicación de esfuerzos. Lo anterior, sin que implique limitación para la efectiva actuación de la Auditoría Interna.

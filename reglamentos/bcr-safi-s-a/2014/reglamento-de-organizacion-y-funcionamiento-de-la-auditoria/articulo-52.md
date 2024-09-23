@@ -1,2 +1,2 @@
-Artículo 52
-Este Reglamento rige a partir de su publicación en La Gaceta.
+Artículo 52. Del programa de seguimiento de las recomendaciones de Auditoría Interna
+El programa de seguimiento, tal y como lo establece la norma 206 de las Normas generales de auditoría para el sector público y la norma 2.11.1 de las Normas para el ejercicio de la Auditoría Interna en el sector público, debe contemplar entre otros aspectos, la relevancia de los hallazgos y recomendaciones informadas, la complejidad y las condiciones propias de las acciones pertinentes, los efectos e impactos de la implementación de la acción y la oportunidad del seguimiento.

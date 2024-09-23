@@ -1,2 +1,5 @@
-Artículo 27
-La Auditoría Interna incorpora entre sus recursos, el uso de personas profesionales o técnicas de diferentes disciplinas personas trabajadoras o no de la empresa, para que lleven a cabo labores de su especialidad, en apoyo a las labores de auditoría interna que requieran de conocimientos, técnicas u otras competencias adicionales, lo cual podrá realizar por medio de contratación de servicios a terceros, por medio de procedimientos de contratación administrativa. Al respecto se debe considerar que para las colaboraciones y asesorías que pueda requerir la auditoría interna a los funcionarios de la institución, aplica lo dispuesto en el inciso c) del artículo 33 de la ley N° 8292; y para la contratación de servicios de personal externo a la sociedad administradora, aplica lo dispuesto en los incisos 6.3.7 y 6.3.8 de los Lineamientos sobre Gestiones que involucran a la Auditoría Interna ante la Contraloría General de la República.
+Capítulo V
+Del personal de Auditoría Interna
+Artículo 27. Dotación de recursos
+Para la dotación de los recursos de la Auditoría Interna, la Junta Directiva de BCR SAFI S.A. debe tomar en consideración el estudio elaborado por el auditor interno, según lo dispuesto en el artículo 23 de este reglamento.
+La dotación de recursos se debe asignar de conformidad con lo establecido en la Ley General de Control Interno, y en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República.

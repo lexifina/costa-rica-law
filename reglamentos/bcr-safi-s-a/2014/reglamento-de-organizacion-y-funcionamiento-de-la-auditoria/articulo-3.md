@@ -1,3 +1,3 @@
-Artículo 3
-Las personas trabajadoras de la Auditoría Interna, deben observar las normas éticas que rigen su profesión, que se caracterizan por valores de: integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la institución promueva para guiar su actuación.
-La actuación de las personas trabajadoras de la Auditoría Interna se rige por lo establecido en el Código de Ética Corporativo del Conglomerado Financiero BCR.
+Artículo 3. Valores y principios
+Las personas trabajadoras de la Auditoría Interna deben observar las normas éticas que rigen su profesión, que se caracterizan por valores de: integridad, objetividad, confidencialidad, imparcialidad, justicia, respeto, transparencia y excelencia, sin perjuicio de otros valores que la institución promueva para guiar su actuación.
+La actuación de las personas trabajadoras de la Auditoría Interna se rige por lo establecido en el Código de Ética Corporativo del Conglomerado Financiero BCR, y de manera complementaria, con las normas de conducta vigentes en el Manual de Auditoría de BCR SAFI S.A., ubicado en la base de datos de conocimiento de la Herramienta de trabajo de la Auditoría Interna.

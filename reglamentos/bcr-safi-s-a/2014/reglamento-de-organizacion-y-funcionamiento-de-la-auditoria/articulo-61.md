@@ -1,0 +1,6 @@
+Capítulo XVI
+Estudios sobre Investigaciones preliminares de presuntos hechos irregulares
+Artículo 61. Investigaciones preliminares sobre presuntos hechos irregulares
+Los estudios de investigaciones preliminares sobre presuntos hechos irregulares están encaminados al examen de aspectos específicos sea a solicitud de la Junta Directiva de BCR SAFI S.A., y de cualquiera de los entes fiscalizadores de la sociedad, por la interposición de denuncias o por disposición del auditor interno.
+Estos deberán incorporarse en el plan de trabajo de la propia Auditoría, considerando la priorización de actividades que realice anualmente, de conformidad con su independencia funcional y de criterio, establecidos en el artículo 25 de la Ley General de Control Interno y el numeral 1.5 Planificación y atención de hechos presuntamente irregulares de los Lineamientos Generales para el análisis de presuntos hechos irregulares.
+Para la ejecución de este tipo de estudio se debe considerar el marco normativo aplicable, específicamente la Ley General de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su reglamento, así como los Lineamientos generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.

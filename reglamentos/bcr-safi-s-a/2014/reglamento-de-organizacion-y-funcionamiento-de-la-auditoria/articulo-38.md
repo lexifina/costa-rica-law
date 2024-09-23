@@ -1,9 +1,4 @@
-Capítulo V
-Seguimiento de las recomendaciones
-Artículo 38
-El auditor interno de BCR SAFI S.A. debe implantar un programa para dar seguimiento a los informes emitidos por la Auditoría Interna, por los auditores externos de la Sociedad y por las entidades fiscalizadoras que la ley establece. La vigilancia del cumplimiento de los plazos para que el jerarca y los titulares subordinados implanten las recomendaciones y la oportuna verificación de esas acciones, son elementos de dicho programa.
-El auditor interno es el responsable de que esta actividad de seguimiento se lleve a cabo en forma permanente, tal y como establece la norma 206 de las Normas Generales de auditoría para el sector público y la norma 2.11 de las Normas para el ejercicio de la Auditoría Interna en el sector público, para lo cual debe tomar en cuenta, además, el seguimiento de los resultados de los trabajos preventivos según corresponda.
-En las actividades de seguimiento establecidas en el programa se deben considerar al menos los siguientes elementos:
-a. La alineación de las medidas implementadas o por implementar con las recomendaciones presentadas en las observaciones de la Auditoría Interna por parte del jerarca o titular subordinado a quien se le remitió la nota o informe.
-b. La razonabilidad de los plazos establecidos para la atención, en concordancia con el nivel de riesgo asociado a la observación o hallazgo.
-c. El establecimiento de entregables que sean sujeto de verificación en los plazos indicados.
+Artículo 38. Competencia para el control del uso de los recursos
+La Auditoría Interna de BCR Sociedad Administradora de Fondos de Inversión tiene competencia para verificar que los recursos financieros, materiales y humanos de que dispone la Sociedad, se hayan utilizado por la Administración con eficiencia, economía, eficacia y en cumplimiento del bloque de legalidad correspondiente. También, para revisar en lo pertinente las operaciones o programas y comprobar si los resultados coinciden con los objetivos y metas establecidos por la Administración.
+Tiene competencia para proporcionar las recomendaciones necesarias que permitan mejorar la gestión de los recursos, así como para evaluar, en lo pertinente, las operaciones y comprobar la veracidad e integridad de los registros, informes y estados financieros y presupuestarios.
+También tiene la facultad de establecer la coordinación necesaria para que el responsable del control del presupuesto institucional mantenga controles asociados a la ejecución y modificaciones de los recursos presupuestarios de la Auditoría Interna.

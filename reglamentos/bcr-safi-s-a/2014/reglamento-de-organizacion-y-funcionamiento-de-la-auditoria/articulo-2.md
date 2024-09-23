@@ -1,2 +1,2 @@
-Artículo 2
+Artículo 2. Planeamiento estratégico.
 La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que deben regir el accionar de la Auditoría Interna y velar por su actualización. La misión y visión son parte del plan estratégico de la Auditoría Interna que está incorporado en el Manual de la Auditoría Interna de BCR SAFI S.A., ubicado en la herramienta de la gestión documental de la Auditoría Interna.

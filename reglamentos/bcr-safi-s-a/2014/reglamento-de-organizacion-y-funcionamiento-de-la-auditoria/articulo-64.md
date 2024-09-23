@@ -1,0 +1,3 @@
+Artículo 64. Responsables de su ejecución
+Para la ejecución de una investigación preliminar, el auditor interno debe establecer el área de su dependencia responsable y la designación las personas trabajadoras de Auditoría Interna que deben llevar a cabo el estudio y valorar las competencias, experiencia, independencia y posibles conflictos de interés. Asimismo, debe establecer la línea de la investigación y la supervisión de la gestión.
+El auditor interno y las personas trabajadoras de la Auditoría Interna designadas son responsables de mantener la confidencialidad de las gestiones y de los resultados que se identifiquen. Además, deben establecer las restricciones de acceso a la información para garantizar que solo aquellos que lo requieran tengan acceso a la misma.

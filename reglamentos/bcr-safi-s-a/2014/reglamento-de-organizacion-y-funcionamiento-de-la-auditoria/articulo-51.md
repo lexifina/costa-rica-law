@@ -1,2 +1,3 @@
-Artículo 51
-Este documento corresponde a una actualización del Reglamento de la Auditoría Interna de BCR SAFI S.A., publicado en La Gaceta N.° 198 del 15 de octubre del 2014, conforme al acuerdo de Junta Directiva de BCR SAFI S.A.
+Artículo 51. Del seguimiento de las recomendaciones emitidas por el jerarca y los titulares subordinados
+El jerarca y los titulares subordinados deben implementar mecanismos para asegurar que las recomendaciones de los hallazgos de la auditoría y los resultados de otras revisiones se atiendan con prontitud, oportunidad y efectividad, tal como lo establece el Artículo 17.
+Seguimiento del sistema de control interno de la Ley General de Control Interno.

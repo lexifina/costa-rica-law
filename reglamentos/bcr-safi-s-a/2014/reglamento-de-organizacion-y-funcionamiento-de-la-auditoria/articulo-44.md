@@ -1,5 +1,6 @@
-Capítulo VII
-Estudios sobre Investigaciones preliminares sobre presuntos hechos irregulares
-Artículo 44
-Los estudios de investigaciones preliminares sobre presuntos hechos irregulares están encaminados al examen de aspectos específicos sea a solicitud de la Junta Directiva de BCR SAFI S.A., de cualquiera de los entes fiscalizadores de la Sociedad, denuncias o disposiciones del auditor interno. Estos serán incluidos en el plan de trabajo, siempre y cuando el auditor interno lo considere conveniente, de conformidad con su independencia funcional y de criterio, establecidos en el artículo 25 de la Ley General de Control Interno.
-Para la ejecución de este tipo de estudio se debe considerar el marco normativo aplicable, específicamente la Ley General de Control Interno N° 8292, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, N° 8422 y su reglamento, así como los Lineamientos generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.
+Capítulo XII
+Supervisión de las labores
+Artículo 44. Supervisión de servicios de auditoría interna
+El auditor interno es responsable de establecer un adecuado proceso de supervisión del trabajo dentro de la Auditoría Interna, la cual es llevada a cabo por el auditor o el supervisor.
+Para lograr una adecuada supervisión de cada estudio de auditoría interna, función considerada de vital importancia para contribuir a su calidad, se deben establecer puntos clave durante la realización de un estudio para ejecutar la labor de supervisión, que deben ser atendidos y documentados de -manera apropiada- por las personas trabajadoras de la Auditoría Interna.
+Se debe ejercer el debido cuidado para que las instrucciones dadas al inicio de los trabajos sean claras, adecuadas y cumplidas en el desarrollo del trabajo de la planificación, la ejecución del examen (pruebas) y la comunicación de los resultados, garantizando que se han completado las actividades clave de cada fase (conocimiento del entorno, valoración de riesgos, definición de pruebas, examen, resultados de las evaluaciones, hallazgos, informes y cierre).

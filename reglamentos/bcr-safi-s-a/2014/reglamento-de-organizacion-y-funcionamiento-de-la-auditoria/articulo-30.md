@@ -1,4 +1,2 @@
-Capítulo III
-Potestades de la Auditoría Interna
-Artículo 30
-Para el desempeño de sus funciones el auditor interno de BCR SAFI S.A. y las demás personas trabajadoras de la Auditoría Interna, tienen las potestades establecidas en el artículo 33 de la Ley general de control interno.
+Artículo 30. Vigilancia del personal
+El auditor interno debe vigilar y tomar las decisiones que correspondan para que las personas trabajadoras de la Auditoría Interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, disposiciones, procedimientos, prácticas y demás disposiciones administrativas que les sean aplicables.

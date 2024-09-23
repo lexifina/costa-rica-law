@@ -1,3 +1,7 @@
-Artículo 17
-El auditor interno de BCR SAFI S.A. debe ejercer sus funciones en relación con todas las gerencias y demás dependencias de la institución, mediante la asignación de funciones a cualquier persona trabajadora idónea bajo su dirección. Tanto el auditor interno de BCR SAFI S.A. así como el personal de la Auditoría Interna, deben cumplir con los requisitos de pericia y cuidado profesional establecidos en las Normas generales de la auditoría interna en el sector público; de manera que hagan valer su competencia con independencia funcional y de criterio.
-El auditor interno de BCR SAFI S.A. y las personas trabajadoras de la Auditoría Interna, deben ejecutar sus funciones de conformidad con el Manual de la Auditoría Interna de BCR SAFI S.A. y en apego al marco jurídico y técnico establecido para el ejercicio de la función de auditoría.
+Artículo 17. Condiciones laborales para el auditor interno
+La Junta Directiva de BCR SAFI S.A. debe definir las regulaciones administrativas, el régimen de empleo y de remuneraciones aplicables al auditor interno en donde se norme, entre otros, temas tales como: control de tiempo, evaluación del desempeño, régimen de remuneración, revisión de salarios, pago de incapacidades médicas, permisos y vacaciones.
+El cuerpo normativo puede ser independiente o de modo integrado a los ya existentes en la organización.
+Esta normativa interna debe considerar en todo momento, al menos lo siguiente:
+a. Que garantice la igualdad de trato en relación con las que rigen en la Institución para los niveles dependientes del jerarca o del mismo rango del auditor interno.
+a. Que no afecte negativamente el funcionamiento y la independencia funcional de criterio de la actividad de Auditoría Interna, ni la objetividad del auditor interno.
+b. Que no interfiera la independencia de criterio del auditor interno, para lo que deben ser congruentes con la naturaleza de dicha actividad.

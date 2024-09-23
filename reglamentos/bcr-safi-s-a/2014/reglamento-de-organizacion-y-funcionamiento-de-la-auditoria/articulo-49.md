@@ -1,2 +1,4 @@
-Artículo 49
-Los servidores de la Auditoría Interna de BCR SAFI S.A. que lleven a cabo las investigaciones preliminares y confección del informe de relación de hechos u otros informes, pueden comparecer ante la autoridad competente interna en su carácter exclusivo de expertos calificados, y únicamente serán cuestionados, sobre las eventuales dudas que del informe surjan, en el ámbito de la materia en investigación.
+Artículo 49. De los informes dirigidos al Jerarca.
+Cuando se trate de informes dirigidos al jerarca, este debe ordenar al titular subordinado que corresponda, dentro del plazo de treinta días hábiles improrrogables, contados a partir de la fecha de recibido el informe, la implementación de las recomendaciones, tal como lo establece el artículo 37 de la Ley General de Control Interno.
+Si el jerarca discrepa de las recomendaciones de la Auditoría Interna, en el mismo plazo de treinta días hábiles, debe ordenar las soluciones alternas que motivadamente disponga; todo ello debe comunicarlo debidamente a la Auditoría Interna y al titular subordinado correspondiente.
+En caso de que la Junta Directiva de BCR SAFI S.A. ordene soluciones distintas de las recomendadas, la Auditoría Interna cuenta con un plazo quince días hábiles para seguir el trámite establecido en el artículo 38 de la Ley General de Control Interno, si lo considera oportuno.

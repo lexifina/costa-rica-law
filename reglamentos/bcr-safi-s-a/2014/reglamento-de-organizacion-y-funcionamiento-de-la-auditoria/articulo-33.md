@@ -1,3 +1,3 @@
-Artículo 33
-El auditor interno de BCR SAFI S.A. es la persona responsable de establecer lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría interna por las personas trabajadoras a su cargo; así como también sobre la custodia y control de acceso a los registros del trabajo.
-Los lineamientos para ejecutar un estudio de auditoría interna están contenidos en el Manual de la Auditoría Interna de BCR SAFI S.A., donde se detallan las fases normales en que se desarrolla un estudio que son: planeación, examen, comunicación de los resultados y seguimiento de disposiciones o recomendaciones.
+Artículo 33. Requerimientos de asesoría legal y otros servicios
+La Auditoría Interna tiene la potestad de solicitar el servicio de asesoría legal por medio de la Gerencia Corporativa Jurídica del Banco de Costa Rica y de cualquier otro servicio de la Institución que considere necesario para el cumplimiento de sus funciones., de acuerdo con lo establecido en el artículo 33 de la Ley General de Control Interno.
+Modificado

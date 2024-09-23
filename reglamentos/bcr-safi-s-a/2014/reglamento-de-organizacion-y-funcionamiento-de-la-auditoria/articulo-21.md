@@ -1,2 +1,2 @@
-Artículo 21
-El nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de las personas trabajadoras de la Auditoría Interna, deben ser canalizados y autorizados por el auditor interno de BCR SAFI S.A. ; de acuerdo con el marco jurídico que rige para la Institución. Lo anterior de conformidad con lo establecido en los artículos 24 y 28 de la Ley general de control interno, y lo establecido sobre esta materia en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.
+Artículo 21. Obligaciones o responsabilidades
+Sin perjuicio de lo establecido en la Ley General de Control Interno y lo dispuesto en materia de auditoría interna por parte de la Contraloría General de la República, el auditor interno tiene las obligaciones o responsabilidades que se establecen en este reglamento.

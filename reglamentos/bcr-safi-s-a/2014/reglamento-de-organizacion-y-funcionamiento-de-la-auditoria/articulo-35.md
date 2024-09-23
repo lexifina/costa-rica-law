@@ -1,6 +1,13 @@
-Capítulo IV
-Comunicación de resultados
-Artículo 35
-Sin perjuicio de los memorandos o informes parciales que fuere necesario emitir, cuando proceda, se debe emitir un informe final, de relaciones de hechos o de estudios producto de los servicios preventivos u otros, según corresponda, con los hallazgos, conclusiones y recomendaciones pertinentes.
-Este debe ser dirigido al jerarca, o a los titulares subordinados de la administración activa, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones, de conformidad con lo establecido en el artículo 35 de la Ley general de control interno.
-En lo que respecta a la comunicación del informe final de las relaciones de hecho, debe tomarse en consideración lo dispuesto sobre esta materia en los Lineamientos Generales para el análisis de presuntos hechos irregulares, emitidos por la Contraloría General de la República.
+Capítulo VIII
+Competencias y facultades de la Auditoría Interna
+Artículo 35. Competencias de la Auditoría Interna
+Las competencias o funciones que le corresponde realizar a la Auditoría Interna son las que se encuentran establecidas específicamente en el artículo 22 de la Ley General de Control Interno y se complementan con lo indicado en el siguiente marco normativo:
+I. Acuerdo Conassif 04-16 Reglamento sobre gobierno corporativo.
+II. Normas Generales de Auditoría para el Sector Público emitidas por la Contraloría General de la República.
+III. Normas para el ejercicio de la Auditoría Interna en el sector público, emitidas por la Contraloría General de la República.
+IV. Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la ante la Contraloría General de la República.
+V. Lineamientos generales para el análisis de presuntos hechos Irregulares, emitidos por la Contraloría General de la República.
+VI. Directrices para la autoevaluación anual y la evaluación externa de calidad de las auditorías internas del sector público, emitidas por la Contraloría General de la República.
+VII. Directrices generales sobre principios y enunciados éticos a observar por parte de los jerarcas, titulares subordinados, funcionarios de la Contraloría General de la República, auditorías internas y servidores públicos en general.
+VIII.Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros.
+IX. Manual de la Auditoría Interna de BCR SAFI S.A.

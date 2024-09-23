@@ -1,4 +1,3 @@
-Capítulo VI
-Ámbito de acción
-Artículo 24
-En atención a la estructura de gobierno corporativo del Conglomerado Financiero BCR, el ámbito de acción de la Auditoría Interna está conformado por BCR SAFI S.A. y aquellas instancias que formen parte del alcance de competencias y potestades establecidas en los artículos 22 y 33 de la Ley general de control interno.
+Artículo 24. Responsabilidad del auditor interno de presentar avances del plan estratégico, plan anual operativo y plan anual de labores.
+El auditor interno es responsable de presentar para conocimiento del Comité Corporativo de Auditoría y de la Junta Directiva de BCR SAFI S.A., avances periódicos del plan anual de labores, y los avances en la consecución de los objetivos y metas establecidos en el plan operativo anual y plan estratégico (o el cierre cuando corresponda), así como el cierre del plan operativo anual al inicio del periodo anual siguiente.
+Así mismo, debe presentar ante el Comité Corporativo de Auditoría y posteriormente hacer del conocimiento de la Junta Directiva de BCR SAFI S.A. el informe anual de labores, establecido en el inciso g del artículo 22 de la Ley General de Control Interno.

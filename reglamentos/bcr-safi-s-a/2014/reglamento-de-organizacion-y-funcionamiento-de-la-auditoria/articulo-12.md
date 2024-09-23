@@ -1,2 +1,4 @@
-Artículo 12
-El nombramiento a plazo indefinido del auditor interno de BCR SAFI S.A. está sujeto al periodo de prueba que regule la normativa interna de la Institución, que en lo relativo a estos efectos debe ser congruente con lo aplicable a otros funcionarios dependientes directamente de la Junta Directiva de BCR SAFI S.A., a su vez se debe cumplir con los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.
+Capítulo IV
+Del auditor interno
+Artículo 12. Del auditor interno
+El auditor interno, es el único autorizado para dirigir, según su criterio, las labores de la Auditoría Interna, a cuyo efecto es el jefe de las personas trabajadoras de la Auditoría Interna y organiza lo que corresponda, según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme a las normas externas e internas vigentes.

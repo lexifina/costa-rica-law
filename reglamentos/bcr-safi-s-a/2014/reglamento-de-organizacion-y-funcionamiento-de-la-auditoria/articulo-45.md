@@ -1,3 +1,5 @@
-Artículo 45
-El auditor interno tiene la responsabilidad de establecer los lineamientos que correspondan en relación con la admisibilidad de denuncias para su atención.
-Para tal efecto, se debe aplicar lo establecido en el capítulo 17 “Atención de denuncias, relaciones de hechos y denuncias penales”, del Manual de la Auditoría Interna de BCR SAFI S.A. con aplicación de los criterios y parámetros que dispone el Reglamento a la Ley Nº 8422 Ley contra la corrupción y el enriquecimiento ilícito en la función pública.
+Artículo 45. De los lineamientos para la supervisión de servicios de Auditoría Interna
+La Auditoría Interna debe establecer lineamientos y herramientas que faciliten la supervisión, la identificación oportuna de situaciones que se deben de atender y establecer los cursos de corrección que sean necesarios.
+El auditor interno y el resto del personal de la Auditoría Interna se deben asegurar de que las comunicaciones del trabajo sean precisas, objetivas, claras, concisas, constructivas y oportunas.
+Los análisis efectuados deben estar respaldados debidamente en papeles de trabajo que en su estructuración y contenido deben cumplir con los lineamientos establecidos en el Manual de la Auditoría Interna de BCR SAFI S.A, como soporte principal de los hallazgos de auditoría y recomendaciones que se efectúen.
+Los hallazgos, las conclusiones y las recomendaciones de la Auditoría Interna, se deben respaldar con información suficiente, útil y competente. Las recomendaciones se deben alinear con los principios de eficacia, eficiencia y economía, sobre la gestión del control, para la contribución al fortalecimiento de la gestión evaluada.

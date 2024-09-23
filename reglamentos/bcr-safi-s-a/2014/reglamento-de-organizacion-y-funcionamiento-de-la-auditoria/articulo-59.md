@@ -1,0 +1,4 @@
+Artículo 59. Servicios de advertencia
+Advertencia es un servicio dirigido a los órganos sujetos a la competencia institucional de la Auditoría Interna, y consiste en señalar los posibles riesgos y consecuencias de determinadas conductas o decisiones, cuando sean de conocimiento de la Auditoría Interna.
+Es un servicio que procura alertar o prevenir a la administración activa, sobre las posibles consecuencias de asuntos que llegan al conocimiento de la Auditoría Interna, y sobre conductas o actuaciones que pueden estar contraviniendo el ordenamiento jurídico y técnico o exponiendo a riesgo a BCR SAFI S.A. y sus fondos de inversión administrados; de conformidad o basado en el sustento jurídico y técnico pertinente.
+Los servicios de asesoría y de advertencia se ejecutan sobre asuntos de competencia de la Auditoría Interna y sin que se menoscaben ni se comprometan la independencia y la objetividad en el desarrollo posterior de sus labores.
