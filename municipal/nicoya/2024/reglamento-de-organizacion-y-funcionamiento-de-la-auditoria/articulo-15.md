@@ -1,0 +1,1 @@
+Artículo 15.- Estructura de la Auditoría Interna. La Auditoría Interna, para el cumplimiento de sus competencias estará estructurada según lo que establece el Manual de Organización y Funciones de la Municipalidad de Nicoya para la Auditoría Interna.

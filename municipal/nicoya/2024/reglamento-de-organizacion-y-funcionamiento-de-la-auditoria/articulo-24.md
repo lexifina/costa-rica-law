@@ -1,0 +1,2 @@
+Artículo 24.- Ausencia temporal del Auditor
+Cuando se ausentare temporalmente el auditor interno, el jerarca recargará las funciones, en otro funcionario idóneo de la auditoría interna. Para efectos de proceder a ese recargo no se requerirá de la autorización de la Contraloría General, pero no deberá exceder el plazo de tres meses y dentro de ese periodo, en caso de requerirse, la Municipalidad de Nicoya deberá nombrar al Auditor Interno interino, de conformidad con el trámite. Hechos los nombramientos interinos correspondientes, cesarán los recargos efectuados.

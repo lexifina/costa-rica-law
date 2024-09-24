@@ -1,0 +1,2 @@
+Artículo 23.- Jornada laboral. La jornada laboral del auditor interno será de tiempo completo.
+En casos muy calificados, el jerarca podrá solicitar a la Contraloría General de la República una reducción de la jornada, la cual no podrá ser inferior a medio tiempo. Para reducir la jornada laboral de la plaza del auditor interno, el jerarca en conformidad con el numeral 30 de la Ley General de Control Interno ordenará un estudio técnico, que deberá presentarse a la Contraloría General de la República, la que resolverá en definitiva lo que proceda.

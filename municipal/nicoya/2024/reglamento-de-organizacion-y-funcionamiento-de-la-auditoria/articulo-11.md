@@ -1,0 +1,3 @@
+Artículo 11.- Impedimentos a la independencia y objetividad.
+El Auditor debe establecer políticas y procedimientos que permitan prevenir y detectar situaciones internas o externas que comprometan la independencia y la objetividad del personal que realiza el proceso de auditoría en el sector público, sin perjuicio de los que puedan emitirse en el resto de la organización de auditoría.
+Y el personal aludido es responsable de informar los detalles de cualquier situación que pudiera afectar su independencia y objetividad. En tales casos los pormenores deben darse a conocer al superior jerárquico para que proceda a tomar junto con el Auditor las acciones que correspondan. Además ese personal se deberá abstener de tratar asuntos relacionados con esa situación.

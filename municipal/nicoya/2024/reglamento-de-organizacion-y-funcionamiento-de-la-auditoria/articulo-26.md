@@ -1,0 +1,1 @@
+Artículo 26. Desempeño de funciones. Los funcionarios de la Auditoría Interna, en el desempeño de sus funciones, deben cumplir con lo descrito en el Manual de Puestos de la Municipalidad de Nicoya para los perfiles de puestos de la Auditoría Interna.
