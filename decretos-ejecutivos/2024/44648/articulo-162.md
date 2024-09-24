@@ -1,0 +1,2 @@
+Artículo 162.- Medidas cautelares administrativas adicionales.
+Además de las medidas contempladas en el presente Reglamento, la Dirección y la Subdirección podrán adoptar las medidas cautelares administrativas de carácter excepcional y temporal que sean necesarias para evitar que, con la inscripción de un documento se generen daños a terceros registrales de buena fe y a la publicidad registral, sujeta al plazo máximo de un año contado a partir de la primera presentación del documento a la corriente registra!, y tendiente a suspender su trámite de inscripción.

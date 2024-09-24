@@ -1,0 +1,3 @@
+Artículo 105.- Tipo de cambio en la conversión de capital.
+En los aumentos o disminución de capital el tipo de cambio de moneda extranjera debe realizarse la conversión con el dólar estadounidense de conformidad con el artículo 96 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 y la referencia de venta, con la fecha de celebración de la asamblea, reunión o sesión de junta. Debe existir equivalencia entre lo inscrito y aumentado, y el valor nominal.
+Dado que en la sociedad de responsabilidad limitada los mecanismos de aumento o disminución deben solicitarse y publicitarse en colones en cumplimiento del artículo 79 del Código de Comercio Ley Nº 3'.284; sin embargo éstos podrán indicarse en dólares, haciendo su conversión a colones para su debida inscripción.

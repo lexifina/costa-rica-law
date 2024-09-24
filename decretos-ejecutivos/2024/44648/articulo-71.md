@@ -1,0 +1,5 @@
+Artículo 71.- Suspensión de la inscripción.
+La persona registradora suspenderá la inscripción de aquellos documentos que contengan actos o contratos con defectos y errores, que carezcan de formalidades o de requisitos subsanables. En garantía de cumplimiento del principio de legalidad, es obligación de las personas registradoras, al momento de suspender la inscripción de un documento, fundamentarlo de conformidad con el ordenamiento jurídico.
+Los interesados deben subsanar o corregir el defecto que dio origen a la suspensión de la inscripción y presentarlo durante el término de vigencia del asiento de presentación, además de cumplir con lo establecido en la Ley de Aranceles del Registro Nacional Nº 4564.
+Si el documento no es subsanado en los términos indicados, el asiento de presentación respectivo caducará teniéndose como no existente dentro del Registro y la persona registradora al inscribir nuevos títulos hará caso omiso del documento procediendo a su cancelación.
+El documento una vez subsanado por el profesional será presentado a la persona registradora respectiva dentro del término de ley, para que éste compruebe si fue o no corregido.

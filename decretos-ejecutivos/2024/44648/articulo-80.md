@@ -1,0 +1,2 @@
+Artículo 80.- Resolución de la Dirección.
+Recibida la solicitud y vencidas las audiencias cuando sean procedentes, la Dirección decidirá, en resolución considerada, lo que estime conveniente con indicación de sus fundamentos legales. Esta resolución se notificará al ocursante, así corno a los demás terceros con interés legítimo que se hubieran apersonado. La Dirección deberá dictar su resolución dentro del mes siguiente al vencimiento del término de las audiencias concedidas.

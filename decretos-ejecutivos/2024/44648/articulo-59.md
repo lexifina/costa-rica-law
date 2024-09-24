@@ -1,0 +1,3 @@
+Artículo 59.- Verificación de habilitación del notario público.
+Las personas funcionarias del área sustantiva deben verificar la habilitación del notario al momento de autenticar las firmas en los actos que intervenga, expida certificaciones, otorgue el respectivo instrumento público o documento auténtico, su testimonio y posteriores razones notariales vinculadas a este.
+Al comprobarse mediante la verificación que, a la fecha de otorgamiento o expedición de un instrumento público, documento auténtico, o su testimonio presentado para su inscripción, en virtud de ser otorgado o expedido por un notario inhabilitado, se procederá a cancelar el asiento de presentación respectivo.

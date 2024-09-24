@@ -1,0 +1,3 @@
+Artículo 69.- Reposición de documentos públicos.
+En el caso de destrucción o pérdida de documentos públicos por parte de los interesados deberá practicarse la inscripción mediante ulterior testimonio expedido por el notario autorizante o el Archivo Notarial, debiendo aportar las copias respectivas para acreditar el pago de tributos respectivos; salvo que dicha situación sea atribuible al Registro, en cuyo caso la persona registradora procederá a la respectiva inscripción mediante copias microfilmadas o digitalizadas de los mismos.
+Sin perjuicio de lo establecido en el numeral 211 y siguientes de la Ley General de la Administración Pública.

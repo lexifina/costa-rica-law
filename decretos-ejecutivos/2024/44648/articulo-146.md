@@ -1,0 +1,4 @@
+Artículo 146.- De la emisión y custodia de los libros.
+El Registro de Personas Jurídicas desde su competencia de emisor, debe asegurar la existencia de los libros, su integridad y la efectiva puesta en custodia del legitimado de la sociedad mercantil para ello.
+Desde la custodia como competencia y responsabilidad del depositario de la sociedad mercantil debe garantizar la correcta llevanza de los libros. según el artículo 253 Código de Comercio.
+El procedimiento de legalización de libros debe incorporar los medios suficientes que faciliten la trazabilidad entre ambas competencias, de tal manera que se fortalezca la certeza jurídica de los datos que nacidos en una realidad extra registra} producto de la llevanza de los libros luego es incorporada a la realidad registral, por medio de la protocolización notarial del contenido de los libros.

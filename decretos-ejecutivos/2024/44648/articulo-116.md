@@ -1,0 +1,6 @@
+CAPÍTULO V
+Calificación de denominaciones o razones sociales
+Artículo 116.- Determinación de similitud entre denominaciones de entidades mercantiles.
+Para determinar la posible existencia de similitud entre dos nombres sociales, debe tenerse presente que la revisión o búsqueda ha de realizarse exclusivamente entre las denominaciones de sociedades mercantiles previamente inscritas en las bases de datos de este Registro, no debiendo tornarse en cuenta los nombres de entidades jurídicas diferentes a éstas, corno asociaciones, fundaciones, asignaciones de cédula jurídica o número identificador, todo ello en concordancia con lo dispuesto en el artículo 103 del Código de Comercio Ley Nº 3284.
+Debe además valorarse que el nombre social está compuesto por todos los términos que contenga, de manera que la calificación de éste debe realizarse con respecto al nombre en forma global y no respecto a uno o algunos de los elementos o vocablos que lo componen.
+Para determinar la posible similitud entre nombres sociales debe tenerse presente que el nombre que pretenda registrarse debe estar clara y precisamente determinado y debe ser distinto de los ya registrados, los que tendrán prioridad sobre aquel. Procederá en consecuencia, señalar la similitud entre dos nombres sociales cuando se presten a confusión.

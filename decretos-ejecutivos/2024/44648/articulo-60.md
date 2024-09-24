@@ -1,0 +1,3 @@
+Artículo 60.- Consulta simple de los registradores.
+La persona registradora podrá solicitar de la Asesoría Legal un criterio. presentando un planteamiento jurídico de la duda específica, demostrando el previo agotamiento de la duda ante la jefatura y bastará con un correo electrónico al efecto, y que la consulta sea sobre elementos del marco de calificación.
+Este criterio no será vinculante para la persona registradora, y no serán tramitadas las consultas cuando sean situaciones claramente estipuladas en circulares, directrices, guía de calificación, en las propias normas jurídicas, o la pertinencia de defectos o cancelación de documentos. Mientras es tramitada la consulta se suspende el término de caducidad del asiento de presentación.

@@ -1,0 +1,2 @@
+Artículo 104.-Ampliación del plazo social.
+A toda entidad jurídica que se le quiera realizar una ampliación del plazo social, tanto el acuerdo de ampliación tomado por los socios, así como el documento en que se protocolice el acta que autorice dicha prórroga, deberá necesariamente ser inscrito en este Registro previo al vencimiento del plazo social inscrito y publicitado, por los efectos constitutivos de los artículos 19 y 22 del Código de Comercio Ley Nº 3284.

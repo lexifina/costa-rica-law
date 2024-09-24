@@ -1,0 +1,2 @@
+Artículo 4.- Línea jerárquica.
+La persona Directora es el superior jerárquico del Registro de Personas Jurídicas, tanto en materia administrativa como sustantiva, profesional y técnica. Este contará con una persona subdirectora para la ejecución de sus disposiciones, quien en su ausencia asumirá todas las atribuciones y deberes propios de ese cargo. Ambas personas en coordinación velarán por la observancia de las leyes, reglamentos y demás normas que regulen el funcionamiento y organización del Registro de Personas Jurídicas.

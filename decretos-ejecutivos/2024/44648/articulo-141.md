@@ -1,0 +1,4 @@
+Artículo 141.- Cancelación de la asignación de la cédula jurídica o número identificador.
+Al tratarse de un número unívoco de identificación. la vigencia del número de cédula jurídica o número identificador asignado será indefinida, sin embargo, la entidad o estructura jurídica podrá solicitar la cancelación, publicitándose como estado "cancelada a solicitud de parte", para lo cual debe seguirse las mismas formalidades y requisitos bajo la cual fue asignada.
+Procederá la cancelación siempre que no existan nombramientos de apoderados vigentes y que el interesado deje constancia de que la entidad o estructura no tiene activos ni pasivos al momento de la cancelación.
+Una vez que la cédula haya sido cancelada a solicitud del interesado, no resultará viable su reactivación, permaneciendo de forma perpetua la consulta de su numeración en la base de datos.

@@ -1,0 +1,3 @@
+Artículo 86.- Razón o denominación y objeto de las sociedades mercantiles.
+La razón o denominación de las sociedades mercantiles se deben sujetar a los artículos 103 del Código de Comercio Nº 3284 y 29 de la Ley de Marcas y Otros Signos Distintivos Nº 7978, y las protecciones de nombre de Leyes especiales.
+El objeto de las sociedades mercantiles no admitirá aquellos física o legalmente imposible, en los términos previstos por el artículo 631 del Código Civil Ley Nº 30. El objeto de actividades reguladas por leyes especiales debe contar con las autorizaciones de las entidades fiscalizadoras correspondientes, si fuere del caso.

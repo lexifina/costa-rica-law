@@ -1,0 +1,3 @@
+Artículo 74.-Acatamiento de los criterios registrales.
+La Dirección o Subdirección comunicarán mediante una orden circular, aquellas calificaciones, resoluciones de ocursos, resoluciones finales de diligencias administrativas u otros que consideren para la aplicación en casos similares que se presenten en el futuro. El contenido de tal orden será de acatamiento obligatorio en casos análogos por parte de las personas registradoras a fin de garantizar un principio de unidad de criterio en la calificación registral en este Registro.
+Igual carácter tendrá la guía de calificación que se emita por parte de esta Dirección.

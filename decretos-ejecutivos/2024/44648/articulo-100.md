@@ -1,0 +1,5 @@
+Artículo 100.- Actas de acuerdos protocolizados.
+Las actas de acuerdos protocolizados que deban inscribirse conforme a la ley, la persona notario debe dar fe que el acta protocolizada se encuentra asentada en el libro correspondiente, firmada por quienes indique el Código de Comercio Ley Nº 3284, caso contrario se cancelará el asiento de presentación.
+De conformidad con el artículo 158 del Código de Comercio Ley Nº 3284, si se prescinde de la convocatoria el Notario debe dar fe de que el acta se encuentre firmada por todos los dueños del capital.
+Las actas protocolizadas deben contener los aspectos de convocatoria, quórum, y firmeza de la asamblea, reunión o sesión de junta, de conformidad con los artículos 15 8, 164, 165, 169, 170, 171 del Código de Comercio Ley Nº 3284, bastará con que dichos extremos sean mencionados en el acta que se protocoliza, sin requerir fe notarial.
+De omitirse alguno de los aspectos anteriores dentro del texto del acta, se subsanará por medio de razón notarial o escritura adicional de ser el caso, es totalmente procedente en virtud de su condición de fedatario público con que cuenta el notario.

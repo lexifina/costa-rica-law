@@ -1,0 +1,4 @@
+Artículo 35.- Publicidad formal.
+La información del Registro es pública, el Registro de Personas Jurídicas debe determinar el modo en que esta información puede ser consultada, sin riesgo de adulteración. pérdida o deterioro de esta.
+Corresponde al Registro el tratamiento profesional y técnico del contenido de los asientos registrales, de modo que se haga efectiva su publicidad directa y se garantice, al mismo tiempo, la imposibilidad de su manipulación dolosa.
+La publicidad registral está constituida por la información contenida en los tomos, sistemas de procesamiento electrónico de datos, digitalización y la microfilmación. Debe existir entre estos una estrecha relación, siendo auxiliares recíprocos y complementarios, a fin de garantizar la unidad, seguridad y congruencia de la información registral.

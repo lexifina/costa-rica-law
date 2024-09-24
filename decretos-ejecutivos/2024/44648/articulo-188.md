@@ -1,0 +1,12 @@
+Artículo 188.- Documentos que permiten acreditar la existencia de una inexactitud de origen extra registral.
+Los documentos que no constan en la publicitad registral del Registro de Personas Jurídicas, que permiten acreditar fehacientemente la existencia de una inexactitud de origen extra registral, podrán ser:
+a) Certificación del Archivo Notarial o de la Dirección Nacional de Notariado que compruebe que el testimonio presentado o inscrito en el Registro de Personas Jurídicas, no está asentado en el protocolo de la persona notaria y consecuentemente no existe la escritura matriz.
+b) Certificación del Archivo Notarial o de la Dirección Nacional de Notariado que acredite la existencia de alguna anomalía respecto de la fidelidad y exactitud en la reproducción de un testimonio de escritura o protocolización respecto de su matriz.
+c) Certificación del Archivo Notarial del índice notarial que acredite la existencia de alguna anomalía respecto de la fidelidad y exactitud en la reproducción de un testimonio de escritura o protocolización, respecto de la información consignada en el índice.
+d) Certificación de defunción que acredite el fallecimiento de un compareciente con anterioridad al otorgamiento de un instrumento público notarial.
+e) Certificación de entradas y salidas que acredite que un compareciente se encontraba fuera del país al momento del otorgamiento de un instrumento público notarial.
+f) Certificación emitida por un profesional con fe pública que acredite que un compareciente se encontraba en una situación médica que le impidiera estar presente al momento del otorgamiento de un instrumento público.
+g) La certificación de los incisos d) e) y í) es aplicable para el caso de reunión en asambleas o equivalentes, que demuestre la no presencia del socio, contraviniendo el quorum de ley o estatuario, o cualesquiera otros elementos que su no presencia sea en detrimento de la validez del contenido del acta.
+h) Resultas del cotejo administrativo que acredite que existen discrepancias entre el documento presentado o inscrito, en el Registro de Personas Jurídicas y la matriz.
+i) Acto administrativo emitido por la Dirección Nacional de Notariado que ordene la finalización anormal del cotejo administrativo por causas imputables a la persona notaria.
+j) Certificación del Archivo Notarial del incumplimiento de la presentación del índice notarial por parte de la persona notaria, vinculado con la fecha de autorización del documento cuestionado.

@@ -1,0 +1,9 @@
+Artículo 187.- Requisitos de la solicitud de anotación de una prevención de inexactitud
+extra registral a gestión de parte interesada o afectada.
+La solicitud de anotación de una prevención de inexactitud extra registral a gestión de parte interesada o afectada deberá ser presentada ante la Dirección del Registro de Personas Jurídicas, con los siguientes requisitos:
+a) Solicitud por escrito debidamente autenticada la firma por la persona notaria pública, la cual debe indicar: las calidades completas del gestionante, una relación de hechos que describa y delimite la existencia de la inexactitud de que se trate, así como con los datos de identificación necesarios de la inscripción, y un medio para recibir notificaciones, ya sea electrónico o cualquier otro que permita la Ley de Notificaciones Judiciales.
+b) Si se actúa por medio de representante, en la solicitud se deben indicar las citas de inscripción de los poderes inscribibles de que se trate; y/o aportar la documentación que acredite la validez de los poderes no inscribibles con que se actúe.
+c) Original o copia debidamente certificada de la denuncia penal o denuncia civil, en la que conste el correspondiente acuse de recibo y el número de sumaria asignado por parte de la sede judicial, y cuya relación de hechos debe ser congruente con la solicitud.
+d) Comprobante de cancelación del arancel registra! establecido en la Ley de Aranceles del Registro Nacional Nº 4564.
+e) Aportar el timbre del Colegio de Abogados de Costa Rica, según el Arancel de Honorarios por Servicios Profesionales de Notariado Decreto Nº 41457JP, por la autenticación notarial de la firma del gestionante.
+f) Aportar el documento idóneo que no conste en la publicitad registral del Registro de Personas Jurídicas, y que acredite fehacientemente la existencia de una inexactitud de origen extra registral ( elemento objetivo).

@@ -1,0 +1,2 @@
+Artículo 81.- Recurso de apelación contra el ocurso.
+De lo resuelto por la Dirección de este Registro procederá el recurso de apelación ante el Tribunal Regitral Administrativo por las personas desfavorables de lo resuelto de conformidad con el artículo 25 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual Nº 8039. Deberá presentarse ante este Registro que dictó la resolución, siempre que se interpusiere dentro de los cinco días hábiles siguientes a la notificación de la resolución dictada.

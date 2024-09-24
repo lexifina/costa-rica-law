@@ -1,0 +1,3 @@
+Artículo 107.- Extinción de las sociedades mercantiles.
+Para la extinción de las sociedades mercantiles debe seguirse el procedimiento definido en los artículos 201 a 219 del Código de Comercio Ley Nº 3284. Podrá prescindirse del nombramiento de liquidadores cuando en sede registral se acredite por fe notarial que la sociedad no cuenta con activos ni pasivos, que cualquier interés fiscal está satisfecho, y que se realizó la publicación de ley, para efectos de interés de terceros; de no ser posible tendrá que adecuarse a los procedimientos ordinarios.
+Las sociedades que realizan actividades fiscalizadas por las Superintendencias, deben observar las Leyes especiales que regulan la actividad.

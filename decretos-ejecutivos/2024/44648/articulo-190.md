@@ -1,0 +1,2 @@
+Artículo 190.- Existencia de la tutela jurisdiccional en los asientos registrales.
+Ante una solicitud de anotación de una prevención de inexactitud extra registral en la que ya exista en la publicidad la debida tutela jurisdiccional ( demanda civil, penal, o inmovilización por orden judicial), con previa corroboración de la identidad de lo que se denuncia con la anotación del proceso judicial que se refleja en los asientos registrales, se rechazará y archivará la solicitud, pues el objetivo de la nota de prevención está debidamente cumplido.

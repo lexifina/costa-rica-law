@@ -1,0 +1,2 @@
+Artículo 77.- Calificación sumaria ante la jefatura de las personas registradoras.
+En caso de que la persona notaria no se encuentre de acuerdo con los defectos anotados por la persona registradora, acudirá ante la jefatura, para que brinde su apreciación con respecto a los defectos anotados. El superior en el acto podrá revocar el defecto y ordenar la inscripción del documento, en caso de no existir otros defectos, bajo su responsabilidad fundamentando su revocatoria por los medios técnicos establecidos. con prioridad cuando lo estime pertinente.

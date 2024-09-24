@@ -1,0 +1,3 @@
+Artículo 145.- Solicitud de legalización y emisión en la constitución, fusión, y transformación, de las sociedades mercantiles.
+La solicitud de legalización y emisión de los libros de las sociedades mercantiles que se constituyan, fusionen o transformen se dará con la presentación al Registro del documento de dichos actos, como una de las manifestaciones de los constituyentes al momento del otorgamiento del acto en el caso de la constitución, y en la Asamblea en los otros casos.
+El plazo que tendrá el Registro para la entrega de los libros a legalizar es el plazo de registración definido en el artículo 3 de la Ley 3883 sobre Inscripción de Documentos en el Registro Público.

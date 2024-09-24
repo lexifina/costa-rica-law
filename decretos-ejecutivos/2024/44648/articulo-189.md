@@ -1,0 +1,4 @@
+Artículo 189.- Falta de requisitos para solicitar la nota de prevención de inexactitud extra registral por parte interesada o afectada.
+De presentarse el escrito de solicitud acompañado de al menos la denuncia en sede judicial o el elemento objetivo, se procederá con la anotación de la nota de prevención de inexactitud extra registral, solicitando los requisitos faltantes por el plazo de hasta quince días hábiles.
+Si la parte no cumpliere con lo prevenido se rechazará y archivará la solicitud, y en caso de haber sido consignada se levantará la nota de prevención con su correspondiente marginal en los asientos registrales.
+Se mantendrá publicitada la nota de prevención y se continuará el trámite de oficio, únicamente si consta en el expediente administrativo el documento idóneo que acredite fehacientemente la existencia de una inexactitud de origen extra registral ( elemento objetivo).

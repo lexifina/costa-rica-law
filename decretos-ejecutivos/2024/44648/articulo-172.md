@@ -1,0 +1,2 @@
+Artículo 172.-Audiencia por edicto de la Gestión Administrativa.
+En caso de que no se logre notificar a las partes interesadas en las direcciones consignadas en los asientos registrales, que no conste número de identificación. ni domicilios completos en la información registra!, o bien que la parte no tenga representante inscrito, se deberá proceder con la publicación por una sola vez de un edicto en el Diario Oficial La Gaceta.

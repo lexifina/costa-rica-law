@@ -1,0 +1,2 @@
+Artículo 177.- Solicitud de prueba para mejor resolver.
+En la instrucción del procedimiento y antes del dictado de la resolución final, se podrá procurar prueba, la cual deberá estar relacionada con las inexactitudes registrales en investigación. Rendida la prueba, la misma deberá ser incorporada al expediente mediante resolución, y puesta en conocimiento a todas las partes apersonadas por un plazo de quince días hábiles.

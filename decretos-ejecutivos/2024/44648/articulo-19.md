@@ -1,0 +1,3 @@
+Artículo 19.- Inscripción.
+Por medio de la inscripción la persona registradora, una vez cumplida la calificación del documento, y verificando que el mismo no tenga defectos que deban corregirse, practicará el asiento respectivo.
+La persona registradora debe procurar la celeridad y eficiencia del trámite, salvo que la inscripción del documento, sea por aspectos de procedimiento o de fondo, ocasione un menoscabo en el valor de la seguridad jurídica registral, en cuyo caso, privará la seguridad por encima de la celeridad. Lo anterior, sin detrimento de las consecuencias disciplinarias que pudieran derivar de la violación al principio de calificación unitaria.

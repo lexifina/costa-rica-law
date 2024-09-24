@@ -1,0 +1,2 @@
+Artículo 143.- Tributos por la legalización y emisión.
+Los servicios de legalización y emisión de libros de sociedades mercantiles deberán cancelar todos los tributos correspondientes, al momento de la presentación ante el Registro Nacional, de la constitución, fusión, y transformación de una sociedad mercantil, salvo si la fusión produce una absorción. Además, debe cancelarse los tributos cuando medie solicitud posterior, para libros nuevos por concluir los anteriores, extravío, deterioro o sustracción.

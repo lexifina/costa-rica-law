@@ -1,0 +1,3 @@
+Artículo 91.- Fondo de reserva legal de las sociedades mercantiles y periodo fiscal.
+La sociedad de responsabilidad limitada y anónima tendrá un porcentaje mínimo definido por Ley para el fondo de reserva legal, sin detrimento de elevarse el porcentaje estatutariamente a solicitud de la asamblea, como garantía a las futuras obligaciones y pérdidas de la sociedad.
+Los balances, utilidades o pérdidas de la sociedad son acorde con el ejercicio del periodo fiscal definido en la Ley del Impuesto Sobre la Renta Nº 7092. contado a partir del primero de enero al treinta y uno de diciembre de cada año, con las salvedades de la propia Ley.

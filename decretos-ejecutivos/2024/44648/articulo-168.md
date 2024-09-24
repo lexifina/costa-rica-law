@@ -1,0 +1,3 @@
+Artículo 168.- Consignación de nota de advertencia administrativa.
+Mientras se realizan las investigaciones que correspondan, la Dirección o Subdirección del Registro o la persona asesora legal a cargo del trámite, cuando así lo consideren, se consignará una nota de advertencia administrativa en la inscripción respectiva en el asiento registral, para efectos de publicidad noticia, sin que impida la inscripción de documentos posteriores.
+La resolución que ordena la consignación de la nota de advertencia administrativa deberá ser ejecutada por la persona funcionaria asignada, en el plazo de cinco días hábiles contado a partir de la fecha del dictado de esta.

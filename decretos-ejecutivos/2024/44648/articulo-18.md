@@ -1,0 +1,3 @@
+Artículo 18.- Publicidad Registral.
+La eficacia de la publicidad del Registro de Personas Jurídicas reside en sus efectos jurídicos protectores. La información que los terceros consultan respecto de los actos y contratos relativos a las personas jurídicas, tienen efectos jurídicos de inoponibilidad y fe pública registral a partir del día de su inscripción en el Registro.
+Los actos civiles inscribibles relativos a las personas físicas tendrán efectos declarativos que se retrotraerán una vez inscritos, al momento de presentación del acto o contrato al Diario del Registro, salvo que se imponga por ley efectos constitutivos para algunas formas de mandatos inscribibles.

@@ -1,0 +1,2 @@
+Artículo 186.- Legitimación para solicitar la nota de prevención de inexactitud extra registral.
+La anotación de la prevención de inexactitud extra registral podrá solicitarla el Organismo de Investigación Judicial, el Ministerio Público y la parte interesada o afectada que demuestre el interés o la relación con el asiento registral que se pretende tutelar, y deberán cumplir con los requisitos establecidos en este Reglamento.

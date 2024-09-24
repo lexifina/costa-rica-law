@@ -1,0 +1,2 @@
+Artículo 164.- Legitimación para gestionar.
+Pueden promover la gestión administrativa los titulares de los derechos inscritos o anotados que se encuentren en el Registro y toda aquella persona que demuestre tener interés legítimo o derecho subjetivo que pueda resultar afectado, lesionado o satisfecho, de acuerdo con los asientos y la publicidad registral, caso contrario se deberá prevenir la falta de legitimación activa.

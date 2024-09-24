@@ -1,0 +1,3 @@
+Artículo 148.- Legalización y emisión de libros en la transformación de sociedades mercantiles.
+La inscripción de la transformación en otro tipo de sociedad mercantil. da por legalizados los libros correspondientes del nuevo tipo de sociedad. Emitiéndose los libros de igual manera que en la constitución.
+El cierre de los libros sociales correspondientes, de la anterior sociedad, se realiza con la sola inscripción de la transformación del nuevo tipo de sociedad mercantil. De igual manera se da el cierre de los libros sociales, con la sola inscripción de la transformación de una sociedad mercantil en una sociedad civil. y será responsabilidad conforme a los artículos 225, 270 y 271 del Código de Comercio.

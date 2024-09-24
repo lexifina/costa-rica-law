@@ -1,0 +1,2 @@
+Artículo 196.- Retiro de documentos digitales de la corriente registral.
+Los documentos digitales presentados para su inscripción, que sean requeridos por autoridades judiciales ante la existencia de una causa penal en investigación, podrán ser retirados de la corriente registral por el plazo máximo de un año contado a partir de su primera presentación ante la Oficina de Diario del Registro Nacional, como medida cautelar administrativa de carácter excepcional y temporal, y una vez transcurrido ese plazo operará la caducidad del documento.

@@ -1,0 +1,3 @@
+Artículo 175.- Suspensión de la gestión administrativa a solicitud de parte.
+La suspensión de la gestión administrativa podrá ser solicitada por cualquiera de las partes interesadas, en el caso que estén realizando las diligencias que procuren el saneamiento de las inexactitudes registrales en investigación, o por alguna otra razón objetiva que justifique la suspensión del procedimiento. todo lo cual deberá constar en el expediente.
+La suspensión será autorizada mediante resolución debidamente razonada, por única vez, en un plazo de dos hasta seis meses, siempre y cuando de los elementos que constan dentro del expediente, se desprenda la posibilidad del saneamiento de la inexactitud y no se pretenda el retraso de la investigación.

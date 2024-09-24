@@ -1,0 +1,2 @@
+Artículo 121.- Inaplicabilidad a las entidades cuya denominación sea su número de cédula jurídica.
+En virtud de que las entidades mercantiles que se constituyan al amparo del Decreto Ejecutivo Nº 33171-J, su denominación está constituida por el número de cédula jurídica a ella asignada más su respectivo aditamento, que constituye una denominación irrepetible, no le son aplicables las reglas establecidas en este Reglamento en cuanto a la similitud de su denominación con otra previamente inscrita.

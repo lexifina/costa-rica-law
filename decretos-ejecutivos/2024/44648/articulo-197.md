@@ -1,0 +1,2 @@
+Artículo 197.- Acumulación de solicitudes de anotación de una prevención de inexactitud extra registral.
+Si se presentaren simultáneamente ante la Dirección del Registro de Personas Jurídicas solicitudes para la anotación de una prevención de inexactitud extra registral de parte interesada o afectada, del Ministerio Público o del Organismo de Investigación Judicial, se acumularán para su trámite en un único expediente administrativo, siempre y cuando exista identidad de los asientos registrales que se pretenden tutelar, prevaleciendo la causa administrativa más antigua.

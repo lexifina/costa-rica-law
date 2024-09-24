@@ -1,0 +1,3 @@
+Artículo 193.- Plazo de la anotación de una prevención de inexactitud extra registral.
+La resolución administrativa que ordena la consignación de la nota de prevención de la inexactitud extra registral deberá ser ejecutada en el plazo máximo de ocho días naturales contado a partir del día siguiente de su comunicación, la cual se mantendrá publicitada en los asientos registrales por el plazo de un año, a la espera de la anotación de la demanda penal o civil.
+La resolución administrativa que autoriza la aprobación de la solicitud de anotación de la prevención conllevará la consignación de una marginal en los asientos registrales, que deberá indicar el número de expediente judicial relacionado con tal solicitud.

@@ -1,0 +1,2 @@
+Artículo 46.- Papel de seguridad.
+Los documentos notariales físicos que se presenten al Registro para su anotación e inscripción deberán consignarse en el papel de seguridad asignado a la persona notaria la que realizó el acto o contrato en él contenido. En caso de no coincidir el número de cédula y el nombre de la persona notaria en el papel de seguridad, deberá la persona registradora cancelar el asiento de presentación del respectivo documento.

@@ -1,0 +1,2 @@
+Artículo 181.- Resolución final por parte del Tribunal Registral Administrativo.
+Una vez resuelto lo correspondiente por el Tribunal Registral Administrativo y devuelto el expediente, la Dirección, Subdirección o la persona asesora en quien ésta haya delegado, ejecutará la resolución final, en el plazo de cinco días hábiles contados a partir del recibido del expediente en la Dirección del Registro de Personas Jurídicas.

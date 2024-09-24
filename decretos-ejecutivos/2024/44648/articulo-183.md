@@ -1,0 +1,4 @@
+CAPÍTULO V
+Del saneamiento de las Inexactitudes de Origen Extra Registral.
+Artículo 183.- Saneamiento de las inexactitudes de origen extra registral.
+Sin perjuicio de la tutela jurisdiccional de la publicidad registra}, si la inexactitud es atribuible a la persona notario público. autoridad judicial, administrativa o cualquier otro agente externo al Registro, porque el documento presentado para su inscripción, contenga una redacción vaga, ambigua o inexacta o fue generado con ocasión de cualquier tipo de fraude y así lo aceptaran o se declarare en vía judicial; el saneamiento de la inexactitud de origen extra registral deberá hacerse mediante una nueva inscripción motivada, sea por una ejecutoria judicial o un nuevo documento idóneo aplicando el principio de paralelismo de formas, conforme lo establecen los artículos 450 y 474 del Código Civil Ley Nº 30.

@@ -1,0 +1,2 @@
+Artículo 63.- De la anotación e inscripción de documentos judiciales y administrativos.
+Los documentos en que se declare la apertura de un proceso concursal y nombramientos derivados, la salvaguardia para personas con discapacidad, demandas y cualquier otro documento establecido por ley, implicará la inscripción de la afectación que expresamente indique la autoridad judicial o administrativa correspondiente.

@@ -1,0 +1,2 @@
+Artículo 117.- Calificación de nombres o denominaciones en caso de sociedades disueltas.
+Producto de la disolución derivadas de las leyes que regulan el Impuesto a las Personas Jurídicas, a la determinación de similitud entre nombres sociales de entidades mercantiles, también es aplicable lo dispuesto por Ley para la reinscripción de sociedades disueltas Nº 10255, referente a la protección de nombres de entidades disueltas.

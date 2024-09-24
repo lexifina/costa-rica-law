@@ -1,0 +1,3 @@
+Artículo 114.- Mandatos de personas físicas y entidades jurídicas.
+Para efectos registrales la duración de los mandatos inscribibles, es a partir de la inscripción registral, y el vencimiento hasta el cumplimiento del plazo estipulado, o cumplimiento de la terminación del mandato de acuerdo a la Ley.
+Con relación a los poderes amparados en la Convención Interarnericana sobre el Régimen Legal de Poderes para ser Utilizados en el extranjero, se exceptúa lo indicado en el artículo 226 del Código de Comercio, no siendo necesario para la eficacia del poder que el apoderado manifieste en dicho acto su aceptación, esta resultará de su ejercicio.

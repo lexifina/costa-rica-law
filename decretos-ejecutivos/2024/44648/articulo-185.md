@@ -1,0 +1,2 @@
+Artículo 185.- Nota de prevención en documentos en trámite.
+Los documentos presentados en los que el asiento contenga nota de prevención, la persona registradora a cargo de la calificación debe verificar de previo a la inscripción el expediente al efecto. Si el documento subsana la inconsistencia continúa el trámite de inscripción. En caso de tratarse de una situación especial. el documento se remite para valoración y competencia exclusiva, a la Dirección o Subdirección, quedando excluido del marco de calificación registral.

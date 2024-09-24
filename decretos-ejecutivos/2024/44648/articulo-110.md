@@ -1,0 +1,4 @@
+Artículo 110.- Retiro sin inscribir.
+Conforme al artículo 15 de la Ley Sobre Inscripción de Documentos en Registro Público Nº 3883 procederá el retiro sin inscribir a solicitud de la persona legitimada, por medio de escritura pública o documento auténtico de acuerdo con la formalidad utilizada en el documento que se retira.
+Para que resulte procedente el retiro sin inscribir, todos los tributos respectivos para su inscripción deberán haberse cancelado en su totalidad. La tasa concerniente a derechos de Registro no será objeto de devolución.
+El efecto del retiro sin inscribir será la cancelación del asiento de presentación del documento, mediante la aplicación del movimiento en el Sistema de Personas Jurídicas, así como de cualquier otra anotación que se haya originado. La persona registradora debe asignar la respectiva marginal y mantener los defectos consignados.

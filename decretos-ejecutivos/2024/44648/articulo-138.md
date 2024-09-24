@@ -1,0 +1,2 @@
+Artículo 138.- Vigencia cédula jurídica o número identificador.
+Tanto el número de cédula jurídica como el número identificador asignado, constituyen una identificación única e irrepetible, sin posibilidad de confusión, ligado a una entidad jurídica desde su inscripción o a una estructura jurídica desde su asignación, por parte del Registro, por lo cual perdurará en la Base de Datos del Padrón Jurídico Registral.

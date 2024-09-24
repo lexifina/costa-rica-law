@@ -1,0 +1,2 @@
+Artículo 137.- Conformación de la cédula jurídica o número identificador.
+El número de cédula jurídica está conformado por diez caracteres, el primero de ellos corresponde al tipo de persona jurídica, siendo de derecho público o de derecho privado; los siguientes tres dígitos, corresponden a la clase de la persona jurídica según su naturaleza y conforme a la legislación que la regula. Los restantes seis caracteres son alfanuméricos y corresponden al consecutivo asignado por el Registro de Personas Jurídica,.

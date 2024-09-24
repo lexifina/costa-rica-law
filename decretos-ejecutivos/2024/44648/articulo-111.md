@@ -1,0 +1,7 @@
+Artículo 111.- Retiro sin inscribir de protocolizaciones de actas de asambleas de socios y/o asociados.
+En el caso del retiro sin inscribir de protocolizaciones de actas de Asambleas de socios, asociados o sus equivalentes, el único órgano con facultades suficientes para realizar dicho acto es la Asamblea misma. Será procedente el retiro:
+a) Mediante protocolización del acuerdo tomado por la Asamblea.
+b) Además, el retiro sin inscribir podrá solicitarlo la persona notario autorizante del documento en cuestión, siempre y cuando cuente con la respectiva autorización por parte de la Asamblea, de conformidad con lo dispuesto en el Código de Comercio Ley Nº 3284 o en el Reglamento a la Ley de Asociaciones Decreto Nº 29496-J, relativo a las atribuciones de la asamblea.
+c) En dicho caso, la escritura de retiro podrá otorgarse en el mismo protocolo de la persona notaria que lo realiza, debiendo indicarse en la misma, la hora y fecha de celebración de la Asamblea, el Notario debe dar fe con vista del libro de actas respectivo, que el acta se encuentra debidamente asentada y firmada por quienes debieron hacerlo y cualquier otro extremo según corresponda.
+d) Aunado a lo anterior, el retiro podrá ser solicitado por el representante o por un tercero, siempre que en ambos casos se cuente con la autorización expresa de la Asamblea, debiendo comparecer ante notario público, plasmando en la escritura los datos antes mencionados.
+Las anteriores estipulaciones serán aplicables a las protocolizaciones de actas de junta directiva.

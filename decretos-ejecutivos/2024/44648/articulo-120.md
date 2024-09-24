@@ -1,0 +1,2 @@
+Artículo 120.- Nombres o denominaciones en idiomas diferentes al español.
+Procede la inscripción de la denominación social en idioma diferente al español, en cuyo caso la verificación que debe realizar la persona registradora acerca de la posible similitud, versará sobre el nombre en lengua extranjera, no tomándose en cuenta la traducción para tales efectos, pero si se valorará que no contravenga la moral y las buenas costumbres.

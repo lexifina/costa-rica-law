@@ -1,0 +1,6 @@
+Artículo 165.- Requisitos de la Gestión Administrativa.
+Los requisitos para incoar a solicitud de parte la Gestión Administrativa son los siguientes:
+a) Presentar el escrito inicial de la gestión administrativa que indique una relación de hechos que describa y delimite la existencia de la inexactitud de que se trate, con los datos de identificación necesarios de la inscripción. El gestionante deberá indicar un medio de notificación, ya sea electrónico o cualquier otro que permita la Ley de Notificaciones Judiciales Nº 8687.
+b) Si se actúa por medio de un representante, deberá indicarse las citas de inscripción del poder inscribible de que se trate, o bien, aportar la documentación que acredite la validez de los poderes no inscribibles con que se actúe.
+c) Autenticar notarialmente la firma del gestionante y aportar el timbre del Colegio de Abogados de Costa Rica, según el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado Decreto Nº 41457-JP. salvo que la solicitud sea presentada personalmente al Registro por el gestionante, para lo cual debe presentar la respectiva identificación para su cotejo.
+d) Aportar el comprobante de pago del arancel registra! respectivo conforme a la Ley Nº 4564 Ley de Aranceles del Registro Nacional, en aquellos casos en que resulte procedente.

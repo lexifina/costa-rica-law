@@ -1,0 +1,2 @@
+Artículo 47.- Uso de papel de seguridad y boleta de seguridad en escrituras o documentos auténticos, u otorgados en conotariado.
+En caso de que un documento se haya otorgado ante dos o más personas notarias, cualquiera de los notarios autorizantes puede expedirlo, utilizando para ello los mecanismos de seguridad del notario que expida el testimonio, caso contrario se cancela el asiento de presentación.

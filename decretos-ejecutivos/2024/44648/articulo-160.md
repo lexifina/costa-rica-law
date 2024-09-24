@@ -1,0 +1,2 @@
+Artículo 160.- Inmovilización.
+Medida cautelar que se consigna en el asiento registral corno consecuencia del procedimiento de gestión administrativa, en la que se determina la existencia de inexactitudes de origen registral que afectan la publicidad registral. La inmovilización implica la total suspensión de movimientos en el asiento afectado, salvo casos de excepción previamente valorados y autorizados por la Dirección o Subdirección, según corresponda.

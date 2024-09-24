@@ -1,0 +1,4 @@
+Artículo 147.- Legalización y emisión de los libros en la fusión de sociedades mercantiles.
+En la solicitud de inscripción de la fusión de la sociedad mercantil donde resulte una nueva sociedad, simultáneamente se solicitará la correspondiente legalización de libros, los cuales se tramitarán por el mismo procedimiento definido para la constitución de una sociedad mercantil por primera vez.
+El cierre de los libros sociales correspondientes de las sociedades constituyentes, se realiza con la sola inscripción de la fusión en el Registro.
+Una vez inscrita la fusión que produzca una absorción, la sociedad prevaleciente conservará los libros previamente legalizados y emitidos. El cierre de los libros de la sociedad o sociedades absorbidas se realiza con la sola inscripción y será responsabilidad conforme a los artículos 270 y 271 del Código de Comercio.

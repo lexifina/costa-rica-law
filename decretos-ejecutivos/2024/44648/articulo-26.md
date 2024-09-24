@@ -1,0 +1,2 @@
+Artículo 26.- Principio de Calificación Registral
+La persona registradora para calificar los documentos se liitará tan sólo a lo que resulte del contenido del documento, de los libros mercantiles o de personas, de los folios personales mercantiles o de personas, y en general de toda la información que conste en el Registro y el resultado de su calificación no impedirá ni prejuzgará el juicio sobre la validez del acto o contrato, que llegare a entablarse.

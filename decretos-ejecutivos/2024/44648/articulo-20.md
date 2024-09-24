@@ -1,0 +1,3 @@
+Artículo 20.- Responsabilidad.
+La persona registradora como agente de la administración registral y del Registro de Personas Jurídicas como institución jurídica, debe asumir la corrección y saneamiento de las inexactitudes que, con ocasión del ejercicio de la registración, provoque.
+El ámbito dentro del cual será desplegada la revisión y saneamiento de una inexactitud de origen registral por parte del Registro de Personas Jurídicas será el mismo marco de calificación dentro del cual actuó en su momento la persona registradora para calificar e inscribir, es decir restringido al respaldo de literalidad de los documentos calificados e inscritos y su confrontación con la publicidad registral.
