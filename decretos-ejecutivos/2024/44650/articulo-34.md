@@ -1,0 +1,4 @@
+Artículo 34.- Nota de advertencia administrativa.
+Una vez cumplidos los requisitos de la gestión administrativa, la persona directora o subdirectora del Registro de la Propiedad Intelectual dentro de los treinta días naturales siguientes, ordenará, mediante resolución, la apertura del procedimiento y la consignación de una nota de advertencia administrativa en el asiento de inscripción correspondiente, para efectos de publicidad, sin que impida la inscripción de documentos posteriores.
+Una vez consignada la nota de advertencia administrativa en los asientos, todas las partes intervinientes en los documentos que se anoten o se inscriban con posterioridad, quedarán informadas del procedimiento y aceptarán las resultas de este.
+Verificado el estudio sin que exista una inexactitud registral, en la resolución que rechace la gestión se ordenará la inmediata cancelación de la nota de advertencia administrativa.

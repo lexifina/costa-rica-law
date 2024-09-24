@@ -1,0 +1,2 @@
+Artículo 5.- Reposición de documentos presentados al Registro de la Propiedad Intelectual.
+En el caso de destrucción o pérdida de documentos presentados en forma física, se procederá a la respectiva inscripción mediante la reconstrucción del expediente, la cual estará a cargo del Registro de la Propiedad Intelectual, utilizando la información que tenga a su disposición, de conformidad con las distintas herramientas con las que cuente.

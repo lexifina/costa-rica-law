@@ -1,0 +1,2 @@
+Artículo 26.- Error de concepto.
+Se entenderá que se comete error de concepto cuando en las inscripciones o en el acto que las autoriza, se omita la expresión de algún elemento sustancial de la inscripción, se haya excluido la exigencia de algún requisito esencial del contrato o se altere el verdadero sentido de alguno de los conceptos contenidos en el documento, por una errónea calificación de la persona registradora.

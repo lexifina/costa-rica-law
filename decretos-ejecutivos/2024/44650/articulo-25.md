@@ -1,0 +1,2 @@
+Artículo 25.- Error material.
+Se entiende como error material, cuando sin intención conocida, en las inscripciones se escriban unas palabras por otras, se omita la expresión de alguna circunstancia formal de los asientos o se equivoque cualquier dato, sin cambiar por ello ninguno de sus conceptos ni su sentido general, y sin que ello produzca la nulidad de las inscripciones realizadas.

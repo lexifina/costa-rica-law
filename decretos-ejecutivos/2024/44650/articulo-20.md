@@ -1,0 +1,3 @@
+Artículo 20.-Revocatoria de defectos.
+En caso de que la persona usuaria no estuviera de acuerdo con los defectos u objeciones indicadas por la persona registradora en la prevención, acudirá ante la Coordinación Registral correspondiente, para que esta realice la valoración respecto a los defectos señalados. La Coordinación podrá revocar total o parcialmente la prevención realizada y ordenar la continuación del trámite de inscripción respectivo bajo su responsabilidad.
+Esta misma facultad deviene de manera oficiosa por la Coordinación, cuando considere técnica y jurídicamente que el defecto es improcedente.

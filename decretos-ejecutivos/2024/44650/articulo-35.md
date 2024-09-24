@@ -1,0 +1,7 @@
+Artículo 35.- Sobre los plazos para audiencia a las partes interesadas.
+A todas las personas interesadas se les notificará la gestión administrativa, para que se manifiesten según corresponda a sus intereses, por un plazo de quince días hábiles, con las siguientes condiciones:
+a) El plazo correrá a partir del día siguiente de la notificación o de la publicación del edicto.
+b) Cuando se desconociera el lugar para notificar a una persona extranjera no domiciliada en Costa Rica y que no cuente con una persona apoderada que lo represente, se dejará constancia y se procederá con la publicación del edicto.
+c) La notificación al accionado se realizará a la dirección física actualizada que conste en el Registro de la Propiedad Intelectual o, en su defecto, por los medios que la ley autorice.
+La notificación a la persona accionante se realizará por el medio consignado en el escrito inicial. No obstante, si en su primer escrito o prevenido al efecto, este no señala un medio para recibir notificaciones, o la notificación no puede efectuarse en el medio señalado, se aplicará la notificación automática según lo establecido en la Ley de Notificaciones Judiciales Nº 8687 y las resoluciones posteriores quedarán en firme veinticuatro horas después de emitidas.
+En caso de que la notificación al accionado no haya sido efectiva, se publicará por una sola vez un edicto en el Diario Oficial La Gaceta. En los casos en que el proceso inicie por gestión de parte, los gastos de esta publicación correrán por cuenta de la persona accionante.

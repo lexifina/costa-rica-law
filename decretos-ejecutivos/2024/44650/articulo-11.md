@@ -1,0 +1,2 @@
+Artículo 11.- Actos y contratos registrales autorizados en formato electrónico.
+El Registro de la Propiedad Intelectual definirá y comunicará dentro del plazo de seis meses a partir de la vigencia del presente reglamento y de previo a la habilitación de sistemas electrónicos, cuáles de los actos y contratos que por ley le corresponde conocer, podrán ser presentados por la vía electrónica, de manera que se garantice la seguridad jurídica, según su capacidad técnica.
