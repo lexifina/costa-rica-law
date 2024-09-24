@@ -1,0 +1,2 @@
+Artículo 7. - Se concederá únicamente una Licencia para este tipo de actividad por familia.
+En caso de muerte o incapacidad permanente del concesionario, deberá solicitar una nueva Licencia dentro del mes del fallecimiento y tendrá prioridad el cónyuge sobreviviente o compañera (o), o alguno de sus hijos mayores, siempre y cuando reúna las condiciones del artículo 40 salvo el mejor criterio del Concejo Municipal.

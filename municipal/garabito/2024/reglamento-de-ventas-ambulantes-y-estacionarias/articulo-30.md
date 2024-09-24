@@ -1,0 +1,1 @@
+Artículo 30. - Las resoluciones de la Municipalidad que ordenen la caducidad de la Licencia por falta de pago, no tendría recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 162 del Código Municipal.

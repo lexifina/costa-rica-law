@@ -1,0 +1,1 @@
+Artículo 24. - En caso de caducidad o renuncia de una Licencia por cualquier motivo, la Municipalidad procederá a la adjudicación de esa Licencia por medio de sorteo entre las solicitudes pendientes de la Licencia por falta de lugares comerciales para el ejercicio de la actividad.

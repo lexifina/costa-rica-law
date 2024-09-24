@@ -1,0 +1,1 @@
+Artículo 33. - El Concejo nombrará y facultará de los poderes necesarios a los miembros de la Comisión de Ventas Ambulantes y Estacionarias. La comisión se organizará en grupos organizados a efecto de hacer cumplir presente reglamento y actuará por mayoría.

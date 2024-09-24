@@ -1,0 +1,1 @@
+Artículo 17. - La ubicación de los puestos estacionarios será de un máximo de 8 por manzana, sea dos puestos por cuadra a una distancia no menor de cincuenta metros entre cada uno y en cuadrantes irregulares a una distancia no menor de cien metros entre cada uno, siempre y cuando las condiciones lo permitan a juicio de la Municipalidad y el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 20. - Los inspectores Municipales y los miembros de la Comisión, deberán hacer una revisión periódica a los puestos autorizados, para comprobar si las patentes se pueden mantener en vigencia y revisar el cumplimiento de este reglamento, el cual debe ser de conocimiento de los patentados.

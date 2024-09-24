@@ -1,0 +1,1 @@
+Artículo 9. -Tanto en los puestos Estacionarios como en los Ambulantes el horario de funcionamiento será de las seis a las dieciocho horas. De las dieciocho horas en adelante será con Licencia especial o aprobación de la Municipalidad.

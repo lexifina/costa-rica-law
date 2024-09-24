@@ -1,0 +1,1 @@
+Artículo 26. - La Municipalidad se reserva el derecho de reubicar los puestos cuando las condiciones del tránsito o de los peatones lo ameriten, la construcción de obras nuevas lo requieran y cualquier otra causa a juicio de la Municipalidad.
