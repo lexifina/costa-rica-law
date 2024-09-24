@@ -1,0 +1,8 @@
+Artículo 6º- Funciones del Comité de Inversiones. El Comité de Inversiones desempeñará, las siguientes funciones:
+a) Proponer para aprobación de la Administración, la política de inversiones de los fondos administrados según lo establecido en el presente Reglamento.
+b) Deberá sesionar, al menos, una vez al mes con el objeto de determinar la estrategia de inversión.
+c) La participación de los miembros del Comité de Inversiones es obligatoria, actuando con voz y voto en el análisis y decisiones en materia de inversión. Será responsabilidad de quien ocupe el cargo de Director(a) Financiero, las convocatorias a las sesiones del Comité. Los acuerdos se tomarán por simple mayoría.
+d) Tomar decisiones debidamente fundamentadas sobre la constitución, modificación, cancelación y recomposición de la cartera o portafolio de inversiones, sobre los ajustes a los activos o ingresos involucrados en las operaciones anteriores. Aprobar estas decisiones mediante la suscripción de actas que deberán cumplir en todo momento con los requisitos que se establecen en el presente reglamento.
+e) Presentar a la Presidencia de la Comisión alternativas de soporte para el mejoramiento en la toma de decisiones orientadas a la optimización de la cartera o portafolio de inversiones, tales como seminarios, conferencias, charlas, suscripción a boletines o periódicos sobre el mercado financiero y de valores.
+f) Realizar sesiones ordinarias por lo menos una (1) vez al mes dependiendo de la naturaleza o urgencia de los temas a tratar.
+g) Realizar sesiones extraordinarias, si el caso lo amerita, cada vez que lo solicite el Director Financiero, la Presidencia de la Comisión de Inversiones o El Concejo Municipal.
