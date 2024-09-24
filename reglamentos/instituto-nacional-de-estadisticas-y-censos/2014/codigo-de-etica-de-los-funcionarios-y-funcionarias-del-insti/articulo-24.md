@@ -1,2 +1,0 @@
-Artículo 24. Deber de dignidad y respeto:
-El funcionario(a) del INEC tiene el derecho a la dignidad, a la honra, al buen nombre, a la buena reputación y a la intimidad personal y familiar; así como el deber de respetar esos derechos en las demás personas. El respeto hacia los compañeros(as) y superiores debe primar en todos los funcionarios(as) del INEC. No intervenir en comentarios interpersonales acerca de situaciones inherentes a lo laboral y personal que dañen la integridad moral de los funcionarios(as).

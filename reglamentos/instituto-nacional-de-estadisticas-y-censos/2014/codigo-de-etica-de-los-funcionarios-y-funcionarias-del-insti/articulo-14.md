@@ -1,2 +1,0 @@
-Artículo 14. Deber de imparcialidad:
-El funcionario(a) del INEC debe actuar con legalidad y justicia tanto en sus relaciones laborales, como en la prestación de los servicios, sin privilegio o discriminación, en cuanto a las formas y condiciones del servicio, a persona jurídica alguna o a persona natural, sea cual fuere su condición económica, social, ideológica, política, sexual, racial, religiosa o de cualquier otra naturaleza.

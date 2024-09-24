@@ -1,2 +1,0 @@
-Artículo 27. Deber de dedicación:
-Es deber del funcionario(a) del INEC apreciar el trabajo como un medio para alcanzar metas y objetivos comunes, por lo que debe cumplir sus labores con conciencia, en la plena medida de su potencial y de sus capacidades, reconociendo el determinante rol que está llamado a realizar en su diaria labor. Por ello el funcionario(a) debe ser parte de las soluciones, usando responsablemente los recursos para plantear alterativas que permitan superar los obstáculos que surjan en el desempeño de la actividad laboral.

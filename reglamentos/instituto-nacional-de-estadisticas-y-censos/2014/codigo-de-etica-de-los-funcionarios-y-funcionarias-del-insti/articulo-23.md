@@ -1,2 +1,0 @@
-Artículo 23. Deber de integridad:
-El funcionario(a) del INEC debe conducirse tanto en el desempeño de sus funciones como en su vida privada con honradez, rectitud, dignidad, decoro poniendo en la ejecución de sus labores toda su capacidad, conocimiento y experiencia laboral. En cualquier circunstancia deberá actuar de tal forma que su conducta genere y fortalezca la confianza de la colectividad institucional sobre su integridad y prestigio para beneficio propio y del INEC.
