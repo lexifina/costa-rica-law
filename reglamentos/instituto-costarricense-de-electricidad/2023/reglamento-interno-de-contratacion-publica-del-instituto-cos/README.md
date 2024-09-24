@@ -14,3 +14,4 @@ Reglamento interno de contratación pública del Instituto Costarricense de Elec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-06 | la propia norma |
+| 2 | 2024-09-24 | Reglamento 6648 (2024-09-24) |
