@@ -1,0 +1,1 @@
+Transitorio l. En un plazo de quince días hábiles a partir de la entrada en vigencia del presente Reglamento, la Dirección de Desarrollo Humano remitirá al Concejo Municipal, una versión actualizada del convenio modelo para el otorgamiento de la beca académica, los formularios de aplicación de beca y formularios de declaración jurada vigentes a la fecha.

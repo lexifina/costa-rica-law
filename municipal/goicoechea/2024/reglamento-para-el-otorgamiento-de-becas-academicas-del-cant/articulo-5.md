@@ -1,0 +1,8 @@
+Artículo 5 Becas a hijas e hijos de personas funcionarias municipales. En caso de que exista alguna disposición por Convención Colectiva que permita otorgar becas a hijas e hijos de las personas funcionarias municipales, la Administración Municipal deberá garantizar el cumplimiento de dicho beneficio en una partida presupuestaria distinta del programa de becas académicas por condición socioeconómica para los munícipes de Goicoechea.
+Adicionalmente, las personas funcionarias podrán optar por hasta dos solicitudes de beca para sus hijas e hijos que cursen el nivel de primaria en centros educativos públicos y subvencionados reconocidos por el Ministerio de Educación Pública. Dichas becas no serán contabilizadas para efectos del cálculo de la asignación presupuestaria establecida en el artículo anterior.
+Los requisitos para la solicitud de becas a hijas e hijos de personas funcionarias municipales serán los siguientes:
+a) Formulario de solicitud dispuesto al efecto por la Dirección.
+b) Certificación de nacimiento donde conste que es hija o hijo de la persona funcionaria.
+c) Formulario de declaración jurada facilitado por la Dirección en el cual se de fe que la persona por beneficiar es una persona estudiante activa en la institución educativa indicada en la solicitud correspondiente.
+Las fechas para el otorgamiento de los beneficios aquí establecidos serán las mismas que las indicadas en el artículo 9 del presente reglamento. Cuando se trate de personas funcionarias que sean cónyuges entre si, este beneficio se otorgará únicamente a una de ellas.
+Las hijas e hijos de personas funcionarias no estarán sujetas al requisito de domicilio en el cantón para ser beneficiarias de las becas objeto del presente artículo.

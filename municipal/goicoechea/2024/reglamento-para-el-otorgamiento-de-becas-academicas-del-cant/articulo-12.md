@@ -1,0 +1,1 @@
+Artículo 12 De la capacitación a los Concejos de Distrito. La Dirección capacitará a los Concejos de Distrito sobre el presente reglamento, el trámite y los perfiles de calificación para personas postulantes de becas académicas del cantón de Goicoechea.

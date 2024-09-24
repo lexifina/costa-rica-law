@@ -1,0 +1,1 @@
+Artículo 3 Del apoyo administrativo. La Municipalidad dotará a la Dirección del personal y el presupuesto necesario para dar pleno y efectivo cumplimiento del presente reglamento y la consecución de los fines públicos que este persigue.

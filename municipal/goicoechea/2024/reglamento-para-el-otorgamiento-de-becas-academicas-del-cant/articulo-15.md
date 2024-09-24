@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Sobre el giro de las becas
+Artículo 15. Del Giro de las becas. Las becas se depositarán mensualmente dentro de los últimos diez días hábiles de cada mes en la cuenta de ahorros de la institución financiera que determine la Dirección Administrativa Financiera.
+La Dirección en colaboración con el Departamento de Tesorería, serán las instancias responsables de coordinar las aperturas de las cuentas respectivas para las personas beneficiarias de las becas, ante el ente Financiero, así como la carga de archivos, y actualización de información de activación o desactivación de cuentas. El Departamento de Tesorería, será el responsable de la liberación de fondos, mediante plataformas digitales.
+En caso de personas beneficiarias menores de edad, la beca se podrá depositar en una cuenta de su representante legal, a solicitud de este.
+En caso de renovación de becas, la persona beneficiaria o su representante legal podrá utilizar la cuenta ya habilitada por la institución para este fin.
+El depósito de la beca estará condicionado a la presentación mensual de la boleta confeccionada por la Dirección como mecanismo de control interno sobre la permanencia de las personas beneficiarias en los centros educativos o de formación.
+En caso que la Dirección no reciba la boleta firmada, se notificará a la persona beneficiaria o a su representante, así como al Concejo de Distrito para aportar la información. Si durante dos meses consecutivos, no se recibe dicha boleta de permanencia estudiantil, se procederá con la revocatoria del beneficio de conformidad con lo indicado en el artículo siguiente.

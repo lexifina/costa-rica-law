@@ -1,0 +1,3 @@
+Artículo 4 De la asignación presupuestaria. La Municipalidad destinará para el programa de becas objeto del presente reglamento, al menos un uno por ciento (1 ,00%) del proyecto de presupuesto ordinario del año correspondiente.
+El número de becas a ser concedidas por la Municipalidad no podrá ser disminuido en relación con la cantidad ofertada en el año anterior.
+Cuando por variaciones macroeconómicas, los ingresos proyectados de la Municipalidad se reduzcan en más de diez por ciento (10%), la Administración Municipal podrá, de forma justificada y razonada, reducir proporcionalmente el monto mínimo indicado en el párrafo anterior destinado a becas académicas, pero deberá procurar mantener la cantidad de becas concedidas en el año anterior.
