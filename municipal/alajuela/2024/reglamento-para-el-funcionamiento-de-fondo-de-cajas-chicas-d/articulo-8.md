@@ -1,0 +1,1 @@
+Artículo 8º-Personas autorizados para tramitar vales y retirar dinero en efectivo: las personas encargadas de tramitar vales de caja chica ya sea en formato físico o a través de una plataforma tecnológica serán exclusivamente aquellos funcionarios que ocupen el puesto en estado de propiedad.

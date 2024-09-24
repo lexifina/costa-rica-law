@@ -1,0 +1,7 @@
+Artículo 9º-Vales de Mayor cuantía LGCP. Se podrán gestionar Vales de mayor cuantía de Caja Chica hasta por el cinco por ciento (5%) del monto previsto para la Licitación Reducida correspondiente al régimen ordinario, para la adquisición de bienes, servicios y obra pública regulado en el artículo Nº36 de la Ley General de Contratación Administrativa (LGCP) y art 12 del RLGCP. Así también se cumpla lo indicado en el artículo 25 de este cuerpo normativo y las siguientes disposiciones:
+a) La solución sea indispensable e impostergable.
+b) La adquisición no resulte más onerosa que el procedimiento ordinario de contratación a realizar.
+c) Se acredite el costo beneficio para la Administración.
+d) No haya fragmentación.
+Dentro de los vales de mayor cuantía también se contemplarán las actividades referidas a obra pública, materiales destinados a construcciones, ampliaciones, remodelaciones, demoliciones y mejoras de infraestructura entendida ésta en sentido amplio. También encontramos otras obras materiales que se incorporan a la obra principal y que se podrían denominar secundarias en función de la obra principal, pero que se adhieren a la misma, es decir, actividades tales como reparaciones de techos, ventanas, pintura de los inmuebles, demarcación de vías entre otros.
+El orden de aprobaciones respectivas tanto en vales de mayor cuantía LGCP como vales ordinarios estarán sujetas al orden que establece el Organigrama institucional según como corresponde en cada caso.

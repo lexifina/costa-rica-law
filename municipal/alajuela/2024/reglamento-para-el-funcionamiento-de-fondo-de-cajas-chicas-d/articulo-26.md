@@ -1,0 +1,1 @@
+Artículo 26.-Monto de la compra. El monto de lo gastado no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario a cuyo nombre se giró el vale, deberá asumir el gasto diferencial resultante, sin que la Municipalidad quede obligada a reintegrarle esa suma.

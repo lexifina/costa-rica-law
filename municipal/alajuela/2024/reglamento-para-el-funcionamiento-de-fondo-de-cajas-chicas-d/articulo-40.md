@@ -1,0 +1,1 @@
+Artículo 40.-Consecuencias del incumplimiento. El incumplimiento de este Reglamento o la falta de control en su aplicación, serán considerados falta grave y sancionable conforme a lo dispuesto en el Código Municipal, el Reglamento Autónomo de Servicios, la Ley de Control Interno y demás legislación conexa.

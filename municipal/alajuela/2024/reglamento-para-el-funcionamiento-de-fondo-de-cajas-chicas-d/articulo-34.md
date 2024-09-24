@@ -1,0 +1,1 @@
+Artículo 34.-Periodicidad. Se confeccionará el reintegro de caja chica cuando se haya gastado más del 85% del total del fondo fijo correspondiente, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.

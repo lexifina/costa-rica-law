@@ -1,0 +1,1 @@
+Artículo 27.-Prohibición de tramitar otros adelantos. No se entregará un segundo vale de caja chica, a funcionarios que tengan pendiente la liquidación de uno anterior. No podrá extenderse más de un vale a nombre de un mismo funcionario en forma simultánea.

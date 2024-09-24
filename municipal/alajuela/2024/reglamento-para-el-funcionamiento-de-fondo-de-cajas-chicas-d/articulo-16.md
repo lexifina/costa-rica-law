@@ -1,0 +1,3 @@
+Artículo 16.-Utilización de los Recursos de Caja Chica por Viáticos. La suma máxima para autorizar por concepto de viáticos dentro del país será el equivalente al periodo total de la gira de viáticos totales con base en la tarifa diaria más alta establecida en el Reglamento de Gastos de Viaje y Transporte para funcionarios Públicos emitido por la Contraloría General de la República.
+El pago de viáticos debe sujetarse a los dispuestos en todos sus extremos al Reglamento de Gastos de Viaje y Transporte para funcionarios Públicos dictados por la CGR.
+En lo que corresponde al pago de viáticos, éste no podrá girarse si el funcionario tiene un adelanto de viáticos que no esté debidamente liquidado.

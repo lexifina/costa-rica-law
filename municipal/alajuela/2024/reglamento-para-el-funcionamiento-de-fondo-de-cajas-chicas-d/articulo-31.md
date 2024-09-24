@@ -1,0 +1,1 @@
+Artículo 31.-Funcionario que deberá presenciar el arqueo. Todo arqueo de caja chica se realizará en presencia del encargado del manejo de caja chica y tesorero municipal, o del funcionario que aquél designe para tal efecto.
