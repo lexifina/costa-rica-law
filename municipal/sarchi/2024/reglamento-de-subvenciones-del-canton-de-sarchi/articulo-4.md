@@ -1,0 +1,1 @@
+Artículo 4º-Asignación presupuestaria para las subvenciones. La Municipalidad otorgará las subvenciones reguladas en el presente reglamento, para lo cual se destinará anualmente cero coma veinte por ciento (0.20%) del presupuesto ordinario municipal.

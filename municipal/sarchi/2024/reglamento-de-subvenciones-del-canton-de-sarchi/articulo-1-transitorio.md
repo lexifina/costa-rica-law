@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Disposiciones transitorias
+Transitorio I.-Las subvenciones reguladas en el presente reglamento podrán ser otorgadas con posterioridad a la participación en la actividad o proyecto, únicamente en relación con eventos que hayan tenido lugar entre el cuarto trimestre del año 2023 y el primer trimestre del año 2024, siempre que se cumplan los requisitos aquí dispuestos. En estos casos, la solicitud de subvención deberá ser presentada a más tardar, un mes calendario posterior a la entrada en vigencia del presente reglamento de subvenciones del cantón de Sarchí.
+En relación con el procedimiento de liquidación regulado en el artículo 12, las personas interesadas cubiertas por este transitorio deberán presentar junto con la solicitud, los comprobantes de pago de los bienes y/o servicios adquiridos, y para los cuales, parcial o totalmente, se utilizaría el monto subvencionado en calidad de reembolso, entendiendo que el gasto ya se habría efectuado.
+El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

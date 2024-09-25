@@ -1,0 +1,1 @@
+Artículo 10.-Entrega de la subvención. El desembolso del monto de dinero aprobado según el acuerdo del Concejo Municipal se realizará mediante depósito o transferencia bancaria, en la cuenta que para tal efecto haya señalado la persona subvencionada en el formulario inicial.

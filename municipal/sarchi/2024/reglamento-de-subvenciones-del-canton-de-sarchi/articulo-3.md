@@ -1,0 +1,1 @@
+Artículo 3º-Modalidad. Con base en el presente reglamento, la Municipalidad otorgará subvenciones consistentes en dinero. Cada subvención que se apruebe no podrá superar la cuarta parte del salario del puesto Auxiliar Municipal 1, de conformidad con la columna salarial global vigente en la Municipalidad para el momento de la solicitud.

@@ -1,0 +1,1 @@
+Artículo 14.-Fiscalización. El otorgamiento y utilización de las subvenciones reguladas en el presente reglamento, queda sujeto al control y fiscalización de los órganos contralores competentes para ello.

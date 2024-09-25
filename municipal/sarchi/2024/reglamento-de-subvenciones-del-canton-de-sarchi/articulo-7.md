@@ -1,0 +1,1 @@
+Artículo 7º-Disponibilidad del formulario. El formulario para la solicitud de subvenciones se encontrará disponible en la página web de la Municipalidad de Sarchí para ser descargado, así como también estará disponible para entrega en físico en la recepción municipal.

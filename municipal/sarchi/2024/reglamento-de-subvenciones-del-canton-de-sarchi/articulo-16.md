@@ -1,0 +1,1 @@
+Artículo 16.-Custodia del Expediente. Los expedientes de las solicitudes de subvención serán custodiados por la Secretaría del Concejo Municipal, para que cualquier persona interesada que considere necesario realizar la revisión de los mismos, como parte de la transparencia municipal, pueda hacerlo y tenga las facilidades para tal efecto.

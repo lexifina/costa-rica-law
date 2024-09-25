@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE SARCHÍ
+Con sustento en los artículos 169 y 170 de la Constitución Política, los artículos 1, 2, 3, 4 inciso a), 13 inciso c), 43, 191, 193 del Código Municipal, Ley N° 7794, y en virtud de la publicación del proyecto de reglamento acordado en el Artículo VII, Acuerdo N° 7 de la Sesión Ordinaria N° 184, celebrada por el Concejo Municipal de Sarchí, el día 06 de noviembre de 2023, mediante el Diario Oficial La Gaceta N° 6 de fecha 15 de enero de 2024, una vez transcurrido el plazo de audiencia en la que se recibió observación al cuerpo normativo, que fue acogida parcialmente, y habiéndose cumplido con el proceso de simplificación de trámites y mejora regulatoria ante el Ministerio de Economía, Industria y Comercio, se aprueba el "Reglamento de Subvenciones del cantón de Sarchí", el cual literalmente establece:
+MUNICIPALIDAD DE SARCHÍ
+REGLAMENTO DE SUBVENCIONES
+DEL CANTÓN DE SARCHÍ
+El Concejo Municipal del cantón de Sarchí, con fundamento en lo establecido en los artículos 169 y 170 de la Constitución Política de Costa Rica, artículos 4, inciso a), 13 inciso c) y 43 del Código Municipal, en ejercicio de sus atribuciones, en la Sesión Ordinaria N° 013 - 2024, celebrada el 29 de julio del dos mil veinticuatro, en el artículo VI acuerdo N° 5, aprobó el "Reglamento de Subvenciones del cantón de Sarchí", el cual se regirá por las siguientes disposiciones:
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º-Alcance. El presente reglamento regula el otorgamiento de subvenciones por parte de la Municipalidad de Sarchí a personas vecinas del cantón, con el objetivo de incentivar y apoyar su participación en actividades de disciplinas deportivas, culturales, artísticas y académicas extracurriculares, de conformidad con el procedimiento y los requisitos que dicta el presente reglamento, en cumplimiento de la Ley.
