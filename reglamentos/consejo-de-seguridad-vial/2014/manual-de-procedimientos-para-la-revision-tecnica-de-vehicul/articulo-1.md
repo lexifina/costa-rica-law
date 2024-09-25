@@ -350,29 +350,23 @@ c.- INTERPRETACIÓN DE DEFECTOS
 4. Existencia de corrosión o deformaciones en el mecanismo de cierre de la tapa de motor | X | |
 5. Puertas de acceso de equipaje o carga con riesgo de apertura repentina | X | |
 2.6.- Parabrisas y ventanas
-a.- ESPECIFICACIONES GENERALES
+(*)a.- Especificaciones generales
 Se entiende por campo de visión del conductor, la zona que está ubicada desde el asiento del conductor, 180 grados hacia el frente. Por ejemplo, en un automóvil el campo de visión comprende las dos ventanillas delanteras y el parabrisas delantero.
 Se entiende como campo de visión mínima del conductor, la zona delimitada sobre el parabrisas delantero por una franja de aproximadamente 60 cm de longitud (30 cm hacia cada lado desde el centro del volante) y enmarcada en su altura por el barrido de las escobillas y en su parte inferior por el borde superior del volante de dirección.
 Los elementos transparentes del habitáculo que afecten al campo de visión del conductor no deben deformar de modo apreciable los objetos vistos a través, ni producir confusión entre los colores utilizados en la señalización vial.
-Las sustancias que producen reflejos hacia el exterior (tipo espejo) no pueden ser ubicadas en ningún parabrisas o ventana del vehículo.
-b.- PROCEDIMIENTO
+Las láminas adhesivas tipo limusina y las que producen reflejos hacia el exterior (tipo espejo) no pueden ser ubicadas en ningún parabrisas delantero o ventanillas del campo de visión del conductor.
+(*) (Así reformado el apartado "Parabrisas y ventanas" anterior mediante sesión N° 0034 del 25 de setiembre de 2024)
+(*) b.- PROCEDIMIENTO
 Mediante inspección visual se comprobará:
 - Existencia e integridad de todos los parabrisas y ventanas.
-- Que en caso de llevar láminas adhesivas antisolares, no se afecte el campo de visión del conductor.
-- La existencia de fisuras, impactos o láminas adheridas en los parabrisas delantero y trasero que dificulten el campo de visión del conductor.
-c.- INTERPRETACIÓN DE DEFECTOS
-| Calificación | |
-| DL | DG | DP
-1. Parabrisas delantero desinstalado | | | X
-2. Ventanas y/o parabrisas trasero desinstalado | X | |
-3. Accionamiento de ventanas defectuoso (no abren) | X | |
-4. Existencia de lámina adhesiva antisolar, adhesivos o similares en el parabrisas delantero dentro del área de barrido de las escobillas | | X |
-5. Existencia de lámina adhesiva antisolar, adhesivos o similares en el parabrisas trasero en automóviles | X | |
-6. Existencia de sustancias reflectivas | | X |
-7. Fisura o impactos con radio mayor a 10 cm fuera del campo de visión mínima del conductor | X | |
-8. Fisuras o impactos con radio mayor a 5 cm en el campo de visión mínima del conductor | | X |
-9. Fisura o impactos con radio mayor a 50cm en cualquier parte del parabrisas. | | X |
-10. Polarizado no permite visibilidad hacia el interior del vehículo en ventanas laterales. | X | |
+- Que en caso de llevar láminas adhesivas polarizadas en el campo de visión del conductor, éstas no sean de tipo limusina o tipo espejo que impidan la visibilidad hacia el interior o viceversa*
+- La existencia de fisuras y/o impactos en los el parabrisas delantero y trasero y ventanillas.
+- La existencia de láminas adheridas con obscurecimiento que dificulte la visibilidad en las ventanillas del campo de visión del conductor*
+*salvo excepciones analizadas previamente por el Consejo.
+(*) (Así reformado el apartado "Procedimiento" anterior en sesión N° 0034 del 25 de setiembre de 2024)
+(*)c.- INTERPRETACIÓN DE DEFECTOS
+[imagen]
+(*) (Así reformado el apartado "Interpretación de defectos" anterior en sesión N° 0034 del 25 de setiembre de 2024)
 2.7.- Limpiaparabrisas y lavaparabrisas
 a.- ESPECIFICACIONES GENERALES
 Si el conductor necesariamente debe observar la vía a través del parabrisas, el vehículo debe tener limpiaparabrisas. Si el vehículo fue inscrito a partir de la entrada en vigencia de la Ley de Tránsito N° 7331 del 22 de abril de 1993, deberá tener instalado un dispositivo lavaparabrisas.
@@ -872,98 +866,58 @@ c.- INTERPRETACIÓN DE DEFECTOS
 | DL | DG | DP
 No reúne condiciones para realizar el control del ruido | | X |
 El nivel de ruido producido por el vehículo es superior al permitido por la legislación | | X |
-(*)5.2.- Vehículos con motor de encendido por chispa
-a.-ESPECIFICACIONES GENERALES
+(*)5.2.-.- Vehículos con motor de encendido por chispa
 El procedimiento de inspección se aplicará a los vehículos equipados con motor de encendido por chispa, cuyas emisiones pueden o no estar reguladas por un sistema de control de emisiones de circulación cerrada, para lo cual debe tenerse en cuenta lo siguiente.
 Se entiende como sistema de control de emisiones de circulación cerrada (SCECC) el sistema que, como mínimo, provee soluciones para disminuir las emisiones del vehículo de sus posibles fuentes de contaminación:
 1. Combustible evaporado del depósito y/o del sistema de alimentación que se controla por el sistema de control de evaporación prematura de combustible (componente verificable filtro de carbón activado).
 2. Gases provenientes del cárter del motor que se controlan por el sistema de ventilación positiva del cárter (componente verificable válvula PCV).
 3. Gases de escape controlados por sistema de recirculación de gases de escape al motor (componente verificable válvula EGR).
 4. Gases de escape que se controlan por el convertidor catalítico (catalizador). Los vehículos con alimentación de combustible electrónicamente controlada, utilizan adicionalmente la sonda lambda (componentes verificables catalizador y sonda lambda).
-5. Independientemente de lo anterior, las motocicletas inscritas a partir del 1 de enero del 2018, deben contar con al menos los siguientes componentes: purga de cárter a nivel del motor y catalizador, u otras tecnologías que produzcan efectos equivalentes.
-6. Además de los vehículos indicados en el artículo 38 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, de 4 de octubre de 2012, estarán exentos del control de emisiones:
+5. Además de los vehículos indicados en el artículo 38 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, de 4 de octubre de 2012, estarán exentos del control de emisiones:
 a. Los vehículos utilizados exclusivamente en competencias de velocidad.
 b. Los vehículos declarados de interés histórico.
-b. Los vehículos eléctricos o cuyo motor primario para la propulsión sea eléctrico.
-c. Los vehículos que no utilicen combustibles derivados del petróleo para su
-autopropulsión, siempre y cuando hayan demostrado en forma previa técnicamente mediante la documentación fehaciente, que no emitan contaminantes al medio ambiente.
-d. Los vehículos clasificados como equipo especial de obras civiles y agrícolas. La exención no aplica para los vehículos catalogados como equipo especial, que por sus posibilidades de automoción, deban desplazarse por las vías públicas terrestres primarias.
+c. Los vehículos eléctricos o híbridos cuyo motor primario para la propulsión sea eléctrico.
+d. Los vehículos que no utilicen combustibles derivados del petróleo para su autopropulsión, siempre y cuando hayan demostrado en forma previa técnicamente mediante la documentación fehaciente, que no emitan contaminantes al medio ambiente.
+e. Los vehículos clasificados como equipo especial de obras civiles y agrícolas. La exención no aplica para los vehículos catalogados como equipo especial, que por sus posibilidades de automoción, deban desplazarse por las vías públicas terrestres primarias.
 f. Los vehículos diseñados y fabricados para circular exclusivamente para terrenos irregulares.
-Además, se debe tener presente el concepto de coeficiente o factor lambda (λ), el cual es la proporción que existe entre la relación aire/combustible con la que trabaja el motor y la relación aire/combustible teórica con la que debería trabajar, para que la combustión fuera completa. Es decir, el factor lambda es una representación numérica de la riqueza o la pobreza de la mezcla aire/combustible. Lo ideal es que el factor lambda sea 1 ya que en estas condiciones se optimiza la potencia, el consumo de combustible y las emisiones. Para mantener el factor lambda lo más cerca de 1 sin la necesidad de hacer constantes ajustes, los vehículos deben equiparse con un sistema de regulación de la mezcla. Para realizar esta función, se analizan continuamente los gases de escape con un elemento denominado sonda lambda, que envía señales a la unidad de control indicando desviaciones existentes entre la mezcla real y la mezcla ideal y se corrigen las variaciones.
-b.- PROCEDIMIENTO
+Además, se debe tener presente el concepto de coeficiente o factor lambda (?), el cual es la proporción que existe entre la relación aire/combustible con la que trabaja el motor y la relación aire/combustible teórica con la que debería trabajar, para que la combustión fuera completa. Es decir, el factor lambda es una representación numérica de la riqueza o la pobreza de la mezcla aire/combustible. Lo ideal es que el factor lambda sea 1 ya que en estas condiciones se optimiza la potencia, el consumo de combustible y las emisiones. Para mantener el factor lambda lo más cerca de 1 sin la necesidad de hacer constantes ajustes, los vehículos deben equiparse con un sistema de regulación de la mezcla. Para realizar esta función, se analizan continuamente los gases de escape con un elemento denominado sonda lambda, que envía señales a la unidad de control indicando desviaciones existentes entre la mezcla real y la mezcla ideal y se corrigen las variaciones.
+b.- Procedimiento
 Mediante inspección visual se comprobará:
 - En los vehículos de motor de encendido por chispa ingresados a partir del 01 de enero de 1995, la existencia de todos los componentes del SCECC.
-- Se verificará el nivel de aceite del motor por medio de la varilla de medición. Previo a la ejecución del procedimiento de inspección se comprobarán las condiciones del vehículo y de prueba, que se detallan a continuación:
+- Se verificará el nivel de aceite del motor por medio de la varilla de medición.
+Previo a la ejecución del procedimiento de inspección se comprobarán las condiciones del vehículo y de prueba, que se detallan a continuación:
 Condiciones del vehículo:
-- Se realizará una inspección visual del tubo de escape para comprobar que:
-. No existen perforaciones que puedan desvirtuar la indicación del equipo de medida.
-. Lleve instalado el catalizador (para vehículos ingresados a partir del 01 de enero de 1995).
-- El régimen de ralentí se debe mantener estable y que no sea superior a las 1000 rpm. Excepto, las motocicletas y algunos vehículos que tengan una velocidad de ralentí, que por especificaciones del fabricante, funcionen a más de 1000 revoluciones por minuto.
+Se realizará una inspección visual del tubo de escape para comprobar que:
+- No existen perforaciones que puedan desvirtuar la indicación del equipo de medida.
+- Lleve instalado el catalizador (para vehículos ingresados a partir del 01 de enero de 1995).
 - Se verificará que el vehículo tenga instalado el tapón de combustible.
-- Se verificará que el vehículo no presente manipulaciones hechas específicamente para desvirtuar la indicación del equipo.
-- Se comprobará visualmente que el motor tenga instalados todos los dispositivos y que no presenta ruidos anómalos.
-- Se comprobará que el indicador de baja presión del aceite no se encuentre encendido.
+- Se verificará que el vehículo no presente manipulaciones hechas específicamente para desvirtuar la indicación del equipo, o alteraciones inadecuadas en el mínimo de revoluciones (ralentí).
+- Se comprobará visualmente que el motor tenga instalados todos los dispositivos y que no presenta ruidos anómalos. - Se comprobará que el indicador de baja presión del aceite no se encuentre encendido.
 Condiciones de medida:
-- El motor debe estar a temperatura normal de funcionamiento. Dicha temperatura se podrá verificar por medio del indicador en el panel de instrumentos o por medio de la activación del electro ventilador.
-- De ser necesario se mantendrá el motor a un régimen estabilizado entre las 2500 rpm y 3000 rpm aproximadamente, por al menos 2 minutos, a efectos de conseguir una temperatura óptima del catalizador.
-- Los parámetros que indica el equipo se deben estabilizar para tomar la medida.
+- El motor debe estar a temperatura normal de funcionamiento. Dicha temperatura se podrá verificar por medio del indicador en el panel de instrumentos o por medio de la activación del electroventilador.
+- De ser necesario se mantendrá el motor a un régimen estabilizado entre las 2500 rpm y 3000 rpm aproximadamente, por alrededor de 2 minutos, a efectos de conseguir una temperatura óptima del catalizador.
 - En el caso de vehículos híbridos se utilizará el protocolo de encendido del motor de combustión establecido por el fabricante.
 - Todos los equipos que consuman energía (aire acondicionado, luces, radio, etc.) estarán desactivados.
 Procedimiento de Inspección:
 Mediante el analizador de gases se llevará a cabo la inspección de los gases contaminantes del motor del vehículo, de acuerdo con los siguientes pasos:
 - Se realizará una aceleración hasta aproximadamente 2 500 rpm la cual se mantendrá por alrededor de treinta segundos. La emisión de humos durante este lapso podría ser un indicativo de falla mecánica a la cual le corresponderá un defecto específico, sin embargo, no impedirá realizar la medición de los gases de escape.
-- Se introduce la sonda del analizador en el tubo de escape todo lo posible (un aproximado de 25cm como mínimo), ya sea en el propio tubo o en el tubo colector acoplado al primero (prolongación), asegurándose que ésta quede fija, y evitándose las entradas de aire por la junta.
+- Se introduce la sonda del analizador en el tubo de escape todo lo posible (un aproximado de 25 cm como mínimo), ya sea en el propio tubo o en el tubo colector acoplado al primero (prolongación), asegurándose que ésta quede fija, y evitándose las entradas de aire por la junta.
 - La medición de los gases se realizará en régimen de ralentí y de aceleración (aproximadamente a 2 500 rpm).
-- Para determinar la eficacia del dispositivo de control de emisiones se medirá el valor del coeficiente lambda (λ).
-- Los valores límites permitidos y las condiciones para la medición del CO, CO2, HC y λ, se realizarán conforme se indica en la Tabla 1.
+- Para determinar la eficacia del dispositivo de control de emisiones se medirá el valor del coeficiente lambda (?).
+- Los valores límite permitidos y las condiciones para la medición del CO, CO2, HC y ?, se realizarán conforme se indica en los cuadros de Valor Límite indicados más adelante.
+Medición con el motor en régimen de aceleración:
+Con la caja de cambios en neutro (en el caso de vehículos con transmisión automática en posición N), se acciona el acelerador hasta obtener un régimen estabilizado del motor que esté a 2 500 rpm aproximadamente, el cual se mantiene hasta que la indicación del analizador de gases se estabilice, lo que será tomado como el resultado.
 Medición con el motor en régimen de ralentí:
-Con la caja de cambios en N (neutro) y con el motor girando en régimen de ralentí, se espera hasta que la indicación del equipo se estabilice, lo que será tomado como el resultado.
-Medición con el motor en régimen de ralentí acelerado:
-Con la caja de cambios en posición N (Neutro) para los automotores de transmisión manual y semiautomática, en N o P (Parking) para los que cuentan con transmisión automática, se acciona el acelerador hasta obtener un régimen estabilizado del motor que esté a 2 500 rpm aproximadamente o según lo establezca el fabricante, el cual se mantiene hasta que la indicación del analizador de gases se estabilice, lo que será tomado como el resultado.
+Con la caja de cambios en neutro y con el motor girando en régimen de ralentí, se espera hasta que la indicación del equipo se estabilice, lo que será tomado como el resultado.
 Nota: Si el vehículo presenta escapes independientes, se realizarán mediciones en cada una de las salidas, no debiendo resultar la indicación del equipo superior al valor límite en ninguna de ellas.
-Tabla 1. Valores límite de vehículos automotores de 2 y 4 tiempos
-Tipo de Motor | Tipo De Vehículo | Fecha de Ingreso | Prueba al ralentí Valores límite | Prueba Acelerada Valores límite | Factor Lambda (Ralentí)
-4 TIEMPOS (en estos se incluyen también los motores rotativos o WANKEL) | Bicimotos, motocicletas y cuadraciclos | Hasta el 31/12/2106 | CO≤4,5% en volumen HC ≤ 2800 p.p.m | |
-A partir 01/01/2017 | CO≤3,0% en volumen HC≤2000 p.p.m
-Resto de vehículos | Antes 01/1/95 | CO ≤4,5% en volumen |
-Desde 01/01/95 al 31/12/98 | CO ≤2% en volume HC ≤350p.p.m | CO ≤0.5% en volumen HC ≤125 p.p.m |
-Desde 01/01/99 | CO ≤0,5% en volume HC ≤125 p.p.m CO2 ≥(*)10% | CO≤0,3% en volumen HC≤100 p.p.m CO2 ≥(*) 12% |
-Resto de vehículos | Desde 26/12/2012 Revisión desde 01/01/2017 | | | 1+/-0.07
-2 TIEMPOS | Bicimotos, motocicletas y cuadraciclos | Hasta el 31/12/ 2016 | CO≤4,5% en volumen HC≤2800 p.p.m | |
-A partir 01/01/2017 | CO≤3,0% en volumen HC≤2000 p.p.m
-Resto de vehículos | Cualquier fecha | CO≤4,5% en volumen HC≤2500 p.p.m | |
-(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 227 del 30 de noviembre del 2017. Anteriormente indicaba "≤")
+Valores límite:
+[imagen]
 Para vehículos que funcionan a base de Gas Licuado de Petróleo (GLP), Gas Natural u otro alternativo como combustible único o además de gasolina, los valores permitidos para estos combustibles son:
-Tabla 2. Valores límite para vehículos que funcionan a base de Gas Licuado de
-Petróleo (GLP), Gas Natural u otro alternativo como combustible único o además de
-gasolina.
-Fecha de ingreso | CO % de Volumen (Ralentí) | CO % de Volumen (acelerado)
-Hasta 31/12/1994 | ≤ 4,5 |
-Del 01/01/1995 al 31/12/1998 | ≤ 2,0 | ≤ 0,5
-Del 01/01/1999 en adelante | ≤ 0,5 | ≤ 0,3
-c.- INTERPRETACIÓN DE DEFECTOS
-| Calificación |
-DL | DG | DP |
-1. Condiciones del vehículo inadecuadas para la inspección (perforaciones en el escape) | | X | |
-2. Condiciones del vehículo inadecuadas para la inspección (ausencia del catalizador) | | X | |
-3. Condiciones del vehículo inadecuadas para la inspección (ausencia de tapón de combustible) | | X | |
-4. Condiciones del vehículo inadecuadas para la inspección (manipulación del sistema) | | X | |
-5. El vehículo presenta emisiones con concentración de monóxido de carbono (CO) superior a lo permitido. | | X | |
-6. El vehículo presenta emisiones con concentración de hidrocarburos (HC) superior a lo permitido. | | X | |
-7. Condiciones del vehículo inadecuadas para la inspección (Dispositivos desinstalados) | | X | |
-8. Condiciones del vehículo inadecuadas para la inspección (ruidos anormales) | | X | |
-| 9. Condiciones de vehículo inadecuadas para la inspección (indicador de presión de aceite encendido) | X |
-| 10. El vehículo presenta emisiones con concentración de dióxido de carbono (CO2) inferior a lo permitido. | X |
-| 11. El vehículo de combustible dual (gas GLP y gasolina) presenta emisiones con concentración de dióxido de carbono (CO2) inferior a lo permitido. | X |
-| 12. SCECC inexistente o incompleto en vehículos inscritos. | X |
-| 13. SCECC inexistente o incompleto en vehículos de primer ingreso. | X |
-| 14. Presencia de humos en el escape en régimen de aceleración. | X |
-| 15. Nivel de aceite sobre el máximo o bajo el mínimo. | X |
-| 16. Emisiones con valor lambda fuera del intervalo permitido, para vehículos que ingresaron entre el 26/10/2012 y 22/12/2016. | X |
-| 17. Emisiones con valor lambda fuera del intervalo permitido, para vehículos que ingresaron después del 23/12/2016 | X |
-| | | | | | |
-Transitorio I: El defecto número 17 del apartado 5.2 Vehículos con motor de encendido por chispa se considerará como defecto leve hasta el 31 de diciembre del 2017, a partir de ese momento se calificará como defecto grave.
-(*) Así reformado el punto 5.2) anterior referente a "5.2 Vehículos con motor de encendido por chispa", en sesión N° 2885 del 26 de junio de 2017. Nótese que en el Alcance Digital N° 63 a La Gaceta N° 95 del 17 de mayo de 2012, se había emitido el Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, mismo que entró a regir el 1° de junio de 2012, haciéndosele también la reforma a este último Manual.)
+Valores límite:
+[imagen]
+c.- Interpretación de defectos
+[imagen]
+(*) (Así reformado el apartado 5.2 "Vehículos con motor de encendido por chispa" anterior en sesión N° 0034 del 25 de setiembre de 2024)
 (*)5.3.- Vehículos con motor de encendido por compresión
 a.- ESPECIFICACIONES GENERALES
 El procedimiento de inspección se aplicará a vehículos equipados con motor de encendido por compresión, independientemente del combustible utilizado.
@@ -1734,10 +1688,10 @@ c. INTERPRETACIÓN DE DEFECTOS
 7. La salida del escape está a menos de un metro de orificios de salida o entrada del producto | | X |
 8. La batería o la instalación eléctrica no está protegida de la intemperie.. | X | |
 9. No tiene sistema de desconexión rápida de batería | | X |
-10.2.- Taxis y Taxímetro
-a. ESPECIFICACIONES GENERALES
+(*)10.2.- Taxis y Taxímetro
+a. Especificaciones generales
 Para realizar la prueba a este tipo de vehículos, la RTV verificará su inscripción como taxi, según el título de propiedad o solicitará al usuario documento idóneo que lo acredite para brindar el servicio de transporte remunerado de personas modalidad taxi, según sea el caso.
-REQUISITOS GENERALES:
+Requisitos generales:
 1. Contar con un taxímetro en perfecto estado de funcionamiento que indique la tarifa autorizada por la Autoridad Reguladora de Servicios Públicos (ARESEP). La indicación del taxímetro en cuanto al monto a cobrar por concepto de la distancia recorrida, no podrá presentar un error superior del 2%.
 2. Debe portar un extintor, se recomienda que sea de dióxido de carbono (CO2).
 3. Contar con una antigüedad no mayor a los 15 años, contados a partir de su año modelo.
@@ -1745,21 +1699,19 @@ REQUISITOS GENERALES:
 a. Triángulos:
 - Deben instalarse 3, 1 en el techo y 2 en las puertas delanteras.
 - Todos los rótulos deben tener la forma de un triángulo de aproximadamente 30 cm de base y 30 cm de altura. Para efectos de su verificación también pueden contar con triángulos equiláteros de aproximadamente 30 cm de lado.
-- El rótulo debe tener un fondo de color amarillo y textos en letra imprenta de color negro. No se verificará el tipo y tamaño de letra que debe utilizarse con la información hasta tanto no exista reglamentación específica, siempre y cuando esto no afecte la legibilidad del rótulo.
+- El rótulo debe tener un fondo de color amarillo y textos en letra imprentade color negro. No se verificará el tipo y tamaño de letra que debe utilizarse con la información hasta tanto no exista reglamentación específica, siempre y cuando esto no afecte la legibilidad del rótulo.
 - Debe contener la siguiente información como mínimo: el número de placa asignado, el nombre y código de la base de operación.
 - Los rótulos deben ser pintados
 b. Rótulo Luminoso:
 - Deben contar con un rótulo iluminado, ubicado en el techo, con la leyenda "TAXI MOPT"
-5. El vehículo debe cumplir todo lo indicado en cuanto a oscurecimiento o polarizado de ventanas y/o parabrisas según lo dispuesto en el apartado 2.6 de este Manual. En el caso de las viseras ahumadas o con polarizado en el parabrisas delantero, pueden portarlas en tanto cumplan los siguientes parámetros:
- El ancho de la visera no invada el área de barrido de las escobillas.
- El ancho de la visera no sobrepase a su vez el ancho de fábrica de la pantalla parasol interna del vehículo.
- En caso de duda sobre el ancho de la visera o las dimensiones de las escobillas, se solicitará una certificación de la casa fabricante o agencia importadora correspondiente sobre las condiciones del vehículo.
- En el caso de las viseras ahumadas que cuenten con un matiz de oscurecimiento gradual, no se aplicará el defecto.
-6. El vehículo no debe portar calcomanías, alusiones deportivas, propaganda, decoraciones, anuncios, rótulos publicitarios y mensajes en carrocería de taxi, de cualquier material, que no tenga relación con el servicio.
-b. PROCEDIMIENTO
+5º-El vehículo debe cumplir todo lo indicado en cuanto a oscurecimiento o polarizado de ventanas y/o parabrisas según lo dispuesto en el apartado 2.6 de este Manual. En el caso de las viseras ahumadas o con polarizado en el parabrisas delantero, pueden portarlas en tanto cumplan los siguientes parámetros:
+. El ancho de la visera no invada el área de barrido de las escobillas.
+. El ancho de la visera no sobrepase a su vez el ancho de fábrica de la pantalla parasol interna del vehículo.
+. En caso de duda sobre el ancho de la visera o las dimensiones de las escobillas, se solicitará una certificación de la casa fabricante o agencia importadora correspondiente sobre las condiciones del vehículo.
+. En el caso de las viseras ahumadas que cuenten con un matiz de oscurecimiento gradual, no se aplicará el defecto.
+6º-El vehículo no debe portar calcomanías, alusiones deportivas, propaganda, decoraciones, anuncios, rótulos publicitarios y mensajes en carrocería de taxi, de cualquier material, que no tenga relación con el servicio. b. Procedimiento
 Mediante inspección visual se comprobará:
-- El estado del taxímetro y del dispositivo de indicación ("display") así como su correcta fijación y ubicación.
-- En el caso de los taxímetros ubicados en taxis para personas con discapacidad, deberán contar con:
+- El estado del taxímetro y del dispositivo de indicación ("display") así como su correcta fijación y ubicación. - En el caso de los taxímetros ubicados en taxis para personas con discapacidad, deberán contar con:
 - Un dispositivo audible, que realice la indicación de la tarifa por el servicio. Se verificará que dicho dispositivo exista, funcione, la indicación sea en español y correcta. Deberá emitir un comprobante donde indique como mínimo el pago a realizar por el servicio.
 - La existencia del extintor.
 - La carga, estado y sujeción del extintor, así como su fecha de caducidad. Los extintores de este tipo de vehículos deberán permitir la comprobación de estas características. En los extintores que no tienen indicador de carga se debe verificar la existencia del sello de carga.
@@ -1767,38 +1719,17 @@ Mediante inspección visual se comprobará:
 - La existencia y las características de los rótulos reglamentarios.
 - La inexistencia de calcomanías, alusiones deportivas, propaganda, decoraciones, anuncios, rótulos publicitarios y mensajes en carrocería de taxi, de cualquier material, que no tenga relación con el servicio.
 - Se verificará que las dimensiones de los asientos de pasajeros cumplan con las especificadas por la autoridad competente.
-Mediante el verificador de distancia recorrida u otro método alternativo, se comprobará la correcta medición de la tarifa por distancia recorrida del taxímetro de acuerdo a lo siguiente:
+Mediante el verificador de distancia recorrida u otro método alternativo validado por el Consejo, se comprobará la correcta medición de la tarifa por distancia recorrida del taxímetro de acuerdo a lo siguiente:
 Condiciones del vehículo
 Previo a la comprobación del taxímetro se verificará que:
 - El sensor del taxímetro esté asociado al eje de tracción del vehículo.
 - El vehículo no tenga tracción permanente en las 4 ruedas.
-- Las llantas no estén desinfladas. Una presión inadecuada de las llantas puede dar lugar a lecturas erróneas.
-- La indicación del taxímetro pueda leerse desde la posición que se requiere para realizar la prueba.
+- Las llantas no estén desinfladas. Una presión inadecuada de las llantas puede dar lugar a lecturas erróneas. - La indicación del taxímetro pueda leerse desde la posición que se requiere para realizar la prueba.
 Valores Límite
-Se comprobará que la tarifa indicada por el taxímetro no sea inferior ni superior al 2% del monto a cobrar, calculado a partir de la tarifa vigente publicada en La Gaceta y de la distancia recorrida.
-c. INTERPRETACIÓN DE DEFECTOS
-| Calificación | |
-| DL | DG | DP
-1. Taxímetro. Inexistencia en caso de obligatoriedad | | X |
-2. Taxímetro. Luz indicadora de la tarifa, falta o no funciona | | X |
-3. Taxímetro. Cristal roto | X | |
-4. Taxímetro. Error de medición de tarifa por distancia recorrida | | X |
-5. Inexistencia del extintor obligatorio | | X |
-6. Extintor sin carga o vencido | | X |
-7. Extintor mal sujeto | X | |
-8. Extintor sin indicador de carga (o sin sello de carga) o sin fecha de caducidad | | X |
-9. Vehículo con antigüedad mayor que la permitida | | X |
-10. Ausencia de rótulos reglamentarios | | X |
-11. Información en rotulación incompleta o ilegible | | X |
-12. Dimensiones de rótulos no cumplen con el mínimo reglamentario | X | |
-13. Defectos de sujeción con riesgo de desprendimiento | X | |
-14. | | |
-15. Existencia de viseras en el parabrisas delantero sin ajustarse a lo dispuesto | | X |
-16. Uso de calcomanías o rotulación prohibida | | X |
-17. Dimensiones o distancia entre asientos no reglamentaria | X | |
-18. Taxímetro. Mal funcionamiento de la indicación audible. | | X |
-19. Taxímetro. No emite documento impreso. | | X |
-20. Taxímetro. No funciona la impresión de documento. | | X |
+Se comprobará que la tarifa indicada por el taxímetro no sea superior al 2% del monto a cobrar, calculado a partir de la tarifa vigente publicada en La Gaceta y de la distancia recorrida.
+c. Interpretación de defectos
+[imagen]
+(*) (Así reformado el apartado 10.2 "Taxis y Taxímetro" anterior en sesión N° 0034 del 25 de setiembre de 2024)
 10.3.- Transporte Colectivo de Personas en las modalidades Ruta Regular y
 Servicios Especiales
 a. ESPECIFICACIONES GENERALES
