@@ -1,0 +1,1 @@
+Artículo 5º-Supervisión de cumplimiento. La Dirección Administrativa Financiera será la encargada a través del Departamento de Servicios Generales, de velar por el cumplimiento del presente Reglamento, así como del cumplimiento de los Contratos dispuestos para tal fin.

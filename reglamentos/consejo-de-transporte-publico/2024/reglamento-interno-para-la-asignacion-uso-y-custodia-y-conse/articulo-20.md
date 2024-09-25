@@ -1,0 +1,1 @@
+Artículo 20.-Salario en especie. La asignación del teléfono celular, accesorios y planes, no se considera como parte del salario o beneficio personal, por lo que el funcionario (a) no tendrá derecho alguno a cobrar el uso del teléfono, como parte del pago por concepto de prestaciones laborales, ni ningún otro rubro laboral.

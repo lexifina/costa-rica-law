@@ -1,0 +1,1 @@
+Artículo 17.-Registro y Control. El Departamento de Servicios Generales, será responsable de la adquisición, registro y control de los servicios de tecnología, comunicación y otros regulados en el presente Reglamento, incluyendo los dispositivos y sus accesorios.
