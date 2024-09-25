@@ -15,3 +15,4 @@ Reforma Arancel de Servicios Profesionales de Consultoría para Edificaciones y 
 | --- | --- | --- |
 | 1 | 2022-10-07 | la propia norma |
 | 2 | 2024-03-20 | SINALEVI (sin norma nombrada) |
+| 3 | 2024-09-25 | SINALEVI (sin norma nombrada) |

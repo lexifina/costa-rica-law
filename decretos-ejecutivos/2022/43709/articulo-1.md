@@ -1,6 +1,6 @@
-(Suspendida)
+(Anulada)
 N° 43709-MOPT-MEIC
-(Mediante resolución N° 001739 del 20 de marzo de 2024, el Tribunal Contencioso Administrativo y Civil de Hacienda, suspendió los efectos del presente decreto ejecutivo)
+(Este decreto ejecutivo fue Anulado mediante resolución de la Sala Constitucional, N° 027918 del 25 de setiembre de 2024. Anteriormente había sido suspendido por acogerse una medida cautelar provisionalísima por el Tribunal Contencioso Administrativo y Civil mediante resolución de las 21: 10 horas del 7 de octubre del 20222. Posteriormente mediante resolución N° 001739 del 20 de marzo de 2024, de las 14: 43 horas, se declara con lugar la medida cautelar, la cual fue confirmada por la Sección Primera del Tribunal de Apelaciones de lo Contencioso Administrativo y Civil de Hacienda, mediante voto oral N° 336-2024-I, de las 11: 46 horas del 27 de agosto del 2024)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES,
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA
