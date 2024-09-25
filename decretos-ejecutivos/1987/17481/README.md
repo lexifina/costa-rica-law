@@ -20,3 +20,4 @@ Reglamento de Tarifas de Honorarios para los Profesionales de Agrimensura, Topog
 | 5 | 2020-06-30 | Acuerdo 29 (2020-06-30) |
 | 6 | 2022-06-28 | Acuerdo 9 (2022-06-28) |
 | 7 | 2022-09-14 | Decreto Ejecutivo 43709 (2022-09-14) |
+| 8 | 2024-09-25 | SINALEVI (sin norma nombrada) |

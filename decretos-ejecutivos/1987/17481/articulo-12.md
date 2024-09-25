@@ -1,5 +1,4 @@
-Artículo 12.-Los honorarios de referencia y de uso discrecional(*) de topografía para construcción de vías de transporte y sistemas de conducción serán:
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
+Artículo 12.- Los honorarios de topografía para construcción de vías de transporte y sistemas de conducción serán:
 a) Localización líneas de centro:
 Terreno plano (cada 20 m) c 17.900,00 i/km.
 Terreno ondulado (cada 20 m) c 29.950,00 i/km.
@@ -25,3 +24,4 @@ Terreno plano (cada 20 m) c 8.100,00 i/km.
 Terreno ondulado (cada 20 m) c 11.900,00 i/km.
 Terreno montañoso (cada 10 m) c 25.900,00 i/km.
 Mínimo cobrable, la tarifa correspondiente a 1 km exceptuando lo contemplado en el inciso c).
+(Mediante el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022, se acordó modificar la palabra "honorarios" por "honorarios de referencia y de uso discrecional"; contenida en el presente numeral. Posteriormente mediante resolución de la Sala Constitucional N° 027918 del 25 de setiembre de 2024 se anuló el decreto ejecutivo N° 43709 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022)

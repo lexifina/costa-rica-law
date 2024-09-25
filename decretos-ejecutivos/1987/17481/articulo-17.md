@@ -1,6 +1,4 @@
-Artículo 17.-Los honorarios de referencia y de uso discrecional(*) por concepto de curvas a nivel serán:
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
-El levantamiento de curvas de nivel incluye planos terminados, con intervalos de un metro. En donde:
+Artículo 17.-Los honorarios por concepto de curvas a nivel serán: El levantamiento de curvas de nivel incluye planos terminados, con intervalos de un metro. En donde:
 a) Terreno plano Y= c 6.550,00 h 4 c 6.550,00 i.
 b) Terreno ondulado Y= c 8.950,00 h 4 c 6.550,00 i.
 c) Terreno montañoso Hl=c 10.750,00 h c 6.550,00 i.
@@ -9,3 +7,4 @@ Para superficies menores de 25 hectáreas, se les aplica la tarifa general.
 Y= Tarifa base del servicio profesional.
 h= Superficie levantada en hectáreas.
 i= índice de ajuste inflacionario.
+(Mediante el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022, se acordó modificar la palabra "honorarios" por "honorarios de referencia y de uso discrecional"; contenida en el presente numeral. Posteriormente mediante resolución de la Sala Constitucional N° 027918 del 25 de setiembre de 2024 se anuló el decreto ejecutivo N° 43709 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022)

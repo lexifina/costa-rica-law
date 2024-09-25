@@ -1,8 +1,6 @@
 CAPITULO II
-Tarifas de honorarios de referencia y de uso discrecional(*) de agrimensura
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
-Artículo 5°-En los siguientes casos se establecen honorarios de referencia y de uso discrecional(*) así:
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
+Tarifas de honorarios de agrimensura
+Artículo 5°-En los siguientes casos se establecen honorarios así:
 Levantamientos urbanos: para los efectos de este Reglamento se consideraron parcelas urbanas las siguientes:
 a) Todas las parcelas menores de 1 000 metros cuadrados localizadas en todo el territorio nacional.
 b) Todas las parcelas mayores de 1 000 metros cuadrados pero menores de 50 000 metros cuadrados localizadas en áreas urbanas como cuadrantes de poblaciones en -cualquier lugar del país, urbanizaciones y zonas destinadas al uso urbano según el Plan Regional Metropolitano o Planes Reguladores locales.
@@ -21,11 +19,11 @@ CH | c 2,8 x i x a | Zonas ubicadas en cuadrantes, urbanizaciones y fraccionamie
 D | c 2,00 x i x a | Zonas urbanas consolidadas de menor valor.
 E | c 0,70 x i x a | Zonas con destino urbano.
 | | | | |
-3.-Cuando se trate de parcelas con construcciones sin accesos laterales o que presenten dificultad notoria para su levantamiento, se incrementarán los honorarios de referencia y de uso discrecional(*) hasta un 50% del valor de la tarifa base.
-(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: "Honorarios")
+3.-Cuando se trate de parcelas con construcciones sin accesos laterales o que presenten dificultad notoria para su levantamiento, se incrementarán los honorarios hasta un 50% del valor de la tarifa base.
 4.-Levantamiento de parcelas contiguas.
 De 10 parcelas contiguas en adelante se descontará un 20% de lo dispuesto en los incisos 1 y 3.
 Cobrando en las primeras nueve la tarifa completa.
 5.-Replanteo: se define replanteo en parcela al conjunto de operaciones que tiene por objeto la ubicación de vértices de la misma con base en la información preexistente, para este servicio se aplicará la tarifa que corresponde al levantamiento de parcelas en sus incisos 1, 2, 3 y 4.
 6.-Levantamiento de detalles y mejoras. Estos servicios se contratarán de acuerdo con los incisos B o C del numeral 4.2 de la Guía para Concursos Profesionales de Ingeniería y de Arquitectura del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
 Se consideran detalles y mejoras en otras vías, quebradas, caminos, construcciones, que no sean linderos.
+(Mediante el artículo 3° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022, se acordó modificar la palabra "honorarios" por "honorarios de referencia y de uso discrecional"; contenida en el presente numeral. Posteriormente mediante resolución de la Sala Constitucional N° 027918 del 25 de setiembre de 2024 se anuló el decreto ejecutivo N° 43709 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022)
