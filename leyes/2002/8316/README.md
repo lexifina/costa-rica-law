@@ -1,6 +1,6 @@
 # Ley Reguladora de los Derechos de Salida del Territorio Nacional
 
-Ley N° 8316 del 2002-09-26. SINALEVI, ficha 49492: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49492&param2=132165&param3=1>.
+Ley N° 8316 del 2002-09-26. SINALEVI, ficha 49492: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49492&param2=142474&param3=1>.
 
 Publicada en La Gaceta N° 205 del 2002-10-24.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 11 | 2013-08-23 | Ley 9156 | 2013-07-25 |
 | 7 de 11 | 2016-02-29 | Ley 9336 | 2015-11-11 |
 | 8 de 11 | 2022-09-01 | Ley 10286 | 2022-08-18 |
+| 9 de 11 | 2024-09-25 | Ley 10514 | 2024-09-04 |
