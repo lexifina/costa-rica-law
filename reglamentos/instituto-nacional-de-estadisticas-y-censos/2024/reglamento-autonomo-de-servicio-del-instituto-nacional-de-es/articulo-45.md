@@ -1,0 +1,1 @@
+ARTÍCULO 45.- No se reconocerá el tiempo extraordinario laborado sin la autorización de la jefatura de la persona funcionaria. La jornada extraordinaria es de naturaleza excepcional, por lo que no se puede autorizar jornada extraordinaria permanente.

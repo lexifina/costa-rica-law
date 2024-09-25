@@ -1,0 +1,1 @@
+ARTÍCULO 53.- Las ausencias injustificadas no solo producirán el rebajo salarial de la jornada, sino también la aplicación de la medida disciplinaria respectiva conforme al capítulo IX del presente reglamento.

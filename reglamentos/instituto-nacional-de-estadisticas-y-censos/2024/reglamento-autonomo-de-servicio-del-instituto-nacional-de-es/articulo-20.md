@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Ninguna persona funcionaria deberá patrocinar, representar o prestar servicios remunerados o no, directa o indirectamente, a personas interesadas en asuntos tramitados en su oficina, sea respecto a éstos o cualquier otro tipo de asunto, con las excepciones de la ley para actividades académicas u oficiales, en cuyo caso se requerirá la aprobación previa del Gerente.

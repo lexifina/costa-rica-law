@@ -1,0 +1,1 @@
+ARTÍCULO 30.- Las personas funcionarias no deberán utilizar las instalaciones físicas, el equipo de oficina, vehículos o demás bienes públicos a que tengan acceso, para propósitos ajenos al fin para el que están destinados, salvo las actividades para fortalecer el clima laboral.

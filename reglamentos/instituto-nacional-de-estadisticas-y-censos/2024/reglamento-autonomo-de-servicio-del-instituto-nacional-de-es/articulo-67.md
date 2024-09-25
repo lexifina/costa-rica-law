@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Beneficios e incentivos económicos
+ARTÍCULO 67.- Las personas funcionarias profesionales que hayan ingresado a laborar antes de la entrada en vigencia de la Ley Marco de Empleo Público, podrán acogerse a los beneficios de carrera profesional y dedicación exclusiva de conformidad con los requisitos y procedimientos establecidos en los Decretos Ejecutivos N.° 42.266 del 03 de febrero de 2020, "Normas para la aplicación de la dedicación exclusiva para las instituciones y empresas públicas cubiertas por el ámbito de la Autoridad Presupuestaria", y el N.° 42.495 del 19 de febrero de 2021, "Normas para la aplicación de la carrera profesional para las entidades públicas cubiertas por el ámbito de la Autoridad Presupuestaria".

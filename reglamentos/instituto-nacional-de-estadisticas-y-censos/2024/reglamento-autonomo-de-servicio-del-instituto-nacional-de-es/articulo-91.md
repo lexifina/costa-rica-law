@@ -1,0 +1,2 @@
+ARTÍCULO 91.- Las decisiones sobre los despidos las tomará la Gerencia luego de instruida la gestión por parte de la Comisión de Relaciones Laborales o por recomendación de la dependencia encargada de la administración de personal.
+La dependencia encargada de la administración de personal podrá suspender los pagos de salario y de cualquier otro extremo en caso de presunto abandono de trabajo de la persona, hasta que la Gerencia resuelva.

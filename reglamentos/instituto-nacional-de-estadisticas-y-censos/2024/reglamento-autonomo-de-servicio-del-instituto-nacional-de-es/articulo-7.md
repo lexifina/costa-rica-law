@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Del ingreso al INEC y la selección de personal
+ARTÍCULO 7.- El reclutamiento, la selección y el ingreso de las personas funcionarias se llevarán a cabo conforme los requisitos que establezca el manual descriptivo de puestos y las normas, lineamientos y procedimientos establecidos por la dependencia designada por la Gerencia, por la Autoridad Presupuestaria y en estricto apego a lo establecido en la Ley Marco de Empleo Público.
+La selección de personal se hará por medio atestados y pruebas de idoneidad y únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate. Para la elaboración y calificación de dichas pruebas, la dependencia encargada de la administración de personal, podrá requerir el asesoramiento técnico de la dependencia técnica donde existan puestos vacantes, cuyas jefaturas están en la obligación de brindarla de forma oportuna.

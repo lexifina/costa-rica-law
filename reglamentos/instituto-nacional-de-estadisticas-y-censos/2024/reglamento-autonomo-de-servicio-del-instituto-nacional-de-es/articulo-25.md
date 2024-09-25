@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Las personas funcionarias están obligadas a informar formalmente a su jefatura, sobre los intereses privados que sean potencialmente generadores de conflictos de intereses potenciales o aparentes respecto a las funciones o asuntos a su cargo, de manera transparente, oportuna y oficiosa.

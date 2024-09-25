@@ -1,0 +1,1 @@
+ARTÍCULO 82. - La inobservancia de los deberes y obligaciones, o la violación de las prohibiciones a que se refiere el Reglamento, por parte de las personas en el desempeño de sus funciones, se sancionará de acuerdo con la gravedad de la falta cometida y siguiendo el proceso indicado en el presente capítulo.

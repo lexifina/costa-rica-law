@@ -1,0 +1,1 @@
+ARTÍCULO 12.- Además de las contempladas en el artículo anterior y las señaladas en el presente Reglamento, las personas funcionarias tendrán las obligaciones establecidas en los manuales institucionales de cargos y clases.

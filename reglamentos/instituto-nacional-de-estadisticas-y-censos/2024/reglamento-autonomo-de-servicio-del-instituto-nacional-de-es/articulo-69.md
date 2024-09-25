@@ -1,0 +1,3 @@
+CAPÍTULO XV
+Del expediente personal
+ARTÍCULO 69.- La dependencia encargada de la administración de personal será responsable de la custodia y registro de la información de las personas funcionarias. Con ese propósito, confeccionará un expediente, el cual deberá mantener actualizado y preservar su confidencialidad. El expediente de las personas funcionarias deberá contener todos aquellos documentos y datos que sirvan para determinar en asuntos como: evaluación del desempeño, medidas disciplinarias, acciones de personal (incluyendo aquellas relacionadas con licencias, vacaciones, movimientos, nombramientos, etc.).

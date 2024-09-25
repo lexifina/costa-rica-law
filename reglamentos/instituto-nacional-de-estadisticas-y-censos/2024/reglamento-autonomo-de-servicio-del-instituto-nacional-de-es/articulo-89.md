@@ -1,0 +1,1 @@
+ARTICULO 89.- La suspensión del trabajo no podrá decretarse antes de escuchar a la persona funcionaria y a los testigos que esta hubiera indicado, excepto que haya aceptado, expresamente, la falta que se le imputa.

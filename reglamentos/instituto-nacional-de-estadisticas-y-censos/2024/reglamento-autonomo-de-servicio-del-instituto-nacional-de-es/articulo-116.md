@@ -1,0 +1,2 @@
+ARTICULO 116.- Lo resuelto por la dependencia encargada de la administración de personal tendrá recurso de revocatoria ante esta misma dependencia, y recurso de apelación ante la Gerencia, los cuales se deberán interponer dentro de un plazo de tres días hábiles cada uno, posteriores a su notificación.
+La apelación interpuesta se atenderá mediante resolución de la Gerencia, la cual podrá agotar la vía administrativa.

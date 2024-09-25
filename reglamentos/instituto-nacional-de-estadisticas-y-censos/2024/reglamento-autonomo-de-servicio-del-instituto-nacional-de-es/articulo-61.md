@@ -1,0 +1,3 @@
+ARTÍCULO 61.- Las jefaturas deberán programar el tiempo en que las personas funcionarias disfrutarán de sus vacaciones, con el fin de no alterar la marcha eficiente del servicio.
+La programación deberá presentarse a la dependencia encargada de la administración de personal en el plazo y las condiciones establecidos.
+Una vez efectuada la programación, las personas funcionarias podrán solicitar sus vacaciones a su jefatura. Esta solicitud se deberá resolver en los quince días hábiles siguientes a su presentación; de lo contrario, la persona funcionaria podrá gestionar su derecho directamente ante la dependencia encargada de la administración de personal.

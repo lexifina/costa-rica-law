@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Las jefaturas no pueden divulgar ni utilizar para otros fines la información que le ha sido revelada por las personas funcionarias en las solicitudes de excusa o las consultas con fines preventivos que le han sido formuladas por éstas

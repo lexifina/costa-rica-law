@@ -1,0 +1,1 @@
+ARTÍCULO 92.- Las coordinaciones serán responsables de realizar las amonestaciones verbales de sus subalternos, en estricto apego a las disposiciones contenidas en el presente Reglamento, y de ejecutar las suspensiones del trabajo, sin goce de salario, a las personas que así lo ameriten, en coordinación con la dependencia encargada de la administración de personal.

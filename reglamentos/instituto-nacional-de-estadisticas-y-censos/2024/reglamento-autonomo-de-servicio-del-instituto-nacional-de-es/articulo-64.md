@@ -1,0 +1,3 @@
+ARTÍCULO 64.- La persona funcionaria embarazada gozará obligatoriamente de una licencia por maternidad con carácter salarial, conforme a lo establecido en la Ley Marco de Empleo Público.
+El monto que corresponda al pago de esta licencia deberá ser equivalente al salario de la persona funcionaria, y lo cubrirán por partes iguales la Caja Costarricense de Seguro Social y el INEC.
+La persona funcionaria embarazada deberá informar, a la dependencia encargada de la administración de personal del INEC, acerca de su estado y aportar copia de la prueba de laboratorio que así lo indique, con la finalidad de poder hacer uso de inmediato de todos los beneficios de su condición.

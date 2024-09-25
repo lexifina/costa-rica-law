@@ -1,0 +1,1 @@
+ARTÍCULO 104. - Sobre el plazo de interposición. La persona denunciante tendrá el plazo de un año para interponer la denuncia respectiva ante la pero no era razón de administración de personal, el cual se computará a partir del último hecho consecuencia del acoso laboral o a partir de que cesó la causa justificada que le impidió denunciar.

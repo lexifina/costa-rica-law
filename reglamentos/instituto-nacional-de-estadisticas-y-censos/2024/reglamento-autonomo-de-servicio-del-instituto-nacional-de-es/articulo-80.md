@@ -1,0 +1,7 @@
+ARTÍCULO 80.- Sin perjuicio de lo establecido en otros artículos del presente Reglamento, y en la Ley General de la Administración Pública, son funciones y competencias de la Comisión de Relaciones Laborales las siguientes:
+a. conocer y pronunciarse, con carácter de recomendación no vinculante, sobre las cuestiones laborales que le sometan a consideración, para lo cual dispondrá de un plazo de dos meses a partir de su recepción, salvo aquellos casos que, por su justificación, requieran un tiempo adicional, el cual no podrá superar los quince días hábiles;
+b. realizar la investigación administrativa en los casos de hostigamiento sexual;
+c. rendir los informes que solicite la Gerencia o la dependencia encargada de la administración de personal, sobre las situaciones irregulares que son de su conocimiento;
+d. solicitar, a las jefaturas, informes sobre los conflictos en que se vea involucrado su personal;
+e. recomendar, a la dependencia encargada de la administración de personal, la suspensión con goce de salario o el traslado provisional de la unidad administrativa, de las personas involucradas en un conflicto laboral, durante la investigación administrativa que se realice, cuando el caso así lo requiera; y
+f. sugerir las normas o los procedimientos que considere necesarios para agilizar el trámite de las controversias laborales de que tenga pleno conocimiento, o bien, para evitar el acaecimiento de conflictos laborales.

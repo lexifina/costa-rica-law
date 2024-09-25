@@ -1,0 +1,1 @@
+ARTÍCULO 100.- La persona afectada por acoso laboral deberá plantear la respectiva denuncia en forma escrita, ante la dependencia encargada de la administración de personal, quien deberá trasladarla a la Comisión de Relaciones Laborales. Por sus características especiales, la denuncia por acoso laboral no estará sujeta a investigación preliminar.

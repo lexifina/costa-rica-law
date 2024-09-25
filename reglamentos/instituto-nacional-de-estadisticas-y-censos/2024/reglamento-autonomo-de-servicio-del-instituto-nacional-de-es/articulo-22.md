@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Las personas funcionarias no deberán solicitar servicios o recursos especiales para el INEC, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones a cargo del Instituto.

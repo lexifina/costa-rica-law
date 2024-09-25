@@ -1,0 +1,1 @@
+ARTÍCULO 34.- Ninguna persona funcionaria podrá utilizar el cargo, sus funciones, la autoridad o influencia que pueda derivarse de él, para beneficiar a un partido político o candidato a puesto de elección popular, así como cualquier otro recurso público asociado a su ejercicio.

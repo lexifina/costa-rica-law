@@ -1,0 +1,1 @@
+ARTÍCULO 44.- Cuando necesidades imperiosas del INEC lo requieran, las personas funcionarias tendrán la obligación de laborar horas extraordinarias, siempre y cuando la jornada ordinaria sumada a la extraordinaria no supere las doce horas diarias.

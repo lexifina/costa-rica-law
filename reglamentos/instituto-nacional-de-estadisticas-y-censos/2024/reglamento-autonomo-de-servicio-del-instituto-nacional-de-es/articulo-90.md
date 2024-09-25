@@ -1,0 +1,2 @@
+ARTICULO 90.- Excepto que se trate del despido, en cuyo caso la gestión correspondiente estará a cargo de la Gerencia, la aplicación de sanciones, tanto por infracciones al registro de control de puntualidad y asistencia, como por las otras faltas estipuladas en este Reglamento, corresponde a la dependencia encargada de la administración de personal.
+Cuando se trate de amonestación verbal, la aplicación de las sanciones corresponderá a las coordinaciones de áreas y unidades.

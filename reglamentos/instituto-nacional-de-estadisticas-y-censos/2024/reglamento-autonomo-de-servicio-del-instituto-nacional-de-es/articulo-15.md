@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Las personas funcionarias tienen terminantemente prohibido solicitar y aceptar, directa o indirectamente, regalos, comisiones, premios, donaciones, dádivas, favores, propinas o beneficios de cualquier tipo o valor económico, ofrecidos o entregados, en razón o con ocasión del desempeño de su cargo público.

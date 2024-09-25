@@ -1,0 +1,2 @@
+ARTÍCULO 54.- Se considerará llegada tardía la presentación al trabajo después de cinco minutos de la hora señalada para el comienzo de las labores de la jornada respectiva.
+En casos especiales y atendiendo a la naturaleza del trabajo, los superiores inmediatos podrán justificar, hasta en tres ocasiones las llegadas tardías de su personal mayores a los cinco minutos, durante el mismo mes calendario, ante la dependencia encargada de la administración de personal.

@@ -1,0 +1,1 @@
+ARTÍCULO 107.- Sin perjuicio de otros mecanismos que se implementen en el futuro, la prevención de las conductas constitutivas de hostigamiento sexual estará a cargo de la dependencia encargada de la administración de personal, la cual suministrará la información necesaria y canalizará las inquietudes que se propongan.
