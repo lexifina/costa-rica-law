@@ -1,6 +1,6 @@
 # Impuesto Solidario para el Fortalecimiento de Programas de Vivienda
 
-Ley N° 8683 del 2008-11-19. SINALEVI, ficha 64543: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64543&param2=139026&param3=1>.
+Ley N° 8683 del 2008-11-19. SINALEVI, ficha 64543: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64543&param2=142486&param3=1>.
 
 Publicada en La Gaceta N° 239 del 2008-12-10.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 20 | 2022-01-01 | Decreto Ejecutivo 43370 (2021-12-09) | 2021-12-09 |
 | 16 de 20 | 2023-01-01 | Decreto Ejecutivo 43851 (2022-12-08) | 2022-12-08 |
 | 17 de 20 | 2024-01-01 | Decreto Ejecutivo 44328 (2023-12-18) | 2023-12-18 |
+| 18 de 20 | 2024-09-25 | Ley 10513 | 2024-09-04 |
