@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ámbito de aplicación. Queda sometido al ámbito de aplicación de la presente ley toda la Administración Pública, tanto centralizada como descentralizada, incluyendo aquellos entes pertenecientes al régimen municipal; así como las instituciones autónomas y semiautónomas, las empresas públicas y cualquier otro ente perteneciente al sector público.
