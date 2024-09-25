@@ -14,3 +14,4 @@ Metodología tarifaria derivada de la ley N.º 10086, fija cargos de interconexi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-12 | la propia norma |
+| 2 | 2024-09-25 | Resolución 126 (2024-09-25) |
