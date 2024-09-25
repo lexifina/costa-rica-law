@@ -1,1 +1,11 @@
-Artículo 12º. Cuórum para sesionar. El cuórum de la Junta Directiva Nacional para sesionar válidamente es de cuatro directores, tanto en las sesiones ordinarias como en las extraordinarias. Cuando los asuntos sometidos a conocimiento y resolución de la Junta Directiva Nacional requieran la asistencia de un número mayor de directores, conforme al ordenamiento jurídico, así deberá hacerse saber en la convocatoria respectiva.
+Artículo 12º. Orden del día.
+El orden del día debe ser propuesta por el presidente del Órgano de Dirección y está conformada por asuntos de carácter informativos y resolutivos.
+Las sesiones deben desarrollarse conforme al orden del día que para ese efecto prepare la Presidencia de la Junta Directiva Nacional, el cual puede ser modificado.
+En la preparación, del orden de los asuntos es el siguiente:
+. Aprobación de el orden del día
+. Lectura y aprobación de actas anteriores (ordinarias o extraordinarias)
+. Asuntos de los otros órganos colegiados (Juntas Directivas, Comités Técnicos y Comisiones)
+. Informes de auditoría interna.
+. Asuntos de la Gerencia General Corporativa.
+. Comentarios y propuestas de los señores directores.
+. Correspondencia.

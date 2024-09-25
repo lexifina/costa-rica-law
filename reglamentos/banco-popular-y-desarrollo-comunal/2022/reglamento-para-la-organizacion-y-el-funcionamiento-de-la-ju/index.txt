@@ -48,10 +48,10 @@ articulo-47.md
 articulo-48.md
 articulo-49.md
 articulo-50.md
+articulo-50-bis.md
 articulo-51.md
 articulo-52.md
 articulo-53.md
-articulo-53-bis.md
 articulo-54.md
 articulo-55.md
 articulo-56.md
@@ -83,6 +83,4 @@ articulo-81.md
 articulo-82.md
 articulo-83.md
 articulo-84.md
-articulo-85.md
-articulo-86.md
-articulo-87.md
+articulo-1-anexo.md

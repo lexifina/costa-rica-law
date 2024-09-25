@@ -1,10 +1,2 @@
-Artículo 10º. Orden del día. Las sesiones deberán desarrollarse conforme al orden del día que para ese efecto prepare la Presidencia de la Junta Directiva Nacional, el cual podrá ser modificado.
-En la preparación de la agenda, el orden de los asuntos será el siguiente:
-. Conocimiento de la agenda.
-. Lectura y aprobación de actas anteriores.
-. Informes y asuntos de los comités y comisiones, según corresponda.
-. Informes de auditoría interna.
-. Asuntos de la Gerencia General Corporativa.
-. Comentarios y propuestas de los señores directores.
-. Correspondencia.
-La Junta Directiva Nacional aprobará una agenda anual, la cual contendrá los asuntos mínimos por tratar. Estos asuntos deberán estar alineados con sus responsabilidades y poseer un potencial impacto en la estrategia del Conglomerado Financiero. La agenda anual será aprobada como máximo en el mes de diciembre del año anterior.
+Artículo 10º. Sesiones extraordinarias.
+La Junta Directiva Nacional puede sesionar en forma extraordinaria cuando existan asuntos urgentes que, por sus implicaciones y por el interés público, no convenga posponer hasta la próxima sesión ordinaria. Estas sesiones deben ser convocadas por la Presidencia de la Junta Directiva Nacional o al menos tres de sus miembros, quienes para este efecto debe formular una solicitud por escrito especificando el objeto de la sesión y la fecha en que esta debe verificarse. La convocatoria a sesiones extraordinarias debe efectuarse con no menos de 24 horas de anticipación a la hora señalada para su realización, salvo casos de urgencia o cuando decidan sesionar los miembros de la Junta por unanimidad, estando todos presentes.

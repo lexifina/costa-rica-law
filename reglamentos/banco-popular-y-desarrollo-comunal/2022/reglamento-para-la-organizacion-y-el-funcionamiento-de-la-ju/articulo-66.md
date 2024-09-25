@@ -1,2 +1,2 @@
-Artículo 66°. Mayoría para adoptar acuerdos. Salvo disposición legal en contrario, los acuerdos se tomarán por mayoría simple de votos y por mayoría no inferior a tres miembros en el caso de la designación en propiedad y la remoción del gerente y el auditor interno de la sociedad.
-Únicamente para Popular Pensiones, los acuerdos se tomarán por mayoría simple de votos y por mayoría no inferior a cuatro miembros.
+Artículo 66°. Mociones.
+Los acuerdos de las juntas directivas de cada sociedad se toman con base en iniciativas o mociones, escritas o verbales, presentadas por los directores, los cuales deben quedar constando en el acta de la sesión. Las propuestas que no se refieren al tema objeto de deliberación son eliminadas de la discusión.

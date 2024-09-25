@@ -1,1 +1,2 @@
-Artículo 23°. Aprobación de actas. En la sesión ordinaria siguiente, se deberá someter a discusión el acta de la sesión anterior para efectos de su aprobación, y las modificaciones que se realicen deberán incorporarse inmediatamente, salvo cuando, por motivos de fuerza mayor, no esté lista para ese día, en cuyo caso el acta corregida se conocerá en la siguiente sesión de la Junta Directiva Nacional.
+Artículo 23°. Mociones.
+Los acuerdos de la Junta Directiva Nacional se toman con base en iniciativas o mociones, escritas o verbales, presentadas por los directores, las cuales se dejan constando en el acta de la sesión. Las propuestas que no se refieran al tema objeto de deliberación son eliminadas de la discusión.

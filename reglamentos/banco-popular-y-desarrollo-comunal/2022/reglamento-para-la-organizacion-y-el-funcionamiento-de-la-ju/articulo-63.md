@@ -1,2 +1,3 @@
-Artículo 63º. Limitaciones en asuntos de interés personal. Cuando en una sesión deban resolverse asuntos que interesen personalmente a uno o más directores, a cualquiera de los participantes en las juntas directivas de las sociedades o de sus parientes hasta el tercer grado de consanguinidad o afinidad, la persona de que se trate se ausentará temporalmente de la sesión durante el tiempo de su discusión y resolución, y de ello se dejará constancia en el acta correspondiente.
-Se deberá aplicar la Política de Conflictos de Interés del Conglomerado Financiero, según corresponda.
+Artículo 63°. Mayoría para adoptar acuerdos.
+Salvo disposición legal en contrario, los acuerdos se toman por mayoría absoluta (participación de la mitad más uno de sus integrantes con voz y voto) y por mayoría no inferior a tres miembros en el caso de la designación en propiedad y la remoción del gerente y el auditor interno de la sociedad.
+Únicamente para Popular Pensiones, los acuerdos se tomarán por mayoría simple de votos y por mayoría no inferior a cuatro miembros.

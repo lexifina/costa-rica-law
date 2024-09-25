@@ -1,3 +1,5 @@
-Artículo 7°. Periodo de nombramiento de las personas que conforman la Junta Directiva Nacional. Las personas que conforman la Junta Directiva Nacional serán nombradas por cuatro años para el ejercicio de sus funciones y podrán ser reelectas. El plazo de nombramiento de los integrantes de la Junta Directiva Nacional del Banco Popular y Desarrollo Comunal se computa cada cuatro años del primero de agosto al treinta y uno de julio.
-Los nombramientos que se realicen durante el cuatrienio de que se trate, tendrán vigencia hasta la finalización del respectivo período cuatrienal.
-La Junta Directiva Nacional elegirá cada año, por mayoría de votos, a su presidente y vicepresidente.
+Artículo 7°. Conformación de la Junta Directiva Nacional.
+De acuerdo con la Ley Orgánica del Banco Popular y de Desarrollo Comunal (Ley n.º 4351), la Junta Directiva Nacional está integrada de la siguiente manera:
+. Tres directores nombrados por el Poder Ejecutivo, de los cuales al menos uno debe ser mujer.
+. Cuatro directores designados por la Asamblea de los Trabajadores y Trabajadoras y ratificados por el Poder Ejecutivo, de los cuales al menos dos debe ser mujeres.
+Con respecto a los directores nombrados por el Poder Ejecutivo, debe existir alternabilidad entre hombres y mujeres. La lista de directivos que designe la Asamblea de los Trabajadores y Trabajadoras debe estar integrada al menos por un cincuenta por ciento (50%) de mujeres.

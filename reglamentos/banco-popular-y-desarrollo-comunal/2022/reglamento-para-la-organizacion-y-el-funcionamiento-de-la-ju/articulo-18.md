@@ -1,3 +1,3 @@
-Artículo 18°. Mayoría para adoptar acuerdos. Salvo disposición legal en contrario, los acuerdos se tomarán por mayoría simple de votos, y por mayoría no inferior a cinco miembros en los siguientes casos:
-. La designación en propiedad y la remoción de las personas designadas para los puestos de Gerencia General Corporativa y Subgerencias, Auditoría Interna y Subauditoría del Banco Popular.
-. La creación de sucursales u oficinas auxiliares en cualquier parte del país.
+Artículo 18°. Privacidad de las sesiones.
+Las sesiones de la Junta Directiva Nacional son siempre privadas, salvo que los miembros presentes acuerden por unanimidad que el público en general o ciertas personas puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.
+Asimismo, la Junta Directiva Nacional pueden ordenar, según la gravedad o relevancia de los temas planteados, el carácter de sesión confidencial con las personas que estime convenientes y hacer resguardo de la información que allí se genere por no revestir carácter público. Cualquier funcionario del Conglomerado Financiero está obligado a asistir a las sesiones de Junta Directiva Nacional cuando sea citado por este órgano o el presidente, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar más información.

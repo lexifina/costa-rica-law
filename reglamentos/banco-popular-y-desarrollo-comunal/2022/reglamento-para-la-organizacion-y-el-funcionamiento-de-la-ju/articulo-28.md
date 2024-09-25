@@ -1,5 +1,2 @@
-Artículo 28°. Acuerdos. Los acuerdos tomados por la Junta Directiva Nacional quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión por votación de las dos terceras partes de sus miembros. Los acuerdos de Junta Directiva Nacional serán ejecutivos y comunicables desde que se adoptan en firme.
-Los acuerdos tomados por la Junta Directiva Nacional que requieran una acción para su atención deberán considerar, al menos, los siguientes aspectos:
-. Descripción de la acción que debe realizarse
-. Responsable asignado para la atención del acuerdo
-. Plazo definido para la atención del acuerdo
+Artículo 28°. Votación.
+Salvo en caso de elección de la Presidencia y Vicepresidencia de la Junta Directiva Nacional, la votación es pública y cuando un asunto se someta a resolución todos los directores están obligados a emitir su voto en forma afirmativa o negativa, y ninguno pueden abstenerse de votar, salvo causal contemplada por la ley o cuando se trate de aprobación de actas o decisiones en la cuales el director no estuvo presente.

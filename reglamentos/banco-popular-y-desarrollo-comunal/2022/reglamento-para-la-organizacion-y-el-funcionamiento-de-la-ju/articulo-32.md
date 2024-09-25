@@ -1,3 +1,7 @@
-Artículo 32°.Revisión de los acuerdos. Cada director podrá, por una sola vez, solicitar la revisión de una determinada actuación de la Junta Directiva Nacional antes de que el acuerdo haya sido adoptado en firme. A tales efectos, la solicitud se realizará por parte del Director o Directora, sea de forma verbal o por escrito, según sea de su interés, de previo a la aprobación en firme del acta o del acuerdo específico. La revisión solicitada se realizará mediante una exposición de los motivos o justificantes que, a su criterio, aconsejan la modificación o eliminación del acuerdo de que se trate.
-Una vez llevada a cabo la deliberación correspondiente, si procede se realizará la votación correspondiente, quedando el acuerdo en firme. En caso de que el acuerdo se mantenga tal cual había sido adoptado en su momento, quedará en firme con la aprobación del acta.
-La propuesta realizada y la deliberación correspondiente quedará consignada en el acta de la sesión del día en que se produjo el análisis, discusión y votación de la propuesta.
+Sección III. Acuerdos tomados en las sesiones de Junta Directiva Nacional
+Artículo 32°. Acuerdos.
+Los acuerdos tomados por la Junta Directiva Nacional quedan firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión por votación de las dos terceras partes de sus miembros. Los acuerdos de Junta Directiva Nacional serán ejecutivos y comunicables desde que se adoptan en firme.
+Los acuerdos tomados por la Junta Directiva Nacional que requieran una acción para su atención deben considerar, al menos, los siguientes aspectos:
+. Descripción de la acción que debe realizarse
+. Responsable asignado para la atención del acuerdo
+. Plazo definido para la atención del acuerdo

@@ -1,6 +1,7 @@
-Artículo 31°. Carácter de cada tema. Durante la sesión, el expositor proponente debe aludir, al menos, a los antecedentes, el origen y los objetivos de cada tema. De tal manera, deberá indicar si el tema responde a:
-. Un asunto meramente informativo que sirva para tomar previsiones.
-. La atención a un acuerdo anterior de Junta Directiva Nacional.
-. Una propuesta específica que conlleve la necesidad de emitir un acuerdo por parte de la Junta Directiva Nacional.
-. Algún asunto regulatorio que requiera la aprobación de la Junta Directiva Nacional.
-Esta información deberá ser consistente con lo planteado en el formulario de remisión de información facilitado por la Secretaría de Junta Directiva Nacional y el formato estándar de presentaciones, cuando corresponda.
+Sección II. Rol de la Presidencia de la Junta Directiva Nacional
+Artículo 31º. Rol de la Presidencia.
+La Presidencia debe aportar su liderazgo y su responsabilidad para el correcto y efectivo funcionamiento de la Junta Directiva Nacional. Entre otros aspectos, debe:
+. Dedicar el tiempo que el Conglomerado Financiero demande para el cumplimiento de sus funciones.
+. Hacer un manejo efectivo del tiempo durante las sesiones.
+. Promover y motivar la discusión crítica, y asegurar que los criterios disidentes se puedan expresar y discutir libremente para la toma de decisiones.
+. Velar por que las decisiones de la Junta Directiva Nacional sean tomadas sobre una base de información oportuna, sólida y correcta.

@@ -1,6 +1,5 @@
-Sección III. Acuerdos tomados en las sesiones de junta directiva
-Artículo 76°. Acuerdos. Los acuerdos tomados por la junta directiva de cada sociedad quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión por votación de las dos terceras partes de sus miembros. Los acuerdos de la junta directiva de cada sociedad serán ejecutivos y comunicables desde que se adoptan en firme.
-Los acuerdos tomados por la Junta Directiva de cada Sociedad que requieran una acción para su atención deberán considerar, al menos, los siguientes aspectos:
-. Descripción de la acción que debe realizarse
-. Responsable asignado para la atención del acuerdo
-. Plazo definido para la atención del acuerdo
+Artículo 76°. Revisión de los acuerdos.
+Cada director puede, por una sola vez, solicitar la revisión de una determinada actuación de la junta directiva respectiva antes de que el acuerdo haya sido adoptado en firme.
+A tales efectos, la solicitud se realiza por parte del director o Directora, sea de forma verbal o por escrito, según sea de su interés, de previo a la aprobación en firme del acta o del acuerdo específico. La revisión solicitada se realiza mediante una exposición de los motivos o justificantes que, a su criterio, aconsejan la modificación o eliminación del acuerdo de que se trate.
+Una vez llevada a cabo la deliberación correspondiente, se realiza la votación correspondiente, quedando el acuerdo en firme. En caso de que el acuerdo se mantenga tal cual había sido adoptado en su momento, queda en firme con la aprobación del acta.
+La propuesta realizada y la deliberación correspondiente queda consignada en el acta de la sesión del día en que se produjo el análisis, discusión y votación de la propuesta.

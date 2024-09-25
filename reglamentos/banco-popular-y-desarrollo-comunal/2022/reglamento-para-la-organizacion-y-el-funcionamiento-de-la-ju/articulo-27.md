@@ -1,6 +1,5 @@
-Sección II. Rol de la Presidencia de la Junta Directiva Nacional
-Artículo 27º. Rol de la Presidencia. La Presidencia deberá aportar su liderazgo y su responsabilidad para el correcto y efectivo funcionamiento de la Junta Directiva Nacional. Entre otros aspectos, deberá:
-. Dedicar el tiempo que el Conglomerado Financiero demande para el cumplimiento de sus funciones.
-. Hacer un manejo efectivo del tiempo durante las sesiones.
-. Promover y motivar la discusión crítica, y asegurar que los criterios disidentes se puedan expresar y discutir libremente para la toma de decisiones.
-. Velar por que las decisiones de la Junta Directiva Nacional sean tomadas sobre una base de información oportuna, sólida y correcta.
+Artículo 27°. Dietas.
+La Junta Directiva Nacional señalará las dietas que sus miembros devengarán para la asistencia a las sesiones de dicho órgano, juntas directivas de las Sociedades Anónimas, comités y comisiones; las cuales, no podrán superar el monto máximo autorizado a los bancos comerciales del Estado por sesión, según el Artículo 33 de la Ley Orgánica del Sistema Bancario Nacional.
+Para el caso de los fiscales que participan en las Juntas Directivas o comités tendrán derecho a devengar las dietas establecidas en el presente artículo por la asistencia a las sesiones. Respecto a los gerentes, los subgerentes y los demás empleados del CFBPDC que asistieren a las sesiones no tendrán derecho al cobro de las dietas.
+La remuneración total por concepto de dietas mensuales que los miembros de la Junta Directiva Nacional y de las Juntas Directivas de las Sociedades pertenecientes al Conglomerado Financiero devengarán por su asistencia a las sesiones de dichos órganos; en su conjunto, no podrá superar por mes el equivalente a 30 salarios base, según lo establece el artículo 44° de la Ley de Salarios de la Administración Pública.
+La asistencia puntual de los miembros de las juntas directivas a las sesiones les dará derecho al cobro de dietas fijas, que irán determinadas claramente en los presupuestos anuales del CFBPDC.

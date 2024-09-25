@@ -1,4 +1,3 @@
-CAPÍTULO II
-Organización y funcionamiento de la Junta Directiva Nacional
-Sección I. Responsabilidades, sesiones, cuórum y asistencia
-Artículo 5°. Responsabilidades generales de la Junta Directiva Nacional. La Junta Directiva Nacional, como máximo órgano de gobernanza del Conglomerado Financiero, deberá cumplir cada una de las responsabilidades establecidas en las leyes y la normativa aplicable.
+Artículo 5º. La Idoneidad y desempeño de los miembros de las Juntas Directivas
+Con el fin de garantizar un adecuado funcionamiento y cumplimiento de las funciones y responsabilidades de cada órgano colegiado y en cumplimiento con lo establecido en el Acuerdo CONASSIF 15-22, así como en el Manual para la regulación, aplicación y valoración de la Idoneidad y desempeño de los Órganos de Dirección y Alta Gerencia del CFBPDC, todos los directores de la Junta Directiva Nacional y de las Sociedades deben de ser idóneos y contar con una buena calificación respecto a su desempeño, según lo establecido en el manual supra citado.
+Es competencia de la Junta Directiva Nacional en calidad de Asamblea de Accionistas, garantizar que el nombramiento de los directores que conformarán los Órganos de Dirección de las Sociedades cumpla con los criterios de idoneidad establecidos en las regulaciones correspondientes. Lo anterior, en alineamiento con el perfil profesional del miembro que establece el Acuerdo CONASSIF 4-16, Reglamento Sobre Gobierno Corporativo.

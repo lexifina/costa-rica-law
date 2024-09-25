@@ -1,13 +1,2 @@
-Artículo 58º. Orden del día. Las sesiones deberán desarrollarse conforme al orden del día que para tal efecto prepare la presidencia de la junta directiva de cada sociedad, en coordinación con la gerencia respectiva, el cual podrá ser modificado.
-En la preparación de la agenda, el orden de los asuntos será el siguiente:
-. Conocimiento de la agenda.
-. Lectura y aprobación de actas anteriores.
-. Asuntos de los directores.
-. Informes y asuntos de los comités y comisiones, según corresponda.
-. Informes de auditoría interna. Informes de otros órganos de control (Dirección Corporativa de Riesgo y Cumplimiento Normativo, así como la Oficialía de Cumplimiento).
-. Asuntos de la Gerencia General Corporativa.
-. Asuntos de la Gerencia de la Sociedad.
-. Correspondencia.
-. Criterios legales.
-. Asuntos de la Asamblea de Accionistas.
-. Asuntos informativos.
+Artículo 58º. Hora de inicio.
+Las sesiones de las juntas directivas de las sociedades deben iniciarse de manera puntual, sin embargo, pueden dar por iniciada la sesión dentro de los treinta minutos siguientes a la hora señalada en cada convocatoria. La Secretaría de la Junta Directiva es la encargada de llevar el control de la hora de inicio de las sesiones a dicho órgano y del cómputo de los treinta minutos a los que hace referencia este artículo. En caso de motivos de fuerza mayor o que los directores se encuentren atendiendo asuntos del Conglomerado Financiero o en sesiones de trabajo que no hayan finalizado y les impidan iniciar en el tiempo señalado, se debe hacer una segunda convocatoria, donde la sesión debe iniciarse en los sesenta minutos siguientes a la hora señalada en la convocatoria inicial.

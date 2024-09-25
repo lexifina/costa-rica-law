@@ -1,6 +1,2 @@
-Artículo 79°. Carácter de cada tema. Durante la sesión, el expositor proponente debe aludir, al menos, a los antecedentes, el origen y los objetivos de cada tema. De tal manera, deberá indicar si el tema responde a:
-. Un asunto meramente informativo que sirva para tomar previsiones.
-. La atención a un acuerdo anterior de junta directiva. . Una propuesta específica que conlleve la necesidad de emitir un acuerdo por parte de la junta
-directiva.
-. Algún asunto regulatorio que requiera la aprobación de la junta directiva.
-Esta información deberá ser consistente con lo planteado en el formulario de remisión de información facilitado por la Secretaría de Junta Directiva y el formato estándar de presentaciones, cuando corresponda.
+Artículo 79°. Seguimiento de acuerdos.
+La Secretaría de Junta Directiva debe mantener, mediante los mecanismos que considere convenientes, un adecuado control de acuerdos, de manera que se puedan identificar fácilmente aquellos que se encuentran pendientes de ejecución. Además, debe presentar ante la junta directiva de cada sociedad, informes trimestrales sobre el estado de atención de los acuerdos.

@@ -1,2 +1,4 @@
-Artículo 8º. Sesiones ordinarias. La Junta Directiva Nacional se reunirá ordinariamente al menos una vez por semana, los días y a la hora que esta acuerde en su primera sesión ordinaria de cada período cuatrienal. El día y hora de reunión acordado puede ser modificado mediante acuerdo adoptado en sesión ordinaria.
-El orden del día, los antecedentes y los documentos relativos a los asuntos por tratar deben ser remitidos a cada participante de la sesión al menos 48 horas antes de su celebración. Si el intervalo entre una sesión y otra es inferior a 48 horas, se podrá remitir con hasta 24 horas de antelación.
+Artículo 8°. Periodo de nombramiento de las personas que conforman la Junta Directiva Nacional.
+Las personas que conforman la Junta Directiva Nacional son nombradas por cuatro años para el ejercicio de sus funciones y pueden ser reelectas. El plazo de nombramiento de los integrantes de la Junta Directiva Nacional del Banco Popular y Desarrollo Comunal se computa cada cuatro años del primero de agosto al treinta y uno de julio o cuando corresponda.
+Los nombramientos que se realicen durante el cuatrienio de que se trate tienen vigencia hasta la finalización del respectivo período cuatrienal.
+La Junta Directiva Nacional elige cada año, por mayoría de votos, a su presidente y vicepresidente.

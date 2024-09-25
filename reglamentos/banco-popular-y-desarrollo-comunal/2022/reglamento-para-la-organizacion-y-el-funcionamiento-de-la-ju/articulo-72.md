@@ -1,1 +1,7 @@
-Artículo 72°. Copias de las actas. Las copias de los borradores de las actas serán distribuidas por lo menos con 36 horas de anticipación a la sesión en la cual deban aprobarse. Se distribuirá una copia para cada director, así como para el gerente general corporativo y su representante, el gerente y el auditor interno de la sociedad, el representante de la Dirección Jurídica del Banco Popular, y el director corporativo de riesgo y su representante, así como, una para el archivo de la junta directiva de la sociedad respectiva.
+Sección III. Acuerdos tomados en las sesiones de junta directiva
+Artículo 72°. Acuerdos.
+Los acuerdos tomados por la junta directiva de cada sociedad quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así en la misma sesión por votación de las dos terceras partes de sus miembros. Los acuerdos de la junta directiva de cada sociedad son ejecutivos y comunicables desde que se adoptan en firme.
+Los acuerdos tomados por la Junta Directiva de cada Sociedad que requieran una acción para su atención deberán considerar, al menos, los siguientes aspectos:
+. Descripción de la acción que debe realizarse
+. Responsable asignado para la atención del acuerdo
+. Plazo definido para la atención del acuerdo

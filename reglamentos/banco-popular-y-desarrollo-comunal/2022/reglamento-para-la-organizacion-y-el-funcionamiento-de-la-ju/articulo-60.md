@@ -1,2 +1,3 @@
-Artículo 60º. Cuórum para sesionar. El cuórum de la Junta Directiva de cada Sociedad para sesionar válidamente es de tres directores, tanto en las sesiones ordinarias como en las extraordinarias. Para el caso de la Junta Directiva de Popular Pensiones, el cuórum es de cuatro directores.
-Cuando los asuntos sometidos a conocimiento y resolución de las juntas directivas de las sociedades requieran, conforme al ordenamiento jurídico, la asistencia de un número mayor de directores, así deberá hacerse saber en la convocatoria respectiva.
+Artículo 60º. Limitaciones en asuntos de interés personal.
+Cuando en una sesión deban resolverse asuntos que interesen personalmente a uno o más directores, a cualquiera de los participantes en las juntas directivas de las sociedades o de sus parientes hasta el tercer grado de consanguinidad o afinidad, la persona de que se trate se ausenta temporalmente de la sesión durante el tiempo de su discusión y resolución, y de ello se deja constancia en el acta correspondiente.
+Se debe aplicar la Política de Conflictos de Interés del Conglomerado Financiero, según corresponda.
