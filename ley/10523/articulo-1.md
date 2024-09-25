@@ -1,0 +1,19 @@
+N° 10523
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+LEY PARA MEJORAR LAS CAPACIDADES
+DE LA CONTRALORÍA GENERAL DE LA REPÚBLICA,
+PARA CONSTATAR LA VERACIDAD
+DE LAS DECLARACIONES JURADAS SOBRE
+LA SITUACIÓN PATRIMONIAL DE FUNCIONARIOS
+PÚBLICOS. REFORMA DEL ARTÍCULO 34 DE LA LEY
+8422, LEY CONTRA LA CORRUPCIÓN
+Y EL ENRIQUECIMIENTO ILÍCITO EN LA FUNCIÓN
+PÚBLICA, DE 6 DE OCTUBRE DE 2004
+ARTÍCULO ÚNICO- Se reforma el artículo 34 de la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004. El texto es el siguiente:
+Artículo 34- Constatación de veracidad de la declaración. Cuando lo estime oportuno, la Contraloría General de la República podrá examinar y verificar, con todo detalle, la exactitud y veracidad de las declaraciones, de conformidad con los procedimientos y las facultades que le otorgan la Constitución Política y las leyes. Asimismo, podrá requerir por escrito, a la persona declarante, las aclaraciones o adiciones que estime necesarias, dentro del plazo que prudencialmente se le fije.
+Para efectos de esta constatación de la veracidad de las declaraciones, la Contraloría General de la República deberá informar al Banco Central de Costa Rica, al menos una vez al año, los nombres y las cédulas de todas las personas e funcionarias obligadas a realizar la declaración patrimonial, según lo regulado en esta ley. El Banco Central de Costa Rica, en un plazo máximo de 15 días hábiles, deberá remitir a la Contraloría un informe que detalle las personas o estructuras jurídicas en las que las personas funcionarias obligadas aparezcan como accionistas o beneficiarias finales, haciendo constar la fecha a partir de la cual esas personas funcionarias fungen como accionistas o beneficiarias finales y las fechas de finalización de esa calidad de accionistas o beneficiarios finales, según corresponda, de conformidad con la información del Registro de Transparencia y Beneficiarios Finales, creado de conformidad con lo regulado en el capítulo ll de la Ley 9416, Ley para Mejorar la Lucha contra el Fraude Fiscal, de 14 de diciembre de 2016. Esta información recibida por la Contraloría General de la República será de carácter confidencial frente a terceros, de conformidad con lo dispuesto en el artículo 117 de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971; en el capítulo ll de la Ley 9416, Ley para Mejorar la Lucha contra el Fraude Fiscal, de 14 de diciembre de 2016, y en el artículo 11 de la Ley 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los nueve días del mes de septiembre del año dos mil veinticuatro.
+EJECÚTESE Y PUBLÍQUESE.
