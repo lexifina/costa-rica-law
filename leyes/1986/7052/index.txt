@@ -66,6 +66,10 @@ articulo-65.md
 articulo-65-bis.md
 articulo-65-ter.md
 articulo-65-quater.md
+articulo-65-quinquies.md
+articulo-65-sexies.md
+articulo-65-septies.md
+articulo-65-octies.md
 articulo-66.md
 articulo-67.md
 articulo-68.md

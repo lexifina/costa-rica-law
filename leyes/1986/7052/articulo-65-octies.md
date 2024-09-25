@@ -1,0 +1,3 @@
+Artículo 65 octies.- Los recursos del programa Profivijo serán operados por el Banco Hipotecario de la Vivienda (Banhvi), con el objeto de facilitar a las personas jóvenes con núcleo familiar y de escasos recursos, por medio de las entidades autorizadas por ley, el acceso al crédito para vivienda.
+(Así adicionado por el artículo 8° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+(Así modificada su numeración por el artículo 2° de la Ley para la consolidación y el fortalecimiento del programa de bono colectivo, N° 10513 de 4 de setiembre de 2024, que lo traspaso del antiguo artículo 65 quáter al artículo 65 octies)

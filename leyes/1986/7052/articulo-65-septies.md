@@ -1,0 +1,3 @@
+Artículo 65 septies.- El programa Profivijo se financiará con recursos provenientes del Fondo Nacional de Vivienda (Fonavi), del cual se deberá dedicar un porcentaje definido por la Junta Directiva del Banco Hipotecario de la Vivienda al sector de la persona joven, conforme lo indicado en el artículo anterior.
+(Así adicionado por el artículo 8° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
+(Así modificada su numeración por el artículo 2° de la Ley para la consolidación y el fortalecimiento del programa de bono colectivo, N° 10513 de 4 de setiembre de 2024, que lo traspaso del antiguo artículo 65 ter al artículo 65 septies)
