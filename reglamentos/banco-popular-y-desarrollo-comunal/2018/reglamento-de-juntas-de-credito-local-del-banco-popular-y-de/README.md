@@ -17,3 +17,4 @@ Reglamento de Juntas de Crédito Local del Banco Popular y de Desarrollo Comunal
 | 2 | 2020-12-07 | Reglamento 5789 (2020-12-07) |
 | 3 | 2022-10-12 | Reglamento 5947 (2022-10-12) |
 | 4 | 2023-02-21 | Reglamento 5979 (2023-02-21) |
+| 5 | 2024-09-25 | Reglamento 6146 (2024-09-25) |
