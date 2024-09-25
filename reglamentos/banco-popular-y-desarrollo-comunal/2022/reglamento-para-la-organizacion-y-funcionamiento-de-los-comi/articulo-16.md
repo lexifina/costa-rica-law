@@ -1,3 +1,3 @@
-Artículo 16º. Sesiones.
-Las sesiones son privadas, pudiendo disponerse por unanimidad de las personas que lo integren, que estén presentes el acceso del público general o ciertas personas, tales como profesionales que brinden asesoría externa al Conglomerado, concediéndoles o no voz, pero sin voto.
-A las sesiones de los Comités y Comisiones podrán asistir con voz, pero sin voto, las personas que estos órganos estimen necesario para un mejor desempeño de sus funciones.
+Artículo 16° Recepción de información para la elaboración de la agenda
+Las dependencias que requieran presentar informes ante los Comités Técnicos o Comisiones que formen parte de los temas o informes calendarizados, deben gestionarlo a través del formulario "Solicitud de Inclusión de informes en los Órganos Colegiados del CFBPDC". En caso de que se deba elevar temas que no formen parte de la Estructura de la Calendarización de Informes Anuales (CIA), se debe de gestionar lo establecido en el "Procedimiento para elevar temas a los Órganos Colegiados del CFBPDC."
+La Gerencia General es la responsable de elevar la documentación a la Secretaría de la Junta Directiva Nacional, a más tardar tres días hábiles antes de que se efectúe la sesión y que se realice el cierre de la agenda; para casos extraordinario al menos un día con la aprobación del presidente del Comité Técnico o Comisión.

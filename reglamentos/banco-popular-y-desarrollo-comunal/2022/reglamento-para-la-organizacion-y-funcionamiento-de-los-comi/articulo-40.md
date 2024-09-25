@@ -1,7 +1,3 @@
-Artículo 40º. Informes mínimos que debe conocer el Comité Corporativo de Nominaciones y Remuneraciones.
-Seguidamente se detalla la documentación mínima que analizará este Comité:
-Informe | Instancia remitente | Periodicidad
-Marco de Evaluación de Desempeño | Recursos Humanos del Conglomerado Financiero | Anual
-Informe | Instancia remitente | Periodicidad
-Informe de resultados del Sistema de Evaluación del Desempeño y su aporte al logro de los objetivos estratégicos | Recursos Humanos del Conglomerado Financiero | Anual
-Planes de sucesión | Recursos Humanos del Conglomerado Financiero | Anual
+Artículo 40º. Fundamento del Comité Corporativo de Cumplimiento.
+El Comité Corporativo de Cumplimiento tiene su fundamento en el acuerdo SUGEF 12-21, Reglamento para la Prevención del Riesgo de Legitimación de Capitales, Financiamiento al Terrorismo y Financiamiento de la Proliferación de Armas de Destrucción Masiva, aplicable a los sujetos obligados por el artículo 14 de la Ley 7786.
+Este Comité debe brindar apoyo a la Junta Directiva Nacional en la vigilancia de la gestión eficiente del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva.

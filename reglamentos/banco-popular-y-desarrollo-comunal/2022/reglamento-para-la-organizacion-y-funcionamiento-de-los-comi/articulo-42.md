@@ -1,11 +1,11 @@
-Artículo 42.-Conformación del Comité Corporativo de Tecnología de Información. El Comité Corporativo de Tecnología de Información será un cuerpo colegiado integrado de la siguiente manera:
-a) Mínimo dos y hasta tres directores de la Junta Directiva Nacional, uno de los cuales ejercerá el rol de la Presidencia del Comité. Todos con voz y voto.
-b) Un miembro externo quien fungirá como asesor independiente de este comité, y tendrá voz, pero no voto en las sesiones.
-Otros participantes no miembros:
-c) El Gerente General Corporativo, el Subgerente General de Operaciones o el Director General de Transformación e Innovación con voz, pero sin voto.
-d) El Director de Tecnología de Información con voz, pero sin voto.
-e) El Director Corporativo de Riesgo, o quien este designe. Tendrá una participación con voz, pero sin voto.
-f) La Presidencia, o bien, la Vicepresidencia de la Junta Directiva de una sociedad y su Gerente General, el responsable del Área de Tecnología de Información o sus representantes participarán, previa invitación, únicamente durante los segmentos de las sesiones en las que se discutan y analicen temas de sus respectivas sociedades, con voz, pero sin voto. En el caso de los representantes de los Gerentes de las sociedades la designación será responsabilidad de estos.
-g) Cualquier otra persona que, a juicio del Comité, deba asistir en calidad de invitado.
-La no participación de alguna, algunas o todas las personas clasificadas como "otros participantes no miembros" no es motivo para la no realización de la sesión ni para que no se conozcan o resuelvan los temas agendados en la sesión respectiva.
-(Así reformado en sesión N° 6139 del 3 de setiembre de 2024)
+Artículo 42º. Funciones del Comité Corporativo de Cumplimiento.
+El Comité Corporativo de Cumplimiento conoce sobre aquellos asuntos propuestos por la Junta Directiva Nacional, las Juntas Directivas de las Sociedades, la Gerencia General Corporativa, los Oficiales de Cumplimiento del Banco y de las Sociedades, así como cualquier otro que considere pertinente, relacionados con los roles y responsabilidades de este Comité.
+Las siguientes son funciones de este Comité, pero no limitadas a estas:
+a) Revisar las políticas, procedimientos, normas y controles implementados por el sujeto obligado para cumplir con el marco normativo vigente en materia de LC/FT/FPADM.
+b) Proponer a las Juntas Directivas, tanto Nacional como de las Sociedades, las políticas de confidencialidad en el manejo de la información propia respecto a empleados, directivos y socios y aquella a la que tienen acceso, en el tratamiento de los temas relacionados con LC/FT/FPADM.
+c) Proponer el apartado sobre las políticas para la prevención de LC/FT/FPADM que se deben incluir en el Código de Conducta para su aprobación por parte del órgano de dirección. Este apartado debe incluir al menos: las responsabilidades, consecuencias legales y medidas o sanciones disciplinarias relacionadas con este tema.
+d) Conocer el plan de trabajo de las oficialías de cumplimiento y elevarlo a las Juntas Directivas correspondientes; así mismo vigila periódicamente el cumplimiento del Plan.
+e) Presentar informes a las Juntas Directivas, tanto Nacional como de las Sociedades, sobre la exposición al riesgo de LC/FT/FPADM, con la periodicidad establecida en la normativa que regula su funcionamiento, pero al menos de forma semestral y además en los casos en que existan situaciones relevantes de reportar.
+Asimismo, al menos en forma semestral debe informar sobre el seguimiento de los planes correctivos
+definidos por el sujeto obligado para subsanar las debilidades y oportunidades de mejora identificadas en los estudios de las auditorías interna y externa, informes de la superintendencia respectiva, de la evaluación de riesgos de LC/FT/FPADM del sujeto obligado, por la oficialía de cumplimiento y por el comité de cumplimiento.
+f) Además de todas las funciones establecidas en el Artículo 3, del Manual de Cumplimiento Corporativo de políticas y procedimientos para la prevención y gestión de riesgos de Legitimación de Capitales, del Financiamiento al Terrorismo y a la Proliferación de Armas de Destrucción Masiva (LC/FT/FPADM).

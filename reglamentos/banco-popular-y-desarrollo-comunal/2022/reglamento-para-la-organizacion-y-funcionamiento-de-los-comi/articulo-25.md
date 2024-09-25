@@ -1,11 +1,3 @@
-CAPÍTULO III
-Organización y funcionamiento de los Comités y de las Comisiones del Conglomerado Financiero
-Con el fin de lograr la eficiencia y una mayor profundidad en el análisis de los temas de su competencia, la Junta Directiva Nacional ha conformado la siguiente estructura de Comités y Comisiones para el funcionamiento de la gobernanza en el Conglomerado Financiero:
-Figura No. 1. Organización de los Comités y Comisiones del Conglomerado Financiero
-[imagen]
-En el cuadro se indica Riesgos y Tecnologías y debe ser en singular
-Sección I. Organización y funcionamiento de los Comités Técnicos.
-Artículo 25º. Fundamento del Comité Corporativo de Auditoría.
-El Comité Corporativo de Auditoría Interna tiene su fundamento en el Acuerdo SUGEF 16-16 "Reglamento de Gobierno Corporativo". Este Comité proporciona a la Junta Directiva Nacional y a las Juntas Directivas de las Sociedades una adecuada visión del funcionamiento del Sistema de Control Interno (SCI) del Conglomerado Financiero.
-El Comité Corporativo de Auditoría es el encargado de coordinar las actividades entre los distintos órganos integrantes del SCI, evitando la superposición o reiteración de procedimientos de los entes constituidos a tal efecto, a fin de obtener una utilización racional de los recursos.
-Es inherente al desarrollo de sus funciones el hacer, conocer y reconocer en todo el ámbito del Conglomerado Financiero el respaldo a la labor de las Auditorías Internas, con respecto a la naturaleza y alcance de su misión.
+Artículo 25º. Rendición de cuentas
+Con el fin de lograr una efectiva rendición de cuentas por parte de los Comités Técnicos o Comisiones del CFBPDC, el Área de Gobierno Corporativo debe presentar en cada Comité Técnico o Comisión un informe trimestral en el cual detalle los resultados de la gestión de la efectividad de cada Órgano Colegiado, para posteriormente elevar esta información ante la Junta Directiva Nacional; lo anterior, con el fin de validar el cumplimiento de los roles y responsabilidades establecidas en las normas que regulan el funcionamiento de cada Comité Técnico o Comisión.
+Para el análisis del resultado de la gestión de la efectividad de cada Comité Técnico o Comisión se debe considerar los indicadores establecidos en la norma interna "Metodología para la definición y medición del sistema de gestión de la efectividad de la Gobernanza de los órganos de colegiados del CFBPDC."

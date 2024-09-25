@@ -1,3 +1,4 @@
-Artículo 21º. Archivos y registros oficiales.
-Las grabaciones de las sesiones de los Comités constituyen un instrumento de ayuda para la confección de las actas, las cuales serán almacenadas de conformidad con la regulación aplicable.
-La Secretaría General deberá velar por el debido cuidado del almacenamiento de la información a la que puedan tener acceso terceras personas no autorizadas en el proceso de transcripción.
+Artículo 21º. Recurso de revisión.
+Si alguna persona integrante de un Comité técnico o una Comisión interpone recurso de revisión contra un acuerdo, este se debe resolver al conocerse el acta de la respectiva sesión, salvo que, por considerarlo urgente, la Presidencia opte por conocerlo en una sesión ordinaria adicional.
+El recurso debe plantearse a más tardar al discutirse el acta y se debe resolver en la misma sesión.
+Las simples observaciones de forma no son recursos de revisión, pudiendo formularlas cualquier asistente con voz.

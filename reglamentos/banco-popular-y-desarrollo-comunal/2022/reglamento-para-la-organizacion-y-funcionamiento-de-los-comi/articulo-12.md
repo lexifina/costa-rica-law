@@ -1,9 +1,4 @@
-Artículo 12º. Secretaría.
-La Secretaría General de la Junta Directiva Nacional dará el apoyo logístico a los Comités y a las Comisiones adscritas a las Juntas Directivas del Conglomerado Financiero y tendrá las siguientes funciones:
-a) Remitir a los participantes de la sesión del Comité o de la Comisión, dentro del plazo indicado en este Reglamento, el orden del día junto con la documentación.
-b) Coadyuvar con la Presidencia en la remisión de la convocatoria a sesiones ordinarias adicionales.
-c) Levantar las actas de las sesiones de los Comités o las Comisiones y custodiar los libros correspondientes.
-d) Archivar la respectiva documentación.
-e) Diligenciar el despacho de los asuntos del Comité o la Comisión.
-f) Comunicar los acuerdos del Comité o la Comisión.
-g) Informar trimestralmente sobre el seguimiento de acuerdos adoptados por el Comité o la Comisión.
+Artículo 12º. Asesores externos.
+Los Comités técnicos y Comisiones, cuando lo consideren conveniente, pueden solicitar a la Junta Directiva Nacional la contratación de asesores externos que apoyen en sus sesiones con el fin de que estos brinden criterio técnico en temas específicos.
+Los asesores externos participan en las sesiones de los Comités Técnico y Comisiones en calidad de invitados, por tanto, tienen derecho a voz, pero no a voto.
+La Junta Directiva Nacional determina el mecanismo o proceso idóneo que permita contratar a los asesores externos, en apego a lo establecido en la Política de Conflictos de Interés del Conglomerado Financiero y la normativa vigente, para ello cuenta con el Sistema de Compras Públicas (SICOP).

@@ -1,9 +1,3 @@
-Artículo 37.-Conformación del Comité Corporativo de Nominaciones y Remuneraciones. El Comité Corporativo de Nominaciones y Remuneraciones será un cuerpo colegiado integrado de la siguiente manera:
-a) Mínimo dos y hasta tres directores de la Junta Directiva Nacional, uno de los cuales ejercerá el rol de la Presidencia del Comité. Todos con voz y voto.
-b) Un miembro externo quien fungirá como asesor independiente de este comité, y tendrá voz, pero no voto en las sesiones.
-Otros participantes no miembros:
-c) El Gerente General Corporativo o a quien este designe, y tendrá voz, pero sin voto en las sesiones.
-d) La Presidencia, o bien, la Vicepresidencia de la Junta Directiva de una Sociedad y su Gerente General o sus representantes, participarán, previa invitación, únicamente durante los segmentos de las sesiones en las que se discutan y analicen temas de sus respectivas entidades, con voz, pero sin voto. En el caso de los representantes de los Gerentes de las Sociedades la designación será responsabilidad de estos.
-e) Cualquier otra persona que, a juicio del Comité, deba asistir en calidad de invitado.
-La no participación de alguna, algunas o todas las personas clasificadas como "otros participantes no miembros" no es motivo para la no realización de la sesión ni para que no se conozcan o resuelvan los temas agendados en la sesión respectiva.
-(Así reformado en sesión N° 6139 del 3 de setiembre de 2024)
+Artículo 37º. Fundamento del Comité Corporativo de Tecnología de Información.
+El Comité Corporativo de Tecnología de Información tiene su fundamento en el Acuerdo Conassif 5-24, Reglamento General de Gobierno y Gestión de la Tecnología De Información. Debe orientarse principalmente a asegurar que las tecnologías de información sean consistentes con la estrategia del Conglomerado Financiero, y contribuyan en la consecución de los beneficios esperados, eficiencia, productividad y competitividad. Asimismo, debe velar por la gobernanza de las T.I y gestionar de forma integral los riesgos relacionados con las tecnologías e información, considerando su naturaleza, complejidad, modelo de negocio, volumen de operaciones, criticidad de sus procesos y la dependencia tecnológica que estas tienen en los procesos de T.I.
+Este Comité debe velar por que los insumos de información y análisis que genera sean empleados para la toma de decisiones.

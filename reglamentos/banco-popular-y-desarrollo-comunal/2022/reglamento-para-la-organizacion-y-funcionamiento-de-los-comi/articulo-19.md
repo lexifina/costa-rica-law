@@ -1,4 +1,3 @@
-Artículo 19º. Recurso de revisión.
-Si alguna persona integrante de un Comité o una Comisión interpone recurso de revisión contra un acuerdo, este se debe resolver al conocerse el acta de la respectiva sesión, salvo que, por considerarlo urgente, la Presidencia opte por conocerlo en una sesión ordinaria adicional.
-El recurso debe plantearse a más tardar al discutirse el acta y se debe resolver en la misma sesión.
-Las simples observaciones de forma no son recursos de revisión, pudiendo formularlas cualquier asistente con voz.
+Artículo 19º. Discusión de temas.
+Los temas por discutir en las sesiones de los Comités Técnico y Comisiones tienen que estar relacionados con los asuntos que sean parte del orden del día. Además, se espera que las intervenciones que se realicen durante las sesiones tengan un enfoque de aportación de valor a las discusiones y no se limiten a reiterar criterios o posiciones previamente emitidas por otros participantes de la sesión, así como procurar la participación de todos los miembros del Comité Técnico o Comisión.
+Luego de votado un asunto no se permite intervención alguna sobre este, excepto el razonamiento del voto.

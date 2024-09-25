@@ -1,3 +1,2 @@
-Artículo 46º. Fundamento del Comité Corporativo de Cumplimiento.
-El Comité Corporativo de Cumplimiento tiene su fundamento en el acuerdo SUGEF 12-21, Reglamento para la Prevención del Riesgo de Legitimación de Capitales, Financiamiento al Terrorismo y Financiamiento de la Proliferación de Armas de Destrucción Masiva, aplicable a los sujetos obligados por el artículo 14 de la Ley 7786.
-Este Comité debe brindar apoyo a la Junta Directiva Nacional en la vigilancia de la gestión eficiente del riesgo de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva.
+Artículo 46º. Fundamento de las Comisiones Especiales.
+Cuando un determinado asunto por la complejidad o importancia no pueda ser estudiado y resuelto inmediatamente en sesiones de Junta Directiva Nacional, esta puede encargarle a una Comisión Especial que se designe expresamente para ello, que rinda dictamen sobre el asunto en cuestión. En el acuerdo de traslado de las comisiones especiales creadas para conocer un asunto concreto, se deberá señalar necesariamente, el término dentro del cual deberá ser presentado el referido informe.

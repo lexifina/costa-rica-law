@@ -1,19 +1,12 @@
-Artículo 39.-Funciones del Comité Corporativo de Nominaciones y Remuneraciones. Son funciones de este Comité:
-a) Supervisar y revisar el diseño y funcionamiento de los sistemas de evaluación del desempeño, de incentivos y de remuneraciones de cada entidad del Conglomerado, de conformidad con lo dispuesto en el Reglamento del Conglomerado sobre el sistema de evaluación del desempeño basado en el Cuadro de Mando Integral (CMI) y en la Política Salarial integral del Conglomerado dictada por la Junta Directiva Nacional, sistemas que deberán ser consistentes con la cultura, estrategia y declaración del apetito de riesgo de la respectiva entidad, supervisión que se lleva a cabo en los términos que indique la ley y demás normativa aplicable.
-b) Orientar el accionar del Conglomerado Financiero en la atención y el seguimiento oportuno de las actividades programadas en el año de gestión, con recomendaciones, criterios y ajustes mediante acuerdos que faciliten a las Juntas Directivas o a la Asamblea de Accionistas tomar las decisiones que correspondan.
-c) Revisar periódicamente la política salarial del Conglomerado Financiero.
-d) Velar por que la herramienta de medición del desempeño implementada garantice el alineamiento de los incentivos con el cumplimiento de los objetivos del Plan Estratégico del Conglomerado Financiero.
-e) Verificar que se defina un límite máximo para el pago del incentivo por el cumplimiento de la herramienta de medición del desempeño.
-f) Velar por que la Gerencia General Corporativa, junto con las Gerencias de las Sociedades, actualice anualmente el Instructivo del proceso para la Evaluación del Desempeño y lo remita para aprobación de la Junta Directiva Nacional.
-g) Verificar la elaboración anual por parte de la Gerencia General, tanto del Banco como de las Sociedades, del estudio de los resultados del Sistema de Evaluación del Desempeño y su aporte al logro de los objetivos estratégicos y demás elementos referenciales relevantes.
-h) Apoyar el proceso de selección de las personas que ocuparán un cargo de Alta Gerencia en el Conglomerado Financiero y de las Áreas de Control, de conformidad con el Procedimiento corporativo para el nombramiento de los miembros del Órgano de Dirección de las Sociedades Anónimas y de la Alta Gerencia del Conglomerado Financiero Banco Popular y de Desarrollo Comunal.
-i) Revisar los perfiles y recomendar a la respectiva Junta Directiva las modificaciones que correspondan de los puestos que conforman la Alta Gerencia y los del Auditor Interno y Subauditor, cuando corresponda.
-j) Velar por la existencia de un plan de sucesión de las personas que conforman la Alta Gerencia, así como las Juntas Directivas, cuando corresponda.
-k) Identificar y postular a los candidatos de las Juntas Directivas de las Sociedades del Conglomerado, tomando en cuenta los criterios y las disposiciones establecidos en la normativa prudencial dictada por el Órgano de Supervisión respectivo, así como los lineamientos que sobre esta materia ha dictado la Junta Directiva Nacional.
-l) Verificar que los integrantes de las Juntas Directivas de las Sociedades sean idóneos, que cuenten con la diversidad de conocimientos, experiencia, disponibilidad y competencias acordes a la importancia sistémica de la entidad financiera, la complejidad de sus operaciones, la estructura de propiedad, la naturaleza jurídica y los mercados en que opera.
-m) Coordinar con la Secretaría General de la Junta Directiva Nacional y con la Administración del Banco la recepción de los documentos de las personas candidatas para ocupar cargos en las Juntas de Crédito Local, procurando que le sean remitidos a la mayor brevedad, a partir del aviso que deberá publicar la Secretaría General por instrucción de la Junta Directiva Nacional.
-n) Recomendar a la Junta Directiva Nacional el nombramiento de las personas que conformarán las Juntas de Crédito Local para el periodo que corresponda.
-o) Llevar a cabo la logística, organización, ejecución y propuesta de integración de las Juntas de Crédito Local. Para desarrollar está función se contará con una unidad especializada la cual estará integrada por la Secretaría General y la Asesoría Jurídica ambas de la Junta Directiva Nacional, quienes se harán acompañar por las áreas de la administración competentes para desarrollar su labor.
-p) Proponer, a la Junta Directiva Nacional, los candidatos a miembros externos de los Comités Técnicos y de Apoyo.
-q) Cualquier otro acuerdo o resolución que sea encomendada por las Juntas Directivas según corresponda, siempre y cuando, se encuentre asociado con sus responsabilidades.
-(Así reformado en sesión N° 5944 del 5 de octubre de 2022)
+Artículo 39º. Funciones del Comité Corporativo de Tecnología de Información.
+El Comité Corporativo de Tecnología de Información debe conocer sobre aquellos asuntos propuestos por la Junta Directiva Nacional, las Juntas Directivas de las Sociedades, la Gerencia General Corporativa, las Áreas de Tecnología de Información del Banco y de las Sociedades, así como, cualquier otro que considere pertinente, relacionados con los roles y responsabilidades de este Comité.
+Las siguientes son funciones de este Comité, pero no limitadas a estas:
+a) Velar por la implementación de los procesos de la gestión de tecnologías de información.
+b) Asesorar en la formulación de las estrategias, metas de tecnologías de información y velar por su cumplimiento.
+c) Proponer las políticas generales con base en el marco de gestión de tecnologías de información.
+d) Recomendar las prioridades para las inversiones en tecnologías de información.
+e) Proponer los niveles de tolerancia al riesgo de tecnologías de información en congruencia con el perfil tecnológico de la entidad.
+f) Velar por que la gerencia gestione el riesgo de tecnologías de información en concordancia con las estrategias y políticas aprobadas.
+g) Analizar el Plan de Acción y sus ajustes que atiendan el reporte de supervisión de tecnologías de
+información.
+h) Dar seguimiento a las acciones contenidas en el Plan de Acción.

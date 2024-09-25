@@ -1,13 +1,4 @@
-Artículo 7º. Dietas.
-Los siguientes Comités y Comisiones devengarán dietas:
-[imagen]
-Las dietas de los Comités y Comisiones se devengarán de conformidad con las disposiciones legales aplicables y/o con lo dispuesto en el Pacto Constitutivo de las Sociedades. Los directores que participan en los Comités y Comisiones devengarán el mismo monto de la dieta que los de la Junta Directiva Nacional.
-La dieta o el estipendio no se pagará en los siguientes casos:
-. A quien esté ausente por cualquier causa.
-. Aquellas personas que tengan una tardía en la sesión por más de 30 minutos.
-. Cuando la persona, de manera ininterrumpida o no, se ausente de la sesión por más de 30 minutos.
-. Cuando se asista a reuniones de Comités o Comisiones que no estén debidamente integradas, según lo indicado en el artículo 5 de este Reglamento.
-. Cuando se solicite un permiso o se esté en misión oficial en representación del Conglomerado.
-Devengarán dieta únicamente los miembros de los Comités y Comisiones que tienen derecho a voz y voto en cada una de las sesiones de estos órganos, siempre y cuando, no correspondan a funcionarios regulares del
-Conglomerado Financiero.
-El monto de las dietas que devengarán los integrantes de los Comités y Comisiones por la asistencia a sesiones será igual al que está señalado para los integrantes de la Junta Directiva Nacional.
+Artículo 7º. Idoneidad y desempeño
+Con el fin de garantizar un adecuado cumplimiento de las funciones y responsabilidades de cada órgano colegiado y en atención a lo establecido en el Acuerdo CONASSIF 15-22, así como en el Manual para la regulación, aplicación y valoración de la Idoneidad y desempeño de los Órganos de Dirección y Alta Gerencia del CFBPDC, todos los directores de las Junta Directivas (Nacional y Sociedades) sus Comités y la Alta Gerencia del CFBPDC, deben de ser idóneos y contar con una buena calificación respecto a su desempeño, según lo establecido en el manual supra citado.
+Es competencia de la Junta Directiva Nacional en calidad de Asamblea de Accionistas, garantizar que el nombramiento de los directores que conformarán los Órganos de Dirección de las Sociedades cumpla con los criterios de idoneidad establecidos en las regulaciones correspondientes. Lo anterior, en alineamiento con el perfil profesional del miembro que establece el Artículo 17 Perfil de los miembros del Órgano de Dirección y el Artículo 21 Evaluaciones del desempeño, ambos del Acuerdo CONASSIF 4-16, Reglamento Sobre Gobierno Corporativo.
+Adicional a lo anterior, se establecen los requisitos de idoneidad deseables para los miembros que conforman cada Comités Técnicos o Comisiones del CFBPDC, esto con el fin de garantizar que los integrantes de los órganos colegiados cuenten con un balance de habilidades, competencias y conocimientos, que de forma individual y colectiva apoyen los análisis de temas especializados que posteriormente se eleva a cada Cuerpo Colegiado para la toma de decisiones, los cuales están establecidos en el Anexo I, Perfil del director del Órgano Colegiado.

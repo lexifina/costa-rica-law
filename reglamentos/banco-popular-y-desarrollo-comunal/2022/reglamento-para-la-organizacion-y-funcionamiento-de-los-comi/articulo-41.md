@@ -1,4 +1,13 @@
-Sección II. Organización y funcionamiento de los Comités de Apoyo.
-Artículo 41º. Fundamento del Comité Corporativo de Tecnología de Información.
-El Comité Corporativo de Tecnología de Información tiene su fundamento en el acuerdo SUGEF 14-17, Reglamento General de Gestión de Tecnología de Información. Debe orientarse principalmente a asegurar que las tecnologías de información sean consistentes con la estrategia del Conglomerado Financiero, y contribuyan en la consecución de los beneficios esperados, eficiencia, productividad y competitividad. Asimismo, debe velar por que los riesgos relacionados con las tecnologías de información sean debidamente conocidos y administrados.
-Este Comité debe velar por que los insumos de información y análisis que genera sean empleados para la toma de decisiones.
+Artículo 41º. Conformación del Comité Corporativo de Cumplimiento.
+El Comité Corporativo Cumplimiento es un cuerpo colegiado integrado de la siguiente manera:
+Miembros con voz y voto:
+a) Mínimo dos y hasta tres directores de la Junta Directiva Nacional, uno de los cuales ejercerá el rol de la Presidencia del Comité.
+b) Un miembro externo quien fungirá como asesor independiente de este comité,
+c) El Gerente General Corporativo.
+d) El Oficial de Cumplimiento, solo con voz.
+e) Un funcionario de alto nivel del área de negocios, o su suplente.
+Otros participantes no miembros con voz, pero sin voto
+a) Un miembro externo quien fungirá como asesor independiente de este comité,
+b) Para los puntos de la agenda en los que se analicen temas de las Sociedades, se debe convocar previa invitación a la Gerencia General de la Sociedad o el representante quien este designe y al oficial de cumplimiento correspondiente.
+c) Cualquier otra persona que, a juicio del Comité, deba asistir en calidad de invitado.
+La no participación de alguna, algunas o todas las personas clasificadas como "otros participantes no miembros" no es motivo para la no realización de la sesión ni para que no se conozcan o resuelvan los temas agendados en la sesión respectiva.

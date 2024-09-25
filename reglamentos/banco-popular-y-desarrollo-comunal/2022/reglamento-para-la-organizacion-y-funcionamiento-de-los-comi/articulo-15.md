@@ -1,4 +1,8 @@
-Artículo 15º. Cuórum.
-El cuórum para que un Comité o una Comisión sesione comprende la mayoría absoluta de sus integrantes, siempre y cuando se encuentre presente al menos una persona integrante de la Junta Directiva Nacional.
-Quienes se abstengan, se computan para efectos de cuórum.
-Los miembros externos que se toman en cuenta para la conformación del cuórum son aquellos que cuenten con voz y voto.
+Artículo 15º. Convocatoria, lugar y frecuencia de las sesiones.
+Las sesiones de los Comités técnicos y Comisiones deben celebrarse en la Sala de Sesiones de Junta Directiva (Nacional y Sociedades) en el domicilio principal de cada entidad según corresponda, salvo que, alguno de estos órganos acuerde celebrarla en otro lugar, o bien de manera virtual mediante la plataforma tecnológica oficial utilizada por el Banco Popular o sus Sociedades, para lo cual, se debe garantizar la colegialidad, simultaneidad, interactividad, integralidad y confidencialidad de las sesiones, además de:
+. Ser llevada a cabo mediante video conferencia que contemple video, audio y datos que garantice una comunicación y participación activa de los miembros.
+. Quién(es) asistan de manera virtual debe permanecer activo durante la celebración de la sesión completa.
+La realización de las sesiones virtuales se efectúa de conformidad con lo establecido en el Reglamento para la Celebración de Sesiones de Órganos Colegiados en Forma Virtual en el Conglomerado Financiero del Banco Popular.
+El presidente de cada Comité técnico o comisión es el encargado de coordinar las convocatorias de las sesiones ordinarias de los órganos colegiados, No obstante, si considera que la reunión no debe celebrarse, así lo debe comunicar a la brevedad a todas las personas que integran ese órgano y a la Secretaría.
+Los comités y comisiones pueden sesionar en forma extraordinaria cuando existan asuntos urgentes que, por sus implicaciones y por el interés público, no convenga posponer hasta la próxima sesión ordinaria Estas sesiones deben ser convocadas por la Presidencia de cada órgano colegiado, o al menos, por tres de sus miembros con voz y voto, quienes para este efecto deben formular una solicitud por escrito especificando el objeto de la sesión y la fecha en que esta debe realizarse.
+La convocatoria a sesiones extraordinarias debe efectuarse con no menos de 24 horas de anticipación a la hora señalada para su realización, salvo casos de urgencia en que decidan sesionar todos los miembros por unanimidad, estando todos presentes.
