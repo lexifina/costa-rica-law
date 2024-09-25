@@ -1,1 +1,0 @@
-Artículo 9º—Una vez constituida la cooperativa en el centro educativo en el que opera, a través del organismo pertinente o el designado para tales efectos por parte de la autoridad escolar competente, deberá proveerle a la asociación cooperativa todas las condiciones y facilidades necesarias para su correcta y oportuna operación.
