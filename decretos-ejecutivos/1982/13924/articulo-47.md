@@ -1,2 +1,0 @@
-ARTÍCULO 47.-La reserva de bienestar social se destinar a sus asociados, a los trabajadores de la asociación y a los familiares inmediatos de unos y otros, para ofrecerles ayuda económica y programas en el campo de la asistencia social.
-Esta reserva también será ilimitada; a su formación se destinará por lo menos un 6% de los excedentes anuales de las cooperativas y para su uso, destino o inversión deberá contarse siempre con la aprobación de la asamblea.

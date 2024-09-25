@@ -1,1 +1,0 @@
-ARTÍCULO 22.-Las asambleas ordinarias y extraordinarias deber n ser convocadas por el gerente, a solicitud del consejo de administración, del comité de vigilancia o de un número de asociados que represente el veinte por ciento del total de los mismos. En caso de una cooperativa con m s de 250 asociados, 50 de ellos podr n pedir que se convoque a asamblea extraordinaria.

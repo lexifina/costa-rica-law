@@ -1,2 +1,0 @@
-ARTÍCULO 3°.-Las cooperativas juveniles son el resultado de la integración de los principios, objetivos, funcionamiento y privilegios de las cooperativas escolares, juveniles y las de producción autogestionaria.
-Para el cumplimiento de sus fines y cuando así lo decida la cooperativa, se podr también asumir modelos de organización cooperativa de cualquier otro tipo y que se encuentre contemplado en la ley número 6756 del 30 de abril de 1982.

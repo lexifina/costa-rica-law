@@ -1,1 +1,0 @@
-ARTÍCULO 62.-La Oficina de Planificación Nacional y Política Económica asignar los recursos de las instituciones públicas necesarios a dicho comité para el fomento de las cooperativas escolares y juveniles mediante la aplicación del artículo 8° de la Ley de Planificación y el Fondo de Desarrollo.

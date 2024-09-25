@@ -1,6 +1,0 @@
-ARTÍCULO 50.-El Ministerio de Educación Pública previa consulta al director del centro educativo, también pedir al tribunal que corresponda, la disolución de las cooperativas que, a su juicio, dejan de llenar los requisitos que para su constitución y funcionamiento señala la ley. Dicha petición ser motivada y se presentar una vez transcurrido un plazo no menor de quince días, ni mayor de tres meses, que se otorgar a la cooperativa a efecto de que pueda evitar su disolución corrigiendo los defectos que se le hubieran señalado.
-Se entenderá que no llena los requisitos mencionados, en los siguientes casos:
-a) Cuando no pudiere iniciar su funcionamiento dentro de los noventa días siguientes a su constitución legal, o no pudieren cumplir sus fines sociales;
-b) Cuando incurrieren en cualquiera de los casos previstos en el artículo 45;
-c) Cuando el número de asociados o el patrimonio social se reduzca a un monto inferior al legal; y
-d) Cuando no distribuyan los saldos o excedentes o no realicen sus inversiones conforme con lo que prescribe esta ley y los estatutos.

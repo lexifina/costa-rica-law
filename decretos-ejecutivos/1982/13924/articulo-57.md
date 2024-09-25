@@ -1,1 +1,0 @@
-ARTÍCULO 57.-La constitución, administración y funcionamiento de las federaciones, se regirán por el presente reglamento en cuanto fuere necesario aplicarlo y por las normas que establezcan sus propios estatutos.
