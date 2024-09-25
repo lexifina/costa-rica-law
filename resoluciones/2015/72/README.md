@@ -19,3 +19,4 @@ Supervisión de la comercialización del suministro eléctrico en baja y media t
 | 4 | 2016-02-18 | Resolución 30 (2016-02-18) |
 | 5 | 2019-12-10 | Resolución 1 (2019-12-10) |
 | 6 | 2020-07-29 | Resolución 190 (2020-07-29) |
+| 7 | 2024-09-25 | Resolución 126 (2024-09-25) |
