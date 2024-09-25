@@ -26,3 +26,4 @@ Arancel de Servicios Profesionales de Consultoría para Edificaciones
 | 11 | 2018-07-03 | Acuerdo 55 (2018-07-03) |
 | 12 | 2021-09-07 | Acuerdo 12 (2021-09-07) |
 | 13 | 2022-09-14 | Decreto Ejecutivo 43709 (2022-09-14) |
+| 14 | 2024-09-25 | SINALEVI (sin norma nombrada) |

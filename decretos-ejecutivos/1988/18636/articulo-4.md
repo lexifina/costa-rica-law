@@ -2,18 +2,15 @@ ARTÍCULO 4°.-Alcances y honorarios de los servicios de consultoría
 A. Consultas profesionales
 La consulta profesional se refiere a una asesoría eventual sobre una materia específica, que el cliente solicita al consultar para obtener una opinión calificada.
 La consulta puede realizar en la oficina del consultor o fuera de ella, en cuyo caso el cliente deber aportar, por su cuenta, los gastos de viaje.
-(*) Los honorarios profesionales de referencia y de uso de discrecional(*) se calcularán con base en el sistema de hora profesional con valor de mil cuarenta y un colones (¢ 1.041,00) en enero de 1987. Este valor se ajustar mediante la aplicación del índice de variación de precios para edificios, promulgado mensualmente por el Ministerio de Economía, Industria y Comercio, cada vez que haya un incremento de 100 puntos en el índice en referencia.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+(*) Los honorarios profesionales se calcularán con base en el sistema de hora profesional con valor de mil cuarenta y un colones (¢ 1.041,00) en enero de 1987. Este valor se ajustar mediante la aplicación del índice de variación de precios para edificios, promulgado mensualmente por el Ministerio de Economía, Industria y Comercio, cada vez que haya un incremento de 100 puntos en el índice en referencia.
 El profesional devengar honorarios durante el tiempo de ida y regreso, ocupado en el desplazamiento desde su oficina hasta el sitio de consulta.
 (*)(Nota de Sinalevi: Mediante acuerdo N° 12 del 07 de setiembre de 2021 el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, se acordó fijar el valor "i" en 30,962 para su aplicación a los honorarios fijados en el Decreto Ejecutivo Nº 18636-MOPT, Arancel de Servicios Profesionales de Consultoría para Edificaciones publicado en La Gaceta N° 225 del 25 de noviembre de 1988 y actualizar el valor de la hora profesional en ¢32.200,00 (treinta y dos mil colones exactos))
 B. Estudios Básicos
 Por Tratarse de servicios realizados por otros profesionales especializados ajenos al consultor -previos al desarrollo de un proyecto-, sus alcances serán definidos para cada tipo de servicio por el "director del proyecto", evaluándose el grado de complejidad. El consultor coordinar , analizar e interpretar el estudio del especialista, antes de incorporarlo al proyecto.
-Los honorarios profesionales de referencia y de uso de discrecional(*) se calcularán con base en el sistema de reintegro de costos más una suma fija o porcentaje de esos costos.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+Los honorarios profesionales se calcularán con base en el sistema de reintegro de costos más una suma fija o porcentaje de esos costos.
 C. Estudios preliminares para anteproyecto
 En cada caso específico y de acuerdo con la complejidad de la obra por realizar, el consultor deber el cliente el alcance de los estudios preliminares, necesarios para realizar posteriormente las distintas etapas del proyecto.
-Los honorarios profesionales de referencia y de uso de discrecional(*) se calcularán por medio de la modalidad de precio global o suma alzada, pero no ser n inferiores a 0,5% del valor estimado de la obra.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+Los honorarios profesionales se calcularán por medio de la modalidad de precio global o suma alzada, pero no ser n inferiores a 0,5% del valor estimado de la obra.
 CH. Proyectos
 Los alcances y honorarios para proyectos se subdividen en la siguiente forma:
 a) Anteproyecto
@@ -24,8 +21,7 @@ Plantas de distribución, cortes, elevaciones, planta de techos, localización y
 Para el caso de un proyecto de urbanización, el anteproyecto debe incluir, como mínimo: una lámina de diseño de sitio con indicación de las vías, lotes y áreas comunales, curvas de nivel, ubicación del terreno con respecto al centro de publicación más cercano, tabla de utilización del terreno, cantidad de lotes y área del lote promedio.
 Además, deberán incluir una estimación de costos basada en las reas, urbanizaciones y los distintos materiales, acabados y sistemas de construcción por emplearse de acuerdo con precios de mercado incluyéndose el costo de las obras y de las instalaciones complementarias indispensables para el normal funcionamiento de la obra.
 Los honorarios para esta etapa se fijan en 1% sobre el valor estimado de la obra (artículo 3°, aparte A).
-Si el contrato originalmente sólo se refiere a la realización del anteproyecto o si el cliente decide suspender el estudio en esta etapa, el honorarios profesionales de referencia y de uso de discrecional(*) corresponder a 1,5% sobre el valor estimado de la obra. (Artículo 3°, aparte A).
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorario")
+Si el contrato originalmente sólo se refiere a la realización del anteproyecto o si el cliente decide suspender el estudio en esta etapa, el honorario corresponder a 1,5% sobre el valor estimado de la obra. (Artículo 3°, aparte A).
 Las láminas de presentación, perspectivas, maquetas, documentos, o cualquier gráfico que el cliente requiera adicionalmente, no estén incluidos en los honorarios y deberán ser sufragados por el cliente, como gasto reembolsable.
 b) Planos de Construcción y especificaciones técnicas
 El juego de planos de construcción y las especificaciones técnicas, deben contener la información gráfica y escrita indispensables para la correcta ejecución de la obra.
@@ -98,8 +94,7 @@ En resumen deber determinarse la siguiente información para planificar el proye
 -Tiempos tempranos y tardíos, y las holguras de las actividades;
 -Diagrama de barras que incluya fechas de inicio y de finalización de las actividades;
 -Flujo de caja.
-La tarifa de honorarios profesionales de referencia y de uso de discrecional(*) para este servicio ser 1% del valor estimado de la obra. (Artículo 3°, aparte A).
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+La tarifa de honorarios profesionales para este servicio ser 1% del valor estimado de la obra. (Artículo 3°, aparte A).
 d) Asesoría para licitación y adjudicación
 La etapa de asesoría para licitación se inicia cuando los planos de construcción, las especificaciones técnicas y el presupuesto, se encuentran debidamente terminados.
 El trabajo consiste en el establecimiento de reglas a los oferentes, para que ,estos puedan presentar sus ofertas de igualdad de condiciones, basadas en requisitos establecidos por el cliente. Dentro de este servicio se establecen las principales condiciones del contrato de construcción; además comprende la evacuación de consultas y aclaraciones que formulen los interesados en relación con los documentos contractuales.
@@ -118,16 +113,13 @@ La tarifa de honorarios por este servicio es 3% sobre el valor final de la obra 
 f) Dirección técnica
 Este servicio involucra, además de lo indicado en el apartado anterior, labores de control de la programación de la obra y de los desembolsos.
 La responsabilidad de la construcción en los aspectos técnicos, la asume el que realiza la dirección técnica de la obra.
-La tarifa de honorarios profesionales de referencia y de uso de discrecional(*), por este servicio, es 5% sobre el valor final de la obra. (Artículo 3°, aparte A).
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+La tarifa de honorarios profesionales, por este servicio, es 5% sobre el valor final de la obra. (Artículo 3°, aparte A).
 g) Administración
 Este servicio incluye, adicionalmente a la dirección técnica, la responsabilidad en el manejo de los recursos financieros, con sistemas adecuados de control que garanticen al cliente un desarrollo normal, técnico y económico, del proceso de construcción. El administrador se compromete a escoger y suministrar, por cuenta del cliente: el personal idóneo, los materiales y equipos especificados y, en general, todo lo necesario para que la obra se realice técnica y económicamente de la manera más favorable para los intereses del cliente.
-La tarifa mínima de honorarios profesionales de referencia y de uso de discrecional(*) para este servicio es 12% sobre el valor mismo de la obra.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+La tarifa mínima de honorarios profesionales para este servicio es 12% sobre el valor mismo de la obra.
 D. Remodelaciones
 Este servicio incluye levantamientos previos, interpretación de planos y desarrollo de nuevos diseños para las obras existentes.
-Por tratarse de un estudio de consultoría que abarca labores más prolongadas y complejas, la tarifa mínima de honorarios profesionales de referencia y de uso de discrecional(*) serán 150% de la tarifa mínima normal, definida, para cada etapa, en este Arancel.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+Por tratarse de un estudio de consultoría que abarca labores más prolongadas y complejas, la tarifa mínima de honorarios profesionales serán 150% de la tarifa mínima normal, definida, para cada etapa, en este Arancel.
 E. Fiscalización de inversiones
 El servicio consiste en la revisión de los planos y documentos técnicos que acompañan la solicitud de un crédito y en el control de los desembolsos por avance de obra. El consultor deber , al menos:
 a) Verificar que los planos cuenten con los permisos de construcción exigidos y se ajusten a los requisitos de la entidad financiera;
@@ -136,8 +128,7 @@ c) Presentar informe escrito y recomendaciones a la entidad financiera;
 ch) Controlar el progreso de la obra para autorizar desembolsos y verificar el cumplimiento de los plazos fijados de ejecución;
 d) Verificar las áreas de construcción y los acabados aprobados;
 e) Presentar un informe final con recomendaciones para liquidar el préstamo otorgado para la construcción.
-La tarifa mínima de honorarios profesionales de referencia y de uso de discrecional(*) por este servicio es 1,5% sobre el valor de la obra; excepto si este servicio se suministrara por el mismo profesional o firma consultora que realiza la inspección, en cuyo caso se considera como parte de la inspección y, por lo tanto, no estar sujeto a honorarios adicional.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+La tarifa mínima de honorarios profesionales por este servicio es 1,5% sobre el valor de la obra; excepto si este servicio se suministrara por el mismo profesional o firma consultora que realiza la inspección, en cuyo caso se considera como parte de la inspección y, por lo tanto, no estar sujeto a honorarios adicional.
 F. Otros servicios
-Por tratarse de servicios muy variados en los que intervienen diversas disciplinas profesionales, el alcance de los mismos se deberán determinar en cada caso específico. Los honorarios profesionales de referencia y de uso de discrecional(*) se definirán por medio de sistema de precios global o suma alzada, o mediante el sistema de reintegro de costos más porcentaje o suma fija.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: " honorarios profesionales")
+Por tratarse de servicios muy variados en los que intervienen diversas disciplinas profesionales, el alcance de los mismos se deberán determinar en cada caso específico. Los honorarios profesionales se definirán por medio de sistema de precios global o suma alzada, o mediante el sistema de reintegro de costos más porcentaje o suma fija.
+(Mediante el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022, se acordó sustituir en este numeral las palabras "honorario" u "honorarios profesionales" por laspalabras "horarios profesionales de referencia y de uso de discrecional". Posteriormente mediante resolución de la Sala Constitucional N° 027918 del 25 de setiembre de 2024 se anuló el decreto ejecutivo N° 43709 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022)

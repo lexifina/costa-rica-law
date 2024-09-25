@@ -1,5 +1,4 @@
-ARTÍCULO 5°.-Variación de honorarios
-Algunos servicios de consultoría, por sus características de escala o tiempo, pueden sufrir variaciones en la forma de cálculo de los honorarios según las siguientes modalidades de actividades.
+ARTÍCULO 5°.-ARTÍCULO 5°.-Variación de honorarios. Algunos servicios de consultoría, por sus características de escala o tiempo, pueden sufrir variaciones en la forma de cálculo de los honorarios según las siguientes modalidades de actividades.
 A. Inspección o dirección técnica prolongadas;
 B. Proyecto prototipo;
 C. Proyecto repetitivo;
@@ -18,8 +17,7 @@ Se entenderá como proyecto repetitivo, todo aquél cuyos planos se aplican cons
 En consecuencia, será necesario hacer los ajustes del caso para adaptar la ubicación de la obra que se repite a las condiciones de un sitio diferente.
 Los honorarios por la adecuación al nuevo terreno quedan cubiertos por el porcentaje establecido para anteproyectos (1,0%); este porcentaje se aplicar en forma plena para cada proyecto. En igual forma, los honorarios correspondientes a supervisión, inspección, dirección técnica, administración y asesoría para licitación y adjudicación, no son susceptibles de reducción al aplicarse a proyectos respectivos.
 La tarifa del proyecto repetitivo se aplicar en consecuencia, únicamente a los servicios de "planos de construcción y especificaciones", "presupuesto" y "programación de obras".
-La reducción de honorarios para proyecto repetitivo se calculará de acuerdo con la siguiente tabla, aplicada como porcentaje del honorarios profesionales de referencia y de uso de discrecional(*) correspondiente a cada unidad del proyecto:
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022. Anteriormente se indicaba: “ honorario”)
+La reducción de honorarios para proyecto repetitivo se calculará de acuerdo con la siguiente tabla, aplicada como porcentaje del honorario correspondiente a cada unidad del proyecto:
 a) Por la primera unidad (unidad original ... ... ... ... ... ... 100%
 b) Por la segunda unidad ... ... ... ... ... ... ... ... ... ... 60%
 c) Por la tercera unidad .... ... ... ... ... ... ... ... .. ... 50%
@@ -31,3 +29,4 @@ a) Anteproyecto ... ... ... ... ... ... ... ... ... ... ... .... 1%
 b) Planos de construcción y especificaciones... ... ... ... ... . 3%
 c) Dirección técnica (incluyéndose el presupuesto y la fiscalización de inversiones) ... ... ... ... ... ... ... ... ... ... ... . 3%
 Dentro de este contexto es aplicable, cuando corresponda, la tarifa para proyecto repetitivo, proyecto prototipo y planos tipo. La definición y utilización de "planos tipo" ser normalizada por la Junta Directiva General del Colegio Federado.
+(Mediante el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022, se acordó sustituir en este numeral las palabras "honorario" u "honorarios profesionales" por laspalabras "horarios profesionales de referencia y de uso de discrecional". Posteriormente mediante resolución de la Sala Constitucional N° 027918 del 25 de setiembre de 2024 se anuló el decreto ejecutivo N° 43709 del 14 de setiembre de 2022, ya citado. Por lo tanto, este artículo recobra su texto antes de la modificación realizada por el artículo 1° del decreto ejecutivo N° 43709 del 14 de setiembre de 2022)
