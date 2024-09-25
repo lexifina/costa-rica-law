@@ -1,6 +1,6 @@
 # Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública
 
-Ley N° 8422 del 2004-10-06. SINALEVI, ficha 53738: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53738&param2=139763&param3=1>.
+Ley N° 8422 del 2004-10-06. SINALEVI, ficha 53738: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53738&param2=142481&param3=1>.
 
 Publicada en La Gaceta N° 212 del 2004-10-29.
 
@@ -23,3 +23,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 13 de 19 | 2022-05-31 | Ley 10225 | 2022-05-05 |
 | 14 de 19 | 2023-09-26 | Ley 10373 | 2023-09-20 |
 | 15 de 19 | 2024-02-08 | Ley 10437 | 2024-01-29 |
+| 16 de 19 | 2024-09-25 | Ley 10523 | 2024-09-09 |
