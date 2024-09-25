@@ -1,0 +1,3 @@
+Artículo 155.- Inexactitud en inscripciones o anotaciones y su saneamiento
+Cuando se determine una inscripción, anotación o afectación improcedentes por informe de la persona interesada o fuere determinado por la persona funcionaria registral, corresponderá corregirla a la mayor brevedad. por parte la persona funcionaria responsable, con vista del documento auténtico que conste en el Registro, el que aporte la parte interesada, o del conjunto de la información que consta registralmente.
+Cuando la corrección eventualmente provoca un perjuicio a terceras personas, la persona funcionaria responsable deberá elaborar un informe, y lo elevará a conocimiento de la Dirección, que iniciará la Gestión Administrativa correspondiente.

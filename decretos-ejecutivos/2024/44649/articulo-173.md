@@ -1,0 +1,1 @@
+Artículo 173.- Resolución final por parte del Tribunal Registral Administrativo. Una vez resuelto lo correspondiente por el Tribunal Registral Administrativo y devuelto el expediente, la persona directora, subdirectora o la Asesora Legal en quien ésta haya delegado, ejecutará la resolución final.

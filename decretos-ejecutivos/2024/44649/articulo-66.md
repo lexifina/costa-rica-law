@@ -1,0 +1,5 @@
+Artículo 66.- Oposición a la calificación registra}
+Cuando la persona notaria pública responsable o la persona legitimada no estuviere de acuerdo con la calificación hecha por la persona registradora, podrá solicitar la calificación formal debidamente fundamentada.
+Las oposiciones deben ser planteadas y fundamentadas jurídicamente, por la persona notaria pública, y como requisito de admisibilidad, deben subsanarse los defectos que no son objeto de oposición. La solicitud de calificación debe ser presentada mientras se encuentre vigente el asiento de presentación.
+La persona registradora respectiva, al recibir el documento con la solicitud de oposición a la calificación, lo valorará nuevamente y de mantener el defecto, inmediatamente lo elevará a la jefatura inmediata.
+Esta jefatura podrá revocar el defecto consignado y ordenará bajo su responsabilidad, la inscripción respectiva. Cuando se confirma el defecto, lo elevará a la persona subdirectora, en el plazo máximo de catorce días naturales, con los fundamentos correspondientes.

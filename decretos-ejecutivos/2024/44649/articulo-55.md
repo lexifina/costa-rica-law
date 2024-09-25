@@ -1,0 +1,2 @@
+Artículo 55.- Solicitud de criterio jurídico
+La persona registradora podrá solicitar a la Asesoría Legal un criterio respecto a los alcances jurídicos de un documento a calificar. Tal solicitud debe constar debidamente fundamentada, previo visto bueno de la jefatura inmediata. Este criterio es vinculante para la persona registradora y mientras es tramitada la consulta, se suspende el término de caducidad del asiento de presentación.

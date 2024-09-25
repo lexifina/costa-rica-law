@@ -1,0 +1,2 @@
+Artículo 15.- Principio de Calificación Unitaria
+La calificación será unitaria y deberá comprender todos los defectos que en ese momento tenga el documento y que impliquen la denegatoria del mismo, debiendo de consignar en la Minuta de Calificación, el fundamento jurídico en que se sustente el defecto. Salvo que, de la información a disposición, exista imposibilidad de efectuar la calificación, o en la atención de una oposición se detecten nuevos defectos.

@@ -1,0 +1,2 @@
+Artículo 14.- Principio de Calificación
+La calificación refiere a la facultad que el ordenamiento jurídico concede a la persona registradora para que, actuando bajo su exclusiva responsabilidad, pueda examinar la legalidad de las formas extrínsecas de los documentos de toda clase, en cuya virtud se solicita la inscripción, así como la capacidad de las personas otorgantes y la validez de los actos dispositivos contenidos en las escrituras públicas, por lo que resulte de ellas y de los asientos del Registro.

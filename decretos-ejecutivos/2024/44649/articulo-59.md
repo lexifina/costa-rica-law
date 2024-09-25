@@ -1,0 +1,3 @@
+Artículo 59.- Acatamiento de los criterios registrales
+La persona directora o subdirectora comunicará mediante circular, aquellas calificaciones, resoluciones de ocursos, resoluciones finales de diligencias administrativas u otros que considere, resulten de aplicación en casos similares que se presenten en el futuro.
+El contenido de tal orden será de acatamiento obligatorio en casos análogos por parte de la persona registradora, a fin de garantizar un principio de unidad de criterio en la calificación registral. Igual carácter tendrán las guías de calificación que se emitan por parte de la Dirección.

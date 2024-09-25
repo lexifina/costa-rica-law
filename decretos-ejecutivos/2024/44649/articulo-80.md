@@ -1,0 +1,2 @@
+Artículo 80.- Extravío de la boleta de seguridad
+El uso y custodia de las boletas de seguridad es responsabilidad única y exclusiva la persona notaria o autoridad respectiva. Todo extravío de boletas de seguridad deberá ser reportado ante la instancia designada, dentro de los tres días siguientes que establece la Ley sobre inscripción de documentos en el Registro Público Nº3883; para proceder a la inhabilitación de estas.

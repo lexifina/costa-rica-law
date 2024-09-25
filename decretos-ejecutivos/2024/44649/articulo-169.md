@@ -1,0 +1,6 @@
+Artículo 169.- Audiencia a las partes interesadas
+A todas las personas interesadas se les notificará la gestión administrativa para que se manifiesten según corresponda a sus intereses, por un plazo de quince días hábiles. El plazo concedido, corre a partir del día siguiente de la notificación o de la publicación del edicto.
+Cuando se desconociera el lugar para notificar a una persona extranjera no domiciliada en Costa Rica y que no cuente con una persona apoderada que lo represente, se dejará constancia y se procederá con la publicación del edicto.
+La notificación se realizará a la dirección actualizada y en el medio de notificación electrónico consignado en el escrito inicial, de lo contrario, se les notificará en los domicilios que consten en los asientos registrales vía correo certificado mediante el sistema de acuse de recibo, el cual se incorpora al expediente respectivo.
+En caso de que la notificación no pueda ser llevada a cabo conforme al sistema de acuses de recibo, se publicará por una sola vez un edicto en el Diario Oficial La Gaceta. En los casos en que se tengan que publicar edictos, los gastos de estos correrán por cuenta de la persona gestionante, en caso de error extra registral.
+La notificación a la persona interesada se realizará en el lugar o por los medios señalados, de acuerdo con el inciso b) del artículo 165, de este reglamento.

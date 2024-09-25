@@ -1,0 +1,3 @@
+Artículo 16.- Sistema y orden de recepción de documentos
+La Dirección de Servicios, por los procedimientos técnicos y tecnológicos de que disponga, llevará un sistema de recepción, que garantice el estricto orden diario de los documentos sujetos a inscripción, además, confeccionará el respectivo asiento de presentación de éstos por su orden, asignándoles el número correlativo que les corresponda, su fecha y hora, para luego proceder con su respectiva digitalización y anotación.
+Para garantizar la autenticidad de los documentos, se podrá utilizar cualquier medio técnico o tecnológico que la Dirección General disponga.

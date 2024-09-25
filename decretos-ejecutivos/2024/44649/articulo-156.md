@@ -1,0 +1,2 @@
+Artículo 156.- Rectificación de la inexactitud por Normalización Técnica
+Al existir una inexactitud en la publicidad de origen registral derivada del proceso de calificación por una persona registradora que no se encuentre activa por motivos de permiso, licencia, vacaciones, cese u otra circunstancia, la actualización de la información, la llevará a cabo la persona analista designada para la rectificación de la inexactitud, remitiendo un correo electrónico a la persona registradora y a la Coordinación de grupo respectiva para su conocimiento, cuando así proceda.

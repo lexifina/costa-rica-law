@@ -1,0 +1,2 @@
+Artículo 81.- Papel de seguridad
+Los documentos notariales físicos que se presenten al Registro para su anotación e inscripción deberán consignarse en el papel de seguridad asignado a la persona notaria ante la que se realizó el acto o contrato en él contenido. En caso de no coincidir el papel de seguridad con el nombre y número de identificación de la persona notaria cartulante, deberá la persona registradora cancelar el asiento de presentación del respectivo documento.

@@ -1,0 +1,3 @@
+Artículo 170.- Resolución final
+Una vez vencidas las audiencias conferidas y si las partes interesadas no han solicitado plazo para subsanar, la persona directora, la subdirectora o la Asesora Legal en quien ésta ha delegado, resolverán dentro del mes siguiente, en resolución debidamente razonada, salvo que la complejidad de éste amerite extender el plazo para resolver, para lo cual se dictará la resolución interlocutoria correspondiente. Esta resolución se notificará a la persona gestionante, así como a las demás personas interesadas que se hubieren apersonado.
+Para los demás, se tendrá por firme veinticuatro horas después de dictada, conforme lo establece la Ley de Notificaciones Judiciales Nº8687.

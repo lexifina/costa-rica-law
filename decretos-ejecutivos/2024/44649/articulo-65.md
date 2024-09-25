@@ -1,0 +1,2 @@
+Artículo 65.- Oposición a la calificación de la persona registradora
+En caso de que la persona notaria pública no estuviere de acuerdo con los defectos anotados por la persona registradora, acudirá ante la coordinación registral, para que les brinde su apreciación con respecto a los defectos anotados. La persona coordinadora registral podrá revocar el defecto y ordenar la inscripción del documento bajo su responsabilidad, fundamentando su revocatoria por los medios técnicos establecidos, con prioridad cuando lo estime pertinente.

@@ -1,0 +1,11 @@
+Artículo 114.- Inscripción de vehículos
+Para la inscripción de vehículos automotores se requiere:
+a) Cuando los vehículos se van a inscribir por primera vez, se debe aportar la escritura pública o solicitud, debidamente autenticada por la persona notaria pública.
+b) Hacer constar la transmisión electrónica del DUA de importación del vehículo, salvo cuando ello no sea posible por la naturaleza del bien o su uso.
+c) Presentar la trasmisión electrónica de la Revisión Técnica y del respectivo pago del derecho de circulación del año vigente, ambas por las entidades competentes. Además, deberá aportarse el documento físico de revisión técnica, en los casos de vehículos importados antes del 27 de febrero del 2008.
+d) En el caso de exención tributaria, debe acreditarse la misma por el Departamento de Exenciones del Ministerio de Hacienda.
+e) Cuando se trate de vehículos destinados al transporte de personas, debe acreditarse la autorización del Consejo de Transporte Público, del Ministerio de Obras Públicas y Transportes, a través del acta, nota u oficio emitido por dicha entidad utilizando los medios tecnológicos disponibles.
+f) Cuando se trata de matrículas asignadas a los automotores de uso diplomático debidamente acreditado por el Ministerio de Relaciones Exteriores, deberán aportar el código e identificación asignado previamente.
+g) Tratándose de remolques y semirremolques ensamblados o fabricados en Costa Rica, deberá presentar la solicitud de inscripción, así como la declaración jurada protocolizada de que la fabricación del remolque o semirremolque fue realizada por éste, consignando la estimación total de la misma y, con base en ésta estimación, deberán cancelar los aranceles correspondientes a la inscripción, así mismo en este documento deberá de eximirse de toda responsabilidad al Registro. Tanto la solicitud
+como la declaración jurada puede realizarse en el mismo instrumento público. De existir traspaso debe aportarse la respectiva escritura pública.
+h) Cumplir con la cancelación de la totalidad de los impuestos y derechos que indique en los términos previstos en la Ley de Aranceles del Registro Nacional Nº4564, para lo cual deberá aportar el entero bancario correspondiente, en el caso de documentos digitales basta con la indicación del número de entero.

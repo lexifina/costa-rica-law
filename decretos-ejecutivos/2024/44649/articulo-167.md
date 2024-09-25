@@ -1,0 +1,3 @@
+Artículo 167.- Nota de advertencia administrativa
+Mientras se realizan las investigaciones que correspondan, la persona directora o subdirectora, o la persona Asesora Legal en quien ésta haya delegado, podrá ordenar, cuando así lo considere, se consigne una nota de advertencia administrativa en la inscripción respectiva en el asiento registral, para efectos de publicidad noticia, sin que impida la inscripción de documentos posteriores.
+Verificado el estudio sin que exista una inexactitud registral, en la resolución que rechace la gestión, se ordenará la inmediata cancelación de la nota de advertencia administrativa.

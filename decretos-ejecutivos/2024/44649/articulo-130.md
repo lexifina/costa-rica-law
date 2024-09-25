@@ -1,0 +1,2 @@
+Artículo 130.- Naturaleza de documento público de las placas y certificados de matrícula.
+Las placas de los vehículos automotores, los títulos de propiedad. así como los certificados de matrícula que se expidan por el Registro Nacional para identificar los demás bienes inscribibles, sea en medio físico o electrónico. constituyen documentos públicos y, en consecuencia, cualquier alteración y falsificación de éstos, serán sancionadas con las penas establecidas en el Código Penal.

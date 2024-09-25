@@ -1,0 +1,2 @@
+Artículo 21.- Reposición de documentos públicos presentados al Registro
+En el caso de destrucción o pérdida de documentos públicos por parte de las personas interesadas, deberá practicarse la inscripción mediante ulterior testimonio expedido por la persona notaria autorizante o el Archivo Notarial. debiendo aportar las copias respectivas para acreditar el pago de timbres; salvo que dicha situación sea atribuible al Registro, en cuyo caso se procederá a la respectiva inscripción, mediante copias microfilmadas o digitalizadas de los mismos.

@@ -1,0 +1,4 @@
+Artículo 160.- Legitimación para solicitar la nota de prevención de inexactitud extra registral.
+La anotación de la nota de prevención de inexactitud extra registral podrá solicitarla una autoridad judicial, la persona interesada, la persona notaria cartulante o la persona afectada, demostrando el interés o la relación con el derecho o bien, que se pretende tutelar y deberá cumplir con los requisitos establecidos para este trámite.
+Cuando faltare algún requisito, se le prevendrá a la persona gestionante, para que lo subsane en un plazo no mayor de quince días hábiles.
+Cuando no cumpliere con lo exigido, se rechazará la solicitud y se archivará el expediente, salvo que el Registro disponga de elementos objetivos que acrediten la existencia de una inconsistencia de origen extra registral y pueda continuar la tramitación de oficio.

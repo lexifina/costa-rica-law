@@ -1,0 +1,3 @@
+Artículo 51. Plazo de calificación
+El plazo para la calificación es de ocho días naturales, contado a partir del día hábil siguiente de la presentación del documento a la Dirección de Servicios, por primera vez o posteriores ingresos, y guardando estricto orden de presentación, procederán las personas registradoras a calificar los documentos que les hubiesen sido entregados para su examen.
+Tratándose un documento declarado como complejo, el plazo de calificación será como máximo de dieciséis días naturales ( el doble del plazo ordinario); contados a partir del día siguiente a la fecha indicada en el asiento de presentación asignado por la Dirección de Servicios.

@@ -1,0 +1,3 @@
+Artículo 172.- Recurso de apelación
+Contra la resolución final procederá el recurso de apelación ante el Tribunal Registral Administrativo, que debe interponerse en la Dirección del Registro de Bienes Muebles, dentro de los cinco días hábiles contados a partir del día siguiente de la notificación de la resolución.
+Presentada en tiempo y forma la apelación, la persona directora o subdirectora, lo admitirá y emplazará por tres días hábiles, a las partes que se hubieren apersonado al proceso ante el Tribunal Registral Administrativo, debiendo remitir el expediente y todos sus antecedentes dentro del plazo de los tres días hábiles siguientes a la notificación de la resolución, que admita el recurso.
