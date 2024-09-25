@@ -1,6 +1,3 @@
-Artículo 19º. Funciones de las Juntas Directivas de las Sociedades.
-Son atribuciones de la Junta Directiva de cada Sociedad de conformidad con lo dispuesto por la ley, los reglamentos externos, su pacto constitutivo y disposiciones de la Junta Directiva Nacional, las siguientes:
-[imagen]
-[imagen]
-[imagen]
-Adicional a las funciones descritas anteriormente, las Juntas Directivas de las Sociedades deberán atender las demás funciones que le asignen las leyes y Entes Reguladores, según corresponda.
+Artículo 19º. Período de nombramiento de las personas que integren las Juntas Directivas de las Sociedades.
+Las personas que integran las Juntas Directivas de las Sociedades Anónimas del Conglomerado Financiero se eligen por un período de dos años y pueden ser reelectas. El período de nombramiento en las Juntas Directivas de las Sociedades puede coincidir con el período para el cual fue nombrada la Junta Directiva Nacional.
+Para el caso de las Sociedades, la persona que se desempeñe en el puesto de Fiscal dura en el cargo dos años y puede ser reelecta.

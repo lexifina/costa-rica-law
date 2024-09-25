@@ -1,3 +1,6 @@
-Artículo 13°. Período de nombramiento de las personas que integren la Junta Directiva Nacional.
-Las personas que integren la Junta Directiva Nacional del Banco Popular, de conformidad con el artículo 16 de su Ley Orgánica, se eligen por un período de cuatro años y podrán ser reelectas.
-De acuerdo con el artículo 17 de la Ley Orgánica del Banco Popular, la Junta Directiva Nacional elegirá cada año, por mayoría de votos, un Presidente(a) y un Vicepresidente(a).
+Artículo 13º. Conformación de la Junta Directiva Nacional.
+La Junta Directiva Nacional es el máximo órgano de dirección del Conglomerado Financiero y se encuentra integrada de la siguiente manera:
+. Tres directores(as) nombrados(as) por el Poder Ejecutivo. Al menos una de esas personas debe ser mujer.
+. Cuatro directores(as) designados(as) por la Asamblea de los Trabajadores y Trabajadoras y ratificados(as) por el Poder Ejecutivo, con igual número de suplentes. Al menos dos deben ser mujeres.
+Con respecto a los directores nombrados por el Poder Ejecutivo, debe existir alternabilidad entre hombres y mujeres.
+La lista de directivos que designe la Asamblea de los Trabajadores y Trabajadoras debe estar integrada al menos por un cincuenta por ciento (50%) de mujeres.

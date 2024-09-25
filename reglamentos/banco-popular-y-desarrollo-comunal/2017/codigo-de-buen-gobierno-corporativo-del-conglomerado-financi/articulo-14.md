@@ -1,8 +1,3 @@
-Artículo 14°. Funciones de la Junta Directiva Nacional.
-De conformidad con lo establecido en la Ley y los reglamentos externos aplicables, son atribuciones de la Junta Directiva Nacional, actuando como tal y en el ejercicio de las funciones de asamblea de accionistas de las sociedades según corresponda, las siguientes:
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-Adicional a las funciones descritas anteriormente, la Junta Directiva Nacional deberá atender las demás funciones que le asignen las leyes y Entes Reguladores, según corresponda.
-La Junta Directiva Nacional dispone del Reglamento para la Organización y Funcionamiento de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal en el que se establecen los lineamientos que regulan su organización y funcionamiento.
+Artículo 14º. Período de nombramiento de las personas que integren la Junta Directiva Nacional.
+Las personas que integren la Junta Directiva Nacional del Banco Popular, de conformidad con el artículo 16 de su Ley Orgánica, se eligen por un período de cuatro años y pueden ser reelectas.
+De acuerdo con el artículo 17 de la Ley Orgánica del Banco Popular, la Junta Directiva Nacional elige cada año, por mayoría de votos, un presidente(a) y un Vicepresidente(a).

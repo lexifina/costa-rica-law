@@ -1,8 +1,2 @@
-Artículo 28°. Tercera Línea de Defensa.
-La Tercera Línea de Defensa corresponde a las Auditorías Internas, tanto del Banco Popular como de las Sociedades que conforman el Conglomerado Financiero, y es el órgano interno de control, técnico e independiente, encargado de revisar y analizar en forma objetiva la ejecución de las operaciones de cada una de las entidades, de manera que facilita el enfoque sistemático para evaluar y mejorar la eficiencia de los sistemas de administración de riesgos, control y procesos de gobemanza.
-La Auditoría Interna del Banco Popular reporta a la Junta Directiva Nacional mediante el Comité Corporativo de Auditoría. Asimismo, las Auditorías Internas de las Sociedades reportan a la respectiva Junta Directiva mediante este Comité.
-Como complemento a las funciones establecidas en la Ley General de Control Interno, y otra legislación y/o normativa aplicable a la función de auditoría interna, le corresponderá a la Auditoría Interna del Banco y de las Sociedades, las siguientes funciones, pero no limitadas a estas:
-a) Evaluar la eficacia y eficiencia del sistema de control interno, la gestión de riesgos, así como, los sistemas y procesos de gobierno corporativo del Banco y de las Sociedades, según corresponda.
-b) Contar con personal con experiencia, competencias, cualidades y recursos acordes con las actividades y riesgos del Banco y de las Sociedades, según corresponda.
-c) Asegurar que los informes de auditoría interna se comuniquen a la respectiva Junta Directiva y al Comité Corporativo de Auditoría.
-d) Evaluar periódicamente el marco de gobierno de riesgo.
+Artículo 28º. Apetito al riesgo.
+La Junta Directiva Nacional debe aprobar y dar seguimiento al Apetito de Riesgo, así como asegurar su alineamiento con los objetivos, la estrategia, el capital, los planes financieros y las prácticas de remuneración e incentivos del Conglomerado Financiero.

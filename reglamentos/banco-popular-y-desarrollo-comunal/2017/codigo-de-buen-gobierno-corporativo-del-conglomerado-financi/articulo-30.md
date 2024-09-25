@@ -1,4 +1,2 @@
-CAPÍTULO III
-APETITO AL RIESGO
-Artículo 30º. Estrategia de gestión integral de riesgos.
-La Junta Directiva Nacional es responsable de aprobar y mantener una estrategia de gestión integral de riesgos y políticas asociadas, cerciorándose de su comunicación e implementación por las áreas del Conglomerado Financiero, además, debe velar por el desarrollo de una Cultura de Riesgo, la formulación de la Declaración de Apetito de Riesgo y la definición de las responsabilidades sobre la gestión y control de riesgos.
+Artículo 30º. Sobre el cumplimiento normativo.
+El Conglomerado Financiero está comprometido con el cumplimiento de la legislación y la normativa tanto interna como externa que le sea aplicable a sus procesos, y verifica que los procedimientos internos sean coherentes a fin de prevenir el incumplimiento.

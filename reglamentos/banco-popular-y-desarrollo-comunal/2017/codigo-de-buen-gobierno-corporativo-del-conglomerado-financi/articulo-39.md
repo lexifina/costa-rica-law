@@ -1,4 +1,2 @@
-Artículo 39°. Sobre la sostenibilidad.
-El Conglomerado Financiero se encuentra comprometido con la sostenibilidad, mediante lo siguiente:
-• Sostenibilidad integral: El Conglomerado Financiero está comprometido a impulsar el desarrollo económico, social y ambiental, en alineación con las mejores prácticas de sostenibilidad en su estrategia, operaciones crediticias y entorno.
-• Proveedores sostenibles: El Conglomerado Financiero está comprometido a establecer relaciones comerciales con proveedores sólidos y competitivos que cumplan con sus obligaciones tributarias y sociales, y que se encuentren comprometidos con la conservación del ambiente.
+Artículo 39º. Políticas de la Gobernanza Corporativa
+La Junta Directiva Nacional es el Órgano responsable de aprobar un marco normativo de Gobernanza Corporativa que fortalezca la gestión y la mejora continua de la gobernanza en el CFBPDC. Las normas internas de Gobernanza Corporativa son de acatamiento obligatorio; así mismo, las dependencias responsables deben asegurar su entendimiento, implementación y mejora hacia las partes interesadas.

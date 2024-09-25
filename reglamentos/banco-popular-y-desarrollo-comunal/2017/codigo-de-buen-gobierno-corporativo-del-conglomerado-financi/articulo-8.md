@@ -1,7 +1,4 @@
-Artículo 8°. Gestión Política y Estratégica del Conglomerado Financiero.
-Los siguientes órganos conforman la Gestión Política y Estratégica del Conglomerado Financiero:
-• Asamblea de Trabajadores y Trabajadoras
-• Junta Directiva Nacional
-• Comités Técnicos, de Apoyo y Comisiones
-• Juntas Directivas de las Sociedades
-En los siguientes artículos se detalla la integración y las funciones de cada uno de estos órganos.
+Artículo 8º. Estructura y organización del Gobierno Corporativo del Conglomerado Financiero.
+La clave para un buen Gobierno Corporativo radica en su estructura y organización, para ello el CFBPDC dispone de un Modelo de la Gobernanza Corporativa, el cual se encuentra alineado al marco de Gobierno Corporativo y sus principios establecidos por la Organización para la Cooperación y Desarrollo Económico (OCDE); así como la normativa externa vigente y la normativa interna.
+Dicho modelo tiene como fin fortalecer el estado actual de la gobernanza corporativa del CFBPDC, mediante una eficiente gestión de las estructuras de autoridad, un marco de gobierno robusto, la efectiva rendición de cuentas; así como transparencia oportuna. Todo lo anterior contribuyendo a las necesidades de las partes interesadas; y a una mejor toma de decisiones por parte de las estructuras de autoridad, según lo establecido en la normativa "Metodología para la definición y medición del sistema de gestión de la efectividad de la Gobernanza de los órganos de colegiados del CFBPDC."
+La Estructura de Gobernanza del CFBPDC se detalla en el Anexo I de este documento.

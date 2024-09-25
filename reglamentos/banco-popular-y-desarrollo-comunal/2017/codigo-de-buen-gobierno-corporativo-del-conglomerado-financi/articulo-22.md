@@ -1,6 +1,3 @@
-Artículo 22°. Gestión Gerencial del Conglomerado Financiero.
-Las siguientes gerencias y subgerencias conforman la Gestión Gerencial del Conglomerado Financiero:
-• Gerencia General Corporativa
-• Dirección General Corporativa
-• Subgerencias del Banco Popular
-• Gerencias de las Sociedades
+Artículo 22º. Rendición de cuentas
+Con el fin de lograr una efectiva rendición de cuentas por parte de los Órganos Colegiados del CFBPDC, el Área de Gobierno Corporativo debe presentar trimestralmente un informe a cada Comité Técnico o Comisión en el cual detalle los resultados de la gestión de la efectividad de cada Órgano Colegiado, para posteriormente elevar semestralmente esta información ante la Junta Directiva Nacional; lo anterior, con el fin de validar el cumplimiento de los roles y responsabilidades establecidas en las normas que regulan el funcionamiento de cada Comité Técnico o Comisión y de los Órganos de Dirección del CFBPDC.
+Para el análisis del resultado de la gestión de la efectividad se debe considerar los indicadores establecidos en la norma interna "Metodología para la definición y medición del sistema de gestión de la efectividad de la Gobernanza de los órganos de colegiados del CFBPDC."

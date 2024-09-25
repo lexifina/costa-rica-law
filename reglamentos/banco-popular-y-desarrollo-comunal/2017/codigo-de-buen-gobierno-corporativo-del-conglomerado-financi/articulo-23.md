@@ -1,3 +1,5 @@
-Artículo 23° . Jefatura superior del Conglomerado Financiero.
-La Gerencia General Corporativa es el Jerarca superior administrativo del Banco Popular y ejerce un rol de coordinación corporativa con todas las entidades que conforman el Conglomerado Financiero, excepto de las respectivas Auditorías Internas, así como, de la Dirección Corporativa de Riesgos, Oficialías de Cumplimiento y Jefatura del Área de Cumplimiento Normativo y Regulatorio. Es el coordinador del Conglomerado Financiero en conjunto con los respectivos gerentes de las sociedades, y dentro de sus potestades coordina el alineamiento de las estrategias de las Sociedades con la del Conglomerado, de manera tal, que se cumpla con los lineamientos de gobernanza aprobados por la Junta Directiva Nacional.
-Como parte de sus responsabilidades, le corresponde integrar los procesos de negocio y operativos del Conglomerado Financiero con el fin de lograr una mayor eficiencia y evitar la duplicación de funciones.
+Artículo 23º. Alta Gerencia del Conglomerado Financiero.
+La Alta Gerencia del CFBPDC está conformada por:
+. Gerencia General Corporativa
+. Subgerencias del Banco Popular
+. Gerencias de las Sociedades

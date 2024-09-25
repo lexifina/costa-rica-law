@@ -1,4 +1,5 @@
-Artículo 18º. Período de nombramiento de las personas que integren las Juntas Directivas de las Sociedades.
-Las personas que integran las Juntas Directivas de las Sociedades Anónimas del Conglomerado Financiero se eligen por un período de dos años y podrán ser reelectas.
-El período de nombramiento en las Juntas Directivas de las Sociedades puede coincidir con el período para el cual fue nombrada la Junta Directiva Nacional.
-Para el caso de las Sociedades, la persona que se desempeñe en el puesto de Fiscal durará en el cargo dos años y podrá ser reelecta.
+Artículo 18º. Conformación de las Juntas Directivas de las Sociedades.
+La Junta Directiva de cada Sociedad debe estar integrada por cinco (5) miembros, salvo la Junta Directiva de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A., que se conforma con siete (7) miembros.
+Las Juntas Directivas de las Sociedades están conformadas por los siguientes cargos; Presidente(a), Vicepresidente(a), Secretario(a), Tesorero(a), Fiscal y Vocal, salvo en el caso de la Operadora de Pensiones,
+donde debe haber tres (3) Vocales.
+Las Juntas Directivas de las Sociedades son presididas por directores de la Junta Directiva Nacional.

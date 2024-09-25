@@ -1,4 +1,5 @@
-Artículo 35°. Sobre el trato con los/las copropietarios(as) del Banco Popular.
-El Banco Popular es propiedad de los trabajadores y las trabajadoras del país por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos.
-Como consecuencia del principio de transparencia e igualdad que guía la actuación del Conglomerado Financiero, el Banco Popular debe procurar que todos sus copropietarios y copropietarias puedan tener acceso a una información correcta, veraz, oportuna y sustancialmente igual dentro del mismo espacio de tiempo.
-Tratándose de las Sociedades que integran el Conglomerado, el Banco Popular es su único accionista.
+Artículo 35º. Sobre la selección, capacitación y remuneración.
+El Conglomerado Financiero se encuentra comprometido con la selección, capacitación y remuneración, mediante lo siguiente:
+. Selección: El Conglomerado Financiero efectúa procesos objetivos de captación y selección de personal basados en criterios de igualdad, e inclusividad, en consideración de las necesidades organizacionales y los requisitos de los puestos. Esto con el fin de atraer e incorporar el mejor talento en cada área del Conglomerado Financiero.
+. Capacitación: El Conglomerado Financiero promueve la actualización y adquisición de conocimiento del personal conforme a la estrategia corporativa, para la consecución de los objetivos y metas.
+. Remuneración: El Conglomerado Financiero cuenta con esquemas de remuneración alineados con la normativa aplicable, a fin de promover la equidad interna y la competitividad externa; así como, retener y atraer el talento clave. Esto con el fin de maximizar la productividad del personal y apoyar el cumplimiento de los objetivos estratégicos.
