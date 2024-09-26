@@ -1,0 +1,5 @@
+Artículo 10- Solución de diferencias.
+10.1 Salvo disposición expresa en contrario en el presente Acuerdo, para las consultas y la solución de las diferencias en el ámbito del mismo serán de aplicación las disposiciones de los artículos XXII y XXIII del GATT de 1994, desarrolladas y aplicadas por el Entendimiento sobre Solución de Diferencias (ESD).17
+17 Para la solución de las diferencias en el ámbito del presente Acuerdo no serán de aplicación los apartados 1 b) y 1 c) del artículo XXIII del GATT de 1994 ni el artículo 26 del ESO.
+10.2 Sin perjuicio de lo dispuesto en el párrafo 1, para las consultas y la solución de las diferencias en el ámbito de los artículos 3, 4 y 5 del presente Acuerdo serán de aplicación las disposiciones del artículo 4 del Acuerdo SMC.18
+18 A los efectos del presente artículo, la expresión "subvención prohibida" empleada en el artículo 4 del Acuerdo SMC se refiere a las subvenciones sujetas a la prohibición establecida en el artículo 3, el artículo 4 o el artículo 5 del presente Acuerdo.
