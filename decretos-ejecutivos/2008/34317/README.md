@@ -20,3 +20,4 @@ Reglamento de los Requisitos de Graduación para optar por el Título del Técni
 | 5 | 2021-02-24 | Decreto Ejecutivo 42902 (2021-02-24) |
 | 6 | 2021-12-01 | Decreto Ejecutivo 43299 (2021-12-01) |
 | 7 | 2023-06-02 | Decreto Ejecutivo 44691 (2023-06-02) |
+| 8 | 2024-09-26 | Decreto Ejecutivo 44692 (2024-09-26) |

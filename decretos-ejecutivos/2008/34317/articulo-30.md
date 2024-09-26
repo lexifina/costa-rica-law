@@ -1,2 +1,2 @@
-Artículo 30.-En la nota final de la Prueba Escrita Comprensiva se tomará un 50% como nota de presentación, la cual se obtendrá del promedio de las notas obtenidas en los tres niveles de formación (décimo, undécimo y duodécimo), que corresponde a las subáreas que integran el plan de estudio de la especialidad técnica. Los alumnos de años anteriores mantendrán la ponderación de la nota de presentación obtenida en los años en que fue estudiante regular de la institución.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 44691 del 2 de junio del 2023)
+Artículo 30.- Para aprobar la Prueba Escrita Comprensiva Estandarizada de Especialidades Técnicas se requiere una nota final mínima de 70, resultado de la sumatoria de la prueba propiamente dicha y la nota de presentación correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44692 del 26 de setiembre del 2024)
