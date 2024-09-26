@@ -19,4 +19,6 @@ k. El fiador extranjero debe contar con cédula de residencia permanente de libr
 (Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
 l. La condición de fiador único podrá ser realizada solamente por costarricenses.
 (Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+m. Los solicitantes que realicen sus estudios en el exterior de forma presencial, podrán ser fiadores de su propio préstamo cuando expresamente la empresa en la que labora indica en la constancia salarial que se le otorga un permiso con o sin goce salarial durante el período de estudios financiado. Este tipo de garante no podrá ser ni fiador único ni con ingresos propios.
+(Así adicionado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)
 Las condiciones de cobertura se establecen en el PAGC.

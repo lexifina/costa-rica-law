@@ -1,6 +1,5 @@
 CAPÍTULO III: CONDICIONES CREDITICIAS
-14. ARTÍCULO Autorización y aceptación de condiciones del solicitante o prestatario
-El solicitante y/o el prestatario autorizan y aceptan las siguientes condiciones, para tramitar la Solicitud de Préstamo y/o la Solicitud del Desembolso:
+14. ARTÍCULO Autorización y aceptación de condiciones del solicitante o prestatario. El solicitante y/o el prestatario autorizan y aceptan las siguientes condiciones, para tramitar la Solicitud de Préstamo y/o la Solicitud del Desembolso:
 a. Conocer la totalidad de requisitos y documentación necesaria para el llenado de la Solicitud de préstamo y/o de la Solicitud del desembolso.
 b) La solicitud de préstamo junto con la documentación que se solicite debe ser presentada y enviada en línea a CONAPE por los medios previamente establecidos.
 (Así adicionado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
@@ -10,12 +9,14 @@ d. Ser contactado por CONAPE vía telefónica, correo electrónico, correo posta
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso c) al inciso d))
 e. Los datos suministrados en la solicitud son verdaderos y en caso de cualquier inconsistencia o inexactitud, faculta a CONAPE a rechazarla sin responsabilidad alguna.
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso d) al inciso e))
-f. Depositar el monto del desembolso correspondiente, según los mecanismos que CONAPE habilite, en la cuenta de ahorros del prestatario.
-(Así reformado el inciso anterior mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+f. CONAPE depositará el monto del desembolso correspondiente en la entidad financiera autorizada por CONAPE y en la cuenta de ahorros del prestatario, según los mecanismos habilitados por CONAPE.
+(Así reformado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso e) al inciso f))
-g. Solicitar directamente a la entidad educativa en la que realiza los estudios, el historial académico, los informes de matrícula, los informes de calificaciones por ciclos lectivos, el estado de no deuda con la universidad y otra información adicional de la universidad que se requiera.
+g. CONAPE solicitará directamente a la entidad educativa en la que realiza los estudios, el historial académico, los informes de matrícula, los informes de calificaciones por ciclos lectivos, el estado de no deuda con la universidad y otra información adicional de la universidad que se requiera.
+(Así reformado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso f) al inciso g))
-h. Deducir de los desembolsos el costo de la póliza colectiva sobre saldos deudores.
+h. CONAPE deduce de los desembolsos el costo de la póliza colectiva sobre saldos deudores.
+(Así reformado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso g) al inciso h))
 i. Aceptar pagar la comisión de crédito por concepto de gastos administrativos que CONAPE establezca.
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso h) al inciso i))
@@ -32,3 +33,5 @@ m. La desestimación de una solicitud de préstamo se realizará según se estab
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso l) al inciso m))
 n. La desestimación de una solicitud de crédito se realizará según se establezca en el proceso de aprobación de crédito.
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso m) al inciso n))
+o. CONAPE podrá revisar la información crediticia del solicitante y validar la información presentada, cuando así lo considere necesario mediante los medios disponibles con que cuente la institución para reforzar el análisis crediticio y toma de decisiones.
+(Así adicionado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)

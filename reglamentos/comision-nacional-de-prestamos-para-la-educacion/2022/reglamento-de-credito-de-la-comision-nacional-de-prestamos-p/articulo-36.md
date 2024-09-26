@@ -1,2 +1,1 @@
-36. ARTÍCULO Del control de los recursos.
-El Departamento de Crédito mantendrá un control de los recursos pertenecientes al FAC, considerando las diversas fuentes de ingresos del fondo tales como: aportes, intereses sobre las inversiones que se puedan realizar sobre este fondo, recuperaciones, las colocaciones y las descolocaciones de préstamos, a fin de que no se registre un sobregiro del FAC.
+36. ARTÍCULO Del control de los recursos.(Derogado en sesión N° 26 del 26 de setiembre de 2024)

@@ -1,3 +1,2 @@
-25. ARTÍCULO Capacidad de Fianza
-El salario bruto o ingreso neto (ingresos propios) mínimos para otorgar fianzas, no podrán ser inferiores a lo establecido en el PAGC.
-La capacidad total de un fiador asalariado no podrá sobrepasar en diez (10) veces su salario bruto reportado, salvo casos justificados por el analista del crédito, de acuerdo con los límites establecidos en el Reglamento de Crédito.
+25. Artículo. Capacidad de Fianza. El salario de las personas propuestas como fianza de préstamos no podrá ser inferior al límite superior del primer intervalo de la Tabla de Factor de Ingreso Neto Familiar establecida en el PAGC, ni sobrepasar en doce (12) veces su salario bruto reportado a la CCSS o mediante Contador Público Autorizado, salvo excepciones establecidas en el Reglamento de Crédito.
+(Así reformado en sesión N° 26 del 26 de setiembre de 2024)
