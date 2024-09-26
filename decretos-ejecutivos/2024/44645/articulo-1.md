@@ -1,0 +1,13 @@
+N° 44645-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 08 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta N° 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios N° 4755.
+Considerando
+I.-Que el artículo 32 de la Ley de Asociaciones N° 218 de 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.-Que la Asociación Benéfica Hogar de Ancianos Hortensia Rodríguez Sandoval de Bolaños, cédula de persona jurídica número 3-002-045482, se inscribió en el Registro Nacional el doce de julio del dos mil cinco, al tomo 1, asiento 21.
+III.-Que los fines que persigue la Asociación, según sus estatutos son: "UNO) Brindar atención integral y servicios de larga estancia a las personas adultas mayores prioritariamente del cantón de Atenas bajo las siguientes condiciones: a. Sin recursos económicos en condición de abandono, pobreza extrema y pobreza que carecen de familiares o que por razones especiales no pueden ser atendidos por estos; b. Con recursos económicos que carecen de familiares o que por situaciones especiales no pueden ser atendidos por estos y que, demanden de la atención de un Centro - Hogar de larga estancia. DOS) Promover ante la familia y la comunidad en general, una actitud de reconocimiento, atención, respeto y comprensión hacia las personas adultas mayores del canton de Atenas. TRES) Desarrollar programas y actividades que promuevan en la persona adulta mayor: calidad de vida. Interrelaciones, sociales, culturales, espirituales y valores de su experiencia como personas."
+IV.-Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense. Por tanto;
+DECRETAN DECLARATORIA DE UTILIDAD PÚBLICA
+DE LA ASOCIACIÓN BENÉFICA HOGAR DE ANCIANOS
+HORTENSIA RODRÍGUEZ SANDOVAL DE BOLAÑOS
+Artículo 1º-Declárese de utilidad pública para los intereses del Estado a la Asociación Benéfica Hogar de Ancianos Hortensia Rodríguez Sandoval de Bolaños, cédula de persona jurídica número 3-002-045482.
