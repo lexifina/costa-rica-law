@@ -1,1 +1,0 @@
-Artículo 7°—Presidencia. La Comisión sesionará bajo la dirección del Presidente, y en ausencia de éste, presidirá la reunión en forma "ad-hoc" quien designen los integrantes de la Comisión a ese efecto.

@@ -1,1 +1,0 @@
-Artículo 10.—Invitados. La Comisión podrá recibir a funcionarios de la Institución que muestren interés en tratar asuntos relacionados con la distribución, mantenimiento, adquisición o manejo del material de la naturaleza informática. La audiencia se concederá previa solicitud ante el Presidente, quien fijará el día y la hora de la reunión.

@@ -1,1 +1,0 @@
-Artículo 19.—El presente Reglamento deroga el Reglamento Interno de la Comisión de Informática de la Imprenta Nacional, aprobado por la Junta Administrativa de la Imprenta Nacional por Acuerdo Nº 2095-02-06 de sesión ordinaria Nº 172 del 15 de febrero del 2006, así como toda aquella directriz o disposición que se le oponga.
