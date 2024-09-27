@@ -1,0 +1,2 @@
+Artículo 74. Traslado de denuncias.
+Las denuncias presentadas ante la Auditoría Interna que versen sobre asuntos disciplinarios relacionados con las personas trabajadoras de BCR LEASING PREMIUM PLUS S.A., son trasladadas para el trámite que corresponda a la unidad o departamento que define la administración, con indicación expresa de los artículos de la Ley General de Control Interno y de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública n°8422, la cual comunica al denunciante lo que corresponda.

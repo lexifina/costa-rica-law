@@ -1,0 +1,4 @@
+Artículo 45. Servicios de asesoría.
+Los servicios de asesoría son los hallazgos, opiniones o elementos de juicio que brinda el auditor a solicitud expresa y preferiblemente por escrito, del jerarca, para la toma de sus decisiones, sin comprometer la independencia y objetividad de la Auditoría Interna en el desarrollo posterior de sus competencias. Queda a criterio del auditor interno proporcionar estos servicios ante solicitudes de otros niveles de la administración activa.
+En los casos en donde se presenten solicitudes de la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., los objetivos y alcance del trabajo, se deben establecer en el acuerdo respectivo de la Junta Directiva de BCR LEASING PREMIUM PLUSS.A.
+En caso de modificaciones o ampliaciones de las solicitudes, éstas deben ser definidas y formalizadas mediante acuerdo de la Junta Directiva de BCR LEASING PREMIUM PLUS S.A.

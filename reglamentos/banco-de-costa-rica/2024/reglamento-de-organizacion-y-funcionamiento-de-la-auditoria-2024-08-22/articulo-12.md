@@ -1,0 +1,2 @@
+Artículo 12. Remoción del auditor interno.
+El auditor interno tendrá garantía de inamovilidad en los términos estipulados por el artículo 15 de la Ley Orgánica de la Contraloría General de la República y su nombramiento, suspensión y remoción se realizará, según proceda, conforme al artículo 15 mencionado, al 31 de la Ley General de Control Interno y a la normativa que al respecto dicte la Contraloría General de la República para la actividad de auditoría interna en el Sector Público.

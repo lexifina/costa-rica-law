@@ -1,0 +1,4 @@
+Artículo 56. De los informes dirigidos al Jerarca.
+Para los informes dirigidos a la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., se tiene un plazo de treinta días hábiles improrrogables, contados a partir de la fecha de recibido del informe, para que se ordene al titular subordinado que corresponda la implantación de las recomendaciones tal como lo establece el la Ley General de Control Interno n°8292.
+Si la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., discrepa de las recomendaciones de la Auditoría Interna, se debe proceder conforme lo dispuesto al respecto, en la Ley General de Control Interno n°8292 y comunicar a la auditoría indicando el nombre de los responsables y el plazo estimado para ponerlas en ejecución.
+En caso de que la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., ordenen soluciones distintas de las recomendadas, la Auditoría Interna debe valorar la procedencia de seguir el trámite establecido en la Ley General de Control Interno n°8292.

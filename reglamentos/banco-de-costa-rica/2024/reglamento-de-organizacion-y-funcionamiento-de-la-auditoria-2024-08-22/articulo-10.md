@@ -1,0 +1,5 @@
+Artículo 10. Nombramiento del auditor interno.
+El auditor interno es nombrado por tiempo indefinido por la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., tal como lo establece la Ley General de Control Interno n°8292, y los lineamientos o directrices vigentes que emita la Contraloría General de la República al respecto.
+El nombramiento a plazo indefinido está sujeto al periodo de prueba que regule la normativa interna de la empresa, que en lo relativo a estos efectos debe ser congruente con lo aplicable a otras personas trabajadoras dependientes directamente de la Junta Directiva de BCR LEASING PREMIUM PLUS S.A.
+Las regulaciones de BCR LEASING PREMIUM PLUS S.A., deben establecer los criterios aplicables para el nombramiento temporal del auditor interno, estableciendo cuando se amerita el nombramiento de un funcionario interino en la plaza respectiva.
+Tanto el nombramiento a plazo indefinido como de forma interina, se debe dar conforme a lo dispuesto en los lineamientos o directrices vigentes que emita la Contraloría General de la República al respecto.

@@ -1,0 +1,2 @@
+Artículo 62. Comparecencia de los auditores en el proceso administrativo.
+Las personas trabajadoras de la Auditoría Interna que lleven a cabo las investigaciones preliminares y confección del informe de relación de hechos u otro informe, pueden comparecer ante la autoridad competente interna en su carácter exclusivo de expertos calificados, y explicar, sobre las eventuales dudas que del informe surjan, en el curso del procedimiento administrativo en el ámbito de la materia en investigación.

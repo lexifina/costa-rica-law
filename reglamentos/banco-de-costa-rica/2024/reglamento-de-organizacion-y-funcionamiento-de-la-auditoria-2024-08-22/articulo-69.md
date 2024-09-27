@@ -1,0 +1,3 @@
+Artículo 69. Solicitud de aclaración.
+En caso de determinar la Auditoría Interna que existe imprecisión de los hechos, se otorga al denunciante un plazo no menor de diez días hábiles para que complete su información.
+De no satisfacer el requerimiento de la Auditoría Interna, ésta podrá valorar el archivo o la desestimación de la gestión, sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

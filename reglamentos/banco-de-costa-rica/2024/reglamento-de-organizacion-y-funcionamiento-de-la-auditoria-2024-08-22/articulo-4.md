@@ -1,0 +1,4 @@
+Artículo 4. Declaraciones sobre otros asuntos que pueden afectar la independencia o causar conflicto de intereses.
+Como complemento de lo indicado en el artículo tres, cada persona trabajadora de la Auditoría Interna de BCR LEASING PREMIUM PLUS S.A., debe firmar una declaración jurada anual en donde manifieste que no está prestando servicios profesionales a terceros y que es miembro activo del colegio profesional que corresponda a su profesión liberal, con el pago de la colegiatura al día.
+Debe firmar una declaración jurada anual en donde manifieste el compromiso de comunicar a quien corresponda, si existiera alguna situación antes o durante la ejecución del trabajo que afecte su independencia.
+También debe manifestar el compromiso con la confidencialidad en el ejercicio de sus funciones y que posee amplio conocimiento de la normativa interna y externa aplicable y las posibles sanciones a las que está sujeto en caso de incumplimientos.

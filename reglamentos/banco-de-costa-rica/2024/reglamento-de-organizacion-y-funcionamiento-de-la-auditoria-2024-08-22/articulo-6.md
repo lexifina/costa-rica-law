@@ -1,0 +1,2 @@
+Artículo 6. Participación del auditor interno en sesiones de Junta Directiva de BCR LEASING PREMIUM PLUS S.A. o de otra índole.
+El auditor interno debe participar en las sesiones o reuniones de la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., o Gerencia General, cuando estos órganos lo soliciten o cuando lo estime apropiado para el cabal cumplimiento de sus funciones. Su participación corresponde al papel de asesor en materia de su competencia.

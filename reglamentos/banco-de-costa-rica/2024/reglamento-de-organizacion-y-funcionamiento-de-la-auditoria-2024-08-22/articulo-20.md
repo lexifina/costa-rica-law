@@ -1,0 +1,3 @@
+Artículo 20. Obligación o responsabilidad del auditor interno de presentar avances del plan estratégico, plan anual de operaciones y plan anual de trabajo.
+El auditor interno tiene la obligación o responsabilidad de presentar para conocimiento del Comité Corporativo de Auditoría del Banco de Costa Rica y de la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., los avances periódicos o el cierre anual del plan de labores, plan operativo anual y plan estratégico.
+Así mismo, debe presentar ante el Comité Corporativo de Auditoría del Banco de Costa Rica y posteriormente a la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., el informe anual de labores establecido en la Ley General de Control Interno n°8292.

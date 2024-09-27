@@ -1,0 +1,3 @@
+Artículo 36. Competencias para ejercer la vigilancia del cumplimiento normativo.
+La Auditoría Interna tiene competencia para verificar en lo pertinente, el cumplimiento de las disposiciones legales y reglamentarias que rigen la Subsidiaria y su funcionamiento, de las políticas, planes, programas, objetivos y metas formulados.
+También tiene competencia para verificar el cumplimiento de las normas legales y reglamentarias aplicables, en el desarrollo de nuevos sistemas automatizados; así como, participar en cualquier comisión de índole multidisciplinaria que la Administración Superior le invite, para lo cual debe dejar claro su papel de asesora o para expresar criterios oportunos o advertir, sin perjuicio de las acciones posteriores que correspondan.

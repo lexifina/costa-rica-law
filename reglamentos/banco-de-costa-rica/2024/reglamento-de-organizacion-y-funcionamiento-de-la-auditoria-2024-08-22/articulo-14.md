@@ -1,0 +1,4 @@
+Artículo 14. Trámite de aprobación de las regulaciones administrativas y régimen de empleo para el auditor interno.
+Con el propósito de asegurar razonablemente la observancia de lo mencionado en el artículo anterior se debe someter a conocimiento del auditor interno las propuestas relacionadas con las regulaciones administrativas, de previo a su aprobación, modificación o derogatoria.
+La opinión del auditor no es vinculante y en caso de duda se debe agotar el trámite interno ante la Junta Directiva de BCR LEASING PREMIUM PLUS S.A., previo a elevar la consulta ante el órgano contralor de conformidad con lo establecido en la Ley General de Control Interno n°8292.
+Lo anterior conforme a lo establecido en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República R-CO-83-2018.

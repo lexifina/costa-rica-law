@@ -1,0 +1,2 @@
+Artículo 77. Del programa de seguimiento de las recomendaciones de Auditoría.
+El programa de seguimiento, tal y como lo establece las Normas Generales de Auditoría para el Sector Público R-DC-064-2014 y las Normas para el ejercicio de la auditoría interna en el Sector Público R-DC-119-2009., debe contemplar entre otros aspectos, la relevancia de las observaciones y recomendaciones informadas, la complejidad y las condiciones propias de las acciones pertinentes, los efectos e impactos de la implementación de la acción y la oportunidad del seguimiento.

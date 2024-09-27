@@ -1,0 +1,4 @@
+Artículo 3. Comunicación de asuntos que pueden afectar la Independencia.
+En cumplimiento de las Normas Generales de Auditoría para el Sector Público, R-DC-064-2014, la auditoría interna debe establecer políticas y procedimientos que permitan prevenir y detectar oportunamente situaciones que comprometan la independencia y objetividad del personal. A efectos de lo anterior se establece que cada persona trabajadora de la Auditoría Interna de BCR LEASING PREMIUM PLUS S.A., debe:
+. Firmar una declaración jurada, en la cual debe indicar si tiene o no parientes en primer y segundo grado tanto de consanguinidad como de afinidad que laboren para BCR LEASING PREMIUM PLUS S.A.
+. Informar al auditor interno en el momento de que algún familiar con los grados de parentesco mencionados en el párrafo anterior ingrese a laborar a BCR LEASING PREMIUM PLUS S.A. Dicha comunicación se debe presentar en forma inmediata y por escrito; así mismo, debe modificar su declaración jurada.

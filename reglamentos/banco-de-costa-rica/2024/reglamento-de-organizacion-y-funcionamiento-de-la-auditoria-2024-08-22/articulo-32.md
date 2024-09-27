@@ -1,0 +1,4 @@
+Artículo 32. Relaciones con otros profesionales o técnicos.
+La Auditoría Interna puede incorporar entre sus recursos, el uso de profesionales o técnicos de diferentes disciplinas, sean personas trabajadoras o no de la Sociedad, para que lleven a cabo labores de su especialidad, en apoyo a las labores de auditoría interna que requieran de conocimientos, técnicas u otras competencias adicionales.
+Lo anterior mediante contratación de servicios a terceros. Para la contratación de servicios profesionales externos, se debe observar lo dispuesto en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República R-CO-83-2018; así como, los procedimientos de contratación pública aplicables.
+Para las colaboraciones y asesorías que pueda requerir la auditoría interna de los servidores de la Sociedad, el Auditor Interno puede ejercer la potestad que establece la Ley General de Control Interno n°8292.

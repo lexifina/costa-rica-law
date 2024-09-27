@@ -1,0 +1,3 @@
+Artículo 49. Lineamientos para labores de auditoría.
+El auditor interno es el responsable de establecer lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría interna por las personas trabajadoras a su cargo; así como, también sobre la custodia y control de acceso a los registros del trabajo.
+Los lineamientos para ejecutar un estudio de auditoría interna están contenidos en el Manual de la Auditoría Interna de BCR LEASING PREMIUM PLUS S.A., donde se detallan las fases de un estudio que son: planeación, examen, comunicación de resultados y seguimiento de disposiciones o recomendaciones.

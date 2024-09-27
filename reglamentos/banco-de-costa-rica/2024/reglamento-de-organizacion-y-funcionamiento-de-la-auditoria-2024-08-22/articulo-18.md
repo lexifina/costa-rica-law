@@ -1,0 +1,4 @@
+Artículo 18. Obligación o responsabilidad de emitir normativa interna y adoptar prácticas administrativas que regulen las actividades de la Auditoría Interna.
+Respecto a la normativa interna y adopción de prácticas para regular las actividades de la Auditoría Interna de BCR LEASING PREMIUM PLUS S.A., el auditor interno tiene las siguientes obligaciones y responsabilidades:
+. Definir, establecer y mantener actualizado el marco normativo requerido por la Auditoría Interna para cumplir con sus competencias. El auditor interno debe asegurar la actualización y acatamiento de este Reglamento.
+. Definir, establecer y mantener las prácticas de administración, accesos y custodia de la documentación de la Auditoría Interna, en especial la información relativa a los asuntos de carácter confidencial que estipulan tanto la Ley General de Control Interno n°8292, como la Ley contra la corrupción y el enriquecimiento ilícito en la función pública n°8422.

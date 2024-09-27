@@ -1,0 +1,4 @@
+Capítulo VII Seguimiento de las recomendaciones
+Artículo 76. Del seguimiento de las recomendaciones de auditoría.
+El auditor interno debe implantar un programa para dar seguimiento a los informes emitidos por la Auditoría Interna, por los auditores externos de la Sociedad y por la Contraloría General de la República. La vigilancia del cumplimiento de los plazos para que los titulares subordinados implanten las recomendaciones y la oportuna verificación de esas acciones, son elementos de dicho programa.
+El auditor interno es el responsable de que esta actividad de seguimiento se lleve a cabo en forma permanente, tal y como establece las Normas Generales de Auditoría para el Sector Público R-DC-064-2014 y las Normas para el ejercicio de la auditoría interna en el Sector Público R-DC-119-2009., para lo cual debe tomar en cuenta el seguimiento de los resultados de los trabajos preventivos según corresponda.

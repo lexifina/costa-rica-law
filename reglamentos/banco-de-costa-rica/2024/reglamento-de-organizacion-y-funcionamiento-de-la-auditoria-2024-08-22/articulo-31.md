@@ -1,0 +1,2 @@
+Artículo 31. Requerimientos de asesoría legal y otros servicios.
+La Auditoría Interna tiene la potestad de solicitar el servicio de asesoría legal por medio de la Gerencia Corporativa Jurídica del Banco de Costa Rica; asesoría y apoyo técnico de la Auditoría General Corporativa del Banco de Costa Rica y de cualquier otro servicio de la institución que considere necesario para el cumplimiento de sus funciones.
