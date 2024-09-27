@@ -1,0 +1,4 @@
+Artículo 5º-Controles. Los departamentos involucrados en la gestión y registro de pago por transferencia electrónica a proveedores deberán:
+a) Velar por el uso adecuado de documentos y registros que coadyuven en la anotación correcta de las transacciones y los hechos significativos que se realicen con motivo de éstas.
+b) Los documentos y registros deberán ser administrados y mantenidos apropiadamente. Así como efectuarse conciliaciones periódicas de registros, para verificar su exactitud y determinar y enmendar errores u omisiones que puedan haberse cometido.
+Asimismo, velar por el funcionamiento correcto y veraz de los sistemas de información.

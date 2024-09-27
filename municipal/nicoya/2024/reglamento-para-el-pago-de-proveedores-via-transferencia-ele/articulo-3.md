@@ -1,0 +1,15 @@
+CAPÍTULO II
+Procedimiento para realizar pagos
+vía transferencia electrónica bancaria
+Artículo 3º-Del procedimiento. Para efectos de que la Municipalidad lleve a cabo pagos electrónicos a sus proveedores de bienes y servicios se deberá seguir el siguiente procedimiento:
+a) El proveedor, una vez cumplido los trámites de recepción provisional y definitiva, emitirá la factura electrónica a nombre de la Municipalidad de Nicoya dirigida a la dirección electrónica de la unidad coordinadora o usuaria de los bienes y servicios adquiridos.
+b) La unidad usuaria de los bienes y servicios adquiridos, deberá recibir la factura electrónica del proveedor o documento autorizado por el ente correspondiente, quien verificará el cumplimiento de todos los requisitos legales y formales respectivos e informar al Departamento de Proveeduría para el recibido correspondiente y a su vez se genere el asiento contable.
+c) Recibida la factura por parte de la Proveeduría y generado el asiento contable, deberá enviar a la Alcaldía, la factura original junto a la solicitud de que se incluya en nómina de órdenes de pago y se deberán aportar los documentos de respaldo necesarios, entre los cuales estarán las facturas, así como en los casos que medie contrato, una copia de este junto con el documento mediante el cual el fiscalizador haya recibido el bien o servicio a satisfacción.
+d) Una vez recibida la documentación la Alcaldía, deberá generar y autorizar la nómina de órdenes de pago. Para ello, deberá verificar que la información contenida en la nómina coincida con los documentos de respaldo.
+e) La nómina se traslada de Alcaldía a Contabilidad, y se elaborará un documento consecutivo digital, y en paralelo, Contabilidad generará el archivo digital bajo el formato específico y lo incluirá en el sistema de la entidad financiera respectiva.
+El documento consecutivo se adjuntará a los documentos que conforman la nómina para respaldo de la transacción y será entregado a la Oficina de Tesorería.
+f) La Tesorería Municipal deberá revisar el archivo en el sistema, si está correcto, procederá a la validación de la documentación de pago. En caso de detectar algún error lo deberá devolver al Departamento de Contabilidad para su subsanación.
+Validada la información, la Tesorería Municipal deberá generar el o los débitos correspondientes en forma mancomunada con el funcionario autorizado por el Alcalde o Alcaldesa o con este último y deberá generar los comprobantes de pago electrónico respectivos dependiendo de la entidad financiera.
+g) El departamento de contabilidad revisará en el sistema las cuentas bancarias o de caja única, a fin de que no queden aplicaciones de débitos pendientes.
+Este procedimiento no se aplicará cuando se trate del pago de gastos recurrentes por parte de la institución, sino únicamente a aquellos derivados de procedimientos de contratación administrativa.
+Los pagos de gastos no derivados de procesos de contratación se realizarán al amparo de los procedimientos internos que mantenga la institución.
