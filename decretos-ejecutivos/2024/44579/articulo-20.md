@@ -1,0 +1,9 @@
+Artículo 20.-Medidas Cautelares. En cualquier estado del procedimiento especial contra el hostigamiento sexual y hasta tanto no adquiera firmeza el acto final, deberán resolverse de manera prevalente y con carácter de urgencia las medidas cautelares solicitadas por la parte. La resolución que se dicte al respecto por parte del órgano decisor de primera instancia, contará con recurso de revocatoria y apelación, y respecto a la resolución que dicte el Ministro o la Ministra, carecerá de ulterior recurso, excepto el de adición o aclaración.
+La Comisión Investigadora, previa solicitud de parte y mediante resolución motivada podrá solicitar al órgano decisor competente, adoptar el establecimiento de medidas cautelares tales como:
+1) Traslado temporal de la persona denunciada a otro puesto, de igual o similar categoría, manteniendo todos sus derechos laborales y percibiendo el mismo salario.
+2) Traslado temporal de la presunta víctima o de algún testigo cuando éstos sean parte del personal del Ministerio o sus instituciones adscritas, a un puesto de igual o similar categoría sin afectación en perjuicio de su salario.
+3) Que la persona presunta hostigadora, se abstenga de perturbar a la persona denunciante.
+4) Que la persona presunta hostigadora se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona hostigada.
+5) Excepcionalmente la separación temporal del cargo con goce de salario.
+6) Cualquier otra medida que permita a la Comisión Investigadora obtener la verdad real de los hechos denunciados, de acuerdo con la Ley contra el Hostigamiento o Acoso Sexual en el Empleo y la Docencia, Ley N º 7476.
+En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de las personas obligadas a la disposición preventiva, pudiendo ser aplicadas a ambas partes del proceso, procurando mantener la seguridad de la víctima.

@@ -1,0 +1,1 @@
+Artículo 28.-Medios de Impugnación. Contra el acto final dictado por el órgano decisor de primera instancia, cabrá recurso de revocatoria y apelación, y contra el acto final emitido por el Ministro o la Ministra cabrá el recurso de reposición; dentro de los tres días hábiles siguientes a su notificación.

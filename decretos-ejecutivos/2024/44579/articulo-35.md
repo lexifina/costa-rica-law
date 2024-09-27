@@ -1,0 +1,1 @@
+Artículo 35.-Normativa Supletoria. Para lo no regulado expresamente en este reglamento, se aplicarán supletoriamente las disposiciones del Reglamento Autónomo de Servicios del Ministerio de Gobernación y Policía en concordancia con los Reglamentos Autónomos de Servicio de las Instituciones adscritas al Ministerio y la Ley General de la Administración Pública.

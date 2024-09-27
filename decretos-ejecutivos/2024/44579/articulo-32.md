@@ -1,0 +1,1 @@
+Artículo 32.- Denuncias Falsas. Podrá incurrir en los delitos de difamación, injuria o calumnia, toda persona que interponga denuncia falsa de hostigamiento sexual, de conformidad con lo dispuesto en el artículo 16 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, en concordancia con el Código Penal.

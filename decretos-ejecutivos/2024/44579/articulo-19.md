@@ -1,0 +1,1 @@
+Artículo 19.-Ampliación de la denuncia. La presunta víctima o su representante legal podrán ampliar la denuncia ante la Comisión Investigadora, en cuanto a hechos nuevos y prueba. Estos deberán formar parte de los hechos a investigar cuando haya mérito y deberán constar dentro de la resolución inicial que dicte la Comisión Investigadora.

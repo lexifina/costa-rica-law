@@ -1,0 +1,1 @@
+Artículo 31.-Causales de Despido de la Persona Denunciante. La persona que haya formulado una denuncia de hostigamiento o acoso sexual, solo podrá ser despedida por causa justificada, originada en falta grave a los deberes derivados del contrato laboral, conforme a las causas establecidas en el artículo 81 del Código de Trabajo.
