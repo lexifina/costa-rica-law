@@ -1,0 +1,1 @@
+Artículo 80. Permiso Municipal de Ingreso. En caso de que los residuos de construcción generados fuera del Cantón vayan a ser empleados en construcciones o en reutilización industrial o comercial en el Cantón, deberán contar con un permiso municipal de ingreso.

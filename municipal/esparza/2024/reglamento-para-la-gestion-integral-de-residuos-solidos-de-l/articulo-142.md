@@ -1,0 +1,1 @@
+Artículo 142. Asignación de los Incentivos. La Gestión de Servicios Públicos establecerá el procedimiento técnico para la asignación de los incentivos y recursos indicados en el Artículo 141 del presente reglamento, de forma que se corrobore y evalúe la idoneidad de los candidatos y sus propuestas.

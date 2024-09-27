@@ -1,0 +1,1 @@
+Artículo 180. Derogatoria. Este Reglamento deroga el Reglamento para la Gestión Integral de los Residuos Sólidos del Cantón de Esparza, publicado en forma definitiva en el Alcance Digital No 122, de la Gaceta No 104 del 02 de junio del 2017. Así como cualquier otro reglamento emitido con anterioridad por la Municipalidad de Esparza, que se le oponga en contrario".

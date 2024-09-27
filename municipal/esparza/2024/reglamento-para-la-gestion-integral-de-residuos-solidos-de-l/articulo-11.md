@@ -1,0 +1,2 @@
+Artículo 11. Atribuciones del Responsable de Mantenimiento de Zonas Verdes y Espacios Públicos. Es atribución y deber de la Gestión de Servicios Públicos, a través de su personal y en coordinación con otras unidades municipales, de conformidad con su competencia, realizar la limpieza de zonas verdes en lugares donde existen áreas de parques, juegos infantiles y zonas comunales sin construir, siempre que sean propiedad municipal.
+Los lineamientos de este servicio se establecen en el Capítulo XIII del presente reglamento.
