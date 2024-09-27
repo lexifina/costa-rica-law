@@ -1,0 +1,1 @@
+Artículo 17.-En los supuestos de obras, éstas serán recibidas después de contar con el informe técnico en el que conste que están a satisfacción del Comité. Para lo anterior, la Unidad solicitante podrá contar con la asistencia de otros órganos de la Municipalidad. No se tramitará el pago final de la contratación, si no se ha emitido dicho informe.

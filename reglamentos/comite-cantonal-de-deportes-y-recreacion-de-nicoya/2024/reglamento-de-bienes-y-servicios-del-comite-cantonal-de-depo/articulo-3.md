@@ -1,0 +1,1 @@
+Artículo 3º-Las contrataciones directas estarán bajo la dirección y supervisión de la Junta Directiva, el Administrador y la persona que designen, el cual será responsable de llevar a cabo los procedimientos de contratación, en coordinación con los demás órganos o unidades del Comité.

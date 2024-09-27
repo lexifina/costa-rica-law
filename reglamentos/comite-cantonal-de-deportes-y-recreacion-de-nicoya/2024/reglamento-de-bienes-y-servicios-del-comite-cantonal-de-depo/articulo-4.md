@@ -1,0 +1,1 @@
+Artículo 4º-Cada órgano, departamento, sección o unidad deberá presentar un programa anual de adquisiciones, el cual deberá ser incluido en el programa anual de adquisiciones del Comité. La publicidad del programa anual se regirá por lo dispuesto en el artículo 7 del Reglamento General.

@@ -1,0 +1,1 @@
+Artículo 14.-La orden de compra será firmada, por el funcionario que adjudicó la contratación y por el responsable del presupuesto. Las órdenes de compra deberán ser impresas con numeración consecutiva. El Subproceso deberá llevar un control de las órdenes de compra utilizadas, con la indicación del monto, objeto, saldo y estado de la contratación.

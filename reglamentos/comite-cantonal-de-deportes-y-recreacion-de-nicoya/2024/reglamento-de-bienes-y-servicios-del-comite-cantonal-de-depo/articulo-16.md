@@ -1,0 +1,1 @@
+Artículo 16.-La Unidad solicitante, en los casos de la contratación de obras o servicios, deberá confeccionar la orden de pago para avalar los pagos parciales o finales de la contratación. El Subproceso de Contabilidad confeccionará el documento de pago respectivo, y el Subproceso de Tesorería entregará el mismo., o por quienes designe la Junta Directiva.
