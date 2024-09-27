@@ -1,2 +1,0 @@
-Artículo 14.—Todo software protegido por derechos de autor que esté instalado en el equipo de cómputo del Ministerio debe poseer licencia de uso, siendo el responsable de su custodia el Departamento de Informática.
-Asimismo, en caso de que algún usuario adquiera un programa para utilizarlo dentro de la Institución deberá remitir la licencia al Departamento supra indicado para que se incorpore al inventario institucional y se guarde adecuadamente, debiendo ser instalada dicha licencia, por un funcionario del departamento citado.

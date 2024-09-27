@@ -1,1 +1,0 @@
-Artículo 9º—Todos los equipos ya sean adquiridos por el presupuesto de la institución o donados a la misma deben ingresar al Departamento de Informática para su respectiva revisión, configuración y registro dentro del inventario de equipos, de previo a su asignación y utilización.

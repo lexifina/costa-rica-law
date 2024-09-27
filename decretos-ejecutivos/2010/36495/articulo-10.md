@@ -1,1 +1,0 @@
-Artículo 10.—El Jefe de cada oficina, en cualquier momento, podrá inspeccionar los equipos y programas almacenados en los discos. Esta inspección no incluye el contenido de los correos electrónicos, el contenido de los documentos electrónicos y el contenido de cualquier información que sea propiedad del o de los usuarios asignados al equipo de cómputo.

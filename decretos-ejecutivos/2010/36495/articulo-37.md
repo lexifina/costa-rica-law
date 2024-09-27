@@ -1,1 +1,0 @@
-Artículo 37.—Debido a que la demanda de servicios puede ocasionalmente exceder la capacidad instalada, el Departamento de Informática podrá recomendar a la Administración Superior el establecimiento de prioridades, dando la más alta prioridad a las actividades consideradas esenciales para llevar a cabo las funciones sustantivas de la Institución.

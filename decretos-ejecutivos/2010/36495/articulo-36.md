@@ -1,1 +1,0 @@
-Artículo 36.—El usuario es responsable de respetar la ley de derechos de autor, no abusando de este medio para distribuir en forma ilegal software licenciado o reproducir información sin conocimiento del autor.

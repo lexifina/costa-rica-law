@@ -1,2 +1,0 @@
-Artículo 17.—El usuario podrá almacenar en los servidores de red únicamente información proveniente de la base de datos y aplicaciones institucionales. Los archivos de texto, hojas electrónicas y otros deben permanecer en los discos duros de las microcomputadoras de cada Centro, Departamento o Dirección.
-El Departamento de Informática realizará respaldos periódicos de la información almacenada en el servidor de red institucional.
