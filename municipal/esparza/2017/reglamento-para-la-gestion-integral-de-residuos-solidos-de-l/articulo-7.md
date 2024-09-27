@@ -1,3 +1,0 @@
-CAPÍTULO III
-De las atribuciones y obligaciones municipales
-Artículo 7°—Responsable de la GIRS. Para el cumplimiento e implementación de este reglamento y de otra legislación nacional vigente en la materia, la Municipalidad a través de la Gestión de Ordenamiento Territorial y Servicios Públicos con la colaboración de la unidad de Servicios Ambientales, serán las entidades responsables de la gestión de los residuos sólidos en el cantón. La administración y el Concejo Municipal dotarán a estas dependencias del personal técnico y profesional necesario, así como del presupuesto adecuado para cumplir con sus funciones.

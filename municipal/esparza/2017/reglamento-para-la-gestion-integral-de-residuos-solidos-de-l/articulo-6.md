@@ -1,1 +1,0 @@
-Artículo 6°—Reconocimiento. La Municipalidad podrá dar reconocimientos a las instituciones públicas que participen en la realización de los proyectos de la Unidad Ambiental, así como a aquellas organizaciones que de manera independiente ejecuten proyectos con un impacto positivo ambiental, importante para la comunidad.

@@ -1,2 +1,0 @@
-Artículo 30.—Tarifas diferenciadas. La Municipalidad puede establecer tasas diferenciadas por la recolección, tratamiento y disposición final de los residuos generados en el cantón, según sean actividades comerciales, de servicios y domiciliares o según la cantidad generada.
-Las tasas serán definidas y adaptadas periódicamente conforme la inflación en el país y según cambios o mejoras del servicio en el sector. Los usuarios serán informados con mínimo 2 meses de anterioridad sobre los cambios, antes de entrada en vigor.
