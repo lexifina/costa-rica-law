@@ -1,0 +1,1 @@
+Transitorio I.- Todos aquellos contratos presentados ante la Administración Tributaria antes de la vigencia de la presente resolución mantienen el tratamiento tributario que se les haya otorgado de acuerdo con la normativa vigente en ese momento.
