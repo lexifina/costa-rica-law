@@ -1,0 +1,4 @@
+Artículo 39.-De las sanciones según la falta.
+La falta leve será sancionada con una amonestación escrita o multa de hasta el diez por ciento de la renta mensual del arrendamiento.
+La falta grave será sancionada con el cierre temporal del local por un plazo de entre ocho y quince días o multa de entre una y dos mensualidades, y la falta muy grave será sancionada con la rescisión del arrendamiento.
+La multa será incorporada al sistema de cobro municipal, de forma adicional a las cuentas del adjudicatario.

@@ -1,0 +1,1 @@
+Artículo 44.-Derogatorias. Este Reglamento deroga y deja sin efecto el anterior Reglamento de Mercados Municipales del Cantón de Esparza, publicado en la Gaceta número 58 del 4 de abril del 2018 y cualquier disposición reglamentaria anterior que se le oponga en contrario.

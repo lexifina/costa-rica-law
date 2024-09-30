@@ -1,0 +1,1 @@
+Artículo 16.-Pago por concepto de formalización de la cesión. El Concejo Municipal autorizará la cesión del derecho de arrendamiento previo cumplimiento de lo dispuesto en el artículo anterior, y la misma solamente quedará finalizada mediante la formalización en los registros por parte de la Administración Municipal.

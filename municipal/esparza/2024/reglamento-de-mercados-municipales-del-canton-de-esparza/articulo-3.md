@@ -1,0 +1,1 @@
+Artículo 3º-Obligatoriedad. Las disposiciones contenidas en este Reglamento son de acatamiento obligatorio para todos los funcionarios y autoridades municipales, así como para los arrendatarios de los locales y los usuarios de los Mercados.

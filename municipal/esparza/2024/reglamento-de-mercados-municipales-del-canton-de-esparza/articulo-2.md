@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. La Municipalidad Esparza, de acuerdo con las facultades otorgadas por el Código Municipal, dicta el presente Reglamento de los Mercados Municipales de Esparza que serán administrados con sujeción a las disposiciones que se establecen en esta normativa y las que establece el Ordenamiento Jurídico vigente.

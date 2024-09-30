@@ -1,0 +1,1 @@
+Artículo 43.-Normas supletorias. En aquellos casos en que este Reglamento sea omiso, se aplicará lo dispuesto en el Código Municipal, Ley 7794 y sus reformas, así como en la demás normativa conexa, vinculante al tema de mercados municipales, salud pública y derechos del consumidor entre otros.
