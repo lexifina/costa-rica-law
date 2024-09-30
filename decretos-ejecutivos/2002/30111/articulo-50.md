@@ -1,1 +1,0 @@
-Artículo 50.—El Ministerio a través del Servicio Fitosanitario del Estado, realizará los ajustes técnicos, administrativos y financieros necesarios para la implementación de los alcances de la Ley de Protección Fitosanitaria.

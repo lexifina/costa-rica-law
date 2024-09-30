@@ -1,1 +1,0 @@
-Artículo 2º—Para su funcionamiento y logro de sus cometidos contará con fuentes de financiamiento, estructura orgánica, administrativa y financiera propia, además tendrá para el ejercicio de sus facultades personería jurídica instrumental.

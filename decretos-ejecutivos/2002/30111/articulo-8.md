@@ -1,1 +1,0 @@
-Artículo 8º—El Servicio Fitosanitario del Estado sin necesidad de acto jurídico previo podrá aplicar en forma inmediata en territorio nacional aquellas medidas fitosanitarias, que a través de normas, directrices y recomendaciones, dicten los organismos supranacionales, siempre y cuando se encuentren en tratados internacionales aprobados por Costa Rica.

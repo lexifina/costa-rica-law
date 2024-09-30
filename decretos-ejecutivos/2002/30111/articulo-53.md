@@ -1,1 +1,0 @@
-Artículo 53.—Deróguense los artículos 3º, 4º, 5º, 6º, 7º, 8º, 9º, 10, 11, 12, 13, 14, 15, 28, 29, 30, 31, 32, 33, 34, 35, 36, 37, 38, 39, 257 y 258 del Decreto Ejecutivo Nº 26921-MAG del 20 de marzo de 1998.

@@ -1,1 +1,0 @@
-Artículo 30.—Control del cobro de los servicios. Será el Servicio Fitosanitario del Estado, quien supervisará, controlará y fiscalizará, en forma continua, la correcta aplicación de los controles establecidos y el normal cobro y depósito, en las cuentas corrientes y caja recolectora destinadas para el cobro de los servicios.

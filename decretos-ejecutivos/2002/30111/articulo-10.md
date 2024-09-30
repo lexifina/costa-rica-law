@@ -1,1 +1,0 @@
-Artículo 10.—Las medidas fitosanitarias que adopte el Servicio Fitosanitario del Estado deben originarse en una evaluación de los riesgos existentes para la vida, salud de las personas, plantas, animales y el ambiente.
