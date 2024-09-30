@@ -1,1 +1,0 @@
-Artículo 5° Ter.-El Concejo Municipal, en el mes de octubre de cada año, aprobará el calendario de asignación de becas según propuesta presentada por la administración. Este calendario deberá contener las fechas de recepción de formularios, así como la fecha límite para que la Oficina de Desarrollo Social y los Concejos de Distrito presenten sus recomendaciones.

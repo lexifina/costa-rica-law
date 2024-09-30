@@ -1,1 +1,0 @@
-Artículo 11.-El fondo acumulado por concepto de becas no retiradas de cada distrito, quedará disponible para que el Concejo de Distrito correspondiente realice reconocimientos a estudiantes distinguidos y distinguidas.

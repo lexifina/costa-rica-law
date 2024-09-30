@@ -1,1 +1,0 @@
-Artículo 18.-La municipalidad será la encargada de archivar y resguardar los expedientes y formularios existentes, los cuales estarán a disposición de los Concejos de Distrito para su consulta y actualización.
