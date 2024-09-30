@@ -1,7 +1,0 @@
-CAPÍTULO VIII
-SECCIÓN ÚNICA
-Departamento de Operaciones Regionales
-Competencia y Funciones
-Artículo 27.—Competencia: Le corresponde la regulación y el manejo de la información en materia de vigilancia y control de plagas, acreditación y registro de agricultura orgánica; asimismo planifica, supervisa y apoya a las unidades operativas regionales en el desarrollo y ejecución de las acciones del SFE a nivel Regional. Será el encargado de dictar el acto final en los procedimientos sumarios o especiales dispuestos en la Ley o Reglamentos en materia de su competencia, que no se encuentren contemplados para las Unidades Regionales Operativas. El acto administrativo será ejecutorio, sin perjuicio de que el administrado presente los recursos establecidos en la legislación vigente.
-Asimismo, le corresponderá resolver los recursos administrativos en el ámbito de su competencia.
-El Departamento de Operaciones Regionales está conformado por la Unidad de Acreditación y Registro en Agricultura Orgánica, la Unidad de Biometría y Sistemas de Información, así mismo; se crearán las Unidades Operativas Regionales según la división política establecida por MIDEPLAN, a saber: Pacífico Central, Central Oriental, Central Occidental, Huetar Norte, Huetar Atlántica, Brunca, Central Sur y Chorotega, que tendrán el objetivo de acerar los servicios prestados por el SFE a todos los usuarios del país, en pro de la eficiencia en el uso de los recursos disponibles e instituirse a nivel Regional en la representación del SFE.

@@ -1,1 +1,0 @@
-Transitorio I. El Departamento de Normas y Regulaciones deberá en un plazo no mayor de seis meses a partir de su publicación; elaborar un estudio en el cual se identifiquen y deroguen todas las estructuras, normas o decretos, que se apongan a este reglamento.
