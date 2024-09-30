@@ -1,0 +1,4 @@
+Artículo 2°.- Reforma del transitorio 1 al Decreto Ejecutivo N° 34317 de fecha 15 de enero del año 2008, denominado Reglamento de los Requisitos de Graduación para optar por el Título del Técnico en el Nivel Medio de Especialidades Técnicas Modalidades: Agropecuaria, Comercial y de Servicios e Industrial, publicado en la Gaceta N°39 del 25 de febrero del 2008, cuyo texto en adelante dirá:
+"Transitorio 1:
+Para el curso lectivo 2023, la prueba escrita Comprensiva estandarizada de especialidades técnicas tendrá un valor porcentual del 40%, para aprobarla se requiere una nota final mínima de 70, producto de la sumatoria del resultado de esta prueba con la nota de presentación correspondiente.
+El valor de la nota de presentación será del 60%, el cual se obtendrá del promedio de las notas obtenidas en los tres niveles de formación (décimo, undécimo y duodécimo), que corresponde a las subáreas que integran el plan de estudio de la especialidad técnica.".

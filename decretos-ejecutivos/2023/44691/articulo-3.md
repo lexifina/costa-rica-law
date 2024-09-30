@@ -1,0 +1,1 @@
+Artículo 3°.- Derogatoria: Se deroga el transitorio 2 del Decreto Ejecutivo N° 34317 de fecha 15 de enero del año 2008, denominado Reglamento de los Requisitos de Graduación para optar por el Título del Técnico en el Nivel Medio de Especialidades Técnicas Modalidades: Agropecuaria, Comercial y de Servicios e Industrial.
