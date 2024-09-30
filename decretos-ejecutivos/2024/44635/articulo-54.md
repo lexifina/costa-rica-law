@@ -1,0 +1,1 @@
+Artículo 54.-El duelo se declarará por medio de un decreto que pondrá en ejecución el Poder Ejecutivo, en el cual se indicará que durante el periodo correspondiente el Pabellón externo, donde esté izado, permanecerá a media asta; de igual manera la bandera externa, donde corresponda.

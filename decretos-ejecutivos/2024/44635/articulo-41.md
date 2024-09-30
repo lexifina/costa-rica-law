@@ -1,0 +1,1 @@
+Artículo 41.-Cuando la Presidencia de la República y el Ministerio de Relaciones Exteriores y Culto, lo estimen oportuno, en concordancia con los artículos 28 al 40 supra, se podrán llevar a cabo la presentación de las Copias de Estilo y las Cartas Credenciales, por medios digitales, con el apoyo de la embajada de Costa Rica mediante el protocolo correspondiente.

@@ -1,0 +1,1 @@
+Artículo 48.-El Jefe de la misión costarricense acreditada ante el Gobierno cuyo Jefe de Estado o Gobierno ha fallecido, hará llegar sus sentimientos de pesar, según los usos locales y el Ceremonial de aquel país, y a criterio del Presidente de la República, podrá ser designado para representar al Gobierno en las honras fúnebres.

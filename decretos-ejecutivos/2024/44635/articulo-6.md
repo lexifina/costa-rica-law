@@ -1,0 +1,1 @@
+Artículo 6º-En presencia de autoridades extranjeras, el Ministro de la Cartera de Relaciones Exteriores y Culto tendrá precedencia sobre todas los demás y presidirá si no está el Presidente de la República o alguna de las vicepresidencias.

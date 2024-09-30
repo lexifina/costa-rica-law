@@ -1,0 +1,1 @@
+Artículo 17.-Ningún invitado podrá hacerse representar en ceremonias en donde asiste el Presidente la República, salvo en casos en que, quien ostente la Presidencia de la Asamblea Legislativa, Corte Suprema de Justicia y Tribunal Supremo de Elecciones, no pueda asistir y se haga representar por la Vicepresidencia respectiva.

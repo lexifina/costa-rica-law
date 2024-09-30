@@ -1,0 +1,1 @@
+Artículo 39.-El nueve Jefe de misión, podrá solicitar por intermedio de la Dirección General de Protocolo, Ceremonial del Estado y Culto, se conceda la audiencia correspondiente para que su cónyuge visite al cónyuge de quien ostente la Presidencia de la República y del Jerarca del Ministerio de Relaciones Exteriores y Culto. Estas audiencias no tendrán protocolo especial.

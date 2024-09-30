@@ -1,0 +1,1 @@
+Artículo 29.-Si el Jefe de misión no ingresa al país por la vía aérea, será visitado en el lugar de su residencia a su llegada, por un funcionario de la Dirección General de Protocolo, Ceremonial del Estado y Culto.

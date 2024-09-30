@@ -1,0 +1,1 @@
+Artículo 49.-La Dirección General de Protocolo, Ceremonial del Estado y Culto consultará la fecha de las honras fúnebres que en tales casos ofrece el Gobierno de la República, siempre y cuando dicho país mantenga una representación diplomática con residencia en Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 16.-Cuando el Presidente de la República se haga representar en actos oficiales, su representante ocupará el sitio de la autoridad que debe presidir. Igual regla se seguirá en cuanto a las personas que ejercen la presidencia de los altos Poderes del Estado.

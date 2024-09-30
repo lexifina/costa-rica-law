@@ -1,0 +1,1 @@
+Artículo 31.-En el transcurso de la audiencia con el Ministro de Relaciones Exteriores y Culto, presentará solicitud para que se le fije fecha para la presentación de los originales de las cartas credenciales y de las de retiro de su antecesor.

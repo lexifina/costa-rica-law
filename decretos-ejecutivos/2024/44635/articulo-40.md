@@ -1,0 +1,1 @@
+Artículo 40.-El Jefe de misión podrá visitar, después de estar debidamente acreditado a las Presidencias de los Supremos Poderes de la República, Vicepresidentes de la República y Ministros de Gobierno, solicitando las audiencias por intermedio de la Dirección General de Protocolo y Ceremonial del Estado y Culto.

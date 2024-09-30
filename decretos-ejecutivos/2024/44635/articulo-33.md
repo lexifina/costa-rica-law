@@ -1,0 +1,1 @@
+Artículo 33.-Al dirigirse a la Presidencia de la República, el vehículo que conduce al Encargado de negocios a. í. y miembros de la misión precederá al del nuevo Jefe de misión. El orden mencionado se invertirá al regreso, una vez transcurrida la ceremonia.

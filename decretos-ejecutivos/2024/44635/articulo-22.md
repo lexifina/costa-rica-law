@@ -1,0 +1,1 @@
+Artículo 22.-El Jerarca del Ministerio de Relaciones Exteriores y Culto, o quien este designe, llevará la representación del Presidente de la República, cuando este no pueda presentarse, en las recepciones que ofrecieran las misiones diplomáticas para la celebración de las fiestas nacionales o cualquier otra de similar índole.

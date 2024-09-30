@@ -1,0 +1,1 @@
+Artículo 32.-El día fijado para la presentación de credenciales, un funcionario de protocolo de la Dirección General de Protocolo, Ceremonial del Estado y Culto acompañará en un vehículo oficial a al nuevo Jefe de misión, a la Presidencia de la República. El Jefe de misión podrá hacerse acompañar hasta por dos miembros diplomáticos de la embajada.
