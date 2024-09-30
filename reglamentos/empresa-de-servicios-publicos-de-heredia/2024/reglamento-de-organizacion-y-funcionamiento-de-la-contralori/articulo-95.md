@@ -1,0 +1,1 @@
+Artículo 95. Conferencia para presentar los resultados de servicios a posteriori. La persona CI, de conformidad con su criterio, dispondrá la discusión verbal para exponer los resultados a las partes correspondientes de previo a la comunicación oficial, excepto los resultados relativos a las investigaciones preliminares y otros que la normativa contemple.

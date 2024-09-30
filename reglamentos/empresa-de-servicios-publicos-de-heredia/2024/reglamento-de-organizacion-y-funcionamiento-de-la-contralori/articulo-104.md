@@ -1,0 +1,1 @@
+Artículo 104. Responsabilidades. Las personas trabajadoras de la AA que no implementen las recomendaciones u observaciones que se originen, asumirán su responsabilidad debido a la aceptación tácita de los memorandos o informes, en torno a un posible debilitamiento del Sistema de Control Interno, a la luz de lo que establezca la normativa.

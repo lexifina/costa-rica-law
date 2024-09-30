@@ -1,0 +1,1 @@
+Artículo 41. Plazos para el suministro de información a la Contraloría Empresarial. La CEM señalará los plazos razonables en cada suministro de información o documentos que solicite. Se fijarán según la importancia, complejidad y urgencia que lo solicitado represente para la ejecución oportuna de las funciones de la CEM.

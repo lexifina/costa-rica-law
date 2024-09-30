@@ -1,0 +1,1 @@
+Artículo 42. Ampliación del plazo. La AA comunicará a la CEM si no puede suministrar la información o documentos solicitados en el plazo establecido, dentro de los tres días hábiles siguientes al recibido de la solicitud. La CEM podrá prorrogar el plazo otorgado al inicio, en casos debidamente justificados.

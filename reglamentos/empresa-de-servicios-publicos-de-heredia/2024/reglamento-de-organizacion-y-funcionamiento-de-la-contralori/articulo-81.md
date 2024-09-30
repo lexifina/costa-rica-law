@@ -1,0 +1,1 @@
+Artículo 81. Fiscalización de objetivos, metas y programas. Las personas auditoras internas de la CEM fiscalizarán la efectividad de los objetivos, metas, programas y presupuestos de los niveles operativos para que sean medibles, consistentes con la organización y de impacto.

@@ -1,0 +1,1 @@
+Artículo 102. Implementación de recomendaciones por aceptación tácita de informes. La persona trabajadora de la AA acatará e implementará las recomendaciones que se le han encomendado en el plazo estipulado, a menos que reciba por escrito las medidas alternativas propuestas por la persona destinataria del informe de la CEM.

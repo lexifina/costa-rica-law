@@ -1,0 +1,1 @@
+Artículo 136. Derogatoria. Este Reglamento deroga al Reglamento anterior de la CEM de la ESPH S.A., aprobado en los acuerdos de Junta Directiva JD 107-2020 de la Sesión 4018 del 15 de junio de 2020 y JD 148-2020 de la Sesión 4032 del 31 de agosto de 2020, así como cualquier norma de igual o inferior rango que se le oponga.

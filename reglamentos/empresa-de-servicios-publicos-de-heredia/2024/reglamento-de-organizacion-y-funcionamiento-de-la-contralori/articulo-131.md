@@ -1,0 +1,1 @@
+Artículo 131. Remisión a normativa. Todo lo relacionado con el análisis de presuntos hechos irregulares se regirá por los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares (R-DC-102-2019), emitidos por la CGR, o en su defecto la norma que sobre el particular y en sustitución disponga el órgano contralor a futuro.

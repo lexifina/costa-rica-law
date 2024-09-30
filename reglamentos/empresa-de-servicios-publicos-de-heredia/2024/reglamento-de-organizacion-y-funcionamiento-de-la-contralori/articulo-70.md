@@ -1,0 +1,1 @@
+Artículo 70. Informes del seguimiento de la implementación de acciones. Son informes en los que se le indica a la AA el estado de implementación de las acciones, disposiciones u observaciones realizadas por la CEM, la Auditoría Externa, la CGR u otras instancias con competencia. La AA debe darle énfasis al cumplimiento o implementación de tales disposiciones.

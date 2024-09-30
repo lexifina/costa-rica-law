@@ -1,0 +1,1 @@
+Artículo 43. Responsabilidades por el incumplimiento del plazo. La persona trabajadora de la AA que incumpla el plazo determinado por la CEM quedará sujeta a las sanciones previstas en el capítulo V de la Ley General de Control Interno n.° 8292 (Responsabilidades y Sanciones).

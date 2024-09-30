@@ -1,0 +1,2 @@
+Artículo 78. Advertencia o asesoría sobre la marcha. La posibilidad de realizar una advertencia o asesoría puede producirse en el desarrollo del trabajo de auditoría a posteriori, en cuyo caso la persona encargada comunicará a la persona CI para determinar si procede.
+Se girarán instrucciones a las personas trabajadoras de la CEM acerca de este tipo de situaciones para que las transmitan cuando se presentan.

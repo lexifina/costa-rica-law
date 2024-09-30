@@ -1,0 +1,1 @@
+Artículo 112. Verificaciones adicionales. La CEM podrá realizar las verificaciones o constataciones que estime pertinentes, en cumplimiento de sus funciones de fiscalización y control, del registro de avance de implementación de acciones, de los resultados y podrá elaborar las pruebas que estime necesarias.

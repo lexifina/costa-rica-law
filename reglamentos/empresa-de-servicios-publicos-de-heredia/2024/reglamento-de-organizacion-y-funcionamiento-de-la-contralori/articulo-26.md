@@ -1,0 +1,1 @@
+Artículo 26. Responsable de la asignación de recursos. La Junta Directiva de la ESPH S.A. asignará a la CEM los recursos necesarios para la atención de la estrategia de fiscalización razonable. La Junta Directiva dispondrá lo necesario ante las autoridades competentes para que se gestionen los recursos en forma oportuna y adecuada.

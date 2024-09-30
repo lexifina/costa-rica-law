@@ -1,0 +1,1 @@
+Artículo 82. Fiscalización de resultados. Las personas auditoras internas de la CEM fiscalizarán las operaciones y los programas para verificar que los resultados concuerdan con los objetivos y las metas establecidas, además de que las operaciones, los programas y los presupuestos se implementen o desempeñen como se planearon.

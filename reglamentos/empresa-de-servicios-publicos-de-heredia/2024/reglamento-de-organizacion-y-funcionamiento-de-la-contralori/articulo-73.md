@@ -1,0 +1,1 @@
+Artículo 73. Origen de los estudios o servicios. Los estudios o servicios de la CEM podrán originarse tras requerimiento de la CGR, la Junta Directiva u otras dependencias de la AA, a través del Plan de Trabajo, si la CEM lo considera pertinente, por criterio de la persona CI o mediante la atención de denuncias.

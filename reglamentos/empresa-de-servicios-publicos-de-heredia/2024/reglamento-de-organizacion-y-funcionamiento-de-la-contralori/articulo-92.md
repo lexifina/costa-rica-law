@@ -1,0 +1,1 @@
+Artículo 92. Comunicación de Informe de Control Interno cuando también hay Relación de Hechos. La realización de la conferencia final de la relación de hechos será criterio de la persona CI cuando un estudio origina un Informe de Control Interno y una investigación preliminar, máxime si se señalan como posibles responsables a personas trabajadoras de niveles jerárquicos altos.

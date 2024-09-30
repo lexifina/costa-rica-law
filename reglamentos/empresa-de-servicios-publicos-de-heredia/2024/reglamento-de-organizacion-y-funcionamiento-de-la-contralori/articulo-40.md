@@ -1,0 +1,1 @@
+Artículo 40. Facilidades a la Contraloría Empresarial y suministro de información. Será obligación de toda persona trabajadora de la ESPH S.A. brindar las facilidades necesarias para que el personal de la CEM realice su labor a satisfacción.

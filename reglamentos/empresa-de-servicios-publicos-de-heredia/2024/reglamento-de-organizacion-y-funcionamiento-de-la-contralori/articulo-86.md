@@ -1,0 +1,1 @@
+Artículo 86. Análisis y evaluación. Las personas auditoras internas de la CEM fundamentarán los hallazgos, conclusiones, recomendaciones, observaciones y demás resultados del trabajo en un adecuado análisis y evaluación.

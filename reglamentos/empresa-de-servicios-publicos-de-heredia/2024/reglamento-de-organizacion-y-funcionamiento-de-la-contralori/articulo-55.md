@@ -1,0 +1,2 @@
+Artículo 55. Uso de la expresión "realizadas de acuerdo con la normativa aplicable al ejercicio de la auditoría interna". Las personas trabajadoras de la CEM informarán cuando sus labores son "realizadas de acuerdo con la normativa aplicable al ejercicio de la auditoría interna".
+Deberá declararse y justificarse con formalidad cuando el incumplimiento de las Normas para el Ejercicio de la Auditoría Interna en el Sector Público afecte el alcance general o el funcionamiento de la actividad de la CEM, y se deben realizar las gestiones que correspondan.
