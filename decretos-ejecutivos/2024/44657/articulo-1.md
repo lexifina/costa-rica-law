@@ -1,0 +1,44 @@
+No 44657-MAG
+EL PRESIDENTE DE LA REPÚBLICA,
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en las atribuciones y facultades conferidas en los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 27 inciso 1) y artículo 28 inciso 2) acápite b) de la Ley General de la Administración Pública, No 6227 del 2 de mayo de 1978; y los artículos 4, 5 inciso b de la Ley de Protección Fitosanitaria No 7664 del 08 de abril de 1997 y la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley No 8220 del 4 de marzo de 2002.
+CONSIDERANDO:
+1º- Que, con el creciente intercambio comercial, por la apertura de mercados entre los países, las posibilidades de diseminación de organismos capaces de causar daños a la agricultura, tales como insectos, nematodos, hongos, virus y otras plagas, se han incrementado.
+2º- Que conforme a lo dispuesto en la Ley de Protección Fitosanitaria Nº 7664 del 08 de abril de 1997, es función esencial del Servicio Fitosanitario del Estado (SFE) prevenir y evitar el ingreso de nuevas plagas y enfermedades, así como el control de residuos de plaguicidas de productos importados o a importar, estableciendo los requisitos fitosanitarios y los controles necesarios a las importaciones de vegetales o productos de origen vegetal.
+3º- Que la Ley de Protección Fitosanitaria Nº 7664 del 08 de abril de 1997 establece en su artículo 25 que toda persona física o jurídica que registre, importe, exporte, reempaque y reenvase sustancias químicas, biológicas o afines y equipos de aplicación para uso agrícola debe inscribirse ante el registro que llevará el Servicio Fitosanitario del Estado, previo a los requisitos que se señalarán en el respectivo reglamento.
+4º- Que, conforme al artículo N° 4 de la Ley de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos, Ley N° 8220 del 04 de marzo de 2002, todo trámite o requisitos que el administrado debe cumplir deben constar en una ley, un decreto o un reglamento y estar publicado en el diario oficial La Gaceta.
+5º- Que mediante la Directriz Nº 021-MEIC publicada en la Gaceta Nº 133 del viernes 21 de julio del 2023 se establecen plazos para emitir o reformar normas o disposiciones administrativas que se requieran para que los trámites y sus instructivos, manuales, formularios y anexos que no cumplen con los requisitos para ser publicados en el Catálogo Nacional de Trámites, lo hagan.
+6º- Que el Servicio Fitosanitario del Estado realiza el trámite de inscripción de personas físicas y jurídicas en el Departamento de Agroquímicos y Equipos, el trámite de emisión de formularios de requisitos fitosanitarios y el trámite de autorización de importación de plantas y productos vegetales, pero estos no cuentan con respaldo jurídico para ser publicados en el Catálogo Nacional de Trámites, por lo que es necesario ajustar la normativa para cumplir con la Directriz 021-MEIC indicada anteriormente.
+7º- Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Trámites y Requisitos Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No DMR-DAR-INF-128- 2024 emitido por la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio.
+Por tanto,
+DECRETAN:
+REFORMA DE LOS ARTÍCULOS 96, 97 Y ADICIÓN DE LOS ARTÍCULOS 191
+BIS, 191 TER Y ANEXOS 11 Y 12 DEL REGLAMENTO A LA LEY DE
+PROTECCIÓN FITOSANITARIA, DECRETO EJECUTIVO NO 26921-MAG,
+DEL 20 DE MARZO DE 1998.
+Artículo 1º - Refórmense los artículos 96 y 97 del Decreto Ejecutivo No 26921-MAG: Reglamento a la Ley de Protección Fitosanitaria, del 20 de marzo de 1998, para que se lean de la siguiente forma:
+"Artículo 96. - Del Trámite de inscripción de personas físicas y jurídicas en el Departamento de Agroquímicos y Equipos. Toda persona física o jurídica que registre, formule, fabrique, importe, exporte, reempaque, reenvase sustancias químicas, biológicas, bioquímicas o afines; así como sus equipos de aplicación, deberá inscribirse ante el Departamento de Agroquímicos y Equipos del Servicio Fitosanitario del Estado, previo cumplimiento de los siguientes requisitos:
+1. Aportar el recibo de pago del canon para la inscripción de personas físicas o jurídicas.
+2. Presentar debidamente lleno el formulario para el registro y anualidades de personas físicas y jurídicas, que puede encontrarse en el Anexo 11 de este reglamento.
+3. En caso de personas físicas, presentar cédula de identidad, pasaporte o cédula de residencia para verificar la identidad, vigente al momento de presentar la solicitud.
+4. Aportar certificación emitida por el colegio correspondiente o una copia para confrontar contra original, donde conste que existe una relación laboral vigente entre el regente y la persona física o jurídica, de acuerdo con lo siguiente:
+4.1 Personas físicas o jurídicas que registren, importen, exporten, reempaquen y reenvasen sustancias químicas, biológicas, bioquímicas o afines para uso agrícola, deberán contar con los servicios de un regente en ciencias agrícolas, incorporado al Colegio de Ingenieros Agrónomos.
+4.2 Las personas físicas o jurídicas que fabrican o formulan sustancias químicas, biológicas, bioquímicas o afines, además de contar con el regente agrónomo, deben tener un regente químico o microbiólogo, incorporado al colegio respectivo, según corresponda.
+En el caso de las personas físicas o jurídicas que únicamente registren, importen o exporten equipos de aplicación para uso agrícola no es obligatorio contar con regente.
+5. En caso de personas jurídicas, presentar cédula de identidad, pasaporte o cédula de residencia del representante legal, para verificar la identidad, vigente al momento de presentar la solicitud.
+6. Presentar cédula de identidad, pasaporte o cédula de residencia de los regentes, para verificar la identidad, vigente al momento de presentar la solicitud.
+7. Estar al día en todas sus obligaciones obreros patronales con la Caja Costarricense de Seguro Social (CCSS) y Fondo de Desarrollo de Asignaciones Familiares (FODESAF), situación que será verificada por la autoridad competente mediante consulta en la oficina virtual correspondiente.
+"Artículo 97. - Del procedimiento para la inscripción de personas físicas y jurídicas en el Departamento de Agroquímicos y Equipos. Se deberán seguir los pasos siguientes para realizar el trámite:
+1. El interesado deberá presentar los requisitos ante la Unidad de Registro de Agroquímicos y Equipos de Aplicación del Departamento de Agroquímicos y Equipos del SFE.
+2. La Unidad de Registro de Agroquímicos y Equipos Aplicación verificará que los requisitos indicados en el artículo 96 se hayan cumplido.
+3. Si todos los requisitos del artículo 96 se cumplen, la Unidad de Registro de Agroquímicos y Equipos de Aplicación elaborará una resolución de aprobación, que deberá ser firmada por la Jefatura de la Unidad de Registro de Agroquímicos y Equipos de Aplicación.
+4. La Unidad de Registro de Agroquímicos y Equipos de Aplicación incluirá en el sistema designado para el registro de personas físicas y jurídicas, la información del registrante, generando un número de registro para cada persona física o jurídica.
+5. Una vez incluida la información en el sistema, la Unidad de Registro de Agroquímicos y Equipos de Aplicación comunicará al usuario la resolución de aprobación de su inscripción.
+6. La Unidad de Registro de Agroquímicos y Equipos de Aplicación, resolverá la solicitud en un plazo máximo de 10 días naturales.
+7. La vigencia de la inscripción es por tiempo indefinido, salvo en cuatro casos:
+a. Que el registrante solicite su cancelación.
+b. Que el Departamento de Agroquímicos y Equipos, a través de la Unidad de Registro de Agroquímicos y Equipos de Aplicación compruebe que la información o la documentación aportada carece de veracidad.
+c. Por el no pago del canon anual.
+d. Fallecimiento de la persona física o disolución de la persona jurídica.
+8. En caso de que el interesado no presente los requisitos completos o que se encuentre algún faltante de información, la Unidad de Registro de Agroquímicos y Equipos de Aplicación, notificará los faltantes a través de un apercibimiento, para que se completen en el plazo de 10 días hábiles, durante los cuales no correrá el tiempo con el que cuenta la Unidad para resolver. Si en dicho plazo no se presentan los requisitos faltantes, se procederá con el archivo del trámite, que será comunicado a través de una resolución de cancelación al interesado.
+9. Una vez inscrito, el interesado deberá cancelar cada año, la cuota de anualidad establecida por el artículo 2, código 2.g del Decreto Ejecutivo 27763: Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería, del 10 de marzo de 1999."
