@@ -1,1 +1,0 @@
-Artículo 31. —Prohibición para permanecer fuera de horarios. Fuera de los casos expresamente autorizados por este Reglamento, ninguna persona podrá permanecer dentro de estos inmuebles, antes o después del horario fijado, exceptuando los empleados del mismo, cuadrillas de aseo o personal de vigilancia, con el objeto de concluir o cumplir con sus labores.

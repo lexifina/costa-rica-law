@@ -1,1 +1,0 @@
-Artículo 32. —De la apertura al público. Los locales deben estar preparados para la venta de sus productos al momento de la apertura, quedando prohibido el movimiento de mercadería en tanto el mercado se encuentre en funcionamiento con los clientes, salvo por razones de necesidad comercial a juicio de la Administración y como excepción.

@@ -1,2 +1,0 @@
-Artículo 44.—Derogatorias. Este Reglamento deroga y deja sin efecto el anterior Reglamento de Organización y Funcionamiento del Mercado Municipal de Esparza, publicado en La Gaceta número 174 del 13 de setiembre de 1994, y cualquier disposición reglamentaria anterior que se le oponga en contrario.
-(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 89 del 22 de mayo de 2018, página N° 84)

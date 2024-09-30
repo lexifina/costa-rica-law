@@ -1,8 +1,0 @@
-Artículo 11—De la competencia del Concejo Municipal. Es competencia del Concejo Municipal lo siguiente:
-a. Aprobar, modificar o derogar el presente reglamento e interpretarlo, así como las normas aclaratorias de carácter general, anexos o manuales operacionales, las políticas generales y los planes anuales operativos.
-b. Resolver en alzada los recursos administrativos que le correspondan según la legislación aplicable.
-c. Dictaminar la adjudicación de los espacios en los Mercados Municipales de acuerdo con las Reglas establecidas en la Ley de Contratación Administrativa y su respectivo Reglamento.
-d. Aprobar o improbar las cesiones de derechos de arrendamiento de los locales, previa recomendación técnica de la Administración, donde se demuestre el fallecimiento o incapacidad permanente del arrendatario para continuar con el arrendamiento. esta recomendación deberá contener el nombre del beneficiario de dicha cesión.
-e. Fijar los precios públicos por el uso en precario de los locales comerciales por parte de las personas concesionarias de éstos y establecer los sistemas más adecuados de cobro de los mismos, basados en los estudios técnicos respectivos, presentados por la Administración Municipal. Además, fijar las políticas y los criterios de aumento de estos precios públicos, los cuales podrán hacerse mediante acuerdo municipal.
-f. Autorizar, según lo establecido en el presente Reglamento, el cambio de destino de actividades comerciales en los Mercados, así como autorizar la realización de nuevas actividades en los inmuebles previo estudio técnico por parte de la Administración Municipal.
-g. Cualquier otra actividad que determine la ley y el Ordenamiento Jurídico en la materia.

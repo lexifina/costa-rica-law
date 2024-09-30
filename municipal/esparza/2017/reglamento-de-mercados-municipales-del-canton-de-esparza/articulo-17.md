@@ -1,2 +1,0 @@
-Artículo 17. —Del límite de locales por arrendatario. El número máximo de locales en arrendamiento para un mismo arrendatario queda definido en uno en el total de cada Mercado.
-En caso que la Administración Municipal compruebe duplicidad, estará automáticamente facultada a revocar la adjudicación o cesión más reciente mediante resolución administrativa fundada que se notificará a las partes involucradas, prevaleciendo la más antigua.

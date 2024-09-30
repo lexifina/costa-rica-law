@@ -1,9 +1,0 @@
-Artículo 10—Competencia de la Alcaldía Municipal.
-a. En coordinación con el Área de Gestión Administrativa, formular y ejecutar todos los Proyectos, Programas y Planes institucionales y administrativos, de transformación y remodelación en general de los inmuebles, así como lo concerniente con aspectos organizacionales, de jerarquía y de toma de decisiones referidos a los Mercados.
-b. Decidir acerca de los asuntos que competen al Área de Gestión Administrativa y al asistente de los Mercados Municipales en caso de ausencia de estos servidores, para el eficiente funcionamiento.
-c. Proponer oportunamente al Concejo Municipal los estudios técnicos cada cinco años que fundamenten los aumentos en los precios públicos que deberán pagar las personas concesionarias de los locales comerciales de los Mercados Municipales.
-d. Fijar y aprobar las limitaciones de transformación interna, tales como mejoras, remodelaciones y acondicionamiento de los locales, solicitados por los arrendatarios. En todos estos casos será necesario previo a la decisión, el criterio técnico de los ingenieros y arquitectos al servicio de la institución.
-e. Conocer los recursos de apelación de los actos dictados por la Administración de los Mercados Municipales.
-f. Aprobar los horarios de apertura y cierre al público de los Mercados, así como los horarios y el demarcamiento de las zonas de carga y descarga de mercadería.
-g. Aplicar las sanciones derivadas de faltas graves, una vez examinados los correspondientes informes; inspeccionar los servicios de los mercados y vigilar el cumplimiento de lo dispuesto sobre los mismos.
-h. Cualquier otro que le impongan las leyes y los reglamentos al efecto y que se presenten a su consideración a efectos de mejorar las condiciones de operación de los Mercados Municipales.
