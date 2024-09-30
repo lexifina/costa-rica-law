@@ -1,0 +1,1 @@
+Artículo 34.-Derecho a la desconexión digital: La persona teletrabajadora tiene derecho al respeto de su tiempo de descanso, vacaciones, permisos y su intimidad personal y familiar, fuera de la jornada u horario establecido, salvo que se trate de situaciones imprevistas y urgentes, en las que se deba contar con la anuencia del representante patronal.

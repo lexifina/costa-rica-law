@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones Finales
+Artículo 43.-Aplicación de normativa supletoria: En los casos que no se tenga una regulación expresa en este presente reglamento, sobre algún aspecto laboral, técnico y administrativo, se integrará e interpretará conforme a los principios generales de derecho aplicables, la Constitución Política de Costa Rica, la Ley N° 9738, denominada Ley para regular el Teletrabajo y su Reglamento, el Código de Trabajo, la Ley General de la Administración Pública, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8292, Ley General de Control Interno, el Reglamento Autónomo de Trabajo del PANI, y otras disposiciones normativas internas y externas conexas vigentes en el país.

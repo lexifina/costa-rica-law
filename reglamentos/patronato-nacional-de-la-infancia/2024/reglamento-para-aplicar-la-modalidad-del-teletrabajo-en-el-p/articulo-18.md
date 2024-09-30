@@ -1,0 +1,2 @@
+Artículo 18.-Jornada Extraordinaria: No se autorizan horas extras bajo la modalidad de teletrabajo, entiéndase que para laborar horas extras deberá ser solamente en modalidad presencial, previamente autorizada por la Presidencia Ejecutiva.
+Sin embargo, en casos excepcionales, la Presidencia Ejecutiva valorará cada caso en específico y podrá autorizar laborar en horas extras en modalidad de teletrabajo por un periodo de tiempo determinado.

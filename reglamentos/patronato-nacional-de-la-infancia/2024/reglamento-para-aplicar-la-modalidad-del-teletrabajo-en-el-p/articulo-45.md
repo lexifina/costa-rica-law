@@ -1,0 +1,1 @@
+Artículo 45.-Transitorio Único: Las personas funcionarias que, previo a la entrada en vigor del presente Reglamento, posean un contrato o adenda que se encuentre vigente para laborar en la modalidad de teletrabajo, conservarán tal condición por un plazo de hasta 3 meses, hasta que se firme el nuevo contrato.
