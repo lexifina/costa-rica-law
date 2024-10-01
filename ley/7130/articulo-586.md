@@ -1,1 +1,0 @@
-ARTÍCULO 586.- Rechazo de plano e informe del juez de primera instancia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
