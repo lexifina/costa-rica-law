@@ -1,0 +1,1 @@
+Artículo 81. Alcance del otorgamiento de incentivos. Los incentivos serán otorgados únicamente a partir de la gestión integral de los residuos ordinarios. Los residuos peligrosos y de manejo especial no se considerarán para este fin y deben ser manejados de acuerdo con lo establecido en la legislación nacional.

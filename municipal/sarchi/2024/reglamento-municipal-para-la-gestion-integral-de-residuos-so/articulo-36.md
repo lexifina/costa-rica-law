@@ -1,0 +1,1 @@
+Artículo 36. Llantas y neumáticos. La Municipalidad podrá coordinar campañas específicas de recolección de este tipo de residuos y además se podrá disponer de éstos durante las jornadas periódicas de recolección de residuos no tradicionales. El Generador deberá atender la normativa establecida por el MINSA en el Reglamento sobre llantas de desecho, Decreto Ejecutivo N.° 33745-S.

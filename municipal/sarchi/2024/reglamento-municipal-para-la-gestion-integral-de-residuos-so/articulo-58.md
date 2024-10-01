@@ -1,0 +1,2 @@
+CAPÍTULO X: DE LA DISPOSICIÓN FINAL DE LOS RESIDUOS
+Artículo 58. Disposición final de los residuos sólidos ordinarios no valorizables. La Municipalidad o entidad encargada de la gestión podrán disponer de los residuos sólidos no valorizables únicamente en rellenos sanitarios debidamente autorizados por el MINSA y en cumplimiento de lo dispuesto en el Reglamento sobre Rellenos Sanitarios, Decreto Ejecutivo N.° 38928-S. En dichos lugares sólo se deberán depositar aquellos residuos que no pueden ser tratados o valorizados.

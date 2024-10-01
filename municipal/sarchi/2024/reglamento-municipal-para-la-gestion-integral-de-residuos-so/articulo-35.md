@@ -1,0 +1,1 @@
+Artículo 35. Baterías ácidas de plomo. Este tipo de residuos no puede incluirse dentro del flujo de los residuos ordinarios y el servicio de gestión municipal de residuos no incluye la recolección de baterías ácidas de plomo (de uso vehicular), por lo que el Generador deberá entregarlas al distribuidor autorizado para que proceda a su eliminación o reutilización.

@@ -1,0 +1,3 @@
+CAPÍTULO VI: SERVICIO DE GESTIÓN DE RESIDUOS SÓLIDOS
+Artículo 26. Garantía de brindar el servicio. La Municipalidad garantizará que en el cantón se provea el servicio de gestión de residuos sólidos en forma selectiva, accesible, periódica y eficiente para todos los contribuyentes. Asimismo, promoverá la colocación de sistemas alternativos para la recolección selectiva de residuos valorizables como contenedores o receptores, definidos previamente por la Municipalidad.
+La Municipalidad puede contratar los servicios de gestión de residuos de manera integral con gestores autorizados, o contratar de manera separada los servicios a gestores autorizados independientes.

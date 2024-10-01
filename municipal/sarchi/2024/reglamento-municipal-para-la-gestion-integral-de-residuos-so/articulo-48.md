@@ -1,0 +1,1 @@
+Artículo 48. Cumplimiento de obligaciones como Generador. Como todo Generador, los organizadores de un evento temporal de concentración masiva de personas deberán cumplir con todas las obligaciones contempladas en este reglamento y serán responsables de mantener el aseo del espacio utilizado para desarrollar la actividad.

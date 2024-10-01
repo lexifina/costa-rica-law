@@ -1,0 +1,5 @@
+Artículo 15. Empaque de los residuos. Los residuos ordinarios, tanto valorizables como no valorizables, deberán ser dispuestos por el Generador a la espera de la recolección debidamente empacados. No se permite la disposición de residuos sueltos en estañones o contenedores similares. Para el empaque de los residuos se deben utilizar exclusivamente bolsas o sacos plásticos que cuenten con las siguientes características:
+1. Preferiblemente de material compostable.
+2. Que puedan cerrase adecuadamente por medio de un dispositivo de amarre fijo o un nudo, de forma que no permitan la entrada de agua, insectos o roedores, ni el escape de líquidos.
+3. Resistentes al peso de su contenido y capaces de soportar la tensión ejercida por los residuos contenidos y por la manipulación propia de la prestación del servicio de recolección.
+4. De cualquier color excepto rojo, el cual es de uso exclusivo para residuos infectocontagiosos. Para los residuos valorizables, de preferencia en bolsas o sacos transparentes.

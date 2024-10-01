@@ -1,0 +1,1 @@
+Artículo 102. Responsabilidades de los funcionarios municipales. La Municipalidad aplicará rigurosamente los incisos a), b), g), e) e i) del artículo 156 del Código Municipal a los funcionarios responsables de trámites y servicios relacionados con el ambiente, en cuanto a sus deberes y responsabilidades, y el artículo 57 de la Ley N.º 8839.

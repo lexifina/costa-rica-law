@@ -1,0 +1,1 @@
+Artículo 45. Mecanismos de verificación de cumplimiento del servicio. La Municipalidad establecerá mecanismos que permitan el seguimiento, control y verificación del servicio de gestión de residuos sólidos, de manera que sea una herramienta ante reclamos de usuarios y ante los organismos fiscalizadores.

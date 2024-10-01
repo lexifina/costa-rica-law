@@ -1,0 +1,3 @@
+CAPÍTULO VIII: GESTORES AUTORIZADOS
+Artículo 53. Responsabilidades de los gestores autorizados de residuos sólidos. La única forma autorizada para la entrega y disposición de residuos de cualquier tipo en el cantón es la que se detalla en el presente reglamento, por lo tanto, queda absolutamente prohibido entregar los residuos de cualquier categoría a gestores que no se encuentre debidamente autorizados por parte del MINSA.
+Los gestores autorizados pueden brindar sus servicios de manera integral (recolección, transporte, tratamiento y disposición final) o de manera parcial y no necesariamente incluir toda la línea de gestión.

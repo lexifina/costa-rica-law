@@ -1,0 +1,1 @@
+Artículo 17. Llenado máximo de las bolsas o sacos. Ninguna de las bolsas o sacos entregados por el Generador para su recolección deberá llenarse por encima de tres cuartas partes de su volumen para que puedan ser debidamente cerradas, ni superar un peso de 15 kilogramos.

@@ -1,0 +1,1 @@
+Artículo 77. Solicitud de devolución de dinero por pago indebido. La solicitud de devolución por pago indebido se realizará de acuerdo con lo estipulado en el artículo 43 del Código de Normas y Procedimientos Tributarios, Ley N.° 4755 (Código Tributario), el trámite se resolverá dentro del plazo de diez días hábiles.

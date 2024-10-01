@@ -1,0 +1,1 @@
+Artículo 83. Asignación de los incentivos. La Unidad de Gestión de Residuos en coordinación con el encargado de Gestión Ambiental, establecerá el procedimiento técnico para la asignación de los incentivos, mediante la aplicación del protocolo correspondiente, de forma que se corrobore y evalúe la idoneidad de los candidatos y sus propuestas.

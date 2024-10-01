@@ -1,0 +1,1 @@
+Artículo 55. Presentación de informe por los gestores autorizados. Los gestores autorizados que gestionen los residuos deberán presentar al menos un informe mensual en donde se indique la cantidad y tipos de residuos gestionados.

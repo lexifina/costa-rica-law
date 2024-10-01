@@ -1,0 +1,3 @@
+Artículo 80. Tipos de incentivos. La Municipalidad podrá brindar los siguientes tipos de incentivos:
+1. Incentivo no fiscal: Consiste en un reconocimiento otorgado por la Municipalidad, diferenciado para cada tipo de Generador, que garantiza que está implementando buenas prácticas ambientales que contribuyen a la reducción de los residuos. Este incentivo podrá ser solicitado por cualquier Generador que cumpla con los requisitos establecidos para recibir este reconocimiento.
+2. Campañas de competencia en centros educativos: Consiste en realizar competencias entre centros educativos del Cantón que lleven a cabo proyectos que apoyen la reducción de los residuos generados. Se brindarán premios y reconocimientos con apoyo de empresas privadas que actúen como patrocinadoras.

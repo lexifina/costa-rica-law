@@ -1,0 +1,1 @@
+Artículo 16. Empaque de residuos punzocortantes. Los residuos punzocortantes, sin excepción, tienen que ser envueltos de tal manera que no representen riesgos a la salud de las personas recolectoras, debidamente rotulados y empacados en forma separada.

@@ -1,0 +1,1 @@
+Artículo 62. Cobro de la tasa. El cobro de la tasa por estos servicios se realizará al propietario registral, al poseedor de fundo sin inscribir o al usufructuario de la finca según corresponda, de acuerdo con la cantidad de unidades habitacionales, locales comerciales o entes estatales, ubicados dentro de ella, sin importar si se encuentran en uso o no.

@@ -1,0 +1,1 @@
+Artículo 19. Obstáculos para la recolección de los residuos. El Generador deberá evitar la existencia de obstáculos temporales y/o permanentes frente a su propiedad o frente al sistema de almacenamiento colectivo que dificulten la labor de recolección, o que ponga en riesgo la integridad de las personas recolectoras.

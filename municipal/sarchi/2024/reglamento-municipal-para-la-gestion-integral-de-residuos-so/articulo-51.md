@@ -1,0 +1,1 @@
+Artículo 51. Inspecciones de control. La Municipalidad se reserva el derecho de realizar inspecciones durante o al finalizar el evento, con el objetivo de verificar la correcta gestión integral de los residuos.
