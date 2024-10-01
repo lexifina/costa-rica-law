@@ -1,4 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 754.- Facultades del deudor y vigilancia de la administración
-Durante la instrucción del procedimiento y la ejecución del convenio, cuando este no consista en una cesión inmediata de los bienes a los acreedores, se aplicará al deudor o a la administración, en su caso y en lo pertinente, lo dispuesto en el artículo 733; mientras tanto, el curador vigilará la administración que el deudor haga de sus bienes y avisará al juzgado de cualquier irregularidad que observe. Si esta fuere grave, el convenio se tendrá por insubsistente y de seguido, se declarará el concurso o la quiebra, según corresponda.
+ARTÍCULO 754.- Facultades del deudor y vigilancia de la administración. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 754 es ahora 777)

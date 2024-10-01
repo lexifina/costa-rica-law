@@ -1,1 +1,1 @@
-ARTÍCULO 918.- Entre los créditos del insolvente como fiador, subsistirá el beneficio de excusión, aunque éste lo hubiere renunciado; y el deudor, aunque el plazo esté por vencerse, debe pagar o reemplazar la garantía.
+ARTÍCULO 918.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

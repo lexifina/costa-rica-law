@@ -1,2 +1,1 @@
-ARTÍCULO 957.- DEROGADO.
-(Derogado por el artículo 8 del Código Procesal Civil ley Nº 7130 de 16 de agosto de 1989)
+ARTÍCULO 957.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021. Anteriormente este numeral había sido derogada por el artículo 8 del Código Procesal Civil ley Nº 7130 de 16 de agosto de 1989)

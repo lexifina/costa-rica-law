@@ -1,1 +1,1 @@
-ARTÍCULO 998.- La suma o sumas que se apliquen al pago de un crédito en virtud de la preferencia establecida en el artículo anterior, no se tomarán en cuenta para disminuir el dividendo que pueda corresponder a dicho crédito en las reparticiones generales que se hagan entre todos los acreedores del concurso.
+ARTÍCULO 998.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

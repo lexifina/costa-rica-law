@@ -1,1 +1,1 @@
-ARTÍCULO 939- A sus expensas y bajo su responsabilidad, pueden los curadores dar poder para los negocios del concurso que ellos no pueden desempeñar personalmente.
+ARTÍCULO 939- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

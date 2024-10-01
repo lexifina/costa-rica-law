@@ -1,6 +1,1 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 727.- Verificación de los créditos
-Los acreedores que constan en la lista suministrada por el deudor no están obligados a legalizar su crédito; pero, si se apersonaren, deberán presentar los títulos que amparen su derecho.
-Dentro de los quince días posteriores a la aceptación del cargo, el interventor rendirá un informe detallado de los pasivos de la empresa.
-Los acreedores que no aparezcan en la lista suministrada por el deudor, deberán reclamar su derecho a que se les tenga como tales y presentar observaciones al plan, dentro del plazo indicado en el párrafo 3 inciso 8) del artículo 719. En este caso, se oirá por tres días al interventor y al deudor o a su representante y, recibidas las pruebas que se hayan ofrecido se resolverá lo que corresponda. El trámite de la verificación, en cuanto a estos acreedores y a los objetados por el interventor, se efectuará incidentalmente y no obstaculizará el curso del proceso de discusión y aprobación del plan de salvamento.
-(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)
+ARTÍCULO 727.- Verificación de los créditos. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

@@ -1,1 +1,1 @@
-ARTÍCULO 944.- Los coobligados o fiadores del insolvente serán acreedores del concurso por las cantidades que hubieren pagado por cuenta de aquél; pero no por las que estén obligados a pagar después, salvo que, satisfaciendo al acreedor, entren, por medio de subrogación, en su lugar.
+ARTÍCULO 944.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

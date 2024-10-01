@@ -1,1 +1,1 @@
-ARTÍCULO 920.- Desde la apertura del concurso, y mientras éste no se termine, los acreedores del concurso no pueden iniciar ni continuar separadamente procedimientos judiciales para el pago de su respectivo crédito, contra el insolvente y los bienes concursados.
+ARTÍCULO 920.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

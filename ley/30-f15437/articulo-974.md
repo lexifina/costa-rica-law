@@ -1,1 +1,1 @@
-ARTÍCULO 974.- Terminado el concurso por convenio, los litigios pendientes con el concurso, pasan al deudor, a quien, salvo pacto en contrario, se entregarán todos los bienes no realizados, rindiéndole cuenta al curador de su administración.
+ARTÍCULO 974.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

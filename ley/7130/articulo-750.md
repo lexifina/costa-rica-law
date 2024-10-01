@@ -1,4 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 750.- Insubsistencia del procedimiento
-El juzgado podrá declarar, en cualquier tiempo, de oficio o a solicitud de parte, la insubsistencia del procedimiento, si llegare a comprobar, oídos previamente por tres días el curador y el deudor, que este último ha falseado los datos o los documentos aportados en apoyo de su pretensión o que no está materialmente capacitado para enfrentar el convenio propuesto. En tal caso, se declarará la quiebra o el concurso civil, según proceda.
+ARTÍCULO 750.- Insubsistencia del procedimiento. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 750 es ahora 773)

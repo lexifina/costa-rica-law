@@ -1,2 +1,1 @@
-ARTÍCULO 937- DEROGADO.
-(Derogado por artículo Nº 7º de la Ley Nº 4327 de 17 de febrero de 1969)
+ARTÍCULO 937- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021. Anteriormente este numeral había sido derogado por el artículo Nº 7º de la Ley Nº 4327 de 17 de febrero de 1969)

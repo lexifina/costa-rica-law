@@ -1,1 +1,1 @@
-ARTÍCULO 900.- Todas las disposiciones y actos de dominio o administración del insolvente, sobre cualquiera especie y porción de los bienes a que se refiere el primer inciso del artículo precedente, después de publicada en el periódico oficial la declaratoria de insolvencia, son absolutamente nulos.
+ARTÍCULO 900.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
