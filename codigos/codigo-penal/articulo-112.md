@@ -10,5 +10,7 @@ Artículo 112.- Se impondrá prisión de veinte a treinta y cinco años, a quien
 8) Para preparar, facilitar, consumar u ocultar otro delito o para asegurar sus resultados o procurar, para sí o para otro, la impunidad o por no haber logrado el fin propuesto al intentar otro delito.
 9) Por precio o promesa remuneratoria.
 10) A un miembro de los cuerpos policiales del Estado, municipal y de las demás fuerzas de policía públicas, cuya competencia esté prevista por ley, siempre que sea en ejercicio, por causa o en razón de sus funciones.
-(Así adicionado el inciso anterior por el artículo 1° de la Ley "Calificación de los delitos cometidos contra la integridad y vida de los policías en el ejercicio de sus funciones"; ley N° 8977 del 3 de agosto del 2011,)
+(Así adicionado el inciso anterior por el artículo 1° de la Ley "Calificación de los delitos cometidos contra la integridad y vida de los policías en el ejercicio de sus funciones"; ley N° 8977 del 3 de agosto del 2011)
+11) A una persona por motives de odio a causa de su pertenencia a un grupo etario, racial, étnico, religioso, de su nacionalidad, opinión política, situación migratoria, orientación sexual, identidad o expresión de género, discapacidad o características genéticas.
+(Así adicionado el inciso anterior por el artículo único de la ley N° 10175 del 25 de abril de 2022)
 (Así reformado por el artículo 1°, punto 1., aparte a) de la Ley de Fortalecimiento de la Legislación contra el Terrorismo, N° 8719 de 4 de marzo de 2009)
