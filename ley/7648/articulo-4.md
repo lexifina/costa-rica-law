@@ -23,4 +23,7 @@ q) Suscribir convenios de cooperación, nacionales e internacionales, para apoya
 r) Aceptar donaciones, herencias, legados y cesiones de derechos, así como cualquier otra transacción que beneficie el patrimonio de la Institución.
 s) Administrar el fondo proporcionado por el Poder Ejecutivo para atender, en todo el país, a la población infantil en riesgo.
 t) Dictar los reglamentos internos necesarios para el adecuado cumplimiento de sus objetivos.
-u) Las demás atribuciones establecidas en la Convención sobre los Derechos del Niño y en la legislación vigente sobre la materia.
+u) En ausencia de un ministerio que ejerza la rectoría social, el Patronato Nacional de la Infancia (PANI) coordinará y presidirá la Comisión Consultiva de la Redcudi.
+(Así adicionado el inciso anterior por el artículo 3° de la Ley Reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero de 2021)
+v) Las demás atribuciones establecidas en la Convención sobre los Derechos del Niño y en la legislación vigente sobre la materia.
+(Así modificada la numeración del inciso anterior por el artículo 3° de la Ley Reactivación y reforzamiento de la red nacional de cuido y desarrollo infantil, N° 9941 del 15 de febrero de 2021, que lo traspaso del antiguo inciso u) al inciso v))
