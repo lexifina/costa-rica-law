@@ -252,3 +252,6 @@ articulo-243.md
 articulo-244.md
 articulo-245.md
 articulo-246.md
+articulo-247.md
+articulo-248.md
+articulo-249.md

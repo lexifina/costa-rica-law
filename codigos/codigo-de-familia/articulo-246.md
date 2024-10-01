@@ -1,6 +1,6 @@
-Artículo 246.- (Anulado por Resolución de la Sala Constitucional Nº 3858-99 del 25 de mayo de 1999.)
-(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 233 al 246)
-Rige seis meses después de su publicación.
-Comuníquese al Poder Ejecutivo
-Asamblea Legislativa.- San José, a los siete días del mes de noviembre de mil novecientos setenta y tres.
-Casa Presidencial.- San José, a los veintiún días del mes de diciembre de mil novecientos setenta y tres.
+Artículo 246- Unión de hecho. Solicitud de reconocimiento. Para los efectos indicados en el artículo anterior, cualquiera de los convivientes o, si se trata de un conviviente fallecido, por medio de su sucesión, podrá solicitar el reconocimiento de esa unión. La acción caducará en dos años a partir de la ruptura de la convivencia o de la muerte del causante conviviente.
+Además, los convivientes, por mutuo consentimiento, podrán solicitar el reconocimiento de la unión una vez finalizada y con el mismo plazo de caducidad, mediante el trámite establecido en el Código Procesal de Familia, para lo cual se deberán seguir los requisitos y la forma de trámite establecidos en el artículo 48 de este Código, pero en la escritura pública que se otorga deberán plasmarse las declaraciones de al menos dos personas que manifiesten sobre la existencia de la unión y los requisitos del artículo anterior.
+(Así adicionado por el artículo 1° de la ley No.7532 del 8 de agosto de 1995, “Adiciona Código de Familia para Regular la Unión de Hecho”)
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 230 al 243)
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
+(Así modificada su numeración por el artículo 32 de la Ley de Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca), N° 10192 del 28 de abril de 2022, que lo traspaso del antiguo artículo 243 al artículo 246)
