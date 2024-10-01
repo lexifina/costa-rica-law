@@ -1,6 +1,6 @@
 # Ley Orgánica del Patronato Nacional de la Infancia
 
-Ley N° 7648 del 1996-12-09. SINALEVI, ficha 41328: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41328&param2=143024&param3=1>.
+Ley N° 7648 del 1996-12-09. SINALEVI, ficha 41328: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41328&param2=143026&param3=1>.
 
 Publicada en La Gaceta N° 245 del 1996-12-20.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 8 | 2018-12-04 | Ley 9635 | 2018-12-03 |
 | 5 de 8 | 2024-10-01 | Ley 9747 | 2019-10-23 |
 | 6 de 8 | 2024-10-01 | Ley 9941 | 2021-02-15 |
+| 7 de 8 | 2024-10-01 | Ley 10038 | 2021-09-29 |
