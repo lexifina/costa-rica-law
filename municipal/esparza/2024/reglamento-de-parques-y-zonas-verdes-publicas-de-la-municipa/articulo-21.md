@@ -1,0 +1,1 @@
+Articulo 21.-Conforme lo establece el Código Municipal, la Municipalidad cobrará tasas para el mantenimiento y desarrollo de parques y zonas verdes públicas, para cada uno de los distritos, conforme el costo de inversión para cada uno de éstos.

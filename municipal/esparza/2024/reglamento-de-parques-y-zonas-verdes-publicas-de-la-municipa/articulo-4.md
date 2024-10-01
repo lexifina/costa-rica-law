@@ -1,0 +1,2 @@
+Artículo 4º-Sobre el uso público. Por su calificación de bienes de dominio y uso público; estos espacios, no son objeto de usos privativos que, por su finalidad, contenido, características o fundamentos, constituyeran detrimento de su naturaleza y destino.
+Cuando en estos espacios se realicen actividades públicas, se deberán tomar las medidas previsoras para que la afluencia de personas no cause daños a los árboles, plantas y mobiliario urbano.
