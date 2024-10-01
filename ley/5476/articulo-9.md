@@ -1,2 +1,7 @@
-Artículo 9º.- Las autorizaciones o aprobaciones de los Tribunales que este Código exige en determinados casos, se extenderán mediante el proceso sumario señalado en el Código Procesal Civil, cuando no esté establecido otro procedimiento.
-(Así reformado por el artículo 7º de la “Ley de Emisión del Código Procesal Civil”, Nº 7130 de 16 de agosto de 1989)
+Artículo 9- Domicilio y residencia habitual. Para los fines del derecho internacional de familia, la persona física tiene su domicilio en el Estado en el que reside con la intención de establecerse en él y su residencia habitual en el Estado en el que tiene su círculo social de vida por un tiempo prolongado.
+Una persona no puede tener varios domicilios al mismo tiempo. En caso de no tener domicilio conocido, se considera que lo tiene donde está su residencia habitual o, en su defecto, el lugar donde se localice.
+El domicilio de las personas menores de edad se encuentra en el Estado del domicilio de quienes ejercen los atributos de la responsabilidad parental. Si el ejercicio de estos atributos es conjunto en ambos padres y estos se domicilian en Estados diferentes, las personas menores de edad se consideran domiciliadas donde tienen su residencia habitual.
+Sin perjuicio de lo dispuesto por convenciones internacionales, las personas menores de edad que han sido sustraídas o retenidas ilícitamente no adquieren domicilio en el lugar donde permanezcan sustraídos, sean trasladados o retenidos ilícitamente.
+El domicilio de las personas sujetas a salvaguarda u otro instituto equivalente de protección es el lugar de su residencia habitual.
+El domicilio de personas que actúan en función diplomática, así como de las personas que residan temporalmente en el extranjero por razones de trabajo, estudios u otros, será el último que hayan tenido en su territorio nacional.
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

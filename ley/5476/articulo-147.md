@@ -1,2 +1,3 @@
-Artículo 147.- La patria potestad no da derecho a enajenar ni a gravar los bienes del hijo, salvo en caso de necesidad o de provecho evidente para el menor. Para ello será necesaria autorización judicial si se tratare de inmuebles o de muebles con un valor superior a diez mil colones.
+Artículo 147- Atributos de la responsabilidad parental. Enajenación y gravamen de bienes del hijo. Los atributos de la responsabilidad parental no dan derecho a enajenar ni a gravar los bienes del hijo, salvo en caso de necesidad o de provecho evidente para el menor. Para ello, será necesaria la autorización judicial si se tratara de inmuebles o de muebles con un valor superior a diez mil colones (¢10.000).
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 134 al 147)
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

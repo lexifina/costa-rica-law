@@ -1,3 +1,3 @@
-Artículo 140°- Incumplimiento de medidas.
-De incumplirse algunas de las medidas previstas en los artículos 135 y 136, la oficina local del Patronato Nacional de la Infancia podrá adoptar una medida alternativa, ampliar el plazo de cumplimiento de la anterior o remitir el asunto al juez, para la suspensión de la patria potestad.
-Si la medida incumplida fuere una de las previstas en el artículo 137, la oficina local del Patronato pondrá la denuncia ante la autoridad administrativa a quien corresponda tomar las acciones coercitivas que procedan.
+Artículo 140- Incumplimiento de medidas. De incumplirse algunas de las medidas previstas en los artículos 135 a 136, la oficina local del Patronato Nacional de la Infancia (PANI) podrá adoptar una medida alternativa, ampliar el plazo de cumplimiento de la anterior o remitir el asunto al juez, para la suspensión de los atributos de la responsabilidad parental.
+Si la medida incumplida fuera una de las previstas en el artículo 137, la oficina local del Patronato pondrá la denuncia ante la autoridad administrativa a quien corresponda tomar las acciones coercitivas que proceda.
+(Así reformado por el artículo 2° punto IV) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

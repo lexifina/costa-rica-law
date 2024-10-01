@@ -1,2 +1,2 @@
-Artículo 197.- Mientras el tutor no tenga la administración de la tutela, el Tribunal proveerá el cuidado del menor y nombrará un administrador interino de los bienes, que estará sujeto a las obligaciones establecidas para el tutor, en lo que corresponda.
+Artículo 197.- (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 184 al 197)

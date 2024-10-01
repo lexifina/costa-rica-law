@@ -1,3 +1,2 @@
-Artículo 160 bis.- La prestación alimentaria comprenderá también la educación, instrucción o capacitación para el trabajo de los alimentarios menores de edad, incapaces o que se encuentren en la situación prevista en el inciso 6) del artículo anterior. Asimismo, incluirá la atención de las necesidades para el normal desarrollo físico y síquico del beneficiario.
-El alimentante de menores de doce años podrá solicitar semestralmente ante el juez respectivo, un examen médico que certifique el estado de salud físico y nutricional de los alimentarios. Este examen deberá ser practicado por un especialista de la Caja Costarricense de Seguro Social.
+Artículo 160 bis.- (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 (Así adicionado por el artículo 66 de la Ley N° 7654 de 19 de diciembre de 1996, “ Ley de Pensiones Alimentarias”)
