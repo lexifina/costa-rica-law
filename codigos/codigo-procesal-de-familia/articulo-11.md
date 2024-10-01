@@ -1,0 +1,2 @@
+Artículo 11- Costo mínimo. La tramitación de asuntos contenidos en este Código o en leyes especiales relativas a la materia familiar estará exenta del pago de tasas, impuestos y timbres de todo tipo.
+En las actuaciones jurisdiccionales privará el principio de gratuidad en los casos y las formas en que la autoridad judicial considere necesario en virtud de las condiciones socioeconómicas de quienes intervienen, todo según se regla en este Código.

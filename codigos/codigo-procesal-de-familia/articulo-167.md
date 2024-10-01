@@ -1,0 +1,1 @@
+Artículo 167- Testigos hijas o hijos de las partes. Cuando se trate de testigos hijas o hijos de las partes o de alguna de ellas y que sean menores de quince años de edad, se recibirá su testimonio sin la presencia de las partes, quienes deberán hacerse representar por sus representantes legales.

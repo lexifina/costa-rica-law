@@ -1,0 +1,1 @@
+Artículo 93- Nulidades en actividades defectuosas en segunda instancia. En segunda instancia solo será decretada una nulidad de una actividad procesal a petición de parte y excepcionalmente se podrá decretar de oficio según los principios de este capítulo, cuando se trate de situaciones que requieran necesariamente su saneamiento.

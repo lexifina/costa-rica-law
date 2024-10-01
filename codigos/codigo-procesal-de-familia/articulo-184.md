@@ -1,0 +1,1 @@
+Artículo 184- Deberes de la persona perita. Antes de la rendición del informe, las personas peritas están en la obligación de mantener reserva y privacidad de la información, salvo que a criterio del tribunal se requieran informes preliminares relacionados con dicha información.

@@ -1,0 +1,1 @@
+Artículo 226- Registro de la audiencia. De lo actuado en la audiencia previa de conciliación se levantará un acta lacónica, que indique la existencia o no del arreglo. En este último caso no será necesaria la firma de las personas presentes, sino únicamente de quien la presidió.

@@ -1,0 +1,1 @@
+Artículo 7- Efectivización de derechos transversales. En los procesos de la jurisdicción familiar, las personas juzgadoras tendrán particular esmero en la efectivización de los derechos humanos de personas en situación de vulnerabilidad, contenidos en la normativa nacional, internacional y sus principios.

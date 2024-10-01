@@ -1,0 +1,3 @@
+Artículo 321- Convocatoria a audiencia conciliatoria y decisión final. Rendidos el peritaje y los informes necesarios se convocará a una audiencia de conciliación.
+No existiendo acuerdo, la autoridad judicial emitirá, dentro del tercer día, la resolución final sobre el valor del derecho reclamado, las obligaciones pecuniarias que se asumen, su forma y el plazo razonable de pago.
+Si no se cumple lo ordenado, la persona acreedora del derecho de ganancialidad podrá pedir el cobro de la suma indicada mediante el procedimiento de cobro ejecutorio establecido en la normativa de cobro de las obligaciones civiles y mercantiles.

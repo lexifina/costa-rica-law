@@ -1,0 +1,2 @@
+Artículo 218- Ampliación y modificación de pretensiones. La demanda podrá ser ampliada o modificada en cuanto a las partes y pretensiones, pero siempre antes de ser contestada. En este caso, la autoridad judicial deberá otorgar nuevo emplazamiento.
+Únicamente en el proceso resolutivo familiar, definidos los hechos y las pretensiones, se admitirá la ampliación de los hechos cuando es presentada en la audiencia de prueba, antes de su recepción, de lo cual se conferirá audiencia a la parte contraria.

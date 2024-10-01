@@ -1,0 +1,1 @@
+Artículo 331- Embargo de bienes en sociedades comunes. A fin del cobro de cualquier suma de dinero líquida determinada en resolución de proceso familiar, procederá el embargo de los bienes propiedad de una sociedad en la cual los cónyuges, excónyuges o exconvivientes de hecho son los únicos accionistas.

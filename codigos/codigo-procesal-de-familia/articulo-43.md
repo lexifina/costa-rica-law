@@ -1,0 +1,1 @@
+Artículo 43- Garantías mínimas en el procedimiento para personas menores de edad. Se debe garantizar a toda persona menor de edad todos los derechos contemplados en la Constitución Política, la Convención sobre los Derechos del Niño, otros tratados internacionales y las leyes de la materia.

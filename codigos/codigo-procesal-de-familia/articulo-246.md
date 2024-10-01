@@ -1,0 +1,1 @@
+Artículo 246- Modificaciones materiales de lo dispuesto. Acogida la petición, a gestión de parte y en cualquier tiempo, se podrán hacer modificaciones a lo pronunciado mediante resolución, siempre y cuando las circunstancias lo ameriten y no se varíe en lo sustancial lo resuelto.

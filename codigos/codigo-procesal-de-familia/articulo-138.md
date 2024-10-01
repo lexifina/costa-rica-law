@@ -1,0 +1,2 @@
+SECCIÓN II: MEDIDAS CAUTELARES EN PROCESOS DE REPRESENTACIÓN
+Artículo 138- Administración interina de bienes. En los asuntos de petición unilateral para el nombramiento de representantes de personas menores de edad o con discapacidad, o en cualquier otro proceso que así lo requiera, de ser necesario y existan indicios de que el patrimonio corre peligro, se ordenará el nombramiento de una persona administradora interina de los bienes.

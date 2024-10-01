@@ -1,0 +1,2 @@
+Artículo 126- Registro de las audiencias. Las audiencias, hasta donde sea posible y los medios tecnológicos lo permitan, deberán ser grabadas en voz y video. Por ningún motivo se filmarán las entrevistas de personas menores de edad.
+En caso de que no existan medios tecnológicos para la grabación de la audiencia, en el acta deberá consignarse todo lo actuado y la prueba recibida, sin necesidad de anotar las discusiones sobre la práctica de esta.

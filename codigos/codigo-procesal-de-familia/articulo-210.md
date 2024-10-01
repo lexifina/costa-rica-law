@@ -1,0 +1,1 @@
+Artículo 210- Fijación contractual de honorarios. Las personas profesionales en abogacía y sus clientes podrán fijar contractualmente el monto de los honorarios y sus modalidades de pago, respetando los límites impuestos por la normativa profesional. Dicha estipulación no afectará a las partes contrarias del proceso, para efectos de fijación de costas personales.

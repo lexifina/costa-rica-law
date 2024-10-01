@@ -1,0 +1,1 @@
+Artículo 225- Homologación de acuerdos. Si las partes llegan a un acuerdo parcial o total en las pretensiones, la autoridad judicial, en ese mismo momento, homologará el acuerdo y ordenará, si fuera del caso y lo piden las partes, la ejecución de esos acuerdos.

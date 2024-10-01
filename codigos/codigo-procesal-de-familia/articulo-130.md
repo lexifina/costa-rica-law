@@ -1,0 +1,1 @@
+Artículo 130- Caducidad de las medidas cautelares anticipadas. Cuando se ha concedido una medida cautelar anticipada, la parte tendrá que presentar su demanda dentro del mes siguiente a su dictado o ejecución según corresponda; de lo contrario, esta caduca y quedará sin efecto.

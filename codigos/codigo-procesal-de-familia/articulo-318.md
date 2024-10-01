@@ -1,0 +1,1 @@
+Artículo 318- Cumplimiento coercitivo. Para la ejecución de lo resuelto, la autoridad judicial podrá ordenar el cumplimiento por medios coercitivos, incluso el allanamiento y el apercibimiento de las sanciones penales que correspondan, en caso de negativa.

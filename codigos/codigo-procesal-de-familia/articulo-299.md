@@ -1,0 +1,2 @@
+Artículo 299- Medidas provisionales. Una vez presentada la petición, se podrá ordenar, como medida cautelar, el cuidado provisional de la persona por adoptar a cargo de quienes pretenden la adopción o cualquier otra medida que procure facilitar la interrelación.
+Si se trata de la adopción de personas menores de edad con desprendimiento directo, según el inciso c) del artículo 109 de la Ley N.º 5476, Código de Familia, de 21 de diciembre de 1973, la autoridad judicial deberá establecer los procedimientos provisionales regulados en esa norma jurídica.

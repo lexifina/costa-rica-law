@@ -1,0 +1,2 @@
+Artículo 265- Pago obligatorio de los alimentos. No será excusa atendible para oponerse a la fijación de la cuota de pensión alimentaria el no tener trabajo, salario o ingresos, tampoco que los negocios no produzcan utilidades; todo sin perjuicio del análisis de la prueba y de las averiguaciones que, de oficio o a solicitud de parte, ordene el tribunal.
+Si se ocultaran o distrajeran bienes o ingresos, se testimoniarán piezas ante el Ministerio Público, a fin de que se determine si se está en presencia de una actividad delictiva.

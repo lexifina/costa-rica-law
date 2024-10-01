@@ -1,0 +1,2 @@
+Artículo 77- Firma de las personas juzgadoras. Toda resolución, salvo la tomada verbalmente en una audiencia, deberá ser firmada por quien la dicta. En órganos colegiados, cuando existe imposibilidad para hacerlo, esto se indicará mediante constancia.
+La firma deberá ser tomada a mano, por medios tecnológicos o por medio de la firma digital en casos necesarios, según se regula en la normativa de la materia.

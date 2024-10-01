@@ -1,0 +1,2 @@
+Artículo 66- Lugar de actuaciones. Las actuaciones se verificarán en la sede del despacho. En casos especiales, atendiendo el estado de vulnerabilidad de las personas intervinientes o la naturaleza de la diligencia, se podrán llevar a cabo fuera de la sede judicial.
+En tales casos, el Poder Judicial deberá cubrir los gastos que ello implique, salvo que la parte esté en condiciones económicas de asumir el costo de la diligencia.

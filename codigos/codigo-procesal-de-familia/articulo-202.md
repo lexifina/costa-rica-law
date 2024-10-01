@@ -1,0 +1,1 @@
+Artículo 202- Improcedencia de la caducidad. No procede la caducidad en los procesos de protección cautelar y todos aquellos que tutelen derechos de personas en estado de vulnerabilidad. Tampoco procederá en los asuntos de petición unilateral de nombramiento de tutor y los relativos a la salvaguardia de una persona con discapacidad.

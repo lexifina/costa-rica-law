@@ -1,0 +1,2 @@
+Artículo 224- Realización de la audiencia. Las partes comparecerán a la audiencia inicial de forma personal con su representante legal, salvo aquellos asuntos en los que no se obliga al patrocinio letrado.
+La autoridad judicial invitará a las partes a conciliar, evitará el lenguaje adversaria! y solicitará mantener una conducta respetuosa y conciliadora, evitando discusiones acerca de los hechos que motivaron el conflicto.

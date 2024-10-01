@@ -1,0 +1,1 @@
+Artículo 315- Exención de pago de tributos en traspasos. La inscripción de cualquier resolución que decida cuestiones patrimoniales entre cónyuges, o entre estos e hijas o hijos, estará exenta de pago de derechos de traspasos.

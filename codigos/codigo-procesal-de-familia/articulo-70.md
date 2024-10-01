@@ -1,0 +1,2 @@
+SECCIÓN V: PLAZOS JUDICIALES
+Artículo 70- Determinación del plazo. Los actos procesales deben cumplirse dentro de los plazos establecidos en este Código. Cuando no estén expresamente establecidos, la autoridad judicial podrá establecerlos tomando en cuenta la naturaleza del proceso, la importancia de estos dentro de la relación familiar, la calidad de la actuación que se pretende, las condiciones personales de quienes litigan y la dependencia de esa condición con la actuación, siempre y cuando se respeten los principios del debido proceso.

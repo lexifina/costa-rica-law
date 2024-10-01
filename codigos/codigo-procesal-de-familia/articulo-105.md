@@ -1,0 +1,2 @@
+SUBSECCIÓN IV: RECURSO DE CASACIÓN
+Artículo 105- Sentencias objeto de casación. El recurso de casación procede contra todas aquellas sentencias de segunda instancia dictadas en procesos resolutivos familiares que produzcan cosa juzgada material, excepto las de terminación de los atributos de responsabilidad parental con fines de adopción y en procesos de ejecuciones de sentencia con cosa juzgada material.

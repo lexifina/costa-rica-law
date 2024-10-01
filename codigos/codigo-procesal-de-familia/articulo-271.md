@@ -1,0 +1,2 @@
+Artículo 271- Plazo para oposición. Las partes podrán oponerse a la sentencia anticipada en el plazo de cinco días. La oposición no suspenderá sus efectos sin perjuicio de lo que se resuelva en la sentencia final.
+La oposición a la sentencia anticipada deberá contener una concreta y clara referencia a los hechos de la demanda, las pretensiones que se solicitan y el ofrecimiento de la prueba de su interés.

@@ -1,0 +1,3 @@
+SUBSECCIÓN II: RECURSO DE REVOCATORIA
+Artículo 99- Procedencia y plazos. Los autos son revocables de oficio o a petición de parte. La solicitud deberá hacerse dentro del tercer día. Si se tratara de pronunciamientos en audiencia, la impugnación deberá hacerse durante el mismo acto de forma inmediata a su dictado y se resolverá en ese momento, previa escucha a las otras partes e intervinientes, en caso de ser necesario a criterio de la persona juzgadora.
+La resolución que deniega un recurso de revocatoria no será impugnable, pero la que revoque parcial o totalmente dicho pronunciamiento podrá ser recurrida por medio de los recursos que procedan contra la nueva resolución.

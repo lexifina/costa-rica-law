@@ -1,0 +1,1 @@
+Artículo 250- Revisión de la salvaguardia. La salvaguardia podrá ser revisada en cualquier momento, estando legitimadas para este acto las mismas personas físicas y jurídicas señaladas en el artículo anterior, y de oficio estará sujeta a revisión, por parte de la autoridad judicial, cada cinco años.

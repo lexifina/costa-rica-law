@@ -1,0 +1,1 @@
+Artículo 27 4- Procedimiento de inclusión de persona beneficiaria. Cuando se pretende incluir a una persona beneficiaria en un proceso ya instaurado contra el mismo deudor alimentario del principal, la autoridad judicial deberá llevar a cabo el procedimiento de este apartado, debiendo ajustar el trámite al caso concreto con respeto al debido proceso.

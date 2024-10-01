@@ -1,0 +1,1 @@
+Artículo 168- Examen del declarante sobre todo el contexto familiar. Las personas que rindan testimonio podrán ser interrogadas sobre los hechos propuestos y cualquier situación familiar personal o patrimonial de interés para la decisión del proceso.

@@ -1,0 +1,2 @@
+Artículo 188- Prueba científica en procesos relativos a la filiación. Tratándose de pretensiones sobre filiación en las cuales sea indispensable prueba científica, la autoridad judicial deberá ordenarla, incluso de oficio, de forma inmediata al inicio del proceso.
+Cuando una persona debidamente citada para la práctica de esta prueba se niega a acudir a la cita, podrá ser conducida por la autoridad de policía, para lo cual la autoridad judicial hará uso de los medios coercitivos necesarios.

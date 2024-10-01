@@ -1,0 +1,1 @@
+Artículo 27- Efectos de la recusación. La solicitud de recusación no suspenderá la práctica de los actos procesales urgentes y necesarios para evitarle a las partes daños de difícil o imposible reparación.

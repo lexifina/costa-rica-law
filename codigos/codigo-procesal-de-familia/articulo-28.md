@@ -1,0 +1,1 @@
+Artículo 28- Oportunidad para resolver. La inhibitoria o la recusación deberán quedar resueltas de inmediato, de previo y especial pronunciamiento, antes de iniciar la fase de recepción de prueba del proceso, salvo en el caso establecido en el párrafo segundo del artículo 25 de esta ley.

@@ -1,0 +1,1 @@
+Artículo 5- Principios procesales generales. Serán de aplicación general los principios de fácil acceso a la justicia, impulso procesal de oficio, celeridad procesal, buena fe, economía procesal y equilibrio procesal.

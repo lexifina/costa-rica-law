@@ -1,0 +1,1 @@
+Artículo 213- Pretensiones sin procedimiento regulado. Las pretensiones que no tengan una tramitación especial en este Código se regirán por el trámite que la autoridad judicial determine y que mejor se ajuste a la oportuna solución del conflicto conforme a los principios de este Código.

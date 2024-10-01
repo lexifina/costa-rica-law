@@ -1,0 +1,2 @@
+SUBSECCIÓN II: TERCEROS CON PRETENSIONES EXCLUYENTES
+Artículo 60- Intervención de terceros en pretensiones principales excluyentes. Si está en curso un proceso resolutivo familiar y un tercero pretende para sí algún derecho que está en discusión, deberá apersonarse antes de la fase probatoria del proceso para demandar a ambas partes, con todas las facultades y deberes de estas. En el fallo se resolverá lo que corresponda.

@@ -1,0 +1,4 @@
+SUBSECCIÓN III: DOCUMENTOS E INFORMES
+Artículo 175- Validez documental. Todo documento aportado por las partes, en la fase inicial del proceso, se considerará admitido de pleno derecho y estos y los que fueran aportados posteriormente y admitidos por la autoridad judicial se presumirán válidos y auténticos, salvo que por los medios establecidos se llegue a considerar lo contrario.
+Tendrá validez como de un documento físico, los que sean entregados o captados por el tribunal por los medios tecnológicos.
+Los documentos aportados por las partes o los requeridos por el tribunal a las instituciones públicas estarán exentos del pago de impuestos, pero sí deberán contener el sello de la institución y la firma de quien los emite con competencia para ello; lo mismo respecto de las reproducciones de dichos documentos y las autenticaciones del contenido de los medios electrónicos.

@@ -1,0 +1,1 @@
+Artículo 314- Inscripción de resoluciones con carácter patrimonial. La ejecución de las resoluciones de carácter patrimonial, que impliquen inscripciones ante registros públicos o privados, se ordenará a petición de parte interesada.

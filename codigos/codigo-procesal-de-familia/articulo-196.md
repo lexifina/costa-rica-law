@@ -1,0 +1,2 @@
+Artículo 196- Asuntos no conciliables. No procederá la conciliación, cuando se trata de la discusión de derechos irrenunciables o indisponibles. En violencia intrafamiliar o protección de derechos de personas en estado de vulnerabilidad solo se admitirá cuando sea evidente que el acuerdo favorezca a la víctima.
+Cuando en un proceso se concilian extremos que no afectan los aquí enunciados, se podrá admitir el arreglo parcial.

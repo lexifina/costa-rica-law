@@ -1,0 +1,1 @@
+Artículo 272- No oposición a la sentencia anticipada. Si ninguna de las partes se manifiesta disconforme en tiempo con lo establecido en la sentencia anticipada, se continuarán los procedimientos de ejecución de cobro de los montos allí establecidos sin necesidad de ulterior trámite.

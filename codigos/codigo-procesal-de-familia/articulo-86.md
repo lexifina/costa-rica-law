@@ -1,0 +1,1 @@
+Artículo 86- Resoluciones en audiencias. Las resoluciones que se dicten de forma verbal en las audiencias se tendrán por notificadas en el acto a todas las partes, aunque no hayan comparecido. De esas resoluciones no podrá alegarse desconocimiento.

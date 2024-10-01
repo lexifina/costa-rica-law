@@ -1,0 +1,1 @@
+Artículo 268- Rechazo de plano. La demanda se rechazará de plano cuando sea evidente la inexistencia del derecho o cuando se tenga conocimiento de la existencia de otro proceso en el cual se discute la misma obligación.

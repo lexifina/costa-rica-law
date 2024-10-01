@@ -1,0 +1,1 @@
+Artículo 291- Notificación a quien no firma la petición. Cuando el escrito de gestión no viene firmado por alguna de las personas cónyuges o convivientes y esta no ha dado autorización para la presentación de esa forma en la escritura del convenio, se le deberá notificar la presentación de la solicitud y se concederá un plazo de cinco días para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 79- Adición y aclaración de las sentencias. La parte dispositiva de las sentencias podrá adicionarse o aclararse de oficio o a solicitud de parte. La solicitud deberá hacerse dentro del tercer día luego de la notificación de la sentencia en su totalidad.

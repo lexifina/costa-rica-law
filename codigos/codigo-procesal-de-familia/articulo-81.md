@@ -1,0 +1,2 @@
+SECCIÓN II: TIPOS DE RESOLUCIONES JUDICIALES
+Artículo 81- Providencias, autos, autos con carácter de sentencia y sentencias. Providencia es toda decisión judicial de mero impulso del proceso sin necesidad de valoración de la persona juzgadora; auto es todo pronunciamiento que contiene un criterio de valor sobre la situación o los derechos procesales de las partes; auto con carácter de sentencia es aquel que decide sobre excepciones o pretensiones incidentales que ponen término al proceso, y las sentencias resuelven definitivamente las pretensiones debatidas en el proceso.

@@ -1,0 +1,2 @@
+Artículo 132- Decreto y ejecución. El despacho adoptará la medida cautelar sin dar audiencia a las otras partes o intervinientes, salvo que lo considere necesario. Se ejecutará a pesar de que existan recursos pendientes de resolver.
+La medida cautelar firme se podrá revisar, de oficio o a petición de parte, cuando se estime que variaron las circunstancias que la motivaron. De ser necesario se ordenará su cancelación, modificación o sustitución.

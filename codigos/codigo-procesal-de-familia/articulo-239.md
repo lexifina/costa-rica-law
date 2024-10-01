@@ -1,0 +1,3 @@
+Artículo 239- Otorgamiento de medidas provisionales. Presentada la solicitud y de considerarse procedente, se dictarán, sin mayor trámite, las medidas provisionales que la autoridad judicial considere oportunas.
+Cuando se muestre inconformidad fundada dentro de los cinco días siguientes a la última notificación a las personas interesadas, el juzgado convocará a las partes a una audiencia en la que se evacuarán las pruebas que correspondan.
+La audiencia se realizará dentro de los quince días siguientes, momento en el cual deberá constar en autos la pericia de tipo médica, psicológica, social u otra.

@@ -1,0 +1,3 @@
+CAPÍTULO III: ADMISIÓN DE LA PRUEBA
+SECCIÓN I: INICIATIVA PROBATORIA DE LA AUTORIDAD JUDICIAL
+Artículo 155- Potestad del tribunal en la introducción de prueba en el proceso. En todo proceso, ya sea al inicio de este o durante la audiencia respectiva, la autoridad judicial tendrá potestad de hacer llegar prueba no ofrecida por las partes o aquella que sea necesaria para demostrar hechos sugeridos por las partes e intervinientes que no ha sido posible demostrar con las ofrecidas inicialmente. La persona juzgadora deberá fundamentar su decisión tomando en cuenta principios de imparcialidad, razonabilidad, proporcionalidad, experiencia, solución integral, vulnerabilidad, protección y accesibilidad, así como para evitar los fraudes procesales.

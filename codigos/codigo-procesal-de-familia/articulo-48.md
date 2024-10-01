@@ -1,0 +1,2 @@
+SUBSECCIÓN IV: ARRAIGO
+Artículo 48- Justificación. Cuando una persona no tiene representación legal acreditada en el Registro de Personas del Registro Público o teniéndolo, se trata de pretensiones de derechos indisponibles y existe sospecha de que quiere evadir una demanda, ya sea porque se pretende ocultar o tiene prevista la salida del país, se puede solicitar el arraigo a la autoridad judicial competente para el proceso que se quiere entablar.

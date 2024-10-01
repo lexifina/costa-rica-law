@@ -1,0 +1,2 @@
+Artículo 309- No oposición u oposición inatendible. Si no existiera oposición ni se formularan excepciones a la solicitud, la sentencia anticipada quedará firme y se dispondrá hacerla efectiva comunicando a la autoridad central.
+En caso de que se considere que la oposición no se encuentra fundada, la autoridad judicial resolverá de esa forma y ordenará la firmeza de la sentencia anticipada con comunicación a la autoridad central.
