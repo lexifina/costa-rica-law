@@ -1,6 +1,4 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 CAPITULO II
 Convenio preventivo
-ARTÍCULO 743.- Proposición y requisitos
-El deudor que se encuentrare (sic) en crisis económica y financiera o en una situación de hecho que, según la ley, permita someterlo a ejecución colectiva, podrá proponer un convenio a sus acreedores, siempre y cuando no esté declarado en quiebra, en concurso civil ni se esté tramitando un procedimiento de administración y reorganización con intervención judicial.
+ARTÍCULO 743.- Proposición y requisitos. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 743 es ahora 766)

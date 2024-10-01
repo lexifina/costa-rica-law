@@ -1,7 +1,1 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 729.- Trámite y discusión del plan
-Los acreedores, incluidos los que no figuren en lista suministrada por el deudor y que se apersonaron haciendo valer su derecho, podrán plantear por escrito, dentro del término del emplazamiento, las observaciones pertinentes al plan presentado por el deudor.
-Dentro del mes siguiente a la admisión del procedimiento, el interventor y los demás miembros del comité, nombrado el primero, en forma conjunta o separada, presentarán un informe pormenorizado acerca del plan y emitirán su opinión.
-Transcurrido el emplazamiento y rendido el dictamen, si el juzgado lo considerare necesario, convocará al titular de la empresa o a sus representantes legales, al promoviente si no fuere el deudor, al interventor, a los acreedores que presentaron objeciones al plan y a los miembros del comité asesor, a una comparecencia dentro de ocho días, para discutir los pormenores del plan y las observaciones, de lo cual se levantará un acta concisa.
-A fin de emitir el pronunciamiento, podrán ordenarse las pruebas necesarias para mejor proveer, las cuales deberán sustanciarse en forma breve.
-(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)
+ARTÍCULO 729.- Trámite y discusión del plan. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

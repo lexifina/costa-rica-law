@@ -1,5 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 749.- Dictamen del curador
-Dentro de los ocho días posteriores al término del emplazamiento, el curador deberá rendir un dictamen acerca de los extremos señalados en el artículo 744 y sobre otros elementos que contribuyan a ilustrar al juzgado y a los acreedores acerca de la verdadera condición del deudor.
-En la preparación de su informe, el curador gozará de las facultades de un funcionario público y podrá gestionar y obtener toda clase de documentos en papel común, libres de tributos fiscales.
+ARTÍCULO 749.- Dictamen del curador. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 749 es ahora 772)

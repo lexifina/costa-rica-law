@@ -1,3 +1,2 @@
-ARTÍCULO 742.- Aplicación del procedimiento
-Una misma empresa podrá beneficiarse más de una vez de un procedimiento concursal o someterse a sus regulaciones después de haber sido declarada la quiebra o el concurso civil, siempre que se presenten las siguientes circunstancias: haber transcurrido por lo menos cinco años desde la conclusión del proceso anterior o la rehabilitación, salvo que se trate de una administración intervenida o un concordato preventivo. En tal caso, podrá promoverse un nuevo proceso si acontecimientos no imputables al empresario o a sus representantes han llevado a la empresa a afrontar una nueva situación económica y financiera crítica.
+ARTÍCULO 742.- Aplicación del procedimiento. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 742 es ahora 765)

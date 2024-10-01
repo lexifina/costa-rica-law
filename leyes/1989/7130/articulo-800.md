@@ -1,5 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 800.- Ejecución del convenio aprobado. Inmediatamente después de la aprobación, el curador tomará las providencias necesarias para asegurar el cumplimiento de las obligaciones impuestas al concursado por el convenio, y satisfará los reclamos de los acreedores de la masa y de los reivindicantes, o depositará lo que les corresponda a éstos, si sus créditos no estuvieren aun reconocidos o comprobados.
-Verificadas estas diligencias, se tendrá por terminado el concurso, cuya resolución que se dictará al efecto y se publicará de igual manera como se hizo con la declaratoria del concurso. El curador procederá, en su caso, a entregarle al concursado todos los bienes, efectos, libros y papeles y a rendirle cuenta de su administración, en los quince días siguientes.
-(Así reformado el párrafo anterior por el artículo 7º de la ley Nº 7421 de 18 de julio de 1994)
+ARTÍCULO 800.- Ejecución del convenio aprobado. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (Así corrida su numeración por el artículo 1° de ley N° 7643 del 17 de octubre de 1996 que lo traspaso del antiguo artículo 777 al 800)
