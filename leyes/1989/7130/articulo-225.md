@@ -1,1 +1,0 @@
-ARTÍCULO 225.- (Anulado por resolución de la Sala Constitucional No.195 de 11 de marzo de 2003. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se derogó este numeral)

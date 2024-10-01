@@ -1,5 +1,0 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 878.-Enajenación. Para acreditar la necesidad y la utilidad, se recibirán la prueba pericial y las demás que se rindan o que el juez creyere convenientes. En el mismo dictamen el perito hará el avalúo de los bienes correspondientes.
-Recibida la prueba, se dará audiencia por tres días al Patronato Nacional de la Infancia, y, sin más trámite, el juez dictará auto de autorización o de denegación del permiso solicitado. Este auto será apelable en ambos efectos.
-(Así reformado el párrafo anterior por el artículo 219, inciso 5.c) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
-(Así corrida su numeración por el artículo 1° de ley N° 7643 del 17 de octubre de 1996 que lo traspaso del antiguo artículo 855 al 878)

@@ -1,1 +1,0 @@
-ARTÍCULO 182.- (Derogado por el artículo 20, inciso a), de la Ley de Notificaciones No.7637 de 21 de octubre de 1996. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se vuelve a derogar este numeral)
