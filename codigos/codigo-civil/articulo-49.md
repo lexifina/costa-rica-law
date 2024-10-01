@@ -1,4 +1,5 @@
 CAPÍTULO II
 Del nombre de las personas
-ARTÍCULO 49.- Toda persona tiene el derecho y la obligación de tener un nombre que la identifique, el cual estará formado por una o a lo sumo dos palabras usadas como nombre de pila, seguida del primer apellido del padre y del primer apellido de la madre, en ese orden.
+ARTÍCULO 49.- Toda persona tiene el derecho y la obligación de tener un nombre que la identifique, el cual estará formado por una o a lo sumo dos palabras usadas como nombre de pila, seguida del primer apellido del padre y del primer apellido de la madre.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 1728 del 24 de enero de 2024, la frase "en ese orden", contenida al final del párrafo anterior, es inconstitucional por violación a los derechos fundamentales cobijados en los numerales 28, 33 y 52 de la Constitución Política, 18 de la Convención Americana sobre Derechos Humanos, y 5 inciso a) y 16 de la "Convención sobre la eliminación de todas las formas de discriminación contra la mujer", así como por contravenir el principio constitucional de razonabilidad y proporcionalidad.)
 (Así reformado por Ley Nº 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 31 al actual).
