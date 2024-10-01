@@ -1,6 +1,6 @@
 # Autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de la distribución de rentas de las loterías nacionales
 
-Ley N° 8718 del 2009-02-17. SINALEVI, ficha 64909: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64909&param2=124535&param3=1>.
+Ley N° 8718 del 2009-02-17. SINALEVI, ficha 64909: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64909&param2=142578&param3=1>.
 
 Publicada en La Gaceta N° 34 del 2009-02-18.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 7 | 2016-08-30 | Ley 9379 | 2016-08-18 |
 | 4 de 7 | 2019-11-27 | Ley 9773 | 2019-11-05 |
 | 5 de 7 | 2021-02-24 | Ley 9930 | 2020-12-18 |
+| 6 de 7 | 2024-10-01 | Ley 10536 | 2024-09-18 |
