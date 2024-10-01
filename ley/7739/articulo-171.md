@@ -9,4 +9,8 @@ f) Conocer y aprobar los informes de las comisiones especiales de trabajo, que s
 g) Solicitar la asistencia técnica y financiera de organismos nacionales e internacionales de cooperación.
 h) Promover convenios de cooperación entre las instituciones públicas o entre estas y las privadas para el mejor cumplimiento de los acuerdos adoptados.
 i) Dictar los reglamentos internos para funcionar.
-(La Sala Constitucional mediante resolución N° 13583-2007 del 19/09/2007, dispuso que: ”…este artículo no puede interpretarse de manera tal que desconozca, perjudique o disminuya las potestades constitucionales del Patronato Nacional de la Infancia”. )
+j) Coordinar la acción interinstitucional para la creación, aplicación y actualización del Protocolo de Coordinación Interinstitucional para la Protección de la Niñez y Adolescencia.
+(Así adicionado el inciso anterior por el artículo 13 de la Ley Prevención, detección temprana y respuesta de la violencia contra la niñez y adolescencia, N° 10476 del 13 de mayo de 2024)
+k) Colaborar con las instituciones del Estado en todas las acciones tendientes a la capacitación, formación y concientización de las personas funcionarias públicas y población en general, en materia de derechos de la niñez y la adolescencia.
+(Así adicionado el inciso anterior por el artículo 13 de la Ley Prevención, detección temprana y respuesta de la violencia contra la niñez y adolescencia, N° 10476 del 13 de mayo de 2024)
+(La Sala Constitucional mediante resolución N° 13583-2007 del 19/09/2007, dispuso que: ".este artículo no puede interpretarse de manera tal que desconozca, perjudique o disminuya las potestades constitucionales del Patronato Nacional de la Infancia". )
