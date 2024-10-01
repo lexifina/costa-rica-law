@@ -1,2 +1,3 @@
-Artículo 236.-(Derogado por el artículo 41 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
-(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 223 al 236)
+Artículo 236.- (Derogado por el artículo 41 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016. Posteriormente por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019, se derogó nuevamente este artículo.)
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 220 al 233)
+(Así modificada su numeración por el artículo 32 de la Ley de Creación del Sistema Nacional de Cuidados y Apoyos para Personas Adultas y Personas Adultas Mayores en Situación de Dependencia (Sinca), N° 10192 del 28 de abril de 2022, que lo traspaso del antiguo artículo 233 al artículo 236)
