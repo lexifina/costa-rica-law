@@ -431,8 +431,8 @@ articulo-378.md
 articulo-379.md
 articulo-380.md
 articulo-381.md
-articulo-382.md
 articulo-381-bis.md
+articulo-382.md
 articulo-383.md
 articulo-384.md
 articulo-384-bis.md
