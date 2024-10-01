@@ -1,4 +1,8 @@
 Capítulo V
 Fondo para la Niñez y la Adolescencia
-Artículo 184°- Creación.
-Créase el Fondo para la niñez y la adolescencia, que tendrá como objetivo financiar, en favor de las personas menores de edad, proyectos que desarrollen acciones de protección integral de base comunitaria, y de ejecución exclusivamente comunitaria e interinstitucional.
+Artículo 184- Creación
+Se crea el Fondo para la Niñez y la Adolescencia, que tendrá como objetivo financiar, en favor de las personas menores de edad, proyectos que desarrollen acciones de protección integral de base comunitaria y de ejecución comunitaria, institucional o interinstitucional.
+La Gerencia Técnica del Patronato Nacional de la Infancia (PANI), los comités tutelares y las juntas de protección a la niñez y la adolescencia podrán presentar, a la Junta Directiva, proyectos que serán financiados por el Fondo para la Niñez y la Adolescencia, previa aprobación por la Junta Directiva, siempre que dichos proyectos desarrollen acciones de protección integral de base comunitaria.
+Los proyectos que sean financiados por el Fondo para la Niñez y la Adolescencia no podrán destinar recursos a objetivos distintos de los establecidos en la presente ley; bajo ninguna condición podrán ser utilizados para el pago de gastos administrativos. Todos los proyectos financiados por dicho Fondo deberán ser fiscalizados directamente por el PANI. Cada ejecutor de proyectos deberá rendir un informe anual de ejecución y resultados a la Junta Directiva del PANI y a la Contraloría General de la República.
+En caso de que la Gerencia de Administración u otra instancia detecten incumplimiento de las disposiciones contenidas en esta norma o en el desarrollo de un proyecto, será motivo suficiente proceder a la suspensión temporal o definitiva de este. Lo anterior, sin perjuicio de las sanciones disciplinarias administrativas, civiles o penales correspondientes a los servidores responsables que actúan en forma directa o solidaria.
+(Así reformado por el artículo único de la ley N° 10308 del 3 de octubre del 2022)
