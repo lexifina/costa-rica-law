@@ -1,6 +1,6 @@
 # Ley contra la Violencia Doméstica
 
-Ley N° 7586 del 1996-04-10. SINALEVI, ficha 27926: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27926&param2=117082&param3=1>.
+Ley N° 7586 del 1996-04-10. SINALEVI, ficha 27926: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27926&param2=143395&param3=1>.
 
 Publicada en La Gaceta N° 83 del 1996-05-02.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 7 | 2007-05-30 | Ley 8589 | 2007-04-25 |
 | 4 de 7 | 2011-03-12 | Ley 8925 | 2011-02-03 |
 | 5 de 7 | 2019-07-18 | Ley 9692 | 2019-07-09 |
+| 6 de 7 | 2024-10-01 | Ley 9747 | 2019-10-23 |

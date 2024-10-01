@@ -1,4 +1,1 @@
-ARTÍCULO 10.- Valoración de la salvaguardia. El juez o la jueza deberá valorar en primera instancia y con prioridad la designación de la salvaguardia hecha por la persona con discapacidad.
-Cuando excepcionalmente, en virtud de una limitación funcional, la persona con discapacidad intelectual, mental o psicosocial se le imposibilite o limite indicar la persona de su preferencia, el juez o la jueza valorará como opción para que ejerzan la salvaguardia a los familiares de la persona con discapacidad.
-En todos los casos, el juez o la jueza deberá garantizar que la persona que ejerza la salvaguardia es la idónea, moral y éticamente demostrado, para garantizar el ejercicio seguro y efectivo de los derechos y las obligaciones de las personas con discapacidad intelectual, mental y psicosocial.
-Este procedimiento se tramitará de conformidad con lo establecido en la presente ley y en la Ley N.° 7130, Código Procesal Civil, de 16 de agosto de 1989, y sus reformas.
+ARTÍCULO 10.- Valoración de la salvaguardia. (Derogado por el artículo 4° punto II) inciso e) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

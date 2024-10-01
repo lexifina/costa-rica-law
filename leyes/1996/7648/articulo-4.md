@@ -1,4 +1,5 @@
-ARTICULO 4.- Atribuciones. Las atribuciones del Patronato Nacional de la Infancia serán:
+Artículo 4- Atribuciones. Las atribuciones del Patronato Nacional de la Infancia (PANI) serán:
+(Así reformado el párrafo anterior por el artículo 2° punto VII) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 a) Gestionar la actualización y promulgación de las leyes necesarias para el cumplimiento efectivo de los derechos de la niñez, la adolescencia y la familia.
 b) Propiciar y fomentar el reconocimiento de los deberes cívicos y de aquellos inherentes correlativamente a los derechos de los
 menores de edad.
@@ -11,7 +12,8 @@ h) Promover el cumplimiento de los principios de la Convención sobre los Derech
 i) Capacitar a los órganos gubernamentales, no gubernamentales, municipales y, en general, a la sociedad civil, sobre los principios de la Convención citada y el cumplimiento de las políticas dictadas por su Junta Directiva.
 j) Colaborar con las entidades en la promoción y ejecución de proyectos y programas específicos en materia de niñez y adolescencia.
 k) Intervenir como parte en los procesos judiciales y administrativos en que esté vinculada cualquier persona menor de edad que requiera esa intervención, para que se le garantice el disfrute pleno de sus derechos.
-l) Representar legalmente a los menores de edad que no se encuentren bajo autoridad parental ni tutela, así como a quienes estén bajo la patria potestad de una persona no apta para asegurarles la garantía de sus derechos.
+l) Representar legalmente a los menores de edad que no se encuentren bajo los atributos de la responsabilidad parental ni tutela, así como a quienes estén bajo esos atributos de una persona no apta para asegurarles la garantía de sus derechos.
+(Así reformado el inciso anterior por el artículo 2° punto VII) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 m) Disponer en forma provisional de la guarda y crianza de los menores de edad, en aras de proteger su interés superior.
 n) Dictar resoluciones motivadas con carácter vinculante, en casos de conflicto, hasta tanto los tribunales resuelvan, en forma definitiva, sobre el particular.
 ñ) Administrar los bienes de los menores de edad cuando carezcan de representación legal o cuando, teniéndola, existan motivos razonables de duda sobre la correcta administración de los bienes conforme a la legislación vigente.
