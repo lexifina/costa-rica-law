@@ -1,0 +1,2 @@
+Artículo 175 quater- Persecución o acorralamiento. Quien, en un espacio público, de acceso público o en un medio de transporte remunerado de personas, persiga o acorrale con connotación sexual a otra persona, sin su consentimiento, será reprimido con una pena de prisión de ocho meses a un año o de treinta a cuarenta y cinco días multa, siempre que la conducta no constituya un delito con una pena mayor.
+(Así adicionado por el artículo 5° de la Ley contra el acoso sexual callejero, N° 9877 del 10 de agosto del 2020)

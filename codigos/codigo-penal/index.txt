@@ -147,8 +147,8 @@ articulo-139.md
 articulo-140.md
 articulo-141.md
 articulo-142.md
-articulo-143.md
 articulo-142-bis.md
+articulo-143.md
 articulo-144.md
 articulo-145.md
 articulo-146.md
@@ -188,6 +188,11 @@ articulo-174.md
 articulo-174-bis.md
 articulo-175.md
 articulo-175-bis.md
+articulo-175-ter.md
+articulo-175-quater.md
+articulo-175-quinquies.md
+articulo-175-sexies.md
+articulo-175-septies.md
 articulo-176.md
 articulo-177.md
 articulo-178.md
@@ -435,6 +440,7 @@ articulo-385.md
 articulo-386.md
 articulo-387.md
 articulo-388.md
+articulo-388-bis.md
 articulo-389.md
 articulo-390.md
 articulo-391.md

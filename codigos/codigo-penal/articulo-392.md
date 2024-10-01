@@ -12,7 +12,7 @@ Palabras o actos obscenos
 Proposiciones irrespetuosas
 4) A quien expresare a otro frases o proposiciones irrespetuosas, le dirigiere ademanes groseros o mortificantes, o le asediare con impertinencias de hecho, orales o escritas.
 Tocamientos
-5) A quien se aprovechare de las aglomeraciones de personas para tocar, en forma grosera o impúdica, a otra persona sin su consentimiento.
+5) (Derogado por el artículo 7° de la Ley contra el acoso sexual callejero, N° 9877 del 10 de agosto del 2020)
 Exhibicionismo
 6) A quien, en lugar público, se mostrare desnudo o exhibiere sus órganos genitales.
 Usurpación de nombre
