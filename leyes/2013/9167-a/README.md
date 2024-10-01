@@ -1,6 +1,6 @@
 # Contrato de Garantía con el Banco Interamericano de Desarrollo al Contrato de Préstamo N° 2493/OC-CR suscrito ente el AYA y el BID para financiar el programa de agua potable y saneamiento
 
-Ley N° 9167 del 2013-09-17. SINALEVI, ficha 75709: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75709&param2=94015&param3=1>.
+Ley N° 9167 del 2013-09-17. SINALEVI, ficha 75709: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75709&param2=149286&param3=1>.
 
 Publicada en La Gaceta N° 183 del 2013-09-24.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2013-09-24 | Ley 9167 | 2013-09-17 |
+| 2 de 2 | 2024-10-01 | Ley 10524 | 2024-09-18 |

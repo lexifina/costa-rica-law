@@ -1,6 +1,6 @@
 # Emisión de títulos valores en el Mercado Internacional
 
-Ley N° 9070 del 2012-09-04. SINALEVI, ficha 73225: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73225&param2=89767&param3=1>.
+Ley N° 9070 del 2012-09-04. SINALEVI, ficha 73225: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=73225&param2=149744&param3=1>.
 
 Publicada en La Gaceta N° 173 del 2012-09-07.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2012-09-07 | Ley 9070 | 2012-09-04 |
+| 2 de 2 | 2024-10-01 | Ley 10524 | 2024-09-18 |

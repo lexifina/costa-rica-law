@@ -1,6 +1,6 @@
 # Convenio de Cooperación para el Financiamiento de Proyectos de Inversión (CR-X1007) entre la República de Costa Rica y el Banco Interamericano de Desarrollo, para financiar el Programa de Infraestructura de Transporte (PIT))
 
-Ley N° 8757 del 2009-07-25. SINALEVI, ficha 69758: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69758&param2=83961&param3=1>.
+Ley N° 8757 del 2009-07-25. SINALEVI, ficha 69758: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69758&param2=149760&param3=1>.
 
 Publicada en La Gaceta N° 158 del 2009-08-14.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2009-08-14 | Ley 8757 | 2009-07-25 |
+| 2 de 2 | 2024-10-01 | Ley 10524 | 2024-09-18 |
