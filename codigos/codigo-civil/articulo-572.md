@@ -1,12 +1,14 @@
-ARTÍCULO 572.- Son herederos legítimos:
-1) Los hijos, los padres y el consorte, o el conviviente en unión de hecho, con las siguientes advertencias:
+Artículo 572- Son herederos legítimos y herederas legítimas.
+(Así reformado el párrafo anterior por el artículo 4° de la ley N° 10166 del 30 de marzo de 2022, " Reforma varias leyes para el reconocimiento de derechos a madres y padres de crianza")
+1) Los hijos e hijas y los padres y las madres, incluidos e incluidas los y las de crianza, y el consorte, la consorte, el conviviente o la conviviente en unión de hecho, con las siguientes advertencias:
+(Así reformado el párrafo anterior por el artículo 4° de la ley N° 10166 del 30 de marzo de 2022, " Reforma varias leyes para el reconocimiento de derechos a madres y padres de crianza")
 a) No tendrá derecho a heredar el cónyuge legalmente separado de cuerpos si él hubiere dado lugar a la separación.
 Tampoco podrá heredar el cónyuge separado de hecho, respecto de los bienes adquiridos por el causante durante la separación de hecho.
 b) Si el cónyuge tuviere gananciales, sólo recibirá lo que a éstos falta para completar una porción igual a la que recibiría no teniéndolos.
 c) En la sucesión de un hijo extramatrimonial, el padre sólo heredará cuando lo hubiere reconocido con su consentimiento, o con el de la madre y, a falta de ese consentimiento, si le hubiere suministrado alimentos durante dos años consecutivos, por lo menos.
 ch) El conviviente en unión de hecho sólo tendrá derecho cuando dicha unión se haya constituido entre un hombre y una mujer con aptitud legal para contraer matrimonio, y se haya mantenido una relación pública, singular y estable durante tres años, al menos, respecto de los bienes adquiridos durante dicha unión.
 (Así reformado el inciso 1) anterior por el artículo 31° (actual 34) de la Ley de Promoción de la Igualdad Social de la Mujer, ley Nº 7142 de 8 de marzo de 1990)
-(Nota de Sinalevi: De conformidad con el artículo N° 242 del Código de Familia, adicionado por Ley N° 7532 del 8 de agosto de 1995, debe entenderse que: “…el conviviente en unión de hecho posee los mismos derechos, que con respecto al matrimonio formal existen…”)
+(Nota de Sinalevi: De conformidad con el artículo N° 242 del Código de Familia, adicionado por Ley N° 7532 del 8 de agosto de 1995, debe entenderse que: ".el conviviente en unión de hecho posee los mismos derechos, que con respecto al matrimonio formal existen.")
 2) Los abuelos y demás ascendientes legítimos. La madre y la abuela por parte de madre, aunque sean naturales, se consideran legítimas, lo mismo que la abuela natural por parte de padre legítimo;
 3) Los hermanos legítimos y los naturales por parte de madre;
 4) Los hijos de los hermanos y los hijos de la hermana;
