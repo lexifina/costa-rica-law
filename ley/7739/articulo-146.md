@@ -1,2 +1,1 @@
-Artículo 146°- Resolución final.
-Recibida la prueba y valorada de acuerdo con las reglas de la sana crítica, el juez dictará la resolución final en un plazo máximo de cinco días. En dicha resolución, podrá confirmar la medida dispuesta por la oficina local del Patronato Nacional de la Infancia, prorrogarla por un período igual, sustituirla por otra o revocarla. En todo caso, el juez podrá iniciar, de oficio, el proceso correspondiente de suspensión definitiva del depósito, tutela o autoridad parental, según corresponda.
+Artículo 146°- Resolución final. (Derogado por el artículo 4° punto II) inciso b) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

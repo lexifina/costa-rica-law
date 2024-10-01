@@ -1,2 +1,2 @@
-Artículo 36°- Causales de separación definitiva.
-Las causas que dan lugar a la separación definitiva de una persona menor de edad de su familia son las previstas en el Código de Familia, como causales de pérdida o suspensión de la autoridad parental. La suspensión o terminación de los poderes y deberes que confiere la patria potestad sólo puede ser decretada por un juez.
+Artículo 36- Causales de separación definitiva. Las causas que dan lugar a la separación definitiva de una persona menor de edad de su familia son las previstas en la Ley N.º 5476, Código de Familia, de 21 de diciembre de 1973, como causales de pérdida y suspensión de los atributos de la responsabilidad parental. Esta suspensión o terminación solo podrán ser decretadas por un juez.
+(Así reformado por el artículo 2° punto IV) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

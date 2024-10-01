@@ -1,3 +1,1 @@
-Artículo 40°- Demanda de alimentos.
-Las personas menores de edad tendrán acceso a la autoridad judicial competente para demandar alimentos, en forma personal o por medio de una persona interesada. La solicitud que formule ante dicha autoridad bastará para iniciar el proceso que corresponda.
-Antes de dar curso a la demanda, el juez llamará al proceso a quien represente legalmente a la persona menor de edad que haya instado el proceso o, en su defecto, al Patronato Nacional de la Infancia, para que asuma esta representación. De existir interés contrapuesto entre la persona menor de edad gestionante y sus representantes, el juez procederá a nombrar a un curador.
+Artículo 40°- Demanda de alimentos. (Derogado por el artículo 4° punto II) inciso b) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

@@ -1,5 +1,2 @@
-Artículo 31.- El matrimonio se celebrará ante el funcionario competente y en presencia de dos testigos mayores de edad, que sepan leer y escribir.
-Los contrayentes deben expresar su voluntad de unirse en matrimonio, cumplido lo cual el funcionario declarará que están casados.
-De todo se levantará un acta que firmarán el funcionario, los contrayentes, si pueden y los testigos del acto.
-A los contrayentes se les entregará copia del acta firmada por el funcionario.
-El funcionario debe enviar dentro de los ocho días siguientes a la celebración del matrimonio, copia autorizada de dicha acta y los documentos requeridos en el artículo 28 del Registro Civil.
+Artículo 31- Matrimonio. Requisitos. El matrimonio, una vez establecida la autoridad que lo celebrará y su competencia, se verificará ante dos testigos mayores de edad, los contrayentes expresarán su voluntad de contraer matrimonio y el funcionario los declarará unidos en matrimonio; de todo lo cual se levanta un acta que firmarán los contrayentes y los testigos junto al funcionario, y una copia de ella se entregará a los primeros.
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

@@ -1,2 +1,1 @@
-Artículo 148°- Confirmación de medidas.
-Si la medida acordada fuere de las previstas en el artículo 137 y el juez la confirmare, en el mismo acto ordenará iniciar el proceso correspondiente para resolver, en forma definitiva la situación presentada.
+Artículo 148°- Confirmación de medidas. (Derogado por el artículo 4° punto II) inciso b) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

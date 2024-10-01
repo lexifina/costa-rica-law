@@ -1,2 +1,1 @@
-Artículo 54.- A solicitud del padre o madre o del Patronato Nacional de la Infancia, el Tribunal resolverá a cuál de los cónyuges, persona, pariente, o institución adecuada, debe dejarse el cuidado provisional de los hijos.
-(Así reformado por el artículo 219, inciso 1) del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, en el sentido de que se eliminan las referencias a la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
+Artículo 54.- (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

@@ -1,1 +1,1 @@
-ARTÍCULO 9.- Revisión de la salvaguardia. La salvaguardia podrá ser revisada en cualquier momento, estando legitimadas para este acto las mismas personas físicas y jurídicas señaladas en el artículo anterior, y de oficio estará sujeta a revisión, por parte del juez o la jueza, cada cinco años.
+ARTÍCULO 9.- Revisión de la salvaguardia. (Derogado por el artículo 4° punto II) inciso e) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
