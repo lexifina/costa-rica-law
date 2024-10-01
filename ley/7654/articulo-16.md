@@ -1,2 +1,0 @@
-Artículo 16- Carácter obligatorio del aguinaldo. Las personas obligadas a pagar una pensión alimentaria, provisional o definitiva, deberán cancelar por concepto de aguinaldo la suma equivalente a una mensualidad, pagadera en los primeros veintiún días de diciembre, sin necesidad de resolución que así lo ordene.
-(Así reformado por el artículo único de la ley N° 9788 del 19 de noviembre de 2019. Esta reforma estará vigente hasta la entrada en vigencia del Código Procesal de Familia.)

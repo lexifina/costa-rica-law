@@ -1,4 +1,0 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 885.- Otras medidas que tomará el juez.
-Al autorizar cualquier acto o contrato que afecte bienes de menores o incapacitados, el juez deberá decretar todas las medidas que juzgue necesarias para la garantía de los interesados. Cuando se autorizare la venta de bienes para adquirir otros, el juez intervendrá en el otorgamiento de los documentos respectivos, y en el recibo y pago de los precios correspondientes, e investigará la situación legal, los gravámenes y las demás circunstancias de los bienes que vayan a adquirir o a recibir en garantía los menores o incapacitados.
-(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 862 al 885)

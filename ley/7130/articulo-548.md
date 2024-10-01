@@ -1,1 +1,0 @@
-ARTÍCULO 548.- Requisito fundamental de la demanda. (Derogado por el artículo 199 del Código Procesal Contencioso-Administrativo, Ley N° 8508 del 28 de abril de 2006. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se vuelve a derogar este numeral)
