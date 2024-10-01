@@ -1,3 +1,3 @@
-ARTÍCULO 174.- Difusión de pornografía. Quien entregue, comercie, difunda, distribuya o exhiba material pornográfico a personas menores de edad o incapaces, será sancionado con pena de prisión de tres a siete años.
-Se impondrá pena de cuatro a ocho años, a quien exhiba, difunda, distribuya, financie o comercialice, por cualquier medio y cualquier título, material pornográfico en el que aparezcan personas menores de edad o lo posea para estos fines.
-(Así reformado por el artículo 1° de la ley N° 9177 del 1 de noviembre de 2013)
+Artículo 174- Difusión de pornografía. Quien entregue, comercie, difunda, distribuya o exhiba material pornográfico a personas menores de edad o incapaces, será sancionado con pena de prisión de cuatro a ocho años.
+Se impondrá pena de cinco a nueve años, a quien exhiba, difunda, distribuya, financie o comercialice, por cualquier medio y cualquier título, material pornográfico en el que aparezca una persona menor de edad o incapaz, o Io posea para estos fines.
+(Así reformado por el artículo 8° de la Ley para la prevención del acoso a personas menores de edad por medios electrónicos o virtuales (GROOMING), N° 10020 del 9 de setiembre de 2021)
