@@ -220,6 +220,8 @@ articulo-191.md
 articulo-192.md
 articulo-192-bis.md
 articulo-193.md
+articulo-193-bis.md
+articulo-193-ter.md
 articulo-194.md
 articulo-195.md
 articulo-196.md
