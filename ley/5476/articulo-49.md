@@ -1,2 +1,3 @@
-Artículo 49.- La acción de divorcio sólo puede establecerse por el cónyuge inocente, dentro de un año contado desde que tuvo conocimiento de los hechos que lo motiven.
-En los casos de ausencia judicialmente declarada podrá plantear la acción el cónyuge presente en cualquier momento. Para estos efectos el Tribunal nombrará al demandado un curador ad litem.
+Artículo 49-La acción de divorcio solo puede establecerse por el cónyuge inocente, salvo en los casos de las causales de separación de hecho y del inciso 8) del artículo 48, en los que podrá ser presentada por cualquiera de los cónyuges. La demanda deberá entablarse dentro del plazo de un año contado desde que la parte actora tuvo conocimiento de los hechos que la motiven.
+En los casos de ausencia judicialmente declarada podrá plantear la acción el cónyuge presente en cualquier momento. Para estos efectos, el Tribunal nombrará al demandado un curador ad litem.
+(Así reformado por el artículo 2° de la Ley para la reivindicación de la autonomía de la voluntad en el proceso de divorcio, N° 9823 del 3 de marzo de 2020)
