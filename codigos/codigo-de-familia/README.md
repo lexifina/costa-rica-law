@@ -1,6 +1,6 @@
 # Código de Familia
 
-Ley N° 5476 del 1973-12-21. SINALEVI, ficha 970: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=970&param2=120704&param3=1>.
+Ley N° 5476 del 1973-12-21. SINALEVI, ficha 970: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=970&param2=142565&param3=1>.
 
 Publicada en La Gaceta N° 24 del 1974-02-05.
 
@@ -36,3 +36,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 27 de 43 | 2018-07-23 | Ley 9580 | 2018-06-12 |
 | 28 de 43 | 2018-08-08 | Sala Constitucional, resolución 12782 (2018-08-08) | 2018-08-08 |
 | 29 de 43 | 2018-08-08 | Sala Constitucional, resolución 12783 (2018-08-08) | 2018-08-08 |
+| 30 de 43 | 2024-10-01 | Ley 9747 | 2019-10-23 |

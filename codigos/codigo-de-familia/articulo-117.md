@@ -1,3 +1,1 @@
-Artículo 117.- Legitimación para solicitar declaratoria de abandono.
-Podrán solicitar la declaratoria de abandono de una persona menor de edad, el Patronato Nacional de la Infancia, o cualquier persona interesada en el depósito o la adopción de la persona menor de edad.
-(Así reformado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)
+Artículo 117.- Legitimación para solicitar declaratoria de abandono. (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

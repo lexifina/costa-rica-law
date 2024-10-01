@@ -1,3 +1,1 @@
-Artículo 145°- Recabación de pruebas.
-En esta audiencia las partes podrán proponer pruebas de todo tipo. Para evacuarlas, se aplicarán las garantías procesales establecidas en este título.
-De oficio o a petición de parte, el juez ordenará las diligencias que permitan recabar cualquier otra información necesaria para resolver el caso.
+Artículo 145°- Recabación de pruebas. (Derogado por el artículo 4° punto II) inciso b) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

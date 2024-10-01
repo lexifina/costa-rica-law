@@ -1,3 +1,2 @@
-Artículo 129.- Omisión de documentos.
-El tribunal podrá prevenir a los adoptantes la presentación de cualquier documento mencionado en el artículo anterior que se haya omitido o podrá solicitar otras diligencias que considere convenientes, para una mejor apreciación y valoración del interés superior de la persona menor de edad.
+Artículo 129.- Omisión de documentos. (Derogado por el artículo 4° punto II) inciso a) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 (Así adicionado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)

@@ -1,2 +1,2 @@
-Artículo 25°- Derecho a la privacidad.
-Las personas menores de edad tendrán derecho a no ser objeto de injerencia en su vida privada, familia, domicilio y correspondencia; sin perjuicio de los derechos y deberes inherentes a la patria potestad.
+Artículo 25- Derecho a la privacidad. Las personas menores de edad tendrán derecho a no ser objeto de injerencia en su vida privada, familia, domicilio y correspondencia, sin perjuicio de los derechos y deberes inherentes a los atributos de la responsabilidad parental.
+(Así reformado por el artículo 2° punto IV) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

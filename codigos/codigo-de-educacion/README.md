@@ -1,6 +1,6 @@
 # Código de Educación
 
-Ley N° 181 del 1944-08-18. SINALEVI, ficha 31486: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31486&param2=115550&param3=1>.
+Ley N° 181 del 1944-08-18. SINALEVI, ficha 31486: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31486&param2=142590&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 9 | 2015-01-23 | Ley 9281 | 2014-10-27 |
 | 6 de 9 | 2018-12-04 | Ley 9635 | 2018-12-03 |
 | 7 de 9 | 2019-03-15 | Ley 9655 | 2019-02-04 |
+| 8 de 9 | 2024-10-01 | Ley 9747 | 2019-10-23 |

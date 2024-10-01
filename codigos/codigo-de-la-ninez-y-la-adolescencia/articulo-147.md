@@ -1,2 +1,1 @@
-Artículo 147°- Delegación de ejecución.
-El juez velará por el cumplimiento efectivo de la resolución dictada. Cuando se trate de alguna de las medidas previstas en los artículos 135 y 136 podrá delegar la ejecución de lo acordado para proteger a la persona menor de edad en la oficina local competente del Patronato Nacional de la Infancia y cada dos meses solicitará informes sobre dicho cumplimiento.
+Artículo 147°- Delegación de ejecución. (Derogado por el artículo 4° punto II) inciso b) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

@@ -1,8 +1,10 @@
 CAPÍTULO V
 De la suspensión de la prescripción
-ARTÍCULO 880.- No corre la prescripción:
+ARTÍCULO 880.- casos de suspensión: No corre la prescripción:
+(Así reformado el párrafo anterior por el artículo 2° punto V) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 1º.- Contra los menores y los incapacitados durante el tiempo que estén sin tutor o curador que los represente conforme a la ley.
-2º.- Entre padres é hijos durante la patria protestad.
+2º.- Entre padres e hijos cuando se mantengan los atributos de la responsabilidad parental.
+(Así reformado el inciso anterior por el artículo 2° punto V) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
 3º.- Entre los menores é incapacitados y sus tutores o curadores, mientras dure tutela o curatela.
 4º.- Contra los militares en servicio activo en tiempo de guerra, tanto dentro como fuera de la República.
 5º.- Contra la herencia yacente, mientras no haya albacea que hubiere aceptado.

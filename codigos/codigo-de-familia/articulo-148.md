@@ -1,5 +1,5 @@
-Artículo 148.- Quien ejerza la patria potestad entregará a su hijo mayor o a la persona que lo reemplace en la administración, cuando esta concluya por otra causa, todos los bienes y frutos que pertenezcan al hijo y rendirá cuenta general de dicha administración.
-(Así reformado el párrafo anterior por el artículo 2° de la ley N° 9406 del 30 de noviembre de 2016, “Fortalecimiento de la protección legal de las niñas y las adolescentes mujeres ante situaciones de violencia de género asociadas a relaciones abusivas.”)
-Cuando procediere el nombramiento de un administrador de bienes, el Tribunal, atendidas las circunstancias, señalará el honorario que haya de cobrar aquél.
-En el caso de que la administración de los bienes del menor esté a cargo de personas distintas de aquella que tuviere la guarda, crianza y educación del mismo, el Tribunal autorizará la suma periódica que debe ser entregada para su alimentación.
+Artículo 148- Atributos de la responsabilidad parental. Reemplazo. Quien ejerza los atributos de la responsabilidad parental entregará a su hijo mayor o emancipado o a la persona que lo reemplace en la administración cuando esta concluya por otra causa, todos los bienes y frutos que pertenezcan al hijo y rendirá cuenta general de dicha administración.
+Cuando procediera el nombramiento de un administrador de bienes, el tribunal, atendidas las circunstancias, señalará el honorario que haya de cobrar aquel.
+En el caso de que la administración de los bienes del menor esté a cargo de personas distintas de aquella que tuviera la guarda, crianza y educación de este, el tribunal autorizará la suma periódica que debe ser entregada para su alimentación.
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 135 al 148)
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

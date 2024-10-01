@@ -1,6 +1,6 @@
 CAPITULO IV
 Hijos habidos fuera del Matrimonio
-Artículo 84.- Reconocimiento mediante trámite regular.
-Podrán ser reconocidos por sus padres todos los hijos habidos fuera del matrimonio, cuya paternidad no conste en el Registro Civil; igualmente, los hijos por nacer y los hijos muertos.
-El reconocimiento deberá efectuarse ante el Registro Civil, el Patronato Nacional de la Infancia o un notario público siempre que ambos padres comparezcan personalmente o haya mediado consentimiento expreso de la madre. El notario público deberá remitir el acta respectiva al Registro Civil dentro de los ocho días hábiles siguientes.
-(Así reformado por el artículo 1 de ley No.7538 del 22 de agosto de 1995)
+Artículo 84- Reconocimiento administrativo de la paternidad. Podrán ser reconocidos por sus padres todos los hijos habidos fuera de matrimonio y cuya paternidad no conste en el Registro Civil; igualmente, los hijos por nacer y los hijos muertos.
+Si el hijo no tiene paternidad asignada, el reconocimiento se hará ante el Registro Civil o notario público, siempre que ambos padres comparezcan personalmente o haya mediado consentimiento expreso de la madre. El notario público deberá enviar el acta respectiva al Registro Civil, dentro de los ocho días hábiles siguientes.
+Si el hijo tuviera una paternidad asignada registralmente, por motivo de la presunción de paternidad de un padre que no corresponde a la verdad biológica, se podrá pedir su reconocimiento por quien corresponda ante el Registro Civil, según los trámites administrativos contemplados en las normas orgánicas de esta institución. Si sucediera una oposición fundada del padre o la madre registrales, el asunto deberá conocerse jurisdiccionalmente mediante el proceso resolutivo familiar de filiación.
+(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

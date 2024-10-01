@@ -1,8 +1,10 @@
-ARTICULO 60.-La separación por mutuo consentimiento no podrá pedirse sino después de dos años de verificado el matrimonio. Los esposos que la pidan deben presentar al Tribunal un convenio en escritura pública sobre los siguientes puntos:
-1) A quién corresponde la guarda, crianza y educación de los hijos menores;
-2) ¿Cuál de los dos cónyuges asume la obligación de alimentar a dichos hijos o la proporción en que se obligan ambos?;
-3) Monto de la pensión que debe pagar un cónyuge al otro, si en ello convinieren;
-4) Propiedad sobre los bienes de ambos cónyuges.
-Este pacto no valdrá mientras no se pronuncie la aprobación de la separación.
-Lo convenido con respecto a los hijos podrá ser modificado por el Tribunal.
-El convenio y la separación, si son procedentes y no perjudican los derechos de los menores, se aprobarán por el Tribunal en resolución considerada. El Tribunal podrá pedir que se complete o aclare el convenio presentado si es omiso u oscuro en los puntos señalados en este artículo de previo a su aprobación.
+artículo 60- Convenio de divorcio o separación en cuanto a los cónyuges y convivientes
+Se puede decretar el divorcio o la separación judicial de los cónyuges por mutuo consentimiento, de acuerdo con el procedimiento establecido en el Código Procesal de Familia.
+La solicitud de divorcio o separación judicial se presentará al Tribunal por convenio firmado en escritura pública por ambos cónyuges; documento en el cual se debe hacer mención sobre los siguientes puntos:
+a) El establecimiento del derecho o no de obligación alimentaria entre los cónyuges y el monto en que se obligan.
+b) La distribución de la propiedad de los bienes gananciales habidos en el patrimonio de los cónyuges.
+c) En caso de tener hijos o hijas menores, a las disposiciones establecidas en el artículo 152 del presente Código.
+Estas mismas disposiciones serán aplicables en caso de que se dé un acuerdo de separación de las uniones de hecho, según lo estipulado en el artículo 242 del presente Código.
+El convenio no podrá surtir efecto para su homologación, si no es presentado ante el despacho judicial antes de los tres meses posteriores a su celebración notarial.
+El convenio, si es procedente y no perjudica los derechos de los hijos y las hijas menores, se aprobará por el Tribunal en resolución fundamentada en un plazo de quince días hábiles. El Tribunal podrá pedir que se complete o aclare el convenio presentado, si es omiso o confuso en los puntos señalados en este artículo de previo a su aprobación.
+(Así reformado por el artículo 1° de la Ley Régimen de interrelación familiar, N° 9781 del 12 de noviembre de 2019)
