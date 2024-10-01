@@ -1,0 +1,1 @@
+Artículo 216- Corrección de la demanda. La autoridad judicial apercibirá corregir cualquier omisión que impida cursar la demanda. Para su cumplimiento se otorgará a la parte actora un plazo de cinco días para cumplir. Transcurrido ese plazo, se procederá al archivo del expediente.

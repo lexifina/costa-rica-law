@@ -1,0 +1,1 @@
+Artículo 120- Efectos de las actuaciones de las partes. Los actos procesales de las partes, una vez verificados de manera efectiva ante la autoridad judicial competente, producirán inmediatamente la constitución, modificación o extinción de derechos y deberes procesales, salvo disposición legal en contrario.

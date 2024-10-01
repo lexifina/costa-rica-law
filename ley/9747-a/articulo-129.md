@@ -1,0 +1,1 @@
+Artículo 129- Medidas cautelares potestativas. La autoridad judicial al resolver una petición de medida cautelar podrá ordenar, aun de oficio, cualquier otra medida para tutelar los intereses de las personas involucradas en el proceso.

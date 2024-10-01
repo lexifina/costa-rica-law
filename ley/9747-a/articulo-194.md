@@ -1,0 +1,2 @@
+Artículo 194- Conciliación extrajudicial. Las partes podrán presentar, en cualquier tipo de proceso, arreglos de tipo conciliatorio. La autoridad judicial revisará el arreglo y, si lo encuentra ajustado a derecho, lo homologará. Cuando se considere necesario, se convocará a una audiencia para la discusión de lo conciliado.
+Si el acuerdo es presentado al despacho por una sola de las partes, se debe dar audiencia a la parte contraria para que se manifieste acerca de la petición de homologación.

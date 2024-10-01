@@ -1,0 +1,4 @@
+SECCIÓN VI: SUSPENSIÓN DE LOS PROCEDIMIENTOS
+Artículo 74- Procedencia. Se podrán suspender los procedimientos cuando las partes así lo requieran; por prejudicialidad, en los casos en que la autoridad judicial lo considere necesario o en los casos previstos en la ley.
+La suspensión se decretará por el plazo que la autoridad judicial considere prudente tomando en cuenta los fundamentos por los cuales se solicita, la situación fáctica del caso, la naturaleza de las pretensiones y el resguardo de los principios fundamentales del proceso; sin embargo, en caso de que sea pedido por ambas partes no podrá excederse de tres meses prorrogables por un plazo igual.
+Al decretar la suspensión, la autoridad judicial deberá respetar los principios de inmediación y concentración que rigen el sistema procesal de oralidad.

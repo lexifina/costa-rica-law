@@ -1,0 +1,1 @@
+Artículo 195- Opinión previa. Tratándose de personas menores de edad o con discapacidad que puedan externar su opinión, de previo a la homologación en la audiencia indicada, cuando se considere necesario para una mejor resolución, se escuchará su posición acerca delos aspectos conciliados que se refieran a derechos propios.

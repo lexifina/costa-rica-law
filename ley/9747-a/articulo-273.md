@@ -1,0 +1,7 @@
+Artículo 273- Convocatoria a audiencia. Planteada en tiempo la oposición de alguna de las partes, se convocará a una audiencia a realizarse dentro de los quince días siguientes a la presentación de la oposición o del vencimiento del plazo, si solo una de las partes se opone. En esa misma resolución se pondrá en conocimiento la oposición, se admitirán las pruebas ofrecidas por las partes y se advertirá de la obligación de presentar estas el día de la audiencia. En ese acto se verificarán las siguientes actuaciones:
+1) Se instará a las partes a la consideración de una forma alterna a la solución del conflicto. En caso de considerarse necesario, podrá llamarse a la audiencia a cualquier profesional especialista en resolución alterna de conflictos para el tratamiento de esta fase.
+2) De no existir conciliación se practicará la prueba de carácter interlocutoria y resolverá cualquier cuestión procesal interlocutoria que haya sido planteada antes o en la misma audiencia, incluyendo las excepciones procesales establecidas en la oposición.
+3) Práctica de las pruebas admitidas.
+4) Las partes expresarán sus conclusiones de forma breve.
+5) Se procederá al dictado de la parte dispositiva de la sentencia. La sentencia integral deberá ser dictada y notificada dentro del plazo de tres días.
+La indicación del monto pedido en la demanda no implicará limitación alguna para la fijación de la cuota alimentaria.

@@ -1,0 +1,1 @@
+Artículo 259- Carga probatoria y dinamicidad de la prueba. La carga probatoria corresponderá a quien niegue o se oponga a los ingresos y las formas económicas indicadas por la parte acreedora, la responsabilidad en el aporte de esta corresponderá a quien tenga mejores elementos para entregarla al despacho.

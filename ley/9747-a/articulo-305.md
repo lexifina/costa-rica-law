@@ -1,0 +1,5 @@
+SECCIÓN II: ACTUACIONES PRELIMINARES
+Artículo 305- Medidas precautorias. Previo a la presentación de la solicitud de la restitución, la autoridad central designada o la parte interesada podrá solicitar, como medida urgente, la localización y protección de la persona menor de edad.
+Verificada la localización, lo comunicará de inmediato al Estado requirente vía autoridad central.
+La autoridad central solicitará o adoptará las medidas adecuadas tendientes a conseguir la restitución voluntaria de la persona menor de edad y comunicará al juzgado el resultado de la solicitud.
+A partir de dicha noticia, en caso de que se hubiera solicitado la previa localización de la persona menor de edad, comenzará a correr un plazo de treinta días naturales a efectos de la correspondiente presentación de solicitud de restitución, para el caso de que esta no se haya deducido. Vencido este plazo sin que se presente la solicitud de restitución, las medidas adoptadas de forma cautelar caducarán de pleno derecho.

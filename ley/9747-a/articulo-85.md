@@ -1,0 +1,1 @@
+Artículo 85- Deberes de la persona notificadora. Cuando se deba efectuar la notificación de una resolución que ordena el apremio corporal, la entrega de una persona menor de edad o en estado de vulnerabilidad o cualquier otra medida urgente, la autoridad judicial deberá indicarlo a la persona notificadora, para que la realice de forma inmediata.

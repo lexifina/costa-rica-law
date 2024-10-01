@@ -1,0 +1,1 @@
+Artículo 345- Unión de hecho. Las pretensiones que surjan como consecuencia de la unión de hecho deben presentarse ante la autoridad judicial del último domicilio efectivo común de las personas que la constituyen o del domicilio o residencia habitual del demandado.

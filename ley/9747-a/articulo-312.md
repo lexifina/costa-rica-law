@@ -1,0 +1,2 @@
+Artículo 312- Derecho de interrelación familiar. La solicitud que tiene por objeto hacer efectivo el derecho de visitas o de interrelación familiar por parte de sus titulares, en los casos previstos en los convenios internacionales de la materia, seguirá el procedimiento establecido en la presente ley.
+No son requisitos necesarios para la procedencia de la solicitud, en el marco de los instrumentos internacionales, la existencia de un traslado o retención ilícitos previos, ni la existencia de un régimen de visitas establecido previamente.

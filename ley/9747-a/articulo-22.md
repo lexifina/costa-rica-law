@@ -1,0 +1,1 @@
+Artículo 22- Trámite para plantear el conflicto de competencia. La autoridad judicial que reciba el proceso en virtud de la declaratoria de oficio o por acogerse la excepción de falta de competencia mediante resolución que no fue apelada, podrá plantear el conflicto de competencia dentro de los tres días posteriores de recibido el expediente.

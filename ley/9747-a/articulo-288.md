@@ -1,0 +1,2 @@
+Artículo 288- Liquidación de gastos extraordinarios pactados. Cuando se trate de liquidar los gastos extraordinarios, se solicitará al despacho su cuantificación. Para estos efectos, aportará la prueba pertinente, sin perjuicio de aquellos gastos de fijación prudencial. Se dará audiencia a la otra parte por tres días y posterior a ello la autoridad judicial resolverá.
+Los montos establecidos se cobrarán por los medios dados en este Código, incluso el apremio corporal.

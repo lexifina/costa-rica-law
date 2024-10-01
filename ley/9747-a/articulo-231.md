@@ -1,0 +1,1 @@
+Artículo 231- Allanamiento. En los procesos en los cuales es posible allanarse a las pretensiones de la contraria, en virtud del objeto debatido, se procederá con el dictado del fallo en lo aceptado de forma dispositiva y dentro del tercer día la autoridad judicial dictará y notificará el fallo en su totalidad.

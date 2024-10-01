@@ -1,0 +1,3 @@
+Artículo 348- Adopción. Las autoridades judiciales costarricenses son exclusivamente competentes para la decisión del cuido con fines de adopción y para el otorgamiento de una adopción de personas menores de edad con su residencia habitual en Costa Rica.
+Para la anulación de una adopción son competentes las autoridades judiciales del lugar del otorgamiento o los de la residencia habitual del adoptado.
+Las autoridades administrativas o jurisdiccionales costarricenses deben prestar cooperación a las personas con domicilio o residencia habitual en Costa Rica, aspirantes a una adopción a otorgarse en país extranjero, que soliciten informes sociales y sicológicos de preparación o de seguimiento de una adopción a conferirse o conferida en el extranjero.

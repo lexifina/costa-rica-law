@@ -1,0 +1,1 @@
+Artículo 304- Legitimación pasiva. Estará legitimada pasivamente la persona que ha sustraído o retiene ilícitamente a la persona menor de edad, cuyo desplazamiento o retención constituye la causa de la solicitud.

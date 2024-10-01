@@ -1,0 +1,1 @@
+Artículo 145- Efectos. El dictado de la medida autosatisfactiva conlleva la inmediata ejecución de lo decidido y no requiere discusión posterior, salvo la activación de otras vías procesales para discutir lo resuelto.

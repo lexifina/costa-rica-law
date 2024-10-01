@@ -1,0 +1,2 @@
+Artículo 302- Adopción en sede notarial. Cuando se trate de personas mayores de edad, la adopción se tramitará en sede notarial, mediante los procedimientos establecidos en el título VI de la Ley N.º 7764, Código Notarial, de 17 de abril de 1998. Se exceptúan de este trámite las personas con discapacidad cuya condición no les permita dar su consentimiento.
+Una vez aprobada, la persona notaria estará en la obligación de presentar el testimonio de escritura ante el Registro Civil, dentro de los ocho días siguientes, y tramitar su inscripción.

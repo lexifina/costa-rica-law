@@ -1,0 +1,1 @@
+Artículo 98- Congruencia y no reforma en perjuicio. Al resolver el recurso, no se podrán conocer aspectos no impugnados ni hacer variaciones a la resolución que perjudiquen al recurrente, salvo que ello sea estrictamente necesario en atención a lo resuelto. En todo caso, se evitará decretar nulidades de las resoluciones recurridas.

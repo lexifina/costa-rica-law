@@ -1,0 +1,4 @@
+CAPÍTULO III: EJECUCIÓN DE DERECHOS PATRIMONIALES
+SECCIÓN I: DERECHO DE GANANCIALIDAD
+Artículo 320- Legitimación y trámite inicial. Una vez establecido en sentencia el derecho de ganancialidad y cuando se hayan individualizado los bienes sobre los cuales recae de forma concreta, cualquiera de las partes interesadas solicitará la ejecución, debiendo indicar los bienes declarados con derecho de ganancialidad y ofrecer la prueba necesaria para fijar el valor neto de estos.
+Cuando la petición esté en forma, se dará audiencia a la otra por tres días para proponer cualquier otro tipo de prueba sobre ese aspecto del valor neto y, de forma inmediata, se ordenará traer las pruebas ofrecidas y pertinentes, incluyendo, si fuera necesario y no hay acuerdo sobre el valor del bien, la de tipo pericial para la valoración del bien.

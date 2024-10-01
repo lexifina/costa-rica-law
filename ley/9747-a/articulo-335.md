@@ -1,0 +1,2 @@
+Artículo 335- Igualdad de trato. Los ciudadanos y los residentes permanentes en el extranjero gozan del libre acceso a la jurisdicción para la defensa de sus derechos e intereses, en las mismas condiciones que los ciudadanos y los residentes permanentes en Costa Rica.
+Ninguna caución o depósito, cualquiera que sea su denominación, puede ser impuesto en razón de la calidad de ciudadano o residente permanente en otro Estado.

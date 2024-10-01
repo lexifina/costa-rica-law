@@ -1,0 +1,1 @@
+Artículo 4- Preferencia del sistema procesal de oralidad. Salvo disposición en contrario, los procedimientos que regula este Código se regirán por el sistema procesal de oralidad con aplicación del principio de privacidad dentro de él.

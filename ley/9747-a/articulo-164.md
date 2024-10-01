@@ -1,0 +1,2 @@
+Artículo 164- lnadmisión de la declaración de parte. No será admisible la declaración de parte sobre hechos referentes a derechos no disponibles, salvo que sea necesaria como elemento integrador de otras pruebas o para tener mejor visión del conflicto familiar.
+Por ningún motivo se admitirá la prueba de declaración de parte en los procedimientos de aplicación de las medidas de protección contra la violencia doméstica, ni en los procesos de protección cautelar establecidos en este Código.

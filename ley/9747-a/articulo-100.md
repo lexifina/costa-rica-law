@@ -1,0 +1,3 @@
+SUBSECCIÓN III: RECURSO DE APELACIÓN
+Artículo 100- Procedencia y plazos. El recurso de apelación procederá únicamente contra las resoluciones judiciales que expresamente así se indique y deberá interponerse dentro del tercer día.
+Tratándose de resoluciones interlocutorias dictadas de forma verbal en las audiencias, se deberá interponer en el acto y resolver, de inmediato, sobre la admisibilidad o no de la apelación con efecto diferido. Cuando proceda el recurso de apelación contra autos, este deberá interponerse conjuntamente con el recurso de revocatoria y, de no hacerlo, se rechazará de plano.

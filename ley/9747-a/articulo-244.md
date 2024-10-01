@@ -1,0 +1,1 @@
+Artículo 244- Requisitos de la petición. La petición se presentará por escrito o mediante actuación verbal ante la autoridad judicial, de forma clara. Deberá contener los datos necesarios de identificación, los hechos que la motivan, ofrecer la prueba aportando la documental e indicar el medio para atender notificaciones.

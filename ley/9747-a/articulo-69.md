@@ -1,0 +1,1 @@
+Artículo 69- Uso de medios tecnológicos para obtener información. En cualquier estado del proceso, la autoridad judicial puede obtener información de interés para el proceso por medios electrónicos; si se tratara de elementos de prueba, deberá establecerse en cada caso el procedimiento necesario de garantía del debido proceso, según las normas probatorias de este Código.

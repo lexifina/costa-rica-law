@@ -1,0 +1,1 @@
+Artículo 165- Imposibilidad de utilizar notas y apuntes. Al momento de la declaración no se podrán utilizar notas ni apuntes, excepto cuando se trate de preguntas referidas a cifras o datos de difícil precisión, siempre y cuando los tenga en su poder al momento en la audiencia.

@@ -1,0 +1,1 @@
+Artículo 337-Acuerdo de elección de foro. En materia patrimonial e internacional, las partes están facultadas para prorrogar competencia en las autoridades judiciales fuera de Costa Rica, excepto que las autoridades costarricenses tengan competencia exclusiva.

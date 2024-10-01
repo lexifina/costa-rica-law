@@ -1,0 +1,1 @@
+Artículo 137- Otras medidas cautelares de protección en procesos donde se discuten relaciones de pareja. La autoridad judicial podrá ordenar, a fin de asegurar la protección de los miembros de la familia, cualquier medida de protección que estime pertinente, además de las establecidas en la normativa de violencia intrafamiliar.

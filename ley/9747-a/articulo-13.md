@@ -1,0 +1,2 @@
+SECCIÓN II: COMPETENCIA AMPLIADA
+Artículo 13- Deber de las partes de informar sobre otros procesos. Al presentarse cualquier tipo de proceso o al contestarse este, las partes tienen el deber de informar al despacho acerca de la existencia de cualquier otro litigio en el cual se discutan pretensiones sobre las relaciones familiares en que intervienen las mismas partes. Deben indicar el órgano jurisdiccional o administrativo en que se encuentre y los datos necesarios para su identificación. Esta obligación subsiste en cualquier estado del proceso.

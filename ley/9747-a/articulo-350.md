@@ -1,0 +1,2 @@
+Artículo 350- Normas sobre cuidado de menores de edad y alimentos. Las normas relativas a cuidado o guarda de personas menores de edad con conflicto entre personas que viven en diversos países se ejecutarán y decidirán de acuerdo con el procedimiento especial de restitución dado en este Código.
+Serán de aplicación concreta y directa las normas internacionales referentes a la ejecución de deberes alimentarios decretados en otros países, mediante la debida adecuación de los procedimientos dados en esta normativa.

@@ -1,0 +1,2 @@
+Artículo 134- Cuido provisional de personas. La autoridad judicial podrá ordenar la anticipación del derecho pretendido de cuido provisional de personas como medida cautelar, procurando que el lapso que transcurra hasta la sentencia no provoque la consolidación del derecho a favor del titular de la medida otorgada.
+En los asuntos de petición unilateral para el nombramiento de un representante o el cuido personal para una persona con discapacidad o persona menor de edad, la autoridad judicial podrá ordenar el cuido personal con independencia de los aspectos patrimoniales.
