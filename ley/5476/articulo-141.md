@@ -1,5 +1,4 @@
-Artículo 141- Atributos de la responsabilidad parental. Derechos y obligaciones.
-Irrenunciabilidad
-Los derechos y las obligaciones inherentes a los atributos de la responsabilidad parental no pueden renunciarse. Tampoco pueden modificarse por acuerdo de partes, salvo lo relacionado con la custodia personal de los menores de edad.
+Artículo 141- Los derechos y las obligaciones inherentes a la responsabilidad parental no pueden renunciarse. Tampoco pueden modificarse por acuerdo de las partes, salvo lo dispuesto para la separación y el divorcio por mutuo consentimiento, en cuanto se refiera a la guarda, crianza y educación de los hijos y las hijas.
+Asimismo, cuando se realice el reconocimiento de hijas e hijos menores habidos fuera del matrimonio, el padre y la madre deberán acordar los atributos de la responsabilidad parental, guarda, crianza, educación y régimen de interrelación familiar de los primeros. Dicho acuerdo se realizará según lo dispuesto por el artículo 152 del presente Código, sea en sede judicial o ante el Registro Civil, el Patronato Nacional de la Infancia (PANI) o notario público; en defecto de acuerdo o cuando el interés superior de la persona menor de edad así lo justifique, el Tribunal dispondrá y modificará en resolución fundada todo lo correspondiente.
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 128 al 141)
-(Así reformado por el artículo 2° punto II) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
+(Así reformado por el artículo 1° de la Ley Régimen de interrelación familiar, N° 9781 del 12 de noviembre de 2019)
