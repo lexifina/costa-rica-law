@@ -1,1 +1,1 @@
-ARTÍCULO 902.- Son asimismo absolutamente nulos los actos o contratos a título gratuito, que el insolvente hubiere ejecutado o celebrado en los dos años anteriores a la declaratoria de insolvencia, a favor de su cónyuge, ascendientes, descendientes o hermanos, suegros yernos y cuñados.
+ARTÍCULO 902.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

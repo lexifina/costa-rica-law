@@ -1,2 +1,1 @@
-ARTÍCULO 963.- En cualquier momento el insolvente podrá hacerles a los acreedores las proposiciones que a bien tenga sobre el pago o arreglo de sus deudas.
-(Así reformado por el artículo 2º de la ley No. 7130 del 16 de agosto de 1989).
+ARTÍCULO 963.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

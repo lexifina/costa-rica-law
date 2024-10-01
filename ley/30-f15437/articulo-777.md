@@ -1,5 +1,6 @@
 ARTÍCULO 777.- El deudor no puede reclamar el beneficio del plazo, a menos de garantizar el pago de la deuda:
-1º.- Cuando se le hubiere declarado insolvente.
+1- Cuando se haya declarado la apertura de la fase de liquidación de su patrimonio en un proceso concursal.
+(Así reformado el inciso anterior por el artículo 74 inciso 74.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 2º.- Cuando se han disminuido las seguridades que había dado al acreedor en el contrato, o no ha dado las que por convenio o por la ley esté obligado a dar.
 3º.- Cuando estando la deuda dividida en varios plazos, deja de pagar cualquiera de ellos, después de requerido.
 4º.- Cuando quiera ausentarse de la República sin dejar en ella bienes conocidos y suficientes para responder de todas sus deudas.

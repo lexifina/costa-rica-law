@@ -1,1 +1,1 @@
-ARTÍCULO 916.- Desde la declaratoria de insolvencia, cesan de correr contra el concurso los intereses de crédito que no estén asegurados con prenda o hipoteca; y aun los acreedores pignoraticios o hipotecarios no podrán exigir los intereses corrientes, sino hasta donde alcance el producto de la cosa sobre la cual esté constituida la garantía.
+ARTÍCULO 916.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

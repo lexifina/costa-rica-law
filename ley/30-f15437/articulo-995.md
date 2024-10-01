@@ -1,1 +1,1 @@
-ARTÍCULO 995.- Lo que sobrare del precio de una cosa afectada con créditos privilegiados, una vez pagados éstos, se incorporará a la masa del concurso.
+ARTÍCULO 995.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

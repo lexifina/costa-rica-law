@@ -1,1 +1,1 @@
-ARTÍCULO 987.- El dueño no puede exigir la entrega de las cosas cuya reivindicación se hubiere admitido, sin reembolsar antes las cantidades que el insolvente o el concurso hubieren anticipado por precio o por gastos legítimos de dichas cosas, y sin pagar las cargas ó deudas a que ellas estén legalmente afectadas.
+ARTÍCULO 987.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

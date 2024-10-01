@@ -1,1 +1,1 @@
-ARTÍCULO 953.- Al acreedor reconocido por la mayoría se le tendrá como tal, salvo que fallo ejecutoriado, en el juicio que contra él entablen los acreedores opuestos a su crédito, declare que éste no es legítimo.
+ARTÍCULO 953.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

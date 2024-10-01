@@ -1,1 +1,1 @@
-ARTÍCULO 931.- Los curadores representando al concurso, tienen las facultades y obligaciones de un mandatario con poder general, con las diferencias que establecen los siguientes artículos.
+ARTÍCULO 931.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

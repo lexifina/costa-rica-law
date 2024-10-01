@@ -1,5 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 784.- Rendición de cuentas.
-Cuando un curador cesare en su cargo deberá rendir cuenta de su gestión en los ocho días siguientes, la que se tramitará en el legajo de estados mensuales. Sobre ello se oirá por diez días a los acreedores, y al nuevo curador cuando se trate de un cambio de éste. Vencido ese plazo sin que haya oposición, el juez aprobará la cuenta y declarará exento de responsabilidad al curador, si tuviere comprobación en lo fundamental en el expediente, si no contradijere los estados mensuales u otros datos, y si no comprendiere partidas que estén reñidas con disposiciones expresas de la ley. En el caso contrario, el juez hará las rectificaciones correspondientes.
-Si la cuenta fuere impugnada oportunamente, se tramitará dicha oposición con el curador, por la vía incidental.
+ARTÍCULO 784.- Rendición de cuentas. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 761 al 784)

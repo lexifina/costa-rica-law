@@ -1,3 +1,2 @@
-ARTÍCULO 1149.- Si el arrendatario llegare a ser declarado insolvente o en estado de concurso, el arrendamiento podrá ser resuelto por los acreedores, con previo aviso con un mes de anticipación, al arrendador, cuando el contrato tenga por objeto una finca urbana.
-Si el arrendamiento tuviere por objeto un predio rústico podrán también los acreedores rescindirlo; pero tendrá derecho el arrendador para pedir la continuación del arrendamiento por seis meses más, a contar del día en que los acreedores le hayan hecho saber su determinación de apartarse de él.
-Para que los acreedores puedan sustituir al concursado es necesario que den fianza bastante. No pasará a éstos el arrendamiento de inmuebles destinados al uso y habitación del concursado y su familia.
+Artículo 1149- Si el arrendatario o arrendador llegaran a ser declarados en estado de concurso, la continuación o extinción del contrato se regirá por lo dispuesto en la legislación concursal.
+(Así reformado por el artículo 74 inciso 74.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

@@ -1,1 +1,1 @@
-ARTÍCULO 942.- Son acreedores del concurso los acreedores personales del fallido que reclaman la satisfacción de un crédito de la masa común.
+ARTÍCULO 942.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

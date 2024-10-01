@@ -1,5 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 805.- Remate de bienes.
-No habiendo sido posible la asignación de las deudas activas o de otros bienes, a los acreedores, el juez ordenará venderlos en subasta pública al mejor postor, con base o sin ella.
-En el edicto bastará con indicar el número de los créditos y el monto total de ellos, sin mención del nombre de los deudores, y una breve descripción de los otros bienes. Pero el juzgado deberá formar una lista, por lo menos tres días antes del remate, con una breve referencia de las pruebas pertinentes, para que pueda ser examinada por los interesados; y en el acto del remate se le dará lectura.
+ARTÍCULO 805.- Remate de bienes. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 782 al 805)

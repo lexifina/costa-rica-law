@@ -1,3 +1,3 @@
 CAPÍTULO III
 De los créditos contra la masa de bienes
-ARTÍCULO 989.- Los acreedores de la masa tienen acción para exigir del concurso, por las vías comunes, el pago de sus respectivos créditos, con preferencia a todos los demás acreedores.
+ARTÍCULO 989.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

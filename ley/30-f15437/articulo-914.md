@@ -1,1 +1,1 @@
-ARTÍCULO 914.- En todos los casos en que un negocio se rescinda por la declaración de insolvencia, el contratante sólo puede reclamar y liquidar sus daños y perjuicios como acreedor del concurso, excepto que tenga prenda o hipoteca a su favor.
+ARTÍCULO 914.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

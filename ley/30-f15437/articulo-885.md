@@ -1,2 +1,1 @@
-ARTÍCULO 885- El Estado y los Municipios nunca serán considerados en estado de insolvencia, para los efectos legales que de tal consideración pudieren derivarse.
-(Así reformado por artículo 2º de la Ley Nº 4327 de 17 de febrero de 1969).
+ARTÍCULO 885- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

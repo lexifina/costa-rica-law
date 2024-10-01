@@ -1,6 +1,2 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
-ARTÍCULO 787.- Venta del bien.
-Una vez reconocido el crédito de cualquier acreedor que tuviere derecho preferente sobre un bien determinado, cuando tal requisito sea necesario, y aceptada la solicitud a que se refiere el artículo anterior, el curador hará vender la cosa afectada aunque el plazo no estuviere vencido, y procederá al pago respectivo. Para ese fin, si fuere mueble y estuviere en su poder, el acreedor deberá ponerla a disposición del curador.
-Todos estos acreedores tendrán derecho a participar, en proporción al total de su crédito, en los repartimientos de la masa que precedan a la venta de la cosa sobre la que tuvieren derecho real.
-Realizada la venta, se completará el pago del crédito y el sobrante ingresará en la masa común. Si el precio de la cosa no alcanzare a cubrir el crédito, el acreedor intervendrá en las reparticiones generales con los demás acreedores comunes, por lo que quedare en descubierto.
+ARTÍCULO 787.- Venta del bien. (Derogado por el artículo 73 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 764 al 787)

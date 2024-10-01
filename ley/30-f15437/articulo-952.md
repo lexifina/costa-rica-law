@@ -1,2 +1,1 @@
-ARTÍCULO 952.- El acreedor dueño de un crédito no reconocido no podrá concurrir a las juntas ni emitir su voto por escrito, mientras por fallo firme no se declare que es tal acreedor; pero desde que haya iniciado el juicio respectivo, el importe del crédito demandado deberá tomarse en cuenta para computar la mayoría en la junta sobre el convenio.
-(Así reformado por el artículo 2º de la ley No. 7130 del 16 de agosto de 1989)
+ARTÍCULO 952.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

@@ -1,2 +1,1 @@
-ARTÍCULO 945.- Convocada legalmente una junta, se celebrará si concurren dos o más acreedores, y las resoluciones que por mayoría adopten, serán obligatorias para los acreedores de la minoría, lo mismo que para los que no hubieren concurrido a la junta, salvo que el acuerdo haya sido tomado contra la disposición expresa de una ley.
-(Así reformado por el artículo 2º de la ley Nº 7130 de 16 de agosto de 1989).
+ARTÍCULO 945.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
