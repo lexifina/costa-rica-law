@@ -1,0 +1,1 @@
+Artículo 3º-Principio de legalidad: Todas las actuaciones de la Municipalidad tanto para otorgar donaciones como para recibirlas; deberán realizarse con fundamento en la norma habilitante que corresponda. Lo anterior, de acuerdo con los artículos 11 de la Constitución Política y 11 de la Ley General de la Administración Pública.

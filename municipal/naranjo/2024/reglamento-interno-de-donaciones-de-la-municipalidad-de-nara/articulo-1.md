@@ -1,0 +1,16 @@
+MUNICIPALIDAD DE NARANJO
+REGLAMENTO INTERNO DE DONACIONES
+DE LA MUNICIPALIDAD DE NARANJO
+El Concejo Municipal de la Municipalidad de Naranjo, con fundamento en los artículos 11, 169 y 170 de la Constitución Política; artículos 4 y 11 de la Ley General de la Administración Pública y artículos 13, inciso c), 43 y 71 del Código Municipal y el Acuerdo SO-26-24-2024, tomado por el Concejo Municipal en la sesión ordinaria N° 26, celebrada el 19 de agosto, 2024; emite el presente Reglamento para establecer las disposiciones respecto de las donaciones recibidas y otorgadas por la Municipalidad de Naranjo, el cual se regirá por las siguientes regulaciones:
+Considerando:
+I.-Que en aplicación del principio de legalidad administrativo, dispuesto en los artículos 11 de la Constitución Política y 11 de la Ley General de la Administración Pública, así como en acatamiento de la normativa de control interno, dispuesta en la Ley General de Control Interno y por consiguiente, en cumplimiento del ordenamiento jurídico atinente, es necesario establecer normas claras y precisas que permitan mantener un adecuado control en los actos administrativos, respecto de donaciones recibidas y otorgadas por la Municipalidad de Naranjo.
+II.-Que el Código Civil desde su artículo 1393 en adelante, regula lo referente a procesos de donación.
+III.-Que el artículo 20 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422, establece el régimen de donaciones y obsequios a funcionarios públicos.
+IV.-Que el artículo 104 de la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131, autoriza la donación de los órganos de la administración central, que ingresen en categorías de bienes en desuso o mal estado a instituciones.
+V.-Que el artículo 71 del Código Municipal, confiere a la Municipalidad la potestad de usar o disponer de su patrimonio mediante toda clase de actos o contratos permitidos en el Código o la Ley General de Contratación Pública.
+VI.-Que en artículo 75 de la Ley General de Contratación Pública, Ley N° 9986, regula procedimientos para la donación de bienes muebles o inmuebles.
+VII.-Que el artículo 19 de la Ley sobre el Desarrollo de la Comunidad (DINADECO), Ley N° 3859, autoriza a las Municipalidades a otorgar subvenciones, donar bienes, o suministrar servicios de cualquier clase a estas asociaciones, como una forma de contribuir al desarrollo de las comunidades y al progreso social y económico del país.
+VIII.-Que para la consecución de sus fines y objetivos, la Municipalidad de Naranjo debe contar con normativa que permita definir procedimientos referentes a trámites para otorgar y recibir donaciones de cualquier índole.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Objeto y ámbito de aplicación: El presente Reglamento tiene por objeto establecer las disposiciones de acatamiento obligatorio para todo el personal municipal, incluido las personas que ocupen los puestos de alcalde y vicealcaldía; regidores (titulares y suplentes) y síndicos (titulares y suplentes), respecto del otorgamiento y recepción de donaciones, por parte de la Municipalidad de Naranjo, de conformidad con la legislación vigente y aplicable.

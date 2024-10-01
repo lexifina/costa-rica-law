@@ -1,0 +1,1 @@
+Artículo 18.-Criterio presupuestario-financiero: El criterio presupuestario-financiero, al que se hace referencia en el artículo 8, inciso b) del presente Reglamento, debe acreditar la solvencia económica para identificar si se cuentan con los recursos económicos para el mantenimiento óptimo de lo recibido en donación.

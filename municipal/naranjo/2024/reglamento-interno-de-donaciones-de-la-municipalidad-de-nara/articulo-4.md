@@ -1,0 +1,1 @@
+Artículo 4º-Bienes susceptibles de donación: En los términos del presente Reglamento y según el ordenamiento jurídico atinente, la Municipalidad pueda otorgar y recibir donaciones de servicios, recursos y bienes muebles o inmuebles.

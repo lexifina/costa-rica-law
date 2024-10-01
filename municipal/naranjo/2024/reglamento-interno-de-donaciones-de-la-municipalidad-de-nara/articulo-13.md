@@ -1,0 +1,8 @@
+Artículo 13.-Intención de donación. El ofrecimiento de donación, deberá incorporar la siguiente información:
+a) Escrito en el que se acredite la intención de donar, procedencia, las características, condiciones, funcionalidades y costo exacto o aproximado del bien material o inmaterial o servicio por donar. Dicho documento debe ser suscrito por la persona que cuente con la capacidad legal para realizar el acto de donación; se deberá indicar lugar y medio para recibir comunicaciones.
+b) Cuando se trate de bienes susceptibles de registro deberán aportarse los documentos pertinentes o en su defecto propiciar las facilidades para que la Municipalidad, realizar la constatación por su cuenta.
+c) La Municipalidad, debe verificar:
+i. En el caso de persona física, la vigencia del documento de identidad, revisar la cédula y dejar constancia de esta revisión.
+ii. En el caso de personas jurídicas, la vigencia de la personería jurídica mediante la plataforma del Registro Público de la Propiedad, en el caso que no tenga acceso a esta plataforma, se puede solicitar certificación de personería jurídica, certificación literal de la propiedad (cuando se requiera), la cual puede ser aportada en formato digital- PDF.
+d) La persona donante deberá estar al día con sus obligaciones con la Seguridad Social, salvo donaciones extranjeras, en las cuales se analizará el caso específico.
+e) Cuando se trate de donaciones por instituciones públicas, de bienes inmuebles a favor de la Municipalidad, deberá mediar acto administrativo, en el que se consigne y fundamente la intención de donar, emitido por el máximo jerarca.

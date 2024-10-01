@@ -1,0 +1,1 @@
+Artículo 16.-Criterio técnico-financiero en caso de donaciones en efectivo. La donación de dinero en efectivo, títulos valores u otros de igual naturaleza, debe contar con previo criterio técnico-financiero.

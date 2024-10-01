@@ -1,0 +1,1 @@
+Artículo 17.-Criterio jurídico. El criterio presupuestario-financiero, al que se hace referencia en el artículo 8, inciso b) del presente Reglamento, debe acreditar la viabilidad jurídica de que la Municipalidad reciba la donación.

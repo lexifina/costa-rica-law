@@ -1,0 +1,1 @@
+Artículo 15.-Criterio técnico-especial. Tratándose de donaciones a favor de la Municipalidad, de equipos, programas, licencias o similares de índole informático, debe existir una coordinación con el área de Informática municipal, para la respectiva aprobación técnica que demuestre que sustente la aceptación de la donación.

@@ -1,0 +1,4 @@
+Artículo 24.-Procedimiento para donación. Los solicitantes deben gestionar la solicitud de donación ante quien ocupe el puesto de alcalde, quien previa recomendación y estudio técnico elevará al Concejo el informe de donación respectivo.
+Posterior a que el Concejo emita el acuerdo de donación respectivo, quien ocupe el puesto de alcalde trasladará el mismo a la Proveeduría para ejecutarlo en los términos previstos en el reglamento de activos Municipales, según corresponda.
+En caso de haber sido aprobada, la Proveeduría, notificará al interesado la hora, día y lugar para la entrega de los bienes, por lo que se levantará el acta de entrega y aceptación de bienes donados en el lugar acordado en el proceso de donación.
+En el caso de donación de bienes patrimoniales entre instituciones de la Administración Pública se deberá consignar un contrato conforme lo previene el artículo 199 y 200 del Reglamento a la Ley General de Contratación Pública.
