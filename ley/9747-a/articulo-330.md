@@ -1,0 +1,2 @@
+Artículo 330- Bienes con derecho de ganancialidad. No será necesario decretar embargo de los bienes sobre los cuales recayó el monto de derecho de ganancialidad, si ya existe anotación en virtud del proceso resolutivo; para proceder con la fase de remate únicamente deberá presentarse la certificación registra! en la que conste la preferencia de esa anotación.
+Cuando dicha anotación no es preferente, el eventual remate deberá efectuarse con el gravamen que tenga ese carácter.

@@ -1,0 +1,1 @@
+Artículo 262- Efectos de las resoluciones en materia alimentaria. Ninguna resolución dictada conforme a este capítulo, sobre el monto de la cuota alimentaria, constituirá cosa juzgada material; lo decidido podrá ser modificado por medio de los procedimientos establecidos en este Código.

@@ -1,0 +1,1 @@
+Artículo 174- Ausencia de testigos. Cuando a la audiencia no compareciera alguna de las personas admitidas para recibir su declaración y se considere necesaria esta, se deberá hacerlo llegar dentro del plazo que se estipule para la suspensión de las audiencias, con auxilio de la Fuerza Pública, si fuera necesario.

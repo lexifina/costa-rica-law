@@ -1,0 +1,2 @@
+SUBSECCIÓN II: COBRO DE SUMAS LÍQUIDAS
+Artículo 329- Normativa aplicable. Salvo lo dispuesto en esta normativa, el trámite del cobro de las sumas de dinero establecidas en resolución judicial firme se hará efectivo directamente en el mismo proceso mediante el trámite previsto para el cobro de las obligaciones civiles o mercantiles. Tratándose del nombramiento de la persona depositaria judicial se tendrá en cuenta el interés familiar para su designación.

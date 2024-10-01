@@ -1,0 +1,1 @@
+Artículo 247- Oposición fundada. Si existiera oposición fundada a las diligencias presentadas, se valorará su procedencia. En caso de que la contención no pudiera resolverse en el mismo proceso, así se razonará y se deberá continuar el trámite mediante las normas del proceso resolutivo familiar, para lo cual la autoridad judicial tomará las medidas pertinentes.

@@ -1,0 +1,2 @@
+SECCIÓN II: OFRECIMIENTO DE PRUEBA
+Artículo 154- Momento del ofrecimiento. Las pruebas deberán ser aportadas u ofrecidas conforme lo indica este Código para cada uno de los procedimientos. Cuando se trate de prueba no conocida por las partes o que no haya sido posible obtenerla con anterioridad, podrá ser ofrecida sin formalismo alguno en cualquier momento del proceso hasta el inicio de la audiencia.

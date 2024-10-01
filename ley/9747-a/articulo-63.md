@@ -1,0 +1,2 @@
+SECCIÓN II: PRIVACIDAD DE LAS ACTUACIONES
+Artículo 63- Privacidad de la documentación. Todos los escritos, documentos e informes se considerarán privados. Se podrá custodiar de forma reservada en el archivo del despacho, de lo cual se dejará constancia en el expediente. Se podrán hacer publicaciones relacionadas con el expediente garantizando la privacidad de los litigantes. Por ningún motivo se ordenará la publicación del expediente por medios electrónicos que no aseguren esta privacidad de las personas intervinientes.

@@ -1,0 +1,1 @@
+Artículo 352- Improcedencia de la autorización. No procederá la autorización, si existiera en Costa Rica sentencia firme con carácter de cosa juzgada material sobre las pretensiones dadas en el fallo por inscribir, cuando estas no sean competencia exclusiva de los tribunales nacionales o sean contrarias a los principios de orden público internacional de Costa Rica.

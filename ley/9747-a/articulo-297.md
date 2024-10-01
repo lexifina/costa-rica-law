@@ -1,0 +1,1 @@
+Artículo 297- Integración de trámites. En la misma sentencia del proceso resolutivo familiar de terminación de los atributos de la responsabilidad parental con fines de adopción y declaratoria de adoptabilidad, si se dan las condiciones para hacerlo, se podrá resolver sobre la adopción.

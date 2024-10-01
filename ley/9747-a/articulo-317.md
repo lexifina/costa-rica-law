@@ -1,0 +1,1 @@
+Artículo 317 - Ejecuciones provisionales. Se podrá ordenar, de oficio o a petición de parte y en resolución fundada, la ejecución provisional de la sentencia sin estar firme cuando se trate del cuidado de personas en estado de vulnerabilidad o de fijación de relaciones interpersonales.

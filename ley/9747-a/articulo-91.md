@@ -1,0 +1,1 @@
+Artículo 91- Conservación de actos. Si fuera necesario decretar la nulidad de un acto procesal defectuoso, se deberán conservar las actuaciones a las que no alcance el motivo de nulidad, dejando constancia expresa de ellas.

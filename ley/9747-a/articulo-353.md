@@ -1,0 +1,3 @@
+Artículo 353- Procedimiento. Admitida la gestión en sus requisitos formales, se dará traslado a la parte contra quien se dirige la ejecución para que se manifieste dentro de los cinco días siguientes; si no se conoce su domicilio, se le hará saber mediante edicto publicado por una vez en cualquier periódico de circulación nacional y, si se localiza en el extranjero, se le notificará por medios consulares, en cuyo caso el plazo indicado aumenta a treinta días naturales.
+Finalizado el plazo, se dictará la resolución y, de ser procedente, se enviará al despacho que corresponda para su debida ejecución.
+Si se tratara de ejecución de simple inscripción, el mismo órgano procederá con la emisión de la ejecutoria correspondiente.

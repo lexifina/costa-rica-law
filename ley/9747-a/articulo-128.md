@@ -1,0 +1,1 @@
+Artículo 128- Presupuestos y legitimación para su aplicación. Las medidas cautelares procederán a solicitud de parte o de oficio. Para ordenarla se atenderá a la apariencia del derecho que se pretende y al peligro de la espera de la solución final.

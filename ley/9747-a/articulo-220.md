@@ -1,0 +1,1 @@
+Artículo 220- Efectos de la presentación de la demanda y del emplazamiento. El emplazamiento debidamente notificado tiene como efecto procesal prevenir el conocimiento del asunto al despacho y sujetar a las partes al proceso en caso de que no exista oposición, además de que produce la interrupción de la prescripción.

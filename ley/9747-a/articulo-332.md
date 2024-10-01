@@ -1,0 +1,1 @@
+Artículo 332- Inscripción de aprobaciones de remate entre familiares. Una vez aprobado un remate en un proceso familiar, en el cual la adjudicación correspondió a uno de los cónyuges o a cualquiera de sus hijas o hijos, su inscripción se verificará por medio de ejecutoria de la resolución que lo aprobó y demás piezas necesarias para esa inscripción.

@@ -1,0 +1,1 @@
+Artículo 208- Petición conjunta de fijación de honorarios. La parte y su profesional en abogacía podrán solicitar a la autoridad judicial la fijación de los honorarios, lo que deberá resolverse de forma inmediata.

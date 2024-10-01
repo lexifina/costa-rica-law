@@ -1,0 +1,12 @@
+Artículo 252- Obligaciones de la persona garante para la igualdad jurídica. La persona garante para la igualdad jurídica tendrá, para con la persona con discapacidad intelectual, mental y psicosocial, las siguientes obligaciones:
+1) No actuar sin considerar los derechos, la voluntad y las capacidades de la persona con discapacidad.
+2) Apoyarla para la protección y la promoción de todos sus derechos, especialmente el derecho de la persona con discapacidad en edad de contraer matrimonio, a casarse y fundar una familia, sobre la base del consentimiento libre y pleno de los futuros cónyuges y a tener acceso a información y educación sobre la reproducción y la planificación adecuada para su edad.
+3) Asistirla en la toma de decisiones en el ámbito legal, financiero y patrimonial, de manera proporcional y adaptada a la condición de la persona a la que asiste.
+4) Garantizar que la persona con discapacidad tenga acceso a información completa y accesible para que decida sobre sus derechos sexuales y reproductivos, en igualdad de condiciones con los demás. La esterilización será una práctica excepcional que se aplicará a solicitud de la misma persona con discapacidad o cuando sea necesaria e imprescindible para la preservación de su vida o integridad física.
+5) Garantizar y respetar los derechos, la voluntad, las preferencias, las habilidades y las capacidades de las personas con discapacidad.
+6) Brindar apoyo a la persona con discapacidad en el ejercicio de su maternidad o paternidad, velando siempre por el resguardo del interés superior del niño y la niña, y apoyarla en las gestiones necesarias para solicitar el apoyo estatal para estos fines, cuando lo requiera.
+7) No ejercer ningún tipo de presión, coerción, violencia ni influencia indebida en el proceso de toma de decisiones de la persona con discapacidad.
+8) No brindar consentimiento informado, en sustitución de la persona con discapacidad.
+9) No permitir que la persona con discapacidad sea sometida a tortura, tratos crueles, inhumanos o degradantes.
+10) No permitir que la persona con discapacidad sea sometida a experimentos médicos o científicos, sin que para este último caso la persona con discapacidad haya brindado su consentimiento libre e informado.
+11) Proteger la privacidad de la información personal, legal, financiera, de la salud, de la rehabilitación, de la habilitación y demás datos confidenciales de la persona con discapacidad.

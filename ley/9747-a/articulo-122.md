@@ -1,0 +1,1 @@
+Artículo 122- Debido comportamiento de las partes y representantes. En toda audiencia, las partes y sus representantes legales y judiciales deberán tener un adecuado comportamiento en el desempeño de las labores asignadas a cada uno y en el respeto debido hacia las demás personas.

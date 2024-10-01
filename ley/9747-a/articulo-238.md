@@ -1,0 +1,2 @@
+CAPÍTULO II: PROCEDIMIENTO DE PROTECCIÓN
+Artículo 238- Contenido de la solicitud. La solicitud deberá contener, como mínimo, los datos que identifique a la persona solicitante de la medida y de la persona contra quien se solicite la medida, su grado de parentesco, si lo hubiera, o bien el interés que defiende, los datos de identificación de la persona que se pretende tutelar y el domicilio de todos, con indicación de medio para las notificaciones y el ofrecimiento de la prueba respectiva.

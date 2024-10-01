@@ -1,0 +1,1 @@
+Artículo 219- Citaciones y emplazamientos a personas residentes en el extranjero. Cuando se deba notificar personalmente la demanda a una persona que reside en el extranjero, se otorgará un plazo mínimo de quince días, el cual podrá ampliarse por la lejanía del país, la naturaleza del proceso y sus pretensiones.

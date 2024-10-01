@@ -1,0 +1,1 @@
+Artículo 29- Perpetuidad de la competencia subjetiva. Cuando por inhibitoria o recusación una persona juzgadora haya sido reemplazada, el expediente regresará al despacho inicial, si la persona inhibida o recusada ha dejado de ser titular y el asunto no inicia aún la fase de audiencia de prueba.

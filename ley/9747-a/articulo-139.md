@@ -1,0 +1,1 @@
+Artículo 139- Inmovilización de bienes. En caso de que exista riesgo patrimonial relacionado con una posible defraudación en contra de los intereses de la persona con discapacidad o de la persona menor de edad, se podrá ordenar al Registro Público de la Propiedad la inmovilización de los bienes inmuebles o muebles registrables e inscritos a su nombre.

@@ -1,0 +1,2 @@
+SECCIÓN IV: EFECTOS DE LAS SENTENCIAS
+Artículo 89- Carácter de cosa juzgada. La sentencia dictada en el proceso resolutivo familiar y cualquier otra resolución que indique la ley produce cosa juzgada material, salvo lo relativo a guarda, crianza y educación, la suspensión de los atributos de la responsabilidad parental y la que resuelva el sistema de interrelación familiar o cualquier conflicto familiar que puedan ser modificados con posterioridad por el cambio de circunstancias en el ámbito familiar.

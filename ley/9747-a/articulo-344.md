@@ -1,0 +1,2 @@
+Artículo 344- Matrimonio, separación judicial y divorcio. Las pretensiones de validez, nulidad y disolución del matrimonio, así como las referentes a los efectos del matrimonio, la separación judicial y el divorcio deben interponerse ante la autoridad judicial del último domicilio conyugal efectivo o ante el domicilio o la residencia habitual del cónyuge demandado.
+Se entiende por domicilio conyugal efectivo el lugar de efectiva e indiscutida convivencia de los cónyuges.

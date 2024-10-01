@@ -1,0 +1,4 @@
+Artículo 103- Apelación con efecto diferido. El recurso de apelación contra autos planteado en la propia audiencia del proceso se admitirá en efecto diferido para conocerse junto al recurso de la sentencia final.
+La parte recurrente, cuya apelación fue diferida, debe reiterar y fundamentar sus motivos junto al recurso de la sentencia final; de lo contrario se tendrá por desistido.
+El órgano de segunda instancia conocerá de los recursos reiterados y diferidos cuando exista interés y trascendencia para la decisión final.
+Si quien interpuso la apelación diferida no hubiera recurrido la sentencia, por haberle sido favorable, los alegatos que se habían dado en esa apelación deberán considerarse por el superior al conocerse el recurso de la otra parte, si fuera necesario en vista de la forma de resolución que se toma.

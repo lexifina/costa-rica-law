@@ -1,0 +1,5 @@
+SUBSECCIÓN VI: VALORACIONES FÍSICAS DE PERSONAS Y
+RECONOCIMIENTO JUDICIAL DE LUGARES, COSAS
+Y SITUACIONES FAMILIARES
+Artículo 189- Valoraciones físicas de personas. En cualquier tipo de proceso en el cual se demanda la existencia de agresiones físicas o emocionales, la autoridad judicial ordenará, de inmediato, la realización de un reconocimiento de las personas víctimas, a fin de valorar la magnitud y las secuelas de los hechos, por medio de profesionales del Poder Judicial o cualquier entidad pública o privada que se encargue de estas actuaciones.
+Al momento de llevar a cabo esta diligencia, se deben tener en cuenta todas las precauciones necesarias para el respeto de los derechos de la personalidad, incluyendo la posibilidad de acompañamientos con personas de confianza y que se verifique sin presencia de las otras partes y representantes legales y en lugares debidamente acondicionados para su práctica. Por ningún motivo se admitirá esta prueba, si ello implica violación del derecho fundamental de la dignidad humana.

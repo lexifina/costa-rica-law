@@ -1,0 +1,1 @@
+Artículo 296- Adoptabilidad de personas mayores de edad con discapacidad. Tratándose de personas mayores de edad con discapacidad que le impida otorgar consentimiento, no se necesitará el trámite previo de adaptabilidad; sin embargo, para el inicio del trámite de la adopción deberá tener una persona representante nombrada por la autoridad judicial para esos efectos.

@@ -1,0 +1,2 @@
+CAPÍTULO V: APRECIACIÓN Y VALORACIÓN PROBATORIA
+Artículo 191- Forma de apreciación y valoración de la prueba. En materia de familia se apreciarán y valorarán las probanzas conforme a los criterios de lógica, experiencia, sentido común, ciencia y correcto entendimiento humano sin sujeción a reglas de valores determinados para cada medio de prueba, atendiendo a todas las circunstancias y los elementos de convicción que los autos suministren; pero, en todo caso, deberán hacerse constar las razones fundamentos de la valoración.

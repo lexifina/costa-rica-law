@@ -1,0 +1,2 @@
+Artículo 205- Costas en casos de pluralidad subjetiva. Cuando exista pluralidad de personas obligadas en costas, se determinará si la imposición es solidaria o divisible. En caso de resultar divisible, se indicará la distribución de la responsabilidad.
+Cuando sean varias las personas acreedoras de las costas, el monto establecido aprovechará a todas por partes iguales, salvo que se justifique una distribución diferente.

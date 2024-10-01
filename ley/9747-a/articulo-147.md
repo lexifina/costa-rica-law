@@ -1,0 +1,1 @@
+Artículo 147- Principio de libertad probatoria. Los hechos sometidos al debate podrán ser demostrados con cualquier tipo de prueba. El tribunal estará obligado a consultar documentos, indicadores económicos u otros, así como cualquier normativa pertinente para establecer los hechos.

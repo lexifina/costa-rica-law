@@ -1,0 +1,1 @@
+Artículo 42- Asistencia y patrocinio letrado gratuito. El Estado garantizará la asistencia y el patrocinio letrado gratuito a las personas menores de edad que carezcan de medios económicos suficientes.

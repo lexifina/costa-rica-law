@@ -1,0 +1,3 @@
+Artículo 243- Intervención de instituciones públicas y otras personas. La autoridad judicial podrá dar intervención a cualquier institución pública que represente los intereses de personas con discapacidad o adultas mayores.
+Cuando se trate de personas menores de edad, la autoridad judicial valorará la posibilidad de darle intervención a la madre o al padre en ejercicio de los atributos de la responsabilidad parental que no ha intervenido en la gestión.
+En el caso de solicitud de salvaguardia para la igualdad jurídica de las personas con discapacidad, se deberá notificar a todas aquellas personas que figuren como sus hijas e hijos, padres, cónyuge o conviviente de hecho.
