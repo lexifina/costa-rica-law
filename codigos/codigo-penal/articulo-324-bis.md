@@ -1,0 +1,3 @@
+Artículo 324 bis- Amenaza al denunciante o testigo
+Será sancionado con pena de prisión de tres a cinco años quien, por cualquier medio, amenace o intimide a otra persona para evitar la denuncia, el testimonio, la investigación, la promoción y el ejercicio de la acción penal o el juzgamiento de las actividades delictivas en contra de los deberes de la función pública.
+(Así adicionado por el artículo 11 de la ley "Reformas a leyes en materia de anticorrupción para atender recomendaciones del grupo de trabajo sobre el soborno en las transacciones comerciales internacionales de la Organización para la Cooperación y Desarrollo Económico (OCDE)", N° 10373 del 20 de setiembre del 2023)
