@@ -1,0 +1,1 @@
+ARTÍCULO 4- A partir de la publicación de la presente ley, toda disposición legal, reglamentaria o administrativa que haga referencia a la Dirección de Crédito Público deberá leerse como Dirección General de Gestión de Deuda Pública.
