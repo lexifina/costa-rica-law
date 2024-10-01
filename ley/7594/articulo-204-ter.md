@@ -1,0 +1,2 @@
+Artículo 204 ter- Protección del testigo. Aquellas causas donde se haya ordenado protección procesal y extraprocesal a una persona en calidad de testigo, conforme al numeral 204, tendrán prioridad para la realización de cualquier diligencia o pericia, para el señalamiento a audiencia preliminar y para la celebración de juicio oral y público.
+(Así adicionado por el artículo 1° de la ley N° 10380 del 2 de octubre de 2023)
