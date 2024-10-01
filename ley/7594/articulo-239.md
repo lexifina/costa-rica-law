@@ -1,8 +1,7 @@
-ARTICULO 239.-
-Procedencia de la prisión preventiva
-El tribunal ordenará la prisión preventiva del imputado, siempre que concurran las siguientes circunstancias:
+ARTICULO 239.-Procedencia de la prisión preventiva. El tribunal ordenará la prisión preventiva del imputado, siempre que concurran las siguientes circunstancias:
 a) Existan elementos de convicción suficientes para sostener, razonablemente, que el imputado es, con probabilidad, autor de un hecho punible o partícipe en él.
 b) Exista una presunción razonable, por apreciación de las circunstancias del caso particular, acerca de que aquel no se someterá al procedimiento (peligro de fuga); obstaculizará la averiguación de la verdad (peligro de obstaculización); o continuará la actividad delictiva.
 c) El delito que se le atribuya esté reprimido con pena privativa de libertad.
-d) Exista peligro para la víctima, la persona denunciante o el testigo. Cuando la víctima se encuentre en situación de riesgo, el juez tomará en cuenta la necesidad de ordenar esta medida, especialmente en el marco de la investigación de delitos atribuibles a una persona con quien la víctima mantenga o haya mantenido una relación de matrimonio, en unión de hecho declarada o no.
+d) Exista peligro para la víctima, la persona denunciante o el testigo. Cuando la víctima se encuentre en situación de riesgo, el juez tomará en cuenta la necesidad de ordenar esta me ida, especialmente en el marco de la investigación de delitos previstos de la Ley 8589, Penalización de la Violencia contra las Mujeres, de 25 de abril de 2007, así como otros delitos donde la persona investigada mantiene o haya mantenido con la víctima una relación o vínculo de pareja, sea matrimonial, unión de hecho, noviazgo, convivencia, de no convivencia, casual u otra análoga, aun cuando medie divorcio, separación o ruptura.
 (Así adicionado el inciso anterior mediante el artículo 45 (actual 48) de la Ley de Penalización de la Violencia Contra las Mujeres, N° 8589 del 25 de abril del 2007)
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 9975 del 14 de mayo de 2021)
