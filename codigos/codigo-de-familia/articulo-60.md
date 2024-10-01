@@ -1,4 +1,4 @@
-artículo 60- Convenio de divorcio o separación en cuanto a los cónyuges y convivientes
+Artículo 60- Convenio de divorcio o separación en cuanto a los cónyuges y convivientes
 Se puede decretar el divorcio o la separación judicial de los cónyuges por mutuo consentimiento, de acuerdo con el procedimiento establecido en el Código Procesal de Familia.
 La solicitud de divorcio o separación judicial se presentará al Tribunal por convenio firmado en escritura pública por ambos cónyuges; documento en el cual se debe hacer mención sobre los siguientes puntos:
 a) El establecimiento del derecho o no de obligación alimentaria entre los cónyuges y el monto en que se obligan.
