@@ -1,2 +1,1 @@
-ARTÍCULO 934.- Corresponde al curador propietario del concurso examinar y calificar los fundamentos y comprobantes de los reclamos contra el concurso, administrar y realizar los bienes ocupados y distribuir el producto entre los acreedores reconocidos
-(Así reformado por artículo Nº 2 de la Ley Nº 4327 de 17 de febrero de 1969).
+ARTÍCULO 934.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

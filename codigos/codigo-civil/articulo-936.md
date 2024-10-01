@@ -1,2 +1,1 @@
-ARTÍCULO 936.- DEROGADO.
-(Derogado por el artículo 8º del Código Procesal Civil, Ley Nº 7130 de 16 de agosto de 1989.)
+ARTÍCULO 936.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021. Anteriormente este numeral había sido derogado por el artículo 8º del Código Procesal Civil, Ley Nº 7130 de 16 de agosto de 1989.)

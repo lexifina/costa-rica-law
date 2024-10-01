@@ -1,1 +1,1 @@
-ARTÍCULO 960.- Los dividendos correspondientes a los créditos de que habla el artículo anterior, se conservarán depositados y volverán al concurso, cuando haya trascurrido el término para la presentación de acreedores extranjeros, sin que lo hayan hecho, o cuando sentencia ejecutoriada declare improcedentes los créditos reclamados.
+ARTÍCULO 960.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

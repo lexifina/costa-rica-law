@@ -1,1 +1,2 @@
-ARTÍCULO 1073.- Tampoco está obligado el vendedor a la entrega, aunque hubiere concedido un término para el pago, si después de la venta se descubre que el comprador se halla en estado de insolvencia, salvo si el comprador rindiere fianza bastante de pagar en el plazo convenido.
+Artículo 1073- Tampoco está obligado el vendedor a la entrega, aunque hubiera concedido un término para el pago, si después de la venta se descubre que el comprador se halla en estado de insuficiencia patrimonial para cumplir, salvo si el comprador rindiera fianza bastante de pagar en el plazo convenido.
+(Así reformado por el artículo 74 inciso 74.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

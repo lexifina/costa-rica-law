@@ -1,4 +1,4 @@
-Responsabilidad de personeros legales.
-ARTÍCULO 240.-
-Serán reprimidos con las penas contempladas en los dos artículos anteriores y cuando les sean imputados los hechos en ellos previstos: los directores, administradores, gerentes, apoderados o liquidadores de las sociedades mercantiles declaradas en quiebra, así como los tutores o curadores que ejerzan el comercio en nombre de menores o incapacitados.
+Responsabilidad de personeros legales
+Artículo 240- Serán reprimidos con las penas contempladas en los dos artículos anteriores y cuando les sean imputados los hechos en ellos previstos, los representantes legales, apoderados generales o generalísimos de las personas concursadas, los directores, administradores, gerentes, apoderados o liquidadores de las personas jurídicas, así como los tutores o garantes para la igualdad jurídica, conforme a la Ley 9379, Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad, de 18 de agosto de 2016, que ejerzan el comercio en nombre de menores o personas con discapacidad, declaradas en concurso judicial.
 (Así corrida su numeración por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 233 al 240, "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")
+(Así reformado por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica”)

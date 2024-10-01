@@ -1,1 +1,1 @@
-ARTÍCULO 906.- En los mismos términos que los actos o contratos expresados, pueden impugnarse las sentencias que dolosamente haya hecho recaer contra sí el deudor, para que se anulen en cuanto perjudiquen a los acreedores.
+ARTÍCULO 906.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

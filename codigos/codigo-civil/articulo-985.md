@@ -1,3 +1,3 @@
 CAPÍTULO II
 De los reclamos por reivindicación.
-ARTÍCULO 985.- En caso de concurso podrán ser reivindicadas las letras de cambio, pagarés y otros documentos endosables, que, fuera de cuenta corriente, se hubieren remitido al concursado sólo para su realización o con el objeto de invertir su valor en determinados pagos, con tal que al declarse (sic) la insolvencia aun no estuvieren realizados.
+ARTÍCULO 985.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

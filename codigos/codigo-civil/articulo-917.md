@@ -1,2 +1,1 @@
-ARTÍCULO 917.- En virtud de la declaratoria de insolvencia, se tiene por vencidas todas las deudas pasivas del insolvente.
-Cuando los acreedores hipotecarios o pignoraticios quisieren aprovecharse del vencimiento del plazo por el hecho del concurso, no podrán cobrar fuera de éste.
+ARTÍCULO 917-(Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

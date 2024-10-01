@@ -1,1 +1,1 @@
-ARTÍCULO 975.- Cuando no hubiere arreglo, concluida la realización y distribución de todos los bienes, se dará por terminado el concurso y el curador rendirá sus cuentas, que serán examinadas en junta de acreedores.
+ARTÍCULO 975.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

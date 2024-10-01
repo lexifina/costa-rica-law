@@ -1,1 +1,1 @@
-ARTÍCULO 908.- Si el primer adquirente no se encuentra en las condiciones exigidas para que la acción rescisoria pueda ser ejercida contra él no pasará ésta contra el subsiguiente propietario, a menos que la enajenación primera no hubiera servido sino como medio de disimular el fraude.
+ARTÍCULO 908.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

@@ -1,1 +1,1 @@
-ARTÍCULO 994.- Los créditos a que se refiere el artículo anterior se excluyen entre sí, y caso de haber varios acreedores con privilegio especial sobre determinada cosa, deberán pagarse por el orden en que están expresados sus privilegios en dicho artículo.
+ARTÍCULO 994.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

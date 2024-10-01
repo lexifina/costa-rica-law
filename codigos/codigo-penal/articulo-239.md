@@ -1,4 +1,4 @@
-Quiebra culposa.
-ARTÍCULO 239.-
-Se impondrá prisión de seis meses a dos años, e inhabilitación para ejercer el comercio, de uno a cinco años, al comerciante declarado en quiebra que haya determinado su propia insolvencia y perjudicado a sus acreedores por sus gastos excesivos con relación al capital, especulaciones ruinosas, juego, abandono de sus negocios o cualquier otro acto de negligencia o imprudencia manifiesta.
+Concurso culposo
+Artículo 239- Se impondrá prisión de seis meses a dos años, e inhabilitación de uno a cinco años para ejercer el comercio o las actividades productivas que realiza, a la persona declarada en concurso judicial que, por sus gastos excesivos en relación con el capital, especulaciones ruinosas, juego, abandono de sus negocios o actividades productivas, o cualquier otro acto de negligencia o imprudencia manifiesta, haya provocado su situación patrimonial general y no transitoria que le haya impedido satisfacer oportunamente sus obligaciones dinerarias, causando perjuicio a sus acreedores.
 (Así corrida su numeración por el artículo 3° de la Ley N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 232 al 239, "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal")
+(Así reformado por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica”)

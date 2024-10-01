@@ -1,3 +1,4 @@
-Connivencia maliciosa.
-Artículo 242.-Será reprimido con prisión de tres meses a dos años o sesenta a ciento cincuenta días multa, el acreedor que consintiere en un avenimiento, convenio o transacción judicial en connivencia con el deudor o con un tercero y hubiere concertado ventajas especiales para el supuesto de aceptación del avenimiento, convenio o transacción. La misma pena se aplicará al deudor o a las personas a que se refiere el artículo 233 que concluyeren un convenio de este género.
-(Así corrida su numeración por el artículo 3° de la ley “Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 235 al 242)
+Connivencia maliciosa
+Artículo 242- Será reprimido con prisión de tres meses a dos años o de sesenta a ciento cincuenta días multa, el acreedor que consintiera en un avenimiento, convenio o transacción judicial en connivencia con el deudor o con un tercero y haya concertado ventajas especiales para el supuesto de aceptación del avenimiento, convenio o transacción. La misma pena se aplicará al deudor o a las personas a que se refiere el artículo 240, que concluyeran un convenio de este género.
+(Así corrida su numeración por el artículo 3° de la ley "Reforma de la Sección VIII, Delitos Informáticos y Conexos, del Título VII del Código Penal"; N° 9048 del 10 de julio de 2012, que lo traspaso del antiguo artículo 235 al 242)
+(Así reformado por el artículo 74 de la ley N° 9957 del 14 de abril del 2021 "Ley Concursal de Costa Rica”)

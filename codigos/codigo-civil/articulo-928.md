@@ -1,1 +1,1 @@
-ARTÍCULO 928.- Cuando por el cambio de curadores fueren varios los que han trabajado en el concurso, el honorario se repartirá entre ellos según sus respectivos trabajos.
+ARTÍCULO 928.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)

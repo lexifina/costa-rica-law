@@ -1,1 +1,1 @@
-ARTÍCULO 915.- Al calificar y liquidar dichos daños y perjuicios, se considerará la falta de cumplimiento como el resultado del cambio de circunstancias en la persona del deudor.
+ARTÍCULO 915.- (Derogado por el artículo 73 inciso 73.1 de la Ley Concursal de Costa Rica, N° 9957 del 14 de abril de 2021)
