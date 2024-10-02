@@ -1,0 +1,2 @@
+Artículo 15.-Léase como nuevo artículo 42, el siguiente:
+"Artículo 42.-Modelo de Madurez. La Municipalidad de Belén, al menos una vez al año, aplicará el llenado de la Herramienta del Modelo de Madurez, la cual ayudará a medir el progreso en la escala de evolución del Proceso de Control Interno. A partir de dicha herramienta, se plantearán diversas acciones que promuevan y guíen la mejora institucional, en cuanto a los cinco componentes del Sistema de Control Interno."

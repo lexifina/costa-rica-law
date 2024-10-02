@@ -1,0 +1,1 @@
+Artículo 3°-Elimínese el artículo 4 del Reglamento, denominado Estructura del Proceso de Control Interno, en vista de no aportar ningún aspecto de relevancia normativa. Y de aquí en adelante se ajusta la numeración de los artículos del presente cuerpo normativo.

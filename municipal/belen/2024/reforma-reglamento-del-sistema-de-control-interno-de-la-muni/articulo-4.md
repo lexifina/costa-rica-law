@@ -1,0 +1,2 @@
+Artículo 4°-Léase como nuevo artículo 4 lo siguiente:
+"Artículo 4°-Mecanismos que conforman el proceso de control interno- Para el adecuado establecimiento, funcionamiento, evaluación, perfeccionamiento y seguimiento del Proceso de Control Interno, se abarcarán las siguientes actividades inmersas en la Herramienta Integrada para la Gestión del Control Interno y Riesgos: Autoevaluación, SEVRI y Seguimiento; y paralelamente la Vinculación con la Planificación, la Capacitación y la Determinación del Modelo de Madurez.
