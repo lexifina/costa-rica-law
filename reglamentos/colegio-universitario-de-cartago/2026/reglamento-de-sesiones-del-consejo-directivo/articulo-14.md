@@ -1,0 +1,1 @@
+Artículo 14. -Del vicepresidente y el presidente ad hoc. En caso de faltar el presidente, sus funciones serán ejercidas por el vicepresidente en todo aquello que, por ley o por este reglamento, a aquel corresponda y en caso de ausencia de ambos, esas funciones serán asumidas por el miembro titular del Consejo presente de mayor edad.

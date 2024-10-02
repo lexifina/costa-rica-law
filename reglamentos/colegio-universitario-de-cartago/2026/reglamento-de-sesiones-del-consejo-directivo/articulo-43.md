@@ -1,0 +1,1 @@
+Artículo 43. -Integración de las comisiones. El Consejo Directivo podrá conformar las comisiones que considere conveniente e integrarlas con miembros del Consejo Directivo, con funcionarios institucionales e inclusive con terceros en calidad de expertos.

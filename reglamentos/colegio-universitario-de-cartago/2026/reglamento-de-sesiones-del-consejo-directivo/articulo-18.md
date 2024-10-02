@@ -1,0 +1,2 @@
+Artículo 18. -Alteraciones del orden del día. En cualquier momento en el curso de una sesión, podrá modificarse o alterarse el orden del día, previa moción escrita o verbal de un miembro del Consejo o a solicitud de la Presidencia, no obstante, para su aprobación se requerirá del acuerdo en firme y siempre que no se trate de sesión extraordinaria.
+La alteración o modificación del orden rige únicamente para la sesión en la cual se solicita.

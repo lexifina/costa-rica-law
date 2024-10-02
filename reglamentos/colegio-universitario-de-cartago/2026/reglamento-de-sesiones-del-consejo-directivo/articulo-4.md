@@ -1,0 +1,4 @@
+Artículo 4.-Hora de sesiones. Las sesiones comenzarán a la hora señalada o dentro de los treinta minutos siguientes conforme a lo disponga la Presidencia del Consejo, no siendo permitido iniciarlas después de ese lapso.
+Si no hubiere Cuórum, vencidos esos treinta minutos, se dejará constancia de ello y se registrarán los nombres de quienes estuvieron presentes.
+La hora se determinará conforme lo indique la Secretaría de Actas y Correspondencia del Consejo Directivo, en el entendido que corresponde a la oficial. De surgir duda sobre la exactitud respecto de la misma, se atenderá la hora oficial a nivel nacional que se verifique por los medios comunes de consulta.
+La duración de las sesiones dependerá de los asuntos o temas que sean tratados, no pudiendo exceder de tres horas reloj, salvo casos especiales en los que el Consejo acuerde su ampliación o prórroga, la sesión no podrá extenderse por más de una hora.

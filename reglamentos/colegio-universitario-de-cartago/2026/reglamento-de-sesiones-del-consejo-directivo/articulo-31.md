@@ -1,0 +1,1 @@
+Artículo 31. -De la revocación de acuerdos. El Consejo podrá revocar sus acuerdos siempre que no se hubieren agotado sus efectos o sean modificados por órganos o entidades oficiales con potestad legal para hacerlo.

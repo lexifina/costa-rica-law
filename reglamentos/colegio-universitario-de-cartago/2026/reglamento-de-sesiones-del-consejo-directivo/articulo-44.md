@@ -1,0 +1,1 @@
+Artículo 44. -Nombramiento de las comisiones. Las comisiones, de cualquier clase que fueren, serán designadas por la Presidencia del Consejo Directivo, a quien corresponde también nombrar los sustitutos en caso de impedimentos, excusas, vacantes o por cualquier otro motivo de separación. También es potestad de la Presidencia nombrar el coordinador de cada comisión.

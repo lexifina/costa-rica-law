@@ -1,0 +1,1 @@
+Artículo 10. -Justificación de inasistencia a sesiones. Todo miembro del Consejo Directivo que se deba ausentar a una sesión, está obligado de informar a su respectivo suplente para que asista en su lugar y deberá justificar su ausencia a más tardar en la sesión ordinaria inmediata siguiente; no obstante, la dieta la devengará el suplente que haya asistido.

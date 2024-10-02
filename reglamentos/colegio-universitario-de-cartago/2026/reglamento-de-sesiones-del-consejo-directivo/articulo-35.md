@@ -1,0 +1,4 @@
+Artículo 35. -Libro de Actas. Las actas se consignarán en el Libro de Actas del Consejo Directivo, debidamente encuadernado y cuyos folios deberán ser numerados y sellados por la Auditoría Interna de la Institución. No obstante, el libro podrá llevarse en hojas sueltas, foliadas, siempre que antes de iniciarse el mismo sean selladas por la Auditoría Interna.
+En su primera página, el libro deberá tener una razón, debidamente firmada por la Auditoría Interna, indicando el número de tomo que le corresponde, cantidad de folios que contiene, su estado y sellos que llevan. Las actas se indicarán en numeración corrida.
+En el Libro de Actas podrán hacerse correcciones u observaciones por medio de notas al pie del acta respectiva con la firma de la secretaria de Actas.
+Cada acta aprobada, se publicará en la página web de la Institución.

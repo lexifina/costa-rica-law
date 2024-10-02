@@ -1,0 +1,1 @@
+Artículo 38. -Aprobación definitiva de acuerdos. Los acuerdos se tendrán aprobados y firmes, una vez aprobada y firmada el acta que los contenga, salvo aquellos acuerdos que fueran aprobados por unanimidad o con declaratoria de firmeza en la misma sesión en la cual se conocieron.

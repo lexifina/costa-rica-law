@@ -1,0 +1,3 @@
+Artículo 22 De las comisiones. Conocido un asunto y declarado por acuerdo en firme su complejidad, el Consejo Directivo podrá nombrar una comisión para su estudio y dictamen posterior.
+Cuando el asunto, por su naturaleza, o complejidad sea necesario enviarlo para estudio de dos o más comisiones, la Presidencia dispondrá el envío a las comisiones según corresponda, simultánea o sucesivamente, de acuerdo con las condiciones del caso, para que cada una rinda informe por separado.
+La decisión de la Presidencia de enviar un asunto a una o más comisiones, podrá apelarse verbalmente por los integrantes del Consejo Directivo y deberá establecerse por acuerdo firme cuál será la comisión o comisiones encargadas de estudiar e informar sobre el asunto.

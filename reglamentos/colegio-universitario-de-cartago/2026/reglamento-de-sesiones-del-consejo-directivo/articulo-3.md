@@ -1,0 +1,1 @@
+Artículo 3.-Lugar de sesiones. Las sesiones ordinarias y extraordinarias se celebrarán de manera virtual o presencial en la Sala de Sesiones del Consejo Directivo. No obstante, podrán celebrarse sesiones en otros lugares, cuando los asuntos a conocer así lo ameriten o por acuerdo de los miembros del Consejo que así lo dispongan.

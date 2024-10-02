@@ -1,0 +1,1 @@
+Artículo 36. -Expedientes de las actas. De cada acta se formará un expediente electrónico con el orden del día que le corresponde, con la documentación sobre convocatoria, sesión ordinaria o extraordinaria y con los documentos relativos a los asuntos tratados en cada sesión, así como los acuerdos tomados.

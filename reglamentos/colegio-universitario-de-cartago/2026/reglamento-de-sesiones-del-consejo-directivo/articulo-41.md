@@ -1,0 +1,4 @@
+Artículo 41. -Forma de resolver la revisión. Presentado un recurso de revisión y siendo admisible, la Presidencia leerá el recurso y el Consejo Directivo procederá a deliberar sobre la procedencia o no del mismo y decidirá por mayoría absoluta de votos, si acepta o rechaza el recurso de revisión.
+El Consejo por votación mayoritaria también podrá demorar la discusión, la resolución o ambos trámites, para otra sesión, quedando entretanto en suspenso la ejecución del acuerdo recurrido; no así el resto de los acuerdos aprobados en la correspondiente sesión.
+Denegado o rechazado el recurso de revisión, se continuará conforme al orden del día.
+Si se hubieren presentado dos o más recursos de revisión, se conocerán sucesivamente en el orden de su presentación; pero si se refieren a un mismo acuerdo, se resolverán al mismo tiempo.

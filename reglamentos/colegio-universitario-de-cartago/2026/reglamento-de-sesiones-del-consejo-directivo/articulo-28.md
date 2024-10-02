@@ -1,0 +1,1 @@
+Artículo 28. -Retiro de mociones. Toda moción podrá ser retirada por su proponente en cualquier momento antes de su votación. De la moción o proposición que se retire en el curso de la misma sesión en que haya sido conocida, se hará referencia en el acta respectiva, salvo que el Consejo acuerde lo contrario.
