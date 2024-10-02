@@ -1,0 +1,1 @@
+Artículo 34- La Auditoría Interna deberá incluir en el programa de trabajo de esta dependencia como mínimo la realización de una auditoría anual del fondo de caja chica y debe emitir un informe con los hallazgos y recomendaciones producto de la labor ejecutada.

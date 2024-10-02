@@ -1,0 +1,2 @@
+Artículo 24- No utilización del vale: Cuando por algún motivo la compra no se lleve a cabo, el funcionario responsable de la tarjeta, deberá comunicarlo a la Tesorería por medio de un oficio firmado por la jefatura de la dependencia, y justificar las razones por las cuales no se utilizó el vale.
+Con este oficio la persona encargada de la caja chica o la persona encargada de la Tesorería, procederá a desactivar el monto de dinero que había sido aprobado para el vale en la web de tarjetas, y posteriormente se anula el vale en el sistema municipal.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los Reintegros
+Artículo 42- Los egresos que se realicen por Caja Chica se tramitarán a través del correspondiente reintegro, que preparará la persona encargada de la Caja Chica, con la documentación del sistema de saldo de caja chica, detalle de documentos, detalle de transferencia para reintegro y comprobante de solicitud de reintegro generada en el sistema municipal, dicha información llevará la firma de la persona encargada de la Caja Chica y de la persona Tesorera Municipal, y se enviará por correo a Contabilidad para la preparación de la transferencia de reintegro. Una vez realizada y aprobada la transferencia de reintegro, la misma será aplicada por la persona encargada de caja chica en el sistema municipal.

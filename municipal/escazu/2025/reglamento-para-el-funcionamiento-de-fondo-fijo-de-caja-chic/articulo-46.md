@@ -1,0 +1,1 @@
+Artículo 46- No se utilizarán fondos de Caja Chica para ejecutar inversiones de la partida maquinaria y equipo, deberán gestionarse a través de un procedimiento formal de adquisición. Ver referencias específicas en artículos 51 y 52 de este Reglamento, que citan prohibiciones sobre esta partida y la vez aclaran lo que se autoriza por caja chica de este rubro.

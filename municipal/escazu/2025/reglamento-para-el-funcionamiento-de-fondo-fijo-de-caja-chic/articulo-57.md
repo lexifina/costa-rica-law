@@ -1,0 +1,3 @@
+CAPÍTULO X
+Régimen sancionatorio
+Artículo 57- La persona Tesorera Municipal, la persona encargada de caja chica y/o las personas funcionarias infractoras de las disposiciones contenidas en el presente Reglamento, se harán acreedoras a las sanciones que correspondan, cuando se llegare a comprobar negligencia, dolo o culpa, peculado o cualquier otro delito o contravención, de conformidad con las leyes y reglamentos vigentes en la materia, tales como el Código Municipal, Reglamento Autónomo de Servicios, la Ley de Control Interno, la Ley de Enriquecimiento Ilícito, el Código de Trabajo y demás normativa conexa.

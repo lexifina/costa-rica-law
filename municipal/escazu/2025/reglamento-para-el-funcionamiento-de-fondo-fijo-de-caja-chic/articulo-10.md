@@ -1,0 +1,1 @@
+Artículo 10- Composición de rubros caja chica: La Caja Chica mantendrá siempre el total del monto asignado, el cual estará integrado de la siguiente forma: monto entregado, monto pendiente por liquidar y monto disponible. Datos que se podrán verificar en el sistema municipal, en el módulo de caja chica.

@@ -1,0 +1,1 @@
+Artículo 31- El sistema de control de la administración del fondo de caja chica debe garantizar la custodia y el buen uso de esos recursos, el registro de datos necesarios para disponer de información confiable y oportuna, un sistema de archivo digital que permita la fácil localización de documentos y otros que se estimen convenientes.

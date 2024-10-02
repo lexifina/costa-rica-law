@@ -1,0 +1,9 @@
+Artículo 15- El Vale se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
+a. Debe completarse el formulario F-TES-01, "Solicitud de Adelanto o Vale de Caja Chica", indicando la fecha, el solicitante que será la jefatura de área, el responsable que será el dueño de la tarjeta que va a realizar las compras, el monto exacto y los artículos y/o servicios que se comprarán.
+No serán de recibo vales para compras de bienes o servicios que hayan ocurrido antes de tramitar el vale.
+b. Deberá contar con la firma y nombre de la persona que autoriza, siendo en cada caso, la Jefatura inmediata del área solicitante, en los casos de compras de áreas asesoras como Recursos Humanos, Servicios Institucionales, Informática, deberá llevar el visto bueno de las jefaturas de dichas áreas como visto bueno de áreas asesoras; si el vale no requiere área asesora, debe ser firmado por la jefatura de área que solicita el vale en ambos espacios (como jefe de área y como área asesora); asimismo, todos los vales deberán llevar la firma de la persona encargada de asignarles el contenido por parte de Presupuesto.
+c. Justificación de la compra a realizar, por medio del oficio adjunto de la jefatura de la dependencia.
+d. En los casos que el vale sea para gastos de transporte por viáticos, deberá presentar además el formulario F-TES-06, en formato pdf y con las firmas correspondientes y en los casos de viáticos por giras el formulario F-TES-04 "Adelanto de Viáticos".
+e. Si el vale es de un monto mayor a ¢500,000.00 (quinientos mil colones exactos) deberá llevar en el documento de solicitud de vale la firma de visto bueno del Alcalde o Alcaldesa Municipal.
+f. Cumplir con lo establecido en artículos 16° y 17° de este Reglamento según corresponda.
+g. No serán de recibo vales de caja chica cuya fecha de emisión tanto del vale como de los documentos soporte (oficio de justificación, cotizaciones) tengan más de 20 días hábiles de emitidos.

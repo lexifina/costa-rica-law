@@ -1,0 +1,1 @@
+Artículo 33- El fondo fijo establecido al amparo de este Reglamento, tendrá en todo momento la suma total asignada, representada por monto entregado, monto pendiente y monto disponible, lo cual puede ser verificado en el sistema municipal.

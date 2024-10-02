@@ -1,0 +1,1 @@
+Artículo 43- La persona encargada de Caja Chica, debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. Como mínimo se realizará un reintegro al mes.

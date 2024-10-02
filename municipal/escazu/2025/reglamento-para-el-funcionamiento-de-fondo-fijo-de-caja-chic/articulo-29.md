@@ -1,0 +1,1 @@
+Artículo 29- Formalización de liquidación: La liquidación del vale queda formalizada cuando la persona encargada de la caja chica en Tesorería revisa todos los requisitos, comprobantes y dineros por sobrantes, y procede a comunicar por correo que toda la documentación de la liquidación ha sido recibida a satisfacción y el vale queda oficialmente liquidado.

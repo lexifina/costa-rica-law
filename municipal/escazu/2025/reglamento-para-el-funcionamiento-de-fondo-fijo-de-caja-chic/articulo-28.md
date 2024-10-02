@@ -1,0 +1,1 @@
+Artículo 28- Verificación de compras: La jefatura inmediata que firma el vale, es responsable de constatar que los bienes y/o servicios adquiridos, ingresaron conforme para el uso, según la justificación indicada en el vale. En ninguna circunstancia, se podrá variar el objetivo inicial de una compra.
