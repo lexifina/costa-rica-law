@@ -1,0 +1,2 @@
+Artículo 38.-Juramentación de los miembros electos y divulgación de la nueva integración de los órganos del Colegio. Una vez finalizada la elección, el Tribunal Electoral, procederá a juramentar a los miembros electos de la Junta Directiva y la Fiscalía, de acuerdo con el cargo que corresponda.
+Si la elección fuese de los cargos de Tribunal de Ética, este será juramentado por el Tribunal Electoral y si fuese de Tribunal Electoral, este será juramentado por la persona que ocupe en ese momento el puesto de Presidencia de la Junta Directiva del Colegio.

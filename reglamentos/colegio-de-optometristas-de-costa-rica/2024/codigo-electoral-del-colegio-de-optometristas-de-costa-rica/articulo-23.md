@@ -1,0 +1,2 @@
+Artículo 23.-Del proceso electoral en Asamblea General Ordinaria.
+La renovación de la Junta Directiva, Tribunal de Ética y de la Fiscalía se efectuará cada dos años, según lo dispuesto en los artículos 31, 42 y 55 respectivamente de la Ley Orgánica del Colegio de Optometristas de Costa Rica. El Tribunal Electoral se renovará cada cuatro años, según artículo 50 de la misma ley. La elección se realizará con arreglo a lo preceptuado en esa ley y el presente código, en la segunda Asamblea General Ordinaria del año.

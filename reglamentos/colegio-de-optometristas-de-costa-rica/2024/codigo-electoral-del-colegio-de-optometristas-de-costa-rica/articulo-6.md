@@ -1,0 +1,1 @@
+Artículo 6°-Nombramientos. El Tribunal Electoral designará entre sus miembros un directorio, conformado por presidente, secretario y vocal. En caso de ausencia de un miembro propietario, el suplente tendrá voz y voto.

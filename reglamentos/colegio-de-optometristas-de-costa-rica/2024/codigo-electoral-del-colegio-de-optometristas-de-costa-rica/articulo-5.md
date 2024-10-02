@@ -1,0 +1,2 @@
+Artículo 5°-Elección del Tribunal Electoral. El Tribunal Electoral será elegido por la Asamblea General y estará formado por tres miembros propietarios y tres miembros suplentes y durarán en sus cargos por 4 años pudiendo ser reelectos por un período más. Deberá garantizarse la paridad de géneros.
+Un miembro podrá ser destituido de acuerdo a lo estipulado en los artículos 63 y 65 de la Ley Orgánica del Colegio de Optometristas de Costa Rica.

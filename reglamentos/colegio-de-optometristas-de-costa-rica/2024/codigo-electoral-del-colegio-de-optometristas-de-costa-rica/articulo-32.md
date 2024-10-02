@@ -1,0 +1,2 @@
+Artículo 32.-Debates. Durante el periodo de propaganda, el Tribunal Electoral podrá coordinar un debate entre los candidatos. Además, podrá promover cualquier otra actividad que considere necesaria para informar a los electores con respecto al plan de trabajo de los candidatos, si este plan se hubiere presentado.
+En estos debates podrán participar únicamente los optometristas incorporados al Colegio y que se encuentren activos.

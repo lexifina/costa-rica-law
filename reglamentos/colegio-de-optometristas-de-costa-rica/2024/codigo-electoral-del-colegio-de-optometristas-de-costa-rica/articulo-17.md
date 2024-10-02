@@ -1,0 +1,1 @@
+Artículo 17.-El Tribunal Electoral tendrá acceso irrestricto al padrón electoral. Los postulantes tendrán acceso a un padrón preliminar 48 horas después de la inscripción que solo contendrá el nombre del colegiado, código profesional y en su caso número de identificación.

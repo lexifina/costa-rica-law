@@ -1,0 +1,1 @@
+Artículo 20.-Se podrá utilizar el voto electrónico cuando el Tribunal Electoral garantice que sea técnicamente válido y con niveles de seguridad y confiabilidad para que el elector emita su voto presencial en forma segura, secreta y libre.

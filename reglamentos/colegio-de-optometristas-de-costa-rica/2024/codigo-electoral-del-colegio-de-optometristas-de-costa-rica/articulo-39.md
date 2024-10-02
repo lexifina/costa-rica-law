@@ -1,0 +1,1 @@
+Artículo 39.-La nueva conformación de los diferentes órganos se publicará en el Diario Oficial La Gaceta o en un diario de circulación nacional. Asimismo, se comunicará en el sitio web oficial del Colegio.

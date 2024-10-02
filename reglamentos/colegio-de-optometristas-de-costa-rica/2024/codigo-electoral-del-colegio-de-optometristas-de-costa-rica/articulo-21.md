@@ -1,0 +1,1 @@
+Artículo 21.-La elección para los cargos de Junta Directiva, Fiscal, Tribunal de Ética y Tribunal Electoral se hará en Asamblea General de acuerdo a lo dispuesto en el artículo 28 inciso b) de la Ley orgánica del Colegio de Optometristas de Costa Rica y el Código Electoral vigente.

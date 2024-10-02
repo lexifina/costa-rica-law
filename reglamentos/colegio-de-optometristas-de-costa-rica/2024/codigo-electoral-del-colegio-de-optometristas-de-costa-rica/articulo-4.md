@@ -1,0 +1,1 @@
+Artículo 4. °-Independencia. El Tribunal Electoral en materia electoral es autónomo con independencia funcional y de criterio con respecto a los otros órganos del colegio. Para el cumplimiento efectivo de su labor, la Junta Directiva le asignará los recursos materiales, humanos y logísticos necesarios y contará con el apoyo de asesoría legal.
