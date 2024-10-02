@@ -1,1 +1,0 @@
-Artículo 10.- Anulación o corrección. Los comprobantes electrónicos no se pueden anular directamente, sus efectos contables deben anularse o modificarse mediante la utilización de notas de crédito o débito electrónicas, permaneciendo inalterable el documento original, el cual no podrá ser reutilizado
