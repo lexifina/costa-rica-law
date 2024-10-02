@@ -39,8 +39,10 @@ articulo-38.md
 articulo-39.md
 articulo-40.md
 articulo-41.md
+articulo-41-bis.md
 articulo-42.md
 articulo-43.md
+articulo-43-bis.md
 articulo-44.md
 articulo-45.md
 articulo-46.md
@@ -157,6 +159,11 @@ articulo-147.md
 articulo-148.md
 articulo-149.md
 articulo-150.md
+articulo-150-bis.md
+articulo-150-ter.md
+articulo-150-quater.md
+articulo-150-quinquies.md
+articulo-150-sexies.md
 articulo-151.md
 articulo-152.md
 articulo-152-bis.md

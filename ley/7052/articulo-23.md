@@ -1,5 +1,2 @@
-Artículo 23.- Por cada sesión a la que asistan, los miembros de la
-Junta Directiva tendrán derecho a devengar una dieta por una suma igual a
-la establecida por los bancos del Estado, con un máximo de ocho sesiones
-mensuales pagadas, como única remuneración que podrán percibir por el
-desempeño de sus funciones como directores.
+Artículo 23- Por cada sesión a la que asistan, los miembros de la Junta Directiva tendrán derecho a devengar una dieta por una suma igual a la establecida por los bancos del Estado, con un máximo de seis sesiones mensuales pagadas, como única remuneración que podrán percibir por el desempeño de sus funciones como directores. Los miembros de los Supremos Poderes o funcionarios públicos que formen parte de la Junta no devengarán dietas.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")

@@ -1,10 +1,3 @@
-Artículo 17.- Los tres representantes del sector público y los dos
-de los partidos políticos a que se refieren los incisos a) y b) del
-artículo 13, serán nombrados por un período de cuatro años, a partir del
-1º de junio del año en que se inicie el período presidencial establecido
-en el artículo 134 de la Constitución Política. Sin embargo, por su
-condición de funcionarios de confianza, los tres representantes del
-sector público podrán ser removidos libremente por el Consejo de
-Gobierno. Los otros dos miembros de la Junta Directiva a que se refiere
-el inciso b) del artículo 13 anterior, serán nombrados por un período de
-ocho años.
+Artículo 17- Los representantes de los incisos a), b) y c) del artículo 13 de esta ley, por su condición de funcionarios de confianza, podrán ser removidos libremente por el Consejo de Gobierno.
+Los representantes de los incisos d) y e) del artículo 13 de esta ley serán nombrados por periodos de cuatro años a partir del 1 º de junio del año en que se inicie el periodo presidencial establecido en el artículo 134 de la Constitución Política.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")
