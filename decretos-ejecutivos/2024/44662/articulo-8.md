@@ -1,0 +1,1 @@
+Artículo 8º-Respuesta a la institución consultante. La Oficina Técnica, debe recibir la información completa que corresponda y que se encuentra consignada en los artículos 4 y 6 del presente Reglamento. La Oficina Técnica deberá remitir su respuesta a la ONS o al RPI en un plazo no mayor a 15 días hábiles contados a partir de la recepción de la consulta.

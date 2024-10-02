@@ -1,0 +1,1 @@
+Artículo 10.-Sanciones por incumplimiento. En caso de incumplimiento del presente Reglamento, serán aplicables las medidas disciplinarias a las cuales está sujeto el funcionario público contempladas en la Sección Tercera, artículos 211 y siguientes en concordancia con el artículo número 308 de la Ley Nº6227 Ley General de la Administración Pública.
