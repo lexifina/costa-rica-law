@@ -15,3 +15,4 @@ Manual de Auditorías de PROCOMER para las Empresas Beneficiarias del Régimen d
 | --- | --- | --- |
 | 1 | 2007-07-23 | la propia norma |
 | 2 | 2021-11-08 | Reglamento 391 (2021-11-08) |
+| 3 | 2024-10-02 | Reglamento 430 (2024-10-02) |

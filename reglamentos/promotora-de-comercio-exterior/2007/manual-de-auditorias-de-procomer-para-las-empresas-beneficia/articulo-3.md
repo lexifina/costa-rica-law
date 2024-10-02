@@ -1,14 +1,17 @@
-Artículo 3º-Aspectos por auditar y período de la auditoría. En el ejercicio de las competencias de verificación asignadas por la Ley de Régimen de Zonas Francas y su Reglamento, PROCOMER revisará los siguientes aspectos:
-1. Actividad de la empresa
-2. Ubicación de la planta.
-3. Cálculo del canon.
+Artículo 3º- Alcance de las auditorías
+En el ejercicio de las competencias de verificación asignadas por la Ley de Régimen de Zonas Francas y su Reglamento, PROCOMER podrá revisar lo siguiente:
+1. Inicio de operaciones y actividad de la empresa.
+2. Ubicación de la planta y áreas autorizadas.
+3. Control contable y operativo de activos fijos.
 4. Nivel de inversión y fechas de cumplimiento.
 5. Nivel de empleo y fechas de cumplimiento.
-6. Control permanente contable y operativo del inventario.
-7. Fecha de inicio de operaciones.
-8. Existencia del libro de operaciones.
-9. Gastos operativos.
-10. Los aspectos específicos que resulten aplicables, según la clasificación de la empresa.
-11.Cualquier otro aspecto que conforme a la normativa vigente le corresponda auditar a PROCOMER.
-Las auditorías de verificación abarcarán únicamente los períodos no auditados anteriormente sin perjuicio de que el auditor corrobore, por medio de las auditorías de seguimiento, que las observaciones realizadas en una auditoría de seguimiento hayan sido implementadas. En el caso que la empresa sea auditada por primera vez, es entendido que el período de la auditoría iniciará desde la fecha de inicio de operaciones de la empresa hasta la fecha de realización de la primera auditoría de verificación.
-Valga señalar que el artículo 4 del Reglamento a la Ley de Régimen de Zonas Francas fue modificado en octubre del 2018, introduciendo dentro del concepto de actividad autorizada los gastos operativos; por tanto, dichos gastos operativos serán revisados a partir del periodo 2019 en adelante.
+2. Control permanente contable y operativo del inventario.
+3. Libro de control operaciones.
+4. Derecho de uso del régimen (cálculo del canon).
+5. Gastos operativos.
+6. Ventas (empresas proveedoras).
+7. Obligaciones específicas que resulten aplicables, según la clasificación de la empresa.
+8. Cualquier otro aspecto que conforme a la normativa vigente le corresponda auditar a PROCOMER.
+Los compromisos por auditar a cada empresa, podrán ser variables en función del resultado de su nivel de riesgo, así como también será variable la frecuencia con que se realicen las auditorías. Cada año, la Dirección de Regímenes Especiales, definirá en la Matriz de Programación de Auditorías las empresas, las fechas y los aspectos a evaluar a cada una de ellas, en función de los datos objetivos que determinaron la relevancia y el impacto de éstas en el Régimen de Zonas Francas.
+Así reformado por acuerdo de la Junta Directiva en la sesión N° 391-2021 del 08 de noviembre de 2021.
+Así reformado por acuerdo de la Junta Directiva en la sesión N° 430-2024 del 02 de octubre de 2024.
