@@ -14,3 +14,4 @@ Autoriza ingreso excepcional y permanencia transitoria para personas extranjeras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-06 | la propia norma |
+| 2 | 2024-10-02 | Resolución 496 (2024-10-02) |
