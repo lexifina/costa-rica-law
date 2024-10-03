@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro administrativo, extrajudicial y judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-28 | la propia norma |
+| 2 | 2024-10-03 | Reglamento municipal 46 (2024-10-03) |
