@@ -1,0 +1,1 @@
+Artículo 9º-Garantía de Operaciones Críticas. La Dirección de Operaciones garantizará la continuidad de la operación de las infraestructuras criticas tanto en estado normal como en situación de crisis derivada de un incidente de continuidad de negocio, tomando en cuenta la priorización de infraestructuras según su rol operativo.

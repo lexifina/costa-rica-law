@@ -1,0 +1,1 @@
+Artículo 8º-Protección y Seguridad. La Gerencia General velará por la protección y seguridad de las personas como objetivo prioritario, tanto en situaciones de normalidad, como en incidentes imprevistos.

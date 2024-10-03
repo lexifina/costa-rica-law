@@ -1,0 +1,7 @@
+Artículo 2º-Principios. La Política de Continuidad de Negocio se sustenta en el conjunto de principios y compromisos, que a continuación se exponen:
+a. La protección y seguridad de las personas es la primera premisa y el objetivo prioritario, tanto en situación normal como en situación de crisis derivada de un incidente de continuidad.
+b. La adopción de medidas razonables para la continuidad operativa de los procesos y actividades, en función de la criticidad de estos y del apetito del riesgo establecido por RACSA.
+c. La inclusión de criterios de seguridad, privacidad y fiabilidad que garanticen de forma razonable la continuidad de los servicios críticos proporcionados por terceros.
+d. La comunicación a todo el personal de sus responsabilidades y de los procedimientos que le competen, en el marco de la continuidad de negocio, mediante labores de concienciación y formación.
+e. La permanente disposición a colaborar con las autoridades en caso de incidente o necesidad, como parte del espíritu de servicio en las actuaciones de RACSA y de la responsabilidad para con la sociedad en la que desarrolla su actividad.
+f. La incorporación de prácticas de resiliencia climática o ambiental en la política de continuidad de negocio para contribuir a la sostenibilidad ambiental de la organización, al reducir su impacto en el medio ambiente y mitigar posibles riesgos derivados de eventos extremos.

@@ -1,0 +1,1 @@
+Artículo 7º-Personal Clave. La Dirección de Operaciones debe asignar y formar al personal clave de los procesos críticos empresariales en las mejores prácticas de Continuidad de Negocio, buscando fortalecer el SGCN y su mejora continua, con la firme convicción y compromiso de cumplir con la normativa vigente.

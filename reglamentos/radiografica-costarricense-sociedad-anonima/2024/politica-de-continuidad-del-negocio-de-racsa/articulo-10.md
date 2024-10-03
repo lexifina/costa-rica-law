@@ -1,0 +1,1 @@
+Artículo 10.-Priorización y Recuperación de Servicios. La Alta Gerencia deberá determinar el modelo de priorización de servicios comerciales que defina el orden de ingreso al SGCN; así como el orden de puesta en recuperación de servicios a clientes ante incidentes mayores de continuidad de negocio.

@@ -1,0 +1,1 @@
+Artículo 12.-Gestión de Riesgos. Las Jefaturas serán las responsables de la gestión de los Riesgos de Continuidad de Negocio derivados del RIA, para los procesos e infraestructuras críticas a cargo de su Departamento.
