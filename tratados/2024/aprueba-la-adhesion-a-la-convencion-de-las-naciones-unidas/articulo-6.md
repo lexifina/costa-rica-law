@@ -1,0 +1,2 @@
+Artículo 6- Solicitudes o reclamaciones paralelas
+Si se presenta ante un órgano judicial, un tribunal arbitral o cualquier otra autoridad competente una solicitud o reclamación relativa a un acuerdo de transacción que pueda afectar a las medidas solicitadas de conformidad con el artículo 4, la autoridad competente de la Parte en la Convención en que se soliciten esas medidas podrá, si lo considera procedente, aplazar la decisión y también podrá, a instancia de una de las partes, ordenar a la otra que otorgue garantías apropiadas.

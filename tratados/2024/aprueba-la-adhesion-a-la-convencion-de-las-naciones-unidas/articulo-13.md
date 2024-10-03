@@ -1,0 +1,8 @@
+Artículo 13- Ordenamientos jurídicos no unificados
+1- Toda Parte en la Convención que esté integrada por dos o más unidades territoriales en las que sea aplicable un régimen jurídico distinto en relación con las meterias objeto de la presente Convención podrá, en el momento de la firma, ratificación, aceptación, aprobación o adhesión, declarar que la presente Convención será aplicable a todas sus unidades territoriales o solo a una o más de ellas, y podrá en cualquier momento modificar su declaración original sustituyéndola por otra.
+2- En esas declaraciones deberá notificarse al depositario y se hará constar en ellas expresamente a qué unidades territoriales será aplicable la Convención.
+3- Si una Parte de la Convención está integrada por dos o más unidades territoriales en las que sea aplicable un régimen jurídico distinto en relación con las materias objeto de la presente convención:
+a) Cualquier referencia a la ley o a las normas procesales de un Estado se interpretará, cuando sea procedente, como una referencia a la ley o a las normas procesales en vigor en la unidad territorial pertinente:
+b) Cualquier referencia al establecimiento ubicado en un Estado se interpretará. Cuando sea procedente, como una referencia al establecimiento ubicado en la unidad territorial pertinente;
+c) Cualquier referencia a la autoridad competente del Estado se interpretará, cuando sea procedente, como una referencia a la autoridad competente de la unidad territorial pertinente.
+4- Si una Parte en la Convención no hace una declaración conforme al párrafo 1 del presente artículo, la Convención será aplicable a todas la unidades territoriales de este Estado.

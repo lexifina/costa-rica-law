@@ -1,0 +1,3 @@
+Artículo 14.- Entrada en vigor
+1- La presente convención entrará en vigor seis meses después de que se deposite el tercer instrumento de ratificación, aceptación, aprobación o adhesión.
+2- Cuando un Estado ratifique, acepte o apruebe la presente Convención o se adhiera a ella después de que se haya depositado el tercer instrumento de ratificación, aceptación, aprobación o adhesión, la presente convención entrará en vigor respecto de ese Estado seis meses después de que haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión. La convención entrará en vigor para las unidades territoriales a las que sea aplicable en virtud de lo dispuesto en el artículo 13 seis meses después de la notificación de la declaración prevista en dicho artículo.
