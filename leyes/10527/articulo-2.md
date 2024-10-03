@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Municipalidad de San Mateo para que done el lote desafectado y descrito anteriormente al Ministerio de Educación Pública, cédula jurídica número: dos- uno cero cero - cero cuatro dos cero cero dos (n.°2-100-042002), libre de gravámenes y anotaciones.
