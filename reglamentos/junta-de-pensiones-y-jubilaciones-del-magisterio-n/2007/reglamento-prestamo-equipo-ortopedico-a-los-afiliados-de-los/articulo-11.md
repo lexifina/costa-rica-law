@@ -1,1 +1,1 @@
-Artículo 11.—Valor del equipo ortopédico. Para efectos de la garantía indicada en el artículo 12, el Departamento Administrativo de la Junta y deberá realizar la pignoración de la Póliza de Vida de la Sociedad de Seguros del Magisterio Nacional, cuando corresponda, según el valor en libros registrado en el sistema al momento de efectuar el préstamo del equipo.
+Artículo 11.—Valor del equipo ortopédico. Valor de adquisición del equipo ortopédico registrado en el sistema de activos fijos de JUPEMA.

@@ -1,1 +1,1 @@
-Artículo 4º—Beneficiarios. Podrán solicitar el préstamo de los implementos ortopédicos destinados para tal efecto, la afiliación del Magisterio Nacional, cuando se demuestre mediante dictamen médico la necesidad de utilizar algún equipo ortopédico en particular.
+Artículo 4º—Beneficiarios. Pueden solicitar el préstamo de los equipos ortopédicos destinados para tal efecto, los afiliados de los Regímenes de Pensiones del Magisterio Nacional, cuando se demuestre mediante dictamen médico la necesidad de utilizar algún equipo ortopédico en particular.

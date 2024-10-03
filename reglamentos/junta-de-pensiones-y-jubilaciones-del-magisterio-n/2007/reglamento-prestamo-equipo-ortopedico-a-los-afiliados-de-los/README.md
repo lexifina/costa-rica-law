@@ -17,3 +17,4 @@ Reglamento préstamo equipo ortopédico a los afiliados de los regímenes de Pen
 | 2 | 2016-12-23 | Reglamento 131 (2016-12-23) |
 | 3 | 2017-07-28 | Reglamento 83 (2017-07-28) |
 | 4 | 2020-06-30 | Reglamento 72 (2020-06-30) |
+| 5 | 2024-10-03 | Reglamento 111 (2024-10-03) |

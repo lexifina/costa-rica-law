@@ -1,7 +1,7 @@
-Artículo 7º—Trámite para solicitar el préstamo del equipo. El préstamo del equipo será analizado y autorizado por el Departamento de Prestaciones Sociales; el cual será responsable de trasladar las solicitudes aprobadas al Departamento Administrativo.
-El Departamento Administrativo, será responsable de tramitar las solicitudes de préstamo de equipo presentadas por los interesados y avaladas por el Departamento de Prestaciones Sociales, de acuerdo con:
-- Orden de presentación de la solicitud de préstamo.
-- Prioridad o grado de necesidad del equipo.
-- Disponibilidad de los implementos.
-Las solicitudes se resolverán en estricto orden de presentación, salvo en casos urgentes.
-Todo préstamo de equipo ortopédico deberá estar respaldado por un contrato que será suscrito por la afiliación del Magisterio Nacional solicitante y la Junta. Para tal efecto, el Departamento Administrativo deberá elaborar y completar los datos del contrato, cuando el préstamo proceda y confeccionar el expediente respectivo.
+Artículo 7º—Trámite para solicitar el préstamo del equipo. El préstamo del equipo es analizado y autorizado por el Departamento de Prestaciones Sociales; el cual es responsable de trasladar las solicitudes aprobadas al Departamento Administrativo, para la gestión correspondiente.
+El Departamento Administrativo, gestiona las solicitudes de préstamo de equipo de acuerdo con:
+ Orden de presentación de la solicitud de préstamo.
+ Prioridad o grado de necesidad del equipo.
+ Disponibilidad de los implementos.
+ Las solicitudes se resuelven en estricto orden de presentación, salvo en casos urgentes.
+Todo préstamo de equipo ortopédico se respalda por un contrato que es suscrito entre los afiliados (as) de los Regímenes de Pensiones del Magisterio Nacional y JUPEMA. Para tal efecto, el Departamento Administrativo elabora y completa los datos del contrato, cuando el préstamo proceda y confecciona el expediente respectivo.
