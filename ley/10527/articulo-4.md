@@ -1,0 +1,4 @@
+ARTÍCULO 4- El Ministerio de Educación Pública, en calidad de receptor del terreno donado según lo dispuesto en los artículos anteriores de esta ley, asumirá la responsabilidad de la elaboración del plano catastrado del bien inmueble objeto de la donación.
+El plano catastrado deberá ser confeccionado de acuerdo con los estándares técnicos y legales establecidos por las autoridades competentes, garantizando la precisión y la fiabilidad de la información cartográfica del terreno donado.
+La elaboración del plano catastrado deberá ser llevada a cabo por profesionales calificados en topografía y cartografía, garantizando la exactitud y la legalidad de la información presentada.
+El costo asociado a la elaboración del plano catastrado será asumido por el Ministerio de Educación Pública o por la Junta de Educación respectiva, como parte de sus responsabilidades en la gestión del terreno donado.
