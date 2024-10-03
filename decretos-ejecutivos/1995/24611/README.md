@@ -17,3 +17,4 @@ Reglamento a la Ley de Derechos de Autor y Derechos Conexos
 | 3 | 2008-11-21 | Decreto Ejecutivo 34904 (2008-11-21) |
 | 4 | 2010-05-03 | Decreto Ejecutivo 36014 (2010-05-03) |
 | 5 | 2012-11-01 | Decreto Ejecutivo 37417 (2012-11-01) |
+| 6 | 2024-10-03 | Decreto Ejecutivo 44727 (2024-10-03) |

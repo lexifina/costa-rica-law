@@ -1,0 +1,2 @@
+Artículo 78- Las obras o producciones inéditas no requieren la publicación de edicto en el diario oficial La Gaceta, de conformidad con lo establecido en el artículo 113, de la Ley Nº 6683, por lo tanto, cuando la solicitud de inscripción de una obra o producción inédita cumple con todos los requerimientos de la Ley Nº 6683 y este reglamento, la persona registradora procederá a la inscripción y se emitirá el respectivo certificado de inscripción.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

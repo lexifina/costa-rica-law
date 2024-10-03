@@ -1,0 +1,2 @@
+Artículo 66.-Cuando se gestiona la inscripción de una obra derivada, es requisito indispensable la presentación de la autorización del autor de la obra originaria. Este documento debe presentarse debidamente autenticado por una persona profesional en abogacía o notariado. En caso de tratarse de documento emitido en el extranjero deberá presentarse apostillado y de ser necesario aportar traducción al idioma español, sin que se requiera que esta sea de carácter oficial.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

@@ -1,10 +1,9 @@
-ARTÍCULO 53.- Aparte de los requisitos exigidos por la Ley, los estatutos de las Sociedades de Gestión Colectiva incluirán los siguientes requisitos:
-(Texto modificado por Resolución de la Sala Constitucional No. 1829-99 del 10 de marzo de 1999)
-1) Las clases de titulares de derechos comprendidos en la gestión y la participación de cada categoría de titulares en la integración y la conducción de la entidad;
-2) Las condiciones para la adquisición y pérdida de la calidad de afiliado o representado, así como de sus respectivos deberes y derechos;
-3) El destino de patrimonio en caso de disolución;
-4) El régimen de control de la fiscalización económica-financiera;
-5) La fecha de presentación del balance contable y la memoria anual de actividades a los socios y a los representados;
-6) Los procedimientos de verificación de dichos documentos;
-7) Las reglas para la aprobación de las normas de recaudación y distribución de los derechos representados.
-(Así reformado por el artículo 4º del decreto ejecutivo No.26882 de 20 de abril de 1998)
+Artículo 53.- Debido al interés del Estado costarricense en la protección efectiva de los derechos de propiedad intelectual, consagrados a nivel de rango constitucional, y a la responsabilidad del Estado, frente a los titulares de derechos y las personas administradas en relación con las Sociedades de Gestión Colectiva, le corresponde al Registro de la Propiedad Intelectual velar porque las Sociedades de Gestión Colectiva autorizadas cumplan con los requisitos para su funcionamiento.
+Las Sociedades de Gestión Colectiva de Derechos de Autor y de Derechos Conexos, deberán obtener del Registro de la Propiedad Intelectual la correspondiente autorización de funcionamiento, para lo cual se deben cumplir los siguientes requisitos:
+a) Presentar la solicitud de autorización de funcionamiento autenticada por una persona profesional en abogacía o notariado, y pagar la tasa establecida en la Ley de Aranceles, Ley N º4564. Esta solicitud deberá contener lo siguiente: nombre y calidades completas de la persona solicitante, indicando la condición en la que actúa; indicar el nombre de la sociedad, siglas, número de cédula jurídica y domicilio; breve descripción de los fines y tipos de derechos que pretende gestionar la sociedad; fundamento legal de la solicitud; indicar medio para atender notificaciones y adjuntar el listado de documentación.
+b) Presentar los estatutos de constitución de la Sociedad de Gestión Colectiva, conforme a lo señalado en el artículo 52 de este reglamento.
+c) Presentar el Reglamento de recaudación y/o distribución, debidamente aprobado por la Asamblea General, indicando la fecha de aprobación correspondiente.
+d) Cuando al presentar la solicitud de autorización, la Sociedad de Gestión Colectiva cuenta con contratos de representación recíproca firmados, debe indicar las citas de inscripción, caso contrario, debe presentar las cartas de intención de sus similares extranjeras, que asegure la intención de suscribir contratos una vez autorizada, en los casos en que procede. En caso de tratarse de documento emitido en el extranjero deberá presentarse apostillado y de ser necesario aportar traducción al idioma español, sin que se requiera que esta sea de carácter oficial.
+e) Presentar el repertorio o la indicación del sitio web oficial de la Sociedad de Gestión Colectiva donde se encuentra disponible.
+f) Presentar las tarifas o definirlas en un plazo máximo de tres meses, a partir de la autorización de funcionamiento, las cuales deben publicarse en el sitio web oficial de la Sociedad de Gestión Colectiva e informarse al Registro de la Propiedad Intelectual.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

@@ -1,1 +1,2 @@
-ARTÍCULO 22.- A tenor de lo previsto en los literales c) y d) del artículo 14 de la Ley, el autor tiene, incluso frente al adquiriente del objetivo material que contiene la obra, el derecho de prohibir toda deformación, modificación o alteración de la misma, que pueda poner en peligro el decoro de la obra o su reputación como autor.
+Artículo 22.-A tenor de lo previsto en el literal c) del artículo 14, de la Ley N º 6683, el autor tiene, incluso frente a la persona adquiriente del objetivo material que contiene la obra, el derecho de prohibir toda deformación, modificación o alteración de esta, que cause perjuicio a su honor o a su reputación.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

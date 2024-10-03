@@ -1,2 +1,2 @@
-ARTÍCULO 51.- Sin perjuicio de las acciones judiciales que las partes pueden ejercer ante la jurisdicción competente, sin un usuario, una organización de usuarios o un organismo de radiodifusión considera que es abusiva la tarifa establecida por una Sociedad de Gestión Colectiva para la comunicación pública de obras, interpretaciones o producciones musicales preexistentes, podrán recurrir al arbitraje del Tribunal Arbitral del Registro Nacional de Derechos de Autor y Derechos Conexos, constituido en el artículo 56 del presente Reglamento.
-(Así reformado por el artículo 4º del decreto ejecutivo No.26882 de 20 de abril de 1998)
+Artículo 51.- Los montos recaudados por parte de las Sociedades de Gestión Colectiva, deben ser distribuidos en forma proporcional a la utilización de las obras, interpretaciones o producciones, según los casos.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

@@ -1,0 +1,2 @@
+Artículo 65.-De conformidad con lo regulado en el artículo 108, de la Ley Nº 6683, cuando se trate de una obra artística y única, tal como un cuadro, busto, retrato, pintura, un dibujo u otra obra plástica, deberán indicarse sus características y aportarse fotografías de frente y de perfil, en formato impreso o digital.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)

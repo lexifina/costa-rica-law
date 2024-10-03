@@ -6,13 +6,17 @@ ARTÍCULO 3º.- A los efectos de la Ley y este Reglamento, las expresiones que s
 (Así reformado el inciso anterior por el artículo 1º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
 5. Copia o ejemplar: Es el soporte material que contiene la obra, como resultado de un acto de reproducción.
 6. Derecho-habiente: Es la persona natural o jurídica a quien se transmiten derechos reconocidos en la Ley.
-7. Distribución al público: Es la puesta a disposición del público del original o copias de la obra mediante su venta, alquiler, préstamo o de cualquier otra forma.
-8. Divulgación: Es hacer accesible la obra al público por cualquier medio o procedimiento.
+7. Distribución al público: Es la puesta a disposición del público del original o copias de la obra, interpretación o ejecución, fonograma o fijación de una emisión mediante su venta, alquiler, préstamo o de cualquier otra forma.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
+8. Divulgación: Es el acto de hacer accesible una obra literaria o artística por cualquier medio al público, por primera vez, con lo cual deja de ser inédita.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 9. Editor: Es la persona natural o jurídica que mediante contrato con el autor o su derecho-habiente, se obliga a asegurar la publicación y difusión de la obra por su propia cuenta.
-10.- Emisión o Transmisión: Es la difusión de sonidos, o de sonidos con imágenes por medio de ondas radioeléctricas, por cable, fibra óptica y otros procedimientos similares; sea en directo o bien diferidas, capaz de producir la comunicación pública de obras literarias o artísticas protegidas. El concepto de emisión comprende también el envío de señales desde una estación terrestre hacia un satélite que posteriormente las retransmite.
-(Así reformado el inciso anterior por el artículo 1º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
-11. Fijación: Es la incorporación de signos, sonidos e imágenes sobre una base material que permita su percepción, reproducción o comunicación.
-12. Fonograma: Es toda fijación sonora de los sonidos de una representación o ejecución o de otros sonidos. Las grabaciones gramofónicas y magnetofónicas son copias de fonogramas.
+10. Emisión o Transmisión: Es la comunicación de obras, de sonidos, imágenes o de sonidos con imágenes, por medio de ondas radioeléctricas, por cable, fibra óptica y otros procedimientos similares; sea en directo o bien diferidas. El concepto de emisión comprende también, el envío de señales desde una estación terrestre hacia un satélite que posteriormente las retransmite.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
+11. Fijación: Es la incorporación de sonidos, imágenes y sonidos o la representación de estos, a partir de la cual puedan percibirse, reproducirse o comunicarse mediante un dispositivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
+12. Fonograma: Es toda fijación de los sonidos de una ejecución o interpretación o de otros sonidos, o de una representación de sonidos que no sea en forma de una fijación incluida en una obra cinematográfica o audiovisual.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 Grabación efímera: (Nota de Sinalevi: El inciso que definía la "Grabación efímera" fue adicionado por el artículo 2° del decreto ejecutivo N° 26882 del 20 de abril de 1998, mismo que fue anulado por resolución de la Sala Constitucional N° 1829-99 del 10 de marzo de 1999.)
 13. Obra: Es toda creación intelectual en el dominio artístico o literario, en los términos de la Ley y este Reglamento, susceptible de ser divulgada o reproducida en cualquier forma o procedimiento.
 14. Obra anónima: Es aquella en que no se menciona la identidad del autor por voluntad del mismo.
@@ -27,17 +31,19 @@ Grabación efímera: (Nota de Sinalevi: El inciso que definía la "Grabación ef
 23. Obra seudónima: Es aquella en que el autor utitiza un seudónimo que no lo identifica. No se considera obra seudónima aquella en que el nombre empleado no arroja dudas acerca de la identidad civil del autor.
 24. Organismo de radiodifusión: Es la persona natural o jurídica capaz de emitir señales sonoras, visuales o ambas, susceptibles de percepción, por parte de una pluralidad de sujetos receptores.
 (Así reformado el inciso anterior por el artículo 1º del decreto ejecutivo No.26882 de 20 de abril de 1998)
-24 BIS.-Organismo de Radiodifusión Tradicional: Es el organismo de radiodifusión que brindan servicios de radiodifusión tradicional sonora o televisiva; cuya programación puede ser recibida por el público en general sin pago de derechos de suscripción, y que emiten sus señales en un solo sentido a varios puntos de recepción simultánea. Los organismos de radiodifusión tradicional no pueden obtener lucro mediante suscripción, o ventaja económica por la emisión y recepción del contenido de su programación, sin perjuicio de que por su naturaleza, o por el servicio que brindan, también difundan publicidad.
+24 BIS.-Organismo de Radiodifusión Tradicional: (Derogado por el artículo 8° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 (Así adicionado el inciso anterior por el artículo 2º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
 25. Productor: Es la persona natural o jurídica que tiene la iniciativa, la coordinación y la responsabilidad en la producción de la obra, por ejemplo, en la cinematrográfica y demás obras audiovisuales, o en los programas de cómputo.
-26. Productor de fonogramas: Es la persona natural o jurídica bajo cuya iniciativa, responsabilidad y coordinación, se fijan por primera vez los sonidos de una ejecución u otros sonidos.
+26. Productor de fonogramas: Es la persona física o jurídica que fija por primera vez los sonidos de una interpretación, ejecución u otros sonidos o la representación digital de los mismos.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 27. Programa de cómputo: Es un conjunto de instrucciones expresadas mediante palabras, códigos, planes o en cualquier forma que, al ser incorporadas en un dispositivo de lectura automatizada, es capaz de hacer que un computador -un aparato electrónico o similar capaz de elaborar informaciones-, ejecute determinada tarea u obtenga determinado resultado. El programa de cómputo comprende también la documentación técnica y los manuales de uso.
 28. Publicación: Es la producción de copias o ejemplares puestos a disposición del público con el consentimiento del titular del respectivo derecho.
-29. Radiodifusión: Es la comunicación pública de sonidos, de imágenes sincronizadas con sonidos, o de la representación de estos por medio de una emisión o transmisión inalámbrica o por satélite, incluidas las transmisiones codificadas cuando los medios de decodificación sean ofrecidos por el organismo de radiodifusión, o con su consentimiento, para posibilitar la comunicación pública a cambio de una suscripción o ventaja económica.
-(Así reformado el inciso anterior por el artículo 1º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
-29 BIS.-Radiodifusión Tradicional: Es la divulgación de sonidos, de imágenes sincronizadas con sonidos, o de la representación de estos a través de programas, mediante transmisiones no interactivas, consideradas por la Ley como un servicio de interés público, que se ofrecen y pueden ser recibidas sin pago de suscripción ni de ninguna otra ventaja económica, de forma que la generalidad de las personas pueda tener libre acceso a esas emisiones en forma gratuita en el momento y en lugar que ellas elijan.
+29. Radiodifusión: Es la comunicación pública de sonidos, de imágenes, de imágenes sincronizadas con sonidos, o de la representación de estos por medio de una emisión o transmisión inalámbrica o por satélite, incluidas las transmisiones codificadas cuando los medios de decodificación sean ofrecidos por el organismo de radiodifusión, o con su consentimiento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
+29 BIS.-Radiodifusión Tradicional: (Derogado por el artículo 8° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 (Así adicionado el inciso anterior por el artículo 3º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
-30. Registro: Es el Registro Nacional de Derechos de Autor y Derechos Conexos.
+30. Registro: Registro de la Propiedad Intelectual, conforme al artículo 2, de Ley de Creación del Registro Nacional, Ley Nº 5695, integrado por el otrora Registro de Derechos de Autor y Derechos Conexos y Registro de Propiedad Industrial.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44727 del 3 de octubre del 2024)
 31. Reproducción: Es la fijacion de la obra o de una producción intelectual, por un medio que permita su comunicación, así como la obtención de copias de toda o parte de ella.
 32. Retransmisión: Es la emisión simultánea o diferida de una emisión de un organismo de radiodifusión.
 Sociedad de Gestión Colectiva: (Nota de Sinalevi: El inciso que definía la "Sociedad de Gestión Colectiva" fue adicionado por el artículo 2° del decreto ejecutivo N° 26882 del 20 de abril de 1998, mismo que fue anulado por resolución de la Sala Constitucional N° 1829-99 del 10 de marzo de 1999.)
