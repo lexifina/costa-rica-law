@@ -17,3 +17,4 @@ Norma técnica para diseño y construcción de sistemas de abastecimiento de agu
 | 2 | 2021-01-05 | Reglamento 1 (2021-01-05) |
 | 3 | 2021-01-05 | Reglamento 1 (2021-01-05) |
 | 4 | 2021-08-04 | Reglamento 51 (2021-08-04) |
+| 5 | 2024-10-04 | Reglamento 0 (2024-10-04) |

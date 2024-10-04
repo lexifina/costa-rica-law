@@ -63,7 +63,8 @@ Este tipo de válvula se incorpora para mantener el nivel de agua dentro de un d
 4.5 Válvulas de alivio
 La selección y dimensionamiento de la válvula debe cumplir con las condiciones del caudal de agua una vez que se alcance un valor predeterminado de presión, con el fin de proteger las tuberías o estaciones de bombeo del efecto de las sobrepresiones por transitorios hidráulicos provocados por paradas de las bombas o cierres rápidos de válvulas.
 Este tipo de válvula puede ser de acción directa o con válvula piloto. Por su forma de operación, las válvulas de alivio se deben direccionar hacia cuerpos de agua o conductos de agua pluvial.
-5. Válvula de compuerta y cubre válvulas para hidrantes
+5. Válvula de compuerta y cubre válvulas
+(Así modificado el título anterior por el apartado e) de la publicación en La Gaceta N° 185 del 4 de octubre del 2024)
 5.1 Cubre válvulas con tapa
 El barril del cubre válvulas y su respectiva tapa deben ser de hierro fundido según norma ASTM A48 o de hierro dúctil según norma ASTM A536
 El cubre válvulas puede ser recto o cónico (cuando el cubre válvulas es recto posee la misma dimensión en la parte inferior y superior)
@@ -82,9 +83,11 @@ La tapa debe incluir algún sistema de seguridad contra robo que permita que per
 La tapa debe tener las siguientes dimensiones mínimas:
 - Diámetro: 135 mm.
 - Espesor: 20 mm.
+[imagen]
+(Así adicionada la figura anterior por el apartado e) de la publicación en La Gaceta N° 185 del 4 de octubre del 2024)
 5.2 Válvula de compuerta
 Válvula de compuerta de asiento elástico de vástago no deslizable o no ascendente. De compuerta tipo disco sólido y flexible o disco doble. Para operar con maneral portátil, debe tener en el vástago un dado de operación de 50 mm ± 5%.
-El sistema de sellado del vástago debe ser de tipo anillo en “O”.
+El sistema de sellado del vástago debe ser de tipo anillo en "O".
 La válvula debe soportar una presión de trabajo mínima de 1379 kPa (200 psi).
 El disco de la compuerta debe ser de hierro dúctil o de aleación de cobre, en cualquier caso, debe ser encapsulado en un empaque elastomérico de alto grado (posibles tipos: EPDM, Viton A, Perbunam, Neopreno) resistente a los ataques microbiológicos, a la contaminación con cobre y al ozono.
 La válvula debe permitir el acoplamiento mediante bridas con patrón de taladrado ANSI/ASME B16.5 clase 150; lo anterior independientemente de la norma de fabricación de las válvulas. La distancia entre caras externas de las bridas de conexión debe ser de al menos 22,9 cm (9 pulgadas) para las válvulas de 100 mm y de al menos 26,7 cm (10,5 pulgadas) para las válvulas de 150 mm. Se acepta una tolerancia de ± 0,5 cm (según Tabla No. 1 de la norma ANSI/ASME B16.10).
