@@ -1,0 +1,1 @@
+Artículo 44.-Este Reglamento deroga las disposiciones normativas de rango similar sobre materia electoral del Colegio y rige a partir de su aprobación en la Asamblea General y posterior publicación en el Diario Oficial y en medios institucionales.
