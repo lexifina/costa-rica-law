@@ -7,7 +7,8 @@ e) Definir y aprobar la estructura organizacional de la Secretaría Técnica.
 f) Aprobar el reglamento autónomo de organización y de servicio y sus reformas.
 g) Definir la Política Laboral de la Secretaría Técnica.
 h) Aprobar el reglamento interno de puestos de confianza.
-i) Aprobar las operaciones crediticias necesarias para el cumplimiento de los fines de la Ley N° 8634, lo cual será ejecutado por la Secretaría Técnica.
+i) Aprobar las políticas de crédito necesarias para el cumplimiento de los fines de la Ley N° 8634, lo cual será ejecutado por la Secretaría Técnica.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44757 del 4 de octubre de 2024)
 j) Autorizar la contratación bajo el régimen de puestos de confianza, de asesores técnicos independientes del Consejo Rector, para el cumplimiento de los propósitos de la Ley N° 8634.
 k) Definir y aprobar la política salarial.
 l) Aprobar el presupuesto anual, sus modificaciones y la liquidación de la Secretaría.
