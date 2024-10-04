@@ -1,0 +1,3 @@
+ARTÍCULO 9 º - Casos de excepción y su control.
+Aquellos beneficiarios, que, por razones especiales, tales como no tener personal a cargo, no ser patrono o no tener obligación de estar inscrito en lo DGT, no requerirán cumplir las obligaciones indicados en el artículo anterior, deberán aportar uno declaración jurado debidamente firmado sin necesidad de que se realice ante notorio público, que puede ser físico o en formato digital, donde justifiquen los motivos por los cuales no están sujetos al cumplimiento de dichas obligaciones.
+Estos cosos serán prioritarios en lo valoración del Plan Anual de Fiscalización que lleve a cabo lo DGH, para el control de los beneficios fiscales otorgados.

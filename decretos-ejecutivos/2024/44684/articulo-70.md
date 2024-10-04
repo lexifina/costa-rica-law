@@ -1,0 +1,2 @@
+ARTÍCULO 70 º - Territorialidad.
+Toda exención otorgada deberá ser disfrutada dentro del territorio nacional, salvo norma legal que autorice la exportación o las salidas temporales de vehículos debidamente autorizadas. Para las salidas del país de vehículos exonerados, el beneficiario de lo exención realizará la solicitud de autorización de salida temporal, mediante el procedimiento establecido por la DGH mediante resolución que se emita al efecto.

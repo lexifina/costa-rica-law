@@ -1,0 +1,2 @@
+ARTÍCULO 8 º - Deber de estar al día con Las obligaciones sociales y tributarias.
+Los beneficiarios de leyes que confieran beneficios fiscales y que deban gestionarlos ante el DGE de conformidad con Lo dispuesto en el presente reglamento, deberán encontrarse al día en sus obligaciones obrero-patronales ante la CCSS y tributarias ante el Ministerio de Hacienda, tanto para el otorgamiento de la exención, como para su Disfrute

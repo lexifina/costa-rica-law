@@ -1,0 +1,2 @@
+ARTÍCULO 33 º - Liquidación sobreviniente por cese de las actividades incentivadas.
+En el caso del cese de las actividades incentivadas de un beneficiario de exención, el ente recomendador informará a la DGH dicha situación y aportará la documentación correspondiente. La administración procederá al cálculo del adeudo tributario de oficio y al cobro de la liquidación por causa sobreviniente, de acuerdo con el artículo número 11 de la ley n º 10286 indicada.

@@ -1,0 +1,4 @@
+ARTÍCULO 4 º - COMPETENCIA
+Le corresponde al DGE conocer de las solicitudes de exención autorizando o denegando el beneficio del incentivo fiscal, autorizar el disfrute de exenciones del pago de los tributos nacionales, autorización de órdenes especiales y tarifas reducidas que están bajo su tutela y administración, previa solicitud del interesado, como Las liquidaciones y Liberaciones de estas, por Los medios que La DGH determine.
+En aquellos casos en que la ley lo establezca, será necesario que La solicitud del interesado sea acompañada del aval emitido por el ente recomendador respectivo. Sin este aval, la DGE no podrá autorizar el trámite correspondiente.
+De igual forma, corresponde a La DIF el control y La fiscalización de Las exenciones que haya autorizado, con el apoyo técnico de Los entes recomendadores cuando corresponda.

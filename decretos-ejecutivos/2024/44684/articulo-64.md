@@ -1,0 +1,2 @@
+ARTÍCULO 64 º - Intimación de pago y certificado de adeudo
+Una vez firme la resolución sancionatoria, la DGH deberá notificar la intimación de pago al infractor y le otorgará un plazo de cinco días hábiles para el pago de la sanción. En caso de que el infractor no cancele el adeudo en el plazo indicado, el jerarca de la DGH emitirá un certificado de adeudo, con carácter de título ejecutivo, que será trasladado al Departamento de Cobro -Judicial de la DGH, para continuar con el procedimiento de cobro en sede Judicial.

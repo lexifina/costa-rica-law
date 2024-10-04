@@ -1,0 +1,2 @@
+ARTÍCULO 54 º - Comiso de bienes exonerados.
+En el caso de bienes decomisados que hayan sido destinados a depósitos fiscales y cuya obligación aduanera no se ha cancelado, transcurrido el plazo de un mes de acuerdo a lo indicado en ley 7557 de 20 de octubre de 1995 "Ley General de Aduanas", articulo número 56 inciso e), dichos bienes por considerarse en estado de abandono serán entregados al /MAS de acuerdo a lo dispuesto en la Ley número 6106 de 07 de noviembre de 1977 denominada "Ley de Distribución de Bienes Confiscados o Caídos en Comiso" quien los destinará a la DGH.

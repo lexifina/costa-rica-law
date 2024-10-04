@@ -1,0 +1,7 @@
+ARTÍCULO 65°- Reducción de sanciones
+Las sanciones se reducirán, conforme lo dispuesto en el artículo 38 de la Ley N º l0286 denominada Regímenes de exenciones del pago de tributos, su otorgamiento y control sobre uso y destino de 18 de agosto de 2022, cuando se cumplan los supuestos y las condiciones que se enumeran a continuación:
+a) Cuando el infractor repare su incumplimiento después de la actuación de la Administración Tributaria, pero antes de la notificación de la resolución final, determinativa o de revocación, o antes de la resolución sancionadora, según corresponda, la sanción se rebajará en un cincuenta por ciento (5090).
+b) Cuando, notificada la resolución final, determinativa o de revocación, y dentro del plazo establecido para recurrirlo, el infractor acepte los hechos planteados en este y subsane el incumplimiento, la sanción será rebajada en un veinticinco por ciento (2590).
+La reducción de la sanción del inciso precedente es únicamente aplicable a los procesos de Revocación.
+En estos casos, el infractor deberá comunicar a la Administración Tributaria, los hechos aceptados y adjuntará las pruebas de pago o solicitud de fraccionamiento de pago, según corresponda.
+Para los efectos de los párrafos anteriores, se entenderá como actuación de lo Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el buen uso y destino de los bienes exonerados

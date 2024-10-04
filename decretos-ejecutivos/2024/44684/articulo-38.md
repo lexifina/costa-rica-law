@@ -1,0 +1,2 @@
+ARTÍCULO 38º- Resistencia para el depósito de vehículos:
+De existir resistencia del beneficiario o persona de mejor derecho, para proceder al depósito del (los) vehículo (s) de que se trate, la DGH solicitará a la Policía de Control Fiscal el decomiso de los automotores y su correspondiente depósito. En caso de no permitir el ingreso a un recinto privado, para proceder con el decomiso del bien, la PCF procederá a solicitar la orden de allanamiento respectivo a la autoridad judicial competente.

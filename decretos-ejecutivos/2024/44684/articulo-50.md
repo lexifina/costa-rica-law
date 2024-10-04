@@ -1,0 +1,2 @@
+ARTÍCULO 50 º - Cobro coactivo de impuestos dispensados
+Firme lo resolución de revocación de la exención, deberá cancelar la deuda dentro del plazo otorgado, o dentro de los treinta días hábiles otorgados, para esos efectos en caso de Liquidación voluntario o de oficio, caso contrario, el jerarca de Lo DGH, o el órgano administrativo en el que este delegue estas funciones, deberá certificar el monto adeudada con carácter de título ejecutivo y remitirlo al Departamento de Cobro -Judicial de la DGH, para iniciar el procedimiento de cobro en esa sede.

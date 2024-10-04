@@ -1,0 +1,3 @@
+ARTÍCULO 22º - Denegatoria de la solicitud de exenciones por el ente recomendador.
+En el caso en que el ente recomendador no recomiende la solicitud de exención por considerar que no se ha cumplido con los requisitos técnicos exigidos para contar con el aval, deberá indicarlo con los motivos de la denegatoria, a efectos de que el DGE proceda conforme al artículo anterior.
+Contra esta denegatoria procede la interposición de los recursos de Revocatoria ante el DGE y el de Apelación en subsidio ante el Tribunal Fiscal Administrativo, en un plazo perentorio de tres días hábiles, contados a partir del día siguiente hábil de la notificación de la denegatoria, de acuerdo con lo indicado en el artículo 4 de la Ley N º 10286 indicada.

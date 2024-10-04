@@ -1,0 +1,3 @@
+ARTÍCULO 58 º - Infracción por omisión en la presentación de informes
+El beneficiario mediato o inmediato debe presentar los informes periódicos o especiales requeridos por la DGH o el órgano administrativo en el que ésta designe estas funciones, dentro de los plazos preestablecidos, si no los presenta, se les impondrá una sanción equivalente a dos salarios base, que será definido acorde con el artículo 68 de la Ley 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971 y sus reformas.
+La oficina designada por la DGH remitirá informe sobre los hechos para que el superior jerárquico de la DGH valore el inicio del proceso sancionatorio.

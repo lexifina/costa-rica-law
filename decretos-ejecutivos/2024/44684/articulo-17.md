@@ -1,0 +1,3 @@
+ARTÍCULO 17 º - Plazo y condiciones para La revalidación de La autorización genérica.
+Las autorizaciones genéricas otorgadas podrán ser revalidados, en el plazo y condiciones que defina la Dirección General de Hacienda mediante resolución, siempre y cuando se trate de los mismos bienes y;o servicios aprobados anteriormente.
+A los efectos se habilitará en Exonet, una opción para la revalidación, que implicará que la gestión se revalide automáticamente, previa validación por parte de EXONET de que el beneficiario se encuentra al día en sus obligaciones obrero-patronales y fiscales, cuando corresponda, además de los requisitos propios del régimen legal respectivo, sin necesidad de nueva revisión del ente recomendador ni del analista o coordinador del DGE.

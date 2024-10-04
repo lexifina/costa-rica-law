@@ -1,0 +1,2 @@
+ARTÍCULO 26 º - Recomendación del MREC
+La oficina competente del MREC, en caso de ser procedente, recomendará ante el DGE la solicitud de liberación presentada. Dicha recomendación implica la verificación de la reciprocidad vigente con el país de que se trate y la ve.rificación del cumplimiento de las condiciones necesarias que la ley y el protocolo vigente dispongan a los funcionarios miembros de Misiones Diplomáticas.

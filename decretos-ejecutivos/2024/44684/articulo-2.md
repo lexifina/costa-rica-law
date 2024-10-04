@@ -1,0 +1,2 @@
+ARTÍCULO 2° - Objetivo del presente Reglamento.
+El presente reglamento regulará los procesos de gestión de incentivos a lo importación y compras en el mercado nacional, cuya competencia de resolución se Le atribuye al Departamento de Gestión de Exenciones de Lo Dirección General de Hacienda, así como los procesos de liberación, liquidación, traspaso, revocación, sancionatorio y demás trámites que son competencia de Las diferentes áreas de la Dirección General de Hacienda del Ministerio de Hacienda.

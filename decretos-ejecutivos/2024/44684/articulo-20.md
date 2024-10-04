@@ -1,0 +1,2 @@
+ARTÍCULO 20 º - Plazo para La actualización de los sistemas.
+La Direccione General de Hacienda, Dirección General de Tributación, Dirección General de Aduanas y lo Dirección de Tecnologías de la Información que utilizan y administran los sistemas del Ministerio de Haciendo, que tienen participación en los gestiones que en la presente normativa se regulan, tendrán en el marco de su competencia un plazo de un año a partir de la publicación del presente decreto, para ejecutar los cambios informáticos necesarios para cumplir con las disposiciones que aquí se disponen.

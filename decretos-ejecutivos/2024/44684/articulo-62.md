@@ -1,0 +1,2 @@
+ARTÍCULO 62 º - Potestad del Director General de Hacienda
+Corresponde al jerarca de la DGH valorar el contenido del informe y ordenar, en caso de que proceda, el inicio del procedimiento sancionatorio mediante resolución fundada. La instrucción del procedimiento sancionatorio le corresponde a la Subdirección de Normativa o a la dependencia que el jerarca de la DGH designe, garantizando en todo momento el derecho a la legítima defensa de las partes y el respeto al debido proceso.
