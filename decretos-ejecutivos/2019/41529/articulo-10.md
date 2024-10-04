@@ -1,1 +1,0 @@
-Artículo 10°.- Lineamientos de planificación. Las mesas de trabajo deberán guiarse por los lineamientos que defina el Ministerio de Planificación Nacional y Política Económica. Dicho Ministerio, brindará el soporte necesario para la gestión y planificación de los proyectos de cada una de las mesas de trabajo.

@@ -1,1 +1,0 @@
-Artículo 3°.- Objetivo de la Comisión de Alto Nivel. Corresponderá a la Comisión de Alto Nivel para la Atención del Cantón de Buenos Aires, la construcción y articulación de la Estrategia Participativa para el Desarrollo Integral del Cantón de Buenos Aires, según las 5 mesas de trabajo establecidas en el artículo 4 del presente Decreto.

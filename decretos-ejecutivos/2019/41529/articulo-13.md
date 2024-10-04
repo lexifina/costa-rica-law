@@ -1,1 +1,0 @@
-Artículo 13°.- Colaboración interinstitucional. Se instruye a los órganos de la Administración Central y Descentralizada, a colaborar sin perjuicio del cumplimiento de sus propios objetivos, en la implementación y ejecución de las medidas a corto, mediano y largo plazo de la Estrategia Participativa para el Desarrollo Integral del Cantón de Buenos Aires, Puntarenas.
