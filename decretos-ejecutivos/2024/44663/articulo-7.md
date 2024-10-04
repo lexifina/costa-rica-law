@@ -1,0 +1,1 @@
+Artículo 7º-Medidas de control. La Dirección de Medicamentos Veterinarios del SENASA debe ejecutar las medidas de control para garantizar el cumplimiento de la restricción establecida en este Decreto Ejecutivo para estos productos.

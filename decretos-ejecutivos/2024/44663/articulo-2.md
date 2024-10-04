@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Estas disposiciones reglamentarias se aplican a las personas físicas y jurídicas que registren, importen, fabriquen, formulen, almacenen, distribuyan, transporten, reempaquen, reenvasen, manipulen, mezclen, vendan y usen el principio activo Fipronil como materia prima o como medicamento veterinario.

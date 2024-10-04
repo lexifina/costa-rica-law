@@ -1,0 +1,1 @@
+Artículo 6º-Buenas prácticas. Las personas físicas o jurídicas que comercialicen productos que contengan Fipronil, deben establecer e implementar estrategias de información dirigidas a los consumidores sobre el cumplimiento de las buenas prácticas de uso de estos productos.
