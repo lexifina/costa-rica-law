@@ -1,0 +1,1 @@
+Artículo 22.-Valor del activo. El valor de registro del activo será el que indique la factura comercial del bien. Si por cualquier circunstancia se desconoce el valor, el registro será por el valor de mercado o bien del avalúo, dicho valor siempre deberá ser en moneda local (colones).

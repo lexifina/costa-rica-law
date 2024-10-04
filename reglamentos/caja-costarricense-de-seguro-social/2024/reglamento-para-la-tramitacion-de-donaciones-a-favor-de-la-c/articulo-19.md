@@ -1,0 +1,3 @@
+Artículo 19.-Potestades reservadas. La Caja Costarricense de Seguro Social se reserva la potestad de comprobar el origen de los bienes y la capacidad jurídica del donante, cuando dicha información se requiera a fin de garantizar la calidad, seguridad y eficacia de este.
+Tratándose de una intención de donación de dinero a favor de la Caja Costarricense de Seguro Social, se deberá hacer una verificación de su titularidad y procedencia, en razón de verificar la legitimación de capitales.
+Asimismo, la Caja Costarricense de Seguro Social podrá establecer al posible donante, recomendaciones sobre destino y ubicación del objeto de la intención de donación, así como cláusulas específicas con ocasión de la especial tutela que revisten los fondos públicos.

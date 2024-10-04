@@ -1,0 +1,4 @@
+Artículo 3º-La donación deberá responder a:
+a. A la razonabilidad de necesidades existentes y la vinculación entre el bien o servicio y los fines institucionales.
+b. A la buena fe de las partes, de manera que las intenciones de donaciones y donación en sí no pueden formularse para pretender generar compromisos institucionales vinculados con la resolución de asuntos en donde el donante participe como sujeto activo o pasivo de un conflicto con la Institución, o cualquier otra condición mediante la cual se trate de imponer limitaciones o direcciones sobre la naturaleza y propósitos de las funciones y gestión institucional.
+c. Al libre uso del objeto de la donación, conforme los criterios de necesidad y de oportunidad definidos a nivel institucional y local, así como cualquier otro requerimiento del interés público.
