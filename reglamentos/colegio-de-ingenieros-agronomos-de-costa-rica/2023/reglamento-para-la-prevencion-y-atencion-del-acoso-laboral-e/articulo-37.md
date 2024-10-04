@@ -1,0 +1,4 @@
+Articulo 37: Resolución final del asunto: Concluido el procedimiento, quien se encuentre en el cargo de Director Ejecutivo, Junta Directiva o Asamblea General dictará la resolución final en un plazo máximo de un mes.
+En el caso de que la decisión deba adoptarse por Asamblea General se podría ampliar el plazo conforme al proceso de convocatoria de esta, debidamente regulado en la Ley Orgánica del Colegio, cuya convocatoria deberá realizarla de forma inmediata, ya sea por la Junta Directiva o el fiscal de Junta Directiva.
+Esta resolución deberá ser notificada a las partes, en la forma y por cualquiera de los medios permitidos por la Ley de Notificaciones y Citaciones Judiciales dentro del mes siguiente a la fecha en que concluya formalmente el procedimiento disciplinario respectivo.
+Una vez concluida la investigación, quien no esté satisfecho con el resultado al que se Ilegue, puede presentar la denuncia correspondiente en sede judicial.

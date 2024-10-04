@@ -1,0 +1,1 @@
+Articulo 33: Sobre la conciliación: AI constituir el acoso laboral un ciclo de violencia psicológica y en algunos casos física, caracterizada por relaciones de poder asimétricas, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento de investigación.

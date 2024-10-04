@@ -1,0 +1,3 @@
+Articulo 2: Del ámbito de aplicación: Este Reglamento regula los procedimientos de prevención y sanciones de conductas y situaciones que constituyan acoso laboral en todas las relaciones de empleo que rienen las personas trabajadoras del Colegio, su aplicación incluye también a las personas que fungen como personas directoras de Junta Directiva, Fiscal y Colegiados.
+Será de obligatoria observancia de todas las instancias Directivas, Administrativas y Ejecutivas, el cumplimiento del presente Reglamento.
+Las disposiciones de este Reglamento también serán aplicables a las conductas de acoso laboral que ejerzan las personas del Colegio contra terceros que presten sus servicios en las instalaciones e este, sus sedes y filiales.

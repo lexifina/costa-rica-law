@@ -1,0 +1,1 @@
+Articulo 38: De los recursos contra el acto final del procedimiento: Contra la resolución final procederán el recurso de apelación en el plazo de 3 días ante quien dicto la resolución. La resolución indicará el plazo para presentar los recursos y ante quienes deberán ser interpuestos.
