@@ -1,0 +1,1 @@
+Artículo 11.- Sobre las necesidades de transporte para el desarrollo de las labores de la Auditoría Interna. La Administración deberá atender de forma prioritaria las solicitudes de transporte planteadas por la Auditoría Interna, con el objetivo de propiciar la oportunidad e inmediatez de las labores de auditoría.

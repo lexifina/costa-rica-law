@@ -1,0 +1,6 @@
+CAPÍTULO IV
+DEL PERSONAL DE LA AUDITORÍA
+SECCIÓN I
+Del Auditor Interno
+Artículo 26.- Nombramiento, suspensión, remoción y jornada laboral del Auditor Interno.
+El nombramiento del Auditor Interno, será por tiempo indefinido y dependerá y responderá directamente por su gestión ante la Junta Directiva. El nombramiento, suspensión y remoción del Auditor Interno de la Corporación, será parte de las atribuciones y obligaciones de la Junta Directiva, de conformidad con el artículo 20 de la Ley N.º 8285. Para el trámite de suspensión y remoción, la Administración deberá seguir las regulaciones contenidas en el Apartado 3 de la Resolución No R-CO-83-2018 de la Contraloría General de la República. Esta resolución requiere con exigencia de un procedimiento administrativo ordinario, la conformación de un expediente administrativo, la suficiente oportunidad de defensa y demás requisitos establecidos en la resolución indicada. De igual forma, tanto para la suspensión como para la remoción del Auditor Interno, se requerirá de la emisión de un dictamen preceptivo vinculante por parte de la Contraloría General de la República, de acuerdo con el artículo 15 de la Ley Orgánica de la Contraloría General de la República. La jornada laboral del Auditor Interno será de tiempo completo.

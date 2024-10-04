@@ -1,0 +1,1 @@
+Artículo 53.- Documentación de la discusión de informes en borrador. Dicha reunión se documentará por parte de la Auditoría en la forma en que ésta lo tenga dispuesto en sus lineamientos internos, resumiéndose las observaciones más importantes y los compromisos asumidos.

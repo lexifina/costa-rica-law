@@ -1,0 +1,1 @@
+Artículo 78.- Derogaciones. Déjese sin efecto el Reglamento de Organización y Funcionamiento de la Auditoría Interna, aprobado por acuerdo N.º 331-1007 en la sesión N.º 257 de la Junta Directiva celebrada el día lunes 8 de octubre del 2007 y publicado en la Gaceta N.º 27 del 7 de febrero del 2008 en la página 46.

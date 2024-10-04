@@ -1,0 +1,1 @@
+Artículo 55.- Informes de auditoría en borrador dirigidos a la Junta Directiva. Cuando los informes sean dirigidos a la Junta Directiva, se dispondrá de un plazo no mayor a los 15 días hábiles para la discusión del informe, contado a partir de su emisión por parte de la Auditoría Interna; la cual coordinará lo correspondiente para la debida reunión.

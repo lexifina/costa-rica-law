@@ -1,0 +1,3 @@
+SECCIÓN II
+Otros aspectos relativos a los servicios de auditoría
+Artículo 48.- Destinatarios de los informes de auditoría. La Auditoría Interna deberá comunicar los resultados de sus auditorías o estudios especiales de auditoría, mediante informes objetivos dirigidos al jerarca y/o titulares subordinados, estos últimos con la competencia y autoridad suficiente, para ordenar la implantación de las respectivas recomendaciones en el plazo y regulaciones establecidas en los artículos 36, 37 y 38 de la Ley Nº8292.

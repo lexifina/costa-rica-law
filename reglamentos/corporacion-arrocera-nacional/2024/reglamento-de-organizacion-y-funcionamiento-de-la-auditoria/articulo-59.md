@@ -1,0 +1,1 @@
+Artículo 59.- Esquema de los informes. La estructura de los informes de auditoría o estudio especial de auditoría, constará de aquellas partes que defina el Auditor Interno, tomando en consideración lo indicado por la normativa que regula la función de la Auditoría Interna.

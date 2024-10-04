@@ -1,0 +1,10 @@
+Artículo 14.- Competencias de la Auditoría Interna. Compete a la auditoría interna, primordialmente lo siguiente:
+a) Realizar auditorías o estudios especiales, en relación con los fondos y recursos sujetos a su competencia de la Corporación, incluidos fondos especiales provenientes de convenios, donaciones o acuerdos y otros de naturaleza similar.
+b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia, informar de ello y proponer las medidas correctivas que sean pertinentes.
+c) Verificar que la administración activa tome las medidas de control interno señaladas en la Ley N.º 8292, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos en las diferentes unidades de la Corporación.
+d) Asesorar, en materia de su competencia, al jerarca del cual depende; además, advertir a los órganos pasivos que audita sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+e) Autorizar, mediante razón de apertura, los libros de actas que deban llevar los órganos sujetos a su competencia y otros libros que, a criterio del Auditor Interno, sean necesarios para el fortalecimiento del sistema de control interno.
+f) Preparar los planes de trabajo, por lo menos de conformidad con los lineamientos que establece la Contraloría General de la República.
+g) Elaborar un informe anual de la ejecución del plan de trabajo y del estado de las recomendaciones de la Auditoría Interna, de la Contraloría General de la República y de los auditores externos; en los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
+h) Mantener debidamente actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna.
+i) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de la Ley N.º 8292.

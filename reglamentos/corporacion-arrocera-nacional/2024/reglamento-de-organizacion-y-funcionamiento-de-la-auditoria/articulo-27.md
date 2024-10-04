@@ -1,0 +1,3 @@
+Artículo 27.- Requisitos para los cargos de Auditor Interno. Para su nombramiento, el Auditor Interno deberán cumplir los requisitos establecidos en el artículo N.º 76 de la Ley 8285.
+El Auditor Interno deberán caracterizarse por su idoneidad para los puestos correspondientes.
+Por ello, serán profesionales altamente capacitados en materia de auditoría que reúnan los conocimientos, experiencia, actitudes, aptitudes y habilidades para administrar la unidad de Auditoría Interna. Además, de poseer cualidades que les permitan relacionarse de manera armoniosa y respetuosa con las diferentes unidades de la Corporación y las ajenas a esta.

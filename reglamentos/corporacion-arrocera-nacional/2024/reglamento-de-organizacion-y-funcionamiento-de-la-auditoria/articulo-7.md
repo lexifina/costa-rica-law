@@ -1,0 +1,5 @@
+SECCIÓN II
+De la asignación y administración de recursos
+Artículo 7.- Administración del personal de la Auditoría Interna. El nombramiento, traslado, suspensión, remoción, concesión de licencias y demás movimientos de personal que sea contratado para la Auditoría Interna, deberán contar con la autorización del Auditor Interno de acuerdo con la Ley N.º 8292 y el marco jurídico que rige para la Corporación Arrocera Nacional. El personal de la Auditoría Interna estará sujeto a las disposiciones administrativas aplicables al resto del personal de la Corporación, siempre que éstos no afecten la independencia funcional y de criterio de dichos funcionarios. Para efectos de nombramientos del personal de Auditoría se deberá considerar lo siguiente:
+a) Para los puestos en propiedad, el Auditor Interno remitirá a la Junta Directiva las proposiciones de nombramiento aprobadas con la nómina respectiva, para que éste ratifique su aprobación.
+b) En cuanto a los nombramientos interinos se atenderá a lo dispuesto por la Junta Directiva y directrices de la Dirección Ejecutiva y de la Unidad de Talento Humano.

@@ -1,0 +1,9 @@
+Artículo 32.- Participación del Auditor Interno en sesiones ordinarias y extraordinarias de la Junta Directiva de la Corporación. Con la finalidad de mantener su objetividad e independencia de criterio, la participación del Auditor Interno en las sesiones de la Junta Directiva de la Corporación, debe hacerse según lo disponga la Junta Directiva; esto bajo las siguientes condiciones:
+a) Asistir con voz, pero sin voto.
+b) Asistir según lo establezca la Junta Directiva para el adecuado cumplimiento de sus deberes.
+c) Brindar su asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) El Auditor Interno conservará la potestad de abstenerse de asistir a una sesión en particular, cuando considere que ello podría afectar su independencia y objetividad. (CGR DFOE-EC-0442-2016).
+e) Pedir y vigilar que su opinión conste en las actas respectivas.
+f) Tener la posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
+g) Ni la presencia del auditor en reuniones en que se traten asuntos que incumben a la administración ni el silencio que guarde que no emita opinión sobre ellos, releva de responsabilidad a la administración activa sobre lo que decida y ejecute. (DFOE-PG-330-2011).
+h) Ni la presencia del auditor en reuniones en que se traten asuntos que incumben a la administración ni el silencio que guarde limitará en forma alguna la posibilidad del auditor de analizar el tema en evaluaciones posteriores, en ejercicio de sus competencias de auditoría. (DFOE-PG-330-2011).

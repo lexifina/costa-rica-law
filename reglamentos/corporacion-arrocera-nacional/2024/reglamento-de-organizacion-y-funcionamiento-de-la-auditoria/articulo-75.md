@@ -1,0 +1,1 @@
+Artículo 75.- Respaldo al personal de la Auditoría Interna. Cuando el Auditor Interno, en el cumplimiento de sus funciones, se involucre en un conflicto legal o una demanda, la Corporación dará todo su respaldo tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final, de conformidad con lo dispuesto en el artículo 26 de la Ley Nº8292.

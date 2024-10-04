@@ -1,0 +1,1 @@
+Artículo 58.- Requisitos de los informes. En cuanto a los requisitos, partes, revisión y remisión de los informes, se aplicará principalmente, lo dispuesto sobre el particular en las Normas Generales de Auditoría para el Sector Público y en las Normas para el ejercicio de la auditoría interna en el Sector Público, emitidas por la Contraloría General de la República.

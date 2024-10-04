@@ -1,0 +1,1 @@
+Artículo 3. Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para el Auditor Interno y profesionales que laboren en la Unidad de Auditoría Interna y todas las dependencias que conforman la Corporación Arrocera Nacional, de conformidad con el artículo 4 y el inciso a) del artículo 22 de la Ley N.º 8292.
