@@ -1,0 +1,4 @@
+CAPÍTULO II
+PROCEDIMIENTO PARA LA DECLARATORIA DE INTERÉS INSTITUCIONAL
+Artículo 5. Solicitud de declaratoria de interés institucional El procedimiento de análisis y decisión sobre una eventual declaratoria de interés institucional podrá iniciar por iniciativa de la Corte Suprema de Justicia, el Consejo Superior o a gestión de alguna oficina o despacho judicial, comisión o programa institucional, persona física interna o externa a la institución, persona jurídica indistintamente de su naturaleza pública o privada, u organización.
+La solicitud de declaratoria de interés institucional puede ser sobre la totalidad o solo una parte de la actividad, sea este interno o externo al Poder Judicial, o de índole nacional o internacional; igualmente pueden ser sujetos a valoración aquellas actividades declaradas de interés público o de interés institucional por cualquier otra entidad estatal en el ejercicio de sus competencias.

@@ -1,0 +1,1 @@
+Artículo 9. De la reconsideración Contra la denegatoria de la solicitud de la declaración de interés institucional, solo cabe recurso reconsideración ante el mismo Consejo Superior, que deberá presentarse dentro el plazo de tres días hábiles, a partir del día siguiente de su notificación.

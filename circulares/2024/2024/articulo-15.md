@@ -1,0 +1,1 @@
+Artículo 15. Divulgación. Entre la publicación y la entrada en vigencia de la presente normativa, se desarrollará una adecuada divulgación de la misma a nivel interno y externo al Poder Judicial por parte del Departamento de Prensa y Comunicación

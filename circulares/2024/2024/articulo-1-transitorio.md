@@ -1,0 +1,3 @@
+Transitorio I. De las solicitudes o proyectos de declaratoria de interés institucional en curso. Todos las iniciativas o solicitudes de declaratoria de interés institucional que estuvieren en curso y se estuvieren decidiendo en cualquier instancia al momento de entrar en vigencia el presente reglamento, se adecuarán a la presente normativa. Para lo cual la Secretaría General de la Corte, remitirá las diligencias a la oficina gestionante para que en el plazo de tres días hábiles presenten la documentación y requisitos establecidos en el artículo 7 del presente reglamento.
+Publíquese una vez en el Boletín Judicial.
+San José, 07 de octubre de 2024.
