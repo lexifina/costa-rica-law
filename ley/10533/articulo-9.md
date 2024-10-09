@@ -1,0 +1,2 @@
+ARTÍCULO 9- Contrataciones
+La Fundación Banco Ambiental ( Funbam) podrá contratar al personal y los servicios profesionales necesarios para la ejecución y el control de sus operaciones, así como para el mejoramiento interno de los procesos administrativos y el funcionamiento organizacional, conforme a lo estipulado en la Ley 9986, Ley General de Contratación Pública y las regulaciones laborales respectivas. De igual forma, podrá adquirir el equipo y mobiliario necesarios para el cumplimiento de sus fines.

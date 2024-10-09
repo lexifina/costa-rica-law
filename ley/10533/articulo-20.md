@@ -1,0 +1,2 @@
+ARTÍCULO 20- Autorización para sugerir mecanismos de financiamiento
+Se autoriza al Instituto Costarricense de Turismo ( ICT) y al Instituto Costarricense de Pesca y Acuicultura (Incopesca), en el marco de sus competencias, a sugerir al Funbam el diseño e implementación de mecanismos de financiamiento al Fondo Azul, para el cumplimiento de sus objetivos. Se podrá promover el uso de valores de oferta pública temáticos (bonos verdes, bono azul) por parte de instituciones públicas y privadas, nacionales o extranjeras, supervisados por la entidad correspondiente.
