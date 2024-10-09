@@ -14,3 +14,4 @@ Opinión consultiva sobre la posibilidad de ampliar la integración de su Asambl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-05 | la propia norma |
+| 2 | 2024-10-09 | Resolución 7540 (2024-10-09) |
