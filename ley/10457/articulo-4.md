@@ -1,0 +1,4 @@
+ARTÍCULO 4- Turismo responsable.
+El Instituto Costarricense de Turismo (ICT) podrá usar la imagen del colibrí (especies Amazilia boucardi y Microchera cupreiceps) para sus campañas publicitarias, a nivel local e internacional, de conformidad con lo establecido en la Ley N° 7554, Ley Orgánica del Ambiente, de 4 de octubre de 1995; la Ley de Conservación de la Vida Silvestre, de 30 de octubre 1992 y el Reglamento de la Ley N° 7317, Ley de Conservación de la Vida Silvestre, de 30 de octubre de 1992, reforma del Decreto Ejecutivo N° 32633-Minae, de 10 de marzo de 2005, y derogatoria de los decretos ejecutivos N° 10-Mirenem, de 16 de abril de 1993 y N° 35463-Minae- MEP, de 4 de junio de 2009.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinte días del mes de marzo del año dos mil veinticuatro.
