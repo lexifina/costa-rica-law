@@ -1,0 +1,1 @@
+Artículo 3º-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio de IAFA, sin que ello limite la eventual responsabilidad civil.

@@ -1,0 +1,1 @@
+Artículo 16.-Control de garantías. El Subproceso de Gestión Humana deberá informar al Coordinador del Área de Apoyo el nombre de los funcionarios sujetos a presentar garantía que no hayan cumplido con lo dispuesto en el presente Reglamento y ésta a su vez informará a la Dirección General.

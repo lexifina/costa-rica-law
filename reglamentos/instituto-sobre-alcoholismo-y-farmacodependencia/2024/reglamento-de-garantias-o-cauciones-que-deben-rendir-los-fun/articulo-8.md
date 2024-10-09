@@ -1,0 +1,1 @@
+Artículo 8º-Supervisión y cumplimiento. El Subproceso de Gestión Humana, será el encargado de ejecutar las labores relacionadas con el control y supervisión de las garantías que deberán rendir los funcionarios de este Instituto en los tres niveles de gestión.

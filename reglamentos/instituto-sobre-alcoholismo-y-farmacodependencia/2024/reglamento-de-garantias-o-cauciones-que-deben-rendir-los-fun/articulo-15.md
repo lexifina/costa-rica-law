@@ -1,0 +1,4 @@
+Artículo 15.-Monto de la caución. Los funcionarios citados en los artículos 10º, 11° y 12° de este reglamento, suscribirán la póliza de fidelidad como sigue:
+a) Cálculo de la caución en el nivel A: Quienes desempeñen puestos contemplados dentro de los incisos a), b), c), d) ye), del artículo 10º del presente reglamento, deberán rendir una caución equivalente a cinco salarios base.
+b) Cálculo de la caución en el nivel B: Quienes desempeñen puestos contemplados dentro de los incisos a), b), c), d) del artículo 11º del presente reglamento, deberán rendir una caución equivalente a tres y medio salarios base.
+c) Cálculo de la caución en el nivel C: Quienes desempeñen puestos contemplados dentro de los incisos a) y b) del artículo 12º del presente reglamento, deberán rendir una caución equivalente a dos y medio salarios base.
