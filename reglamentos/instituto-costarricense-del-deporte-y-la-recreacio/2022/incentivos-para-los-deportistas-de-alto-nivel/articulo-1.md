@@ -1,0 +1,72 @@
+INSTITUTO COSTARRICENSE DEL DEPORTE Y LA RECREACIÓN
+Incentivos para los deportistas de Alto Nivel
+Que el Consejo Nacional del Deporte y la Recreación mediante los acuerdos N°4 de la Sesión ordinaria 1267-2022 celebrada el 8 de diciembre del 2022 y N°6 de la Sesión ordinaria 006-2023 celebrada el 23 de febrero del 2023 aprobó el presente Reglamento con el fin de dar un sustento jurídico a los requisitos para el otorgamiento de becas deportivas para atletas Seleccionados Nacionales.
+CONSIDERANDO
+1°- Que la Ley No. 7800 del 30 de abril de 1998 "Creación del Instituto Costarricense del Deporte y la Recreación y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación", establece que el fin primordial del Instituto es la promoción, el apoyo y el estímulo de la práctica individual y colectiva del deporte y la recreación de los habitantes de la República, actividad considerada de interés público por estar comprometida la salud integral de la población.
+2°- Que para dar cumplimiento a tal efecto, el Instituto debe orientar sus acciones, programas y proyectos a fomentar el fortalecimiento de las organizaciones privadas relacionadas con el deporte y la recreación, dentro de un marco jurídico regulatorio adecuado en consideración de ese interés público, que permita el desarrollo del deporte y la recreación, así como de las ciencias aplicadas en beneficio de los deportistas en particular y de Costa Rica en general.
+3°- Que según el artículo 3 incisos b, c, e, i, n de la Ley No. 7800: "b) Fomentar e incentivar el deporte a nivel nacional y su proyección internacional", "c) Contribuir con el desarrollo de disciplinas de alto rendimiento, tanto convencional como adaptado para las personas con discapacidad", e) Reconocer, apoyar y estimular las acciones de organización y promoción del deporte y la recreación, realizadas por las entidades deportivas y recreativas gubernamentales y no gubernamentales", i) Velar por la planificación de corto, mediano y largo plazos del deporte y, en particular, porque los planes y programas respectivos sean armónicos con la salud de la persona deportista, financieramente viables y acordes con la calendarización de las actividades y los campeonatos a nivel regional e internacional del deporte de que se trate" y "Para el cumplimiento de sus fines, el Instituto podrá celebrar toda clase de actos, contratos y convenios con entidades y personas, tanto nacionales como internacionales, públicas y privadas".
+4°- Que según el artículo 32 de la Ley No. 7800:" Se consideran personas deportistas de alto nivel, para los beneficios que esta ley otorga, además de las personas atletas que figuren dentro de las competencias del ciclo olímpico, sean Juegos Centroamericanos, Juegos Centroamericanos y del Caribe, Juegos Panamericanos y Juegos Olímpicos, y del ciclo Paralímpico, sean Juegos Paracentroamericanos, Juegos Paracentroamericanos y del Caribe, Juegos Parapanamericanos y Juegos Paralímpicos, quienes figuren en la lista emitida por la Comisión que para el efecto nombre el Consejo Nacional y que se regirá por los criterios del reglamento de esta ley".
+5°- Que según el artículo 35 de la Ley No. 7800:" En colaboración con asociaciones y federaciones de representación nacional, el Instituto creará una Comisión permanente de selecciones nacionales, que tendrá a su cargo, entre otras, las siguientes funciones: a) Revisar y enviar al Consejo Nacional para su aprobación final los planes, programas y proyectos de las selecciones nacionales, elaborados por las respectivas federaciones deportivas, b) Coordinar con las autoridades gubernamentales la ayuda necesaria para el cumplimiento de las tareas de las selecciones nacionales, c) Mantener contacto permanente con las Juntas Directivas de las asociaciones y federaciones deportivas de representación nacional".
+6°- Que según el artículo 38 de la Ley No. 7800:" Para poder participar en competencias en el territorio nacional o el extranjero, el deportista deberá contar con un seguro que cubra los riesgos para la salud derivados de la disciplina deportiva correspondiente, el cual deberá cubrir la respectiva asociación o federación".
+7°- Que según el artículo 49 de la Ley No. 7800:" Las federaciones deportivas gozarán de plena autonomía en la elección de las personas deportistas que integren las selecciones nacionales, según lo indique la Federación Internacional respectiva. Para las actividades olímpicas, lo harán de acuerdo con la Carta Olímpica y los propios reglamentos del Comité Olímpico Nacional de Costa Rica. Para las actividades paralímpicas, lo harán de acuerdo con los lineamientos que indique el Comité Paralímpico Internacional y los estatutos y reglamentos del Comité Paralímpico Nacional de Costa Rica. Para las actividades de olimpiadas especiales, lo harán conforme a los lineamientos de Olimpiadas Internacionales y los reglamentos y estatutos de Olimpiadas Especiales Costa Rica".
+8°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 27 "El Instituto deberá coordinar con las federaciones y asociaciones deportivas de representación nacional, así como con el Comité Olímpico de Costa Rica, lo relativo a la organización y participación en la alta competición, especialmente lo relativo a ayuda técnica y económica, préstame o facilitación de instalaciones deportivas y concesión de exoneraciones, lo cual deberá estar contemplado en los planes y proyectos anuales que dichas entidades privadas deben presentar y mediante el establecimiento del respectivo convenio".
+9°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 28 "La Comisión Permanente de Selecciones Nacionales, creada por la Ley, será la encargada de elaborar la lista de deportistas de alto nivel que, sin que figuren en las competencias de Ciclo Olímpico, demuestren un nivel de esfuerzo, preparación, constancia y dedicación que los hagan merecedores de los beneficios que la ley y demás disposiciones atinentes otorguen a este tipo de atletas".
+10°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 29 "Para el otorgamiento de la calificación de deportista de alto nivel, se requerirá la solicitud expresa de la asociación o federación de representación nacional a la que se encuentre afiliado el atleta, un resumen de la labor realizada, de su plan de trabajo, una proyección de las metas a alcanzar a corto, mediano y largo plazo, y la lista de sus necesidades técnicas y económicas para lograr dichas metas".
+11°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 30 "El Instituto procurará la celebración de convenios con centros educativos, centros de trabajo y demás entidades públicas o privadas, que le permitan facilitar la preparación técnica, la incorporación al sistema educativo y la plena integración profesional de los deportistas de alto nivel durante su carrera deportiva y al final de ella, en procura de su bienestar económico y social".
+12°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 33 "Para participar en competencias internacionales, las federaciones y asociaciones de representación nacional integrarán sus respectivas selecciones nacionales con los mejores atletas de cada especialidad, tomando en cuenta su rendimiento, marcas y tiempos alcanzados de conformidad con los criterios establecidos previamente en sus planes, programas y proyectos. Una vez conformadas dichas representaciones, deberán informar a la Comisión de Selecciones Nacionales su integración y los criterios de escogencia".
+13°- Que el Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreación (ICODER) y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación en el artículo 35 incisos a, c, e, "Corresponde a la Comisión de Selecciones, entre otras, las siguientes funciones: a) Revisar los planes, proyectos y programas de selecciones nacionales que debe preparar y remitir cada Federación o Asociación Deportiva de Representación Nacional y remitirlos al Consejo para su aprobación definitiva. La Comisión podrá hacer objeciones y recomendaciones a la entidad respectiva en torno a esos planes, proyectos y programas, con el propósito de salvaguardar la salud de los atletas o procurar el éxito de la participación. c) Elaborar y ejecutar un plan permanente de consecución de recursos para el fondo de selecciones, e) Verificar que la participación de los atletas en competencias nacionales e internacionales corresponda con criterios de estricto rendimiento deportivo.
+14°- Que dentro de las atribuciones del Instituto Costarricense del Deporte y la Recreación se encuentran velar por que en la práctica del deporte, en especial el de alto rendimiento o competitivo, se observen obligatoriamente las reglas y recomendaciones dictadas por las ciencias del deporte y la técnica médica, como garantía de la integridad de la salud de la persona deportista, así el coordinar con los órganos o entidades estatales correspondientes para garantizar la salud y seguridad de los deportistas y demás agentes que participen en los eventos deportivos y recreativos.
+15°- Que la propuesta del presente reglamento fue sometido a consulta pública, por un plazo de 10 días hábiles a partir del día inmediato siguiente a la publicación del Aviso de Consulta Pública realizado el día 17-04-2023 al 28-04-2023, en la página Web del Instituto Costarricense de Deporte y la Recreación. Todo de conformidad con lo preceptuado en el artículo 361 de la Ley General de la Administración Pública.
+16°-Que mediante el Informe No. DMR-DAR-INF-111-2024 el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio, aprobó el trámite del presente Reglamento.
+POR TANTO
+Incentivos para los deportistas de Alto Nivel
+INDICE:
+Páginas
+TITULO I 5
+PRINCIPIOS GENERALES 5
+ARTICULO 1. OBJETIVO GENERAL......................................................................................... 5
+ARTICULO 2. OBJETIVOS ESPECÍFICOS................................................................................. 5
+ARTICULO 3. ABREVIATURAS .......................................................................................... 6
+ARTICULO 4. DEFINICIONES. ............................................................................................ 6
+ARTICULO 5. Estructura de la Comisión Permanente de Selecciones Nacionales. ...................... 9
+ARTICULO 6. COORDINADOR DE LA COMISIÓN PERMANENTE DE SELECCIONES
+NACIONALES. ............................................................................................................................ 10
+ARTICULO 7. DE LA COMISIÓN PERMANENTE DE SELECCIONES
+NACIONALES ................................................................................... 11
+TÍTULO II ........................................................................................ 12
+Lista de personas deportistas de alto nivel, Seguros y Proceso de
+Gestión de La Salud Deportiva ICODER 12
+ARTICULO 8. Lista de personas deportistas de alto nivel ....................... 12
+ARTICULO 9. Seguros ...................................................................... 12
+ARTICULO 10. Proceso de Gestión de La Salud Deportiva ..................... 13
+TÍTULO III ....................................................................................... 13
+Becas deportivas para personas atletas Seleccionados Nacionales 13
+Artículo 11. REQUISITOS PARA OPTAR POR UNA BECA: ........................ 13
+ARTÍCULO 12. OBLIGACIONES DE LOS BECARIOS Y DE LAS ENTIDADES
+DEPORTIVAS. .................................................................................. 14
+ARTÍCULO 13. PERÍODO DE CONVOCATORIA, EVALUACIÓN Y
+APROBACIÓN: ................................................................................. 16
+ARTÍCULO 14 DE LA SUSPENSIÓN DEL BENEFICIO. ............................. 18
+CRITERIOS DE EVALUACIÓN DE BECAS ............................................... 20
+ARTÍCULO 15 OBJETIVO DE LOS CRITERIOS DE EVALUACIÓN BECAS ..... 20
+ARTÍCULO 16 PUNTOS A EVALUAR POR LA CPSN: ................................ 20
+ARTÍCULO 17 ATLETAS CLASIFICADOS A EVENTOS DEL CICLO OLÍMPICO Y
+PARALÍMPICO 21
+ARTÍCULO 18 DEL PROCESO DE SALUD DEPORTIVA ............................. 21
+ARTÍCULO 19 DEL LOS MONTOS Y CATEGORÍAS PARA ASIGNAR UNA BECA
+ECONÓMICA. 22
+ARTÍCULO 20 BECAS AL PROGRAMA OLÍMPICO Y PARALÍMPICO. .............. 38
+TÍTULO IV 39
+Permisos para funcionarios públicos o estudiantes 39
+ARTÍCULO 21 PERMISOS PARA FUNCIONARIOS PÚBLICOS O ESTUDIANTES.
+..................................................................................................... 39
+TÍTULO V 40
+Disposiciones finales 40
+ARTICULO 22 SUBSIDIOS DADOS POR OTRAS INSTANCIAS. ................ 41
+ARTICULO 23 SOBRE EL PRESUPUESTO............................................. 41
+ARTICULO 24 DERROGA DE REGLAMENTO ANTERIOR ........................... 41
+ARTICULO 27 VIGENCIA .................................................................. 41
+TITULO I
+PRINCIPIOS GENERALES
+ARTICULO 1. OBJETIVO GENERAL
+Otorgar a las personas atletas o paraatletas Seleccionados Nacionales de Alto Nivel diferentes incentivos, con el fin de que sean utilizados en mantener o mejorar su rendimiento deportivo, quienes serán evaluados por la Comisión Permanente de Selecciones Nacionales con parámetros y criterios técnicos establecidos, luego de obtener resultados importantes durante el último período anual competitivo o que poseen un alto potencial para el alto rendimiento competitivo, comprobado y certificado por la Entidad Deportiva de Representación Nacional.
