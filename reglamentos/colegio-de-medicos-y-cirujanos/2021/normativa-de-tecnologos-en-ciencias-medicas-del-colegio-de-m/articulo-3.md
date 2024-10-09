@@ -4,6 +4,8 @@ Artículo 3°-De las tecnologías autorizadas. El Colegio de Médicos y Cirujano
 3.1. Citología. Se reconoce como sinónimo los siguientes términos: Citotecnología.
 3.2. Disección. Se reconoce como sinónimo, los siguientes términos: disección de autopsias; Disección y tanatopraxia.
 3.3. Electrocardiografía.
+Se reconoce como sinónimo, el siguiente término Electrocardiografía y Prácticas Cardiológicas.
+(Así reformado el inciso 3.3) anterior mediante sesión 2024-10-09 del 9 de octubre del 2024)
 3.4. Encefalografía.
 3.5. Se reconocen como sinónimos, los siguientes términos: Emergencias y Rescate; Emergencias Médicas y Rescate; Emergencias Médicas Prehospitalarias y Rescate; Urgencias Médicas; Atención pre Hospitalaria y Atención Prehospitalaria y en Emergencias; Emergencias Médicas Prehospitalarias.
 (Así reformado el inciso anterior en sesión ordinaria 2022-05-18 del 18 de mayo de 2022)
