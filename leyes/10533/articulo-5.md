@@ -1,0 +1,2 @@
+ARTÍCULO 5- Pagos por servicios ecosistémicos marinos, oceánicos y costeros
+El Fondo Azul reconocerá el pago por servicios ecosistémicos marino-costeros a las personas físicas o jurídicas, públicas o privadas, para la implementación de proyectos de uso sostenibles, recuperación, servicios de aprovisionamiento, regulación, soporte ecológico y culturales. Estos deben incluir beneficios para mejorar las condiciones socioeconómicas a los personas físicas o jurídicas.
