@@ -1,2 +1,0 @@
-Artículo 25.—Toda infracción a las disposiciones contenidas en este Reglamento, podrá ser motivo suficiente para la suspensión temporal de la Caja Chica Auxiliar, sin perjuicio de lo que disponen los Artículos 6 y 7 de la Ley de Administración Financiera de la República.
-(Modificada su numeración por el artículo 1 del Reglamento Nº 3-97 de 07 de enero de 1997, publicado en La Gaceta No. 38 de 24 de febrero de 1997, que lo pasó del 23 al 25)

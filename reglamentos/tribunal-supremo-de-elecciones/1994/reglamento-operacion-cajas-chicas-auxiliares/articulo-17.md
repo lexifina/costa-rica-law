@@ -1,1 +1,0 @@
-Artículo 17.— El reintegro de un gasto efectuado deberá solicitarse necesariamente dentro de los veintidós días inmediatos siguientes a aquel en que se hizo el pago.Los documentos que respaldan el gasto serán revisados por el Contador o el funcionario que lo sustituya en cuanto a autenticidad e integridad y serán sellados para evitar su posterior uso.

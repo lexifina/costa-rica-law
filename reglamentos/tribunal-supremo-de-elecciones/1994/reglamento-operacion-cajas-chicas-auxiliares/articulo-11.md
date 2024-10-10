@@ -1,1 +1,0 @@
-Artículo 11.—Todo pago por medio de Caja Chica debe Contar con su correspondiente contenido presupuestario y será responsabilidad del encargado de la Caja Chica Auxiliar, velar por el cumplimiento de esta disposición, una vez que el Contador o el funcionario que lo sustituya haya advertido la falta de recurso en alguna subpartida.

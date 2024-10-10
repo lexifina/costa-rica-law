@@ -1,1 +1,0 @@
-Artículo 20.—La Caja Chica Auxiliar estará asignada al Jefe del Departamento o quien se autorice, quien será responsable de la correcta operación de esos fondos, ante el Contador o el funcionario que lo sustituya.

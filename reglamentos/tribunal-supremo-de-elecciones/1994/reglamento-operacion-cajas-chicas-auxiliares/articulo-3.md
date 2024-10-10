@@ -1,1 +1,0 @@
-Artículo 3°.—El monto de Caja Chica Auxiliar será fijado y autorizado por el Tribunal Supremo de Elecciones, en coordinación con el Contador o el funcionario que lo sustituya, de acuerdo a las necesidades a cubrir en cada caso.

@@ -1,2 +1,0 @@
-Artículo 8°.— Se autoriza a las Cajas Chicas Auxiliares a mantener un fondo de efectivo que no deberá exceder de 0 5.000,00 (cinco mil colones exactos).
-Con estos fondos se cubrirán cuentas menores de 0 500 (quinientos colones), se exceptúa la Caja Chica de la Proveeduría del Tribunal que podrá disponer de un fondo de efectivo hasta por un monto que no exceda los (¢ 20.000,00 (veinte mil colones exactos) para atender con eficiencia los pagos menores de (¢ 2.000,00 (dos mil colones exactos) que deban cubrirse.

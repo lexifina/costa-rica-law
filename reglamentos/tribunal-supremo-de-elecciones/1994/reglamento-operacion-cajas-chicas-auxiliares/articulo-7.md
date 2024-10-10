@@ -1,2 +1,0 @@
-Artículo 7°.— Periódicamente y sin previo aviso, el Contador o el funcionario que lo sustituya efectuará arqueos de las Cajas Chicas Auxiliares e informará de los resultados al Tribunal Supremo de Elecciones, si encuentra alguna situación irregular.
-Cuando se estime necesario se enviará una copia del arqueo a la Tesorería Nacional.Estos fondos estarán sujetos a arqueos periódicos por parte de la Tesorería Nacional y la Contraloría General de la República. El encargado de esta operación está obligado a brindarla información requerida para tales efectos.

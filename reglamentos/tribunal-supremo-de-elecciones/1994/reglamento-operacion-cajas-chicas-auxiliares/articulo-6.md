@@ -1,2 +1,0 @@
-Artículo 6°.—Los responsables de las Cajas Chicas Auxiliares deberán presentar periódicamente liquidaciones al Contador, o el funcionario que lo sustituya. Dichas liquidaciones reflejarán, a la fecha, el efectivo disponible y el detalle de la documentación comprobatoria de los desembolsos por Caja Chica.
-La liquidación debe ser realizada por una persona distinta a la encargada de la Caja Chica Auxiliar.

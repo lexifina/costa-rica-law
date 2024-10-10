@@ -1,2 +1,0 @@
-Artículo 24.—Los aspectos no contemplados en este Reglamento se regirán por la ley de Administración Financiera de la República, la ley de Administración Pública, el Reglamento de la Contratación Administrativa, el Reglamento General de Cajas Chicas y otras leyes conexas.
-(Modificada su numeración por el artículo 1 del Reglamento Nº 3-97 de 07 de enero de 1997, publicado en La Gaceta No. 38 de 24 de febrero de 1997, que lo pasó del 22 al 24)

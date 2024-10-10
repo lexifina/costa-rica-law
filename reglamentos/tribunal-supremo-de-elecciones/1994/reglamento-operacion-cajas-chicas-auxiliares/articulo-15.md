@@ -1,1 +1,0 @@
-Artículo 15.—La liquidación de los anticipos debe producirse dentro del quinto día hábil siguiente al retiro del dinero. El encargado de la Caja Chica Auxiliar será el responsable de gestionar su cobro oportunamente. El incumplimiento de esta disposición será sancionada de conformidad con las disposiciones del Reglamento Interno de Trabajo del Tribunal Supremo de Elecciones.

@@ -1,1 +1,0 @@
-Artículo 19.— En ausencia de los responsables de las Cajas Chicas Auxiliares, deberá asignarse un nuevo responsable, al que se le entregará el Fondo mediante arqueo previo realizado por el Contador o el funcionario que lo sustituya.
