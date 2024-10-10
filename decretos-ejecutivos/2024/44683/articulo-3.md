@@ -1,0 +1,1 @@
+Artículo 3º-Derogatoria. Deróguese el inciso zz) del artículo 9, los incisos k), l), m), n), o), y q) del artículo 40 del Decreto Ejecutivo N°37457-MEIC del 2 de noviembre del 2012, Reglamento a la Ley N°6054, Ley Orgánica del Ministerio de Economía, Industria y Comercio, publicado en el Alcance N°3, del Diario Oficial La Gaceta N°6 del 09 de enero del 2013.

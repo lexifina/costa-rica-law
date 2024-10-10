@@ -1,0 +1,5 @@
+Artículo 2º-Adición. Adiciónese los incisos u) y v) al artículo 47; todos del Decreto Ejecutivo N°37457-MEIC del 2 de noviembre del 2012, Reglamento a la Ley N°6054, Ley Orgánica del Ministerio de Economía, Industria y Comercio, publicado en el Alcance N°3, del Diario Oficial La Gaceta N°6 del 09 de enero del 2013, para que en lo sucesivo se lean de la siguiente manera:
+"Artículo 47.-Generalidades. Todas las direcciones, unidades y departamentos, además de las funciones que le corresponden deberán cumplir con las siguientes:
+(.)
+u. Brindar la información en tiempo y forma solicitada por la Unidad de Planificación Institucional, en relación con las disposiciones y recomendaciones emitidas por la Contraloría General de la República, otros entes fiscalizadores y la Auditoría Interna del MEIC; esto, dado al seguimiento y monitoreo que debe realizar esa unidad
+v. Brindar a la Unidad de Planificación Institucional la información pertinente para el registro, control y seguimiento de los instrumentos de cooperación nacional e internacional, proyectos nacionales e internacionales, e instrumentos de planificación.
