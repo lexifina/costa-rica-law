@@ -1,1 +1,0 @@
-Artículo 19.—Del límite del gasto. Salvo los adelantos de gastos de viaje en el interior y en el exterior del país, ninguna compra de bienes o servicios, con cargo a caja chica, podrá exceder el monto establecido por la Tesorería Nacional, sin embargo, el Tribunal Supremo de Elecciones podrá autorizar gastos por montos superiores para la adquisición de bienes y servicios.

@@ -1,2 +1,0 @@
-Transitorio único.—La Contaduría tendrá a partir de la vigencia de este Reglamento nueve meses para emitir el Manual de Operación, estableciendo, en forma detallada, clara y precisa, las rutinas de trabajo relacionadas con el manejo del Fondo y los responsables de ejecutarlas, en concordancia con lo que señala el artículo 3º del presente Reglamento.
-Dado en San José, a las once horas con treinta minutos del ocho de febrero de dos mil siete

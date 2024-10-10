@@ -1,6 +1,0 @@
-Artículo 18.—De los comprobantes de pago. Todo pago por medio del sistema de cajas chicas estará respaldado por una factura comercial, con los requisitos que se detallan en el párrafo siguiente, y por medio de formularios previamente confeccionados por la Administración. En caso de giras dentro del territorio nacional y que en razón del servicio no existiera factura que justifique el gasto, se dispondrá de una boleta previamente diseñada que lo compruebe.
-Toda factura comercial que respalde la compra de mercancías o pago de servicios, debe cumplir los siguientes requisitos para su reintegro:
-a) Estar confeccionada en original a nombre del Tribunal Supremo de Elecciones, con descripción de los bienes o servicios adquiridos y la fecha de compra. Cuando sea por un servicio de reparación de equipo o maquinaria deberá traer consignado el número de patrimonio o serie del bien. En los casos de vehículos automotores deberá consignarse el número de placa de circulación.
-b) Sello de cancelación, así como firma y número de cédula de identidad de la persona física proveedora o bien cédula jurídica de la casa comercial.
-c) No incluir en una misma factura bienes o servicios de diferente código presupuestal.
-d) No contener borrones, tachaduras ni alteraciones.

@@ -1,1 +1,0 @@
-Artículo 23.—Del libro de caja. Con el objeto de registrar los movimientos de las cuentas corrientes se llevará un Libro de Caja debidamente foliado y con razón de apertura por parte de la Auditoría Interna, en donde se anotarán los depósitos y cheques en forma cronológica.

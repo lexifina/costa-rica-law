@@ -1,1 +1,0 @@
-Artículo 12.—Del contenido presupuestario. Todo pago por medio de caja chica debe contar con su correspondiente contenido presupuestario y será responsabilidad del Contador del Tribunal el cumplimiento de esta disposición. En el caso de las cajas chicas auxiliares éste estará en la obligación de advertir la falta del recursos económico en alguna subpartida.

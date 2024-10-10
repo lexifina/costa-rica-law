@@ -1,1 +1,0 @@
-Artículo 14.—Clasificador por el objeto del gasto del sector público. Las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por Fondo Fijo-Caja Chica se establecerán atendiendo el Clasificador por el Objeto del Gasto del Sector Público, emitido por la Tesorería Nacional.
