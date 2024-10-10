@@ -14,3 +14,4 @@ Reglamento para la aplicación de teletrabajo en el Ministerio de Relaciones Ext
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-03-04 | la propia norma |
+| 2 | 2024-10-10 | Decreto Ejecutivo 44761 (2024-10-10) |
