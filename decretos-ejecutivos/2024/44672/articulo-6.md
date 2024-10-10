@@ -1,0 +1,2 @@
+Artículo 6º-De la definición de la modalidad de teletrabajo para la persona funcionaria.
+Una vez que se cuente con el criterio positivo del Departamento Gestión Institucional de Recursos Humanos, acerca de los puestos teletrabajables, corresponde a la jefatura inmediata y a la persona interesada en laborar bajo esta modalidad, suscribir el respectivo contrato, debiendo la jefatura supervisar que las tareas previamente autorizadas se ejecuten en tiempo y forma.

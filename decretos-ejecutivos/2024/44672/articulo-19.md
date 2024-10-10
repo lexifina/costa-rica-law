@@ -1,0 +1,2 @@
+Artículo 19.-Del presupuesto para capacitación de la Comisión y promoción del teletrabajo.
+La Comisión Institucional de Teletrabajo deberá gestionar anualmente ante el Viceministerio de Gestión Estratégica u Oficialía Mayor, los recursos necesarios para la capacitación constante de sus miembros, así como los recursos necesarios para que se adquiera equipo y programas informáticos que sean necesarios para facilitar el teletrabajo en los puestos teletrabajables que considere de su interés.

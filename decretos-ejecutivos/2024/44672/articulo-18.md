@@ -1,0 +1,3 @@
+Artículo 18.-Sobre el funcionamiento de la Comisión Institucional de Teletrabajo
+La Comisión Institucional de Teletrabajo deberá sesionar de manera ordinaria una vez al mes y de manera extraordinaria las veces que se consideren necesarias. El quorum necesario para sesionar será de cuatro miembros, siempre que esté presente la persona coordinadora o su sustituto(a). Las decisiones se tomarán por mayoría absoluta de los(as) miembros presentes. En caso de empate, la persona Coordinadora tendrá voto de calidad.
+La Comisión se regirá en lo no dispuesto en este Reglamento, por lo que señala la Ley General de Administración Pública, en cuanto a órganos colegiados.
