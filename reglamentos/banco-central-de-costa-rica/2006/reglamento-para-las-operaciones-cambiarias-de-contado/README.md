@@ -36,3 +36,4 @@ Reglamento para las Operaciones Cambiarias de Contado
 | 21 | 2020-11-25 | Reglamento 5973 (2020-11-25) |
 | 22 | 2022-02-23 | Reglamento 6049 (2022-02-23) |
 | 23 | 2022-11-29 | Reglamento 6094 (2022-11-29) |
+| 24 | 2024-10-10 | Reglamento 6215 (2024-10-10) |
