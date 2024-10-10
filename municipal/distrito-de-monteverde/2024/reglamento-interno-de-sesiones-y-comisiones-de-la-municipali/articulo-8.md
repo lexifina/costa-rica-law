@@ -1,0 +1,1 @@
+Artículo 8°-Las mociones de orden tendrán el privilegio de ser presentadas en forma oral. La Presidencia del Concejo les dará trámite inmediatamente después de que termine quien está haciendo uso de la palabra. El proponente deberá motivarla. Sin discusión, deberá someterse a votación.

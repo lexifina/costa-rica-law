@@ -1,0 +1,1 @@
+Artículo 11.-Los acuerdos quedarán definitivamente aprobados con la aprobación del acta respectiva en la sesión ordinaria siguiente a aquella en que fueron tomados, salvo que, previa moción de orden, con una votación de al menos cuatro regidores, se decida declararlos firmes en la misma sesión en que fueron tomados.

@@ -1,0 +1,1 @@
+Artículo 10.-Los acuerdos se tomarán válidamente con una mayoría de al menos tres votos, salvo en los asuntos referentes a nombramientos, cuya votación se regirá por mayoría simple, o en aquellos en que el Código Municipal o este Reglamento dispongan una mayoría diferente.
