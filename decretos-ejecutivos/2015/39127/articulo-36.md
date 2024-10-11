@@ -1,2 +1,3 @@
-Artículo 36.—Incorporación a la Carrera del Servicio Exterior. Una vez aprobado el año de prueba y cumplidos los requisitos correspondientes, la Comisión Calificadora declarará la incorporación definitiva de los funcionarios que corresponda a la Carrera del Servicio Exterior.
+Artículo 36.-Incorporación a la Carrera del Servicio Exterior. Una vez aprobado el año de prueba y cumplidos los requisitos correspondientes, la Comisión Calificadora declarará la incorporación definitiva de los funcionarios que corresponda a la Carrera del Servicio Exterior. El acto mediante el cual, se formalizará la incorporación a la carrera diplomática será el acuerdo ejecutivo, de conformidad con lo establecido en el artículo 140 inciso 2) y 146 de la Constitución Política.
 El año laborado en período de prueba será computado para efectos de antigüedad.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44718 del 11 de octubre del 2024)

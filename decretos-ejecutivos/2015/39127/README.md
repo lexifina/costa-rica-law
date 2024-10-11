@@ -18,3 +18,4 @@ Reglamento del Concurso de Oposición y el Ingreso a la Carrera del Servicio Ext
 | 3 | 2019-02-25 | Decreto Ejecutivo 41638 (2019-02-25) |
 | 4 | 2020-04-30 | Decreto Ejecutivo 42390 (2020-04-30) |
 | 5 | 2022-04-04 | Decreto Ejecutivo 43468 (2022-04-04) |
+| 6 | 2024-10-11 | Decreto Ejecutivo 44718 (2024-10-11) |
