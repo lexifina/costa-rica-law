@@ -1,6 +1,6 @@
 # Tratado de Libre Comercio con la República del Perú
 
-Tratados Internacionales N° 9133 del 2013-04-25. SINALEVI, ficha 75726: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75726&param2=109014&param3=1>.
+Tratados Internacionales N° 9133 del 2013-04-25. SINALEVI, ficha 75726: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=75726&param2=142881&param3=1>.
 
 Publicada en La Gaceta N° 81 del 2013-04-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 2013-06-01 | SINALEVI (1 normas) | 2013-04-25 |
 | 2 de 4 | 2017-07-21 | Resolución 12 (2017-07-12) | 2017-07-12 |
+| 3 de 4 | 2024-10-11 | Decreto Ejecutivo 44681 (2024-07-03) | 2024-07-03 |
