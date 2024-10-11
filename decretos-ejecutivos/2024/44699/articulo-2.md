@@ -1,0 +1,1 @@
+Artículo 2º. Los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública, no podrán utilizar armas de fuego descritas en el artículo anterior, cuando intervengan en huelgas o manifestaciones en el ejercicio de sus funciones.
