@@ -1,0 +1,31 @@
+Nº 44676 - COMEX - MEIC - MINAE
+EL PRESIDENTE DE LA REPÚBLICA Y
+LOS MINISTROS DE COMERCIO EXTERIOR,
+DE ECONOMÍA, INDUSTRIA Y COMERCIO Y
+DE AMBIENTE Y ENERGÍA
+De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3), 8), 10), 18) y 20); y 146 de la Constitución Política; los artículos 4, 25, 27 inciso 1, 28 inciso 2) acápite b) y 142 párrafo 2 de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; el artículo 2 incisos a), b) y d) de la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley Nº 7638 del 30 de octubre de 1996; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977; la Ley del Sistema Nacional para la Calidad, Ley Nº 10473 del 24 de abril de 2024; la Ley Orgánica del Ministerio del Ambiente y Energía, Ley Nº 7152 del 05 de junio de 1990; los artículos 1, 2, 5, 7, 15, 26, 30, 36, 37, 38, 39, 46, 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley de Aprobación Nº 7629 del 26 de septiembre de 1996; y
+CONSIDERANDO:
+I.- Que el Consejo de Ministros de Integración Económica (COMIECO), mediante la Resolución Nº 488- 2024 (COMIECO-CVI) de fecha 30 de abril de 2024, resolvió: "Modificar el numeral 2 de la Resolución Nº -175-2023 (COMIECO-EX), del 05 de junio de 2023 ", en la forma en la forma que aparece en el numeral 1 de la parte dispositiva de dicha Resolución.
+II.- Que Costa Rica mediante el Decreto Ejecutivo Nº 44418-COMEX-MEIC-MINAE del 04 de octubre de 2023, publicado en el Alcance Nº 78 al Diario Oficial La Gaceta Nº 73 del 25 de abril de 2024; promulgó la Resolución Nº 475-2023 (COMIECO-EX) del Consejo de Ministros de Integración Económica de fecha 05 de junio de 2023 y su Anexo: "Reglamento Técnico Centroamericano RTCA 97.01.81:22 Productos Eléctricos. Refrigeradores y Congeladores Electrodomésticos. Especificaciones de Eficiencia Energética", de manera que, de conformidad con el numeral I de la parte dispositiva de la Resolución Nº 488-2024 (COMIECO-CVI) de fecha 30 de abril de 2024, es necesario adecuar el ordenamiento jurídico nacional a las normas regionales, por lo que, se debe modificar el Decreto Ejecutivo de cita.
+III.- Que en cumplimiento de lo indicado en el numeral 2 de la parte dispositiva de la Resolución Nº 488-2024 (COMIECO-CVI) de fecha 30 de abril de 2024, se procede a su publicación.
+Por tanto;
+DECRETAN:
+Publicación de la Resolución Nº 488-2024 (COMIECO-CVI) de fecha 30 de abril de 2024, que
+resolvió: "Modificar el numeral 2 de la Resolución Nº 475-2023 (COMIECO-EX), del 05 de junio
+de 2023".
+Artículo 1.- Publíquese la Resolución Nº 488-2024 (COMlECO-CVI) de fecha 30 de abril de 2024, que resolvió: "Modificar el numeral 2 de la Resolución Nº 475-2023 (COMIECO-EX), del 05 de junio de 2023 ", que a continuación se transcribe:
+CONSIDERANDO:
+Que de conformidad con los artículos 38, 39 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana (Protocolo de Guatemala), modificado por la Enmienda del 27 de febrero de 2002, el Consejo de Ministros de Integración Económico (COMIECO), tiene bajo su competencia los asuntos de la Integración Económica Centroamericana y, como tal, le corresponde aprobar los actos administrativos aplicables en los Estados Parte del Subsistema Económico; Que según los artículos 7 y 26 del Protocolo de Guatemala, los Estados Parte han convenido establecer un proceso de armonización regional de la normativa técnica;
+Que mediante la Resolución No. 475-2023 (COMIECO-EX), del S de junio de 2023, el COMIECO aprobó el Reglamento Técnico Centroamericano RTCA 97.01.81:22 Productos Eléctricos. Refrigeradores y Congeladores Electrodomésticos. Especificaciones de Eficiencia Energética y se dispuso que entraría en vigor para la Republica de El Salvador, el 5 de diciembre de 2023 y para las Repúblicas de Costa Rica, Guatemala, Honduras, Nicaragua y Panamá, el 5 de junio de 2024; Que los Estados Parte han identificado la necesidad de ampliar la fecha de entrada en vigor para Costa Rica, Nicaragua y Guatemala, a fin de asegurar una correcta implementación del RTCA 97 .01.81:22 Productos Eléctricos. Refrigeradores y Congeladores Electrodomésticos.
+Especificaciones de Eficiencia Energética;
+Que el COMIECO se puede reunir de manera virtual mediante el sistema de videoconferencia, en cuyo caso, le corresponde a la Secretaria de Integración Económica Centroamericana (SIECA) recopilar la firma de cada uno de los Ministros o Viceministros, según corresponda, en su respectivo país,
+POR TANTO:
+Con fundamento en lo dispuesto en los articulas 1, 2, 5, 7, 15, 26, 36, 37, 38, 39, 46, 52 y 55 del Prot9colo de Guatemala, y 26, 28, 40 y 41 del Reglamento de Organización y Funcionamiento de los Consejos: de Ministros de Integración Económica, intersectorial de Ministros de Integración y Sectorial de Ministros de Integración Económica,
+RESUELVE:
+1. Modificar el numeral 2 de Ia Resolución No. 475-2023 (COMIECO-EX), del 5 de junio de 2023, de la siguiente manera:
+"La presente Resolución entrara en vigor para la República de El Salvador, el 5 de diciembre de 2023; para las Repúblicas de Honduras y Panamá, el 5 de junio de 2024 y para las Repúblicas de Costa Rica, Guatemala y Nicaragua, el 5 de diciembre de 2024 y será publicada por los Estados Parte."
+2. La presente Resolución entra en vigor a partir de la presente fecha y será publicada por los Estados Parte.
+Centroamérica, 30 de abril de 2024
+[imagen]
+El infrascrito Secretario General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que la presente fotocopia y la que le antecede, impresas únicamente en su anverso, impresas únicamente en su anverso, todas rubricadas y selladas con el sello de la SIECA reproducen fielmente la Resolución No. 488-2024 (COMIECO-CVI), adoptada por el Consejo de Ministros de Integración Económica, el treinta de abril de dos mil veinticuatro, en reunión virtual, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación. Extiendo la presente copia certificada en la Ciudad de Guatemala, Guatemala, el dieciséis de mayo de dos mil veinticuatro.
+[imagen]
