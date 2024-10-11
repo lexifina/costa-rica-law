@@ -1,0 +1,1 @@
+Artículo 15.- Ausencias temporales del titular de la Auditoría Interna. Las ausencias temporales del titular de la Auditoría Interna serán suplidas por un funcionario de la Auditoría Interna, con apego a las normas legales, lineamientos y políticas institucionales aplicables, al efecto.

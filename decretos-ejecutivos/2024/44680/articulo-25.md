@@ -1,0 +1,1 @@
+Artículo 25.- Asesoría. Cuando así lo requiera la Auditoría Interna, todas las Direcciones, Departamentos, Unidades ·y equipos de trabajo (foros), tienen el deber de brindarle un oportuno y efectivo servicio de asesoría en sus ámbitos de actividad.

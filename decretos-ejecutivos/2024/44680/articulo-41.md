@@ -1,0 +1,1 @@
+Artículo 41.- Acceso a informes. Previo a la emisión del informe final, la información relativa a los servicios de auditoría contemplados en esta sección es de acceso restringido. Una vez comunicado el informe a la Administración Activa, dicho informe y la documentación relacionada son de libre acceso por parte de cualquier persona pública o privada.

@@ -1,0 +1,1 @@
+Artículo 12.- Organización por procesos. La Auditoría Interna se organizará bajo el enfoque de administración de procesos para garantizar la efectividad en el cumplimiento de sus competencias, así como una administración basada en la gestión de la calidad, en la eficacia y optimización de las operaciones y en la economía de los recursos que le sean asignados.

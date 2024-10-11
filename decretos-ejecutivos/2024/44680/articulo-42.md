@@ -1,0 +1,3 @@
+SECCIÓND:
+DEL ANÁLISIS DE PRESUNTOS HECHOS IRREGULARES
+Artículo 42.- Relaciones de hechos. El informe que se denomine relación de hechos sólo tratará sobre asuntos de los que puedan derivarse posibles responsabilidades administrativas y civiles, y compilará una serie de hechos presuntamente irregulares, acciones u omisiones, que se encuentran ligados por un nexo de causalidad a una falta y a un presunto responsable. La relación de hechos se pondrá en conocimiento del competente a fin de que pueda valorar la procedencia de la apertura de un procedimiento administrativo o cualquier otra acción que considere pertinente.

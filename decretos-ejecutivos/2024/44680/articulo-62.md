@@ -1,0 +1,1 @@
+Artículo 62.- Incumplimiento injustificado de las recomendaciones aceptadas. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implementación de las recomendaciones aceptadas por patte del funcionario responsable se hará del conocimiento del jerarca para lo que proceda, todo de conformidad con el artículo 39 de la Ley General de Control Interno.

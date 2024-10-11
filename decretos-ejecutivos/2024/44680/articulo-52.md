@@ -1,0 +1,1 @@
+Artículo 52.-Admisión de denuncias anónimas. Las denuncias anónimas serán atendidas en tanto aporten elementos de presunción suficientes y se encuentren soportadas en elementos que permitan iniciar la investigación. De lo contrario, la Auditoría Interna procederá a archivarlas.

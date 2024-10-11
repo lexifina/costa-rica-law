@@ -1,0 +1,1 @@
+Artículo 3.- Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y, en lo que resulte aplicable, para el resto de los funcionarios del Ministerio de Comercio Exterior.

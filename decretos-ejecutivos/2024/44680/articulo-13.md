@@ -1,0 +1,5 @@
+SECCIÓN D:
+DEL TITULAR DE LA AUDITORÍA INTERNA Y DEL PERSONAL A SU CARGO
+Artículo 13.- Nombramiento, suspensión y remoción del titular de la Auditoría Interna. El nombramiento del titular de la Auditoría Interna lo hará el Ministro de Comercio Exterior, mediante concurso público promovido; en aras de que la selección recaiga en el candidato idóneo para ocupar el puesto; todo lo cual deberá constar en el expediente respectivo. El expediente y la terna seleccionada deberán ser comunicados, en forma previa, a la Contraloría General de la República, la cual podrá analizar el proceso y aprobarlo o no. La Administración Activa deberá repetir el proceso a partir de la etapa donde se inició la objeción respectiva del Órgano Contralor.
+Dicho nombramiento será por tiempo indefinido, con sujeción al período de prueba establecido en la normativa institucional aplicable, y con una jornada de trabajo a tiempo completo. Tendrá garantía de inamovilidad en los términos estipulados por el artículo 31 de la Ley General de Control Interno.
+Los requisitos de su cargo y sus funciones estarán contenidos en el Manual de Perfiles de Puestos del Ministerio de Comercio Exterior.

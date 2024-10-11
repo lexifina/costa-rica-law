@@ -1,0 +1,1 @@
+Artículo 26.- Apoyo técnico. La Auditoría Interna podrá gestionar ante las autoridades institucionales, siguiendo los mecanismos pertinentes y cuando lo estime necesario, la incorporación de profesionales y técnicos en las diferentes disciplinas, para que realicen labores temporales de su especialidad en apoyo a su actividad.

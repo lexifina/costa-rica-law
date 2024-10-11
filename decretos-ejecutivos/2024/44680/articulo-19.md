@@ -1,0 +1,1 @@
+Artículo 19.- Archivo de la Auditoría Interna. La Auditoría Interna mantendrá el archivo pertinente, y conformará los expedientes necesarios para el correcto desarrollo de su actividad, organizándolo de conformidad con las necesidades que dicta la técnica aplicable y considerando el sistema de gestión documental institucional.

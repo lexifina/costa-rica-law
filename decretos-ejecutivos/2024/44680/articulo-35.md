@@ -1,0 +1,2 @@
+Artículo 35.- Servicios de autorización de libros. Consisten en la apertura y el cierre de los libros y registros de la Administración, relevantes para el control interno institucional, con base en la normativa aplicable y estableciendo la coordinación pertinente con la Administración Activa.
+Asimismo, a criterio de la Auditoría Interna, se le podrá solicitar a la Administración, la apertura de otros libros que sean necesarios para el fortalecimiento del sistema de control interno, todo de conformidad con inciso e) del a1tículo 22 de la Ley General de Control Interno.

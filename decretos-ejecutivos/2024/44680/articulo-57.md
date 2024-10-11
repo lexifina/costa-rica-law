@@ -1,0 +1,1 @@
+Artículo 57.- Resguardo de la identidad del denunciante. Todo documento de trabajo, razón de archivo o comunicación a terceros generado por la Auditoría Interna corno resultado de la denuncia que recibiera, deberá omitir la identidad del denunciante.

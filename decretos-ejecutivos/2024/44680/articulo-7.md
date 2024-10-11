@@ -1,0 +1,1 @@
+Artículo 7.- Objetividad individual. Es obligación de los funcionarios de la Auditoría Interna mantener una actitud imparcial y neutral, así como evitar los conflictos de intereses, atendiendo, para ello, lo dispuesto sobre el particular en el presente Reglamento y en las demás disposiciones que les resulten aplicables.

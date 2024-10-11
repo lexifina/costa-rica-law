@@ -1,0 +1,1 @@
+Artículo 37.- Informes parciales y finales. La Auditoría Interna, de acuerdo con su criterio, podrá emitir informes parciales durante el desarrollo de sus auditorías. Toda auditoría dará lugar a un informe final.

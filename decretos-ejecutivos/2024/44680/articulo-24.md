@@ -1,0 +1,1 @@
+Artículo 24.- Registro presupuestario. La Auditoría Interna, en colaboración con la unidad responsable del control del presupuesto institucional, mantendrá un registro de la asignación presupuestaria anual de la Auditoría Interna, detallado por objeto del gasto, para el control de su ejecución y el suministro periódico de información al Auditor Interno.
