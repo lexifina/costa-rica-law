@@ -1,0 +1,1 @@
+Artículo 7.-Funcionamiento de la Comisión de TI. En lo no previsto en este reglamento, la Comisión se regirá por los artículos 49 a 58 de la Ley General de la Administración Pública, en cuanto a la regulación de los órganos colegiados funcionará mediante sesiones ordinarias y extraordinarias.

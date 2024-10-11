@@ -1,0 +1,1 @@
+Artículo 13.- Atención a invitados La Comisión podrá convocar a las sesiones a técnicos o funcionarios de la Imprenta, de reconocida capacidad en la materia de Tecnología de Información, cuando sea necesario por la índole del tema a tratar, y para contar con el criterio técnico especializado en la toma de decisiones.

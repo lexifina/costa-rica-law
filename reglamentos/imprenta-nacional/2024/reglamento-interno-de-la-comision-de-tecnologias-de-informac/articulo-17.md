@@ -1,0 +1,1 @@
+Artículo 17.- Informes El informe del grupo de trabajo a tratar deberá presentarse ante el secretario (a), con ocho días de antelación, tras el plazo, por correo electrónico, para que los integrantes de la Comisión puedan conocer y valorarlo previa y posteriormente en el seno de esta.

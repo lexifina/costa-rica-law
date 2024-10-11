@@ -1,0 +1,1 @@
+Artículo 16.- Colaboración de técnicos y especialistas. Para obtener mayores elementos de juicio en sus resoluciones y recomendaciones, los grupos de trabajo podrán contar con el concurso de técnicos y especialistas en distintas materias, así como pedir el asesoramiento que sea necesario, previa autorización del director general de la Imprenta Nacional.
