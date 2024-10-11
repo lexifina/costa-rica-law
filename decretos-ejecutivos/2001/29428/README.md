@@ -30,3 +30,4 @@ Reglamento al Estatuto del Servicio Exterior de la República.
 | 15 | 2021-08-09 | Decreto Ejecutivo 43137 (2021-08-09) |
 | 16 | 2021-11-15 | Decreto Ejecutivo 43406 (2021-11-15) |
 | 17 | 2024-05-21 | Decreto Ejecutivo 44488 (2024-05-21) |
+| 18 | 2024-10-11 | Decreto Ejecutivo 44718 (2024-10-11) |
