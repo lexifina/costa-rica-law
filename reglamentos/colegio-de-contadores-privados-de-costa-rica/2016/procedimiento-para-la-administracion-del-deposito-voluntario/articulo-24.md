@@ -1,2 +1,0 @@
-Artículo 24.—Es procedente la actualización de beneficiarios en la fórmula oficial vigente, debidamente firmada por el afiliado y verificada por la administración del DEVOAS. Deberá hacerse ante dos testigos que firmarán el formulario respectivo.
-En ausencia de este trámite, se mantendrán como legítimos los establecidos en los comprobantes originales; sin que esta situación implique responsabilidad alguna para la administración del DEVOAS.

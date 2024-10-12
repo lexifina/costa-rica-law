@@ -1,2 +1,0 @@
-Artículo 10.—Todo reclamo por inconformidad de los afiliados o beneficiarios de éstos sobre una resolución, deberá presentarse ante la Junta Directiva del Colegio en un plazo no mayor de tres días hábiles después de recibida la notificación de la resolución. Ésta tendrá facultad para resolver dicho reclamo con el sustento jurídico y/o técnico respectivo.
-El plazo para reclamar la indemnización por defunción del afiliado es de diez años, contados a partir de la fecha real del deceso.

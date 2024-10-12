@@ -1,3 +1,0 @@
-Artículo 5 Bis: Para aquellos colegiados que solicitan la reincorporación por haberse dado de baja por morosidad, deberán cancelar lo adeudado al fondo DEVOAS a valor presente, aplicando la siguiente fórmula para calcular la indexación: una tasa compuesta por un factor fijo más uno variable.
-El factor variable corresponde a: La tasa de interés que pague el Banco Nacional de Costa Rica en sus certificados de depósito a plazo a 12 meses más un factor fijo de 5 puntos porcentuales, bajo ninguna circunstancia la tasa para este cobro será menor del 11% anual.
-(Aprobado en asamblea general extraordinaria 148- 2020, del 18 de enero de 2020).

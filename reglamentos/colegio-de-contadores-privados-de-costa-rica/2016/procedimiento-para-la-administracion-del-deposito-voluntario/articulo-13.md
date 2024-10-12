@@ -1,2 +1,0 @@
-Adelanto en vida por enfermedad en fase terminal
-Artículo 13.—Cuando se presente un caso de una enfermedad en fase terminal, debidamente certificada por una autoridad competente, se otorgará un adelanto equivalente al 25% de la ayuda social que le correspondería al afiliado; de conformidad con el artículo tres de este procedimiento, el cual se hará efectivo mediante un solo pago. Este adelanto se deducirá del monto que se gire al fallecer el afiliado.

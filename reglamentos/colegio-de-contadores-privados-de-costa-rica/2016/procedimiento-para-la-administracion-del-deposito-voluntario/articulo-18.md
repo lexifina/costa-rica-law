@@ -1,1 +1,0 @@
-Artículo 18.—El beneficio por incendio estará determinado por los períodos de cotización y los porcentajes correspondientes aplicados al monto base, de conformidad con lo expuesto en el art. 9 de este procedimiento.

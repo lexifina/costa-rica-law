@@ -1,1 +1,0 @@
-Artículo 27.—En caso de atraso reiterado, por parte de la administración, en el reintegro del dinero recaudado por concepto de rendimientos y otros a las cuentas del DEVOAS; la Junta Directiva o su tesorero tendrán facultad para exigir su pronto reintegro utilizando los mecanismos que estime convenientes, incluyendo la convocatoria a una asamblea para ese fin expreso.
