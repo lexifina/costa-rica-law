@@ -1,1 +1,2 @@
-Artículo 31.—Los Comités Comunales deben formar parte activa en la organización de los programas del Comité Cantonal.
+Artículo 31.-Los Comités Comunales de Deportes deberán llevar un registro al día de los nombres de los miembros de las diferentes comisiones, incluyendo en este la dirección y demás datos personales. Deberán también llevar un archivo administrativo y financiero en el que consten los informes referentes a cada uno de estos aspectos.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 30 al artículo 31)

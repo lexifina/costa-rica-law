@@ -1,4 +1,2 @@
-Artículo 92.—En las instalaciones deportivas está prohibido:
-a) El expendio y venta de bebidas alcohólicas, y cualquier tipo de droga o sustancias enervantes prohibidas por ley.
-b) El uso de calzado inadecuado para las instalaciones.
-c) La realización de actividades deportivas, culturales y sociales que no se enmarquen dentro de la naturaleza propia del inmueble, o de las condiciones para la debida protección y conservación de la infraestructura existente.
+Artículo 92.-Los equipos afiliados, los del programa de iniciación deportiva, equipos de liga menor y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos por el Comité Comunal, tendrán prioridad para el uso de instalaciones. Las competencias aficionadas tendrán preferencia sobre las no aficionadas o profesionales.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 91 al artículo 92)

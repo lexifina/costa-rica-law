@@ -1,1 +1,2 @@
-Artículo 29.—Los Comités Comunales deberán rendir un informe semestral de labores y de resultados obtenidos ante el Comité Cantonal, a más tardar treinta días después de finalizado el semestre.
+Artículo 29.-Los trámites que realicen los Comités Comunales de Deportes ante autoridades gubernamentales deberán contar con el visto bueno del Comité Cantonal de Deportes y Recreación.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 28 al artículo 29)

@@ -1,1 +1,2 @@
-Artículo 40.—Cada comisión deberá elaborar un plan de trabajo y rendirá un informe escrito en el plazo indicado al organismo u órgano respectivo, sobre las actividades realizadas y resultados obtenidos.
+Artículo 40.-Todas las comisiones estarán integradas como mínimo por tres personas. Podrán existir comisiones de finanzas, pro-instalaciones deportivas, administración de instalaciones deportivas, juegos nacionales, juegos colegiales, juegos escolares, iniciación deportiva, técnica, médica, así como todas aquellas otras que, a criterio del Comité Cantonal, Comité Comunal deban nombrarse según las necesidades.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 39 al artículo 40)

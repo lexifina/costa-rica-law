@@ -1,1 +1,2 @@
-Artículo 28.—Los trámites que realicen los Comités Comunales de Deportes ante autoridades gubernamentales deberán contar con el visto bueno del Comité Cantonal de Deportes y Recreación.
+Artículo 28.-En la primera sesión que se celebrará dentro de los cinco días naturales después de la fecha de su juramentación por el Comité Cantonal de Deportes, los miembros del Comité Comunal se reunirán y mediante votación nominal se designaran los cargos de presidente, vicepresidente, secretario, tesorero y vocal, quienes desempeñaran el cargo en forma ad honórem, por un periodo de un año, pudiendo ser reelectos por un periodo únicamente.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 27 al artículo 28)

@@ -1,1 +1,2 @@
-Artículo 58.—Existen dos tipos de votación: Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto; es secreta aquella votación que se haga mediante el uso de papeletas o por cualquier otro medio a juicio del organismo.
+Artículo 58.-Modificación de Acuerdos. Los acuerdos sólo podrán modificarse, cuando ello no lesione los derechos adquiridos e intereses legítimos de los administrados. En caso contrario, deberá procederse de conformidad con lo establecido en esta materia por el ordenamiento jurídico administrativo vigente.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 57 al artículo 58)

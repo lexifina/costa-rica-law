@@ -1,4 +1,2 @@
-Artículo 94.—Acceso y utilización de las Instalaciones Deportivas.
-a) El Comité Cantonal y Comunal, no se responsabiliza de los objetos o dinero que falten a los usuarios y aconseja a los mismos a acudir a las Instalaciones Deportivas Municipales sin objetos de valor.
-b) La responsabilidad de los actos que el público realice en las instalaciones municipales durante la celebración de espectáculos o competiciones recaerá exclusivamente sobre las entidades organizadoras.
-c) Los usuarios ayudarán a mantener la instalación limpia, utilizando los basureros que se hayan repartido por todas las zonas de la instalación. Deberán respetar y cuidar todo el mobiliario, bancos, jardines, arbolado, etc.
+Artículo 94.-Para la realización de eventos o actividades no deportivas como ferias, bingos, fiestas, etc., dentro de las instalaciones deportivas o en los alrededores de las mismas, debe contarse con la autorización escrita del Comité Cantonal. Para su otorgamiento el Comité podrá exigir una garantía de cumplimiento en dinero constante, por un monto suficiente, para resarcir el pago de los eventuales daños que puedan ocasionarse al inmueble.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 93 al artículo 94)

@@ -1,1 +1,4 @@
-Artículo 98.—Sobre la persona autorizada para la firma de los Convenios. De conformidad con lo establecido en el artículo 17 inciso n) del Código Municipal, le corresponderá al Alcalde (sa), como representante legal de la Municipalidad; en caso de acordarse por parte del Concejo Municipal la autorización de firma de un Convenio al CCDR, comparecer y estampar su firma en nombre de la Municipalidad de El Guarco y del CCDR, como órgano adscrito de esta Corporación Municipal.
+CAPITULO XI
+De Los Convenios que suscriba el CCDR
+Artículo 98.-Sobre el órgano competente para su autorización. De conformidad con lo establecido en el inciso e) del artículo 13 en conexidad con el inciso f) del artículo 4 ambos del Código Municipal, es competencia exclusiva del Concejo Municipal autorizar la firma de los Convenios del Comité Cantonal, con cualquier institución pública, privada, persona física o jurídica.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 97 al artículo 98)

@@ -1,3 +1,2 @@
-Artículo 87.—Práctica del deporte. Las Instalaciones Deportivas Municipales podrán ser destinadas al deporte educativo escolar, al ocio, al de competición y de forma puntual a actividades de carácter social y recreativo que cumplan los requisitos que para cada caso se contemplen.
-En cada instalación podrán practicarse los deportes a los que especialmente esté destinada.
-Será también posible la práctica de otros deportes, siempre que se pueda técnicamente y previa autorización del Comité Cantonal y Comunal.
+Artículo 87.-Uso de las instalaciones deportivas. En el uso de las instalaciones deportivas existentes, el Comité Cantonal y Comités Comunales deberán darle participación a todos los grupos deportivos y recreativos organizados de la comunidad, teniendo preferencia en tal uso, los de iniciación los equipos o grupos que representen al distrito o al cantón en campeonatos oficiales. La programación que para tal efecto se le dé, será respaldada y se hará en forma periódica conforme con las necesidades.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 86 al artículo 87)

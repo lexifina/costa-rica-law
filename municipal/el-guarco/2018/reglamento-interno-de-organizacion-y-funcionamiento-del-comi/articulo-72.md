@@ -1,2 +1,2 @@
-Artículo 72.-Dicho presupuesto debe ser consecuente con la política que dicte el Concejo Municipal, reflejar las necesidades de los comités comunales y subcomités de disciplina a efecto de ser incorporado en el plan anual operativo - presupuesto ordinario, del año siguiente; todo de conformidad con lo que al efecto dicte la Contraloría general de la República y acorde con los programas incluidos en el plan de trabajo anual.
-(Así reformado mediante sesión N° 135-2022 del 31 de enero de 2022)
+Artículo 72.-El presupuesto debe contener una estimación de ingresos, incluyendo una descripción clara y precisa de lo que se persigue hacer durante el año presupuestario, de acuerdo con las exigencias legales y reglamentarias establecidas al efecto.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 71 al artículo 72)

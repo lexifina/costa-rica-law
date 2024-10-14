@@ -1,1 +1,2 @@
-Artículo 83.—El funcionario que tenga a su cargo la administración de fondos debe suscribir una póliza de fidelidad, y la misma debe estar vigente durante todo el tiempo que ejerza su cargo.
+Artículo 83.-Cada año los tesoreros de los Comités Comunales, deberán presentar ante el Comité Cantonal el libro de tesorería adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva revisión; si éste no se presentare el Comité Cantonal paralizará cualquier gestión económica a favor de dicho Comité Cantonal.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 82 al artículo 83)

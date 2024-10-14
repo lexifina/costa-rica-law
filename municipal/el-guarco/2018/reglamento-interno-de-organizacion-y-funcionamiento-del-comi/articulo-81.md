@@ -1,1 +1,2 @@
-Artículo 81.—El Comité Cantonal suministrará a todos los órganos de su dependencia, un libro de tesorería, libros de cheques de la cuenta bancaria designada para el ente y recibos por dinero que deberán usarse en todas las gestiones de cobro que se realicen.
+Artículo 81.-El Comité Cantonal de Deportes y sus Órganos, podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad de El Guarco.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 80 al artículo 81)

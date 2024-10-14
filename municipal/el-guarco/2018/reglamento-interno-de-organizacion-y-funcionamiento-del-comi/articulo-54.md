@@ -1,5 +1,2 @@
-Artículo 54.—Improcedencia de Recursos. No cabrán los recursos ordinarios contra los siguientes acuerdos:
-a) Los actos consentidos expresa o implícitamente.
-b) Los actos de mero trámite, ejecución, confirmación o ratificación de otros anteriores.
-c) Los reglamentarios.
-d) Los que adopten el presupuesto, sus modificaciones y adiciones.
+Artículo 54.-Recursos contra Acuerdos. Contra los acuerdos que tome el Comité Cantonal, salvo contra aquellos que se indican en el artículo 54 de este Reglamento; los directivos podrán solicitar revisión y los interesados interponer los recursos ordinarios de revocatoria para ante el mismo Comité y apelación para ante el Concejo Municipal, así como ejercer las acciones jurisdiccionales que las leyes regulen. Todo recurso deberá ser presentado por escrito.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 53 al artículo 54)

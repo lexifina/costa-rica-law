@@ -1,3 +1,2 @@
-Artículo 76.—La adquisición de bienes y servicios debe realizarse de acuerdo al Reglamento de adquisición de bienes y servicios.
-Y lo establecido en la Ley de Contratación Administrativa, su reglamento y demás normativa aplicable.
-(Así adicionado el párrafo anterior mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
+Artículo 76.-Los pagos que realice el Comité deben contener como soporte documental certificación del contenido presupuestario, número de cheque con que se efectuó y las firmas de control de revisión y recibido conforme.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 75 al artículo 76)

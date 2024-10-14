@@ -1,1 +1,3 @@
-Artículo 73.—A más tardar la segunda quincena de cada mes, deben estar debidamente elaborados los Estados Financieros correspondientes firmados por el presidente y el tesorero. Los Estados financieros deben realizarse de acuerdo a las normas contables vigentes en el momento de su elaboración y deberán presentarse al Concejo Municipal.
+Artículo 73.-Dicho presupuesto debe ser consecuente con la política que dicte el Concejo Municipal, reflejar las necesidades de los comités comunales y subcomités de disciplina a efecto de ser incorporado en el plan anual operativo - presupuesto ordinario, del año siguiente; todo de conformidad con lo que al efecto dicte la Contraloría general de la República y acorde con los programas incluidos en el plan de trabajo anual.
+(Así reformado mediante sesión N° 135-2022 del 31 de enero de 2022)
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 72 al artículo 73)

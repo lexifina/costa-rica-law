@@ -1,3 +1,2 @@
-CAPÍTULO VII
-De las sesiones
-Artículo 42.—El Comité Cantonal deberá sesionar en forma ordinaria, un mínimo de cuatro sesiones por mes. Los demás órganos deberán sesionar conforme con lo que establece este Reglamento.
+Artículo 42.-Es atribución del Comité Cantonal, objetar los nombres de personas que integren las comisiones. Las personas encargadas de entrenar escuelas de fútbol y otros deportes deberán cumplir con los requerimientos profesionales respectivos para realizar esta labor.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 41 al artículo 42)

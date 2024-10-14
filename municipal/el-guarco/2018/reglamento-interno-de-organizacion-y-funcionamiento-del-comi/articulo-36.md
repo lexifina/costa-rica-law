@@ -1,1 +1,2 @@
-Artículo 36.—Cuando se realicen torneos internos y todo tipo de eventos del Distrito/Comunidad, el Comité Comunal debe confeccionar el respectivo reglamento interno el que deberá ser ratificado y aprobado por el Comité Cantonal para su aplicación.
+Artículo 36.-Está prohibido al Comité Comunal hacer uso de los dineros o fondos del mismo, para dar obsequios a equipos o personas, pagar facturas por concepto de fiestas o cualquier tipo de regalía.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 35 al artículo 36)

@@ -1,1 +1,10 @@
-Artículo 23.—Los miembros de los Comités Comunales se juramentarán ante el Comité Cantonal, quien extenderá además el carné que los acredita como tales.
+CAPÍTULO V
+De los Comités Comunales de Deportes
+Artículo 23.- Los Comités Comunales, son el órgano de enlace entre el Comité Cantonal y los distritos del cantón. Se encuentran adscritos al CCDR y estarán integrados por siete miembros residentes del mismo distrito, de los cuales cinco serán nombrados en Asamblea General, convocada para tal efecto por el CCDR.
+La Asamblea General será presidida por el CCDR y estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad.
+Entre los siete integrantes de cada comité comunal, deberán designarse a dos miembros de la población adolescente entre los 15 años y menores de 18 años, quienes actuarán con voz y voto. Serán propuestos por el Comité Cantonal de la Persona Joven, respetando el principio de paridad de género.
+En caso de que el CCPJ no proponga en dicha Asamblea General el nombre de los dos adolescentes, será la Asamblea General quien los designe sin más trámite.
+Los miembros de la Junta Directiva del Comité Comunal desempeñaran iguales funciones que para esos cargos tienen los miembros de la Junta Directiva del Comité Cantonal en lo conducente.
+Los Comités Comunales deberán entregar al CCDR, a más tardar el último día hábil del mes de junio de cada año, los planes de trabajo para el año inmediato posterior, los cuales serán sujetos de aprobación por parte del CCDR que ejercerá los controles debidos para su ejecución.
+(Así reformado mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 22 al artículo 23)

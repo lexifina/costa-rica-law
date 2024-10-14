@@ -1,1 +1,2 @@
-Artículo 80.—El Comité Cantonal de Deportes y sus Órganos, podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad de El Guarco.
+Artículo 80.-Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas; por el incumplimiento de esta disposición, el responsable será expulsado del organismo u órgano correspondiente, debiendo reintegrar el dinero que en forma tal haya utilizado, sin perjuicio de las responsabilidades a que alude el artículo anterior.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 79 al artículo 80)

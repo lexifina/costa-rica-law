@@ -1,1 +1,11 @@
-Artículo 47.—Cuando algún miembro del Comité Cantonal incurra en cualquiera de las causales indicadas en el artículo anterior, la junta directiva deberá comunicarlo por escrito al Concejo Municipal indicando las razones para hacer efectiva su sustitución. El Concejo Municipal una vez recibida la solicitud de sustitución, procederá a darle traslado a la persona sobre la cual se pide su destitución, para que en el plazo de cinco días hábiles, exprese su posición u objeciones al trámite. Cumplido dicho plazo, el Concejo procederá a resolver el fondo de la gestión. En caso de proceder la solicitud de destitución, se procederá de inmediato a reponer el miembro separado del cargo con el suplente electo, de lo contrario, solicitará a la entidad respectiva la realización de la asamblea para elegirlo (a).
+Artículo 47.-Los miembros del Comité Cantonal podrán ser destituidos por las siguientes causas:
+a) Ausencia consecutiva a tres sesiones sin justificación.
+b) Ausencia injustificada a ocho sesiones alternas del Comité Cantonal durante un año.
+c) Ser nombrado para desempeñar el cargo de Alcalde Municipal.
+d) Ser elegido como Regidor propietario o suplente, a la Municipalidad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
+e) Ser contratado para desempeñar cualquier actividad económicamente remunerado ó recibir cualquier clase de estipendio de parte del Comité Cantonal.
+f) Por violación evidente a las leyes y reglamentos que rigen la materia.
+g) Por inhabilitación judicial.
+h) (Derogado mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 46 al artículo 47)

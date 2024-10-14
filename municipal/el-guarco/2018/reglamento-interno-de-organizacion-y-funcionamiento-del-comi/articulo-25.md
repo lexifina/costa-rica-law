@@ -1,1 +1,2 @@
-Artículo 25.—Las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para que sean válidas. En caso de falta de quórum se hará constar la asistencia de los presentes.
+Artículo 25.-Los Comités Comunales deberán reunirse dos veces al mes ordinariamente y extraordinariamente cuando lo requieran. Deberán comunicar por escrito al Comité Cantonal el día, lugar y la hora de las sesiones.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 24 al artículo 25)

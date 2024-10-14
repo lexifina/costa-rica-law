@@ -1,6 +1,2 @@
-Artículo 51.—Las mociones de orden tienen prioridad para la discusión, sobre aquellas otras que se encuentren presentadas en la Junta Directiva. Su objeto es:
-a) Levantar la sesión o alterar el orden del día.
-b) Dispensar algún trámite en determinado asunto.
-c) Dar por agotada la discusión de un determinado asunto que se esté conociendo.
-d) Posponer el conocimiento de un asunto o pasarlo a conocimiento de una comisión.
-e) Permitir que se conozca de un asunto en una sesión privada.
+Artículo 51.-Corresponde al Comité Cantonal conocer en sus sesiones, los proyectos, planes, estudios y conflictos relacionados con el mismo, los que deben ser presentados para su conocimiento en forma escrita. Los miembros pueden acoger mociones de particulares, que se relacionen con el deporte y la recreación, para que sean conocidas por el Comité en las sesiones que celebre.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 50 al artículo 51)

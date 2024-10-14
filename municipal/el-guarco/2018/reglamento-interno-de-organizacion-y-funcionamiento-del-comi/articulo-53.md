@@ -1,1 +1,2 @@
-Artículo 53.—Recursos contra Acuerdos. Contra los acuerdos que tome el Comité Cantonal, salvo contra aquellos que se indican en el artículo 54 de este Reglamento; los directivos podrán solicitar revisión y los interesados interponer los recursos ordinarios de revocatoria para ante el mismo Comité y apelación para ante el Concejo Municipal, así como ejercer las acciones jurisdiccionales que las leyes regulen. Todo recurso deberá ser presentado por escrito.
+Artículo 53.-Las resoluciones que tome el Comité Cantonal en las sesiones, se denominarán acuerdos.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 52 al artículo 53)

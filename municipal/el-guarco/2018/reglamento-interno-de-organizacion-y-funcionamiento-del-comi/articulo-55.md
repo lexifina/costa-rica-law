@@ -1,1 +1,6 @@
-Artículo 55.—Recurso de Revisión. El directivo que plantee revisión, deberá hacerlo por escrito antes de la aprobación del acta respectiva y en esa misma sesión deberá ser conocida por la Junta Directiva. Si la revisión fuese acogida, el asunto revisado volverá al estado en que se encontraba al momento de votarse. La misma mayoría requerida para votar el acuerdo, será necesaria para acordar su revisión.
+Artículo 55.-Improcedencia de Recursos. No cabrán los recursos ordinarios contra los siguientes acuerdos:
+a) Los actos consentidos expresa o implícitamente.
+b) Los actos de mero trámite, ejecución, confirmación o ratificación de otros anteriores.
+c) Los reglamentarios.
+d) Los que adopten el presupuesto, sus modificaciones y adiciones.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 54 al artículo 55)

@@ -1,2 +1,4 @@
-Artículo 43.— En la primera sesión del Comité Cantonal, que se celebrará no antes de cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros del Comité se reunirán y mediante votación secreta o nominal, se designarán los cargos de presidente, vicepresidente, secretario, tesorero y vocales, quienes desempeñarán el cargo en forma ad-honoren, por un período de dos años, pudiendo ser reelectos.
-(Así reformado mediante sesión ordinaria N° 270-2020 del 27 de enero del 2020)
+CAPÍTULO VII
+De las sesiones
+Artículo 43.-El Comité Cantonal deberá sesionar en forma ordinaria, un mínimo de cuatro sesiones por mes. Los demás órganos deberán sesionar conforme con lo que establece este Reglamento.
+(Así modificada su numeración mediante sesión Nº035 del 14 de octubre de 2024 que lo traspasó del antiguo artículo 42 al artículo 43)
