@@ -1,0 +1,19 @@
+N° 44698-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE LA PRESIDENCIA
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) inciso 20) y 146 de la Constitución Política, artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 121 de la Ley General de la Administración Pública Ley N° 6227.
+Considerando:
+1º-Que el 20 de febrero de 2019, se publicó en el Diario Oficial La Gaceta N ° 36, Alcance Digital N° 40, el Decreto Ejecutivo N° 41529-MP, correspondiente a la "Creación de la Comisión de Alto Nivel para la Atención del Cantón de Buenos Aires", el cual establece la creación de mesas de trabajo conformadas por instituciones estatales, Gobiernos Locales, representantes de la comunidad, por medio de los mecanismos de articulación ya establecidos, tales como los Comités de Desarrollo Rural Territorial (CTDR), los Consejos Regionales de Desarrollo (COREDES) y la Mesa de Diálogo entre el Gobierno de Costa Rica y representantes de los Pueblos Indígenas.
+2º-Que este decreto tiene como fin, la creación de 5 mesas de trabajo de alto nivel, en las que se impulsen acciones tendientes al diálogo social y la convivencia, superar la confrontación de distintos enfoques para promover la convivencia democrática en la región, así como el crecimiento y desarrollo de la región, los cuales se encargarán de ver los siguientes temas: a) Infraestructura y servicios, b) Economía y empleo rural, c) Educación y formación técnica, d) Ecosistemas Territoriales, y e) Inclusión y equidad social.
+3º-Que el Ministerio de la Presidencia mediante oficio MP-DMP-OF-2024-0309 del 25 de abril del 2024, giró consulta a las instituciones concernidas en relación con la conveniencia y oportunidad de reactivar la Comisión de Alto Nivel para la Atención del cantón de Buenos Aires, con el afán de hacer uso razonable, eficiente y eficaz de los recursos públicos evitando la duplicidad de funciones.
+4º-Que se recibió respuesta de la mayoría de las instituciones consultadas mediante los oficios: De la Presidencia Ejecutiva del Instituto Costarricense de Electricidad (ICE) N° 0060-205-2024, de la Presidencia Ejecutiva del Instituto Nacional de Aprendizaje (INA)N° PE-961-2024, Presidencia Ejecutiva del Instituto de Fomento y Asesoría Municipal (IFAM), N° PE-0167-2024, Instituto Nacional de la Mujer INAMU-PE-3082024, Instituto de Desarrollo Rural, INDER-PE-AJ-OF1-0718-2024, Instituto Costarricense del Deporte y la Recreación, ICODER-DN-865-05-2024 Ministerio de Agricultura y Ganadería (MAG) N° DM-MAG-589-2024, Ministerio de Economía, Industria y Comercio (MEIC) N° MEIC-DM-OF-154-2024, Viceministerio de Infraestructura del Ministerio de Obras Públicas y Transportes, (MOPT) N° DV1-2024566, Ministerio de Cultura Juventud MCJ-DM-0581-2024, Ministerio de Innovación, Tecnología y Telecomunicaciones MICITT-DM-OF-366-2024, Ministerio de Seguridad Pública MSP-DM-0919-2024, Ministerio de Trabajo y Seguridad Social MTSS-DMT556-2024, quienes de forma unánime han expresado su negativa a apoyar la reactivación de la Comisión.
+5º-Que, atendiendo a las circunstancias indicadas en los acápites precedentes, resulta conveniente, oportuno, razonable y proporcionado al mejor interés público, la derogatoria del Decreto Ejecutivo N° 41529-MP, del 19 de enero del 2019. Por tanto;
+Decretan:
+DEROGATORIA DEL DECRETO EJECUTIVO
+N° 41529-MP, DEL 19 DE ENERO DE 2019, PUBLICADO
+EN EL ALCANCE DIGITAL N° 40, DEL DIARIO OFICIAL
+LA GACETA N° 36, DEL 20 DE FEBRERO DE 2019,
+DENOMINADO "CREACIÓN DE LA COMISIÓN
+DE ALTO NIVEL PARA LA ATENCIÓN
+DEL CANTÓN DE BUENOS AIRES"
+Artículo 1º-Derogatoria. Deróguese el Decreto Ejecutivo N° 41529-MP, del 19 de enero de 2019, publicado en el Diario Oficial La Gaceta N° 36, del 20 de febrero de 2019, Alcance Digital N° 40, denominado, "Creación de la Comisión de Alto Nivel para la Atención del cantón de Buenos Aires".
