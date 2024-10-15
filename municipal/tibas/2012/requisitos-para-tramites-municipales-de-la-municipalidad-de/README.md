@@ -14,3 +14,4 @@ Requisitos para trámites municipales de la Municipalidad de Tibás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-27 | la propia norma |
+| 2 | 2024-10-15 | Acuerdo municipal 3 (2024-10-15) |
