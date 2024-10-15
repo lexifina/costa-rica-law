@@ -14,3 +14,4 @@ Reglamento para regular el funcionamiento y operación de la Oficina Municipal d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-22 | la propia norma |
+| 2 | 2024-10-15 | Reglamento municipal 69 (2024-10-15) |
