@@ -1,0 +1,1 @@
+Artículo 32.-Redacción. El acta debe iniciarse en la línea uno. Sólo deberá escribirse en las líneas dispuestas para ello. No deben dejarse espacios en blanco, debe escribirse seguido. Lo que se escriba fuera de esos márgenes no tiene validez. No se utilizarán números ni abreviaturas.

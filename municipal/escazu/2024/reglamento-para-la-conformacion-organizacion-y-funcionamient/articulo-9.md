@@ -1,0 +1,1 @@
+Artículo 9º—Carácter Participativo. Las personas jóvenes que integren organizaciones con representación en el cantón (estudiantiles, juveniles, deportivas, y religiosas, etc.), tendrán el derecho de participar en la elección del Comité, designando las personas representantes del sector al cual pertenecen, según la naturaleza de su agrupación.

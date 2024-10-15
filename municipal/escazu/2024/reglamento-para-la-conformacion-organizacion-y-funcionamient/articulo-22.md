@@ -1,0 +1,1 @@
+Artículo 22.-Compromiso con temas esenciales. El CCPJ Escazú definirá en Asamblea Cantonal los pilares de su proyecto anual, dentro del marco de los principios de la Ley General de la Persona Joven, y orientado a la promoción del ejercicio de los derechos de las personas jóvenes, de conformidad con el postulado del Artículo 10 de este Reglamento.

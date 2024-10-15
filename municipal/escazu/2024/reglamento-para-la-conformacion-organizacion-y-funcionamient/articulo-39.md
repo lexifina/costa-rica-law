@@ -1,0 +1,1 @@
+Artículo 39.-Cambio forzoso de proyecto. Solamente por caso fortuito o fuerza mayor puede variarse el proyecto presentado por el CCPJE ante el CPJ, y para tal efecto, se deberá remitirse por parte del CCPJE la propuesta del cambio ante la Junta Directiva del CPJ, a fin de que sea este órgano el que autorice mediante acuerdo firme el cambio del destino de los recursos.

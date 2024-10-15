@@ -1,0 +1,1 @@
+Artículo 2º-Observancia. El presente reglamento deberá ser acatado por las autoridades municipales y por los sectores que postulen representantes para la conformación del Comité Cantonal de la Persona Joven de la localidad.

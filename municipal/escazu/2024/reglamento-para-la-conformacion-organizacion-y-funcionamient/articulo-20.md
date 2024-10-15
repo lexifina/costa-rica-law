@@ -1,0 +1,1 @@
+Artículo 20.-Medidas de Protección en contra del Hostigamiento Sexual. Ante eventuales denuncias por motivo de acciones de acoso y/u hostigamiento sexual, por parte de un miembro, representante o colaborador del CCPJE, se deberá remitir el caso a la Comisión Municipal de Acoso y Hostigamiento Sexual, para su tramitación.

@@ -1,0 +1,1 @@
+Artículo 33.-Identificación y Firmas. Al inicio de cada acta debe indicarse el nombre de la persona que preside la sesión y de la persona que funge como secretaria (o) y al finalizar el acta, una vez leída y aprobada, deberá ser firmada por esas personas, comenzando la siguiente Acta en el renglón posterior.

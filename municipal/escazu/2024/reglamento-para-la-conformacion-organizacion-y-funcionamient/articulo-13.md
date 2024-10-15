@@ -1,0 +1,1 @@
+Artículo 13.-Representante Municipal. El Concejo Municipal elegirá como su representante ante el Comité Cantonal de la Persona Joven, a un residente en el cantón, quien representará a las personas jóvenes no tipificadas en el Artículo 24 de la Ley 8261 y sus reformas, incisos b), c), d) y e).

@@ -1,0 +1,1 @@
+Artículo 49.-Acompañamiento. Los departamentos municipales brindarán dentro de sus posibilidades, orientación y acompañamiento necesarios para el buen funcionamiento del CCPJE, así como el apoyo técnico-operativo para la ejecución de sus proyectos.

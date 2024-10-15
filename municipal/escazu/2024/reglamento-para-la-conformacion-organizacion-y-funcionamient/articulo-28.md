@@ -1,0 +1,1 @@
+Artículo 28.-Finalidad y Contenido. Las Actas tienen por objeto dejar constancia de la agenda, desarrollo y motivos de los Acuerdos. Debiendo consignarse el lugar, hora (de inicio y cierre) y fecha de realización de la sesión, agenda, y lista de asistentes.

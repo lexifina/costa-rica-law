@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones Finales
+Artículo 51.-Sustitución de los miembros del Comité. Las personas miembros del Comité que renuncien, dejen de ser parte del sector por el que fueron designadas, dejen de residir en el cantón, cumplan 36 años, o acumulen dos meses o más de ausencias sin justificación comunicada y aceptada; deberán ser sustituidos luego del debido proceso, por el Concejo Municipal, para tales efectos se realizará la convocatoria del sector al que pertenece la persona joven que deja de ser parte del Comité, a efectos de coordinar la realización de la Asamblea para la escogencia de su sustituto.

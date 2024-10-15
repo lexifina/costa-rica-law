@@ -1,0 +1,1 @@
+Artículo 19.-Justificación de Ausencias. El miembro del Comité que faltare a sesiones deberá justificarlas a la presidencia o a la secretaría por medio verbal o escrito al menos 24 horas antes ya sea vía correo u otro medio electrónico establecido oficialmente mediante Acuerdo. Lo anterior sin detrimento de situaciones de caso fortuito o fuerza mayor.

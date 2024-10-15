@@ -1,0 +1,1 @@
+Artículo 21.-Propuestas locales. Le corresponderá al Comité realizar propuestas de trabajo local en beneficio de la juventud, procurando una coordinación efectiva con los sectores y agrupaciones juveniles del cantón.

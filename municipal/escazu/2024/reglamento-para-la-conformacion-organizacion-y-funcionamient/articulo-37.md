@@ -1,0 +1,1 @@
+Artículo 37.-Beneficiarios. Los proyectos deberán beneficiar a las personas jóvenes del cantón de Escazú, y no podrán buscar el lucro de las personas integrantes del Comité o de sus familias, en resguardo del principio de probidad que deberá ser observado por todos los miembros del Comité.

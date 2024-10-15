@@ -1,0 +1,1 @@
+Artículo 43.-Organizaciones Juveniles. Entiéndase por organizaciones juveniles aquellas cuyo objetivo o finalidad es la promoción y desarrollo de la juventud en el cantón de Escazú, debidamente inscritas ante el Registro de Organizaciones Comunales del Concejo Municipal, con al menos un mes de antelación antes de la celebración de la Asamblea Cantonal.

@@ -1,0 +1,1 @@
+Artículo 4º-Ámbito de aplicación. El presente reglamento se restringe únicamente a la jurisdicción del cantón de Escazú, y será válido para todas las personas y organizaciones de la sociedad civil, domiciliadas en su territorio.
