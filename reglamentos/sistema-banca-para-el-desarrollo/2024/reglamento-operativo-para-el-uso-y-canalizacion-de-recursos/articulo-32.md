@@ -1,0 +1,1 @@
+Artículo 32.-Manejo de Información Confidencial y/o Información sujeta a Derechos de Propiedad Intelectual. La Agencia de Capital Semilla deberá suscribir una cláusula sobre manejo de información confidencial y/o información sujeta a derechos de propiedad intelectual.

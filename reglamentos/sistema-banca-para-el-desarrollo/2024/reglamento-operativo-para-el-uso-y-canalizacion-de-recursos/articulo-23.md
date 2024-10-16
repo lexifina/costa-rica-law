@@ -1,0 +1,1 @@
+Artículo 23.-Conflictos de Interés. La Agencia Operadora deberá abstenerse de cualquier situación que le pueda generar conflictos de interés entre beneficiarios de los Programas de Capital Semilla, de sus colaboradores o subcontratistas.
