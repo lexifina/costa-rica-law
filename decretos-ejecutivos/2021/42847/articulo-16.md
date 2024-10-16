@@ -295,6 +295,11 @@ c. Aprobación de un récord quirúrgico del programa de estudios posgrado (resi
 Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de un (1) año en la Subespecialidad en Uveítis, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*)16.17.6 Ecografía Ocular
+Requisitos específicos:
+a. Estar debidamente inscrito como especialista en Oftalmología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de 1 (un) año en la subespecialidad en Ecografía Ocular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así adicionada la subespecialidad anterior en sesión ordinaria 2024-10-16, celebrada el 16 de octubre de 2024)
 16.18. Subespecialidades Médicas de Ortopedia y Traumatología
 16.18.1. Cirugía de Columna Vertebral.
 Requisitos específicos:
