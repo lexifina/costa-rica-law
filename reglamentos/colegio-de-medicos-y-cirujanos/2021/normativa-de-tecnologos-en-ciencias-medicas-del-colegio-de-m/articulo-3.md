@@ -13,7 +13,7 @@ Se reconoce como sinónimo, el siguiente término Electrocardiografía y Prácti
 3.7. Hemodinamia.
 3.8. Histología. Se reconoce sinónimo los siguientes términos: Histotecnología.
 3.9. Imágenes Médicas. Se reconoce como sinónimo los siguientes términos Imagenología diagnóstica; Imagenología diagnóstica y terapéutica; Imagenología médica; Procedimientos radiológicos; Radiología; Radiología y Diagnóstico por Imágenes.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 2022-01- 19 del 19 de enero del 2022)
+(Así reformado el inciso anterior mediante sesión ordinaria 2024-10-16, celebrada el 16 de octubre de 2024)
 3.10. Oftalmología.
 3.11. Ortopedia. Se reconoce como sinónimo los siguientes términos: Ortopedia y rehabilitación; Tecno ortopedia y trauma.
 3.12. Podología. Se reconoce como sinónimo, las siguientes: Podología clínica.
