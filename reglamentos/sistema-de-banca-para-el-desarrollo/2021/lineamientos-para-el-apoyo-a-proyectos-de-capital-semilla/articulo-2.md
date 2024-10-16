@@ -1,1 +1,0 @@
-Artículo 2º-Alcance. Las disposiciones establecidas aplican a la Secretaría Técnica y Agencias Operadoras respecto a la utilización de recursos de capital semilla del FONADE dirigidos a fomentar, promocionar, incentivar y participar en la creación, la reactivación y el desarrollo de empresas, asignados a través de Agencias Operadoras.

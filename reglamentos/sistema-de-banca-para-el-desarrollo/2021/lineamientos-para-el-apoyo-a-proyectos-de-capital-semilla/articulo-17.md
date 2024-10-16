@@ -1,4 +1,0 @@
-Artículo 17.-Liquidación de gastos y adquisición de activos. Las liquidaciones de gastos deberán presentarse conforme lo establecido en cada contrato entre la Agencia Operadora y el FONADE, esta liquidación deberá incluir los comprobantes de las erogaciones realizadas.
-La adquisición de estos activos se realizará según lo establecido en cada contrato entre la Agencia Operadora y el FONADE.
-Asimismo, tanto para la liquidación de gastos como para los mecanismos de adquisición de activos con recursos de Capital Semilla, el Consejo Rector podrá dictar lineamientos específicos.
-Los activos adquiridos con recursos capital semilla son propiedad del beneficiario final de los recursos. Las condiciones sobre la propiedad intelectual (derechos de autor, invenciones, patentes, etc.) aplica lo que establezca la Agencia Operadora, supletoriamente en los ámbitos no contemplados aplicarían los lineamientos establecidos por el Consejo Rector del SBD.
