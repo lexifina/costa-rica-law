@@ -1,0 +1,1 @@
+Artículo 22.- Del cese de las medidas de protección extraprocesal. En los casos en que para el cese de las medidas de protección extraprocesal otorgadas resulte necesario coordinar con un ente público o privado, nacional o internacional, el equipo técnico evaluador o la persona profesional deberá comunicar lo correspondiente en apego al principio de confidencialidad.

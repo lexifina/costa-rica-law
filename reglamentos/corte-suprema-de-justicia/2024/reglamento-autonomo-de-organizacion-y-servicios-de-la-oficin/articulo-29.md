@@ -1,0 +1,1 @@
+Artículo 29.- Uso abusivo del Programa. El equipo técnico evaluador o personal profesional deberá velar porque no se realice un uso abusivo de los servicios y del costo de protección asignado a la persona usuaria. En caso de determinarse una situación anómala, el personal profesional procederá con la solicitud de exclusión.

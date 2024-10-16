@@ -1,0 +1,1 @@
+Artículo 32.- Procedimiento, entrega y seguimiento. El procedimiento para la elaboración, entrega y seguimiento de los informes técnicos deberá ajustarse a las directrices internas y el protocolo del Programa.

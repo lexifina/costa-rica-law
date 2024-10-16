@@ -1,0 +1,1 @@
+Artículo 15.- Discrepancia en el otorgamiento de las medidas de protección extraprocesal. De no de existir acuerdo entre las personas profesionales que conforman el equipo técnico evaluador respecto a las medidas de protección extraprocesal por otorgar, el asunto deberá elevarse a la persona coordinadora del Programa, a quien le corresponderá tomar la decisión final.

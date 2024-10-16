@@ -1,0 +1,1 @@
+Artículo 20.- Resolución. Recibidas las solicitudes de modificación de medidas de protección extraprocesal y de exclusión del programa, el Área de Resoluciones confeccionará la resolución con la orden correspondiente. La resolución que se dicte será analizada jurídicamente y firmada por la subjefatura o, en su defecto, por la jefatura.

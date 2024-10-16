@@ -1,0 +1,1 @@
+Artículo 43. Del uso abusivo del Programa. Las personas funcionarias de la Oficina deberán velar porque no se realice un uso abusivo de los servicios y del costo de atención asignado a la persona usuaria. En caso de determinarse una situación anómala el personal profesional procederá con el cierre del expediente.

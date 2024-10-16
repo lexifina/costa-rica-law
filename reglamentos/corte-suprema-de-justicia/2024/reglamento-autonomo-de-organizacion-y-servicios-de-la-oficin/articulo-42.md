@@ -1,0 +1,1 @@
+Artículo 42.- Cierre del expediente. Cuando el personal profesional estime necesario el cierre del expediente por las causales establecidas en el protocolo y manual de procedimientos, o cuando la persona no acepte los servicios del programa desde su primera intervención, se deberá cerrar el expediente y comunicar a la entidad solicitante sobre este.

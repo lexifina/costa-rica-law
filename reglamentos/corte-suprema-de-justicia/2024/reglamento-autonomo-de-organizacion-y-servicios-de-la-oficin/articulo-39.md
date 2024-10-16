@@ -1,0 +1,1 @@
+Artículo 39.- Seguimiento. Para la consecución de los objetivos acordados en el plazo establecido, el equipo interdisciplinario o persona profesional a cargo deberá dar seguimiento oportuno a los asuntos asignados y a cada plan de trabajo con la persona usuaria.

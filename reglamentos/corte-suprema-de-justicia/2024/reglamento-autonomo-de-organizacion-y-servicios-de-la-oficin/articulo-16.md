@@ -1,0 +1,1 @@
+Artículo 16.- Ejecución de medidas de protección extraprocesal. En los casos en que para la materialización de las medidas de protección extraprocesal otorgadas resulte necesario coordinar con un ente público o privado, nacional o internacional, el equipo técnico evaluador o el personal profesional deberá realizar la solicitud y dar seguimiento a su ejecución.

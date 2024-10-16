@@ -1,0 +1,1 @@
+Artículo 28.- Archivo de diligencias. El equipo técnico evaluador o la persona profesional podrá realizar el archivo de diligencias cuando, mediante resolución firme, se excluya del Programa a la persona protegida.

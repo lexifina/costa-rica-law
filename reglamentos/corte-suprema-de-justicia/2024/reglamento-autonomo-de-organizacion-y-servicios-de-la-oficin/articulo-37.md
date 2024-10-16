@@ -1,0 +1,1 @@
+Artículo 37.- Entrevista inicial. El equipo interdisciplinario o alguno de sus integrantes realizará una entrevista inicial para recabar aspectos generales de la causa penal y la persona referida, con el fin de determinar los servicios que requiere y la necesidad de la estrategia de abordaje.
