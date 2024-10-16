@@ -1,0 +1,1 @@
+Artículo 3º-Objeto del Reglamento. El presente Reglamento tiene por objeto regular el ámbito de aplicación, integración, organización, objetivos, funciones, atribuciones y funcionamiento de la Contraloría de Servicios de la Municipalidad de San Carlos, conforme lo establecido en la Ley 9158.

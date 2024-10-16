@@ -1,0 +1,4 @@
+Capítulo II
+Del procedimiento de recepción de gestiones.
+Artículo 12.-De la Recepción de gestiones (consultas, quejas, denuncias, felicitaciones y sugerencias). Corresponde a la Contraloría de Servicios recibir las gestiones que presenten las personas usuarias con respecto a los servicios que brinda la Institución y que no han sido atendidas o resueltas de forma oportuna por el área competente. La persona usuaria puede presentar su gestión en forma personal, por escrito, por teléfono, correo electrónico, o cualquier otro medio diseñado para tal efecto, según los lineamientos establecidos en este reglamento.
+No es competencia de la Contraloría de Servicios conocer de las faltas al contrato de trabajo en que incurran los funcionarios municipales, dicha función corresponde a la Alcaldía Municipal, conforme a los procedimientos legales establecidos en el artículo 308 y concordantes de la Ley General de la Administración Pública en cumplimiento al debido proceso.

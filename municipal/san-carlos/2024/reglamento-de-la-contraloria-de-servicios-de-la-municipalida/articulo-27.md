@@ -1,0 +1,1 @@
+Artículo 27.-Disposiciones supletorias. En defecto de disposiciones propias de este Reglamento deberán tenerse como supletorias las contenidas en la Ley Reguladora del Sistema Nacional de Contraloría de Servicios N°9158 y su Reglamento, Ley General de Administración Pública, leyes, decretos y reglamentos conexos en la materia que esté en vigencia.

@@ -1,0 +1,3 @@
+Artículo 26.-De los deberes de las dependencias municipales. Son obligaciones de las distintas dependencias municipales las siguientes:
+a) Seguimiento a las recomendaciones de la Contraloría de Servicios. Cuando la Contraloría emita una recomendación a una o varias unidades administrativas en relación a los servicios que brinda la Municipalidad, estas serán tramitadas con premura, responsabilidad y la coordinación debida, buscando la mejora de los servicios que se brindan.
+b) Obligación de colaboración. Todas las dependencias y funcionarios de la Municipalidad deberán prestar colaboración a la Contraloría de Servicios, cuando esta lo requiere, como parte de las responsabilidades que se derivan de su relación laboral y los servicios que se prestan.

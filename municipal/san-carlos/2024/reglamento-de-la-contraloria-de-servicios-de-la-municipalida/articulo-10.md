@@ -1,0 +1,1 @@
+Artículo 10.-Causales de Despido. Al Contralor (a) de Servicios, así como al Sub Contralor (a) de Servicios le serán aplicables las causales de despido del Código Municipal, Reglamento Autónomo de Organización y Servicios de la Municipalidad, Código de Trabajo, Ley Marco de Empleo Público y demás causales que establezcan las leyes aplicables a los funcionarios públicos.

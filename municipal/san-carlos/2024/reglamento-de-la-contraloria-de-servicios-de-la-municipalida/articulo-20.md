@@ -1,0 +1,1 @@
+Artículo 20.-Interrupción de la tramitación de una denuncia o queja. La Contraloría de Servicios suspenderá la instrucción de una investigación cuando el mismo hecho esté siendo investigado por otra instancia administrativa competente para resolver, de lo cual se dejará constancia en el expediente del caso.

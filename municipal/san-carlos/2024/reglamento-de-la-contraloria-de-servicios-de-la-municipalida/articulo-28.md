@@ -1,0 +1,1 @@
+Artículo 28.-De las reformas al Reglamento. Cualquier reforma o adición a este Reglamento será realizada por la Contraloría de Servicios de la Municipalidad de San Carlos, validada por Control Interno, Servicios Jurídicos, Alcaldía y el Concejo Municipal, además, deberá ser publicada en el Diario Oficial La Gaceta.

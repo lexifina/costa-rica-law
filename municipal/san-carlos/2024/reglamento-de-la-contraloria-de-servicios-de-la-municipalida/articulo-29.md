@@ -1,0 +1,1 @@
+Artículo 29.-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga de manera expresa cualquier normativa, disposición o lineamiento que contradiga lo establecido en el presente Reglamento. Votación unánime. Acuerdo definitivamente aprobado.
