@@ -1,6 +1,7 @@
 ARTÍCULO 27.- Requisitos del CIVE
 Para la prestación de servicios, los CIVE deberán cumplir, como mínimo, los siguientes requisitos:
-a) Contar con un sistema de gestión de calidad que garantice el cumplimiento de estándares adecuados en la prestación del servicio y la competencia técnica de la empresa adjudicada autorizada para tal efecto.
+a) Contar con un sistema de gestión de calidad que garantice el cumplimiento de estándares adecuados en la prestación del servicio y la competencia técnica de la empresa adjudicada para tal efecto.
+(Mediante resolución de la Sala Constitucional N° 030616 del 16 de octubre de 2024, se anuló del inciso anterior el vocablo "autorizada")
 b) Estar acreditado ante el Ente Costarricense de Acreditación (ECA) de acuerdo con la Ley N.º 8279, Sistema Nacional para la Calidad. Dicha acreditación deberá mantenerse durante la vigencia del convenio. En caso de que se le suspenda de forma permanente la acreditación al CIVE, el Cosevi procederá a revocar, de inmediato, la adjudicación autorización para realizar la IVE.
 c) Contar con personal técnicamente calificado para efectuar las pruebas y operar el equipo correspondiente.
 d) Contar con las instalaciones físicas adecuadas para alojar los equipos y mantenerlos en condición de operar, atendiendo las disposiciones establecidas en la Ley N.º 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996, sus modificaciones, su reglamento y su interpretación.
