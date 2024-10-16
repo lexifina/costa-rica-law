@@ -1,1 +1,0 @@
-Transitorio I.—Las personas físicas y jurídicas que actualmente están registradas ante el Ministerio de Salud para impartir el curso de manipulación de alimentos, mantendrán la vigencia del registro, una vez vencido el mismo, los interesados deberán oficializarse ante el INA cumpliendo con lo establecido en el presente reglamento.

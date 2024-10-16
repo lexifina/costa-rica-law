@@ -1,1 +1,0 @@
-Artículo 7º—Las Direcciones de Áreas Rectoras de Salud tendrán un plazo máximo de cinco (5) días naturales, contados a partir del recibo de la solicitud, para emitir los carnés, ya sean de primera vez, reposiciones o renovaciones.

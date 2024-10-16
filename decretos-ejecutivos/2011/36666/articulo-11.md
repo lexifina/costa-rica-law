@@ -1,1 +1,0 @@
-Artículo 11.—El contenido curricular oficial para el curso de manipulación de alimentos se encuentra en la página Web del Ministerio de Salud (www.ministeriodesalud.go.cr) y del INA www.ina.ac.cr/.
