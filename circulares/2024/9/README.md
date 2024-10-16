@@ -13,3 +13,4 @@ Modificación los Controles Mínimos de Gestión Ambiental
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-22 | la propia norma |
+| 2 | 2024-10-16 | Circular 209 (2024-10-16) |
