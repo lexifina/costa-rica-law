@@ -1,0 +1,1 @@
+Artículo 46.-Deberá realizar revisiones periódicas y estará referido a los movimientos ejecutados al último día hábil, comparándolos con los datos del sistema. Esto independientemente de las revisiones que realice la Contabilidad, Auditoría Interna u otra entidad debidamente acreditada para ello.

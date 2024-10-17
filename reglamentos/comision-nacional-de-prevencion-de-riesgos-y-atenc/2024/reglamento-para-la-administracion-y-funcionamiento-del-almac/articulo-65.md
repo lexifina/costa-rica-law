@@ -1,0 +1,1 @@
+Artículo 65.-El Encargado del Almacén Institucional o la persona Coordinadora de las Bodegas de Emergencia, en coordinación con la Proveeduría Institucional o la Unidad de Gestión de Operaciones, según corresponda, deben velar porque el monto de los seguros de los activos, materiales y suministros sea como mínimo el valor promedio del inventario del mes anterior.

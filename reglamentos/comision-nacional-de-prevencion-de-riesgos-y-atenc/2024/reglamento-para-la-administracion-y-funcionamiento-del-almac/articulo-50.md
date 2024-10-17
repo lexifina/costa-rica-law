@@ -1,0 +1,1 @@
+Artículo 50.-El método y la técnica de valoración de los inventarios se ajustarán al sistema primeras entradas, primeras salidas (PEPS) según los registros del sistema y las normas de contabilidad del sector público que le son aplicables.

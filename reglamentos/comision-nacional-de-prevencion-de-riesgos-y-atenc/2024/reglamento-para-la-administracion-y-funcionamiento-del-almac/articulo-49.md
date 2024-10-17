@@ -1,0 +1,1 @@
+Artículo 49.-La Unidad de Gestión de Operaciones deberá coordinar con la Unidad de Recursos Financieros la implementación de controles de inventarios, así como la realización de conciliaciones -al menos una vez al año- de los auxiliares de los distintos sistemas administrativo-financieros de que se dispone.

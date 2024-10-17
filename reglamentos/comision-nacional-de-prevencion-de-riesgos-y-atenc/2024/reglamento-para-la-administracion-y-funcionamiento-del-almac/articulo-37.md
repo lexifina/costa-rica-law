@@ -1,0 +1,1 @@
+Artículo 37.-El Oficial de Logística le avisará al Encargado de las Bodegas de Emergencia, la fecha exacta de recibo de los suministros, para efectos de determinar si existen multas por atrasos en la entrega y se calcule el monto correspondiente.

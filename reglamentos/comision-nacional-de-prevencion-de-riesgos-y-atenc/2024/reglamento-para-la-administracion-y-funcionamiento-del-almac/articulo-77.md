@@ -1,0 +1,1 @@
+Artículo 77.-Se podrán poner a disposición de otras instituciones u organismos, inventarios propiedad de la CNE. En todos los casos se deben observar y cumplir las autorizaciones dadas por convenios especiales o disposiciones vigentes emitidas por la Presidencia, Dirección Ejecutiva o la Junta Directiva.

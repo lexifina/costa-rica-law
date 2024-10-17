@@ -1,0 +1,1 @@
+Artículo 44.-Todo requerimiento de mercancías o artículos deberá ser tramitada mediante una boleta de solicitud la cual deberá estar autorizada por el Director de Gestión de Riesgo, la jefatura de la Unidad o la persona Encargada del Proceso de Logística.

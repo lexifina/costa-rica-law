@@ -1,0 +1,1 @@
+Artículo 26.-Deberá levantarse un acta de inicio y terminación de las tomas físicas del inventario; indicando en ella como mínimo: Fecha, hora de inicio, hora final, nombre, puesto y firma de los participantes, detalle del inventario y observaciones. Una copia del informe de toma física debe ser remitido a la Dirección de Gestión Administrativa para su control.

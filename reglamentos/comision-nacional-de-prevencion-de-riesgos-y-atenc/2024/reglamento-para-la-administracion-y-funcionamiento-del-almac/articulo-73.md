@@ -1,0 +1,1 @@
+Artículo 73.-Queda estrictamente prohibido, la utilización de las instalaciones tanto del Almacén Institucional como las Bodegas de Emergencias, para actividades que no sean las establecidas en el presente Reglamento.

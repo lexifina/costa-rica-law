@@ -1,0 +1,1 @@
+Artículo 72.-Se prohíbe a la persona Encargada del Almacén Institucional o Coordinadora de las Bodegas de Emergencia despachar bienes cuyo destino no sea para el cual fue autorizado. El incumplimiento a este artículo será considerado como una falta grave a los deberes, aplicándose las sanciones que correspondan en el RAOS.

@@ -1,0 +1,1 @@
+Artículo 32.-El Encargado de las Bodegas de Emergencia, tendrá la obligación de recibir la mercadería, bienes y suministros comparando las especificaciones técnicas contra la orden de pedido, contrato o notificación de pedido respectiva, entregada previamente por la Unidad de Proveeduría Institucional.

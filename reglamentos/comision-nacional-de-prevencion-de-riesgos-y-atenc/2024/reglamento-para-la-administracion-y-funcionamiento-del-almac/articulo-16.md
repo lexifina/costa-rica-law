@@ -1,0 +1,1 @@
+Artículo 16.-Todas aquellas donaciones de bienes que sean para uso interno de la CNE serán registradas en el sistema automatizado acompañadas mediante un oficio formal suscrito por el donante, debiendo contemplar como mínimo la factura o estimación de costo, así como el estado y plazo de vencimiento de los bienes, según el reglamento de Donaciones de la CNE.

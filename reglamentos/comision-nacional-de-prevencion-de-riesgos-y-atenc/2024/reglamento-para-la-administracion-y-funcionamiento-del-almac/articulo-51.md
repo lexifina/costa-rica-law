@@ -1,0 +1,1 @@
+Artículo 51.-El inventario permanente o teórico deberá estar debidamente actualizado en el sistema automatizado, a la fecha de realizarse del inventario, para efecto de compararlo con el resultado de la toma física.

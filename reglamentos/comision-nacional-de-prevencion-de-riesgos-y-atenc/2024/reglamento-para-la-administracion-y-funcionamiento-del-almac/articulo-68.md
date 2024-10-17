@@ -1,0 +1,2 @@
+Prohibiciones
+Artículo 68.-Queda expresamente prohibido a la persona Encargada del Almacén o la persona Coordinadora de las Bodegas de Emergencia o a cualquiera de sus colaboradores el adelanto de bienes a cualquier dependencia administrativa, o bien la entrega, en calidad de préstamo al margen de los procedimientos establecidos en el presente Reglamento. El incumplimiento a este artículo será considerado como una falta grave a los deberes, aplicándose las sanciones que correspondan en el RAOS.

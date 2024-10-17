@@ -1,0 +1,1 @@
+Artículo 58.-Cuando se transporte mercadería entre las Bodegas de Emergencia, o de una Bodega Emergencia a un lugar para atender un evento o incidente, se deberá documentar el proceso con copias en el transcurso de la ruta de entrega. En todos los documentos se debe consignar el recibido de conformidad de la persona autorizada en cada etapa.

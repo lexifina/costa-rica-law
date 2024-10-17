@@ -1,0 +1,1 @@
+Artículo 13.-Se deberá llevar un registro permanente del movimiento de los bienes en el sistema automatizado definido por la Unidad de Tecnologías de la Información, (en adelante UTI) en el Almacén Institucional de la CNE.

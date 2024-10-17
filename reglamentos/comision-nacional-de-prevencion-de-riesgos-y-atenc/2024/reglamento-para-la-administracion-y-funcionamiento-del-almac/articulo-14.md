@@ -1,0 +1,1 @@
+Artículo 14.-En caso de ser necesario las correcciones o ajustes de la operación ordinaria, en el sistema automatizado deberán estar soportadas y debidamente autorizadas por el Encargado del Almacén Institucional.

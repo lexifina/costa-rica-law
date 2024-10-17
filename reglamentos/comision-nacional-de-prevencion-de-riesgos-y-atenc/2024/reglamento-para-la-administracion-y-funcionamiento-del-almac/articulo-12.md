@@ -1,0 +1,1 @@
+Artículo 12.-La administración de Activos estará a cargo de la Unidad de Proveeduría Institucional a través del Proceso de Administración de Bienes Institucionales (PABI), el cual deberá entregar a la Unidad solicitante los bienes plaqueados en un plazo que no exceda los 15 días hábiles.

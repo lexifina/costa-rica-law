@@ -1,0 +1,1 @@
+Artículo 45.-Todas las salidas de suministros deberán estar soportadas con la boleta de solicitud, debidamente autorizada, en caso de ausencia de este requisito no se podrá hacer entrega de la mercadería.

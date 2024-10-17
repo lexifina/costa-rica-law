@@ -1,0 +1,2 @@
+Artículo 17.-La identificación del Patrimonio estará a cargo de la Unidad de Proveeduría Institucional a través del Proceso de Administración de Bienes Institucionales (PABI), en un plazo no mayor a ocho días hábiles.
+El administrador del contrato deberá indicar el nombre de la persona funcionaria que se le asignará el bien para su uso y custodia. Luego de notificado el plaqueo, se debe retirar el activo en un plazo que no exceda los ocho días hábiles.

@@ -1,0 +1,1 @@
+Artículo 71.-Queda estrictamente prohibido, a todos los funcionarios sin importar su condición administrativa, el uso o aprovechamiento indebido de los bienes custodiados en el almacén institucional y/o bodegas de emergencia. El incumplimiento a este artículo será considerado como una falta grave a los deberes, aplicándose las sanciones que correspondan en el RAOS.

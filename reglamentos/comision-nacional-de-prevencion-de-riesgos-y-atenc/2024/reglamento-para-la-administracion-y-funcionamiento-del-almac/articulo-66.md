@@ -1,0 +1,1 @@
+Artículo 66.-Las coberturas del seguro para los bienes muebles e inmuebles institucionales serán para al menos robo, incendio casual o rayo, inundación, deslizamiento, temblores, terremotos u otros riesgos, tanto para el Almacén Institucional como las Bodegas de Emergencia.

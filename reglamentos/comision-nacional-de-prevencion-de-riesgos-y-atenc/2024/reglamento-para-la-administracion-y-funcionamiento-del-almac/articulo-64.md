@@ -1,0 +1,1 @@
+Artículo 64.-Es responsabilidad de la Unidad de Servicios Generales, la protección de las instalaciones y los bienes propiedad de la CNE y/o donados, incluyen la contratación de pólizas de seguro necesarias para salvaguardarlos contra diferentes riesgos que pudieran ocurrir, se verificará periódicamente la vigencia y riesgos de cobertura de las pólizas.

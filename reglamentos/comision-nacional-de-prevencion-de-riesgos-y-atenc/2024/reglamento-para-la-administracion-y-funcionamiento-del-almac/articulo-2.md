@@ -1,0 +1,1 @@
+Artículo 2º-El presente reglamento será aplicable al Almacén Institucional y las Bodegas de Emergencia tanto Central como Regionales que se encuentren bajo la custodia de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE).

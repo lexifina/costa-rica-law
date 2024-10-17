@@ -1,0 +1,1 @@
+Artículo 24.-El inventario permanente o teórico deberá estar debidamente actualizado en el sistema automatizado, a la fecha de realizarse el inventario, para efecto de compararlo con el resultado de los conteos de existencia física.

@@ -1,0 +1,1 @@
+Artículo 15.-La persona Encargada del Almacén, deberá establecer un mecanismo de revisión mensual mediante el sistema informático que le permita identificar los insumos, materiales o bienes próximos a vencer u obsoletos, según sea el caso.

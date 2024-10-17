@@ -1,0 +1,1 @@
+Artículo 76.-Las disposiciones contenidas en este reglamento serán de acatamiento obligatorio y consecuentemente su incumplimiento podrá originar sanciones conforme lo regulado por el Reglamento Autónomo de Organización y Servicio de la CNE, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás normas supletorias que sean aplicables.

@@ -1,0 +1,1 @@
+Artículo 62.-La persona Coordinadora del Proceso de Logística comunicará para efectos de seguros el monto y tipo de mercadería que se encuentra en la modalidad de administración de inventarios, a efecto de que la dependencia encargada de los seguros proceda con lo que le corresponda.

@@ -1,0 +1,1 @@
+Artículo 11.-Se deberán registrar en el sistema automatizado todos los suministros, materiales, bienes u otros que ingresen provenientes de proveedores, donaciones de terceros o devoluciones. Para cada ingreso o salida se genera un reporte en estricto orden consecutivo, utilizando la boleta de solicitud de artículos debidamente aprobado por la jefatura respectiva.

@@ -1,0 +1,1 @@
+Artículo 10.-En caso de no existir conformidad entre la mercadería entregada por la casa comercial o proveedor y lo solicitado, la Unidad usuaria no aceptará la entrega, devolviendo la misma con nota a la Unidad de Proveeduría, donde se indique al menos los motivos o condiciones por las cuales no se aceptan los bienes.

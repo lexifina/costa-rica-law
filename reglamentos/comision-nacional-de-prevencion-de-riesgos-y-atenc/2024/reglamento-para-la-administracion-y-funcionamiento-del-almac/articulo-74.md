@@ -1,0 +1,1 @@
+Artículo 74.-Se prohíbe terminantemente el almacenamiento de bienes, materiales o suministros en el Almacén Institucional de la CNE y Bodegas de Emergencia de la CNE, que sean propiedad de terceros, salvo en los casos determinados en forma expresa en contratos, convenios o autorizaciones correspondientes.

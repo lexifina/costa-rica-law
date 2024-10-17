@@ -1,0 +1,1 @@
+Artículo 67.-Que la cobertura de las pólizas, aparte de los casos fortuitos amparen los perjuicios o pérdidas materiales que puedan afectar, debido al descuido, negligencia o mal ejercicio o daño intencional en coordinación con la Unidad de Servicios Generales.

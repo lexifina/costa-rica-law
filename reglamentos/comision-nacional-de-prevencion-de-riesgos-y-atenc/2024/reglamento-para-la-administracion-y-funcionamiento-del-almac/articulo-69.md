@@ -1,0 +1,1 @@
+Artículo 69.-Queda expresamente prohibido a la persona Encargada del Almacén Institucional o Coordinadora de las Bodegas de Emergencia o a cualquiera de sus colaboradores la venta, intercambio, enajenación, donación de los bienes o suministros que se encuentren bajo su custodia.

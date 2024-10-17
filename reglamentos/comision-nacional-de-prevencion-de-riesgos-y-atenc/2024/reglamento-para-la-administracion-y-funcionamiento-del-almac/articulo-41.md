@@ -1,0 +1,1 @@
+Artículo 41.-Las correcciones o ajustes de la operación diaria, en el sistema automatizado deberán estar soportadas y debidamente autorizadas por la persona Encargada del Proceso de Logística y/o la quien se designe.
