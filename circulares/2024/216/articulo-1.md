@@ -1,0 +1,12 @@
+CIRCULAR N° 216-2024
+Asunto: Ampliación de la competencia que tendrá el juez o jueza penal en disponibilidad de los juzgados penales del país para atender las personas rebeldes por procesos contravencionales que son detenidas fines de semana, cierres colectivos, días feriados o asuetos.
+A TODOS LOS JUZGADOS PENALES Y CONTRAVENCIONALES DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena en sesión N° 44-2024 del 7 de octubre de 2024, artículo VII, acordó que la Secretaría General de la Corte emitiría la circular dispuesta en sesión N° 35-2023, celebrada el 08 de agosto de 2023, artículo IV, que en lo que interesa dispuso:
+"(...)
+1.) Tener por recibido el acuerdo adoptado por el Consejo Superior en sesión N° 45-2023 celebrada el 30 de mayo de 2023, artículo LXIV.
+2.) Tener por conocido el informe Nº 250-PLA-OI-2023 de la Dirección de Planificación referente a la solicitud de ampliación de la competencia que tendrá el juez o jueza penal en disponibilidad de los juzgados penales del país para atender las personas rebeldes por procesos contravencionales que son detenidas fines de semana, cierres colectivos, entre otros y aprobar las recomendaciones indicadas, en consecuencia:
+Se autoriza la ampliación de la competencia que tendrá el juez o jueza penal en disponibilidad de los juzgados penales del país para atender las personas rebeldes por procesos contravencionales que son detenidas fines de semana, cierres colectivos, días feriados o asuetos; con excepción de San José, donde existe una fiscalía y un Juzgado Penal de Turno Extraordinario, quienes, por disposición del Consejo Superior, deben conocer estos casos ya que no es proporcional esperar al día hábil siguiente para que sea el juez o jueza contravencional quien defina la situación jurídica de la persona a quien se le ha declarado rebelde, por cuanto podrían pasar varios días para que se habiliten las oficinas del Juzgado Contravencional. Se debe tomar en cuenta que la persona declarada rebelde, tiene como consecuencia una orden de captura en su contra, por lo que, al ser detenido por las autoridades de la policía, inmediatamente deberá ser puesto a la orden de una autoridad jurisdiccional para que resuelvan lo correspondiente".
+3) Los Juzgados Penales y Contravencionales del país: Tomarán en cuenta el presente informe para implementar las medidas correspondientes en los periodos de disponibilidad."
+Publíquese una vez en el Boletín Judicial.
+San José, 17 de octubre de 2024
