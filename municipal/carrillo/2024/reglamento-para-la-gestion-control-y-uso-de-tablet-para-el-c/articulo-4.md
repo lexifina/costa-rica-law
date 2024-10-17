@@ -1,0 +1,1 @@
+Artículo 4º-Las tablet serán asignadas a cada usuario, los dispositivos estarán debidamente etiquetados y configurados, con el fin de que cada miembro del concejo reciba el mismo equipo en cada sesión, para llevar un control claro del uso de cada uno de ellos.

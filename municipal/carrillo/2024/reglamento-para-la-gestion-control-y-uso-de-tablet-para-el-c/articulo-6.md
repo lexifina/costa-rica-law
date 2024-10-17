@@ -1,0 +1,1 @@
+Artículo 6º-Las tablet deben ser utilizadas solamente en las actividades llevadas a cabo dentro de la sala de sesiones, en caso de que amerite utilizar la Tablet fuera de la municipalidad por giras o sesiones se debe coordinar con la administración para su aprobación.

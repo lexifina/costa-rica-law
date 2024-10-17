@@ -1,0 +1,1 @@
+Artículo 13.-Cualquier daño físico que sufra uno de los dispositivos será responsabilidad del usuario asignado, el cual deberá generar el reporte respectivo para valorar la situación y tomar las medidas respectivas que indique la administración.

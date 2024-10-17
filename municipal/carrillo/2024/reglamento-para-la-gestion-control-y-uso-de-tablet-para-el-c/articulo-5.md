@@ -1,0 +1,1 @@
+Artículo 5º-La Secretaría del Concejo Municipal será la responsable de entregar a cada miembro del Concejo Municipal la tablet que le corresponda en cada de la misma por parte del usuario a fin de ubicarlas en un lugar seguro y con las condiciones adecuadas.

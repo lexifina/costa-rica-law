@@ -1,0 +1,1 @@
+Artículo 10.-La Secretaría del Concejo Municipal deberá enviar las actas a los correos institucionales de los miembros del Concejo Municipal con el fin de que cada regidor y síndico puedan abrir el documento en la tablet.

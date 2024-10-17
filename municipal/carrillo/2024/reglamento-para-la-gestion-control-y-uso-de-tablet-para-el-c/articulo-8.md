@@ -1,0 +1,1 @@
+Artículo 8º-A cada miembro del Concejo Municipal se le asignará un correo electrónico institucional del cual será responsable acatando el Reglamento para la Gestión, Control y Aplicación de las Tecnologías de Información Políticas para el Uso del Correo Electrónico.

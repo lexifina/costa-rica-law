@@ -1,0 +1,1 @@
+Artículo 11.-Cualquier incidencia que se presente con las tablet debe ser reportada a correo soporte@municarrillo. go.cr tal y como lo ha normado el Departamento de Tecnologías de Información y Comunicación en su Proceso de atención de incidencias.
