@@ -1,0 +1,4 @@
+Artículo 9º-Prohibiciones: Será prohibido en las estaciones municipales de carga.
+a) Reservar espacios a las personas usuarios que no se encuentren presentes en las instalaciones municipales.
+b) Permitir el uso como parqueo de las áreas destinadas exclusivamente como estaciones de carga de vehículos eléctricos.
+c) Los funcionarios municipales que cuenten con vehículo eléctrico no podrán valerse de las prerrogativas de su cargo público para utilizar de forma irrestricta las estaciones municipales de carga. No obstante, en los periodos del día de baja demanda del uso de las estaciones municipales de carga por parte de los usuarios, la persona administradora del sistema de carga podrá permitir a funcionarios municipales el uso de las estaciones de carga, en cuyo caso quedarán sujetos a todas las disposiciones del presente reglamento.

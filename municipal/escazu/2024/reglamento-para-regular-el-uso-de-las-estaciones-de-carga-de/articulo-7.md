@@ -1,0 +1,6 @@
+Artículo 7º-Obligaciones de la Municipalidad: La Municipalidad de Escazú, en cuanto a la administración de las estaciones municipales de carga, tendrá los siguientes deberes.
+a) Realizar, de conformidad con las recomendaciones técnicas del fabricante, los mantenimientos preventivos y correctivos de los sistemas de carga instalados en las estaciones municipales, para garantizar que los dispositivos estén funcionando de forma óptima. Mientras se realicen trabajos de mantenimiento de los cargadores, la Municipalidad de Escazú inhabilitará las estaciones municipales de carga.
+b) Rotular y señalizar debidamente las estaciones municipales de carga de vehículos eléctricos.
+c) Publicar el presente reglamento en los sitios oficiales de la Municipalidad de Escazú y tenerlos a disposición del público sea de forma física o digital en las estaciones municipales de carga.
+d) Dentro del horario en que estarán abiertas las estaciones municipales de carga, la Municipalidad deberá asignar a la persona administradora del sistema de carga con el objetivo de que sea brindada la facilidad a los usuarios de conformidad con los términos del presente reglamento.
+e) Destinar y señalizar las áreas de parqueos municipales que serán de uso exclusivo para la instalación de las estaciones municipales de carga.

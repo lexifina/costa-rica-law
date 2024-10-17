@@ -1,0 +1,4 @@
+Artículo 10.-Exoneración de responsabilidades: La Municipalidad de Escazú quedará exenta de cualquier responsabilidad surgida de los siguientes:
+a) La Municipalidad de Escazú, no se hace responsable de pérdidas, robos o cualquier tipo de daño que sufran los vehículos mientras se encuentren en la estación municipal de carga.
+b) La Municipalidad de Escazú, no se hace responsable por los daños que sufra vehículo mientras utilice las estaciones municipales de carga y que tengan su origen en descargas eléctricas, intermitencia del fluido eléctrico entre otras situaciones que razonablemente estén fuera del control de la Municipalidad de Escazú.
+c) La Municipalidad de Escazú, no brindará servicio de vigilancia del vehículo eléctrico que utilice las estaciones municipales de carga. La función de la persona administradora del sistema de carga, únicamente se limitará a verificar el cumplimiento del presente reglamento.

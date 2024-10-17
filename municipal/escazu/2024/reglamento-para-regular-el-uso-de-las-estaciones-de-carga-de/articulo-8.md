@@ -1,0 +1,9 @@
+Artículo 8º-Deberes de los usuarios: Las personas usuarias de las estaciones municipales de carga deberán cumplir con lo siguiente:
+a) Al momento de utilizar las estaciones municipales de carga, la persona usuaria debe estar en posesión de un vehículo eléctrico compatible con el sistema de carga.
+b) Acreditar, al momento de utilizar la estación de carga, que visita las instalaciones de la Municipalidad de Escazú para la realización de un trámite o gestión.
+c) Brindar los datos solicitados por la persona administradora del sistema de carga de previo a utilizar la estación municipal de carga. En ningún caso, la Municipalidad de Escazú solicitará a los usuarios información sensible o personal de conformidad con la normativa aplicable.
+d) Retirar el vehículo de la estación municipal de carga una vez cumplido el lapso máximo de carga establecido en el artículo 6 del presente reglamento.
+e) Acatar todas las instrucciones de uso y las regulaciones establecidas en el presente reglamento.
+f) Mientras utilice la estación municipal de carga, la persona usuaria deberá dejar asegurado su vehículo, con las ventanas cerradas y sin objetos de valor visibles desde el exterior. La Municipalidad de Escazú no se hace responsable por pérdidas o daños que presenten los vehículos mientras se encuentren en la estación municipal de carga.
+g) Verificar que los sistemas de cargas instalados en las estaciones municipales de carga sean compatibles con el vehículo que se desea cargar. La persona usuaria deberá proporcionar y hacerse responsable de los adaptadores que sean necesarios para cargar el vehículo eléctrico. La Municipalidad de Escazú, dentro de las estaciones municipales de carga tendrá visibles las especificaciones técnicas del cargador.
+h) En caso de que se compruebe una actuación negligente o dolosa de la persona usuaria, ésta será responsable de los daños ocasionados en la estación municipal de carga
