@@ -1,1 +1,0 @@
-Artículo 19.—No se podrán transferir, conceder, donar, obsequiar vender o poner a disposición de otras instituciones, organismos inventarios propiedad de la CNE, a excepción de los casos que sean autorizados por convenios, disposiciones vigentes o la Junta Directiva.

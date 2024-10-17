@@ -1,1 +1,0 @@
-Artículo 59.—Cuando sea entregada la mercadería en sitio, es deber del jefe del CUE, proporcionar al área respectiva, según sea el caso (Bodega o a Administración de Activos) la documentación soporte para el registro correspondiente.

@@ -1,1 +1,0 @@
-Artículo 52.—Para el retiro de suministros se debe confeccionar una requisición con copia al responsable de la empresa debidamente firmada por el responsable del retiro (persona autorizada) indicándole la cantidad, y el saldo disponible después de dicho retiro.

@@ -1,1 +1,0 @@
-Artículo 34.—Deberá tomarse, al menos, dos inventarios al año coordinados con la Jefatura de Contabilidad, para lo cual el jefe de bodega en coordinación con la jefatura de contabilidad programará las fechas para su ejecución y emitirá las especificaciones necesarias oportunamente.

@@ -1,1 +1,0 @@
-Artículo 20.—Todas las donaciones, para uso interno de la CNE serán registradas en el sistema automatizado, soportadas por factura o nota del donante autorizado, debiendo contemplar los datos requeridos.

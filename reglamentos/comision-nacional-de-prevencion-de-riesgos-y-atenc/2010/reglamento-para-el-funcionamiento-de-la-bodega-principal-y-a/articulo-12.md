@@ -1,1 +1,0 @@
-Artículo 12.—La jefatura de Bodega, avisara a los departamentos la fecha exacta de recibo de los suministros, para efectos de que éstos determinen si existen multas por atrasos en la entrega y calculen el monto de las mismas.

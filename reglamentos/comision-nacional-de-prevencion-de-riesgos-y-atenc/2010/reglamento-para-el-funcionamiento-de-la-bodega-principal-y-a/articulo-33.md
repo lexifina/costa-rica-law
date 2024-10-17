@@ -1,1 +1,0 @@
-Artículo 33.—El proceso de baja y destino final de suministros, materiales u activos caducos o en mal estado, deberá efectuarse conforme el procedimiento establecido para el desecho de productos perecederos o realizando el proceso de dar de baja en el caso de los activos.

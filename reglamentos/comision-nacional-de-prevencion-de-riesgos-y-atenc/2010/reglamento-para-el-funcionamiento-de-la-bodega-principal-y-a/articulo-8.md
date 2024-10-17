@@ -1,1 +1,0 @@
-Artículo 8º—En caso de no existir conformidad ente la orden de compra y la mercadería entregada por la casa comercial, no se aceptará la entrega, devolviendo la misma con nota a la proveeduría, donde indique al menos los motivos por la no aceptación de la mercadería.

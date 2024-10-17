@@ -1,1 +1,0 @@
-Artículo 37.—La captación de la información para efecto de los conteos se realizara conforme al siguiente orden: por pasillo, numero de rack, de arriba hacia abajo, de izquierda a derecha y de atrás hacia adelante.

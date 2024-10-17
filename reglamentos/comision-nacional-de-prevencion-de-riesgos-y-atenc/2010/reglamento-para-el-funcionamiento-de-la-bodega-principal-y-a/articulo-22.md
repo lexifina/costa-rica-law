@@ -1,1 +1,0 @@
-Artículo 22.—Se prohíbe terminantemente el almacenamiento de bienes, materiales o suministros en las diferentes bodegas de la CNE, que sean propiedad de terceros, salvo en los casos determinados en forma expresa en los contratos.

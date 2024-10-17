@@ -1,1 +1,0 @@
-Artículo 28.—En caso de que la mercadería deba ser enviada con un chofer, deberá existir una solicitud expresa de la dependencia correspondiente, debiéndose confeccionar un reporte de traslado, el cual debe ser firmado por la Jefatura de la bodega o a quien se designe y el chofer que trasiega la mercadería, anotando como mínimo nombre apellidos y cédula de identidad.

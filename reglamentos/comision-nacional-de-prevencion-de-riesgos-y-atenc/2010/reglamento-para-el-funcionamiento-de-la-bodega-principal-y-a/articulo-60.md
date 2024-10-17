@@ -1,1 +1,0 @@
-Artículo 60.—En el caso de los Activos, entregados en el lugar, debe gestionarse ante la Presidencia o Dirección Ejecutiva, el traspaso definitivo, del bien a la institución beneficiaria. Para estos efectos, también deberá existir un oficio justificado, el plan de inversión, el acuerdo de Junta de aprobación de dicho plan, factura comercial y la ficha de activo.

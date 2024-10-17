@@ -1,1 +1,0 @@
-Artículo 51.—Mediante comunicado oficial, el Jefe de la Bodega le informa a la empresa o institución responsable de la custodia del retiro de los suministros (nombre apellidos y cedula), adjuntando copia de la cedula del mismo.

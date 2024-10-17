@@ -1,1 +1,0 @@
-Artículo 24.—La bodega de materiales deberá mantener un registro actualizado de firmas autorizadas para poder comprobar la autenticidad en el documento requerido y ejecutar la acción de salida de la mercadería de bodega.

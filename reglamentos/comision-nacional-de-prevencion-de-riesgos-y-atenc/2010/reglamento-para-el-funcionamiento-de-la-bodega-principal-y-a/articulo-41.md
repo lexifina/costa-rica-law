@@ -1,1 +1,0 @@
-Artículo 41.—Deberá levantarse un acta de inicio y terminación de la toma física del inventario; indicando en ella como mínimo: Fecha y hora de inicio, nombre, puesto y firma de los participantes, número de última entrada y número de última salida registrada en el sistema, fecha y hora de finalización.

@@ -1,1 +1,0 @@
-Artículo 36.—Los insumos para la toma de inventarios deberán acomodarse e identificarse en los racks de la siguiente manera Numero de pasillo, numero de Rack, numero de nivel del rack. En todo caso, deberá ubicarse los artículos de manera apropiada que permitan la facilidad del conteo y en condiciones normales.

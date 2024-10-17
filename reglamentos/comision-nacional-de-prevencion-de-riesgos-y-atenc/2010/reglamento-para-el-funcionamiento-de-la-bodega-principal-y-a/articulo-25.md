@@ -1,1 +1,0 @@
-Artículo 25.—Todas las salidas deberán estar soportadas con las requisiciones generadas por el sistema, debidamente autorizadas, en caso de ausencia de éstas no se podrá hacer entrega de la mercadería.

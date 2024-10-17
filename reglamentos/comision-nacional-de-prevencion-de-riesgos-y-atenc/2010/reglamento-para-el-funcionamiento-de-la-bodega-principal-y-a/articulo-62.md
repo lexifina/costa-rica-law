@@ -1,1 +1,0 @@
-Artículo 62.—Que la cobertura de las pólizas, aparte de los casos fortuitos amparen los perjuicios o pérdidas materiales que puedan afectar, debido al descuido, negligencia o mal ejercicio o daño intencional.

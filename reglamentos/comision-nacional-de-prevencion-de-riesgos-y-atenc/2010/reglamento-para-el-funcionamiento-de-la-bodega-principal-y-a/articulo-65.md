@@ -1,1 +1,0 @@
-Artículo 65.—Para este caso se debe asignar un código especial en el sistema automatizado, para efecto de conciliación de movimientos entre la bodega principal y las bodegas regionales y evitar duplicidad de registros (que no originen aumentar la cantidad ni el costo de inventario).

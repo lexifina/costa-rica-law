@@ -1,1 +1,0 @@
-Artículo 54.—Periódicamente (una vez al mes) se realizará un inventario físico de las existencias para determinar que no existan diferencias. Del documento obtenido se entregara un tanto a la persona encargada de la custodia. Esto independientemente de los inventarios que realice la Contabilidad, Auditoría Interna u otra entidad debidamente acreditada para ello.

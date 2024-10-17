@@ -1,1 +1,0 @@
-Artículo 30.—En los primeros cinco días del mes siguiente, la Jefatura de Bodega, enviará un reporte al Departamento de Servicios Generales, indicándole las variaciones del costo de inventario sufrido durante el mes, con el fin de que se mantenga actualizados los seguros de la mercadería.
