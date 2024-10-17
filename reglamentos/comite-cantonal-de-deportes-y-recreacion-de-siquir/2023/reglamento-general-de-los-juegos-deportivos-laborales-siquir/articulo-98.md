@@ -1,0 +1,2 @@
+Artículo 98.-No se permiten cambio de jugadores dentro del ring (de mesa a mesa), excepto si sólo tuviera seis, ocho o diez jugadores. Si solo se contaran con siete o nueve jugadores deberán esperar a que se contabilice un punto en la mesa salidora para poder ir a otra mesa; si no se realizara de esta manera, perderá un punto en la mesa saliente y en la mesa que ingresará.
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

@@ -1,0 +1,2 @@
+Artículo 100.-Ningún partido debe jugarse sin fiscal. Si fuera que el fiscal no llegase, en común acuerdo podrán decidir los representantes de equipo si se juega o no y sería hasta finalizado el primer tiempo. De no hacerse presente el fiscal antes del inicio del segundo tiempo se deberá suspender el partido y comunicar de inmediato al comité organizador para su debido proceso.
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

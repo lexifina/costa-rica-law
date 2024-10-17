@@ -14,3 +14,4 @@ Reglamento general de los Juegos Deportivos Laborales Siquirres 2023
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-09-27 | la propia norma |
+| 2 | 2024-10-17 | Reglamento 18 (2024-10-17) |

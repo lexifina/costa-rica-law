@@ -1,0 +1,2 @@
+Artículo 102.-Si se comprueba que un jugador de cualquier equipo esté haciendo señas desde fuera del ring, se le expulsará automáticamente y el equipo perderá un punto en la mesa y él jugador tendrá la suspensión del evento (no importa que el jugador no pertenezca a ninguno de los equipos que estén participando).
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

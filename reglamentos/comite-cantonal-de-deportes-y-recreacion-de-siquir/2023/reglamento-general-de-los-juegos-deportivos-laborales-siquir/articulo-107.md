@@ -1,0 +1,2 @@
+Artículo 107.-Si un jugador saca de su mano una ficha con intención de jugarla no podrá devolverla, y si no procede, deberá ponerla aparte, llamar al fiscal para verificarlo, si lo hace pierde un punto en la mesa. Si el fiscal causara discordia en la mesa el fiscal le mostrará una tarjeta amarilla y si reincide la roja y será expulsado del evento.
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

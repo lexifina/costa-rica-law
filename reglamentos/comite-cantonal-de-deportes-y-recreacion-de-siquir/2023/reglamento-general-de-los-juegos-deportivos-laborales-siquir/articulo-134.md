@@ -1,0 +1,2 @@
+Artículo 134.-En caso de empate en el marcador al finalizar los partidos semifinales y en las disputas por el primer y tercer lugar, se procederá a lanzamientos de tiro libre desde el punto de penal (no habrá tiempos extras), la cantidad será de tres. De continuar empate se procede a muerte súbita en lanzamientos de penal
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

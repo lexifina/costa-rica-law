@@ -1,0 +1,5 @@
+Artículo 126.-De las inscripciones.
+126.1.-Es responsabilidad exclusiva de cada institución participante en los Juegos Laborales inscribir a sus participantes, mediante el sistema de Acreditación que el comité organizador así defina para atletas, cuerpos técnicos, delegados, deportes y pruebas a competir, así como información de la condición de salud de cada uno de los participantes. Este proceso se debe efectuar en las fechas establecidas.
+126.2.-Se permitirá inscribir un máximo de 12 jugadores(as) y un mínimo de 10, un entrenador(a), un asistente, y un delegado.
+126.3.-Cada Institución debe inscribir (mediante la hoja de inscripción, según fechas definidas del proceso de inscripción general) mediante una imagen y descripción dos juegos de uniforme por equipo, uno fondo claro y otro fondo oscuro, el equipo que sea ubicado en la programación oficial de primero debe jugar con el uniforme de fondo claro y el rival con el uniforme fondo oscuro.
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)

@@ -1,0 +1,2 @@
+Artículo 92.-Cuando en una mesa se esté perdiendo por un marcador de seis a cero, la pareja puede solicitar al fiscal un permiso para ausentarse de la misma y se les otorgará a ambos jugadores tres minutos que deberá ser cronometrado por el fiscal y: transcurrido el tiempo y no se presentan a la mesa pierden el partido por diez a cero y se acreditan dos puntos en la pizarra.
+(Así adicionado mediante sesión ordinaria N° 018-2024 y publicada en La Gaceta N° 194 del 17 de octubre del 2024)
