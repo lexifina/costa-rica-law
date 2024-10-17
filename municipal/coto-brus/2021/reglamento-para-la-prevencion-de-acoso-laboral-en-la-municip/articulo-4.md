@@ -1,0 +1,1 @@
+Artículo 4°-Cláusula de resolución contractual. La Municipalidad de Coto Brus incluirá en sus contratos una cláusula de resolución en caso reiterado de incumplimiento de la normativa sobre acoso laboral a las empresas que le prestan servicio.

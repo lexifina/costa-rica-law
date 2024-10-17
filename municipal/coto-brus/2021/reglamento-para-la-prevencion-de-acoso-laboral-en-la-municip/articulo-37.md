@@ -1,0 +1,1 @@
+Artículo 37.-De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será el Alcalde o Jerarca correspondiente, el que comunicará mediante copia al Departamento de Recursos Humanos con el fin de que se incluya en el respectivo expediente.
