@@ -1,0 +1,1 @@
+Transitorio II. Reglamentación Técnica. El Ministerio de Salud contará con un plazo de diez meses a partir de la entrada en vigencia del presente reglamento, para elaborar la reglamentación técnica sobre disposiciones administrativas, registro sanitario y de control relacionadas con derivados y productos medicinales a base de cannabis.
