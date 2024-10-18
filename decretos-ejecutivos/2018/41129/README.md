@@ -14,3 +14,4 @@ Regulación del permiso de uso para la instalación de infraestructura de teleco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-14 | la propia norma |
+| 2 | 2024-10-18 | Decreto Ejecutivo 44820 (2024-10-18) |
