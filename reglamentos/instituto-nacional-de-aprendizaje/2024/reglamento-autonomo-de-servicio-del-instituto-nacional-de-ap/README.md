@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-31 | la propia norma |
+| 2 | 2024-10-18 | Reglamento 0 (2024-10-18) |
