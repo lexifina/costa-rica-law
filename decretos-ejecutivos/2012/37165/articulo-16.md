@@ -1,1 +1,0 @@
-Artículo 16.- El hogar de larga estancia para personas adultas mayores, debe de contar con un área disponible (no necesariamente exclusivo), para las actividades de los profesionales en medicina, enfermería u otras disciplinas, en buenas condiciones.

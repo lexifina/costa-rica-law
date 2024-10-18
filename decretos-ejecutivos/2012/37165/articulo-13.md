@@ -1,1 +1,0 @@
-Artículo 13.- Los menús del hogar de larga estancia para personas adultas mayores, deberán de estar confeccionados por un profesional en nutrición incorporado al Colegio de Nutricionistas y contar con un o una cocinera y auxiliar de cocina con el curso de manipulación de alimentos al día.

@@ -1,1 +1,0 @@
-Artículo 31.- El hogar de larga estancia para personas adultas mayores debe contar con los perfiles de los profesionales que tienen acceso a la atención del residente, así como tener la información relevante para su localización en caso de una emergencia.

@@ -1,1 +1,0 @@
-Artículo 17.- El hogar de larga estancia para personas adultas mayores debe de tener un área de cocina y contar con el espacio para la recepción, almacenamiento, preparación de los alimentos, así como el área de comedor y limpieza.

@@ -1,1 +1,0 @@
-Artículo 36.-El establecimiento debe contar con basureros para cada área, que tengan tapa y bolsa plástica, de color y rotulación, para los residuos sólidos de origen vegetal como cáscaras, semillas, componentes de plantas y sólidos de origen animal como huesos y partes de animales.

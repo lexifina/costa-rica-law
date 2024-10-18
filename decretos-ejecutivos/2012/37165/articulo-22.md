@@ -1,1 +1,0 @@
-Artículo 22.- El hogar de larga estancia para personas adultas mayores debe contar con un manual de procedimientos administrativos, de funciones y responsabilidades que incluya a todo el personal que labora en el mismo, incluyendo al voluntariado, con descripción de cada puesto.

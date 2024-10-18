@@ -1,1 +1,0 @@
-Artículo 14.- El hogar de larga estancia para personas adultas mayores, debe tener acceso garantizado a los servicios públicos de salud, a una distancia no mayor de 10 km, o en su defecto tener acceso a un profesional en Medicina, Enfermería y Trabajo Social todos con capacitación o formación en el campo de gerontología, e incorporados a sus respectivos Colegios Profesionales.
