@@ -1,0 +1,1 @@
+Artículo 158.-Las organizaciones que administren instalaciones deportivas municipales, brindaran un informe anual al Comité Cantonal de Deportes y Recreación quien lo avalará y lo remitirá al Concejo Municipal, en el incluirán el trabajo realizado, así como el informe económico.

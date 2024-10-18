@@ -1,0 +1,1 @@
+Artículo 10.-El Comité funcionará con el presente reglamento que incluye además las normas para regular el funcionamiento de los comités y subcomités comunales y la administración de las instalaciones deportivas otorgadas en administración.

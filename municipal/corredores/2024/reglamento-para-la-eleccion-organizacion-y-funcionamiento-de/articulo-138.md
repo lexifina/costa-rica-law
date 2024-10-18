@@ -1,0 +1,1 @@
+Artículo 138.-Los ingresos por concepto de alquileres, se destinará exclusivamente a la instalación deportiva de la comunidad donde ingreso, la cual se utilizará para gastos operativos de luz, agua, recorte de césped, mantenimiento, mejoras y obras en la instalación deportiva correspondiente.

@@ -1,0 +1,1 @@
+Artículo 133.-Los subcomités subordinados a los Comités Comunales podrán apelar ante la Junta Directiva del Comité Cantonal, cualquier resolución que les afecte emanada de los comités comunales. Para lo cual el CCDRC estará en la obligación de analizar la situación y resolver lo conducente.
