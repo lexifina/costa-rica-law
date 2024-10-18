@@ -1,1 +1,0 @@
-Artículo 30.—El Auditor Interno y su personal tendrán las prohibiciones que establecen el artículo Nº 34 de la Ley General de Control Interno y demás normativa que regula esta actividad dentro de su ámbito de competencia.

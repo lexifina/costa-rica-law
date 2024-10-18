@@ -1,1 +1,0 @@
-Artículo 33.—El Auditor Interno y su personal tendrán las atribuciones que establecen el artículo Nº 17 de la Ley Orgánica del Instituto Costarricense de Puertos del Pacífico (Nº 1721) y sus reformas.

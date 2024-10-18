@@ -1,1 +1,0 @@
-Artículo 11.—Corresponderá al Auditor Interno, establecer la estructura organizativa de la unidad de Auditoría Interna que considere prudente y de acuerdo con las necesidades que se planteen en dicha unidad.

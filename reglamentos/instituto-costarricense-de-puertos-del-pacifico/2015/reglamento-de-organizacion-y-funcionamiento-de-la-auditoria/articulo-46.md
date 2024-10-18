@@ -1,1 +1,0 @@
-Artículo 46.—En caso de la atención de denuncias, las que sean puestas en su conocimiento y sean de su competencia, serán examinadas dentro de un plazo razonable de acuerdo con los recursos disponibles y complejidad de los hechos denunciados y, según los procedimientos definidos internamente por esta Auditoría Interna para tales efectos.

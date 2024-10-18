@@ -1,1 +1,0 @@
-Artículo 45.—La Auditoría Interna ejecutará un seguimiento de las recomendaciones aceptadas y comunicadas a la Administración Activa, del cual brindará un informe anual, o cuando lo estime pertinente, al Jerarca.

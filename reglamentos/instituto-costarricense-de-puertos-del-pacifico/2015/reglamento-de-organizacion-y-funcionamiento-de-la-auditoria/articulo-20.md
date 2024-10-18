@@ -1,1 +1,0 @@
-Artículo 20.—El Auditor Interno deberá elaborar un plan anual de trabajo de conformidad con lo que en este sentido establezcan las Normas para el ejercicio de la Auditoría Interna en el Sector Público, dictadas por la Contraloría General de la República. El plan deberá ser presentado ante la Junta Directiva para su conocimiento.
