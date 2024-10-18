@@ -16,3 +16,4 @@ Reglamento General de Seguridad e Higiene de Trabajo
 | 1 | 1967-02-23 | la propia norma |
 | 2 | 1980-04-30 | Decreto Ejecutivo 11429 (1980-04-30) |
 | 3 | 2016-03-03 | Decreto Ejecutivo 39611 (2016-03-03) |
+| 4 | 2024-10-18 | Decreto Ejecutivo 44826 (2024-10-18) |
