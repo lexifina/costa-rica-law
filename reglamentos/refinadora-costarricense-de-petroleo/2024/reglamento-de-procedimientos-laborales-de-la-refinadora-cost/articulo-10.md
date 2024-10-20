@@ -1,0 +1,4 @@
+Artículo 10.- Citaciones
+Cuando se aporte y admita prueba testimonial, la parte proponente podrá solicitar la emisión de cédulas de citación para los testigos ofrecidos. Dicha gestión deberá realizarse con al menos cinco (5) días hábiles de antelación a la fecha de la comparecencia, salvo casos excepcionales en los que a criterio del órgano director, la declaración del testigo sea necesaria para determinar la verdad real de los hechos investigados. La emisión de las cédulas se realizará en un (1) día hábil.
+La notificación de la cédula de citación se hará por medio de la parte interesada, que deberá presentar las cédulas debidamente firmadas por los testigos, a más tardar el día de la comparecencia.
+Si la persona llamada a testificar es trabajadora de RECOPE y la parte no pudiera notificar la cédula de citación por razones que no le sean imputables, podrá solicitar al órgano director, tres (3) días hábiles antes de la comparecencia, su diligenciamiento.

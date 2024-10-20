@@ -1,0 +1,3 @@
+Artículo 42.- Responsabilidad civil
+En aquellos casos en los que en el procedimiento se haya logrado determinar responsabilidad civil, una vez firme el acto final, el órgano decisor remitirá la resolución final a la unidad administrativa correspondiente para que proceda a la ejecución del cobro, la cual será responsable de dar plena ejecución a lo resuelto.
+Si la gestión de cobro administrativo no diere resultado, después de al menos dos gestiones, el órgano decisor deberá certificar el acto final dictado en el respectivo procedimiento con el fin de proceder con el cobro judicial por parte de la Asesoría Jurídica.

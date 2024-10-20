@@ -1,0 +1,2 @@
+Artículo 46.- Ordinariar la vía
+En caso de que el Titular Subordinado que conoce el asunto, considere que la falta es grave y amerita una sanción disciplinaria mayor a una amonestación por escrito, de forma inmediata y cumpliendo los requisitos establecidos en el artículo 24 de este Reglamento, remitirá el caso al órgano decisor que corresponda a efecto de que valore la apertura de un procedimiento disciplinario de carácter ordinario.

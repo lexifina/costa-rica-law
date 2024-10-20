@@ -1,0 +1,10 @@
+Artículo 8.- Acumulación de procedimientos
+Podrán unificarse dos o más procedimientos que guarden conexión por su objeto, sujetos o hechos, con el fin de resolverlos conjuntamente y evitar decisiones contradictorias o duplicidad de esfuerzos. La acumulación podrá ser promovida de oficio o a solicitud de parte.
+La acumulación no afectará los plazos y términos procesales ya cumplidos en cada uno de los procedimientos acumulados, salvo que el órgano disponga lo contrario para garantizar el derecho de defensa de las partes.
+Los actos procesales realizados en cualquiera de los procedimientos acumulados conservarán su validez y eficacia, y serán considerados como realizados en el procedimiento acumulado.
+No procederá la acumulación cuando con ello se cause un perjuicio grave a alguna de las partes, cuando los procedimientos se encuentren en fases procesales incompatibles o cuando la acumulación resulte en una excesiva demora en la resolución de los procedimientos.
+8.1 Responsabilidad disciplinaria y civil
+En un solo procedimiento se determinarán tanto la responsabilidad disciplinaria como civil, salvo en aquellos casos en que no existan elementos suficientes para ello, debiéndose tramitar en forma independiente.
+8.2 Desacumulación
+En casos excepcionales, y por motivos debidamente justificados, el órgano podrá ordenar la desacumulación de los procedimientos, retornando cada uno a su trámite original y continuaran en el estado procesal en que se encuentren, sin que se puedan repetir etapas precluidas. La resolución de desacumulación será motivada y notificada a todas las partes, y no tendrá recursos.
+En procedimientos donde concurran varias partes, cuando llegase a existir una ausencia justificada que le impida a una o varias partes ejercer su derecho de defensa o cuando ello se estime pertinente para la buena marcha del procedimiento, el órgano podrá separar las causas y tramitarlas en expediente aparte, salvo cuando su concurrencia junto con las demás partes se considere imprescindible para su correcto desarrollo.

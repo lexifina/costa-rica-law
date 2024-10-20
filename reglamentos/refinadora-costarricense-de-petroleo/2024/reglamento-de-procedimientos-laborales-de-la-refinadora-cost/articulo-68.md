@@ -1,0 +1,2 @@
+Artículo 68.- Derogatorias
+Deróguese el Reglamento sobre Procedimientos Administrativos Sancionatorios PE-00-17-027, aprobado por la Junta Directiva de RECOPE en el artículo N° 11, de la sesión ordinaria número 5299-271, celebrada el 27 de abril de 2022 y el artículo 16 del Reglamento General de Caja Chica PA-01-17-002, aprobado por la Junta Directiva de RECOPE en el artículo N° 4, de la sesión ordinaria número 5388-86, celebrada el 19 de diciembre de 2023.

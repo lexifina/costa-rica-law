@@ -1,0 +1,3 @@
+Artículo 14.- De los términos y plazos
+Los órganos tendrán siempre el deber de resolver dentro de los plazos de este reglamento. Los plazos señalados para la administración se considerarán de carácter ordenatorio y las actuaciones que se realicen fuera del plazo serán válidas para todo efecto legal, salvo disposición legal en contrario. No obstante, las personas encargadas del procedimiento podrán incurrir en responsabilidad disciplinaria por el atraso injustificado de sus actuaciones.
+Los plazos para que los órganos superiores, que conocen en alzada, resuelvan empezarán a correr a partir de la recepción del expediente.
