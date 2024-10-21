@@ -1,4 +1,3 @@
-Artículo 37.-De la Auditoría Interna. La persona Auditora Interna o en su ausencia temporal la persona Subauditora Interna, asistirá a las sesiones ordinarias y extraordinarias de la Junta Directiva cuando se le convoque
-para asesorar en materia de su competencia, o cuando lo estime pertinente para el cabal cumplimiento de sus funciones.
+Artículo 37.—De la Auditoría Interna. La persona Auditora Interna o en su ausencia temporal la persona Subauditora Interna, asistirá a las sesiones ordinarias y extraordinarias de la Junta Directiva cuando se le convoque para asesorar en materia de su competencia, o cuando lo estime pertinente para el cabal cumplimiento de sus funciones.
 Su intervención tendrá carácter fundamental para la fiscalización, con independencia y objetividad, sobre la legalidad y la eficacia de los controles internos y del manejo de los recursos Institucionales, así como de los demás acuerdos y asuntos que dicte la Junta Directiva.
 Será un órgano de apoyo para la Junta Directiva, dentro del marco de la independencia que rige su accionar. Sus recomendaciones, asesorías y advertencias deberán estar direccionadas a reforzar la gestión.

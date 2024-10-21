@@ -1,1 +1,1 @@
-Artículo 42.-Modificaciones al Reglamento. Las reformas del presente Reglamento, se harán por el voto de las dos terceras partes (mayoría calificada) de quienes integran la Junta Directiva, con observación de las formalidades dispuestas en la Ley General de la Administración Pública.
+Artículo 42.—Modificaciones al Reglamento. Las reformas del presente Reglamento, se harán por el voto de las dos terceras partes (mayoría calificada) de quienes integran la Junta Directiva, con observación de las formalidades dispuestas en la Ley General de la Administración Pública.

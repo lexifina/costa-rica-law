@@ -19,3 +19,4 @@ Reglamento de la Junta Directiva del Instituto Nacional de Aprendizaje
 | 4 | 2018-06-27 | Reglamento 4851 (2018-06-27) |
 | 5 | 2022-10-17 | Reglamento 37 (2022-10-17) |
 | 6 | 2023-06-26 | Reglamento 24 (2023-06-26) |
+| 7 | 2024-10-21 | Reglamento 34 (2024-10-21) |

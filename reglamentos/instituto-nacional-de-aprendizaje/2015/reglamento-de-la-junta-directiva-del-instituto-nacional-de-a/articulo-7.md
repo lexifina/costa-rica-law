@@ -1,4 +1,4 @@
-Artículo 7º-Deberes y atribuciones de las personas integrantes de la Junta Directiva:
+Artículo 7º—Deberes y atribuciones de las personas integrantes de la Junta Directiva:
 a. Asistir puntualmente y permanecer en todas las sesiones ordinarias y extraordinarias.
 b. No abandonar las sesiones, sin solicitar permiso a quien preside o de quien cumpla esa función.
 c. Cumplir con los encargos que les asigne la Junta Directiva o de quien ejerza la Presidencia de la Junta Directiva según sus atribuciones, y en los términos fijados.

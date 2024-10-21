@@ -1,2 +1,3 @@
-Artículo 16.-Grabación de las sesiones. Toda sesión de la Junta Directiva deberá ser grabada en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente.
-Será obligación de todos los miembros del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+Artículo 16.—Grabación de las sesiones. Toda sesión de la Junta Directiva deberá ser grabada en audio y video y ser respaldadas en un medio digital que garantice su integridad y archivo de conformidad con la legislación vigente.
+Será función de la Secretaría Técnica de la Junta Directiva grabar el audio y video de las sesiones y una obligación de todos los miembros del cuerpo colegiado verificar que se realice la grabación de la sesión y constituirá falta grave el no hacerlo.
+(Así ajustado mediante reforma aprobada por la Junta Directiva del INA, acuerdo JD-AC299-2024 en la Sesión 34- 2024, del 21 de octubre del 2024).

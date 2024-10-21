@@ -1,3 +1,3 @@
 CAPÍTULO XII
-Disposiciones Transitorias
-Artículo 43.-Transitorios
+Disposiciones transitorias
+Artículo 43.—Transitorios
