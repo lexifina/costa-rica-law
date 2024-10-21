@@ -14,3 +14,4 @@ Reglamento para el pago de compensación por disponibilidad de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-15 | la propia norma |
+| 2 | 2024-10-21 | Reglamento municipal 25 (2024-10-21) |
