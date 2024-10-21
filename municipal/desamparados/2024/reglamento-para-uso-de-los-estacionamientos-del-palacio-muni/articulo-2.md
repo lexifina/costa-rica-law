@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento se aplica a todos los usuarios de los estacionamientos de los parqueos del palacio y gimnasio de la Municipalidad de Desamparados, ya sean autoridades municipales, empleados, visitantes, proveedores u otras personas autorizadas.

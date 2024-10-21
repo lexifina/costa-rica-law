@@ -1,0 +1,3 @@
+CAPÍTULO 2
+Áreas de estacionamiento y usos
+Artículo 8º-Prioridades del área de estacionamiento 1. Para la asignación de lugares en el área de Estacionamiento 1, el área administrativa de la municipalidad dará prioridad a vehículos municipales, a la alcaldía y vicealcaldías. Así mismo debe de garantizar como mínimo 3 espacios para miembros del concejo municipal en horario laboral administrativo que corresponde de 7 de la mañana a 4 de la tarde. Esto no excluye la posibilidad del uso de más espacios de parqueo por parte de miembros del concejo municipal en caso de existir disponibilidad en el área de estacionamiento. En cuanto a los demás funcionarios municipales, queda sujeto a la disponibilidad de los espacios de estacionamiento.

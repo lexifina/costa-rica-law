@@ -1,0 +1,1 @@
+Artículo 9º-Prioridades del área de estacionamiento 2. Para la asignación de lugares en el área de estacionamiento 2 estos quedarán a criterio de la Administración Municipal y tendrá como prioridad el uso para los demás funcionarios municipales que no encuentren espacio en el área de estacionamiento 1.

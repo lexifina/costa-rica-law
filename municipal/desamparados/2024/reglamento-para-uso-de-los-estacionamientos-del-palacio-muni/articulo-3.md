@@ -1,0 +1,1 @@
+Artículo 3º-Uso. Las áreas de estacionamiento son para uso de los vehículos oficiales de la Municipalidad; y así mismo a través del personal administrativo, podrán conceder permiso de uso tanto a las autoridades de la Municipalidad, sus funcionarios, proveedores, así como los visitantes.

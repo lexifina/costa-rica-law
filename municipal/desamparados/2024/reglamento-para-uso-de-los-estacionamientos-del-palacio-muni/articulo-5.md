@@ -1,0 +1,1 @@
+Artículo 5º-Administración. La administración de las áreas de estacionamiento estará bajo la dirección y responsabilidad del jefe del área administrativa de la Municipalidad, quien velará por su correcta, óptima utilización y el cumplimiento de este reglamento.

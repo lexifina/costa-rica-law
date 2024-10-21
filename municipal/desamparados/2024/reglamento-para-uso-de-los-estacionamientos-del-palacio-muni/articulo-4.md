@@ -1,0 +1,1 @@
+Artículo 4º-Sobre la asignación del servicio. El permiso de estacionamiento de la Municipalidad a los funcionarios y miembros de la Municipalidad no podrá considerarse un derecho sino, un servicio regulado por la Administración.

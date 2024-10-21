@@ -1,0 +1,1 @@
+Artículo 7º-Control de los estacionamientos. Para lograr un adecuado control del ingreso de vehículos la Administración Municipal mantendrá un debido control de los números de placa de circulación de los vehículos que ingresen al palacio municipal.

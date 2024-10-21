@@ -1,0 +1,1 @@
+Artículo 6º-Responsabilidad de la asignación. Corresponde a la Administración Municipal velar por el óptimo uso de las áreas de estacionamiento, debiendo asignar el lugar correspondiente a quienes autorice.
