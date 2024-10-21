@@ -1,0 +1,1 @@
+Artículo 19.-Suspensión de la Tramitación de un Caso. La Contraloría suspenderá una investigación si se acredita que el mismo hecho es conocido por otra instancia administrativa o judicial competente para resolverlo.

@@ -1,0 +1,1 @@
+Artículo 8º-Atención al Público. El horario de atención al público es de lunes a viernes, de 8:00 a.m. a 4:00 p.m. Para consultas, puede comunicarse al teléfono 2799-0359 o enviar un correo electrónico a contraloriadeservicios@japdeva.go.cr.

@@ -1,0 +1,1 @@
+Artículo 7º-Ubicación Física de la UCS. La Unidad de Contraloría de Servicios se encuentra en la segunda planta del Edificio de Presidencia Ejecutiva en Moín. Se garantiza a los usuarios un acceso fácil y adecuado a sus servicios, así como un espacio que asegure la privacidad durante la presentación de sus inconformidades.

@@ -1,0 +1,1 @@
+Artículo 10.-Objetivo de la Contraloría de Servicios. El objetivo de la Contraloría de Servicios es promover y garantizar el respeto de los derechos de los usuarios y establecer políticas de calidad en la prestación de los servicios que brinda JAPDEVA.
