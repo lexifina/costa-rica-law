@@ -1,0 +1,7 @@
+Artículo 22.-Normas de publicación en redes sociales.
+a) Respeto a la comunidad: Se debe mantener un ambiente de respeto y tolerancia. Los comentarios que contengan insultos de cualquier naturaleza ya sean étnicos, xenofóbicos o personales, serán inaceptables, por lo tanto, serán eliminados. Se protegerá la privacidad de las personas y no se divulgará información confidencial sin su consentimiento.
+b) Otros fines: No se podrá utilizar el nombre, logo, o cualquier otro distintivo con fines políticos y/o publicitarios.
+c) Respeto a los derechos de autor: Todo el contenido publicado, documentos, imágenes, archivos audiovisuales u otros, deben respetar los derechos de autor cuando así corresponda.
+d) El contenido oficial publicado: Las fotos y videos publicados deben ser en concordancia, única y exclusivamente, con el acontecer municipal, se podrá incluir rendición de cuentas de proyectos, anuncios importantes, acciones realizadas o preventivas, con carácter oficial. Se respaldan por un periodista profesional incorporado al Colegio de Periodistas y Profesionales en Comunicación de Costa Rica.
+e) Respeto de las diferencias: Se permitirán todas las opiniones, siempre que estén en un marco de respeto profesional y ciudadano.
+f) No insultar o caer en provocaciones: Cuando se identifique un usuario que realice ataques basados en insultos o argumentaciones falsas, este deberá reportarse, no obstante, no se podrá responder con insultos.

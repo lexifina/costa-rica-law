@@ -1,0 +1,2 @@
+Artículo 21.-Sobre propaganda y apoyo electoral. No se permite y queda rotundamente prohibido la publicación de publicidad o propaganda electoral, anuncios comerciales y políticos, excepto aquella proveniente directamente del Tribunal Supremo de Elecciones (TSE).
+Así mismo no se permitirá el uso de la página web y redes sociales oficiales de la Municipalidad de Desamparados para dar apoyo hacia algún partido político, o la difusión de mensajes proselitistas incluyendo la publicación o el uso de elementos gráficos de esta naturaleza.

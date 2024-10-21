@@ -1,0 +1,2 @@
+Artículo 2°-De los responsables. El Área de Comunicación e Imagen de la Municipalidad de Desamparados deberá administrar y generar contenido para la página web y diversas redes sociales, procurando siempre la objetividad, veracidad, equilibrio y actualización de la información publicada en dichas plataformas.
+Cada unidad, departamento y área de la Municipalidad de Desamparados que solicite publicar para generar contenido en las redes sociales, será responsable de la veracidad, relevancia y actualización de la información publicada en dichas plataformas.
