@@ -17,3 +17,4 @@ Reglamento para la Asignación, control y liquidación de Partidas Municipales a
 | 2 | 2021-09-27 | Reglamento municipal 120 (2021-09-27) |
 | 3 | 2023-06-26 | Reglamento municipal 266 (2023-06-26) |
 | 4 | 2023-11-06 | Reglamento municipal 302 (2023-11-06) |
+| 5 | 2024-10-21 | Reglamento municipal 43 (2024-10-21) |
