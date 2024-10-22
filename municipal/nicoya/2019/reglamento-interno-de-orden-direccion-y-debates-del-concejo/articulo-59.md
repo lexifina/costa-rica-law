@@ -9,12 +9,12 @@ Las comisiones permanentes analizarán, dictaminarán y recomendarán, sobre los
 1.4. Los otros asuntos relacionados o afines o que le asigne el Concejo para su conocimiento
 2. COMISION DE OBRAS PÚBLICAS
 2.1. Las obras públicas que se construyan en la jurisdicción del Cantón Central de Nicoya,
-2.2. El ordenamiento urbano y el Plan Director Urbano,
+2.2. (Suprimido en sesión N° 025 del 22 de octubre de 2024)
 2.3. La conservación de los edificios declarados patrimonio histórico,
 2.4. La planificación, diseño y construcción de obras públicas por parte de la Municipalidad de Nicoya u otras entidades del Estado,
 2.5. Otras obras afines a las obras públicas, construcciones, Edificaciones, etc.
-2.6 La apelación en denegatoria de Usos de suelo (Art. 8 del PDU)
-2.7 Los permisos para uso de espacio público (Art. 7 Reg. PDU)
+2.6 (Suprimido en sesión N° 025 del 22 de octubre de 2024)
+2.7 (Suprimido en sesión N° 025 del 22 de octubre de 2024)
 2.8. Los otros relacionados o afines o que le asigne el Concejo para su conocimiento,
 3. COMISION DE ASUNTOS SOCIALES
 3.1. La educación,

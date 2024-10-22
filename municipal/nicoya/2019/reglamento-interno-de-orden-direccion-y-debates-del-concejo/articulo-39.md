@@ -1,2 +1,2 @@
-ARTÍCULO 39. ACUERDOS. PERMANENCIA DE PERSONAS AJENAS AL CONCEJO DURANTE LAS SESIONES.
-Durante el transcurso de las sesiones del Concejo, solo podrán permanecer en el Salón, los regidores, síndicos, el Alcalde, sus suplentes el Secretario Municipal, el Auditor Municipal y los asesores del Concejo, salvo lo que disponga en contrario la Presidencia de éste por excepción.
+Artículo 39. Acuerdos. Permanencia de Personas Ajenas al Concejo Durante las Sesiones. Las sesiones del Concejo Municipal son públicas y abiertas a los ciudadanos, lo anterior respetando el aforo permitido y el resguardo de la integridad y seguridad de todos los presentes, de ser necesario se podrá solicitar colaboración de la Fuerza Pública para el mantenimiento del orden.
+(Así reformado en sesión N° 025 del 22 de octubre de 2024)

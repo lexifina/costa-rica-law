@@ -15,3 +15,4 @@ Reglamento interno de orden, dirección y debates del Concejo Municipal del Cant
 | --- | --- | --- |
 | 1 | 2019-09-30 | la propia norma |
 | 2 | 2019-10-14 | Reglamento municipal 180 (2019-10-14) |
+| 3 | 2024-10-22 | Reglamento municipal 25 (2024-10-22) |

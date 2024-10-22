@@ -1,3 +1,2 @@
-ARTÍCULO 24. ACUERDOS. MOCIONES
-Toda moción de un regidor o del alcalde, debe ser presentada a la Secretaría Municipal, con todos los requisitos fijados por este Reglamento, con una antelación de tres horas a la hora fijada para el inicio de la sesión respectiva. Las mociones presentadas a la Secretaría luego de esta hora, no se introducirán en la agenda de la sesión de ese día, sino que se reservarán para ser incluidas en el capítulo respectivo de la sesión siguiente.
-Si un proponente considera que, por motivos de urgencia, su moción debe ser conocida en la sesión del mismo día en que fue presentada a la Secretaría o planteada directamente en esa sesión, lo puede hacer mediante una moción de alteración del orden del día, la cual requerirá de votación calificada, para ser aprobada.
+Artículo 24. Acuerdos. Mociones. Toda moción de un regidor o del alcalde, debe ser presentada a la Secretaría Municipal.
+(Así reformado en sesión N° 025 del 22 de octubre de 2024)
