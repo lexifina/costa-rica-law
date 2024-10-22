@@ -1,1 +1,0 @@
-Artículo 25.- Comisiones. A partir de la publicación del presente reglamento en el diario oficial La Gaceta, todas las comisiones de pago de horas extra que se hayan creado en el Consejo, quedarán sin efecto y deberán ser eliminadas.
