@@ -13,3 +13,4 @@ Reglamento para regular el procedimiento de selección, designación y ejercicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-03 | la propia norma |
+| 2 | 2024-10-22 | Circular 219 (2024-10-22) |
