@@ -1,1 +1,0 @@
-Artículo 29. Derogatoria. Este documento deroga el Reglamento para la Operación de Fondos de Trabajo código del documento 33.02.001.2005, versión 5, publicado en el Alcance 276 de La Gaceta 242 del 29 de diciembre del 2022.

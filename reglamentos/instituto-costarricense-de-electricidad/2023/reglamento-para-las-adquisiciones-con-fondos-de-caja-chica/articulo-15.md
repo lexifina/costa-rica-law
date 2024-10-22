@@ -1,1 +1,0 @@
-Artículo 15. Para efecto de las adquisiciones de bienes y servicios, mediante la modalidad de excepción con fondos de Caja Chica, deben entenderse como aquellas que son indispensables e impostergables que sean para gastos menores, siempre que no excedan el diez por ciento (10%) del monto previsto para la licitación reducida correspondiente al régimen ordinario.

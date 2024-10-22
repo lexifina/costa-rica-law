@@ -1,1 +1,0 @@
-Artículo 20. La Dirección Proveeduría, en cumplimiento con la Directriz del Ministerio de Hacienda MH- DCoP-CIR- 0006-2022 de la Dirección de Contratación Pública, debe realizar el aviso mensual a través del Sistema Digital Unificado (SICOP) de las adquisiciones que se realicen mediante compras con fondos por Caja Chica.
