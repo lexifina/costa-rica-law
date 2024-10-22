@@ -1,0 +1,1 @@
+Artículo 39.-Contenido presupuestario para Controles de Cambios. Los controles de cambios podrán efectuarse siempre y cuando las subpartidas y metas en las que se solicita aplicar el control de cambios, tengan el contenido presupuestario suficiente y necesario.

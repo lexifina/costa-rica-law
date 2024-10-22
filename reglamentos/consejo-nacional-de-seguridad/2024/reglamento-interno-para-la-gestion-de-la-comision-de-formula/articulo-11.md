@@ -1,0 +1,1 @@
+Artículo 11.-Archivo de Gestión. Será responsabilidad del secretario(a) de la Comisión, mantener un archivo de gestión actualizado, el cual contenga los documentos recibidos, los documentos enviados, las minutas de acuerdos, las actas, los informes de gestión, y cualquier otro documento que genere la Comisión.

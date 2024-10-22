@@ -1,0 +1,1 @@
+Artículo 38.-Aprobación de Controles de Cambios. Los Controles de Cambios requieren únicamente de la aprobación de la CPP, independientemente de su monto, dado que su aplicación a nivel del POI Presupuesto no implica variación en la estructura presupuestaria aprobada por la Junta Directiva, a nivel de subpartida, Unidad Ejecutora o meta.

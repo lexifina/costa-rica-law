@@ -1,0 +1,1 @@
+Artículo 6º-Validez de las sesiones de la Comisión y aprobación de sus actos. La Comisión sesionará válidamente con la asistencia de por lo menos tres (3) de los cinco miembros detallados en el artículo 5. Las propuestas que fueran sometidas a votación tendrán validez con el voto positivo de la mayoría simple de los asistentes con derecho a voto. Cada asistente tendrá un voto.

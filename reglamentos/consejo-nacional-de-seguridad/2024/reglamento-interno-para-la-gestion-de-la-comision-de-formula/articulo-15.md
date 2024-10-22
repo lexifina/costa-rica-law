@@ -1,0 +1,3 @@
+CAPÍTULO III.
+Presupuestos Extraordinarios
+Artículo 15.-Presupuesto Extraordinario. Corresponde a la incorporación de ingresos y egresos extraordinarios, no contemplados dentro de la Ley de Presupuesto Ordinario y Extraordinario de la República para el período que corresponda, previa aprobación del incremento en el gasto presupuestario máximo aprobado al COSEVI para ese ejercicio presupuestario, por parte del MOPT. La elaboración del documento presupuestario debe cumplir con lo dispuesto en las Normas de Ejecución Presupuestaria aprobadas para el período correspondiente y con los lineamientos comunicados por el MOPT.

@@ -1,0 +1,1 @@
+Artículo 2º-Alcances y Ámbito de Aplicación. El presente reglamento aplica dos Áreas Presupuestarias del Consejo de Seguridad Vial, a saber: Área 01- Administración Superior y Área 02- Administración Vial.

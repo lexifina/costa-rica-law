@@ -1,0 +1,1 @@
+Artículo 42.-Aplicación del Control de Cambios. Los controles de cambios, tendrán efecto legal en el Plan Operativo - Presupuesto, a partir de su aprobación por parte de la CPP, y comunicado del acuerdo respectivo.

@@ -1,0 +1,1 @@
+Artículo 16.-Lineamientos para la formulación del Presupuesto Extraordinario. La elaboración del documento presupuestario debe cumplir con lo dispuesto en las Normas de Ejecución Presupuestaria aprobadas para el período correspondiente y con los lineamientos comunicados por el MOPT.

@@ -1,0 +1,1 @@
+Artículo 24.-Contenido presupuestario para Modificaciones Presupuestarias. Las modificaciones presupuestarias podrán efectuarse siempre y cuando las subpartidas y metas que se rebajen, tengan el contenido presupuestario suficiente y necesario; y no podrán utilizarse esos recursos para cubrir otras necesidades.

@@ -1,0 +1,3 @@
+CAPÍTULO VI.
+Controles de Cambios
+Artículo 36.-Control de Cambios. El propósito de este tipo de movimiento presupuestario, es el de gestionar la modificación en el destino o el uso de los recursos presupuestados, para los cuales se solicita autorizar una finalidad diferente a la que se indicó cuando fueron solicitados y aprobados inicialmente, sin que este movimiento implique variación en la Unidad Ejecutora, Subpartida Presupuestaria, o Meta en la cual se encuentran asignados esos recursos. Tendrán efecto legal en el Plan Operativo - Presupuesto, a partir de su aprobación por parte de la CPP y comunicado del acuerdo respectivo.

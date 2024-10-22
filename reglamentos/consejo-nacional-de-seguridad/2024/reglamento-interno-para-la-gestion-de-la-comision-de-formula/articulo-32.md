@@ -1,0 +1,1 @@
+Artículo 32.-Contenido presupuestario para Traslados de Fondos. Los traslados de fondos podrán efectuarse siempre y cuando las subpartidas y metas que se rebajen, tengan el contenido presupuestario suficiente y necesario; y no podrán utilizarse esos recursos para cubrir otras necesidades.

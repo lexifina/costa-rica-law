@@ -1,0 +1,14 @@
+CONSEJO DE SEGURIDAD VIAL
+En el ejercicio de las facultades que le confiere la Ley de Administración Vial N° 6324 y sus reformas, la Junta Directiva del Consejo de Seguridad Vial, dicta el siguiente "Reglamento Interno para la Gestión de la Comisión de la Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo - Presupuesto Institucional y para Normar las Variaciones a los Documentos Ordinarios del Plan Operativo - Presupuesto".
+Considerando
+1º-Que se hace necesario establecer los alcances, funciones y responsabilidades de la Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo - Presupuesto Institucional del Consejo de Seguridad Vial, así como establecer los mecanismos que regulan las variaciones al Plan Operativo -Presupuesto institucional, en cumplimiento de lo que establecen el artículo 45 de la Ley Nº 8131, publicada en La Gaceta Nº 198 del 16 de octubre de 2001, el Decreto Ejecutivo Nº 30906-H, publicado en el Alcance N° 94 a La Gaceta N° 251 del 30 de diciembre de 2002, y las Normas de Ejecución Presupuestaria que se emiten anualmente como parte de la Ley de Presupuesto Ordinario y Extraordinario de la República, así como con los lineamientos emanados por el Ministerio de Planificación y Política Económica, el Ministerio de Hacienda, y las directrices y procedimientos internos afines a la materia, y los procedentes de la Rectoría Sectorial del Ministerio de Obras Públicas y Transportes.
+2º-Que con la publicación en el Alcance Digital Nº 159 a La Gaceta publicado el 2 de setiembre del 2016, entró en vigencia el Reglamento Interno para la gestión de la Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo-Presupuesto Institucional y para Normar las Variaciones a los Documentos Ordinarios del Plan Operativo-Presupuesto, siendo que el tiempo transcurrido desde ese entonces, motiva el dictado de una nueva regulación.
+3º-Que las disposiciones contenidas en el presente reglamento interno, fueron conocidas y aprobadas por la Junta Directiva del Consejo de Seguridad Vial, en el artículo VI de la Sesión Ordinaria N° 0030-2024 del 28 de agosto del año 2024. Por tanto;
+Se dicta:
+Reglamento para la Gestión de la Comisión de Formulación,
+Seguimiento, Control y Evaluación del Plan Operativo- Presupuesto Institucional y para Normar las Variaciones
+a los Documentos Ordinarios del Plan
+Operativo-Presupuesto
+CAPÍTULO I.
+Disposiciones Generales
+Artículo 1º-Objeto. El presente reglamento tiene como objeto regular la gestión de la Comisión de Formulación, Seguimiento, Control y Evaluación del Plan Operativo - Presupuesto Institucional y las variaciones a dicho documento; modificaciones, traslados, presupuestos extraordinarios, control de cambios que se generen a nivel de perfil de proyecto, meta, entre otros.

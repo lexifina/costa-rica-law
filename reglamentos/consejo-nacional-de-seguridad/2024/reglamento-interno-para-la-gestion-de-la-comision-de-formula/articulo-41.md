@@ -1,0 +1,1 @@
+Artículo 41.-Solicitudes de Controles de Cambios. Será responsabilidad de la CPP conocer y aprobar las solicitudes de controles de cambios que formulen las diferentes Unidades Ejecutoras de la institución, de acuerdo con los formatos, cronogramas y requisitos establecidos y comunicados previamente.

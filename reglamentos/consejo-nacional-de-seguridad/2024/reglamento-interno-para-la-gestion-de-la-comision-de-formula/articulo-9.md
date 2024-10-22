@@ -1,0 +1,1 @@
+Artículo 9º-Oficios y documentos de respaldo recibidos y generados por la Comisión. Los oficios que genere la Comisión como parte de su gestión, deberán responder a un número de consecutivo que deberá llevar la secretaría de la Comisión, de acuerdo con el sistema de gestión documental vigente.

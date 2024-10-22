@@ -1,0 +1,3 @@
+Artículo 21.-Aprobación de las Modificaciones Presupuestarias. Las modificaciones presupuestarias al Plan Operativo - Presupuesto Institucional tendrán dos niveles de aprobación interna:
+Cuando el monto del documento sea igual o inferior a la suma de ¢ 50.000.000,00, será sometido a análisis y aprobación por parte de la Dirección Ejecutiva, de tratarse de un documento por un monto mayor al indicado, deberá ser conocido y aprobado por la Junta Directiva de la institución.
+Los montos indicados en el presente artículo pueden ser modificados mediante acuerdo firme tomado por la Junta Directiva de este Consejo, sin requerir de publicación en el diario oficial La Gaceta.
