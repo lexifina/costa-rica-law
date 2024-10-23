@@ -1,0 +1,1 @@
+Artículo 3. Definición de conflicto de interés. Para efectos de este Reglamento, se considera que un conflicto de interés es aquel que involucra un conflicto entre el deber y los intereses privados de una persona, en el que esta tiene un interés privado con capacidad de influir indebidamente en el ejercicio de sus deberes y responsabilidades oficiales.

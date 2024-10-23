@@ -1,0 +1,1 @@
+Artículo 25. Solicitud de colaboración para la JUNAFO. Las personas integrantes no deberán solicitar servicios o recursos especiales para este régimen, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.

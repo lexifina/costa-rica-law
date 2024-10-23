@@ -1,0 +1,1 @@
+Artículo 30. Aceptación de trato preferente. Las personas que integran la JUNAFO y/o los órganos técnicos no deberán aceptar ningún trato de favor o situación que implique privilegio o ventaja injustificada por parte de personas físicas, entidades públicas o privadas.

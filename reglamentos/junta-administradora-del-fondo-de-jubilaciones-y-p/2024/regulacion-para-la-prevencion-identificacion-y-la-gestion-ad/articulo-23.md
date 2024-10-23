@@ -1,0 +1,1 @@
+Artículo 23. Prohibición de realizar actividades privadas incompatibles. Las personas integrantes no deberán ofrecer o desempeñar trabajos o actividades privadas, remuneradas o no, que comprometan su imparcialidad, posibiliten un conflicto de interés o contra sus deberes y responsabilidades en el desempeño de sus cargos.

@@ -1,0 +1,1 @@
+Artículo 15. Ejemplo de las personas integrantes de los órganos. Las personas integrantes de los órganos, deberán dar el ejemplo personal al organizar sus intereses privados de manera que quede protegida su propia reputación de integridad y la del régimen.

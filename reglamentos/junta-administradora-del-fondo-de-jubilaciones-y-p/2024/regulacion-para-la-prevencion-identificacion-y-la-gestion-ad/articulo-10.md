@@ -1,0 +1,1 @@
+Artículo 10. Deber de denunciar. Todas las personas que integren la JUNAFO, los Comités Técnicos y los terceros contratados deberán estar atentos y denunciar, ante la presidencia o ante la autoridad competente, las situaciones de conflicto de intereses que afecten a otras personas, en el sentido regulado en este reglamento.

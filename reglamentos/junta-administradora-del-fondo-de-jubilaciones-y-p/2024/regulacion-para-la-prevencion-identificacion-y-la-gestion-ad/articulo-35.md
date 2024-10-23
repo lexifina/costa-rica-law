@@ -1,0 +1,1 @@
+Artículo 35. Violación al deber de probidad. Sin perjuicio de las responsabilidades civiles y penales que procedan, la infracción del deber de probidad, debidamente comprobado y previo cumplimiento del debido proceso, constituirá justa causa para la aplicación del régimen disciplinario que al efecto determine la JUNAFO, según la calificación de la falta.

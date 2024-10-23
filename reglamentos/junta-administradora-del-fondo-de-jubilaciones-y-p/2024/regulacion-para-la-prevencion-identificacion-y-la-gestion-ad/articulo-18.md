@@ -1,0 +1,1 @@
+Artículo 18. Obsequios dirigidos a familiares. Las personas integrantes deberán adoptar las medidas que, razonablemente, sean necesarias para garantizar que las personas aludidas en el artículo 9 inciso 2) de este Reglamento, no reciba ningún regalo o beneficio, entregado con motivo u ocasión del desempeño de sus funciones, cuando tenga conocimiento de este tipo de ofrecimientos.

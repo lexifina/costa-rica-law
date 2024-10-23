@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las normas contenidas en este Reglamento serán aplicables a todas las personas integrantes del Órgano Máximo de Dirección, sus Comités Técnicos y terceros contratados y serán obligatorias para todas ellas, en lo que les sea aplicable de acuerdo con sus competencias y responsabilidades.

@@ -1,0 +1,2 @@
+Artículo 38. Deber de seguimiento por parte del Órgano Máximo de Dirección. Será responsabilidad de la JUNAFO como Órgano Máximo de Dirección, mantener, perfeccionar y evaluar las medidas de control que sean necesarias para el cumplimiento de este Reglamento, así como su adecuado seguimiento.
+La Auditoría Interna de la JUNAFO deberá contemplar dentro de su universo auditable la fiscalización de las actuaciones de los responsables de esta normativa.
