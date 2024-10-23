@@ -1,1 +1,2 @@
-Artículo 53- Sustitución de personas abogadas directoras. Las partes podrán sustituir a las personas abogadas designadas para el proceso o a cualquiera de sus suplentes en todo momento y deben hacerlo saber a la autoridad judicial en cualquiera de las audiencias o por escrito. El tribunal pondrá en conocimiento de la persona suplida y le prevendrá la liquidación de honorarios, en el caso que procediera.
+Artículo 53- Sustitución de personas abogadas directoras. Las partes podrán sustituir a las personas abogadas directoras para el proceso, o a cualquiera de sus suplentes, en cualquier momento.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)

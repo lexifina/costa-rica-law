@@ -1,2 +1,3 @@
 Artículo 143- Inmovilizaciones y depósito de bienes muebles. Cuando se discute el derecho de ganancialidad sobre bienes muebles no inscritos, la autoridad judicial podrá apersonarse al lugar en donde se encuentran, llevar a cabo un inventario detallado de dichos bienes y ordenar, a quien los posea, la obligación de no enajenarlos ni gravarlos sin consentimiento del despacho.
-También, puede ordenarse el depósito de los bienes en cónyuges o convivientes que no los posea o en tercero que garantice el cuido y mantenimiento.
+La autoridad jurisdiccional también podrá ordenar el depósito judicial de bienes en el cónyuge o conviviente que no lo posea, o en una tercera persona para que vele en su adecuado cuido y mantenimiento, bajo los apercibimientos legales correspondientes en caso de incumplimiento. En el caso de que sea una tercera persona, se le prevendrá medio para recibir notificaciones.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)

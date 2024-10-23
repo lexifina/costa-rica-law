@@ -1,13 +1,3 @@
-Artículo 232- Planteamiento de excepciones. Únicamente se admitirán las siguientes excepciones de carácter procesal:
-1) Falta de competencia.
-2) Falta de capacidad o defectos en la representación.
-3) Litisconsorcio pasivo necesario incompleto o indebida constitución subjetiva de la litis.
-4) Litispendencia.
-5) Cosa juzgada.
-6) Caducidad.
-7) Prescripción.
-8) Transacción.
-9) Indebida acumulación de pretensiones.
-Al formularse cualquiera de estas excepciones, se deberá fundamentar y ofrecer la prueba. La autoridad judicial podrá rechazarlas de plano, si las estimara infundadas, improcedentes o porque tengan como finalidad un abuso procesal.
-En la audiencia inicial del proceso, en los momentos oportunos indicados, las excepciones se contestarán y se resolverán.
-Presentada la excepción de litisconsorcio, si el juez la considera válida, se le otorgará a la parte actora un plazo de cinco días para que se integre la litis. El juez tendrá la facultad de solicitar dicha integración una vez presentada la demanda, sin esperar que la parte demandada interponga la excepción.
+Artículo 232- Audiencia inicial única. En la audiencia inicial, una vez agotadas todas sus etapas procesales, no existiendo prueba pendiente de practicar o por cualquier otra razón derivada de la naturaleza del proceso, si a criterio de la persona juzgadora no se justifica el señalamiento para la audiencia de prueba o decisoria del proceso, se omitirá el señalamiento y, en su lugar, se le concederá a las partes la oportunidad de formular sus conclusiones y seguidamente se procederá al dictado de la parte dispositiva de la sentencia, todo conforme a las reglas del inciso 6) del artículo siguiente.
+Adicionalmente, cuando exista prueba pendiente de recibir, las partes, de mutuo acuerdo, podrán solicitar a la autoridad judicial la continuación de la audiencia inicial para diligenciar la prueba admitida, en cuyo caso, si la persona juzgadora lo considera procedente y es posible recibir la prueba pendiente de manera inmediata, se omitirá el señalamiento para la audiencia de prueba y decisoria del proceso, y la audiencia inicial continuará con la práctica de las probanzas. Una vez recabada la prueba, igualmente se les concederá a las partes la oportunidad de formular sus conclusiones y, a continuación, se procederá al dictado de la parte dispositiva de la sentencia.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)
