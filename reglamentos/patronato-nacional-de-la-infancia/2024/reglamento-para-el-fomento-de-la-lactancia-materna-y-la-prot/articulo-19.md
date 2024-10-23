@@ -1,0 +1,1 @@
+Artículo 19. La persona trabajadora con licencia de lactancia podrá acudir directamente a la Unidad de Salud Ocupacional del Departamento de Recursos Humanos del PANI para restituir el pleno goce de sus derechos y de sus hijos e hijas en situaciones en que estos le hayan sido violados en la Unidad de Trabajo.

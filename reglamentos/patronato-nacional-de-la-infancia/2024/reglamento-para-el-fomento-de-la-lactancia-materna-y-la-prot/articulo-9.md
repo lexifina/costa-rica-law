@@ -1,0 +1,2 @@
+Artículo 9. La funcionaria embarazada o en período de lactancia no podrá ser trasladada de dependencia o lugar de trabajo, y no se le podrán realizar cambios en sus funciones, sin que se valore, de previo, las consecuencias de dicho traslado, o de dichos cambios en su salud integral y el respeto a sus derechos como trabajadora en periodo de lactancia y el de la persona menor de edad lactante.
+Dicha valoración debe ser realizada por la Presidencia Ejecutiva, único órgano competente para aprobar traslados.
