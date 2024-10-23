@@ -14,3 +14,4 @@ Metodología ordinaria para la fijación de tarifas para cogeneración de energ�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-18 | la propia norma |
+| 2 | 2024-10-23 | Resolución 148 (2024-10-23) |
