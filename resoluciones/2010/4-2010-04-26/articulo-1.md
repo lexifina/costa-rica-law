@@ -1,4 +1,4 @@
-(Derogado)
+(Nota de Sinalevi: Mediante resolución N° RE-0148-JD-2024 del 23 de octubre del 2024, se ordena mantener la eficacia de presente norma)
 Res RJD-004.-San José, a las nueve horas y cuarenta minutos del 26 de abril del dos mil diez. (Expediente ET-189-2009 / OT-212-2009).
 (Esta norma fue derogada por el punto IV de la Metodología ordinaria para la fijación de tarifas para cogeneración de energía eléctrica con diferentes fuentes de biomasa, aprobada mediante resolución N° RE-0038-JD-2024 del 28 de mayo de 2024)
 METODOLOGÍA TARIFARIA SEGÚN LA ESTRUCTURA DE COSTOS
@@ -189,7 +189,6 @@ El modelo tarifario se desarrolla en una hoja electrónica en donde constan todo
 2.1. Inversión Total
 La Inversión total está compuesta por la sumatoria de las erogaciones destinadas a la compra del terreno, edificio, equipos, herramientas y estudios necesarios para la puesta en marcha de la planta modelo.
 Esta Inversión total se clasifica en Inversión Fija Tangible (Itan) e Inversión Fija Intangible (Iint), además del capital de trabajo necesario. A continuación se presenta un detalle de rubros que definen la inversión fija tangible e intangible:
-[imagen]
 (*) Actualización del monto de inversión en activos fijos
 La actualización del monto de inversión en activos fijos que conforman la base tarifaria, se realizará utilizando un índice de precios representativo, en caso de que los datos utilizados muestren una antigüedad superior al año. La selección del índice considerará los siguientes aspectos: que provenga de una fuente de acceso público, especializada en la generación de información técnica y con la información más reciente. La actualización del monto de inversión en activos fijos se realizará anualmente y se aplicará de manera consistente el mismo índice. En el evento de que se llegue a considerar necesario en el futuro modificar el índice a utilizar, se justificará la razón técnica que fundamente dicha decisión con base en la ciencia, técnica y lógica tal y como lo establece la Ley General de la Administración Pública.
 (*)(Así adicionado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
@@ -200,12 +199,10 @@ CT = ∑ CVT + CFT
 El costo variable total (CVT) está determinado por la sumatoria del costo de la materia prima (Cmp), el costo del combustible (Ccb), el costo del transporte (Ctr) y los impuestos (Cimp), tal y como se muestra en el cuadro adjunto.
 CVT = ∑ Cmp + Ccb + Ctr + Cimp
 A continuación se muestra detalle de cada uno de los rubros que determinan el costo variable total.
-[imagen]
 2.4. Costos Fijos Totales
 Los costos Fijos Totales (CFT) están determinados por la sumatoria de los costos de la mano de obra (Cmo), el costo del seguro (Cse), los costos indirectos de fabricación (Cif), los gastos financieros (Gfin) y el gasto en depreciación (Gdep).
 CFT = ∑ Cmo + Cse + Cif + Gfin + Gdep
 A continuación se muestra detalle de cada uno de los rubros que determinan el costo fijo total.
-[imagen]
 2.5. Costo total de la energía para la Venta
 El costo total de la energía para la venta se obtiene del producto entre el costo total de la producción de energía eléctrica (CT) y el porcentaje de distribución (%Dist).
 Ctev = CT * %Dist
@@ -242,16 +239,12 @@ CE n = (CE n-1)) x (IPPIn / IPPIn-1)
 2.14 Mano de obra
 La Mano de Obra necesaria para operar la planta modelo de generación de electricidad, esta se clasifica en Mano de Obra Directa (Mod) y Mano de Obra Indirecta (Moi), dada que cierta mano de obra es requerida durante todo el año (zafra activa e inactiva) y otra parte del recurso humano es sólo por un periodo en el año.
 MO = ∑ Mod + Moi
-[imagen]
 2.15 Cálculo del Canon
 El canon se calculará mediante la siguiente metodología:
-[imagen]
 2.16 Gasto de financiamiento
 El gasto de financiamiento está determinado por el capital a financiar, el cual sale de la diferencia entre el valor total de la inversión y el aporte de los capitalistas. Dicho monto estará afectado por el plazo en años a financiar, así como a la tasa de interés y el periodo de gracia, tal y como se indica a continuación:
-[imagen]
 2.17 Depreciación
 El gasto en depreciación de los activos necesarios para poner en marcha la planta modelo será determinado por el método de depreciación en línea recta, durante el plazo de la vida útil del activo. En la siguiente tabla se presenta cada uno de los activos y su respectiva vida útil, según las especificaciones técnicas del fabricante.
-[imagen]
 (*) 2.18. Rentabilidad (Ke)
 El cálculo de la rentabilidad sobre los aportes al capital se determina mediante el método denominado Modelo de Valoración de Activos de Capital, conocido comúnmente como CAPM (en inglés, "Capital Asset Pricing Model").
 El método CAPM se basa en considerar que los cambios en el retorno de un activo, están relacionados con el riesgo asociado a éste y puede ser separado en dos grandes componentes: el riesgo relacionado con el mercado en su conjunto (riesgo sistémico) y el derivado de las inversiones específicas (riesgo específico).
@@ -278,9 +271,7 @@ Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas 
 (*) (Así reformado el punto 2.18) anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 2.19. Datos de entrada del modelo
 Los datos de entrada del modelo son aquellas variables técnicas necesarias para la aplicación de la planta modelo, de acuerdo con el tipo de inversión y la capacidad de producción y disponibilidad de bagazo de caña, en el cuadro adjunto están los datos y las unidades respectivas para cada rubro:
-[imagen]
 2.20. Abreviaciones
-[imagen]
 2.21. Moneda en que se expresará la tarifa
 Las tarifas resultantes de la metodología detallada serán expresadas en dólares de los Estados Unidos de América (US$ ó $).
 Los respectivos pagos que genera la compra venta de energía amparada a los contratos respectivos podrán liquidarse en dólares o en colones a criterio del comprador. Si el pago se realizará en colones, se utilizará el tipo de cambio de referencia para la venta establecido por el Banco Central de Costa Rica (referencia: http://www.bccr.fi.cr).

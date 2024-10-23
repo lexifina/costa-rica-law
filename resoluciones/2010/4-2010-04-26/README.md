@@ -16,3 +16,4 @@ Procedimiento metodológico correspondiente al “Modelo y estructura de costos 
 | 1 | 2010-05-21 | la propia norma |
 | 2 | 2014-03-20 | Resolución 27 (2014-03-20) |
 | 3 | 2024-05-28 | Resolución 38 (2024-05-28) |
+| 4 | 2024-10-23 | Resolución 148 (2024-10-23) |
