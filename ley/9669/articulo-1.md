@@ -1,4 +1,6 @@
+(Derogado)
 N° 9669
+(Esta norma fue derogada por el artículo 2° de la ley N° 10551 del 23 de octubre de 2024)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 REFORMA DEL ARTÍCULO 1 DE LA LEY N.º 9409, AUTORIZACIÓN AL
