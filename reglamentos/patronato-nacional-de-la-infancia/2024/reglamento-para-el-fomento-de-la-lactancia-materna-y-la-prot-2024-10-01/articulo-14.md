@@ -1,0 +1,1 @@
+Artículo 14. Para los casos de las lactancias sin apego mamario. En estos casos deberán garantizarse todas las condiciones descritas en el presente reglamento y el amamantamiento se realizará atreves de jeringa, sonda, vaso adecuado a la etapa del desarrollo o beberito (según recomendación médica)

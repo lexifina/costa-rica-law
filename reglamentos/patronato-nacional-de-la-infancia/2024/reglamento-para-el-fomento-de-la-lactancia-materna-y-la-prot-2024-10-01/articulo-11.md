@@ -1,0 +1,2 @@
+Artículo 11. Tiempo del desarrollo de la lactancia materna. El derecho a la lactancia materna, como espacio tanto alimenticio como de vínculo entre la progenitora y su hijo o hija, será de al menos una hora y hasta un máximo de dos horas, diariamente, con el fin de potenciar este proceso.
+En el caso de las personas menores de 6 meses, será cada vez que la persona lactante lo necesite, considerando que es el único alimento que puede consumir.
