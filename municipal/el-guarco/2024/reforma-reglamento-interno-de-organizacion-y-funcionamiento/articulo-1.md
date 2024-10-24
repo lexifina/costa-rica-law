@@ -1,0 +1,41 @@
+MUNICIPALIDAD DE EL GUARCO
+REGLAMENTO INTERNO DE ORGANIZACIÓN
+Y FUNCIONAMIENTO DEL COMITÉ CANTONAL
+DE DEPORTES Y RECREACIÓN DE LA
+MUNICIPALIDAD DE EL GUARCO
+La Municipalidad de El Guarco comunica que mediante Acuerdo Nº142 definitivamente aprobado de la Sesión Nº035 celebrada por El Concejo Municipal de El Guarco el día 14 de octubre de 2024, se aprobó la siguiente modificación del Reglamento Interno de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de la Municipalidad de El Guarco.
+Considerandos:
+1º—Que conforme lo indicado en el artículo 170 de la Constitución Política, se reconoce la autonomía, competencia y autoridad a los gobiernos municipales.
+2º—Que la Asamblea Legislativa mediante ley N°9633 “Reforma Código Municipal para garantizar la efectiva participación de la niñez y la adolescencia en los comités cantonales y comunales de deportes y recreación” publicada en el Diario Oficial La Gaceta N°54 del 18 de marzo del 2019, acordó una serie de reformas a los artículos 174 y 175 del Código Municipal.
+3º—Que el artículo 4 del Código Municipal, establece que la Municipalidad posee, la autonomía política, administrativa y financiera; que dentro de sus atribuciones incluye según lo indicado en el inciso a) la de Dictar los reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
+4º—Que el artículo 13 inciso c) del Código Municipal, establece que es atribución del Concejo Municipal dictar los reglamentos de la Corporación, conforme a esta ley. Así como de los entes adscritos a ella, como lo es el Comité Cantonal de Deportes y Recreación.
+5º—Que el artículo 43 del mismo Código, establece el procedimiento para la aprobación de un reglamento y sus modificaciones.
+6º—Que se propone ante este Concejo Municipal, una propuesta de adición al artículo 22 del actual Reglamento Interno de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de la Municipalidad de El Guarco, esto para que se tome el acuerdo de aprobación, adopción y publicación en el Diario Oficial La Gaceta, para su entrada en vigencia.
+7º—Que dicha adición, fue analizada por parte de la Comisión Permanente de Asuntos Jurídicos, tal y como consta en el Informe Número 006-2024, de la sesión celebrada el día 9 de octubre del 2024.
+8º—Que la Comisión de Asuntos Jurídicos recomienda a este Concejo Municipal, aprobar el dictamen de comisión y tomar el Acuerdo Municipal de adopción de adición al artículo 22 del Reglamento, para proceder a publicar en el Diario Oficial La Gaceta, el comunicado de adopción y su fecha de entrada en vigencia. Por tanto,
+En apego a las competencias y atribuciones que establecen los artículos 169 y 170 de la Constitución Política; artículos 4 inciso a), 13 inciso c, 43 y 178 del Código Municipal y los fundamentos de hecho y derechos expuestos; procede este Concejo Municipal a la aprobación de la adición al artículo 22 del Reglamento Interno de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de la Municipalidad de El Guarco que se detalla a continuación:
+Se adiciona el artículo 22, de la siguiente manera:
+Requisitos para participar en la Asamblea:
+El o la participante debe residir en el cantón de El Guarco o pertenecer a alguna disciplina para JDN del cantón de El Guarco. Para el cumplimiento del principio de paridad, los puestos deben ser ocupados por un hombre y una mujer, de acuerdo con la ley 8901. Cada persona aspirante menor de edad debe presentar documento escrito, donde el padre, la madre o el encargado (a) legal, apruebe su participación, tanto en la asamblea, como también a la hora de ser electo (a) como miembro del CCDR de El Guarco.
+Consideraciones relacionadas con la Asamblea.
+La convocatoria a la asamblea se debe hacer a todos las organizaciones contempladas en el inciso d) del artículo 174 del Código Municipal, con al menos con ocho días naturales de antelación, utilizando medios escritos, verbales y de comunicación masiva. En caso de que no se tenga la asistencia de más del cincuenta por ciento de los convocados, se dará tiempo de una hora y se realizará la asamblea en segunda convocatoria con el veinticinco por ciento.
+En caso de no tener el quorum para hacer la asamblea (en primera y segunda convocatoria), se reprogramará la asamblea (a los quince días naturales siguientes).
+La presidencia del CPJ de El Guarco, estará a cargo de moderar la sesión, quien, con acto fundamentado hacia los jóvenes, deberá explicar el objetivo de la asamblea, la importancia de la participación de la juventud y el procedimiento que se seguirá en la asamblea. Las representaciones de cada sector deberán presentar al CPJ una carta expresando que pertenecen a un determinado grupo deportivo u organizacional del cantón de El Guarco, la cual debe venir firmada por el representante legal de la organización o grupo deportivo.
+Mediante documento idóneo, cada joven debe indicar el lugar donde reside esto deberá ser constatado mediante consulta al Tribunal Supremo de Elecciones por el CPJ o bien a cuál disciplina para JDN del cantón pertenece, información que será corroborada con el CCDRG.
+Quienes deseen postularse tendrán hasta tres minutos para presentarse a la asamblea y exponer de manera libre, su intencionalidad de ser parte del CCDRG. En la asamblea pueden participar con voz y voto personas que pertenezcan a algún grupo deportivo del cantón u organización social y que su rango de edad sea mayor a los 15 años y menor a los 18 años, esto deberá ser constatado mediante consulta al Tribunal Supremo de Elecciones por parte del CPJ.
+En la asamblea deberán participar como observadores y fiscalizadores miembros del Concejo Municipal y de la Administración de la Municipalidad de El Guarco que sean designados por la Alcaldía Municipal. Estas personas pueden participar refiriéndose a los jóvenes, a su papel en la sociedad y la necesidad que se integren en forma activa al deporte y a la recreación de El Guarco. La participación no debe exceder los tres minutos y se debe hacer previo a las postulaciones y a la elección de los dos jóvenes.
+El sistema de votación será secreta, para lo cual deberá organizarse la logística para que esto se cumpla de la mejor manera, disponiendo de al menos un recinto adecuado para garantizar el secreto de la votación
+Cada participante votará por una de las postulaciones y la persona que resulte con mayoría simple de votos quedará electa.
+Para el conteo y supervisión de los votos, se debe designar a tres personas del CPJ.
+Una vez electos los dos jóvenes, se les dará un espacio de tres minutos para que se dirijan a los presentes.
+El CPJ deberá levantar un acta donde se establezca lo siguiente:
+Hora de apertura y cierre de la asamblea
+Lista de asistentes y firma
+Postulantes a la elección de los dos puestos (mujer y hombre)
+Resultados de la elección
+Firmas de cada participante a la asamblea y de los observadores, fiscalizadores y miembros del Comité de la Persona Joven, indicando la calidad en que compare cada uno.
+Finalizada la elección y corroborado que todo se haya cumplido en tiempo y forma, el CPJ dará por finalizada la asamblea.
+En término de ocho días hábiles, el CPJ, deberá enviar al Concejo Municipal de El Guarco, el acta y los resultados de la elección, para que dicho Concejo Municipal en ocho días hábiles, proceda con la juramentación de los dos jóvenes.
+1. Se procede aprobar la adición al artículo 22 del Reglamento Interno de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de la Municipalidad de El Guarco; aprobada en el proceso de trámite, por parte de este Concejo Municipal.
+2. Se acuerda que esta adición al Reglamento; para efectos de su entrada en vigencia, de conformidad con lo indicado en el artículo 43 del Código Municipal, entrará a regir a partir de la respectiva publicación en el Diario Oficial La Gaceta del aviso correspondiente.
+3. Para los efectos de materializar el trámite de la respectiva publicación en el Diario Oficial La Gaceta y entrada en vigencia de la presente adición al artículo 22 del reglamento; se procede a delegar a la secretaria del Concejo Municipal, para que en conjunto con la Alcaldía Municipal procedan conforme a derecho al aviso de dicha publicación en el Diario Oficial La Gaceta.
