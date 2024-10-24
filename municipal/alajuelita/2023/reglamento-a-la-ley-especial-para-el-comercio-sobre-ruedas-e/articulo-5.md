@@ -1,0 +1,1 @@
+Artículo 5º-Es responsabilidad de la Unidad Técnica de Gestión Vial del cantón de Alajuelita confeccionar los criterios técnicos de utilización de las áreas o espacios públicos indicados en el artículo 4 de este reglamento.

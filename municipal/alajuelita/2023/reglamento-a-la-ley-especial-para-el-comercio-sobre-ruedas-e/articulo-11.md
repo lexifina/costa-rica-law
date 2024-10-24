@@ -1,0 +1,1 @@
+Artículo 11.-Tarifa mínima. El monto de la licencia comercial especial de comercio sobre ruedas no podrá ser menor al treinta por ciento (30%) del monto del salario base establecido por la Ley N° 7337, de 5 de mayo de 1993. El monto anterior se dividirá entre cuatro trimestres, para determinar el monto trimestral que se pagará durante la vigencia de la licencia.

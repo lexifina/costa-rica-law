@@ -1,0 +1,4 @@
+Artículo 8º-Licencia Comercial Temporal Especial: Se autoriza a la Municipalidad de Alajuelita específicamente al subproceso de Patentes para otorgar las licencias comerciales temporales especiales en la modalidad de comercio sobre ruedas.
+La tarifa o el cobro referente a la licencia de negocio sobre ruedas queda sujeto a lo referido en la ley 7547 Tarifa de Impuestos Municipales del cantón de Alajuelita y a lo indicado en el Código Municipal.
+Los plazos de vigencia de esta licencia no podrán ser mayores a un año (12 meses).
+El plazo podrá ser prorrogable por un periodo igual, con la presentación por parte del interesado del permiso de funcionamiento del Ministerio de Salud vigente, siempre y cuando cumpla con las características previamente aprobadas y los requisitos previamente establecidos.
