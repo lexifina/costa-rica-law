@@ -1,0 +1,1 @@
+Artículo 2- El Instituto de Desarrollo Rural (Inder) procederá, de oficio, a la condonación total de la deuda e intereses de las obligaciones de los adjudicatarios mencionados en el artículo anterior, cuyo monto total adeudado a la fecha de entrada en vigencia de esta ley sea inferior o igual a seis millones de colones.
