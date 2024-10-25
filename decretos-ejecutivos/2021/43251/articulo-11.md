@@ -11,4 +11,5 @@ i) Emitir las certificaciones de los proyectos de inversión registrados y en es
 j) Revisar los estudios de preinversión desde el punto de vista económico y social de acuerdo con lo establecido en los instrumentos del SNIP.
 k) Elaborar el informe sobre la emisión de la aprobación final de inicio de trámites para obtener créditos públicos que financien diferentes fases o etapas de los programas y proyectos de inversión pública.
 l) Identificar posibles mejoras en los instrumentos del SNIP a partir de las evaluaciones final y ex-post que remiten las instituciones.
-m) Emitir la declaratoria de viabilidad de los proyectos de inversión antes de que inicien la fase de inversión.
+m) Emitir la declaratoria de viabilidad de los proyectos de inversión antes que inicie la fase de inversión, para los casos que corresponda.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44821 del 25 de octubre de 2024)

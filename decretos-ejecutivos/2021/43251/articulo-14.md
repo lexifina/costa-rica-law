@@ -5,7 +5,8 @@ c) Garantizar la correcta aplicación de las Normas Técnicas de Inversión Púb
 d) Elaborar las guías metodológicas específicas que requiera la entidad, según su portafolio de proyectos, en conjunto con la Secretaría Sectorial y según los lineamientos de Mideplan.
 e) Establecer el responsable de otorgar el aval técnico a cada uno de los proyectos durante las diferentes etapas de la fase de preinversión del proyecto.
 f) Emitir el aval técnico de cada etapa de la fase de preinversión del proyecto de inversión pública.
-g) Solicitar el aval sectorial cuando la entidad forma parte de los sectores definidos en los Decretos Ejecutivos de Organización del Poder Ejecutivo, luego de obtener el aval técnico.
+g) Solicitar el aval sectorial cuando la entidad forma parte de los sectores definidos en los Decretos Ejecutivos de Organización del Poder Ejecutivo, luego de obtener el aval técnico y para los proyectos que tienen un monto de inversión igual o superior al definido para la licitación mayor según lo establecido en la Ley General de Contratación Pública, Ley 9986 del 27 de mayo de 2021.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44821 del 25 de octubre de 2024)
 h) Elaborar el portafolio institucional.
 i) Realizar la priorización de los proyectos.
 j) Inscribir y actualizar los proyectos en el BPIP antes de incluirlos en el Plan Operativo Institucional (POI).

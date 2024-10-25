@@ -15,3 +15,4 @@ Reglamento para el funcionamiento del Sistema Nacional de Inversión Pública (S
 | --- | --- | --- |
 | 1 | 2021-11-04 | la propia norma |
 | 2 | 2023-02-28 | Decreto Ejecutivo 43944 (2023-02-28) |
+| 3 | 2024-10-25 | Decreto Ejecutivo 44821 (2024-10-25) |

@@ -1,6 +1,7 @@
 Artículo 13.-Funciones de la Secretaría Sectorial o el ente que el Ministro Rector designe para este fin. La Secretaría Sectorial, o el ente que el Ministro Rector designe para este fin, tendrán las siguientes funciones:
 a) Dar seguimiento a los programas y proyectos de inversión incluidos en el PNDIP y a los proyectos del BPIP de las instituciones correspondientes al Sector.
-b) Elaborar los informes que respaldan los avales del Ministro Rector a partir de la revisión de los documentos de preinversión de los diferentes proyectos que presentan las entidades del Sector.
+b) Elaborar los informes que respaldan los avales del Ministro Rector a partir de la revisión de los documentos de preinversión de los diferentes proyectos, cuyo monto de inversión sea igual o superior al definido para la licitación mayor, según lo establecido en la Ley General de Contratación Pública, Ley 9986 del 27 de mayo de 2021, que presentan las entidades del Sector.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44821 del 25 de octubre de 2024)
 c) Asesorar y apoyar al Ministro Rector en la toma de decisiones sobre los procesos de inversión pública.
 d) Coordinar la elaboración de las guías temáticas sectoriales según el tipo de proyecto con las instituciones del sector, en los casos que se requiera.
 e) Promover la formación de capital humano sectorial en la formulación y evaluación de proyectos, así como supervisar la aplicación de las guías temáticas sectoriales y coordinar capacitación en el uso de las mismas.
