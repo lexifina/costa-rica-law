@@ -1,0 +1,4 @@
+Artículo 6º-Gastos menores indispensables, impostergables, imprevisibles y urgentes. Se considerarán gastos menores aquellos que cumplan los requisitos que se citan a continuación:
+a) Que no excedan el monto máximo establecido por la Tesorería Nacional de conformidad con lo indicado en el artículo 7 del presente Reglamento.
+b) Que se requieran para cubrir necesidades de bienes y servicios que por su naturaleza deban ser resueltos de manera indispensable e impostergable, no pudiendo dilatarse conforme los tiempos ordinarios de los procedimientos de compras públicas, para lo cual se debe acreditar el costo beneficio para la Administración, de parte del solicitante.
+Además, entre los denominados gastos menores se incluyen los viáticos, tanto al interior como al exterior del país por su naturaleza particular.

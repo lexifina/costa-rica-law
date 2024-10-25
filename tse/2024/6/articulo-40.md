@@ -1,0 +1,2 @@
+Artículo 40.-Contenido presupuestario. Todo gasto efectuado por medio de caja chica auxiliar debe contar con su correspondiente contenido presupuestario y será responsabilidad de la persona funcionaria encargada de este Fondo, velar por el cumplimiento de esta disposición.
+En caso de falta de recursos en alguna subpartida solicitada, la persona responsable del Área de Tesorería Institucional advertirá de esa situación a la persona responsable de la caja chica auxiliar.

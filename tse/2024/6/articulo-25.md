@@ -1,0 +1,2 @@
+Artículo 25.-Del límite del gasto. Salvo los adelantos de gastos de viaje en el interior y en el exterior del país, ninguna compra de bienes o servicios, con cargo a caja chica, podrá exceder el monto establecido en los artículos 2 y 17 de este Reglamento.
+No obstante, el Tribunal Supremo de Elecciones podrá autorizar gastos por montos superiores para la adquisición de bienes y servicios bajo las debidas justificaciones, al amparo de lo señalado en el artículo 3, inciso g) de la Ley General de Contratación Pública, así como numeral 12 de su reglamento.

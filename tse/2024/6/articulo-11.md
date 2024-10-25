@@ -1,0 +1,1 @@
+Artículo 11.-Responsable Control Interno. Es responsabilidad de la Jefatura de la Contaduría Institucional mantener un adecuado sistema de control interno del fondo autorizado en caja chica, en concordancia con las sanas prácticas de control interno establecidas en la Ley de Control Interno y en las Normas de Control Interno para el Sector Público que se encuentren vigentes.

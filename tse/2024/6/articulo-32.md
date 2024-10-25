@@ -1,0 +1,1 @@
+Artículo 32.-Importe mínimo para solicitud de reintegro. El monto mínimo estimado que deberá mantener el Fondo para solicitar los reintegros a efecto de procurar que se cuente con los recursos suficientes para seguir operando de forma óptima será de un 10% del total asignado.

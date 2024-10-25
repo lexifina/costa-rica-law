@@ -1,0 +1,7 @@
+Artículo 24.-De los comprobantes de pago. Todo pago con cargo al Fondo Fijo Caja Chica estará respaldado por una factura comercial con los requisitos que se detallan en este artículo y el formulario interno autorizado para este fin. En el caso de las giras dentro del territorio nacional y que en razón del servicio no existiera factura que justifique el gasto, se dispondrá de una boleta previamente diseñada para este efecto.
+Toda factura comercial que respalde la compra de mercancías o pago de servicios debe cumplir los siguientes requisitos para su reintegro:
+a) Estar confeccionada en original a nombre del Tribunal Supremo de Elecciones, con descripción de los bienes o servicios adquiridos, la fecha de compra y cumplir con los requisitos establecidos por la normativa tributaria vigente. Cuando corresponda a un servicio de reparación de vehículos, equipo o maquinaria, deberá consignar el número de patrimonio o serie del bien, número de placa y oficina que recibió el servicio.
+b) Poseer el sello de cancelación, así como la firma y número de cédula de identidad de la persona física o cédula jurídica del proveedor comercial.
+c) No incluir en una misma factura bienes o servicios de diferente código presupuestal.
+d) No contener borrones, tachaduras ni alteraciones.
+e) Para los casos de un tiquete de caja u otro tipo de comprobante que sustituya a la factura, éstos deberán cumplir con los requisitos establecidos por la normativa tributaria vigente, de conformidad con lo indicado en el artículo 16, inciso d), del presente reglamento.
