@@ -1,0 +1,2 @@
+ARTÍCULO 4- Autorización de financiamiento
+Se autoriza, por única vez, al Instituto Nacional de Aprendizaje (INA) para que destine hasta dos mil millones de colones (¢2.000.000.000,00) de su superávit presupuestario para financiar el proyecto de bono colectivo "Parque de Desarrollo Humano de Cariari". Los recursos serán trasladados al Ministerio de Vivienda y Asentamientos Humanos (Mivah), para la ejecución de los fines de esta ley.
