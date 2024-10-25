@@ -1,0 +1,8 @@
+N° 10539
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARATORIA DE LA CELEBRACIÓN DE LAS FIESTAS
+DE LA VIRGEN DEL MAR, PATRIMONIO CULTURAL
+INMATERIAL DE COSTA RICA
+ARTÍCULO 1- Se declara la celebración de las Fiestas de la Virgen del Mar como manifestación del Patrimonio Cultural Inmaterial de Costa Rica.
