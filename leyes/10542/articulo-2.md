@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización para donar
+Se autoriza al Estado, Ministerio de Salud, cédula jurídica número dos - cero cero cero - cero cuatro cinco cinco dos dos (N.° 2-000-045522), para que done el bien inmueble de su propiedad anteriormente desafectado a la Asociación del Adulto Mayor de San Pedro de Santa Cruz, Guanacaste, con cédula jurídica número tres - cero cero dos - siete nueve cero uno dos nueve (N.° 3-002-790129).
