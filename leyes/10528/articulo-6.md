@@ -1,0 +1,1 @@
+ARTÍCULO 6- Programa de Turismo para Todas las Personas. El Instituto Costarricense de Turismo (ICT) desarrollará un programa llamado "Turismo para todas las personas", que acreditará a las empresas, instituciones, asociaciones y organizaciones civiles que promuevan y desarrollen programas que fomenten el turismo para todas las personas.

@@ -1,0 +1,1 @@
+ARTÍCULO 2- Ente encargado del cumplimiento de la ley. El Instituto Costarricense de Turismo (ICT) es la institución encargada de velar por el cumplimiento de la presente ley. La institución coordinará y promoverá la cooperación interinstitucional para el desarrollo de programas, planes o proyectos para incentivar el turismo para todas las personas en Costa Rica.

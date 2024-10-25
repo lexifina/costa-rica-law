@@ -1,0 +1,3 @@
+ARTÍCULO 10- Sesiones. El Consejo sesionará de forma ordinaria una vez al mes y, extraordinariamente, cuando la Presidencia lo convoque o cuando sea acordado por dos terceras partes de los miembros del Consejo.
+Las sesiones serán públicas y estas deberán ponerse a disposición del público, de manera pronta y oportuna, por el medio que determine el Consejo; sus resoluciones, actas, acuerdos y toda aquella información que sea requerida, de conformidad con las disposiciones sobre acceso a la información y transparencia, también serán de acceso público.
+Para que el Consejo pueda sesionar deberá contar con la mitad más uno de los miembros que la componen.

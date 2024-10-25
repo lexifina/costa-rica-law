@@ -1,0 +1,1 @@
+ARTÍCULO 15- Apoyo administrativo para el Consejo. Para el desempeño y cumplimiento de su objetivo y fines establecidos en esta ley, el Consejo podrá solicitar recursos administrativos existentes de las organizaciones y entidades representadas en él, previa autorización de estos.

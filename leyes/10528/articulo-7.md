@@ -1,0 +1,4 @@
+ARTÍCULO 7- Incentivos y beneficios del Programa de Turismo para Todas las Personas: Las empresas turísticas que formen parte del Programa de Turismo Social para Todas las Personas, contarán con los siguientes incentivos y beneficios para las empresas y organizaciones acreditadas:
+a) Facilitar la obtención de la declaratoria turística y el contrato turístico acorde a con la Ley 6990, Ley de Incentivos para el Desarrollo Turístico, de 15 de julio de 1985.
+b) Exonerar de todo tributo y sobretasas relacionadas a la importación y compra local de equipos especializados para la accesibilidad turística.
+c) Facilitación de espacios de promoción y divulgación de las actividades del turismo para todas las personas, acreditados por el Instituto Costarricense de Turismo (ICT) dentro de su sistema de comunicación, establecido en el reglamento de esta ley.
