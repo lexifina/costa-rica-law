@@ -1,0 +1,25 @@
+ARTÍCULO 12.- CONTENIDO DE LAS ACTAS DE LA JUNTA DIRECTIVA.
+En las actas, la Secretaría de la Junta Directiva deberá:
+a. Dejar constancia de:
+i. La fecha, la hora, el lugar de celebración de la sesión, así como el nombre de todas los participantes de la sesión, con sus correspondientes cargos.
+ii. Las llegadas tardías o inasistencias de las personas que, por su cargo dentro de la Junta Directiva o de la Administración, deben participar consuetudinariamente y de quienes estuvieran en sustitución o hubieran sido invitados, o ambos.
+iii. La aprobación del orden del día, sus alteraciones, inclusiones o exclusiones. Esto incluye aquellos temas mencionados en el artículo 7 de este cuerpo normativo.
+iv. La aprobación del acta de la sesión ordinaria precedente o extraordinarias pendientes de aprobar, especificando, si fuera el caso, quiénes no las pueden aprobar. Las actas solo pueden ser aprobadas en sesiones ordinarias.
+v. Si la sesión es presencial, virtual o híbrida y quiénes participaron presencial o remotamente.
+vi. Los asuntos de la agenda que fueron pospuestos.
+vii. El nombre de todos los directivos o de la Administración del Banco que estén inhibidos de ser parte de la discusión del correspondiente artículo, así como las razones de sus respectivas inhibiciones.
+viii. Si un artículo es de carácter confidencial, deberá constar el artículo de la ley o delos reglamentos que lo fundamenten.
+ix. Si dentro del análisis de un determinado asunto de la agenda, surgiera un tema que, por su naturaleza, no está realmente relacionado con ese asunto del orden del día, este segundo elemento se consignará como un artículo aparte y, por ende, se indicará así en el artículo correspondiente a la aprobación del orden del día.
+b. Transcribir de manera literal en el acta de la sesión, las intervenciones de todos los asistentes a las sesiones, trátese de directivos, colaboradores de la Administración del Banco o invitados, sean estos funcionarios de la institución o externos. En las actas se reproducirá textualmente, palabra por palabra, lo expresado por el participante de la sesión, según lo establecido en el artículo 56, numeral 2, de la Ley General de la Administración Pública, Ley 6227.
+c.Grabar las sesiones en audio y vídeo, con base en lo indicado sobre el particular por el literal a, artículo 50 de la Ley General de la Administración Pública, Ley 62277
+7 Que dispone que el secretario deberá: "a. Grabar el audio y video de las sesiones del órgano y levantar las actas correspondientes, las cuales constituirán una transcripción literal de todas las intervenciones efectuadas en apego a los principios constitucionales de razonabilidad y proporcionalidad, garantizando con ello la publicidad y el acceso ciudadano a todos estos registros." .
+d.Conservar las grabaciones de vídeo y de audio antes mencionadas, por un lapso de seismeses8
+8 A partir de la Ley del sistema Nacional de Archivos N°7202 del 24 de octubre de 1990 y su Reglamento (2017), se deriva el sustento para que la Junta Administrativa del Archivo Nacional, emita una serie de normas relacionadas con el quehacer de la Archivística y la valoración documental como su prioridad (Comisión Nacional de Selección y Eliminación de Documentos - CNSED). Para el caso específico de las actas y los expedientes de actas ("legajos"), ya han sido declarados hace décadas con valor. Ahora bien, las grabaciones, dice la norma, se recomienda que no formen parte del legajo, pues esto posibilita la asignación de un valor perentorio que permite ser eliminada sin vincularla al expediente y, por ende, sin arrastrar el riesgo jurídico de una eliminación indeseada a un documento histórico. Las tablas de plazos de conservación de documentos del Banco Central de Costa Rica ya establecen -con aprobación del CISED y de la CNSED-, que las grabaciones poseen una vigencia de 6 meses, con lo que posterior a ese plazo, pueden ser eliminadas. contados a partir de la fecha de celebrada la respectiva sesión.
+e. Respaldar las susodichas grabaciones de audio y video en un medio digital que garantice su integridad y archivo.
+f. Especificar la hora exacta a partir de la cual se decreta un receso, así como la hora exacta a partir de la cual se cierra dicho receso.
+g. Explicitar si la discusión de un tema se desprende de un acuerdo previo adoptado por la Junta Directiva.
+h. Explicitar si con el acuerdo se da por atendido una disposición previa tomada por la Junta Directiva.
+i. Dejar claro si la resolución adoptada implica un entregable, incluyendo la frase: "y presentar el informe correspondiente en una próxima oportunidad, para los fines consiguientes".
+j. Dejar constancia de los votos disidentes de los miembros de la Junta Directiva que así lo hayan expresamente manifestado, con sus respectivas fundamentaciones.
+k. Dejar constancia de las salidas o desconexiones de todo directivo que no participe en la discusión de algún asunto.
+l. Dejar constancia del nombre y cargo de las personas que participan en la discusión de un asunto, sean estos funcionarios del Banco Central de Costa Rica, o externos a éste.
