@@ -1,0 +1,1 @@
+Artículo 7°-Uso del parqueo en días no laborales. Para hacer uso de los espacios de parqueo en días no laborables, deberá contarse con la debida autorización del Departamento de Servicios Generales, de lo contrario queda prohibido su uso.

@@ -1,0 +1,1 @@
+Artículo 16.-Casos no previstos. En los casos no previstos en el presente Reglamento serán analizados y determinados por el administrador, en caso de ser necesario se deberá remitir a la instancia competente para la debida atención.

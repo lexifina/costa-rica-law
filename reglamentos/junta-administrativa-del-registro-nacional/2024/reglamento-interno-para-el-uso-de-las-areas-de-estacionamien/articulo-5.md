@@ -1,0 +1,1 @@
+Artículo 5°-Espacios destinados para carga de vehículos eléctricos. La administración reservará 3 espacios para la carga de vehículos eléctricos, la cual podrá incrementarse en el futuro según las necesidades del entorno. El uso de dichos parqueos será definido mediante circular por parte del Departamento Servicios Generales de la Dirección Administrativa.
