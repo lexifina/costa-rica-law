@@ -1,0 +1,1 @@
+ARTÍCULO 4- El levantamiento de los gravámenes ante el Registro Público, relacionados con las operaciones por condonarse en su totalidad, será realizado por el Instituto de Desarrollo Rural (Inder) a título gratuito, de conformidad con el artículo 450 del Código Civil.
