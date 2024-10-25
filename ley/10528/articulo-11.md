@@ -1,0 +1,2 @@
+ARTÍCULO 11- Convocatorias. Las convocatorias a las sesiones ordinarias y extraordinarias deberán realizarse por escrito, utilizando los medios idóneos para tales efectos.
+Las sesiones ordinarias serán convocadas con un plazo mínimo de quince días naturales de antelación y las sesiones extraordinarias se convocarán con un mínimo de cinco días hábiles de anticipación. Ambas convocatorias se acompañarán de la agenda propuesta, el documento de seguimiento de gestiones en proceso y cualesquiera otros documentos pertinentes.
