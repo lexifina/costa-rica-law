@@ -1,0 +1,2 @@
+ARTÍCULO 3- Autorización para donar el bien segregado
+Se autoriza al Consejo Técnico de Aviación Civil, cédula de persona jurídica tres-cero cero siete-cero cuatro cinco cinco cinco uno (3-007-045551), para que done el terreno de su propiedad segregado y desafectado en los artículos 1 y 2 de esta ley, a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, cédula de persona jurídica tres-cero cero siete-uno uno uno uno uno uno (3-007-111111).
