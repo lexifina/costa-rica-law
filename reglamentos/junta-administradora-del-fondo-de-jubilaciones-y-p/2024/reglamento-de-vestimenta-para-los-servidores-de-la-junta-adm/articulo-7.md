@@ -1,0 +1,9 @@
+Artículo 7º-Excepciones. Las excepciones a los lineamientos establecidos en los artículos precedentes son:
+1. En cuanto al uso de corbata y camisa manga larga: No se requiere su uso en zonas en que tradicionalmente no se ha utilizado (a menos que varíe la situación que originalmente generó la excepción).
+2. En cuanto a las inspecciones o diligencias que impliquen trabajo en el campo: La ropa a utilizar puede ser camisa manga corta o "t-shirt" (camiseta), pantalones casuales (tipo docker) o mezclilla (jeans), los cuales no pueden ser desteñidos, descaderados, con huecos o ceñidos (tallados).
+3. En cuanto a las giras: El personal que por motivos de sus labores deba realizar giras, deberán ajustarse a los requerimientos de vestimenta establecidos para la zona que visitan.
+4. En cuanto a las sandalias: Para el personal femenino que labora en zonas que tradicionalmente se han utilizado por causa del clima, las sandalias deben ser formales, de tacón.
+5. Uso de uniforme: Su uso es obligatorio para el personal al que se le ha asignado por los órganos superiores.
+6. Atención de personas menores de edad: Para disminuir la posibilidad de que las personas menores de edad se sientan intimidadas, aquellas personas que laboran para la Junta Administradora del Fondo de Jubilaciones y Pensiones del Poder Judicial y las atienden, pueden utilizar ropa menos formal durante el proceso de atención.
+7. Cuando exista algún impedimento debidamente comprobado o una recomendación médica, la jefatura que corresponda deberá valorar cada caso y adecuar la situación de la servidora o servidor judicial que lo requiera según esta normativa.
+8. Al momento de atender a las personas usuarias (internas o externas del Poder Judicial) se debe encender la cámara, a fin de propiciar una interacción adecuada.
