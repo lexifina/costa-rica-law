@@ -14,3 +14,4 @@ Solicitudes de autorización para registrar como gasto deducible el costo unitar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-12 | la propia norma |
+| 2 | 2024-10-25 | Resolución 26 (2024-10-25) |

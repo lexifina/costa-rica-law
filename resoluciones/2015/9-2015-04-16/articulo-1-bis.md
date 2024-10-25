@@ -1,0 +1,2 @@
+Artículo 1 BIS.- Se aclara para efectos de la solicitud que se regula en el Artículo 1° de esta resolución que dicha solicitud aplicará únicamente sobre aquellos activos tecnológicos nuevos que representen para el contribuyente una inversión de gran valor (en un rango mayor al 25% del valor de un salario base hasta un máximo de dos salarios base), que estén expuestos a cambios tecnológicos acelerados y que provoquen la obsolescencia de dichos activos.
+(Así adicionado por el artículo 2° de la resolución N° MH-DGT-RES-0026-2024 del 25 de octubre del 2024)
