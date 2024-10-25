@@ -1,0 +1,2 @@
+Artículo 11.-Modificación de criterios. RACSA, de conformidad con su estrategia comercial, podrá adicionar y/o cambiar parámetros de calificación y escogencia, a fin de garantizar la mejora en la comercialización de nuevos servicios en el portafolio, ya sea de índole comercial, financiera, legal o técnica.
+Cuando RACSA requiera realizar incorporaciones al registro y segmentación de canales, podrá definir otros requisitos de incorporación, preselección y selección, según las necesidades del mercado y su estrategia comercial.

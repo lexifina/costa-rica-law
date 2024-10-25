@@ -1,0 +1,6 @@
+7.5 CAPÍTULO V - Del pago de comisiones.
+Artículo 15.-Comisiones. Corresponde a la Dirección de Negocios la rectoría en temas de pago de comisiones, por lo cual el modelo aplicable deberá contar con el aval de dicha Dirección, previo a su aplicación y comunicación a los Comercializadores.
+RACSA realizará el pago de comisiones a los Comercializadores por venta de los servicios del portafolio, respetando las particularidades de los servicios ofrecidos.
+La forma de cálculo y pago, así como el monto a reconocer se notificará, quedando definido en el contrato. No obstante, primeramente, deberá validarse con el Área de Ingresos - Recaudación y Gestión de Cobro que el cliente a quien se le vendió el servicio haya cancelado el mismo, para que posteriormente se active el proceso de pago de comisión al Comercializador.
+RACSA se reserva el derecho de fijar, revisar, modificar, aumentar, disminuir o readecuar el monto de las comisiones, previa notificación escrita al comercializador, donde se indicará el plazo de aplicación.
+Le corresponde al Departamento de Aseguramiento Comercial, el pago de comisiones. Dicho Departamento será responsable además de calcular, aplicar y comunicar los montos a pagar a los Comercializadores.
