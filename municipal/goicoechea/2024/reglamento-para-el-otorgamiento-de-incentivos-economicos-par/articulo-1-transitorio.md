@@ -1,0 +1,2 @@
+Transitorio l.-En un plazo de veinte días hábiles posteriores a la autorización de uso de dichos recursos por parte de la Contraloría General de la República, la Oficina de Gestión Cultural y Dirección Administrativa del Comité Cantonal de Deportes y Recreación remitirá al Concejo Municipal, el convenio modelo para el otorgamiento del incentivo monetario y formulario de declaración jurada establecidos en el presente reglamento.
+<span style='font-family:"Arial",sans-serif; </body>

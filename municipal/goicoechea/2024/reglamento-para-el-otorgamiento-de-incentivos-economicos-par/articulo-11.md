@@ -1,0 +1,1 @@
+Artículo 11.-Del resguardo de la información aportada por la persona solicitante de un incentivo. La información que respalde toda solicitud de incentivo en los términos establecidos por este reglamento deberá constar en un expediente individualizado por solicitante, que será custodiado por la Secretaria Municipal una vez culmine el proceso.

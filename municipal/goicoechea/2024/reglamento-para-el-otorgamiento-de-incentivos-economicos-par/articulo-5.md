@@ -1,0 +1,1 @@
+Artículo 5º-Sobre la actualización de los montos asignados para incentivos. Cada dos años, en el proceso de presupuestación, la Administración Municipal presentará al Concejo Municipal el ajuste correspondiente al monto por asignar para cada incentivo, tomando en consideración la variación en el índice de Precios al Consumidor (IPC) durante los dos años anteriores.

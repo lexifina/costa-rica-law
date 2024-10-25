@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Sobre el giro de los incentivos monetarios
+Artículo 12.-Del giro de los Incentivos Monetarios con cargo al presupuesto municipal. En el caso de las personas beneficiarias, los incentivos monetarios serán depositado mensualmente dentro de los primeros diez días hábiles de cada mes, en la cuenta de ahorros de la persona beneficiaria o de su represente legal, en la Institución Financiera que determine la Dirección Administrativa Financiera de la municipalidad de Goico echea.
+La Oficina de Gestión Cultural y la Dirección Administrativa del Comité Cantonal de Deportes y Recreación en colaboración con el Departamento de Tesorería, serán los responsables de coordinar con la entidad financiera respectiva al menos las siguientes acciones:
+21) las aperturas de las cuentas bancarias respectivas para las personas beneficiarias de los incentivos monetarios.
+22) La carga de archivos, y actualización de información de activación o desactivación de cuentas.
+El incentivo monetario se depositará exclusivamente en la cuenta correspondiente a la persona beneficiaria, con el propósito de establecer el control respectivo, pudiendo ser cuenta de persona menor de edad, representante legal de la persona beneficiaria o persona mayor beneficiaria.
+La Oficina de Gestión Cultural y la Dirección Administrativa del Comité Cantonal de Deportes y Recreación confeccionará una lista de las personas beneficiarias por programa con el nombre de todas las personas que cuentan con este beneficio; dicha lista se corroborará trimestralmente la permanencia de las personas beneficiarias en los programas respectivos con la Dirección o Coordinación del programa respectivo.

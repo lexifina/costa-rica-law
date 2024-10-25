@@ -1,0 +1,6 @@
+Artículo 14.-Revocación del incentivo monetario. Será responsabilidad la Oficina de Gestión Cultural y la Dirección Administrativa del Comité Cantonal de Deportes y Recreación establecer los controles y tomar las acciones pertinentes con el fin de verificar oportunamente la información provista por las personas solicitantes.
+El Concejo Municipal con el previo estudio, constatación y recomendación de la Oficina de Gestión Cultural y la Dirección Administrativa del Comité Cantonal de Deportes y Recreación, podrá revocar el incentivo asignado por mera constatación, fundamentado en razones objetivas y sin responsabilidad para la persona beneficiaria, en los siguientes supuestos:
+Por muerte de la persona beneficiaria.
+Si por motivos de caso fortuito o fuerza mayor, la persona beneficiada del incentivo monetario cesa su participación en los programas indicados en el presente reglamento.
+Si la persona beneficiaria renuncia voluntaria al incentivo monetario.
+En caso de que, a la persona beneficiaria del incentivo, haya recibido este cuando ya no exista motivo o causa para ello, el o sus representantes, deberá reintegrar a la municipalidad de Goicoechea la suma recibida al momento en que se produjo la situación que genera la revocación del incentivo.

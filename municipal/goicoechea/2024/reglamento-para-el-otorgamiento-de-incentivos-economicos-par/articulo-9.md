@@ -1,0 +1,1 @@
+Artículo 9º-De la duración del incentivo. Los incentivos monetarios se otorgarán mientras la persona beneficiaria se mantenga activa, bajo previa valoración de rendimiento, así como sea constante en asistencia a ensayos y conciertos programados o a entrenamientos y competiciones según corresponda.
