@@ -1,0 +1,1 @@
+ARTÍCULO 2- En razón de lo dispuesto en el artículo anterior, se declara de interés público la celebración de las Fiestas de la Virgen del Mar, que se realiza el 16 de julio de cada año en la ciudad de Puntarenas y se autoriza a las instituciones públicas para que contribuyan con su realización.
