@@ -17,3 +17,4 @@ Reglamento general del Colegio de Profesionales en Geografía de Costa Rica
 | 2 | 2022-08-27 | Reglamento 1 (2022-08-27) |
 | 3 | 2023-02-04 | Reglamento 1 (2023-02-04) |
 | 4 | 2023-10-21 | Reglamento 1 (2023-10-21) |
+| 5 | 2024-10-26 | Reglamento 1 (2024-10-26) |

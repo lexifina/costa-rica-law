@@ -1,1 +1,2 @@
-Artículo 49.-La candidatura: El Tribunal Electoral, verificará que las candidaturas cumplan con las condiciones y regulaciones que contemplan la ley, normativa vigente y verificará que los postulantes estén al día con el pago de cuotas mensuales con la Administración del Colegio.
+Artículo 49.-La candidatura: El Tribunal Electoral, verificará que las candidaturas cumplan con las condiciones y regulaciones que contemplan la ley, normativa vigente y verificará que los postulantes estén al día con el pago de cuotas mensuales con la Administración del Colegio, así como no estar siendo objeto de investigación por parte de la Fiscalía o Tribunal de Honor.
+(Así reformado en sesión N° 1 del 26 de octubre de 2024)
