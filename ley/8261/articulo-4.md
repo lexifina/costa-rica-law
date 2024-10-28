@@ -1,6 +1,6 @@
 CAPÍTULO II
 Derechos
-Artículo 4º—Derechos de las personas jóvenes. La persona joven será sujeto de derechos; gozará de todos los inherentes a la persona humana garantizados en la Constitución Política de Costa Rica, en los instrumentos internacionales sobre derechos humanos o en la legislación especial sobre el tema. Además, tendrá los siguientes:
+Artículo 4º-Derechos de las personas jóvenes. La persona joven será sujeto de derechos; gozará de todos los inherentes a la persona humana garantizados en la Constitución Política de Costa Rica, en los instrumentos internacionales sobre derechos humanos o en la legislación especial sobre el tema. Además, tendrá los siguientes:
 a) El derecho al desarrollo humano de manera integral.
 b) El derecho a la participación, formulación y aplicación de políticas que le permitan integrarse a los procesos de toma de decisión en los distintos niveles y sectores de la vida nacional, en las áreas vitales para su desarrollo humano.
 c) El derecho al trabajo, la capacitación, la inserción y la remuneración justa.
@@ -21,4 +21,8 @@ n) El derecho de las personas jóvenes a tener acceso a una vivienda digna
 (Así adicionado el inciso anterior por el artículo 2° de la Ley N° 9151 del 27 de agosto del 2013, "Acceso de Vivienda para las Personas Jóvenes")
 ñ) El derecho al deporte, por medio de la existencia de espacios deportivos integrales y efectivos, en donde se les garantice su uso cotidiano.
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 9917 del 19 de noviembre del 2020)
+o) El derecho a no sufrir ninguna forma de violencia en el espacio público, por medio de mecanismos que promuevan el resguardo de su vida, integridad y seguridad en este.
+(Así adicionado el inciso anterior por el artículo 9 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
+p) El derecho a la ciudad, sin discriminación de ningún tipo en los espacios urbanos y comunitarios.
+(Así adicionado el inciso anterior por el artículo 9 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
 Las personas adolescentes gozarán de los derechos contemplados en el Código de la Niñez y la Adolescencia, Ley Nº 7739.
