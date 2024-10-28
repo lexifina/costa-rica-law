@@ -1,8 +1,0 @@
-Artículo 38.- En caso de que el prestador de servicio público no cumpla con lo establecido en el artículo 37 del presente reglamento, la autorización para la prestación de servicio público de transporte de combustible, será suspendida mediante resolución del Ministro del MINAET, previa recomendación de la DGTCC y en observancia del debido proceso. Además, será causal de suspensión de la autorización para la prestación de servicio público lo siguiente:
-a) Se compruebe mediante un informe de inspección realizada por funcionarios de la DGTCC, que la unidad de transporte no se ajusta a las disposiciones contenidas en el presente reglamento.
-b) Negar y obstaculizar las labores de inspección y control de los funcionarios de la DGTCC.
-c) Cuando no se cumplan las recomendaciones técnicas de la DGTCC en cuanto a las condiciones mecánicas y estructurales de las unidades de transporte.
-d) Cuando la unidad de transporte articulada o integrada sea alterada en su diseño estructural o no cuente con los aditamentos de emergencia y dispositivos de protección, a fin de ofrecer la máxima seguridad.
-e) Cuando no se aporten los documentos requeridos en el artículo 6º del presente reglamento.
-f) Utilizar tractocamiones o unidades de transporte de combustible en general que no cumplan con la normativa correspondiente, específicamente con lo dispuesto en la Ley N° 9078 “Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial” del 4 de octubre del 2012 y en el Decreto Ejecutivo Nº 31363-MOPT “Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga” del 2 de junio del 2003.
-(Así adicionado el inciso anterior por el artículo 8° del decreto ejecutivo N° 38030 del 9 de agosto del 2013)

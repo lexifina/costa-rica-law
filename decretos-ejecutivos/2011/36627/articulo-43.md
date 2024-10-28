@@ -1,1 +1,0 @@
-Artículo 43.- RECOPE no podrá abastecer de combustible a la unidad de transporte, cuando el MINAET le haya notificado la suspensión o la revocatoria de la autorización de funcionamiento, independiente de la modalidad de comercialización bajo la cual opere.

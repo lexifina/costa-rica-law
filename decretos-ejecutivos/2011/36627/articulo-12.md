@@ -1,1 +1,0 @@
-Artículo 12.- Para tramitar la sustitución de la unidad de transporte de combustibles o uno de sus elementos, se requiere aportar todos los requisitos correspondientes descritos en el artículo 6°, siempre y cuando la unidad de transporte sustituta no tenga una antigüedad mayor a 5 años de fabricación.

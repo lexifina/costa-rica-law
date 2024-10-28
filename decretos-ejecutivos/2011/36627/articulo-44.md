@@ -1,9 +1,0 @@
-Artículo 44.- La autorización para la prestación de servicio público de transporte de combustibles, será cancelada mediante resolución del Ministro del MINAET, previa recomendación de la DGTCC, una vez realizado el debido proceso, en los siguientes casos:
-a) Cuando se compruebe que la unidad de transporte de combustible no puede adaptarse a los requisitos establecidos en los reglamentos técnicos que regulan la materia y al presente Reglamento.
-b) Extinción del plazo del permiso otorgado por el MINAET a solicitud de parte.
-c) Incumplimiento comprobado por MINAET, de las condiciones técnicas de las unidades de transporte de combustible y vehículos terrestres de reparto exclusivo de cilindros de GLP.
-d) Si en el plazo de un año a partir de la primera suspensión, incurriere en dos o más causales de suspensión, independiente de la modalidad de comercialización en que opere.
-e) Cuando se incumplan las obligaciones, deberes y condiciones establecidas en la autorización para la prestación de servicio público otorgada por el MINAET.
-f) Ante la comprobación de que el prestador de servicio público ha dejado de utilizar su concesión para transporte de combustibles, por un periodo mayor a un año contabilizado desde la fecha de vencimiento señalada en el último certificado emitido, o que se compruebe que la unidad de transporte se ha dejado de usar por más de un año.
-g) Ante la comprobación de que el prestador de servicio público utiliza la unidad de transporte para transportar combustibles u otras sustancias no establecidas en la autorización de prestación de servicio público.
-h) Suministro de combustibles por parte del prestador de servicio público, independiente del modo de comercialización, a personas no autorizadas por el MINAET o cuando deposite, suministre, descargue, trasiegue o abastezca combustibles en tanques de almacenamiento no autorizados por el MINAET.

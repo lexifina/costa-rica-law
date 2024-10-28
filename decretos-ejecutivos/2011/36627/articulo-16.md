@@ -1,1 +1,0 @@
-Artículo 16.- La autorización de funcionamiento y prestación de servicio público para los vehículos terrestres de reparto exclusivo de cilindros portátiles de gas licuado petróleo, se otorgarán por un plazo de cinco años.

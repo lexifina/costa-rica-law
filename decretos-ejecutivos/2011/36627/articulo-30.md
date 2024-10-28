@@ -1,1 +1,0 @@
-Artículo 30.- El operador de la unidad de transporte deberá utilizar uniforme: chaqueta o camisa, color gris claro o blanca con pantalón de color azul, así como zapatos con punta de metal y de suela resistente a contacto con aceites.
