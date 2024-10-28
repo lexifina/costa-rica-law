@@ -1,2 +1,0 @@
-Transitorio I.—Las personas físicas o jurídicas que hayan obtenido su permiso para distribuir combustibles sin punto fijo de venta y la autorización para prestar el servicio público del mismo, contarán con el plazo de tres meses, a partir de la publicación del presente decreto, para cumplir con las obligaciones descritas en el artículo 2 de esta norma.
-Dado en la Presidencia de la República.—San José a los veintinueve días del mes de setiembre del 2003.

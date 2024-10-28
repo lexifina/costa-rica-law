@@ -1,1 +1,0 @@
-Artículo 7º—Serán causales de caducidad de la autorización de servicio público, la renuncia del prestatario sin perjuicio de las responsabilidades que le correspondan, la alteración de las condiciones básicas del permiso por fuerza mayor o caso fortuito, así como la pérdida de la condición de servicio público del transporte de combustible decretada por la Asamblea Legislativa.
