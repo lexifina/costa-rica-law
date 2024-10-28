@@ -1,5 +1,0 @@
-CAPÍTULO IV
-Del procedimiento general de realización
-de las pruebas técnicas
-Artículo 7º—El presente procedimiento regulará las acciones generales y etapas para la realización de las pruebas técnicas descritas en el cuadro 1 del artículo 7° del Decreto Ejecutivo Nº 36627-MINAE(. En la realización de las pruebas, el inspector deberá cumplir todas las acciones, procedimientos, obligaciones, controles y medidas de seguridad establecidos en la Resolución N° 152-2005 (COMIECO-XXXIII) Reglamentos Técnicos Centroamericanos: RTCA 13.01.25:05 Reglamento Técnico de Transporte Terrestre de Hidrocarburos Líquidos (excepto GLP); RTCA 13.01.26:05 Transporte Terrestre de Gas Licuado de Petróleo (GLP) a Granel, publicada mediante el Decreto Ejecutivo Nº 32921-COMEX-MINAE-MEIC, del 16 de diciembre del 2005, y las contenidas en el Decreto Ejecutivo Nº 36627-MINAE(*), Reglamento para la Regulación del Transporte de Combustible.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

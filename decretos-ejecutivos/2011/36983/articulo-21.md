@@ -1,1 +1,0 @@
-Artículo 21.—La DGTCC convocará a las empresas autorizadas que realizarán las pruebas técnicas, a reuniones cada tres meses con el fin de identificar la necesidad de realizar mejoras a la reglamentación o los procedimientos de inspección.

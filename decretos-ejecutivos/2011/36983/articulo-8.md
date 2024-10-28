@@ -1,2 +1,0 @@
-Artículo 8º—Una vez realizadas las pruebas técnicas a la unidad de transporte, y en caso de rechazo de ésta, por no aprobar cualquiera de las pruebas, el interesado podrá realizar las labores y reparaciones que no impliquen un cambio o modificación en la estructura e integridad de la unidad de transporte, según la normativa técnica de transporte de combustibles, en un plazo máximo de un mes.
-El inspector deberá remitir a la DGTCC una copia del informe de esta inspección en los términos indicados en las obligaciones de este manual.

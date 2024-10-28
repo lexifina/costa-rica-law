@@ -1,2 +1,0 @@
-Artículo 23.—Los documentos de compromisos que se generen para futuros trámites de nuevas empresas inspectoras, también deberán ser coordinados con el MINAE(*) por medio de la DGTCC, debiéndose obtener el visto bueno o aprobación de dicha institución al contenido de dichos documentos previo a su presentación formal.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
