@@ -1,1 +1,1 @@
-Artículo 118º-Renovación. En el caso de renovaciones se debe aportar lo establecido en el inciso c) del artículo 115 de este reglamento, y la DGTCC procederá en un plazo máximo de 5 días hábiles a renovar el asiento del registro del RT. Se renovará el asiento por un plazo igual al de su otorgamiento.
+Artículo 118º-Renovación. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

@@ -1,5 +1,1 @@
-Artículo 67º-Prohibiciones. Se prohíbe lo siguiente:
-a) Realizar actividades de distribución y comercialización.
-b) Prestar el servicio de transporte de GLP a personas físicas o jurídicas que no posean las autorizaciones correspondientes.
-c) Transportar otro producto que no sea GLP.
-El transportista que realice cualquiera de las conductas aquí señaladas será sancionado de conformidad con el Título V del presente Reglamento.
+Artículo 67º-Prohibiciones. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

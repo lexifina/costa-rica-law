@@ -1,6 +1,1 @@
-Artículo 79º-Requisitos para obtener un código de transportista. Adicional a los requisitos establecidos en el artículo 75 del presente Reglamento, deberá presentar los siguientes:
-a) Poseer los permisos de operación para los medios de transporte que utilizará para desarrollar su actividad.
-b) Aportar certificación registral que acredite que el inmueble que usará como predio para estacionamiento de los medios de transporte que utilizará para su actividad, son propiedad del solicitante.
-c) Aportar original y copia del PSF y la Licencia Municipal del inmueble que se utilizará como predio para estacionamiento.
-d) Aportar copia de los contratos con los concesionarios o compradores directos a los que brindará el servicio de transporte.
-e) Aportar copia de los contratos con los distribuidores o comercializadores a los que brindará el servicio de transporte.
+Artículo 79º-Requisitos para obtener un código de transportista. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

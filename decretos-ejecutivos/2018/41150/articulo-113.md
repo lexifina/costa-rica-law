@@ -1,1 +1,1 @@
-Artículo 113º-Responsabilidad. El RT responderá administrativa, civil y penalmente por la veracidad de la información que suscribe, con responsabilidad solidaria para el concesionario o el distribuidor.
+Artículo 113º-Responsabilidad. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

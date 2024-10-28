@@ -1,1 +1,1 @@
-Artículo 117º-Vigencia. La vigencia de la inscripción en el RRT será de 5 años.
+Artículo 117º-Vigencia. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

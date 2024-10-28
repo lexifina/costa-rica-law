@@ -1,1 +1,1 @@
-Artículo 119º-Denegación de la renovación. La DGTCC puede negar le renovación si el RT fue sancionado por las conductas señaladas en los incisos c), d) y e) del artículo 121 de este reglamento.
+Artículo 119º-Denegación de la renovación. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

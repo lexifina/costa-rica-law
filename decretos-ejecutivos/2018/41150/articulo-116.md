@@ -1,1 +1,1 @@
-Artículo 116º-Inscripción. La DGTCC contará con un plazo de 5 días hábiles para realizar la inscripción en el RRT.
+Artículo 116º-Inscripción. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

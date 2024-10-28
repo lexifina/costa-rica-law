@@ -1,3 +1,3 @@
 SECCIÓN III
 Registro de comercializadores
-Artículo 80º-Registro de comercializadores. Será competencia del MINAE la implementación digital del Registro de Comercializadores.
+Artículo 80º-Registro de comercializadores. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

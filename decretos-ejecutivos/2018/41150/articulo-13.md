@@ -1,3 +1,3 @@
 SECCIÓN V
 Municipalidades
-Artículo 13º-Municipalidades. Otorgará la Licencia Municipal a los establecimientos que desarrollan actividades industriales, comerciales y de servicios, de acuerdo al Código Municipal, Ley N° 7794 y sus reformas; así como cualquier otra función que sea aplicable y concordante en esta materia contenida en Código Municipal, Ley N° 7794 y la Ley de Patentes Municipales de cada Cantón.
+Artículo 13º-Municipalidades. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

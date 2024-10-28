@@ -1,3 +1,3 @@
 SECCIÓN VI
 Del Transportista
-Artículo 64º-Transportista. Es la persona física o jurídica habilitado por el MINAE para ejecutar el servicio de transporte para a uno o varios concesionarios, distribuidores y comercializadores, por lo que cobrará un flete. Es responsable del producto y los cilindros portátiles envasados que traslade desde el punto de recepción hasta que descargue la unidad en el punto de entrega o al usuario final.
+Artículo 64º-Transportista. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

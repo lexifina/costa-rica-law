@@ -1,4 +1,1 @@
-Artículo 120º-Suspensión del RRT. Son causales de suspensión las siguientes:
-a) Cuando el Colegio Profesional respectivo suspenda al profesional del ejercicio de la profesión.
-b) Por sentencia judicial o administrativa en firme y por el tiempo que señale la sentencia.
-c) Por el incumplimiento de cualquiera de las obligaciones establecidas en el esquema de certificación del RT, si corresponde.
+Artículo 120º-Suspensión del RRT. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

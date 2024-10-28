@@ -1,4 +1,3 @@
 SECCIÓN IV
 Autoridad Reguladora de los Servicios Públicos
-Artículo 12º-Autoridad Reguladora de los Servicios Públicos. Velará por la prestación óptima del servicio público, y realizará las inspecciones técnicas de las propiedades, plantas y equipos destinados a prestar el servicio público cuando lo estime conveniente para verificar la calidad, confiabilidad, continuidad, los costos, precios y las tarifas del servicio público.
-De igual forma, realizará cualquier otra función que sea aplicable y concordante en esta materia contenida en la Ley de La Autoridad Reguladora de los Servicios Públicos, Ley N° 7593, el Reglamento a la Ley Reguladora de los Servicios Públicos N° 7593, Decreto Ejecutivo Nº 29732-MP del 16 de agosto de 2001 y sus reformas.
+Artículo 12º-Autoridad Reguladora de los Servicios Públicos. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)

@@ -1,4 +1,1 @@
-Artículo 58º-Prohibición. Se prohíbe lo siguiente:
-a) El trasiego de GLP a cilindros portátiles, vehículos automotores o camiones cisternas.
-b) Contratar un RT que no esté inscrito en el RRT.
-El distribuidor que realice cualquiera de las conductas aquí señaladas será sancionado de conformidad con el Título V del presente Reglamento.
+Artículo 58º-Prohibición. (Derogado por el artículo 40 del Reglamento del servicio público de transporte de combustibles y del servicio público de distribución de combustibles sin punto fijo de venta, aprobado mediante decreto ejecutivo N° 44753 del 28 de octubre de 2024)
