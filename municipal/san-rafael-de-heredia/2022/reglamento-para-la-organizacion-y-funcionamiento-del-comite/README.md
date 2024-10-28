@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento del Comité Cantonal de Deport
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-05-17 | la propia norma |
+| 2 | 2024-10-28 | Reglamento municipal 45 (2024-10-28) |
