@@ -1,0 +1,1 @@
+Artículo 26.-Vigencia del Contrato de Teletrabajo. El Contrato de Teletrabajo tendrá una vigencia de cuatro años, prorrogable automáticamente en el tanto se mantengan invariables las condiciones que lo originaron. En el caso de nombramientos interinos, se establecerá el plazo del Contrato de Teletrabajo, de acuerdo a la vigencia del nombramiento respectivo y sus prórrogas.

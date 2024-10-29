@@ -1,0 +1,1 @@
+Artículo 23.-Cargos Teletrabajables. La Gestión Institucional de Recursos Humanos dete1minará los cargos que sean declarados como teletrabajables. Esta determinación será revisada, cuando se requiera, previa solicitud de la Jefatura Imnediata.

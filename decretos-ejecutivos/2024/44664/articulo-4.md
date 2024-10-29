@@ -1,0 +1,5 @@
+Artículo 4.-Tipos de Teletrabajo. El Teletrabajo puede realizarse bajo tres distintos tipos, establecido de previo en el Contrato de Teletrabajo:
+a) Desde el domicilio o casa de habitación de la persona teletrabajadora, quien podrá designar adicionalmente al domicilio principal, uno secundario desde el cual podrá llevar a cabo las funciones teletrabajables.
+b) Desde lugares destinados para tal fin, como telecentros autorizados, cuando así sea posible.
+c) Móvil o nómada: el teletrabajador puede desplazarse entre varios lugares, siempre que se garantice_ el acondicionamiento de estos lugares para el teletrabajo, sea debidamente reportado, y sea congruente con las funciones del cargo. Este tipo de teletrabajo se autoriza por quien tiene competencia para ello, de manera excepcional, en virtud del cumplimiento de las funciones propias del cargo, como giras de trabajo que deban ser atendidas por el Teletrabajador.
+No se permite la realización del Teletrabajo en el Extranjero, en virtud de la imposibilidad legal, técnica y presupuestaria, de que desde el Ministerio o sus Órganos Desconcentrados, se cumpla con la normativa laboral de cada país destino.

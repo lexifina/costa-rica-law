@@ -1,0 +1,6 @@
+Artículo 24.-Formalización del Contrato. De previo a iniciar la modalidad de teletrabajo, la persona servidora debe firmar el "Contrato de Teletrabajo", donde se especifican las condiciones, el plazo de vigencia, las responsabilidades que debe cumplir, y cualquier otra cuestión relevante para el cumplimiento de las labores.
+Dicho documento se tramitará de la siguiente manera:
+a) La Jefatura Inmediata y persona servidora interesada, se encargarán de completar y suscribir el "Contrato de Teletrabajo", respetando el formato establecido en el presente Reglamento, y remitirlo a la Gestión Institucional de Recursos Humanos u Oficina Auxiliar de Recursos Humanos para revisión, según corresponda.
+b) La Gestión Institucional de Recursos Humanos u Oficina Auxiliar de Recursos Humanos revisará el "Contrato de Teletrabajo" y, en caso de estar completa y correcta la información incorporada en éste, gestionará la firma del Máximo Jerarca.
+c) Una vez firmado el "Contrato de Teletrabajo", la Gestión Institucional de Recursos Humanos u Oficina Auxiliar de Recursos Humanos remitirá copia a la persona servidora, a la Jefatura Inmediata, y al expediente de personal de la persona teletrabajadora en custodia de la Gestión Institucional de Recursos Humanos.
+d) El "Contrato de Teletrabajo" entrará en vigencia, a partir de la firma de todas las partes.

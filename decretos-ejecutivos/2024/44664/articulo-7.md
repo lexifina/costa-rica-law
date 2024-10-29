@@ -1,0 +1,1 @@
+Artículo 7.-Compromiso de colaborar con el Teletrabajo. Todas las jefaturas y personas trabajadoras relacionadas, directa o indirectamente, con las personas teletrabajadoras deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos fijados y la normativa asociada.

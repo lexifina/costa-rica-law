@@ -1,0 +1,2 @@
+Artículo 16.-Funciones de la Comisión Institucional de Teletrabajo. La Comisión Institucional de Teletrabajo es una instancia asesora que tendrá las atribuciones que le confiera el ordenamiento jurídico, sin que bajo ninguna circunstancia pueda subrogarse las competencias y facultades que le corresponden a la Gestión Institucional de Recursos Humanos y/o a la Administración Activa.
+La Comisión Institucional de Teletrabajo, será convocada por la Gestión Institucional de Recursos Humanos, cuando ello sea requerido.

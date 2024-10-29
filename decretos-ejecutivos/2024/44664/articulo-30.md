@@ -1,0 +1,1 @@
+Artículo 30.-Trabajo presencial. En caso de que se requiera que la persona teletrabajadora realice sus labores en la modalidad presencial, la Jefatura Inmediata deberá garantizar las condiciones requeridas, en términos de espacio físico, equipo, suministros, y mobiliario correspondiente.
