@@ -7,7 +7,7 @@ Asunto: Reglas Prácticas para reducir la Revictimización de las Personas Menor
 A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS QUE CONOCEN MATERIA PENAL
 SE LES HACE SABER QUE:
 La Corte Plena, en sesión N° 28-02, celebrada el 24 de junio del 2002, artículo XI, dispuso aprobar las siguientes "Reglas Prácticas para Reducir la Revictimización de las Personas menores de edad en los procesos Penales":
-“I.- Prontitud del proceso e Interés Superior del Niño.
+"I.- Prontitud del proceso e Interés Superior del Niño.
 Los procesos en los que figure como víctima un niño, niña o adolescente deben ser atendidos sin postergación alguna, implementando los recursos que se requieren para su realización. A su vez se debe tener como prioridad evitar daños en la víctima, en atención al principio del Interés Superior del Niño.
 II- Privacidad de la diligencia judicial y auxilio pericial.
 En cualquier diligencia judicial en la que se requiera la presencia de una persona menor de edad víctima, independientemente de la etapa en la que se encuentre el proceso, esta deberá llevarse a cabo en forma privada y con el auxilio de peritos especializados, en los casos en que sea necesario. Deberán estar los padres o una persona de confianza durante la declaración, salvo cuando ello constituya un elemento negativo que pueda entorpecer el desarrollo de la diligencia.
@@ -60,5 +60,6 @@ En los debates y/o audiencias, la autoridad judicial a cargo deberá tramitarla 
 XXIII - Identificación de Expedientes.
 Identificar en la carátula del expediente con una boleta, que se refiere a un caso de niño, niña o adolescente ofendido, para darle la prioridad correspondiente en cada despacho. Se indicará en letras grandes: "NIÑO, NIÑA O ADOLESCENTE OFENDIDO".
 XXIV - Aplicación de directrices en los procedimientos policiales.
-La policía judicial procurará que la atención de los casos se ajuste a lo dispuesto en los puntos comprendidos en este documento. Además, debe proveerse de la capacitación necesaria y suficiente al personal policial, para que se aborden los casos de manera adecuada y profesional, en aras de cumplir con los objetivos propuestos para minimizar la revictimización”.
+La policía judicial procurará que la atención de los casos se ajuste a lo dispuesto en los puntos comprendidos en este documento. Además, debe proveerse de la capacitación necesaria y suficiente al personal policial, para que se aborden los casos de manera adecuada y profesional, en aras de cumplir con los objetivos propuestos para minimizar la revictimización".
+(Nota de Sinalevi: Mediante circular N° 223-2024 del 29 de octubre de 2024, se acordó ampliar la presente norma bajo la recomendación de la Comisión de la Jurisdicción Penal, hacer de conocimiento de los despachos que conocen la materia penal del país, la obligatoriedad de incluir los datos completos de las personas menores de edad que deberán someterse a la pericia en el formulario F83i de los despachos requirentes ante del Departamento de Ciencias Forenses; en razón de que la omisión del nombre completo de la persona, puede implicar aun mayor revictimización al deber citarla al laboratorio y genera una dificultad para los procesos, particularmente en áreas como la de Genética Forense.)
 San José, 10 de julio del 2002.

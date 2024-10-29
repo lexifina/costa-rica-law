@@ -13,3 +13,4 @@ Reglas prácticas para reducir la revictimización de las personas menores de ed
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-10 | la propia norma |
+| 2 | 2024-10-29 | Circular 223 (2024-10-29) |
