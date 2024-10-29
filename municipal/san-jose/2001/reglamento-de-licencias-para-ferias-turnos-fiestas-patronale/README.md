@@ -14,3 +14,4 @@ Reglamento de Licencias para Ferias, Turnos, fiestas Patronales y Actividades Oc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-23 | la propia norma |
+| 2 | 2024-10-29 | Acuerdo municipal 16 (2024-10-29) |

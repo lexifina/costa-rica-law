@@ -1,4 +1,4 @@
-Artículo 13.—Para solicitar licencia de espectáculos públicos en la realización de conciertos o presentaciones similares y de acuerdo al criterio que la Municipalidad tenga sobre la actividad, se deberán aportar los siguientes requisitos:
+Artículo 13.-Para solicitar licencia de espectáculos públicos en la realización de conciertos o presentaciones similares y de acuerdo al criterio que la Municipalidad tenga sobre la actividad, se deberán aportar los siguientes requisitos:
 1. Escrito presentado ante el Departamento de Patentes en papel sellado de quince colones o en papel blanco con su correspondiente reintegro en timbres. Se debe indicar en él: tipo de actividad que se pretende realizar, la fecha del evento, lugar, actividades que se llevarán a cabo y el responsable de la misma.
 2. Autorización de uso del propietario del establecimiento o terreno donde se realizará el evento, o en su defecto, contrato de arrendamiento.
 3. Certificación del Ingeniero Civil donde conste que la estructura donde se desarrollará la actividad se encuentra en buenas condiciones, así como la señalización de la capacidad máxima de personas que estructuralmente soportará las instalaciones.
@@ -12,7 +12,7 @@ Artículo 13.—Para solicitar licencia de espectáculos públicos en la realiza
 11. Autorización del Ministerio de Salud.
 12. Constancia emitida por el Teatro nacional, o su exoneración, sobre el impuesto de espectáculos públicos.
 13. Autorización del Ministerio de Agricultura y Ganadería.
-14. En caso de haber juegos pirotécnicos, autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública.
+14. (Derogado por la Política de declaratoria de San José como cantón libre del uso de pólvora y pirotecnia sonora y lineamientos técnicos para su implementación, aprobado en sesión N° 026 mediante acuerdo N° 16 del 29 de octubre de 2024)
 15. Póliza del Instituto Nacional de Seguros sobre daños a terceros.
 16. Visto bueno de la Comisión Nacional de Emergencias.
 17. Autorización de la Dirección General de Tránsito garantizando su presencia en las vías que correspondan y del cierre de vías.
