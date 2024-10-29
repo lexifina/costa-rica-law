@@ -1,2 +1,0 @@
-Artículo 13.—Confidencialidad de la Información: El Área Social deberá garantizar el resguardo de la confidencialidad de los datos del hogar de las personas solicitantes y beneficiarias, así como la integridad de los documentos derivados del proceso.
-(Corrida su numeración en sesión N° 71 del 5 de diciembre de 2017, que lo traspaso del artículo 14 al 13, lo anterior ya que en dicha sesión se ordenó derogar el artículo 11 original y correr la numeración de los restantes artículos)

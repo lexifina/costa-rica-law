@@ -1,2 +1,0 @@
-Artículo 5 Bis- Excepción. Por una única vez y por el curso lectivo correspondiente al año 2023 se exceptúa de las disposiciones previstas en el presente cuerpo normativo a aquellas personas habitantes del cantón que estén formalmente matriculadas en un centro de educación especial que no se ubique en el cantón de Belén, a los fines de otorgarles un monto diferenciado según el criterio profesional de Trabajo Social de la Municipalidad.
-(Así adicionado en sesión N° 53 del 12 de setiembre de 2023)

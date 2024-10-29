@@ -1,2 +1,0 @@
-Artículo 8º— Divulgación: Para informar a la población del procedimiento y del período de recepción de solicitudes de becas para estudio, la Municipalidad (especialmente Comunicación y Área Social) divulgará, por los medios que estime conveniente, que los formularios de becas estarán disponibles a partir de la primera semana de octubre en la Unidad de Servicios al Cliente; de igual forma coordinará con los Concejos de Distrito los medios de divulgación.
-(Así reformado en sesión N° 71 del 5 de diciembre de 2017)

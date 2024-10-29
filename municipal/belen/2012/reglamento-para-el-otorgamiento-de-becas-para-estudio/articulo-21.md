@@ -1,1 +1,0 @@
-Artículo 21.— (El texto de este artículo debe de ser consultado en el numeral 20, lo anterior se debe a que en sesión N° 71 del 5 de diciembre de 2017, que lo traspaso del artículo 21 al 20, lo anterior ya que en dicha sesión se ordenó derogar el artículo 11 original y correr la numeración de los restantes artículos)
