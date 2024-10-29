@@ -1,0 +1,9 @@
+Artículo 13.-Deberes de las personas integrantes de la Comisión Institucional. Las personas miembros que conformen la Comisión Institucional de Rescate de Valores (CIRV-INCOP), designados formalmente, deben cumplir con las siguientes obligaciones para el buen funcionamiento de la Comisión en su gestión de dirigir el proceso ético institucional:
+a) Cumplir con los procesos y actividades que emanen de la CNRV en materia de ética y valores, según sea la instancia a la cual representa y las responsabilidades que le sean asignadas para el cumplimiento del plan ético institucional.
+b) Asistir a las reuniones calendarizadas de la CNRV y a las que se les convoque de forma extraordinaria. Debe confirmar su asistencia o bien justificar la ausencia por escrito con anticipación.
+c) Colaborar en el cumplimiento de los acuerdos tomados en las reuniones mensuales de la Comisión Institucional de Rescate de Valores. El secretario(a) de la CIRV-INCOP dará seguimiento a los acuerdos de cada minuta.
+d) Solicitar a la administración superior los insumos para ejecutar las acciones de la Comisión Institucional de Rescate de Valores, según el Plan de Trabajo Anual cuando se requiera.
+e) Representar a la persona coordinadora de la Comisión Institucional de Rescate Valores, cuando se le solicite, en aquellas funciones que esta persona le asigne.
+f) Asistir obligatoriamente a los cursos coordinados por la CNRV y otros de formación en la temática.
+g) Apoyar en el desarrollo de actividades de capacitación, promoción o divulgación en las diferentes unidades o áreas de la institución cuando se requiera.
+h) Realizar las acciones para el cumplimiento del Plan anual y elaborar un informe o reporte de las acciones realizadas en su área de competencia durante el año, que se remitirá a la Comisión Nacional de Rescate de Valores.

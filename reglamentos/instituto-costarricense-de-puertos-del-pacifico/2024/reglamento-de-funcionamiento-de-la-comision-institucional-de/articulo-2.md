@@ -1,0 +1,1 @@
+Artículo 2°-Alcance. El presente reglamento es de aplicación obligatoria para las personas integrantes propietarias y suplentes de la Comisión Institucional de Rescate de Valores, así como para otras instancias de la institución, según sean sus competencias.

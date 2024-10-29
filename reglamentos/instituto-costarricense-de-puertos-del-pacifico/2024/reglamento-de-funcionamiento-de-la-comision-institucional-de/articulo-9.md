@@ -1,0 +1,1 @@
+Artículo 9°-Reuniones. La Comisión se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario. La persona coordinadora y miembros de la comisión deberán asistir a las sesiones mensuales de la Comisión Nacional de Rescate de Valores.
