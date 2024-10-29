@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de la pensión complementaria del fondo de pensi
 | --- | --- | --- |
 | 1 | 2023-06-09 | la propia norma |
 | 2 | 2023-10-24 | Reglamento 6599 (2023-10-24) |
+| 3 | 2024-10-29 | Reglamento 6655 (2024-10-29) |
