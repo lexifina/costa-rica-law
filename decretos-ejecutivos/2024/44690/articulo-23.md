@@ -1,0 +1,9 @@
+CAPÍTULO II
+DE LA JUNTA DIRECTIVA
+Artículo 23. De la Junta Directiva. La Junta Directiva será nombrada por la Asamblea General de Accionistas por períodos de dos años. Estará integrada por cinco miembros designados de la siguiente manera:
+a) Tres miembros propuestos por la municipalidad y
+b) Dos miembros propuestos por el socio privado adjudicado.
+La Junta Directiva sesionará ordinariamente una vez a la semana y extraordinariamente, cuando sea convocada por el presidente, el vicepresidente en ausencia de aquel, por dos miembros o el fiscal. Se da la potestad, de establecer el modelo del pago de las dietas, si lo requiere, dentro del marco de la proporcionalidad y la racionalidad. De haber funcionarios públicos, no podrá darse pago de dieta, si hay superposición horaria.
+No podrán integrar la Junta Directiva personas afectas por una inhabilitación para ocupar cargos públicos. Tampoco podrán integrar la Junta Directiva, las personas que hayan sido sentenciadas en procesos civiles o penales por hechos relacionados con el manejo de recursos públicos o de administración de sociedades. Asimismo, no podrán integrar la Junta Directiva las personas que tengan obligaciones financieras pendientes con el municipio o con cualquiera de las instituciones del Estado, independientemente del origen de dichas obligaciones.
+En la elección de miembros de Junta Directiva, aplica el régimen de prohibiciones e incompatibilidades de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley No. 8422, del 6 de octubre del 2004. Además, los miembros de la Junta Directiva de Adquisiciones tendrán que cumplir con los requisitos y limitaciones de los artículos del 18 al 21 de la ley 8828.
+Por reglamento, y según el objeto de la SPEM, la Asamblea de Accionistas, aprobará un reglamento de elección de la junta directiva, donde se detalle el plazo de nombramiento, perfil de idoneidad y conflicto de interés.

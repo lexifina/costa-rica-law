@@ -1,0 +1,13 @@
+Artículo 9. Atribuciones. Son atribuciones de las SPEM las siguientes:
+a) Planear, programar, administrar, financiar, ejecutar y controlar los proyectos que, en la constitución de la SPEM, acuerde el Concejo Municipal.
+b) Modernizar, racionalizar y ampliar los servicios públicos y las actividades productivas existentes locales que le sean encomendados por el Concejo Municipal.
+c) Desarrollar nuevas actividades productivas, con el propósito de unificar integralmente los recursos humanos, naturales y de capital, y conforme lo acuerde el Concejo Municipal.
+d) Promover el desarrollo humano integral, en lo que le sea encomendado por el Concejo Municipal.
+e) Desarrollar las actividades de interés económico para los servicios públicos locales que, en la constitución de la SPEM, acuerde el Concejo Municipal.
+f) Administrar su patrimonio para la consecución de los fines establecidos en su Pacto Constitutivo.
+g) Celebrar todo tipo de contrato, en el tanto sea útil para alcanzar los fines que, en la constitución de la SPEM, acuerde el Concejo Municipal. Para ello, deberá observar las regulaciones de la N° 9986 Ley General de Contratación Pública, efectuando su actividad contractual a través del Sistema Digital Unificado previsto en su artículo 16, acatando en todo momento, las regulaciones asociadas a su uso y modelo tarifario.
+h) Celebrar contratos, acuerdos, convenios y alianzas, con otras municipalidades o instituciones públicas, para el desarrollo y ejecución de las obras o servicios que se estimen convenientes, y que estén acorde con los fines de esas entidades y de la SPEM en su constitución.
+i) Promover la investigación, el desarrollo y la transferencia tecnológica en todo aquello acorde con el objeto de su constitución.
+j) Recibir bienes inmuebles municipales debidamente desafectados del uso y dominio público, mediante acuerdo del respectivo Concejo Municipal, destinados al desarrollo y mejoramiento de obras de infraestructura orientadas al cumplimiento de los propósitos establecidos por mandato en el objeto definido por el Pacto Constitutivo.
+k) Las demás que sean establecidas en el Pacto Constitutivo y en el marco de la Ley No. 8828, Ley reguladora de la actividad de las sociedades públicas de economía mixta, reformada integralmente por la Ley No. 9720.
+Se deberá entender que la SPEM no puede asumir la gestión directa de los servicios públicos de acueductos y alcantarillado, Policía Municipal y cualquier otro servicio municipal que sea intransferible conforme el artículo 169 de la Constitución. De manera tal, ningún servicio, proyecto o función que implique el ejercicio de potestades de imperio a nivel local podrá ser asumida por la SPEM.

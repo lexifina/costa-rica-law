@@ -1,0 +1,2 @@
+Artículo 7. Domicilio. El domicilio de cada SPEM que se constituya es el cantón de origen. Sin perjuicio de ello, podrá establecer oficinas en otros cantones del país, cuando exista un acuerdo municipal que así lo autorice del Concejo de las municipalidades involucradas. Para ello se requiere la aprobación de dos tercios del total de los miembros que integran el Concejo.
+Cuando se trate de una SPEM conformada por dos o más municipalidades, el domicilio será el que éstas definan, pudiendo establecer, de igual manera, oficinas en otros cantones.

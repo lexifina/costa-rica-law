@@ -1,0 +1,2 @@
+Artículo 26. Del presidente. La Junta Directiva tendrá un presidente que será elegido de su seno por un período de un año, quien será el representante judicial y extrajudicial con las facultades de apoderado general de la Sociedad.
+Además, se nombrará por un período igual a un vicepresidente, quien reemplazará al titular en sus ausencias temporales. El nombramiento del Presidente y Vicepresidente será publicado en el Diario Oficial La Gaceta.

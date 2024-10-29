@@ -1,0 +1,8 @@
+Artículo 11. Actividades mercantiles autorizadas. Cada Concejo Municipal determinará las actividades en las que participará la SPEM, las cuales estarán delimitadas por el objeto de ésta que se señale en el pacto constitutivo y deberán guardar estricta relación con sus proyectos o iniciativas asignadas, en razón de lo cual se tomará en consideración el aporte actual y potencial de dichas actividades, desde el punto de vista de la necesidad de:
+a) Orientar y estimular la estructura productiva regional, proyectada a la comercialización nacional e internacional.
+b) Fomentar y diversificar la comercialización nacional e internacional de bienes y servicios.
+c) Integrar, de manera coordinada, los distintos sectores que componen el sistema económico regional, para aprovechar las oportunidades de desarrollo productivo, ambiental y humano.
+d) Integrar el esfuerzo regional institucional del país a las políticas de las sociedades municipales de economía mixta.
+e) Crear los mecanismos necesarios para la exportación de los productos que se dan en la región.
+f) Celebrar todo tipo de contratos con otras municipalidades, sujetos privados, y otras entidades públicas, en tanto la finalidad sea alcanzar el cumplimiento del objeto de la SPEM. Las municipalidades podrán celebrar estos contratos en atención a la Ley Nº 9986, Ley General de Contratación Pública y su Reglamento.
+g) Suscribir, comprar y vender acciones, obligaciones u otros títulos de empresas propias o ajenas autorizadas por ley Para el ejercicio de estas facultades, las SPEM deberán apegarse al marco jurídico aplicable de acuerdo con su condición y naturaleza de empresa pública.

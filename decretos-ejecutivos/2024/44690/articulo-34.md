@@ -1,0 +1,1 @@
+Artículo 34. De la Auditoría. La Auditoría municipal podrá ejercer sus facultades en relación con la SPEM. Si hay más de una municipalidad, cada auditoría municipal velará por el cumplimiento del bloque de legalidad de su respectivo municipio.

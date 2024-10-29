@@ -1,0 +1,2 @@
+Artículo 41. Sesiones. La Junta sesionará cuantas veces requiera, según lo determinen sus propios miembros. Sus decisiones se adoptarán por mayoría simple.
+Las sesiones de la Junta podrán ser virtuales. Además, para requerir los criterios que estime necesarios para cumplir con sus funciones, la Junta también podrá acudir a medios electrónicos. Deberá levantar actas de cada una de sus sesiones, con un respaldo ya sea escrito o electrónico. Las actas son de acceso público.
