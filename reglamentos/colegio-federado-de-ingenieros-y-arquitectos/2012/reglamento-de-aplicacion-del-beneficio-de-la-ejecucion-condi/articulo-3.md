@@ -1,1 +1,0 @@
-Artículo 3º—El plazo del beneficio acordado por la Junta Directiva General, empezará a correr a partir de la asignación del proyecto. Por su parte, la expiración del plazo de la sanción se tendrá por cumplido hasta que el miembro sancionado haya ejecutado a satisfacción de la Junta Directiva General los trabajos asignados, previo informe de la Dirección Ejecutiva.

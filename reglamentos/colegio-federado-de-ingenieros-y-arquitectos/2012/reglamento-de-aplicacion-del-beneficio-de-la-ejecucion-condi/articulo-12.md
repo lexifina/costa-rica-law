@@ -1,3 +1,0 @@
-Artículo 12.—En el caso que acaezca una nueva sanción disciplinaria, la Junta Directiva General revocará de oficio el beneficio concedido al profesional y se aplicará íntegramente, la sanción impuesta. Cumplido el periodo de la primera sanción, se procederá a aplicar, si existieren, las sanciones siguientes en forma consecutiva.
-Al profesional que se le otorgue el Beneficio de Ejecución de la Sanción, deberá comunicársele en forma expresa que, en caso de sobrevenir una nueva sanción disciplinaria, no se descontará el periodo transcurrido.
-(Así reformado mediante sesión N° 13-16/17 del 31 de enero del 2017)

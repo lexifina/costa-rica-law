@@ -1,1 +1,0 @@
-Artículo 13.—El miembro tendrá el derecho de renunciar a los beneficios que se indican en este Reglamento, debiendo así comunicarlo por escrito a la Dirección Ejecutiva. Dicha renuncia deberá ser remitida al Departamento de Registro para la anotación y aplicación de la sanción impuesta por la Junta Directiva General.
