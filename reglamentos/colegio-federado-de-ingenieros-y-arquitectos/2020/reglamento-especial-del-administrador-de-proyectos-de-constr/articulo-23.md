@@ -1,4 +1,6 @@
-Artículo 23. —En el caso de que sea necesario de un resello de planos para la actualización de la vigencia del sello, las responsabilidades profesionales y el valor del proyecto, deberá cumplirse con lo siguiente:
-a) Archivo digital de los planos sellados por el Colegio Federado.
-b) Contrato de servicios profesionales contenido en el APC, por el reajuste de honorarios por la Segunda Fase de Servicios.
-El CFIA procederá a actualizar el valor de la obra y se deberá cancelar la diferencia con respecto al pago de timbres y derechos sufragados anteriormente. Los planos serán sellados con el nuevo valor de la tasación, indicando la fecha del día del “resello” y el número de contrato.
+Artículo 23. -Del resello. En los casos que las obras no inicien un año posterior al sello del CFIA, el interesado deberá solicitar la renovación del sello del plano dentro de los dos meses siguientes al vencimiento del sello.
+El Colegio Federado procederá a renovar el sello del plano, por una vigencia de un año contabilizado a partir de la fecha de vencimiento del sello plasmado originalmente. Una vez vencido dicho periodo, el interesado podrá solicitar, una nueva actualización del sello del plano por otro periodo igual consecutivo.
+El CFIA procederá a actualizar el valor de la obra y el interesado deberá cancelar la diferencia con respecto al pago de timbres y derechos sufragados anteriormente, cuando así corresponda. Los planos serán sellados con el nuevo valor de la obra, indicando la fecha del día del resello y el número de contrato.
+La renovación de la vigencia del sello del CFIA, no procede si el proyecto cuenta con la licencia de construcción por parte de la Municipalidad.
+El Profesional será responsable de verificar que los planos para la construcción cumplan con la normativa vigente en el momento de la solicitud del resello.
+(Así reformado mediante sesión N° 38-23/24 del 29 de octubre de 2024)

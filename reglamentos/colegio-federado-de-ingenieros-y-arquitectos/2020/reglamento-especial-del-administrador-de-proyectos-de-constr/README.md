@@ -14,3 +14,4 @@ Reglamento especial del administrador de proyectos de construcción (APC) del Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-02-03 | la propia norma |
+| 2 | 2024-10-29 | Reglamento 38 (2024-10-29) |
