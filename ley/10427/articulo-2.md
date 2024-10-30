@@ -25,3 +25,6 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Así reformado por el artículo 3° de la ley N° 10529 del 9 de setiembre de 2024)
 (Así reformado por el artículo 4° de la ley N° 10529 del 9 de setiembre de 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44685 del 19 de setiembre del 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
+(Modificado por el artículo 3° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
+(Modificado por el artículo 4° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
