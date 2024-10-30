@@ -1,0 +1,16 @@
+N° 44686-C
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+En uso de las facultades que les confieren el artículo 140, incisos 3), 18) y 20) y 146 de la Constitución Política de la República de Costa Rica, y con fundamento en los artículos 23, inciso m), 25 párrafo 1), 27 párrafo 1), 28, incisos 1 y 2, acápite b), de la Ley General de la Administración Pública, Nº6227 de 2 de mayo de 1978,
+Considerando:
+I.-Que el Ministerio de Cultura y Juventud es la institución rectora de las políticas nacionales en materia cultural y le corresponde fomentar y preservar la pluralidad y la diversidad cultural, facilitar la participación de todos los sectores sociales en los procesos de desarrollo cultural y artístico sin distingos de género, grupo étnico o ubicación geográfica; mediante la apertura de espacios y oportunidades que propicien la revitalización de las tradiciones y manifestaciones culturales, el disfrute de los bienes y servicios culturales, así como la creación y apreciación artística en sus diversas manifestaciones.
+II.-Que la cultura es un factor de cohesión social y reserva de recursos simbólicos y materiales que, por lo tanto, tiene un papel medular en la vida política, económica y social de las poblaciones y es un elemento central en el bienestar humano.
+III.-Que la historieta tiene una amplia tradición en la sociedad costarricense, y gran parte de la historieta realizada en Costa Rica se inspira en tradiciones, mitos y relatos propios de nuestra cultura y de nuestra historia, con lo que no solamente se crean relatos de identificación inmediata con el lector costarricense, sino que funciona como también como un complemento a la tradición oral, tan rica e importante en el legado de nuestros antepasados.
+IV.-Que la historieta es un excelente comunicador social que ha sido aprovechado como tal para que sus respectivos autores y autoras manifiesten su visión de mundo, desde lo más externo a lo más íntimo y personal.
+V.-Que la historieta es un producto que se vincula de manera directa y emocional con sus lectores, creando aficionados que a su vez se inspiran para crear sus propios proyectos y desarrollarse en campos profesionales vinculados a la economía creativa y cultural.
+VI.-Que la historieta puede ser una herramienta trascendental para fomentar la lectura y creatividad en niños, niñas y jóvenes, impulsando la lectura y creación de sus propias historietas.
+VII.-Que el 1° de setiembre configura un momento relevante en la historia de este género creativo ya que, en dicha fecha del año 1975, Carlos Enrique Figueroa publica en el periódico La República una relevante historieta en distintas entregas con motivo del 150 aniversario de nuestra independencia patria, mientras que, en esa fecha, pero del año 1979, se publica por primera vez en el periódico El Excelsior la tira diaria titulada "Carlos Pincel", escrita y dibujada por Carlos Enrique Alvarado. Por tanto,
+Decretan:
+DECLARACIÓN DEL "DÍA NACIONAL
+DE LA HISTORIETA COSTARRICENSE"
+Artículo 1º-Creación. Declárese el 1° de setiembre de cada año como el Día Nacional de la Historieta Costarricense, en conmemoración del aniversario de la publicación de historietas que marcaron un hito en los años 70, acontecidas en medios de comunicación nacional.
