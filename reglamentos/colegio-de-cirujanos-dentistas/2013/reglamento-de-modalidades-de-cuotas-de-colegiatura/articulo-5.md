@@ -1,1 +1,0 @@
-Artículo 5°—El odontólogo que se acoja a la Modalidad Número Dos, pagará una cuota mensual correspondiente a la suma del aporte al Fondo de Retiro Odontológico y al Fondo de Mutualidad y Subsidios, establecido por la Asamblea General para el Fondo de Retiro Odontológico y Fondo de Mutualidad y Subsidios. Los derechos que se adquieran al obtener esta modalidad no son retroactivos.

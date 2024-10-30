@@ -1,1 +1,0 @@
-Artículo 10.—Se respetan las disposiciones contenidas en los Reglamentos del Fondo de Retiro Odontológico, Fondo de Mutualidad y Subsidios en lo relativo a exenciones de aportes a cuota de colegiatura.
