@@ -1,0 +1,1 @@
+Artículo 32.-Para la estimación del factor y aplicación de la tasa se considerarán solo las fincas con "tipo de finca" folio real (inscritas). No se tomarán en cuenta para la base imponible propiedades o fincas con "clase de finca" cementerio, fincas en servidumbre y zonas fronterizas.

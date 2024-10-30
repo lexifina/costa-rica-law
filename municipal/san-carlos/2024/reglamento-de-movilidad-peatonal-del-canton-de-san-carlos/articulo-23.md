@@ -1,0 +1,14 @@
+Capítulo IV
+Infraestructura y diseño
+Artículo 23.-Sobre la infraestructura peatonal:
+1. Las aceras y la infraestructura peatonal deben diseñarse y construirse de forma tal que se garantice la continuidad del tránsito peatonal, evitando cambios abruptos de nivel, pendientes mayores a lo permitido en la normativa vigente tanto de manera longitudinal de acuerdo con la topografía existente, como transversal, existencia de diferencias de nivel, obstáculos y elementos peligrosos, presencia de texturas no antideslizantes o derrapantes. Toda infraestructura peatonal, debe contar con un análisis previo para determinar una ruta accesible, deben contar con los elementos físicos contemplados en el diseño universal.
+2. Las aceras e infraestructura peatonal deberán tener un ancho constructivo mínimo de franja caminable de acuerdo con los aforos o en su defecto lo que indique el plano de catastro dando una línea concordante con el entorno, sin presentar escalones; en caso de desnivel éste será salvado con rampa.
+Se deberá cumplir con el principio de esfuerzo físico bajo, de manera que el diseño debe ser usado, cómoda y eficazmente, sin requerir de mayor esfuerzo físico. La construcción de la infraestructura peatonal responde al manual u hoja informativa que la Municipalidad de San Carlos posea para los efectos.
+3. Las cajas, los registros, medidores del acueducto municipal/ASADAS o cualquier otro dispositivo en las aceras, no deben sobrepasar o estar inferiores al nivel final de la acera y deberán tener respectiva tapa, el mantenimiento de esos elementos es responsabilidad de las personas propietarias del predio que las tenga.
+4. Toda acera o infraestructura peatonal cuyo deterioro supere un cuarenta por ciento (40%) de la totalidad del área, será considerada como obra nueva y deberá reconstruirse totalmente. Considerando el área del ancho de la acera por el largo del tramo a intervenir.
+5. Para cada construcción de aceras el ancho será establecido por la Municipalidad para la red vial cantonal y el Ministerio de Obras Públicas y Transportes (MOPT) y sus consejos para la red vial nacional en la notificación correspondiente, conforme al estudio técnico respectivo, tanto en rutas cantonales y nacionales, en los casos que considere necesario, se adjuntará un croquis.
+6. Cualquier elemento urbano que se desee colocar, como postes, hidrantes, torres de telefonía, arbustos
+o cualquier otro, se deberá colocar en la franja de mobiliario respetando y dejando la franja caminable
+libre de obstáculos.
+7. Las aceras deben tener una superficie antideslizante de materiales cementicios y ser continuas, manteniendo una pendiente en sentido transversal de máximo 3% y mínimo 2%.
+8. Las corporaciones municipales cuentan con la potestad de modificar el perfil de la calle por completo para el rediseño de las vías (peatonal, ciclista y vehicular).

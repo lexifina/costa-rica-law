@@ -1,0 +1,4 @@
+Artículo 24.-Materiales y texturas en la infraestructura peatonal.
+1. Las aceras deben garantizar que son superficies antideslizantes, las cuales deben ser probadas en condiciones de humedad máxima. En caso de presentar riesgo por no ser antideslizante debe realizar las mejoras para que la superficie sea porosa y por tanto antideslizante. Esto aplica únicamente para aceras construidas en buen estado, entiéndase superficies sin filos, huecos, grietas, con pendiente transversal y longitudinal no superiores a lo solicitado en la Ley 7600 y este reglamento.
+2. La infraestructura peatonal nueva deberá contar con un diseño constructivo técnico que resuelva las necesidades estructurales y físicas.
+3. La infraestructura peatonal deberá ajustarse a lo establecido en Ley de Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600.

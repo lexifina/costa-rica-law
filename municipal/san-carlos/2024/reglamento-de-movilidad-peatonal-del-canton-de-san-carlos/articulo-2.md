@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento tiene como alcance la jurisdicción de la corporación municipal en el ámbito del territorio bajo su tutela. Las disposiciones de este reglamento son aplicables a toda persona física o jurídica, propietaria de bienes inmuebles ubicados en el cantón de San Carlos.

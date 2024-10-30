@@ -1,0 +1,1 @@
+Artículo 6º-Planificación. La Municipalidad deberá incluir dentro de sus planes anuales y plan quinquenal, la planificación de mantenimiento, rehabilitación y construcción de aceras nuevas para los distritos del cantón de San Carlos, debiendo definir el contenido presupuestario anual, así como los distritos a intervención conforme al presente reglamento.

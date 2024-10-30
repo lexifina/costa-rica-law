@@ -1,0 +1,1 @@
+Artículo 4º-Responsable de ejecución. La Unidad Técnica de Gestión Vial Municipal (UTGVM) ejecutará las obras de construcción, mantenimiento y rehabilitación de las aceras existentes del cantón de San Carlos, de manera directa, conforme a la planificación municipal, de forma tal que el servicio no se vea afectado.

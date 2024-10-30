@@ -1,0 +1,1 @@
+Artículo 34.-La tasa a pagar será de forma anual será determinada de la multiplicación del valor de la finca por el factor obtenido para el distrito, cuya emisión al cobro se hará de forma trimestral.

@@ -1,0 +1,1 @@
+Artículo 35.-El factor será actualizado y modificado en los 10 días naturales después del cierre del ejercicio presupuestario, la información será incluida en sistema municipal con mención especial a la resolución de aprobación por parte del honorable Concejo Municipal.
