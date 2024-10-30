@@ -1,4 +1,4 @@
-Artículo 23.—Las funciones, los deberes, atribuciones y responsabilidades de la Junta Directiva del Instituto son:
+Artículo 23.-Las funciones, los deberes, atribuciones y responsabilidades de la Junta Directiva del Instituto son:
 a. Definir, aprobar e implementar las políticas y estrategias de desarrollo del Instituto, así como aprobar el Plan Anual Operativo para cumplir con el objetivo de la Ley Nº 8149.
 b. Definir y aprobar la organización y estructura administrativa.
 c. Aprobar los mecanismos para evaluar periódicamente, el funcionamiento del Instituto y el control de calidad de sus funciones. Así mismo, deberá rendir cuentas en forma periódica ante el jerarca del Ministerio de Agricultura y Ganadería, sobre el cumplimiento de objetivos y metas.
@@ -8,7 +8,8 @@ f. Nombrar y remover según lo establezca el ordenamiento administrativo, al aud
 g. Conocer y aprobar cuando corresponda las propuestas del Director Ejecutivo y los contratos en que sea parte el Instituto.
 h. Conocer y aprobar fideicomisos u otros mecanismos de uso y manejo de los recursos económicos, para facilitar el cumplimiento de los fines encomendados al Instituto.
 i. Conocer y aprobar las donaciones, herencias y los legados que las personas físicas, jurídicas o privadas y los organismos nacionales e internacionales hagan al Instituto.
-j. Nombrar y remover de su puesto al Director Ejecutivo, en conformidad con el inciso g) del artículo 4 del Estatuto del Servicio Civil. El Director Ejecutivo deberá ser costarricense, profesional en las ciencias agropecuarias y poseer experiencia en administración.
+j. Nombrar y remover de su puesto al Director Ejecutivo y al Sub Director de conformidad con el inciso g) del artículo 4 del Estatuto del Servicio Civil, ambos deberán ser costarricenses y tener como mínimo el título profesional de Licenciatura en Ingeniería Agronómica o en alguna de las ramas de las ciencias agropecuarias debidamente incorporados al Colegio de Ingenieros Agrónomos con experiencia en Administración y dos años de supervisión de personal.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44773 del 30 de octubre de 2024)
 k. Aprobar los reglamentos atinentes al funcionamiento y la operación del Instituto.
 l. Aprobar las tarifas para la venta de productos y servicios que realiza el Instituto.
 m. Velar por la adecuada administración de los recursos financieros del Instituto.

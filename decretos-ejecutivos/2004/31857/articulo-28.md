@@ -1,4 +1,4 @@
-Artículo 28.—Son atribuciones y deberes del Director Ejecutivo:
+Artículo 28.-Son atribuciones y deberes del Director Ejecutivo:
 a. Ser el jefe superior del personal de todas las dependencias del Instituto, excepto del auditor interno que dependerá de la Junta Directiva.
 b. Ser el responsable ante la Junta Directiva del funcionamiento eficiente y correcto del Instituto; así como de cumplir los acuerdos y resoluciones adoptados por dicha Junta, en la forma y tiempo solicitados.
 c. Asistir con voz, pero sin voto, a todas las sesiones de Junta Directiva.
@@ -14,6 +14,6 @@ l. Asegurar un clima de respeto y disciplina en el entorno laboral del Instituto
 m. Velar por la correcta operación técnica, administrativa, laboral y financiera de las Estaciones Experimentales a cargo del Instituto.
 n. Representar al INTA en comisiones y eventos de naturaleza nacional e internacional, con la aprobación de la Junta Directiva.
 o. Presentar ante las instancias correspondientes informes de rendición de cuentas.
-p. Asignar funciones y responsabilidades a su equipo asesor y de apoyo conformado por la Unidad de Asesoría Jurídica del Instituto, la Unidad de Planificación Institucional y la Unidad de Cooperación Técnica, así como lo concerniente a las Áreas de Tecnologías de Información y Comunicación e Imagen Institucional.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)
+p. Coordinar lo correspondiente con las instancias asesoras del MAG, para el buen funcionamiento del INTA.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°44773 del 30 de octubre de 2024)
 q. Cualquier otra que la Junta Directiva le asigne.

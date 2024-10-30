@@ -1,4 +1,4 @@
-Artículo 37.—Dirección Administrativa-Financiera. Le corresponde coordinar y tomar decisiones en temas administrativos propios del INTA, así como ser el enlace con otras instituciones y entidades para la planeación y ejecución de presupuesto, gestión de recursos, aprovisionamiento de bienes y servicios, comunicación, planeación y desarrollo de programas y proyectos.
+Artículo 37.-Dirección Administrativa-Financiera. Le corresponde coordinar y tomar decisiones en temas administrativos propios del INTA, así como ser el enlace con otras instituciones y entidades para la planeación y ejecución de presupuesto, gestión de recursos, aprovisionamiento de bienes y servicios, comunicación, planeación y desarrollo de programas y proyectos.
 Esta Dirección contará con tres Unidades Administrativas: el Departamento de Proveeduría, el Departamento de Servicios Generales y el Departamento de Administración de Recursos. A esta Dirección le corresponden las siguientes funciones:
 a) Planear, coordinar y supervisar las funciones administrativas de apoyo, necesarias para alcanzar el adecuado funcionamiento técnico, administrativo y financiero del
 INTA.
@@ -21,7 +21,8 @@ a) Elaborar y gestionar las aprobaciones correspondientes de los reglamentos, ma
 b) Elaborar y aplicar los reglamentos y manuales necesarios para regular la relación de servicios entre el INTA y sus funcionarios, para propiciar un ambiente sano de trabajo y alcanzar la optimización del recurso humano.
 c) Elaborar los registros de contabilidad y presupuesto y elaborar los estados e informes correspondientes de acuerdo con las normas y técnicas aceptadas en cuanto a PAO-Presupuesto.
 d) Realizar el control y la custodia de los recursos financieros y de bienes muebles e inmuebles.
-e) Coordinar la formulación del presupuesto con la Dependencia de Planificación Institucional y demás Direcciones del INTA.
+e) Coordinar la formulación del presupuesto con la Unidad de Planificación Institucional (UPI) del MAG y demás Direcciones del INTA.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 44773 del 30 de octubre de 2024)
 f) Tramitar y negociar ante quien corresponda los presupuestos necesarios para el buen accionar del INTA.
 g) Cualquier otra que le asigne la Jefatura de la Dirección Administrativa Financiera.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 42683 del 20 de octubre del 2020)
