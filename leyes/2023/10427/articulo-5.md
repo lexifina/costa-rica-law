@@ -3,3 +3,4 @@ Artículo 5°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44434 del 16 de abril del 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44543 del 21 de junio de 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44566 del 15 de julio de 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
