@@ -1,1 +1,1 @@
-Artículo 81.—La Municipalidad de Poás, deberá contar con un registro de concesionarios de derecho funerario el cuál acreditará mediante un contrato que entregará al arrendatario, sin el cual éste no podrá realizar exhumaciones e inhumaciones.
+Artículo 81.-La Municipalidad de Poás, deberá contar con un registro de concesionarios de derecho funerario el cuál acreditará mediante un contrato que entregará al arrendatario, sin el cual éste no podrá realizar exhumaciones e inhumaciones.

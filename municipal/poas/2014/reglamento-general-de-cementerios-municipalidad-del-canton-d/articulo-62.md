@@ -1,4 +1,4 @@
-Artículo 62.—Vencido el plazo del mes del mes calendario, contemplado en los artículos 55 y 62 de este reglamento, sin que se haya definido la titularidad del arrendamiento, o no exista consenso entre los familiares, la Administración procederá de la siguiente forma:
+Artículo 62.-Vencido el plazo del mes calendario, contemplado en los artículos 55 y 62 de este reglamento, sin que se haya definido la titularidad del arrendamiento, o no exista consenso entre los familiares, la Administración procederá de la siguiente forma:
 a) En caso de exista pugna entre las partes, les concederá audiencia oral y privada, para que éstas expongan sus alegatos.
-b) Cumplidos los cuales la administración emitirá la resolución en firme, tomando en cuenta: el grado de consanguinidad o afinidad y el testimonio de al menos dos testigos que den fe sobre quien le ha dado mantenimiento de manera continua y reciente al espacio reclamado.
+b) Cumplidos los cuáles la administración emitirá la resolución en firme, tomando en cuenta: el grado de consanguinidad o afinidad y el testimonio de al menos dos testigos que den fe sobre quien le ha dado mantenimiento de manera continua y reciente al espacio reclamado.
 c) En los restantes casos, bastará con emitir resolución por parte de la Alcaldía definiendo la titularidad o autorizando la exhumación y disposición del espacio.

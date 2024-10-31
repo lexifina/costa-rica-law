@@ -1,1 +1,1 @@
-Artículo 58.—Para que opere la pérdida del derecho funerario por la declaratoria de ruina o abandono de la bóveda, el concesionario deberá ser notificado en una ocasión.
+Artículo 58.-Para que opere la pérdida del derecho funerario por la declaratoria de ruina o abandono de la bóveda, el arrendatario deberá ser notificado por los medios existentes que faculta la Ley de Notificación por una única vez.

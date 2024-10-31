@@ -1,1 +1,1 @@
-Artículo 47.—Se autoriza la exhumación y traslado de un cadáver de una bóveda a otra, cuando exista el permiso formal de los dueños y el trámite sea conforme a la normativa vigente.
+Artículo 47.-Se autoriza la exhumación y traslado de un cadáver de una bóveda a otra o a otros cementerios, cuando exista la autorización de los arrendatarios y de los familiares. Este trámite se realizará conforme a la normativa vigente.

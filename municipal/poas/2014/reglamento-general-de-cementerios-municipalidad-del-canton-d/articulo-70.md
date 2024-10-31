@@ -1,1 +1,1 @@
-Artículo 70.—Las cuotas cobradas pasarán a formar parte de los ingresos del período presupuestario en que se registren, y serán destinadas específicamente a cubrir los gastos de operación y mantenimiento del cementerio municipal.
+Artículo 70.-Las cuotas cobradas pasarán a formar parte de los ingresos del período presupuestario en que se registren, y serán destinadas específicamente a cubrir los gastos de operación y mantenimiento del cementerio municipal.

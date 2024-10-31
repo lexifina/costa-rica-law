@@ -1,1 +1,1 @@
-Artículo 4º—La Administración Municipal tendrá a cargo el mejoramiento, mantenimiento y administración de sus cementerios, para lo cual contará con una Comisión de Cementerios, un peón y el personal necesario para el buen funcionamiento de sus actividades.
+Artículo 4º-La Administración Municipal tendrá a cargo el mejoramiento, mantenimiento y administración de sus cementerios, para lo cual contará con una Comisión de Cementerios, con un encargado de cementerios y el personal necesario para el buen funcionamiento de la prestación del servicio.

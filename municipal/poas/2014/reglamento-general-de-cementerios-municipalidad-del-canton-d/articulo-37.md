@@ -1,1 +1,1 @@
-Artículo 37.—Los cementerios estarán abiertos al público al menos de lunes a viernes, de las siete horas treinta minutos a las dieciséis horas, salvo los días 1º y 2º de noviembre, el día de la madre y del padre, además aquellos días que se estime pertinente por parte de la Administración, en cuyo caso permanecerán abiertos hasta las 6:00 p. m
+Artículo 37.-Los cementerios estarán abiertos al público en el horario establecido por la Municipalidad, el cual se comunicará oportunamente por los medios de comunicación oficiales de la Municipalidad.

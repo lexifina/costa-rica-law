@@ -1,1 +1,1 @@
-Artículo 25.—El propietario de un derecho funerario que posea a la fecha, un derecho en tierra, deberá darle el mantenimiento adecuado y colocar una cruz, placa o pequeño monumento que identifique a la persona sepultada en ese lugar.
+Artículo 25.-El propietario de un derecho funerario que posea a la fecha, un derecho en tierra, deberá darle el mantenimiento adecuado y colocar una cruz, placa o pequeño monumento que identifique a la persona sepultada en ese lugar.

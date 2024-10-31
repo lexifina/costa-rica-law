@@ -14,3 +14,4 @@ Reglamento General de Cementerios Municipalidad del cantón de Poás
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-24 | la propia norma |
+| 2 | 2024-10-31 | Reglamento municipal 37 (2024-10-31) |

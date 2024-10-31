@@ -1,1 +1,1 @@
-Artículo 53.—Solo se permitirá arrendar nichos municipales que tendrá un plazo de 5 años, contados a partir de la fecha en que se suscriba el contrato, y podrá prorrogarse según el artículo 20 de este reglamento.
+Artículo 53.-"Solo se permitirá arrendar nichos municipales que tendrá un plazo de 5 años, contados a partir de la fecha en que se suscriba el contrato, y podrá prorrogarse según el artículo 20 de este reglamento.
