@@ -1,0 +1,6 @@
+Artículo 3º-De la solicitud.
+Toda persona física o jurídica, pública o privada, que requiera el otorgamiento del visado de planos por parte del Ministerio de Obras Públicas y Transportes, deberá presentar una solicitud mediante el formulario "SOLICITUD DE VISADO DE PLANOS A CATASTRAR", el cual se encuentra en el Catálogo Nacional de Trámites del Sistema de Simplificación de Trámites y Mejora Regulatoria del Ministerio de Economía, Industria y Comercio (https://tramitescr.meic.go.cr/tramites/ BuscarTramites.aspx).
+El formulario "SOLICITUD DE VISADO DE PLANOS A CATASTRAR", deberá completarse en todos sus espacios, a excepción de aquellos destinados a uso oficial y presentarse con los requisitos que se establecen en el artículo 4 de este cuerpo normativo.
+Dicha solicitud podrá realizarla a través de los siguientes medios:
+1. De manera presencial, en el Centro Información y Trámites del Ministerio de Obras Públicas y Transportes, Sede Central, San José.
+2. De manera digital, en el sitio Web del Ministerio de Obras Públicas y Transportes, www.mopt.go.cr, en el apartado Servicios, Alineamiento Vial, enlace del Sistema Integrado de Previsión Vial, apartado Visado de Planos, o bien en el sitio Web https://aplicaciones. mopt.go.cr/SIPREVI/SIPREV1040.aspx
