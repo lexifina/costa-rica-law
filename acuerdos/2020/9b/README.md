@@ -14,3 +14,4 @@ Procedimiento ECA-MC-P13-106 Instructivo para realizar evaluaciones remotas (Ver
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-29 | la propia norma |
+| 2 | 2024-10-31 | Acuerdo 0 (2024-10-31) |
