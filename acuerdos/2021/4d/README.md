@@ -14,3 +14,4 @@ Reforma ECA-MC-P34 Proceso para la suspensión, reducción o retiro de la acredi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-08 | la propia norma |
+| 2 | 2024-10-31 | Acuerdo 11 (2024-10-31) |
