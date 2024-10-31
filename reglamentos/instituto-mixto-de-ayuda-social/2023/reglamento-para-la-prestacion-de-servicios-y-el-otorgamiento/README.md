@@ -14,3 +14,4 @@ Reglamento para la prestación de servicios y el otorgamiento de beneficios, sub
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-07 | la propia norma |
+| 2 | 2024-10-31 | Reglamento 38 (2024-10-31) |
