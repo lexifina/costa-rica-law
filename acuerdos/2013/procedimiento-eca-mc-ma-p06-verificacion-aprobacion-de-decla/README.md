@@ -22,3 +22,4 @@ Procedimiento ECA-MC-MA-P06 Verificación / aprobación de declaraciones de cump
 | 7 | 2021-03-02 | Acuerdo 4 (2021-03-02) |
 | 8 | 2023-04-04 | Acuerdo 4 (2023-04-04) |
 | 9 | 2024-05-31 | Acuerdo 6 (2024-05-31) |
+| 10 | 2024-10-31 | Acuerdo 11 (2024-10-31) |
