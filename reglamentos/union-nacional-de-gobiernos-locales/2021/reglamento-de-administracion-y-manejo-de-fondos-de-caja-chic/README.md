@@ -15,3 +15,4 @@ Reglamento de administración y manejo de fondos de caja chica
 | --- | --- | --- |
 | 1 | 2021-09-30 | la propia norma |
 | 2 | 2022-03-10 | Reglamento 7 (2022-03-10) |
+| 3 | 2024-11-01 | Reglamento 32 (2024-11-01) |
