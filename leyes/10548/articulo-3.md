@@ -1,0 +1,2 @@
+ARTÍCULO 3-· Responsabilidades de la Caja Costarricense de Seguro Social
+La Caja Costarricense de Seguro Social, de acuerdo con su capacidad económica y autonomía administrativa, deberá velar por mantener protectores solares que no contengan componentes químicos tóxicos para los arrecifes coralinos, según lo establecido por el Ministerio de Ambiente y Energía (Minae), dentro de la lista oficial de medicamentos emitidos por la institución.
