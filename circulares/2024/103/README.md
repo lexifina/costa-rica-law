@@ -13,3 +13,4 @@ Ampliación a Circular No. 94-2024 sobre en inciso b) del acuerdo de cita que li
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-17 | la propia norma |
+| 2 | 2024-11-01 | Circular 228 (2024-11-01) |
