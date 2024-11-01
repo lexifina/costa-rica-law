@@ -20,7 +20,7 @@ Además de lo anterior se podrán sustituir por vacaciones e incapacidad las per
 - Juzgados Unipersonales.
 - Centro de Intervención de la Comunicaciones.
 - Jueces de Tribunales que conozcan materia Penal.
-? Personal de la Sala Primera, Sala Segunda, Sala Tercera y Sala Constitucional.
+- Personal de la Sala Primera, Sala Segunda, Sala Tercera y Sala Constitucional.
 - Coordinadores Judiciales, cuando en los despachos exista sólo un puesto de esta categoría
 - Choferes
 - Auditoria Judicial.
@@ -33,6 +33,6 @@ Se autorizan los movimientos que fueron aprobados en la PIN antes de esta public
 Las personas funcionarias que pertenezcan al programa 926 o 927 que comprueben a su jefatura que adquirieron un boleto de viaje o tienen alguna reservación confirmada antes de esta publicación pueden ser sustituidas por vacaciones.
 Podrá sustituirse a partir de un día a los jefes de oficina (Dirección, Departamento, Sección, Unidad) únicamente cuando no exista la figura de Subjefe, ya que, de lo contrario, sería la Subjefatura quién asumiría el recargo de la Jefatura, sin que le corresponda una diferencia salarial por ello. (punto 9.5 del Plan de Vacaciones Periodo 2023-2024). En concordancia con el punto 9.4. solo podrá generarse cadenas de sustitución cuando el período sea igual o superior a 7 días hábiles.
 Autorizar a la Dirección Ejecutiva a resolver otros casos de sustitución hasta por un día, en plazas de ámbito administrativo, siempre que sean casos totalmente excepcionales y que las necesidades del servicio y la prestación del fin público lo obliguen. (punto 9.10 del Plan de Vacaciones Periodo 2023-2024).
-(*) (Mediante circular N° 103-2024 del 17 de mayo de 2024, se acordó ampliar la presente norma)
+(*) (Mediante circular N° 103-2024 del 17 de mayo de 2024, se acordó ampliar la presente norma. Posteriormente mediante circular N° 228-2024 del 1° de noviembre de 2024, se acordó modificar la norma N° 103-2024 del 17 de mayo de 2024, que reformó la presente norma en el sentido de hacer de conocimiento de los despachos y personas servidoras judiciales que laboran bajo el programa 926 Servicio de Dirección, Administración y otros órganos de apoyo, la ampliación del periodo de sustitución para los casos las personas que vienen incapacitadas de manera continua, y únicamente se podrá sustituir las incapacidades nuevas que superen los 30 días, con el fin de que se pueda cumplir con las obligaciones dinerarias correspondientes al programa, dentro del presupuesto asignado para el presente período.)
 Publíquese una vez en el Boletín Judicial.
 San José, 13 de mayo de 2024.
