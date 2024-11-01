@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Sanciones
-Artículo 42. Sanciones a personas funcionarias. Para la ejecución del régimen de sanciones establecidas para las personas funcionarias en la Ley de General de Contratación Pública y su reglamento, la Ley de Administración Financiera y Presupuestos Públicos, se aplicará el procedimiento establecido en el Reglamento Autónomo de Servicios de INA y supletoriamente la Ley General de Administración Pública, sin perjuicio de las responsabilidades civiles o penales que puedan surgir
+CAPÍTULO V
+Fideicomisos
+Artículo 42. Fideicomiso. El Instituto Nacional de Aprendizaje podrá administrar bienes en fideicomiso y, en general, celebrar todos los contratos permitidos por las leyes, necesarios para cumplir con sus objetivos, funciones y atribuciones, según Ley 6868 y sus reformas, y de conformidad con la LGCP y su reglamento.

@@ -1,18 +1,16 @@
-Artículo 23. Comisión Menor de Gestión de Compras. Esta Comisión se regirá por las siguientes normas:
-1. Integración. La Comisión Menor de Gestión de Compras estará integrada por:
-a) La persona encargada de la Subgerencia a cargo de lo Administrativo, en ausencia motivada de este la persona encargada de la Subgerencia a cargo de lo Técnico;
-b) La persona encargada de la Gestión de Normalización y Servicios de Apoyo;
-c) La persona encargada de la Gestión Regional;
-d) La persona encargada de la Gestión SINAFOR;
-e) La persona encargada de la Unidad de Planificación y Evaluación;
-f) La persona encargada de la Unidad de Control Interno.
-Las personas encargadas de la Asesoría Legal o quien éste designe, del Proceso de Adquisiciones de la Sede Central, de la Unidad de Compras Institucionales, de la Gestión de Formación y Servicios Tecnológicos, y de la Gestión de Tecnologías de Información y Comunicación, participarán con voz, pero sin voto.
-2. Funcionamiento de la Comisión Menor de Gestión de Compras: Para el funcionamiento de la Comisión se considerará lo siguiente:
-a. Presidencia: La Comisión estará presidida por la persona encargada de la Subgerencia a cargo de lo Administrativo y en ausencia motivada de este será la persona encargada de la Subgerencia a cargo de lo Técnico.
-b. Secretaría: La secretaría de la Comisión estará a cargo de la persona encargada de UCI quien levantará el acta, redacción y firma de acuerdos. En caso de ausencia de éste, el levantamiento del acta estará a cargo de la persona Encargada de GNSA. Para la firma de acuerdos, en ausencia del Encargado de la UCI, lo firmará la persona Encargada de GNSA.
-c. Quórum: Para que la comisión sesione válidamente deberá contarse con la persona encargada de la Subgerencia a cargo de lo Administrativo o en ausencia de este la persona encargada de la Subgerencia a cargo de lo Técnico, quienes serán responsables personalmente de sus actuaciones. El quórum estará formado por la mayoría calificada de sus integrantes.
+Artículo 23. Comisión Regional de Gestión de Compras. La Comisión Regional de Gestión Compras se regirá por los siguientes lineamientos:
+1. Integración. La Comisión Regional de Gestión de Compras estará integrada por:
+a. La persona encargada de la Unidad Regional y en ausencia motivada de este la persona quien ostente el puesto de la Gestión Regional.
+b. La persona encargada del Proceso del Servicio al Usuario y en ausencia motivada de este la persona encargada del PSAC.
+c. Una persona representante de los centros de formación o especializados de la Unidad Regional aprobado por la persona encargada de la Gestión Regional, quien a su vez deberá nombrar una persona suplente con la misma representación de los centros de formación o especializados de la Unidad Regional, quien deberá asistir de forma obligatoria en ausencia del titular.
+Por parte de la Asesoría Legal será la persona abogada destacada en la Unidad Regional y en su ausencia asumirá la persona encargada del Proceso de Asesoría Regional o quién la persona encargada de la Asesoría Legal designe, la persona encargada del Almacén Regional y la persona encargada del Proceso de Adquisiciones participarán con voz, pero sin voto.
+2. Funcionamiento de la Comisión Regional de Gestión de Compras: Para el funcionamiento de la Comisión se considerará lo siguiente:
+a. Presidencia: La Comisión estará presidida por la persona encargada de la Unidad Regional y en ausencia motivada de esta por la persona quien ostente el puesto de la Gestión Regional.
+b. Secretaría: La secretaría de la Comisión estará a cargo de la persona EPA quien levantará el acta, redacción, firma y aprobación en el SUC de comunicados de acuerdos y decisiones iniciales. En caso de ausencia de éste, el levantamiento del acta y demás actividades, estará a cargo de la persona encargada del Proceso de Seguimiento de Apoyo y Control. Para el caso de la firma de la decisión inicial de cada trámite aprobado, quien deberá firmar la misma, será la persona que ostenta el cargo de presidente de dicha Comisión.
+c. Quórum: Para que la comisión sesione válidamente deberá contarse con la totalidad de las personas asignadas como integrantes de esta comisión y en caso de ausencia motivada sus respectivos suplentes señalados en este Reglamento.
 d. Acuerdos: Los acuerdos se tomarán por la mayoría simple de los presentes.
-e. Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
-f. Asistencia: La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia motivada debe ser debidamente autorizada ante quien la preside antes de la sesión.
-g. Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública.
-h. Deber de inhibirse: Cuando alguna de las personas integrantes de la Comisión Menor de Gestión de Compras tenga una causal de prohibición prevista en la LGCP y su reglamento o firme un criterio decisorio dentro del proceso de compra deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación.
+e. Cronogramas de sesiones: La Secretaría de la Comisión en coordinación con la Presidencia, establecerá a inicio de cada año la calendarización semanal de las sesiones ordinarias de la Comisión; las sesiones extraordinarias que surjan deberán ser comunicadas con anticipación a los miembros de comisión, según la Ley General de la Administración Pública.
+f. Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
+g. Asistencia: La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia debe ser autorizada ante quien la preside antes de la sesión, con el fin de que su suplencia prevista en este Reglamento pueda estar presente siempre para que sesionen válidamente.
+h. Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública y sus reformas.
+i. Deber de inhibirse: Cuando alguna de las personas integrantes de la Comisión Regional de Gestión de Compras tenga una causal de prohibición prevista en la LGCP y su reglamento o firme un criterio decisorio dentro del proceso de compra deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación.

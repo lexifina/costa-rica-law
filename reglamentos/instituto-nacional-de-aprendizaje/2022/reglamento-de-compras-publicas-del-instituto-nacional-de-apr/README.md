@@ -14,3 +14,4 @@ Reglamento de compras públicas del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-01 | la propia norma |
+| 2 | 2024-11-01 | Reglamento 0 (2024-11-01) |

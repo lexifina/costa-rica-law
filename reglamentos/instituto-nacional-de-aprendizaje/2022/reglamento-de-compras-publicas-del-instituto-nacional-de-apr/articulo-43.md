@@ -1,1 +1,9 @@
-Artículo 43. Sanciones a particulares. Para la ejecución del régimen de sanciones para particulares, sean estas personas físicas o jurídicas, por las causales señaladas en la Ley de General de Contratación Pública y su reglamento, se aplicará el procedimiento especial y disposiciones establecidas en dicha Ley y su reglamento. Este proceso sancionatorio será instruido por la Gerencia General o por quien designe como órgano director. La resolución final será dictada por la persona encargada de la Gerencia General. Tendrá recurso de revocatoria ante la misma instancia y apelación ante el superior jerarca de la Institución.
+Artículo 43. Junta Administrativa de Análisis y Seguimiento de Fideicomiso.
+Se conforma una Junta Administrativa para el análisis y seguimiento del fideicomiso, el cual estará compuesto de la siguiente forma:
+a. La persona que ocupe el cargo de Gerencia General o quien esta designe de las subgerencias.
+b. La persona encargada de la Unidad de Recursos Financieros.
+c. La persona Encargada de la Unidad de Planeamiento y Evaluación.
+d. La persona Encargada del Proceso de Adquisiciones.
+e. La persona Encargada de la Unidad Técnica Especializada.
+f. La persona encargada de la Asesoría Legal
+El funcionamiento de esta Junta Administrativa se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública

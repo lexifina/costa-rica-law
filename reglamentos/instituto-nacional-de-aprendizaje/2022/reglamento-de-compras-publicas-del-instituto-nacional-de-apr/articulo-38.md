@@ -1,9 +1,3 @@
-Artículo 38 - Junta Administrativa de Análisis y Seguimiento de Fideicomiso.
-Se conforma una Junta Administrativa para el análisis y seguimiento del fideicomiso, el cual estará compuesto de la siguiente forma:
-a. La persona que ocupe el cargo de Gerencia General o quien esta designe de las subgerencias.
-b. La persona encargada de la Unidad de Recursos Financieros.
-c. La persona Encargada de la Unidad de Planeamiento y Evaluación.
-d. La persona Encargada del Proceso de Adquisiciones.
-e. La persona Encargada de la Unidad Técnica Especializada.
-f. La persona encargada de la Asesoría Legal
-El funcionamiento de esta Junta Administrativa se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública
+Artículo 38. De las solicitudes de adenda a los contratos. Será responsabilidad de los administradores de contrato, la solicitud de modificaciones unilaterales al contrato con relación a lo normado en la Ley General de Contratación Pública y su Reglamento.
+Sobre esto, es necesario que se cuente con la solicitud expuesta de modificación cumpliendo a cabalidad con todos los puntos que indican los artículos 276 o 184 del RLGCP, cuando corresponda, explicando ampliamente la imprevisibilidad del hecho que causa dicha modificación. Además, se deberá emitir el criterio técnico respetivo y la razonabilidad del precio de la modificación solicitada. Es importante que para aprobar estas solicitudes se cuente con certificación de contenido presupuestario.
+Será responsabilidad directa de cada órgano competente establecido en este Reglamento que adjudicó el trámite al cuál se le quiere modificar unilateralmente, la declaratoria final de esta solicitud con base en la legalidad y la técnica. Además, los Procesos de Adquisiciones serán los responsables, una vez aprobada cada modificación unilateral del contrato aprobada por el órgano competente, de gestionar con la Asesoría Legal, la confección de la adenda respectiva.

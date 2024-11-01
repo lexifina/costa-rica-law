@@ -1,6 +1,3 @@
-Artículo 36. Supervisión de Contrataciones de Servicios de Capacitación y Formación Profesional. El INA deberá evaluar la ejecución de los servicios contratados, a fin de asegurarse su cumplimiento, conforme con las condiciones
-pactadas.
-La supervisión del contrato durante su período de ejecución corresponderá a la unidad solicitante quien tendrá la supervisión directa de la ejecución del contrato.
-Para tal efecto ésta deberá tomar oportunamente las medidas que estime necesarias para obligar al contratista a cumplir estrictamente con las condiciones específicas y plazos establecidos, o para proceder a establecer la comunicación respectiva ante el Órgano competente según su rango de acción, para resolver el contrato cuando dicha medida se estime pertinente, con una indicación clara de los motivos concurrentes y del incumplimiento en que el contratista ha incurrido.
-El Proceso de Contratación de Servicios de Capacitación y Formación Profesional de la UCI, velará con la unidad solicitante la aplicación de la normativa de contratación de SCFP que requiere las unidades adscritas a la Gestión Regional.
-Asimismo, Proceso de Contratación de Servicios de Capacitación y Formación Profesional de la UCI ejercerá la supervisión complementaria a la ejercida directamente por la unidad solicitante.
+Artículo 36. Deber de establecer controles internos en la gestión de compras.
+Es responsabilidad directa de las jefaturas inmersas en la gestión de compras del INA, establecer supervisión, fiscalización y las medidas de control internas para generar un proceso de gestión de compras eficiente, transparente, planificado y eficaz, que procure la consecución del fin público que busca el INA.
+Es responsabilidad de todas las personas funcionarias inmersas en la gestión de compras del INA, actuar de manera ética, procurando siempre el bien común, buscando la mejora continua en el proceso y realizando las asignaciones dadas de manera eficiente y apegadas a la legalidad.

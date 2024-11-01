@@ -1,7 +1,3 @@
-Artículo 40. Requisitos del estudio del Fideicomiso. La Unidad solicitante deberá preparar la documentación para presentarla a la Junta Administrativa de Análisis y seguimiento de Fideicomiso, indicando al menos:
-a. Los bienes o servicios que se desean contratar.
-b. Necesidad que se satisface con esta contratación.
-c. Presupuesto estimado de los bienes o servicios que se desean contratar.
-d. Justificación de la disposición de los recursos financieros y técnicos
-e. Solicitud de la disponibilidad financiera de los posibles recursos a utilizar.
-f. Prefactibilidad del fideicomiso
+Artículo 40. Terminaciones anormales del contrato. Cuando se presente la terminación de un contrato de modo anormal, por cualquiera de las causales señaladas en la Ley de General de Contratación Pública y su reglamento, se aplicará el procedimiento establecido en dicho marco legal.
+Una vez documentado el incumplimiento este será conocido por el Órgano Competente según su rango acción, debiendo emitirse la orden de suspensión del contrato al mismo tiempo que deberá requerir a la persona titular de la Gerencia General el inicio del procedimiento ordinario según la Ley de General de Contratación Pública.
+Será responsabilidad de la Gerencia General designar al órgano director o instancia responsable de gestionar el debido proceso, así como de la emisión de la resolución final, admitiéndose contra dicha resolución, los recursos de revocatoria ante la misma instancia y apelación ante la Presidencia Ejecutiva. Finalizado el proceso será comunicado para conocimiento de la comisión competente.

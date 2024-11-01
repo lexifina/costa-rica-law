@@ -1,18 +1,21 @@
-Artículo 21. Comisión Mayor de Gestión de Compras. La Comisión Mayor de Gestión de Compras se regirá por las siguientes normas:
+Artículo 21. Comisión Mayor de Gestión de Compras. La Comisión Mayor de Gestión de Compras se regirá por los siguientes lineamientos:
 1. Integración. La Comisión Mayor de Gestión de Compras estará integrada por los siguientes miembros:
-a) La persona encargada de la Gerencia General;
-b) La persona encargada de la Subgerencia a cargo de lo Técnico;
-c) La persona encargada de la Subgerencia a cargo de lo Administrativo;
-d) La persona encargada de la Gestión de Normalización y Servicios de Apoyo;
-e) La persona encargada de la Unidad Planificación Estratégica.
-La persona encargada de la Asesoría Legal y/o la persona encargada del proceso de Contratacion Administrativa de la Asesoría Legal; la persona encargada de la Unidad de Control Interno, la persona encargada de la UCI, quienes participarán con voz, pero sin voto. La persona encargada de la Secretaría Técnica-Junta Directiva, quien participará con voz, pero sin voto, además podrá comunicar cuando considere oportuno cualquier información que estime pertinente a la Junta Directiva.
+a. La persona encargada de la Gerencia General. En caso de ausencia permanente o motivada mediante delegación, asumirá la persona encargada de la subgerencia a cargo de lo administrativo, y en ausencia permanente o motivada de esta, asumirá la persona encargada de la subgerencia a cargo de lo técnico.
+b. La persona encargada de la Gestión de Normalización y Servicios de Apoyo.
+En ausencia permanente o motivada, asumirá la persona encargada de la Unidad de Control Interno.
+c. La persona encargada de la Gestión de Formación y Servicios Tecnológicos.
+En ausencia permanente o motivada, asumirá la persona encargada de la Gestión Regional.
+d. La persona encargada de la Gestión SINAFOR. En ausencia permanente o motivada, asumirá la persona encargada de la Unidad de Fomento y Desarrollo Empresarial.
+e. La persona encargada de la Unidad de Planificación Estratégica. En ausencia permanente o motivada, asumirá la persona de la Asesoría de Calidad.
+La persona encargada de la Gestión de Tecnologías de Información y Comunicación, la persona encargada de la Asesoría Legal, la persona encargada del Proceso de Contratación Administrativa de la Asesoría Legal, la persona encargada de la Unidad de Secretaría Técnica de la Junta Directiva, la persona encargada de la Unidad de Compras Institucionales y la persona encargada del Proceso de Adquisiciones de la Unidad de Compras Institucionales, participarán con voz, pero sin voto.
+La persona encargada de la Unidad de Control Interno participará con voz, pero sin voto, cuando no asuma como miembro votante ante la ausencia de la persona encargada de la Gestión de Normalización y Servicios de Apoyo.
 2. Funcionamiento de la Comisión: Para el funcionamiento de la Comisión se considerará lo siguiente:
-a) Presidencia: La Comisión estará presidida por la persona encargada de la Gerencia General, en su ausencia motivada de esta por la persona encargada de la Subgerencia que será designada formalmente por la Gerencia General para este efecto.
-b) Secretaría: Estará a cargo de la persona encargada de la Secretaría Técnica de la Junta Directiva, quien levantará el acta, redacción y firma de acuerdos.
-En caso de ausencia de este, el levantamiento del acta estará a cargo de la persona encargada de la UCI. Para la firma de acuerdo, en ausencia del Encargado de la Secretaría Técnica de la Junta Directiva lo firmará la persona Encargada de la UCI y en ausencia de ambos la persona encargada de la Gestión de Normalización y Servicios de Apoyo.
-c) Quórum: Para que la comisión sesione válidamente deberá contarse con la persona encargada de la Gerencia General o en ausencia motivada de esta con la persona encargada de la Subgerencia que designe formalmente, quienes serán responsables personalmente de sus actuaciones. El quórum estará formado por la mayoría calificada de sus integrantes.
-d) Acuerdos: Los acuerdos se tomarán por la mayoría simple de las personas presentes.
-e) Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
-f) Asistencia: La asistencia a las sesiones tanto ordinarias como extraordinarias de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente autorizada ante quien la preside antes de la sesión.
-g) Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública y sus reformas.
-h) Deber de inhibirse: Cuando alguna de las personas integrantes de la Comisión Mayor de Gestión de Compras firme un criterio decisorio dentro del proceso de compra deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación o tenga alguna de las causales prevista en el Régimen de Prohibiciones de la LGCP y su reglamento.
+a. Presidencia: La Comisión estará presidida por quien representa al Cuerpo Gerencial.
+b. Secretaría: Estará a cargo de la persona encargada del Proceso de Adquisiciones de la Unidad de Compras Institucionales, quien levantará el acta, redacción, firma y aprobación en el SUC de los comunicados de acuerdo y decisiones iniciales. En caso de ausencia de este, el levantamiento del acta y demás actividades estará a cargo de la persona encargada de la Unidad de Compras Institucionales. Para el caso de la firma de la decisión inicial de cada trámite aprobado, quien deberá firmar la misma, será la persona que ostenta el cargo de presidente de dicha Comisión.
+c. Quórum: Para que la comisión sesione válidamente deberá contarse con la persona encargada de la Gerencia General o en ausencia motivada de esta con la persona encargada de la Subgerencia que designe formalmente, quienes serán responsables personalmente de sus actuaciones. El quórum estará formado por la mayoría simple de sus integrantes.
+d. Acuerdos: Los acuerdos se tomarán por la mayoría simple de las personas presentes.
+e. Cronogramas de sesiones: La Secretaría de la Comisión en coordinación con la Presidencia, establecerá a inicio de cada año la calendarización semanal de las sesiones ordinarias de la Comisión; las sesiones extraordinarias que surjan deberán ser comunicadas con anticipación a los miembros de comisión según la Ley General de la Administración Pública.
+f. Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
+g. Asistencia: La asistencia a las sesiones tanto ordinarias como extraordinarias de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente autorizada ante quien la preside antes de la sesión.
+h. Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública y sus reformas.
+i. Deber de inhibirse: Cuando alguna de las personas integrantes de la Comisión Mayor de Gestión de Compras firme un criterio decisorio dentro del proceso de compra deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación o tenga alguna de las causales prevista en el Régimen de Prohibiciones de la LGCP y su reglamento.

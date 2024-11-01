@@ -1,11 +1,22 @@
-Artículo 26. Competencias de la Comisión Regional de Gestión de Compras.
-Será competencia de la Comisión Regional de Gestión de Compras:
-a) Dictar la decisión inicial y aprobar los pliegos de condiciones de las contrataciones según el rango de acción.
-b) Emitir el acto final de las contrataciones realizadas en la Unidad Regional según el rango de acción.
-c) Resolver los recursos de objeción al pliego de condiciones en las contrataciones en que se dictó la decisión inicial según su rango de acción.
-d) Aprobar las modificaciones unilaterales de contrato según su rango de acción hasta por un 20%.
-e) Resolver los recursos de revocatoria en contra del acto final emitido por su rango de acción, cuando corresponda, según la LGCP y su reglamento.
-f) Resolver las prórrogas propuestas por los contratistas en los procedimientos adjudicados según su rango de acción.
-g) Convocar a cualquier funcionario del INA con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
-h) Conocer las solicitudes de resolución contractual, recisión contractual, suspensiones de plazo y de contrato, cesiones del contrato, caducidad de las contrataciones adjudicadas según su rango de acción.
-i) Conocer cualquier otro asunto relacionado con contratación pública, según su rango de acción y competencias.
+Artículo 26. Competencias de la persona encargada del Proceso de Adquisiciones. Será competencia de la persona EPA tanto en Sede Central como en Unidades Regionales:
+a. Aprobar las solicitudes de contratación generadas en el SUC de los trámites de licitación generados en su Proceso.
+b. Aprobar y firmar las órdenes de compra u órdenes de pedido generadas de las aprobaciones de contratos por abastecimiento por demanda establecidos en su dependencia.
+c. Aprobar y firmar las órdenes de compra u órdenes de pedido generada de las aprobaciones de contratos de bienes y servicios establecidos en su dependencia.
+d. Aprobar y firmar las órdenes de compra u órdenes de pedido generada de las aprobaciones de trámites de convenio marco establecidos en su dependencia.
+e. Controlar y supervisar que se tramitan todos los procedimientos de contratación ordinarios, extraordinarios, especiales y las excepcionales regulados en la LGCP y su reglamento.
+f. Requerir las justificaciones en relación con las solicitudes de adquisiciones de obras, bienes y servicios.
+g. Fiscalizar y controlar el ABC de compras respectivo.
+h. Controlar y supervisar que se resuelvan y comuniquen las aclaraciones y modificaciones a los pliegos de condiciones de los procedimientos de contratación según su rango de acción.
+i. Controlar y supervisar que se tramiten los proyectos de resolución de recursos ante quien corresponda según el presente Reglamento.
+j. Dictar mediante acto motivado la declaratoria de los documentos confidenciales expresados por los oferentes en cada trámite licitatorio sin importar su cuantía o la instancia que lo haya aprobado.
+k. Controlar y supervisar que se realicen los trámites de revisión y reajuste de precios de los contratos de obras, bienes y servicios, coordinando en aquellos casos que corresponda con las personas administradoras de contrato.
+l. Aprobar los informes de recomendación generados en el SUC de los trámites de licitación generados en su Proceso para ser visto su dictamen final por el órgano competente.
+m. Resolver las prórrogas propuestas por los contratistas en los procedimientos establecidos en su dependencia, independientemente de quien emitió el acto final de la licitación, tomando en cuenta el criterio técnico emitido respectivo.
+n. Resolver las solicitudes de mejoras de bienes y servicios a entregar propuestas por los contratistas, en los procedimientos establecidos en su dependencia independientemente de quien emitió el acto final de la licitación, tomando en cuenta el criterio técnico respectivo.
+o. Resguardar la información que se genera del uso del SUC, así como sus respaldos. Además, custodiar de los expedientes de los trámites de compras que no hayan sido eliminados en concordancia con la Ley de Archivo Nacional.
+p. Controlar y supervisar de que se apliquen las multas y cláusulas penales solicitadas por las Unidades Usuarias, y que fueron establecidas en los pliegos de condiciones. Así como resolver los recursos de revocatoria contra estas. En caso de un eventual recursos de apelación, trasladar a la persona encargada de GNSA cuando sea Sede Central y; en el caso de la Unidades Regionales, a la persona encargada de la Unidad Regional, quienes tendrán que conocer y resolver dicho recurso contra la sanción económica interpuesta.
+q. Establecer los controles y procedimiento relacionados con las garantías económicas, su control, seguimiento de vencimientos, y afines de conformidad con la LGCP y su reglamento.
+r. Aprobar las modificaciones de los contratos en donde se aplique el artículo 157 de la Ley General de la Administración Pública, para que en cualquier tiempo se pueda rectificar los errores materiales o de hecho y los aritméticos de estos contratos.
+s. Dar seguimiento a la rendición y vigencia de las garantías de cumplimiento de los tramites de compra, así como realizar el respectivo estudio para su prorroga o devolución.
+t. Conocer cualquier otro asunto relacionado con materia de contratación pública que se considere dentro de sus funciones y competencia.
+En la Sede Central, en caso de ausencia del EPA el responsable será la persona encargada de la Unidad de Compras Institucionales y en su ausencia será el Gestor de Normalización y Servicios de Apoyo. En caso de ausencia del EPA de las Unidades Regionales, el responsable de las funciones antes señaladas será la persona encargada del PSAC y en su ausencia será la persona encargada de la Unidad Regional respectiva
