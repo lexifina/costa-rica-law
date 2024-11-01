@@ -1,49 +1,15 @@
-Artículo 6º.- Para el cumplimiento de sus objetivos, el Banco
-Hipotecario de la Vivienda tendrá las siguientes atribuciones y
-funciones:
-a) Elaborar los proyectos de reglamento de la presente ley, así como
-sus reformas, y someterlos a la aprobación del Poder Ejecutivo, para que
-sean promulgados mediante el o los decretos correspondientes.
-b) Incentivar el ahorro interno y la inversión nacional como el medio
-más importante de lograr la solución del problema habitacional en el
-país.
-c) Disponer a cuáles instituciones podrá otorgar la condición de
-entidades autorizadas.
-ch) Promover, otorgar financiamiento y asesorar a las entidades
-autorizadas y coadyuvar en lo pertinente con la Superintendencia General
-de Entidades Financieras para velar por el correcto funcionamiento de
-dichas entidades.
-(Así reformado por el artículo 165 de la Ley Orgánica del Banco
-Central de Costa Rica No.7558 del 3 de noviembre de 1995)
-d) Garantizar, si lo considerare conveniente, los depósitos en cuentas
-de ahorro que se efectúen en las mutuales, y descontar la cartera de las
-entidades autorizadas y darles la asesoría técnica que necesiten.
-e) Avalar financiamiento interino o transitorio para la ejecución de
-proyectos de conjuntos habitacionales, así como para las obras y
-servicios complementarios, siempre y cuando éstos sean promovidos por
-medio de los entes autorizados.
-f) Contratar empréstitos en moneda nacional o extranjera, dentro y
-fuera del país, destinados al cumplimiento de sus fines. En este último
-caso deberá contar con la autorización previa del Banco Central de Costa
-Rica.
-g) Crear el fondo que se requiera para estabilizar el mercado
-secundario de hipotecas y de títulos valores en el campo de la vivienda;
-participar en él por cuenta propia y de terceros, y velar porque se
-mantenga y desarrolle dentro de un clima de confianza pública.
-h) Ajustar sus acciones a las política, lineamientos y directrices que
-dicte el Estado en materia de vivienda, desarrollo urbano y asentamientos
-humanos.
-i) Determinar la política financiera general del Sistema.
-j) Garantizar, si lo considerare conveniente, los préstamos
-hipotecarios otorgados por las entidades autorizadas, para asegurar al
-acreedor hipotecario, o al cesionario de los derechos, el cobro íntegro
-del capital, de los intereses y de las demás obligaciones accesorias de
-la hipoteca, incluidos los gastos del juicio de ejecución.
-k) Establecer, por medio de las entidades autorizadas, programas que
-vinculen los créditos para vivienda al ahorro simultáneo de las familias
-beneficiarias.
-( Así adicionado por el artículo 2 de la ley No. 7208 de 21 de noviembre
-de 1990, que además dispuso, correr la numeración del inciso
-subsiguiente).
-l) Las demás que le correspondan de acuerdo con esta ley y sus
-reglamentos.
+Artículo 6- Para el cumplimiento de sus objetivos, el Banco Hipotecario de la Vivienda (Banhvi) tendrá las siguientes atribuciones y funciones:
+a) Elaborar los proyectos de reglamento de la presente ley, así como sus reformas, y someterlos a la aprobación del Poder Ejecutivo, para que sean promulgados mediante el o los decretos correspondientes.
+b) Incentivar el ahorro interno y la inversión nacional como el medio más importante de lograr la solución del problema habitacional en el país.
+c) Disponer a cuáles instituciones podrá otorgar la condición de entidades autorizadas.
+d) Promover, otorgar financiamiento y asesorar a las entidades autorizadas y coadyuvar en lo pertinente con la Superintendencia General de Entidades Financieras, para velar por el correcto funcionamiento de dichas entidades.
+e) Garantizar, si lo considerara conveniente, los depósitos en cuentas de ahorro que se efectúen en las mutuales y descontar la cartera de las entidades autorizadas y darles la asesoría técnica que necesiten.
+f) Avalar financiamiento interino o transitorio para la ejecución de proyectos de conjuntos habitacionales, así como para las obras y servicios complementarios, siempre y cuando estos sean promovidos por medio de los entes autorizados.
+g) Contratar empréstitos en moneda nacional o extranjera, dentro y fuera del país, destinados al cumplimiento de sus fines. En este último caso, siempre que se requiera la garantía soberana del empréstito, esta deberá tramitarse de conformidad con los procedimientos de la Ley 8131, Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001 y deberá contar con la aprobación previa del Ministerio de Planificación Nacional y Política Económica (Mideplán), la Autoridad Presupuestaria, el Ministerio de Hacienda, así como el dictamen favorable del Banco Central y la aprobación de la Asamblea Legislativa.
+h) Crear el fondo que se requiera para promover el mercado secundario de hipotecas y de títulos valores en el campo de la vivienda; participar en él por cuenta propia y de terceros, y velar por que se mantenga y desarrolle dentro de un clima de confianza pública.
+i) Ajustar sus acciones a las políticas, los lineamientos y las directrices que dicte el Estado en materia de vivienda, desarrollo urbano y asentamientos humanos.
+j) Determinar la política financiera general del Sistema.
+k) Garantizar, si lo considerara conveniente, los préstamos hipotecarios otorgados por las entidades autorizadas, para asegurar al acreedor hipotecario, o al cesionario de los derechos, el cobro íntegro del capital, de los intereses y de las demás obligaciones accesorias de la hipoteca, incluidos los gastos del juicio de ejecución.
+l) Establecer, por medio de las entidades autorizadas, programas que vinculen los créditos para vivienda al ahorro simultáneo de las familias beneficiarias.
+m) Las demás que le correspondan de acuerdo con esta ley y sus reglamentos.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, “Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media”)

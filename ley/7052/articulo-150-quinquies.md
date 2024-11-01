@@ -1,0 +1,2 @@
+Artículo 150 quinquies- Trámites y permisos. A fin de facilitar y reducir los tiempos de autorizaciones o permisos, los proyectos o soluciones de vivienda a ser financiados con estos fondos tendrán vía rápida con las distintas instancias regulatorias vía reglamento.
+(Así adicionado por el artículo 5° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")

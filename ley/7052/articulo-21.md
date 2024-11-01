@@ -1,10 +1,3 @@
-Artículo 21.- La Junta Directiva deberá reunirse en sesión ordinaria
-una vez por semana, en el lugar, el día y la hora que ella misma
-determine, y en sesión extraordinaria las veces que sea convocada por el
-presidente de la Junta, por el gerente general o por tres miembros de la
-Junta.
-La convocatoria deberá hacerse por escrito y con tres días hábiles
-de anticipación, por lo menos, salvo que se haga durante el curso de una
-sesión y haya consenso de la totalidad de los miembros para sesionar en
-fecha convenida. En las sesiones extraordinarias de la Junta Directiva se
-conocerán solamente los asuntos comprendidos en la convocatoria.
+Artículo 21- La Junta Directiva deberá reunirse en sesión ordinaria una vez por semana, en el lugar, el día y la hora que ella misma determine y, en sesión extraordinaria, las veces que sea convocada por el presidente de la Junta, por el gerente general o por tres miembros de la Junta. Solo se pagará la dieta correspondiente a una sesión ordinaria por semana y hasta dos extraordinarias por mes; el resto de las sesiones no se pagarán.
+La convocatoria deberá hacerse por escrito y con tres días hábiles de anticipación, por lo menos, salvo que se haga durante el curso de una sesión y haya consenso de la totalidad de los miembros para sesionar en la fecha convenida. En las sesiones extraordinarias de la Junta Directiva se conocerán solamente los asuntos comprendidos en la convocatoria.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")

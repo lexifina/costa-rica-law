@@ -1,3 +1,4 @@
-Artículo 158.- La Junta Directiva del Banco reglamentará, en el curso de los doce meses siguientes a su instalación, todo lo relativo al Fondo de estabilización y a sus operaciones.
+Artículo 158-Aprobaciones regulatorias de los valores de oferta pública. El Consejo Nacional de Supervisión del Sistema Financiero (Conassif) y otros entes reguladores reglamentarán las emisiones de valores de oferta pública, de conformidad con la normativa financiera vigente.
 (Así modificada su numeración por el artículo único de la ley N° 9779 del 12 de noviembre del 2019, que la traspasó del antiguo artículo 144 al 150)
 (Así modificada su numeración por el artículo 6° de la Ley de Vivienda productiva de Interés Social, N° 10477 del 22 de mayo del 2024, que lo traspasó del antiguo artículo 150 al artículo 158)
+(Así reformado por el artículo 4° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")
