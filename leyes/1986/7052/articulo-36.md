@@ -1,4 +1,3 @@
-Artículo 36.- Los recursos operacionales del Banco serán los
-intereses, las comisiones de garantía, las participaciones y los otros
-ingresos de naturaleza análoga que obtenga con motivo de la realización
-de sus operaciones.
+Artículo 36- Los recursos operacionales del Banco, entendidos estos como los requeridos para financiar sus gastos administrativos y de inversión, serán los intereses, las comisiones de administración y garantía, los ingresos por las participaciones y demás ingresos que obtenga con motivo de la realización de sus operaciones, tanto aquellas realizadas por los fondos especiales que administra, según los porcentajes establecidos en los artículos 42 y 49 de esta ley, como por el propio Banco.
+Estos recursos se utilizarán para atender exclusivamente la operativa total de la entidad, incluyendo cualquier diferencia que se presente entre el aporte y el costo de operación de alguno de los fondos administrados, ya sea para el periodo actual o para periodos futuros, para lo cual se crearán las reservas requeridas según las necesidades estimadas en función de la visión plurianual definida por el Banco.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")

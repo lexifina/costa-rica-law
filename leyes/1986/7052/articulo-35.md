@@ -1,7 +1,2 @@
-Artículo 35.- Además de los recursos mencionados en el artículo
-precedente, el Banco contará con los que obtenga de créditos internos y
-externos que contrate, con los que se le asignan en esta ley y con los
-provenientes de la venta de los títulos valores que emita.
-En el caso de los créditos externos, éstos sólo se contratarán por
-medio del Banco, previa autorización del Banco Central de Costa Rica y
-posterior aprobación de la Asamblea Legislativa.
+Artículo 35- Además de los recursos mencionados en el artículo precedente, el Banco contará con los que obtenga de créditos internos y externos que contrate, con los que se le asignan en esta ley y con los provenientes de la venta de los valores que emita. En el caso de los créditos externos, el Banco podrá contratarlos directamente, previa autorización de su Junta Directiva y el Banco Central de Costa Rica, siempre y cuando no requieran la garantía soberana del Estado. En caso de requerir garantía soberana, se deberá proceder de conformidad con la Ley 8131, Administración Financiera de la República y Presupuestos Públicos, contar con autorización del Ministerio de Planificación Nacional y Política Económica (Mideplán), la Autoridad Presupuestaria, el Ministerio de Hacienda y la posterior aprobación de la Asamblea Legislativa.
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")
