@@ -1,0 +1,1 @@
+ARTÍCULO 3- El Ministerio de Educación Pública (MEP) y el Ministerio de Cultura y Juventud (MCJ), en coordinación con las municipalidades y demás instituciones públicas, promoverán, organizarán y ejecutarán actividades locales y regionales de celebración en alusión a la pintura estilo Sarchí y el colocho típico.

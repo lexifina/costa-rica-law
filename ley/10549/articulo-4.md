@@ -1,0 +1,3 @@
+ARTÍCULO 4- El Ministerio de Educación Pública (MEP) incluirá en sus programas educativos, de sensibilización y divulgación, sobre la pintura estilo Sarchí y el colocho típico. El Ministerio de Cultura y Juventud (MCJ) podrá informar los valores culturales de este tipo de pintura, como también apoyar iniciativas para salvaguardar esta tradición popular. El Ministerio de Turismo y el Instituto Costarricense de Turismo (ICT) promoverán la pintura estilo Sarchí y el colocho típico como un elemento que incentive el turismo y el comercio.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciséis días del mes de octubre del año dos mil veinticuatro.
