@@ -1,0 +1,1 @@
+Artículo 3°-Lo señalado en este acuerdo deroga lo establecido en el acuerdo SGV-A-1-2024. Superintendencia General de Valores. Despacho del Superintendente, a las catorce horas del primero de abril del dos mil veinticuatro.

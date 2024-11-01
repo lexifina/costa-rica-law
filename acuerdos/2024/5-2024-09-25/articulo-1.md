@@ -1,0 +1,28 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+SGV-A-5-2024.-Uso de Sello Electrónico.-Superintendencia General de Valores.-Despacho del Superintendente, a las doce horas del veinticinco de setiembre del dos mil veinticuatro.
+1. Que de conformidad con el artículo 8 inciso a) de la Ley Reguladora del Mercado de Valores, Ley N° 7732, corresponde al Superintendente:
+"Ejercer, en nombre y por cuenta del Banco Central de Costa Rica, la representación judicial y extrajudicial de dicho Banco para las funciones propias de su cargo, con atribuciones de apoderado generalísimo sin límite de suma. Podrá delegar poderes en los intendentes u otros funcionarios de la Superintendencia, conforme a las normas dictadas por el Consejo Nacional."
+2. El artículo 180 de la Ley Reguladora del Mercado de Valores, dispone que la Superintendencia General de Valores podrá utilizar medios electrónicos o magnéticos de transmisión y almacenamiento de datos, para solicitar información a las entidades fiscalizadas y para mantener sus archivos, actas y demás documentos. La información así mantenida tendrá valor probatorio equivalente al de los documentos para todos los efectos legales.
+3. Que, por la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N° 8454, artículo 9, se dispone que "Los documentos y las comunicaciones suscritos mediante firma digital, tendrán el mismo valor y la eficacia probatoria de su equivalente firmado en manuscrito. En cualquier norma jurídica que se exija la presencia de una firma, se reconocerá de igual manera tanto la digital como la manuscrita.".
+4. El Banco Central de Costa Rica se encuentra constituido como Autoridad Certificadora para la emisión de certificados de firma digital para personas físicas y jurídicas, para lo cual se encuentra debidamente inscrita y autorizada para su operación según la Dirección de Gobernanza del Ministerio de Ciencia, Tecnología y Telecomunicaciones, ente responsable de la administración y supervisión del Sistema Nacional de Certificación Digital. Y, en dicha calidad, posee las competencias legales para suscribir acuerdos con los representantes legales de las personas jurídicas que soliciten la emisión de certificados de tipo Sello Electrónico.
+5. Que, el servicio de custodio de Sello Electrónico de Persona Jurídica fue aprobado de conformidad con el ejercicio de la potestad reglamentaria conferida por el legislador al Banco Central de Costa Rica, mediante su Junta Directiva, la cual aprobó en el artículo 6 del acta de la sesión 5825-2018, el servicio de Custodia del Certificado de Sello Electrónico de Persona jurídica, según se desprende del artículo 448 del Reglamento del Sistema de Pagos.
+6. Que, el artículo 2 de la Política de Certificados para la Jerarquía Nacional de Certificadores Registrados, emitido por el Ministerio de Ciencia, Tecnología y Telecomunicaciones y la Dirección Certificadores de Firma Digital delimita el término suscriptor de la siguiente manera: "Se define como suscriptor a todos los usuarios finales a quienes se les ha emitido un certificado por un CA, dentro de la jerarquía nacional de certificadores registrados. El suscriptor puede ser una persona física o una persona jurídica." De conformidad con la definición anterior, la Superintendencia General de Valores, como órgano de desconcentración máxima del Banco Central de Costa Rica puede constituirse como usuario final para firmar documentos con su propio Sello Electrónico suministrado por el Banco Central de Costa Rica, en su calidad de Autoridad Certificadora.
+7. Que, en virtud de lo dispuesto en el artículo 8 incisos f) y j) de la Ley No. 7732, el Superintendente General de Valores en su calidad de Autoridad Máxima en materia administrativa y, como representante legal del Banco Central de Costa Rica para las funciones propias de su cargo, con base en los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios, tiene la potestad de autorizar la utilización del Certificado de tipo Sello Electrónico en los actos que considere necesarios para cumplir con el citado principio del servicio público.
+8. Como resultado del proceso de revisión continua de los acuerdos emitidos por el Superintendente, se han identificado mejoras a este acuerdo para ampliar la lista de actos administrativos y documentos que pueden ser firmados con el sello electrónico de la superintendencia.
+Por tanto, dispone el presente acuerdo:
+SGV-A-5-2024. USO DE SELLO ELECTRÓNICO
+Artículo 1°-Autorizar la aplicación de la firma con el Sello Electrónico asignado a la Superintendencia General de Valores para que se suscriban los siguientes actos administrativos y documentos:
+1. Generación de acuses de recibo de correspondencia tramitada por MENDOCEL.
+2. Generación de acuses de recibo de información periódica recibida por la Ventanilla Virtual de la SUGEVAL.
+3. Generación de certificaciones digitales de información contenida en el RNVI.
+4. Firma del reporte consolidado de operaciones en efectivo (ICD).
+5. Generación de certificaciones digitales sobre el contenido de expedientes electrónicos.
+6. Generación de la constancia de cualquier paso del expediente (Registro de Roles).
+7. Descarga de la declaración jurada (Registro de Roles).
+8. Generación de oficios sobre requerimientos de información periódica recibida por la Ventanilla Virtual de la SUGEVAL.
+9. Generación de los oficios por concepto de cobro por los servicios de supervisión que realiza la superintendencia.
+. Cobro parcial.
+. Cobro final.
+. Cobro por recalculo.
+. Cobro por salida de entidad.
+. Cobro por ingreso de entidad.
