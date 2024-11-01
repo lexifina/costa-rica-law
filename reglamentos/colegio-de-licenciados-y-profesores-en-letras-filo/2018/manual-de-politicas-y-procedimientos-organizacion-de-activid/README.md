@@ -14,3 +14,4 @@ Manual de Políticas y Procedimientos (Organización de Actividades de Educació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-06 | la propia norma |
+| 2 | 2024-11-01 | Reglamento 97 (2024-11-01) |
