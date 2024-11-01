@@ -14,3 +14,4 @@ Reglamento de estudios de posgrados en enfermería y afines
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-13 | la propia norma |
+| 2 | 2024-11-01 | Reglamento 0 (2024-11-01) |
