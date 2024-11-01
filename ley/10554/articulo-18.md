@@ -1,0 +1,2 @@
+ARTÍCULO 18- Dominio público de la información
+Todo material producido por un funcionario público o funcionaria pública, en el ejercicio de sus funciones, se tendrá bajo el dominio público, con excepción de los datos personales y sin perjuicio de los límites que están establecidos en la Constitución Política de la República de Costa Rica, en la normativa internacional aprobada por la Asamblea Legislativa y en las leyes, conforme al principio de reserva de ley.

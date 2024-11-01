@@ -1,0 +1,13 @@
+ARTÍCULO 15- Derechos y deber de aplicar el régimen sancionatorio interno
+Toda persona física o jurídica que solicita información de carácter público, de manera verbal o escrita, tiene los siguientes derechos:
+a) A ser informada si los documentos que solicita se encuentran o no en poder del sujeto obligado.
+b) Si dichos documentos obran en poder del sujeto obligado que recibió la solicitud, la persona tiene derecho a que se le comunique dicha información en forma expedita.
+c) Si dichos documentos no se le entregan al solicitante, la persona tiene derecho a su impugnación en vía constitucional mediante el recurso de amparo, según el artículo 14 de esta ley.
+d) La persona tiene el derecho de solicitar la información sin tener que justificar las razones por las cuales se solicita.
+e) La persona solicitante no puede ser objeto de desigualdad o discriminación en la solicitud de la información que realiza.
+Las faltas en que pueden incurrir los funcionarios públicos y funcionarias públicas, como sujetos obligados y que sean infractores de la presente ley, se sancionarán de la siguiente forma:
+1- Con apercibimiento oral para quienes por primera vez incurran en infracción de los derechos de los sujetos legitimados contenidos en los incisos a) al d) de este artículo 15, salvo en lo relativo al inciso e), el cual será sancionado con amonestación por escrito.
+2- Con amonestación por escrito a quienes, dentro de un lapso de un año, incurran en al menos cuatro o más infracciones a los derechos de los sujetos legitimados contenidos en los incisos a) al d) de este artículo 15, salvo en lo relativo al inciso e), el cual será sancionado con suspensión de tres días sin goce de salario o dieta.
+3- Con suspensión de tres a cinco días sin goce de salario o dieta, a quienes cometan infracción de los derechos de los sujetos legitimados establecidos en los incisos a) al e) y se constituya en una falta grave, que afecte derechos o intereses legítimos del sujeto legitimado.
+La falta grave se entenderá como aquella afectación de los derechos subjetivos o intereses legítimos del sujeto legitimado, que le provoque daños o perjuicios en su persona, propiedad o intereses morales. Igualmente, será falta grave cuando se afecte el interés público o la seguridad pública.
+El superior jerárquico de la institución podrá abrir procedimientos administrativos contra sujetos obligados de la Administración Pública, que hayan rechazado solicitudes de acceso a la información pública y que provoquen una condena por violación de este derecho fundamental por parte de la Sala Constitucional, a la institución pública en la cual laboran o al Estado.
