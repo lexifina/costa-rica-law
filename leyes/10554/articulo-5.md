@@ -1,0 +1,8 @@
+ARTÍCULO 5- Los funcionarios o las funcionarias públicos como sujetos obligados
+Para efectos de esta ley, son sujetos obligados los funcionarios públicos y públicas de:
+a) La Administración central.
+b) Los Poderes Legislativo, Judicial y el Tribunal Supremo de Elecciones, cuando realicen funciones administrativas.
+c) La Administración descentralizada (institucional y territorial), instituciones autónomas y municipalidades, y las demás entidades de derecho público.
+Se consideran sujetos obligados, las personas jurídicas de derecho privado, sus apoderados, administradores, gerentes y representantes legales, y las personas físicas que custodien, administren o exploten fondos, bienes o servicios de la Administración Pública, por cualquier título o modalidad de gestión. Se incluyen en esta categoría a los partidos políticos como parte de los principios democráticos y de transparencia en el ámbito electoral.
+Las empresas e instituciones públicas en competencia deberán separar la información de acceso público de aquella de carácter sensible o confidencial, enmarcada en el secreto industrial, comercial o económico, cuando por motivos estratégicos, comerciales y de competencia no resulte conveniente su divulgación a terceros.
+Los sujetos de derecho privado prestadores de un servicio público se encuentran excluidos de la aplicación de la presente ley, sin perjuicio de la obligación que les corresponde de brindar información a las personas usuarias sobre las condiciones operativas del servicio público que prestan, o de la información que las entidades rectoras o reguladores estén facultadas para requerirles, todo de conformidad con el régimen jurídico y las disposiciones contractuales que les resulten aplicables según el caso.

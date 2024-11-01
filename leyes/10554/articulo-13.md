@@ -1,0 +1,3 @@
+ARTÍCULO 13- Acceso gratuito a la información pública
+El derecho de acceso a la información pública será gratuito en tanto no se requiera la reproducción de esta. Los costos de reproducción de la información estarán a cargo de la persona solicitante, así como de los timbres, cuando se requiera.
+La información será suministrada en forma escrita o en reproducción digital, sonora, fotográfica, cinematográfica o videográfica, en formatos abiertos y accesibles, para lo cual la persona solicitante deberá suministrar el dispositivo de almacenamiento correspondiente. Lo anterior no será impedimento para la entrega de la información por cualquier otro medio con el que cuente el sujeto obligado u otro señalado en esta ley.

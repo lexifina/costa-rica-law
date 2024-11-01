@@ -1,0 +1,3 @@
+ARTÍCULO 12- Notificaciones y acuse de recibido
+La oficina pública que reciba la solicitud de información de naturaleza pública deberá extender inmediatamente un comprobante de acuse de recibido, con indicación de la fecha de recibo de la solicitud, el nombre de quien la recibe y la descripción de la solicitud. Este comprobante deberá extenderse de forma escrita, sea física o electrónica, a través del medio indicado por la persona solicitante para recibir notificaciones.
+La persona solicitante podrá expresar, en la solicitud, su voluntad de ser notificada mediante comunicación electrónica para todas las actuaciones y resoluciones del procedimiento de acceso a la información, para lo cual deberá señalar una dirección de correo electrónico habilitada.
