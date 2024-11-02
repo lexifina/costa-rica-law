@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De las disposiciones finales
-Artículo 14.—Supervisión. La Dirección Ejecutiva supervisará que las disposiciones contempladas en el presente Reglamento y los Manuales de Procedimientos, se cumplan a cabalidad, sin perjuicio de las potestades que tienen otros órganos en cuanto a control se refiere.
+Artículo 14. Contratación Directa.
+En los casos de proveedor único, representación exclusiva, por razones tecnológicas, o por razones de urgencia debidamente justificada, procederá la contratación directa. En este tipo de contratación el acto final deberá ser dictado por la Dirección Ejecutiva.

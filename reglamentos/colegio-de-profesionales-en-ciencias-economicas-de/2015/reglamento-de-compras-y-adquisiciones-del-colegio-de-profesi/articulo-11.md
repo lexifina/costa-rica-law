@@ -1,7 +1,4 @@
-CAPÍTULO III
-De los procedimientos de contratación
-Artículo 11.—Proceso abierto y cerrado y contratación directa. La Junta Directiva del Colegio definirá por medio de acuerdos que emitirá anualmente, los montos y las circunstancias en las cuales podrá contratarse directamente, y los montos y circunstancias para los cuales se requerirá de proceso público.
-Se prohíbe el fraccionamiento de las compras de bienes y servicios con el propósito de eludir los procesos de cotizaciones, según lo establece el presente reglamento.
-En todas las contrataciones directas y con la salvedad de aquellas en que por razones técnicas o de oportunidades debidamente motivadas y fundamentadas no resulte conveniente ni razonable para el Colegio hacerlo, se solicitarán al menos tres cotizaciones sobre el mismo bien o servicio. En los procedimientos directos el acto final deberá ser dictado por la Dirección Ejecutiva.
-El concurso público abierto requerirá siempre una invitación pública a participar y se observarán en ellos, en la medida en que corresponda, todos los principios de la contratación que contempla este reglamento. No obstante, el Colegio podrá reservarse el derecho de declarar desierto, infructuoso o insubsistente el concurso, por razones de oportunidad, sin responsabilidad de su parte, facultad que se hará del conocimiento de los oferentes al publicitar el concurso. En los procedimientos públicos el acto final deberá ser dictado por la Junta Directiva.
-Cualquier acto que se realice dentro del procedimiento de contratación deberá constar en el expediente su respectiva motivación.
+Artículo 11. Funciones del Departamento de Tecnologías de Información.
+Son funciones del Departamento de Tecnologías de Información, en materia de compras y adquisiciones del Colegio, las siguientes:
+a) Proponer un plan anual de compras de acuerdo con las necesidades propias del área de tecnología, así como desarrollar y mantener programas integrados de cómputo que contribuyan al diseño, rediseño, evaluación y control del sistema de compras y adquisiciones.
+b) Asesorar y colaborar con la Dirección Ejecutiva y del Jefe Financiero del Colegio en las competencias asignadas en materia de compras y adquisiciones.

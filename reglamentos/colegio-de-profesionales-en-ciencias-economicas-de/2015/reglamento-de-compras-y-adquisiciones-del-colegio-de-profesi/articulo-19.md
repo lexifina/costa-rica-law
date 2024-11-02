@@ -1,0 +1,1 @@
+Artículo 19. Registro de proveedores: La proveeduría, mantendrá al día un registro electrónico de proveedores, en el cual se inscribirán todas las personas físicas o jurídicas, que manifiesten interés en contratar con el colegio bienes y servicios que se requieran, a fin de agilizar el proceso de compra.

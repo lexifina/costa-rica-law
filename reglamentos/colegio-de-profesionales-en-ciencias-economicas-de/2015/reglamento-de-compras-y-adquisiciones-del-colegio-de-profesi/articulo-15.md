@@ -1,1 +1,2 @@
-Artículo 15.—Fiscalización. El Fiscal y la Auditoría Interna del Colegio fiscalizarán, en el momento que lo crean oportuno, el cumplimiento de lo dispuesto en el presente Reglamento y demás ordenamiento jurídico que rige la presente materia.
+Artículo 15. Acto final.
+El acto final de los procedimientos público abierto, cerrado, o contratación Directa, cuando el acto haya sido dictado por la Dirección Ejecutiva, procederá tanto recurso de revocatoria como de apelación. El recurso de revocatoria será conocido por la Dirección Ejecutiva, y el recurso de apelación será conocido por la Junta Directiva del Colegio, la que resolverá en definitiva.

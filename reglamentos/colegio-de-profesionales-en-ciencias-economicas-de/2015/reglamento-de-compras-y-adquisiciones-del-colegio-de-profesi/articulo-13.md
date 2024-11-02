@@ -1,4 +1,8 @@
-Artículo 13.—Adjudicación. La adjudicación de una contratación directa no tendrá recurso alguno. La adjudicación de contrataciones en proceso público, cuando el acto haya sido dictado por la Dirección Ejecutiva, tendrá tanto recurso de revocatoria como de apelación en subsidio ante la Junta Directiva del Colegio, la que resolverá en definitiva.
-La adjudicación de contrataciones en concurso público abierto, solamente admitirá recurso de revocatoria cuando el procedimiento haya sido dictado por la Junta Directiva del Colegio.
-La orden de compra deberá contener una descripción de los bienes o servicios por adquirir, con sus valores correspondientes, aplicación del gasto y firma por los funcionarios autorizados. El original se entrega al proveedor, quien la presentará para efectos de trámite de pago.
-Los valores, descripción de los bienes y servicios, así como las cantidades consignadas en la orden de compra, deben coincidir con los valores, descripción de los bienes y servicios y las cantidades consignadas en la factura del proveedor.
+CAPÍTULO III
+DE LOS PROCEDIMIENTOS DE CONTRATACIÓN
+Artículo 13. Concurso público abierto y concurso cerrado.
+La Junta Directiva del Colegio definirá por medio de acuerdos que emitirá anualmente, los montos y circunstancias que regirán para los procesos de contratación.
+El concurso público abierto requerirá siempre una invitación pública a participar.
+No obstante, el Colegio podrá reservarse el derecho de declarar desierto, infructuoso o insubsistente el concurso, por razones de oportunidad, sin responsabilidad de su parte. Lo resuelto deberá notificarse a los concursantes.
+En el concurso cerrado se invitará directamente al menos a tres oferentes.
+Cualquier acto que se realice dentro del procedimiento de contratación deberá constar en el expediente su respectiva motivación.

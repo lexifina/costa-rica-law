@@ -1,0 +1,2 @@
+Artículo 20. Expediente: Toda adquisición o contratación que se lleve a cabo por parte del Colegio, deberá quedar debidamente documentada en el expediente digital, con las firmas de las personas responsables de la adquisición o contratación y el recibido por parte de la proveeduría.
+El Encargado de Proveeduría será responsable de llevar los controles de requisiciones y existencias, así como los documentos y registros propios del proceso de ingreso y distribución de los bienes y servicios y seguimiento de contrato.

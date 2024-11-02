@@ -14,3 +14,4 @@ Reglamento de compras y adquisiciones del Colegio de Profesionales en Ciencias E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-10 | la propia norma |
+| 2 | 2024-11-02 | Reglamento 118 (2024-11-02) |
