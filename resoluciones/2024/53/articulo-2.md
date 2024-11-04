@@ -1,0 +1,1 @@
+Artículo 2º-Forma de pago de la prima: El deudor podrá hacer el pago de la prima a través los medios autorizados por el Departamento de Cobro Judicial de la División de Adeudos Estatales de la Dirección General de Hacienda.
