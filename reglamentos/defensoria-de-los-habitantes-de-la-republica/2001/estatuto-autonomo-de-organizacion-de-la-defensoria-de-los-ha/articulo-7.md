@@ -1,4 +1,4 @@
-Artículo 7º—Organización y funciones del Despacho.
+Artículo 7º-Organización y funciones del Despacho.
 El Despacho estará conformado por el Defensor (a) de los Habitantes y el Defensor (a) Adjunto (a), un Director (a) de Despacho, así como por el personal de confianza, profesional y de apoyo, asignado a éstos y que se requiera para desempeñar sus funciones. Asimismo, se considera parte del Despacho el Departamento de Comunicación Institucional.
 1. El personal del Despacho tendrá las siguientes responsabilidades:
 a) Facilitar el planeamiento y colaborar en el control de la gestión institucional.
@@ -13,11 +13,5 @@ i) Ordenar, previa autorización del Defensor (a) de los Habitantes, la apertura
 j) Representar al Defensor (a) de los Habitantes en el Consejo Directivo del Programa Estado de la Nación.
 k) Realizar todas aquellas otras funciones que le indique el/ la Defensor (a) de los Habitantes o que se desarrolle en la normativa interna de la institución.
 El Despacho también será responsable de emitir las líneas estratégicas de trabajo, dirección y coordinación que deberán articularse a lo interno de la institución para que el personal técnico, profesional y de apoyo asignado al Mecanismo Nacional de Supervisión de la Convención Sobre los Derechos de las Personas con Discapacidad, desarrolle adecuadamente las funciones y competencias que corresponden a éste.
-2. Del Proceso de Atención y Contraloría de los Habitantes para el Control Participativo de la Gestión de los Servicios que presta la Defensoría, que se ubicarán bajo la responsabilidad administrativa del Defensor/a Adjunto/a. Este proceso tendrá las siguientes funciones:
-a. Evaluar la calidad y oportunidad con que se brindan los servicios en la institución, velando siempre por que respeten los derechos de los usuarios.
-b. Establecer instrumentos de información y procedimientos accesibles a los usuarios para formular quejas o sugerencias.
-c. Elaborar estudios que permitan consultar en forma regular y sistemática, la opinión de los usuarios acerca de los servicios que presta la institución.
-d. Elaborar una Guía de Servicios a los Usuarios y velar por que se establezcan sistemas permanentes de información sobre los servicios que se prestan.
-e. Establecer un sistema de control, seguimiento, resolución y respuesta oportuna de las quejas presentadas por los usuarios.
-f. Elaborar propuestas para que se adopten políticas, normas y procedimientos en procura de una prestación de servicios oportuna y eficaz.
+2. (Suprimido mediante acuerdo N° DH-A-2758-2024 del 4 de noviembre del 2024)
 (Así reformado mediante acuerdo N° 00002285 del 23 de abril del 2020)

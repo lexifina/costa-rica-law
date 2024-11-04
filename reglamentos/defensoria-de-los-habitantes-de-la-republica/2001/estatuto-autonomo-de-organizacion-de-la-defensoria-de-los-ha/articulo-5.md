@@ -15,7 +15,7 @@ vi) Unidad Médica y Salud Ocupacional
 Finalmente, estará completado por un/a profesional de defensa tres o un/a profesional de promoción y divulgación, las siguientes unidades.
 vii) Unidad de Asuntos Internacionales
 viii) Unidad de Asuntos Legislativos
-ix) Unidad de Atención de Quejas y Consultas de Habitantes
+ix) (Suprimido mediante acuerdo N° DH-A-2758-2024 del 4 de noviembre del 2024)
 x) Unidad de Mecanismo Nacional de Supervisión de la Convención sobre los Derechos de las Personas con Discapacidad por el Estado de Costa Rica
 b) Consejo de las Personas Habitantes y de las Personas Funcionarias
 c) Auditoría Interna
