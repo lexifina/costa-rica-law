@@ -1,2 +1,0 @@
-Artículo 12
-El nombramiento a plazo indefinido del auditor interno, está sujeto al período de prueba que regule la normativa interna de la institución, que en lo relativo a estos efectos, debe ser congruente con la aplicable a otros funcionarios dependientes directamente de la Junta Directiva de la sociedad, a su vez se debe cumplir con lo establecido en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.

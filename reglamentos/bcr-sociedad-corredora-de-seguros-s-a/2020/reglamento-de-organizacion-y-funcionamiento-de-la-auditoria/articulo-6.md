@@ -1,4 +1,0 @@
-Artículo 6
-En complemento del artículo anterior y con el objetivo de cumplir con lo indicado en la norma 102, punto 02 de las Normas generales de auditoría para el sector público, las personas trabajadoras de la auditoría interna, deben informar en forma oportuna y por escrito, cuando existan factores que puedan comprometer su independencia y objetividad, o exista algún tipo de conflicto de intereses.
-En el caso del auditor interno, debe informar lo correspondiente a la Junta Directiva dela sociedad, las demás personas trabajadoras de la auditoría interna deben comunicarlo al auditor interno.
-La Junta Directiva de la sociedad o el auditor interno, según corresponda, evaluarán la situación y definirán las medidas correspondientes, en tanto esto ocurra, la persona se abstendrá de entrar a conocer la situación relacionada.

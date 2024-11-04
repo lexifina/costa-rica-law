@@ -1,2 +1,0 @@
-Artículo 2
-La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán su accionar y velar por su actualización periódica. La misión y visión son parte del plan estratégico de la Auditoría Interna que está incorporado en el Manual de la Auditoría Interna de BCR Corredora de Seguros S.A., ubicado en la herramienta de gestión documental de la Auditoría.

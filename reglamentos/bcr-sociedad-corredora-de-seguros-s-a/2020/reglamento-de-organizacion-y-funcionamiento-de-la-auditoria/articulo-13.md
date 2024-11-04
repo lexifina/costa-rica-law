@@ -1,2 +1,0 @@
-Artículo 13
-Las regulaciones de la institución, deben establecer los criterios aplicables en caso de ausencia temporal del auditor interno, indicando cuando se amerita el nombramiento de un funcionario interino en la plaza respectiva, todo lo anterior de conformidad con lo dispuesto en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la Contraloría General de la República.
