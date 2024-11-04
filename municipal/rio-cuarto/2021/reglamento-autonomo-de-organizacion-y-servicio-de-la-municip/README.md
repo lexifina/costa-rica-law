@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Río Cua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-19 | la propia norma |
+| 2 | 2024-11-04 | Reglamento municipal 31 (2024-11-04) |

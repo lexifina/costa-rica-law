@@ -13,7 +13,8 @@ k. Concurso: Procedimiento que efectúa la Municipalidad con la finalidad de lle
 l. INS: Instituto Nacional de Seguros.
 m. Patrono: La Municipalidad de Río Cuarto, en su condición de empleador de los servicios de los trabajadores.
 n. Personal: Conjunto de las personas físicas que prestan sus servicios a la Municipalidad, a nombre o por cuenta de ésta, como parte de su organización, en virtud de acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o transitorio de la actividad respectiva. Para efecto de este reglamento son equivalentes los términos "funcionariado público", "servidor público", "empleado municipal", "persona trabajadora" y "persona funcionaria".
-o. Personal en interinato suplente: Personas funcionarias designadas para cubrir las ausencias temporales de las personas nombradas en propiedad, por motivo de vacaciones, incapacidades, permisos con o sin goce de salario y otras causas. Dichos nombramientos no podrán ser menores de treinta días naturales.
+o) Personal en interinato suplente: Personal designado para cubrir las ausencias temporales de las personas funcionarias, por motivo de vacaciones, incapacidades, permisos con o sin goce de salario y otras causas.
+(Así reformado el inciso anterior en sesión N° 031 del 4 de noviembre de 2024)
 p. Personal interino en plaza vacante: El nombrado para ocupar una plaza vacante, mientras se resuelven los concursos internos o externos para la selección del personal correspondiente.
 q. Puesto: Conjunto de deberes, responsabilidades y requisitos asignados a una persona trabajadora, que deben ser atendidas durante la jornada de trabajo.
 r. Reasignación: Cambio que se efectúa en la clasificación de un puesto cuando han variado sustancial y permanentemente en sus tareas.
