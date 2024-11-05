@@ -1,1 +1,0 @@
-Artículo 19.—Los artículos 5°, 7°, 8°, 9°, 10, 11 y 12 de este Reglamento son plenamente aplicables a los funcionarios municipales cuando estén en casos similares a los referidos para los regidores o síndicos.

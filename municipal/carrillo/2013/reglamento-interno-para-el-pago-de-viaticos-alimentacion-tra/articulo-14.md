@@ -1,1 +1,0 @@
-Artículo 14.—Para dar cumplimiento en lo establecido en este reglamento de Administración deberá incluir en el presupuesto ordinario del año siguiente la partida correspondiente de conformidad con las tarifas de ARESEP y la Contraloría General de la República.
