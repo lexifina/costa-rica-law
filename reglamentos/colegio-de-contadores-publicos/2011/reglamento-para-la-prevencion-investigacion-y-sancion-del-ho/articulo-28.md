@@ -1,1 +1,2 @@
-Artículo 28.—De las garantías y derechos de la persona denunciante y los testigos: Tanto la persona denunciante de acoso u hostigamiento sexual como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley Nº 7476 del 3 de febrero de1995, en relación con su empleo y condiciones generales de trabajo.
+ARTÍCULO 28. DE LAS GARANTÍAS Y DERECHOS DE LA PERSONA DENUNCIANTE Y LOS TESTIGOS:
+Tanto la persona denunciante de acoso u hostigamiento sexual como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley N° 7476 del 3 de febrero de1995 y sus reformas, en relación con su empleo y condiciones generales de trabajo.

@@ -1,5 +1,5 @@
-Artículo 2º—Definiciones:
-1) Hostigamiento Sexual: Para los efectos del presente reglamento y de acuerdo al artículo 3 de la Ley 7476 y Ley 8805 contra el Hostigamiento Sexual en el Empleo y la Docencia, se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales a la persona que la sufre.
-2) Víctima: es la persona que sufre el hostigamiento, y que pueden ser: funcionarios al servicio del Colegio de Contadores Públicos de Costa Rica, toda persona de contratación externa al servicio del Colegio, y los integrantes de las diferentes Comisiones de trabajo u otro tipo de Órgano.
+ARTICULO 2. DEFINICIONES:
+1) Hostigamiento Sexual: Para los efectos del presente reglamento y de acuerdo al artículo 3 de la Ley 7476 y Ley 8805 contra el Hostigamiento Sexual en el Empleo y la docencia, se entiende por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales a la persona que la sufre.
+2) Víctima: es la persona que sufre el hostigamiento, y que pueden ser: miembro de la Junta Directiva, miembros de comisiones de cualquier tipo, funcionarios y proveedores del Colegio de Contadores Públicos de Costa Rica.
 3) Denunciada: La persona a quien se le atribuye la supuesta conducta de hostigamiento sexual.
-4) Órgano Director: a) En primer término, es la Comisión Investigadora integrada por tres funcionarios del Colegio designados en el presente reglamento, o en su defecto la Comisión que la Junta Directiva designe, encargados de recibir y tramitar las denuncias por hostigamiento sexual.
+4) Órgano Director: a) En primer término, es la Comisión Investigadora integrada por tres funcionarios del Colegio de Contadores Públicos de Costa Rica designados en el presente reglamento, o en su defecto la Comisión que la Junta Directiva designe, encargados de recibir y tramitar las denuncias por hostigamiento sexual.

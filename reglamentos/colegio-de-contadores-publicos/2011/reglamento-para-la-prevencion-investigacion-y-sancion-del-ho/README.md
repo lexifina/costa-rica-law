@@ -14,3 +14,4 @@ Reglamento para la Prevención, Investigación y Sanción del Hostigamiento Sexu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-13 | la propia norma |
+| 2 | 2024-11-05 | Reglamento 11 (2024-11-05) |

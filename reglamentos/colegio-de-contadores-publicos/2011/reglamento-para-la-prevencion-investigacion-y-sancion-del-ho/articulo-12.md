@@ -1,9 +1,12 @@
-Artículo 12.—Contenido de la denuncia: La denuncia, verbal o escrita, deberá contener como mínimo la siguiente información:
+ARTICULO 12. CONTENIDO DE LA DENUNCIA:
+La denuncia la cual tendrá valor de declaración, verbal o escrita, deberá contener como mínimo la siguiente información:
 a) Nombre del o la denunciante, número de cédula y puesto que ocupa.
 b) Nombre de la o el denunciado (a) y lugar de trabajo, puesto que ocupa si lo supiere.
 c) Indicación de las manifestaciones de acoso u hostigamiento sexual que afectan a la persona denunciante.
 d) Fecha aproximada a partir de la cual ha sido sujeto del acoso u hostigamiento sexual.
 e) Firma de la persona denunciante.
-Si la denuncia fuere verbal, un encargado de la Fiscalía, la Dirección Ejecutiva o la encargada de la secretaria de la Junta Directiva, según sea la persona denunciada, levantará el acta respectiva conteniendo la información antes detallada.
-Dicha acta deberá ser suscrita por el denunciante así como por el funcionario que recibe la denuncia.
-Si la denuncia fuere interpuesta por un tercero, el funcionario encargado de recibir la denuncia emplazará a la víctima para que confirme la denuncia y ofrezca prueba, caso contrario se archivará a excepción de que, los hechos sean evidentes y públicos, en cuyo caso se continuará de oficio por parte de los funcionarios encargados de dar trámite a la denuncia.
+Si la denuncia fuere verbal, El Jefe del Departamento de Fiscalía, el Encargado de Recursos Humanos o la Dirección Ejecutiva, según sea la persona denunciada, levantará el acta respectiva conteniendo la información antes detallada.
+Dicha acta deberá ser suscrita por el denunciante, así como por el funcionario que recibe la denuncia. Si la denuncia fuere interpuesta por un tercero, el funcionario encargado de recibir la denuncia emplazará a la víctima para que confirme la denuncia y ofrezca prueba, caso contrario se archivará a excepción de que, los hechos sean evidentes y públicos, en cuyo caso se continuará de oficio por parte de los funcionarios encargados de dar trámite a la denuncia.
+Una vez recibida la denuncia, se conformará en forma inmediata el expediente en formato físico, sin perjuicio de que se firmen documentos en formato digital, en cuyo caso los originales se conservarán en una carpeta digital formando parte del expediente y el cual se llevará debidamente foliado, en forma cronológica, conteniendo la denuncia, la prueba documental aportada, y todo documento relacionado con el procedimiento que aporten las partes o haga llegar el órgano investigador. Dicho expediente deberá ser debidamente custodiado dentro de las oficinas del Colegio de Contadores Públicos de Costa Rica, en estricta confidencialidad por el miembro que dirige la Comisión Investigadora, sin perjuicio de que el resto de los miembros de la Comisión puedan consultarlo. Tendrán acceso también las partes y los abogados de las partes.
+La Junta Directiva tendrá acceso al expediente para disponer la resolución final.
+Los audios y videos de la audiencia de evacuación de prueba forman parte del expediente administrativo y se resguardaran en formato digital no será necesario su transcripción y las partes tendrán en todo momento a los mismos y obtener copia.
