@@ -11,4 +11,6 @@ Artículo 28 bis- Exenciones. Están exentos del impuesto, conforme a las regula
 10. Las herencias, los legados y las donaciones respecto de sus perceptores y del donante.
 11. Las inversiones provenientes del fideicomiso sin fines de lucro, creado mediante el artículo 6 de la Ley N.° 7044, Ley de Creación de la Escuela de Agricultura de la Región Tropical Húmeda, de 29 de setiembre de 1986.
 12. Las rentas y las ganancias de capital obtenidas por la Caja Costarricense de Seguro Social (CCSS).
+13- Las rentas y las ganancias de capital obtenidas por los fideicomisos constituidos para el desarrollo de obra pública.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley de Tratamiento fiscal a los fideicomisos de obra pública, N° 10600 del 5 de noviembre del 2024)
 (Así adicionado por el título II aparte 14) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
