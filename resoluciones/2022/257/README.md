@@ -21,3 +21,4 @@ Información básica de las entidades reguladas y supervisadas por la Superinten
 | 6 | 2023-07-04 | Acuerdo 279 (2023-07-04) |
 | 7 | 2023-09-07 | Acuerdo 282 (2023-09-07) |
 | 8 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
+| 9 | 2024-11-05 | Acuerdo 6 (2024-11-05) |

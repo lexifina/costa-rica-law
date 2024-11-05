@@ -1,25 +1,15 @@
-Artículo 5°-Puestos e instancias de control que deben ser revelados. Las entidades reguladas y supervisadas por la Superintendencia deben informar en los casos que corresponda, los requisitos que establezca la normativa acerca del nombramiento (permanente o temporal) así como cuando se deje de ocupar el cargo en la entidad o cese su designación, de los puestos o instancias de control indicados a continuación:
-a. Órgano de dirección. (Cuando corresponda incluir "Otro miembro" se debe digitar el nombre del rol por ejemplo: vocal, directivo, etc.).
-b. Alta gerencia. (En el caso de los Gerentes a.i. estos deberán ingresarse al sistema en caso de renuncia o destitución del gerente general o sustitución temporal).
-c. Cumplimiento de la Ley 8204 Oficial de cumplimiento titular y oficial de cumplimiento adjunto (de la empresa y corporativo), Ley 8204.
-d. Auditoría interna. Aplica al Auditor interno de la empresa y corporativo, Sub auditor interno, Auditor Interno outsourcing y el Socio de Auditoria.
-e. Gestor de portafolio (titulares y suplentes).
-f. Estructura de capital. Aplica a la persona física accionista indicada en el artículo 35 de la Ley Reguladora del Mercado de Valores.
-g. Órgano fiscalizador (fiscal).
-h. Comité de cumplimiento.
-i. Comité de auditoría.
-j. Comité de riesgos. (si una persona posee varios cargos dentro de la estructura de manejo de riesgos de la entidad, sus datos deben ingresarse en cada rol).
-k. Comité de nominaciones.
-l. Comité de remuneraciones.
-m. Unidad de riesgos.
-n. Comité de TI.
-o. Contable y financiero (Responsable, Contador, Contador suplente, Contador Responsable outsourcing).
-p. Dirección de riesgos.
-q. Tecnologías de información (Responsable corporativo, del perfil tecnológico, suplente del perfil tecnológico).
-r. Puestos externos (Auditor externo, Auditor externo de TI).
-s. Cumplimiento legal y regulatorio (Responsable).
-t. Comité de inversiones (no aplica para Puestos de Bolsa).
-u. Punto central de contacto.
-v. Firmador de hechos relevantes.
-w. Otros roles.
-Para evitar duplicidades, en el caso de las entidades supervisadas por la Superintendencia de Entidades Financieras (SUGEF) que ya ingresan información de Roles en Sugef Directo, solo deben ingresar en Roles de Sugeval directo información adicional al rol aplicable, de acuerdo a la actividad regulada por Sugeval.
+Artículo 5. Puestos e instancias de control que deben ser revelados. Las entidades reguladas y supervisadas por la Superintendencia deben informar en los casos que corresponda, los requisitos que establezca la normativa acerca del nombramiento (permanente o temporal) así como cuando se deje de ocupar el cargo en la entidad o cese su designación, de los puestos o instancias de control indicados en el Anexo 1 a este acuerdo.
+Para evitar duplicidades, en el caso de las entidades supervisadas por la Superintendencia de Entidades Financieras (SUGEF) que ya ingresan información de Roles en Sugef Directo, solo deben ingresar en Roles de Sugeval directo información adicional al rol aplicable, de acuerdo a la actividad regulada por Sugeval".
+Se adiciona dentro del rol de Puestos externos el de Auditor LAFT y Auditor externo alternativo.
+Se adiciona dentro del rol Otros Roles los siguientes:
+. Firmador de información periódica.
+. Firmador de mensajería de documentos.
+. Firmador de trámites.
+. Firmador de hechos relevantes.
+Se adiciona dentro del rol Cumplimiento legal y regulatorio el rol Contacto sistema de supervisión.
+Se adiciona dentro del rol Comité de Inversiones el rol Representante de los inversionistas.
+Se modifica el nombre de los siguientes roles que se agrupan en Gestor de Portafolio, para que se lea de la siguiente manera: Gestor de cartera privada por "Gestor de cartera de oferta privada titular" y Gestor de cartera de oferta pública por "Gestor de cartera de oferta pública titular".
+Se adicionan dentro del rol Gestor de Portafolio los roles de "Gestor de cartera de oferta privada suplente" y "Gestor de cartera de oferta pública suplente".
+Se elimina como rol Aprobador de Roles.
+[imagen]
+(Así reformado por el artículo 21° del acuerdo N° SGV-A-6-2024 del 5 de noviembre de 2024)
