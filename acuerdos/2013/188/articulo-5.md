@@ -1,6 +1,2 @@
-Artículo 5º—Usuarios con Acceso al MENDOCEL.
-Todos los usuarios que accedan al Sistema para depositar o consultar documentos deben contar con sus respectivos certificados digitales, emitidos por el Sistema Nacional de Certificación Digital (SNCD) para ingreso (autenticación) a la plataforma del MENDOCEL.
-Los usuarios autorizados podrán consultar documentos, públicos (3) o confidenciales, de acuerdo con un registro diferenciado para cada uno de estos tipos de información. Estos dos roles pueden ser asignados a una misma persona si el regulado así lo solicita.
-Los funcionarios de cada entidad regulada, que en el contexto del Módulo de Administración de Privilegios del Sistema Ingresador (MAPSI (4)), desempeñan el rol de Administradores del Sistema deben registrar en esta aplicación a los usuarios que requieren acceso al MENDOCEL, tanto para documentos públicos como confidenciales.
-(3) Interprétese documentos públicos como aquellos visibles para todos los usuarios de la plataforma en la Entidad. Los confidenciales se restringirán al grupo de usuarios que así se registre en el Módulo de Administración de Privilegios del Sistema Ingresador MAPSI.
-(4) Disponible en internet: https://mapsi.sugeval.fi.cr/mapsi/
+Artículo 5. Usuarios con Acceso al MENDOCEL. Todos los usuarios que accedan al Sistema para depositar o consultar documentos deben estar debidamente registrados en el Sistema de Registro y Actualización de Roles.
+(Así reformado por el artículo 1° del acuerdo N° SGV-A-6-2024 del 5 de noviembre de 2024)

@@ -1,4 +1,2 @@
-Artículo 7º—Representación Legal.
-Los documentos que sean firmados por funcionarios que no cuenten con representación legal del regulado o que no se encuentren autorizados en el MAPSI, serán rechazados a su ingreso en el Sistema. Los regulados podrán registrar más de un funcionario que cuente con la debida representación legal del regulado para firmar digitalmente documentos.
-De manera semejante a lo estipulado en el Sistema Ingresador de Información Periódica, si los firmantes de los documentos que se envíen por el MENDOCEL no cuentan con la representación legal del regulado, se deberá enviar a SUGEVAL el poder legal correspondiente que lo acredite para realizar esta labor. SUGEVAL lo validará y aprobará de la misma manera que se realiza actualmente en el marco del Sistema Ingresador. El contenido de este poder legal debe ser como mínimo el indicado en el anexo 1.
-Si el firmante ya cuenta con representación legal, bastará con registrarlo en el MAPSI.
+Artículo 7. Representación Legal. Los documentos que sean firmados por funcionarios que no estén debidamente registrados en el en el Sistema de Registro y Actualización de Roles, serán rechazados a su ingreso en el Sistema.
+(Así reformado por el artículo 1° del acuerdo N° SGV-A-6-2024 del 5 de noviembre de 2024)
