@@ -11,4 +11,6 @@ Las restantes contrataciones se regirán por lo previsto en la presente ley.
 h) La adquisición de combustible.
 i) Las contrataciones que realice la Oficina de Atención a la Víctima del Delito del Ministerio Público, al amparo de lo establecido en la Ley 8720, Ley de Protección a Víctimas, Testigos y demás Sujetos Intervinientes en el Proceso Penal, Reformas y Adición al Código Procesal Penal y al Código Penal, de 4 de marzo de 2009.
 (Así adicionado el inciso anterior por el artículo único de la Ley Protección de datos sensibles de víctimas y testigos, N° 10466 del 6 de mayo del 2024)
+j) La actividad contractual de los sujetos beneficiarios de los incisos c) y d) del artículo 15 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008.")
+(Así adicionado el inciso anterior por el artículo 20 de la ley Dinamización del Sistema de Banca para el Desarrollo, N° 10522 del 5 de noviembre del 2024)
 (Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 022483 del 7 de agosto de 2024, se declaró que el presente artículo es inconstitucional en cuanto a su aplicación al Instituto Costarricense de Electricidad.)
