@@ -1,0 +1,3 @@
+Artículo 5º-Los Concejos de Distrito, con apoyo de la administración municipal, serán los responsables de recibir las solicitudes de becas.
+El Departamento de Desarrollo Humano será el responsable de realizar los estudios socioeconómicos de las nuevas solicitudes de becas, así como de los beneficiarios activos que el concejo de Distrito o la Administración estime necesario revisar.
+Los Concejos de Distrito bajo posibilidad de horario, darán soporte al Departamento de Desarrollo Humano, así mismo podrán solicitar al Departamento de Desarrollo Humano la realización de visitas de campo a los domicilios de las personas beneficiarias, según la disponibilidad de recursos.

@@ -1,0 +1,2 @@
+Artículo 4º-Los Concejos de Distrito, con el apoyo técnico en la promoción y divulgación por parte de la administración, serán los encargados de promocionar en forma abierta el programa de becas municipales.
+La unidad de comunicación de la Municipalidad se encargará de divulgar el proceso de asignación durante el mes de octubre de cada año, para informar a la comunidad sobre las fechas, requisitos y procedimientos para solicitar una beca estudiantil.

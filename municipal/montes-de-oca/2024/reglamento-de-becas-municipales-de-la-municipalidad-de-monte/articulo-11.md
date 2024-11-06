@@ -1,0 +1,1 @@
+Artículo 11.-El fondo acumulado por concepto de becas no retiradas de cada distrito, quedará disponible para que Desarrollo Humano lo asigne según lista de espera y comunicándolo al Concejo de Distrito respectivo.

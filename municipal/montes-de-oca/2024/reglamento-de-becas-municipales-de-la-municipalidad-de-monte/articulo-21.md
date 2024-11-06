@@ -1,0 +1,1 @@
+Artículo 21.-Las dudas o interpretaciones que puedan derivarse de la aplicación o contenido de este reglamento serán atendidas y resueltas de manera definitiva por el Concejo Municipal, será competente para brindar aclaraciones y tomar decisiones en relación con las disposiciones aquí establecidas.

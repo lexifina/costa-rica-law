@@ -1,0 +1,3 @@
+Artículo 23.-Vigencia. Este reglamento rige a partir de su publicación cumpliendo el procedimiento del artículo número 43 del Código Municipal.
+Con base en el artículo 43 del Código Municipal, párrafo segundo, publíquese por primera vez en el Diario Oficial La Gaceta, sometiéndose la normativa de cita "a consulta pública no vinculante, por un plazo mínimo de diez días hábiles posterior a su publicación", posiciones que podrán hacer llegar al correo oficial del Concejo: msalasv@montesdeoca. go.cr.
+Acuerdo definitivamente aprobado por el Concejo Municipal de Montes de Oca, en la sesión ordinaria nro. 22/2024, articulo N° 4, punto único, del día 30 de setiembre del 2024.

@@ -1,0 +1,1 @@
+Artículo 17.-La Municipalidad será la encargada de archivar y resguardar los expedientes y formularios existentes, los cuales estarán a disposición de los Concejos de Distrito para su consulta y actualización. Los expedientes y archivos con más de 5 años de antigüedad podrán ser eliminados por la Municipalidad.
