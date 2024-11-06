@@ -1,0 +1,9 @@
+Artículo 4º-Patrimonio y financiamiento. Los recursos económicos del DEVOAS se establecen a partir de las siguientes fuentes:
+i. Las partidas ya existentes en el DEVOAS.
+ii. Los aportes mensuales que todos sus miembros deberán cancelar, conforme a la suma establecida anualmente por la Asamblea General.
+Los aportes serán depositados por la administración del Colegio, a más tardar el último día hábil del mes siguiente de la recaudación. El Colegio retendrá el costo directo en el que incurra por concepto de la administración operativa del fondo y, el que constará en la factura interna que posteriormente remita a la Comisión.
+iii. Las partidas presupuestarias adicionales a los aportes de previo autorizados por la Asamblea que en su caso designe el Colegio para fortalecer el DEVOAS.
+iv. El rendimiento de las inversiones que se realicen con los recursos del DEVOAS.
+v. Donaciones que reciba y aportes extraordinarios de sus miembros.
+vi. Los intereses por préstamos otorgados al Colegio, únicamente para el desarrollo de infraestructura física, aprobados por la Asamblea General. En este caso se establecerá una tasa de interés ajustable, no menor a la establecida por el Banco Nacional de Costa Rica para los títulos a seis meses plazo en colones; y el monto total del crédito no deberá por ninguna circunstancia superar el 5% del capital acumulado del DEVOAS en el momento de la solicitud de crédito, según los registros contables. Su cancelación total no podrá exceder los 5 años, comprometiéndose al Colegio a incorporar en los préstamos ordinarios y extraordinarios las sumas correspondientes al pago de intereses y amortizaciones.
+Los recursos citados se destinarán exclusivamente al mantenimiento de su operación y otorgamiento de los auxilios económicos que defina la Asamblea General, y en ningún caso generarán lucro ni repartición de ganancias entre sus miembros o a favor del Colegio.

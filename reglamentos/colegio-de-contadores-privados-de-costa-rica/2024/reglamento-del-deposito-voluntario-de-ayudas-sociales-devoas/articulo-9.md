@@ -1,0 +1,1 @@
+Artículo 9.-Revisión del auxilio económico. El monto máximo del auxilio se revisará anualmente por acuerdo de la Asamblea General, pudiendo ser modificado en un menor plazo por disposición de la misma.

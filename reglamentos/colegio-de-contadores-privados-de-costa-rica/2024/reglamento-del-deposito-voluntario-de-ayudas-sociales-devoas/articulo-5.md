@@ -1,0 +1,1 @@
+Artículo 5º-Separación de otros fondos. Los recursos del DEVOAS deberán administrarse en cuentas separadas de cualquier otro Fondo existente o que se establezca en el futuro, y de acuerdo con las Normas Internacionales de Información Financiera aplicables.

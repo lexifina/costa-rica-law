@@ -1,0 +1,3 @@
+Artículo 11.-Análisis de la solicitud y plazo de respuesta. La Comisión Administradora procederá a analizar tanto la procedencia del auxilio económico como la suma a cancelar, y recomendará a la Junta Directiva su aceptación o rechazo en un plazo máximo de 30 días naturales, contados a partir de la presentación de todos los requisitos indicados en el artículo anterior.
+Las resoluciones tomadas sólo tienen recurso de reconsideración ante la misma la Junta Directiva.
+Una vez que se haya tomado una decisión favorable por parte de la Junta Directiva se procederá al pago del auxilio económico mediante transferencia bancaria en un plazo máximo de 5 días hábiles, contados a partir de la fecha de aprobación de la Junta Directiva de la realización del pago.

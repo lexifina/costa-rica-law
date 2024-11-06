@@ -1,0 +1,2 @@
+Artículo 6º-Miembros del DEVOAS. Pertenecerán al DEVOAS, con sus derechos, obligaciones y beneficios que se otorgarán en este Reglamento, todos los miembros inscritos del Colegio que soliciten su afiliación y que se encuentren al día en el pago de sus obligaciones con el Colegio.
+Para renunciar al DEVOAS, bastará solamente que el miembro lo manifieste en una carta dirigida a la Comisión Administradora.

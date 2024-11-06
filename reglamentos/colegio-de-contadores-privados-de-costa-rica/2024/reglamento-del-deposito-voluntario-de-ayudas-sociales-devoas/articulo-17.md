@@ -1,0 +1,2 @@
+Artículo 17.-Auditoría interna y externa. Dentro del alcance de la Auditoría Externa anual que realiza el Colegio, se incluirá los estados financieros del DEVOAS, a fin de obtener un informe independiente sobre su funcionamiento, el cual deberá ser de conocimiento de la Asamblea General.
+Asimismo, para efectos de un control más continuo sobre las operaciones del Fondo se sugiere que la Auditoría Interna considere dentro de su plan anual al DEVOAS.
