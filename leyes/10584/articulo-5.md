@@ -1,0 +1,5 @@
+ARTÍCULO 5- El Ministerio de Obras Públicas y Transportes (MOPT) estará facultado para sustituir, modificar o incluir proyectos ante la existencia de remanentes de recursos, mediante resolución fundada que contenga criterio técnico, científico y la justificación de al menos una de las siguientes causales:
+a) La necesidad de un proyecto previamente considerado perdió interés debido a que fue resuelta por otros procedimientos propios de la Administración.
+b) El resultado de los estudios técnicos previos determine que el proyecto es técnicamente inviable o improcedente debido a su costo desmensurado.
+c) Existencia de remanentes de recursos derivada de una eficiente ejecución.
+La persona que ocupe el cargo de ministro de Obras Públicas y Transportes (MOPT) tendrá la obligación de remitir a la Comisión Permanente Ordinaria de Asuntos Hacendarios, con copia a la Contraloría General de la República, la resolución que incluya nuevos proyectos para los eventuales procesos de fiscalización que correspondan, en un plazo de tres días hábiles luego de su publicación en el diario oficial.
