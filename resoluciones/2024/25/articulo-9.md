@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Solicitudes de Información y Asistencia ante la Administración Tributaria.
+Cuando los Operadores de Plataformas Digitales Informantes requieran información y asistencia en el cumplimiento de las obligaciones de la presente Resolución y sus alcances por parte de la Administración Tributaria, deberán enviar su solicitud a la dirección electrónica: Info-DPI@hacienda.go.cr para su debida atención.

@@ -1,0 +1,2 @@
+Artículo 12.- Confidencialidad de la Información.
+Toda la información recabada por parte de los Operadores de Plataformas Digitales Informantes será manejada de manera confidencial, conforme a lo regulado en el artículo 117 del Código de Normas y Procedimientos Tributarios, Ley N°4755 del 3 de mayo de 1971, y lo establecido en el artículo 22 de la Convención sobre asistencia administrativa mutua en materia fiscal, aprobada mediante la Ley N°9118 del día siete de febrero del dos mil trece.

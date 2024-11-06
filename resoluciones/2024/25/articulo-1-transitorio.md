@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO:
+Los Operadores de Plataformas Digitales Informantes sujetos a comunicar información, deberán implementar las normas y procedimientos de debida diligencia a partir de 1 de enero de 2025 y el primer reporte de la obligación de información de determinadas actividades por los operadores de plataformas se deberá presentar a más tardar al 30 de abril del año 2026. El mismo plazo se observará para la recepción de la información reportada por Operadores de Plataformas Digitales residentes en el extranjero.
