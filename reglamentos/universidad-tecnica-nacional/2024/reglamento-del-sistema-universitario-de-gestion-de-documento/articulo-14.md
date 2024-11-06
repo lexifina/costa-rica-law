@@ -1,0 +1,2 @@
+Artículo 14. Responsabilidad administrativa. Las autoridades y las personas funcionarias universitarias pueden incurrir en responsabilidad administrativa, cuando debiliten con sus acciones la gestión de documentos u omitan las actuaciones necesarias para establecerla, mantenerla, perfeccionarla y evaluarla, según la normativa técnica aplicable.
+En caso de tratarse de actos u omisiones de órganos colegiados, la responsabilidad debe ser atribuida a todas las personas integrantes, salvo que conste, de manera expresa, el voto negativo.

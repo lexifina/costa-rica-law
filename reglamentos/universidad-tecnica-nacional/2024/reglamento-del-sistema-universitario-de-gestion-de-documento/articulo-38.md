@@ -1,0 +1,1 @@
+Artículo 38. Medios para la difusión. La Universidad cuenta con un programa de actividades de difusión de carácter educativo y cultural, sobre los documentos que custodia, para lo que se establece cooperación con archivistas de otras instituciones, o alianzas estratégicas para este fin.

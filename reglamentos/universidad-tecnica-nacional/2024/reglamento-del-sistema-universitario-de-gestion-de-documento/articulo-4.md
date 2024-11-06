@@ -1,0 +1,2 @@
+Artículo 4. Archivo Institucional. El Archivo Institucional es la rectoría técnica y asesora del Sistema Universitario de Gestión de Documentos, centraliza, organiza, conserva y custodia el acervo documental, generado por la universidad que han finalizado con su trámite administrativo o de gestión.
+Está adscrito a la Dirección General de Administración Universitaria y vela por la aplicación del presente reglamento.

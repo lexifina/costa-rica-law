@@ -1,0 +1,3 @@
+Artículo 43. Eliminación de documentos. En el proceso de eliminación de documentos, los encargados deben velar porque los documentos se transformen en material no legible, utilizando las técnicas de eliminación acordes con sanas prácticas ambientales.
+La eliminación es una operación que se realiza con los documentos que no son necesarios para la Administración y que no se van a conservar permanentemente en el archivo final.
+El proceso de conservación o eliminación de documentos de la Universidad es regulado internamente por el Archivo Institucional; una vez aprobada la Tabla de Plazos de Conservación de Documentos, de cada oficina, se puede eliminar los tipos documentales autorizados.

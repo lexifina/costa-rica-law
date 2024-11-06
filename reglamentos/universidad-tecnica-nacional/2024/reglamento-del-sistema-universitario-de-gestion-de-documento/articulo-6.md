@@ -1,0 +1,4 @@
+Artículo 6. Áreas de gestión del Archivo Institucional. El Archivo Institucional cuenta con las siguientes áreas de gestión:
+a. Archivos Periféricos: tiene como finalidad asesorar, colaborar y corroborar la ejecución de la normativa interna dentro de los depósitos institucionales, para la solución de problemas que se presenten en los archivos (de gestión, periféricos y especializados) de la sede que corresponda.
+b. Producción Documental: realiza el análisis de la normativa nacional e internacional, interna o externa, elaboración de diagnósticos, creación de archivos especializados y creación de normativa interna, con el fin de regular la producción de documentos en cualquier soporte a nivel institucional.
+c. Tratamiento Archivístico: encargada de la revisión, recepción y disposición de los documentos que ingresan al depósito y repositorio institucional.

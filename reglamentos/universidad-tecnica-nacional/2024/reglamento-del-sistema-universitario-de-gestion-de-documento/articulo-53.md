@@ -1,0 +1,2 @@
+Artículo 53. Vigencia. Rige a partir de su publicación y deroga lo establecido anteriormente en la misma materia, que se le oponga.
+Aprobado mediante Acuerdo 22 tomado por el Consejo Universitario en la Sesión Ordinaria No. 19-2024, celebrada el jueves 13 de junio de 2024, a las ocho horas con treinta minutos, según el Artículo 25 del Capítulo IX. Comisión de Reglamentos Internos, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024

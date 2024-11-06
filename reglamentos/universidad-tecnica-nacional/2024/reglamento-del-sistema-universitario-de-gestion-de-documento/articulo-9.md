@@ -1,0 +1,1 @@
+Artículo 9. Archivos de Gestión. Son las oficinas o unidades técnicas y administrativas de la Universidad. La máxima autoridad de cada unidad administrativa designa a la persona responsable de administrar el Archivo de Gestión y debe comunicarlo al Archivo Institucional dentro de los ocho días hábiles siguientes a la designación.

@@ -1,0 +1,2 @@
+Artículo 36. Período establecido para el préstamo de los documentos. El tiempo que se establece para el préstamo de documentos a las oficinas será de diez días naturales. Una vez cumplido este período debe renovarse el préstamo por un período igual, si esto no sucede la persona archivista está en la obligación de solicitarlos a la jefatura de la oficina.
+La Auditoría Universitaria y la Dirección General de Asuntos Jurídicos tendrán un plazo de préstamo por treinta días naturales, prorrogable a un período igual, una vez solicitada la respectiva renovación.

@@ -1,0 +1,2 @@
+Artículo 26. Requisitos de transferencias. La transferencia debe hacerse con los documentos clasificados, ordenados, en perfecto estado de limpieza y acompañada con su lista de remisión en los soportes que indique el archivo receptor.
+El personal que recibe la transferencia debe confrontar los documentos con las copias de la lista de remisión y el plazo es de diez días hábiles contados a partir del día siguiente de confrontados los documentos, debe reportar los faltantes o cualquier otra anomalía.

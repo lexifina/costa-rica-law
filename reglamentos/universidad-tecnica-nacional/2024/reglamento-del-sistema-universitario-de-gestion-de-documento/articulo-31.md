@@ -1,0 +1,1 @@
+Artículo 31. Uso de tecnologías en la facilitación de información. Se puede publicar, a través de la página web, la descripción normalizada de los documentos con el fin de facilitar el acceso a la información que estos contienen.

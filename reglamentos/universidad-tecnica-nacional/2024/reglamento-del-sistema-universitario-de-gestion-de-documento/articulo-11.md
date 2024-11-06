@@ -1,0 +1,1 @@
+Artículo 11. Las personas archivistas. Son las personas funcionarias a cargo de un archivo periférico, especializado, o que labora en el Archivo Institucional. Los archivos Periféricos y Especializados deben contar con al menos un recurso dentro de su personal con conocimientos técnico profesionales en archivística o carreras afines, según la normativa de la Universidad.

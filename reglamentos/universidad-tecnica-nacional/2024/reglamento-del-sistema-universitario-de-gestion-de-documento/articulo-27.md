@@ -1,0 +1,6 @@
+CAPÍTULO V
+DE LA CONSULTA Y PRÉSTAMO DE DOCUMENTOS
+EN EL ARCHIVO INSTITUCIONAL Y ARCHIVOS PERIFÉRICOS
+Artículo 27. Consulta de los documentos. El horario de consulta de los documentos que se encuentren en custodia en el Archivo Institucional y Archivos Periféricos, es en el horario ordinario de la Universidad. Además, los documentos se facilitan únicamente en la sala para consultas y atención a la persona usuaria.
+Los documentos custodiados en los depósitos pueden ser consultados por personas funcionarias de la institución, estudiantes y particulares, salvo que sean documentos confidenciales o de acceso restringido. En el caso de documentos de acceso restringido sólo se facilita al interesado, con la solicitud por escrito del superior jerárquico de la unidad en la cual se produjeron los documentos. En el caso de documentos con información sensible (datos sobre salud de funcionarios o estudiantes, situación socioeconómica, notas de estudiantes), se requiere el consentimiento expreso de las personas dueñas de la información. Si el dueño de la información fallece, el derecho pasa a los herederos o al albacea de la sucesión.
+Lo anterior, de conformidad con la Constitución Política de Costa Rica, la Ley de Protección de la Persona frente al tratamiento de sus datos personales y demás normativas de rango superior.

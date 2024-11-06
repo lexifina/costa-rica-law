@@ -1,0 +1,2 @@
+Artículo 50. Uso del correo electrónico. La información enviada y recibida por correo electrónico se debe utilizar para agilizar los trámites administrativos o académicos y tienen que remitirse de forma escrita en el momento oportuno. Los documentos públicos electrónicos, deben llevar la firma digital certificada de acuerdo con la Ley 8454 de certificados, firmas digitales y documentos electrónicos.
+Aquellos documentos que únicamente pueden gestionarse electrónicamente, se disponen en la normativa del Archivo Institucional.

@@ -1,0 +1,1 @@
+Artículo 7. Archivos Periféricos y Especializados. El Archivo Institucional puede establecer la creación de estos archivos, realizando los estudios y análisis respectivos, con el fin de indicar su disposición.

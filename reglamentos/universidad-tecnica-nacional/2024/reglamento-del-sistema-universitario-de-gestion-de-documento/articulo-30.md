@@ -1,0 +1,1 @@
+Artículo 30. Facilitación de documentos con reproducción en otros soportes. Si los documentos originales se encuentran reproducidos en otro tipo de soporte legalmente reconocido, por razones de seguridad y conservación, se facilita únicamente las reproducciones.
