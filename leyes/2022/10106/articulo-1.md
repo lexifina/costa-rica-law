@@ -1,4 +1,6 @@
+(Derogado)
 N° 10106
+(Esta norma fue derogada por el artículo 7° de la Ley de desarrollo y competitividad de la infraestructura vial, N° 10584 del 4 de noviembre del 2024)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 CREACIÓN DEL FONDO NACIONAL DE AVALES PARA EL APOYO A
