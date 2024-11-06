@@ -1,0 +1,2 @@
+Artículo 6º-Ámbito de acción
+Los vehículos pueden ser utilizados en cualquier parte del territorio nacional, de acuerdo con las necesidades de las unidades administrativas. En caso de ser necesaria su utilización fuera del país, debe existir una situación calificada y se requiere la autorización escrita de la Gerencia General, además cumplir con la cobertura extraterritorialidad, el seguro respectivo y los trámites legales exigidos.

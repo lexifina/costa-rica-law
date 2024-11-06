@@ -1,0 +1,2 @@
+Artículo 4º-Registro de vehículos
+Los vehículos propios del BCR deben estar registrados como activos de la Institución, estar inscritos en el Registro Público de la propiedad de vehículos y en conjunto con los vehículos arrendados que circulan por todo el territorio nacional, deben cumplir con los requisitos que exige la Ley de tránsito por vías públicas terrestres y seguridad vial, en su Título IV Reglas para la conducción de vehículos y uso de las vías públicas.

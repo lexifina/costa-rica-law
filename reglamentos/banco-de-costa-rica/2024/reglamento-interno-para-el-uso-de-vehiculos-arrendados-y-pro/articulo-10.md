@@ -1,0 +1,2 @@
+Artículo 10.-Reporte de daños
+Cuando la persona trabajadora tenga conocimiento de que un vehículo institucional sufrió un daño debe informar de inmediato según lo dispone este Reglamento y las Disposiciones administrativas para el uso de vehículos propiedad del BCR. En caso de que no lo haga, debe asumir la responsabilidad que se establezca de conformidad con las disposiciones externas e internas aplicables.
