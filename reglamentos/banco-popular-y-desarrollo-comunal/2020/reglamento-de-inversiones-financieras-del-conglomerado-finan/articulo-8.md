@@ -1,11 +1,11 @@
-Artículo 8º-De las funciones y responsabilidades de las Comisiones. Cada una de las Comisiones de las Unidades Estratégicas del Conglomerado deberán:
+Artículo 8°-De las funciones y responsabilidades de las Comisiones. Cada una de las Comisiones de las Unidades Estratégicas del Conglomerado deberán:
 a. Definir sus funciones y responsabilidades en su Manual de Inversiones, respetando la normativa que les compete, en concordancia con las disposiciones normativas de Inversión aprobadas por la Junta Directiva Nacional y por cada órgano de dirección de las Subsidiarias, y las pautas de inversión incorporadas en este Reglamento.
 b. Deberán supervisar que el Gerente General de cada Unidad Estratégica cumpla con los límites establecidos en las políticas de inversión definidas por la respectiva Junta Directiva, así como por el cumplimiento de las disposiciones indicadas en el artículo 2° de este Reglamento.
 c. Emitir criterios sobre los proyectos de los reglamentos indicados en el artículo 2° de este Reglamento, que vayan a ser emitidos por la Junta Directiva Nacional, y sobre las Políticas de Inversión que al respecto dicten las Juntas Directivas de las Unidades Estratégicas del Conglomerado.
 Para la Comisión de Inversiones del Banco tendrá las siguientes responsabilidades y funciones:
 a. Proponer, para la aprobación de la Junta Directiva Nacional, las disposiciones normativas de inversión de recursos propios del Conglomerado, los cuales deberán considerar criterios de diversificación por valores, plazos, montos, moneda y emisores, así como procurar lograr una equilibrada diversificación, liquidez, rentabilidad y riesgo.
 b. Proponer políticas para las inversiones en mercados internacionales y nacionales.
-c. Velar por el cumplimiento de las disposiciones normativas externas de los entes Reguladores y normativas externas aprobadas por la Junta Directiva Nacional, y las pautas de inversión incorporadas en este Reglamento.
+c. Velar por el cumplimiento de las disposiciones normativas externas de los entes reguladores, así como las normativas internas aprobadas por la Junta Directiva Nacional, y las pautas de inversión incorporadas en este Reglamento.
 d. Analizar el entorno macroeconómico nacional e internacional, y evaluar amenazas y oportunidades relacionadas con la cartera de inversiones y las decisiones de inversión que se presenten.
 e. Monitorear y analizar la calificación de riesgo país, emitidas a los Gobiernos y Bancos Centrales de los países que se tengan incorporados en la cartera de inversiones.
 f. Monitorear y analizar las calificaciones de riesgo emitidas a los valores internacionales que se tengan incorporados en la cartera de inversiones.
@@ -19,4 +19,5 @@ m. Tomar decisiones que estén en concordancia con los objetivos de las inversio
 n. Coordinar reuniones con personeros de los diferentes bancos y entidades financieras, con el fin de evaluar el desempeño de su administración, así como contar con herramientas e insumos necesarios para la toma de decisiones.
 o. Revisar el presente reglamento al menos una vez al año, cada vez que se modifiquen las disposiciones normativas de inversión aprobadas por la Junta Directiva Nacional o cuando haya cambios en la normativa externa, así como remitir las propuestas que correspondan para que sean aprobadas por el órgano competente.
 p. Cualquier otra función que se derive de la aplicación de este Reglamento.
-q.-Tomar decisiones de inversión en valores de emisores autorizados que estén en concordancia con los objetivos de la Gestión Integral de Riesgos Sociales, Ambientales y de Gobernanza.
+q. Tomar decisiones de inversión en valores de emisores autorizados que estén en concordancia con los objetivos de la Gestión Integral de Riesgos Sociales, Ambientales y de Gobernanza.
+(Así reformado en sesión N° 6158 del 6 de noviembre de 2024)
