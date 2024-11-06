@@ -1,3 +1,0 @@
-ARTÍCULO 16- Disposiciones especiales
-Como parte de las condiciones diferenciadas que deberán otorgar las entidades financieras a los beneficiarios de un crédito avalado por parte del Fondo Nacional de Avales, el costo de los honorarios notariales de los actos que se requieran será de un veinticinco por ciento (25%) de lo establecido en el arancel correspondiente.
-A su vez, las operaciones avaladas estarán exentas del pago de timbres, derechos de registro y otros costos de formalización de estos nuevos créditos o modificaciones a los créditos existentes beneficiarios de un aval del Fondo Nacional de Avales.
