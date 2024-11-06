@@ -1,0 +1,1 @@
+ARTÍCULO 47. Los cursos deportivos. Los cursos deportivos serán actividades de duración limitada, respondiendo a programaciones preestablecidas y con objetivos finales fijados. No podrán reservarse las instalaciones en la fecha y horas destinadas a los cursos.

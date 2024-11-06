@@ -1,0 +1,1 @@
+ARTÍCULO 15. Sobre el uso de los recursos. En el caso de las instalaciones administradas por el CCDRG se deberán presupuestar los ingresos de manera oficial. En el caso las instalaciones administradas por las Comisiones de Instalaciones Deportivas y Comités Comunales el CCDRG deberán establecer los mecanismos apropiados para el control de los recursos financieros.

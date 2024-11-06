@@ -1,0 +1,1 @@
+ARTÍCULO 70. Contratación de espacios publicitarios. La contratación de espacios de publicidad se llevará a cabo de acuerdo con la normativa y a través de la secretaria ejecutiva con aval de la Comisión destinada para tal fin y la ratificación por parte de la Junta Directiva

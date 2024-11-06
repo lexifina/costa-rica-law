@@ -1,0 +1,7 @@
+ARTÍCULO 59. Exoneración de tarifa de uso. Para el uso de las distintas instalaciones deportivas o recreativas, podrán eximirse del pago de entrada o tarifa mensual a: Federaciones o asociaciones deportivas, instituciones públicas o entidades de bien social, Organizaciones no Gubernamentales, Ciudadanos de Oro (mostrando su respectivo carné), personas con prescripción médica para rehabilitación (se de presentar dictamen de la CCSS), personas en condición de discapacidad, programas o actividades organizados por el CCDRG Grupos Organizados que deseen realizar actividad física, ejercicio, deporte o recreación.
+Para contar con el permiso de uso exonerado, la persona debe presentar lo siguiente:
+- Llenar la solicitud formal de uso de la instalación
+- Aportar copia de la cédula de identidad.
+- En el caso de Natación Terapéutica, aportar certificado médico, extendido por la CCSS; donde se indique claramente la recomendación para realizar actividades acuáticas.
+En el caso de alquileres o arrendamientos a entidades privadas, asociaciones o federaciones deportivas que soliciten exoneración parcial o total por el rubro de alquiler, deberán solicitar este trámite directamente a la Junta Directiva del CCDRG, bajo causa justificada y en actividades donde no medie el lucro alguno
+Asimismo, podrán eximirse de pago parcial los empleados del CCDRG. Y del pago total los miembros de junta directiva. Los anteriores sin que medie solicitud expresa.

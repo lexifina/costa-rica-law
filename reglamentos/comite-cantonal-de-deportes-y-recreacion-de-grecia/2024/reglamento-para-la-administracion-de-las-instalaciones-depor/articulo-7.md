@@ -1,0 +1,1 @@
+ARTÍCULO 7. Desarrollo del Reglamento. Se faculta expresamente al CCDRG para dictar cuantas resoluciones estime oportunas en desarrollo de lo dispuesto en este Reglamento, en aras de obtener una mejor prestación del servicio y utilización de las Instalaciones por los usuarios, siempre que no vayan en contra de lo dispuesto en el presente Reglamento.

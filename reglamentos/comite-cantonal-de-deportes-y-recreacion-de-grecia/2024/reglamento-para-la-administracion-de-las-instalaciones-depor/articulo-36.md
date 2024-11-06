@@ -1,0 +1,2 @@
+ARTÍCULO 36. Colocación de rótulos u otros en las Instalaciones Deportivas y Recreativas. El CCDRG, la Comisión de Instalaciones Deportivas o Comité Comunal, según sea el caso, podrán autorizar la colocación de rótulos en las instalaciones deportivas, siempre y cuando obtenga beneficio económico por tal autorización y lo permita la normativa aplicable al caso. Tales rótulos no podrán hacer alusión a publicidad de cigarrillos, sustancias prohibidas, bélicos. El CCDRG definirá la tarifa por la colocación de rótulos publicitarios
+previo estudio.

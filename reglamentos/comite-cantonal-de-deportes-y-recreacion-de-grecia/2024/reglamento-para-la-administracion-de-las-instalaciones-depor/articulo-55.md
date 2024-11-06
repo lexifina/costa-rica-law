@@ -1,0 +1,1 @@
+ARTÍCULO 55. Uso de las instalaciones deportivas para el desarrollo de escuelas deportivas. El administrador de las instalaciones deportivas deberá destinar espacios para el desarrollo de las escuelas deportivas, en coordinación con el Comité Cantonal, definiendo este último los horarios para el desarrollo de estas actividades.

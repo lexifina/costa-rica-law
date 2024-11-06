@@ -1,0 +1,2 @@
+TITULO IV. Uso Particular de la Pista de Atletismo del Estadio Allen Rigioni Suarez.
+ARTICULO 101. Acceso gratuito. El acceso al estadio Municipal será gratuito siempre y cuando no se esté desarrollando una actividad o evento especial de carácter privado contratado por un tercero. O actividades que haya sido avaladas por la Junta Directiva a puerta cerrada. En actividades propias del CCDRG solo se podrán solicitar cuotas voluntarias sin negar el acceso a ningún ciudadano.
