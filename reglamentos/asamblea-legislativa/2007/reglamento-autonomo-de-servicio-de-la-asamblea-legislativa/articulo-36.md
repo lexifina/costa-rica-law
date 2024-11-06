@@ -1,11 +1,4 @@
-CAPÍTULO XI
-De las obligaciones de servidores específicos
-Artículo 36.—Conforme a las disposiciones propias de su relación de servicio, este Reglamento y demás normas aplicables, son obligaciones del Director (a) Ejecutivo (a):
-a) Confeccionar y mantener al día los expedientes personales de todos los funcionarios (as) y empleados (as) de la Asamblea Legislativa; para lo cual girará las instrucciones pertinentes a la Dirección de Recursos Humanos.
-b) Intervenir, en la medida que determinen la Ley de Personal y el Directorio, en todo lo relativo al ingreso de funcionarios (as) y demás servidores (as), traslados, ascensos, permisos, calificaciones, aumentos periódicos y relaciones humanas.
-c) Velar por el estricto cumplimiento de este Reglamento y de las relaciones de servicio;
-d) Acatar y hacer cumplir las órdenes e instrucciones del Directorio;
-e) Tramitar y aplicar las medidas disciplinarias, excepto la de despido, en que sólo tiene la tramitación, pues la aplicación corresponde al Directorio, de conformidad con la Ley de Personal de la Asamblea Legislativa;
-f) Mantenerse en constante contacto con el Directorio para lo relacionado con las obligaciones propias de su cargo.
-g) Rendir los informes que le sean solicitados por el Directorio; y
-h) Proponer a sus superiores las modificaciones e innovaciones de carácter técnico, administrativo o de cualquier otra índole que crea convenientes para la buena marcha de los departamentos y oficinas de la Asamblea .
+Artículo 36.-Los servidores (as) gozarán sin interrupción de su período de vacaciones y solo se podrán dividirlas en tres fracciones, cuando se trate de labores de índole especial que no permitan una ausencia muy prolongada.
+No obstante lo anterior, de conformidad con lo dispuesto en el inciso c) del artículo 33 de la Ley de Personal, el disfrute de las vacaciones podrá ser adelantado o retrasado, a juicio del Directorio, para que en lo posible coincida con los períodos de receso de la Asamblea, a fin de que no se afecte el buen servicio.
+Las vacaciones son incompensables y no podrán acumularse, salvo en los casos autorizados por la ley.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 29 al artículo 36)

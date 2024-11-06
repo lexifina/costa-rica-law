@@ -1,3 +1,2 @@
-CAPÍTULO IX
-De las obligaciones y prohibiciones del patrono
-Artículo 34.—El patrono se compromete a observar fielmente las obligaciones y prohibiciones de los artículos 69 y 70 del Código de Trabajo y en general a respetar todos los derechos que a los servidores (as) conceda la legislación social, a cambio de los cuales exigirá, en la forma más estricta, que los funcionarios (as) cumplan con las obligaciones y acaten las prohibiciones que impone este Reglamento, la Ley de Personal y las demás normas legales.
+Artículo 34.-En caso de terminación del contrato de trabajo antes de cumplirse el período de las cincuenta semanas, el servidor (a) tendrá derecho a vacaciones proporcionales de acuerdo con el tiempo trabajado, que le serán pagadas con la liquidación correspondiente.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 27 al artículo 34)

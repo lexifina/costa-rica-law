@@ -1,1 +1,2 @@
-Artículo 87.—Deber de comportarse con decoro y respeto. Todo servidor (a) debe ser justo (a), cuidadoso (a), respetuoso (a) y cortés en el trato con los usuarios (as) del servicio, sus jefes, subalternos (as) y compañeros (as).
+Artículo 87.-Deber de probidad. Todo servidor (a) debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines del servicio público, o cuando participe en actividades o negocios de la Administración que comprometen esos recursos.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 80 al artículo 87)

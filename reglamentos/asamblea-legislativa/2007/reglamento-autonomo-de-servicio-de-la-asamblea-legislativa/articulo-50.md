@@ -1,2 +1,2 @@
-ARTICULO 50.- Anulado
-(Anulado este artículo mediante resolución de la Sala Constitucional N° 18356 del 2 de diciembre de 2009.)
+Artículo 50.-Los permisos con goce de sueldo para la realización de estudios los concederá el Directorio, previa consulta con el Director (a) Ejecutivo (a) y el Jefe (a) respectivo (a).
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 43 al artículo 50)

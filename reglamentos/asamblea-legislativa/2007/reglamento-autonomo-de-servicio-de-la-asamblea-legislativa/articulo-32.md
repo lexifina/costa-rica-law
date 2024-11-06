@@ -1,1 +1,2 @@
-Artículo 32.—El trabajo de los servidores (as) que se encuentran gozando de vacaciones, así como el de aquellos que no asisten a sus labores por enfermedad o licencia, será encomendado, hasta donde sea posible, al resto del personal, sin remuneración adicional, siempre que sea compatible con sus aptitudes, estado o condición y objeto de su relación de servicios.
+Artículo 32.-Para efectos de aplicar la escala de vacaciones que contempla el artículo anterior, se considerará el tiempo servido en otros poderes e instituciones del Estado.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 25 al artículo 32)

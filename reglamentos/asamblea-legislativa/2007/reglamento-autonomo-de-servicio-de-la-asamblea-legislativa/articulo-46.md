@@ -1,1 +1,5 @@
-Artículo 46.—Si por un motivo debidamente calificado y que se considere procedente, algún funcionario (a) o empleado (a) necesita un permiso que no esté comprendido dentro de los casos que específica este Capítulo, se le podrá otorgar con goce de sueldo, deduciéndosele los días de permiso de su período de vacaciones, sin que el número de días de la licencia exceda del número de días de vacaciones que correspondan al servidor al momento de otorgarse el permiso.
+CAPÍTULO XIV
+De las quejas, peticiones, permisos e incapacidades
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo XIII al Capítulo XIV)
+Artículo 46.-Las quejas, reclamos y peticiones de mejoramiento deberán formularse por escrito ante el Director (a) Ejecutivo (a), quien resolverá en igual forma dentro del plazo legalmente estipulado al efecto, excepto en cuanto a peticiones de mejoramiento, que las pondrá en conocimiento del Directorio. Los asuntos urgentes podrán gestionarse verbalmente, debiendo resolverse del mismo modo y de inmediato.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 39 al artículo 46)

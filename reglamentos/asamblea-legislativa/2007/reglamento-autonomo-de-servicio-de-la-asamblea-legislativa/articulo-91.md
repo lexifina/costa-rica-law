@@ -1,3 +1,2 @@
-CAPÍTULO XXII
-De la reducción forzosa de servicios
-Artículo 91.—Todo despido o reducción forzosa de servicios se ordenará mediante acuerdo del Directorio y deberá ajustarse a lo que dispone la Ley de Personal de la Asamblea Legislativa en su artículo 33 incisos b) y f), a lo dispuesto en el artículo 47 del Estatuto del Servicio Civil y en el artículo 110 párrafo último de su Reglamento, así como en la demás normativa vigente.
+Artículo 91.-Deber de conducirse apropiadamente frente al público. Todo servidor (a) debe observar frente al público, en el servicio y fuera de el, una conducta correcta, digna y decorosa, acorde con su jerarquía y función, evitando conductas que puedan socavar la confianza del público en la integridad e imagen del funcionario (a) y de la Asamblea Legislativa.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 84 al artículo 91)

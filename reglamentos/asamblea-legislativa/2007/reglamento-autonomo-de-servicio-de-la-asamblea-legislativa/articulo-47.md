@@ -1,13 +1,16 @@
-Artículo 47.—El servidor(a) que fuere declarado incapacitado para trabajar, por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, de acuerdo con las siguientes regulaciones:
-a) Durante los primeros tres meses de servicios, se reconocerá el subsidio hasta por un mes.
-b) Después de tres meses de servicios y hasta un año, el subsidio será hasta por tres meses.
-c) Durante el segundo año de servicios, el subsidio será hasta por cinco meses.
-d) Durante el tercer año de servicios, el subsidio será hasta por seis meses.
-e) Durante el cuarto año de servicios, el subsidio será hasta por siete meses y quince días.
-f) Durante el quinto año de servicios, el subsidio será hasta por nueve meses.
-g) Después de cinco años de servicios, el subsidio será de hasta 12 meses.
-En caso de las incapacidades otorgadas por la Caja Costarricense del Seguro Social, el monto del subsidio será de un 80% por ciento del total del salario ordinario que esté devengando el servidor (a), durante los primeros treinta días de su incapacidad. En ese período el Estado como patrono, reconocerá durante los tres primeros días un subsidio de un 80%; a partir del cuarto día y hasta el número treinta el subsidio patronal será de un 20%.
-El subsidio será de un 100% por ciento de su salario ordinario durante el período de incapacidad que exceda de treinta días naturales, por un máximo de doce meses. Durante este período, el Estado como patrono otorgará un subsidio de un 40%. Queda a juicio de las Comisiones Médicas Locales Evaluadoras de Incapacidades que funcionan en todos los centros médicos de la Caja Costarricense del Seguro Social, otorgar una prórroga de incapacidad de hasta seis meses. En el caso de los períodos de prórroga otorgados por la Caja Costarricense de Seguro Social, el patrono suspenderá el salario del servidor (a) por el lapso de la incapacidad y el ente asegurador pagará el subsidio correspondiente.
-En caso de las incapacidades otorgadas por el Instituto Nacional de Seguros, el Estado como patrono reconocerá la diferencia para completar el subsidio de un 80% por ciento del monto del salario ordinario que esté devengando el servidor (a), durante los primeros treinta días de su incapacidad. Durante el período de incapacidad que exceda de treinta días naturales, el Estado como patrono reconocerá la diferencia para completar el 100% del subsidio correspondiente, por un máximo de 12 meses.
-Por ninguna razón, y en ningún caso de incapacidad otorgada, el monto del subsidio que pagaren los órganos aseguradores sumados a lo que le corresponde cancelar al Estado como patrono, podrá exceder el 100% del salario total del servidor (a).
-En casos especiales, debidamente justificados ante el Director (a) Ejecutivo (a), queda a juicio de este aceptar al servidor (a) asegurado (a) dictamen de un médico particular hasta por un lapso de cuatro días.
+Artículo 47.- Los permisos se deben solicitar en la siguiente forma:
+1. Para permisos del personal administrativo o de fracciones políticas:
+a) Que no excedan las dos horas, al jefe de área respectivo.
+En el caso de fracciones políticas, el diputado será el responsable y podrá delegar dicha potestad en su jefe de despacho o director administrativo.
+b) En caso de que el permiso exceda las dos horas y sea inferior a un día, al director respectivo, previa comunicación y coordinación con el jefe de área correspondiente. En el caso de fracciones políticas, el diputado será el responsable y podrá delegar dicha potestad en su jefe de despacho o director administrativo.
+(Así reformado el inciso 1) anterior mediante acuerdo N° 01-16-17 tomado en sesión N° 113-2016 del 27 de abril del 2016)
+2. Para el personal de fracciones legislativas:
+a. De uno hasta ocho días naturales inclusive, con goce de salario, al Director(a) Ejecutivo(a) o a quien lo sustituya.
+b. De uno hasta treinta días naturales inclusive, sin goce de salario, al Director(a) Ejecutivo(a) o a quien lo sustituya.
+c. Más de ocho días y hasta treinta días naturales con goce de salario al Directorio Legislativo, por intermedio del Director(a) Ejecutivo(a).
+3. Para el personal administrativo:
+a. De uno hasta 30 días naturales inclusive, con o sin goce de salario, al Director(a) Ejecutivo(a) o quien lo sustituya.
+b. En los casos de permisos con o sin goce de salario por más de treinta días naturales, al Directorio Legislativo, por intermedio del Director(a) Ejecutivo(a).
+La solicitud de los permisos que se realice de conformidad con los incisos 2 y 3 del presente artículo deberá tramitarse por escrito, estar debidamente motivados y documentados y llevar de previo a su aprobación el visto bueno del jefe(a) correspondiente.
+(Así reformado mediante acuerdo N° 01-15-16 tomado en sesión N° 67-2015 del 2 de junio del 2015)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 40 al artículo 47)

@@ -1,1 +1,3 @@
-Artículo 73.—Se considerará un acto de discriminación cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del (la) aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los (las) solicitantes o cuando no se emplee a un servidor idóneo en razón de su discapacidad.
+Artículo 73.-De conformidad con lo establecido en los artículos 221 y 222 del Código de Trabajo, la Asamblea deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo de trabajo que le ocurra a sus servidores (as), dentro del término de ocho días hábiles contados a partir de su acaecimiento.
+Si el servidor (a) no estuviere asegurado contra riesgos del trabajo, el Instituto le otorgará todas las prestaciones de servicio que le hubiesen correspondido de haber estado asegurado.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 66 al artículo 73)

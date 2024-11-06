@@ -1,6 +1,6 @@
-Artículo 61.—La Asamblea Legislativa deberá adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de sus servidores (as) conforme a los términos del Código de Trabajo, los Reglamentos de Salud Ocupacional que se promulguen y las recomendaciones que en esta materia formulen tanto el Consejo de Salud Ocupacional, como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros, que garanticen:
-a) La protección de la salud y la preservación de la integridad física, moral y social de los servidores (as).
-b) La prevención y control de los riesgos del trabajo.
-c) El buen estado de las edificaciones, instalaciones, equipo y condiciones ambientales.
-d) El suministro, uso y mantenimiento de equipos y materiales para la protección personal.
-Todos los funcionarios(as) deberán ser informados de los riesgos que para su salud conlleva su trabajo. Deberán además informar de todo factor de riesgo conocido o sospechoso en el ambiente de trabajo que puede afectar su salud o la del resto de compañeros (as) de trabajo.
+Artículo 61.- La suspensión del trabajo se aplicará hasta por ocho días y sin goce de salario, una vez que se haya oído a la persona servidora y a los compañeros (as) de trabajo que esta indique, en los siguientes casos:
+a) Cuando la persona servidora, después de haber sido amonestada por escrito, incurra, dentro de un periodo de tres meses a partir de la sanción correspondiente, en una nueva infracción a las disposiciones enumeradas en el artículo 52 anterior; y,
+b) Cuando la persona servidora incurra en infracción a las disposiciones de los artículos 23(*), 28(*), 35(*), incisos a), c), k), l), m), n) y ñ); 36(*); incisos d), f), g), y h); y 37(*), incisos a), b), c), d), e), f), y g)
+(*) (Léase artículos 30, 35, 42, 43 y 44 en su orden)
+(Así reformado en sesión N° 143 del 11 de febrero del 2021)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 54 al artículo 61)

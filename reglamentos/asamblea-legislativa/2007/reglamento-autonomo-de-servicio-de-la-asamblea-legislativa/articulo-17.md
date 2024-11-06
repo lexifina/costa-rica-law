@@ -1,2 +1,4 @@
-Artículo 17.—Se considerará ausencia la falta a un día completo de trabajo. La falta a una fracción de jornada se computará como la mitad de una ausencia.
-No se pagará el salario que corresponda a la ausencia y medias ausencias, salvo los casos señalados por las leyes de trabajo y por otras disposiciones de este Reglamento.
+Artículo 17-Aprobación de la Solicitud. La aprobación o no de la solicitud estará sujeta a la discrecionalidad de la Administración y se basará en la viabilidad operativa y las necesidades del servicio de la Institución.
+La aprobación de gozar de dicha modalidad no genera derecho adquirido y la Administración se encuentra facultada para revocar dicha jornada según la viabilidad operativa y las necesidades institucionales.
+Corresponderá la aprobación a algún miembro del cuerpo gerencial del departamento, sea la Gerencia o en su ausencia la Subgerencia.
+(Así adicionado mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024)

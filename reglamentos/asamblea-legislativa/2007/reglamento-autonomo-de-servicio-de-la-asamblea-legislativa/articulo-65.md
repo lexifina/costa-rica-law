@@ -1,5 +1,7 @@
-CAPÍTULO XVII
-De los riesgos de trabajo
-Artículo 65.—De conformidad con lo dispuesto en el artículo 195 del Código de Trabajo, se denominan riesgos profesionales aquellos accidentes o enfermedades que ocurran a los funcionarios (as) como consecuencia del trabajo que desempeñan en forma subordinada y remunerada.
-Por accidentes de trabajo, se entenderá todo accidente que le suceda al servidor(a) como causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes y que puede producirle la muerte, pérdida o reducción temporal o permanente de la capacidad para el trabajo. También se calificarán como accidentes de trabajo las circunstancias enumeradas en el artículo 196 del Código de Trabajo.
-Por último, se entiende por enfermedad de trabajo, todo estado patológico que resulte de la acción continuada de una causa que tiene su origen o motivo en el propio trabajo o en el medio y condiciones en que el trabajador (a) labora. De conformidad con lo dispuesto en el artículo 197 del Código de Trabajo, debe establecerse que éstos han sido la causa de la enfermedad.
+Artículo 65.-El abandono injustificado del trabajo, conforme a la definición del artículo 19(*), será sancionado de la siguiente manera:
+(*) (Léase artículo 26)
+a) Con amonestación por escrito la primera vez;
+b) Con suspensión hasta por ocho días la segunda vez; y
+c) con despido la tercera vez.
+Las faltas por abandono de trabajo serán computables en lapsos de tres meses.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 58 al artículo 65)

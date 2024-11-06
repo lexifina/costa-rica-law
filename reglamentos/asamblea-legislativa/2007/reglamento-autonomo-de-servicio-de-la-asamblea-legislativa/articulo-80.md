@@ -1,1 +1,2 @@
-Artículo 80.—Deber de probidad. Todo servidor (a) debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines del servicio público, o cuando participe en actividades o negocios de la Administración que comprometen esos recursos.
+Artículo 80.-Se considerará un acto de discriminación cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del (la) aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los (las) solicitantes o cuando no se emplee a un servidor idóneo en razón de su discapacidad.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 73 al artículo 80)

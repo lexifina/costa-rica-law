@@ -1,1 +1,6 @@
-Artículo 22.—El incumplimiento del control de asistencia será considerado como falta leve, y hará presumir la inasistencia del servidor (a) a la fracción de la jornada respectiva, salvo que el funcionario (a) justifique la omisión a más tardar en la siguiente jornada. No se considerará como falta la omisión, cuando ella se deba al cumplimiento de funciones especiales que hayan sido encomendadas al servidor (a), a fuerza mayor o caso fortuito o a cualquier otro impedimento debido a justa causa.
+CAPÍTULO VI
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo Capítulo V al Capítulo VI)
+De las llegadas tardías
+De las ausencias y del abandono del trabajo
+Artículo 22.-Se considerará llegada tardía el ingreso al trabajo diez minutos después de la hora señalada para el comienzo de las labores en la correspondiente fracción de la jornada, de conformidad con el horario establecido en el artículo 10 de este Reglamento, o en el dispuesto por acuerdo de Directorio en firme.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 15 al artículo 22)

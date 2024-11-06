@@ -1,0 +1,2 @@
+Artículo 99.-Tanto en el caso de supresión de puestos como en el de reducción forzosa de servicios, el servidor (a) tendrá derecho al reconocimiento de una indemnización equivalente a un mes de sueldo por cada año o fracción de seis meses o más de trabajo ininterrumpido. Tal indemnización se calculará según el promedio de los sueldos devengados durante los seis meses anteriores a la fecha en que se opere la separación.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 92 al artículo 99)

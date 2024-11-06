@@ -1,1 +1,2 @@
-Artículo 94.—Como lo ordena la ley, este Reglamento se mantendrá expuesto en caracteres fácilmente legibles, por lo menos en dos de los sitios más visibles del local del patrono y queda a opción de este, sin perjuicio de lo anterior, imprimirlo en folletos especiales para distribuirlos entre los trabajadores.
+Artículo 94.-Deber de comportarse con decoro y respeto. Todo servidor (a) debe ser justo (a), cuidadoso (a), respetuoso (a) y cortés en el trato con los usuarios (as) del servicio, sus jefes, subalternos (as) y compañeros (as).
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 87 al artículo 94)

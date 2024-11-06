@@ -1,1 +1,2 @@
-Artículo 85.—Deber de conocer prohibiciones y regímenes especiales que puedan serle aplicables. Todo servidor (a) debe conocer las disposiciones legales y reglamentarias sobre incompatibilidad, acumulación de cargos, prohibiciones por razón de parentesco, y cualquier otro régimen especial que le sea aplicable y asegurarse de cumplir con las acciones necesarias para determinar si está o no comprendido en algunas de las prohibiciones establecidas en ellos.
+Artículo 85.-Deber de lealtad. Todo servidor (a) debe ser consecuente con los principios éticos del servicio público, y debe prevalecer la lealtad con la Institución.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 78 al artículo 85)

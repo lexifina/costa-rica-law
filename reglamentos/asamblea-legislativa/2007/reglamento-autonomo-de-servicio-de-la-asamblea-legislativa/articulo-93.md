@@ -1,3 +1,3 @@
-CAPÍTULO XXIII
-Disposiciones finales
-Artículo 93.—En defecto de disposiciones propias de este Reglamento, deben tenerse como supletorias el Estatuto del Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes o reglamentos conexos de la materia, que estén en vigencia en el país.
+Artículo 93.-Deber de objetividad. El servidor (a) debe siempre emitir juicios objetivos, sin influencias de criterios personales o de terceros no autorizados por la autoridad administrativa y se abstendrá de participar en cualquier decisión cuando exista violencia moral sobre él, que pueda hacerle incumplir su deber de objetividad.
+Queda a salvo el deber de obediencia al superior, en los términos previstos en la Ley General de la Administración Pública.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 86 al artículo 93)

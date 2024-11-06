@@ -1,9 +1,3 @@
-CAPÍTULO XV
-De las medidas disciplinarias en particular
-Artículo 56.—Las llegadas tardías injustificadas, conforme a la definición del artículo 15 de este Reglamento, computables dentro de un mismo mes calendario, se sancionarán de la manera siguiente:
-a) Por dos, amonestación verbal;
-b) Por tres, amonestación por escrito;
-c) Por cuatro, suspensión hasta por dos días;
-d) Por cinco, suspensión hasta por cuatro días;
-e) Por seis, suspensión hasta por ocho días; y
-f) A partir de la sétima, despido sin responsabilidad patronal.
+Artículo 56.-La licencia por razón de cuido de pacientes en fase terminal se regulará según lo dispuesto en la Ley 7756, Beneficios para los responsables de pacientes en fase terminal. Para tales efectos, todos los servidores del Poder Legislativo tendrán derecho a solicitar licencia para atención de pacientes en fase terminal a la Comisión Médica Local Evaluadora de Incapacidades del centro de adscripción correspondiente, y su autorización será suficiente para justificar la ausencia del servidor a sus labores.
+Durante el período aprobado, que será por un máximo de seis meses, el servidor percibirá únicamente un 60% de su salario ordinario en calidad de subsidio, el cual será extendido por el ente asegurador. No corresponderá al patrono reconocer emolumento alguno.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 49 al artículo 56)

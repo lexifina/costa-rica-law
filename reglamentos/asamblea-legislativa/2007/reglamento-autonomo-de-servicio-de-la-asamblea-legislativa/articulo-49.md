@@ -1,2 +1,5 @@
-Artículo 49.—La licencia por razón de cuido de pacientes en fase terminal se regulará según lo dispuesto en la Ley 7756, Beneficios para los responsables de pacientes en fase terminal. Para tales efectos, todos los servidores del Poder Legislativo tendrán derecho a solicitar licencia para atención de pacientes en fase terminal a la Comisión Médica Local Evaluadora de Incapacidades del centro de adscripción correspondiente, y su autorización será suficiente para justificar la ausencia del servidor a sus labores.
-Durante el período aprobado, que será por un máximo de seis meses, el servidor percibirá únicamente un 60% de su salario ordinario en calidad de subsidio, el cual será extendido por el ente asegurador. No corresponderá al patrono reconocer emolumento alguno.
+Artículo 49. Por razón de matrimonio, se concederá permiso de ocho días hábiles con goce de sueldo; y hasta por seis días naturales, también con goce de sueldo, a quien le sobrevenga el fallecimiento de algunos de sus padres, hijos, hermanos o cónyuge.
+Cuando se trate del fallecimiento de cualquier otro pariente, por consanguinidad o afinidad, el Director (a) Ejecutivo(a) queda facultado para conceder permiso con goce de sueldo, hasta por dos días.
+El permiso de paternidad se regirá por lo dispuesto en la legislación nacional.
+(Así reformado en sesión N° 014 del 23 de agosto de 2022)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 42 al artículo 49)

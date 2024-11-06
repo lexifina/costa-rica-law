@@ -1,1 +1,2 @@
-Artículo 21.—El control de asistencia garantizará el cumplimiento de la jornada laboral correspondiente, y deberá ser llevado con diligencia, orden y claridad, de manera tal que no se presenten marcas defectuosas, manchadas o confusas. En caso de que fuese así, se tendrán por no hechas.
+Artículo 21-Sanciones. El incumplimiento de lo dispuesto en el artículo 18 será considerado una falta disciplinaria y se procederá según lo dispuesto en este Reglamento para una amonestación verbal."
+(Así adicionado mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024)

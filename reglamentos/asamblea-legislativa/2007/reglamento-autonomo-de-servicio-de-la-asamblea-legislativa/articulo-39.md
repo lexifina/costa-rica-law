@@ -1,3 +1,2 @@
-CAPÍTULO XIII
-De las quejas, peticiones, permisos e incapacidades
-Artículo 39.—Las quejas, reclamos y peticiones de mejoramiento deberán formularse por escrito ante el Director (a) Ejecutivo (a), quien resolverá en igual forma dentro del plazo legalmente estipulado al efecto, excepto en cuanto a peticiones de mejoramiento, que las pondrá en conocimiento del Directorio. Los asuntos urgentes podrán gestionarse verbalmente, debiendo resolverse del mismo modo y de inmediato.
+Artículo 39.-El trabajo de los servidores (as) que se encuentran gozando de vacaciones, así como el de aquellos que no asisten a sus labores por enfermedad o licencia, será encomendado, hasta donde sea posible, al resto del personal, sin remuneración adicional, siempre que sea compatible con sus aptitudes, estado o condición y objeto de su relación de servicios.
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 32 al artículo 39)

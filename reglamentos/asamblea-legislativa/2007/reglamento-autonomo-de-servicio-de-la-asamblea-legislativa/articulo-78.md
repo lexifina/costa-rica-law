@@ -1,1 +1,3 @@
-Artículo 78.—Deber de lealtad. Todo servidor (a) debe ser consecuente con los principios éticos del servicio público, y debe prevalecer la lealtad con la Institución.
+Artículo 78.-Para efectos de la tipificación y del procedimiento a seguir en casos de hostigamiento sexual, se aplicarán las disposiciones contenidas en la Ley Nº 7476, Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, así como lo dispuesto por el Reglamento Contra el Hostigamiento Sexual en el Empleo de la Asamblea Legislativa de Costa Rica, debidamente aprobado por el Directorio Legislativo, en la sesión ordinaria N° 044-2011, del 24 de febrero del 2011 y sus reformas.
+(Así reformado mediante sesión ordinaria N° 043-2019 del 10 de abril del 2019)
+(Así modificada su numeración mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024, que lo traspasó del antiguo artículo 71 al artículo 78)

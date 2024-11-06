@@ -1,4 +1,2 @@
-Artículo 16.—El servidor (a) que tuviere una llegada tardía superior a quince minutos, no deberá permanecer trabajando en la respectiva mitad de la jornada, salvo que haya habido justo motivo o impedimento insalvable o que tenga la autorización del Director (a) Ejecutivo (a) o del director (a) de departamento correspondiente.
-Para los efectos del párrafo anterior, y salvo los casos exceptuados, el reporte en el registro de asistencia después de quince minutos, indicará que el servidor (a) no ha prestado sus servicios en la fracción de la jornada que corresponda a esa marca, equiparándose la falta, para efectos de la sanción, a la mitad de una ausencia.
-Las llegadas tardías se sancionarán en la forma establecida por el artículo 56 del presente Reglamento.
-(Así reformado el párrafo anterior mediante acuerdo N° 05-13-14 tomado en sesión ordinaria N° 169-2013 del 24 de abril del 2013)
+Artículo 16-Solicitud de Jornada Acumulativa. Las personas funcionarias interesadas en acogerse a la jornada acumulativa deben presentar una solicitud por escrito a su jefatura inmediata. La solicitud debe incluir el período durante el cual se acumularán las horas y un plan de trabajo detallado sobre las tareas a desarrollar en las horas a trabajar bajo esta modalidad.
+(Así adicionado mediante sesión ordinaria N° 118-2024 del 6 de noviembre de 2024)
