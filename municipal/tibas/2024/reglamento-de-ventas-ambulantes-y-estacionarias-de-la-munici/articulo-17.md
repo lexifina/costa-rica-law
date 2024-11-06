@@ -1,0 +1,1 @@
+Artículo 17.-Los puestos deben estar diseñados de tal forma que su diseño garantice la plena armonía con el aseo, ornato y el paisaje urbano; asimismo, la estructura como tal y su ubicación deberán cumplir plenamente con las disposiciones de la Ley N° 7600 y su Reglamento y demás normativa urbanística o ley especial.

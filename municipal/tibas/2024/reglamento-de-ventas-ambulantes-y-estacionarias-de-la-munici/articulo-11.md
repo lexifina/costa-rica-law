@@ -1,0 +1,1 @@
+Artículo 11.-Siguiendo los parámetros de razonabilidad y proporcionalidad, el Departamento de Patentes Municipales podrá notificar a la persona interesada en caso de faltar cualquier documentación solicitada.

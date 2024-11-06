@@ -1,0 +1,1 @@
+Artículo 6º-Recibido el estudio socioeconómico emitido por parte del Departamento de Gestión Social, la persona solicitante podrá iniciar los trámites tendientes a obtener la licencia, mediante el formulario confeccionado para estos efectos, el cual debe contener un espacio específico para que la persona fundamente los motivos para dedicarse a esta actividad.

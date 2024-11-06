@@ -1,0 +1,2 @@
+Artículo 15.-El Departamento Patentes Municipales, llevará un registro de las licencias otorgadas en virtud de este Reglamento; en cada caso abrirá un expediente con su respectiva numeración en el cual indicará toda la información referente a cada licencia.
+De igual modo, deberá fiscalizar continuamente las licencias autorizadas y garantizar que las mismas se ajusten a lo dispuesto por este Reglamento; tramitar todo lo referente a cambios en la línea comercial, suspensión y revocación de la patente, imposición de sanciones y cualquier otro trámite atinente.

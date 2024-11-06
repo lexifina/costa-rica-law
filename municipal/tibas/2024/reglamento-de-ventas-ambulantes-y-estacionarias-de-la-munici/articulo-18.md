@@ -1,0 +1,1 @@
+Artículo 18.-El área que ocupa un puesto no podrá ampliarse en ninguna forma, salvo mejor criterio de la Dirección Urbana y el Departamento de Control Constructivo de la Municipalidad de Tibás, debiendo informar al Departamento de Patentes Municipales de esta aprobación.

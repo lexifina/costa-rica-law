@@ -1,0 +1,1 @@
+Artículo 37.-En caso de revocación o renuncia a la licencia por cualquier motivo, el Concejo Municipal procederá a la adjudicación de esta licencia a otra persona solicitante por medio del orden en que hayan ingresado las solicitudes cumplimiento con todos los requisitos.

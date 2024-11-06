@@ -1,0 +1,1 @@
+Artículo 4º-La Municipalidad únicamente permitirá ejercer la actividad que se indique en la solicitud presentada por la persona interesada, y el horario de funcionamiento será de las ocho a las veinte horas.

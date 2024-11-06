@@ -1,0 +1,1 @@
+Artículo 24.-En todos los puestos que se expendan frutas, hortalizas deberán mantener todas las medidas sanitarias emitidas por el Decreto Ejecutivo N° 41332-SMTSS Ministerio de Salud Reglamento Especial para el Control de Riesgos Sanitarios en Ventas Autorizadas de Acuerdo con el artículo 218 bis de la Ley General de Salud.

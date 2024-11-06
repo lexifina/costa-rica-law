@@ -1,0 +1,1 @@
+Artículo 13.-Se concederá una única licencia para ventas ambulantes o estacionarias por núcleo familiar. En caso de muerte o incapacidad permanente de la persona licenciataria, deberá solicitarse una nueva licencia dentro del mes posterior al fallecimiento y tendrá prioridad el cónyuge sobreviviente o conviviente.

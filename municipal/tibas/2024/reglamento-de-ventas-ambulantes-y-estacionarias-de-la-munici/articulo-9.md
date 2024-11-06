@@ -1,0 +1,1 @@
+Artículo 9º-Presentada la solicitud sin los requisitos respectivos, el Departamento de Patentes Municipales emitirá prevención por escrito por única vez a la persona interesada para que los presente; para tal efecto, dará un plazo prudencial que no podrá exceder de diez días hábiles, de conformidad con lo establecido en el 287 de la Ley General de la Administración Pública.
