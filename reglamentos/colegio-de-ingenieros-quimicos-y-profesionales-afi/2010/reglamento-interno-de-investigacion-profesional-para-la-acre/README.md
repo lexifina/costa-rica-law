@@ -15,3 +15,4 @@ Reglamento interno de Investigación Profesional para la acreditación profesion
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
 | 2 | 2024-04-04 | Reglamento 1 (2024-04-04) |
+| 3 | 2024-11-07 | Reglamento 1 (2024-11-07) |
