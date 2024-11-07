@@ -1,6 +1,0 @@
-Artículo 4° -Modifiquense los tramos de renta imponible, de las personas físicas con actividades lucrativas, señalados en el artículo 15, inciso c) de la Ley del Impuesto sobre la Renta número 7092 de fecha 21 de abril de 1988 y sus reformas, mediante un ajuste de menos uno coma veintiocho por ciento (-1,28%), según se detalla a continuación:
-i) Las rentas de hasta ¢ 4.127 .000,00 (cuatro millones ciento veintisiete mil colones) anuales, no estarán sujetas al impuesto.
-ii) Sobre el exceso de ¢ 4.127.000,00 (cuatro millones ciento veintisiete mil colones) anuales y hasta ¢ 6.164.000,00 (seis millones ciento sesenta y cuatro mil colones) anuales, se pagará el diez por ciento (10%).
-iii) Sobre el exceso de ¢ 6.164.000,00 (seis millones ciento sesenta y cuatro mil colones) anuales y hasta ¢ 10.281.000,00 (diez millones doscientos ochenta y un mil colones) anuales, se pagará el quince por ciento (15%).
-iv) Sobre el exceso de ¢ 10.281.000,00 (diez millones doscientos ochenta y un mil colones) anuales y hasta ¢ 20.605.000,00 (veinte millones seiscientos cinco mil colones) anuales, se pagará el veinte por ciento (20%).
-v) Sobre el exceso de ¢ 20.605.000,00 (veinte millones seiscientos cinco mil colones) anuales, se pagará el veinticinco por ciento (25%).
