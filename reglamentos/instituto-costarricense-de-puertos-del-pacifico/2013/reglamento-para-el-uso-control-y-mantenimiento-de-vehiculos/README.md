@@ -18,3 +18,4 @@ Reglamento para el Uso, Control y Mantenimiento de vehículos del Instituto Cost
 | 3 | 2014-05-22 | Reglamento 3887 (2014-05-22) |
 | 4 | 2020-01-22 | Reglamento 4204 (2020-01-22) |
 | 5 | 2023-03-29 | Reglamento 4384 (2023-03-29) |
+| 6 | 2024-11-08 | Reglamento 4458 (2024-11-08) |
