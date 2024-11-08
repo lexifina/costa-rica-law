@@ -1,0 +1,1 @@
+Transitorio único. Todo procedimiento administrativo y toda gestión de despido iniciados con anterioridad a la entrada en vigencia de la Ley Marco de Empleo Público continuarán su trámite de conformidad con las reglas que se encontraban vigentes.

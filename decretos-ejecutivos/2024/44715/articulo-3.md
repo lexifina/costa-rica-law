@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el artículo 52 del Decreto Ejecutivo N° 32544-S del 09 de febrero del 2005 "Reglamento Autónomo de Servicio del Ministerio de Salud", publicado en La Gaceta N° 157 del 17 de agosto del 2005.
