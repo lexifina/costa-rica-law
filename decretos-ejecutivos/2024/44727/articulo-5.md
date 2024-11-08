@@ -1,0 +1,13 @@
+ARTÍCULO 5: Refórmese el nombre del Título X y los artículos 55, 56 y 59, del Decreto Ejecutivo N º 24611-J, del 4 de setiembre de 1995, Reglamento a la Ley de Derechos de Autor y Derechos Conexos, para que se lean de la siguiente manera:
+"TITULO X
+EL REGISTRO DE LA PROPIEDAD INTELECTUAL
+Artículo 55.- El Registro de la Propiedad Intelectual, tendrá las siguientes atribuciones en materia de derechos de autor y derechos conexos:
+a) Fomentar la difusión y el conocimiento sobre la materia; así como servir de órgano de información y cooperación con los organismos nacionales e internacionales.
+b) Orientar y vigilar la utilización lícita de obras protegidas, en los procesos de calificación, anotación, inscripción y autorización a cargo del Registro, así como dar seguimiento al cumplimiento de aquellas normas que buscan prevenir y combatir el uso ilegal de programas de cómputo por parte del Gobierno Central e Instituciones adscritas.
+c) Llevar el actual registro en materia de derechos de autor y derechos conexos, en los términos previstos por la Ley N º6683 y el presente reglamento.
+d) Dar cumplimiento a las obligaciones establecidas en el Decreto Ejecutivo Número 37549- JP.
+e) Autorizar y revocar la autorización del funcionamiento de las Sociedades de Gestión Colectiva, conforme lo disponen la Ley Nº 6683 y este reglamento.
+f) Las demás que señale la Ley de Derechos de Autor y Derechos Conexos Nº 6683 y este reglamento.
+Artículo 56.- En caso de que surja controversia sobre los derechos patrimoniales de naturaleza disponible protegidos por la Ley de Derechos de Autor y Derechos Conexos Nº 6683 y el presente reglamento, cuando la persona usuaria o una organización de éstas, considere que la tarifa establecida por una Sociedad de Gestión Colectiva, incumple la normativa aplicable, sin perjuicio de las acciones judiciales que las partes pueden ejercer ante la jurisdicción competente, podrán dirimir sus diferencias patrimoniales a través de los distintos mecanismos de resolución alterna de conflictos, con que cuenta el Ordenamiento Jurídico Costarricense.
+Hasta tanto no se resuelva el proceso de impugnación, se mantendrán vigentes las tarifas anteriores, y las personas usuarias estarán obligadas a continuar pagando, mientras utilicen los repertorios administrados.
+Artículo 59.- Contra los actos y resoluciones definitivas del Registro de la Propiedad Intelectual, relativas a la Ley de Derechos de Autor y Derechos Conexos N º6683 y el presente reglamento, cabrá el recurso de revocatoria ante el Registro de la Propiedad Intelectual y el de apelación ante el Tribunal Registra! Administrativo, de conformidad con lo establecido en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N º 8039."
