@@ -1,0 +1,1 @@
+Artículo 3°.- Obligación general. Están obligados al uso de comprobantes electrónicos autorizados por la Administración Tributaria, los contribuyentes indicados en el artículo 2 de la Ley del Impuesto sobre la Renta y 4 de la Ley del Impuesto sobre el Valor Agregado; así como cualquier otro obligado tributario que establezca la ley.

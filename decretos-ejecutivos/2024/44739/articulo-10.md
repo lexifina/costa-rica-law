@@ -1,0 +1,2 @@
+Artículo 10.- Anulación o corrección. Los comprobantes electrónicos válidamente emitidos no se pueden anular directamente sus efectos contables deben anularse o modificarse mediante la utilización de notas de crédito o débito electrónicas, permaneciendo inalterable el documento original, el cual no podrá ser reutilizado.
+Sin perjuicio de lo anterior, cuando el mensaje de confirmación por parte del Ministerio de Hacienda es de rechazo, el comprobante emitido carece de validez, por lo que para efectos tributarios no debe realizarse la respectiva nota de crédito o débito.
