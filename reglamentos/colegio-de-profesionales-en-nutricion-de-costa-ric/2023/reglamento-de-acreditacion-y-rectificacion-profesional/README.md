@@ -14,3 +14,4 @@ Reglamento de acreditación y rectificación profesional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-11 | la propia norma |
+| 2 | 2024-11-09 | Reglamento 31 (2024-11-09) |
