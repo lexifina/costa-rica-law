@@ -1,8 +1,0 @@
-Artículo 10.- Vigencia de las licencias en propiedad privada.
-La vigencia o caducidad de las licencias se aplica según sea el caso como sigue:
-10.1. Las licencias de construcción, de urbanización y de proyectos de condominio tendrán una vigencia de un año para iniciar la obra, contado a partir de su otorgamiento. Si, pasado un año de otorgada la licencia, el administrado aún desea construir la obra, debe solicitar una nueva licencia, para lo cual debe cumplir con todos los procedimientos y requisitos de ley. En todo caso, el administrado puede prorrogar la vigencia de la licencia otorgada por un año más, sin costo alguno y hasta tres años como máximo, siempre y cuando así lo solicite a la administración municipal antes del vencimiento de la misma.
-La vigencia del plazo de la licencia se extenderá, de forma automática hasta tres años, sin necesidad de prórroga, si la obra fuera iniciada con licencia vigente.
-En todo caso, al caducar la licencia o habiendo sido abandonada una obra iniciada, por más de tres años, el administrado deberá solicitar una nueva licencia.
-Deberá ajustar la obra, cuantitativa y cualitativamente, a las normativas urbanísticas vigentes en ese momento, no existiendo derecho alguno adquirido o consolidado en su favor.
-10.2. Las licencias de publicidad exterior tendrán vigencia de tres años máximo a partir de su emisión.
-10.3. Los Certificados de Uso del Suelo tendrán vigencia hasta tanto no se cambie la respectiva norma de zonificación, por medio de las reformas al Plan Regulador de El Guarco.

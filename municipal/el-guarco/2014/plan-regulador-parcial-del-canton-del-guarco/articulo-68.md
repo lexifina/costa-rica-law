@@ -1,1 +1,0 @@
-Artículo 68.- Categorías de Bienes Públicos Incluidas en este Reglamento. Sin que deba considerarse una categorización cerrada o exhaustiva, se incluyen las siguientes categorías de bienes públicas en este mapa oficial:

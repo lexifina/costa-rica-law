@@ -1,2 +1,0 @@
-Artículo 24.- Restricciones y limitaciones:
-De conformidad con el artículo 52 de la Ley de Planificación Urbana, desde el momento de publicación del Mapa de Zonificación con las zonas de rehabilitación incluidas, la Municipalidad, por el término de cinco años, podrá imponer en las áreas a rehabilitar, restricciones y limitaciones para fraccionar o construir en las propiedades señaladas en dicho mapa.

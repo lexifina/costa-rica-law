@@ -1,1 +1,0 @@
-Artículo 39.- Disposiciones supletorias: En lo no expresamente regulado por el presente reglamento se podrá acudir de manera supletoria a lo dispuesto por el Reglamento de los Derechos de Vía y Publicidad Exterior, Decreto Ejecutivo Nº 29253 del 5 de febrero del 2000 y sus reformas.
