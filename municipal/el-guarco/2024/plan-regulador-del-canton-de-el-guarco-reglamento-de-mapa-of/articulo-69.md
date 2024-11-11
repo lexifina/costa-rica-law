@@ -1,0 +1,2 @@
+ARTÍCULO 69. Cicloparqueos.
+La Municipalidad podrá definir con base en un Plan de Movilidad Activa, las áreas recreativas donde se requiera al menos un punto de estacionamiento de bicicletas o cicloparqueos, los cuales deberán tener una capacidad de al menos 10 usuarios. Así mismo deberá asegurar puntos de estacionamientos a lo largo del recorrido de las ciclovías que se construyan en los cuales se garantice la seguridad de los ciclistas y las bicicletas.

@@ -1,0 +1,2 @@
+ARTÍCULO 7. Permuta de terrenos y cambio de naturaleza o destino de bienes inmuebles públicos.
+Para todos los efectos de disponer de un bien público en el caso de una permuta con terrenos de propiedad privada, se ocupará de autorización de la Asamblea Legislativa para la desafectación del uso o fin público al que está vinculado el bien público de que se trate. De igual manera se necesitará la autorización legislativa previa para el solo cambio en la naturaleza o destino de un bien público.

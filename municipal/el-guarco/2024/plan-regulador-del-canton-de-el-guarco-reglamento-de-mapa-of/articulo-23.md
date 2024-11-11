@@ -1,0 +1,4 @@
+CAPÍTULO IV: DE LAS ÁREAS PUBLICAS EN FRACCIONAMIENTOS,
+URBANIZACIONES Y CONDOMINIOS.
+ARTÍCULO 23. Ampliaciones viales.
+En caso de fraccionamientos con fines urbanísticos o urbanizaciones, correrán por cuenta del fraccionador o urbanizador, la cesión de los espacios destinados a vías públicas, así como las ampliaciones o mejoras que requieran las vías públicas ya existentes, según el alineamiento vial emitido por la Municipalidad cuando se trate de vías públicas de la red vial cantonal o bien por el MOPT en el caso de vías públicas de la red vial nacional. En el caso de condominios, el fraccionador o urbanizador estará en obligación de ceder las respectivas ampliaciones viales, así como los derechos de vía para las vías propuestas según lo dispuesto en el presente Reglamento, así como en el Mapa Oficial del cantón de El Guarco.

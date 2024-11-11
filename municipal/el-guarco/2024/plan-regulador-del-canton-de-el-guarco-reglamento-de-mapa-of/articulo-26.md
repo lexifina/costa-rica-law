@@ -1,0 +1,3 @@
+ARTÍCULO 26. Colocación de objetos en áreas públicas.
+Cualquier señal u objeto saliente colocado en calles, aceras, o espacios públicos, deberá estar a una altura mínima de dos metros cincuenta centímetros (2,50m), salvo en el caso de los postes de seguridad, teléfonos públicos y armarios de distribución de teléfonos los cuales deberán ubicarse en las franjas verdes, de tal forma que, no obstruyan el paso de personas y vehículos sin que traspasen dicha franja, salvo que exista un reglamento específico que establezca otros criterios.
+No se permite la colocación de residuos sobre las aceras o espacios de vía pública en general, incluyendo residuos de procesos constructivos.

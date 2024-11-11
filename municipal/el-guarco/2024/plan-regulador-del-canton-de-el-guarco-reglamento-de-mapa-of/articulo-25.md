@@ -1,0 +1,2 @@
+ARTÍCULO 25. Previsión vial para vías públicas dentro de urbanizaciones existentes.
+En caso de detectarse incongruencia, entre la clasificación vial establecida en el Mapa Oficial de El Guarco para una determinada vía púbica, ubicada dentro de una urbanización que cuente con su plano general de catastro aprobado por la Municipalidad y el INVU, prevalecerá el derecho de vía establecido en dicho plano general de catastro para todos los efectos de alineamiento de construcción.

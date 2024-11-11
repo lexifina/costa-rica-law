@@ -1,0 +1,2 @@
+ARTÍCULO 18. Casetas de seguridad y mecanismos de control de acceso.
+Para todos los efectos de instalación de casetas de seguridad y dispositivos de acceso a cualquier lugar del cantón, se deberá observar lo dispuesto por la Ley No.8892, "Regulación de mecanismos de vigilancia del acceso a barrios residenciales con el fin de garantizar el derecho fundamental a la libertad de tránsito", sus reformas o normativa que la sustituya.

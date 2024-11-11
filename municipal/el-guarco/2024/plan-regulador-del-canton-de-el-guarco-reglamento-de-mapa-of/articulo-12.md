@@ -1,0 +1,2 @@
+ARTÍCULO 12. Red Vial Nacional.
+De acuerdo con la Ley General de Caminos Públicos y al deslinde de competencias establecido por el presente Reglamento de Mapa Oficial, la administración de las vías del Red Vial Nacional corresponde al Ministerio de Obras Públicas y Transportes (MOPT), siendo este Ministerio a través de sus instancias correspondientes, quién decidirá sobre los derechos de vía y alineamientos en dichas vías nacionales, todo de conformidad con la normativa de aplicación nacional vigente.

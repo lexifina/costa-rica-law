@@ -1,0 +1,2 @@
+ARTÍCULO 67. Dimensiones.
+El diseño de las ciclovías y zonas de estacionamiento deberán considerar una dimensión estándar de bicicletas de 1,90 m de largo, 0,60 m de ancho y 1,10 m de alto. El ancho de las sendas será como mínimo de 1,40 m para carriles unidireccionales y de 2,20 m para bidireccionales. Sin embargo, siempre que el derecho lo vía lo permita se debe procurar 1,60 m de ancho para carril unidireccional y 2,60 m de ancho para carril o ciclovía bidireccional.

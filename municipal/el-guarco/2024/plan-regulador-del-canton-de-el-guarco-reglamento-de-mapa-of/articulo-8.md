@@ -1,0 +1,6 @@
+CAPÍTULO II: DE LAS VÍAS PÚBLICAS EN EL CANTÓN DE EL GUARCO
+ARTÍCULO 8. Dominio sobre las vías públicas.
+Las vías públicas son imprescriptibles e inalienables, asimismo son propiedad del Estado todos los terrenos ocupados por carreteras y caminos públicos existentes o que se construyan en el futuro, mientras que la Municipalidad tiene la propiedad de las vías públicas dentro de su jurisdicción2, sobre las cuales podrán autorizarse las siguientes obras, instalaciones o facilidades:
+2 Artículo No.2. Ley General de Caminos Públicos.
+a. En superficie únicamente podrán autorizarse, además de las instalaciones propias de la vialidad rodada y peatonal, las públicas relativas al mobiliario urbano, tales como lámparas de iluminación, infraestructura de telecomunicaciones, semáforos, bancos, jardineras, marquesinas de transporte colectivo u otro mobiliario urbano; y excepcionalmente otras de uso especial y privativo tales como instalaciones de teléfonos, quioscos de venta de prensa, y/o facilidades para el transporte público, siempre que respondan a un programa general para todo el cantón.
+b. En el subsuelo del dominio público únicamente podrán autorizarse los usos relativos a infraestructura urbana, transportes colectivos y aparcamientos en régimen de concesión.
