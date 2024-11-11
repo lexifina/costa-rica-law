@@ -1,0 +1,1 @@
+Artículo 4º-El ámbito de aplicación del presente Reglamento se restringe únicamente a la jurisdicción del cantón de Osa, de la provincia de Puntarenas y es válido para todos los habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

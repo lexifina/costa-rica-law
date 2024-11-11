@@ -1,0 +1,1 @@
+Artículo 6º-El Comité de la Persona Joven deberá presentar anualmente un informe de labores detallado sobre su gestión y el uso de los recursos públicos como mecanismo de rendición de cuentas al Concejo Municipal y a la administración municipal.

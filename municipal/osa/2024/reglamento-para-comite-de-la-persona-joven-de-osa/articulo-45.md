@@ -1,0 +1,2 @@
+Artículo 45.-Recursos: Contra los acuerdos del CPJ de Osa, únicamente cabrá el recurso de revisión:
+a) Recurso de Revisión: Antes de la aprobación de acta, cualquier miembro del CPJ de Osa, podrá plantear un recurso de revisión en contra de un acuerdo tomado por ese órgano colegiado, salvo respecto de los acuerdos aprobados definitivamente en firme. El recurso se presentará por escrito, y para aceptar el recurso de revisión y declarar con lugar, se necesita la misma mayoría que requirió el acuerdo para ser aprobado.

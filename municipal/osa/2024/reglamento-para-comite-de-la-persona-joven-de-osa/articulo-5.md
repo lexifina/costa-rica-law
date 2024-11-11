@@ -1,0 +1,1 @@
+Artículo 5º-A efectos de la aplicación de la presente normativa, la Municipalidad dentro de su estructura técnico-administrativa brindará soporte al CPJ de Osa, para la realización, ejecución y evaluación de los proyectos dirigidos a las personas jóvenes.

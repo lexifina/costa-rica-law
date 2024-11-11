@@ -1,0 +1,1 @@
+Artículo 19.-El Concejo y la Alcaldía Municipal tomarán las medidas del caso, a fin de asignar recursos económicos destinados al fomento de la participación joven; así como a la difusión y promoción de programas dirigidos a esta población en temas de empleo y tecnología.

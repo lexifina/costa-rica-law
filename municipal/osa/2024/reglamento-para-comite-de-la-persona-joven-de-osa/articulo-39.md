@@ -1,0 +1,1 @@
+Artículo 39.-De la sede: Las sesiones del CPJ de Osa, deberán efectuarse en la sede del Gobierno Local. Lo anterior hasta que cuenten con la local sede del CPJ de Osa. A pesar de lo anterior, podrán celebrarse sesiones en cualquier lugar del cantón, cuando se vayan a tratar asuntos relativos a los intereses de la comunidad, y deberá decidirse mediante acuerdo del CPJ de Osa.

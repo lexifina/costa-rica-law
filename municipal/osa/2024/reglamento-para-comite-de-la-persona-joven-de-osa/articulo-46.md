@@ -1,0 +1,1 @@
+Artículo 46.-Medios de comunicación oficial: Servirán como medios de comunicación oficial el correo electrónico que cada miembro comunicó en tiempo y forma y el grupo de WhatsApp, con todos los miembros.

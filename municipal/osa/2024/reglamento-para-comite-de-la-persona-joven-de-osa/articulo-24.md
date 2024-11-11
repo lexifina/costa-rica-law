@@ -1,0 +1,1 @@
+Artículo 24.-Duración: Los miembros del CPJ de Osa, durarán en sus cargos dos años y podrán ser reelectos una sola vez, el nombramiento se hará a partir del 01 de enero de los años impares y se conformará en los meses de octubre y noviembre de cada año, en los años pares.

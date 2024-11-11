@@ -1,0 +1,1 @@
+Artículo 9º-La participación de las personas jóvenes en la gestión municipal se realizará de conformidad con lo establecido en la Ley General de la Persona Joven, la Constitución Política, los Convenios Internacionales, la Política Pública de la Persona Joven y demás leyes y reglamentos conexos.

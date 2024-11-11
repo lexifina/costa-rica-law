@@ -1,0 +1,1 @@
+Artículo 11.-El CPJ de Osa, nombrará de su seno por mayoría simple de votos una persona como representante propietario y otra como suplente para la Asamblea Nacional de la Red Consultiva de la Persona Joven, quienes fungirán en el puesto por un año y podrán ser reelectos por única vez, según lo establece la Ley General de la Persona Joven.

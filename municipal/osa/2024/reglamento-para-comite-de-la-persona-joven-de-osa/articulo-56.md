@@ -1,0 +1,1 @@
+Artículo 56.-El Comité contará con el apoyo, asesoría, coordinación y capacitación por parte del Área de Desarrollo económico, social y humano, en consuno con la Vicealcaldía municipal, para la formulación y ejecución de propuestas y proyectos locales y nacionales, de acuerdo con sus necesidades y de conformidad con el principio de legalidad.
