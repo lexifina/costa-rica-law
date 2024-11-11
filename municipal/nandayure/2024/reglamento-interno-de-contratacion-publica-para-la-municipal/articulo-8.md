@@ -1,5 +1,6 @@
 Artículo 8°-Funciones, facultades y responsabilidades de la proveeduría municipal.
-a. Tramitar y supervisar todos los procedimientos de contratación que se formulen en la municipalidad y brindar asesoría a las unidades solicitantes en relación con la decisión inicial y el tipo de modalidad a emplear cuando sea procedente, así como solicitar las correcciones que considere necesarias en las decisiones iniciales y elaborar las condiciones generales del pliego de condiciones de la contratación.
+a) Tramitar y supervisar todos los procedimientos de contratación que se formulen en la municipalidad y brindar asesoría a las unidades solicitantes en relación con la decisión inicial y el tipo de modalidad a emplear cuando sea procedente, así como solicitar las correcciones que considere necesarias en las decisiones iniciales.
+(Así reformado el inciso anterior en sesión N° 28 del 11 de noviembre de 2024)
 b. Tramitar los remates y las subastas.
 c. Coordinar con las unidades solicitantes en las gestiones y consultas que se deban remitir a la Contraloría General de la República, la Autoridad de Contratación Pública y la Dirección de Contratación Pública del Ministerio de Hacienda, para que sea remitida por la Alcaldía Municipal.
 d. Realizar la apertura de las ofertas de los procesos de contratación pública.

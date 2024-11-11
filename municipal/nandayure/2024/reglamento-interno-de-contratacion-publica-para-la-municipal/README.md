@@ -15,3 +15,4 @@ Reglamento interno de contratación pública para la Municipalidad del cantón d
 | --- | --- | --- |
 | 1 | 2024-03-22 | la propia norma |
 | 2 | 2024-05-07 | Reglamento municipal 1 (2024-05-07) |
+| 3 | 2024-11-11 | Reglamento municipal 28 (2024-11-11) |
