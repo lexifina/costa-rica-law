@@ -14,3 +14,4 @@ Nombramiento de la Comisión de donaciones del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-24 | la propia norma |
+| 2 | 2024-11-11 | Acuerdo 118 (2024-11-11) |
