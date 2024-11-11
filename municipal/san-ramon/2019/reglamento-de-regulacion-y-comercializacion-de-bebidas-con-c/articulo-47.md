@@ -1,7 +1,0 @@
-CAPÍTULO V
-DISPOSICIONES FINALES
-Artículo 47°— Vigencia. La licencia tendrá una vigencia de cinco años renovables por períodos iguales siempre y cuando la solicitud de prórroga se presente como máximo un mes antes del vencimiento. Al momento de la prórroga el interesado deberá cumplir con todos los requisitos legales establecidos. Dependiendo del tipo de evento o actividad a desarrollar la Municipalidad podrá solicitar que se aporten los requisitos adicionales que señala, el Reglamento de Espectáculos Públicos y la normativa conexa.
-Respetándose las situaciones jurídicas consolidadas, respecto a la ubicación geográfica.
-En la solicitud de prórroga se deberá adjuntar una constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social), de que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares.
-Además, al momento de solicitar la prórroga los interesados deberán estar al día en sus obligaciones formales y materiales con la Municipalidad.
-La Administración está facultada para ordenar la clausura temporal del establecimiento o actividad cuya licencia está vencida y la renovación no se haya iniciado. Ejecutada la medida y notificada la resolución, el acto de clausura es el que da inicio al procedimiento administrativo, para que el interesado ejerza su defensa, mediante la presentación de prueba y recursos pertinentes.

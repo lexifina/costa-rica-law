@@ -1,1 +1,0 @@
-Artículo 11°—Solidaridad. Los sujetos pasivos de la obligación tributaria, sean estas personas físicas o los representantes de las personas jurídicas serán solidariamente responsables por la no presentación de declaración cuando les sea requerido o por el no pago del impuesto, diferencias, multas y demás recargos establecidos en la Ley N° 9047 y este Reglamento.
