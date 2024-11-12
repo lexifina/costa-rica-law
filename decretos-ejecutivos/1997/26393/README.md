@@ -15,3 +15,4 @@ Reglamento Reconocimiento Disponibilidad Funcionarios Poder Ejecutivo
 | --- | --- | --- |
 | 1 | 1997-10-20 | la propia norma |
 | 2 | 1997-10-20 | Ley 8 |
+| 3 | 2024-11-12 | Decreto Ejecutivo 44755 (2024-11-12) |
