@@ -14,3 +14,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-31 | la propia norma |
+| 2 | 2024-11-12 | Decreto Ejecutivo 44789 (2024-11-12) |

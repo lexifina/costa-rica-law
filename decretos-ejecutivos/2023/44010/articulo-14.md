@@ -288,7 +288,7 @@ Segmento (MHz) | Atribución Región 2 (RR) | Atribución Costa Rica | Nota UIT 
 Frecuenci a inicial | Frecuenci a final |
 75,2 | 75,4 | FIJO MÓVIL 5.179 | FIJO MÓVIL | | |
 75,4 | 76 | FIJO MÓVIL | FIJO MÓVIL | | |
-76 | 88 | RADIODIFUSIÓN Fijo Móvil 5.185 | RADIODIFUSIÓN Fijo Móvil | | |
+76 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 88 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil 5.15 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | | CRT 007 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) |
 88 | 100 | RADIODIFUSIÓN | RADIODIFUSIÓN | | CTR 007 |
 100 | 108 | RADIODIFUSIÓN 5.192; 5.194 | RADIODIFUSIÓN | | CTR 007 |
 108 | 117,975 | RADIONAVEGACIÓN AERONÁUTICA 5.197; 5.197A | RADIONAVEGACIÓN AERONÁUTICA | 5.197A | CTR 001 |
@@ -345,7 +345,7 @@ Frecuenci a inicial | Frecuenci a final | Atribución Región 2 (RR) | | Nota UI
 162,0125 | 162,0375 | MÓVIL AERONÁUTICO (OR) MÓVIL MARÍTIMO MÓVIL POR SATÉLITE (Tierra-espacio) | MÓVIL AERONÁUTICO (OR) MÓVIL MARÍTIMO MÓVIL POR SATÉLITE (Tierra-espacio) | 5.228C 5.228D | CTR 001 CTR 008
 | | 5.228C; 5.228D | | |
 162,0375 | 174 | FIJO MÓVIL 5.226; 5.230; 5.231 | FIJO MÓVIL | 5.226 | CTR 009
-174 | 216 | RADIODIFUSIÓN Fijo Móvil | RADIODIFUSIÓN Fijo Móvil | |
+174 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 216 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | | CRT 012 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024)
 | | FIJO | | |
 216 | 220 | MÓVIL MARÍTIMO Radiolocalización 5.241 | FIJO MÓVIL MARÍTIMO Radiolocalización | 5.241 | CTR 001 CTR 010
 | | 5.242 | | |
@@ -409,10 +409,10 @@ Segmento 460 MHz a 890 MHz
 Segmento (MHz) | Atribución Región 2 (RR) | Atribución Costa Rica | Nota UIT adoptada | Notas Nacionales
 Frecuenci a inicial | Frecuenci a final
 460 | 470 | FIJO MÓVIL 5.286AA Meteorología por satélite (espacio-Tierra) 5.287; 5.288; 5.289; 5.290 | FIJO MÓVIL Meteorología por satélite (espacio-Tierra) | 5.286AA 5.287 5.289 | CTR 004 CTR 009
-470 | 512 | RADIODIFUSIÓN Fijo Móvil 5.292; 5.293; 5.295 | RADIODIFUSIÓN Fijo Móvil | | CTR 012
-512 | 608 | RADIODIFUSIÓN 5.295; 5.297 | RADIODIFUSIÓN | 5.297 | CTR 012
+470 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 512 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil 5.292; 5.293; 5.295 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil | 5.293 2.295 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | CTR 012 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024)
+512 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 608 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN 5.295; 5.296 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN | 5.295 2.297 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | CTR 012 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024)
 608 | 614 | RADIOASTRONOMÍA Móvil por satélite salvo móvil aeronáutico por satélite (Tierra-espacio) | RADIOASTRONOMÍA Móvil por satélite salvo móvil aeronáutico por satélite (Tierra-espacio) | | CTR 008 CTR 013
-614 | 698 | RADIODIFUSIÓN Fijo Móvil 5.293; 5.308; 5.308A; 5.309 | RADIODIFUSIÓN Fijo Móvil | | CTR 012
+614 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 698 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | RADIODIFUSIÓN Fijo Móvil 5.293; 5.308; 5.308A; 5.309 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | Móvil (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | 5.293 5.308 5.308 A (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024) | CTR 014 (Así reformada la frecuencia anterior por el artículo 2° del decreto ejecutivo N° 44789 del 12 de noviembre del 2024)
 698 | 806 | MÓVIL 5.317A RADIODIFUSIÓN Fijo 5.293; 5.309 | MÓVIL | 5.317A | CTR 014
 806 | 890 | FIJO MÓVIL 5.317A RADIODIFUSIÓN 5.317; 5.318 | MÓVIL | 5.317A | CTR 015 CTR 016
 | | Segmento 890 MHz a 1300 MHz | |
@@ -434,7 +434,7 @@ Frecuenci a inicial | Frecuenci a final
 1240 | 1300 | EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN RADIONAVEGACIÓN POR SATÉLITE (espacio-Tierra) (espacio-espacio) 5.328B; 5.329; 5.329A INVESTIGACIÓN ESPACIAL (activo) Aficionados 5.282; 5.330; 5.331; 5.332; 5.335; 5.335A | EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN RADIONAVEGACIÓN POR SATÉLITE (espacio-Tierra) (espacio-espacio) INVESTIGACIÓN ESPACIAL (activo) Aficionados | 5.282 5.328B 5.329 5.329A 5.332 5.335A | CTR 002
 Segmento 890 MHz a 1300 MHz
 Segmento (MHz) | Atribución Región 2 (RR) | Atribución Costa Rica | Nota UIT adoptada | Notas Nacionales | Segmento (MHz)
-Frecuencia inicial | Frecuencia final | | | |
+Frecuencia inicial | Frecuencia final
 1300 | 1350 | RADIOLOCALIZACIÓN RADIONAVEGACIÓN AERONÁUTICA 5.337 RADIONAVEGACIÓN POR SATÉLITE (Tierra- espacio) 5.149; 5.337A | RADIOLOCALIZACIÓN RADIONAVEGACIÓN AERONÁUTICA RADIONAVEGACIÓN POR SATÉLITE (Tierra- espacio) | 5.149 5.337 5.337A | CTR 001
 1350 | 1400 | RADIOLOCALIZACIÓN 5.338A | RADIOLOCALIZACIÓN | 5.149 5.338A |
 | | 5.149; 5.334; 5.339 | | 5.339
