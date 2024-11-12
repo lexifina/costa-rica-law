@@ -1,0 +1,1 @@
+Artículo 8°-Documentación. Una vez el Conassif ha designado a la persona idónea, el Comité de Nombramientos procederá a documentar los acuerdos respectivos. Para este fin, se mantendrá un repositorio en la intranet del Conassif para archivar las minutas y demás documentación generada en cada proceso de contratación.

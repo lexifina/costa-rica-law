@@ -1,0 +1,1 @@
+Artículo 5°-Quórum y acuerdos. El quórum de las sesiones del Comité de Nombramientos se conformará con tres de los cuatros miembros. Los acuerdos se adoptarán por mayoría absoluta de los miembros presentes. En caso de empate el voto del presidente será considerado como voto de calidad.
