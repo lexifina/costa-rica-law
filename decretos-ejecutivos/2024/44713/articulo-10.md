@@ -1,0 +1,2 @@
+Artículo 10°- Prevalencia. Lo dispuesto en el presente Manual es respetuoso de la normativa dictada por la Contraloría General de la República.
+Si en virtud de la potestad reglamentaria que el Órgano Contralor ejerce, según lo dispuesto en el artículo 23 de la Ley Orgánica de la Contraloría General de la República, este emanare alguna nueva reglamentación, que causare duda o que algo de lo aquí dispuesto se contraponga, prevalecerá la del órgano contralor en colación con el artículo 3 de la Ley General de Control Interno.
