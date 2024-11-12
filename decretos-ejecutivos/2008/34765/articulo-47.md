@@ -1,21 +1,41 @@
-Artículo 47.—De los requisitos para la obtención de un permiso. Para la obtención de un permiso para el uso de las bandas de frecuencias a que se refieren los incisos b), c) y d) del artículo 9 de la Ley General de Telecomunicaciones, deberá presentar ante el Poder Ejecutivo, los siguientes requisitos:
-a. Nombre del solicitante.
-b. Número de cédula de identificación.
-c. Ocupación.
-d. Indicar dirección exacta del domicilio.
-e. Nombre o razón social del solicitante.
-f. Cédula jurídica (adjuntar copia).
-g. Número de teléfono.
-h. Apartado postal.
-i. Lugar para escuchar notificaciones.
-j. Lugar donde se instalará el, o los equipos de radiocomunicación.
-k. Indicar las características técnicas de los equipos.
-l. Firma del solicitante o representante legal autenticada.
-m. Lugar y fecha de la solicitud.
-Además, cuando se trate de naves deberá adjuntar, lo siguiente:
-a. Clase de nave.
-b. Número de registro o matrícula. (Adjuntar copia).
-c. Lugar de registro.
-d. Nombre de la nave.
-e. Actividad a la que se dedica la nave.
-f. Certificado de matrícula.
+Artículo 47.- De los requisitos para la obtención de un permiso de uso de bandas de frecuencias. Para la obtención de un permiso de uso de bandas de frecuencias a que se refieren los incisos b), c) y d) del artículo 9 de la Ley Nº 8642, "Ley General de Telecomunicaciones", la persona solicitante deberá presentar ante el Poder Ejecutivo, específicamente ante el Viceministerio de Telecomunicaciones del MICITT, formal solicitud a través del formulario correspondiente según el trámite, junto con los siguientes requisitos:
+1. Banda Angosta:
+Para la solicitud de otorgamiento de los permisos de uso de frecuencias para ser usadas en sistemas de radiocomunicación en banda angosta, se deberán presentar los requisitos anteriores, junto con el formulario Nº MICITT-DCNTDNPT-FORM-001, disponible para su acceso y descarga en el sitio web del MICITT, completando la siguiente información:
+a. Nombre de la persona física o jurídica solicitante, el de su apoderado(a) o representante legal, en caso de proceder.
+b. Número del documento de identificación oficial (cédula de identidad, documento de identidad migratorio para extranjeros - DIMEX, o pasaporte), o cédula de persona jurídica en caso de personas jurídicas, o en caso de resultar procedente el del(de la) apoderado(a) o representante legal del(de la) solicitante.
+c. Correo electrónico para recibir notificaciones.
+d. Dirección exacta del domicilio de la persona física o jurídica solicitante, haciendo referencia a la provincia, cantón y distrito según el Sistema Nacional de Información Territorial (SNIT).
+e. Indicación de número de teléfono para contacto.
+f. Nombre y contacto del(de la) encargado(a) técnico(a) del sistema de radiocomunicaciones, el cual debe incluir al menos: teléfono, correo electrónico y dirección exacta de casa u oficina haciendo referencia a la provincia, cantón y distrito según el SNIT.
+g. Clasificación de tipo de uso: no comercial, uso oficial y/o seguridad, socorro y emergencia.
+h. Aportar un diagrama completo y detallado de la red de radiocomunicaciones en donde se muestre la relación entre los diferentes equipos que conforman el sistema.
+i. Presentar las hojas de especificaciones técnicas del fabricante para cada uno de los equipos por utilizar, las cuales deben mostrar al menos lo siguiente: marca, modelo, rango de frecuencias de operación, potencia de transmisión, ancho de banda, separación de canal y sensibilidad del receptor.
+j. Presentar las hojas de especificaciones técnicas del fabricante para cada una de las antenas con su respectivo patrón de irradiación en un archivo *.txt en el formato NSMA o MSI, las cuales deben mostrar al menos lo siguiente: marca, modelo, rango de operación y ganancia (indicarse en unidades dBi).
+k. Presentar la localización de los emplazamientos (latitud y longitud) utilizando las coordenadas geográficas con el datum WGS84 en el formato decimal con mínimo 6 cifras significativas (dd°,dddddd). Debe incluirse la altura del sitio (MSNM), así como la dirección exacta haciendo referencia a la provincia, el cantón y el distrito según el SNIT.
+l. Indicar el rango de frecuencias de operación solicitado, las pérdidas totales del sistema, la designación de la emisión, la modulación de la portadora y potencia de operación deseada. Asimismo, respecto de la antena o sistemas de antenas se debe especificar la polarización, azimuth, ángulo de elevación y la altura de la antena respecto al suelo.
+m. Presentar la información técnica para cada tipo de dispositivos, ya sean fijos, móviles o portátiles, así como si son equipos en embarcaciones o aeronaves.
+n. En caso de solicitudes para usos temporales, se debe indicar el rango de fechas que se desea la utilización del recurso.
+o. Presentar una descripción detallada de la actividad a la que se dedica la persona física o jurídica solicitante
+p. Entregar una justificación amplia y detallada del uso del espectro pretendido.
+q. Indicar la zona de cobertura donde se desean utilizar las frecuencias solicitadas.
+r. Lugar y fecha de la solicitud.
+s. La firma del(de la) solicitante en la solicitud y formulario correspondiente debe de estar autenticada por Notario Público, o en su defecto ser puesta en presencia de la persona funcionaria que recibe la solicitud la cual dará fe de la autenticidad de esta, o firmada digitalmente, según se indica en el artículo 17 del presente Reglamento.
+t. El solicitante deberá estar al día con el pago de las obligaciones con la Caja Costarricense de Seguro Social (CCSS) y con el Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), tal y como lo establecen los artículos 30, 51 y 74 inciso 1) de la Ley N° 17, "Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS", y el artículo 22 inciso a) de la Ley Nº 5662, "Ley de Desarrollo Social y Asignaciones Familiares", información que será verificada por personas funcionarias del Viceministerio de Telecomunicaciones. Asimismo, deberán estar al día con sus obligaciones tributarias materiales y formales con el Ministerio de Hacienda, según el mandato impuesto por el artículo 18 bis de la Ley Nº 4755, "Código de Normas y Procedimientos Tributarios", y el artículo 16 de la Ley Nº 9416, "Ley para Mejorar la Lucha contra el Fraude Fiscal".
+u. Cumplir las disposiciones generales del artículo 17 del presente Reglamento.
+2. Permisos de uso de frecuencias en bandas del servicio móvil marítimo para equipos de radiocomunicación instalados en embarcaciones y/o el servicio de operaciones portuarias.
+Para los permisos de uso de frecuencias en bandas del servicio móvil marítimo para equipos de radiocomunicación instalados en embarcaciones y/o el servicio de operaciones portuarias, deberá adjuntar al formulario Nº MICITT- DCNT-DNPT-FORM-004, disponible en el sitio web del MICITT, los requisitos indicados en el inciso 1 del presente artículo y los siguientes requisitos adicionales:
+a. Copia del registro o certificado de matrícula vigente.
+b. Copia del certificado de navegabilidad vigente.
+c. Número de casco, lugar de registro, marca del motor, número de serie del motor, armador, dimensión de la eslora, dimensión de la manga, dimensión puntal, arqueo bruto, y arqueo neto.
+3. Permisos de uso de frecuencias en bandas del servicio móvil aeronáutico para equipos de radiocomunicación instalados en aeronaves y/o estaciones terrestres.
+Cuando se trate de permisos de uso de frecuencias en bandas del servicio móvil aeronáutico para equipos de radiocomunicación instalados en aeronaves y/o estaciones terrestres, se deberá adjuntar el formulario Nº MICITT-DCNT-DNPT-FORM-005, disponible en el sitio web del MICITT, los requisitos indicados en el inciso 1 del presente artículo y los siguientes requisitos adicionales:
+a. Copia del registro o certificado de matrícula vigente.
+b. Copia del certificado de aeronavegabilidad vigente.
+c. Aval del Departamento de Aeronavegabilidad de la Dirección General de Aviación Civil (DGAC) donde se certifique que él o los radios se encuentran en condiciones aptas de operación.
+d. En caso de requerir frecuencias en la banda aeronáutica para una estación terrestre, deberá adjuntar al formulario el aval de la DGAC. Para obtener dicho aval tendrá que presentar ante la DGAC el formulario correspondiente.
+e. En caso de equipos de radio instalados en aeronaves debe indicar los siguientes datos: la clase de aeronave, lugar de registro, marca y modelo de la aeronave, nombre del propietario de la aeronave, indicativo de la aeronave, número de serie de la aeronave y estabilidad de frecuencias de los equipos.
+4. Permisos de uso de frecuencias para sistemas de enlaces del servicio fijo y para sistemas satélites, en frecuencias de asignación no exclusiva.
+Para la solicitud de permisos de uso de frecuencias para sistemas de enlaces del servicio fijo y para sistemas satélites, en frecuencias de asignación no exclusiva, además de los requisitos del inciso 1. del presente artículo, se deberán presentar los requisitos establecidos en los apartes II (para sistemas de enlaces del servicio fijo) y III (para sistemas satélites) del "Por Tanto" X, de la Resolución N° RCS-281-2023, de fecha 16 de noviembre de 2023, del Consejo de la Superintendencia de Telecomunicaciones, publicada en el Alcance N° 233 al Diario Oficial La Gaceta N° 219 de fecha 24 de noviembre de 2023, los cuales se encuentran detallados en el formulario Nº MICITT-DCNT-DNPT-FORM-006, disponible para su acceso y descarga en el sitio web del MICITT.
+5. Permisos de uso de frecuencias para eventos diplomáticos.
+En el caso de solicitudes de permisos de uso de frecuencias para eventos diplomáticos, deberán aportarse los requisitos indicados en el artículo 45 Bis. del presente Reglamento, indicando el nombre de la delegación diplomática u organización, el nombre del encargado del trámite, y el formulario Nº MICITT-DCNT-DNPT-FORM-009, disponible para su acceso y descarga en el sitio web del MICITT.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44822 del 12 de noviembre del 2024)

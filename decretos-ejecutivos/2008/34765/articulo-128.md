@@ -1,13 +1,18 @@
-Artículo 128.—De la autorización para la transmisión de anuncios comerciales. Para la autorización de difusión de un anuncio comercial fílmico, o corto fílmico deberá presentar una solicitud firmada por el anunciante o por un representante de su agencia de publicidad donde indique lo siguiente:
-a. Nombre del anunciante.
-b. Nombre de la agencia de publicidad.
-c. Nombre de la empresa productora, indicando su domicilio social.
-d. Nombre del producto anunciado.
-e. Versión del comercial.
-f. Duración en segundos.
-g. Medio de telecomunicaciones en el que se difundirá.
-h. Nombre y nacionalidad del o los locutores.
-i. Nombre y nacionalidad del productor musical.
-j. Adjuntar copia del anuncio comercial en formato digital.
-En caso de anuncios comerciales de origen costarricense, declarar bajo juramento que el corto sometido para aprobación cumple con este criterio, bajo responsabilidad del firmante en caso de falsedad.
-Cuando se trate de comerciales de origen extranjero, la solicitud deberá acompañarse por los documentos que certifique que el impuesto correspondiente ha sido debidamente cancelado. Los anuncios radiales de origen extranjero deberán someterse al procedimiento aquí establecido.
+Artículo 128.- Sobre los requisitos para la autorización del origen de locución, jingle y/o video de los anuncios publicitarios comerciales. Para efectos de la aplicación del artículo 11 de la Ley Nº 1758, "Ley de Radio (Servicios Inalámbricos)", los anuncios publicitarios comerciales nacionales o extranjeros deberán registrarse ante el MICITT en su calidad de Ente Rector de Telecomunicaciones.
+Para la autorización del origen de locución, jingle y/o video de la posterior difusión de un anuncio publicitario comercial se deberá presentar el formulario N° MICITT-DERRT-DAER-FORM-001, debidamente completo de forma física en las oficinas del MICITT o bien firmado digitalmente al correo tramites_radio@micitt.go.cr, el formulario correspondiente que se encuentra disponible para su acceso y descarga en la página del MICITT, en el cual se debe completar la siguiente información:
+a. Nombre de la persona física o jurídica solicitante de la autorización. Si se tratare de personas físicas deberá indicar el número del documento de identificación oficial (cédula de identidad, documento de identidad migratorio para extranjeros - DIMEX, o pasaporte). En caso de personas jurídicas el solicitante deberá indicar el número de cédula de persona jurídica, domicilio social e indicar el nombre y número de identificación oficial de la persona representante legal o apoderada quien suscribe la solicitud.
+b. Nombre del anunciante.
+c. Nombre del producto o servicio anunciado.
+d. Nombre de la versión del comercial y reducciones, esto último en caso de que aplique.
+e. Duración en segundos.
+f. Medio(s) por el(los) cual(es) se difundirá(n) (televisión abierta, radio AM/FM y salas de cine).
+g. Nombre completo, documento de identificación oficial (cédula de identidad, DIMEX, pasaporte, cédula de residencia), y nacionalidad del(de la) o los(las) locutores(as). Cuando se trate de un testimonio por parte de una persona ciudadana no profesional en locución, debe indicarlo como testimonial.
+h. Indicar si la locución, audio o video es de origen extranjero.
+i. Adjuntar copia del anuncio comercial en formato digital (calidad baja) y sus reducciones, esto último en caso de que aplique.
+j. Declaración jurada con la definición de anuncios publicitarios como comerciales o informativos. La firma en la declaración jurada deberá de estar autenticada por Notario Público, o en su defecto ser puesta en presencia de la persona funcionaria que recibe la solicitud la cual dará fe de la autenticidad de esta según se indica en el artículo 17 del presente Reglamento.
+k. Cuando se trate de anuncios de origen extranjero, la solicitud deberá acompañarse por los documentos que acrediten que el impuesto que se establece en el inciso d) del artículo 11 de la Ley Nº 1758, "Ley de Radio (Servicios Inalámbricos)", ha sido debidamente cancelado.
+l. Dirección de correo electrónico para recibir notificaciones.
+m. La firma del(de la) solicitante deberá estar autenticada en los términos del artículo 17 de este Reglamento.
+n. El(La) solicitante deberá estar al día con el pago de las obligaciones con la Caja Costarricense de Seguro Social (CCSS) y con el Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF), tal y como lo establecen los artículos 30, 51 y 74 inciso 1) de la Ley N° 17, "Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS", y el artículo 22 inciso a) de la Ley Nº 5662, "Ley de Desarrollo Social y Asignaciones Familiares", información que será verificada por personas funcionarias del Viceministerio de Telecomunicaciones. Asimismo, deberán estar al día con sus obligaciones tributarias materiales y formales con el Ministerio de Hacienda, según el mandato impuesto por el artículo 18 bis de la Ley Nº 4755, "Código de Normas y Procedimientos Tributarios", y el artículo 16 de la Ley Nº 9416, "Ley para Mejorar la Lucha contra el Fraude Fiscal".
+La vigencia de esta autorización será por un (1) año. Finalizado dicho plazo deberá gestionarse nuevamente la autorización en caso de requerirse. Cuando se trate de un anuncio publicitario informativo, dicha pauta no se encuentra sujeta a las disposiciones establecidas en el presente artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44822 del 12 de noviembre del 2024)

@@ -45,6 +45,7 @@ articulo-44.md
 articulo-45.md
 articulo-45-bis.md
 articulo-46.md
+articulo-46-bis.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
@@ -100,6 +101,7 @@ articulo-98.md
 articulo-99.md
 articulo-100.md
 articulo-101.md
+articulo-101-bis.md
 articulo-102.md
 articulo-103.md
 articulo-104.md
@@ -127,6 +129,7 @@ articulo-125.md
 articulo-126.md
 articulo-127.md
 articulo-128.md
+articulo-128-bis.md
 articulo-129.md
 articulo-130.md
 articulo-131.md
