@@ -1,2 +1,0 @@
-Artículo 13.—Se tendrá por no realizada la asamblea que no pueda ser fiscalizada por errores en la dirección suministrada, sea porque resulte inexistente o imprecisa, así como por cualquier otra inexactitud atribuible al partido político.
-Cualquier solicitud de cambio en la dirección, fecha u hora de la asamblea, se tramitará como una nueva solicitud que deberá cumplir con los requisitos señalados en el presente reglamento, salvo que la petición se formule antes de que se cumpla en el plazo de cinco días hábiles previsto en el artículo 11 de este reglamento.

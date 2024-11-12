@@ -1,3 +1,0 @@
-Artículo 14.—Para su adecuada fiscalización, las asambleas partidarias sólo podrán ser convocadas para celebrarse entre las 08:00 y las 19:00 horas.
-Los locales que se utilicen para tales efectos deberán estar ubicados en lugares de fácil acceso por medio de transporte público, en la modalidad de autobús, y contar con condiciones de seguridad, salubridad y orden que garanticen el desarrollo normal de la asamblea.
-Cuando la asamblea se realice en edificios públicos, deberá adjuntarse a la solicitud la autorización correspondiente. Será responsabilidad de la agrupación política garantizar el cumplimiento de las condiciones descritas en el párrafo anterior.
