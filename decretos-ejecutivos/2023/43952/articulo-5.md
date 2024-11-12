@@ -20,12 +20,8 @@ Artículo 5.- Definiciones. Para efectos del presente reglamento, se establecen 
 19) Personas servidoras públicas de nuevo ingreso: son aquellas que no habían laborado previamente para la Administración Pública o que, habiéndolo hecho, cesara su continuidad laboral y reingresan a prestar servicios.
 20) Personal de la gestión pública: personas servidoras públicas que presten servicios por cuenta y a nombre de la Administración mediante un acto válido y eficaz de investidura, cuyas relaciones se rigen por el derecho administrativo y que, ejerciendo una competencia pública, realicen actuaciones de naturaleza administrativa cuyo resultado sea la creación, supresión o alteración de relaciones jurídicas con el resto de personas servidoras públicas de la institución y con los administrados, sin perjuicio de las regulaciones especiales contenidas en la Ley 2, Código de Trabajo, de 27 de agosto de 1943, y el artículo 112 de la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, relativas a negociación colectiva y el pago de derechos laborales.
 21) Planificación del empleo: es la base de todo el sistema de recursos humanos y permite prever y anticipar políticas coherentes para todos los demás subsistemas interconectados de recursos humanos.
-22) Prohibición: Impedimento para el ejercicio liberal de la profesión de conformidad con las siguientes leyes:
-a) Ley No. 8422, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública del 06 de octubre del 2004 y sus reformas.
-b) Ley No. 4755, Código de Normas y Procedimientos Tributarios del 3 de mayo de 1971 y sus reformas.
-c) Ley No. 8292, Ley de Control Interno del 31 de julio de 2002 y sus reformas.
-d) Ley No. 5867, Ley de compensación por pago de Prohibición del 15 de diciembre de 1975 y sus reformas.
-e) Ley No. 9635, Ley de Fortalecimiento de las Finanzas Públicas, del 3 de diciembre del 2018.
+22) Prohibición: Impedimento para el ejercicio liberal de la profesión derivado de una disposición legal expresa, el cual es requerido y no opcional para poder ejercer un determinado puesto.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44755 del 12 de noviembre de 2024)
 23) Puesto: conjunto de deberes y responsabilidades ordinarias y extraordinarias, asignados o delegados por la persona servidora pública que tenga autoridad para ello, que requieran el trabajo permanente o temporal de una persona, siempre y cuando esté conforme a la organización del trabajo.
 24) Rectoría Política: Competencias de coordinación y organización que le atañen a MIDEPLAN al tenor de los artículos 46 de la Ley de Salarios de la Administración Pública, N° 2166 y 7 de la Ley Marco de Empleo Público, N° 10.159.
 25) Salario: remuneración que se percibe a cambio del servicio prestado en el desempeño del trabajo.
