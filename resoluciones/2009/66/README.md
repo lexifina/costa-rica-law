@@ -14,3 +14,4 @@ Directrices generales sobre la obligatoriedad de utilizar el Módulo de Declarac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2024-11-13 | Resolución 122 (2024-11-13) |
