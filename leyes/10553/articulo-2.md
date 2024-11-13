@@ -1,0 +1,1 @@
+ARTÍCULO 2- Declaratoria. Se declara patrimonio histórico cultural material y natural de la provincia de Limón, el casco central de la ciudad de Guápiles, en el cantón Pococí, el cual comprende la Escuela Líder Central de Guápiles, el Parque Central, la Plaza El Salvador y las centenarias filas de palmeras.

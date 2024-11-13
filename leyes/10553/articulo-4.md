@@ -1,0 +1,1 @@
+ARTÍCULO 4- Obligación de solicitar permiso. Los propietarios, poseedores y titulares de derechos reales sobre esos bienes tendrán la obligación de conservarlos en el mejor estado posible. De previo a la ejecución de las obras de mejoras o remodelaciones, deberán gestionar el permiso respectivo ante las autoridades competentes del Ministerio de Cultura y Juventud.
