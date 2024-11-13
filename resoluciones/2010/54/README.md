@@ -18,3 +18,4 @@ Directrices generales a los sujetos pasivos de la Contraloría General de la Rep
 | 3 | 2019-07-18 | Resolución 69 (2019-07-18) |
 | 4 | 2021-11-12 | Resolución 106 (2021-11-12) |
 | 5 | 2022-11-11 | Resolución 117 (2022-11-11) |
+| 6 | 2024-11-13 | Resolución 122 (2024-11-13) |
