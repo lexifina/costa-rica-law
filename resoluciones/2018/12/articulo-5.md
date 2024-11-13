@@ -1,1 +1,0 @@
-Artículo 5º—Sanciones: El incumplimiento de la obligación señalada en la presente resolución, será el fundamento para que la Administración Tributaria inicie el procedimiento para aplicar la sanción establecida en el artículo 83 del Código de Normas y Procedimientos Tributarios.
