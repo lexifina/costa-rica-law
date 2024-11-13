@@ -1,0 +1,3 @@
+ARTÍCULO 4- Refórmese el párrafo primero del artículo 95 de la Ley 2, Código de Trabajo, de 26 de agosto de 1943. El texto es el siguiente:
+Artículo 95- La trabajadora embarazada gozará obligatoriamente de una licencia remunerada por maternidad, durante el mes anterior al parto y los tres posteriores a él. Estos tres meses también se considerarán como período mínimo de lactancia, el cual, por prescripción médica, podrá ser prorrogado para los efectos del artículo anterior. El goce de la licencia y subsecuentes no se verá afectado por la condición laboral interina de las mujeres trabajadoras.
+[…]
