@@ -1,2 +1,3 @@
-Artículo 164- lnadmisión de la declaración de parte. No será admisible la declaración de parte sobre hechos referentes a derechos no disponibles, salvo que sea necesaria como elemento integrador de otras pruebas o para tener mejor visión del conflicto familiar.
-Por ningún motivo se admitirá la prueba de declaración de parte en los procedimientos de aplicación de las medidas de protección contra la violencia doméstica, ni en los procesos de protección cautelar establecidos en este Código.
+Artículo 164- Inadmisión de la declaración de parte. No será admisible la declaración de parte sobre hechos referentes a derechos no disponibles, salvo que sea necesaria como elemento integrador de otras pruebas o para tener mejor visión del conflicto familiar.
+Esta probanza será admisible en procesos de violencia doméstica y de protección cautelar, únicamente cuando se considere que haya probabilidad que se esté en presencia de un fraude procesal o en los supuestos del artículo 1 de la Ley contra la Violencia Doméstica.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)
