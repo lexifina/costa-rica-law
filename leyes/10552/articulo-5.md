@@ -1,0 +1,2 @@
+ARTÍCULO 5- Área de interés turístico. Comprende los distritos de Orosi y Cachí, el cual incluye el embalse de la Planta Hidroeléctrica Cachí, por su alto potencial paisajístico.
+El desarrollo de actividades de ecoturismo en el embalse Cachí y terrenos aledaños, propiedad del Instituto Costarricense de Electricidad (ICE), queda sujeto a las condiciones que establezca el Instituto, para asegurar la operación, el mantenimiento y la generación eléctrica de dicha planta.

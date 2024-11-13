@@ -1,0 +1,2 @@
+ARTÍCULO 9- Apoyo municipal. La Municipalidad promoverá el uso de inmuebles con potencial de desarrollo ecoturístico, con aquellos propietarios públicos o privados presentes en la zona.
+Asimismo, promoverá, ante la banca pública o privada, programas de financiamiento requeridos para la implementación de las actividades de ecoturismo, de acuerdo con los términos de la presente ley. Además, incentivará la suscripción de alianzas público-privadas para el cumplimiento del objeto de esta ley.
