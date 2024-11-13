@@ -1,0 +1,2 @@
+ARTICULO 4- Para gozar del beneficio otorgado por esta ley, se deberá demostrar, ante la Municipalidad de Guácimo, que se ha ejercido su derecho de posesión por el periodo de posesión de un mínimo de diez años, de manera continua, publica, pacífica y a título de dueño.
+Para el cálculo del término se computará la transferencia de la posesión de los anteriores poseedores, según el artículo 863 de la Ley 63, Código Civil, de 28 de setiembre de 1887.
