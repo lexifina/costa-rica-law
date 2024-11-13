@@ -1,0 +1,1 @@
+ARTÍCULO 2- Interés público. Esta ley es de interés público y está destinada a promover ambientes libres de violencia en los espacios públicos, procurando el respeto por la dignidad humana, el derecho a la paz, a la integridad personal, a la participación y a la no discriminación de las personas jóvenes.

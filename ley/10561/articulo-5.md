@@ -1,0 +1,7 @@
+ARTÍCULO 5- Modalidades de violencia en los espacios públicos. La violencia en los espacios públicos puede manifestarse de las siguientes formas:
+a) Física: toda acción intencional que busque dañar a una persona, o grupo de personas, en su integridad física.
+b) Patrimonial: las acciones dirigidas a dañar o tomar en posesión, sin consentimiento, las pertenencias de otras personas.
+c) Verbal: se manifiesta por medio del lenguaje verbal que produce daños a la dignidad de las otras personas, tales como insultos, palabras agresivas y comentarios discriminatorios.
+d) Social: toda manifestación que excluye o margina a las personas del espacio público en razón de su género, etnia o raza, nacionalidad, religión, orientación sexual e identidad de género, condición de discapacidad, estatus socioeconómico o cualquier otra condición social.
+e) Sexual: manifestación que vulnera la integridad de las personas por medio de comentarios no deseados, insinuaciones o amenazas con contenido sexual, y todas aquellas conductas tipificadas dentro de los delitos sexuales y la normativa sobre acoso y hostigamiento sexual.
+f) Violencia psicológica: conjunto de acciones, comportamientos y/o actitudes que tienen por objeto controlar, manipular, humillar y/o generar un perjuicio emocional a una persona o grupo de personas mediante el uso de la intimidación, el miedo, la culpa, la vergüenza y la negación, para afectar la estabilidad y el bienestar mental de la persona o personas que lo sufren.
