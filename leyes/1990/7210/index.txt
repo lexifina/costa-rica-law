@@ -30,6 +30,7 @@ articulo-21-ter.md
 articulo-21-quater.md
 articulo-21-quinquies.md
 articulo-21-sexies.md
+articulo-21-septies.md
 articulo-22.md
 articulo-23.md
 articulo-24.md

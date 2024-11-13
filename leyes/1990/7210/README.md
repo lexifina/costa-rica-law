@@ -1,6 +1,6 @@
 # Ley de Régimen de Zonas Francas
 
-Ley N° 7210 del 1990-11-23. SINALEVI, ficha 11593: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11593&param2=130478&param3=1>.
+Ley N° 7210 del 1990-11-23. SINALEVI, ficha 11593: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11593&param2=143203&param3=1>.
 
 Publicada en La Gaceta N° 238 del 1990-12-14.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 10 | 2019-08-30 | Ley 9689 | 2019-05-24 |
 | 7 de 10 | 2020-07-14 | Ley 9851 | 2020-06-17 |
 | 8 de 10 | 2022-05-23 | Ley 10234 | 2022-05-04 |
+| 9 de 10 | 2024-11-13 | Ley 10559 | 2024-10-17 |

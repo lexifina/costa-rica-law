@@ -1,7 +1,7 @@
 CAPITULO V
 Los beneficiarios
-ARTÍCULO 17.- Las empresas que se acojan al régimen de zonas francas se clasificarán bajo una o varias de las siguientes categorías:
-(Así reformado el párrafo anterior por el aparte c) del artículo 2° de la ley N° 8794 del 12 de enero de 2010)
+Artículo 17- Las industrias que se acojan al régimen de zonas francas se clasificarán bajo una o varias de las siguientes categorías:
+(Así reformado el párrafo anterior por el artículo 2° de la Ley para incentivar la reactivación del sector cultural y la atracción de producciones fílmicas y musicales, N° 10559 del 17 de octubre de 2024)
 a) Industrias procesadoras de exportación que producen, procesan o ensamblan para la exportación o reexportación.
 b) Empresas comerciales de exportación, no productoras, que simplemente manipulan, reempacan o redistribuyen mercaderías no tradicionales y productos para la exportación o reexportación.
 c) las empresas de servicios que cumplan con el índice de Elegibilidad Estratégica para Empresas de Servicios (IEES) las entidades bancarias, financieras y aseguradoras que se instalen en las zonas francas no podrán acogerse a los beneficios de este régimen.
@@ -22,6 +22,8 @@ i) Empresas desarrolladoras de parques sostenible de aventura, localizadas fuera
 En estos casos, se exigirá un plan de inversión a cumplir en un período de ocho años, calculado con base en el valor en libros de los activos sujetos a depreciación y, al menos, cincuenta empleados permanentes, durante toda la operación de la empresa, debidamente reportados en planilla ante la Caja Costarricense de Seguro Social.
 El cómputo del plazo inicial de ese beneficio se contará a partir de la fecha de inicio de las operaciones productivas de la empresa beneficiaria, siempre que dicha fecha no exceda de tres años a partir de la publicación del respectivo acuerdo de otorgamiento. El monto de inversión inicial se considerará un requisito de permanencia en el régimen.
 (Así adicionado el inciso i) anterior por el artículo 4° de la Ley de fortalecimiento de la competitividad territorial para promover la atracción de inversiones fuera de la Gran Área Metropolitana (GAM), N° 10234 del 4 de mayo del 2022)
+j) Empresas de la industrias fílmicas, audiovisuales y discográficas que se instalen permanentemente fuera de la Gran Área Metropolitana (GAM).
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para incentivar la reactivación del sector cultural y la atracción de producciones fílmicas y musicales, N° 10559 del 17 de octubre de 2024)
 Finalmente, no podrán ingresar al régimen de zonas francas las empresas que se dediquen a la extracción minera, la exploración o extracción de hidrocarburos, la producción o comercialización de armas y municiones que contenga uranio empobrecido y las compañías que se dediquen a la producción o comercialización de cualquier tipo de armas. Tampoco podrán ingresar al régimen las empresas que se dediquen a la generación de energía eléctrica, salvo que la generación sea para el autoconsumo. Esta salvedad también aplicara a los supuestos contenidos en el artículo 16 bis de la presente ley.
 (Así adicionado el párrafo anterior por el aparte c) del artículo 2° de la ley N° 8794 del 12 de enero de 2010)
 (Así reformado el párrafo anterior por el artículo 3° de la Ley de fortalecimiento de la competitividad territorial para promover la atracción de inversiones fuera de la Gran Área Metropolitana (GAM), N° 10234 del 4 de mayo del 2022)
