@@ -1,0 +1,2 @@
+ARTÍCULO 6- Delimitación. El desarrollo de actividades de ecoturismo en el embalse Cachí, y los terrenos aledaños propiedad del Instituto Costarricense de Electricidad (ICE), quedará supeditado a la zonificación y demás condiciones técnicas que establezca el Instituto.
+El ICE, mediante la zonificación, delimitará las áreas de restricción absoluta y de seguridad operativa, tanto en el embalse como en sus inmuebles.
