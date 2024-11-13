@@ -1,1 +1,2 @@
-Artículo 172- Sustitución de testigos. En cualquier estado del proceso, incluso hasta antes de la etapa de recepción de la prueba, se podrá solicitar la sustitución de quienes han sido ofrecidos para declarar, siempre y cuando el cambio no produzca retraso o imposibilidad en la realización de la audiencia.
+Artículo 172- Sustitución de testigos. Procederá la sustitución de testigos, siempre y cuando se solicite antes de la etapa de recepción de la prueba, con la advertencia de que, si se admite, el tribunal deberá adoptar las medidas necesarias para garantizar el derecho al contradictorio de las demás partes e intervinientes.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)

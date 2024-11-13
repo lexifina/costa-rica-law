@@ -1,5 +1,4 @@
 CAPÍTULO III: TRÁMITE DEL PROCEDIMIENTO
 SECCIÓN I: ETAPA DE DEFINICIÓN DEL PROCESO
-Artículo 227- Procedimiento en caso de fracaso de la conciliación Fracasada la conciliación, de forma verbal el demandado ya notificado de la demanda la contestará en los términos establecidos en este Código, y podrá invocar las excepciones pertinentes.
-La autoridad judicial prevendrá que se complete la contestación cuando no sea acorde con lo normado, lo que se indicará se haga al momento dentro de la audiencia.
-Una vez contestada la demanda, en la misma audiencia se pondrá en conocimiento a la otra parte.
+Artículo 227- Contestación negativa. Si la demanda es contestada de manera negativa, de la oposición formulada y de las eventuales excepciones planteadas, se concederá audiencia a la parte actora por el plazo de tres días hábiles, en el cual podrá formular los alegatos que considere procedentes y ofrecer contraprueba.
+(Así reformado por el artículo 1° de la ley N° 10558 del 23 de octubre de 2024)
