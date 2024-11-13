@@ -1,0 +1,2 @@
+ARTICULO 3- Le corresponde a la Notaria del Estado formalizar todos los tramites de esta donación, mediante la elaboración de la escritura correspondiente.
+Además, queda facultada expresamente para actualizar y corregir la medida, los linderos y cualquier error, diferencia u omisión relacionados con los dates del inmueble a donar, así como cualquier otro dato registral o notarial que sea necesario para la debida inscripción del documento en el Registro Nacional.

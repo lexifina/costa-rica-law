@@ -1,0 +1,1 @@
+ARTICULO 2- Se autoriza a la Municipalidad de Guácimo para que done la finca descrita a la siguiente beneficiaria: Etelvina Lopez Rivera, cedula siete- cero cero tres nueve- cero tres cero nueve (N° 7-0039-0309).
