@@ -1,4 +1,3 @@
-ARTICULO 40.-
-Carácter accesorio En el procedimiento penal, la acción civil resarcitoria sólo podrá ser ejercida mientras esté pendiente la persecución penal.
-Sobreseído provisionalmente el imputado o suspendido el procedimiento, conforme a las previsiones de la ley, el ejercicio de la acción civil se suspenderá hasta que la persecución penal continúe y quedará a salvo el derecho de interponer la demanda ante los tribunales competentes.
-La sentencia absolutoria no impedirá al tribunal pronunciarse sobre la acción civil resarcitoria válidamente ejercida, cuando proceda.
+Artículo 40- Carácter accesorio. En el procedimiento penal, la acción civil resarcitoria solo podrá ser ejercida mientras esté pendiente la persecución penal. Sobreseído provisionalmente el imputado o suspendido el procedimiento, de conformidad con las previsiones de ley, el ejercicio de la acción civil se suspenderá hasta que la persecución penal continúe y quedará a salvo el derecho de interponer la demanda ante los tribunales competentes.
+El Tribunal Penal deberá pronunciarse sobre el fondo de la acción civil resarcitoria válidamente ejercida, aún y cuando se haya dictado sentencia absolutoria o de sobreseimiento definitivo en la fase de juicio.
+(Así reformado por el artículo 1° de la ley N° 10566 del 23 de octubre de 2024)
