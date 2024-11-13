@@ -1,0 +1,1 @@
+ARTÍCULO 5- Autorización. Se autoriza a las instituciones públicas para que efectúen donaciones e inversiones destinadas a obras o adquisiciones para la protección del patrimonio histórico cultural, que comprende la Escuela Líder Central de Guápiles, el Parque Central, la Plaza El Salvador y las centenarias filas de palmeras.
