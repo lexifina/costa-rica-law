@@ -1,5 +1,8 @@
-Artículo 11.-Del vale de caja chica. Los formularios que se utilizarán para efectuar compras por medio de los Fondos Fijos de Caja Chica estarán a disposición en el sistema informático de la Municipalidad. Los funcionarios facultados para autorizar erogaciones de dinero mediante un vale de caja chica, son:
-a) Alcaldía Municipal
-b) El Auditor Interno
-c) Los Gestores de Área en las áreas que tiene bajo su cargo.
-Todo vale de caja chica para la compra de bienes, obras o servicios que debe realizar mediante los fondos de caja chica número dos deberá ser firmada por las siguientes personas: Analista profesional de presupuesto, como garante que se cuenta con el contenido presupuestario que permita la transacción, el visto bueno del Proveedor como garante que cumple con los dispuesto en la Ley General de Contratación Pública y su Reglamento, así como por cualquiera de los sujetos del artículo 11 como garante de la necesidad de adquirir lo solicitado y el funcionario al que se les asigne la realización de la transacción, como receptor de los recursos y encargado de la compra. Para los vales de caja chica del fondo número uno se exceptúa el visto bueno del proveedor municipal.
+CAPÍTULO II
+Del funcionamiento
+Artículo 11.-De funcionamiento de los fondos fijos de caja chica. Los fondos de Caja Chica funcionarán mediante el sistema de cuenta corriente o efectivo, las compras y/ o gastos se efectuarán con dinero en efectivo.
+El monto de cada fondo es el siguiente:
+a) El Fondo Fijo de Caja Chica N° 1, no podrá exceder el 15% del monto fijado para el Fondo Fijo de Caja Chica N° 2.
+b) El Fondo Fijo de Caja Chica N° 2, no podrá exceder el 10% del monto fijado para la licitación reducida según lo dispuesto la Ley General de Contratación Pública y su Reglamento, conforme los umbrales definidos anualmente por la Contraloría General de la Republica para determinar el procedimiento de contratación.
+c) En el caso de los gastos que se registren en los fondos de Caja Chica N° 1 y 2, el monto por factura no deberá exceder el 30% del monto máximo autorizado del fondo de caja chica.
+La Gestión Financiera anualmente actualizará y comunicará a los funcionarios municipales el monto de cada fondo conforme al aumento que dicte año a año, la Contraloría General de la República sobre los umbrales a partir de los cuales se determina el procedimiento de contratación aplicable.

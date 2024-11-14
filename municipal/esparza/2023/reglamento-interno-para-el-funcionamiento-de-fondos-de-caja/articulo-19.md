@@ -1,3 +1,1 @@
-CAPÍTULO IV
-De la liquidación
-Artículo 19.-Del plazo. Los vales de los Fondos Fijos de Caja Chica deberán ser liquidados dentro de los tres días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor, la Unidad Solicitante y el que lo retira no pueda hacerlo en el plazo establecido, cuando esto suceda se deberá justificar y documentar la razón de esto, lo cual debe ser avalado con la firma del Gestor del Área que corresponda.
+Artículo 19.-De la prohibición de variar el objeto de la compra. Por ningún motivo se podrá variar el objeto inicial de una compra, a menos de que pertenezca a la misma partida presupuestaria. No se pagarán aquellos bienes, obras o servicios que fueron adquiridos previo a la autorización de un vale de Caja Chica.

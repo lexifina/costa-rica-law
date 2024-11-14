@@ -1,3 +1,1 @@
-CAPÍTULO V
-De los reintegros
-Artículo 25.-Del reintegro al fondo fijo de caja chica. Los egresos de los Fondos Fijos de Caja Chica se tramitarán a través del correspondiente reintegro en original y copia, el cual será revisado y autorizado por el Tesorero Municipal o a quien el designe. El trámite de reintegro de facturas de un periodo presupuestario anterior debe realizarse con cargo al presupuesto del período vigente.
+Artículo 25.-De la formalización de la liquidación. La liquidación del vale quedará formalizada, cuando el responsable del Fondo Fijo de Caja Chica revise todos los requisitos y reciba conforme. Será responsabilidad de la jefatura que firma el vale constatar el ingreso o recibo de los bienes, obras o servicios adquiridos. Los comprobantes deben ser firmados y sellados al dorso, por la jefatura inmediata, como requisito de comprobación de la adquisición del bien o servicio correspondiente.

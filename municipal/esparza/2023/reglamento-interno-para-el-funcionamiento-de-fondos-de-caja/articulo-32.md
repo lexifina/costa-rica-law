@@ -1,3 +1,1 @@
-CAPÍTULO VII
-De las obligaciones y sanciones
-Artículo 32.-De las consecuencias del incumplimiento. El incumplimiento de este reglamento o la falta de control en su aplicación, será aplicada la sanción conforme a lo dispuesto en el Código Municipal, la Ley de Control Interno y demás legislación conexa.
+Artículo 32.-Del funcionario que deberá estar presente durante un arqueo. Todo arqueo de los Fondos Fijo de Caja Chica se realizará en presencia del Tesorero Municipal o del funcionario que él designe para tal efecto. Lo anterior, no limita la posibilidad de que cualquier otro órgano de control realice arqueos cuando se considere conveniente.

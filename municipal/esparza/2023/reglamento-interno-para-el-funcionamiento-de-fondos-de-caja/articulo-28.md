@@ -1,1 +1,1 @@
-Artículo 28.-Montos Asignados. Todos los fondos de dinero establecidos al amparo de este Reglamento operarán por medio del sistema de fondo fijo, lo que implica que el encargado del fondo tendrá en todo momento la suma total asignada, representada por efectivo en caja o bancos y los documentos que respaldan las operaciones.
+Artículo 28.-De la periodicidad. Se confeccionarán los reintegros de los Fondos Fijos de Caja Chica, cuando se haya gastado no más del 30% del fondo fijo, con el propósito de darle rotación óptima a los recursos y mantener la liquidez de los fondos.

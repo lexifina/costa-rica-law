@@ -1,1 +1,1 @@
-Artículo 7°-De los gastos menores indispensables y urgentes. Se denominarán gastos menores aquellos que no excedan el monto máximo fijado en este reglamento y que cumplan con los requisitos establecidos en el Artículo 8 del presente Reglamento.
+Artículo 7º-De la naturaleza. El Fondo Fijo de Caja Chica es un procedimiento de excepción, por lo tanto, la ejecución del gasto queda limitada a las compras establecida en el Articulo 8, siempre y cuando se cumpla con lo dispuesto en el Articulo 10. Los artículos señalados corresponden a este Reglamento.

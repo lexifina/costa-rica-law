@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-De la derogatoria y vigencia
-Artículo 35.-De la derogatoria. Se derogan todas las disposiciones y reglamentos emitidos con anterioridad a este Reglamento.
+Artículo 35.-De la aplicación de sanciones. Las sanciones que correspondan según lo dispuesto en el artículo anterior serán aplicadas por el titular de la Alcaldía Municipal de acuerdo con el Procedimiento establecido en el artículo 159 y siguientes del Código Municipal.

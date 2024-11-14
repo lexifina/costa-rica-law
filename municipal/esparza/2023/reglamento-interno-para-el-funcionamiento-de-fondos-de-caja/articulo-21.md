@@ -1,1 +1,3 @@
-Artículo 21.-Del monto de la compra. El monto de lo gastado no podrá exceder el monto autorizado en el vale de Caja Chica. De presentarse esta situación, el funcionario a nombre de quien se giró el vale deberá de asumir el gasto diferencial resultante, sin que la Municipalidad quede obligada a reintegrarle esa suma o en casos excepcionales, presentar la debida justificación la ante la Alcaldía para que, previa verificación de contenido presupuestario, autorice el reembolso.
+CAPÍTULO IV
+De la liquidación
+Artículo 21.-Del plazo. Los vales de los Fondos Fijos de Caja Chica deberán ser liquidados dentro de los tres días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor, la Unidad Solicitante y el que lo retira no pueda hacerlo en el plazo establecido, cuando esto suceda se deberá justificar y documentar la razón de esto, lo cual debe ser avalado con la firma del Gestor del Área que corresponda.

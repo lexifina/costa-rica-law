@@ -1,1 +1,7 @@
-Artículo 10.-De la composición del fondo. Los Fondos Fijos de Caja Chica, mantendrán siempre el total del monto asignado a cada uno, el cual estará conformado de la siguiente manera: dinero en efectivo, facturas, vales pendientes de liquidación y solicitudes de reintegro de fondos. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta a los Fondos de Caja Chica.
+Artículo 10.-Requisitos que deben cumplir las compras realizadas por caja chica relacionada con el fondo N° 2. La caja chica se podrá utilizar únicamente para sufragar gastos menores que, simultáneamente, cumplan con los siguientes requisitos:
+a) Que la compra de bienes y servicios califique como indispensable e impostergable.
+b) Que la adquisición no resulte más onerosa que el procedimiento ordinario de contratación a realizar.
+c) Que se acredite el costo beneficio para la Administración.
+d) Que no haya fragmentación.
+e) Que no exceda los montos autorizados en el artículo 11 de este Reglamento.
+f) Que se cumple con el régimen de prohibición establecido en la LGCP. De no cumplir con los supuestos indicados en los incisos anteriores, la compra del bien o servicio se deberá realizar utilizando los procedimientos ordinarios previstos en la Ley General de Contratación Pública.

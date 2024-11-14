@@ -1,1 +1,3 @@
-Artículo 34.-De las erogaciones con fondos propios. Las erogaciones que realicen las jefaturas u otros funcionarios no autorizados con su peculio personal, para pagar materiales y suministros de la Municipalidad y aquellas erogaciones que incumplen con las estipulaciones de este Reglamento o con los lineamientos emanados por la Alcaldía, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo Fijo de Caja Chica N° 2, salvo que excepcionalmente hubieran sido autorizadas previamente por la Alcaldía Municipal y la Proveeduría.
+CAPÍTULO VII
+De las obligaciones y sanciones
+Artículo 34.-De las consecuencias del incumplimiento. El incumplimiento de este reglamento o la falta de control en su aplicación, será aplicada la sanción conforme a lo dispuesto en el Código Municipal, la Ley de Control Interno y demás legislación conexa.

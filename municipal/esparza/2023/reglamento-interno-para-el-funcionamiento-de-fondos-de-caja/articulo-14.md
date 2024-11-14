@@ -1,1 +1,1 @@
-Artículo 14.-Del clasificador por el objeto del gasto del sector público. Las partidas, grupos y sus partidas presupuestarias autorizadas para realizar gastos por Fondo Fijo de Caja Chica se establecerán atendiendo el Clasificador por Objeto del Gasto del Sector Público.
+Artículo 14.-De las devoluciones. Los Fondos Fijos de Caja Chica recibirán devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase, asimismo deberá ser en moneda nacional en curso. No podrán recibirse por este fondo notas de crédito.

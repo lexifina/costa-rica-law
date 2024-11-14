@@ -1,1 +1,2 @@
-Artículo 13.-De la compra de activos fijos. Los activos fijos que se adquieren mediante este mecanismo y que estén sujetos a depreciación serán ingresados a la Bodega Municipal y deberán ser debidamente plaqueados de acuerdo con el procedimiento establecido para tal fin.
+Artículo 13.-Del vale de caja chica. El formulario que se utilizarán para efectuar compras por medio de los Fondos Fijos de Caja Chica estará a disposición en el sistema informático de la Municipalidad.
+El vale de caja chica deber ser complementado con el formulario para la compra excepcionada por caja chica según la Ley General de Contratación Pública y su Reglamento (Artículos 3, inciso g de la LGCP y 4 del RLGCP), el cual se encuentra a disposición en la Unidad de Proveeduría.
