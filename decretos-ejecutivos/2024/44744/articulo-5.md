@@ -1,0 +1,5 @@
+Artículo 5º-De la Coordinación de la Comisión: Para la designación del Coordinador (a) serán considerados los representantes de las diferentes direcciones del Ministerio de Hacienda, que conforman la Comisión, con excepción del o la representante de la Contraloría General de la República.
+La designación del Coordinador (a), se realizará por medio de una votación abierta y por mayoría de votos, será elegido (a) para ejercer las funciones por un plazo de un año, pudiendo ser reelecto (a) hasta por un máximo de dos años.
+Dicho nombramiento será de forma rotativa entre todas la Direcciones, excepto la representación de la Contraloría General de la República.
+En caso de que por razones justificadas el Coordinador (a) designado, renuncie antes de cumplir el periodo de nombramiento, se procederá a una nueva elección para cubrir el período restante.
+Realizada la designación, la Comisión informará vía correo electrónico al Director (a) de la Dirección General de Presupuesto Nacional, quien oficialmente lo comunicará a las Direcciones señaladas en el artículo 1 0 de este Decreto y a la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 2º-El superior jerárquico de la Comisión de Clasificadores: Le corresponderá dicha representación al Director (a) de la Dirección General de Presupuesto Nacional, al ser esta dependencia el órgano rector del Subsistema de Presupuesto.

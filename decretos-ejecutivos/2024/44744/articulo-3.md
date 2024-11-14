@@ -1,0 +1,5 @@
+Artículo 3º-Responsabilidades del superior jerárquico de la Comisión de Clasificadores: Le corresponderá al Director del Subsistema de Presupuesto, las siguientes responsabilidades:
+a) Firmar los criterios de clasificaciones presupuestarias de la Comisión Técnica Interinstitucional.
+b) Emitir criterios, y normas técnicas referidas al proceso presupuestario de clasificación, así como la asesoría en materia de clasificación a todas las entidades del Sector Público.
+c) Ante la solicitud de los miembros de la Comisión de Clasificadores en temas vinculados con su quehacer, coordinar con la Unidad de Asuntos Jurídicos que atiende a la Dirección General de Presupuesto Nacional y a la Secretaría Técnica de la Autoridad Presupuestaria la elaboración de los criterios legales necesarios para la interposición por parte del Director (a) General de Presupuesto Nacional de las consultas jurídicas a la Procuraduría General de la República.
+d) Coordinar con las demás direcciones del Ministerio de Hacienda el nombramiento de los miembros que las representan en esta Comisión.
