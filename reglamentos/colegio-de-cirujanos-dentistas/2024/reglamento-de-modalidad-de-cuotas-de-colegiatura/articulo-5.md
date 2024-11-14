@@ -1,0 +1,1 @@
+Artículo 5º-Autorización. Cualquier persona colegiada que quiera optar por alguna de las modalidades indicadas en este Reglamento que no sea la ordinaria, requerirá la autorización expresa de la Junta Directiva. Para lo cual recibirá la asistencia de la Dirección Administrativa en todas las gestiones.

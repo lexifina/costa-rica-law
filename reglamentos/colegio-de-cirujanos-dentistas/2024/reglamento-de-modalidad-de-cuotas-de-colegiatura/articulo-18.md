@@ -1,0 +1,1 @@
+Artículo 18.-Derogación. Este Reglamento deroga el anterior Reglamento de Modalidades de Cuotas de Colegiatura, aprobado en la Asamblea General Extraordinaria del 18 de abril del 2013 y que fue publicado en el Diario Oficial La Gaceta N° 97 del miércoles 22 de mayo del 2013.

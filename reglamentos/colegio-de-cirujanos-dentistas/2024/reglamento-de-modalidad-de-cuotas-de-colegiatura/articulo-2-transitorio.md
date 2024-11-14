@@ -1,0 +1,2 @@
+Transitorio 2.- Todos los agremiados que se les otorgó la modalidad 3 (residencia en el exterior) bajo el Reglamento de Modalidades de Cuotas de Colegiatura, aprobado en la Asamblea General Extraordinaria del 18 de abril del 2013 y que fue publicado en el Diario Oficial La Gaceta N° 97 del miércoles 22 de mayo del 2013 se les aplicará la modalidad ordinaria a partir del 1 de enero del año siguiente a la publicación de este Reglamento.
+Rige a partir de su publicación.

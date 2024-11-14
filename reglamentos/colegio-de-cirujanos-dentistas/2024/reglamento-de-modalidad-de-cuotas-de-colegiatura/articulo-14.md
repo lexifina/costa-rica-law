@@ -1,0 +1,4 @@
+Artículo 14.-Requisitos para acceder a la cuota de la modalidad de incapacidad temporal. Para poder optar por este beneficio, la persona colegiada deberá cumplir los siguientes requisitos:
+1. Solicitud escrita dirigida a la Junta Directiva solicitando la aprobación de la modalidad de Incapacidad Temporal, la cual deberá incluir: teléfono celular, de residencia y correo electrónico para notificaciones. En esta nota deberán indicar las razones por las cuales no va a poder laborar y explicar la afectación económica que implica su incapacidad.
+2. Presentar la documentación emitida por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, en la cual se demuestra la incapacidad temporal.
+3. La Junta Directiva podrá requerir información adicional si considera que faltan elementos para tomar una adecuada decisión.
