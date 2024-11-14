@@ -1,0 +1,1 @@
+Artículo 7º-Periodicidad del pago de dietas. El pago de las dietas, cuando corresponda se realizará de manera mensual, cancelando el monto establecido en este Reglamento por cada sesión, previa verificación de la asistencia de los miembros por parte de la Dirección Administrativa del Colegio.

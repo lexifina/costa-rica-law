@@ -1,0 +1,1 @@
+Artículo 11.-Derogatorias. Se deroga cualquier reglamentación o acuerdo previo acerca del pago de dietas para los miembros de la Junta Directiva, Tribunal de Honor y Tribunal Electoral del Colegio de Cirujanos y Cirujanas de Costa Rica.

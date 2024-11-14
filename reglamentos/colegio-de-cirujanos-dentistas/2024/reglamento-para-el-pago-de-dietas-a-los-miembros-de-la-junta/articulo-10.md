@@ -1,0 +1,1 @@
+Artículo 10.-Reformas. El presente reglamento podrá ser reformado por la Asamblea General del Colegio de Cirujanos y Cirujanas de Costa Rica, la cual revisará y actualizará el presente Reglamento al menos cada cinco años a partir de su aprobación.

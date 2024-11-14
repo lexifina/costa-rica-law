@@ -1,0 +1,3 @@
+Transitorio único. La Junta Directiva seguirá recibiendo el monto por concepto de dietas que se hubiere presupuestado para el ejercicio económico del año 2024. Los montos por este concepto se actualizarán a partir del siguiente ejercicio económico, sea para el año 2025, para lo cual se deberá incluir en el presupuesto general de egresos.
+Las dietas para los miembros del Tribunal de Honor y del Tribunal Electoral se pagarán a partir del ejercicio económico inmediato siguiente a la promulgación de este reglamento, sea para el año 2025, debiendo el Colegio proyectar lo correspondiente en el presupuesto general de egresos.
+Rige a partir de su publicación.
