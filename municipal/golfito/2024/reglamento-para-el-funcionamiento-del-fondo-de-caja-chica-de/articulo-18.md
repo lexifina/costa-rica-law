@@ -1,0 +1,1 @@
+Artículo 18.-El monto de lo gastado no podrá exceder el monto autorizado en el adelanto de caja chica. De presentarse esta situación el funcionario a nombre de quien se giró el adelanto deberá justificar la razón de la diferencia, y deberá presentar factura que justifique el gasto. El monto pagado de más deberá ser reintegrado al funcionario mediante trámite de nómina de pago.

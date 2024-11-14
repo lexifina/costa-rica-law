@@ -1,0 +1,1 @@
+Artículo 9°-La caja chica recibirá devoluciones de dinero únicamente por medio de transferencias bancarias y/o transferencia SINPE a las cuentas establecidas para tal fin, sin excepción de ninguna clase.

@@ -1,0 +1,1 @@
+Artículo 16.-Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del adelanto deberá hacer de inmediato el reintegro respectivo al responsable del fondo de caja chica.

@@ -1,0 +1,1 @@
+Artículo 19.-Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante la contabilidad Municipal una certificación de exoneración del pago del impuesto sobre el valor agregado (IVA). No se reconocerá erogación alguna por concepto de pago de IVA.

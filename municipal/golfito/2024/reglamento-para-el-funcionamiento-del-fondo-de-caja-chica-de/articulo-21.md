@@ -1,0 +1,1 @@
+Artículo 21.-La liquidación del adelanto queda formalizada cuando el responsable de la caja chica recibe los comprobantes o facturas, revisa todos los requisitos y estampa su sello de recibido conforme y será responsabilidad de la jefatura de quien solicita el adelanto, constatar el ingreso de los bienes y servicios adquiridos.

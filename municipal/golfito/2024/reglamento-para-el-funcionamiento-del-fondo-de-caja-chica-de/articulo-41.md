@@ -1,0 +1,1 @@
+Artículo 41.-Todo funcionario que incumpla con lo indicado en el artículo 16 del presente reglamento, deberá reintegrar los recursos que correspondan a la Municipalidad. Si no lo hiciere en tiempo y forma, la administración iniciará de oficio del procedimiento administrativo sancionatorio correspondiente.

@@ -1,0 +1,1 @@
+Artículo 32.-Por ningún motivo se podrá variar el objetivo inicial de una compra. Deberá el funcionario cubrir de su propio peculio el valor de los artículos comprados fuera de lo autorizado en el adelanto.

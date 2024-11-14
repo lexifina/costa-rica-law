@@ -1,0 +1,1 @@
+Artículo 31.-No podrán hacer uso del fondo de caja chica las personas que no presten servicio regular en la Municipalidad, mediante el sistema de planillas, excepto los miembros del Concejo Municipal, quienes deberán aportar el acuerdo del Concejo Municipal que autoriza la solicitud de caja chica.
