@@ -1,2 +1,0 @@
-Artículo 2º-Corresponderá a las autoridades de salud del Ministerio de Salud, velar porque dicha norma sea cumplida. Todas las organizaciones, establecimientos e instituciones que tienen responsabilidades en el campo de los servicios de atención integral en salud, tanto públicos como privados, podrán adoptar y coordinar medidas especiales para resolver, de forma prioritaria, la situación actual de la lista de espera relacionada con la prevención y manejo del cáncer de mama.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 43785 del 28 de octubre del 2022)

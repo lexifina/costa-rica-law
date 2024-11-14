@@ -1,1 +1,0 @@
-Artículo 4º-Deróguese el Decreto Ejecutivo N° 38377-S del 21 de abril del 2014 "Oficializa la Norma para la atención de personas con cáncer de mama" publicada en La Gaceta N° 95 del 20 de mayo del 2014.
