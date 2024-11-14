@@ -1,0 +1,1 @@
+Artículo 11.-Pago. La Fiscalía podrá cobrar un monto establecido para el otorgamiento o renovación de la regencia. El monto será definido por acuerdo de la Junta Directiva y deberá ser razonable y estar relacionado a los gastos en los que se incurre para la gestión de las regencias.

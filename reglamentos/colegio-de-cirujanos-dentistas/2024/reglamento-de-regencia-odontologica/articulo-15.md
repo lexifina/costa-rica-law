@@ -1,0 +1,2 @@
+Artículo 15.-Regencias odontológicas en Entes Públicos, universidades estatales y privadas. Los consultorios odontológicos en instituciones como entes públicos, universidades estatales y universidades privadas también deberán contar con un regente odontológico, según lo dispuesto en este reglamento.
+Estas regencias podrán recaer en la jefatura o persona encargada del establecimiento odontológico -según corresponda-, y será quién tiene a su cargo los consultorios bajo su supervisión ordinaria.

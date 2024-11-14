@@ -1,0 +1,2 @@
+Artículo 8°-Tramitación. La Fiscalía revisará los documentos presentados y si éstos cumplen con el mandato de la Ley Orgánica y de este reglamento.
+De cumplirse, los supuestos indicados, otorgará la regencia. Si faltase algún requisito, deberá prevenirlo a la persona solicitante para que cumpla lo solicitado, otorgándole un plazo de diez días hábiles. Transcurrido este plazo sin que sea subsanado, se archivará la solicitud y la persona interesada deberá iniciar todo el proceso de nuevo, incluyendo el pago.

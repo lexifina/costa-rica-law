@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. Todo establecimiento odontológico o centro radiológico dental, público o privado, deberá contar con un regente odontológico, quién deberá cumplir con todas las regulaciones establecidas en la Ley Orgánica del Colegio de Cirujanos y Cirujanas Dentistas de Costa Rica y la demás normativa que resultare aplicable.

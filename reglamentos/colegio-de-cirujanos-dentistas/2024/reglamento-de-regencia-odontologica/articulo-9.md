@@ -1,0 +1,2 @@
+Artículo 9°-Cambios parciales. Si el establecimiento odontológico cambia de domicilio, denominación social, teléfonos, u otra característica indicada en el certificado, será necesario actualizar el registro de la regencia, sin que esto implique una renovación del plazo de ésta.
+Para estas modificaciones parciales también se podrá cobrar una suma proporcional definida por la Junta Directiva para este trámite.

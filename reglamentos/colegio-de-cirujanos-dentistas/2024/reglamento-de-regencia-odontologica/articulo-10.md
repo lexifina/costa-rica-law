@@ -1,0 +1,1 @@
+Artículo 10.-Plazo. El plazo de la regencia será de cinco años y se podrá renovar las veces que sea necesario, para lo cual, se deberá estar al día en sus obligaciones con el Colegio y con el Ministerio de Salud y se pagará el monto de renovación definido por la Junta Directiva.

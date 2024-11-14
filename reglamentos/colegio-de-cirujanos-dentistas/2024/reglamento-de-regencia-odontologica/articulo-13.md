@@ -1,0 +1,1 @@
+Artículo 13.-Múltiples Regencias. Un mismo profesional en odontología podrá ser regente de hasta dos establecimientos odontológicos pero en dado caso, deberá garantizar el cumplimiento de sus funciones como regente y garantizar la dirección técnica de forma adecuada y responsable de los establecimientos que regenta.
