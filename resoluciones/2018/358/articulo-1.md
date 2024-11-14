@@ -39,32 +39,452 @@ RESUELVE:
 2. Señalar al usuario final que de conformidad con la sentencia de la Sala Constitucional número 03089- 2011 de las 8:38 horas del 11 de marzo del 2011 que éste asume bajo su propia responsabilidad el uso de terminales no homologados y renuncia a futuras reclamaciones por problemas de calidad del servicio.
 3. Modificar los Por Tantos 5, 7, 12, 13, 14, 15 de la resolución RCS-332-2013 para que se lean como se detalla a continuación:
 4. Definir que los interesados en homologar sus equipos ante la SUTEL, por medio de los peritos acreditados, deberán cumplir con el siguiente procedimiento de homologación:
+(Nota de Sinalevi: Mediante resolución N° RCS-216-2024 del 14 de noviembre del 2024 se reforma la presente norma. Al no ser clara la reforma la misma se transcribe a continuación: MODIFICAR PARCIALMENTE, por razones de oportunidad, conveniencia y mérito, el procedimiento de homologación de terminales de telecomunicaciones móviles de la resolución número RCS-358-2018 denominada "Modificación del procedimiento de homologación de terminales de telecomunicaciones móviles", publicada en La Gaceta N°229, del 10 de diciembre del 2018, mediante la adición de las siguientes disposiciones:
+SEÑALAR que los equipos terminales de telecomunicaciones móviles son todos aquellos que cuentan con dispositivos de trasmisión y/o recepción de las tecnologías 2G, 3G, 4G, 5G o superiores, y que emplean una tarjeta SIM o eSIM, o tecnología equivalente para la conexión con las redes móviles de los operadores.
+ESTABLECER que el procedimiento de homologación de equipos terminales es de cumplimiento obligatorio para todos los operadores/proveedores de servicios de telecomunicaciones móviles, aquellos autorizados por la Sutel como operadores prepago móviles (Operadores Móviles Virtuales - OMV), sus agencias, puntos de venta o distribución, los comercializadores y distribuidores autorizados por estos, así como aquellas empresas que posean dentro de su giro comercial la venta y distribución de equipos terminales de telecomunicaciones móviles.
+DISPONER que el proceso de homologación deberá asegurar que los equipos terminales de telecomunicaciones móviles se puedan activar, conectar y ser reconocidos con la totalidad de sus características, capacidades, funciones y aplicaciones con que cuenta el dispositivo móvil en las distintas redes de los operadores y proveedores de servicios de telecomunicaciones móviles nacionales.
+ESTABLECER que los equipos terminales de telecomunicaciones móviles sometidos al proceso de homologación deben ser totalmente operables con sus funcionalidades y aplicaciones en las redes de cualquiera de los operadores/proveedores, por lo que no se permitirá la aplicación de modificaciones en el hardware o en el software que limiten su funcionalidad. Por lo tanto, en el procedimiento de homologación únicamente se permitirán equipos terminales cuyas características no sean alteradas por medio de software o hardware limitando cualquiera de sus capacidades o funcionalidades de operación para las que fue diseñado por el fabricante; asimismo, deberá asegurar que las características de operación son consecuentes con las señaladas en el TAC (Type Allocation Code6) asignado por la GSMA (Asociación GSM).
+6 De conformidad con la definición del artículo 3 inciso 65) del Reglamento sobre el Régimen de Protección al Usuario Final: "65. TAC (Type Allocation Code): corresponde al código de ocho (8) dígitos asignados por la GSMA, de acuerdo con el proceso GSMA TS.06, para identificar a una marca y modelo específico de un terminal de telefonía móvil". (Destacado del original).
+ESTABLECER que, la Sutel, estará facultada para revocar en observancia del debido proceso, el registro de cualquier entidad solicitante de procesos de homologación por las siguientes causales:
+Se comprueben irregularidades en la documentación que se aportó para obtener el registro.
+En caso de que, el fabricante revoque la autorización brindada al solicitante para la distribución, comercialización, reparación y mantenimiento de los equipos en el país. Cualquier hecho o situación sobreviniente que, determine la Sutel mediante resolución motivada.")
 PROCEDIMIENTO DE HOMOLOGACIÓN DE TERMINALES
 DE TELECOMUNICACIONES MÓVILES
 Admisibilidad y trámite de la solicitud de homologación
 Una vez recibida la solicitud en la Dirección General de Calidad de la SUTEL (en adelante DGC), se procederá conforme a lo siguiente:
-(*)1. Requisitos para el registro de entidades solicitantes de procesos de homologación. Los interesados en realizar el procedimiento de homologación de terminales de telecomunicaciones móviles (en adelante los solicitantes), como primer paso obligatorio deberán solicitar el registro ante la DGC para realizar solicitudes de homologación.
-Cada vez que un solicitante requiera gestionar la homologación de terminales de una nueva marca, deberá presentar la totalidad de los requisitos necesarios para su registro. Los documentos deberán ser presentados de forma física en las oficinas de la Sutel3 y en caso de haber sido emitidos en el extranjero, estos deberán venir acompañados de una declaración jurada rendida ante Notario Público en donde se indique la calidad en la cual ha actuado la persona que firma el documento y que la firma es auténtica.
-3Los solicitantes costarricenses que utilicen la Firma Digital, podrán remitir la documentación por medio de correo electrónico a la dirección gestiondocumental@sutel.go.cr.,
-Una vez realizado el registro la totalidad de la información deberá ser actualizada ante la DGC cada cuatro años. Para tal efecto, el solicitante deberá remitir una declaración jurada rendida ante Notario Público donde indique que la información registrada no ha sufrido cambios y, en caso de presentar alguna modificación en dicha información, deberá remitirla a la Sutel, atendiendo los requisitos correspondientes establecidos en la presente resolución.
-Los requisitos para tramitar el registro de las entidades que podrán gestionarlos procesos de homologación se presentan a continuación:
-(*) (Así reformado el punto 1) anterior por resolución N° RCS-141-2022 del 16 de junio de 2022)
-1.1. Una solicitud escrita dirigida a la DGC, en la que se incluya al menos la siguiente información:
-1.1.1. Nombre de la persona física o jurídica solicitante.
-1.1.2. Número y copia del documento de identidad del solicitante, para el caso de personas físicas. En caso de ser persona jurídica, aportar una certificación de la personería con no más de tres meses de extendida.
-1.1.3. Datos de contacto del solicitante: Número telefónico, correo electrónico, y fax (optativo). Señalar el lugar o medio oficial para notificaciones.
-1.1.4. Datos de contacto de la persona con quien se coordinará la realización de pruebas de homologación incluyendo al menos, correo electrónico, números telefónicos y fax (optativo).
-1.1.5. Nombre completo y correo electrónico de la(s) persona(s) autorizadas para realizar el
-1.2. Declaración jurada en la que se indique que todos los terminales de telecomunicaciones móviles que se importarán o comercializarán con los códigos de homologación de la SUTEL, tendrán las mismas características técnicas, marca, modelo, versión de hardware, software y/o firmware especificados en el certificado de homologación emitido por la SUTEL. Los solicitantes deberán rendir la Declaración ante un Notario Público.
-(Así reformado el punto anterior por resolución N° RCS-141-2022 del 16 de junio de 2022)
-1.3. Documento original o copia certificada por Notario Público de la autorización emitida por el fabricante de equipos para la distribución y comercialización de equipos por parte del solicitante de homologación en Costa Rica.
-1.3.1. Para los casos en los que los solicitantes adquieran los terminales de telecomunicaciones móviles por medio de un intermediario comercializador de terminales, y por lo tanto no puedan cumplir con el requisito señalado en el numeral 1.3, en su defecto deberán cumplir con la siguiente documentación:
-1.3.1.1. Carta del intermediario comercializador de terminales: el solicitante deberá presentar una carta original o copia certificada de la autorización del fabricante para que "el intermediario comercializador de terminales" pueda distribuirlos a terceros. Dicha carta deberá ser emitida por el fabricante o dueño de la marca y autorizar a dicho intermediario para la distribución de terminales de telecomunicaciones móviles en el país donde se realiza la compra del respectivo lote.
-1.3.1.2.Declaración jurada por parte del solicitante de homologación donde indique que todos los terminales de telecomunicaciones móviles sujetos de homologación serán adquiridos a través del intermediario comercializador de terminales del cual se presentó la autorización por parte del fabricante. Los solicitantes deberán rendir la Declaración ante un Notario Público.
-(Así reformado el punto anterior por resolución N° RCS-141-2022 del 16 de junio de 2022)
-1.3.2. Para los casos en que los solicitantes requieran homologar terminales de telecomunicaciones móviles que no estén destinadas para la distribución o comercialización al público en general, ya que su aplicación es de índole industrial o de comercialización exclusiva, los solicitantes no deberán cumplir con los requisitos 1.3, 1.4 y 1.5. En su defecto deberán aportar una nota declarando la aplicación de los terminales a homologar, así como las condiciones de soporte que se brindarán a los clientes en el caso de que la aplicación sea de comercialización exclusiva.
-1.4. Documento original o copia certificada por Notario Público donde se detallen las condiciones de garantía y respaldo que se ofrecerán a los compradores de los equipos por homologar en Costa Rica.
-1.5. Documento original o copia certificada por Notario Público de la autorización por parte del fabricante para brindar reparación y mantenimiento de los equipos por homologar en Costa Rica. En la nota deberán incluirse los datos de contacto del solicitante.
+(*)1. Requisitos para el registro de entidades solicitantes de procesos de homologación de terminales móviles
+Los interesados en realizar el procedimiento de homologación de terminales de telecomunicaciones móviles (en adelante los solicitantes), como primer paso obligatorio deberán solicitar el registro ante la Dirección General de Calidad, en adelante (DGC) de la Superintendencia de Telecomunicaciones. La solicitud podrá ser presentada de forma física en las oficinas de la SUTEL o de forma digital al correo electrónico gestiondocumental@sutel.go.cr.
+La totalidad de la documentación deberá ser presentada en idioma español. En el caso de que, algún documento se encuentre en otro idioma, se deberá aportar su traducción.
+Además, la solitud de registro deberá presentarse debidamente firmada la cual debe ser autenticada por Notario Público, misma que debe presentarse con su traducción oficial al idioma español en caso de ser rendida en otro idioma.
+Cada vez que un solicitante requiera gestionar la homologación de terminales de una nueva marca, deberá presentar la totalidad de los requisitos necesarios para su registro.
+Los requisitos para tramitar el registro de las entidades que podrán gestionar los procesos de homologación son los siguientes:
+Una solicitud escrita dirigida a la DGC, en la que se incluya al menos la siguiente información:
+Nombre o razón social del solicitante.
+Calidades, número y copia del documento de identidad del solicitante. Para el caso de extranjeros no residentes, debe aportarse una copia del pasaporte vigente. En el caso de que, la solicitud sea iniciada por una persona jurídica, debe aportarse una certificación de personería jurídica vigente con no más de 1 mes de expedida; así como, una copia del documento de identidad del representante legal.
+Datos de contacto del solicitante: número telefónico y correo electrónico para recibir notificaciones.
+Datos de contacto de la persona con quien se coordinará la realización de pruebas de homologación incluyendo al menos, correo electrónico y números telefónicos.
+Nombre completo y correo electrónico de la(s) persona(s) autorizadas para realizar el reporte de los IMEIs.
+Declaración jurada rendida ante Notario Público en la que se indique que todos los terminales de telecomunicaciones móviles que se importarán o comercializarán con los códigos de homologación de la SUTEL, tendrán las mismas características técnicas, marca, modelo, versión de hardware, software y/o firmware, especificados en el certificado de homologación emitido por la SUTEL.
+Documento original o copia certificada por Notario Público de la autorización emitida por el fabricante de equipos para la distribución y comercialización de equipos por parte del solicitante de homologación en Costa Rica. Asimismo, debe remitirse una certificación de personería jurídica vigente con no más de un mes de extendida; así como, una copia del documento de identidad del representante legal del fabricante. En el caso de extranjeros no residentes, debe aportarse una copia del pasaporte vigente.
+Documento original o copia certificada por Notario Público en el que el solicitante detalle las condiciones de garantía y respaldo que se ofrecerán a los compradores de los equipos por homologar en Costa Rica.
+Documento original o copia certificada por Notario Público de la autorización por parte del fabricante para brindar reparación y mantenimiento de los equipos por homologar en Costa Rica. En el cual deberán incluirse los datos de contacto del solicitante.
+Para los casos en que los solicitantes requieran homologar terminales de telecomunicaciones móviles que no estén destinadas para la distribución o comercialización al público en general, ya que su uso es de índole industrial o de comercialización exclusiva, los solicitantes no deberán cumplir con los requisitos 1.3, 1.4 y 1.5. En su defecto, el solicitante deberá brindar una descripción detallada y completa del terminal, haciendo hincapié en el tipo de dispositivo y sus funcionalidades; así como, las condiciones de soporte que se brindarán a los clientes en el caso de que el uso sea de comercialización exclusiva. La aplicación de la excepción quedará sujeta a la evaluación de la Dirección General de Calidad.
+Cualquier modificación de los datos registrados deberá ser notificada a esta Superintendencia, detallando los cambios realizados y proporcionando la información necesaria para su actualización en los sistemas de Sutel. Adicionalmente, esta Superintendencia se encontrará facultada para solicitar, en cualquier momento, la actualización de la documentación presentada, con el fin de verificar y mantener actualizada la condición del solicitante.
+Protocolo de pruebas de homologación para los terminales de telecomunicaciones móviles
+Dentro de las condiciones que deben considerarse en el protocolo de pruebas para la operación de los equipos terminales de telecomunicaciones móviles, que se conectarán a las redes móviles de los operadores y proveedores nacionales, son las siguientes:
+Emisiones de radiofrecuencia
+Cumplimiento de normativa internacional en cuanto a inmunidad al ruido, interferencias electromagnéticas, umbrales de Potencia Isotrópica Radiada Equivalente (PIRE) del equipo, entre otras.
+Funcionamiento dentro de los rangos de frecuencias de operación.
+Niveles de sensibilidad de los dispositivos terminales para las distintas tecnologías de telecomunicaciones móviles 2G, 3G, 4G, 5G o superiores.
+Conectividad
+Interacción con la red y sistemas de autenticación y seguridad.
+Pruebas de acceso a redes inalámbricas (WiFi, Bluetooth, NFC, IR, entre otros).
+Establecer, mantener y recibir comunicaciones de voz mediante conmutación de circuitos, VoLTE, VoWiFi, VoNR y demás tecnologías cuando aplique.
+Entrega y recepción de mensajes de texto (SMS).
+Conexión, desconexión, envío y recepción de información a la red de transferencia de datos para las tecnologías 2G, 3G, 4G, 5G y superiores cuando aplique.
+Prueba de llamada exitosa entre los diferentes operadores de redes de telecomunicaciones móviles.
+Operación
+Pruebas avanzadas de comunicaciones de voz a los diferentes destinos de las redes de telecomunicaciones.
+Pruebas de movilidad del terminal dentro de las redes de telecomunicaciones móviles (handover).
+Pruebas avanzadas de SMS en distintos escenarios de comunicación.
+Pruebas de medición de velocidad de transferencia de datos en redes GPRS/EDGE/UMTS/LTE/LTE-Advanced/NR y superiores cuando aplique.
+Pruebas de navegación WEB e intercambio de correo electrónico.
+Pruebas de consumo de corriente del terminal.
+Pruebas de servicio prepago y recarga telefónica.
+Pruebas de idioma español.
+Pruebas especializadas para terminales MultiSIM.
+Las pruebas para equipos con eSIM para verificar el correcto funcionamiento de la tarjeta eSIM y su interacción con el equipo terminal y la red móvil.
+Fijar el siguiente protocolo de pruebas para la homologación de terminales de telecomunicaciones móviles que se conecten con la red móvil, el cual se aplicará conforme con las especificaciones técnicas del terminal sujeto a homologación, y para lo cual la Dirección General de Calidad se encuentra facultada para:
+Brindar instrucciones para la aplicación del protocolo de pruebas.
+Realizar las delimitaciones y ajustes específicos a los procedimientos de evaluación del protocolo de pruebas.
+Elaborar lineamientos complementarios al protocolo de pruebas existente, con el objetivo de adaptarlo a las condiciones, características específicas de los equipos, nuevas tecnologías, entre otras.
+De conformidad con los resultados de los procesos concursales de asignación de frecuencias, así como ante resultados de los procesos de monitoreo de espectro, la DGC debe establecer los segmentos específicos por analizar para la realización de pruebas 5G.
+Notificar a los peritos acreditados, sobre las condiciones de evaluación del protocolo de homologación.
+La Dirección General de Calidad realizará las actividades señaladas y las informará mediante oficios dirigidos a los peritos para su implementación. Los peritos deberán acatar de manera estricta las instrucciones, lineamientos, disposiciones y demás requerimientos que la Dirección General de Calidad y este Consejo considere convenientes para la aplicación del protocolo de pruebas. El incumplimiento de las instrucciones de la Sutel por parte de los peritos podría acarrear consecuencias legales y disciplinarias.
+Indicaciones generales
+Para todas las pruebas que se realicen haciendo uso de las redes de los operadores de telecomunicaciones móviles, en el informe deberán señalarse el o los operadores con los cuales se realizaron las pruebas.
+Todos los equipos terminales sujetos a pruebas deberán contar con un IMEI válido y conforme a las especificaciones de la marca y modelo del dispositivo, para cada tarjeta SIM o eSIM instalada.
+Los únicos resultados aceptables serán PASA; NO PASA; NO HABILITADO POR EL TERMINAL (NHT); y NO HABILITADO POR EL OPERADOR (NHO). En caso de que el resultado de una prueba deba ser corroborado mediante documentación anexa, el perito deberá aportar toda la documentación necesaria y referenciarla con un comentario junto al resultado señalado para la prueba.
+El protocolo de evaluaciones de homologación se divide en varios conjuntos (sets) de pruebas, de acuerdo con la funcionalidad que pretende evaluar en cada set. Cada conjunto de pruebas deberá ser aplicado en su totalidad utilizando la misma muestra del terminal, con la excepción de las pruebas de radio frecuencia, en este caso, todos los conjuntos de pruebas deberán ejecutarse utilizando el mismo terminal.
+El plazo desde el inicio hasta el final de la aplicación del protocolo de pruebas no podrá exceder los 20 días naturales, de lo contrario deberán de ejecutar nuevamente las pruebas que sean presentadas fuera de plazo, con una fecha anterior a la establecida.
+Protocolo de Pruebas
+De seguido se describen las pruebas que deberán ser aplicadas por los peritos acreditados por la Sutel:
+Pruebas de interacción con la red y validación de seguridad | Resultado esperado | Observaciones | Operadores por evaluar
+Falla al intentar cambiar el PIN1 cuando el PIN1 está desactivado | Falla | | Un operador
+Activar el bloqueo del terminal con PIN 1 | Al encender el terminal, solicita introducir PIN | | Un operador
+Desbloquear el terminal al ingresar el PIN 1 de forma exitosa | Pasa | | Un operador
+Cambiar el PIN1 de forma exitosa | Pasa | | Un operador
+Falla al digitar el número actual de PIN 1 de manera errónea | Falla | | Un operador
+Falla al digitar por segunda ocasión el nuevo número de PIN 1 de manera errónea (proceso de confirmación del PIN) | Falla | | Un operador
+Falla al intentar cambiar el PIN1 con un nuevo | Falla | | Un operador
+Pruebas de interacción con la red y validación de seguridad | Resultado esperado | Observaciones | Operadores por evaluar
+PIN de solo 3 dígitos | | |
+Desactivar el PIN1 de manera exitosa | Pasa | | Un operador
+Intentar acceder al terminal 3 veces consecutivas con un PIN1 erróneo y desbloquearlo exitosamente utilizando el PUK1. | El terminal es desbloqueado exitosamente | | Un operador
+Falla al intentar cambiar el PIN2 cuando el PIN2 está desactivado | Falla | | Un operador (con la funcionalidad)
+Activar el PIN 2 en el terminal | Pasa | | Un operador (con la funcionalidad)
+Cambiar el PIN 2 de forma exitosa | Pasa | | Un operador (con la funcionalidad)
+Desbloquear el terminal al ingresar el PIN 2 de forma exitosa | Pasa | | Un operador (con la funcionalidad)
+Falla al digitar el número actual de PIN 2 de manera errónea | Falla | | Un operador (con la funcionalidad)
+Falla al digitar por segunda ocasión el nuevo número de PIN 2 de manera errónea (proceso de confirmación del PIN) | Falla | | Un operador (con la funcionalidad)
+Falla al intentar cambiar el PIN2 con un nuevo PIN de solo 3 dígitos | Falla | | Un operador (con la funcionalidad)
+Introducir el PIN 2 de manera errónea 3 veces consecutivas y desbloquearlo exitosamente utilizando el PUK2. | Falla | | Un operador (con la funcionalidad)
+Pruebas de radio frecuencia para GSM (2G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+Potencia máxima de salida del terminal de conformidad con los estándares de potencia Power Class definidos en ETSI GSM 5.05 | Banda 850 MHz, Power Class 4: Máx 33 dBm ±2 dB; PCL5. Banda 1800 MHz, Power Class 1: Máx 30 dBm ±2 dB; PCL0. **Todas las demás ver ETSI GSM 5.05 | | No aplica
+Prueba a -80 dBm para el rango -75 dBm>nivel de Señal ?-85 dBm | Generación y Recepción exitosa de llamadas y SMS. | Para cada nivel de recepción, deberá verificarse la potencia máxima de salida del terminal. Para aquellos terminales que no tienen capacidades de generación y recepción de llamadas, la prueba se validará con el establecimiento de una sesión de datos. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -90 dBm para el rango -85 dBm>nivel de Señal ?-95 dBm | Generación y Recepción exitosa de llamadas y SMS. | | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -100 dBm para verificación de la sensibilidad de Rx en áreas de baja cobertura | Verificar que terminal no se encuentre fuera de servicio | Para aquellos terminales que no tienen capacidades de generación y recepción de llamadas, la prueba se validará con el | Todos los operadores (cuando amerite mediciones de campo)
+Pruebas de radio frecuencia para GSM (2G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+| | establecimiento de una sesión de datos. |
+Análisis gráfico de Modulación | De conformidad con la recomendación 3GPP TS 45.005 | | No aplica
+Análisis gráfico de Espectro | De conformidad con la recomendación 3GPP TS 45.005 | | No aplica
+Medición del error de frecuencia | Verificar en el analizador el cumplimiento del apartado 6.1 definidos en 3GPP TS 05.10 | | No aplica
+Medición del error de fase (Phase Error) | Verificar en el analizador el cumplimiento del apartado 4.6 definidos en 3GPP TS 05.05 | | No aplica
+Medición del "timing error" | Verificar en el analizador el cumplimiento del anexo B definidos en 3GPP TS 05.10 | | No aplica
+Medición de la magnitud del vector de error (EVM) | Verificar en el analizador el cumplimiento del apartado 4.6.2.1 Y 4.6.2.3 definidos en 3GPP TS 05.05 | | No aplica
+Medición del "Origin offset Suppression" | Verificar en el analizador el cumplimiento del apartado 4.6.2.2 definidos en 3GPP TS 05.05 | | No aplica
+Pruebas de radio frecuencia para GSM (2G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar |
+Medición del nivel de señal "Rx Level" | Verificar en el analizador el cumplimiento del apartado 9.4,1 definidos en 3GPP TS 11.21 | | No aplica |
+Medición de la calidad de la señal (Rx) Qual | Verificar en el analizador el cumplimiento del apartado 9.4.2 definidos en 3GPP TS 11.21 | | No aplica |
+Medición del "Spectrum due to switching" | Verificar en el analizador el cumplimiento del apartado 4.2.2 definidos en 3GPP TS 05.05 | | No aplica |
+Medición "Spectrum due to modulation" | Verificar en el analizador el cumplimiento del apartado 4.2.1 definidos en 3GPP TS 05.05 | | No aplica |
+Medición del "Bit Error Rate Class II" | Verificar en el analizador el cumplimiento del apartado 6.2 definidos en 3GPP TS 05.05 | | No aplica |
+(*) En caso de que por alguna imposibilidad del terminal no se permita realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por citada Dirección. (**) Las pruebas de radiofrecuencia para GSM (2G) deberán realizarse para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en esta tecnología. (****) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología. |
+Pruebas de radio frecuencia para UMTS (3G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar |
+Potencia máxima de salida del terminal de conformidad con los estándares de potencia Power Class definidos en 3GPP TS 25 101 | Para las bandas 850 y 2100 MHz Power Class 4, Máx 21 dBm ±2 dB **Todas las demás ver Tabla 6.1 definida en 3GPP TS 25.101 | | No aplica |
+Prueba a -90 dBm para el rango -85 dBm>nivel de señal ?-95 dBm | Generación y Recepción exitosa de llamadas, SMS y establecimiento de la sesión de datos | Para cada nivel de recepción, deberá verificarse la potencia máxima de salida del terminal. Para aquellos terminales que no tienen capacidades de generación y recepción de llamadas, la prueba se validará con el establecimiento de una sesión de datos | Todos los operadores (cuando amerite mediciones de campo) |
+Prueba a -100 dBm para el rango -95 dBm>nivel de señal ?- 105 dBm | Generación y Recepción exitosa de llamadas, SMS y establecimiento de la sesión de datos | Todos los operadores (cuando amerite mediciones de campo) |
+Prueba a -105 dBm para verificación de la sensibilidad de Rx en áreas de baja cobertura (***) | Verificar que terminal no se encuentre fuera de servicio | Para aquellos terminales que no tienen capacidades de generación y recepción de llamadas, la prueba se validará con el establecimiento | Todos los operadores (cuando amerite mediciones de campo) |
+Pruebas de radio frecuencia para UMTS (3G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar |
+| | de una sesión de datos | |
+Medición de error de frecuencia | Verificar en el analizador el cumplimiento del apartado 5.3 definidos en 3GPP TS 34.121 | | No aplica |
+Medición de la Magnitud del Vector de Error "EVM" | Verificar en el analizador el cumplimiento del apartado 5.13.1 definidos en 3GPP TS 34.121 | | No aplica |
+Medición del Error de Magnitud "Magnitude Error" | Reportar el valor del error de magnitud presente al momento de medir la Magnitud del Vector de Error | | No aplica |
+Medición del Error de Fase "Phase Error" | Reportar el valor del error de Fase presente al momento de medir la Magnitud del Vector de Error | | No aplica |
+Medición del corrimiento IQ "IQ Origin Offset" | Verificar en el analizador el cumplimiento del apartado 6.5.2A.2.11 definidos en 3GPP TS 25.101 | | No aplica |
+Medición del ancho de banda ocupado | Verificar en el analizador el cumplimiento del apartado 6.6.1 definidos en 3GPP TS 25.101 | | No aplica |
+Medición de la máscara de emisión espectral | Verificar en el analizador el cumplimiento del | | No aplica |
+| | | | | | |
+Pruebas de radio frecuencia para UMTS (3G) con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+| apartado 6.6.2.1 definidos en 3GPP TS 25.101 | |
+Medición del nivel fuga de potencia en el canal adyacente (ACLR) | Verificar en el analizador el cumplimiento del apartado 6.6.2.2 definidos en 3GPP TS 25.101 | | No aplica
+Medición del "Code domain power" | Verificar en el analizador el cumplimiento, del apartado 6.2.3 de la especificación 3GPP TS 25.101 | | No aplica
+(*) En caso de que por alguna imposibilidad del terminal no permitan realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por citada Dirección. (**) Las pruebas de radiofrecuencia para UMTS (3G) deberán realizarse para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en esta tecnología. (***) Para casos excepcionales, en caso de que el terminal no supere la prueba al utilizar el umbral de -105 dBm, los peritos acreditados, podrán remitir una nota con la debida justificación técnica sobre la imposibilidad presentada y adjuntar la evaluación con un umbral ? -103 dBm, dicha nota será valorada por la Dirección General de Calidad para su aceptación. (****) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología.
+Pruebas de radio frecuencia para LTE (4G) con equipo especial de medición de radio comunicaciones (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+Potencia máxima de salida del terminal de conformidad con los estándares de potencia Power Class definidos en 3GPP TS 36.521-1 | Las bandas B1, B3, B5 y B7. Power Class 3: Máx 23 dBm ±2,7 dB **Todas las demás ver 3GPP TS 36.521-1 | | No aplica
+Prueba a -100 dBm para el rango -95 dBm>nivel de señal ?-105 dBm en una sesión de datos para LTE | Generación exitosa de una sesión de datos. | Para cada nivel de recepción, deberá verificarse la potencia máxima de salida del terminal. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -110 dBm para el rango -105 dBm>nivel de señal ?- 115 dBm en una sesión de datos para LTE | Generación exitosa de una sesión de datos. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -115 dBm para verificación de la sensibilidad de Rx en áreas de baja cobertura | Verificar que terminal no se encuentre fuera de servicio | | Todos los operadores (cuando amerite mediciones de campo)
+Prueba conectarse a - 100 dBm en LTE y realizar CSFB a GSM en -90 dBm | Generación y Recepción exitosa de llamadas. Deben evaluarse todas las bandas de la red origen y la red destino. | Deberá verificarse la potencia máxima de salida del terminal tanto para LTE como para la red destino. En caso de ameritar pruebas de campo, se deberá verificar únicamente la funcionalidad de CSFB. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba conectarse a - 100 dBm en LTE y realizar CSFB a UMTS en -90 dBm | Generación y Recepción exitosa de llamadas. Deben evaluarse todas las bandas de la red origen y la red destino. | Todos los operadores (cuando amerite mediciones de campo)
+Pruebas de radio frecuencia para LTE (4G) con equipo especial de medición de radio comunicaciones (*) (**) | Resultado esperado Observaciones | Operadores por evaluar
+Prueba para la verificación de la capacidad de recepción en condiciones de baja señal | Verificar el cumplimiento del apartado 7.3.3 definidos en 3GPP TS 36.521-1 | No aplica
+Medición de error de frecuencia | Verificar en el analizador el cumplimiento del apartado 6.5.1 definidos en 3GPP TS 36.521-1 | No aplica
+Medición de la Magnitud del Vector de Error "EVM" | Verificar en el analizador el cumplimiento del apartado 6.5.2.1 definidos en 3GPP TS 36.521-1 | No aplica
+Medición del Error de Magnitud "Magnitude Error" | Reportar el valor del error de magnitud presente al momento de medir la Magnitud del Vector de Error | No aplica
+Medición del Error de Fase "Phase Error" | Reportar el valor del error de Fase presente al momento de medir la Magnitud del Vector de Error | No aplica
+Medición del corrimiento "IQ Offset" | Verificar en el analizador el cumplimiento del apartado 6.5.2.2.5 definidos en 3GPP TS 36.521-1 | No aplica
+Medición del coeficiente de planidad espectral "Spectrum Flatness" | Verificar en el analizador el cumplimiento del apartado 6.5.2.4 | No aplica
+Pruebas de radio frecuencia para LTE (4G) con equipo especial de medición de radio comunicaciones (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+| definidos en 3GPP TS 36.521-1 | |
+Medición del ancho de banda ocupado | Verificar en el analizador el cumplimiento del apartado 6.6.1 definidos en 3GPP TS 36.521-1 | | No aplica
+Medición de la máscara de emisión espectral | Verificar en el analizador el cumplimiento del apartado 6.6.2.1 definidos en 3GPP TS 36.521-1 | | No aplica
+Medición del nivel fuga de potencia en el canal adyacente (ACLR) | Verificar en el analizador el cumplimiento del apartado 6.6.2.3 definidos en 3GPP TS 36.521-1 | |
+Medición de velocidad de transferencia máxima | Verificar en el analizador el cumplimiento del apartado 4.1 definidos en 3GPP TS 36.306 | | No aplica
+(*) En caso de que por alguna imposibilidad del terminal no permitan realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por la citada Dirección. (**) Las pruebas de radiofrecuencia para LTE (4G) deberán realizarse para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en esta tecnología. (***) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología.
+Pruebas de radio frecuencia para NR (5G) Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+Potencia máxima de salida del terminal de conformidad con los estándares de potencia Power Class definidos en 3GPP FR1 TS 38.521-1 "UE maximum output power" | Verificar en el analizador el cumplimiento del apartado 6.2.1 definidos en 3GPP TS 38.521-1 Para las bandas n1 y n7 Class 3: 23 dBm ±2 dB Para la banda n28 Class 3: 23 dBm +2/- 2.5 dB Para la banda n78 Class 3: 23 dBm +2/-3 dB **Todas las demás ver Tabla 6.2.1.3-1: UE Power Class | | No aplica
+Configured transmitted power | Verificar en el analizador el cumplimiento del apartado 6.2.4 definidos en 3GPP TS 38.521-1 | | No aplica
+Minimum output power | Verificar en el analizador el cumplimiento del apartado 6.3.1 definidos en 3GPP TS 38.521-1 | | No aplica
+General ON/OFF time mask | Verificar en el analizador el cumplimiento del apartado 6.3.3.2 definidos en 3GPP TS 38.521-1 | | No aplica
+Frequency Error | Verificar en el analizador el cumplimiento del | | No aplica
+Pruebas de radio frecuencia para NR (5G) Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+| apartado 6.4.1 definidos en 3GPP TS 38.521-1 | |
+Error Vector Magnitude | Verificar en el analizador el cumplimiento del apartado 6.4.2.1 definidos en 3GPP TS 38.521-1 | | No aplica
+Carrier leakage | Verificar en el analizador el cumplimiento del apartado 6.4.2.2 definidos en 3GPP TS 38.521-1 | | No aplica
+In-band emissions | Verificar en el analizador el cumplimiento del apartado 6.4.2.3 definidos en 3GPP TS 38.521-1 | | No aplica
+Occupied bandwidth | Verificar en el analizador el cumplimiento del apartado 6.5.1 definidos en 3GPP TS 38.521-1 | | No aplica
+Spectrum emission mask | Verificar en el analizador el cumplimiento del apartado 6.5.2.2 definidos en 3GPP TS 38.521-1 | | No aplica
+NR ACLR | Verificar en el analizador el cumplimiento del apartado 6.5.2.4.1 | | No aplica
+Pruebas de radio frecuencia para NR (5G) Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+| definidos en 3GPP TS 38.521-1 | |
+Prueba a -100 dBm para el rango -95 dBm>nivel de Señal ?-105 dBm | Generación exitosa de una sesión de datos. | Para cada nivel de recepción, deberá verificarse la potencia máxima de salida del terminal. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -110 dBm para el rango -105 dBm>nivel de Señal ?- 115 dBm | Generación exitosa de una sesión de datos. | Para cada nivel de recepción, deberá verificarse la potencia máxima de salida del terminal. | Todos los operadores (cuando amerite mediciones de campo)
+Prueba a -115 dBm para verificación de la sensibilidad de Rx en áreas de baja cobertura | Verificar que terminal no se encuentre fuera de servicio | | Todos los operadores (cuando amerite mediciones de campo)
+Max. Throughput averaged | Verificar en el analizador el cumplimiento según lo define la 3GPP TS 38.521-1 | | Todos los operadores (cuando amerite mediciones de campo)
+(*) En caso de que por alguna imposibilidad del terminal no permitan realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por la citada Dirección. (**) Las pruebas de radiofrecuencia para NR (5G) Standalone deberán realizarse para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en esta tecnología. (***) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología.
+Pruebas de radio frecuencia para NR (5G) Non-Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+Potencia máxima de salida del terminal de conformidad con los estándares de potencia Power Class definidos en 3GPP FR1 TS 38.521-3 "UE Maximum Output Power for Inter-Band EN-DC within FR1" | Verificar en el analizador el cumplimiento del apartado 6.2B.1.3 definido en 3GPP TS 38.521-3 Para las configuraciones DC_1A_n78A, DC_3A_n78A, DC_7A_n78A, DC_1A_n28A, DC_3A_n28A, DC_7A_n28A, DC_3A_n1A Class 3: 23 dBm +2/-3 dB **Todas las demás ver Tabla 6.2B.1.3.3-1: Maximum output power for inter-band EN-DC (two bands) | | No aplica
+UE Maximum Output Power reduction for inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.2B.2.3 definido en 3GPP TS 38.521-3 | | No aplica
+Minimum Output Power for inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.3B.1.3 definido en 3GPP TS 38.521-3 | | No aplica
+Pruebas de radio frecuencia para NR (5G) Non-Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+(Tx) Transmit ON/OFF time mask for inter- band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.3B.3.3 definido en 3GPP TS 38.521-3 | | No aplica
+Frequency error for Inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.4B.1.3 definido en 3GPP TS 38.521-3 | | No aplica
+Error Vector Magnitude for inter- band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.4B.2.3.1 definido en 3GPP TS 38.521-3 | | No aplica
+Carrier Leakage for inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.4B.2.3.2 definido en 3GPP TS 38.521-3 | | No aplica
+In-band Emissions for inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.4B.2.3.3 definido en 3GPP TS 38.521-3 | | No aplica
+Occupied bandwidth for Inter-Band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.5B.1.3 definido en 3GPP TS 38.521-3 | | No aplica
+Pruebas de radio frecuencia para NR (5G) Non-Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+Spectrum emissions mask for Inter-band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.5B.2.3.1 definido en 3GPP TS 38.521-3 | | No aplica
+Adjacent channel leakage ratio for inter- band EN-DC within FR1 | Verificar en el analizador el cumplimiento del apartado 6.5B.2.3.3 definido en 3GPP TS 38.521-3 | | No aplica
+Prueba a -100 dBm para el rango -95 dBm>nivel de señal ?-105 dBm en una sesión de datos para LTE | Generación exitosa de una sesión de datos. Únicamente cuando amerite mediciones de campo | | Todos los operadores
+Prueba a -110 dBm para el rango -105 dBm>nivel de señal ?- 115 dBm en una sesión de datos para LTE | Generación exitosa de una sesión de datos. Únicamente cuando amerite mediciones de campo | | Todos los operadores
+Prueba a -115 dBm para verificación de la sensibilidad de Rx en áreas de baja cobertura | Verificar que terminal no se encuentre fuera de servicio. Únicamente cuando amerite mediciones de campo | | Todos los operadores
+Max. Throughput averaged | Verificar en el analizador el cumplimiento según lo define la 3GPP TS 38.521-3 | | Todos los operadores (cuando amerite mediciones de campo)
+(*) En caso de que por alguna imposibilidad del terminal no permitan realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la DGC. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por la DGC.
+Pruebas de radio frecuencia para NR (5G) Non-Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Resultado esperado | Observaciones | Operadores por evaluar
+(**) Las pruebas de radiofrecuencia para NR (5G) Non-Standalone deberán realizarse para todas las configuraciones de bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en esta tecnología. (***) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología.
+Pruebas de idioma español | Resultado esperado | Observaciones | Operadores por evaluar
+Verificar que la totalidad de accesos, menús y aplicaciones del terminal sean en idioma Español. | Pasa | Verificar y confirmar que la totalidad de accesos, menús, configuraciones y aplicaciones del teléfono sean en idioma Español. | Un operador
+Configuración del idioma del terminal | Pasa | | Un operador
+Verificación documental de los niveles transmisión en bandas de uso libre del terminal
+Se deberá cumplir con la metodología de verificación y de cumplimiento de conformidad con lo dispuesto en la resolución RCS-245-2023 y sus modificaciones. El informe deberá ser elaborado de manera que incluya, como mínimo, las siguientes columnas:
+Tipos de Transmisió n | Rango de frecuencia s (MHz) | Máxima potencia de salida conducid a (Watts) | Máxima potencia de salida conducid a (dBm) | Gananci a de la antena (dBi) | Máxim a potenci a EIRP o PIRE (dBm) (*) | Umbra l máxim o (dBm) (**) | Resultad o esperado
+| | | | | | | Pasa
+Verificación documental de los niveles transmisión en bandas de uso libre del terminal
+Se deberá cumplir con la metodología de verificación y de cumplimiento de conformidad con lo dispuesto en la resolución RCS-245-2023 y sus modificaciones. El informe deberá ser elaborado de manera que incluya, como mínimo, las siguientes columnas:
+Tipos de Transmisió n | Rango de frecuencia s (MHz) | Máxima potencia de salida conducid a (Watts) | Máxima potencia de salida conducid a (dBm) | Gananci a de la antena (dBi) | Máxim a potenci a EIRP o PIRE (dBm) (*) | Umbra l máxim o (dBm) (**) | Resultad o esperado
+(*) Potencia isotrópica radiada equivalente (PIRE) para el segmento de frecuencia, sumada la ganancia de la antena. (**): Umbral máximo para la potencia isotrópica radiada equivalente (PIRE) para el segmento de frecuencia, según el Plan Nacional de Atribución de Frecuencias (PNAF). (***) En el informe se deberá incluir una captura de pantalla y la referencia exacta de las páginas donde se obtuvieron los datos para completar la tabla.
+Verificación del funcionamiento de las funcionalidades que hacen uso de bandas de uso libre | Resultado esperado | Observaciones | Operadores por evaluar
+Funcionamiento de WiFi | Pasa | Conectarse a una red WiFi, verificar que el proceso de autenticación sea exitoso y navegar en varias páginas WEB | No aplica
+Funcionamiento de anclaje de red mediante zona WiFi portátil | Pasa | Configurar la zona WiFi portátil y conectarse a la misma desde otro dispositivo | No aplica
+Funcionamiento de Bluetooth | Pasa | Transferir datos y audio por medio del Bluetooth | No aplica
+Funcionamiento de anclaje de red vía Bluetooth | Pasa | Configurar el anclaje de red vía | No aplica
+Verificación del funcionamiento de las funcionalidades que hacen uso de bandas de uso libre | Resultado esperado | Observaciones | Operadores por evaluar
+| | Bluetooth y conectarse a la misma desde otro dispositivo |
+Funcionamiento de NFC | Pasa | Transferir datos y audio por medio del Bluetooth | No aplica
+Funcionamiento de la tecnología IR | Pasa | Probar el funcionamiento de la tecnología utilizándolo como control remoto | No aplica
+Operación en las bandas de servicios de telecomunicaciones móviles establecidas en el PNAF
+Rango de frecuencias según comercialización de los operadores | Tecnología | Resultado esperado | Operadores por evaluar
+Banda 5 Rango 869 MHz - 894 MHz | Para todas las tecnologías de servicio móvil, desde 2G, 3G, 4G, 5G y futuras generaciones | Pasa | Todos los operadores (cuando amerite mediciones de campo)
+Banda 3 Rango 1805 MHz - 1880 MHz | Para todas las tecnologías de servicio móvil, desde 2G, 3G, 4G, 5G y futuras generaciones | Pasa | Todos los operadores (cuando amerite mediciones de campo)
+Banda 1 Rango 2110 MHz - 2170 MHz | Para todas las tecnologías de servicio móvil, desde 2G, 3G, 4G, 5G y futuras generaciones | Pasa | Todos los operadores (cuando amerite mediciones de campo)
+Operación en las bandas de servicios de telecomunicaciones móviles establecidas en el PNAF
+Rango de frecuencias según comercialización de los operadores | Tecnología | Resultado esperado | Operadores por evaluar
+Banda 7 Rango 2620 MHz - 2690 MHz | Para todas las tecnologías de servicio móvil, desde 2G, 3G, 4G, 5G y futuras generaciones | Pasa | Todos los operadores (cuando amerite mediciones de campo)
+Banda n... Rango n. MHz - n... MHz (**) | Para todas las tecnologías de servicio móvil, desde 2G, 3G, 4G, 5G y futuras generaciones | Pasa | Todos los operadores (cuando amerite mediciones de campo)
+(*) Se debe verificar el funcionamiento del terminal en el equipo de medición de radio frecuencia, en todo el rango de frecuencias, realizando una prueba para cada bloque de 5 MHz. (**) Se deberá realizar para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en las tecnologías que corresponda. La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología. (***) En caso de que por alguna imposibilidad del terminal no permitan realizar las pruebas de la forma indicada, deberán efectuarse por medio de mediciones de campo, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por dicha Dirección. (****) Únicamente en redes de arquitectura no autónoma (NSA) se debe ejecutar solamente para la tecnología encargada del proceso de direccionamiento.
+Pruebas de Consumo de corriente del terminal
+Descripción: Las siguientes pruebas de consumo de corriente del terminal deben realizarse en concordancia con el estándar "Battery Life Measurement and Current Consumption Technique Version 10.1 26nd December 2017" de la Asociación GSMA. Se documentará el consumo de corriente de las hojas de datos del fabricante y se evaluará el cumplimiento con la medición realizada. Se aceptarán los valores que se encuentren dentro del rango de un -10% respecto a las especificaciones brindadas por el fabricante.
+Prueba de consumo de corriente del terminal | Tecnologí a | Consumo I (mA) | Capacidad de la Batería según Fabrica C (mAh) | Tiempo Medido en Modo de Llamad a (T [h]) | Tiempo Teórico en Modo de Llamada (Tt [h]) | Resultad o Esperad o
+Prueba en Modo de Llamada * | GSM | | | T=C/I | | T>Tt ****
+UMTS | | | T=C/I | | T>Tt ****
+VoLTE *** | | | T=C/I | | T>Tt ****
+VoNR *** | | | T=C/I | | T>Tt ****
+Prueba de consumo de corriente del terminal en Modo de Navegación ** | UMTS | | | | |
+LTE | | | | |
+NR | | | | |
+(*) Para los terminales con la capacidad de realizar llamadas de voz, se realizará una llamada continua durante 10 minutos. (**) Para los terminales que NO cuentan con la capacidad de realizar llamadas de voz, se realizará una sesión de navegación durante 5 minutos en la página dispuesta por la GSMA según el estándar de medición. (***) Las pruebas con la tecnología VoLTE y VoNR únicamente deberán ser realizadas cuando los 3 operadores de las redes de telefonía móvil activen dicho servicio. (****) Sin embargo, se aceptarán los valores que se encuentren dentro del rango de un - 10%.
+Pruebas de llamadas telefónicas (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores) | Resultado esperado | Operadores por evaluar
+Notificación de llamada entrante | Verificar que se reciba alerta perceptible al usuario de llamada entrante. En caso de terminales con "n" SIMs se debe diferenciar a cuál corresponde la notificación. | Todos los operadores
+Generar llamadas a destinos guardados en contactos con formato internacional | Verificar establecimiento de la llamada | Todos los operadores
+Generación y recepción de una videollamada | Verificar el funcionamiento del audio y vídeo | Todos los operadores
+Generar llamadas a números de emergencia (911/112) con SIM | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) sin SIM | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) con el teléfono bloqueado por medio de PIN | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) con el teléfono bloqueado con cada uno de los mecanismos de bloqueo del teléfono | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) mediante una sesión VoLTE. | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) mediante una sesión VoWifi. | Verificar el establecimiento de la llamada | Todos los operadores
+Generar llamadas a números de emergencia (911/112) mediante una sesión VoNR. | Verificar el establecimiento de la llamada | Todos los operadores
+Despliegue del identificador de llamadas (Asociación del nombre del contacto con el número almacenado en el terminal) | Al generar y recibir una llamada el nombre del contacto debe mostrarse tal y como se almacenó en el terminal | Todos los operadores
+Pruebas de llamadas telefónicas (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores) | Resultado esperado | Operadores por evaluar
+Desactivar el envío de identificador de llamadas y generar una llamada | Verificar que en el terminal destino no se muestre el número que origina la llamada | Todos los operadores
+Envío de tonos DTMF | Validar el funcionamiento de cada tono 1,2,3,4,5,6,7,8,9,0,* y # | Todos los operadores
+Desvío de todas las llamadas de voz a número fijo y móvil | El desvío de la llamada es efectuado adecuadamente | Todos los operadores
+Desvío de llamadas si está ocupado a número fijo y móvil | El desvío de la llamada es efectuado adecuadamente | Todos los operadores
+Desvío de llamadas si no hay respuesta a número fijo y móvil | El desvío de la llamada es efectuado adecuadamente | Todos los operadores
+Desvío de llamadas si está fuera de cobertura a número fijo y móvil | El desvío de la llamada es efectuado adecuadamente | Todos los operadores
+Funcionamiento del servicio de llamada en espera | Al activarlo el terminal permite recibir una segunda llamada mientras la primera está activa. Se debe poder consultar el estado del servicio y desactivar el mismo adecuadamente. | Todos los operadores
+Activación y desactivación de la conferencia de llamadas | Verificar que se permita efectuar llamadas en conferencia y que al terminar la llamada desde otro terminal diferente al que inicio la misma, la conferencia se mantiene con los demás terminales y que, al terminar la llamada desde el terminal en prueba, se terminen todas las llamadas en los otros terminales | Todos los operadores
+Paso entre llamadas en conferencia | Verificar que el terminal permita establecer llamadas en conferencia sin que se corten las llamadas, en el proceso de incluir otro participante. | Todos los operadores
+Llamada entrante cuando se encuentra en conferencia | Verificar que se escuche la notificación de la llamada privada en el terminal y que la notificación | Todos los operadores
+Pruebas de llamadas telefónicas (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores) | Resultado esperado | Operadores por evaluar
+| de la llamada ni el paso entre llamadas ocasione que se corte la conferencia. |
+Añadir una llamada entrante a una conferencia | Verificar que se muestre en el menú la opción para agregar la llamada privada a la conferencia y que funcione correctamente | Todos los operadores
+Establecer una comunicación privada (mientras se mantiene una conferencia) | Verificar que el terminal permita establecer llamadas privadas desde la llamada en conferencia sin que se corten las llamadas. Asimismo, verificar que el audio no se filtre entre la llamada privada y la conferencia | Todos los operadores
+Pasar entre la conferencia y la llamada privada | Verificar que el terminal permita pasar entre llamadas privadas y llamadas en conferencia. Asimismo, verificar que no se filtre el audio entre la llamada privada y la conferencia | Todos los operadores
+Activación del indicador de mensajes de voz | Verificar la activación del icono de mensaje de voz, ya sea en la pantalla principal o en la de notificaciones. En caso de terminales con "n" SIMs se debe diferenciar a cuál corresponde la notificación. | Todos los operadores
+Notificación exitosa del indicador de mensajes de voz al cambiar la SIM de un terminal a otro | Generar un mensaje de voz en un primer terminal y verificar que se active el icono de mensaje de voz al retirar e introducir la tarjeta SIM en otro terminal de prueba | Todos los operadores
+Verificar si el aviso de mensajes de voz desaparece una vez escuchados los mensajes | Una vez escuchados todos los mensajes del correo de voz, se debe verificar que desaparezca el icono de mensaje de voz | Todos los operadores
+El terminal despliega correctamente en forma ordenada las 5 últimas llamadas realizadas/recibidas | Pasa | Todos los operadores
+Pruebas de llamadas telefónicas (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores) | Resultado esperado | Operadores por evaluar
+Consulta de la fecha y hora de las últimas 5 llamadas realizadas / recibidas | Pasa | Todos los operadores
+Consulta de la duración de las últimas 5 llamadas realizadas / recibidas | Pasa | Todos los operadores
+Activar la Marcación Fija de Números FDN "Fixed Dialing Number" | Verificar que únicamente pueda efectuarse llamadas a contactos que estén almacenados en la lista de FDN | Todos los operadores
+Generación/Recepción de llamadas a través de VoLTE | Se evaluarán aspectos como claridad de audio y estabilidad de la conexión | Todos los operadores que cuenten con el servicio
+Generación/Recepción de llamadas a través de VoWiFi | Se evaluarán aspectos como claridad de audio y estabilidad de la conexión | Todos los operadores que cuenten con el servicio
+Generación/Recepción de llamadas a través de VoNR | Se evaluarán aspectos como claridad de audio y estabilidad de la conexión | Todos los operadores que cuenten con el servicio
+| | | | | | | |
+Operación del Handover (transferencia del servicio de una estación base a otra cuando la calidad del enlace es insuficiente) en las bandas de servicios de telefonía móvil establecidas en el PNAF, utilizando el equipo de medición de radio frecuencia. (*)
+Bandas | Resultado esperado entre las tecnologías 2G, 3G y 4G
+850 MHz (Destino) | 1800 MHz (Destino) | 2100 MHz (Destino) | 2600 MHz (Destino)
+850 MHz (Origen) | 2G - 2G; Pasa 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 3G - 2G; Pasa 2G - 4G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 2G - 2G; Pasa 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 3G - 2G; Pasa 2G - 4G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 2G - 4G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa 2G - 4G; Pasa 3G - 4G; Pasa
+Operación del Handover (transferencia del servicio de una estación base a otra cuando la calidad del enlace es insuficiente) en las bandas de servicios de telefonía móvil establecidas en el PNAF, utilizando el equipo de medición de radio frecuencia. (*)
+1800 MHz (Origen) | 2G - 2G; Pasa 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 3G - 2G; Pasa 2G - 4G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 2G - 2G; Pasa 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 3G - 2G; Pasa 2G - 4G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 3G - 3G; Pasa 4G - 4G; Pasa 2G - 3G; Pasa 2G - 4G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa 2G - 4G; Pasa 3G - 4G; Pasa
+2100 MHz (Origen) | 3G - 3G; Pasa 4G - 4G; Pasa 3G - 2G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 3G - 3G; Pasa 4G - 4G; Pasa 3G - 2G; Pasa 4G - 2G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 3G - 3G; Pasa 4G - 4G; Pasa 3G - 4G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa 3G - 4G; Pasa
+2600 MHz (Origen) | 4G - 4G; Pasa 4G - 2G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa 4G - 2G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa 4G - 3G; Pasa | 4G - 4G; Pasa
+Operación del Handover (transferencia del servicio de una estación base a otra cuando la calidad del enlace es insuficiente) en las bandas de servicios de telefonía móvil establecidas en el PNAF, utilizando el equipo de medición de radio frecuencia. (*)
+Tecnologías | Resultado esperado entre las tecnologías 4G y 5G (**)
+5G NSA Non- StandAlone (Destino) | 5G SA StandAlone (Destino) | 4G LTE (Destino)
+5G NSA Non- StandAlone (Origen) | Pasa | Pasa | Pasa
+5G SA StandAlone (Origen) | Pasa | Pasa | Pasa
+4G LTE (Origen) | Pasa | Pasa | N/A
+(*) Se deberá realizar para todas las bandas de frecuencia utilizadas por los operadores nacionales en la prestación del servicio que soporte el terminal en las tecnologías que corresponda. (**) Se deberá realizar para todas las combinaciones de bandas de frecuencia que comercialicen los operadores nacionales en la prestación del servicio para dichas
+Operación del Handover (transferencia del servicio de una estación base a otra cuando la calidad del enlace es insuficiente) en las bandas de servicios de telefonía móvil establecidas en el PNAF, utilizando el equipo de medición de radio frecuencia. (*)
+tecnologías. Se aclara que el equipo debe estar en la capacidad de ejecutar la totalidad de los escenarios NSA?NSA, NSA?SA, NSA?LTE, SA?SA y SA?LTE para los cruces de prueba descritos de acuerdo con las capacidades de cada terminal. (***) La Dirección General de Calidad, por medio de oficio, indicará a los peritos los segmentos concretos a evaluar para todas las bandas de frecuencia empleadas por los operadores para cada tecnología.
+Operación del Handover (transferencia del servicio de una estación base a otra cuando la calidad del enlace es insuficiente) en las bandas de servicios de telefonía móvil establecidas en el PNAF, utilizando el equipo de medición de radio frecuencia. (*)
+Tecnología | Resultado esperado | Operadores por evaluar
+2G - 2G | Pasa | Todos los operadores
+2G - 3G | Pasa | Todos los operadores
+3G - 2G | Pasa | Todos los operadores
+3G - 3G | Pasa | Todos los operadores
+3G - 4G | Pasa | Todos los operadores
+4G - 3G | Pasa | Todos los operadores
+4G - 4G | Pasa | Todos los operadores
+4G - 5G | Pasa | Todos los operadores
+5G - 4G | Pasa | Todos los operadores
+5G - 5G | Pasa | Todos los operadores
+(*) Estas pruebas deberán de ejecutarse únicamente en caso de que por alguna imposibilidad del equipo terminal sea posible realizar las pruebas de banco, con previa autorización por parte de la Dirección General de Calidad. Estas pruebas deberán realizarse siguiendo las indicaciones emitidas por la citada Dirección. (**) La ejecución se limitará a los operadores con despliegues comerciales existentes. La Dirección General de Calidad se encargará de comunicar cualquier nueva asignación de frecuencias.
+Pruebas de mensajería de texto SMS (*) | Resultado esperado | Operadores por evaluar
+Activar el reporte de recepción en el destino | Verificar que se muestre un mensaje de notificación de entrega al destinatario. | Todos los operadores
+Alerta de mensaje recibido | Verificar que se reciba alerta perceptible al usuario una vez que | Todos los operadores
+Pruebas de mensajería de texto SMS (*) | Resultado esperado | Operadores por evaluar
+| ingresa el mensaje. En caso de terminales con "n" SIMs se debe diferenciar a cuál corresponde la notificación. |
+Número de origen de SMS | Mostrar en pantalla el número de origen del SMS. | Un operador
+Generación/Recepción de SMS con 160 caracteres | Validar que se envíe y se reciba un solo mensaje de texto | Todos los operadores
+Generación de SMS con 160 caracteres a grupos de destinatarios | Pasa | Un operador
+Generación/Recepción de SMS con 1530 caracteres | Verificar que el mensaje se envía y reciba mediante 10 mensajes concatenados. Verificar que muestre una notificación de mensaje concatenado al agregar el carácter 161, carácter 305 y cada vez que el recuento llegue a 153 caracteres adicionales | Todos los operadores
+Generación/Recepción de SMS durante una llamada | Verificar que el terminal permita enviar/recibir SMS con una llamada establecida sin que existan cortes o caída de llamada. | Todos los operadores
+Generación/Recepción de SMS a centros de mensajería contenido | Pasa | Todos los operadores
+Generación/Recepción de SMS a destinos internacionales | Pasa | Todos los operadores
+Pruebas de mensajería de texto SMS (*) | Resultado esperado | Operadores por evaluar
+Comprobación del contenido de mensaje de texto | Verificar que el contenido del mensaje sea idéntico al enviado | Un operador
+Recepción de SMS al encender el terminal | Verificar que se reciba alerta perceptible al usuario una vez que ingresa el mensaje al encender el terminal | Un operador
+Responder un mensaje de texto | Verificar que se muestre la opción de responder un mensaje de texto y ejecutar dicha opción de forma satisfactoria | Un operador
+Reenviar un mensaje de texto | Verificar que se muestre la opción de reenviar un mensaje de texto y ejecutar dicha opción de forma satisfactoria | Un operador
+Generar una llamada al remitente de un mensaje de texto | Verificar que se muestre la opción de generar llamada desde un mensaje de texto y ejecutar dicha opción de forma satisfactoria | Un operador
+Eliminar SMS individual y en conjunto | Pasa | Un operador
+Mensaje de notificación cuando se envía un SMS a un centro de mensajería SMSC erróneo | Verificar que se despliegue un mensaje de error | Un operador
+Orden de los últimos mensajes SMS enviados/recibidos (5 SMS) | Verificar que el orden de los últimos mensajes SMS enviados/recibidos se muestre en orden cronológico | Un operador
+Pruebas de mensajería de texto SMS (*) | Resultado esperado | Operadores por evaluar
+Fecha y hora de los últimos SMS enviados/recibidos (5 SMS) | Verificar que la fecha y hora de los últimos mensajes SMS enviados/recibidos se muestre correctamente. | Un operador
+Cambiar el tipo de mensaje de texto por utilizar de SMS a RCS o iMessage y viceversa | Confirmar la modificación del tipo de mensaje a utilizar | Un operador
+Generación/Recepción de mensajes tipo RCS o iMessage | Validar que se envíe y se reciba el mensaje | Un operador
+Capacidad de encriptar mensajes tipo RCS o iMessage para garantizar la privacidad | Validar capacidad de encriptar la conversación de extremo a extremo | Un operador
+(*) Con el fin de asegurar la calidad y funcionalidad de las comunicaciones, se llevarán a cabo pruebas en los sistemas de mensajería RCS (Android) y iMessage (iOS)
+Pruebas de servicio de navegación | Resultado esperado | Operadores por evaluar
+Verificar el manejo de conexiones PDN | Para terminales que soportan LTE y NR deben permitir activar y utilizar conexiones APN | Todos los operadores
+Verificación de la desactivación de una sesión de conexiones PDN | Para terminales que soportan LTE y NR se debe poder desactivar una sesión APN mientras la otra sesión se mantiene activa | Todos los operadores
+Verificar el acceso y navegación mediante el protocolo WEB | Carga de páginas de navegación sin errores o pérdida de información. | Todos los operadores
+Visualización de contenido adecuado al tamaño de la pantalla | Tamaño de letra legible y validación de opciones de acercamiento y alejamiento | Un operador
+Verificar el acceso a formularios | Acceder a una página que contenga un formulario y validar que el mismo se despliegue de forma completa y que pueda ser llenado de forma correcta. | Un operador
+Pruebas de servicio de navegación | Resultado esperado | Operadores por evaluar
+Descarga de imágenes en alguno de los formatos soportados por el terminal de prueba | Descarga de imágenes en memoria interna o externa y despliegue de estas con servicio de datos desactivado | Un operador
+Descarga de audio en alguno de los formatos soportados por el terminal de prueba | Descarga de archivos de audio en memoria interna o externa y despliegue de las mismas con servicio de datos desactivado | Un operador
+Descarga de video en alguno de los formatos soportados por el terminal de prueba | Descarga de videos en memoria interna o externa y reproducción con servicio de datos desactivado | Un operador
+Estabilidad de la conexión | Navegar en distintas páginas y evaluar estabilidad de aplicación de navegación | Todos los operadores
+Ancho de banda de la conexión | Medir el ancho de banda y la estabilidad al utilizar terminal como módem | Todos los operadores
+Verificación de la función "atrás" de navegación | Cargar un URL1 y luego un URL2 en la aplicación de navegación. Verificar que la función de "atrás" permita cargar nuevamente el URL1 | Un operador
+Actualizar un sitio URL | Cargar parcialmente un URL y validar el funcionamiento de la opción de navegación "actualizar sitio" en donde debe cargarse el URL de forma completa | Un operador
+Eliminar los datos de cache de las páginas de navegación | Verificar que las páginas de navegación recientes no queden almacenadas una vez que se borra el historial | Un operador
+Descarga de aplicaciones | Descargar una aplicación soportada por el terminal y verificar que se instale correctamente | Un operador
+Pruebas de servicio haciendo uso de todas las tecnologías de conexión que soporte el terminal (*) (**) | Resultado esperado | Operadores por evaluar
+Verificar la conexión Internet a través de un punto de | Verificar que se realice la navegación satisfactoriamente en | Todos los operadores
+Pruebas de servicio haciendo uso de todas las tecnologías de conexión que soporte el terminal (*) (**) | Resultado esperado | Operadores por evaluar
+acceso, por ejemplo, Wi-Fi móvil. | un computador con el equipo conectado como modem |
+Navegar en diferentes paginas por medio del explorador con el APN de Internet | Verificar que se realice la navegación satisfactoriamente en un computador con el equipo conectado como modem utilizando el APN del operador | Todos los operadores
+Velocidad de transferencia de datos de descarga / envío simultáneo de archivos en servidor internacional mediante todas las tecnologías de conexión que soporte el terminal al utilizarlo como modem. | Utilizar un software de monitoreo para evaluar la velocidad promedio de descarga/envío simultáneo de uno o varios archivos ubicados en servidor internacional se ajuste al tipo de tecnología de conexión utilizada cuando el terminal se encuentre conectado como modem a una PC | Todos los operadores
+Prueba de retardo internacional mediante todas las tecnologías de conexión que soporte el terminal al utilizarlo como modem. | Evaluar el retardo promedio de los paquetes de datos provenientes de un servidor internacional cuando el terminal se encuentre conectado como modem a una PC | Todos los operadores
+Envío y recepción de e-mail a través de cuentas con gestión WEB validar recepción y envío de email. | Verificar que se envíen y reciban correos con datos adjuntos satisfactoriamente cuando el terminal se encuentre conectado como modem a una PC | Un operador
+(*) Realizar las pruebas para las tecnologías de conexión que soporte el terminal. (**) Deberá especificarse el modo de anclaje de red utilizado.
+Pruebas de correo electrónico | Resultado esperado | Operadores por evaluar
+Enviar un e-mail con archivos adjuntos | Pasa | Un operador
+Configurar cuenta de email de cualquier proveedor del servicio y validar recepción y envío de email | Pasa | Un operador
+Pruebas de correo electrónico | Resultado esperado | Operadores por evaluar
+Descargar un e-mail con archivos adjuntos | Pasa | Un operador
+Al enviar un correo con archivo adjunto, validar los campos de "Para", "CC" y "CO" | El contenido del email y el archivo adjunto deberá ser recibido de forma satisfactoria por todos los destinatarios | Un operador
+Validar las funcionalidades de responder y responder a todos | Pasa | Un operador
+Selección de direcciones URL dentro del contenido de un correo electrónico | Al seleccionar la dirección, esta debe abrirse en el navegador | Un operador
+Pruebas de Interoperabilidad, entre operadores A, B y C
+Descripción de la prueba | Resultado esperado | Operadores por evaluar
+Prueba de llamada exitosa con A como origen y B como destino | Pasa | Todos los operadores
+Prueba de llamada exitosa con A como origen y C como destino | Pasa | Todos los operadores
+Prueba de llamada exitosa con B como origen y A como destino | Pasa | Todos los operadores
+Prueba de llamada exitosa con B como origen y C como destino | Pasa | Todos los operadores
+Prueba de llamada exitosa con C como origen y A como destino | Pasa | Todos los operadores
+Prueba de llamada exitosa con C como origen y B como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con A como origen y B como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con A como origen y C como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con B como origen y A como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con B como origen y C como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con C como origen y A como destino | Pasa | Todos los operadores
+Entrega y recepción de SMS con C como origen y B como destino | Pasa | Todos los operadores
+Pruebas de Servicios Prepago y USSD
+Servicios USSD Básicos | Resultado esperado | Operadores por evaluar
+Verificación del IMEI mediante el código USSD *#06# | Pasa | Un operador
+Activar y desactivar el desvío de todas las llamadas de voz mediante los códigos USSD *21#, #21# | Pasa | Un operador
+Activar y desactivar el desvío de llamadas si está ocupado mediante los códigos USSD *67#, #67# | Pasa | Un operador
+Activar y desactivar el desvío de llamadas si no hay respuesta mediante los códigos USSD *61#, #61# | Pasa | Un operador
+Activar y desactivar el desvío de llamadas si está fuera de cobertura mediante los códigos USSD *62#, #62# | Pasa | Un operador
+Activar y desactivar la llamada en espera mediante los códigos USSD *43#, #43# | Pasa | Un operador
+Recarga electrónica | Resultado esperado | Operadores por evaluar
+Funcionamiento de códigos para realización de una recarga | Verificar que se realice satisfactoriamente una recarga mediante el comando USSD indicado por el operador | Todos los operadores
+Funcionamiento de códigos para verificación del saldo de la cuenta | Enviar el comando USSD para verificar el saldo y recibir un mensaje de respuesta con la descripción del saldo actual | Todos los operadores
+Conjuntos de pruebas del protocolo de medición a evaluar para cada puerto SIM adicional en el caso de los terminales MultiSIM
+Conjunto de pruebas | Resultado esperado | Observaciones
+Pruebas de validación del PIN1 | Pasa | Según lo definido para cada conjunto de pruebas en el protocolo de medición.
+Pruebas de llamadas telefónicas | Pasa
+Pruebas de mensajería de texto SMS | Pasa
+Pruebas de servicio de navegación | Pasa
+Pruebas de servicio haciendo uso de todas las tecnologías de conexión que soporte el terminal | Pasa
+Pruebas de Interoperabilidad, entre operadores A, B y C | Pasa
+Pruebas de radio frecuencia para GSM (2G) con equipo especial de medición de radio comunicaciones. (*) | Pasa
+Conjuntos de pruebas del protocolo de medición a evaluar para cada puerto SIM adicional en el caso de los terminales MultiSIM
+Conjunto de pruebas | Resultado esperado | Observaciones
+Pruebas de radio frecuencia para UMTS (3G) con equipo especial de medición de radio comunicaciones. (**) | Pasa |
+Pruebas de radio frecuencia para LTE (4G) con equipo especial de medición de radio comunicaciones (***) | Pasa
+Pruebas de radio frecuencia para NR (5G) Standalone con equipo especial de medición de radio comunicaciones. (****) | Pasa
+Pruebas de radio frecuencia para NR (5G) Non- Standalone con equipo especial de medición de radio comunicaciones. (*****) | Pasa
+(*) Se excluyen las pruebas 2, 3 y 4 del conjunto de pruebas en el protocolo de medición para GSM (2G) (**) Se excluyen las pruebas 2, 3 y 4 del conjunto de pruebas en el protocolo de medición para UMTS (3G) (***) Se excluyen las pruebas 2, 3, 4, 5, 6 y 17 del conjunto de pruebas en el protocolo de medición para LTE (4G) (****) Se excluyen las pruebas 12, 13, 14 y 15 del conjunto de pruebas en el protocolo de medición para NR (5G) Standalone (*****) Se excluyen las pruebas 12, 13, 14 y 15 del conjunto de pruebas en el protocolo de medición para NR (5G) Non-Standalone
+Conjuntos de pruebas del protocolo de medición a evaluar terminales con funcionalidad eSIM
+Conjunto de pruebas | Resultado esperado | Observaciones
+Pruebas de interacción con la red y validación de seguridad (*) | Pasa | Según lo definido para cada conjunto de pruebas en el protocolo de medición.
+Pruebas de radio frecuencia para GSM (2G) con equipo especial de medición de radio comunicaciones. (*) (**) | Pasa
+Pruebas de radio frecuencia para UMTS (3G) con equipo especial de medición de radio comunicaciones. (*) (**) | Pasa
+Pruebas de radio frecuencia para LTE (4G) con equipo especial de medición de radio comunicaciones (*) (**) | Pasa
+Pruebas de radio frecuencia para NR (5G) Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Pasa
+Conjuntos de pruebas del protocolo de medición a evaluar terminales con funcionalidad eSIM
+Conjunto de pruebas | Resultado esperado | Observaciones
+Pruebas de radio frecuencia para NR (5G) Non- Standalone con equipo especial de medición de radio comunicaciones. (*) (**) | Pasa |
+Pruebas de idioma español | Pasa
+Verificación documental de los niveles transmisión en bandas de uso libre del terminal | Pasa
+Verificación del funcionamiento de las funcionalidades que hacen uso de bandas de uso libre | Pasa
+Operación en las bandas de servicios de telecomunicaciones móviles establecidas en el PNAF | Pasa
+Pruebas de Consumo de corriente del terminal | Pasa
+Pruebas de llamadas telefónicas (*) | Pasa
+Operación del Handover | Pasa
+Pruebas de mensajería de texto SMS (*) | Pasa
+Pruebas de servicio de navegación (*) | Pasa
+Pruebas de servicio haciendo uso de todas las tecnologías de conexión que soporte el terminal (*) | Pasa
+Pruebas de correo electrónico | Pasa
+Pruebas de Interoperabilidad, entre operadores A, B y C (*) | Pasa
+Pruebas de Servicios Prepago y USSD | Pasa
+Recarga electrónica | Pasa
+(*) Los terminales que cuenten con la capacidad de operar sobre un mismo IMEI tanto con el SIM físico como con eSIM, deberá de ejecutar las pruebas del SIM físico tal cual están definidas y adicionalmente deberá de ejecutar las marcadas en esta batería de pruebas. (**) Para estas pruebas deberán de seguirse las indicaciones de la sección MultiSIM (***) Esta sección presenta conjuntos de pruebas, todos ellos detallados en las secciones precedentes, en los que específica para cada una si debe ejecutarse en un único operador, en múltiples operadores o con equipo de radiofrecuencia. Para llevar a cabo cada prueba, se deberán seguir las instrucciones correspondientes a cada conjunto.
+Pruebas exclusivas para terminales Dual Active SIM | Resultado esperado | Operadores por evaluar
+Dual SIM Dual Active - Recibir una llamada en SIM adicional mientras se mantiene una sesión de datos en SIM primaria. | Pasa | Todos los operadores
+Pruebas exclusivas para terminales Dual Active SIM | Resultado esperado | Operadores por evaluar
+Registro satisfactorio de todas las tarjetas SIM soportadas | Pasa | Todos los operadores
+Dual SIM - Administrador de tarjetas SIM - Funcionamiento de llamadas, SMS y Datos, inhabilitando SIM primaria mediante menú | Pasa | Todos los operadores
+Set de pruebas de funcionalidades generales | Resultado esperado | Operadores por evaluar
+Reestablecer los valores de fábrica para el dispositivo | Reestablecer los valores iniciales y a su vez validar que los datos almacenados, así como los de cuenta de los usuarios sean eliminados. | No aplica
+Funcionamiento de aplicaciones básicas (calculadora, explorador de archivos, reloj y tienda para la descarga de aplicaciones) | Verificar el correcto funcionamiento de los aplicativos | No aplica
+Validación de la lista de contactos | Guardar, borrar, importar y exportar contactos | No aplica
+Funcionamiento de altavoz y manos libres en modo de llamada | Verificar el correcto funcionamiento de los dispositivos durante la llamada | No aplica
+La iconografía de red mostrada al conectarse a cada una de las tecnologías 2G, 3G, 4G, 5G. | Verificar que la tecnología a la cual se encuentra conectado sea consecuente con la información mostrada en el terminal. | Todos los operadores
+Distintivo de homologación de la SUTEL (código para el certificado) * | Verificar y aportar captura del código de identificación de la SUTEL | No aplica
+(*) Se deberá de verificar en todos los modelos de terminales que presentaron una propuesta del distintivo de homologación digital.
+(*)(Así reformado el punto 1) anterior mediante resolución N° RCS-216-2024 del 14 de noviembre del 2024)
 2. Verificación de los requisitos para la autorización por parte de la SUTEL
 La DGC verificará que el solicitante haya cumplido con todos los requisitos para ser registrado para gestionar la homologación de los terminales de una determinada marca. La DGC contará con un plazo máximo de 10 días hábiles para realizar la verificación de los documentos.
 En caso de incumplimiento de alguno de los requisitos anteriormente señalados, la DGC realizará una prevención al solicitante, la cual deberá ser atendida en el plazo máximo de 10 días hábiles, remitiendo la información de forma física en las oficinas de la SUTEL. La DGC contará con un plazo máximo de 5 días hábiles para verificar nuevamente la información, si el solicitante incumple total o parcial con la prevención realizada, se podrá enviar una solicitud de subsane por el mismo plazo.
@@ -82,8 +502,6 @@ con relación a las condiciones de Radiofrecuencia, Conectividad y Operación de
 3.2.1.2. Las hojas de especificaciones técnicas del fabricante, donde se explique de forma detallada las diferencias que existen entre las versiones de hardware que se pretende incluir en el certificado.
 3.2.1.3. El solicitante deberá remitirle al perito al menos una muestra comercial de cada versión de hardware por declarar dentro del mismo certificado de homologación. Las características de estas terminales serán verificadas por el perito de homologación de conformidad a lo indicado por el fabricante en los puntos 3.2.1.1 y 3.2.1.2.
 3.3. Detalle de las especificaciones técnicas del equipo. El solicitante deberá completar la información solicitada en la siguiente tabla:
-[imagen]
-[imagen]
 (**) Nota: El parámetro de duración de llamada en modo navegación deberá suministrarse solo para aquellos terminales que no tengan habilitadas la generación y recepción de llamadas.
 3.4. Incluir, para cada uno de los transmisores con los que cuente el terminal que operen en las bandas de uso libre según lo establecido en el Plan Nacional de Atribución de Frecuencias (Decreto N°35257-MINAET, Alcance N°19 a La Gaceta N°103 del 29 de mayo de 2009 y sus reformas), al menos una certificación emitida por una entidad internacional como la FCC, la ETSI (CE), entre otras, o un reporte de un laboratorio certificado por una entidad internacional, que valide el rango de frecuencias de operación y los umbrales de la potencia máxima de salida de cada transmisor.
 3.5. Señalar los números del identificador del equipo móvil internacional (IMEI) de los tres terminales de telecomunicaciones móviles que someterá a pruebas de homologación en los peritos acreditados por la SUTEL. Estas tres muestras deberán ser comerciales e idénticas en todas sus características a las que serán distribuidas a los usuarios finales. Para los casos de aquellos dispositivos con batería integrada no accesible al usuario o bien que superen las dimensiones máximas definidas en el apartado 5.1, el solicitante deberá entregar una muestra que permita acceso a los conectores de la batería o el acceso a los conectores de radiofrecuencia compatibles con el cable tipo SMA.
@@ -153,7 +571,6 @@ Es preciso aclarar, que cada archivo CSV deberá contener tan solo un modelo de 
 El importador contará con el periodo máximo de seis meses naturales (prorrogables hasta a 8 meses en caso de que el solicitante presente una justificación válida) luego de la fecha de emisión de cada código de certificado para realizar un primer ingreso de los IMEIS correspondientes a los dispositivos que se comercialicen a la base de datos de terminales homologados de forma previa su comercialización. En caso de que se encuentre que no se han registrado los identificadores, se procederá a realizar las consultas correspondientes y, mediante el procedimiento establecido en el punto 19 de la presente resolución, se podrá determinar la revocación del certificado.
 La base de datos publicada en el sitio WEB de homologación de la SUTEL corresponderá a la base de datos oficial y autorizada para la verificación de terminales homologados y cualquier otra podrá ser utilizada solo con fines de referencia.
 Los equipos homologados por la DGC deberán ser identificados por parte del solicitante, con el distintivo de homologación de la SUTEL, tal y como se muestra a continuación:
-[imagen]
 Donde XXXXX-2018 corresponde al código de identificación de la SUTEL para el equipo terminal de telecomunicaciones móviles, el cual es un código único que será establecido por los peritos acreditados por la SUTEL mediante un sistema consecutivo que considere la naturaleza del equipo en estudio para su clasificación. El formato del código que corresponderá al perito 1 será 0XXXX- 20XX; para el perito 2 será 1XXXX-20XX; para el perito 3 será 2XXXX-20XX y así sucesivamente.
 Únicamente por petición del solicitante y bajo casos excepcionales en donde el interesado desee continuar un trámite de homologación con un perito distinto al perito que inicialmente le asignó el código de identificación, la Dirección General de Calidad podrá permitir la cesión del código asignado a favor del perito que realizará finalmente las evaluaciones de homologación.
 El identificador podrá ser físico o digital, y deberá cumplir con las siguientes características:
@@ -251,30 +668,6 @@ Fijar el siguiente protocolo de pruebas para la homologación de terminales de t
 20.4.2. Los únicos resultados aceptables serán PASA; NO PASA; NO HABILITADO POR EL TERMINAL (NHT); y NO HABILITADO POR EL OPERADOR (NHO). En caso de que el resultado de una prueba deba ser corroborado mediante documentación anexa, el perito deberá aportar toda la documentación necesaria y referenciarla con un comentario junto al resultado señalado para la prueba.
 20.4.3. El protocolo de evaluaciones de homologación se divide en varios sets de pruebas, de acuerdo con la funcionalidad que pretende evaluar en cada set. Cada set de pruebas deberá ser aplicado en su totalidad utilizando la misma muestra del terminal, y el plazo desde el inicio hasta el final de su aplicación no podrá exceder los 5 días hábiles.
 20.5. Las siguientes pruebas se realizarán una única vez independientemente del operador:
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 1. SEÑALAR que los equipos terminales de telecomunicaciones móviles son todos aquellos que cuentan con dispositivos de trasmisión y/o recepción de las tecnologías 2G, 3G, 4G o superiores.
 (Así adicionado el punto anterior mediante Resolución N° RCS-242-2023 aprobada en sesión N° 062-2023 del 12 de octubre del 2023)
 2. ESTABLECER que el procedimiento de homologación de equipos terminales deberá ser de cumplimiento obligatorio para todos los operadores/proveedores de servicios de telecomunicaciones móviles, aquellos autorizados por la Sutel como operadores prepago móviles (Operadores Móviles Virtuales -OMV), sus agencias, puntos de venta o distribución y los comercializadores y distribuidores autorizados por estos, así como aquellas empresas que posean dentro de su giro comercial la venta y distribución de equipos terminales de telecomunicaciones móviles.

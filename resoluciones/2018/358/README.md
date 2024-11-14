@@ -16,3 +16,4 @@ Modificación del Procedimiento para la homologación de terminales móviles
 | 1 | 2018-12-10 | la propia norma |
 | 2 | 2022-06-16 | Resolución 141 (2022-06-16) |
 | 3 | 2023-10-12 | Resolución 242 (2023-10-12) |
+| 4 | 2024-11-14 | Resolución 216 (2024-11-14) |
