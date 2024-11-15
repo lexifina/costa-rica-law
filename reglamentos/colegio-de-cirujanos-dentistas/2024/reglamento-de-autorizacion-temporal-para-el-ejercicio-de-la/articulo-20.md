@@ -1,0 +1,1 @@
+Artículo 20.-Delimitación física. El profesional en odontología visitante solo podrá brindar su ejercicio docente en las instalaciones del centro de estudios que presentó en la solicitud o en los lugares indicados en la solicitud (de proyectarse que se trasladará a otros lugares).

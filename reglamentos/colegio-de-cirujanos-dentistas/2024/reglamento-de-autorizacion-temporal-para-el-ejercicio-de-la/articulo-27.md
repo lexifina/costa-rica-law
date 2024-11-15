@@ -1,0 +1,1 @@
+Artículo 27.-Prohibición de ejercicio liberal. El profesional en odontología visitante que haya recibido la autorización temporal tiene prohibido ejercer la labor odontológica de forma liberal durante el tiempo que cuente con el permiso.

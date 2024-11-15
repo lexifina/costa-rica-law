@@ -1,0 +1,3 @@
+Artículo 19.-Delimitación temporal. En el acuerdo de autorización se indicará el plazo temporal en el cual podrá ejercer el profesional en odontología visitante. El cual estará ligado a la actividad en concreto que se realizará.
+Bajo ninguna circunstancia la solicitud podrá tener un plazo indefinido. Se podrá prorrogar, una única vez, bajo circunstancias excepcionales y se justificará la necesidad y pertinencia de la prórroga.
+En el caso de universidades públicas, el plazo no podrá superar un semestre académico. En el caso de universidades privadas autorizadas por CONESUP, el plazo no podrá superar un cuatrimestre académico.

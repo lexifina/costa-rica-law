@@ -1,0 +1,1 @@
+Artículo 28.-Cobro por trámites administrativos. La Junta Directiva, por acuerdo motivado, podrá establecer un cobro por los servicios administrativos que genere la implementación de este reglamento. Tal cobro será razonable y proporcionado al servicio brindado.

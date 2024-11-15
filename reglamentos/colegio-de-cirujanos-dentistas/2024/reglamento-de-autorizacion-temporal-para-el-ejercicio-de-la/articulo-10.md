@@ -1,0 +1,1 @@
+Artículo 10.-Plazo de presentación. Cualquier solicitud a la luz de este reglamento, deberá ser presentada con al menos un mes de anticipación a la actividad de la cual desea ser parte. De no cumplirse con ese plazo, estará la Fiscalía autorizada a rechazar ad portas la solicitud.

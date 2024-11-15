@@ -1,0 +1,1 @@
+Artículo 14.-Prohibición de remuneración. Al tratarse de una misión humanitaria, no podrá el profesional en odontología visitante percibir ingresos económicos por sus servicios producto del cobro a pacientes o beneficiarios de los servicios.

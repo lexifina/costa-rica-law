@@ -1,0 +1,2 @@
+Artículo 24.-Delimitación temporal. En el acto de autorización se indicará el plazo temporal en el cual podrá ejercer el profesional en odontología visitante, el cual estará ligado a la actividad en concreto que se realizará.
+Bajo ninguna circunstancia la solicitud podrá tener un plazo indefinido. Se podrá prorrogar, bajo circunstancias excepcionales y se justificará ante Fiscalía la necesidad y pertinencia de la prórroga.

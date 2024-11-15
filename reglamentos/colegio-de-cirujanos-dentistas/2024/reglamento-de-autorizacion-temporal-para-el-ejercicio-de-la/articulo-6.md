@@ -1,0 +1,3 @@
+Artículo 6º-Fiscalización. La Fiscalía podrá fiscalizar en cualquier momento el ejercicio del profesional en odontología visitante para verificar que su labor sea acorde con los indicado en su solicitud. La Fiscalía podrá nombrar observadores que coadyuven en la fiscalización de este reglamento.
+La persona observadora debe ser un profesional en odontología debidamente incorporado al Colegio y no debe tener ningún conflicto de interés con las personas o actividades a fiscalizar.
+Se entenderá el conflicto de interés como una relación de afinidad o consanguinidad hasta el tercer grado, tener alguna relación comercial con el profesional extranjero visitante o con las personas organizadoras de las actividades o cualquier otra que, a juicio de la Fiscalía, sea de recibo.

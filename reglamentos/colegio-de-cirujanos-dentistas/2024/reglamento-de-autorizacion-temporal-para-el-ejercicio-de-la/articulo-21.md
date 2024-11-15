@@ -1,0 +1,1 @@
+Artículo 21.-Condiciones clínicas. El profesional en odontología visitante que ejercerá la docencia con componente clínico, deberá hacerlo en un lugar que cuente con permiso de habilitación del Ministerio de Salud para la atención dental y que cumpla con todas las regulaciones sanitarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 5º-Recursos. Si la Junta Directiva rechaza cualquier solicitud a la luz de este reglamento, la persona interesada podrá presentar un recurso de revocatoria, dentro de los siguientes tres días hábiles, ante la misma Junta Directiva o de apelación ante la Asamblea General. El fallo de la Asamblea General dará por agotado la vía administrativa, sin ulterior recurso.

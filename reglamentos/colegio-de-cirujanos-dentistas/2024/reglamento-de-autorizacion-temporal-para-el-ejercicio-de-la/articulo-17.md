@@ -1,0 +1,2 @@
+Artículo 17.-Docencia clínica. Toda labor docente que tenga componente clínico, es decir, atienda a un paciente, estará obligada a presentar esta solicitud.
+Por el contrario, si la labor docente es únicamente teórica y para eventos aislados, no será necesario cumplir los requisitos de este reglamento, y únicamente tendrá que enviar una nota simple a la Fiscalía informando el lugar y tiempo en que realizará sus labores. Esta excepción no aplica si la labor docente teórica es sostenida en el tiempo y excede el mes natural.
