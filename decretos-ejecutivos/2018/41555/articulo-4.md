@@ -1,1 +1,0 @@
-Artículo 4.-Inscripción de pacientes nacionales o con residencia permanente. Todo paciente nacional o con residencia permanente que vaya a ser incluido en la lista de receptores, deberá estar asegurado por la Caja Costarricense del Seguro Social.

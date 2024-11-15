@@ -1,1 +1,0 @@
-Artículo 42.- Deróguese el Decreto Ejecutivo N º 40004-S del 3 de octubre del 2016 "Criterios de Distribución Hepática proveniente de Donante Cadavérico", publicado en el Alcance Nº 309 a La Gaceta N º 241 del 15 de diciembre del 2016.

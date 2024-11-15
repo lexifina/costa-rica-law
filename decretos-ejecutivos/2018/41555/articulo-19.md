@@ -1,1 +1,0 @@
-Artículo 19.- Actualización de laboratorios. Será responsabilidad de cada equipo de trasplante de hígado autorizado, mantener actualizado los laboratorios de los pacientes, en base a las condiciones clínica s determinadas por los puntajes de MELD/PELD establecidos en esta normativa, así como reportarlos al Sistema Nacional de Donación de Órganos de Costa Rica (SINADOC).

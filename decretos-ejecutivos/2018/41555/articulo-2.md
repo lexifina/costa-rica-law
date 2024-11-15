@@ -1,1 +1,0 @@
-Artículo 2.-Ámbito de aplicación. El presente decreto será de aplicación a nivel nacional, por parte de los establecimientos de salud autorizados por la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos del Ministerio de Salud para realizar procesos de donación y trasplantes.
