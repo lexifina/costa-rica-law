@@ -1,0 +1,1 @@
+Artículo 2º-Los métodos de análisis para los diferentes procesos se incluirán en los procedimientos establecidos por el Laboratorio de Control de Calidad de Agroquímicos, cumpliendo con los lineamientos del Sistema de Gestión de la Calidad.
