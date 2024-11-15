@@ -1,0 +1,6 @@
+ARTÍCULO 11- Refórmese el artículo 29 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008.
+Artículo 29- Operatividad para la regionalización de los recursos
+El Consejo Rector del SBD canalizará los recursos del sistema a los beneficiarios de esta ley por medio de operadores financieros regulados y no regulados por la Sugef, los cuales deberán estar debidamente acreditados ante el Consejo Rector.
+No obstante, el Consejo Rector queda facultado para implementar mecanismos alternativos o complementarios en las diferentes regiones del país, con el propósito de que se les asegure a los beneficiarios el acceso al financiamiento y a las herramientas que ofrece el Fonade.
+Como parte de lo anterior, se autoriza al Fonade para que binde acompañamiento técnico y económico por medio de servicios de apoyo empresarial, para la creación y consolidación de nuevos operadores financieros, independientemente del tipo de organización. Los detalles y las herramientas aplicables en este programa se diferenciarán dadas las necesidades y posibilidades financieras de la organización atendida.
+Todos los aspectos relacionados con la organización y el funcionamiento de esta disposición serán establecidos en el reglamento de esta ley.
