@@ -1,0 +1,2 @@
+Artículo 1 bis- Principio rector. La presente ley se rige por el principio de control del Estado sobre todas las armas, municiones y explosivos existentes en el país, con el objetivo de resguardar la vida humana, la seguridad del país, la prevención de delito y la prevención de la violencia.
+(Así adicionado por el artículo 3° de la Ley para el fortalecimiento del marco sancionatorio de los delitos cometidos con armas de fuego prohibidas, N° 10610 del 15 de noviembre de 2024)

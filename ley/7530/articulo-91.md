@@ -1,1 +1,2 @@
-Artículo 91.- Introducción y tráfico de materiales prohibidos. Se impondrá de tres a ocho años de prisión a quien introduzca en el país, armas, municiones, explosivos y materiales clasificados como prohibidos o trafique con ellos.
+Artículo 91- Introducción y tráfico de materiales prohibidos. Se impondrá de tres a siete años de prisión a quien introduzca en el país armas, municiones, explosivos y materiales clasificados como prohibidos o trafique con ellos. La pena se podrá incrementar hasta en un medio cuando el hecho ilícito sea cometido por el crimen organizado.
+(Así reformado por el artículo 1° de la Ley para el fortalecimiento del marco sancionatorio de los delitos cometidos con armas de fuego prohibidas, N° 10610 del 15 de noviembre de 2024)
