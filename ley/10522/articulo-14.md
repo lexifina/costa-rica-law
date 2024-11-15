@@ -1,0 +1,5 @@
+ARTÍCULO 14- Refórmese el párrafo noveno del artículo 36 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008. El texto es siguiente:
+Artículo 36- Creación del Fondo de Crédito para el Desarrollo
+( ... )
+La tasa de interés que podrán cobrar el o los bancos estatales administradores del Fondo de Crédito para el Desarrollo a los beneficiarios de esta ley, de forma directa, será igual a la establecida en el inciso ii) del artículo 59 de la Ley 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953. En caso de que el o los bancos administradores canalicen los recursos por medio de banca de segundo piso y/o justifiquen técnicamente la necesidad de una tasa mayor que incorpore, parte o la totalidad, del riesgo cambiaría cuantificado para programas específicos y que busque la efectiva canalización de recursos al beneficiario final, siempre y cuando se hayan utilizado los recursos en moneda nacional, el Consejo Rector valorará dichos programas, la información presentada y decidirá aprobar o no una tasa de interés mayor a la permitida.
+( ... )

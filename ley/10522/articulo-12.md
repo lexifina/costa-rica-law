@@ -1,0 +1,6 @@
+ARTÍCULO 12- Refórmese el penúltimo párrafo del artículo 32 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008. El texto es el siguiente:
+Artículo 32- Patrimonio financiero de los fondos
+El patrimonio de los fondos de financiamiento para el desarrollo se constituirá con los siguientes recursos:
+( ... )
+De estos fondos, al menos el once por ciento (11 %) deberá ser destinado a los beneficiarios del inciso f) del artículo 6 de esta ley. Este otorgamiento de crédito deberá crecer al menos un cinco por ciento (5%) real por año, hasta alcanzar al menos el veinticinco por ciento (25%) del fondo. Por excepción, el Consejo Rector podrá suspender la aplicación de los porcentajes, si de manera comprobada no hubiera demanda, debiéndose asignar los recursos a los demás sujetos señalados en esta ley. Si se determina que las entidades financieras, por dolo o culpa grave, incluyen beneficiarios que no son los que establece esta ley, o se incumple con la meta de colocación del once por ciento (11 %) y su crecimiento, o con las metas o los planes aprobados por el Consejo Rector, se aplicarán las sanciones establecidas en el inciso ii) del artículo 59 de la Ley 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953, según sea el caso.
+( ... )

@@ -1,0 +1,8 @@
+ARTÍCULO 8- Refórmese el segundo párrafo y adiciónese un último párrafo al artículo 20 de la Ley 8634, Sistema de Banca para el Desarrollo, de 23 de abril de 2008. Los textos son los siguientes:
+Artículo 20- Liquidación de avales
+( ... )
+El Fondo Nacional para el Desarrollo (Fonade) pagará el aval, de forma incondicional e irrevocable en los siguientes casos:
+a) Cuando no se hayan modificado las condiciones originales.
+b) Cuando se hayan modificado las condiciones originales del financiamiento, pero cuente con una aprobación previa por el Fonade.
+El aval se pagará a más tardar quince días naturales después de presentada la solicitud de la entidad financiera integrante del SBD; para esto el operador debe estar al día en el pago de las comisiones correspondientes al aval emitido. Una vez pagado el aval, se generan derechos de cobro a favor del Fonade. El monto pagado por el Fonade por honrar el aval será exigible por la vía ejecutiva con base en una certificación emitida por un contador público autorizado y pagadas las especies fiscales que correspondan al monto de saldo adeudado. A la entidad financiera le corresponderá realizar todas las gestiones de cobro judicial, con la debida diligencia, hasta la resolución final del cobro; en caso de que sea incobrable, se deberá presentar un informe al Fonade dentro del siguiente mes de honrado el aval, para que el Fonade determine si de acuerdo con sus políticas se pasa a la cuenta de incobrables o si lo devuelve al operador para que realice una única nueva gestión con el cobro. El reglamento de esta ley determinará el procedimiento y los documentos requeridos para el trámite de recuperación de avales honrados.
+( ... )
