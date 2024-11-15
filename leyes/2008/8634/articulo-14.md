@@ -2,9 +2,9 @@ ARTÍCULO 14.- Funciones del Consejo Rector
 Serán funciones del Consejo Rector las siguientes:
 a) Definir y coordinar las políticas y directrices que orienten el funcionamiento del SBD.
 b) Establecer los parámetros de funcionamiento, administración y los mecanismos de control interno del Fonade(*) conforme a esta ley.
-(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Finade”)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: "Finade")
 c) Establecer la regulación necesaria para el funcionamiento operativo de los diferentes fondos que conforman el Fonade(*)
-(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Finade”)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: "Finade")
 d) Definir las estrategias y los mecanismos de cooperación y coordinación entre los integrantes del SBD.
 e) Definir, por medio del reglamento respectivo, las políticas y directrices generales del funcionamiento de los fondos creados en esta ley.
 f) Acreditar a los entes financieros y microfinancieros que participen en el SBD, así como excluirlos del SBD cuando no hayan cumplido las obligaciones establecidas en esta ley. En el caso de los entes y las organizaciones prestadoras de servicios no financieros y de desarrollo empresarial, deberá dar seguimiento y velar por la adecuada coordinación por medio de su Secretaría Técnica.
@@ -17,17 +17,20 @@ j) Establecer, en el contrato para el manejo del Fondo de Crédito para el Desar
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 9654 del 14 de febrero del 2019)
 k) Generar lineamientos para que, en todo el SBD, se garanticen procedimientos y políticas que otorguen a los sectores prioritarios de esta ley, el acceso equitativo, con acciones afirmativas, al financiamiento y todos los servicios del SBD.
 l) Adjudicar y rescindir, en concordancia con la legislación vigente, la administración del Fondo Nacional para el Desarrollo(*) creado en esta ley.
-(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Fideicomiso Nacional para el Desarrollo”)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: "Fideicomiso Nacional para el Desarrollo")
 m) Distribuir los recursos del Fondo Nacional para el Desarrollo (Fonade) de acuerdo con las políticas y estrategias que defina. En el caso del Fondo de Financiamiento para el Desarrollo, el Consejo Rector acreditará los programas que ahí se desarrollen.
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 9654 del 14 de febrero del 2019)
 n) Impulsar y facilitar el acceso y uso adecuado del crédito agropecuario y acuícola, u otros sectores productivos, y el mejoramiento económico y social del pequeño productor y de la Mipyme empresarial.
 ñ) Organizar un sistema de ayuda técnica para los beneficiarios de esta ley, promoviendo para ese efecto la cooperación de los diversos organismos nacionales e internacionales especializados en ese tipo de actividad y utilizando los recursos de desarrollo empresarial disponibles para el SBD.
 o) Enviar anualmente un informe técnico a la Sugef que considere el desempeño del fondo de avales, el nivel de riesgo y su sostenibilidad, para que la Sugef defina la capacidad de mitigación de dicho fondo. También, con base en la morosidad y acorde a las mejores prácticas internacionales, la Sugef deberá definir técnicamente el nivel de cobertura
 (número de veces) del fondo de avales. La Sugef tendrá acceso a la información sobre el fondo de avales, para efectos de sustentar las decisiones correspondientes. Este informe técnico podrá ser contratado con cargo al Fonade(*).
-(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: “Finade”)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 9654 del 14 de febrero del 2019. Anteriormente se indicaba: "Finade")
 p) Definir las políticas y emitir los lineamientos para la aplicación del financiamiento a las primas de los seguros de cosecha agropecuarios o bien las primas de otros sectores productivos que así lo requieran.
 q) Gestionar líneas de crédito con bancos estatales, bancos multilaterales, bancos de desarrollo, bancos de exportación y cualquier organismo internacional.
 r) Nombrar y remover, cuando sea el caso, al director ejecutivo y al auditor de la Secretaría Técnica, y asignarles sus funciones y deberes dentro de las prescripciones de esta ley.
-s) Analizar y, si se está de acuerdo, aprobar los programas que los entes financieros le presenten, según las disposiciones de esta ley.
+s) Analizar y, si se está de acuerdo, aprobar los programas que los entes financieros o la Secretaría Técnica le presenten, según las disposiciones de esta ley
+(Así reformado el inciso anterior por el artículo 6° de la ley Dinamización del Sistema de Banca para el Desarrollo, N° 10522 del 5 de noviembre del 2024)
 t) Establecer y mantener actualizada, por medio de su Secretaría Técnica, una metodología de supervisión y control de los créditos otorgados por los operadores financieros a los sujetos beneficiarios de la presente ley. Para el caso de los créditos otorgados con recursos del Fondo Nacional para el Desarrollo (Fonade), establecer los márgenes máximos de intermediación financiera en los programas aprobados, así como aplicar medidas administrativas correctivas por incumplimientos de los programas aprobados por el Consejo Rector, cuando corresponda.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9654 del 14 de febrero del 2019)
+u) Mantener un sistema de evaluación del SBD como política productiva, con el propósito de medir objetivamente el adecuado cumplimiento de los objetivos y alcances de esta ley. Deberá establecer para estos fines los indicadores pertinentes para medir la eficiencia, eficacia y mejora continua del Sistema en su conjunto.
+(Así adicionado el inciso anterior por el artículo 6° de la ley Dinamización del Sistema de Banca para el Desarrollo, N° 10522 del 5 de noviembre del 2024)

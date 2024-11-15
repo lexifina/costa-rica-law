@@ -6,6 +6,7 @@ articulo-5.md
 articulo-6.md
 articulo-7.md
 articulo-7-bis.md
+articulo-7-ter.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
@@ -18,6 +19,7 @@ articulo-15-bis.md
 articulo-16.md
 articulo-17.md
 articulo-18.md
+articulo-18-bis.md
 articulo-19.md
 articulo-20.md
 articulo-21.md
@@ -41,6 +43,7 @@ articulo-37.md
 articulo-38.md
 articulo-39.md
 articulo-40.md
+articulo-40-bis.md
 articulo-41.md
 articulo-42.md
 articulo-43.md

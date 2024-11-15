@@ -1,6 +1,6 @@
 # Ley de Fortalecimiento de las Pequeñas y Medianas Empresas
 
-Ley N° 8262 del 2002-05-02. SINALEVI, ficha 48533: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48533&param2=125840&param3=1>.
+Ley N° 8262 del 2002-05-02. SINALEVI, ficha 48533: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48533&param2=143342&param3=1>.
 
 Publicada en La Gaceta N° 94 del 2002-05-17.
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 11 | 2019-03-18 | Ley 9654 | 2019-02-14 |
 | 8 de 11 | 2019-08-29 | Ley 9695 | 2019-06-07 |
 | 9 de 11 | 2021-05-28 | Ley 9971 | 2021-05-11 |
+| 10 de 11 | 2024-11-15 | Ley 10522 | 2024-11-05 |
