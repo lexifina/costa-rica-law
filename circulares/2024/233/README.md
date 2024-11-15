@@ -13,3 +13,4 @@ Atención de emergencia ante declaratoria de alerta roja debido al patrón lluvi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-14 | la propia norma |
+| 2 | 2024-11-15 | Circular 235 (2024-11-15) |
