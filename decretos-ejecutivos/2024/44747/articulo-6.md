@@ -1,0 +1,2 @@
+Artículo 6.- Lineamientos para el plan de acción.
+La "Política Pública para los Plaguicidas de Uso Agrícola 2024-2034" será operacionalizada mediante dos Planes de Acción. El primero se encuentra incorporado como apartado en la Política Pública y comprende el periodo del año 2024 al año 2028 inclusive. El segundo Plan de Acción comprenderá el periodo del año 2029 al año 2034, . el cual deberá ser elaborado por la Mesa Técnica Interinstitucional establecida en el Apartado de Modelo de Gestión de la Política Pública, y oficializado antes del año 2029 .v

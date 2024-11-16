@@ -1,0 +1,2 @@
+Artículo 4.- Objetivo.
+La "Política Pública para los Plaguicidas de Uso Agrícola 2024-2034" tiene como objetivo general disminuir las afectaciones a la agricultura, el ambiente y la salud pública mediante una gestión integral del registro, uso y control de plaguicidas agrícolas en Costa Rica, fomentando la productividad sostenible, la protección de la salud pública, la conservación del ambiente, la biodiversidad y la adaptación al cambio climático.

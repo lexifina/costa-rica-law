@@ -1,0 +1,3 @@
+Artículo 8.- Plazo y acatamiento.
+La "Política Pública para los Plaguicidas de Uso Agrícola 2024-2034" tiene un plazo de diez años a partir de la entrada en vigor del presente decreto y será de acatamiento obligatorio para las instituciones públicas que integran el Sector Agropecuario, Ambiente y Salud, y aquellas que por su labor desarrollen programas, proyectos o acciones correspondientes a las necesidades planteadas en dicha Política Pública.
+Le corresponde a las Oficinas de Planificación Institucional de los Ministerios de Agricultura y Ganadería, Ambiente y Energía, y Salud evaluar la ejecución de la Política Pública en coordinación con el Ministerio de Planificación Nacional y Política Económica.

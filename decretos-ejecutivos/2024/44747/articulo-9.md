@@ -1,0 +1,2 @@
+Artículo 9.- Coordinación interinstitucional y aprovechamiento de los recursos públicos.
+Sin perjuicio de las competencias legales que poseen, las instituciones obligadas a implementar la "Política Pública para los Plaguicidas de Uso Agrícola 2024-2034" deberán aplicar la coordinación intrainstitucional e interinstitucional y emplear las acciones que aseguren eficiencia y eficacia y la consecución de las metas y los objetivos planteados en la Política, promoviendo el mejor uso y austeridad de los recursos públicos.
