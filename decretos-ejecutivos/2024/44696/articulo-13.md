@@ -1,0 +1,1 @@
+Artículo 13.- Medidas especiales. En caso de demostrarse incumplimiento a las disposiciones establecidas en este reglamento, la autoridad de salud procederá a la aplicación de las medidas especiales que resulten aplicables, establecidas en los artículos 355 y 356 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud".

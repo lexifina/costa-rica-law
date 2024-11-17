@@ -1,0 +1,1 @@
+Artículo 9.- Procedimiento de resolución. El procedimiento de resolución de la solicitud de autorización de reingreso de productos de interés sanitario o sus materias primas será realizado en el nivel central del Ministerio de Salud por medio de la plataforma del VUCECR.

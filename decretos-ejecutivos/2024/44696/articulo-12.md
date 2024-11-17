@@ -1,0 +1,3 @@
+CAPÍTULO V
+DISPOSICIONES FINALES
+Artículo 12.- Rechazo de la solicitud de internamiento. Sin perjuicio de las demás facultades con que cuenta el Ministerio de Salud establecidas de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud", éste podrá rechazar cualquier solicitud de autorización de internamiento presentado, en caso de que exista evidencia de que tratándose del mismo PIS o sus materias primas internados previamente por el mismo consignatario, no hayan sido o no estén siendo empleados para los fines solicitados o bien se compruebe que se incumpla algunas de las disposiciones del presente reglamento.
