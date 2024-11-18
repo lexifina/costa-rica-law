@@ -14,3 +14,4 @@ Reglamento para el uso de las áreas de estacionamiento del Ministerio de Relaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-03 | la propia norma |
+| 2 | 2024-11-18 | Decreto Ejecutivo 44777 (2024-11-18) |

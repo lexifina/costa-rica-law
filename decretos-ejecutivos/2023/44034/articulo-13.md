@@ -1,1 +1,2 @@
-Artículo 13.-Renovación genérica. La Dirección General o el ente administrador, que la primera delegue, según sea el caso, durante la primera quincena de diciembre de cada año, podrá renovar genéricamente el plazo de los permisos concedidos.
+Artículo 13º.-Renovación genérica. Los contratos de uso de estacionamiento se entenderán prorrogados automáticamente para el año calendario siguiente, si la Dirección General no comunica lo contrario durante la primera quincena de diciembre de cada año, en et tanto se mantengan tas circunstancias que mediaron en su asignación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44777 del 18 de noviembre del 2024)

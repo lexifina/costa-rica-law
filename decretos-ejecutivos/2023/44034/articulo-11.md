@@ -1,3 +1,4 @@
-Artículo 11.-Solicitud de Permiso de Estacionamiento. El funcionario deberá plantear la solicitud del respectivo permiso de estacionamiento ante la Dirección General, dentro del plazo que esta señale adjuntando copia de su licencia de conducir. En su solicitud el funcionario deberá manifestar que conoce el presente Reglamento y la aceptación expresa de sus disposiciones.
-Una vez asignados por la Dirección General todos los espacios disponibles en las áreas de estacionamiento, las modificaciones en la jerarquía que impliquen modificaciones en la asignación de permisos de estacionamiento deberán realizarse por escrito, con al menos un mes de anticipación.
-Cuando un espacio asignado quede vacante, se procederá a su asignación analizando las solicitudes de permiso de uso de parqueo formuladas.
+Artículo 11°.-Solicitud de espacio reservado de estacionamiento. El funcionario interesado deberá plantear la solicitud correspondiente ante la Dirección General, adjuntando copia de su licencia de conducir.
+En su solicitud et funcionario deberá manifestar que conoce et presente Reglamento y la aceptación expresa de sus disposiciones.
+La Dirección General deberá responder dicha solicitud, en et plazo máximo de un mes, indicando la viabilidad de atender la solicitud de forma inmediata, o en su defecto, informando sobre el registro de su solicitud para una futura valoración en caso de disponibilidad de espacios de estacionamiento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44777 del 18 de noviembre del 2024)
