@@ -14,3 +14,4 @@ Creación de la academia diplomática Manuel María de Peralta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-09-22 | la propia norma |
+| 2 | 2024-11-18 | Decreto Ejecutivo 44848 (2024-11-18) |

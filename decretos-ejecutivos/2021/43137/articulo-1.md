@@ -12,4 +12,5 @@ VI.-Que mediante oficios MIDEPLAN-DM-OF-1472-2020 de fecha 13 de octubre del 202
 Decretan:
 CREACIÓN DE LA ACADEMIA DIPLOMÁTICA
 MANUEL MARÍA DE PERALTA
-Artículo 1°-Constitución de la Academia Diplomática. El Ministerio de Relaciones Exteriores y Culto contará con un centro de formación y capacitación que se denominará Academia Diplomática Manuel María de Peralta.
+Artículo. 1°.- Cambio de nomenclatura. El centro de formación y capacitación denominado Instituto Manuel María de Peralta del Ministerio de Relaciones Exteriores y Culto, se denominará en lo sucesivo Academia Diplomática Manuel María de Peralta (en adelante Academia Diplomática) y tendrá como objetivo fundamental fortalecer el proceso de formación continua del personal del Servicio Exterior de la República en las materias de su competencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44848 del 18 de noviembre del 2024)

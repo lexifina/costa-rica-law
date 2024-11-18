@@ -1,1 +1,3 @@
-Artículo 3°-Asignación presupuestaria de la Academia Diplomática. El Ministerio de Relaciones Exteriores y Culto le asignará a la Academia el contenido presupuestario suficiente para el cumplimiento de sus funciones.
+Artículo. 3°.- Asignación de recursos a la Academia Diplomática. El Ministerio de Relaciones Exteriores y Culto deberá asignar a la Academia el contenido presupuestario y los recursos humanos suficientes para el cumplimiento de sus funciones.
+En consecuencia, la Academia Diplomática cumplirá con sus funciones de conformidad con los recursos humanos y financieros disponibles. Esto sin perjuicio de la gestión que corresponda, de manera complementaria y subsidiaria, para obtener cooperación tanto a nivel nacional como internacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44848 del 18 de noviembre del 2024)
