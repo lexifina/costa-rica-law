@@ -16,3 +16,4 @@ Reglamento tarifario para el cobro de tasas por concepto de prestación de los s
 | 1 | 2023-07-18 | la propia norma |
 | 2 | 2024-04-29 | Reglamento municipal 208 (2024-04-29) |
 | 3 | 2024-05-27 | Reglamento municipal 4 (2024-05-27) |
+| 4 | 2024-11-18 | Reglamento municipal 29 (2024-11-18) |
