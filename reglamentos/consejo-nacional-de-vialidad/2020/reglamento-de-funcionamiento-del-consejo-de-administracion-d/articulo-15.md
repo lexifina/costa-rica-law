@@ -1,4 +1,5 @@
-Artículo 15. Funciones y Deberes de la persona encargada de la Secretaría de Actas.
+Artículo 15.-Funciones y Deberes de la persona encargada de la Secretaría de Actas mismas acordes con la clase Profesional según el Manual de Cargos de la Dirección General del Servicio Civil y entre otras labores desempeñará..
+(Así reformado el párrafo anterior mediante acta 65-2024 de la sesión ordinaria del 18 de noviembre de 2024.)
 a. Grabar - cuando sea dispuesto por el Consejo - y elaborar las actas de las sesiones del Consejo.
 b. Presentar en la sesión todos los documentos, informes y antecedentes relacionados con los asuntos que figuren en el Orden del Día.
 c. Transcribir las actas al libro correspondiente y gestionar la firma de la presidencia.

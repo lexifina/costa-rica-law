@@ -14,3 +14,4 @@ Reglamento de funcionamiento del Consejo de Administración del Consejo Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-23 | la propia norma |
+| 2 | 2024-11-18 | Reglamento 0 (2024-11-18) |
