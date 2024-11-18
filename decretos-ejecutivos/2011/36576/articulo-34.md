@@ -1,5 +1,10 @@
-SECCIÓN TERCERA
-Trámite de Cambio de Condición Migratoria
-para los dependientes del Personal
-de Empresas Acreditadas
-Artículo 34.—En la Ventanilla de Atención de Empresas podrá gestionarse los cambios de condición migratoria, para el caso de aquellos extranjeros que ostentaban la condición de dependientes, del personal de empresas autorizadas ante la Dirección General y que sean contratados por empresas autorizadas ante la Dirección General y que cuenten previamente con residencia temporal.
+Artículo 34.-Requisitos para aplicar por el Cambio de Patrono. A fin de obtener la autorización para el Cambio de Patrono, se debe cumplir con los siguientes requisitos:
+1) Solicitud dirigida al Director o Directora General de Migración y Extranjería, firmada por el representante legal de la empresa (incluye cláusulas de garantía de la empresa) y confrontada su firma ante el funcionario público competente o en su defecto autenticada por un abogado, en este último caso con los correspondientes timbres, en la cual se incluyan las calidades del representante legal o apoderado de la empresa, debidamente justificada indicando las razones por las cuales fundamenta la solicitud de Cambio de Patrono de la persona que se solicita y la indicación de los dependientes de aquellos.
+2) Formulario de filiación.
+3) Comprobante de pago a favor del Gobierno por $25 (moneda de curso legal de los Estados Unidos de América). Este pago debe realizarse a nombre de la persona extranjera solicitante, de conformidad con el artículo 33, inciso 4) de la Ley General.
+4) Cargo de especies fiscales (¢ 125 + ¢ 2,50 por cada folio) de conformidad con la Ley para el Equilibrio Financiero del Sector Público.
+5) Copia certificada de todas las páginas del pasaporte del extranjero. Este documento debe tener como mínimo seis meses de vigencia.
+6) En caso de que el representante Legal de la empresa no sea quien realice los trámites migratorios de su personal ante la Dirección General, deberá otorgar poder especial con facultades suficientes a otra persona para que realice a nombre de la empresa, los trámites de su personal.
+7) Contrato de trabajo o por servicios profesionales autenticado por abogado, o en su defecto, copia del contrato de trabajo confrontado con el original conforme a lo establecido en los artículos 23 y 24 de Código de Trabajo. El ingreso salarial no podrá ser menor al salario mínimo legal, incrementado en un veinticinco por ciento (25%) para la misma posición, establecido por las leyes laborales vigentes en Costa Rica.
+8) Certificación de títulos y experiencia del trabajador que lo acrediten para el puesto a desempeñar, debidamente legalizados y autenticados. En caso de ser imposible presentar estos títulos se aceptará declaración jurada de la empresa certificando la experiencia del trabajador, donde especifiquen las funciones que va a realizar, sus conocimientos y la experiencia para el puesto.
+(Así modificada la numeración por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó del antiguo artículo 32 al artículo 34)

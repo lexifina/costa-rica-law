@@ -1,4 +1,4 @@
-Artículo 10.—Empresas clasificación F: Las empresas multinacionales deberán cumplir con los requisitos:
+Artículo 10.-Empresas clasificación F: Las empresas multinacionales deberán cumplir con los requisitos:
 1) Solicitud dirigida a la Dirección General suscrita por el representante legal de la empresa autenticada por un Abogado, en el evento de que la firma de la solicitud sea estampada en presencia del respectivo funcionario de la Dirección General, no requerirá de autenticación. En tal solicitud deberá indicarse:
 a) Nombre de la persona jurídica.
 b) Fundamentación detallada de las razones que justifican la solicitud, en cuanto al ingreso de personal extranjero de conformidad con el presente Reglamento.
@@ -12,5 +12,6 @@ d) Dirección exacta de su domicilio social en el país y fax o medio electróni
 7) En caso de que el trámite no lo gestione el representante legal de la empresa, se deberá aportar poder especial mediante el cual este último le otorgue facultades suficientes a una tercera persona, para que realice los trámites migratorios de la empresa ante la Dirección General.
 8) Fotocopias debidamente certificadas del Acta Constitutiva de la empresa constituida en Costa Rica.
 9) Estados financieros por Contador Público Autorizado de la empresa constituida en Costa Rica.
-10) Documento emitido por la Casa Matriz donde se manifieste el consentimiento de la apertura de la empresa subsidiaria en Costa Rica.
-11) En caso de empresas multinacionales, deberán presentar permiso, patente o documento equivalente que habilite el funcionamiento de las plantas o instalaciones ubicadas en el exterior, en un mínimo de 3 países, excluido Costa Rica.
+10) Documento suscrito por el representante legal de la casa matriz de la empresa, en el que se dé fe del funcionamiento y operaciones de mínimo tres subsidiarias en otros países diferentes a Costa Rica. El documento deberá contener el nombre completo de cada empresa subsidiaria, del país donde opera y su domicilio social. La firma del represente legal deberá ser autenticada por notario público del país donde esté la empresa. En caso de que la casa matriz no esté en Costa Rica, la firma del notario deberá ser apostillada o legalizada por el Ministerio de Relaciones Exteriores y Culto. Además, si el documento fuera emitido en idioma distinto al español, se deberá aportar su traducción oficial de traductor avalado por el Ministerio de Relaciones Exteriores y Culto o por notario público costarricense conocedor del idioma.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024)
+11) (Derogado por el artículo 5° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024)

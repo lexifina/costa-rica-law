@@ -1,1 +1,3 @@
-Artículo 42.—Créase una ventanilla especial para la atención de los trámites migratorios de las empresas autorizadas en el Registro de Empresas que al efecto lleva la Dirección General, regulados en el presente Reglamento a excepción del trámite de visas, sin perjuicio de que este último pueda ser incluido en esta ventanilla por estimarlo pertinente la Dirección General.
+DISPOSICIONES FINALES
+Artículo 42.-Deróguese el Decreto Ejecutivo Nº 32918-G-COMEX-MTSS, del nueve de diciembre de dos mil cinco y déjense sin efecto las Circulares DG-1084-2008 y DG-2663-2008.
+(Así modificada la numeración por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó del antiguo artículo 40 al artículo 42)

@@ -1,4 +1,6 @@
-Artículo 39.—Procedimiento para la cancelación de la Residencia y Devolución de Depósitos de Garantía.
-1) Recibida la documentación completa, en un plazo no mayor a diez días hábiles la Gestión de Extranjería verificará la información presentada y podrá prevenirle a la empresa por una única vez y por escrito para que complete los requisitos de fondo omitidos o que aclare información.
-2) Con la documentación presentada completa, la Dirección General realizará el análisis respectivo de la solicitud y resolverá lo que proceda en un plazo no mayor a treinta días hábiles, para su debida notificación.
-3) Recibida la notificación donde se apruebe la cancelación de la residencia, podrá el extranjero o un apoderado proceder a iniciar con el trámite de reintegro del depósito de garantía ante la Gestión de Recursos Financieros de la Dirección General. Dicho departamento hará el reintegro del dinero en un plazo no mayor a diez días hábiles, contados a partir del momento en que se presente la resolución de cancelación. Para ello, la Gestión de Recursos Financieros de la Dirección General deberá verificar en el sistema de movimientos migratorios si el extranjero hizo abandono del país.
+SECCIÓN QUINTA
+(Así modificada la numeración de la sección anterior por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó de la sección cuarta a la sección quinta)
+Trámite de Cancelación de Residencia
+y Devolución de Depósitos de Garantía
+Artículo 39.-La Dirección General recibirá las solicitudes para gestionar la cancelación de las residencias de los extranjeros y la devolución del depósito de garantía que se realizó en el momento en que se aprobó la condición de residencia temporal del o la titular contratado(a) por las empresas autorizadas ante la Dirección General y los dependientes de aquellos.
+(Así modificada la numeración por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó del antiguo artículo 37 al artículo 39)

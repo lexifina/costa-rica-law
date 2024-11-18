@@ -1,4 +1,7 @@
-Artículo 36.—Procedimiento para el Cambio de Condición. En la Ventanilla de Atención de Empresas podrá gestionarse la solicitud de cambio de condición migratoria en el caso de los dependientes del personal de empresas autorizadas ante la Dirección General, para lo cual se seguirá el siguiente procedimiento:
-1) Recibida la documentación completa, en un plazo no mayor a diez días hábiles la Gestión de Extranjería verificará la información presentada y podrá prevenirle a la empresa por una única vez y por escrito para que complete los requisitos de fondo omitidos o que aclare información.
-2) Se otorgará un plazo no mayor de diez días hábiles, para que aporte los requisitos de fondo omitidos o que aclare información. Si no fuera cumplida la prevención en el plazo establecido se ordenará el rechazo de la solicitud y su archivo respectivo.
-3) Con la documentación presentada completa, la Dirección General realizará el análisis respectivo de la solicitud y resolverá lo que proceda en un plazo no mayor a treinta días hábiles, para su debida notificación.
+SECCIÓN CUARTA
+(Así modificada la numeración de la sección anterior por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó de la sección tercera a la sección cuarta)
+Trámite de Cambio de Condición Migratoria
+para los dependientes del Personal
+de Empresas Acreditadas
+Artículo 36.-En la Ventanilla de Atención de Empresas podrá gestionarse los cambios de condición migratoria, para el caso de aquellos extranjeros que ostentaban la condición de dependientes, del personal de empresas autorizadas ante la Dirección General y que sean contratados por empresas autorizadas ante la Dirección General y que cuenten previamente con residencia temporal.
+(Así modificada la numeración por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó del antiguo artículo 34 al artículo 36)

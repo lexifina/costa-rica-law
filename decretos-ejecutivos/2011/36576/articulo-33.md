@@ -1,4 +1,6 @@
-Artículo 33.—Procedimiento para el Cambio de Patrono. En la Ventanilla de Atención de Empresas podrá gestionarse la solicitud de cambio de patrono en el caso de Ejecutivos(as) de empresas autorizadas ante la Dirección General, para lo cual se seguirá el siguiente procedimiento:
-1) Recibida la documentación completa, en un plazo no mayor a diez días hábiles la Gestión de Extranjería verificará la información presentada y podrá prevenirle a la empresa por una única vez y por escrito para que complete los requisitos de fondo omitidos o que aclare información.
-2) Se otorgará un plazo no mayor de diez días hábiles, para que aporte los requisitos de fondo omitidos o que aclare información. Si no fuera cumplida la prevención en el plazo establecido se ordenará el rechazo de la solicitud y su archivo respectivo.
-3) Con la documentación presentada completa, la Dirección General realizará el análisis respectivo de la solicitud y resolverá lo que proceda en un plazo no mayor a treinta días hábiles, para su debida notificación
+SECCIÓN TERCERA
+(Así modificada la numeración de la sección anterior por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó de la sección segunda a la sección tercera)
+Trámite de Cambio de Patrono para Personal
+de Empresas Acreditadas
+Artículo 33.-En la Ventanilla de Atención de Empresas podrá gestionarse los cambios de patrono para el caso de aquellos extranjeros que sean contratados por empresas autorizadas ante la Dirección General y que cuenten previamente con residencia temporal para laborar en otra compañía igualmente acreditada ante la Dirección General.
+(Así modificada la numeración por el artículo 2° del decreto ejecutivo N° 44793 del 18 de noviembre de 2024, que lo traspasó del antiguo artículo 31 al artículo 33)
