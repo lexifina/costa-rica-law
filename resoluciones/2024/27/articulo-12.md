@@ -1,0 +1,2 @@
+Artículo 12.- Derogatoria.
+Deróguense las resoluciones DGT-R-12-2018, del 19 de febrero de 2018, denominada "Obligatoriedad general para el uso de los comprobantes electrónicos"; DGT-R-39-2018 del 16 de agosto de 2018 denominada "Reforma Obligatoriedad general para el uso de los comprobantes electrónicos", DGT-R-033-2019 del 20 de junio de 2019 denominada "Resolución general sobre las disposiciones técnicas de los comprobantes electrónicos".

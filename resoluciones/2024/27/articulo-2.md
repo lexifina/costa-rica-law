@@ -1,0 +1,2 @@
+Artículo 2.-Numeración consecutiva de los comprobantes electrónicos.
+El sistema de emisión y entrega de comprobantes electrónicos deberá asignar de forma automática y consecutiva la numeración para cada tipo de comprobante, respetando las medidas de seguridad que garanticen la inalterabilidad, integridad y legitimidad del consecutivo. Dicha numeración se conformará de acuerdo con lo indicado en el documento denominado "Anexos y Estructuras para la Emisión de Comprobantes Electrónicos".

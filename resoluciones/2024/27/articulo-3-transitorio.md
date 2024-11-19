@@ -1,0 +1,1 @@
+Transitorio III-. La fecha de la entrada en vigor del uso del Código de Respuesta Rápida (QR) en la representación gráfica, queda suspendido hasta que la Dirección General de Tributación lo informe mediante comunicado por los medios oficiales del Ministerio de Hacienda.

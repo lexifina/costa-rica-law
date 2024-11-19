@@ -1,0 +1,4 @@
+Disposiciones Transitorias:
+Transitorio I-. Los obligados tributarios contarán con un plazo de seis meses contados a partir del primero de diciembre del 2024 a efectos de que implementen y pongan en funcionamiento todas las disposiciones contenidas en esta resolución y de los Anexos y Estructuras en su versión 4.4.
+Al vencimiento del plazo señalado en el párrafo anterior, entrará en plena vigencia la versión 4.4 de "Anexos y Estructuras", y no se reconocerán como válidos los comprobantes electrónicos emitidos con versiones anteriores.
+Sin perjuicio de lo señalado anteriormente, aquellos obligados tributarios que cuenten con los respectivos desarrollos para implementar la versión 4.4 de "Anexos y Estructuras", antes del plazo señalado en el primer párrafo, podrán implementar la nueva versión a partir del 1 de abril del 2025.

@@ -1,0 +1,2 @@
+Artículo 3.- Clave numérica de los comprobantes electrónicos.
+La clave numérica se define como el conjunto de cincuenta dígitos, los cuales deben ser generados por el sistema de comprobantes electrónicos del obligado tributario de forma automática y consecutiva, con las medidas de seguridad que garanticen la inalterabilidad, integridad y legitimidad de la misma, se conformara de acuerdo a lo indicado en el documento denominado "Anexos y Estructuras para la Emisión de Comprobantes Electrónicos".
