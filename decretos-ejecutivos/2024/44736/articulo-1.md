@@ -1,0 +1,19 @@
+Nº44736-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las atribuciones y facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica, del 7 de noviembre de 1949; artículo 25 inciso 1), artículo 27 inciso 1), artículo 28 inciso 2) acápite b) y el artículo 103 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; los artículos 1 y 2 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley Nº 1860 del 21 de abril de 1955 y los artículos 24, 27, 58 a 69, 117 y 126 del Reglamento Autónomo de Servicio del Ministerio de Trabajo y Seguridad Social, Decreto Ejecutivo Nº 27969-TSS del 23 de junio de 1999.
+CONSIDERANDO:
+1º-Que se suscribió entre el Ministerio de Trabajo y Seguridad Social y la Asociación de funcionarios y funcionarias del Ministerio de Trabajo (AFUMITRA), una nueva Convención Colectiva de Trabajo, el 22 de noviembre del 2022.
+2º-Que actualmente la Convención Colectiva de Trabajo, en el Capítulo VI, en los artículos 34 a 39, se establecen las licencias con goce de salario que pueden disfrutar las personas trabajadoras del Ministerio de Trabajo y Seguridad Social.
+3º-Que el artículo 40 de la Convención Colectiva indica que se conformará una Comisión bipartita y paritaria, que reformará el reglamento de licencias establecidas en el Capítulo VI. El reglamento referido es el "Reglamento para el otorgamiento de las licencias previstas en los artículos 19, 20, 21 de la Convención Colectiva de Trabajo del Ministerio de Trabajo y Seguridad Social", del Decreto Ejecutivo Nº 38803- MTSS del 2 de octubre del 2014.
+4º-Que la Comisión bipartita y paritaria, habiendo revisado el Capítulo VI citado, aprueba de forma integral y unánime, derogar el Decreto Ejecutivo Nº 38803-MTSS supra mencionado. Lo anterior, debido a que, con la suscripción de la nueva Convención Colectiva del 22 de noviembre del 2022, se modificaron las licencias reguladas en dicho Decreto.
+5º-Que, dada la necesidad de tener un Reglamento de Licencias actualizado y acorde a la Convención Colectiva actual, es que surge este nuevo texto que está aprobado de forma unánime por la Comisión bipartita y paritaria conformada al efecto, en Sesión Nº 7 celebrada el 18 de enero del 2024, de la cual consta minuta MI-MTSS-CRRL-1-2024.
+6º-Que, de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo número 37045-MP-MEIC del 22 de febrero de 2012, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir, por lo que no se procedió con el trámite de control previo. Por Tanto:
+DECRETAN:
+REGLAMENTO PARA EL OTORGAMIENTO DE LAS LICENCIAS PREVISTAS EN LOS
+ARTÍCULOS 34, 35, 36, 37, 38 y 39 DE LA CONVENCIÓN COLECTIVA DE TRABAJO DEL MINISTERIO DE TRABAJO
+Y SEGURIDAD SOCIAL
+Artículo 1. Para el presente reglamento se entiende por:
+a) Declaración jurada simple: es la manifestación escrita bajo fe de juramento que realiza la persona funcionaria acerca de un hecho propio o de un tercero, tenido como cierto y que no requiere de ninguna formalización notarial ni autenticación.
+b) Incapacidad: Período de reposo ordenado por los médicos por la pérdida temporal de las facultades o aptitudes para el desempeño de las tareas habituales, que ocasiona que la persona que requiera el cuido no pueda desempeñarse por sus propios medios.
+c) Relaciones de hecho análogas: Es una relación de afecto y afectividad entre dos personas, similar a la que se tiene con su pariente consanguíneo hasta en segundo grado (padres, hijos, hermanos, abuelos y nietos); generada producto de la unión afectiva que tengan dos personas con independencia de su orientación sexual, entiéndase análoga a la conyugal.

@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. - Las licencias que se encuentren en trámite o siendo disfrutadas al momento de la entrada en vigencia de esta reforma se regirán conforme a la normativa vigente al momento de que la persona funcionaria realizó la solicitud.

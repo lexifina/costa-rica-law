@@ -1,0 +1,5 @@
+Artículo 7.- La licencia prevista en el inciso a) del artículo 38 de la Convención Colectiva, sobre fallecimiento de abuelos o suegros, se tramitará de la siguiente forma:
+a) La persona funcionaria deberá comunicar verbalmente o por cualquier otro medio a su superior inmediato sobre el fallecimiento de su abuelo (a) o suegro (a).
+b) La licencia rige a partir del fallecimiento de su abuelo (a) o suegro (a). Si el fallecimiento acontece luego de que la persona funcionaria haya finalizado su jornada laboral, la misma regirá a partir del día hábil siguiente.
+c) Al reintegro de labores la persona funcionaria deberá presentar a su superior inmediato, copia del acta de defunción correspondiente.
+d) Si la persona funcionaria no cumple con lo previsto en este artículo, se tendrá como ausencia injustificada, por lo que la persona superior inmediata deberá comunicarlo al Departamento de Gestión Institucional de Recursos Humanos, para la aplicación de las sanciones establecidas en el artículo 117 del Reglamento Autónomo de Servicio del Ministerio de Trabajo y Seguridad Social.

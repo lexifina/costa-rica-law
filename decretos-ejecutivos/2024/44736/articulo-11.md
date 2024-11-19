@@ -1,0 +1,1 @@
+Artículo 11.- Deróguese el Reglamento para el otorgamiento de las Licencias previstas en los artículos 19, 20 y 21 de la Convención Colectiva de Trabajo del Ministerio de Trabajo y Seguridad Social, Decreto Ejecutivo Nº 38803- MTSS del 2 de octubre de 2014.

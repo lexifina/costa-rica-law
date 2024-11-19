@@ -1,0 +1,1 @@
+Artículo 6.- Una vez cumplidos los trámites previstos en los artículos 3 y 4 de este Reglamento, la persona superior inmediata deberá enviar al Departamento de Gestión Institucional de Recursos Humanos la documentación relacionada con la licencia otorgada, en el término de un mes, contado a partir de la entrega del comprobante del resultado obtenido extendido por la Universidad.
