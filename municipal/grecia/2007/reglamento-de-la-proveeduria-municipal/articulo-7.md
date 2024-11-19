@@ -1,1 +1,0 @@
-Artículo 7º—Devolución solicitud de bienes y servicios. Si por alguna razón una solicitud no puede ser tramitada, la Proveeduría Municipal devolverá el documento al solicitante en un plazo no mayor de tres días, indicando por escrito las razones por las que no se tramita la solicitud.
