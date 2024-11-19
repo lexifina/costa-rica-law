@@ -1,0 +1,1 @@
+Artículo 12.-Confidencialidad de la Información Trabajo Social deberá garantizar el resguardo de la confidencialidad de los datos del hogar de las personas solicitantes y beneficiarias, así como la integridad de los documentos derivados del proceso.

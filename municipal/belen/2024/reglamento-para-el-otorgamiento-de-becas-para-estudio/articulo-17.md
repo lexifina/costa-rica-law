@@ -1,0 +1,2 @@
+VIII. Entrega de becas de estudio
+Artículo 17.-Fechas de entrega: En la última semana del mes de febrero de cada año el Concejo Municipal aprobará el informe respectivo de becas y se procederá con el trámite de entrega de estas a partir del mes de marzo, con rige al mes de febrero. Las becas se entregarán el tercer martes de cada mes durante los meses de febrero a noviembre de cada año, destinando además el último martes de cada mes para entrega de becas de aquellos casos que por motivos de excepción no pudieron ser entregados en la fecha antes establecida.

@@ -1,0 +1,7 @@
+Artículo 9º-Requisitos: Para solicitar la beca municipal la persona deberá cumplir con los siguientes requisitos:
+a) Ser vecino (a) con domicilio inscrito registralmente en el cantón de Belén, sin importar que se sitúe fuera del límite territorial del mismo.
+b) Ser estudiante activo, matriculado en algún proceso formal de educación pública hasta el nivel de bachiller universitario inclusive, o privada cuando se trate de alternativas enfocadas en educación especial de personas en condición de discapacidad mayores de 21 años que no cuenten con opciones educativas públicas dentro del cantón de Belén.
+c) Participar al menos de una charla informativa brindada por Trabajo Social en coordinación de con los respectivos centros educativos donde se atiendan y resuelvan consultas sobre cómo llenar el formulario de becas y la documentación que se debe aportar. Únicamente se considerarán casos de excepción con la debida justificación presentada formalmente por la familia, donde se compruebe motivo de fuerza mayor que limite la participación respectiva.
+d) Llenar y entregar la solicitud de manera clara, completa, adjuntando los documentos que se les solicita en el formulario; todo dentro del periodo definido y según lo estipulado en este Reglamento.
+e) Aportar la información necesaria para el estudio socioeconómico realizado por la trabajadora social municipal.
+f) No tener otro subsidio o transferencia monetaria condicionada que cumpla con el mismo fin de apoyar los procesos educativos.

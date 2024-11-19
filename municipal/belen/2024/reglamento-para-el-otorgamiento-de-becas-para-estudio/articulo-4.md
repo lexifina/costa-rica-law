@@ -1,0 +1,2 @@
+II. Del Fondo de Becas para Estudio
+Artículo 4º-Programa Municipal de Becas para estudiantes: La Municipalidad de Belén contará con un programa de becas que se financia con el presupuesto municipal, este monto se presupuestará cada año en el Plan Anual Operativo exclusivamente para este fin, el cual para su apropiada implementación requerirá contemplar el monto total de beneficiarios (as). Los costos de las actividades de divulgación, registro, diagnóstico entre otras; lo financiará el presupuesto del Área de Desarrollo Social.
