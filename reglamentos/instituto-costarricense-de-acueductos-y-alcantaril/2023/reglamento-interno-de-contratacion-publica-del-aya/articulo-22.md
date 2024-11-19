@@ -1,3 +1,2 @@
-Artículo 22: Se considerará falta grave de servicio:
-a. El trasladar recursos comprometidos para una contratación, con el objeto de darle contenido presupuestario a otra, sin haberse dejado sin efecto el procedimiento anterior de contratación.
-b. Disponer de los recursos presupuestarios de una Contratación Pública para otra gestión antes de que el acto final haya adquirido firmeza.
+Artículo 22.-Se considerará falta grave de servicio: Disponer o trasladar los recursos presupuestarios comprometidos en una Contratación Pública para otra gestión antes de que el acto final haya adquirido firmeza o se haya dejado sin efecto el procedimiento, salvo que se tenga absoluta certeza de que los recursos presupuestarios no serán ejecutados en el periodo respectivo, para lo cual la Unidad Solicitante deberá evidenciar y aportar las justificaciones del caso; así como, una nueva certificación que garantice la disponibilidad oportuna de los recursos.
+(Así reformado mediante sesión N° 58-2024 del 19 de noviembre del 2024)

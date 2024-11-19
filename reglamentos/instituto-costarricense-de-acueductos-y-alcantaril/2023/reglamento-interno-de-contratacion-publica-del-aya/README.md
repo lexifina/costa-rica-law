@@ -18,3 +18,4 @@ Reglamento interno de contratación pública del AyA
 | 3 | 2024-01-15 | Reglamento 2 (2024-01-15) |
 | 4 | 2024-03-12 | Reglamento 10 (2024-03-12) |
 | 5 | 2024-06-10 | Reglamento 27 (2024-06-10) |
+| 6 | 2024-11-19 | Reglamento 58 (2024-11-19) |
