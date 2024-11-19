@@ -1,0 +1,1 @@
+Artículo 3°-Derogatorias. Se deroga el artículo 40 y la Sección I del Capítulo VI denominada: Política conozca a su funcionario, y los artículos 47, 48, 49 y 50 del Decreto Ejecutivo N° 43807-H denominado Reglamento del Modelo Tarifario para el uso del Sistema Digital Unificado.
