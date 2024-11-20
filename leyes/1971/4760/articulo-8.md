@@ -1,4 +1,4 @@
-ARTICULO 8º.- Toda persona favorecida con cualquier plan de ayuda
-estará obligada a la participación, en por lo menos un programa de
-estímulo. Los dependientes directos de los participantes en los programas
-de estímulo del IMAS podrán acogerse a los planes de ayuda del IMAS.
+Artículo 8- Toda persona favorecida con cualquier plan de ayuda estará obligada a la participación, en por lo menos un programa de estímulo. Los dependientes directos de los participantes en los programas de estímulo del Instituto Mixto de Ayuda Social (IMAS) podrán acogerse a los planes de ayuda del IMAS.
+Asimismo, toda persona favorecida con cualquier plan de ayuda, y sus dependientes directos, podrán participar en un programa de educación financiera, a partir de los esfuerzos directos que la institución haga en la materia o por medio de una referencia que realice el IMAS a instituciones públicas o privadas para tal fin. Dichos beneficiarios serán informados, por la institución, de esta posibilidad.
+En el caso de las instituciones públicas, las personas en situación de pobreza referidas por el IMAS para participar en un programa de educación financiera serán atendidas de forma preferencial.
+(Así reformado por el artículo único de la Ley de Promoción de la educación financiera de las familias beneficiarias de las políticas de asistencia social, desarrolladas por el Instituto Mixto de Ayuda Social, N° 10555 del 6 de noviembre del 2024)
