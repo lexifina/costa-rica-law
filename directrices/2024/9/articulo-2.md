@@ -1,0 +1,2 @@
+Artículo 2°-La actualización de la columna salarial global correspondiente a la Unidad Especial de Intervención que incluye la clase Jefe de Operaciones y su respectivo salario indicado en la presente Directriz (Salario Global y Salario Global en puestos afectos a disponibilidad), se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: https://www. empleopublico.mideplan.go.cr/
+(Nota de Sinaelvi: La lista de los salarios globales pueden ser consultados en el siguiente Link)
