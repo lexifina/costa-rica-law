@@ -1,0 +1,1 @@
+Transitorio I.-Se brinda un plazo de doce meses contado a partir de la publicación del presente reglamento, para que la Dirección General del Archivo Nacional emita las resoluciones administrativas que regulen el funcionamiento del Registro Nacional de Voluntades Anticipadas.

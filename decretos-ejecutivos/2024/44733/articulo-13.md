@@ -1,0 +1,7 @@
+Artículo 13.-Obligaciones de los servicios de salud ante los turistas médicos. En los casos de las personas extranjeras no residentes en el país quienes ingresen con el objetivo de realizarse un procedimiento médico, los servicios de salud privados que los atiendan tienen las siguientes obligaciones:
+a) Confirmar si la persona cumple con los requisitos establecidos en el artículo 6 del presente reglamento para poder declarar una voluntad anticipada. Esta verificación debe hacerse al ingreso de la persona y dejar constancia en el expediente clínico.
+b) De confirmarse que la persona cumple con los requisitos, se le debe informar sobre su derecho de dejar consignada su voluntad anticipada en caso de así quererlo. Se debe dejar constancia en el expediente clínico que se brindó esta información.
+c) De asentir la persona en dejar una voluntad anticipada esta debe ser tomada según lo dispuesto en el artículo 8 y en el inciso b) y el párrafo final del artículo 9 de este reglamento.
+d) La declaración de la voluntad anticipada y su contenido debe incorporarse en el expediente clínico de la persona.
+e) En caso de presentarse una situación que lo amerite los profesionales tratantes deberán apegarse a lo consignado en el expediente clínico, salvo en los casos cuando se presente cualquiera de las situaciones estipuladas en el artículo 5 de este reglamento.
+f) Se exime para estos casos del cumplimiento de lo estipulado en los artículos 10 y 11 de este reglamento.

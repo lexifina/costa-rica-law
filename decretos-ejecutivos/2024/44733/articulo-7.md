@@ -1,0 +1,2 @@
+Artículo 7º-Vigencia de la declaración de voluntades anticipadas. La declaración de voluntades anticipadas debe actualizarse cada cinco años. No pueden surtir efecto las declaraciones de voluntades anticipadas que tengan más de cinco años de no ser actualizadas.
+Sin perjuicio de lo anterior, una vez iniciada la ejecución de una voluntad anticipada esta debe seguirse aplicando por el tiempo que sea necesario incluso después de la fecha de vencimiento del documento.

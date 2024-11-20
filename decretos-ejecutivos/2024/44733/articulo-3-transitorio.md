@@ -1,0 +1,1 @@
+Transitorio III.-Los interesados en declarar y registrar una voluntad anticipada ante cualquiera de las instancias establecidas en el artículo 9 de este reglamento, pueden realizarlos a partir del día siguiente de cumplidos los plazos establecidos en los transitorios anteriores.

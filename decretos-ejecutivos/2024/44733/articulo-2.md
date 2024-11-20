@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Las disposiciones del presente reglamento son de orden público y de interés general, por ende, aplicables a los servicios de salud tanto públicos como privados, en todo el territorio nacional, así como las demás instituciones relacionadas con la aplicación de la normativa.
