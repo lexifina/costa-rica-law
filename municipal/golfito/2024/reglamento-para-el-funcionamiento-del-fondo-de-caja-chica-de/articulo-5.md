@@ -1,1 +1,1 @@
-Artículo 5°-El monto del adelanto de caja chica podrá ser hasta la suma de ¢500.000,00 (quinientos mil colones exactos) y podrá ser ajustado por el Concejo Municipal a solicitud del alcalde Municipal.
+Artículo 5°-(Derogado en sesión N° 30 del 20 de noviembre de 2024)
