@@ -1,2 +1,0 @@
-TRANSITORIO II
-El administrado que hubiese iniciado los trámites de solicitud del certificado de habilitación, tanto por primera vez como de renovación, antes de la entrada en vigencia de esta norma, continuará con el proceso bajo las condiciones vigentes al momento de iniciado el trámite.
