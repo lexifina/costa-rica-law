@@ -1,0 +1,7 @@
+Capítulo 6 - Sección 2: Control interno
+Artículo 46. Sistema de Control Interno
+El Sistema de Control Interno de RECOPE S.A. busca generar seguridad razonable en el cumplimiento de los objetivos empresariales y el cumplimiento normativo, mediante la valoración y gestión oportuna de los riesgos y la efectividad de sus controles; así como, fortalecer la transparencia y la rendición de cuentas.
+El Sistema de Control Interno se basa en la Ley General de Control Interno N°8292 y la normativa de la Contraloría General de la República sobre el particular.
+RECOPE S.A. debe garantizar el efectivo funcionamiento del Sistema de Control Interno, basado en una cultura de autocontrol, alineado a la estrategia y a los procesos, y en el cual las personas en puesto de jefaturas son responsables de asegurar la gestión de los riesgos y la efectividad de los controles a su cargo.
+Los máximos responsables del Sistema de Control Interno son la Junta Directiva, el Comité de Auditoría y la persona en el puesto de Gerente(a) General, los que cuentan con el apoyo del Área de Control Interno y Gestión de Riesgos, adscrita a la Gerencia General.
+Es responsabilidad de la Junta Directiva y de las jefaturas establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional. Asimismo, es responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.

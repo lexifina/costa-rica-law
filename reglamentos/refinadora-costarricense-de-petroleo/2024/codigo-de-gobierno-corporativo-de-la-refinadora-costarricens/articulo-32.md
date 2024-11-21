@@ -1,0 +1,2 @@
+Artículo 32. Elección de Gerente(a) General
+La persona en el cargo de Gerente(a) General es elegida por la Junta Directiva, de conformidad con lo establecido en los Estatutos Sociales. La elección de la persona en puesto de Gerente(a) General de la Empresa se hace atendiendo criterios de idoneidad, conocimientos, experiencia y liderazgo, pudiendo ser reelegido o removido en cualquier momento por la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 20. Composición
+La Junta Directiva está conformada por siete (7) integrantes, a saber: Presidente(a), Vicepresidente(a), Secretario(a), Tesorero(a) y Vocales: Primero, Segundo y Tercero, quienes ejercerán en sus cargos hasta por cuatro años. Quienes integran la Junta Directiva son nombrados por la Asamblea de Accionistas de RECOPE S.A. y no tienen suplentes, según lo establecido en los Estatutos Sociales.

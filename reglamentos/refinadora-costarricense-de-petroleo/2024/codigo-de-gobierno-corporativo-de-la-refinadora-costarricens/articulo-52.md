@@ -1,0 +1,4 @@
+Artículo 52. Administración de los Conflictos de Interés
+En caso de que se presente un conflicto de interés por parte de las personas en puesto de Jefatura, de la Auditoría Interna o del personal de la Empresa, éste debe informar por escrito a su superior jerárquico inmediato, quien debe resolver conforme a la normativa vigente.
+Si el conflicto de interés involucra a una persona integrante de la Junta Directiva, éste deberá informarlo a ese Órgano y deberá abstenerse de participar en la discusión y deliberación del asunto en particular. Esta situación debe documentarse en las actas de la sesión de Junta Directiva donde la situación sea conocida.
+En cualquier caso, RECOPE S.A. velará por el cumplimiento de las disposiciones de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N°8422.
