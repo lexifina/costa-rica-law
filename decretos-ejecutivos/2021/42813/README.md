@@ -15,3 +15,4 @@ Reglamento para la oficialización del proceso VUI-01: Integración del proceso 
 | --- | --- | --- |
 | 1 | 2021-04-18 | la propia norma |
 | 2 | 2023-02-21 | Decreto Ejecutivo 43937 (2023-02-21) |
+| 3 | 2024-11-21 | Decreto Ejecutivo 44824 (2024-11-21) |

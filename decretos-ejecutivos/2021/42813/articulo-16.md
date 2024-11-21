@@ -1,3 +1,5 @@
 CAPÍTULO II
 Inspección posterior de las instalaciones de las empresas beneficiarias
 Artículo 16. Inspección física de las instalaciones de las empresas beneficiarias. Una vez otorgada la condición de AFPA por parte de la Dirección, la autoridad aduanera tiene la obligación de inspeccionar las instalaciones de las empresas de Zona Franca, de conformidad con los lineamientos previstos y definidos en el artículo 19 del presente reglamento.
+Tratándose de empresas de zona franca que se ubican en parques industriales habilitados, no será obligatoria la inspección para los efectos de su autorización. No obstante, lo anterior si la autoridad aduanera, determinara en ejercicio de sus atribuciones legales, algún incumplimiento en cuanto a los requerimientos que deben observar las instalaciones, se aplicarán los procedimientos correspondientes a efectos de establecer las sanciones previstas en la normativa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44824 del 21 de noviembre del 2024)
