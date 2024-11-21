@@ -1,0 +1,2 @@
+Artículo 39. Equipo Técnico.
+Para el cumplimiento de las atribuciones y obligaciones que le confieren la Ley General de Policía y el presente reglamento, los miembros de la Unidad Especial de Intervención podrán utilizar equipos técnicos que se ajusten a sus necesidades, conforme con la normativa nacional e internacional respecto a la protección de los Derechos Humanos de los miembros de la Unidad y de los ciudadanos, en lo que respecta a las armas se aplicará lo dispuesto por la Ley de Armas y Explosivos y su Reglamento.

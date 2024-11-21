@@ -1,0 +1,5 @@
+Artículo 81. Escalafón de oficiales superiores.
+Créase el escalafón de oficiales superiores de policía, el cual se compone de los comisarios, comisionados y comandantes.
+Dicho escalafón será la lista de elegibles para los nombramientos del director, Jefe de Operaciones y el Jefe o encargado del Cuerpo de Protección Presidencial de la Unidad Especial de Intervención.
+El director de la Unidad Especial de Intervención deberá ostentar, como mínimo, el grado de comisionado. El subdirector, Jefe de Operaciones y el Jefe o encargado del Cuerpo de Protección Presidencial de la Unidad Especial de Intervención deberán tener como requisito mínimo el grado de comandante.
+El director y el subdirector, Jefe de Operaciones y el Jefe o encargado del Cuerpo de Protección Presidencial de la Unidad Especial de Intervención serán de libre nombramiento y remoción por el Presidente de la República, únicamente con sujeción a la pertenencia al escalafón de oficiales superiores creado por este decreto ejecutivo.

@@ -1,0 +1,3 @@
+Artículo 6. Sub Dirección General.
+La Sub Dirección General estará conformada por: el Sub director (a).
+El Sub director (a). Es el segundo funcionario de mayor jerarquía dentro de la Dirección General, deberá contar con los mismos requisitos de idoneidad establecidos para el Director General, este funcionario será nombrado por el Presidente de la República a solicitud del Director General con base en los atestados que lo acrediten como apto para el desempeño del puesto. Es función del Sub director ser el obligado a colaborador con el Director en todos los asuntos de su competencia, sea por ausencia, impedimento, instrucción superior o suplencia.

@@ -1,0 +1,3 @@
+Artículo 73. Promoción de la Carrera Policial.
+La promoción de la carrera policial se realizará por los siguientes mecanismos: concurso interno u otros instrumentos técnicos, propuestos por el Departamento de Recursos Humanos y avalados por el Consejo de Personal, los cuales permitirán el paso a una categoría superior, supeditado a la necesidad institucional, la existencia de una plaza vacante o la creación de un nuevo puesto según lo dispuesto en el Manual descriptivo de puestos de la Unidad Especial de Intervención y este reglamento, así como la respectiva aprobación del Consejo de Personal.
+Para cualquiera de los mecanismos de promoción que se utilice, deberá aplicar las evaluaciones correspondientes que garanticen el cumplimiento del perfil del cargo.

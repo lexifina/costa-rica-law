@@ -1,0 +1,2 @@
+Artículo 28. Trámites para selección del personal.
+El Departamento de Recursos Humanos será el responsable de gestionar todas las evaluaciones y estudios, a fin de determinar si las personas oferentes cumplen a cabalidad con los requisitos citados y con el perfil policial requerido, así mismo deberá velar porque el nombramiento de las personas servidoras, se ejecute con estricto apego a criterios objetivos, establecidos por la Institución. Para la aplicación de las pruebas la Unidad Especial de Intervención destinará los recursos financieros necesarios.

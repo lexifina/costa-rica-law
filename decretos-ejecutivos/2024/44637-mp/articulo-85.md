@@ -1,0 +1,3 @@
+Artículo 85. Tramitación ante la Dirección General.
+La Dirección General de la Unidad Especial de Intervención mediante solicitud del Departamento de Recursos Humanos, tramitará las solicitudes de asignación de grados policiales. Para ello, verificará el cumplimiento de los requisitos señalados en este reglamento y realizará una recomendación al Ministro de la Presidencia, el cual podrá aprobarla o rechazarla.
+En todo caso el Presidente de la República y el Ministro de la Presidencia de manera discrecional podrán otorgar el rango policial correspondiente vía Acuerdo Ejecutivo según la urgencia y la necesidad que posea la institución, en aras de garantizar la continuidad del servicio público.

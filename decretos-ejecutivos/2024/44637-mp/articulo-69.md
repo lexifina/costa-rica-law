@@ -1,0 +1,2 @@
+Artículo 69. Ampliación del plazo.
+El Consejo de Personal podrá solicitarle al Ministro (a) de la Presidencia, de manera justificada la ampliación del plazo señalado para tramitar y resolver las denuncias de acoso u hostigamiento sexual, siempre y cuando no se exceda el término de tres meses, contado a partir del momento de interposición de la denuncia, según lo dispuesto en el artículo 5º inciso 2) de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

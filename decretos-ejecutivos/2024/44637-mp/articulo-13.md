@@ -1,0 +1,23 @@
+Artículo 13. Anfibios.
+Esta dependencia estará a cargo de una persona que éste certificada y acreditada como buzo, con una experiencia mínima de 5 años, dicha acreditación deber mantenerse al día, poseer el Curso Básico de Gestión de la Seguridad Pública de los Cuerpos Policiales en el Ámbito Nacional o su equivalente y el Curso de Especialización de la Unidad Especial de Intervención; ser funcionario activo con un mínimo de 5 años de experiencia en labores contra el terrorismo y narcotráfico, contar con alguna de las siguientes licencias: A1, A2, A3, B1, B2, B3, B4, la comprobación de estos requisitos se realizará por parte del Departamento de Recursos Humanos de la UEI. Son tareas y competencias de esta oficina las siguientes:
+1. Realizar las inmersiones según el nivel de buceo que posea el oficial para cumplir con las funciones propias de su puesto cuando así se le requiera.
+2. Crear programas de actualización y de capacitación para los oficiales de la Unidad Especial de Intervención en el campo del buceo, además de realizar charlas informativas y de orientación cuando así se le solicite.
+3. Mantener la custodia de los equipos de buceo, tanques de buceo, chalecos, máscaras, patas de rana, trajes de neopreno y demás equipo que se encuentra en la oficina de anfibios.
+4. Mantener el orden y el mantenimiento de los equipos cuando éstos no estén siendo utilizados en ningún tipo de operación policial o entrenamiento.
+5. Desarrollar los protocolos que se requieran para recibir o entregar la oficina de anfibios, al oficial suplente o al que en su momento designe el departamento de operaciones, lo cual implica: verificar el inventario diario y observaciones sobre acontecimientos ocurridos en el turno, lectura de la bitácora, realizar la verificación visual de las instalaciones y del equipo, reportar situaciones especiales, en caso de ser necesario.
+6. Coordinar con las entidades o instancias correspondientes, las medidas de protección que sean oportunas, eficaces e idóneas, y cualquier otra diligencia que ayude a mantener el equipo de buceo en perfecto estado.
+7. Llevar un control de la devolución y entrega del equipo de buceo a los oficiales de la Unidad Especial de Intervención, completando la bitácora correspondiente; verificando la entrega o recepción de éste, su estado y que se encuentren todos los instrumentos completos y en las condiciones físicas y de funcionamiento adecuadas.
+8. Llevar un control para la recepción de equipo incompleto, en mal estado, pérdida, robo o hurto.
+9. Mantener actualizados los registros de las licencias de buceo del personal de la UEI y de los equipos asignados a esa oficina.
+10. Brindar mantenimiento preventivo o correctivo al equipo de buceo (tanques de buceo, chalecos, máscaras, patas de rana, trajes de neopreno y demás).
+11. Realizar pruebas de funcionamiento del equipo de buceo, eso incluye las pruebas hidrostáticas de los tanques de buceo.
+12. Mantener actualizado el registro histórico de reparaciones realizadas, para lo cual deberá realizar un control cruzado de verificación de la reparación, con el oficial suplente o el que en su momento designe el departamento de operaciones, con la finalidad de verificar su adecuado funcionamiento.
+13. Comprobar el adecuado funcionamiento de los equipos de buceo nuevos, reparados o que se les ha brindado mantenimiento mediante el desarrollo de las pruebas correspondientes, para lo cual deberá mantener actualizados los registros pertinentes respecto al resultado de las pruebas.
+14. Trasladar equipo de buceo a diversos sitios, cuando así se requiera siguiendo el protocolo y control establecido.
+15. Mantener actualizado el inventario de los equipos de buceo, completando las hojas de vida de cada equipo y registros digitales pertinentes.
+16. Revisar con cada uno de los oficiales el control de las bitácoras de buceo, para mantener un registro de las inmersiones realizadas por esté, y facilitar los equipos para los trabajos especiales que deban atender los oficiales de la Unidad Especial de Intervención.
+17. Verificar el control de las licencias de buceo de los oficiales de la Unidad Especial de Intervención, e informar con anticipación al usuario sobre la fecha de vencimiento de su licencia.
+18. Realizar el reporte técnico para el desecho de equipo de buceo.
+19. Realizar las recomendaciones técnicas para la adquisición de equipos de buceo que requiera la Unidad Especial de Intervención.
+20. Evaluar las ofertas presentadas y emitir el criterio sobre la compra de todos aquellos equipos que requiera esta dependencia.
+21. Ejecutar otras actividades propias del cargo que desempeña.

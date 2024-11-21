@@ -1,0 +1,2 @@
+Artículo 46. Autorización de Trabajo Extraordinario.
+El trabajo extraordinario, tanto en días hábiles como durante días feriados, asueto y de descanso semanal, solo podrá autorizarse en situaciones excepcionales cuando sea indispensable satisfacer exigencias improrrogables del servicio público, según el artículo 17 de la Ley de Salarios de la Administración Pública. No se reconocerá el tiempo extraordinario efectivamente laborado sino está previa y expresamente autorizado por el Departamento de Recursos Humanos de la UEI, o por el jerarca del Ministerio de la Presidencia.

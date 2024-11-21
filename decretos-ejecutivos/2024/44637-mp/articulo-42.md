@@ -1,0 +1,2 @@
+Artículo 42. Inicio de la Jornada.
+La semana de trabajo puede comenzar en cualquier día de la semana, según lo exija el servicio público, sin perjuicio del derecho de los servidores de disfrutar del mismo número de días de descanso. En este caso y si eventualmente se laborara dentro de la jornada ordinaria los días sábado o domingo, estos se tendrán como día hábil ordinario para todos los efectos legales.

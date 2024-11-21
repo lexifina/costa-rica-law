@@ -1,0 +1,2 @@
+Artículo 76. Bases de selección.
+El Departamento de Recursos Humanos, definirá las bases de selección, de acuerdo con el perfil de los puestos policiales y de las necesidades institucionales. Todo de acuerdo con lo establecido en este Reglamento para los concursos internos y ascensos.

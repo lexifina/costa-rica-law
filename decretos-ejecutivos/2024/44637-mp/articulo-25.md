@@ -1,0 +1,15 @@
+Artículo 25. Unidad de Archivo Institucional.
+Esta unidad estará a cargo de un archivista o bien de un funcionario que a juicio de la Dirección General de la UEI demuestre o haya demostrado su idoneidad por los procedimientos que esa Dirección General señale, y siempre que tuviera más de dos años de prestar sus servicios ininterrumpidos para el estado, la comprobación de estos requisitos se realizará por parte del Departamento de Recursos Humanos de la UEI, las funciones de este departamento son las siguientes:
+1. Centralizar la documentación tramitada de varias de las oficinas de la Unidad Especial de Intervención de acuerdo con los plazos de remisión, establecidos en las tablas de plazo de conservación y eliminación de documentos.
+2. Velar por la aplicación de políticas archivísticas implementadas por la Junta Administrativa del Archivo Nacional y asesorar técnicamente al personal de la Institución que labore en la unidad de archivo institucional.
+3. Reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar, custodiar y facilitar la documentación producida y la que se haya recibido como producto de las funciones de la Unidad Especial de Intervención.
+4. Preparar guías, inventario, índices, catálogos y otros instrumentos, así como auxiliares descriptivos para facilitar la consulta de los documentos que son producto de la gestión de la Unidad Especial de Intervención.
+5. Entregar o facilitar a otras instituciones o personas interesadas, copia o reproducción de los documentos que conserva. Los costos correrán a cargo de los interesados.
+6. Promover cursos para la capacitación del personal a cargo de la unidad de archivo, ya sea por medio del Archivo Nacional o cualquier otra institución atinente.
+7. Suministrar de una manera ágil, veraz y oportuna la información que requieran los usuarios de la Unidad de Archivo Institucional.
+8. Despachar todo tipo de constancias y certificaciones con base en el fondo documental de la Unidad de Archivo Institucional. Cuando así lo exijan las leyes y reglamentos, el solicitante aportará las especies fiscales y el papel correspondiente.
+9. Promover la creación del Comité Institucional de Selección y Eliminación de Documentos.
+10. Ejercer los controles necesarios para el adecuado manejo y conservación de la documentación que en él esté depositada.
+11. Coordinar con la Dirección General del Archivo Nacional, la ejecución de las políticas archivísticas de la Unidad Especial de Intervención.
+12. Salvaguardar toda aquella documentación que de una u otra manera vea amenazada su integridad por medio de microfilm, así mismo reproducirá por el mismo medio los documentos previa consulta a la Dirección General del Archivo Nacional sobre la planificación y realización del procedimiento.
+13. Elaborar las tablas generales de plazos de conservación de documentos de la Unidad Especial de Intervención, basadas en las tablas de plazo de la Unidad de Archivo Institucional y someterlas a conocimiento de los Comité Institucional de Selección y Eliminación y Nacional de Selección y Eliminación de Documentos.

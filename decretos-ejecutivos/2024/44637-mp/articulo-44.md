@@ -1,0 +1,2 @@
+Artículo 44. Prestación del Servicio en casos especiales.
+Salvo impedimento grave, los servidores de la Unidad Especial de Intervención, estarán en la ineludible obligación de prestar sus servicios en horas extraordinarias y hasta por el máximo de horas permitido por ley. El Director General de la UEI, comunicará en cada caso a los servidores con la debida anticipación las horas extraordinarias que deban laborar, siempre y cuando ello sea posible. La negativa injustificada se tomará como falta grave para efectos de sanción.
