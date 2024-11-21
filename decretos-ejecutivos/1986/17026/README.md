@@ -19,3 +19,4 @@ Reglamento de Servicio del Teatro Popular Mélico Salazar.
 | 4 | 2008-12-03 | Decreto Ejecutivo 35078 (2008-12-03) |
 | 5 | 2016-06-21 | Decreto Ejecutivo 39815 (2016-06-21) |
 | 6 | 2023-06-15 | Decreto Ejecutivo 44175 (2023-06-15) |
+| 7 | 2024-11-21 | Decreto Ejecutivo 44791 (2024-11-21) |
