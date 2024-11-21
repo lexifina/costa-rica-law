@@ -1,0 +1,1 @@
+Artículo 14.-Identificación de zona controlada. En toda zona controlada deberán colocarse símbolos y rótulos de identificación y prevención de riesgo de acuerdo con lo que se indica en el Anexo I del presente Reglamento.

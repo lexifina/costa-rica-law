@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de aplicación. El presente reglamento es de aplicación obligatoria en el territorio nacional a personas físicas y jurídicas que se encuentren habilitados para la explotación y uso de los sistemas inalámbricos.

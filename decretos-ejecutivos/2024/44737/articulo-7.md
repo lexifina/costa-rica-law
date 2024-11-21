@@ -1,0 +1,1 @@
+Artículo 7.-Potencia permitida. La potencia isotrópica radiada equivalente máxima (PIRE) para cualquier fuente emisora se calculará de acuerdo con el artículo 8.3 y el apéndice III, ambos de la recomendación UIT-T K.52, emitido por la Unión Internacional de Telecomunicaciones.

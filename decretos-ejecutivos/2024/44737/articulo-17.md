@@ -1,0 +1,1 @@
+Artículo 17.- Derogatoria. Deróguese el Decreto Ejecutivo N° 36324-S "Reglamento para Regular la Exposición a Campos Electromagnéticos de Radiaciones no Ionizantes, emitidos por Sistemas Inalámbricos con frecuencia de hasta 300 GHZ"
