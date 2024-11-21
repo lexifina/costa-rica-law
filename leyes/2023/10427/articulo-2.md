@@ -28,3 +28,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
 (Modificado por el artículo 3° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
 (Modificado por el artículo 4° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44766 del 15 de noviembre de 2024)
