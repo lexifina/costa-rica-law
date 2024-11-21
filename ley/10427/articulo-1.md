@@ -9,6 +9,7 @@ INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE L
 (Así reformado el inciso a) anterior por el artículo 1° de la ley N° 10490 del 20 de mayo del 2024)
 (Así reformado el inciso a) anterior por el artículo 1° de la ley N° 10503 del 1° de agosto del 2024)
 (Así reformado el inciso a) anterior por el artículo 1° de la ley N° 10529 del 9 de setiembre de 2024)
+(Así reformado el inciso a) anterior por el artículo 1° de la ley N° 10615 del 20 de noviembre de 2024)
 INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2024 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consulta el Alcance Digital N° 245 a La Gaceta N° 229 del 11 de diciembre de 2023)
@@ -19,4 +20,6 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA
 (Así reformado el inciso b) y c) anterior por el artículo 1° de la ley N° 10490 del 20 de mayo del 2024)
 (Así modificado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 44628 del 2 de setiembre del 2024)
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 10529 del 9 de setiembre de 2024)
+(Así reformado el inciso b) anterior por el artículo 1° de la ley N° 10615 del 20 de noviembre de 2024)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10529 del 9 de setiembre de 2024)
+(Así reformado el inciso c) por el artículo 1° de la ley N° 10615 del 20 de noviembre de 2024)

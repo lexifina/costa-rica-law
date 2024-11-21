@@ -30,3 +30,8 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 4° del decreto ejecutivo N° 44724 del 24 de octubre de 2024)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44766 del 15 de noviembre de 2024)
 (Así reformado por el artículo 1° de la ley N° 10616 del 20 de noviembre de 2024)
+(Así reformado por el artículo 2° de la ley N° 10615 del 20 de noviembre de 2024)
+(Así reformado por el artículo 3° de la ley N° 10615 del 20 de noviembre de 2024)
+(Así reformado por el artículo 4° de la ley N° 10615 del 20 de noviembre de 2024)
+(Así reformado por el artículo 5° de la ley N° 10615 del 20 de noviembre de 2024)
+(Así reformado por el artículo 6° de la ley N° 10615 del 20 de noviembre de 2024)
