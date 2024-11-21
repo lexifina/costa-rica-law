@@ -14,3 +14,4 @@ Reglamento interno de la Comisión de Informática del Ministerio de Gobernació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-01 | la propia norma |
+| 2 | 2024-11-21 | Decreto Ejecutivo 44806 (2024-11-21) |
