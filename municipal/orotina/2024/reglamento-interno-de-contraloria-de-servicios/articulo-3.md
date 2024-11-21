@@ -1,0 +1,1 @@
+Artículo 3°-Derechos de los usuarios. Todos los usuarios tienen derecho a recibir servicios de óptima calidad, de manera continua, eficiente, con adaptación al cambio en el régimen legal o en la necesidad social y con la igualdad en el trato. También tienen derecho a plantear gestiones respecto de los servicios percibidos.

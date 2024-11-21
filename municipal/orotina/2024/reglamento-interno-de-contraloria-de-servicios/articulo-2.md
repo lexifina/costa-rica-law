@@ -1,0 +1,1 @@
+Artículo 2°-Órgano. El ejercicio de las competencias propias de contraloría de servicios estará bajo la responsabilidad de la dependencia asignada en la Manual de Organización y bajos las especificaciones que indique el Manual de Puestos.

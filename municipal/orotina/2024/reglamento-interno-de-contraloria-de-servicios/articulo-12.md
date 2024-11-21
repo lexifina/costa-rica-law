@@ -1,0 +1,1 @@
+Artículo 12.-Competencia. Cuando se determine que un determinado asunto no es competencia de la dependencia encargada de las funciones de contraloría de servicios, remitirá el asunto a la instancia correspondiente, informando de ello al usuario.

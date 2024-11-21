@@ -1,0 +1,1 @@
+Artículo 10.-Confidencialidad. Deberá mantenerse confidencialidad respecto de la identidad del usuario; en particular, cuando así lo solicite o se considere que, como consecuencia de las investigaciones, se pueda afectar la integridad del usuario u otras personas.

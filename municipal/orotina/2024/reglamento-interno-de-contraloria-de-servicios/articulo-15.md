@@ -1,0 +1,1 @@
+Artículo 15.-Medidas disciplinarias. La desatención injustificada a los deberes contemplados en este reglamento será causa generadora de la responsabilidad disciplinaria aplicable según el régimen contemplado en el Código Municipal y el Reglamento Autónomo de Organización y Servicios de la Municipalidad.
