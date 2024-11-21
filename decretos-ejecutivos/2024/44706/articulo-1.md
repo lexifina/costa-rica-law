@@ -1,0 +1,24 @@
+Nº 44706-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE LA PRESIDENCIA
+En uso de las atribuciones que les confieren los artículos 11, 146 y 140 inciso 18) de la Constitución Política, los artículos 4, 10, 11, 25 inciso 2), 28.2.b) y 103 inciso 3) de la Ley General de la Administración Pública, N°6227 del 02 de mayo de 1978, el numeral 10° de la Ley General de Control Interno, N°8292, del 31 de julio del 2002 y el artículo 17 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos (R-DC-111- 2011).
+Considerando:
+1. Que en materia de viáticos la Presidencia de la República y el Ministerio de la Presidencia se rigen por lo establecido en la Ley Reguladora de los Gastos de Viaje y Gastos por Concepto de Transportes para todos los Funcionarios del Estado, Ley N°3462, del 26 de noviembre de 1964 y el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, R-DC-111-2001, del 10 de mayo de 2001.
+2. Que dicho Reglamento en mención faculta a los entes públicos para que por vía de excepción regulen aquellas situaciones especiales en las cuales a criterio razonado de la Administración se justifique el reconocimiento y pago de viáticos.
+3. Que de conformidad con el artículo 17 del Reglamento N° R-DC-111-2011, la Presidencia de la República y el Ministerio de la Presidencia emitieron el decreto ejecutivo N° 41556-MP, que es "Reglamento para el Pago de Viáticos para los Funcionarios de la Presidencia de la República y el Ministerio de la Presidencia", con el fin de regular de manera previa, formal y general, las situaciones especiales que justifican el reconocimiento y pago de viáticos por excepción de la limitación territorial para el pago de viáticos establecida en los artículos 16 y 24 del Reglamento RDC- 111-2011, para sus propios funcionarios y los funcionarios de los programas adscritos.
+4. Que según los artículos 7, 8, 9, 10, 12, 13, 14 y 39 de la Ley General de Control Interno N°8292, es responsabilidad del jerarca y los titulares subordinados establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional, por lo que se considera conveniente y oportuno realizar enmiendas en pro de los principios de probidad, eficiencia, eficacia, simpleza y transparencia de los servicios públicos.
+5. Conforme a lo dispuesto en el artículo 12 del Decreto Ejecutivo N°37045-MPMEIC de fecha 22 de febrero de 2012, denominado Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y su reforma, es oportuno señalar que la presente reforma, no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central, por lo que no se requiere el control previo de la Dirección de Mejora Regulatoria.
+Por tanto,
+Decretan:
+REFORMA AL ARTÍCULO 5 DEL REGLAMENTO PARA EL PAGO DE VIÁTICOS
+PARA LOS FUNCIONARIOS DE PRESIDENCIA DE LA REPÚBLICA Y MINISTERIO
+DE LA PRESIDENCIA, DECRETO EJECUTIVO N°41556-MP
+Artículo 1º- Refórmese el artículo 5 del Reglamento para el Pago de Viáticos para los funcionarios de la Presidencia de la República y el Ministerio de la Presidencia, Decreto Ejecutivo N°41556 del catorce de enero del dos mil diecinueve, para que se lea de la siguiente forma:
+"Artículo 5º-Requisitos para reconocer la disminución de los límites territoriales. Para autorizar el pago de viáticos por excepción territorial, los funcionarios responsables de autorizar y pagar viáticos deben velar porque se cumplan cualquiera de las siguientes condiciones, respectivamente:
+A. Para el Ministerio de la Presidencia y la Presidencia de la República: Programas presupuestarios: 021, 034 y 027.
+1) Que el funcionario deba acompañar en la celebración de eventos oficiales a los máximos jerarcas, específicamente el Presidente de la República, Vicepresidentes de la República, Ministro de la Presidencia y sus Viceministros, así como a la Primera Dama.
+2) Que la actividad se desarrolle dentro de los parámetros de hora, de los tiempos de comida, reconocidos en el "Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos" de la Contraloría General de la República.
+B. Para los programas presupuestarios: 041, 042 y UPP.
+1) Que las funciones que realiza el funcionario sean necesarias para el cumplimiento de operativos de importancia para la Administración.
+2) Que el funcionario deba realizar labores fuera de su horario normal de trabajo.
+El funcionario competente consignará con claridad en la autorización de viáticos de cada gira, las circunstancias o razones de mérito, conveniencia u oportunidad que justifican la excepción territorial, por ejemplo, sin limitarse a: la particularidad de las funciones a desempeñar, la importancia de la actividad, la facilidad de traslado y/o acceso a servicios, la ubicación geográfica, entre otras. Asimismo, deberá consignarlo cualquier funcionario que pretenda el reconocimiento de viáticos por reintegro.".
