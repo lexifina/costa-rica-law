@@ -1,5 +1,6 @@
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
 Circular DG-044-12-2022-DTOR
+(Nota de Sinalevi: Mediante circular N° DG-043-11-2024 del 22 de noviembre del 2024 "Continuidad para la emisión de documentos DIMEX de forma física" se establece lo siguiente: " en atención a los principios de oportunidad, conveniencia y buen manejo de los servicios públicos, se dispone dejar sin efecto lo señalado en el oficio DG-044-12-2022-DTOR emitido por la otra Directora General Licda. Marlen Luna Alfaro, únicamente en cuanto al tema de vigencia de emisión de documentos físicos, y se instruye a la Gestión de Extranjería para que el documento DIMEX se siga emitiendo tanto de manera física, como digital, este último remitido al correo electrónico.")
 PARA: Todas las instituciones públicas y privadas
 DE: Licda. Marlen Luna Alfaro
 Directora General

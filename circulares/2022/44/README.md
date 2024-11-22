@@ -14,3 +14,4 @@ Nuevo formato de documento de identificación para extranjeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-12-23 | la propia norma |
+| 2 | 2024-11-22 | Circular 43 (2024-11-22) |
