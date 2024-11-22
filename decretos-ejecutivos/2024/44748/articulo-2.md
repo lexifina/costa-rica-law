@@ -1,0 +1,1 @@
+Artículo 2.- De las definiciones. Para los efectos del presente reglamento se utilizarán los términos técnicos establecidos por la Convención Internacional de Protección Fitosanitaria (CIPF) en la Norma Internacional de Medidas Fitosanitarias N° 5 (NIMF N°5).

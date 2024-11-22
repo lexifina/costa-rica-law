@@ -1,0 +1,6 @@
+Artículo 3.-Principios. La estructura del SFE deberá orientarse a:
+1. Ordenar las funciones y competencias del SFE a las nuevas exigencias mundiales evitando disrupciones en comercio. Asimismo, facilitar el desarrollo de sistemas de producción compatibles con la protección de la salud humana y del ambiente, de conformidad con la normativa nacional e internacional.
+2. Adecuar al SFE a las responsabilidades y obligaciones establecidas en el Acuerdo sobre la Aplicación de Medidas Sanitarias y Fitosanitarias y el Acuerdo de Obstáculos Técnicos al Comercio de la Organización Mundial del Comercio, la Convención Internacional de Protección Fitosanitaria (CIPF-FAO), CODEX Alimentarius y en los Acuerdos y tratados de libre comercio suscritos por Costa Rica y otros que a futuro sean ratificados.
+3. Convertir al SFE en un ente competente y eficiente para proteger el patrimonio agrícola nacional ante la apertura comercial que está viviendo el país.
+4. Hacer más eficiente la coordinación entre Instancias a fin de que pueda responder oportunamente a la demanda creciente de servicios por parte de los usuarios, promoviendo el trabajo en equipo y la coordinación organizacional.
+5. Alinear el diseño con la implementación de la estrategia institucional.

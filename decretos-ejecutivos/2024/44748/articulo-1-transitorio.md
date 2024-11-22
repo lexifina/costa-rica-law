@@ -1,0 +1,1 @@
+Transitorio I.- Las Unidades y Departamentos tendrán un año a partir de le fecha de publicación de este reglamento en la Gaceta, para crear o actualizar los procedimientos y los sistemas de tecnología de la información conforme sus funciones.

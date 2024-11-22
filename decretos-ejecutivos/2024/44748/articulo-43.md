@@ -1,0 +1,1 @@
+Artículo 43.- Derogaciones. Deróguense los artículos 254 y 255 del Decreto N°26921-MAG de fecha 20 de marzo de 1998, el Decreto Ejecutivo N°36801-MAG de fecha 20 de setiembre del 2011 y el Decreto Ejecutivo N°30111-MAG de fecha 14 de enero del 2002.

@@ -1,0 +1,7 @@
+CAPITULO VI
+Del Departamento de Agroquímicos, Control Biológico y Equipos de Aplicación
+SECCION I
+De la competencia y funciones del Departamento de Agroquímicos, Control Biológico y Equipos
+de Aplicación
+Artículo 37.- Competencia y organización. Es el responsable del registro, control y fiscalización de los sustancias químicas, biológicas, botánicas, microbiológicos e invertebrados, así como los fertilizantes, enmiendas y sustancias afines, todos para uso agrícola, así como establecer los procedimientos para su control, regulación y uso. También realizará el registro y control de los equipos de aplicación para uso agrícola y definirá las políticas para el control de residuos. Es el órgano oficial de referencia para realizar análisis de calidad a las sustancias químicas y fertilizantes, y la determinación de residuos de sustancias químicas en vegetales. La elaboración de informes técnicos. En los casos en que se determine una infracción a la Ley 7664, deberá preparar el expediente administrativo en coordinación con la Asesoría Jurídica del MAG, para elevar la denuncia ante los Tribunales de Justicia.
+El Departamento de Agroquímicos, Control Biológico y Equipos de Aplicación está conformado por la Unidad de Registro de Agroquímicos, Control Biológico y Equipos de Aplicación, la Unidad de Buenas Prácticas Agrícolas, la Unidad de Fiscalización de Agroquímicos, Control Biológico y Equipos de Aplicación, el Laboratorio de Análisis de Residuos de Agroquímicos y el Laboratorio de Control de Calidad de Agroquímicos y Fertilizantes.

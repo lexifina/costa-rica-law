@@ -1,0 +1,22 @@
+Artículo 12.-Funciones de la Auditoría Interna. Son funciones de la Auditoría Interna las siguientes:
+a) Gestionar los recursos requeridos para el cumplimiento de las funciones de la unidad
+organizacional.
+b) Realizar la rendición de cuentas de la instancia, referentes al cumplimiento de metas, presupuesto,
+de acuerdo con los instrumentos de planificación establecidos.
+c) Gestionar el proceso de formulación, seguimiento y actualización de la planificación de conformidad con los lineamientos que establece la Contraloría General de la República.
+d) Mantener actualizado el sistema de información conforme a la normativa jurídica y técnica que regula esta materia.
+e) Velar por el cumplimiento del reglamento de organización y funcionamiento de la Auditoría Interna, de conformidad con los lineamientos que establece la Contraloría General de la República
+f) Fiscalizar la gestión emprendida por la administración activa respecto a los fondos públicos sujetos a su competencia institucional; a fin de verificar el cumplimiento, la validez y la suficiencia del sistema de control interno.
+g) Elaborar un informe anual de la ejecución del plan anual de labores y del estado de las recomendaciones contenidas en informes de auditoría, de la CGR y de los despachos de contadores públicos; en los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes adicionales y se presenten al jerarca cuando las circunstancias lo ameriten.
+h) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno
+i) Fiscalizar la gestión emprendida por la administración activa respecto a los fondos públicos sujetos a su competencia institucional.
+j) Asesorar, en materia de su competencia, al jerarca sin perjuicio de la asesoría que, a criterio del Auditor Interno, corresponda dirigir a otros niveles de la organización.
+k) Advertir, con el propósito de alertar en forma oportuna a cualquiera de los órganos pasivos de la fiscalización (incluido al jerarca), sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+l) Autorizar, mediante razón de apertura y cierre, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional, así como otros libros y/o registros que, a criterio del Auditor Interno, sean necesarios para el fortalecimiento del sistema de control interno.
+m) Realizar servicios de seguimiento de recomendaciones y observaciones contenidas en informes emitidos por la Auditoría Interna; así como de recomendaciones y disposiciones contenidas en informes emitidos por la auditoría externa y demás instituciones de control y fiscalización que correspondan, en este último caso, cuando sean del conocimiento de la Auditoría Interna y en observancia a lo dispuesto en el ordenamiento jurídico y técnico que regula esta materia.
+n) Gestionar las denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los recursos administrados por el SFE, con el propósito de determinar si procede atender la denuncia, trasladarla o desestimarla, observando lo dispuesto en el ordenamiento jurídico y técnico que regula esta materia.
+o) Realizar investigaciones sobre presuntos hechos irregulares, específicamente con respecto a asuntos que pueden derivarse en posibles responsabilidades administrativas disciplinarias, civiles o penales; cuyos resultados deberán contener los elementos necesarios para la identificación de los presuntos responsables contra los cuales se deben orientar las acciones que se recomiendan y precisar los hechos aparentemente anómalos o irregulares que se les atribuyen.
+p) Verificar que la Administración Activa tome las medidas de control interno señaladas en la Ley 8292, Ley General de Control Interno, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
+q) Mantener un proceso de mejora continua a través del programa de aseguramiento de la calidad, autoevaluación del sistema de control interno y valoración del riesgo.
+r) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica de obligada
+observancia con las limitaciones que establece el artículo 34 de la LGCI.

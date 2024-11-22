@@ -1,0 +1,17 @@
+Artículo 4.- Competencia. El Servicio Fitosanitario del Estado tiene como competencia:
+a) Ser un órgano con capacidad para realizar las funciones, facultades, deberes y objetivos establecidos por Ley N.º 7664: Ley de Protección Fitosanitaria.
+b) Ser la organización nacional de protección fitosanitaria y por ende sus funcionarios tienen el carácter de autoridad fitosanitaria.
+c) Representar al país en los diferentes actos oficiales referidos a la aplicación de las funciones de la ley N°7664.
+d) Desarrollar convenios, acuerdos interinstitucionales y cualquier otra figura jurídica para desarrollar en forma coordinada la materia de su competencia.
+e) Adoptar las medidas fitosanitarias y sanitarias basadas en una evaluación de riesgos para proteger la salud de las personas, los animales y para preservar los vegetales.
+f) Administrar, planificar, dirigir y tomar medidas pertinentes en todo el país, en materia de prevención y control de plagas en los vegetales, así como para el control de residuos de plaguicidas en los productos y subproductos de origen vegetal.
+g) Dictar las normas técnicas pertinentes, los procedimientos, así como ejecutar las medidas para la importación, exportación, tránsito, inspección fitosanitaria, establecimiento de áreas libres o de baja prevalencia de plagas, sitios y lugares de producción libres de plagas, prohibición o restricción de desplazamiento a zonas o locales infectados, prohibición o uso plaguicidas, control de residuos de plaguicidas, y vigilancia de plagas, en los productos de origen vegetal.
+h) Accionar las medidas fitosanitarias y sanitarias relacionadas, que correspondan a normas, directrices y recomendaciones, que dictan los organismos supranacionales, siempre y cuando se encuentren en tratados internacionales aprobados por Costa Rica.
+i) Prevenir la introducción o dispersión de plagas cuarentenarias o evitar las repercusiones económicas de plagas no cuarentenarias reglamentadas y de otras plagas de importancia económica.
+j) Establecer y ejecutar las medidas necesarias sobre la producción, el uso, la liberación y la comercialización de organismos genéticamente modificados de origen vegetal y los agentes de control biológico que puedan representar un riesgo para el patrimonio agrícola nacional.
+Certificar ante terceros países la condición de si un producto de origen vegetal de uso agrícola es genéticamente modificado.
+k) Establecer y ejecutar las medidas necesarias sobre el registro de la producción orgánica, así como la certificación ante terceros países de que el producto cumple con dicha condición.
+l) Ser los laboratorios oficiales para el diagnóstico de plagas, el control de calidad de los agroquímicos y de residuos de plaguicidas en productos de origen vegetal.
+m) Aceptar como equivalentes las medidas fitosanitarias de las Organizaciones Nacionales de Protección Fitosanitaria (ONPF), aun cuando difieran de las medidas nacionales siempre que se demuestre objetivamente por parte del interesado que esas medidas internacionales logran el nivel adecuado de protección para Costa Rica, según criterio que emitan las áreas técnicas relacionados con la medida.
+n) No gozar de facultades discrecionales en la aplicación de las prohibiciones y medidas fitosanitarias, las cuales son absolutas y de aplicación obligatoria.
+o) Coordinar y solicitar la colaboración con órganos de la Administración Pública, dentro de sus respectivas competencias, el cumplimiento de las funciones y objetivos establecidos en la Ley N°7664.
