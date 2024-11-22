@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. La presente directriz es de acatamiento obligatorio para todas las instituciones del Sector Público que aplican NICSP, en sus Direcciones Administrativas Financieras, Proveedurías Institucionales, contemplando dentro de la Proveeduría Institucional a las Unidades de Administración de Bienes Institucionales (UABI).
