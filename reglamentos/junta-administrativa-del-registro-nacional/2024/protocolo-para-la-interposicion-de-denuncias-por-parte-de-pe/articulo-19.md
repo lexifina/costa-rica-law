@@ -1,0 +1,1 @@
+Artículo 19.-Custodia de la denuncia y documentación. La Dirección General del Registro Nacional, enviará todos los documentos y legajos de prueba relacionados con la denuncia a la Contraloría de Servicios del Registro Nacional para su debida custodia, una vez finalizado el proceso o gestión correspondiente.

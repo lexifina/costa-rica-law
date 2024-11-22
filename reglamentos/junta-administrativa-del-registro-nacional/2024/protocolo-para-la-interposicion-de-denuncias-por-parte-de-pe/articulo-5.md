@@ -1,0 +1,1 @@
+Artículo 5°-Gratuidad e informalidad de las denuncias. Las denuncias de las personas usuarias son completamente gratuitas, no es necesario la asesoría de un profesional en derecho o la autenticación de firmas, no obstante, en el caso de las personas usuarias deben cumplir de forma necesaria con los requisitos señalados en el artículo 10 de este protocolo.

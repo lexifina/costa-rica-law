@@ -1,0 +1,2 @@
+Artículo 7°-Confidencialidad. El Registro Nacional se compromete a garantizar la confidencialidad de la identidad de la persona denunciante, la información aportada, así como de la documentación u otros elementos que se recopilen dentro del expediente producto de las investigaciones y gestiones que se realicen en la Institución.
+En caso de que se compruebe una afectación a la confidencialidad señalada y en cumplimiento del debido proceso, se aplicarán las sanciones administrativas correspondientes a las personas funcionarias responsables de quebrantar dicho principio.

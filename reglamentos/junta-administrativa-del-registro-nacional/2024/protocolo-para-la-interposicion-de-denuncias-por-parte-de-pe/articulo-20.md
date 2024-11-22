@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del régimen disciplinario
+Artículo 20.-Procedimientos administrativos. Cuando de la investigación preliminar se cumpla con los requerimientos suficientes para un procedimiento administrativo ordinario, es decir, se tenga claridad en el sujeto, hechos y prueba, la Dirección General del Registro Nacional instruirá a la Asesoría Jurídica la apertura de este, con el objetivo fundamental de la búsqueda real de los hechos en resguardo de los principios del debido proceso y derecho de defensa para el funcionario investigado, o en su defecto se inicie un proceso especial de despido, si las circunstancias lo ameritan.
