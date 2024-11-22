@@ -1,0 +1,1 @@
+Artículo 6º-El BN SERVICIOS deberá guardar la confidencialidad y exclusividad de la información y material del que sea titular o que posea del BN, y a la cual tenga acceso, en virtud del contrato existente entre las partes, así como asegurar el respeto de este carácter de confidencialidad de la información por parte del BN SERVICIOS.

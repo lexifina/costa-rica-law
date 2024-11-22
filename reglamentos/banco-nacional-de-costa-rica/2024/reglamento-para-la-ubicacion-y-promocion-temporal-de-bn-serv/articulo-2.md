@@ -1,0 +1,8 @@
+Artículo 2º-Definiciones:
+a) BN: Banco Nacional de Costa Rica.
+b) BN Servicios: Persona física o jurídica que ejerce actos de comercio en Costa Rica, funcionan en establecimiento propio o de terceros y atienden público, con las cuales el BN suscribe un contrato sin relación de dependencia, para que por cuenta y bajo responsabilidad del BN, puedan realizar las operaciones y prestar los servicios que se refieren dentro del contrato de corresponsalía no Bancaria firmado previamente con el BN.
+Los BN Servicios son considerados como un canal alterno del BN que prestan este servicio en forma complementaria a la de su actividad comercial principal.
+c) Cliente: Persona física o jurídica que mantiene una relación contractual con BN, para la realización de una o varias operaciones pasivas o activas y de servicios.
+d) Oficina: Establecimiento que pertenece a un Banco y está ubicada en una zona específica para brindar servicios bancarios a las personas que viven o trabajan en esa área. Estas Oficinas actúan como puntos de contacto físico entre los Bancos y sus clientes, permitiendo realizar transacciones, recibir asesoramiento financiero y gestionar cuentas bancarias.
+e) Transacciones: Servicios y operaciones financieras realizadas por medio del BN Servicios.
+f) Usuarios: Persona física o jurídica que no es cliente del BN, pero hace uso de los servicios que éste presta al público en general, para realizar operaciones, que no representan un riesgo relevante de legitimación de capitales, financiamiento al terrorismo y financiamiento de la proliferación de armas de destrucción masiva, según el análisis de riesgo realizado por la Dirección de Cumplimiento.

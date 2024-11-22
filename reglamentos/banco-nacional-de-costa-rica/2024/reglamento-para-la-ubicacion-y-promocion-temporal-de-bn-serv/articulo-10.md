@@ -1,0 +1,1 @@
+Artículo 10.-En todos aquellos aspectos que no se encuentren expresamente previstos en el presente Reglamento, resultarán aplicables las disposiciones incluidas en el Reglamento sobre las operaciones y prestación de servicios realizados por medio de Corresponsales no Bancarios, según el acuerdo SUGEF 26-20 y la legislación vigente que regule la materia.

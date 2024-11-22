@@ -1,0 +1,1 @@
+Artículo 7º-Durante todo momento que permanezca brindando el servicio dentro de la Oficina BN, será de acatamiento obligatorio para el BN SERVICIOS de todas y cada una de las disposiciones contenidas en este reglamento, y la adenda suscrita con el BN.
