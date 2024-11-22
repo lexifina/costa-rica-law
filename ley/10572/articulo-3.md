@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Asociación donataria no podrá variar el uso o destino que se indica en el artículo anterior de la presente ley, que autoriza a donar, ni impedir su uso y disfrute por los vecinos. En caso de hacerlo o de que la Asociación se disuelva, el inmueble pasará a ser propiedad de la Municipalidad de Santa Cruz, Guanacaste.
