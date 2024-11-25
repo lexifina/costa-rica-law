@@ -1,2 +1,0 @@
-Artículo 10.- Agrupación de decisiones iniciales: La Proveeduría agrupará las decisiones iniciales que versen sobre la misma clase de objetos, siempre que la naturaleza y circunstancias lo permitan. Para ello fijará dos plazos al año para la recepción de ellas, con el objeto de lograr las mejores condiciones y evitar a la vez un fraccionamiento ilegítimo.
-Las dependencias respectivas deberán programar sus necesidades de manera tal que las contrataciones inicien en el plazo fijado. Esos plazos serán fijados por la Proveeduría mediante la emisión de circulares.

@@ -1,1 +1,0 @@
-Artículo 11.- Inicio del procedimiento: Una vez que la decisión inicial sea debidamente presentada, la Proveeduría dará inicio al proceso de contratación respectivo, y ejercerá las actividades contempladas en el artículo 10 del RCA.

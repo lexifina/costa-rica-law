@@ -1,1 +1,0 @@
-Artículo 40.- Modificaciones a los contratos: La Municipalidad podrá aumentar o disminuir para un contrato los montos y cantidades, en las condiciones señaladas en el artículo 12 de la LCA y 200 y siguientes del RCA.

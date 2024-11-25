@@ -1,1 +1,0 @@
-Artículo 12.- Conformación del expediente: Una vez adoptada la decisión inicial, la Proveeduría conformará un expediente, al cual se le incorporarán todas las actuaciones internas o externas Relacionadas con la contratación, con estricta atención de las disposiciones del artículo 11 del RCA.

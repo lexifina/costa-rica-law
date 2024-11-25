@@ -1,2 +1,0 @@
-Artículo 24.- Formalización Contractual: Los contratos se formalizarán en instrumento público o privado de conformidad con los requerimientos legales y cartelarios aplicables.
-Por la Municipalidad lo suscribirá el Alcalde, y por el contratista su apoderado o representante, debidamente acreditados.

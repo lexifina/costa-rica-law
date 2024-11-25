@@ -1,1 +1,0 @@
-Artículo 25.- Dependencia encargada de la elaboración de contratos: La dependencia encargada de elaborar contratos, cuando así se requiera, será la Proveeduría, la que velará porque en dichos instrumentos se incorporen al menos las siguientes disposiciones: Precio, tiempo de entrega, forma de pago, características técnicas del objeto contratado y cualquier otro aspecto atinente.

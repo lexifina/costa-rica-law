@@ -1,1 +1,0 @@
-Artículo 29.- Disposiciones sobre Garantías de Cumplimiento: Las garantías de cumplimiento serán devueltas dentro de los veinte días hábiles siguientes a la fecha en que la Municipalidad haya realizado la recepción definitiva del objeto contratado, de lo cual deberá quedar constancia en el expediente.
