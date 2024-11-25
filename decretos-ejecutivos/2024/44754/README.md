@@ -14,3 +14,4 @@ Declara estado de emergencia nacional la situación provocada por la Influencia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-13 | la propia norma |
+| 2 | 2024-11-25 | Decreto Ejecutivo 44786 (2024-11-25) |
