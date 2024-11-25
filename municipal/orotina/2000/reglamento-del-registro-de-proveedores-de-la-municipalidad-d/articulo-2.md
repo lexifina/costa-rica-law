@@ -1,2 +1,0 @@
-Articulo 2°—El registro de Proveedores de la Municipalidad de Orotina, será el mecanismo idóneo para incluir la información de las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa que se lleven a cabo en la institución, con el tin de adquirir sus bienes y servicios.
-Las personas físicas y/o jurídicas que deseen participar en los procesos de Contratación Administrativa de la Municipalidad de Orotina, deben registrarse en el Departamento de Proveeduría de esta Institución.
