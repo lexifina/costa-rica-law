@@ -1,0 +1,8 @@
+Artículo 7º-Metodología de aplicación. El procedimiento para la aplicación de este beneficio a las personas munícipes que contempla el presente reglamento será el siguiente:
+a. La persona contribuyente que desea apegarse a este beneficio deberá presentar una solicitud formal para la condonación y exención en cualquier mes del periodo fiscal anual.
+b. La administración realizará el análisis de la información presentada y verificará los aspectos requeridos por ley sean cumplidos, y trasladará al Concejo Municipal para su conocimiento los casos aprobados.
+c. La administración determinará gracias a los estudios técnicos financieros, si se encuentran dentro de la capacidad financiera de acoger la solicitud:
+i. En el caso de las exenciones y condonaciones no podrán exceder el plazo de 1 año contado a partir de la entrada en vigor de este beneficio.
+ii. Las exenciones podrán ser renovadas por plazo no superiores a 1 año según se dé el cumplimiento de los requisitos y así lo determine la administración.
+d. La administración notificará a los interesados la aprobación de las solicitudes en un plazo no mayor a los 2 meses posterior a su presentación, y si la respuesta es afirmativa por parte de la administración se notificará en tiempo y forma a la persona beneficiaria. En el caso de las personas que les sea rechazada la solicitud se deberá notificar en un plazo no superior a 30 hábiles.
+e. En caso de personas beneficiarias con solicitud aprobada que se encuentren en cobro judicial, la Administración solicitará el pago de honorarios profesionales para proceder a desestimar el cobro judicial correspondiente.

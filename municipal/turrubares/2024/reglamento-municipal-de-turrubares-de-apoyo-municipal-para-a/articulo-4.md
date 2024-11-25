@@ -1,0 +1,4 @@
+Artículo 4º-Requisitos. Una vez brindada la habilitación y determinados los sujetos pasivos
+a) La persona contribuyente deberá presentar la solicitud de condonación o exención ante la administración tributaria de la municipalidad, según el formulario elaborado por el para este propósito.
+b) La municipalidad podrá consultar, en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), la calificación del contribuyente atinente a la solicitud.
+c) En caso de que las personas solicitantes no estén registradas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), la administración municipal podrá articular con este órgano para que las personas solicitantes sean analizadas y registradas en dicho sistema, para acreditar oficialmente su calificación.
