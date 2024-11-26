@@ -15,3 +15,4 @@ Reglamento de Sesiones y Debates del Consejo Nacional del Deporte y la Recreaci√
 | --- | --- | --- |
 | 1 | 2007-06-22 | la propia norma |
 | 2 | 2011-04-14 | Reglamento 754 (2011-04-14) |
+| 3 | 2024-11-26 | Reglamento 0 (2024-11-26) |
