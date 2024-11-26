@@ -14,3 +14,4 @@ Reglamento para la rendición de garantías del Instituto Nacional de Estadísti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-04-28 | la propia norma |
+| 2 | 2024-11-26 | Reglamento 41 (2024-11-26) |
