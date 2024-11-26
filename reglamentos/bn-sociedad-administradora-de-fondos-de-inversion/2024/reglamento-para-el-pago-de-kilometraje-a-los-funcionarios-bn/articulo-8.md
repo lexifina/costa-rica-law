@@ -1,0 +1,3 @@
+Artículo 8º-Expediente Administrativo. Corresponderá a la Asistente de la Gerencia Administrativa Financiera, conformar, completar y actualizar un expediente administrativo digital, en el cual, deberá contener la totalidad de la documentación de conformidad con los requisitos del presente reglamento y las actualizaciones pertinentes.
+Dicho expediente digital deberá contener carpetas separadas para cada funcionario, a efecto de garantizar el acceso expedito y oportuno de la información.
+Corresponderá a Al Área de Gestión Financiera la debida contabilización, control, seguimiento y registro de pago de los gastos de kilometraje.

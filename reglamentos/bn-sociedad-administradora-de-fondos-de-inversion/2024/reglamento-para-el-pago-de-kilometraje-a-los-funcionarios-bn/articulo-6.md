@@ -1,0 +1,1 @@
+Artículo 6º-Procedimiento para la formalización. Para la formalización del reconocimiento del pago por kilometraje, BN Fondos habilitará el RE06-PR21BF04 Solicitud Pago de Kilometraje, donde se deberá completar la información general del funcionario y del vehículo que se utilizará, así como adjuntar los requisitos solicitados en el artículo 5 del presente documento.

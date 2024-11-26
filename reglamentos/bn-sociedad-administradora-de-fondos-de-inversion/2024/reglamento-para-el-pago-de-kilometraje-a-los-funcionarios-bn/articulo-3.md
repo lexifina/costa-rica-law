@@ -1,0 +1,1 @@
+Artículo 3º-Naturaleza del reconocimiento de kilometraje para funcionarios de BN Sociedad Administradora de Fondos de Inversión. El reconocimiento del kilometraje es de naturaleza extrasalarial por lo que por ningún motivo será considerado como beneficio, mejora salarial, salario en especie, o derecho adquirido.

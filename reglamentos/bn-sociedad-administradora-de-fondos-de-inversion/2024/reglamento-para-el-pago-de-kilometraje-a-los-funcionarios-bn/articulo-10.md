@@ -1,0 +1,2 @@
+Artículo 10.-Mínimo de kilómetros. No existirá obligación para BN Fondos de garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que sólo se reconocerán aquellos que hayan sido efectivamente recorridos, se encuentren debidamente justificados, autorizados y documentados.
+En tal sentido, las únicas giras que autorizarán el pago de kilometraje serán las que expresa y previamente hayan sido autorizadas por la jefatura inmediata del funcionario.
