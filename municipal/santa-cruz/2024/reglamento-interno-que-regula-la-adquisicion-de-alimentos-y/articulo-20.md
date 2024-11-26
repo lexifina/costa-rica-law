@@ -1,0 +1,1 @@
+Artículo 20.-En caso de comprobarse la realización de un gasto no autorizado, el funcionario responsable está en la obligación de reintegrar la totalidad de lo asignado, sin perjuicio de las sanciones disciplinarias que podrían ser impuestas según el ordenamiento jurídico indicado en el artículo 17 del presente reglamento y siguiendo el debido proceso.

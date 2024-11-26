@@ -1,0 +1,1 @@
+Artículo 14.-Es obligación del proponente realizar lo correspondiente en materia de planificación: prever en la meta correspondiente a las actividades que realizará con su respectivo cronograma y programación, prever el contenido presupuestario y rendir informe del resultado al Departamento de Planificación.

@@ -1,0 +1,1 @@
+Artículo 10.-Cuando se brinde el servicio de alimentación en las actividades señaladas en el artículo 3° del presente reglamento, los funcionarios municipales, Auditoría Interna, miembros del Concejo Municipal sus asesores y secretaría de este Órgano, y las personas particulares que participen de las mismas, podrán ingerir los alimentos y bebidas contratados.

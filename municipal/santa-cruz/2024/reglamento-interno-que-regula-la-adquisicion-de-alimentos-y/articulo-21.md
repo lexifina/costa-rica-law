@@ -1,0 +1,1 @@
+Artículo 21.-Los funcionarios y miembros del Concejo Municipal que participen en las actividades objeto de este reglamento y se les brinde el servicio de alimentación, no podrán cobrar viáticos por dicho concepto durante el transcurso de las actividades.

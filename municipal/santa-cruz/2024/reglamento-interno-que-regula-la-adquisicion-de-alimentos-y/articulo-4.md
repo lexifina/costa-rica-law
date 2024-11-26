@@ -1,0 +1,11 @@
+Artículo 4º-Definiciones:
+Fondos públicos: Son los recursos, valores, bienes y derechos que son propiedad de la Municipalidad.
+Gastos de alimentación: Son los egresos en los en que puede incurrir la Municipalidad para el pago de alimentos y bebidas a sus funcionarios y personas externas que participen de actividades de capacitación, actividades protocolarias o sociales o reuniones de trabajo donde se traten o desarrollen asuntos de interés y beneficio para la Institución y la Comunidad Santa Cruceña, entendiéndose que abarca tanto la alimentación del personal municipal como la de los participantes, así como los casos dispuestos en el artículo 3 del presente Reglamento.
+Deber de probidad: Obligación del funcionario público de administrar los recursos públicos en apego a los principios de legalidad, eficacia, economía y eficiencia, rendición de cuentas satisfactoriamente.
+Funcionarios municipales: Son personas que son funcionarias de la Municipalidad de Santa Cruz, incluida la Secretaría del Concejo Municipal y el personal de la Auditoría Interna.
+Personas particulares: Son personas que no son funcionarias de la Municipalidad de Santa Cruz, incluida la Secretaría del Concejo Municipal y el personal de la Auditoría Interna. Pueden ser vecinos del cantón, visitantes de otros cantones, sean o no funcionarios públicos.
+Principio de eficiencia: La aplicación más conveniente de los recursos asignados para maximizar los resultados obtenidos o esperados.
+Principio de legalidad: Es el sometimiento de toda actuación pública al ordenamiento jurídico de conformidad con lo señalado en el artículo 11 de la Ley General de la Administración Pública.
+Principio de razonabilidad: Limitar o restringir el ejercicio abusivo del derecho, pero debe hacerse en forma tal, que la norma jurídica se adecue en todos sus elementos como el motivo y el fin que persigue, con el sentido objetivo que se contempla en la Constitución. Debe existir una proporcionalidad entre la regla jurídica adoptada y el fin que persigue, referida a la imperiosa necesidad que la ley satisfaga el sentido común jurídico de la comunidad, expresado en los valores que consagra la misma Constitución."
+Excepción: Acción y efecto de sacar o eliminar algo de la regla común.
+Austeridad: Es posible asociarse la austeridad a la frugalidad (el consumo mesurado de bienes y servicios).
