@@ -1,0 +1,5 @@
+Artículo 23.-Para iniciar el procedimiento de transformación de escala, el partido político interesado deberá cumplir con los siguientes requisitos:
+1. Realizar una asamblea superior, la cual deberá ser fiscalizada por la administración electoral, en cuya convocatoria expresamente se indique la transformación de escala dentro de la agenda a tratar.
+2. Copia certificada por la Secretaría General del Comité Ejecutivo Superior o por quien indique el estatuto partidario del acta de la asamblea superior en la que conste el respectivo acuerdo, el cual deberá estar asentado en el libro debidamente legalizado, correspondiente a ese órgano.
+3. En el acta de la asamblea superior tendrá que estar transcrito el estatuto provisional adecuado a la escala a la que se pretenda transformar, debidamente aprobado por dicha asamblea.
+El partido interesado podrá además cambiar de nombre o de divisa, para lo cual el acuerdo respectivo deberá estar inserto en el acta referida. En todo caso deberá respetarse el plazo señalado en el artículo 55 del Código Electoral.

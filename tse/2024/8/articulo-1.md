@@ -1,0 +1,18 @@
+N° 8-2024
+EL TRIBUNAL SUPREMO DE ELECCIONES
+Con fundamento en los ordinales nueve, párrafo tres; noventa y nueve y ciento dos de la Constitución Política y el numeral doce, inciso a), del Código Electoral; y
+Considerando:
+I.-Que este Tribunal goza de potestad reglamentaria en materia electoral y podrá regular aquellos aspectos que resulten necesarios, con la finalidad de establecer de forma oportuna las normas a las cuales deben someterse las agrupaciones políticas, a fin de cumplir con los procesos establecidos en el ordenamiento jurídico electoral.
+II.-Que, mediante resoluciones 6380-E3-2010 de las ocho horas con treinta minutos del trece de octubre del dos mil diez; 2137-E1-2017 de las diez horas y cincuenta minutos del veintiocho de marzo de dos mil diecisiete; 5698-E1-2017 de las diez horas cincuenta minutos del seis de setiembre de dos mil diecisiete; 2434-E8-2021 de las diez horas del siete de mayo de dos mil veintiuno, este Tribunal Supremo de Elecciones se ha referido a la imposibilidad de que una persona en forma simultánea sea parte de las estructuras de dos o más agrupaciones políticas. De igual forma, se ha pronunciado sobre las renuncias tácitas que operan cuando se da la aceptación para ser postulado como candidato en un puesto de elección popular, con un partido político diferente a aquel en el cual se milita.
+III.-Que esta instancia ha establecido, que para ocupar puestos dentro de las estructuras partidarias, es necesario que las personas tengan un arraigo electoral en la circunscripción respectiva, a fin de ".garantizar un claro conocimiento de las problemáticas territoriales y una mayor capacidad de posicionar al partido a nivel local, a lo que se suma el interés directo que puede proporcionar su mayor cercanía a las aspiraciones poli?ticos-electorales de los correligionarios de esa jurisdicción. Esa medida también tiene la virtud de evitar o disminuir el riesgo de la concentración de poder en grupos o élites provenientes de otras regiones o de la misma cúpula partidaria, quienes -sin ningún arraigo electoral y a través de tales mecanismos directos- podrían extenderse y monopolizar la integración de comités ejecutivos de muchas unidades territoriales." (ver resolución 2705-E3-2021 de las diez horas treinta minutos del veintisiete de mayo de dos mil veintiuno.)
+IV.-Que este Tribunal Supremo de Elecciones a través de su jurisprudencia, ha reconocido la posibilidad que tienen los partidos políticos inscritos de transformar su escala de participación, haciéndose necesario establecer regulaciones para el desarrollo de este proceso.
+V.-En atención a las interpretaciones anteriores, los plazos legalmente establecidos, el número de partidos políticos inscritos y el uso de nuevas tecnologías que permiten realizar trámites administrativos de forma ágil, oportuna y segura, resulta necesario derogar el Reglamento para la Conformación y Renovación de las Estructuras Partidarias y Fiscalización de Asambleas, Decreto N° 02-2012 del 6 de marzo de 2012, a los efectos de incorporar dentro de una nueva reglamentación los criterios emitidos por este Colegiado y regular aspectos no contemplados a la fecha en el citado reglamento. Por tanto,
+DECRETA
+El siguiente:
+REGLAMENTO PARA LA CONFORMACIÓN
+Y RENOVACIÓN DE LAS ESTRUCTURAS PARTIDARIAS,
+TRANSFORMACIÓN DE ESCALA Y FISCALIZACIÓN
+DE ASAMBLEAS
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-El presente reglamento tiene por objeto regular el proceso de conformación y renovación de estructuras internas de los partidos políticos, así como los procesos de transformación de escala y fiscalización de asambleas partidarias.

@@ -1,0 +1,1 @@
+Artículo 17.-Dentro de los tres días posteriores a la celebración de una asamblea, el funcionario designado como delegado de este Tribunal deberá presentar un informe de su labor ante el Departamento de Registro de Partidos Políticos, en los términos previstos en el "Instructivo para la fiscalización de las asambleas de los partidos políticos".

@@ -1,0 +1,1 @@
+Artículo 15.-El Departamento de Registro de Partidos Políticos conocerá las solicitudes de fiscalización, verificará el cumplimiento de los requisitos establecidos en este reglamento, aprobará la fiscalización solicitada y designará al funcionario que fungirá como delegado en dicha asamblea.
