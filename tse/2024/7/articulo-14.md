@@ -1,0 +1,2 @@
+Artículo 14.-Datos en documentos electorales. Por su naturaleza y el interés públicos que revisten, no serán despersonalizados o anonimizados el nombre y número de cédula de las personas en los documentos electorales.
+Se exceptúan los casos que involucren a personas menores de edad o cuando se encuentre en el documento información personal vinculada a datos sensibles o de acceso restringido, según el párrafo segundo del artículo 11 de este reglamento.

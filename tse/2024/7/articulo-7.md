@@ -1,0 +1,9 @@
+Artículo 7º-Obligaciones de la persona responsable de la protección de los datos. La persona responsable de la protección de datos deberá:
+a) Cumplir con las políticas y temas estratégicos institucionales y generar los procedimientos para la implementación de lo dispuesto en este reglamento.
+b) Adoptar las medidas de índole técnica y de organización necesarias para garantizar la seguridad y protección de los datos de carácter personal, así como la actualidad, veracidad y exactitud de los documentos contenidos en las bases de datos y evitar su alteración, destrucción accidental o ilícita, pérdida, tratamiento o acceso no autorizado, así como cualquier otra acción contraria a las normas que rigen la materia.
+c) Determinar los documentos cuyos datos deben ser objeto de tratamiento e identificar los datos sensibles a despersonalizar.
+d) Emitir las alertas correspondientes sobre los datos objeto de protección a lo interno de su unidad administrativa.
+e) Transferir a la persona encargada de la despersonalización o anonimización, los documentos objeto de protección, con base en el procedimiento que se implemente al efecto.
+f) Remitir la información despersonalizada a ser publicada en internet o solicitada por terceros.
+g) Informar a la persona responsable de la protección de datos de cualquiera otra oficina institucional emisora acerca de los errores u omisiones detectados en documentos allí emitidos, a fin de que esta, en un plazo no mayor a dos días hábiles a partir de recibido ese reporte, corrija y comunique lo ejecutado.
+h) Coordinar lo necesario para que la persona encargada de la despersonalización de documentos corrija los errores y omisiones que les reporten en relación con el tratamiento de los datos incluidos en documentos emitidos en su oficina y comunicar lo ejecutado en un plazo no mayor de dos días hábiles a partir del recibo del reporte.

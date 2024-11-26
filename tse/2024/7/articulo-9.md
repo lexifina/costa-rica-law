@@ -1,0 +1,7 @@
+Artículo 9º-Obligaciones de la persona encargada de la despersonalización de documentos. Son obligaciones de la persona encargada de la despersonalización o anonimización de documentos:
+a) Implementar las medidas de seguridad necesarias para la protección e integridad de los datos y cumplir con lo dispuesto en la Ley N° 8968, en el reglamento institucional, en el protocolo y demás disposiciones aplicables.
+b) Analizar, conforme al protocolo e indicaciones de la persona responsable de la protección de datos, si procede la despersonalización de la información en los documentos que se han emitido en su dependencia o se les han trasladado para estudio.
+c) Despersonalizar, en los documentos, los datos personales de acceso restringido y de carácter sensible, de conformidad con lo dispuesto en la Ley N° 8968, este reglamento y el protocolo respectivo.
+d) Elaborar y mantener actualizada una base de datos de documentos despersonalizados y otra de los documentos sin despersonalizar, según las especificaciones del artículo 17 de este reglamento.
+e) Preparar lo pertinente para la publicación de los documentos despersonalizados.
+f) Comunicar a la persona responsable de la protección de datos de su misma oficina, acerca de los errores u omisiones que detecte sobre el tratamiento de los datos contenidos en documentos de la propia o de cualquier otra oficina institucional, para la respectiva corrección, alerta y comunicación.

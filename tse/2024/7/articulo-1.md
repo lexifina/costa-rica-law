@@ -1,0 +1,16 @@
+N° 7-2024
+EL TRIBUNAL SUPREMO DE ELECCIONES
+Considerando:
+1º-Que, de conformidad con lo que establece el artículo 12 inciso ñ) del Código Electoral, el Tribunal Supremo de Elecciones goza de potestad reglamentaria, y en uso de esa facultad legal le corresponde actuar como jerarca administrativo de los demás órganos electorales y en ese carácter, dictar sus reglamentos autónomos de organización y servicio.
+2º-Que es necesario uniformar y establecer normas claras y precisas para regular la recolección, almacenamiento, tratamiento y manejo de los datos personales incluidos en los documentos que se emiten en el Tribunal Supremo de Elecciones, acorde con lo dispuesto en la Ley de protección de la persona frente al tratamiento de sus datos personales (Ley N° 8968 del 7 de julio de 2011, publicada en La Gaceta N° 170 del 5 de setiembre de 2011), el Reglamento a la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, y sus reformas (Decretos Ejecutivos N° 37554- JP, publicado en el Alcance N° 42 a La Gaceta N° 45 del 5 de marzo de 2012 y N° 40008-JP, publicado en el Alcance N° 287 a La Gaceta 234 del 6 de diciembre de 2016), la Ley N° 10475, Prevención de la violencia en personas menores de edad y personas jóvenes (publicada en el Alcance N° 148 a La Gaceta N° 159 del 29 de agosto de 2024) y la Ley N° 10240 Ley para promover la transparencia en el suministro de información en el sector público (publicada en La Gaceta N° 178 del 25 de setiembre de 2024).
+3º-Que la Administración debe reglamentar los procedimientos y acciones para la protección y tratamiento de los datos personales y la despersonalización, cuando proceda, de los documentos que emite, para garantizar el absoluto respeto a los derechos fundamentales de las personas, concretamente, su derecho a la autodeterminación informativa en relación con su vida y demás derechos de la personalidad, así como la defensa de su libertad e igualdad respecto al tratamiento automatizado o manual de los datos personales, en armonía con las limitaciones y fines del principio de transparencia administrativa y en procura de la simplificación de trámites, todo de conformidad con lo establecido en la Ley N° 8968.
+DECRETA
+El siguiente:
+REGLAMENTO PARA LA PROTECCIÓN Y TRATAMIENTO
+DE LOS DATOS PERSONALES INCLUIDOS
+EN LOS DOCUMENTOS EMITIDOS
+EN EL TRIBUNAL SUPREMO DE ELECCIONES
+SECCIÓN I
+Generalidades
+Artículo 1º-Fundamento normativo. El presente reglamento se dicta con fundamento en la Ley N° 8968 Ley de protección de la persona frente al tratamiento de sus datos personales (en adelante la Ley N° 8968) y las normas constitucionales y convencionales que regulen este tema, para, de conformidad con los parámetros allí establecidos, recolectar, almacenar, tratar, manejar y custodiar los datos personales incluidos en documentos administrativos, civiles y electorales producidos en el Tribunal Supremo de Elecciones (en adelante el TSE) que contengan datos sensibles.
+Además, la protección de datos se regirá por los principios de autodeterminación informativa, consentimiento informado y de calidad de la información, así como por los subprincipios de actualidad, veracidad, exactitud y adecuación al fin, establecidos en la Ley N° 8968.

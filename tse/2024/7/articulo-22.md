@@ -1,0 +1,6 @@
+Artículo 22.-Derecho al olvido. Toda persona tiene derecho a que los datos de carácter personal que pudieran afectarla de alguna forma no estén disponibles para terceros, en bases de datos públicas, una vez transcurrido el plazo de 10 años desde la fecha de ocurrencia de los hechos o actos administrativos registrados, salvo disposición normativa especial que disponga otro plazo para datos específicos.
+Toda persona interesada o quien esté legitimada para ello, podrá solicitar que se eliminen de los documentos emitidos en el TSE, los datos personales que consten sobre su persona. Asimismo, podrá solicitar que se eliminen aquellos datos que permitan su identificación, transcurridos diez años desde la emisión del documento o de la base de datos que la contenga.
+El plazo podrá variar en supuestos específicos si existe normativa o disposición jurídica vinculante que así lo avale.
+Las solicitudes de anonimización deberán ser resueltas en un plazo no mayor a diez días hábiles.
+Cada dependencia deberá llevar un archivo de control interno de todas las solicitudes con la finalidad de verificar el respeto a los plazos y demás derechos de la personainteresada.
+Para efectos de aplicación en el presente reglamento, el derecho al olvido corresponderá exclusivamente a las bases de datos de acceso público del TSE.
