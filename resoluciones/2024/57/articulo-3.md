@@ -1,0 +1,1 @@
+Artículo 3º-Esta resolución deja sin efecto la resolución número RES-DGH046-2023 de las quince horas del nueve de noviembre de dos mil veintitrés, así como, cualquier otra disposición que se le oponga.
