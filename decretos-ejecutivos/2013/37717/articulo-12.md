@@ -22,6 +22,7 @@ Gerencia de la Calidad (Así adicionada la maestría anterior mediante sesión o
 Gerencia de la Salud. Se reconoce como sinónimo de esta maestría el siguiente termino: Gerencia Hospitalaria y Servicios de Salud. (Así reformada la maestría anterior mediante sesión ordinaria N° 2022-01-05 del 05 de enero del 2022)
 Homeopatía.
 Informática Médica.
+Ingeniería en Dispositivos Médicos (Así adicionada la maestría anterior en sesión ordinaria 2024-11-27, celebrada el 27 de noviembre de 2024)
 Maestría Académica en Ciencias Médicas y Quirúrgicas (Así adicionada la maestría anterior mediante sesión ordinaria N° 2017-09-27 del 27 de setiembre del 2017)
 Maestría en Políticas, Planificación y Financiamiento de la Salud (Así adicionada la maestría anterior mediante sesión ordinaria N° 2017-09-27 del 27 de junio del 2018)
 Medicina del Deporte.
