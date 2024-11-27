@@ -1,0 +1,1 @@
+Artículo 11.- El Departamento Presupuesto y Control elaborará un cronograma de trabajo en el que se establecerá las actividades a realizar y las fechas de cumplimento para la formulación del Presupuesto Ordinario y Plurianual.

@@ -1,0 +1,1 @@
+Artículo 36.-El Departamento Presupuesto y Control, elaborará los documentos de las variaciones presupuestarias -Modificaciones y Presupuesto Extraordinario- para ser presentado a la Gerencia General y posteriormente a la Junta Directiva para la aprobación.

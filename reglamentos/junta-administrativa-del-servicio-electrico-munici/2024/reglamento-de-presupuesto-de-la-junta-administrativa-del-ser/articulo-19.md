@@ -1,0 +1,1 @@
+Artículo 19.- Los Presupuestos Extraordinarios contendrán los ingresos extraordinarios que se presuman durante el ejercicio económico a que se aplique éste, sean provenientes de préstamos, superávit o de cualquier otra fuente considerada como extraordinaria. Contendrá, los egresos que deberán financiarse durante el ejercicio con dichos ingresos.

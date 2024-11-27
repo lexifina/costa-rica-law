@@ -1,0 +1,1 @@
+Artículo 31.-El Presupuesto Ordinario podrá ajustarse mediante las variaciones presupuestarias, las cuales corresponden a ajustes cuantitativos y cualitativos al presupuesto aprobado, corresponden a: Modificaciones, Presupuestos Extraordinarios, Traspasos entre Centros y traspasos entre Auxiliares.

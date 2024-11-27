@@ -1,0 +1,1 @@
+Artículo 8.-Departamento de Presupuesto y Control: Es el departamento encargado de liderar la formulación del presupuesto y de administrar, gestionar y controlar la ejecución del presupuesto, asesorando a los órganos internos en materia presupuestaria y brindando información oportuna y confiable que contribuya a la toma de decisions.

@@ -1,0 +1,1 @@
+Artículo 9.-Departamento de Planificación: Es el departamento encargado de planificar, dirigir, organizar, coordinar, informar, ejecutar, integrar y controlar las actividades de Planificación Estratégica Institucional, de Gestión de Calidad, de Seguimiento y Control, e Información Gerencial en JASEC.

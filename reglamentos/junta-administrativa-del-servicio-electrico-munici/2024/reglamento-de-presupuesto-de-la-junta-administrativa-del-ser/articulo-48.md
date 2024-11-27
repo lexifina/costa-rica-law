@@ -1,0 +1,1 @@
+Artículo 48.-El Departamento de Presupuesto y Control, con el objetivo de evaluar y controlar el comportamiento del presupuesto asignado, remitirá mensualmente informes de ejecución a los respectivos encargados de centros presupuestarios, para que determinen las acciones correctivas que sean necesarias.

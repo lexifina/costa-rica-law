@@ -1,0 +1,1 @@
+Artículo 47.-El Departamento Presupuesto y Control realizará el cierre mensual y elaborará los informes de ejecución presupuestaria, con base en efectivo, considerando todos lo ingresos y gastos realizados, confeccionará un análisis e informe de resultados de la ejecución que es aprobado por la Junta Directiva de manera trimestral.

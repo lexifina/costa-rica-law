@@ -1,0 +1,1 @@
+Artículo 23. La Gerencia General analizará el documento del Presupuesto Ordinario, Plurianual o Extraordinario, elaborado por el Departamento de Presupuesto y Control, de acuerdo con lo asignado por los funcionarios responsables del uso de los recursos presupuestarios de las distintas áreas de la Institución.

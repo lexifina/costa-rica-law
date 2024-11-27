@@ -1,0 +1,1 @@
+Artículo 24.- La Gerencia General revisará las políticas presupuestarias vigentes, así como recomendar alguna política presupuestaria necesaria para la ejecución del Presupuesto Ordinario, mismas que son incluidas en la presentación correspondiente.

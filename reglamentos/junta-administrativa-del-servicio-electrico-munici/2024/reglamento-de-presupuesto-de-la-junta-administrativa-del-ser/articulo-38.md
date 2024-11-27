@@ -1,0 +1,1 @@
+Artículo 38.-El Departamento Presupuesto y Control, administrará los excedentes que se originen entre las reservas presupuestarias y el compromiso, así como los saldos de órdenes de compra una vez realizado el único o último pago y mediante variaciones presupuestarias se asignarán a nuevos requerimientos debidamente justificados y aprobados.

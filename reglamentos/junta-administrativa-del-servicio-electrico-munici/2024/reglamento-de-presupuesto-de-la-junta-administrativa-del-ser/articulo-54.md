@@ -1,0 +1,1 @@
+Artículo 54.-En caso de que el resultado al final del año fuera deficitario, debe elaborarse un plan para lograr la amortización del déficit, en el Presupuesto Ordinario del siguiente periodo, el cual debe ser aprobado por la Junta Directiva.

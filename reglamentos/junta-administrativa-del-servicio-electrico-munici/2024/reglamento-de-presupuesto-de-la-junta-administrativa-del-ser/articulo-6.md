@@ -1,0 +1,1 @@
+Artículo 6.-Junta Directiva: Constituye el máximo órgano de JASEC responsable de la revisión y aprobación del Presupuesto Ordinario y Plurianual, Presupuestos Extraordinarios, Modificaciones, Informe de Liquidación Presupuestaria, Informes de Ejecución de Egresos e Ingresos.

@@ -1,0 +1,1 @@
+Artículo 53.- El Departamento de Presupuesto y Control remitirá a cada responsable de centro presupuestario la información correspondiente a la liquidación presupuestaria y cada responsable deberá justificar la sub ejecución de los recursos asignados y compromisos que trascienden el periodo presupuestario.

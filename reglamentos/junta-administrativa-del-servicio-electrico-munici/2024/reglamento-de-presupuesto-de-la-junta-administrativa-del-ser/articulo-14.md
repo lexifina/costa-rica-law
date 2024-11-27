@@ -1,0 +1,1 @@
+Artículo 14.- Se deben definir las prioridades en función de las necesidades más urgentes, se dará primacía a los costos de operación, compras de energía, atención de la deuda interna y externa, e inversiones, todo conforme a la Estrategia de Sostenibilidad Financiera aprobada por la Junta Directiva.

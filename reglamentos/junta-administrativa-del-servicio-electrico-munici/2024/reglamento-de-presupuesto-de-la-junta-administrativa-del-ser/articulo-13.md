@@ -1,0 +1,4 @@
+Artículo 13.- El Departamento de Presupuesto y Control deberá elaborar las proyecciones de ingresos y egresos mediante escenarios factibles.
+Las estimaciones de ingresos que se consideren probables durante el ejercicio económico se harán con base en métodos técnicos, matemáticos, financieros y estadísticos, de común aceptación con indicación de su composición y estacionalidad detallándose según el clasificador vigente por objeto del gasto del sector público. Estas estimaciones de ingresos las realizarán los responsables respectivos.
+Las estimaciones de egresos obedecerán a la aprobación tarifaria de la Autoridad Reguladora de los Servicios Públicos (ARESEP) para el ejercicio económico.
+Lo que respecta a los negocios en competencia, le corresponde al director o responsable del negocio según la estructura orgánica remitir al Departamento Presupuesto y Control las correspondientes proyecciones de ingresos y egresos; y sus justificaciones.

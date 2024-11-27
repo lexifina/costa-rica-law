@@ -1,0 +1,1 @@
+Artículo 41.-La fase de ejecución termina el último día de cada año, posteriormente se realiza el informe de liquidación presupuestaria en el cual se muestra el resultado financiero presupuestario (déficit o superávit).

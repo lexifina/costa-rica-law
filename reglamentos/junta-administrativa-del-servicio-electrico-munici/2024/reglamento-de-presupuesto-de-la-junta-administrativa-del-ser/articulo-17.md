@@ -1,0 +1,1 @@
+Artículo 17.-Corresponderá al Gerente, Sub Gerente General, los Directores, Jefes de Área y Jefes de Departamento la elaboración del Presupuesto Ordinario y Plurianual del Departamento a su cargo, con base en el instructivo para la formulación, así como su remisión al Departamento de Presupuesto y Control en los plazos establecidos en el cronograma.

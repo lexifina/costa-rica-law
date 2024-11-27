@@ -1,0 +1,1 @@
+Artículo 20.- Durante el periodo presupuestario, se deberán revisar los ingresos de manera mensual con respecto a las proyecciones establecidas, en caso de requerir algún ajuste disminuyendo los ingresos, se deberá presentar mediante un Presupuesto Extraordinario.
