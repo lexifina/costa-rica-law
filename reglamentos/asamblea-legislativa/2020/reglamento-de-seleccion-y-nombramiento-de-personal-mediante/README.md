@@ -14,3 +14,4 @@ Reglamento de selección y nombramiento de personal mediante concursos internos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-23 | la propia norma |
+| 2 | 2024-11-27 | Reglamento 122 (2024-11-27) |
