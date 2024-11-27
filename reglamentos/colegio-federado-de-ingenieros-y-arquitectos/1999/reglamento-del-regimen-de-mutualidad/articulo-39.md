@@ -1,1 +1,1 @@
-Artículo 39.—La gestión de la Junta Administradora referida al Régimen de Mutualidad, se encontrará fiscalizada por la Junta Directiva General del CFIA, quien elevará a la Asamblea de Representantes cualquier anomalía que detecte en el funcionamiento del Régimen.
+Artículo 39.-La gestión de la Junta Administradora referida al Régimen de Mutualidad se encontrará fiscalizada por la Junta Directiva General del C.F.I.A., quien elevará a la Asamblea de Representantes cualquier anomalía que detecte en el funcionamiento del Régimen.

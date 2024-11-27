@@ -1,2 +1,2 @@
-Artículo 18.—Cuando se vaya a tratar algún asunto en que tenga interés personal alguno del los Directores presentes, el Director de que se tratare, se ausentará de la sesión durante el tiempo que dure la discusión y resolución.
+Artículo 18.-Cuando se vaya a tratar algún asunto en que tenga interés personal de alguno de los Directores presentes, el Director de que se tratare, se ausentará de la sesión durante el tiempo que dure la discusión y resolución.
 El Director correspondiente podrá hacer una relación de su caso sobre el asunto en discusión y la Junta Administradora determinará si le es aplicable lo establecido en este artículo.

@@ -1,1 +1,1 @@
-Artículo 16.—El quórum requerido para sesionar, ordinaria o extraordinariamente, será de 5 miembros de la Junta Administradora.
+Artículo 16.-El quórum requerido para sesionar, ordinaria o extraordinariamente, será de cinco miembros de la Junta Administradora, indistintamente que se encuentren representados todos los colegios miembros, en aras de no afectar, conocer y resolver sobre los auxilios a los miembros del CFIA.

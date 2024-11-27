@@ -1,17 +1,20 @@
 CAPÍTULO V
 SECCIÓN I
-De la junta administradora
-Artículo 11.—Constitución de la Junta Administradora
-a. La Junta Administradora estará integrada en forma paritaria por cinco Directores Propietarios y cinco Directores Suplentes, quienes deberán asistir a todas las reuniones de la Junta Administradora. Los miembros directores serán nombrados por un período de tres años; pudiendo ser reelecto por un máximo de dos períodos consecutivos adicionales. Los Directores Propietarios tendrán voz y voto, los Directores Suplentes podrán participar con voz pero sin voto.
-b. Los directores serán nombrados por las Juntas Directivas de cada Colegio según los atestados recibidos para tal fin. Dichos nombramientos serán ratificados a su vez por la Junta Directiva General del CFIA.
-c. Los nombramientos serán hechos de manera que cada año deben ser renovados los directores que corresponda. Sesenta días antes de producirse el vencimiento de los períodos, el Gerente del Régimen deberá comunicarlo a la Junta Directiva del Colegio respectivo para efectuar los nombramientos correspondientes.
+De la Junta Administradora
+Artículo 11.- Constitución de la Junta Administradora.
+a. La Junta Administradora estará integrada por la representación paritaria de diez directores, representadas por miembros de los distintos colegios miembros, con el fin de lograr los objetivos del Régimen de Mutualidad. Los miembros directores serán nombrados por un período de tres años; pudiendo ser reelectos por un máximo de dos períodos consecutivos adicionales. Todos los directores tendrán voz y voto. En caso de ausencias temporales o definitivas por cualquier motivo de alguno de los directores, la Gerencia del Régimen notificará al Colegio Miembro, a efectos de que éste valore y realice las gestiones para el nombramiento de un director que sustituya temporal o definitivamente al director saliente.
+b. Los directores serán nombrados por las Juntas Directivas de cada Colegio según los atestados recibidos para tal fin. Dichos nombramientos serán ratificados a su vez por la Junta Directiva General del C.F.I.A.
+c. Los nombramientos serán hechos de manera que cada vez que se venza algún nombramiento sesenta días antes de producirse el vencimiento de los períodos, la Gerencia del Régimen deberá comunicarlo a la Junta Directiva del Colegio respectivo para efectuar los nombramientos correspondientes.
 d. Cuando se produzca vacante por otra razón que no sea la terminación del período, la renovación será por el tiempo que le falte al director saliente.
-e. En caso de renuncia de un director se deberá solicitar a la junta directiva del colegio correspondiente el nombramiento del nuevo miembro.
-f. Cada año, en la primera semana del período, la Junta Administradora elegirá de su seno, entre los Directores Propietarios y por acuerdo entre sus miembros, un Presidente, un Vicepresidente, un Secretario, un Tesorero y un vocal.
-g. Mientras no se haya celebrado la elección indicada en el párrafo anterior o no hayan tomado posesión los miembros electos, continuarán ejerciendo sus funciones los anteriores directores.
+e. En caso de renuncia de un director se deberá solicitar a la Junta Directiva del Colegio correspondiente el nombramiento del nuevo miembro.
+f. Cada año, en la primera sesión del período, la Junta Administradora elegirá de su seno, por acuerdo entre sus miembros, la Presidencia, Vicepresidencia, Secretaría, Tesorería y una Vocalía, a partir de la nominación realizada por la Junta Directiva de cada uno de los colegios miembros, en atención a la alternancia y forma rotativa que acuerde la Junta Directiva General, para garantizar que los miembros de los diferentes colegios ocupen dichos puestos. Asimismo, se establece que la Presidencia del C.F.I.A, no podrá coincidir con la Presidencia de la Junta Administradora.
+g. Mientras no se haya celebrado la elección indicada en el párrafo anterior o no hayan tomado posesión los miembros electos, continuarán ejerciendo en forma temporal sus funciones los anteriores directores, a afectos de no afectar la continuidad de las actividades del Régimen de Mutualidad.
 h. Para los efectos de operación del Régimen, hasta tanto no se hayan acreditado las nuevas firmas en las cuentas corrientes bancarias, los anteriores directores autorizados continuarán autorizando y visando los cheques.
-i. En ausencia de un director propietario Id sustituirá su suplente. Cuando un director suplente asume las funciones de un director propietario adquiere todas las atribuciones del director propietario en dicha sesión.
-j. Los Directores de la Junta Administradora deberán cumplir, como mínimo, con los siguientes requisitos:
-• Tener un mínimo de cinco años de estar incorporado al CFIA.
-• Ser de honestidad comprobada.
-• Poseer experiencia certificada o conocimientos en economía, finanzas, contabilidad, formulación y evaluación de proyectos y análisis de créditos e inversiones.
+i. Para ocupar el cargo de director de la Junta Administradora, se deberá cumplir como mínimo, con los siguientes requisitos:
+. Tener al menos cinco años de estar incorporado al C.F.I.A.
+. Encontrarse al día con sus obligaciones ante el C.F.I.A.
+. Preferiblemente poseer experiencia o conocimientos en economía, finanzas, contabilidad, formulación y evaluación de proyectos y análisis de créditos e inversiones.
+. No haber sido sancionado por faltas a la ética profesional, en los últimos cinco años.
+. No hallarse procesado penalmente, con auto de apertura a juicio por un delito que merezca pena de inhabilitación para el ejercicio de su profesión.
+. No haber sido condenado penalmente mediante sentencia firme por delitos contra la propiedad, buena fe, ejercicio ilegal de la profesión, administración fraudulenta y apropiaciones indebidas, confianza pública y cualquier otra conducta delictiva que pueda haber atentado contra el correcto ejercicio profesional y los intereses del CFIA.
+Corresponderá a cada colegio miembro, verificar el cumplimiento de dichos requisitos.

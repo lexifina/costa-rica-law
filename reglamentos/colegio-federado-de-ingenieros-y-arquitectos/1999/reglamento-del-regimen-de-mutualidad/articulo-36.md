@@ -1,3 +1,3 @@
 CAPÍTULO VIII
-De la administración financiera y supervisión del régimen de mutualidad
-Artículo 36.—Será responsabilidad del la Junta Administrativa del Régimen el control contable y la administración financiera del mismo.
+De la Administración Financiera y Supervisión del Régimen de Mutualidad
+Artículo 36.-Será responsabilidad de la Junta Administradora del Régimen el control contable y la administración financiera del mismo.
