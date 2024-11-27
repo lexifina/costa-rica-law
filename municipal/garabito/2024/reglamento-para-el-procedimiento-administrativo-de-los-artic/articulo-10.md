@@ -1,0 +1,1 @@
+Artículo 10º-Facultad para el cobro de los gastos. Los artículos 66 y 96 de la Ley de Construcciones establecen que la Municipalidad ejecutará la sanción correspondiente por cuenta de la persona propietaria.

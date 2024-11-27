@@ -1,0 +1,2 @@
+Artículo 8º-Ruptura o violación de sellos y desobediencia: La Municipalidad colocara sellos de clausura siempre que sea físicamente posible, con el fin de impedir la continuación de la construcción.
+La persona propietaria y/o infractora y sus empleados tienen la obligación de respetar la orden de clausura y los sellos, so pena de prisión, conforme lo estipula el Código Penal. Las consecuencias legales que conllevan los delitos de violación de sellos y de desobediencia, se consignarán en el acta de clausura.

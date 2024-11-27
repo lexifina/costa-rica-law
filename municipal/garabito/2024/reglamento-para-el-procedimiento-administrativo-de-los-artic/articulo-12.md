@@ -1,0 +1,1 @@
+Artículo 12º-lnicio del procedimiento: La Municipalidad podrá aplicar cualquiera de las sanciones establecidas en la Ley de Construcciones por medio de la firmeza de una resolución motivada, dictada al efecto; siguiendo el procedimiento que se describe en el presente reglamento.

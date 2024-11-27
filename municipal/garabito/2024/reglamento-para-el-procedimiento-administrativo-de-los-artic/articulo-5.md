@@ -1,0 +1,1 @@
+Artículo 5º-Inspección: Corresponde a los inspectores, departamento de servicios técnicos y a la Policía Municipal; la fiscalización de las construcciones que se realicen en el territorio del cantón de Garabito. Así como a cualquier otro funcionario/a que la Alcaldía Municipal designe.
