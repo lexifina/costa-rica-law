@@ -1,2 +1,0 @@
-CAPÍTULO IV Manejo de los expedientes médicos
-Artículo 18.—El expediente médico es un documento informativo cuya manipulación administrativa corresponde al funcionario de salud, según las responsabilidades que le asigne su puesto. Esta manipulación deberá realizarse bajo estrictas medidas ético-legales de reserva de la información, garantizando la confidencialidad de esta. Las jefaturas serán responsables de garantizar la capacitación e información adecuadas al personal a su cargo, para que la confidencialidad se mantenga en todos los niveles.

@@ -1,1 +1,0 @@
-Artículo 4°—El Consejo Nacional de Atención Integral al VIH-SIDA se reunirá ordinariamente una vez al mes, y extraordinariamente cuando su presidente/a o tres integrantes lo soliciten. El quorum necesario para iniciar las sesiones será de cuatro integrantes.

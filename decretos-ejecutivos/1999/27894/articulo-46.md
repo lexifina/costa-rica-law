@@ -1,2 +1,0 @@
-SECCIÓN II Práctica profesional y trabajo comunal
-Artículo 46.—La Caja Costarricense de Seguro Social y el Ministerio de Salud establecerán convenios con las universidades públicas y privadas, para que sus estudiantes puedan realizar sus prácticas profesionales o trabajos comunales en instituciones u organizaciones de prevención y atención del VIH-SIDA. Estas instituciones enviarán al Consejo copia de los convenios, en un plazo inferior a 30 días naturales después de su firma.

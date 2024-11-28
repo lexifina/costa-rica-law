@@ -1,1 +1,0 @@
-Artículo 8°—Los/as directores/as y jerarcas de los centros de salud, públicos y privados, tienen la obligación de velar porque cualquier persona portadora del VIH o enferma de SIDA sea atendida debidamente por el personal de su institución.

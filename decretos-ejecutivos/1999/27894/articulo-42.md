@@ -1,1 +1,0 @@
-Artículo 42.—El Ministerio de Salud, la Caja Costarricense de Seguro Social y demás Ministerios e instituciones públicas podrán firmar con las ONG's registradas ante el Ministerio de Salud, convenios de cooperación en diversos ámbitos relacionados con el tema del VIH-SIDA.

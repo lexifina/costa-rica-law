@@ -1,1 +1,0 @@
-Artículo 12.—Para la continuación del tratamiento de las personas que vivan en zonas alejadas y sean atendidas por médicos especialistas de los equipos especializados de VIH-SIDA, rige el numeral 2.7 del capítulo II, "Normas para la prescripción y despacho de medicamentos", Lista Oficial de Medicamentos.

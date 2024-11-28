@@ -1,1 +1,0 @@
-Artículo 24.—El Ministerio de Justicia y Gracia, en coordinación con la Caja Costarricense de Seguro Social, fortalecerá en los centros penales la estrategia de educación y prevención del VIH. Esta estrategia deberá presentarse en el mes de noviembre de cada año ante el Consejo Nacional de Atención Integral al VIH-SIDA.

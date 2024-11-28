@@ -1,1 +1,0 @@
-Artículo 45.—El Consejo Nacional de Atención Integral al VIH-SIDA deberá recibir copia de todos los convenios firmados por instituciones públicas en relación con el tema del VIH-SIDA. El Consejo enviará a la entidad respectiva las observaciones que considere convenientes para mejorar la propuesta.

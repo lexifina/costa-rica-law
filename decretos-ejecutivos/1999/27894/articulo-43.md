@@ -1,1 +1,0 @@
-Artículo 43.—Las instituciones públicas podrán financiar programas realizados por ONG's declaradas de interés público e inscritas ante el Ministerio de Salud, cuya finalidad sea prevenir el VIH y atender a las personas portadoras o enfermas.

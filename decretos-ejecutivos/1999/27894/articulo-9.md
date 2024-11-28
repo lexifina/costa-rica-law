@@ -1,3 +1,0 @@
-SECCIÓN II
-Derecho a los medicamentos antirretrovirales
-Artículo 9°—Para garantizar el derecho de toda persona enferma a causa del VIH, que reúna los requisitos del Protocolo establecido por la Caja Costarricense de Seguro Social, a recibir oportunamente los medicamentos que el/la médico tratante prescriba, el Comité Central de Farmacoterapia de la Institución mencionada incluirá en la lista oficial los medicamentos antirretrovirales recomendados por su equipo técnico asesor en VIH-SIDA. Lo anterior con el fin de que se proceda a adquirir, almacenar, distribuir y dispensar los medicamentos antirretrovirales a las personas portadoras que los requieran.

@@ -1,2 +1,0 @@
-Inscripción de medicamentos antirretrovirales
-Artículo 34.—Todos los medicamentos antirretrovirales disponibles en el país para su comercialización, deberán estar inscritos en el Ministerio de Salud y, por ende, haber cumplido con los trámites legales y reglamentarios de registro. El trámite de inscripción por parte del Consejo Técnico de Inscripciones y de Ja Dirección de Registros y Controles del Ministerio de Salud deberá realizarse a la mayor brevedad y con carácter prioritario.

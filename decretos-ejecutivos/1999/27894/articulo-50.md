@@ -1,1 +1,0 @@
-Artículo 50.—Las autoridades de Adaptación Social tomarán las medidas necesarias para cumplir con lo establecido en la Ley N° 7771 y velarán por la seguridad de cualquier persona portadora del VIH o enferma de SIDA, sin segregar, aislar o restringir las actividades de estas, salvo las excepciones contenidas en el artículo 38 de la Ley N° 7771.
