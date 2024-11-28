@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9872 " Régimen Relaciones de Productores, Beneficiadore
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-18 | la propia norma |
+| 2 | 2024-11-28 | Decreto Ejecutivo 44787 (2024-11-28) |

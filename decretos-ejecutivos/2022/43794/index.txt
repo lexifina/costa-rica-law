@@ -238,6 +238,7 @@ articulo-237.md
 articulo-238.md
 articulo-239.md
 articulo-240.md
+articulo-240-bis.md
 articulo-241.md
 articulo-242.md
 articulo-243.md
