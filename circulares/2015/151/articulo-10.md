@@ -1,2 +1,0 @@
-Artículo 10.—Publicación localizada mediante el buscador Google. Deberá remitirse copia de lo resuelto a la Dirección de Tecnología de la Información, para que gestione lo correspondiente a fin de eliminar la posibilidad de consultar los datos protegidos, mediante el buscador Google. Este trámite lo ha atendido la empresa en un plazo aproximado de diez días hábiles.
-La Dirección de Tecnología de la Información, al recibir respuesta, deberá notificar a la persona interesada.

@@ -1,3 +1,0 @@
-Artículo 13.—Recopilación de sentencias del RUSJD para su publicación. Los Centros de jurisprudencia que requieran publicar sentencias despersonalizadas, deberán recopilarlas del RUSJD.
-Las oficinas que necesiten sentencias despersonalizadas para su publicación o divulgación, deberán solicitarlas al Digesto o al Centro de Jurisprudencia de la Sala Constitucional, según corresponda.
-Si la resolución no se encuentra en el Repositorio o contiene algún error u omisión, deberá comunicarse de inmediato al encargado de la despersonalización, para que proceda conforme a lo establecido en la ley, el reglamento y este protocolo. En este caso, el encargado de la protección cuenta con dos días hábiles para resolver.

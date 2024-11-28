@@ -1,2 +1,0 @@
-Artículo 9º—Actualización de la información. El encargado de la despersonalización, coordinará con la Dirección de Tecnología de la Información lo correspondiente a la actualización de la información en la página Web a su cargo.
-Cuando la protección se realice a solicitud de una persona usuaria o se trate de omisión o error, el encargado deberá además, ponerlo en conocimiento del Centro de Jurisprudencia, despacho u oficina correspondiente, con el fin de que proceda a la actualización en su página Web.
