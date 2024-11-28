@@ -1,1 +1,0 @@
-Artículo 9. Se deberá cumplir además, con los requisitos establecidos en la Ley No. 9222 del 13 de marzo de 2014, “Ley de Donación y Trasplante de Órganos y Tejidos Humanos” y su reglamento, y con lo establecido en el Decreto Ejecutivo No. 29899-S del 01 de octubre de 2001, “Normas para la Habilitación de Establecimientos de Cirugía Oftalmológica”.

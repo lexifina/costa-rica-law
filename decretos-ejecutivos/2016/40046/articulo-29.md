@@ -1,1 +1,0 @@
-Artículo 29. La información de estos receptores deberá ser comunicada de manera inmediata a la Secretaría Ejecutiva Técnica de Donación de Órganos y Tejidos y deberán ser dados de baja permanente por el establecimiento de salud autorizado.

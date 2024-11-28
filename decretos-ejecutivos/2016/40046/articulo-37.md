@@ -1,1 +1,0 @@
-Artículo 37. En caso de empate se asignará al receptor de menor edad. En el caso de ser dos menores con la misma edad, se tomará en cuenta los días y horas, o bien quedará sujeto a discusión por parte del Comité Técnico Asesor.

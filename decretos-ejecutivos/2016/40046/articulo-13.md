@@ -1,1 +1,0 @@
-Artículo 13. Cuando se proceda al implante de tejido ocular proveniente de bancos de tejidos extranjeros, éstos deberán cumplir lo establecido en la Ley No. 9222 del 13 de marzo de 2014, “Ley de Donación y Trasplante de Órganos y Tejidos Humanos” y su reglamento, además de lo establecido en la presente normativa.

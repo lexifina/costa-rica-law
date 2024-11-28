@@ -1,1 +1,0 @@
-Artículo 38. Una vez comenzado un proceso de distribución y hasta su finalización (una vez el tejido ocular haya salido del banco de tejidos), todo potencial receptor que ingrese a la lista nacional de receptores o cambie de situación clínica, no podrá participar de la distribución de los tejidos correspondientes a ese proceso.

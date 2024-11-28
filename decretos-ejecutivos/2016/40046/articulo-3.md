@@ -1,1 +1,0 @@
-Artículo 3. El proceso de distribución y asignación de órganos y tejidos comenzará ante la existencia de un potencial donante, una vez que se han cumplido los pasos operativos de certificación de muerte y entrevista familiar y se ha determinado qué órganos son viables para ser trasplantados.

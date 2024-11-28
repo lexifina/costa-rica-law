@@ -1,1 +1,0 @@
-Artículo 20. Los cambios de agudeza visual serán informados a través de una nueva inscripción en la lista nacional de receptores a la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos.

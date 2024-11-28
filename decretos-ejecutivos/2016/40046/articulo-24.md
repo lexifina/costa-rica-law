@@ -1,1 +1,0 @@
-Artículo 24. En los casos de reingreso del paciente a la lista nacional de receptores por exclusión permanente o para nuevo injerto, los profesionales emitirán la constancia respectiva o utilizarán el formulario en papel de inscripción en la lista nacional de receptores, sin considerar la fecha en que se llevaron a cabo las inscripciones anteriores.
