@@ -13,3 +13,4 @@ Protocolo de actuaciones para atender los casos de reinstalación laboral en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-29 | la propia norma |
+| 2 | 2024-11-28 | Circular 243 (2024-11-28) |
