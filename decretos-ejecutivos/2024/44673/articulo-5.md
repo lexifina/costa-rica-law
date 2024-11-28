@@ -1,0 +1,1 @@
+Artículo 5º-De acuerdo con las resoluciones SINAC-ACTo-DIR-RES-054-2022 y ACTo-DIR-RES-019-2024, el AyA cumplió con los requisitos establecidos en el Decreto N° 42548-MINAE Reglamento a la Ley Nº 9590 del 03 de julio de 2018, para solicitud de trámite para obra de aprovechamiento dentro la Zona Protectora Acuíferos de Guácimo y Pococí.
