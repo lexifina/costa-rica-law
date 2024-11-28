@@ -1,0 +1,2 @@
+ARTÍCULO 21. Zona Residencial de Alta Densidad (ZRAD).
+Comprenden sectores urbanizados del distrito El Tejar, así como aquellos ubicados en los centros urbanos de San Isidro, Tobosi y algunos poblados de éstos como Higuito y Tablón respectivamente y en general con las mayores facilidades en cuanto a dotación de servicios de transporte público, agua por acueducto y educación. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 "Detalle de usos conformes, condicionales o no conformes" del presente Reglamento.

@@ -1,0 +1,2 @@
+ARTÍCULO 25. Zona de uso Mixto (ZM).
+Las Zonas de uso Mixto han sido concebidas para conservar la dinámica urbana durante todo el día, y favorecer el uso comercial y de servicios en espacios también ocupados por vivienda. Para todos los efectos de usos conformes, condicionales o no conformes se atenderá lo dispuesto en el anexo No.2 "Detalle de usos conformes, condicionales o no conformes" del presente Reglamento.

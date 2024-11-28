@@ -1,0 +1,12 @@
+ARTÍCULO 30. Cálculo de densidad en el predio.
+Para calcular el número máximo de unidades habitacionales permitidas en un predio destinado a edificaciones para uso residencial, sometidas o no al régimen de propiedad en condominio, se aplica el valor de densidad preestablecido en la tabla de parámetros del Reglamento de Zonificación del Plan Regulador.
+Para tales efectos, se toma el área total del predio y se multiplica por el valor de densidad especificado en el Plan Regulador para la zona correspondiente. El resultado de esta multiplicación debe dividirse entre 10 000 m².
+Del cociente obtenido, la parte entera dicta el número de unidades habitacionales permitidas en el predio. Si la fracción decimal es igual o mayor que 0.5, se permite una unidad de vivienda adicional.
+El número máximo de unidades habitacionales puede desarrollarse en forma horizontal o vertical, siempre que se cumplan a la vez los parámetros urbanísticos de altura, retiros y cobertura según corresponda.
+Para los predios ubicados dentro de los mapas oficiales de urbanizaciones y conjuntos residenciales, se aplica la densidad preestablecida en dichos mapas. En ausencia de parámetros preestablecidos, la Municipalidad debe de determinar la factibilidad técnica para permitir un aumento de densidad según la capacidad de las redes de servicios existentes, tamaños de lotes, alturas permitidas y lotes disponibles aún sin construir, según el mapa oficial. En este caso, se toma como densidad máxima posible la establecida por el presente Reglamento de Zonificación del Plan Regulador de El Guarco. En estos supuestos no aplica la variación de densidad por incentivos.
+En la zona agropecuaria y zona de protección, la densidad máxima permitida es de una vivienda por predio segregado, siempre que este cumpla con el área mínima requerida según la zonificación.
+Para todos los efectos del Plan Regulador de El Guarco, se entiende como vivienda toda aquella unidad habitacional de uno o más dormitorios que cumpla con las siguientes características:
+a) No posee más de dos niveles o pisos.
+b) No tiene entradas independientes a aposentos o niveles superiores.
+c) No tiene más de un espacio dedicado a cocina y comedor.
+Esta caracterización aplica para la definición de vivienda unifamiliar o para el conteo de unidades habitacionales en edificaciones para uso residencial, independientemente del nivel en el que se ubique la unidad funcional a evaluar.
