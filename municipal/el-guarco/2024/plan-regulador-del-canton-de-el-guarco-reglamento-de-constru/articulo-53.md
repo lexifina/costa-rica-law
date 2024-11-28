@@ -1,0 +1,2 @@
+ARTÍCULO 53. Requisitos para el trámite de la licencia o Permiso de Construcción.
+Para obtener el permiso de construcción se debe cumplir con los requisitos establecidos en el Reglamento de Requisitos para licencias y trámites municipales que para el efecto publique la Municipalidad de El Guarco, sin embargo, en ausencia de este puede aplicarse supletoriamente lo establecido en el Reglamento de Construcciones del INVU y sus reformas o normativa que lo sustituya.

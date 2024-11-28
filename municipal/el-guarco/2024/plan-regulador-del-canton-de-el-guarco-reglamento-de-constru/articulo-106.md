@@ -1,0 +1,2 @@
+ARTÍCULO 106. Fiscalización de los proyectos.
+Se reconocen las competencias del CFIA, el INVU, el Ministerio de Salud, el Benemérito Cuerpo de Bomberos y el ICAA, para realizar las inspecciones que consideren oportunas, en el Cantón de El Guarco; en cualquier momento, durante el proceso constructivo de obras o proyectos, o bien después de finalizado el mismo. Lo anterior con el fin de verificar el cumplimiento de lo estipulado en los planos constructivos, así como de todas las observaciones realizadas por las entidades gubernamentales.

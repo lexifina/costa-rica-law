@@ -1,0 +1,5 @@
+ARTÍCULO 67. Vigencia de la licencia.
+La vigencia de la licencia de construcción se rige de la siguiente forma:
+Toda licencia tendrá una vigencia de un año para iniciar la obra, contado a partir de su otorgamiento; de no iniciarse la obra en dicho plazo se extinguirá la vigencia de la licencia y no se reintegrará el monto de lo pagado por concepto de impuesto de construcción.
+Habiéndose extinguido el plazo de vigencia de la licencia, si el administrado aún desea construir la obra debe solicitar una nueva licencia, para lo cual debe cumplir con todos los procedimientos y requisitos establecidos en este Reglamento. Debe además ajustar la obra, cuantitativa y cualitativamente, a las normativas urbanísticas vigentes a ese momento, no existiendo derecho alguno adquirido o consolidado en su favor.
+Previo al vencimiento de la licencia, el interesado puede solicitar una única prórroga de la misma, actualizando todos sus documentos (incluyendo la póliza, visado del CFIA, documentos institucionales) y valor de la obra, la diferencia asignada deberá ser pagada por el interesado.

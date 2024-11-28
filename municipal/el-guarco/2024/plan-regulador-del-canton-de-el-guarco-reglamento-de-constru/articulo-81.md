@@ -1,0 +1,4 @@
+ARTÍCULO 81. Iluminación.
+Aquellos rótulos que requieran y/o utilicen luz artificial deben instalarse únicamente en lugares que no interfieran con la visibilidad o el funcionamiento de las señalizaciones viales, donde no provoquen deslumbramiento a los conductores y peatones y en sitios cuyo límite de velocidad sea menor a los 60 km/h.
+El tiempo de permanencia de la imagen en la pantalla debe ser de ocho segundos con una transición menor a los 0,1 s. La pantalla debe estar equipada con un sistema de control de atenuación y ajuste automático de la intensidad de la luz de acuerdo a las condiciones naturales. En caso de avería, la pantalla debe tener un mecanismo que congele su contenido.
+En cuanto a la luminancia máxima, se permiten 500 cd/m2 en zonas de tipo comercial, mixto e industrial; de 350 cd/m2 en zonas residenciales y de 300 cd/m2 en las demás zonas indicadas en el Reglamento de Zonificación de la Municipalidad de El Guarco.

@@ -1,0 +1,9 @@
+ARTÍCULO 83. Rótulos en edificaciones con valor de patrimonio histórico arquitectónico o arqueológico.
+Para la colocación de rótulos, toldos, mantas, placas o cualquier otro tipo de signo externo en la(s) fachada(s) de un inmueble de interés histórico arquitectónico, el interesado debe respetar como mínimo las siguientes disposiciones:
+a. Dimensión: La dimensión del objeto o signo externo a colocar en una fachada, debe corresponder proporcionalmente con la dimensión de la fachada donde se instalará, a fin de no entorpecer, ocultar o desmerecer su apreciación arquitectónica.
+b. Ubicación: No será permitida la ubicación de signos externos de ningún tamaño o forma perpendicular a una fachada. Además, no serán permitidos signos externos que oculten buques de puertas, ventanas, balcones o salidas de emergencia.
+c. Materiales: El signo externo a colocar debe respetar y armonizar con los materiales presentes en la fachada en que se instalará, a fin de no competir o desmerecer la integridad y la autenticidad del inmueble.
+d. Contenido: El mensaje o contenido que transmita el signo externo debe respetar la dignidad y carácter especial del inmueble en el que será instalado.
+e. Color: El uso del color debe armonizar con el material, textura y color de la fachada donde se instalará el signo externo, a fin de no competir o desmerecer la apreciación del inmueble.
+f. Instalación: La instalación del signo externo no debe atentar contra la integridad y la autenticidad del inmueble, procurando la utilización de técnicas que no dañen, alteren o deterioren la superficie donde se sujetará el signo.
+Para la colocación de aquellos rótulos con información relativa a: seguridad vial, nomenclatura urbana, información turística, placas conmemorativas y de homenaje; siempre que estos sean oficiales y no contengan un mensaje publicitario particular, deberá solicitarse el visto bueno de la Municipalidad.

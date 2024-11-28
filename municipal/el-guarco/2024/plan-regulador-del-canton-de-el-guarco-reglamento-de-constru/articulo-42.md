@@ -1,0 +1,3 @@
+ARTÍCULO 42. Edificios educativos públicos y privados.
+La construcción de este tipo de edificios debe contar con la aprobación previa del Ministerio de Educación Pública. Lo anterior en concordancia con los planes, programas y demás determinaciones de la Política de Infraestructura Educativa, que emanan del Consejo Superior de Educación.
+Los planos constructivos se deben realizar considerando el Programa de Necesidades de Espacios Arquitectónicos del Ministerio de Educación Pública, además, se debe acatar las disposiciones establecidas en el Reglamento de Requerimientos de Diseño Arquitectónico sobre Edificios para la Educación Pública y Privada en Costa Rica, decreto ejecutivo N°41103-MEP, y sus reformas o normativa que lo sustituya.

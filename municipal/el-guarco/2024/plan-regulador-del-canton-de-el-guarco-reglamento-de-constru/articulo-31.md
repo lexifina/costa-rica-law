@@ -1,0 +1,15 @@
+ARTÍCULO 31. Vivienda de interés social.
+Se aplicará únicamente a los proyectos de vivienda individual o conjuntos residenciales, realizados por el Estado o la iniciativa privada de conformidad con las regulaciones aplicables a la vivienda de interés social. Para estos efectos, deberá seguir los lineamientos estipulados mediante "Las Especificaciones Técnicas y Lineamientos para la Escogencia de Tipologías Arquitectónicas para la Construcción de Viviendas y Obras de Urbanización N°27", su reforma o cualquier normativa que lo sustituya.
+Además, las dimensiones mínimas deberán respetar los siguientes estándares:
+a. Área por vivienda: Cuarenta y dos metros cuadrados (42 m2) y dos dormitorios para núcleos familiares de menos de cinco miembros. Cincuenta metros cuadrados (50 m2) y tres dormitorios para núcleos familiares de cinco o más miembros.
+b. Área por pieza
+b.1. Dormitorios: Un dormitorio debe medir como mínimo siete metros cuadrados y medio (7,50 m²); los demás pueden medir siete metros cuadrados (7,00 m²) de área como mínimo, con un ancho no menor de dos metros y medio (2,50 m).
+b.2. Cocinas: Deben tener cuatro metros cuadrados y medio (4,50 m²) de área y un metro ochenta centímetros (1,80 m) de ancho como mínimo, salvo si se utiliza un espacio integrado a la sala o comedor para preparar o cocer alimentos, caso en que puede ser menor.
+b.3. Sala - comedor: Debe medir diez metros cuadrados (10,00 m2) de área mínima y dos metros y medio (2,50 m) de dimensión menor. Si se proyecta sala y comedor independientes, deben tener una superficie no menor de seis metros cuadrados y medio (6,50 m²) y siete metros cuadrados y medio (7,50 m²) respectivamente.
+b.4. Altura de piso a cielo: La altura mínima de piso a cielo debe ser de dos metros, cuarenta centímetros (2,40 m), siempre que exista cielo raso. Si no existiere y además el material de techo no fuera suficientemente aislante desde el punto de vista térmico, la altura debe aumentarse a un mínimo de dos metros, sesenta centímetros (2,60 m).
+b.5. Cuarto de Pilas: Podrá ser exterior y tendrá un área mínima de dos metros cuadrados (2,00 m2) y un ancho mínimo de un metro cincuenta centímetros (1,50 m).
+b.6 Servicios Sanitarios: Las medidas internas de los sanitarios es de 1,25 m de ancho por 2,10 m de profundidad.
+ARTÍCULO 31.1. Densidades máximas.
+Se aplicarán en todos los casos las densidades habitacionales máximas establecidas en el Reglamento de Zonificación del Plan Regulador de El Guarco y sus reformas, excepto para aquellas obras o proyectos que adopten y apliquen normas de construcción sostenible, en donde se podrá aplicar los incentivos de mayor densidad previstos en el presente reglamento. De igual manera los proyectos que se gestionen como proyectos de "Renovación Urbana" se deben sujetar a las normas establecidas por el Reglamento de Renovación Urbana del Plan Regulador de El Guarco y sus reformas.
+ARTÍCULO 31.2. Características del lote mínimo.
+En todos los casos se debe observar el área mínima y frente mínimo establecido para la zona por el Reglamento de Zonificación del Plan Regulador de El Guarco y sus reformas.

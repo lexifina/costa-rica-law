@@ -1,0 +1,11 @@
+CAPITULO IV: LA LICENCIA DE CONSTRUCCIÓN
+ARTÍCULO 52. De la licencia de construcción.
+Toda obra relacionada con la construcción pública o privada sea de carácter permanente o temporal, debe sujetarse a la obtención previa de la licencia de la Municipalidad, autorizada a través de un profesional responsable, Ingeniero o Arquitecto incorporado al Colegio respectivo. No obstante, lo anterior, los edificios públicos que vayan a ser construidos por el Gobierno de la República, o bien por otras dependencias del Estado, siempre que sean autorizados y vigilados por la Dirección General de Obras Públicas, no requerirán permiso o licencia de construcción de conformidad con el art.75 de la Ley de Construcciones No.833 y sus reformas o normativa que la sustituya. Para la efectiva aplicación de lo anterior, y en atención a la debida comunicación y coordinación de competencias institucionales, los entes de la administración pública deberán notificar al Gobierno Local sobre las obras a realizar, así como indicar el profesional responsable de las mismas.
+Asimismo, están sujetas a licencia las siguientes actuaciones:
+a. Las obras de renovación urbana.
+b. Los movimientos de tierras, salvo que los mismos estén detallados y programados como obras dentro de un proyecto de urbanización o edificación debidamente aprobado o autorizado.
+c. La demolición y excavación.
+d. La colocación de antenas o dispositivos de telecomunicaciones de cualquier clase y la instalación de tendidos eléctricos, telefónicos, redes subterráneas u otros similares. Cuando dicha colocación la haga el ICE, empresas públicas o privadas legalmente constituidas a esos efectos lo que se exige es la adecuada coordinación de conformidad con la ley constitutiva de dicha institución. Para estos casos deberá atenderse la reglamentación correspondiente.
+e. La construcción e instalación de mobiliario urbano sobre el espacio público, de conformidad con lo establecido en el Reglamento de Mapa Oficial del Plan Regulador.
+f. La colocación de rótulos, tapias y vallas publicitarias visibles desde la vía pública.
+Quedan exentas de este artículo aquellas obras que cumplan las características de obra menor indicadas en el Artículo 60 del presente reglamento.

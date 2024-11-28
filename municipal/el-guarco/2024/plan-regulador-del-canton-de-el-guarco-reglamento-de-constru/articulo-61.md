@@ -1,0 +1,9 @@
+ARTÍCULO 61. Otorgamiento de la licencia de construcción y motivos de denegatoria.
+En caso de que el solicitante cumpla con todos los requisitos establecidos en este Reglamento, se le girará el permiso o licencia de construcción, para lo cual la Municipalidad hará inspección o visita de campo con el fin de verificar el cumplimiento de las condiciones de la licencia otorgada, para lo cual también el profesional responsable de la obra podrá dar aviso a la Municipalidad del inicio de esta.
+No obstante, lo anterior, de conformidad con la Ley de Planificación Urbana y sus reformas, y sin perjuicio del cumplimiento de los requisitos propios del trámite de Licencia de Construcción, será motivo de denegatoria:
+a. Cuando el propietario del inmueble se encuentre moroso en el pago de los tributos municipales.
+b. Cuando ellas no guarden conformidad por razones de uso, ubicación, retiros, cobertura, altura o densidad habitacional y demás condiciones de la zonificación.
+c. Si el predio de la edificación se ha originado en fraccionamiento, urbanización o condominio hecho sin el visado de la ley.
+d. Siempre que el interesado tratare de utilizar fundos sin requisitos de urbanización o faltos de acceso adecuado a la vía pública en concordancia con lo establecido en el Reglamento de Fraccionamientos y Urbanizaciones del Plan Regulador del Cantón de El Guarco.
+e. En tanto lo vede alguna limitación impuesta por reserva a uso público o una declaratoria formal de inhabitabilidad del área, motivada en renovación urbana o protección contra inundaciones, derrumbes y otras amenazas evidentes; y
+f. En los demás casos que señala el presente Reglamento o bien en aquellos que se determine por aplicación supletoria de la Ley de Construcciones N°833 y sus reformas, o el Reglamento de Construcciones del INVU.
