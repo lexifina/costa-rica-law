@@ -1,0 +1,3 @@
+SECCIÓN IV: DEL PERMISO DE CONSTRUCCIÓN Y EL PLANO GENERAL.
+ARTÍCULO 26. Licencia o permiso municipal de construcción.
+Todo proyecto de fraccionamiento con fines urbanísticos que requiera la construcción de obras de infraestructura urbana y toda urbanización o conjunto residencial, deberá ser visado por la Dirección de Urbanismo del INVU, previo a la presentación ante la Municipalidad para el trámite de la Licencia municipal o permiso de construcción atendiendo de manera supletoria la normativa establecida en los capítulos III, VI, VII y VIII del Reglamento de Fraccionamiento y urbanizaciones del INVU, sus reformas o normativa que la sustituya.

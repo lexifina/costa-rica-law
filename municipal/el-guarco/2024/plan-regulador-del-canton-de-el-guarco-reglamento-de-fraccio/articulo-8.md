@@ -1,0 +1,3 @@
+ARTÍCULO 8. Caducidad del visado municipal.
+El visado municipal se mantendrá vigente sin plazo específico de caducidad en tanto la situación registral, los linderos, la cabida del lote o cualquier otra característica susceptible de ser modificada se mantengan invariables. En su defecto, toda modificación de cabida o linderos del lote cuyo plano fue visado, que provoque discrepancia entre la información del Registro Nacional de la Propiedad y el plano visado, conllevará por consiguiente al trámite de un nuevo visado municipal.
+Los visados otorgados con anterioridad a la promulgación del presente Reglamento se mantendrán vigentes en tanto se cumpla con la situación descrita en el párrafo anterior.

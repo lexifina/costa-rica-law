@@ -1,0 +1,11 @@
+CAPÍTULO IV: VISADO DE PLANOS DE CASOS ESPECIALES.
+ARTÍCULO 30. Trámite de visado municipal para fraccionamientos de cementerios.
+ARTÍCULO 30.1 Licencia municipal o permiso de construcción.
+Previo a la gestión del visado municipal para planos de agrimensura en un fraccionamiento destinado a cementerio, la construcción del cementerio como tal deberá contar con la respectiva licencia de construcción de parte de la Municipalidad y demás instituciones competentes, atendiendo los requerimientos establecidos por el Reglamento General de Cementerios, Decreto No.32833 y sus reformas, así como lo dispuesto por el Reglamento de Construcciones del Plan Regulador del cantón de El Guarco. Además, las obras deben estar concluidas y contar con el respectivo recibo de obras de parte de la Municipalidad antes de optar por el trámite de visado municipal para los planos del fraccionamiento.
+ARTÍCULO 30.2. Excepción a las dimensiones del lote mínimo según la zonificación.
+Como excepción a las normas del lote mínimo indicado en la Zonificación del Plan Regulador del cantón de El Guarco según la zona donde se ubique el fraccionamiento, el terreno general para un cementerio deberá tener el área mínima señalada por el Reglamento General de Cementerios, Decreto No.32833 y sus reformas, así como cumplir con las condiciones de ubicación señaladas en dicho cuerpo normativo. Además, las dimensiones mínimas de las sepulturas y los pasillos que las separan y permiten la circulación interna dentro del Cementerio, deberán ajustarse en todo a lo requerido por dicho Reglamento.
+ARTÍCULO 30.3. Cesión de áreas públicas.
+Para el caso específico del inciso d-ii) del artículo No.7 de este Reglamento, se aplicará únicamente la obligación de ceder al uso público las respectivas ampliaciones viales según la previsión vial que se establezca según el Reglamento de Mapa Oficial del plan regulador del cantón de El Guarco, o bien la que indique el MOPT en el caso de las rutas de la Red Vial Nacional.
+ARTÍCULO 30.4. Trámite del visado municipal.
+Para aquellos fraccionamientos con destino de cementerios no sujetos al régimen de condominio, el visado municipal se tramitará bajo el procedimiento establecido para fraccionamientos con fines urbanísticos en lo que corresponda.
+<span style='font-family:"Arial",sans-serif; </body>
