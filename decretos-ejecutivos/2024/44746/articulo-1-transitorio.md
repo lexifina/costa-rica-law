@@ -1,0 +1,1 @@
+Transitorio I - A todos los servicios de salud que realizan actividades relacionadas con el manejo de la leche humana pasteurizada en el ambiente hospitalario se les otorga el plazo de un año contado desde la publicación del presente Decreto Ejecutivo, para la elaboración de manuales, protocolos o guías para el cumplimiento de esta Norma.

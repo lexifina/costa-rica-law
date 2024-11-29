@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo Nº 37271-S del 9 de julio del 2011 "Oficialización de "Norma Nacional para Bancos y Centros de Recolección de Leche Humana", publicado en el Alcance N° 135 a La Gaceta N° 182 del 20 de setiembre del 2012.
