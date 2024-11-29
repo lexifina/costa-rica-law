@@ -1,0 +1,1 @@
+Artículo 3.-Eliminatorias. Elimínese el párrafo final de los artículos 49 y 59 del Decreto Ejecutivo N° 43980-MEIC-MAG-TUR del 27 de marzo de 2023, publicado en el Alcance N° 71 del Diario Oficial La Gaceta N° 71 del 25 de abril de 2023, Reglamento a la Ley N° 8634, Ley Sistema de Banca para el Desarrollo.
