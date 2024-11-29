@@ -15,3 +15,4 @@ Reglamento interno de la Compañía Nacional de Danza
 | --- | --- | --- |
 | 1 | 2020-02-19 | la propia norma |
 | 2 | 2022-03-22 | Reglamento 0 (2022-03-22) |
+| 3 | 2024-11-29 | Reglamento 27 (2024-11-29) |

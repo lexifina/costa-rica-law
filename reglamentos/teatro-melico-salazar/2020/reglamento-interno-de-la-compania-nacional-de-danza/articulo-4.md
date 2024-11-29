@@ -16,3 +16,5 @@ n. Participar en el grupo evaluador del personal artístico y técnico.
 o. Coordinar las actividades que se realicen en el Teatro de la Danza, como las Coproducciones, además de los Programa de Fomento: Préstamo de Salón, de Contacto Independiente, así como del Fondo Concursable que se establezca.
 p. Cualquier otra labor compatible con su cargo que le sea encomendada por la Junta Directiva del Teatro Popular Melico Salazar o por la Dirección Ejecutiva.
 (Así adicionado mediante publicación en La Gaceta N° 55 del 22 de marzo del 2022)
+q. Participar artísticamente como parte del elenco de la Compañía, cuando el proyecto coreográfico a desarrollar así lo amerite; siempre y cuando esto no vaya a demérito de las funciones administrativas y de supervisión que le corresponden.
+(Así adicionado el inciso anterior mediante sesión extraordinaria N° 027-2024 del 29 de noviembre del 2024)
