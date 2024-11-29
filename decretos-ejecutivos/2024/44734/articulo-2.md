@@ -1,0 +1,1 @@
+Artículo 2º-Responsables de la aplicación. Es responsabilidad del jerarca y de los titulares subordinados establecer, mantener, perfeccionar y evaluar las medidas de ejecución y de control que sean necesarias para el cumplimiento de este Código.

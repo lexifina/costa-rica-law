@@ -1,0 +1,8 @@
+CAPÍTULO II
+Principios éticos
+Artículo 5º-Principios éticos fundamentales. Se definen como principios éticos fundamentales los siguientes:
+a) Integridad. El funcionario deberá mantener incólume su integridad moral en el ejercicio de sus funciones, actuando con rectitud, probidad, neutralidad, honestidad, dignidad y sinceridad en toda circunstancia, siempre prevaleciendo el interés público.
+b) Objetividad. La objetividad representa imparcialidad, desinterés y actuación sin prejuicios en todos los asuntos que corresponden en el ejercicio de sus funciones.
+c) Independencia. El funcionario deberá tener y demostrar absoluta independencia de criterio con respecto a toda asignación que pudiera considerarse incompatible con los principios de integridad y objetividad, junto a los cuales la independencia de criterio es esencial.
+d) Probidad. Conducta intachable en el desempeño honesto en que se debe de ejercer la función pública, haciendo prevalecer el interés público sobre el particular. De ahí que contenga principios y valores como la integridad, independencia y objetividad, buscando con ello la prevención de un eventual conflicto de intereses, absteniéndose de actuaciones que vayan contra la ley, la normativa vigente, reputación e integridad institucional.
+e) Rendición de cuentas. Obligación de los servidores del ministerio de informar y explicar los avances y los resultados de su gestión, de conformidad con el artículo 1 1 Constitucional, actuando con lealtad en sujeción al principio de jerarquía y por ende comunicar al superior inmediato cualquier irregularidad detectada en el ejercicio de las funciones.

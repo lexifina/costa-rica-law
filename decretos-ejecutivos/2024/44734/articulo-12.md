@@ -1,0 +1,1 @@
+Artículo 12.-Acumulación de cargos. El funcionario que desempeñe un cargo en el ministerio no debe ejercer otro cargo remunerado en el ámbito nacional, provincial o local, sin perjuicio de las excepciones que establezcan y regulen los regímenes especiales.
