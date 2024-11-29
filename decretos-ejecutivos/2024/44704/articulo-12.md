@@ -1,0 +1,7 @@
+Capítulo VIII
+De las sanciones
+Artículo 12. Sanciones: Todo incumplimiento a las disposiciones de este Reglamento debidamente comprobado por el Departamento respectivo, se seguirá el procedimiento, sumario establecido en el artículo 320 de la Ley General de la Administración Pública.
+El Jefe encargado de las colecciones lo elevará a la Junta Administrativa quienes tomarán el acuerdo de aplicar las sanciones correspondientes según la naturaleza de la falta sin perjuicio de las acciones civiles o penales que correspondan:
+a.. El usuario que promueva el desorden en las áreas de consulta o que le falte el respeto al personal del Museo, se le suspenderán todos los servicios por un periodo de un mes. En caso de reincidencia la suspensión del servicio será hasta por un año.
+b. El usuario que sustraiga o cause daños a los equipos, mobiliario o instalaciones deberá pagar el daño causado y será suspendido por un año. En caso de reincidencia la suspensión será hasta por cinco años. No obstante, hasta que la persona no haya cancelado el valor total de la reparación o sustitución del bien dañado no se le otorgarán nuevos préstamos.
+c. El usuario que sustraiga o destruya algún bien patrimonial, se le suspenderán todos los servicios hasta por ocho años, así mismo tendrá la obligación de pagar el daño causado. No obstante, hasta que la persona no haya cancelado el valor total de daño causado no se le otorgarán nuevos préstamos.

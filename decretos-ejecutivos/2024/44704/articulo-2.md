@@ -1,0 +1,1 @@
+Artículo 2. Alcance: El presente Reglamento establece las normas de funcionamiento del Museo Nacional de Costa Rica y será de observancia obligatoria para toda persona que requiera hacer uso de los servicios que brinda la institución para el acceso a las colecciones que esta alberga.
