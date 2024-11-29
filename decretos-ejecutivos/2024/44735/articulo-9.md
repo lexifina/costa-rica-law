@@ -1,0 +1,7 @@
+Artículo 9º.- Otros requerimientos. Se solicitará a las personas usuarias lo siguiente:
+a) Un lugar con buena iluminación, aislado de ruidos, distractores y donde se asegure la confidencialidad durante el desarrollo de la audiencia de conciliación.
+b) Al inicio de la audiencia, las partes usuarias deberán mantener apagado su micrófono para evitar ruidos del ambiente.
+c) Cuando una persona usuaria requiera la palabra durante la audiencia, deberá en primer lugar levantar la mano en el sistema con la herramienta de Google Meet diseñada para el efecto y esperar a ser autorizado por la persona funcionaria de la URAC y de esa manera habilitar de nuevo su micrófono.
+d) Se prohíbe el uso de filtros.
+e) Si durante la audiencia de conciliación, alguna de las personas usuarias sufre en la zona donde se encuentre, de un corte de electricidad, internet, o algún inconveniente por caso fortuito o fuerza mayor, debe de comunicarlo de manera telefónica a la persona funcionaria de la URAC que conoce de la audiencia e informar si puede conectarse vía teléfono celular u otro dispositivo, mientras se soluciona el inconveniente que haya sufrido. Igualmente, la persona funcionaria de la URAC podrá, dependiendo de la situación, suspender la audiencia por un tiempo prudencial de 15 minutos, quedando a criterio de la persona funcionaria de la URAC si reanuda o reprograma la audiencia.
+No será requisito que las partes y sus abogados se encuentren en el mismo lugar, pues podrán comunicarse de forma independiente, siempre y cuando no se afecte el desarrollo de la audiencia.

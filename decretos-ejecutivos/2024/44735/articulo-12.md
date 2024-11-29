@@ -1,0 +1,2 @@
+Artículo 12º.- Verificación de la no asistencia de ninguna de las partes. Con respecto a la forma de redactar el acta y proceder durante esta etapa del proceso, debe estarse a lo indicado en el "Procedimiento para la conciliación laboral individual", Cod: PSRAC.l l.2-P02, del 30 de abril del 2014", publicado en la página del MISS.
+La persona conciliadora o árbitro, deberá de notificar el acta de desistimiento a todas las partes involucradas en el proceso y dejar constancia de la notificación en el expediente.

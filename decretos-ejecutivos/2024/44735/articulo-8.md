@@ -1,0 +1,3 @@
+Artículo 8° .- Requerimientos técnicos. Para el servicio de conciliación virtual se deberá contar con equipo de cómputo u otros dispositivos móviles, esto incluye computadora de escritorio o equipo portátil, tableta o cualquier otro dispositivo, todos con acceso a internet con una conexión óptima, con cámara web, micrófono y los controladores (drivers) de la firma digital debidamente instalados.
+De igual forma en su equipo tecnológico deberá la persona usuaria tener acceso a la plataforma tecnológica que se utilizará para este efecto, así como un correo electrónico personal.
+En el caso de las personas usuarias que participen en la audiencia de manera virtual deberán contar necesariamente con la firma digital certificada vigente, así como su respectivo lector de firma.
