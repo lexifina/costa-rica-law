@@ -1,0 +1,1 @@
+Artículo 26. Deróguense el Decreto N° 13924-E, Reglamento de Cooperativas Juveniles del 23 de julio de 1982 y Decreto N°33059 denominado Reglamento de Cooperativas Escolares y Juveniles del 18 de abril de 2006.

@@ -1,0 +1,1 @@
+Artículo 5. Cantidad de Asociados. No podrá constituirse con un número menor de asociados conforme a la ley N°4179, los cuales el setenta y cinco por ciento del total debe estar compuesto por estudiantes y el veinticinco por ciento restantes establecidos por estatuto.

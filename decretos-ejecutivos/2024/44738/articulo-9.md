@@ -1,0 +1,1 @@
+Artículo 9. Personería Jurídica. El Departamento de Gestión de Empresas y Educación Cooperativa (DGEEC)del Ministerio de Educación Pública será el responsable de emitir la obtención de la personería jurídica de la cooperativa escolar o juvenil.
