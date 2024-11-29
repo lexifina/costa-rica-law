@@ -18,3 +18,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | 3 | 2022-01-07 | Resolución 1 (2022-01-07) |
 | 4 | 2022-11-18 | Resolución 11 (2022-11-18) |
 | 5 | 2023-11-29 | Resolución 10 (2023-11-29) |
+| 6 | 2024-11-29 | Resolución 306 (2024-11-29) |
