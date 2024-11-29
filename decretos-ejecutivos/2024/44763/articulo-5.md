@@ -1,0 +1,1 @@
+Artículo 5° - La credencial deberá ser entregada preferentemente mediante mecanismos tecnológicos, y solo podrá entregarse de forma física en las Unidades Locales de Desarrollo Social del IMAS, cuando la persona solicitante tenga dificultades para hacer uso de las tecnologías de información y comunicación, conforme lo indique la persona solicitante.
