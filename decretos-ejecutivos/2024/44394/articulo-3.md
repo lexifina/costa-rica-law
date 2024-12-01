@@ -1,0 +1,1 @@
+Artículo 3 ° . De la oficialización. La oficialización del personal se realizará por el SENASA conforme a la normativa que regula la oficialización de personas por dicho órgano. El personal que se oficialice deberá ser contratado mediante los entes contratantes a los que el SENASA les haya otorgado dicha condición.

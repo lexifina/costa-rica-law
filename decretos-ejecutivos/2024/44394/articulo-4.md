@@ -1,0 +1,1 @@
+Artículo 4 ° . - Supervisión de establecimientos. El SENASA conforme a su ámbito de competencia implementará inspecciones en los establecimientos de sacrificio y los señalados en el ANEXO A, bajo un modelo de inspección basado en riesgo, asimismo, implementará las medidas que considere necesarias para disminuir el riesgo a la inocuidad de los alimentos.

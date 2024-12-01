@@ -1,0 +1,1 @@
+Artículo 7º.-Derogatoria. Deróguese los artículos 100, 102, 103, 104 y 106, incisos a) y c) del Decreto Ejecutivo Nº 19184- MAG del 10 de julio de 1989, Reglamento a la Ley Orgánica del Colegio de Médicos Veterinarios, publicado en el Diario Oficial La Gaceta Nº 179 del 21 de septiembre de 1989.

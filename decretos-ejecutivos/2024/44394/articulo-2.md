@@ -1,0 +1,3 @@
+Artículo 2º . Inspectores de inocuidad. Los inspectores de inocuidad, entendidos como aquellos trabajadores capacitados que bajo la dirección de un médico veterinario oficial u oficializado ejecuta labores de inspección y control de la inocuidad de alimentos de origen animal, durante los procesos y actividades de producción, en un establecimiento, deberán permanecer bajo la tutela y disposición exclusiva del médico veterinario oficial u oficializado mientras se estén realizando dichas labores.
+Únicamente en aquellos casos en los que los socios comerciales lo requieran, el SENASA implementará inspectores de inocuidad oficiales u oficializados en dichos establecimientos.
+Se podrá oficializar inspectores de inocuidad cuando así sea requerido por el establecimiento.
