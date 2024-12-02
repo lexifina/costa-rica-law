@@ -1,0 +1,1 @@
+ARTÍCULO 2- Destino de los terrenos. El terreno donado por el Ministerio de Obras Públicas y Transportes a la Municipalidad de Grecia será destinado a la satisfacción de los servicios e intereses locales que la Municipalidad estime convenientes.
