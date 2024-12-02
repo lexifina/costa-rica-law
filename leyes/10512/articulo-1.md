@@ -1,0 +1,12 @@
+N° 10512
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+INCENTIVOS PARA LA FORMALIZACIÓN Y EL DESARROLLO
+DE LAS MIPYMES EN COSTA RICA
+ARTÍCULO 1- Régimen simplificado. Se reforman los artículos 35 y 40 de la Ley 6826, Ley del Impuesto sobre el Valor Agregado, de 8 de noviembre de 1982. Los textos son los siguientes:
+Artículo 35- Régimen simplificado. Sobre este impuesto, la Administración Tributaria podrá establecer regímenes de tributación simplificada de acceso voluntario, cuando con ellos se facilite el control y el cumplimiento tributario de los contribuyentes.
+En el caso del sector agropecuario, el régimen que se constituya regulará los requisitos para su acceso, la forma de calcular el impuesto a pagar, la periodicidad con que se debe declarar y pagar el impuesto, los registros que deberán llevarse y demás pormenores necesarios para su implementación sencilla y eficaz.
+Los productores del sector agropecuario acogidos a este régimen no estarán obligados a emitir facturas por las ventas de bienes y la prestación de servicios que realicen .
+En el caso de microempresas definidas por la Ley 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002 y su reglamento, podrán acogerse al Régimen de Tributación Simplificada las microempresas con no más de cinco empleados, de cualquier actividad económica, que se encuentren debidamente registradas y en condición activa ante el registro del Sistema de Información Empresarial Costarricense (SIEC) del Ministerio de Economía, Industria y Comercio o en el Ministerio de Agricultura y Ganadería en el Registro Pympa (Pequeño y mediano agricultor agropecuario) o en cualquiera de sus dependencias.
+De lo recaudado anualmente por el aporte de estas microempresas que se acojan a este régimen, se destinará el uno por ciento (1 %) al Ministerio de Economía, Industria y Comercio, para fortalecer la plataforma tecnológica del Sistema de Información Empresarial Costarricense (SIEC).
+Artículo 40- Emisión de factura. Los contribuyentes acogidos a estos regímenes, con excepción de las microempresas registradas en el SIEC, no estarán obligados a emitir facturas por las ventas de bienes y la prestación de servicios que realicen en los casos previstos por la Administración Tributaria, pero sí a solicitarlas a sus proveedores. No obstante, deberán emitir comprobantes, cuando así lo solicite el comprador.
