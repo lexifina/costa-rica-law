@@ -1,6 +1,6 @@
 # Ley del Impuesto sobre la Renta
 
-Ley N° 7092 del 1988-04-21. SINALEVI, ficha 10969: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10969&param2=140663&param3=1>.
+Ley N° 7092 del 1988-04-21. SINALEVI, ficha 10969: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10969&param2=143567&param3=1>.
 
 Publicada en La Gaceta N° 96 del 1988-05-19.
 
@@ -82,3 +82,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 74 de 83 | 2024-01-01 | Ley 10392 | 2023-11-14 |
 | 75 de 83 | 2024-01-01 | Decreto Ejecutivo 44276 (2023-11-15) | 2023-11-15 |
 | 76 de 83 | 2024-05-07 | Ley 10469 | 2024-04-19 |
+| 77 de 83 | 2024-12-02 | Ley 10512 | 2024-09-04 |
