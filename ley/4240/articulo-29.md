@@ -1,4 +1,2 @@
-Artículo 29.- Sin el certificado de uso correspondiente, no se
-concederán patentes para establecimiento comerciales o industriales. En
-caso de contravención, se procederá a la clausura del local, sin
-perjuicio de la responsabilidad penal en que se incurra.
+Artículo 29- Sin el certificado de uso correspondiente, no se concederán patentes para establecimientos comerciales o industriales. En caso de contravención, se procederá a la clausura del local, sin perjuicio de la responsabilidad penal en que se incurra. Se exceptúa lo establecido en el párrafo final del artículo 88 de la Ley 7794, Código Municipal, de 30 de abril de 1998. Esta excepción no incluye la comercialización de bebidas con contenido alcohólico regulada en la Ley 9047, Regulación y Comercialización de Bebidas con Contenido Alcohólico, de 25 de junio de 2012.
+(Así reformado por el artículo 2° de la ley N° 10594 del 5 de noviembre de 2024)
