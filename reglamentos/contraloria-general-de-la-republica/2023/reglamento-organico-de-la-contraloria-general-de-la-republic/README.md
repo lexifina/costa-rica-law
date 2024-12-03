@@ -15,3 +15,4 @@ Reglamento orgánico de la Contraloría General de la República
 | --- | --- | --- |
 | 1 | 2023-12-06 | la propia norma |
 | 2 | 2024-02-26 | Resolución 24 (2024-02-26) |
+| 3 | 2024-12-03 | Resolución 127 (2024-12-03) |
