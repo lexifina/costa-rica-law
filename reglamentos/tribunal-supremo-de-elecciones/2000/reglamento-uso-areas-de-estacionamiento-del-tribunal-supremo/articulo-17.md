@@ -1,2 +1,0 @@
-Artículo 17.—El vigilante deberá velar porque los usuarios del parqueo respeten los espacios señalados para tal fin, debiendo reportar ante la Oficina de Seguridad Integral a aquellos que incumplan la presente disposición. Si el vehículo fuere estacionado indebidamente obstaculizando la vía de acceso, será retirado sin previa comunicación, haciendo uso del servicio de grúa particular y el permiso será revocado.
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 04-2012 del 17 de abril del 2012)

@@ -1,2 +1,0 @@
-Artículo 2º—El área de estacionamiento es para uso de los vehículos oficiales del Tribunal; sin embargo este, dentro de sus posibilidades y a través de la Oficina de Seguridad Integral, podrá conceder permiso de uso tanto a sus funcionarios como a los visitantes, previamente autorizados. Para ello, dicha oficina aplicará los criterios de asignación de lugares que contempla el artículo 10 de este reglamento.
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 04-2012 del 17 de abril del 2012)
