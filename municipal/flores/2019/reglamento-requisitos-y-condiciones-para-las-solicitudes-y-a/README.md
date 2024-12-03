@@ -14,3 +14,4 @@ Reglamento requisitos y condiciones para las solicitudes y adjudicaciones de arr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-12 | la propia norma |
+| 2 | 2024-12-03 | Reglamento municipal 46 (2024-12-03) |
