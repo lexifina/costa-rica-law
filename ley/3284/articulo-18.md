@@ -9,14 +9,12 @@ Artículo 18.- La escritura constitutiva de toda sociedad mercantil deberá cont
 8) Monto del capital social y forma y plazo en que deba pagarse;
 9) Expresión del aporte de cada socio en dinero, en bienes o en otros valores. Cuando se aporten valores que no sean dinero, deberá dárseles y consignarse la estimación correspondiente. Si por culpa o dolo se fijare un avalúo superior al verdadero, los socios responderán solidariamente en favor de terceros por el exceso de valor asignado y por los daños y perjuicios que resultaren.
 Igual responsabilidad cabrá a los socios por cuya culpa o dolo no se hicieren reales las aportaciones consignadas como hechas en efectivo;
-10) Domicilio de la sociedad: deberá ser una dirección actual y cierta dentro del territorio costarricense, en la que podrán entregarse válidamente notificaciones.
-(Así reformado el inciso anterior por el artículo 1 de la ley N°7413 del 3 de junio de 1994)
+10) Domicilio de la sociedad: deberá ser una dirección actual y cierta dentro del territorio nacional, en la que podrán entregarse válidamente notificaciones. Adicionalmente, se deberá consignar una dirección electrónica a través de una cuenta de correo que garantice el recibido de la notificación en curso para recibir las notificaciones de las autoridades administrativas y jurisdiccionales.
+(Así reformado el inciso anterior por el artículo 1° de la Ley para establecer el correo electrónico como medio de notificación para las sociedades mercantiles, N° 10597 del 5 de noviembre de 2024)
 11) Forma de administración y facultades de los administradores;
 12) Nombramiento de los administradores, con indicación de los que hayan de tener la representación de la sociedad con su aceptación, si fuere del caso;
-13) Nombramiento de un agente residente que cumpla con los siguientes requisitos: ser abogado, tener oficina abierta en el territorio nacional, poseer facultades suficientes para atender notificaciones judiciales y administrativas en nombre de la sociedad, cuando ninguno de sus representantes tenga su domicilio en el país.
-El Registro no inscribirá ningún documento relativo a la sociedad, si en los casos en que sea necesario, el nombramiento no se encuentre vigente.
+13) (Derogado por el artículo 4° de la Ley para establecer el correo electrónico como medio de notificación para las sociedades mercantiles, N° 10597 del 5 de noviembre de 2024)
 (Así adicionado el inciso 13) anterior por el artículo 8º de la ley que aprobó la Ley Reguladora del Mercado de Valores, Nº 7201 del 10 de octubre de 1990)
-(Así reformado el inciso anterior por el artículo 1 de la ley N° 7413 del 3 de junio de 1994)
 14) Modo de elaborar los balances y de distribuir las utilidades o pérdidas entre los socios;
 (Así corrida la numeración del inciso anterior por el artículo 8º de la ley que aprobó la Ley Reguladora del Mercado de Valores, Nº 7201 del 10 de octubre de 1990, que lo traspasó del antiguo inciso 13 al 14 actual)
 15) Estipulaciones sobre la reserva legal, cuando proceda;
