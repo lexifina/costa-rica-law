@@ -1,9 +1,9 @@
-Artículo 10. Transacciones entre Fondos.
-En el caso de las transacciones entre fondos de inversión administrados por BCR SAFI se deberá cumplir con los siguientes requisitos.
-1. Dividir a los miembros de comité en proporciones similares para el conocimiento de los temas, incluyendo tanto a los miembros internos del conglomerado como miembros externos del mismo, de forma tal que las diferentes operaciones contrapuestas sean conocidas y resueltas por separado.
-2. Se debe contar un criterio de la Jefatura de Riesgo y Control Normativo sobre el posible conflicto de interés de la transacción entre los fondos en mención.
-3. Debe revelarse explícitamente que se trata de una transacción entre fondos de inversión administrados por BCR SAFI.
-4. Realizar valoraciones externas para garantizar precios de mercado.
-5. Apegarse a la Políticas sobre conflictos de interés de BCR SAFI S.A.
-6. Si un miembro del comité de inversiones de BCR SAFI S.A. participó de las etapas de análisis y promoción de proyectos a lo interno de BCR SAFI S.A., deberá abstenerse de participar en las sesiones donde se conozca dicho proyecto, debiendo revelar esto al comité y dejarlo asentado en las actas respectivas.
-7. Se debe dejar plasmado en las actas la valoración que permita demostrar que las decisiones hayan sido tomadas en beneficio de los inversionistas y con el debido cuidado según las condiciones particulares de cada transacción entre fondos de inversión administrados por BCR SAFI S.A.
+Artículo 10.—De los Acuerdos. Los acuerdos se tomarán mediante votación y serán considerados aprobados mediante la mitad más uno de los miembros presentes o por mayoría absoluta de los miembros presentes al momento de la decisión; es requisito que para la toma de acuerdos se tenga en cuenta al menos lo siguiente:
+1. Que se tuvo a disposición toda la información suficiente, competente y razonablemente necesaria para una correcta decisión.
+2. Que para tomar un acuerdo o para llegar a una decisión concreta, se haya seguido la normativa y las regulaciones internas aplicables.
+3. Que en cada decisión concreta se gestionaron adecuadamente los conflictos de interés identificados.
+4. Que la decisión tomada es razonable y constituye la opción más favorable a los intereses de los inversionistas, según lo establecido en la normativa que regula el mercado de valores de Costa Rica.
+En caso de empate en la votación, la persona que preside el Comité tendrá doble voto.
+Los votos en contra o abstenciones deberán constar con el debido razonamiento en el acta respectiva, salvando eventuales responsabilidades únicamente quienes hubiesen votado en contra.
+El o los miembros del Comité que hayan votado a favor podrán también justificar su decisión cuando lo consideren pertinente.
+Se debe tener presente que el artículo 28 del Acuerdo Sugeval 8-09, Reglamento General sobre Sociedades Administradoras y Fondos de Inversión (RESOFO) dispone que la información del libro de actas de este Comité únicamente es de acceso de los inversionistas del fondo de inversión, por lo tanto, lo que se plasme en dichas actas debe permitir que sus posibles lectores entiendan las circunstancias en las que la administración debe tomar decisiones complejas, que pueden ser positivas o negativas en el desempeño de los fondos de inversión administrados, lo anterior de conformidad con el artículo 14 del SGV-A-170, Disposiciones Operativas de las Sociedades Administradoras de Fondos de Inversión.

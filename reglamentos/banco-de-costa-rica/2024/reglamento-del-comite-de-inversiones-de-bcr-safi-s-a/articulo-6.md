@@ -1,17 +1,16 @@
-Capítulo III De las reuniones, votaciones y acuerdos
-Artículo 6. De las reuniones
-A la convocatoria para reunión ordinaria o extraordinaria se acompañará copia del orden del día salvo casos de urgencia. Quedará válidamente constituido e integrado el órgano colegiado, sin cumplir los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad, indicándose en ese mismo acto que se prescinde de dicho trámite; lo cual se hará constar en el acta que todos los miembros deberán firmar.
-Las reuniones ordinarias del comité de inversiones se realizarán al menos bimensualmente, en la hora y fecha que determine el Comité, salvo que se requiera antes, por razones de oportunidad y a solicitud del presidente o quien lo sustituya.
-Para reunirse en sesión ordinaria habrá una convocatoria formal enviada por la secretaría.
-El comité podrá ser convocado para reunión extraordinaria por cualquiera de los miembros que conforman el Comité de Inversiones, por el gerente; o bien, por el gestor de portafolios, en cualquier momento.
-Se convocará a reunión extraordinaria cuando existan temas muy calificados o específicos que requieren con urgencia ser conocidos y resueltos por el Comité o bien cuando no se alcance a ver todos los temas de la agenda de la sesión anterior.
-Cuando se convoque a reunión ordinaria o extraordinaria se debe cumplir las siguientes formalidades:
-i) Se hará de manera escrita, o electrónica con una antelación mínima de
-veinticuatro horas.
-ii) Se indicará el lugar y hora de celebración,
-iii) Se elaborará una agenda que se distribuirá entre los miembros; y
-iv) Se adjuntarán los documentos de respaldo de los temas que serán vistos.
-Asistencia virtual
-Se podrá asistir a las reuniones de manera virtual. Para tales efectos, con el propósito de cumplir los principios de colegialidad, simultaneidad y deliberación necesarias para la formación de la voluntad del Comité, se deberán cumplir los siguientes aspectos:
-. La reunión podrá ser llevada a cabo mediante videoconferencia y debe permitir una comunicación integral, simultánea, que comprenda video, audio y datos, de manera que los asistentes se puedan comunicar verbal y visualmente.
-. Quien asista de manera virtual deberá estar presente durante la celebración de la sesión completa, por lo que deberán respetarse aspectos de superposición horaria.
+Artículo 6º—De las funciones del Comité de Inversiones. Los miembros del Comité deberán actuar con total imparcialidad y objetividad en la valoración de opciones y la toma de decisiones de inversión.
+Además de las funciones generales que se indican en el artículo 28 del Acuerdo Sugeval 8-09, Reglamento General sobre Sociedades Administradoras y Fondos de Inversión (RESOFO), que son: definir las directrices generales de inversión del fondo, aprobar la definición del modelo de negocio para gestionar los activos financieros que se utilizará para sus registros contables, supervisar la labor del gestor del portafolio, evaluar si las recomendaciones de la unidad de gestión integral de riesgos son acogidas, en caso contrario evaluar las justificaciones respectivas, y velar por el desempeño adecuado del portafolio. El Comité de Inversiones tendrá las siguientes funciones:
+1. Procurar que las inversiones de los fondos financieros y no financieros tengan la mayor rentabilidad posible, dentro de las condiciones de mercado, manteniendo un balance adecuado entre apetito, seguridad, liquidez, rentabilidad y riesgo.
+2. Velar que se cumpla lo establecido en las Políticas para el Manejo de las Inversiones de los Fondos de Inversión administrados por BCR Sociedad Administradora de Fondos de Inversión S.A. y demás normativa aplicable, tanto la emitida internamente como la emitida por los órganos reguladores externos, así como lo señalado en el prospecto de cada fondo de inversión, respetando en todo momento el principio de imparcialidad, sin anteponer los intereses propios a los de los inversionistas de los fondos administrados por BCR Sociedad Administradora de Fondos de Inversión S.A., y atendiendo siempre el beneficio de éstos.
+3. Aprobar los parámetros dentro de los cuales se realizarán las inversiones de los diferentes fondos administrados sean éstos los financieros como los no financieros.
+4. Solicitar rendición de cuentas sobre la labor del gestor o de los gestores de portafolios.
+5. Evaluar la implementación de las recomendaciones emitidas por Sugeval, Auditores Externos, Auditoría Interna y la Jefatura de Riesgo y Control Normativo de BCR SAFI S.A., siempre que estén relacionadas con las funciones de este Comité o en materia de control interno o inversiones de la Sociedad o de los fondos de inversión administrados.
+6. Recomendar a la Junta Directiva de BCR SAFI S.A. las directrices generales propuestas por el gestor y o gestores de portafolios, sobre inversión de los fondos, a saber: tipo de fondo, políticas de inversión y riesgos del fondo.
+7. Recomendar a la Junta Directiva de BCR SAFI S.A. la aprobación de las políticas de inversión de los fondos de inversión, de conformidad con lo establecido en el prospecto de inversión de cada uno de los fondos de inversión.
+8. Aprobar o rechazar la adquisición y venta de inmuebles para los fondos inmobiliarios, en ambos casos deberá dejar evidencia de las razones por las cuales aprueba o rechaza, e informar a la Junta Directiva sobre lo resuelto, previo a su ejecución.
+9. Aprobar o rechazar la adquisición y venta de inmuebles para los fondos de inversión de desarrollo de proyectos, e informar a la Junta Directiva sobre lo resuelto, previo a su ejecución.
+10. Remitir de forma bimensual a la Junta Directiva de BCR SAFI S.A. un informe de sus acuerdos.
+11. Aprobar los asuntos que sean sometidos a su conocimiento y de los cuales sean competentes para resolución de conformidad con las atribuciones estipuladas en los diferentes reglamentos internos de BCR SAFI S.A. o de su Conglomerado o de los que emanen de órganos externos.
+12. Designar cuando corresponda, la información conocida y acuerdos tomados como de carácter confidencial o privilegiado estableciendo a su vez un plazo de vigencia para esa designación tomando en cuenta para ello, aspectos tales, pero sin limitarse a existencia y vigencia de un contrato, existencia de condiciones de información privilegiada o revelación en el mercado de la información asociada.
+13. Cualquiera otra facultad establecida en las leyes y reglamentos que se le atribuyan, y que sea compatible con la naturaleza técnica del Comité, será de su competencia.
+14. Los miembros del Comité de Inversiones deben establecer parámetros que servirán como criterios para las visitas a los activos que formarán parte de los fondos.

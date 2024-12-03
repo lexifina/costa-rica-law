@@ -1,3 +1,2 @@
-Artículo 13. Secretaría
-El comité designara a una persona de apoyo para el control de agendas, elaboración de actas y seguimiento de pendientes en cada una de las sesiones del mismo.
-Esta persona documentará en el acta la asistencia de cada reunión del comité que le corresponde y deberá guardar estricta confidencialidad sobre los temas que se comenten.
+Artículo 13.—Seguimiento de acuerdos y pendientes. El Comité contará con una persona responsable de brindar seguimiento a los acuerdos tomados en cada una de las reuniones, para que se lleve a cabo esa labor.
+Esta persona bimensualmente debe brindar un informe detallado al Comité de Inversiones, sobre el seguimiento realizado y sus resultados obtenidos.

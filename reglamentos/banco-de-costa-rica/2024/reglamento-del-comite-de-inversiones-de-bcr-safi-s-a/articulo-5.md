@@ -1,15 +1,3 @@
-Artículo 5. De las funciones del Comité de Inversiones
-Los miembros del Comité deberán actuar con total imparcialidad y objetividad en la valoración de opciones y la toma de decisiones de inversión y tendrá las siguientes funciones:
-1. Procurar que las inversiones de los fondos financieros y no financieros tengan la mayor rentabilidad posible, dentro de las condiciones de mercado, manteniendo un balance adecuado entre apetito, seguridad, liquidez, rentabilidad y riesgo.
-2. Velar que se cumpla lo establecido en las Políticas para el Manejo de las Inversiones de los Fondos de Inversión Administrados por BCR Sociedad Administradora de Fondos de Inversión S.A. y demás normativa aplicable, tanto la emitida internamente como la emitida por los órganos reguladores externos, así como lo señalado en el prospecto de cada fondo de inversión, respetando en todo momento el principio de imparcialidad, sin anteponer los intereses propios a los de sus clientes, y atendiendo el beneficio de éstos.
-3. Emitir los parámetros dentro de los cuales se realizarán las inversiones de los diferentes fondos administrados sean éstos los financieros como los no financieros.
-4. Supervisar la labor del gestor o de los gestores de portafolios.
-5. Evaluar la implementación de las recomendaciones emitidas por Sugeval, Auditores Externos, Auditoría Interna y la Jefatura de Riesgo y Control Normativo de BCR SAFI S.A., siempre que estén relacionadas con las funciones de este comité o en materia de control interno o inversiones de la Sociedad o los Fondos de Inversión administrados.
-6. Definir las directrices generales de inversión de los fondos a saber: tipo de fondo, políticas de inversión y riesgos del fondo.
-7. Recomendar a la Junta Directiva de BCR SAFI S.A. la aprobación de las políticas de inversión de los Fondos de Inversión, de conformidad con lo establecido por la Superintendencia.
-8. Aprobar o improbar la adquisición y venta de inmuebles para los fondos inmobiliarios, e informar a Junta Directiva sobre lo resuelto, previo a su ejecución.
-9. Aprobar o improbar la adquisición y venta de inmuebles para los fondos de inversión de desarrollo de proyectos, e informar a Junta Directiva sobre lo resuelto, previo a su ejecución.
-10. Remitir una vez al mes a la Junta Directiva de BCR SAFI S.A. un informe de sus acuerdos.
-11. Aprobar los asuntos que sean sometidos a su conocimiento para resolución de conformidad con las atribuciones estipuladas en los diferentes Reglamentos Internos de BCR SAFI S.A. o que emanen de órganos externos.
-12. Designar cuando corresponda, la información conocida y acuerdos tomados como de carácter confidencial o privilegiado estableciendo a su vez un plazo de vigencia para esa designación tomando en cuenta para ello, aspectos tales, pero sin limitarse a existencia y vigencia de un contrato, existencia de condiciones de información privilegiada o revelación en el mercado de la información asociada.
-13. Cualquiera otra facultad establecida en las leyes y reglamentos que se le atribuyan, y que sea compatible con la naturaleza técnica del Comité, será de su competencia.
+CAPÍTULO II
+Funcionamiento del comité
+Artículo 5º—Del funcionamiento. El funcionamiento de este órgano colegiado se regirá por las disposiciones de los artículos 49 y siguientes de la Ley General de la Administración Pública, y los artículos 28 y 28 bis y concordantes del Acuerdo Sugeval 8-09, Reglamento General sobre Sociedades Administradoras y Fondos de Inversión (RESOFO).
