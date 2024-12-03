@@ -1,2 +1,1 @@
-Artículo 245.- Se usará papel de oficio con reintegro de veinticinco colones (¢ 25,00) en timbre fiscal en los casos previstos en los incisos 1) y 2) del artículo 240, cuando el valor del negocio pase de setenta y cinco mil colones (¢ 75.000,00) y no exceda de cien mil colones (¢100.000,00).
-(Así reformado por el artículo 47 de la Ley Nº 6955 de 24 de febrero de 1984).
+Artículo 245.- (Derogado por el artículo 8° de la Ley Simple I: Simplificación de impuestos para levantar la eficiencia y la competitividad (Fase I), N° 10586 del 5 de noviembre de 2024)
