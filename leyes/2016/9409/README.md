@@ -1,6 +1,6 @@
 # Autorización al Instituto de Desarrollo Rural (INDER) para que condone las deudas adquiridas antes del 31 de diciembre de 2005 con el Instituto de Desarrollo Agrario (IDA) por el otorgamiento de tierras
 
-Ley N° 9409 del 2016-11-18. SINALEVI, ficha 83400: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=83400&param2=115911&param3=1>.
+Ley N° 9409 del 2016-11-18. SINALEVI, ficha 83400: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=83400&param2=143688&param3=1>.
 
 Publicada en La Gaceta N° 17 del 2017-01-24.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2017-01-24 | Ley 9409 | 2016-11-18 |
 | 2 de 3 | 2019-04-22 | Ley 9669 | 2019-02-27 |
+| 3 de 3 | 2024-12-03 | Ley 10551 | 2024-10-23 |
