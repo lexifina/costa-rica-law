@@ -23,3 +23,4 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA
 (Así reformado el inciso b) anterior por el artículo 1° de la ley N° 10615 del 20 de noviembre de 2024)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10529 del 9 de setiembre de 2024)
 (Así reformado el inciso c) por el artículo 1° de la ley N° 10615 del 20 de noviembre de 2024)
+(Así modificado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 44814 del 3 de diciembre del 2024)
