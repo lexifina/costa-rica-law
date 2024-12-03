@@ -1,0 +1,9 @@
+N° 10585
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ADICIÓN DEL ARTÍCULO 11 A LA LEY 3580, LEY DE INSTALACIONES
+DE ESTACIONAMIENTOS (PARQUÍMETROS),
+DE 13 DE NOVIEMBRE DE 1965
+ARTÍCULO ÚNICO- Se adiciona el artículo 11 a la Ley 3580, Ley de Instalaciones de Estacionamientos (Parquímetros), de 13 de noviembre de 1965. Eltexto es el siguiente:
+Artículo 11- Se autoriza a las municipalidades para que, mediante reglamento, el cual será determinado por cada gobierno local, exoneren hasta un cincuenta por ciento (50%), del pago total del impuesto referido en el artículo 1 de esta ley, a las personas con discapacidad y adultos mayores sobre aquellos estacionamientos señalizados en la vía pública, los cuales se establecen de conformidad con las disposiciones establecidas en el artículo 43 de la Ley 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996. Para esos efectos, las municipalidades podrán adicionar, además, un cinco por ciento (5%) del total de espacios señalizados en vía pública, que expresamente serán destinados a estacionar vehículos conducidos por personas adultas mayores o que las transporten.
+Para disfrutar dicha exoneración, las personas con discapacidad deberán contar con la identificación y autorización expedida por el Consejo Nacional de Personas con Discapacidad (Conapdis), referida en el artículo 43 de la Ley 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 d.e mayo de 1996. Las personas adultas mayores deberán presentar su respectivo documento de identificación.
