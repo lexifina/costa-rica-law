@@ -1,0 +1,5 @@
+ARTÍCULO 2- Se reforma el artículo 19 del libro I, del título I de la Ley 5395, Ley General de Salud, de 30 de octubre de 1973. El texto es el siguiente:
+Artículo 19- Toda persona tiene derecho a solicitar, de los servicios de salud, información y medios para prevenir o evitar los efectos de la dependencia personal, o a nombre de personas a su cargo, de drogas u otras sustancias, debiendo seguir las medidas técnicas especiales que la autoridad de salud le señale para tales efectos. Tienen este mismo derecho las personas que, de manera personal o a nombre de personas a su cargo, tengan problemas de adicción conductual bajo la tutela de los equipos interdisciplinarios de atención en adicciones (Eisaa) de la Caja Costarricense de Seguro Social (CCSS), el Ministerio de Educación Pública (MEP), el Patronato Nacional de la Infancia (PANI), el Instituto sobre Alcoholismo y Farmacodependencia (IAFA) y el Ministerio de Justicia y Paz, en el marco de sus facultades.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los once días del mes de noviembre del año dos mil veinticuatro.
+EJECÚTESE Y PUBlÍQUESE .
