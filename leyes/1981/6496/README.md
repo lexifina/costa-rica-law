@@ -1,6 +1,6 @@
 # Crea Timbre para Asociación Ciudad de las Niñas y Traspasa Inmueble
 
-Ley N° 6496 del 1981-07-30. SINALEVI, ficha 8338: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8338&param2=8950&param3=1>.
+Ley N° 6496 del 1981-07-30. SINALEVI, ficha 8338: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8338&param2=143682&param3=1>.
 
 Publicada en La Gaceta N° 151 del 1981-08-10.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1981-08-10 | Ley 6496 | 1981-07-30 |
 | 2 de 3 | 1984-11-30 | Ley 6975 | 1981-07-30 |
+| 3 de 3 | 2024-12-03 | Ley 10586 | 2024-11-05 |
