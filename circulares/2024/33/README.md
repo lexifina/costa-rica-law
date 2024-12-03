@@ -14,3 +14,4 @@ Adopción de Normas Internacionales de información Financiera Relacionada con S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-10 | la propia norma |
+| 2 | 2024-12-03 | Reglamento 12 (2024-12-03) |
