@@ -1,1 +1,0 @@
-Artículo 58º. —Los recursos económicos del Comité Cantonal de Deportes y Recreación, solamente se podrán destinar en obras, programas deportivos y recreativos, según los límites fijados por el artículo 164 del Código Municipal.

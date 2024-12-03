@@ -1,1 +1,0 @@
-Artículo 61º. —Las modificaciones externas del presupuesto ordinario del Comité Cantonal de Deportes serán presentadas para su respectiva aprobación ante el Concejo, igualmente los presupuestos extraordinarios. Las modificaciones internas serán vistas y aprobadas internamente por la Junta Directiva del Comité Cantonal de Deportes y deberá notificarlas al Concejo Municipal.

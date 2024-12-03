@@ -1,1 +1,0 @@
-Artículo 52º. —Sin perjuicio de lo establecido en el artículo 46 inciso c) de este Reglamento las Asociaciones Deportivas podrán administrar y mantener instalaciones deportivas a juicio del Comité Cantonal.

@@ -1,1 +1,0 @@
-Artículo 30º. —Las determinaciones o decisiones que tome la Junta Directiva se denominarán acuerdos, (Decisión sobre algo tomada en común por varias personas) y según sea el caso resoluciones. (Una resolución es una solución o respuesta a un problema).

@@ -1,1 +1,0 @@
-Artículo 24º. — El quórum para sesionar será de tres miembros presentes. Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de falta de quórum (3) se hará constar la asistencia de los presentes, para los efectos de los artículos 26 y 27 de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 14º. —Los miembros de la Junta Directiva durarán en sus cargos dos años y podrán ser reelectos por única vez consecutiva, luego dejar pasar un periodo de dos años y puede volver a postularse y no devengarán dieta ni remuneración alguna.

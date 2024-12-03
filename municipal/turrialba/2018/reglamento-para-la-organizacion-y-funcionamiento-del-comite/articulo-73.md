@@ -1,1 +1,0 @@
-Artículo 73º. —Cualquier reforma que se proponga a éste reglamento se pondrá, en conocimiento para su análisis y recomendación al Comité Cantonal y éste le brindará al Concejo Municipal un informe en un plazo de un mes improrrogable.

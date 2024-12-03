@@ -1,1 +1,0 @@
-Artículo 78º.—La interpretación de este reglamento queda bajo la autoridad del Concejo Municipal, las normas no establecidas en el presente reglamento serán tomadas supletoriamente del Código Municipal, la Ley General de Administración Pública, la Ley Orgánica de ICODER, entre otro., según sea el caso.

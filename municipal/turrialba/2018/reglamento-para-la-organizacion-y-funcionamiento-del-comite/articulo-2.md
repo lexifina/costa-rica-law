@@ -1,3 +1,0 @@
-CAPÍTULO II
-De la constitución y naturaleza jurídica
-Artículo 2º—El Comité Cantonal es el órgano adscrito a la Municipalidad con desconcentración mínima, el cual goza de personalidad jurídica instrumental para construir, administrar, mantener las instalaciones deportivas, desarrollar programas deportivos, de recreación de interés cantonal, demás atribuciones, facultades que el ordenamiento jurídico le conceda. Personería de la cual dará fe la Secretaria Municipal mediante la certificación respectiva. Considerando los alcances de la Ley 7800 del ICODER en lo que sea aplicable a los objetivos de este artículo.

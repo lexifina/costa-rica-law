@@ -1,3 +1,0 @@
-CAPÍTULO XIII
-Personal
-Artículo 70º. — Todos los funcionarios municipales que laboren en las instalaciones que están bajo la administración del Comité Cantonal de Deportes y Recreación, serán pagados con los dineros provenientes de la subvención municipal asignada anualmente al Comité Cantonal de Deportes y Recreación. Según las regulaciones establecidas en el artículo 170 del Código Municipal vigente. Además de los otros recursos económicos que genera el propio Comité Cantonal

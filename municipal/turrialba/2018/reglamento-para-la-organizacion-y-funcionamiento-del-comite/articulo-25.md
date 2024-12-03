@@ -1,1 +1,0 @@
-Artículo 25º. —El quórum para sesionar estará integrado por la mitad más uno del total (3) de los miembros del Comité Cantonal. A excepción de lo establecido en el artículo 21. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos.

@@ -1,1 +1,0 @@
-Artículo 26º.—Todo miembro deberá comunicar en forma escrita o por medio de correo electrónico, cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de los 8 días hábiles de celebrada la sesión, en la oficina del Comité Cantonal; caso contrario, será catalogada la inasistencia como injustificada y sancionable.
