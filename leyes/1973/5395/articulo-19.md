@@ -1,5 +1,2 @@
-ARTICULO 19.- Toda persona tiene derecho a solicitar de los
-servicios de salud, información y medios para prevenir o evitar los
-efectos de la dependencia personal, o de las personas a su cargo, de
-drogas u otras sustancias, debiendo seguir las medidas técnicas
-especiales que la autoridad de salud le señale para tales efectos.
+Artículo 19- Toda persona tiene derecho a solicitar, de los servicios de salud, información y medios para prevenir o evitar los efectos de la dependencia personal, o a nombre de personas a su cargo, de drogas u otras sustancias, debiendo seguir las medidas técnicas especiales que la autoridad de salud le señale para tales efectos. Tienen este mismo derecho las personas que, de manera personal o a nombre de personas a su cargo, tengan problemas de adicción conductual bajo la tutela de los equipos interdisciplinarios de atención en adicciones (Eisaa) de la Caja Costarricense de Seguro Social (CCSS), el Ministerio de Educación Pública (MEP), el Patronato Nacional de la Infancia (PANI), el Instituto sobre Alcoholismo y Farmacodependencia (IAFA) y el Ministerio de Justicia y Paz, en el marco de sus facultades.
+(Así reformado por el artículo 2° de la Ley inclusión de los trastornos debido a comportamientos adictivos (adicciones conductuales) en la salud pública, N° 10598 del 11 de noviembre de 2024)
