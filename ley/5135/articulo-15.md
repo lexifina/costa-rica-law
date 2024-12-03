@@ -1,6 +1,1 @@
-Artículo 15.- Las plantas procesadoras de carne para exportación
-pagarán al Consejo Nacional de Producción la suma de veinticinco colones (¢
-25.00) por cada tonelada métrica de carne que exporten. Esta contribución
-la invertirá el Consejo en equipo de refrigeración y acondicionamiento de
-expendios destinados al suministro de carnes para el consumo nacional al
-menor costo posible.
+Artículo 15.- (Derogado por el artículo 3° de la Ley Simple I: Simplificación de impuestos para levantar la eficiencia y la competitividad (Fase I), N° 10586 del 5 de noviembre de 2024)
