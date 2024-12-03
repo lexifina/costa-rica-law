@@ -1,0 +1,1 @@
+ARTÍCULO 2- Deróguese la Ley 9669, Reforma del Artículo 1 de la Ley N.º 9409, Autorización al Instituto de Desarrollo Rural (lnder) para que Condone las Deudas Adquiridas antes del 31 de diciembre de 2005 con el Instituto de Desarrollo Agrario (IDA) por el Otorgamiento de Tierras, de 27 de febrero de 2019.
