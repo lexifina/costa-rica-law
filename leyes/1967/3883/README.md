@@ -1,6 +1,6 @@
 # Ley de Inscripción de Documentos en Registro Público
 
-Ley N° 3883 del 1967-05-30. SINALEVI, ficha 38440: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38440&param2=70679&param3=1>.
+Ley N° 3883 del 1967-05-30. SINALEVI, ficha 38440: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38440&param2=143669&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1-2 de 6 | 1998-11-22 | SINALEVI (5 normas) | 1967-05-30 |
 | 3 de 6 | 2008-01-01 | Ley 8508 | 2006-04-28 |
+| 4 de 6 | 2024-12-03 | Ley 10597 | 2024-11-05 |
