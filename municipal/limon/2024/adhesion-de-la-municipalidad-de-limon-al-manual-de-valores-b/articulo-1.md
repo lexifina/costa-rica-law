@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LIMÓN
+La alcaldía de la Municipalidad del Cantón Central de Limón, según lo dispuesto en el acuerdo municipal N° SM- 0568-2024, tomado por el Honorable Concejo Municipal, en Sesión Ordinaria 29, celebrada el martes 19 de noviembre del 2024, se adhiere a la publicación del documento Manual de Valores Base Unitarios por Tipología Constructivo 2023, publicado en el alcance digital N° 187 a La Gaceta N° 178 del 28 de septiembre del 2023, elaborado por el Órgano de Normalización Técnica (O.N.T) del Ministerio de Hacienda.
