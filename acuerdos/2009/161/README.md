@@ -15,3 +15,4 @@ Implementación del Reglamento de Compensación y Liquidación de Valores
 | --- | --- | --- |
 | 1 | 2010-03-03 | la propia norma |
 | 2 | 2023-08-28 | Acuerdo 281 (2023-08-28) |
+| 3 | 2024-12-04 | Acuerdo 7 (2024-12-04) |
