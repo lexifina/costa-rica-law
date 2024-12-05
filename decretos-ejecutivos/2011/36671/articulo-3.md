@@ -1,1 +1,1 @@
-Artículo 3º—El Colegio de Costa Rica, se ubicará presupuestariamente en el Programa 749-Actividades Centrales- Despacho Viceministerial de Cultura.
+Artículo 3 º-. Estructura. El Colegio de Costa Rica, se ubicará presupuestariamente en el Programa 755-00- Sistema Nacional de Bibliotecas SINABI, y contará con el apoyo de su personal administrativo para el cumplimiento de sus fines.

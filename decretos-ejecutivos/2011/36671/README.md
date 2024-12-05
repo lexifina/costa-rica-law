@@ -14,3 +14,4 @@ Crea Colegio de Costa Rica como una instancia cultural encargada desarrollar y e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-22 | la propia norma |
+| 2 | 2024-12-05 | Decreto Ejecutivo 44897 (2024-12-05) |
