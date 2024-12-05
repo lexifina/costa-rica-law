@@ -1,1 +1,0 @@
-Artículo 6º—Servicio al Cliente. El gestor deberá atender al contribuyente dentro de los parámetros de respeto, dedicación y diligencia requeridos, a efecto de lograr como producto final el proceso la percepción del ingreso y el mayor grado de satisfacción en el contribuyente por la atención recibida.

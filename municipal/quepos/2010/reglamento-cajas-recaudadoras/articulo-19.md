@@ -1,1 +1,0 @@
-Artículo 19.—Faltantes superiores a ¢5.000,00. El descubrimiento de faltantes superiores a ¢5.000,00 por parte del Tesorero, tendrá que ser notificado al Director Financiero, con copia al Alcalde Municipal, al Auditor Interno y al gestor, para lo que proceda.

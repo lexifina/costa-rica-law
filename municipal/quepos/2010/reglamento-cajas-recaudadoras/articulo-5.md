@@ -1,2 +1,0 @@
-Artículo 5º—Unidad de Mando. En el desempeño de sus funciones, los gestores estarán bajo la subordinación de la Tesorería Municipal, en relación con manejo de valores, medidas de seguridad, entrega de cierres diarios, verificación de arqueos, dotación de menudo para operar y otros similares.
-Para los otros aspectos tales como el manejo de codificaciones de ingresos, con la atención de los contribuyentes, aspectos de forma y fondo en la confección de los comprobantes de pago y aquellos otros afines a su puesto, dependerán del Director Financiero.
