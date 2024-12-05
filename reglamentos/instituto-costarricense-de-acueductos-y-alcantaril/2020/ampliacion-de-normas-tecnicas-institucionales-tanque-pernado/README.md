@@ -14,3 +14,4 @@ Ampliación de normas técnicas institucionales tanque pernado de acero revestid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-11-26 | la propia norma |
+| 2 | 2024-12-05 | Reglamento 0 (2024-12-05) |

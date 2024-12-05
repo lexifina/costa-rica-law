@@ -1,5 +1,7 @@
+Anexo 2
 [imagen]
 Figura 1
+(Así reformada la figura anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 [imagen]
 [imagen]
 8. Bibliografía

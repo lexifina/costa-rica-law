@@ -1,9 +1,11 @@
 ANEXO 1 (Cortes o perforaciones en láminas)
 CORTES O PERFORACIONES EN LÁMINAS
 (FUERA DEL PROCESO DE FABRICACIÓN)
-En la Oferta Técnica se debe incluir la especificación técnica para realizar cortes o perforaciones (fuera del proceso de fabricación), en las láminas que conforman la pared del tanque de almacenamiento, que a criterio del contratante sean requeridas durante el ensamble del tanque en el sitio.
+En la Oferta Técnica se debe incluir la especificación técnica para realizar cortes o perforaciones (fuera del proceso de fabricación), en las láminas del tanque de almacenamiento, que a criterio del contratante sean requeridas durante el ensamble del tanque en el sitio.
+(Así eliminada la frase "que conforman la pared" del párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 Esta especificación técnica debe incluir lo siguiente:
-1. Detalle descriptivo del procedimiento para efectuar cortes o perforaciones en las láminas que conforman la pared del tanque, durante el proceso de ensamble en sitio; el cual debe incluir el procedimiento para el recubrimiento de los bordes. El detalle descriptivo debe referenciar los equipos, herramientas y materiales vinculados a cada tarea o actividad.
+1. Detalle descriptivo del procedimiento para efectuar cortes o perforaciones en las láminas del tanque, durante el proceso de ensamble en sitio; el cual debe incluir el procedimiento para el recubrimiento de los bordes. El detalle descriptivo debe referenciar los equipos, herramientas y materiales vinculados a cada tarea o actividad.
+(Así eliminada la frase "que conforman la pared" del párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 2. Detalle de los equipos, herramientas y materiales requeridos para realizar las perforaciones y cortes; se debe adjuntar una ficha técnica de producto para cada uno, indicando al menos lo siguiente:
 a. Descripción del equipo, herramienta o material; cuando corresponda, se debe indicar marca y modelo.
 b. Número de folio (s) de la oferta técnica que contiene la información técnica del equipo, herramienta o material.

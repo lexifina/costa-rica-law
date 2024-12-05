@@ -6,7 +6,7 @@ Atención Unidad Técnica de los Servicios de Abastecimiento de Agua Potable y d
 Asunto Ampliación normas técnicas | | Fecha Comunicación 03/Nov/2020
 JUNTA DIRECTIVA
 INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
-Conoce esta junta directiva la especificación técnica que amplía la Norma Técnica para “Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial” y, que a su vez, se integra al Volumen IV, “Especificaciones técnicas generales de AyA”, aplicable a toda contratación de obra pública, presentada por la Presidencia Ejecutiva según memorando PRE-2020-01491, y acuerda lo siguiente:
+Conoce esta junta directiva la especificación técnica que amplía la Norma Técnica para "Diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial" y, que a su vez, se integra al Volumen IV, "Especificaciones técnicas generales de AyA", aplicable a toda contratación de obra pública, presentada por la Presidencia Ejecutiva según memorando PRE-2020-01491, y acuerda lo siguiente:
 PRIMERO: Aprobar la especificación técnica que es parte esencial de este acuerdo para que se proceda de conformidad con todo lo dispuesto en el acuerdo N.° 2020-302.
 ACUERDO FIRME
 Licda. Karen Naranjo Ruiz
@@ -51,7 +51,7 @@ TERMOFUSIONADO
 Esta especificación establece los requisitos que debe cumplir el tanque pernado de acero revestido con vidrio termofusionado, para su uso como reservorio de agua potable. Este tanque es de forma cilíndrica y de base circular plana, para ser asentado en el terreno.
 Esta norma no contempla requisitos o prácticas relacionadas con seguridad ó salud ocupacional, ni con la gestión o administración del riesgo inherente al objeto normado o que pueda originarse durante su construcción o funcionamiento.
 2. Términos y definiciones
-Son de aplicación las definiciones que se indican en la “Norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial” de AyA ó en las normas técnicas que se referencian en esta especificación.
+Son de aplicación las definiciones que se indican en la "Norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial" de AyA ó en las normas técnicas que se referencian en esta especificación.
 Adicionalmente, se aplican las siguientes definiciones:
 2.1. Altura máxima del nivel de agua: longitud medida desde la cara superior de la losa de fundación hasta el nivel inferior de la tubería de rebalse.
 2.2. Acero de refuerzo principal: es el acero que se calcula según la metodología del diseñador, con el objetivo de que el elemento estructural del cual forma parte, soporte las cargas a las que estará sometido.
@@ -75,7 +75,7 @@ UNS Unified Numbering System
 Simbología
 Av: Aceleración vertical.
 FED: Factor espectral dinámico.
-f’c: Resistencia a la compresión del concreto a los 28 días.
+f'c: Resistencia a la compresión del concreto a los 28 días.
 fy: Límite de fluencia del acero a tracción.
 μ: Ductilidad global.
 SDS: Aceleración espectral de diseño con amortiguamiento del 5% en un período fundamental de oscilación igual a 0,2 s.
@@ -84,14 +84,14 @@ T: Período fundamental de oscilación.
 4. Requisitos técnicos
 4.1. Detalle descriptivo del proyecto
 El contratante debe aportar un detalle descriptivo del proyecto, dicha descripción debe señalar como mínimo lo siguiente:
-• capacidad de almacenamiento inicial del tanque,
-• capacidad de almacenamiento futura en caso de que se prevea su expansión,
-• dimensionamiento aproximado inicial y futuro (diámetro, altura máxima del nivel de agua y nivel de tubería de salida),
-• condiciones y características especiales del sitio,
-• localización georreferenciada del tanque y del sitio del proyecto,
-• nombre y esquema gráfico del sistema de acueducto al que se integrará el tanque,
-• detalle descriptivo de las obras complementarias incluidas,
-• detalle descriptivo con los antecedentes y la justificación técnica que motiva la necesidad de generar capacidad de almacenamiento con el tanque propuesto, que indique la población beneficiada.
+. capacidad de almacenamiento inicial del tanque,
+. capacidad de almacenamiento futura en caso de que se prevea su expansión,
+. dimensionamiento aproximado inicial y futuro (diámetro, altura máxima del nivel de agua y nivel de tubería de salida),
+. condiciones y características especiales del sitio,
+. localización georreferenciada del tanque y del sitio del proyecto,
+. nombre y esquema gráfico del sistema de acueducto al que se integrará el tanque,
+. detalle descriptivo de las obras complementarias incluidas,
+. detalle descriptivo con los antecedentes y la justificación técnica que motiva la necesidad de generar capacidad de almacenamiento con el tanque propuesto, que indique la población beneficiada.
 4.2. Parámetros de diseño
 Para la determinación de los parámetros del sitio requeridos para el diseño del tanque, se debe realizar la exploración geotécnica correspondiente.
 4.2.1 Condiciones de servicio y límites de resistencia de materiales El diseño estructural del tanque debe garantizar que se mantengan las condiciones de funcionalidad y servicio, aun cuando el tanque sea sometido a las cargas máximas para las cuales fue diseñado. También debe garantizar la integridad y durabilidad de los elementos ante condiciones que puedan generarle corrosión, abrasión, desgaste y otros por efecto directo o indirecto de agentes químicos o físicos.
@@ -126,13 +126,13 @@ d. La aceleración de diseño de conformidad con lo establecido en el Código S�
 e. El espectro de diseño aplicando los valores establecidos en el Código Sísmico de Costa Rica, según corresponda a la zona sísmica y al tipo de suelo del sitio donde se construirá el tanque, eliminando el tramo ascendente inicial y extendiendo la meseta hasta T = 0 s.
 Se debe aplicar el procedimiento establecido en la sección 14.2.7 de la norma ANSI/AWWA D103 para el cálculo del espectro de diseño, utilizando los siguientes valores:
 Componente impulsivo
-• Factor espectral dinámico (FED) = 2,5 ; correspondiente a un espectro elástico (μ = 1,0).
-• Amortiguamiento del 5%.
-• Período de retorno de 476 años.
+. Factor espectral dinámico (FED) = 2,5 ; correspondiente a un espectro elástico (μ = 1,0).
+. Amortiguamiento del 5%.
+. Período de retorno de 476 años.
 Componente convectivo
-• Aplicar un factor de amplificación de 1,5 para generar un espectro de 0,5% de amortiguamiento.
+. Aplicar un factor de amplificación de 1,5 para generar un espectro de 0,5% de amortiguamiento.
 f. La aceleración vertical (Av) aplicando un valor mínimo de 0,2 SDS1.
-1 El término SDS se entiende como “design earthquake response acceleration 5 percent damped, at 0.2-sec period, stated as a multiple (decimal) of g” de conformidad con la norma ANSI/AWWA D103.
+1 El término SDS se entiende como "design earthquake response acceleration 5 percent damped, at 0.2-sec period, stated as a multiple (decimal) of g" de conformidad con la norma ANSI/AWWA D103.
 g. El factor de amplificación dinámica del terreno de conformidad con lo que señale el estudio geotécnico aportado por el contratante, según las condiciones específicas del terreno.
 h. El factor de modificación de respuesta debe definirse de acuerdo con la ANSI/AWWA D103 en función del tipo de tanque que se esté considerando, sea autoanclado o mecánicamente anclado.
 4.2.11 Diseño por viento
@@ -142,40 +142,46 @@ La metodología para realizar el análisis de las cargas de viento que actúan s
 Se deben colocar atiezadores o rigidizadores en todo el perímetro del borde superior del tanque. Únicamente se colocarán estos elementos en niveles intermedios, si el análisis de las cargas de viento así lo determina. El diseño debe cumplir con lo establecido en la norma ANSI/AWWA D103. Los atiezodores o rigidizadores deben fabricarse en acero inoxidable o en acero galvanizado, lo anterior incluye a los de armadura nervada como los angulares.
 4.3. Materiales
 4.3.1 Concreto
-La resistencia y calidad del concreto cuando el diseño incluya elementos con tal requerimiento, debe ser de al menos 27,5 MPa (280 kg/cm2) a los 28 días de conformidad con la norma ASTM C31; se exceptúan aquellos casos en donde se deba cumplir con una norma o reglamentación técnica que defina un valor distinto al indicado para un elemento en particular. Así mismo, el diseñador será responsable de determinar el parámetro de resistencia según los requerimientos específicos inherentes a los elementos, estructuras o componentes que conforman la obra propuesta; no acepta una resistencia menor a f’c = 210 kg/cm2.
-En el caso de estructuras complementarias externas al tanque, la resistencia no podrá ser menor a f’c = 210 kg/cm2 de acuerdo con la norma ASTM C31, exceptuando donde se indique un valor específico.
+La resistencia y calidad del concreto cuando el diseño incluya elementos con tal requerimiento, debe ser de al menos 27,5 MPa (280 kg/cm2) a los 28 días de conformidad con la norma ASTM C31; se exceptúan aquellos casos en donde se deba cumplir con una norma o reglamentación técnica que defina un valor distinto al indicado para un elemento en particular. Así mismo, el diseñador será responsable de determinar el parámetro de resistencia según los requerimientos específicos inherentes a los elementos, estructuras o componentes que conforman la obra propuesta; no acepta una resistencia menor a f'c = 210 kg/cm2.
+En el caso de estructuras complementarias externas al tanque, la resistencia no podrá ser menor a f'c = 210 kg/cm2 de acuerdo con la norma ASTM C31, exceptuando donde se indique un valor específico.
 En los términos de referencia y en los diseños finales se debe indicar el tipo de cemento hidráulico requerido, el cual debe cumplir con la reglamentación vigente, específicamente:
-• RTCR 479 “Materiales de Construcción, Cementos Hidráulicos. Especificaciones”;
-• RTCR 476 “Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad”;
+. RTCR 479 "Materiales de Construcción, Cementos Hidráulicos. Especificaciones";
+. RTCR 476 "Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad";
 Para evitar infiltraciones o exfiltraciones en aquellas estructuras de concreto que así lo requieran, se debe especificar en el diseño final el tipo de tecnología impermeabilizante requerida, adjuntando la justificación técnica y normas técnicas de referencia en las que se sustente su aplicación. Se debe garantizar la protección de toda estructura de concreto durante la vida útil del material impermeabilizante que la cubra, durante ese periodo no deben generarse filtraciones, agrietamientos, humedad, deterioro prematuro u otro defecto que comprometa el adecuado funcionamiento de la estructura bajo condiciones de servicio según diseño.
 4.3.2 Acero de refuerzo
-Toda barra de acero de refuerzo principal, que se utilice en el concreto de un elemento que forme parte del sistema sismoresistente del tanque, debe ser corrugada, con un valor mínimo del esfuerzo de cedencia de fy = 420 MPa (4200 kg/cm2)(60ksi) y debe cumplir con la norma INTE C401 y el RTCR 452: 2011 “Barras y alambres de acero de refuerzo para concreto. Especificaciones”, en lo correspondiente.
+Toda barra de acero de refuerzo principal, que se utilice en el concreto de un elemento que forme parte del sistema sismoresistente del tanque, debe ser corrugada, con un valor mínimo del esfuerzo de cedencia de fy = 420 MPa (4200 kg/cm2)(60ksi) y debe cumplir con la norma INTE C401 y el RTCR 452: 2011 "Barras y alambres de acero de refuerzo para concreto. Especificaciones", en lo correspondiente.
 4.3.3 Acero estructural
 El acero estructural que se utilice en la perfilería estructural, accesorios y elementos de fijación, debe cumplir con lo siguiente:
 a. Los elementos en acero estructural, laminados en caliente, deben cumplir con la norma INTE C415 y con un valor mínimo de esfuerzo de fluencia 343 MPa (3500 kg/cm2)(50ksi) y un valor mínimo de esfuerzo de rotura última de 446 MPa (4550 kg/cm2)(65ksi).
 b. Los elementos en acero estructural, fabricados a partir de placas de acero, angulares y plaquería en general, deben cumplir con la norma INTE C410 y con un valor mínimo de esfuerzo de fluencia 248 MPa (2530 kg/cm2) (36ksi) y un valor mínimo de esfuerzo de rotura última de 398MPa (4060 kg/cm2) (58ksi).
 c. Los perfiles estructurales laminados en frío deben ser de acero de conformidad con la norma ASTM A1011 y con un valor mínimo de esfuerzo de fluencia de 227 MPa (2310 kg/cm2)(33ksi)
-4.4. Lámina (pared del tanque)
-La pared del tanque debe ensamblarse en el sitio de construcción y debe estar constituida por láminas de acero preformadas y esmaltadas con sílice (vidrio), tres capas internas y dos capas externas, sometidas a un proceso de termofusión en fábrica de conformidad con lo establecido en la norma ANSI/AWWA D103.
+4.4. Lámina (las láminas del tanque)(*)
+(*)(Así reformado el título anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
+Las láminas del tanque (*) debe ensamblarse en el sitio de construcción y debe estar constituida por láminas de acero preformadas y esmaltadas con sílice (vidrio), tres capas internas y dos capas externas, sometidas a un proceso de termofusión en fábrica de conformidad con lo establecido en la norma ANSI/AWWA D103.
+(*)(Así reformado término anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 En la oferta técnica se debe aportar un reporte técnico que detalle el efecto que causa el proceso de termofusionado sobre las propiedades mecánicas de la lámina de acero, según lo establece la sección 5.3.2 de la norma ANSI/AWWA D103. En caso de que no se tengan por demostrados tales efectos, en el diseño del tanque se debe aplicar una reducción del 30% en la resistencia a la fluencia y en la resistencia a la tracción, con respecto a los valores nominales para las láminas de acero brindados por el fabricante.
 Las láminas se unen entre sí utilizando pernos, por lo que los orificios y los bordes de éstos deben ser redondeados mecánicamente.
-La pared del tanque debe ser de color azul en su superficie externa y de color blanco en su superficie interna.
+Las láminas del tanque (*) debe ser de color azul en su superficie externa y de color blanco en su superficie interna.
+(*)(Así reformado término anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 4.4.1 Recubrimiento
 El recubrimiento de cada lámina, incluidos sus bordes, debe aplicarse en fábrica y debe cumplir con lo establecido en la sección 12.4 de la norma ANSI/AWWA D103.
 4.4.2 Perforaciones o cortes en lámina
 Las perforaciones o cortes en la lámina deben realizarse durante el proceso de fabricación a solicitud del contratante, por lo que en los términos de la contratación se deben incluir los detalles técnicos de las perforaciones requeridas para la conexión con las tuberías. En caso de que a criterio del contratante, corresponda realizar las perforaciones o cortes en láminas en sitio, durante el ensamble del tanque, debe realizarse cumpliendo con lo especificado en el anexo 1; cualquier otro lineamiento o instrucción que establezca el contratante no podrá contraponerse a lo indicado en dicho anexo. Si el fabricante no acepta mantener la garantía durante la vida útil del tanque, en caso de que se originen cortes o perforaciones en las láminas in situ, no se podrán realizar las perforaciones o cortes.
-Con la finalidad de que la superficie del corte de la lámina no entre en contacto con el agua, toda tubería de entrada, salida (en caso de ubicarse en la pared del tanque) y rebalse debe ser instalada tipo pasamuro, según se muestra en la figura 1 (anexo 2). Se debe colocar una cuña de sellante en el perímetro de la brida y los pernos, de conformidad con las recomendaciones del fabricante del sellante; en los planos que detallan el diseño de las tuberías de entrada, salida (en caso de ubicarse en la pared del tanque) y rebalse, se debe indicar el código de la norma de fabricación del sellante o su especificación técnica de composición y propiedades.
+Con la finalidad de que la superficie del corte de la lámina no entre en contacto con el agua, toda tubería de entrada, salida y rebalse debe ser instalada tipo pasamuro, según se muestra en la figura 1 (anexo 2). Se debe colocar una cuña de sellante en el perímetro de la brida y los pernos, de conformidad con las recomendaciones del fabricante del sellante; en los planos que detallan el diseño de las tuberías de entrada, salida (en caso de ubicarse en la pared del tanque) y rebalse, se debe indicar el código de la norma de fabricación del sellante o su especificación técnica de composición y propiedades.
+(Así reformado el párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 El sellante debe soportar una concentración de 10 ppm de cloro por un período mínimo de 24 horas, sin que durante ese período se presenten daños físicos o químicos en el sellante.
 Se debe incluir un pasamuro de 25 mm de diámetro con niple y tapón en la parte exterior, contiguo al pasamuro de la tubería de entrada, como prevista para recloración en el tanque.
 Adicionalmente, en la oferta técnica se deben detallar y especificar los accesorios que deben colocarse en las conexiones del tanque con las tuberías (de entrada, salida, rebalse y limpieza), para compensar los desplazamientos del tanque ante carga sísmica tal y como es señalado en la norma ANSI/AWWA D103, secciones 7.2.3 y 14.5.1.
 4.5. Fundación
-El tipo de fundación del tanque debe cumplir con los requisitos establecidos en la norma ANSI/AWWA D103, siendo aceptables únicamente los tipos 1, 2 o 6 de dicha norma. En los términos de la contratación se debe indicar el tipo de fundación seleccionado.
-Cuando se selecciona la fundación tipo 6, el diseñador del tanque debe demostrar que la razón de volcamiento (J) no supera el valor de 0,785 y el diseño para el tipo 6 debe cumplir con los requisitos establecidos en el
-apartado 4.4.1.
+"El tipo de fundación del tanque debe cumplir con los requisitos establecidos en la norma ANSI/AWWA D103, siendo aceptables únicamente los tipos 1, 2 o 6 de dicha norma.
+La selección del tipo de fundación del tanque debe sustentarse en un análisis técnico generado por el profesional responsable del diseño y avalado con su firma; dicho análisis debe incluir la revisión de la razón de volcamiento.
+Cuando se selecciona la fundación tipo 6, el diseñador del tanque debe demostrar que la razón de volcamiento (J) no supera el valor de 0,785 y el diseño para el tipo 6 debe cumplir con los requisitos establecidos en el apartado 4.5.1.
+En el caso de las fundaciones tipo 1 o tipo 2, el piso del tanque debe ser de láminas de acero preformadas y esmaltadas con sílice (vidrio) según lo dispuesto en el apartado 4.4, además se debe cumplir con los requisitos de diseño y materiales indicados en la norma AWWA D103.
+(Así reformado el punto 4.5) anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 4.5.1 Fundación tipo 6 (losa)
-La fundación del tanque debe estar conformada por una losa de concreto reforzado con una resistencia mínima a la compresión de f’c de al menos 27,5 MPa (280 kg/ cm2) a los 28 días, según ACI 350, con una pendiente mínima de 0,5% hacia el conducto de limpieza que debe ubicarse en el punto central de la losa. También, se debe cumplir con las recomendaciones que indique el estudio de suelos sobre la fundación.
+La fundación del tanque debe estar conformada por una losa de concreto reforzado con una resistencia mínima a la compresión de f'c de al menos 27,5 MPa (280 kg/ cm2) a los 28 días, según ACI 350, con una pendiente mínima de 0,5% hacia el conducto de limpieza que debe ubicarse en el punto central de la losa. También, se debe cumplir con las recomendaciones que indique el estudio de suelos sobre la fundación.
 El anillo de arranque de la pared del tanque debe quedar embebido en la losa, para lo cual se requiere como máximo dos coladas. En caso de aplicar dos coladas, en la primera colada se debe fijar los pernos de anclaje y el plato nivelador según se muestra en la figura 2 (anexo 2), seguidamente y una vez colocado el anillo de arranque, se debe realizar una segunda colada que complete la fundación sin que se generen juntas de construcción verticales, por cuanto las mismas pueden causar fugas del líquido almacenado.
-No se permite que el proceso de colado de la losa finalice de manera posterior a la colocación de las láminas, es decir, no se acepta que durante el proceso de colado se deje un canal, para ser colado de forma posterior a la colocación de las láminas; esta práctica constructiva no es aceptable ya que se comporta como una junta de construcción (“junta fría”), la cual puede generar fugas en su superficie.
+No se permite que el proceso de colado de la losa finalice de manera posterior a la colocación de las láminas, es decir, no se acepta que durante el proceso de colado se deje un canal, para ser colado de forma posterior a la colocación de las láminas; esta práctica constructiva no es aceptable ya que se comporta como una junta de construcción ("junta fría"), la cual puede generar fugas en su superficie.
 Para evitar filtraciones en la interfase de los materiales acero-concreto, se debe colocar un sello (cordón de sellante de lámina) según se muestra en la figura 3 (anexo 2). Así mismo, se debe colocar otro sello que tenga la propiedad de expandirse al contacto con el agua (sello hidrofílico), debe aplicarse por debajo de la línea de concreto según se muestra en la figura 3 (anexo 2). En los planos donde se detalla la fundación, se debe indicar el código de la norma de fabricación o la especificación técnica de composición y propiedades de cada uno de los sellos indicados; en relación con el sello que se coloca a nivel de la losa terminada (cordón de sellante de lámina), éste debe soportar una concentración de 10 ppm de cloro por un período mínimo de 24 horas, sin que durante ese período se presenten daños físicos o químicos en el sellante.
 El diseño del tanque debe incluir el detalle técnico de la prevista para conexión de la malla a tierra.
 De conformidad con el estudio de suelos y si así es requerido en el mismo, se debe indicar el material a emplear entre el fondo de losa y el nivel de excavación, así como sus características físicas y mecánicas.
@@ -244,6 +250,12 @@ f) Si el tanque ya no presenta fugas, se debe proceder a aplicar lo indicado en 
 g) Si el tanque no presenta fugas ejecutando lo indicado en el inciso (f), se debe aplicar lo señalado en los incisos anteriores, esta vez para el tanque completamente lleno.
 h) Si el tanque no presenta fugas ejecutando lo indicado en el inciso (g), se dará por concluida y aceptada la prueba de estanqueidad del tanque.
 Durante todo el proceso de realización de la prueba de estanqueidad, se deben registrar los resultados obtenidos, trabajos realizados y los valores esperados por evaporación.
+En todas las áreas internas y externas del tanque en las que exista uniones, pernos y bordes de láminas se debe aplicar un sellador apto para superficies internas y externas según corresponda, para evitar filtraciones
+(Así adicionado el párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024. Al o ser clara la reforma en que inciso del punto 5.5) debe adicionarse se adiciona al final)
+El sellante debe ser de poliuretano de un solo componente y debe presentar una resistencia mínima al cloro de 10 ppm para una exposición continua durante 24 horas; además el sellante y sus aditivos deben cumplir con la norma ANSI/NSF 61, para ello el oferente debe aportar la certificación correspondiente en conjunto con la ficha técnica del producto.
+(Así adicionado el párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024. Al o ser clara la reforma en que inciso del punto 5.5) debe adicionarse se adiciona al final)
+Únicamente se admite el uso de empaques de neopreno y cintas selladoras en las puertas o compuertas de acceso para inspección del tanque.
+(Así adicionado el párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024. Al o ser clara la reforma en que inciso del punto 5.5) debe adicionarse se adiciona al final)
 5.6 Desinfección del tanque
 De previo a la recepción final del tanque y en fecha y hora acordada con el contratante, el tanque debe ser sometido a un proceso de desinfección.
 En la Oferta Técnica se debe incluir un manual detallando el proceso de desinfección inicial y el o los procedimientos para llevar a cabo la totalidad de actividades y tareas, incluidas los ensayos o pruebas requeridos. El procedimiento debe incorporar el uso de agua potable y la aplicación de uno de los métodos que se establecen en la norma ANSI/AWWA C652.
@@ -251,39 +263,40 @@ Adicionalmente, el manual debe detallar el procedimiento de desinfección al que
 Estos manuales deben incorporar los requisitos de materiales, herramienta, equipo, pruebas o ensayos y cualquier otro, que sea necesario para verificar que el tanque cumplirá a cabalidad con su objetivo esencial, cual es el almacenamiento de agua potable de conformidad con el Reglamento para la Calidad del Agua Potable vigente en Costa Rica.
 Antes de incorporar el agua al sistema de abastecimiento, realizada la desinfección del tanque, debe verificarse que la concentración de cloro residual cumpla con el valor indicado en el Reglamento para la Calidad del Agua Potable en la versión vigente.
 5.7 Efectos en la salud por contaminantes que se incorporen al agua potable
-Todo elemento, componente o material del tanque que entre en contacto con el agua potable que será almacenada en el mismo, debe cumplir con la norma NSF 61 “Drinking Water Systems Components – Health Efeccts”.
+Todo elemento, componente o material del tanque que entre en contacto con el agua potable que será almacenada en el mismo, debe cumplir con la norma NSF 61 "Drinking Water Systems Components - Health Efeccts".
 En la oferta técnica se debe detallar el listado de los elementos, componentes o materiales que estarán en contacto con el agua potable que será almacenada, y para cada uno o para el tanque en su conjunto se debe aportar la certificación de cumplimiento de la norma NSF 61, en su versión vigente; esta certificación debe ser emitida por el siguiente organismo:
 Sanitation Foundation (NSF) International.
 Adicionalmente, se deben aportar junto con las certificaciones, los resultados de las pruebas llevadas a cabo por el organismo indicado en relación con el cumplimiento de la NSF 61, donde se detallen los contaminantes y los valores detectados, en caso de que los mismos hayan sido identificados durante las pruebas realizadas. Se advierte que no será aceptado el tanque en su conjunto o el elemento, componente o material, según la certificación presentada, cuando al menos una de las sustancias detectadas al entrar en contacto con el agua almacenada, alcance cantidades que no se ajusten a lo permitido en el Reglamento para la Calidad del Agua Potable vigente en Costa Rica; aun cuando, el valor o valores obtenidos para esa sustancia cumplan con los valores establecidos en la NSF 61.
 En la oferta técnica se debe detallar el listado de los elementos, componentes o materiales del tanque en su conjunto, que estarán en contacto con el agua potable.
 5.8 Manipulación, almacenamiento y transporte
-En la oferta técnica se debe incorporar un capítulo de “Manipulación, almacenamiento y transporte”, donde se detallen las acciones y recomendaciones de parte del o los fabricantes para el adecuado manejo, transporte y almacenamiento de todos los elementos, componentes y materiales que conforman el tanque, particularmente: láminas (pared del tanque y del techo), estructuras de acceso, sellantes, etc.; lo anterior, según sea requerido durante el proceso de construcción, a efecto de garantizar su funcionalidad y vida útil.
+En la oferta técnica se debe incorporar un capítulo de "Manipulación, almacenamiento y transporte", donde se detallen las acciones y recomendaciones de parte del o los fabricantes para el adecuado manejo, transporte y almacenamiento de todos los elementos, componentes y materiales que conforman el tanque, particularmente: láminas, estructuras de acceso, sellantes, etc.; lo anterior, según sea requerido durante el proceso de construcción, a efecto de garantizar su funcionalidad y vida útil.
+(Así eliminada la frase "(pared del tanque y del techo)" del párrafo anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024. Al o ser clara la reforma en que inciso del punto 5.5) debe adicionarse se adiciona al final)
 Así mismo, se deben incluir en este capítulo toda disposición, que para tales efectos, se indiquen en las normas técnicas de fabricación aplicables a cada elemento, componente y material.
 6. Documentos normativos de referencia
 Las normas que se citan en este apartado forman parte integral de los requisitos técnicos incluidos en este documento. Las ediciones indicadas estaban en vigencia al momento de formular la presente especificación.
 En caso de que una norma sea actualizada por el emisor de forma posterior a la entrega de la oferta técnica o durante el proceso constructivo del tanque, el contratante y el contratista deben revisar si los requisitos contenidos en la norma mantienen su aplicación, dentro del alcance de la presente especificación técnica.
-Los códigos de las normas nacionales que se indican entre paréntesis y que contienen el código “INTE”, corresponden a la codificación anteriormente establecida por el Instituto de Normas Técnicas de Costa Rica (INTECO).
-ACI 350M-06 | “Code Requirements for Environmental Engineering Concrete Structures”
-Acuerdo Junta Directiva AyA Nº 2017-281 | “Norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial”. Publicado en el ALCANCE N º 227 A,B,C,D,E,F,G de La Gaceta Nº 180 del 22 de setiembre del 2017
-Acuerdo de Junta Directiva del INVU, tomado en la sesión ordinaria Nº6306. | “Reglamento de Construcciones”. Publicado en el Alcance Digital Nº62 de la Gaceta Nº54 del 22 de marzo del 2018
-ANSI/AWWA C652-19 | “Disinfection of Water-Storage Facilities”
-ANSI/AWWA D103- 19 | “Factory-Coated Bolted Carbon Steel Tanks for Water Storage”
-ANSI/AWWA D108-19 | “Aluminum Dome Roofs for Water Storage Facilities”
-ASTM A1011/A1011M-18a | “Standard Specification for Steel, Sheet and Strip, Hot-Rolled, Carbon, Structural, High-Strength Low-Alloy, High-Strength Low-Alloy with Improved Formability, and Ultra-High Strength”
-ASTM C31/C31M-19 a | “Standard Practice for Making and Curing Concrete Test Specimens in the Field”
-ASTM C920-18 | “Standard Specification for Elastomeric Joint Sealants”
+Los códigos de las normas nacionales que se indican entre paréntesis y que contienen el código "INTE", corresponden a la codificación anteriormente establecida por el Instituto de Normas Técnicas de Costa Rica (INTECO).
+ACI 350M-06 | "Code Requirements for Environmental Engineering Concrete Structures"
+Acuerdo Junta Directiva AyA Nº 2017-281 | "Norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial". Publicado en el ALCANCE N º 227 A,B,C,D,E,F,G de La Gaceta Nº 180 del 22 de setiembre del 2017
+Acuerdo de Junta Directiva del INVU, tomado en la sesión ordinaria Nº6306. | "Reglamento de Construcciones". Publicado en el Alcance Digital Nº62 de la Gaceta Nº54 del 22 de marzo del 2018
+ANSI/AWWA C652-19 | "Disinfection of Water-Storage Facilities"
+ANSI/AWWA D103- 19 | "Factory-Coated Bolted Carbon Steel Tanks for Water Storage"
+ANSI/AWWA D108-19 | "Aluminum Dome Roofs for Water Storage Facilities"
+ASTM A1011/A1011M-18a | "Standard Specification for Steel, Sheet and Strip, Hot-Rolled, Carbon, Structural, High-Strength Low-Alloy, High-Strength Low-Alloy with Improved Formability, and Ultra-High Strength"
+ASTM C31/C31M-19 a | "Standard Practice for Making and Curing Concrete Test Specimens in the Field"
+ASTM C920-18 | "Standard Specification for Elastomeric Joint Sealants"
 CCCR | Código de Cimentaciones de Costa Rica. Segunda edición 2009, primera reimpresión 2010.
-Decreto Ejecutivo Nº37070 MIVAH-MICIT-MOPT | “Código Sísmico de Costa Rica 2010”. Publicado en La Gaceta Nº 136 del 13 de julio del 2012.
-Decretos Ejecutivos Nº39144-S y Nº38924-S | “Reglamento para la Calidad del Agua Potable”. Publicado en La Gaceta Nº 170 del 1 de setiembre del 2015
-INTE C401: 2020 (INTE 06-09-02) | “Barras de acero de baja aleación, lisas y corrugadas para refuerzo de concreto. Requisitos”
-INTE C410: 2016 (INTE 06-09-12) | “Acero al Carbono Estructural. Requisitos.”
-INTE C415: 2016 (INTE 06-09-18) | “Perfiles de Acero Estructural. Requisitos.”
-ISO/IEC 17025: 2017 | “General requirements for the compentence of testing and calibration laboratories”
-ISO/IEC 17065: 2012 | “Conformity assessment – Requirements for bodies certifying products, processes and services”
-NSF 61 - 2017 | “Drinking Water Systems Components – Health Efeccts”
-RTCR 452: 2011 Decreto Ejecutivo Nº -MEIC 37341 | “Barras y alambres de acero de refuerzo para concreto. Especificaciones”. Publicado en La Gaceta Nº 197 del 11 de octubre del 2012.
-RTCR 476: 2015 Decreto Ejecutivo Nº 39297-MEIC | “Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad”. Publicado en La Gaceta Nº 223, en el Alcance 96 del 17 de noviembre del 2015
-RTCR 479: 2015 Decreto Ejecutivo Nº 39914-MEIC-S | “Materiales de Construcción, Cementos Hidráulicos. Especificaciones”. Publicado en La Gaceta Nº1 del 4 de enero del 2016
+Decreto Ejecutivo Nº37070 MIVAH-MICIT-MOPT | "Código Sísmico de Costa Rica 2010". Publicado en La Gaceta Nº 136 del 13 de julio del 2012.
+Decretos Ejecutivos Nº39144-S y Nº38924-S | "Reglamento para la Calidad del Agua Potable". Publicado en La Gaceta Nº 170 del 1 de setiembre del 2015
+INTE C401: 2020 (INTE 06-09-02) | "Barras de acero de baja aleación, lisas y corrugadas para refuerzo de concreto. Requisitos"
+INTE C410: 2016 (INTE 06-09-12) | "Acero al Carbono Estructural. Requisitos."
+INTE C415: 2016 (INTE 06-09-18) | "Perfiles de Acero Estructural. Requisitos."
+ISO/IEC 17025: 2017 | "General requirements for the compentence of testing and calibration laboratories"
+ISO/IEC 17065: 2012 | "Conformity assessment - Requirements for bodies certifying products, processes and services"
+NSF 61 - 2017 | "Drinking Water Systems Components - Health Efeccts"
+RTCR 452: 2011 Decreto Ejecutivo Nº -MEIC 37341 | "Barras y alambres de acero de refuerzo para concreto. Especificaciones". Publicado en La Gaceta Nº 197 del 11 de octubre del 2012.
+RTCR 476: 2015 Decreto Ejecutivo Nº 39297-MEIC | "Materiales de la construcción. Cementos hidráulicos. Procedimiento de Evaluación de la conformidad". Publicado en La Gaceta Nº 223, en el Alcance 96 del 17 de noviembre del 2015
+RTCR 479: 2015 Decreto Ejecutivo Nº 39914-MEIC-S | "Materiales de Construcción, Cementos Hidráulicos. Especificaciones". Publicado en La Gaceta Nº1 del 4 de enero del 2016
 Las normas que se referencian corresponden a la versión vigente durante la formulación de la presente especificación, pero como toda norma está sujeta a revisión por el emisor de la misma, las partes involucradas en su aplicación adquieren el compromiso de revisar los cambios que se originen de una versión a otra.
 7. Anexos (normativos)
 Los anexos que se adjuntan en este documento son de carácter normativo, ya que amplían o complementan los requisitos técnicos detallados en esta especificación técnica, por lo que corresponde su aplicación de forma conjunta con los requisitos establecidos.
