@@ -40,7 +40,7 @@ l.La importación de autobuses y las embarcaciones utilizadas para la prestació
 2) Exenciones referidas a operadoras de pensiones.
 Las comisiones pagadas a las operadoras de pensiones, conforme lo establece la Ley Nº 7983 del 16 de febrero de 2000 y sus reformas, denominada "Ley de Protección al Trabajador".
 La exención no se extiende a las gestiones de carteras por parte de las administradoras de fondos de inversión o de capital de riesgo o de fondos inmobiliarios.
-3) Exenciones referidas a entidades públicas, organismos internacionales yorganizaciones sin fines de lucro.
+3) Exenciones referidas a entidades públicas, organismos internacionales y organizaciones sin fines de lucro.
 a.Los bienes y los servicios que venda, preste o adquiera la Cruz RojaCostarricense, siempre y cuando sean necesarios para el cumplimiento de susfunciones.
 b.Los aranceles por matrícula y los créditos de los cursos brindados en lasuniversidades públicas, en cualquiera de sus áreas sustantivas. La exención nocubre aquellas áreas sustantivas en las que no se requiera el pago de un arancel pormatrícula o por los créditos por los cursos brindados.
 c.Los bienes y los servicios que venda, preste o adquiera el Benemérito Cuerpo deBomberos de Costa Rica, siempre y cuando sean necesarios para el cumplimientode las funciones definidas por ley.
@@ -62,6 +62,8 @@ i.Los servicios y los bienes comprados o adquiridos por las asociacionesadminist
 j.Las cuotas de afiliación y las mensualidades pagadas a los colegios profesionales,a las organizaciones sindicales y cámaras empresariales, debidamenteconformadas.
 k. Los bienes y servicios que adquieran las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados de conformidad con la Ley Nº 7935, Ley Integral para la Persona Adulta Mayor, de 25 de octubre de 1999.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
+L. La adquisición de bienes y servicios que haga el Organismo de Investigación Judicial (OIJ), para el cumplimiento de sus funciones.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44899 del 5 de diciembre de 2024)
 Para efectos de la adquisición de los bienes y servicios citados, el pago deberá realizarse por los medios bancarios y corroborarse que proviene de cuentas registradas a nombre de la entidad que está aplicando la exención.
 4) Exenciones referidas a otros bienes, derechos y servicios.
 (*)a. Está exenta la venta local o la importación de los siguientes bienes y la prestación de servicios destinados a mejorar la funcionalidad y garantizar la autonomía de las personas con discapacidad, conforme lo dispuesto en el artículo 2 de la Ley No. 7600 del 02 de mayo de 1996, denominada "Igualdad de Oportunidades para las Personas con Discapacidad":
@@ -151,6 +153,8 @@ k. Los contribuyentes registrados como exportadores, según lo dispuesto en el a
 (Así modificada la numeración del inciso anterior por el artículo 1° del decreto ejecutivo N° 42706 del 14 de octubre del 2020 que lo traspasó del inciso j) al k))
 l Las redes de cuido y los centros de atención para adultos mayores, tales como los hogares, centros diurnos, albergues u otras modalidades de atención integral de las personas adultas mayores que presten sus servicios sin fines de lucro y se encuentren debidamente acreditados ante la Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil y el Consejo Nacional de la Persona Adulta Mayor.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44073 del 18 de mayo del 2023)
+M. La adquisición de bienes y servicios que haga el Organismo de Investigación Judicial (OIJ), para el cumplimiento de sus funciones.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44889 del 5 de diciembre de 2024)
 La anterior lista no limita las facultades de la Administración Tributaria para incluir mediante resolución general cualquier otra persona física o jurídica o entidades o colectividades sin personalidad jurídica, públicas o privadas, que requieran solicitar la autorización para gozar de los beneficios aludidos, o bien excluirlas del trámite según el respectivo fundamento legal, siempre y cuando defina otro tipo de control específico.
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 44269 del 17 de octubre de 2023)
 Las exenciones indicadas en el artículo 8 de la Ley y no contempladas en este apartado no requerirán de autorización para su aplicación, debiendo respaldar sus operaciones mediante los comprobantes electrónicos autorizados por la Administración Tributaria, así como en sus registros contables.
