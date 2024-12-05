@@ -1,0 +1,5 @@
+Artículo 28.- Gastos Administrativos de las Asociaciones beneficiarias.
+La asociación beneficiaria, deberá retener el porcentaje de 6,16% del total anual, previsto en el artículo 24 del presente Manual, el cual utilizará para el cumplimiento de sus obligaciones comunes.
+De igual forma la Junta Directiva con activa participación de las personas beneficiarias podrán acordar mediante reuniones formales, que serán documentadas y firmadas por los participantes, otros montos a retener, para hacer frente a gastos comunes, como las delimitaciones, rótulos, vigilancia, transporte, mecanismos de control y reporte u otras obligaciones de los permisos de uso o del contrato de pago por servicios ambientales.
+Los montos restantes serán distribuidos entre los beneficiarios, para lo cual deberán realizarse los desembolsos a más tardar 15 días hábiles posteriores al depósito realizado en favor de la Asociación; sin que ello se traduzca en una relación laboral entre la Asociación y sus asociados.
+Para todos los efectos la Asociación será la responsable de los recursos entregados en virtud del contrato de pago por servicios ambientales o ecosistémicos en bosques de mangle.

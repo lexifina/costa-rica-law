@@ -1,0 +1,2 @@
+Artículo 4.- Sectores o Zonas de Bosque de Mangle y Asociaciones incluidas en el Plan Piloto.
+Para efectos de este proyecto se seleccionaron los sectores de acuerdo con lo establecido en los "Planes de Manejo para el Aprovechamiento de Moluscos (almejas, mejillones, almejón y pianguas) del Área de Conservación Tempisque, y las asociaciones ubicadas en estos sectores y que cumplen con los requisitos establecidos en este manual:

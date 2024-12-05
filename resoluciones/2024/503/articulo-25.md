@@ -1,0 +1,6 @@
+Artículo 25.- Trámite del Primer Desembolso.
+Posterior a la firma del contrato, FONAFIFO procederá con la gestión del primer desembolso a las Asociaciones participantes, disponiendo de hasta 10 días naturales para emitir la respectiva orden de pago; para lo cual, deberá:
+- Verificar la acreditación de la cuenta bancaria en colones de la Asociación y que ésta haya cumplido con la presentación del listado de beneficiarios, el plan de vigilancia, el código de ética, el nombramiento del supervisor interno, los mecanismos para el conteo y reportes, y la contratación de un contador.
+- Verificar la existencia del reporte de cumplimiento de los requisitos formales y corroborar el monto a pagar.
+- Realizar la consulta de morosidad de pago en la CCSS, FODESAF.
+Si la información estuviere correcta y completa, FONAFIFO procederá a generar la orden de pago respectiva, debiendo trasladarla a FUNBAM, la cual dispondrá de hasta 10 días naturales para realizar el depósito correspondiente. No obstante, si tras la verificación de la información se detectare inconsistencias, se notificará a la Asociación beneficiaria, otorgándole un plazo de hasta 10 días hábiles para su corrección. De no corregirse la inconsistencia en el tiempo señalado, se notificará a la Asociación y se anulará la solicitud de pago.

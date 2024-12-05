@@ -1,0 +1,2 @@
+Artículo 22.- Actividad de Vigilancia.
+Las Asociaciones deben desarrollar un plan de vigilancia y asumir dichas tareas, como, por ejemplo, recorridos periódicos por las zonas, para documentar delitos, generar la alerta oportuna y en la medida de lo posible, la anticipación a la extracción ilegal. Así como informar a las autoridades, facilitar documentación de anomalías, realizar el reporte en SITADA o al 1192, así como la Asistencia a Capacitaciones sobre vigilancia.

@@ -1,0 +1,2 @@
+Artículo 21.- Actividades de Monitoreo.
+Las actividades de monitoreo se basarán en las guías para la evaluación rápida de poblaciones de piangua del SINAC (2014) y la guía "Generación de la línea base para la elaboración de planes de manejo de moluscos bivalvos en humedales de manglar y playas lodo arenosas" del SINAC (2018). Los procedimientos y contenidos se fundamentan en el Decreto Ejecutivo N° 39411-MINAE-MAG, así como el Protocolo Oficializados PRONAMEC para el monitoreo de manglares. (Ver Anexo 6)

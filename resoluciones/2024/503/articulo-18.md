@@ -1,0 +1,2 @@
+Artículo 18.- De las Visitas de Control.
+Los órganos públicos participantes en el Plan Piloto para el Pago por Servicios Ambientales y/o Ecosistémicos de bosque de Manglar deberán ejercer sus acciones de control para supervisar el cumplimiento de las obligaciones asumidas por las Asociaciones y coadyuvar al éxito del proyecto. En la medida de lo posible, estas acciones serán previamente coordinadas a efecto de lograr realizar visitas conjuntas y maximizar los recursos disponibles.

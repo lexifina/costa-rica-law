@@ -1,0 +1,3 @@
+Artículo 20.- Crianza de Moluscos.
+Las Asociaciones deberán garantizar la creación de viveros en el medio que permitan la reproducción, el desove y generación de semilla para mantener las generaciones en el tiempo. La ubicación de los viveros y su correspondiente creación se guiará bajo la supervisión del Gestor Biólogo y la metodología aprobada por el INCOPESCA. (Ver Anexo 5).
+La actividad de crianza de moluscos funcionará como sitio de vivero y monitoreo para la reproducción, incluyendo: colección - separación- reubicación- registro de tallas, zonas de extracción, destino (comercialización, vivero o consumo propio), crecimiento y sobrevivencia- y monitoreo).

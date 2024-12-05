@@ -1,0 +1,2 @@
+Artículo 23.- Actividad de Aprovechamiento Sostenible.
+Las Asociaciones generarán a través de sus miembros participantes un uso racional de los recursos autorizados para el aprovechamiento de los moluscos indicados. Estas acciones deberán tener el menor impacto posible al ecosistema y mantenerse dentro de los límites de extracción permitidos para asegurar el aprovechamiento en condiciones de sostenibilidad.

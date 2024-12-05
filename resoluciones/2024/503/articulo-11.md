@@ -1,0 +1,2 @@
+Artículo 11.- Del Incumplimiento del contrato y del presente Manual.
+Las partes se comprometen a dar pleno cumplimiento a las obligaciones de hacer y no hacer establecidas en el contrato suscrito y en el presente Manual. La falta de cumplimiento faculta a la parte cumpliente a tomar acciones y a declarar unilateralmente el incumplimiento con responsabilidad; teniendo como excepción a lo anterior aquellas situaciones o circunstancias de fuerza mayor.
