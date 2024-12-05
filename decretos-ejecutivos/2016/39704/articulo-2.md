@@ -1,1 +1,0 @@
-Artículo 2º—El Ministerio de Salud y demás entes públicos velarán por la correcta aplicación de la presente Norma. Además tanto los entes públicos como los entes privados deberán cumplir con la presente Norma cuando se trate de la construcción de obras.
