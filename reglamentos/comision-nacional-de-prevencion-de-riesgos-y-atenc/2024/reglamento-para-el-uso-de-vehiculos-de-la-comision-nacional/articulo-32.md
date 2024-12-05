@@ -1,0 +1,1 @@
+Artículo 32º-La persona conductora en la utilización en el uso de los vehículos podrá liquidar los diferentes gastos que incurrió en la gira, mediante la aplicación de viáticos, pero con la autorización de la jefatura.

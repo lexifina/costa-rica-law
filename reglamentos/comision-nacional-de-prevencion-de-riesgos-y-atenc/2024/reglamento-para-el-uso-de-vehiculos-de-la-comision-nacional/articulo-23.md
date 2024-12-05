@@ -1,0 +1,4 @@
+TÍTULO VIII
+DE LOS ACCIDENTES DE TRÁNSITO CON VEHÍCULOS DE LA COMISIÓN NACIONAL DE
+PREVENCIÓN DE RIESGOS Y ATENCIÓN DE EMERGENCIAS
+Artículo 23º-Los funcionarios que sufran un accidente de tránsito mientras conducen vehículos institucionales, están obligados a llamar a la entidad aseguradora y a la oficina de Tránsito para reportar el hecho, así mismo informarán a la Persona Encargada del Proceso de Transportes y su jefatura respectiva y acatarán las disposiciones e instrucciones que se dispongan, trasladará la información que permita identificar a los conductores y vehículos involucrados en el evento, así como los testigos, lesionados y los daños sufridos tanto por los bienes institucionales como de terceros, así mismo deberán conducirse con el mayor respeto ante las autoridades, funcionarios de la entidad aseguradora y personas involucradas en el accidente.

@@ -1,0 +1,1 @@
+Artículo 35º-En la aplicación del régimen disciplinario se cumplirán los procedimientos y plazos que establezca el Reglamento Autónomo de Servicios de la CNE para garantizar el debido proceso a los funcionarios involucrados.

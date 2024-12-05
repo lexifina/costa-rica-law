@@ -1,0 +1,4 @@
+TÍTULO III
+DE LA ADMINISTRACIÓN DE LA FLOTILLA
+Artículo 8º-La administración de la flotilla de la CNE recaerá en la Persona Coordinadora del Proceso de Transportes. Se consideran unidades coadyuvantes en la administración de la flotilla las jefaturas de las dependencias que solicitan la asignación de vehículo (s), asumiendo por ello, responsabilidad respecto al uso de los automotores a ellos asignados.
+En el caso de las unidades coadyuvantes, la jefatura responsable del funcionario que utilizó la unidad vehicular, una vez finalizada la actividad que originó la solicitud del vehículo, deberá cerciorarse de que el automotor sea devuelto al Proceso de Transportes limpio, tanque lleno y estará en la obligación de informar a la Persona Encargada del Proceso de Transportes, cualquier anomalía que reporte el funcionario autorizado en cuanto al funcionamiento del vehículo.

@@ -1,0 +1,1 @@
+Artículo 24º-Tratándose de accidentes de tránsito, se prohíbe a las personas conductoras y funcionarios autorizados, efectuar cualquier tipo de arreglo extrajudicial que no haya sido previamente consultado con el Proceso de Transportes y que se encuentre apegado a la normativa interna que sobre esta materia se comunique.
