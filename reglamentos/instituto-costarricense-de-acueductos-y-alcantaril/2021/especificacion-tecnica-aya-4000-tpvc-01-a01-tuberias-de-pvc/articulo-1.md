@@ -52,12 +52,18 @@ En relación con la tubería que se fabrica de conformidad con la norma INTE C17
 Por lo tanto, la especificación o detalle técnico del tubo seleccionado debe indicar el compuesto plástico, la presión de trabajo[2], la norma de fabricación y el "SDR" ó "DR"o la cédula SCH según corresponda.
 [2] Las normas de fabricación INTE 16-01-01 incluyen una definición de presión de trabajo que debe ser entendida como presión nominal dentro del contexto de cada norma, para ser consecuentes con las definiciones de la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial (AyA).
 4.2. Requisitos específicos
-4.2.1. Diámetro
-Se acepta el uso de tubería según la norma de ASTM C3034 en flujos a gravedad, en redes terciarias (red general), redes secundarias (subcolectores), redes primarias (colectores) o previstas, para los diámetros definidos en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, con las disposiciones, salvedades o excepciones establecidas en dicha norma técnica emitida por AyA, incluido lo relacionado con sus aplicaciones en sistemas de saneamiento de aguas residuales.
-En el caso particular de líneas de impulsión y sifones, se acepta el uso de tubería según la norma de fabricación INTE C173 (INTE 16-01-01), para los diámetros definidos en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, con las disposiciones, salvedades o excepciones establecidas en dicha norma técnica emitida por AyA.
-Para las líneas de impulsión y sifones también se acepta el uso de la norma INTE C175 (INTE 16-01-04), para este caso particular únicamente se admite tubería de cédula 40 y 80 en un diámetro nominal de 200 mm o inferior y para tubería no roscada.
-Consecuente con lo anterior y verificada la presión de trabajo a la que estará sometida la tubería, si se determina el uso de tubería para un SDR 26 (HDS 2000 psi), para esta condición se acepta como sustituto el uso de tubería cédula 40, manteniendo la condición del diámetro nominal de 200 mm o inferior. Así mismo, para el caso particular del SDR 17 (HDS 2000 psi), se acepta como sustituto el uso de tubería cédula 80, manteniendo la condición del diámetro nominal de 200 mm o inferior.
-Adicionalmente, se acepta el uso de la tubería según la norma de fabricación ASTM F679 en flujos por gravedad, en redes secundarias (subcolectores) o redes primarias (colectores) a partir de 450 mm de diámetro, así como el uso de la tubería según la norma de fabricación ASTM F949 en flujo por gravedad, en redes terciarias (red general), redes secundarias (subcolectores) o redes primarias (colectores) siempre que la pendiente sea superior al 1%; lo anterior, se aplica con las disposiciones, salvedades o excepciones establecidas en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, en lo correspondiente. En el caso particular la norma INTE C175 (INTE 16-01-04) solo se acepta el uso de tubería de cédula 40 y 80.
+4.2.1. Tubería para flujo a gravedad
+Se acepta el uso de tubería según la norma ASTM D3034 en flujos a gravedad, en redes terciarias (red general), redes secundarias (subcolectores), redes primarias (colectores) o previstas, para los diámetros definidos en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, con las disposiciones, salvedades o excepciones establecidas en dicha norma técnica emitida por AyA, incluido lo relacionado con sus aplicaciones en sistemas de saneamiento de aguas residuales.
+También, se acepta el uso de la tubería según la norma de fabricación ASTM F679 en flujos por gravedad, en redes secundarias (subcolectores) o redes primarias (colectores) a partir de 450 mm de diámetro, así como el uso de la tubería según la norma de fabricación ASTM F949 en flujo por gravedad, en redes terciarias (red general), redes secundarias (subcolectores) o redes primarias (colectores).
+La tubería en flujos a gravedad debe instalarse con una pendiente igual o superior al 1% y debe cumplir la fuerza tractiva mínima indicada en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, emitida por AyA.
+De forma excepcional, cuando la zona donde se instalará la tubería sea de topografía regular o presente restricciones de profundidad por aspectos operativos, previo razonamiento técnico que demuestre la imposibilidad de utilizar una pendiente igual o superior al 1%, debidamente documentado, el valor mínimo de la pendiente será de 0,60%; lo anterior, siempre que se cumpla con la fuerza tractiva indicada en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, emitida por AyA.
+Cuando la pendiente tenga un valor igual o superior a 0,60% y menor al 1%, se deben adicionar los detalles técnico-constructivos y especificaciones técnicas que garanticen el cumplimiento de estos valores in situ.
+Todo lo anterior, se aplica conjuntamente con las disposiciones, salvedades o excepciones establecidas en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, en lo correspondiente.
+Tubería para flujo a presión y sifones
+En el caso particular de líneas de impulsión y sifones, se acepta el uso de tubería según la norma de fabricación INTE C173 (INTE 16-01-01), para los diámetros definidos en la Norma Técnica de Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Pluvial, con disposiciones, salvedades o excepciones establecidas en dicha norma técnica emitida por AyA.
+También se acepta el uso de la norma INTE C175 (INTE 16-01-04), para este caso únicamente se admite tubería de cédula 40 y 80 en un diámetro nominal de 200 mm o inferior y para tubería no roscada.
+Consecuente con lo anterior y verificada la presión de trabajo a la que estará sometida la tubería, si el diseñador determina que se requiere el uso de tubería para un SDR 26 (HDS 2000 psi), para esta condición se acepta como sustituto el uso de tubería cédula 40, manteniendo la condición del diámetro nominal de 200 mm o inferior. Así mismo, para el caso del SDR 17 (HDS 2000 psi), se acepta como sustituto el uso de tubería cédula 80, manteniendo la condición del diámetro nominal de 200 mm o inferior.
+(Así reformado el punto 4.2.1 anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 4.2.2 Deflexión anular
 La deflexión anular es la deformación de la sección transversal como respuesta de una tubería flexible a las cargas externas impuestas.
 Las cargas a las cuales está sometida la tubería inciden en la deformación de la misma; el resultado de este comportamiento provoca la redistribución de los esfuerzos en el relleno de la tubería.
@@ -80,19 +86,24 @@ En la oferta técnica se debe incorporar un capítulo de "Manipulación, almacen
 Así mismo, se deben incluir en este capítulo toda disposición, que para tales efectos, se indiquen en las normas técnicas de fabricación aplicables a la tubería.
 6. Documentos normativos de referencia
 Las normas que se citan en este apartado forman parte integral de los requisitos técnicos incluidos en este documento. Las ediciones indicadas estaban en vigencia al momento de formular la presente especificación:
-ASTM D2241: 2015 "Standard Specification for Poly(Vinyl
-Chloride) (PVC) Pressure-Rated Pipe (SDR Series)"
+ASTM D2241: 2020 "Standard Specification for Poly(Vinyl Chloride) (PVC) Pressure-Rated Pipe (SDR Series)"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 ASTM D3139: 2019 "Standard Specification for Joints for Plastic Pressure Pipes Using Flexible Elastomeric Seals"
-ASTM D3034: 2016 "Standard Specification for Type PSM Poly(Vinyl Chloride) (PVC) Sewer Pipe and Fittings"
+ASTM D3034: 2021 "Standard Specification for Type PSM Poly(Vinyl Chloride) (PVC) Sewer Pipe and Fittings"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 ASTM F949:2020 "Standard Specification for Poly(Vinyl Chloride) (PVC) Corrugated Sewer Pipe With a Smooth Interior and Fittings"
 También fueron revisadas las siguientes normas técnicas de referencia, las cuales se consideran parte integral de esta especificación:
 Acuerdo Junta Directiva AyA Nº 2017-281 "Norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial". Publicado en los ALCANCE N º 227 A,B,C,D,E,F,G de La Gaceta Nº 180 del 22 de setiembre del 2017
 ASTM F679: 2016 "Standard Specification for Poly(Vinyl Chloride) (PVC) Large-Diameter Plastic
 Gravity Sewer Pipe and Fittings1"
-INTE C173: 2014 "Plásticos - Tubos de poli (cloruro de vinilo) (PVC) clasificados según la presión de trabajo (Serie SDR)"
-INTE C175: 2015 "Tubería plástica de Poli (Cloruro de vinilo) (PVC) cédula 40,80 y 120"
-INTE C224: 2016 Tuberías de PVC de pared estructurada con interior liso para alcantarillado y sus accesorios
-INTE Q73: 2012 "Compuestos de Poli (Cloruro de Vinilo) (PVC) Rígido y Compuestos de Poli (Cloruro de Vinilo) Clorado (CPVC) - Requisitos"
+INTE C173: 2021 "Plásticos - Tubos de poli(cloruro de vinilo) (PVC) clasificados según la presión de trabajo (Serie SDR)"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
+INTE C175: 2021 "Tubería plástica de Poli (Cloruro de vinilo) (PVC) cédula 40,80 y 120"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
+INTE C224: 2021 Tuberías de PVC de pared estructurada con interior liso para alcantarillado y sus accesorios"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
+INTE Q73: 2022 "Compuestos de Poli (Cloruro de Vinilo) (PVC) Rígido y Compuestos de Poli (Cloruro de Vinilo) Clorado (CPVC) - Requisitos"
+(Así reformada la referencia anterior mediante publicación en el Alcance Digital N° 196 a La Gaceta N° 229 del 5 de diciembre del 2024)
 En caso de que una norma sea actualizada por el emisor de forma posterior a la entrega de la oferta técnica o durante el proceso de suministro o instalación, el contratante y el contratista deben revisar si los requisitos contenidos en la norma mantienen su aplicación, dentro del alcance de la presente especificación técnica.
 Los códigos de las normas nacionales que se indican entre paréntesis y que contienen el código "INTE", corresponden a la codificación anteriormente establecida por el Instituto de Normas Técnicas de Costa Rica (INTECO).
 7. Anexos (normativos e informativos)

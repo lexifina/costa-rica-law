@@ -14,3 +14,4 @@ Especificación Técnica AyA-4000-TPVC-01-A01 Tuberías de PVC de uso subterrán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-06-25 | la propia norma |
+| 2 | 2024-12-05 | Reglamento 0 (2024-12-05) |
