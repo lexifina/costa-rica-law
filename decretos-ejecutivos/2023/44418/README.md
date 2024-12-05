@@ -14,3 +14,4 @@ Publicación Resolución Nº 475-2023 (COMIECO-EX) de fecha 05 de junio de 2023:
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-05 | la propia norma |
+| 2 | 2024-12-05 | Decreto Ejecutivo 44676 (2024-07-02) |
