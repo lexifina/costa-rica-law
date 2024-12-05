@@ -1,5 +1,0 @@
-CAPÍTULO X
-De los procedimientos de autorización de uso
-de vehículos del proceso de transportes
-Artículo 26.—Procedimiento para obtener servicio de transporte. Todo servicio de transporte se gestionará obligatoriamente mediante un formulario denominado “Solicitud de vehículo”. El Proceso de Transportes sólo tramitará aquellas solicitudes cuya información solicitada esté completa y debidamente autorizada por el Jefe de la dependencia solicitante y que haya sido presentada con al menos 3 días de anticipación a la fecha en la que se requiere el vehículo.
-En situaciones de emergencia o en situaciones especiales, en horas no hábiles, podrá prestarse el servicio aun cuando el formulario no esté completo o se solicite el servicio vía telefónica, siempre que medie autorización de la Jefatura de Operaciones, la Dirección de Gestión del Riesgo, de la Dirección de Gestión Administrativa, de la Dirección Ejecutiva o de la Presidencia y que sea comunicada al Proceso de Transportes. Posteriormente se procederá a llenar la fórmula de solicitud con los requisitos solicitados y autorizaciones respectivas y se presentará al Proceso de Transportes.

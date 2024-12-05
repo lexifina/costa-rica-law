@@ -1,1 +1,0 @@
-Artículo 11.—De la coordinación de actividades. Para un mejor aprovechamiento de recursos el Proceso de Transportes y las dependencias que tengan asignados vehículos, procurarán agrupar en un solo viaje los requerimientos de transporte que se generen hacia un mismo destino o las gestiones que deban ser atendidas cerca o dentro de la ruta propuesta.

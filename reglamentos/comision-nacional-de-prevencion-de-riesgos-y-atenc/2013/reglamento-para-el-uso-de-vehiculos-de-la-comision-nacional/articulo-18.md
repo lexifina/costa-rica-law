@@ -1,1 +1,0 @@
-Artículo 18.—Vigencia de la autorización. La autorización institucional de manejo tendrá una vigencia de cinco años, prorrogables a períodos iguales siempre y cuando así lo decida la Administración Superior.
