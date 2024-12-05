@@ -3,29 +3,29 @@ LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 Con fundamento en las atribuciones que les confieren los artículos 50, 140 incisos 3) y 18) y artículo 146 de la Constitución Política; los artículos 27 inciso 1) y artículo 28 inciso 2) acápite b) de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública y de acuerdo con lo dispuesto en la Ley General de Salud y sus reformas, Ley Nº 5395 del 30 de octubre de 1973. Y
 Considerando:
-1º—Que es función esencial del Estado, velar por la protección de la salud de la población.
-2º—Que el Estado tiene también la responsabilidad de garantizar el bienestar de los ciudadanos, sin que por ello se obstaculicen innecesariamente las condiciones de competitividad para el desenvolvimiento de la actividad económica del país.
-3º—Que existe un creciente número de productos comercializados en calidad de alimentos que contienen fuentes concentradas de nutrientes u otros componentes y que se presentan con la finalidad de complementar la ingesta de los mismos en la dieta.
-4º—Que es necesario establecer la clasificación para fines de registro sanitario, de dichos productos como suplementos a la dieta y además especificar requisitos relativos a su composición, etiquetado y comercialización, de manera que se promueva un correcto uso de los mismos por parte de la población. Por tanto,
+1º-Que es función esencial del Estado, velar por la protección de la salud de la población.
+2º-Que el Estado tiene también la responsabilidad de garantizar el bienestar de los ciudadanos, sin que por ello se obstaculicen innecesariamente las condiciones de competitividad para el desenvolvimiento de la actividad económica del país.
+3º-Que existe un creciente número de productos comercializados en calidad de alimentos que contienen fuentes concentradas de nutrientes u otros componentes y que se presentan con la finalidad de complementar la ingesta de los mismos en la dieta.
+4º-Que es necesario establecer la clasificación para fines de registro sanitario, de dichos productos como suplementos a la dieta y además especificar requisitos relativos a su composición, etiquetado y comercialización, de manera que se promueva un correcto uso de los mismos por parte de la población. Por tanto,
 Decretan:
-Artículo 1º—Aprobar el siguiente reglamento:
+Artículo 1º-Aprobar el siguiente reglamento:
 Rtcr 436:2009 Suplementos a la Dieta.
 Requisitos de Registro Sanitario,
 Importación, Desalmacenaje,
 Etiquetado y Verificación
-Io—Objetivo y ámbito de aplicación. El objetivo de este reglamento es establecer las condiciones y los requisitos para el registro sanitario, importación, desalmacenaje, etiquetado y verificación de los suplementos alimenticios.
+Io-Objetivo y ámbito de aplicación. El objetivo de este reglamento es establecer las condiciones y los requisitos para el registro sanitario, importación, desalmacenaje, etiquetado y verificación de los suplementos alimenticios.
 Este reglamento se aplicará a todos los suplementos a la dieta que se comercialicen en el territorio nacional.
 Los alimentos para regímenes especiales no se consideran parte de este reglamento.
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
-2o—Referencias. Este reglamento se complementa con los siguientes:
-1) Decreto Ejecutivo N° 37280-COMEX-MEIC del 18 de junio del 2012 “Publica Resolución N° 280-2012 (COMIECO-LXII) de fecha 14 de mayo de 2012 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.01.07:10 Etiquetado General de los Alimentos Previamente Envasados" (Preenvasados)", publicado en el Alcance N° 133 a La Gaceta N° 180 del 18 de septiembre de 2012.
+2o-Referencias. Este reglamento se complementa con los siguientes:
+1) Decreto Ejecutivo N° 37280-COMEX-MEIC del 18 de junio del 2012 "Publica Resolución N° 280-2012 (COMIECO-LXII) de fecha 14 de mayo de 2012 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.01.07:10 Etiquetado General de los Alimentos Previamente Envasados" (Preenvasados)", publicado en el Alcance N° 133 a La Gaceta N° 180 del 18 de septiembre de 2012.
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
-2) Decreto Ejecutivo N° 37295-COMEX-MEIC-S del 18 de junio del 2012 “Publica Resolución N° 281-2012 (COMIECO-LXII) de 14 de mayo del 2012, modificaciones al Reglamento Técnico Centroamericano RTCA 67.01.60:10 "Etiquetado Nutricional de Productos Alimenticios Preenvasados para Consumo Humano para población a partir de 3 años”, publicado en el Alcance N° 138 a La Gaceta N° 185 del 25 de septiembre de 2012.
+2) Decreto Ejecutivo N° 37295-COMEX-MEIC-S del 18 de junio del 2012 "Publica Resolución N° 281-2012 (COMIECO-LXII) de 14 de mayo del 2012, modificaciones al Reglamento Técnico Centroamericano RTCA 67.01.60:10 "Etiquetado Nutricional de Productos Alimenticios Preenvasados para Consumo Humano para población a partir de 3 años", publicado en el Alcance N° 138 a La Gaceta N° 185 del 25 de septiembre de 2012.
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
-3) Decreto Ejecutivo N° 39472-S del 18 de enero del 2016 “Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento Otorgados por el Ministerio de Salud”, publicado en el Alcance Digital N° 13 a La Gaceta N° 26 del 8 de febrero del 2016.
+3) Decreto Ejecutivo N° 39472-S del 18 de enero del 2016 "Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento Otorgados por el Ministerio de Salud", publicado en el Alcance Digital N° 13 a La Gaceta N° 26 del 8 de febrero del 2016.
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 4) Decreto Ejecutivo N° 33724. RTCA 67.01.30:06. Reglamento Técnico Centroamericano. Alimentos Procesados. Procedimiento para otorgar la licencia sanitaria a fábricas y bodegas. Publicado en La Gaceta del 30 de abril del 2007.
-3º—Definiciones. Para la aplicación del presente Reglamento se entenderá por:
+3º-Definiciones. Para la aplicación del presente Reglamento se entenderá por:
 3.1) Bebidas energéticas: (Derogado por artículo 3° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 3.2) Certificado de Buenas Prácticas de Manufactura: Es el documento expedido por la autoridad sanitaria del país de origen o por un ente certificador autorizado, en el que se certifica que el fabricante del suplemento al que se refiere, cumple satisfactoriamente con los requerimientos de las Buenas Prácticas para suplementos a la dieta.
 3.3) Certificado de Libre Venta y Consumo: Certificado de Libre Venta y Consumo: Es el documento expedido por la autoridad competente del país de origen, debidamente consularizado, en el cual se indica que la venta del suplemento alimenticio está legalmente autorizada en ese país.
@@ -44,13 +44,13 @@ Los alimentos para regímenes especiales no se consideran parte de este reglamen
 (Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 3.16) Tarifa: Monto establecido en forma oficial, que establece los derechos que deben cancelarse como requisito para el trámite, el registro y la verificación.
 3.17) Titular del producto: Es aquella persona física o jurídica propietaria del suplemento a la dieta.
-4º—Símbolos y abreviaturas:
+4º-Símbolos y abreviaturas:
 4.1) mg: miligramo
 4.2) ml: mililitro
 4.3) µg ER: microgramo de equivalente de retinol
 4.4) µg: microgramo
 4.5) NOEA: Nivel sin efecto adverso observado
-5º—De la administración del Registro Sanitario de los Suplementos a la dieta. El Ministerio de Salud, a través de la Dirección de Regulación de Productos de Interés Sanitario, será la autoridad competente de otorgar, denegar, suspender o cancelar el registro de los suplementos a la dieta.
+5º-De la administración del Registro Sanitario de los Suplementos a la dieta. El Ministerio de Salud, a través de la Dirección de Regulación de Productos de Interés Sanitario, será la autoridad competente de otorgar, denegar, suspender o cancelar el registro de los suplementos a la dieta.
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 6°-Aspectos generales sobre el registro sanitario de Suplementos a la dieta.
 Para comercializar, importar y distribuir los suplementos a la dieta, se debe contar previamente con el registro sanitario vigente, de acuerdo con los requisitos establecidos en este reglamento.
@@ -58,7 +58,7 @@ El registro no excluirá la responsabilidad plena de las personas físicas o jur
 El Ministerio podrá reconocer los registros de los suplementos a la dieta, registrados en los países que el Ministerio considere cuentan con normativa similar o superior a la nuestra. Se faculta al Ministerio de Salud para que, vía resolución ministerial, debidamente razonada, establezca la lista de países que cuentan con esa normativa similar o superior a la nuestra. Dicha resolución ministerial deberá ser publicada en la página web del Ministerio de Salud: www.ministeriodesal.ud.go.cr. El procedimiento y requisitos para este reconocimiento serán publicados vía reglamento.
 Se exceptúan del registro las muestras sin valor comercial de suplementos a la dieta."
 (Así reformado el inciso 6) anterior por el artículo 3° del decreto ejecutivo N° 40233 del 13 de enero del 2017)
-7o—Requisitos para el registro sanitario de Suplementos a la dieta.
+7o-Requisitos para el registro sanitario de Suplementos a la dieta.
 Para el registro sanitario de suplementos a la dieta, el interesado deberá ingresar al sistema regístrelo del Ministerio, la siguiente información:
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 7.1. ) Formulario de solicitud de registro, firmado digitaimente por el titular del producto o su representante legal.
@@ -76,6 +76,12 @@ En caso de especies vegetales se debe indicar nombre científico y parte de la p
 7.8) Indicar la referencia o metodología analítica utilizada para verificar la presencia de los nutrientes o componentes contenidos en el suplemento a la dieta.
 (Así reformado el acápite anterior fue reformado por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 7.9) Pago de la tarifa fijada para el registro, según lo establece el Decreto Ejecutivo Nº 32468, publicado en el Diario Oficial La Gaceta Nº 137 del 15 de julio de 2005.
+(*)7.10. Los suplementos a la dieta que contengan cáñamo o derivados de cáñamo, además, de lo señalado en los numerales anteriores, deben complementar o presentar de manera adicional los siguientes requisitos:
+a. La Fórmula cualitativa y cuantitativa si corresponde debe indicar la declaración cualitativa de los solventes utilizados en el proceso de fabricación.
+b. Adjuntar método de ensayo utilizado para la determinación de THC, THCA y CBD y CBDA en el producto terminado.
+c. Descripción del método de obtención del producto o del derivado utilizado como materia prima (según corresponda) y los controles del proceso, emitido por el fabricante o titular.
+d. Para suplementos a la dieta elaborados por fabricantes nacionales, el formulario de solicitud de inscripción, renovación o modificaciones al registro sanitario debe indicar el número de autorización para la fabricación de productos de interés sanitario con cáñamo o con derivados de cáñamo.
+(*)(Así adicionado el inciso 7.10) anterior por el artículo 3° del decreto ejecutivo N° 44844 del 5 de diciembre del 2024, que aprobó el Reglamento técnico N° RTCR 511:2023 Cáñamo, derivados y productos de interés sanitario que contengan cáñamo. Disposiciones administrativas, registro sanitario, etiquetado, especificaciones, control y publicidad)
 8o- Concentraciones mínimas y máximas de vitaminas y minerales.
 a) Los suplementos a la dieta con vitaminas y minerales, deben contener no menos de las concentraciones especificadas en el anexo 1 para las vitaminas y los minerales que estén en el suplemento. Dichas concentraciones corresponden al 20% de las RDI de Estados Unidos de América. Los suplementos a la dieta que contengan algunas vitaminas o minerales cuya concentración sea inferior a los valores mínimos establecidos en el anexo 1, se podrán registrar como suplementos pero no podrá indicarse dentro del nombre o la función la palabra suplemento.
 En caso de que las concentraciones de todas las vitaminas y minerales sean inferiores al nivel mínimo establecido en el anexo 1, el producto no se puede registrar como suplemento a la dieta.
@@ -89,22 +95,29 @@ b) Los suplementos a la dieta no podrán exceder las concentraciones máximas de
 9.1.2) Detallar la composición por forma dosificada. En caso de que contenga plantas, debe indicarse su nombre común, junto con el nombre científico y la parte de la planta utilizada. Para suplementos con probióticos indicar nombre científico y código de registro de la bacteria, así como la dosis que tiene el suplemento. Para la declaración de las cantidades de ingredientes, se deben utilizar las unidades de medida correspondientes en conformidad a la Ley del Sistema Internacional de Medidas.
 9.1.3) Indicar la recomendación de consumo máximo diario, según presentación comercial del suplemento a la dieta.
 9.1.4) Incluir las siguientes leyendas o frases equivalentes:
-a) “ESTE PRODUCTO NO DEBE USARSE PARA EL DIAGNÓSTICO, TRATAMIENTO, CURA O PREVENCIÓN DE ALGUNA ENFERMEDAD Y NO SUPLE UNA ALIMENTACIÓN EQUILIBRADA”;
-b) “NO UTILIZAR EN MUJERES EMBARAZADAS, EN PERÍODO DE LACTANCIA O EN NIÑOS” excepto los dirigidos específicamente para estas poblaciones, que deben indicar la leyenda “UTILICESE BAJO SUPERVISIÒN MEDICA”.
-c)“MANTENGASE FUERA DEL ALCANCE DE LOS NIÑOS”.
-d) Los suplementos a la dieta que contengan tartrazina o FDC amarillo número cinco, deberán indicar que contienen este colorante e incluir la leyenda: “CONTIENE TARTRAZINA O FDC AMARILLO CINCO QUE PUEDE CAUSAR REACCIONES ALÉRGICAS EN PERSONAS SENSIBLES”;
-e) Los suplementos a la dieta que contienen el edulcorante aspartame, deben incluir la leyenda: “FENILCETONURICOS CONTIENE FENILALANINA”.
-f) Los suplementos a la dieta que contengan cafeína, deberán cuantificar dicho ingrediente e incluir la leyenda: “NO SE RECOMIENDA EL CONSUMO DE ESTE PRODUCTO POR PERSONAS SENSIBLES A LA CAFEÍNA.”
+a) "ESTE PRODUCTO NO DEBE USARSE PARA EL DIAGNÓSTICO, TRATAMIENTO, CURA O PREVENCIÓN DE ALGUNA ENFERMEDAD Y NO SUPLE UNA ALIMENTACIÓN EQUILIBRADA";
+b) "NO UTILIZAR EN MUJERES EMBARAZADAS, EN PERÍODO DE LACTANCIA O EN NIÑOS" excepto los dirigidos específicamente para estas poblaciones, que deben indicar la leyenda "UTILICESE BAJO SUPERVISIÒN MEDICA".
+c)"MANTENGASE FUERA DEL ALCANCE DE LOS NIÑOS".
+d) Los suplementos a la dieta que contengan tartrazina o FDC amarillo número cinco, deberán indicar que contienen este colorante e incluir la leyenda: "CONTIENE TARTRAZINA O FDC AMARILLO CINCO QUE PUEDE CAUSAR REACCIONES ALÉRGICAS EN PERSONAS SENSIBLES";
+e) Los suplementos a la dieta que contienen el edulcorante aspartame, deben incluir la leyenda: "FENILCETONURICOS CONTIENE FENILALANINA".
+f) Los suplementos a la dieta que contengan cafeína, deberán cuantificar dicho ingrediente e incluir la leyenda: "NO SE RECOMIENDA EL CONSUMO DE ESTE PRODUCTO POR PERSONAS SENSIBLES A LA CAFEÍNA."
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
 g) (Derogado este inciso por artículo 3° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
-10.—Plazos para resolución. Una vez recibida la documentación completa y correcta, será evaluada por la Dirección de Atención al Cliente, dentro de un plazo de un mes calendario.
+(*) 9.1.5. En los suplementos a la dieta que contengan cáñamo o derivados de cáñamo deben declararse las siguientes advertencias:
+a. "No exceder el consumo del producto declarado en la recomendación de consumo o modo de empleo".
+b. "No consumir en mujeres embarazadas, en periodo de lactancia y por menores de dieciocho (18) años".
+c. "Los suplementos a la dieta a base de cáñamo y otros alimentos a base de cáñamo no deben consumirse al mismo tiempo"
+(*)(Así adicionado el inciso 9.1.5) anterior por artículo 3° del decreto ejecutivo N° 44844 del 5 de diciembre del 2024, que aprobó el Reglamento técnico N° RTCR 511:2023 Cáñamo, derivados y productos de interés sanitario que contengan cáñamo. Disposiciones administrativas, registro sanitario, etiquetado, especificaciones, control y publicidad)
+(*) 9.1.6. Para suplementos a la dieta que contengan cáñamo o derivados de cáñamo se debe indicar la concentración expresada en miligramos del contenido de CBD y THC por porción. Para el caso de THC se puede indicar la frase "este producto no contiene THC", cuando el certificado de ensayo utilizado como referencia para la declaración de la conformidad indique "no detectado".
+(*)(Así adicionado el inciso 9.1.6) anterior por artículo 3° del decreto ejecutivo N° 44844 del 5 de diciembre del 2024, que aprobó el Reglamento técnico N° RTCR 511:2023 Cáñamo, derivados y productos de interés sanitario que contengan cáñamo. Disposiciones administrativas, registro sanitario, etiquetado, especificaciones, control y publicidad)
+10.-Plazos para resolución. Una vez recibida la documentación completa y correcta, será evaluada por la Dirección de Atención al Cliente, dentro de un plazo de un mes calendario.
 Si se necesitara aclaración, correcciones o ampliación de la información presentada, la Administración antes de vencido el plazo del mes, solicitará por una sola vez al interesado por medio de una resolución administrativa debidamente fundamentada técnica y legalmente, para que la suministre, en un término de diez (10) días hábiles. El cual interrumpe el plazo de resolución de la administración pública. Si dentro de este plazo el interesado no presenta la información solicitada, se entenderá que desiste de la petición y en consecuencia, el Ministerio procederá mediante resolución motivada a declarar el abandono de la petición y acto seguido, se archivará la solicitud. No habrá lugar a devolución por concepto del pago respectivo.
 Una vez que el solicitante presente la información requerida, el Ministerio continuará el trámite.
-11.—Vigencia del Registro Sanitario. La vigencia del registro sanitario será de cinco (5) años renovables por períodos iguales, salvo que los titulares hayan cometido infracciones que ameriten su cancelación anticipada o que el suplemento alimenticio registrado, a criterio de la autoridad de salud, constituya un peligro para la salud pública.
+11.-Vigencia del Registro Sanitario. La vigencia del registro sanitario será de cinco (5) años renovables por períodos iguales, salvo que los titulares hayan cometido infracciones que ameriten su cancelación anticipada o que el suplemento alimenticio registrado, a criterio de la autoridad de salud, constituya un peligro para la salud pública.
 12. Renovación del registro sanitario.
 La renovación del registro de los suplementos alimenticios, deberá gestionarse previo a la caducidad del mismo. Para ello se deberá ingresar en el sistema regístrelo del Ministerio una declaración jurada firmada por el representante legal en forma digital, en la que manifieste que se mantienen las condiciones e información del registro sanitario vigente. Además, se deberá presentar certificado de libre venta o su equivalente y certificado de buenas prácticas de manufactura, según se detalla en el apartado 7u de este reglamento."
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016.)
-13.—Modificaciones al registro sanitario. Cuando se realicen cambios en la información o características del suplemento a la dieta, el interesado debe solicitar su aprobación a la autoridad adjuntando los requisitos para el trámite de las modificaciones que se enumeran a continuación. Toda la documentación debe ser presentada en idioma castellano/español, los documentos oficiales escritos en idioma distinto, deben presentarse con su respectiva traducción oficial.
+13.-Modificaciones al registro sanitario. Cuando se realicen cambios en la información o características del suplemento a la dieta, el interesado debe solicitar su aprobación a la autoridad adjuntando los requisitos para el trámite de las modificaciones que se enumeran a continuación. Toda la documentación debe ser presentada en idioma castellano/español, los documentos oficiales escritos en idioma distinto, deben presentarse con su respectiva traducción oficial.
 13.1. Cambio de razón social del solicitante:
 13.1.1 Documento legal que certifica el cambio.
 13.1.2 Personería jurídica original de la nueva razón social del solicitante, la que no podrá tener más de tres meses de expedida.
@@ -124,19 +137,19 @@ La renovación del registro de los suplementos alimenticios, deberá gestionarse
 13.7 Cambio de étiqueta
 Nuevo Proyecto de etiquetado o nueva étiqueta original.
 (Así adicionado el acápite anterior por el artículo 2° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
-14.—Importación y desalmacenaje. El desalmacenaje de suplementos a la dieta en aduanas sólo se podrá realizar mediante la verificación de que el producto se encuentra debidamente registrado ante el Ministerio.
-15.—Verificación. El Ministerio será el responsable de vigilar y verificar este reglamento técnico, para lo cual podrán realizar inspecciones y tomar muestras para análisis y control de calidad tanto en el mercado, las aduanas como en las casas fabricantes nacionales u otros establecimientos autorizados. En caso de que el producto presente un ingrediente o aditivo cuya presencia no pueda analizarse en el país, se requerirá al fabricante o importador, un certificado de análisis del producto, expedido por la autoridad sanitaria del país de origen o un laboratorio reconocido por aquella.
-16.—De la aplicación de medidas especiales. En el caso de demostrarse el incumplimiento o la falsedad de lo declarado en el registro ante el Ministerio, la autoridad sanitaria retendrá, decomisará, o retirará de circulación el producto respectivo o se cancelará su registro según corresponda, previa notificación al representante legal, quien deberá asumir los costos de la medida sanitaria aplicada.
+14.-Importación y desalmacenaje. El desalmacenaje de suplementos a la dieta en aduanas sólo se podrá realizar mediante la verificación de que el producto se encuentra debidamente registrado ante el Ministerio.
+15.-Verificación. El Ministerio será el responsable de vigilar y verificar este reglamento técnico, para lo cual podrán realizar inspecciones y tomar muestras para análisis y control de calidad tanto en el mercado, las aduanas como en las casas fabricantes nacionales u otros establecimientos autorizados. En caso de que el producto presente un ingrediente o aditivo cuya presencia no pueda analizarse en el país, se requerirá al fabricante o importador, un certificado de análisis del producto, expedido por la autoridad sanitaria del país de origen o un laboratorio reconocido por aquella.
+16.-De la aplicación de medidas especiales. En el caso de demostrarse el incumplimiento o la falsedad de lo declarado en el registro ante el Ministerio, la autoridad sanitaria retendrá, decomisará, o retirará de circulación el producto respectivo o se cancelará su registro según corresponda, previa notificación al representante legal, quien deberá asumir los costos de la medida sanitaria aplicada.
 El Ministerio, siguiendo el derecho y los principios constitucionales de la garantía fundamental del debido proceso, podrá cancelar el registro o la autorización de desalmacenaje, especialmente en caso de:
 a) Existencia de alertas sanitarias nacionales o internacionales que así lo justifiquen.
 b) Incumplimiento de los requisitos sobre etiquetado.
 c) Cuando se demuestre el incumplimiento de las condiciones en las que se otorgó el registro sanitario.
 La autoridad de salud procederá a la aplicación de estas medidas especiales con fundamento en lo establecido en el artículo 386 de la Ley General de Salud, sin menoscabo de la responsabilidad civil o penal en que hayan incurrido las personas físicas o jurídicas responsables de tal incumplimiento; y sin perjuicio de cualquier otra sanción que proceda de conformidad con la legislación vigente.
-17.—CONCORDANCIA. Este reglamento no tiene concordancia con ninguna otra norma o reglamentación.
-18.—BIBLIOGRAFÍA
+17.-CONCORDANCIA. Este reglamento no tiene concordancia con ninguna otra norma o reglamentación.
+18.-BIBLIOGRAFÍA
 1) Agencia Nacional de Vigilancia Sanitaria (ANVISA). Brasil. Regulamento Técnico para fixacao de identidade e qualidade do composto líquido pronto para consumo. Portaria nº 868 de 3 de noviembre de 1998. (DOU. DE 05/11/98). Disponible en http://www.anvisa.gov.br/legis/portarias/868_98.htm, Consultado el 21/07/2008.
 2) Agencia Nacional de Medicamentos, Alimentos y Tecnología Médica (ANMAT). Código Alimentario Argentino, Capítulo XVII, Alimentos de Régimen o Dietéticos. Disponible en http://www.anmat.gov.ar/codigoa/caa1.asp Consultado el 17/05/2008.
-3) Comisión del Codex Alimentarius. 2005. Directrices para complementos alimentarios de vitaminas y/o minerales. CAC/GL 55 – 2005.
+3) Comisión del Codex Alimentarius. 2005. Directrices para complementos alimentarios de vitaminas y/o minerales. CAC/GL 55 - 2005.
 4) Congress of the United States of America. 1994. Dietary Supplement Health and Education Act of 1994. Public Law 103-417. 103rd Congress.
 5) Electronic Code of Federal Regulations. 2008. RDI`s for vitamins y minerals. Disponible en http://www.gpoaccess.gov/ecfr/ Consultado en octubre de 2008.
 6) Food Supplements Europe. Risk management approaches to the setting of maximum levels of vitamins and minerals in food supplements for adults and for children aged 4-10 years. July 2014.
