@@ -14,3 +14,4 @@ Actualización del impuesto solidario para el fortalecimiento de programas de vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-01-01 | la propia norma |
+| 2 | 2024-12-06 | Decreto Ejecutivo 44834 (2024-12-06) |
