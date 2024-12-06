@@ -26,3 +26,4 @@ Manual de atinencias y especialidades docentes
 | 11 | 2024-01-25 | Reglamento 2 (2024-01-25) |
 | 12 | 2024-02-22 | Reglamento 7 (2024-02-22) |
 | 14 | 2024-09-12 | Reglamento 28 (2024-09-12) |
+| 15 | 2024-12-06 | Reglamento 38 (2024-12-06) |
