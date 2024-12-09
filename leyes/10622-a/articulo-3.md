@@ -1,0 +1,5 @@
+ARTÍCULO III - PROGRAMA
+3.01. El Prestatario declara su compromiso con el Programa y su implementación. A tal efecto, y de conformidad con la Sección 5.05 de las Condiciones Generales:
+(a) el Prestatario y el Banco intercambiarán de vez en cuando, a solicitud de cualquiera de las partes, opiniones sobre el marco de política macroeconómica del Prestatario y los progresos alcanzados en la ejecución del Programa;
+(b) antes de cada intercambio de puntos de vista, el Prestatario, con la asistencia de la CNE, proporcionará al Banco, para su revisión y comentarios, un informe sobre los progresos realizados en la ejecución del Programa, con el detalle que el Banco solicite razonablemente; y
+(c) sin perjuicio de lo dispuesto en los párrafos (a) y (b) de la presente Sección, el Prestatario informará sin demora al Banco de cualquier situación que pudiera tener por efecto revertir sustancialmente los objetivos del Programa o cualquier medida adoptada en el marco del Programa, incluida cualquier medida especificada en la Sección I del Anexo 1 del presente Contrato.
