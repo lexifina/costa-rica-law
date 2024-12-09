@@ -1,0 +1,3 @@
+CAPÍTULO II
+Derecho telefónico y uso del equipo
+Artículo 5º-Asignación. Tanto el equipo, como el derecho telefónico celular, serán asignados por parte de la Gerencia de BCR Corredora de Seguros S.A., en consideración a los requerimientos del puesto y en estricto apego a las funciones del cargo. Para la asignación del servicio, la Gerencia deberá comprobar en cada caso, dejando constancia de ello en los registros de la oficina, que en efecto el perfil del puesto y las funciones asignadas justifican el uso de un aparato telefónico celular. Esta asignación debe ser siempre restrictiva, excepcional, lícita y posible, y se hará estrictamente con apego a los principios de razonabilidad, sana administración y austeridad en el gasto.

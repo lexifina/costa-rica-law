@@ -1,0 +1,1 @@
+Artículo 6º-Responsabilidad en el uso del servicio. Es responsabilidad exclusiva de la persona trabajadora darle un uso adecuado al servicio, conforme a la causa que justificó la asignación de esa herramienta o instrumento, para el mejor desempeño de su puesto y dentro de los límites razonables en el ejercicio del cargo, exclusivamente para los fines aquí propuestos.

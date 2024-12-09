@@ -1,0 +1,1 @@
+Artículo 3º-Adquisición. La adquisición de derechos telefónicos celulares a nombre de BCR Corredora de Seguros S.A. y del equipo de telefonía móvil necesario para el uso del servicio, se gestionará por medio de la Jefatura de Operaciones.

@@ -1,0 +1,3 @@
+Artículo 12.-Responsabilidad en las labores de control y fiscalización. Corresponde a la Gerencia de la Corredora de Seguros, velar por el cabal cumplimiento de las regulaciones contenidas en el presente reglamento y cualesquiera otras que resulten aplicables, tomando las medidas que considere necesarias para la implementación de un sistema de control y fiscalización, donde se mantenga actualizado el respectivo registro de reportes y sus incidencias.
+CSE-F-07-24 Registro de entrega de teléfonos celulares propiedad de BCR Corredora de Seguros S.A.
+CSE-F-08-24 Control para el excedente de la tarifa celular propiedad de BCR Corredora de Seguros S.A.
