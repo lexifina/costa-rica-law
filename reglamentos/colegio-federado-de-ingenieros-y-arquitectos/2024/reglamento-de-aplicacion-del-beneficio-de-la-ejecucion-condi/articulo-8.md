@@ -1,0 +1,3 @@
+Artículo 8º-Del curso de actualización profesional. Aquellos que hayan aceptado el beneficio deberán cumplir y aprobar el curso de actualización profesional que al efecto les brindará el CFIA.
+Las condiciones, fechas y forma en que se llevará y aprobará el curso de actualización profesional, serán debidamente comunicadas a la persona miembro por el Departamento de Formación Profesional.
+En el caso de las personas jurídicas, el curso deberá ser cumplido por quien ostente la representación legal de la empresa. En caso de que la empresa tuviere registrado más de un representante legal, la empresa deberá escoger a uno de ellos, quien tendrá la obligación de efectuar el curso.

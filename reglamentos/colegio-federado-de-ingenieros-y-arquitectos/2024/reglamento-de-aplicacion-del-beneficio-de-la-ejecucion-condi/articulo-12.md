@@ -1,0 +1,1 @@
+Artículo 12.-Del plazo de la ejecución del beneficio y la expiración. El plazo del beneficio acordado por la Junta Directiva General empezará a correr a partir de la asignación del proyecto. Por su parte, la expiración del plazo de la sanción se tendrá por cumplido hasta que la persona miembro sancionada haya ejecutado a satisfacción el proyecto asignado.

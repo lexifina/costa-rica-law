@@ -1,0 +1,2 @@
+Artículo 23.-Vigencia y derogatoria. El presente Reglamento empieza a regir a partir de su publicación en el Diario Oficial La Gaceta. Asimismo, deroga el Reglamento de Aplicación del Beneficio de la Ejecución Condicional de la Sanción Disciplinaria y los Cursos de Actualización Profesional aprobado mediante acuerdo N° 12 de la sesión Nº 21-11/12- G.E., de fecha 27 de marzo de 2012 y publicado en el Diario Oficial La Gaceta N° 24 del 02 de febrero de 2013.
+San José, 15 de noviembre de 2024.

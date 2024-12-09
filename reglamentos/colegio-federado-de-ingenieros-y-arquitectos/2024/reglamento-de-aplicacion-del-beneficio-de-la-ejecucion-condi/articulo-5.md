@@ -1,0 +1,1 @@
+Artículo 5º-De las actividades a desarrollar en el beneficio de la ejecución condicional. Quien acepte el beneficio de la ejecución condicional de la sanción deberá aprobar un curso de actualización profesional y ejecutar el proyecto o proyectos que le encomiende el CFIA.

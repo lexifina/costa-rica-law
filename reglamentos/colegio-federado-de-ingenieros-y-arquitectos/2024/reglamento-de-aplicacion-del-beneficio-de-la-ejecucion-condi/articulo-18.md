@@ -1,0 +1,1 @@
+Artículo 18.-Del cumplimiento del curso y la ejecución de la sanción. Una vez efectuado y aprobado el curso, el Departamento de Formación Profesional informará al Departamento de Registro y Documentación para que proceda a ejecutar la sanción por el plazo restante. Esto le será debidamente comunicado al profesional.

@@ -1,0 +1,15 @@
+COLEGIO FEDERADO DE INGENIEROS Y DE ARQUITECTOS DE COSTA RICA
+La Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, en uso de la competencia establecida en el artículo 28, inciso n) de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, Ley N° 3363, de 10 de enero de 1966 y sus reformas, mediante acuerdo N° 18 de la sesión N° 38-23/24- G.E. del 29 de octubre de 2024, dispuso derogar el Reglamento de Aplicación del Beneficio de la Ejecución Condicional de la Sanción Disciplinaria y los Cursos de Actualización Profesional aprobado mediante acuerdo N° 12 de la sesión Nº 21-11/12-G.E., de fecha 27 de marzo de 2012 y publicado en el Diario Oficial La Gaceta N° 24 del 02 de febrero de 2013; y en su lugar, emitir el Reglamento de Aplicación del Beneficio de la Ejecución Condicional de la Sanción Disciplinaria y del Beneficio de la Reducción del Período de Inhabilitación. Por tanto.
+Considerandos:
+1°-Que la Junta Directiva General, en aquellos casos que la situación especial del miembro sancionado lo amerite, se encuentra facultada para imponer a sus miembros una ejecución condicional de la sanción disciplinaria o la reducción del período de inhabilitación.
+2º-Que el beneficio de la ejecución condicional de la sanción y el beneficio de la reducción del período de inhabilitación no constituyen un derecho de los miembros investigados, sino una potestad que posee la Junta Directiva General para otorgar un trato preferencial, una gracia o un beneficio a aquellos profesionales que infringieron la ética profesional.
+3º-Que todo aquel que disfrute del beneficio de la ejecución condicional de la sanción o el beneficio de la reducción del período de inhabilitación quedará sujeto al cumplimiento de las obligaciones y condiciones que se impongan al efecto, así como a la estricta vigilancia y supervisión por parte del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
+4º-Que en atención a las razones expuestas, y con la finalidad de regular adecuadamente la aplicación, vigilancia y supervisión del beneficio de la ejecución condicional de la sanción y del beneficio de la reducción del período de inhabilitación, en aras de velar siempre por el decoro de la profesión, y no hacer nugatoria la finalidad de las sanciones disciplinarias, se emite el siguiente reglamento:
+REGLAMENTO DE APLICACIÓN DEL BENEFICIO
+DE LA EJECUCIÓN CONDICIONAL DE LA SANCIÓN
+DISCIPLINARIA Y DEL BENEFICIO DE LA REDUCCIÓN
+DEL PERÍODO DE INHABILITACIÓN
+CAPÍTULO I
+Generalidades
+Artículo 1º-Objetivo. El objetivo del presente reglamento es regular el beneficio de la ejecución condicional de la sanción y el beneficio de la reducción del período de inhabilitación, contemplados en los artículos 24 y 24bis del Código de Ética del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
+El otorgamiento de los anteriores beneficios no es un derecho de la persona miembro sancionada, sino una facultad de la Junta Directiva General del CFIA, y es revocable.
