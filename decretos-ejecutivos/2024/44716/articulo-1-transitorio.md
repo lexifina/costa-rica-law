@@ -1,0 +1,1 @@
+Transitorio I.- Los servicios de salud públicos, privados y mixtos cuentan con el plazo de seis meses a partir de la publicación del presente Decreto Ejecutivo, para la elaboración de manuales, protocolos o guías donde establezcan conforme a sus competencias, acciones para el abordaje integral del asma.
