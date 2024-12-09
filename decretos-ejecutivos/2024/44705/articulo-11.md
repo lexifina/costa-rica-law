@@ -1,0 +1,1 @@
+Artículo 11. Cobro en caso de transferencias de cartera entre supervisados de SUGESE. En el caso de transferencias totales o parciales de cartera de supervisados de SUGESE, no se ajustarán los CRIPj de los supervisados involucrados, sino que el ajuste tendrá lugar hasta el PRILj,final, que se aplicará a cada uno de ellos conforme al artículo 8 de este Reglamento.

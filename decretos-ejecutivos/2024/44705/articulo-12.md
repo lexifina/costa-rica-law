@@ -1,0 +1,4 @@
+Artículo 12. Fusión de supervisados. En caso de fusiones debidamente aprobadas, el CRIPj del supervisado que prevalece o se crea, a partir de la fusión, será la suma de los CRIPj determinados previamente para los supervisados que se fusionan.
+Para el PRILj,final del supervisado que prevalece o se crea:
+12.1 El parámetro LCIj,final será igual a la suma del parámetro LCIj,final de cada supervisado que se fusionó, hasta el momento de la fusión, más el parámetro LCIj,final del supervisado que prevalece o se crea, a partir del momento de fusión y hasta el final del año por financiar, según la fuente de información para el cálculo del parámetro LCIj,final que corresponda para las entidades involucradas.
+12.2 Se deducen los CRIPj,total efectuados por cada supervisado que se fusionó, hasta el momento de la fusión y los efectuados por el supervisado que prevalece o se crea, a partir del momento de fusión y hasta el final del año por financiar.

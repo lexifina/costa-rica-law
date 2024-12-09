@@ -1,0 +1,1 @@
+Artículo 21. Intereses moratorios por pago tardío En caso de mora, el monto de las contribuciones adeudadas devengará la tasa de interés moratoria definida en el artículo 58 de la Ley Nº 4755, Código de Normas y Procedimientos Tributarios, del 3 de mayo de 1971, sin necesidad de actuación alguna de las Superintendencias o del Banco Central de Costa Rica (BCCR).

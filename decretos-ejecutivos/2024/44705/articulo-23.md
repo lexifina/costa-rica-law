@@ -1,0 +1,1 @@
+Artículo 23. Derogatoria. Deróguese el Decreto Ejecutivo número 38292-H, Reglamento para regular la participación de los sujetos fiscalizados en el financiamiento del presupuesto de las superintendencias, de fecha 20 de diciembre de 2013.

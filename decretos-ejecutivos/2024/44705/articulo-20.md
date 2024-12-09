@@ -1,0 +1,4 @@
+Artículo 20. Gestión de cobro e incumplimiento. Mensualmente, cada Superintendencia, a través del Banco Central de Costa Rica, procederá a realizar el cobro de conformidad con lo establecido por el BCCR.
+En el caso de que no existan fondos, se notificará a la entidad, concediéndole un plazo de quince días hábiles para que comunique a la respectiva Superintendencia la disponibilidad de fondos y solicite la aplicación del respectivo débito para pagar el monto de la contribución y los intereses adeudados.
+Si al término de dicho plazo el supervisado o emisor se mantiene en mora, las Superintendencias deberán realizar las gestiones correspondientes de cobro administrativo o judicial según lo establecido en los artículos 174 y 175 de la Ley N°7732.
+En caso de mantenerse en mora, la administración deberá proceder de conformidad con el artículo 150 de la Ley General de la Administración Pública.

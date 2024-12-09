@@ -1,0 +1,8 @@
+CAPÍTULO IV
+OTROS PAGOS POR PARTE DE SUPERVISADOS Y EMISORES
+Artículo 14. Contribución Marginal Individual por Esfuerzo Superior (CMI). Dentro del Límite de Contribución individual (LCI), se podrá cobrar una contribución marginal por esfuerzo superior (CMI) a un supervisado o emisor, cuando la Superintendencia correspondiente contrate a terceros para servicios de apoyo a sus labores de supervisión individual o consolidada, de conformidad con las facultades que le otorgue el marco legal o reglamentario.
+Los servicios contratados con terceros deberán estar directamente relacionados al supervisado o emisor y ser necesarios para el cumplimiento de los objetivos de supervisión, así como razonables y proporcionales al supervisado o emisor y a los hechos que los originan.
+Lo anterior debe ser debidamente justificado y comunicado por la Superintendencia.
+El cobro de la CMI se hará con base en el monto pagado por el servicio brindado, para lo cual debe constar factura que cumpla con todas las formalidades legales. El cobro se realizará por la totalidad del monto pagado por la Superintendencia.
+El pago realizado por la Superintendencia a un tercero deberá ser cobrado al supervisado o emisor respectivo. En caso de supervisión consolidada, cuando los servicios contratados estén relacionados con una empresa supervisada, de conformidad con la definición que de ellas dispone el Reglamento sobre Supervisión Consolidada, los cargos deberán ser cancelados por la empresa controladora del grupo o conglomerado financiero.
+La CMI será parte del pago total individual de liquidación, de conformidad con lo establecido en el artículo 15 de este reglamento.
