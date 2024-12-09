@@ -14,3 +14,4 @@ Reglamento para la Gestión Integral de Residuos Sólidos y Servicios Públicos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-28 | la propia norma |
+| 2 | 2024-12-09 | Reglamento municipal 32 (2024-12-09) |

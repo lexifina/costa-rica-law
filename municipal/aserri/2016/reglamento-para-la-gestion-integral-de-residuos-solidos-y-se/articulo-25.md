@@ -1,1 +1,2 @@
-Artículo 25.—Descripción del servicio. El servicio de mantenimiento de zonas verdes consiste en corte de césped, recolección de residuos producto de la limpieza de áreas de parque, juegos infantiles y áreas de facilidades comunales sin construir.
+Artículo 25º-Descripción del servicio: El servicio de mantenimiento de zonas verdes consiste en corte de césped, recolección de residuos producto de la limpieza de áreas de parque, juegos infantiles y la posibilidad de hacer inversión de recursos municipales, para promover el ornato, actividades recreativas, deportivas y de esparcimiento para todos los grupos etarios.
+(Así reformado mediante sesión ordinaria N° 032 del 9 de diciembre del 2024)
