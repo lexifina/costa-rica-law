@@ -1,0 +1,5 @@
+ARTÍCULO 7- Exención de tributos. Los documentos que se requieran para formalizar el Contrato de Préstamo N.° 9502-CR, así como su inscripción en los registros correspondientes, estarán exentos del pago de impuestos, tasas, sobretasas, contribuciones o derechos de carácter nacional.
+Las adquisiciones de bienes y servicios que se efectúen con recursos del Contrato de Préstamo N.° 9502-CR se exoneran de los siguientes tributos: impuesto de valor agregado, selectivo de consumo y derechos de importación.
+La exoneración descrita en el párrafo anterior cubre también el impuesto único por el tipo de combustible, contenido en la Ley 8114, Ley de Simplificación y Eficiencia Tributarias, de 4 de julio de 2001, debiendo vender la Refinadora Costarricense de Petróleo (Recope) los combustibles que se requieran para este Programa libres de dicho impuesto.
+Los trámites para aplicar la exención en el Ministerio de Hacienda se realizarán de forma expedita, según corresponda.
+La presente exoneración no rige para los contratos suscritos con terceros, así como tampoco estaría prevista para futuros subcontratistas.

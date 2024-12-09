@@ -1,0 +1,2 @@
+ARTÍCULO 5- Exención de la aplicación del título IV de la Ley 9635, Fortalecimiento de las Finanzas Públicas
+La transferencia de estos recursos, que realice la Presidencia de la República al Fondo Nacional de Emergencias y su posterior utilización, estarán excluidos de lo dispuesto en el título IV, Responsabilidad fiscal de la República, y en el capítulo IV, Disposiciones transitorias al título IV, del título V. Disposiciones transitorias, de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.

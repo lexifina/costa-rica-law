@@ -1,0 +1,1 @@
+ARTÍCULO 2- Organismo Ejecutor. La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias será la responsable de la implementación de las actividades del programa y le corresponderá coordinar y dar seguimiento a las acciones con los ministerios e instituciones involucrados en el Programa.
