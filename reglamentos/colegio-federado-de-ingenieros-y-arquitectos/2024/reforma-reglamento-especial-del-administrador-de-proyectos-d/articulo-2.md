@@ -1,0 +1,6 @@
+Artículo 2º-Se modifica el artículo 23 del Reglamento Especial del Administrador de Proyectos de Construcción (APC) del Colegio Federado de Ingenieros y de Arquitectos, para que en lo sucesivo se lea de la siguiente manera:
+"Artículo 23. Del resello. En los casos que las obras no inicien un año posterior al sello del CFIA, el interesado deberá solicitar la renovación del sello del plano dentro de los dos meses siguientes al vencimiento del sello.
+El Colegio Federado procederá a renovar el sello del plano, por una vigencia de un año contabilizado a partir de la fecha de vencimiento del sello plasmado originalmente. Una vez vencido dicho periodo, el interesado podrá solicitar, una nueva actualización del sello del plano por otro periodo igual consecutivo.
+El CFIA procederá a actualizar el valor de la obra y el interesado deberá cancelar la diferencia con respecto al pago de timbres y derechos sufragados anteriormente, cuando así corresponda. Los planos serán sellados con el nuevo valor de la obra, indicando la fecha del día del resello y el número de contrato.
+La renovación de la vigencia del sello del CFIA, no procede si el proyecto cuenta con la licencia de construcción por parte de la Municipalidad.
+El Profesional será responsable de verificar que los planos para la construcción cumplan con la normativa vigente en el momento de la solicitud del resello."
