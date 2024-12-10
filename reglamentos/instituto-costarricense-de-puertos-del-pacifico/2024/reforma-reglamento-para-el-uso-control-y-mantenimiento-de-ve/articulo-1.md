@@ -1,0 +1,133 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+JUNTA DIRECTA
+Que la Junta Directa acuerda modificar los artículos Nos. 1°, 8°, 9°, 20, 21, 26, 27, 30, 31, 35, 39, 45, 46, 47, 48, 50 y 52 del Reglamento para el uso, control y mantenimiento de vehículos del Instituto Costarricense de Puertos del Pacífico, mediante el acuerdo N° 7 Firme tomado por la Junta Directiva en sesión N° 4458 celebrada el 8 de noviembre de 2024, los cuales se leerán de la siguiente manera:
+Artículo 1º-Ámbito de Aplicación. El presente reglamento establece las disposiciones para el uso, mantenimiento y control de los vehículos automotores y lanchas a disposición del Instituto Costarricense de Puertos del Pacífico en adelante denominado Incop, con el propósito de que éstos cumplan apropiadamente los fines a que se destinan. Se regulan, además, los deberes y responsabilidades de los funcionarios para que los utilicen de manera eficiente y en estricta observación de la legislación vinculante al efecto, se excluye de los alcances de este Reglamento la administración de la maquinaria portuaria o equipo similar.
+La presente normativa es de carácter obligatorio y prevalecerá sobre cualquier otra norma vigente que regule la materia, que sea de idéntico o inferior rango al presente Reglamento.
+Artículo 8º-De las funciones de la Unidad de Servicios Generales: La Unidad de Servicios Generales tendrá a su cargo las siguientes funciones:
+a) Planificar, implementar y controlar todas las actividades de orden administrativo relacionadas con el uso y disposición de los vehículos de uso administrativo.
+b) Atender las solicitudes de transporte y determinar el medio más eficiente de satisfacerlos.
+c) Velar por el correcto funcionamiento, conservación y limpieza de los vehículos de uso administrativo. En el caso de vehículos asignados a otras Unidades, le corresponde a la jefatura respectiva.
+d) Garantizar en la medida de lo posible, que existan unidades para atender casos de emergencia.
+e) Controlar en cada caso, que el servicio prestado guarde relación con el kilometraje recorrido y consumo de combustible.
+f) Coordinar la salida de vehículos y evitar en lo posible que se produzca duplicidad de servicios hacia un mismo lugar o ruta.
+g) Establecer un control de mantenimiento y reparación de los vehículos de uso administrativo. En el caso de vehículos asignados a otras Unidades, le corresponde a la jefatura respectiva, mantener el control y coordinar con la Unidad de Servicios Generales la debida tramitación del mantenimiento.
+h) Velar por el cumplimiento del programa de mantenimiento y reparación de los vehículos tomados en arrendamiento, cuando así corresponda.
+i) Entregar los vehículos únicamente a aquellos funcionarios autorizados para conducirlos.
+j) Informar al superior de forma inmediata al percatarse de cualquier anomalía que se presente en el uso de los vehículos a su cargo.
+k) Controlar la labor de los choferes destacados efectivamente en la Unidad de Servicios Generales e instruirlos sobre la forma de cumplir con sus deberes.
+l) La Unidad de Servicios Generales deberá llevar un control para cada unidad automotora, de:
+1. Número de placa
+2. Número de motor
+3. Marca
+4. Modelo
+5. Fechas de adquisición y precio adquirido
+6. Accidentes
+7. Fechas y detalle del mantenimiento
+8. Pólizas y sus coberturas
+9. Revisión Técnica
+10. Multas
+m) Velar porque los vehículos discrecionales y de uso administrativo estén debidamente asegurados y dar seguimiento a los casos presentados en el Instituto Nacional de Seguros, así como de cualquier otro trámite pertinente de los vehículos que administra la Unidad de Servicios Generales.
+Los responsables de vehículos, lanchas maquinaria y equipo asignados a otras unidades, la jefatura respectiva, deberán velar porque estén debidamente asegurados y dar seguimiento a los casos presentados en el Instituto Nacional de Seguros. Deberán cumplir con todos los requisitos previos para el aseguramiento y realizar el trámite de pago en el sistema (SIAF), así como de cualquier otro trámite pertinente.
+n) Llevar un control actualizado del Registro de Choferes, y personas autorizadas para conducir los vehículos institucionales que al menos debe consignar los siguientes datos:
+1. Nombre, apellidos y cédula del chofer.
+2. Número y tipo de licencia, fecha y de vencimiento.
+o) Efectuar los trámites necesarios para contratar o alquilar servicios de transporte externo, cuando por razón de necesidad institucional se requieran, conforme lo dispuesto en el Reglamento General de Contrataciones del INCOP.
+p) Informar mediante reporte trimestral a la Dirección Administrativa Financiera el gasto promedio trimestral de combustible de los vehículos de uso administrativo y discrecional.
+q) Velar porque se cumpla el presente reglamento, informando de cualquier infracción del mismo a la Dirección Administrativa Financiera, quien trasladará a la Unidad de Recursos Humanos para lo que corresponda.
+r) Tramitar las giras, previa solicitud del funcionario que requiere el servicio, con la debida aprobación del superior inmediato.
+s) Realizar los trámites de inscripción de vehículos de uso administrativo y discrecional a nombre de la Institución, para que dichas unidades circulen de acuerdo con los trámites de las leyes aplicables. Para los casos de vehículos, lanchas, maquinaria y equipo asignados a otras unidades, los responsables de dichas unidades deberán cumplir con el trámite de inscripción.
+t) Todas aquellas funciones atinentes que le solicite la Dirección Administrativa Financiera.
+Artículo 9º-Del control de los vehículos. La Unidad de Servicios Generales tendrá a su cargo el control de los vehículos de uso administrativo. Se exceptúa el control operativo y administrativo de los vehículos de uso administrativos, lanchas o maquinaria que estén asignados a otras dependencias o unidades administrativas, de conformidad con lo indicado en los incisos m) y s) del artículo 8°.
+Los vehículos de uso administrativo, lanchas asignadas a otras Unidades Administrativas o a Puertos Administrados (Muelle de Quepos, Golfito y Puntarenas) por el Incop, estarán bajo la responsabilidad de las Jefaturas respectivas o por el coordinador del Muelle, quienes deberán cumplir con todos los controles establecidos en el presente reglamento. En los casos en que los vehículos o lanchas van a ser utilizados por los colaboradores, en funciones propias de su cargo, deberá realizar la solicitud de transporte, en el portal de trámites (SIAF) y la aprobará el jefe respectivo o el coordinador del muelle. Si el servicio es requerido por el coordinador del muelle la solicitud de transporte debe realizarla él mismo y tendrá que ser aprobada por la Dirección Portuaria. En el caso del vehículo de uso administrativo asignado a San José estará bajo la responsabilidad de la Presidencia Ejecutiva o la persona que este designe, en cuyo caso el colaborador que corresponda deberá realizar la solicitud de transporte, en el portal de trámites (SIAF) y la aprobará el superior inmediato. La Unidad de Servicios Generales procederá a darle trámite en el módulo de transportes para efectos de que todas las giras realizadas en los vehículos institucionales estén registradas en el portal de trámites de SIAF, siendo competencia de ejercer los controles establecidos en este reglamento el responsable de cada área.
+Para los casos anteriores la solicitud de transportes se gestionará de forma diaria, quienes deberán llevar un control de todas las giras realizadas o servicios prestados y deberán completar para cada una de las giras o servicios el formulario denominado" Reporte de Recorrido de vehículo.
+Para el trámite de solicitud de transportes correspondiente al:
+a) Gerente General.
+b) Subgerente.
+c) Auditor(a) Interno(a).
+d) Director(a) Administrativo-Financiero.
+e) Director(a) Operaciones Portuarias.
+f) Jefatura de Asesoría Legal.
+g) Jefatura Secretaría Fiscalización.
+h) Jefatura de Unidad Técnica de Supervisión y Control.
+i) Jefatura de Planificación Institucional.
+La solicitud de transportes generada en el SIAF será tramitada por un funcionario de esa dependencia, en la cual se indicará que la misma corresponderá para el traslado de su superior inmediato, quien aprobará la misma.
+Cuando se haga uso de un vehículo administrativo previo y posterior a la jornada laboral, para el traslado de funcionarios de Puntarenas a Caldera y viceversa, la solicitud de transportes será generada por la Unidad de Capital Humano de manera semanal.
+Para los demás casos, las solicitudes de transportes generadas en el SIAF serán tramitadas por el solicitante del servicio y autorizadas por el superior inmediato. Cuando se trate de una gira de un encargado o coordinador de alguna Unidad, en compañía de sus colaboradores, la misma puede ser realizada o aprobada por ese funcionario indicando los nombres de los demás que lo acompañan. Una vez aprobada la solicitud, la Unidad de Servicios Generales procederá a darle trámite en el módulo de transportes y coordinará la gira, para lo cual se deberá cumplir con los siguientes requisitos:
+a) El jefe inmediato de la persona que requiere el servicio deberá autorizar dicha solicitud y es el responsable por la justificación del servicio solicitado.
+b) Antes de que el vehículo salga de gira, la formula será firmada por la persona que solicitó el servicio, sin ser ella la responsable del tiempo y el kilometraje recorrido, así mismo el chofer designado anotará en la fórmula el kilometraje, el día y hora de salida y cuando esté de regreso anotará la hora y el kilometraje marcado, esto con la finalidad de que la Unidad de Servicios Generales lleve el control respectivo del tiempo y kilometraje recorrido comparándolo con la descripción de la solicitud de transportes confeccionada por la Unidad que solicitó el servicio en el módulo creado para tales efectos.
+c) Cuando el vehículo haya regresado a la Institución y los datos estén completos, el chofer deberá firmar la fórmula y la remitirá a la Unidad de Servicios Generales. En caso de que exista alguna incongruencia con respecto a lo que inicialmente se solicitó, el chofer o los funcionarios lo comunicarán de inmediato al jefe de dicha Unidad, éste pedirá en un plazo de dos días hábiles las explicaciones por escrito de lo sucedido.
+El vehículo de uso discrecional estará bajo la responsabilidad del funcionario que lo tenga asignado, debiendo cumplir con lo ordenado en la legislación vigente.
+Artículo 20.-Del uso de vehículos por parte de Miembros de Junta Directiva de INCOP. Los Miembros de Junta Directiva, podrán hacer uso de los vehículos de la institución en los siguientes casos:
+a) Cuando realicen Misiones Oficiales en representación de la Institución.
+b) Para participar en actividades de capacitación, la cual deberá estar debidamente oficializada por parte de la Junta Directiva de INCOP.
+c) Cuando deban participar en otras actividades relacionadas con el desarrollo de la Institución y éstas sean debidamente avaladas por la Presidencia Ejecutiva o la Gerencia General.
+d) Para todos los casos anteriores deberá contar con la solicitud de transportes en el portal de trámites del SIAF con la debida aprobación de la Presidencia Ejecutiva o la Gerencia General según corresponda.
+La solicitud de transportes para los directores deberá ser tramitada en el portal de Trámites por la secretaría de la Junta Directiva, la secretaria de Presidencia Ejecutiva o secretaria de la Gerencia General y deberá ser aprobada por Presidencia Ejecutiva o la Gerencia General según corresponda.
+Artículo 21.-De las personas autorizadas para conducir vehículos. Están autorizados para conducir vehículos de la institución, los choferes y los funcionarios que sean autorizados por la Gerencia General y que cuenten con los requisitos legales vigentes, los cuales deben ser verificados y registrados por la Unidad de Servicios Generales. Para el caso de las lanchas o maquinaria destinada a los muelles administrados, podrán ser conducidas por un funcionario autorizado del Incop u otra Institución o Ministerio, o bien por un piloto contratado para tales fines.
+Artículo 26.-De los deberes de los conductores. Son deberes de todo conductor o persona autorizada para conducir vehículos de la institución:
+a) Conocer y cumplir estrictamente la Ley de Tránsito y su Reglamento, así como las disposiciones que establece el presente reglamento.
+b) Tener actualizada la licencia extendida por la Dirección General de Transporte Automotor, la cual debe ser acorde con el tipo de vehículos que conduce y remitir la licencia de conducir a Servicios Generales cada vez que sea renovada.
+c) Revisar el vehículo, para verificar que éste se encuentre en condiciones adecuadas para garantizar tanto su propia seguridad como la de las personas, materiales y equipos transportados, y reportar oportunamente a su jefe inmediato y a la Unidad de Servicios Generales cualquier daño que se detecte.
+d) Mantener el vehículo en óptimas condiciones de limpieza, por parte del chofer.
+e) Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad de pasajeros.
+f) Conducir en forma responsable y prudente de manera que no ponga en peligro su propia vida, la seguridad de otras personas y la unidad que conduce, de otros vehículos y bienes.
+g) Seguir la ruta establecida entre los puntos de salida y destino de cada servicio.
+h) Guardar la más estricta discreción de los asuntos oficiales o privados que se discuten en su presencia.
+i) En caso de accidente, elaborar un informe sobre los daños producidos y la causa del mismo y elevarlo a conocimiento de la Unidad de Servicios Generales.
+j) Anotar en el reporte de recorrido de vehículo claramente los siguientes datos:
+1. Fecha
+2. Hora exacta de salida y regreso
+3. N° Placa
+4. Lugares Visitados
+5. Observaciones si las hubiere
+6. Firma del chofer o conductor responsable de la gira y de la persona que recibe el servicio y entregarla al Jefe de la Unidad de Servicios Generales al concluir la gira.
+7. En caso de darse un cambio de ruta: El chofer o conductor responsable de la gira deberá anotar justificación en cuanto a cambios de rutas, horarios, kilometrajes de recorrido y cualquier otra información diferente a la solicitada que dio origen al servicio.
+k) Los choferes deberán acatar las disposiciones que dicte La Dirección Administrativa Financiera o la Jefatura de la Unidad de Servicios Generales en cuanto a suministro y uso del combustible que requieran los vehículos y otros.
+l) Es obligación de todos los conductores solicitar a los usuarios al abordar los vehículos de la Institución, el carné que lo identifique como funcionario público o en su efecto personas debidamente autorizadas.
+m) Velar porque el vehículo cuente con las condiciones necesarias que garanticen tanto su propia seguridad como la de las personas, materiales y equipos transportado.
+n) Conservar mientras conduce la mayor compostura y la debida prudencia de manera que no ponga en peligro su propia vida, la seguridad de otras personas, de la Unidad que conduce y a otros vehículos o bienes.
+o) Respetar las señales de tránsito y las velocidades mínimas y máximas que en ellas o en la Ley de Tránsito y su reglamento establezcan; así como acatar las instrucciones que en carretera le indiquen los inspectores de tránsito.
+p) Cuidar las herramientas, repuestos y otras piezas complementarias de que disponga el vehículo.
+Artículo 27.-Prohibiciones en general. Serán prohibiciones generales para los conductores y usuarios de los vehículos del INCOP, las siguientes:
+a) Utilizar los vehículos de la Institución en otras actividades que no sean las normales de la misma, salvo casos de emergencia demostrada.
+b) Utilizar los vehículos en actividades políticas.
+c) Transportar a particulares, salvo en casos en que, por razones de trabajo o emergencia, lo justifique el responsable de la gira.
+d) Ceder la conducción del vehículo a otras personas, salvo por situaciones de emergencia, de las que debe dar explicaciones por escrito a la Unidad de Servicios Generales, al Administrador del Muelle o Encargado en San José, en el transcurso de la gira o al concluir la misma.
+e) Intercambiar entre las unidades los accesorios, sin la debida aprobación de la Unidad de Servicios Generales, salvo situaciones de emergencia.
+f) Dejar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos.
+g) Conducir vehículos del INCOP bajo los efectos del alcohol, drogas o sustancias enervantes. El desacato de esta disposición podría ser generador de responsabilidad disciplinaria del funcionario de conformidad con el Reglamento Autónomo de Servicios del INCOP. Los daños que causare por conducir bajo estos efectos serán responsabilidad del conductor.
+h) Conducir un vehículo que tenga puesto en el parabrisas delantero o trasero, en las ventanillas o ventanas laterales o posteriores, algún rótulo, cartel, calcomanía u otro material de apoyo de trabajo, salvo casos especiales autorizados por la Junta Directiva del INCOP.
+i) Deberán utilizar los vehículos exclusivamente en asuntos oficiales y queda absolutamente prohibido su uso en asuntos particulares o distintos a los propios de la dependencia o unidad que lo está utilizando.
+j) Estacionar el vehículo en lugares donde se ponga en peligro su seguridad, la de sus accesorios, materiales o equipos que transporte.
+Artículo 30.-De los usuarios. que no sean funcionarios de Incop, que podrían viajar en los vehículos o en las lanchas de la institución:
+a) Los funcionarios públicos de otras instituciones, que le brinden algún servicio a la institución, debidamente identificados y previa autorización por la jefatura de la unidad solicitante, debiendo indicarlo en la solicitud de transporte.
+b) Las personas que brinden servicio al INCOP, y que esté tipificado contractualmente que deban desplazarse a lugares no previstos para atender una emergencia institucional. La Unidad solicitante deberá tramitar la solicitud de transportes y el Jefe de dicha unidad deberá autorizarlo de conformidad con el presente reglamento.
+c) Cuando INCOP así lo requiera y debidamente justificado las personas e Instituciones que van a prestar un servicio no remunerado, en tal caso la Unidad solicitante deberá tramitar la solicitud de transportes y el Jefe de dicha unidad deberá autorizarlo de conformidad con el presente reglamento, previo visto bueno de la Presidencia Ejecutiva o Gerencia General.
+d) Para giras, cuya salida y llegada deban programarse fuera de la jornada laboral ordinaria, se podrá realizar el traslado de los funcionarios desde y/o hasta sus casas de habitación, lo anterior, previa autorización y valoración de razonabilidad de la jefatura inmediata.
+e) Miembros de la Unidad Gerencial del Fideicomiso, podrán trasladarse en los vehículos de INCOP, debiendo la Presidencia Ejecutiva tramitar la solicitud de transportes de conformidad con el presente reglamento.
+f) Funcionarios que representen a la Institución ante algún Comité Municipal de Emergencias u otro comité o comisión, en sus funciones propias o en la atención de alguna emergencia a nivel local o nacional y se requiera disponer del uso del vehículo.
+g) Cuando a criterio de la Presidencia Ejecutiva o la Gerencia General, por interés público o interés nacional, sea necesario transportar personas ajenas a la institución. La Presidencia Ejecutiva o la Gerencia General, según corresponda, deberá tramitar y aprobar la solicitud de transporte de conformidad con el presente reglamento, debiendo indicar en observaciones todo lo relacionado con la gira, las personas a transportar y dejando de manifiesto el interés público o nacional, todo lo cual queda a entera responsabilidad de la autoridad que aprueba.
+Artículo 31.-De los deberes de los usuarios. Son deberes de los usuarios del servicio de transportes:
+a) Conocer y cumplir las disposiciones establecidas en este Reglamento.
+b) Portar el carné que lo identifique como funcionario público o la autorización correspondiente de la jefatura al momento de realizar la solicitud de transporte en el SIAF.
+c) Hacer uso del servicio de transportes que presta la Institución, en razón del desempeño de sus labores.
+d) Mantener una posición de respeto para con las personas que viajen dentro del vehículo y fuera de él.
+e) Reportar cualquier irregularidad que se observe durante el servicio, ya sea por incumplimiento de algunas de las disposiciones de la Ley de Tránsito, de este reglamento y otras normas.
+f) Para el caso de las lanchas, deberán utilizar todos los dispositivos de seguridad exigidos en las regulaciones para la navegación y la seguridad de los tripulantes.
+Artículo 35.-Del mantenimiento de vehículos o lanchas asignados a otras Unidades Administrativas, en los Muelles y San José. La Jefatura inmediata, los Administradores de Muelle y la persona encargada en San José serán los responsables de cumplir con el mantenimiento preventivo y correctivo de los vehículos, de acuerdo con las normas establecidas por la Unidad de Servicios Generales y atendiendo los principios de austeridad, oportunidad, eficiencia y racionalidad.
+Artículo 39.-Asignación de combustible. La Unidad de Servicios Generales o la Dirección Administrativa Financiera será el responsable de autorizar el combustible de acuerdo con la solicitud que se realicen de los vehículos a su cargo. En el caso de los muelles, el o la Director (a) Portuaria y para San José, el o la Presidente (a) Ejecutiva serán los responsables de la autorización de combustible de los vehículos o lanchas asignados a su cargo. No obstante, en los primeros cinco días finalizados cada trimestre deberá remitir un informe de la cantidad de combustible utilizado por vehículos y los kilómetros recorridos a la Unidad de Servicios Generales.
+Artículo 45.-Del acatamiento de instrucciones. Los conductores que debido a la circulación por las vías públicas con vehículos del INCOP se vean involucrados en un accidente de tránsito, deben cumplir con lo dispuesto en los artículos 47 y 48 de este reglamento. Asimismo, una vez resuelto por los Tribunales de Justicia, en sentencia firme, deberá entregar copia de la sentencia la Unidad de Servicios Generales.
+Artículo 46.-De la responsabilidad por accidente. El chofer que fuere declarado culpable por los Tribunales de Justicia con motivo de un accidente de Tránsito en que hubiere participado con un vehículo del Instituto, deberá pagar el monto que no fuera cubierto por la póliza.
+Si el accidente se produce por dolo del chofer o como consecuencia directa de una conducta del funcionario, tales como conducir en forma temeraria, o bajo los efectos del licor o sustancias enervantes, el conductor deberá cubrir la totalidad de los daños que sufre el vehículo del INCOP y de terceros.
+Tendrá igual obligación de cubrir los gastos ocasionados aquel chofer que hubiere permitido a otra persona conducir un vehículo del Instituto sin causa justificada y sin la debida autorización, cuando esa persona haya sido declarada culpable por los Tribunales de Justicia.
+Todo lo anterior sin perjuicio de las responsabilidades de carácter administrativo, civiles, penal y pecuniarias a que se haga acreedor el trabajador.
+Una vez notificado el monto no cubierto por parte de la aseguradora, o que conforme a lo dispuesto en los párrafos anteriores de este artículo; la Unidad de Servicios Generales comunicará formalmente a la Unidad de Capital Humano, quien queda facultada para aplicar el cobro por medio de planilla de conformidad con lo regulado en el artículo 79 del Reglamento Autónomo de Servicios.
+Si como resultado del proceso judicial se determine que el accidente se produce por dolo del chofer o como consecuencia directa de una conducta del funcionario, tales como conducir en forma temeraria, o bajo los efectos del licor o sustancias enervantes, el conductor deberá cubrir la totalidad de los daños que sufre el vehículo del INCOP y de terceros.
+Tendrá igual obligación de cubrir los gastos ocasionados aquel chofer que hubiere permitido a otra persona conducir un vehículo del Instituto sin causa justificada y sin la debida autorización, cuando esa persona haya sido declarada culpable por los Tribunales de Justicia; la Unidad de Servicios Generales, remitirá los documentos relacionados con el accidente, trámites ante la aseguradora, lo resuelto por el Juzgado y lo remitirá a la Gerencia General, quien sin perjuicio de las responsabilidades de carácter civiles, penales y pecuniarias a que se haga acreedor el trabajador, deberá proceder según corresponda con el procedimiento administrativo disciplinario conforme a las regulaciones vigentes.
+Artículo 47.-Del informe del accidente. En un plazo máximo de tres días hábiles desde la fecha del percance, el chofer presentará las pruebas que estime convenientes, junto con el informe detallado de lo ocurrido ante la Unidad de Servicios Generales, quien realizará los trámites ante la aseguradora.
+La Unidad de Servicios Generales, concluido el proceso con la aseguradora, de existir montos a ser cobrados a la persona funcionaria, lo comunicará formalmente a la Unidad de Capital Humano, quien queda facultada para aplicar el cobro por medio de planilla de conformidad con lo regulado en el artículo 79 del Reglamento Autónomo de Servicios.
+Artículo 48.-Del procedimiento en general. Si durante una gira o diligencia ocurriere un accidente, el chofer y sus acompañantes deberán proceder con la mayor prontitud de la siguiente manera:
+h) Una vez resuelto por los Tribunales de justicia, en sentencia firme, deberá entregar copia de la sentencia la Unidad de Servicios Generales.
+Artículo 50.-De la responsabilidad disciplinaria. Si de conformidad con lo señalado en los artículos anteriores, o si se tratara de incumplimientos a las disposiciones contempladas en el presente reglamento, previo procedimiento administrativo, con garantía del debido proceso, de conformidad con la Ley Marco de Empleo Público, la Administración podrá aplicar las sanciones disciplinarias que correspondan.
+Artículo 52.-Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, la Asesoría Legal, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.
+Lo anterior de conformidad con el oficio N° CR-INCOP-JD-2024-195 de fecha 8 de noviembre de 2024, de la Secretaria Junta Directiva y del oficio N° CR-INCOP-GG-2024-1402 de fecha del 11 de noviembre de 2024. Rige a partir de su publicación en el Diario Oficial La Gaceta.
