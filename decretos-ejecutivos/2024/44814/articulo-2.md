@@ -1,0 +1,3 @@
+Artículo 2 º.- Modificase el artículo 2° de Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2024 y sus reformas antes citada, con el fin de incorporar la asignación de gasto presupuestario correspondiente a los recursos provenientes de la Ley No. 9899, solicitada por el Ministerio de Obras Públicas y Transportes, según lo expuesto en los Considerandos del 7 al 11 del presente decreto y su desglose en los niveles de programa, subprograma, partida y subpartida presupuestaria estará disponible en la página electrónica del Ministerio Hacienda en la dirección que se muestra a continuación: https :// www.hacienda.ge.cr/Presupuesto.html.
+Aumento del artículo 2:
+[imagen]
