@@ -17,3 +17,4 @@ Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Así reformado por el artículo 3° de la ley N° 10615 del 20 de noviembre de 2024)
 (Así reformado por el artículo 4° de la ley N° 10615 del 20 de noviembre de 2024)
 (Así reformado por el artículo 5° de la ley N° 10615 del 20 de noviembre de 2024)
+(Modificado por el artículo 3° del decreto ejecutivo N° 44814 del 3 de diciembre del 2024)
