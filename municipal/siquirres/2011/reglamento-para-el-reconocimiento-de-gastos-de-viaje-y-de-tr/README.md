@@ -14,3 +14,4 @@ Reglamento para el reconocimiento de gastos de viaje y de transporte a regidores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-24 | la propia norma |
+| 2 | 2024-12-10 | Reglamento municipal 32 (2024-12-10) |
