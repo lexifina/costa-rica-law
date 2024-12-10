@@ -1,0 +1,1 @@
+Artículo 3: Las tarifas aprobadas aplican para todas las instituciones, Empresas, Sociedades, Fundaciones, Instituto Nacional de Seguros (INS), Aseguradoras no Estatales y Odontólogos en general y cualesquiera otro que surja y en la que se brinden servicios de Odontología.

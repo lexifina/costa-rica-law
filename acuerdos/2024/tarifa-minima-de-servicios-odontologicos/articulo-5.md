@@ -1,0 +1,1 @@
+Artículo 5: Cualquier cobro de algún tratamiento dental que no esté establecido en este tarifario debe ser consultados vía escrita por los interesados, consulta que serán analizado por la Comisión de Tarifas, la que rendirá informe a la Junta Directiva, siendo esta última la que se pronuncie en definitiva sobre el particular.

@@ -1,0 +1,3 @@
+Artículo 4: Se acuerda establecer el salario mínimo del Odontólogo General Clínico en ¢1.228.000 salario bruto al mes en jornada ordinaria, (artículo 136 del Código de Trabajo).
+Las contrataciones por menor tiempo llevarán una relación proporcional con base a este salario mínimo establecido, debiendo además de cumplirse con las obligaciones obreropatronales.
+Deberá integrarse como componente del salario de previa referencia, los incentivos establecidos en la Ley 6836 de Incentivos a los Profesionales en Ciencias Médicas, estos últimos en lo que resultaren aplicable al profesional en Odontología.

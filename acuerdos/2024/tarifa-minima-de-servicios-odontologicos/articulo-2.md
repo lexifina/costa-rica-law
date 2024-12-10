@@ -1,0 +1,1 @@
+Artículo 2: Quedan facultados los agremiados a establecer sus honorarios en montos mayores a los fijados en este tarifario de acuerdo a los costos propios de sus clínicas y del grado de especialidad del profesional que da el servicio
