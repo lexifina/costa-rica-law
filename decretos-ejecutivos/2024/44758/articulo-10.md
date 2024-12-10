@@ -1,0 +1,4 @@
+Artículo 10.- Terapias y Servicios de Apoyo
+Las terapias y los servicios de apoyo deben ser provistos bajo los criterios de regionalización de la prestación de dichos servicios y según las características, necesidades o comorbilidades de las personas con TEA, en cumplimiento del modelo social y de derechos humanos de las personas con discapacidad.
+Las personas con TEA serán valoradas, en igualdad de condiciones con las demás personas, por la entidad prestadora de las terapias y los servicios de apoyo para determinar las necesidades y los requerimientos individuales de estas personas en razón de su participación plena y su desarrollo inclusivo.
+Las instancias competentes deberán coordinar con el Consejo Nacional de Personas con Discapacidad para recibir asesoría sobre la prestación de servicios de apoyos conforme al ordenamiento jurídico vigente y al modelo social y de derechos humanos de las personas con discapacidad.

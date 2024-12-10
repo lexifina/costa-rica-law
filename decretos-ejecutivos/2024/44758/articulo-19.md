@@ -1,0 +1,2 @@
+Artículo 19. - Lineamientos generales para la detección temprana del TEA
+El Ministerio de Salud, en conjunto con la Caja Costarricense del Seguro Social, en virtud de su rectoría del Sistema Nacional de Salud, elaborará lineamientos generales para facilitar la detección temprana del TEA, por medio de los servicios públicos de salud en todo el territorio nacional, en un plazo de seis meses posterior a la entrada en vigencia del presente reglamento.

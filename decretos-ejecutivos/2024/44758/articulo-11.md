@@ -1,0 +1,3 @@
+Artículo 11.- Costos de los servicios de apoyo
+Las instituciones del Estado que presten servicios de apoyo a las personas con TEA, en cumplimiento de lo dispuesto en el ordenamiento jurídico, deberán brindarlos de forma permanente a lo largo de su vida y de forma gratuita.
+Asimismo, las instituciones del Estado que supervisen la actuación de organizaciones privadas prestadoras de servicios públicos de cualquier naturaleza, en la medida de sus posibilidades y con base en el Artículo 24 de la Ley Nº 9940 citada, adoptarán medidas para establecer costos diferenciados en la prestación de los servicios de apoyo, para que las personas con trastorno del espectro autista en situación de pobreza y pobreza extrema puedan acceder a los servicios de apoyo.

@@ -1,0 +1,2 @@
+Artículo 24. -Concienciación e información a la comunidad sobre el TEA
+El Consejo Nacional de Personas con Discapacidad (Conapdis) orientará a todas las instituciones del Estado en la realización de campañas internas y hacia el público en general para la concienciación e información sobre los derechos de las personas con TEA, informar sobre las características del TEA, así como los requerimientos de esta población para lograr la participación e inclusión plena y efectiva en la sociedad.
