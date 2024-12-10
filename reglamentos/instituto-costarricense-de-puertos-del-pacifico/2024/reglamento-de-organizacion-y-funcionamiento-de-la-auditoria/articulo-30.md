@@ -1,0 +1,1 @@
+ARTÍCULO No. 30.- Cuando la ausencia permanente del auditor interno en que la Junta Directiva del Incop opte por realizar un recargo de funciones o una suplencia. no se requerirá la autorización del Órgano Contralor; debiéndose resguardar que la suma del plazo de la suplencia, recargo y el nombramiento interino no deberá sumar más de doce meses.

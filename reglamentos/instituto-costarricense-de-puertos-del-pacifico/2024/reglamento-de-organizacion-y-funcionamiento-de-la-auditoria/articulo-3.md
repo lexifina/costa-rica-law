@@ -1,0 +1,1 @@
+ARTÍCULO No. 3.- Para la formulación, modificación, trámite de aprobación y promulgación del presente Reglamento estará a cargo de la Auditoría Interna, con base en los Lineamientos que sobre el particular dispone la Contraloría General de la República, así como lo dispuesto en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público y demás normativa aplicable.

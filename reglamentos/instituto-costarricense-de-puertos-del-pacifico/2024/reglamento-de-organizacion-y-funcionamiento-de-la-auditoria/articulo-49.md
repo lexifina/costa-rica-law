@@ -1,0 +1,1 @@
+ARTÍCULO No. 49.- La Auditoría Interna debe establecer planes anuales de trabajo basados en criterios razonables y fundamentados en el Plan Estratégico de la Auditoría y en una valoración del riesgo, a fin de determinar las prioridades de las actividades de la Auditoría.

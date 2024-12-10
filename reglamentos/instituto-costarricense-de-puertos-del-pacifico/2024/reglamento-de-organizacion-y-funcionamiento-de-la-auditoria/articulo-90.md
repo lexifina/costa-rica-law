@@ -1,0 +1,2 @@
+ARTÍCULO No. 90.- Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Lo anterior de conformidad con el oficio No. CR-INCOP-JD-2024-011 y CR-INCOPJD- 2024-013, emitidas respectivamente el 21 de octubre y el 25 de octubre del presente año, de la Secretaria Junta Directiva y del oficio No. CR-INCOP-AI-2024-401 y DFOECIU-0469 de fecha del 21 de noviembre de 2024. Rige a partir de su publicación en el Diario Oficial La Gaceta.

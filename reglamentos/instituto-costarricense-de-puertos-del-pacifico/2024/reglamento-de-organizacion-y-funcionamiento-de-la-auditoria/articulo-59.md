@@ -1,0 +1,1 @@
+ARTÍCULO No. 59.- El Auditor Interno y su personal tendrán las atribuciones que establecen el artículo No. 17 de la Ley Orgánica del Instituto Costarricense de Puertos del Pacífico (No. 1721) y sus reformas, así como, las dispuestas en el artículo 22 de la Ley General de Control Interno (No. 8292).

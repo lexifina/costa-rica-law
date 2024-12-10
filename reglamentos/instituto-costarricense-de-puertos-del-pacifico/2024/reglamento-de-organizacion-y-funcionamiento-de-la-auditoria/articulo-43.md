@@ -1,0 +1,3 @@
+CAPITULO VII
+DE LA PLANIFICACIÓN Y DETERMINACIÓN RECURSOS
+ARTÍCULO No. 43.- El Auditor Interno será el responsable de velar porque la Auditoría cuente con un manual de políticas y procedimientos de Auditoría para el ejercicio de sus funciones, podrá ser actualizado cuando a criterio del Auditor lo considere prudente.

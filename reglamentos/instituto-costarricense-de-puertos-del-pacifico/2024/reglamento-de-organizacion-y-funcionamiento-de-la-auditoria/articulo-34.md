@@ -1,0 +1,3 @@
+ARTICULO No. 34.- La adopción de una medida cautelar en contra del Auditor Interno, deberá contar con el dictamen previo favorable de la Contraloría General de la República.
+Para tal efecto, el jerarca deberá remitir una solicitud escrita que deberá contener los elementos que se indican en el numeral 3.2 de los Lineamientos sobre Gestiones que Involucran a la Auditoría Interna Presentadas ante la CGR (R-DC-83-2018), sin perjuicio de los que lleguen a ser requeridos durante el trámite de la gestión.
+Tratándose de un órgano colegiado la solicitud debe ser remitida por el secretario, haciendo referencia expresa al acuerdo mediante el cual se resolvió remitir la gestión.

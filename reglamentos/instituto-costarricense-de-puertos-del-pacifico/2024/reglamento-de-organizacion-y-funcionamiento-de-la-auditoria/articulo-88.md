@@ -1,0 +1,1 @@
+ARTÍCULO No. 88.- En lo que respecta a las denuncias que sean presentadas en forma anónima, se procederá conforme el inciso a) del numeral 1.3 Lineamientos generales para el análisis de presuntos hechos irregulares serán de acatamiento obligatorio para las Auditorías Internas del Sector Público.

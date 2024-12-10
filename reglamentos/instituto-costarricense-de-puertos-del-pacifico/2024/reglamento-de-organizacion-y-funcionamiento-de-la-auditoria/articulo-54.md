@@ -1,0 +1,1 @@
+ARTÍCULO No. 54.- Para el cumplimiento de deberes, el Auditor Interno y los funcionarios de la Auditoría Interna deberán observar lo establecido en el artículo No. 32 de la Ley General de Control interno y demás normativa que regula esta actividad dentro de su ámbito de competencia.

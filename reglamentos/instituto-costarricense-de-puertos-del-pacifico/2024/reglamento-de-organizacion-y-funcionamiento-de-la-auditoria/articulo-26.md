@@ -1,0 +1,2 @@
+ARTÍCULO No. 26.- La Unidad de Capital Humano deberá tener actualizado y accesible para las unidades pertinentes, el registro de personas elegibles que cuenten con los requisitos académicos, legales y experiencia para realizar suplencias del Auditor Interno, además de los otros requisitos de idoneidad, que se requieran para un auditor interno de la institución.
+El registro de personas elegibles deberá estar conformado por personas internas y externas a la institución.

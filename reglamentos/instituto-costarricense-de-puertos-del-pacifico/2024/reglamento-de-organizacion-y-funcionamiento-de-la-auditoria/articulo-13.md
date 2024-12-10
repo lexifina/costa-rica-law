@@ -1,0 +1,1 @@
+ARTÍCULO No. 13.- La Auditoría Interna podrá gestionar ante las autoridades institucionales, siguiendo los mecanismos pertinentes y cuando lo estime necesario, la colaboración y apoyo de profesionales y técnicos en las diferentes disciplinas, para que realicen labores temporales de su especialidad en apoyo a los servicios de auditoría, preventivos y seguimiento que se brindan.

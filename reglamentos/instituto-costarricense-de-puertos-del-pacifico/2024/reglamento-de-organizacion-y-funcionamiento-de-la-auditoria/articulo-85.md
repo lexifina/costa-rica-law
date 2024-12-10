@@ -1,0 +1,5 @@
+ARTÍCULO No. 85- Al denunciante se le podrá comunicar cualquiera de las siguientes resoluciones que se adopte de su gestión.
+a) La decisión de desestimar la denuncia y archivarla.
+b) La decisión de trasladar la gestión para su atención a lo interno del INCOP.
+c) Se giraron las recomendaciones que procedían (cuando lo realizado fue un estudio de control interno). En caso de que tales resultados puedan originar la apertura de procedimiento administrativo o la interposición de un proceso judicial, se le comunicará que se realizó el estudio correspondiente y de su remisión a la autoridad competente, sin aportar información, documentación u otras evidencias inherentes a la investigación.
+Las anteriores comunicaciones se realizarán en el tanto haya especificado en dicho documento su nombre, calidades y lugar de notificación, si no se dispone de tal señalamiento, la Auditoría Interna debe elaborar el documento pertinente, para hacer constar los resultados de la investigación y los motivos que imposibilitan su comunicación al denunciante. Dicho documento deberá integrarse en el expediente respectivo.

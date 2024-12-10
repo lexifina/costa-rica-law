@@ -1,0 +1,1 @@
+ARTÍCULO No. 2.- Este reglamento es de acatamiento obligatorio para todo el personal de la Auditoría Interna y para los, funcionarios de la Administración Activa del Instituto Costarricense de Puertos del Pacífico, por tanto, deberán cumplir con lo aquí establecido en la materia que a cada uno corresponde.

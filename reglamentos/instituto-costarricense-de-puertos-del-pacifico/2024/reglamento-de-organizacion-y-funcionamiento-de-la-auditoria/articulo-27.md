@@ -1,0 +1,1 @@
+ARTÍCULO No. 27.- Se entiende por ausencia permanente la ausencia en la que no existe la expectativa de retorno de la persona funcionaria que ocupa el cargo de Auditor Interno ya sea por jubilación, renuncia, despido, muerte u otras que impida su regreso.

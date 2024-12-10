@@ -1,0 +1,1 @@
+ARTÍCULO No. 32.- Cualquier otra gestión que se realice y no se tenga definición o procedimiento aplica lo indicado en los Lineamientos sobre gestiones que involucran a la auditoría interna presentadas ante la CGR (R-DC-83-2018) y sus reformas.
