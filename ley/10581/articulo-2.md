@@ -1,0 +1,3 @@
+ARTÍCULO 2- Participación estatal
+Para la ejecución de esta ley, las instituciones del sector público, las instituciones autónomas y semiautónomas, dentro del marco jurídico respectivo, se autorizan para gestionar los mecanismos de apoyo y cooperación mediante cualquier tipo de recursos o alternativas, convenios de cooperación, iniciativas y asociaciones público-privadas, con el fin de promover el desarrollo turístico del Camino de Costa Rica.
+El Estado podrá apoyar todas las iniciativas que promuevan el desarrollo local y las actividades de las pequeñas y medianas empresas de los habitantes de los cantones que conforman el Camino de Costa Rica.
