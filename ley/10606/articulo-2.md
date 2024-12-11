@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización de donación
+Se autoriza al Estado costarricense, cédula de persona jurídica dos- cero cero cerocero cuatro cinco cinco dos dos (2-000-045522), para que done el terreno de su propiedad libre de gravámenes y anotaciones, el cual mide siete mil quinientos metros cuadrados (7.500,00 m2), en el que se asienta la Escuela de Villa Hermosa de Limón, códígo educativo N.º 0269, y sin plano que lo describa, al Ministerio de Educación Pública, cédula jurídica dos- uno cero cero- cero cuatro dos cero cero dos (2-100-042002).
