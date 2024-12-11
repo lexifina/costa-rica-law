@@ -1,4 +1,4 @@
-Artículo 6º—Deberes del Estado. Los deberes del Estado costarricense con las personas jóvenes, serán los siguientes:
+Artículo 6º-Deberes del Estado. Los deberes del Estado costarricense con las personas jóvenes, serán los siguientes:
 Salud:
 a) Brindar atención integral en salud, mediante la implementación de programas enfocados en la promoción, la prevención, el tratamiento y la rehabilitación de las personas jóvenes, en los que se incluyan temas relacionados con la nutrición adecuada, la salud física, mental, sexual y reproductiva, así como consejería para evitar la farmacodependencia y la drogadicción, entre otros.
 (Así reformado el inciso anterior por el artículo 3° de la ley N° 9155 del 3 de julio del 2013)
@@ -33,3 +33,7 @@ s) Garantizar la apertura de los espacios deportivos, sin limitar su acceso, en 
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
 t) Incentivar la participación y la permanencia en el deporte, por parte de los jóvenes, mediante la realización de campañas y actividades deportivas promovidas en las distintas escuelas y colegios.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9917 del 19 de noviembre del 2020)
+u) Promover una cultura de paz social y prevención de la violencia en los espacios públicos y de uso común, para resguardar la integridad de las personas
+(Así adicionado el inciso anterior por el artículo 10 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
+v) Asegurar a las personas jóvenes el acceso a la debida información y mecanismos de participación en la planificación de espacios públicos.
+(Así adicionado el inciso anterior por el artículo 10 de la Ley para promover la participación, la prevención de la violencia y el cumplimiento de derechos de las personas jóvenes en los espacios públicos, N° 10561 del 28 de octubre de 2024)
