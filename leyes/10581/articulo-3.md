@@ -1,0 +1,2 @@
+ARTÍCULO 3- Participación de gobiernos locales
+Para la ejecución de esta ley, los gobiernos locales que conforman el Camino de Costa Rica, dentro del marco jurídico respectivo, se autorizan para gestionar los mecanismos de apoyo y cooperación mediante cualquier tipo de recursos o alternativas, convenios de cooperación, iniciativas y asociaciones público-privadas, con el fin de promover el desarrollo turístico del Camino de Costa Rica.
