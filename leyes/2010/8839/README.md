@@ -1,6 +1,6 @@
 # Ley para la Gestión Integral de Residuos
 
-Ley N° 8839 del 2010-06-24. SINALEVI, ficha 68300: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68300&param2=127501&param3=1>.
+Ley N° 8839 del 2010-06-24. SINALEVI, ficha 68300: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68300&param2=143880&param3=1>.
 
 Publicada en La Gaceta N° 135 del 2010-07-13.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 7 | 2019-12-06 | Ley 9786 | 2019-11-26 |
 | 5 de 7 | 2021-11-04 | Ley 9825 | 2020-07-09 |
 | 6 de 7 | 2021-11-04 | Ley 10031 | 2021-10-04 |
+| 7 de 7 | 2024-12-11 | Ley 10599 | 2024-11-11 |
