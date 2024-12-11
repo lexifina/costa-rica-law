@@ -1,3 +1,4 @@
 Amenazas agravadas.
-Artículo 195.—Será sancionado con prisión de quince a sesenta días o de diez hasta sesenta días multa, a quien hiciere uso de amenazas injustas y graves para alarmar o amenazar a una persona, si el hecho fuere cometido con armas de fuego, o por dos o más personas reunidas, o si las amenazas fueren anónimas o simbólicas.
-(Así reformado por el inciso f) del artículo 1 de la ley N° 8250 de 2 de mayo del 2002)
+Artículo 195- Amenazas agravadas. Será sancionado con prisión de seis meses a dos años a quien haga uso de amenazas injustas y graves para alarmar o amenazar a una persona.
+Si las amenazas fueran cometidas por dos o más personas reunidas, o si las amenazas fueran anónimas o simbólicas, la pena de prisión será de un año a tres años.
+(Así reformado por el artículo 2° de la Ley para el fortalecimiento del marco sancionatorio de los delitos cometidos con armas de fuego prohibidas, N° 10610 del 15 de noviembre de 2024)
