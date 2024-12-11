@@ -15,11 +15,12 @@ RESUELVE:
 Artículo 1º-Establecer que la selección, para efectos de fiscalización, de los regímenes, beneficiarios y bienes o servicios objeto de incentivos fiscales autorizados por la Dirección General de Hacienda, así como, de los procesos de recomendación y autorización pertinentes, se fundamentará en, al menos, uno de los siguientes criterios de selección basados en riesgo:
 1. Los hallazgos relacionados con el incumplimiento de deberes formales o materiales que sean de competencia de la Dirección General de Hacienda, que se desprendan de estudios o fiscalizaciones realizadas por la Administración Tributaria y/o los entes recomendadores.
 2. Los factores de interés que se desprendan de estudios realizados por entidades externas del Ministerio, así como, resultado de información que se publique en medios de comunicación colectiva.
-3. Las variables de orden cuantitativo, de conformidad con los parámetros que se utilicen para el análisis respectivo tales como:
-3.1. Cuando el monto exonerado supere los 20.000.000.
+(*)3. Las variables de orden cuantitativo, de conformidad con los parámetros que se utilicen para el análisis respectivo tales como:
+3.1. Cuando el monto exonerado supere los 20 000 000,00 de colones (veinte millones de colones).
 3.2. Cuando la cantidad de DUAS supere los 50 duas.
 3.3. Cuando el porcentaje de interés fiscal sea superior al 10%, el cual se obtiene aplicando la siguiente fórmula: (Monto anual exonerado por beneficiario/ Monto anual exonerado por código de liberación * 100).
-3.4. Cuando el monto exonerado aplicado en comprobantes electrónicos supere los 20.000.000.
+3.4. Cuando el monto exonerado aplicado en comprobantes electrónicos supere los 20 000 000,00 de colones (veinte millones de colones).
+(*) (Así reformado el inciso 3) anterior por el artículo 1° de la resolución N° MH-DGH-RES-0064-2024 del 11 de diciembre de 2024)
 4. Los bienes y servicios exonerados que por su naturaleza pueden ser empleados para fines diferentes a los autorizados.
 5. Los bienes exonerados que pueden ser usados por terceros no autorizados.
 6. Los beneficiarios que se presuma o existan indicios de haber incurrido en alguna de las siguientes situaciones:

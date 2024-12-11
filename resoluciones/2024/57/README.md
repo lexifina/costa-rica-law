@@ -14,3 +14,4 @@ Criterios de selección de regímenes y beneficiarios de exenciones fiscales par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-26 | la propia norma |
+| 2 | 2024-12-11 | Resolución 64 (2024-12-11) |
