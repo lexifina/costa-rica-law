@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Asociación donataria no podrá variar el nuevo uso o destino del bien inmueble que mediante esta ley se autoriza donar. En caso de hacerlo, o de que la Asociación se disuelva, el inmueble pasará a ser propiedad de la Municipalidad de San Rafael.
