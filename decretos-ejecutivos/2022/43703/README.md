@@ -14,3 +14,4 @@ Reforma Reglamento al artículo 10 de la Ley N° 1038 de Tarifas de Honorarios P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-26 | la propia norma |
+| 2 | 2024-12-11 | SINALEVI (sin norma nombrada) |

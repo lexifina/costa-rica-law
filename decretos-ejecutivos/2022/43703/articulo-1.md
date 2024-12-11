@@ -1,4 +1,6 @@
+(Anulada)
 N° 43703-MH-MEIC
+(Este decreto ejecutivo fue Anulado por resolución de la Sala Constitucional N° 036864 del 11 de diciembre de 2024)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE HACIENDA,
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
