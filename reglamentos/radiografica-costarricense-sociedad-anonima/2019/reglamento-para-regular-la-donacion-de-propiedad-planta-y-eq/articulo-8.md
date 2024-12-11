@@ -1,1 +1,0 @@
-Artículo 8º—Bienes susceptibles de donación. Los bienes de PPE, inventarios y bienes controlables que mantiene la Empresa, que no se ocupen, que requieran ser sustituidos o que han quedado obsoletos podrán ser donados una vez que se hayan clasificado en alguno de los anteriores criterios.

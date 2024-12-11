@@ -1,1 +1,0 @@
-Artículo 10.—Inventario de activos para donar. El Departamento de Logística de manera semestral realizará el inventario de los activos de PPE, inventario y bienes controlables en custodia que se consideren aptos para ser donados (mobiliario, equipo electrónico, equipo de cómputo u otros) por medio de una lista.

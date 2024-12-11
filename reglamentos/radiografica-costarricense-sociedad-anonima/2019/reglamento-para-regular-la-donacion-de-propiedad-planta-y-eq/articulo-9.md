@@ -1,1 +1,0 @@
-Artículo 9º—Responsabilidad del Departamento de Logística. El Departamento de Logística será la dependencia responsable de la custodia, clasificación y control de los bienes declarados como obsoletos y/o de desecho.
