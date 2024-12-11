@@ -1,0 +1,1 @@
+ARTÍCULO 4- La Municipalidad de Oreamuno podrá firmar convenios u otros mecanismos legales con comités de deportes o asociaciones de desarrollo u otros grupos organizados para lograr los fines de esta ley.

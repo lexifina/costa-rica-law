@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Municipalidad de Oreamuno podrá destinar recursos propios para reparaciones, mejoras o construcción con recursos municipales, así como establecer convenios de cooperación interinstitucional o internacional para los fines acordados.
