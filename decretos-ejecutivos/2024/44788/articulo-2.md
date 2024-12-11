@@ -1,0 +1,1 @@
+Artículo 2: Las intervenciones que se realicen en el Parque Metropolitano La Sabana deberán cumplir con la Ley 7555 de Patrimonio Histórico-Arquitectónico de Costa Rica, del 04 de octubre de 1995 su Reglamento 32749, Decreto Ejecutivo Nº32749-MCJD, del 14 de marzo del 2005.

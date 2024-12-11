@@ -1,0 +1,1 @@
+Artículo 6: Los trámites y solicitudes que deban gestionar para la implementación de dichas actividades y sus obras asociadas, recibirán por parte de los entes y órganos públicos un trato prioritario y expedito dentro del marco jurídico respectivo.
