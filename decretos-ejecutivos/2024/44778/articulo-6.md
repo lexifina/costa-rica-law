@@ -1,0 +1,1 @@
+Artículo 6°-Normativa aplicable. Para todos los demás aspectos no contemplados en el presente reglamento, resultan aplicables las disposiciones establecidas por la Contraloría General de la República mediante el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos (Resolución número R-DC-111-2011 de las ocho horas del 07 de julio de 2011).
