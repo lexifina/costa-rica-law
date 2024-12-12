@@ -1,0 +1,1 @@
+Artículo 3. Colaboración para promover el Proyecto. Las instituciones del sector público y el sector privado, dentro del marco legal respectivo, podrán contribuir con las actividades e iniciativas del Proyecto de Levantamiento Catastral.
