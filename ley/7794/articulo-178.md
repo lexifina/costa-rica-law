@@ -1,2 +1,3 @@
-Artículo 178. — El Comité cantonal funcionará con el reglamento que dicte la respectiva municipalidad, el cual deberá considerar, además, las normas para regular el funcionamiento de los comités comunales y la administración de las instalaciones deportivas municipales.
-(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 169 al 178)
+Artículo 178- El comité cantonal de deportes y recreación funcionará con el reglamento que dicte la respectiva municipalidad, el cual deberá considerar, además, las normas para regular el funcionamiento de los comités distritales o comunales, los procesos para la rendición de cuentas y la administración de las instalaciones deportivas municipales.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018, que lo traspasó del antiguo artículo 169 al 178)
+(Así reformado por el artículo único de la Ley para el fortalecimiento de los Comités Cantonales de Deportes y Recreación, N° 10626 del 12 de diciembre del 2024)
