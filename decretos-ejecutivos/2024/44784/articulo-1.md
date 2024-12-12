@@ -1,0 +1,14 @@
+Nº 44784- MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública Nº 6227 del 02 de mayo de 1978, el artículo 32 de la Ley de Asociaciones Nº 218 del 08 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones Nº 29496-J, publicado en La Gaceta Nº 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta Nº 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios Nº 4755.
+CONSIDERANDO
+I. Que el artículo 32 de la Ley de Asociaciones Nº 218 de 08 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la Asociación Hogar para Personas Adultas Mayores Presbítero Jesús María Vargas Vásquez de Orotina, cédula jurídica número 3-002-045560, inició plazo el día 24 de septiembre de 1980 y se inscribió en el Registro de Asociaciones del Registro Público Nacional al tomo 1, asiento 45.
+III. Que los principios y objetivos que persigue la Asociación, según sus estatutos son: "Son principios y objetivos a los que debe ajustarse el funcionamiento de esta organización: a) propiciar el mejoramiento de la calidad de vida de las personas adultas mayores, en cualquier modalidad de atención con la que se cuente. Se tiene el servicio de cuido a largo plazo, es decir, hogar de larga estancia, pudiendo extenderse a otras modalidades, servicios y programas, si así se estima conveniente por parte de la Junta Directiva, siempre cumpliendo el Modelo Gerontológico de Atención Centrada en la Persona. b) Propiciar el pleno goce de los derechos humanos de las personas adultas mayores. c) Coordinar con las familias de las personas adultas mayores residentes cualquier asunto referente a su estadía y necesidades. d) Propiciar relaciones intergeneracionales de los residentes. e) Respetar y garantizar el pleno goce y disfrute de los derechos de las personas adultas mayores, consagrados tanto en la normativa nacional como internacional."
+IV. Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense.
+POR TANTO
+DECRETAN DECLARATORIA DE UTILIDAD PÚBLICA DE LA
+ASOCIACIÓN HOGAR PARA PERSONAS ADULTAS MAYORES PRESBÍTERO
+JESÚS MARÍA VARGAS V ÁSQUEZ DE OROTINA
+Artículo 1.- Declárese de utilidad pública para los intereses del Estado la Asociación Hogar para Personas Adultas Mayores Presbítero Jesús María Vargas Vásquez de Orotina, cédula jurídica número 3-002-045560.
