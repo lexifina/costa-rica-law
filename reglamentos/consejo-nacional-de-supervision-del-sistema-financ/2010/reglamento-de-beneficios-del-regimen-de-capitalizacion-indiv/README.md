@@ -23,3 +23,4 @@ Reglamento de Beneficios del Régimen de Capitalización Individual, reforma Reg
 | 8 | 2021-10-25 | Reglamento 1696 (2021-10-25) |
 | 9 | 2022-08-22 | Reglamento 1750 (2022-08-22) |
 | 10 | 2023-06-19 | Reglamento 1802 (2023-06-19) |
+| 11 | 2024-12-13 | Reglamento 1908 (2024-12-13) |
