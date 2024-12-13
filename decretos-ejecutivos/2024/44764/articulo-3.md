@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Esta declaratoria prohíbe su demolición, o remodelación parcial o total, sin la autorización previa del Ministerio de Cultura y Juventud, a través de su unidad técnica, Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
