@@ -1,1 +1,0 @@
-Artículo 26.—Medios para presentar las gestiones ante la Contraloría de Servicios. La Empresa dispondrá de todos los medios posibles para la recepción de las inconformidades de sus clientes y/ o público en general, sea por medio presencial, escrito, físicos y electrónicos a través de su sitio web y demás aplicaciones electrónicas.
