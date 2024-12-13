@@ -1,6 +1,6 @@
-SECCIÓN TERCERA
-De la presidencia del CONACOOP
-Artículo 59.—Son atribuciones y deberes de la Presidencia del Consejo Nacional de Cooperativas.
+Sección Tercera
+De la Presidencia del CONACOOP
+Artículo 59.- Son atribuciones y deberes de la presidencia del Consejo Nacional de Cooperativas.
 a) Convocar, presidir, abrir, suspender y cerrar las sesiones del Plenario y del Directorio.
 b) Dirigir los debates.
 c) Velar porque el Consejo Nacional de Cooperativas cumpla las leyes y reglamentos relativos a sus funciones.

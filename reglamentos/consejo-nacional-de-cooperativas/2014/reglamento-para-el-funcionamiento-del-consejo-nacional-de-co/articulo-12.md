@@ -1,1 +1,1 @@
-Artículo 12.—El Consejo Nacional de Cooperativas será el encargado de organizar las Asambleas Sectoriales de forma tal que se garantice la mayor seguridad, participación, divulgación e igualdad de trato para las cooperativas.
+Artículo 12.- El Consejo Nacional de Cooperativas será el encargado de organizar las Asambleas Sectoriales de forma tal que se garantice la mayor seguridad, participación, divulgación e igualdad de trato para las cooperativas.

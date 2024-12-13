@@ -14,3 +14,4 @@ Reglamento para el funcionamiento del Consejo Nacional de Cooperativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-19 | la propia norma |
+| 2 | 2024-12-13 | Reglamento 5 (2024-12-13) |

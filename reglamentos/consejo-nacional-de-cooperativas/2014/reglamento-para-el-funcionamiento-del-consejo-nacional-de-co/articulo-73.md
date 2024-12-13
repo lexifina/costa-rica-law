@@ -1,1 +1,1 @@
-Artículo 73.—Este Reglamento deroga el Reglamento General del CONACOOP, reformado en su sesión plenaria N° 223-2007, publicado en La Gaceta N° 38 del viernes 22 de febrero del 2008.
+Artículo 73.- En asamblea plenaria número 05-2024 celebrada el 13 de diciembre de 2024, se reformó este Reglamento de Funcionamiento del CONACOOP, aprobado en sesión plenaria No. 268-2014, de 19 de diciembre de 2014 publicado en La Gaceta No. 12 del 19 de enero de 2015.

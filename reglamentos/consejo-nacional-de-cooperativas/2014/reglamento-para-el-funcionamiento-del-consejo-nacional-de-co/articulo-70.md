@@ -1,4 +1,4 @@
-Artículo 70.—Son funciones de la Secretaría Ejecutiva.
+Artículo 70. Son funciones de la Secretaría Ejecutiva.
 a) Asistir a las sesiones del Plenario y del Directorio.
 b) Brindar apoyo y asistir al Plenario y al Directorio en el desarrollo de sus actividades.
 c) Proponer y participar con el Directorio en la formulación de políticas y definición de la estructura del Consejo Nacional de Cooperativas.
@@ -6,7 +6,7 @@ d) Elaborar el plan Anual Operativo, su correspondiente presupuesto; y preparar 
 e) Dar seguimiento al Plan Anual de Trabajo, presupuesto y cronograma de actividades aprobado.
 f) Velar porque los egresos se ajusten al presupuesto aprobado.
 g) Controlar el cumplimiento de las leyes que otorgan recursos financieros al Consejo Nacional de Cooperativas.
-h) Seleccionar, nombrar y dirigir al personal que se requiera para el desarrollo de las actividades del Consejo Nacional de Cooperativas, de conformidad con los criterios de selección establecidos en los perfiles de puestos del CONACOOP.
+h) Seleccionar, nombrar, dirigir y remover al personal que se requiera para el desarrollo de las actividades del Consejo Nacional de Cooperativas, de conformidad con los criterios de selección establecidos en los perfiles de puestos del CONACOOP.
 i) Representar al Consejo Nacional de Cooperativas en actos oficiales nacionales e internacionales, cuando el Directorio así lo disponga. Así como en los organismos que por ley corresponda.
 j) Supervisar y controlar el correcto manejo de los bienes y documentos del CONACOOP.
 k) Identificar los recursos internos y externos de utilidad para el desarrollo del CONACOOP.

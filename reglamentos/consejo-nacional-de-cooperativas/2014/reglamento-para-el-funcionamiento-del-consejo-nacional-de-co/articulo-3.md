@@ -1,1 +1,1 @@
-Artículo 3º—Los objetivos fundamentales del Congreso Cooperativo están orientados a definir las pautas generales con relación al fomento, promoción, financiamiento y divulgación del Movimiento Cooperativo al nivel nacional.
+Artículo 3.- Los objetivos fundamentales del Congreso Cooperativo deberán estar orientados a definir las pautas generales con relación al fomento, promoción, financiamiento y divulgación del Movimiento Cooperativo al nivel nacional.

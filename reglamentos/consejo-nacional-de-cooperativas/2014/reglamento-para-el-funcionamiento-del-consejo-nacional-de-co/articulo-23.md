@@ -1,1 +1,1 @@
-Artículo 23.- La ausencia de cualquiera de los requisitos en las boletas, en caso de que no se subsanaren dentro del plazo que se otorgue, impedirá la participación de la persona delegada en la Asamblea Sectorial respectiva.
+Artículo 23.- La ausencia de cualquiera de los requisitos en las boletas, en caso de que no se subsanaren en dentro del plazo que se otorgue, impedirá la participación de la persona delegada en la Asamblea Sectorial respectiva.
