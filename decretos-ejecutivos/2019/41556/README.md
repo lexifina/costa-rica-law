@@ -15,3 +15,4 @@ Reglamento para el pago de viáticos para los funcionarios de la Presidencia de 
 | --- | --- | --- |
 | 1 | 2019-02-11 | la propia norma |
 | 2 | 2024-10-11 | Decreto Ejecutivo 44706 (2024-10-11) |
+| 3 | 2024-12-13 | Decreto Ejecutivo 44837 (2024-12-13) |
