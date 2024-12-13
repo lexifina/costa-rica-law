@@ -1,0 +1,54 @@
+Nº 44773-MAG
+EL PRESIDENTE DE LA REPÚBLICA Y
+EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades que les confieren el artículo 140, incisos 3), 8), 18) y 20), y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley General de la Administración Pública, Ley N.º 6227 de 2 de mayo de 1978, la Ley del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria, Ley Nº 8149 del 5 de noviembre de 2001, y el Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), Decreto Ejecutivo número 31857-MAG publicado en La Gaceta número 146 del 27 de julio de 2004,
+CONSIDERANDO:
+I- Que mediante Ley Nº 8149 de fecha 5 de noviembre del 2001, publicada el 22 de noviembre del 2001, en La Gaceta Nº 225, se creó el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria -INTA-.
+II- Que el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria fue creado con el objetivo de contribuir al mejoramiento y la sostenibilidad del Sector Agropecuario, por medio de la generación, innovación, validación, investigación y difusión de tecnología, en beneficio de la sociedad costarricense; razón por la cual su funcionamiento eficiente y eficaz es de suma importancia para el desarrollo del Sector Agropecuario Nacional.
+III- Que mediante Decreto Ejecutivo número 31857-MAG publicado en La Gaceta número 146 del 27 de julio del 2004, se emitió el Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+IV- Que es necesario actualizar la estructura organizacional de la institución y obtener mejoras en su accionar en el marco del sector agropecuario, de forma que la institución se adapte a las necesidades de sus usuarios y esto permita una efectiva prestación de servicios y desarrollo de investigación agropecuaria, ya que la estructura organizacional vigente no resulta apta para responder a las necesidades y demandas actuales del sector agropecuario, así como para lograr la reducción de los trámites institucionales, la mejora en la toma de decisiones y el control y seguimiento de los resultados institucionales.
+V- Que de conformidad con lo dispuesto en el artículo 22 de la Ley Nº 8149 de fecha 5 de noviembre del 2001, corresponde al Poder Ejecutivo emitir el Reglamento a la ley.
+VI- Que el Despacho del Ministro de Agricultura y Ganadería, por medio del oficio DMMAG- 720-2023 del 5 de julio del 2023, presentó para su análisis y resolución al Ministerio de Planificación Nacional y Política Económica una propuesta de reorganización administrativa parcial del INTA, con el objetivo de modificar la Dirección de Investigación y Desarrollo Tecnológico para conformar la Unidad de Gestión del Conocimiento, y suprimir la Unidad Pecuaria, con el fin de crear tres unidades especializadas para atender las necesidades de investigación pecuaria por región, con sus respectivas funciones, que estarán distribuidas en Centros de Innovación Agropecuaria.
+VII- Que mediante oficio MIDEPLAN-DM-OF-1714-2023 del 03 de octubre del 2023, la Ministra de Planificación Nacional y Política Económica comunicó que la propuesta de reorganización administrativa parcial del INTA para modificar la Dirección de Investigación y Desarrollo Tecnológico fue aprobada.
+VIII- Que el Despacho del Ministro de Agricultura y Ganadería, por medio del oficio DMMAG- 796-2023 del 21 de julio del 2023, presentó para su análisis y resolución al Ministerio de Planificación Nacional y Política Económica una propuesta de reorganización administrativa parcial del MAG, para modificar la nomenclatura de la actual Unidad de Asuntos Internacionales para que se denomine Unidad de Cooperación Internacional, así como concentrar las dependencias, procesos y servicios relacionados con la cooperación internacional, asuntos internacionales, cooperación técnica y similares existentes en los Órganos Desconcentrados (OD) que conforman los programas y subprogramas presupuestarios del MAG, incluido el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), dentro de una única Unidad de Cooperación Internacional del MAG.
+IX- Que mediante oficio MIDEPLAN-DM-OF-1579-2023 del 13 de setiembre del 2023, la Ministra de Planificación Nacional y Política Económica comunicó que la propuesta de reorganización administrativa parcial del MAG fue aprobada, por lo que resulta necesario suprimir de la estructura del INTA la Unidad de Cooperación Técnica, cuyas funciones serán asumidas por la Unidad de Cooperación Internacional del MAG.
+X- Que el Despacho del Ministro de Agricultura y Ganadería, por medio del oficio DMMAG- 0461-2023 del 25 de mayo del 2023, presentó para su análisis y resolución al Ministerio de Planificación Nacional y Política Económica una propuesta de reorganización administrativa parcial del MAG, para concentrar las dependencias y procesos de planificación existentes en los Órganos Desconcentrados (OD) que conforman los programas y subprogramas presupuestarios del MAG, a saber el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), Servicio Fitosanitario del Estado (SFE) y el Servicio de Salud Animal (SENASA), dentro de una única unidad asesora de Planificación Institucional (UPI) del MAG.
+XI- Que mediante oficio MIDEPLAN-DM-OF-1265-2023 del 21 de julio del 2023, la Ministra de Planificación Nacional y Política Económica comunicó que la propuesta de reorganización administrativa parcial del MAG fue aprobada, por lo que resulta necesario suprimir de la estructura del INTA la Unidad de Planificación Institucional, cuyas funciones serán asumidas por Planificación Institucional (UPI) del MAG.
+XII- Que según lo dispuesto en el inciso c) del artículo 13 "Ambiente de Control" de la Ley General de Control Interno N° 8292 y la norma 2.5 "Estructura organizativa" de las Normas de Control Interno para el Sector Público de la Contraloría General de la República (N-2-2009-CO-DFOE), la administración está en la obligación de velar por contar con una estructura organizativa que responda a los fines y objetivos institucionales.
+XIII- Que de conformidad con la Resolución de declaración de confianza DGRES- 111-2024 Dirección General de Servicio Civil, San José, a las quince horas del veinticinco de abril del dos mil veinticuatro, el Director General resolvió declarar de confianza el puesto N° 097199 ubicado en el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA), con cargo de Subdirector del INTA, por lo que resulta necesario hacer el ajuste en el Decreto Ejecutivo N.º 31857 MAG del 19 de mayo de 2004, para que se incluya el nombramiento y remoción de este funcionario por parte de la Junta Directiva como superior jerárquico del Instituto, en virtud del inciso o) del artículo 12 de la Ley del Instituto Nacional de Innovacióny Transferencia en Tecnología Agropecuaria Número 8149 del 5 de noviembre de 2001.
+XIV- Que la Junta Directiva del INTA, mediante Sesión Ordinaria No. 575, de fecha 01 de julio de 2024, tomó el acuerdo No. 02, artículo No. 04, en el cual aprobó la estructura (organigrama actual) y la reorganización del INTA.
+XV- Que de conformidad con los párrafos segundo y tercero del artículo 12 y artículo 12 bis del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012, el presente Decreto no crea ni modifica trámites, requisitos o procedimientos, por lo que no requiere del Trámite de Mejora Regulatoria.
+Por tanto,
+DECRETAN:
+REFORMA DE LOS INCISOS B) Y C) DEL ARTICULO 11, EL INCISO J)
+DEL ARTICULO 23, EL INCISO P) DEL ARTÍCULO 28, EL INCISO E) DEL
+APARTADO 4 DEL ARTICULO 37 Y REFORMA DE LOS ARTICULOS 34 y
+35 DEL REGLAMENTO A LA LEY DEL INSTITUTO NACIONAL DE
+INNOVACIÓN Y TRANSFERENCIA EN TECNOLOGÍA AGROPECUARIA
+(INTA), DEL DECRETO EJECUTIVO N.º 31857-MAG, DEL 19 DE MAYO
+DEL 2004.
+Artículo 1.-Se reforman los incisos b) y c) del artículo 11, inciso j) del artículo 23 y el inciso p) del artículo 28 del Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA) emitido mediante Decreto Ejecutivo número 31857-MAG del 19 de mayo del 2004, para que se lean de la siguiente manera:
+Artículo 11. -El INTA estará conformado por los siguientes órganos:
+(...)
+b) Una Dirección Ejecutiva que estará conformada por un Director(a) y un Subdirector(a) cuyos nombramientos son de confianza y serán de libre nombramiento y remoción de la Junta Directiva. Ambos puestos requieren como mínimo el título profesional de Licenciatura en Ingeniería Agronómica o en alguna de las ramas de las ciencias agropecuarias debidamente incorporados al Colegio de Ingenieros Agrónomos, experiencia en administración y dos años de experiencia en supervisión de personal. Las funciones del Sub director del INTA serán asignadas por quien ocupe el cargo de Director(a).
+En caso de ausencias temporales del Director(a), el subdirector(a), asumirá la Dirección del INTA con todas sus funciones y responsabilidades. Además; el Director(a) queda facultado para nombrar en forma temporal a un sustituto del Subdirector(a) en ausencias temporales del Subdirector(a). Formará parte también de la Dirección Ejecutiva la Unidad de Gestión de Conocimiento.
+c) Una Dirección de Investigación y Desarrollo Tecnológico, que estará conformada por los siguientes Departamentos y Unidades:
+c.1) Departamento Centro de Innovación Agropecuaria Enrique Jiménez Núñez.
+c.1.1) Unidad Pecuaria Trópico Seco.
+c.1.2) Unidad Agrícola Trópico Seco.
+c.1.3) Unidad Centro Experimental La Managua.
+c.2) Departamento Centro de Innovación Agropecuaria Central.
+c.2.1) Unidad Pecuaria Central.
+c.2.2) Unidad Agrícola Central.
+c.2.3) Unidad Centro Experimental Carlos Durán.
+c.3) Departamento Centro de Innovación Agropecuaria Los Diamantes.
+c.3.1) Unidad Pecuaria Trópico Húmedo.
+c.3.2) Unidad Agrícola Trópico Húmedo.
+c.4) Departamento de Laboratorios.
+c.5) Departamento de Estudios Básicos de Tierras.
+Artículo 23.-Las funciones, los deberes, atribuciones y responsabilidades de la Junta Directiva del Instituto son:
+(...)
+j. Nombrar y remover de su puesto al Director Ejecutivo y al Sub Director de conformidad con el inciso g) del artículo 4 del Estatuto del Servicio Civil, ambos deberán ser costarricenses y tener como mínimo el título profesional de Licenciatura en Ingeniería Agronómica o en alguna de las ramas de las ciencias agropecuarias debidamente incorporados al Colegio de Ingenieros Agrónomos con experiencia en Administración y dos años de supervisión de personal.
+Artículo 28.-Son atribuciones y deberes del Director Ejecutivo:
+(…)
+p. Coordinar lo correspondiente con las instancias asesoras del MAG, para el buen funcionamiento del INTA.
