@@ -14,3 +14,4 @@ Reglamento interno sobre modificaciones al presupuesto de la municipalidad de R√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-04 | la propia norma |
+| 2 | 2024-12-16 | Reglamento municipal 37 (2024-12-16) |

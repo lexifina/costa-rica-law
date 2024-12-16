@@ -1,3 +1,2 @@
-Artículo 14.-Tipos de modificaciones presupuestarias. Se crean las siguientes modificaciones presupuestarias con el propósito de alcanzar los objetivos que persigue la Municipalidad deRío Cuarto.
-a) Modificación presupuestaria de aprobación administrativa.
-b) Modificación presupuestaria de aprobación del Concejo.
+Artículo 14.-Competencia de las modificaciones presupuestarias. El Concejo Municipal de Río Cuarto será el órgano competente para aprobar las Modificaciones Presupuestarias.
+(Así reformado en sesión N° 037 del 16 de diciembre de 2024)

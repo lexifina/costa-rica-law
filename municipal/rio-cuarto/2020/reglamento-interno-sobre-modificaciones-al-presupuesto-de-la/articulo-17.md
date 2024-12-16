@@ -1,4 +1,5 @@
-Artículo 17.-Modificaciones Presupuestarias de Aprobación del Concejo Municipal. La aprobación de las modificaciones presupuestarias cuando éstas se realicen entre programas corresponderá al Concejo Municipal o sean entre el mismo programa, pero excedan el 15% establecido en el artículo anterior. La persona encargada de presupuesto le entregará a la persona titular de la Alcaldía, para la aprobación por parte del Concejo Municipal, el expediente completo de la Modificación Presupuestaria donde constará como mínimo:
+Artículo 17.-Modificaciones Presupuestarias de Aprobación del Concejo Municipal. La aprobación de las modificaciones presupuestarias corresponderá al Concejo Municipal en todo momento.
+(Así reformado el párrafo anterior en sesión N° 037 del 16 de diciembre de 2024)
 a) Declaración jurada por parte del encargado o encargada de la elaboración del presupuesto indicando que el documento presentado cumple con el bloque de legalidad.
 b) Nota dirigida a la persona titular de la Alcaldía con la indicación del monto total a modificar en el presupuesto, así como dos cuadros: uno donde se indique el monto que se rebaja de cada uno de los programas y otro indicando el monto que se aplica a cada uno de ellos.
 c) Índice de la información presentada en el documento "Modificación Presupuestaria de Aprobación del Concejo Municipal.

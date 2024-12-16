@@ -1,4 +1,5 @@
-Artículo 15.-Modificaciones Presupuestarias de Aprobación Administrativa. La aprobación de las modificaciones presupuestarias cuando éstas se realicen entre un mismo programa corresponderá a La Alcaldía. La persona encargada de presupuesto le entregará para su estudio, el expediente completo de la Modificación Presupuestaria donde constará como mínimo:
+Artículo 15.-Expediente. La persona encargada de presupuesto le entregará para su estudio, el expediente completo de la Modificación Presupuestaria donde constará como mínimo:
+(Así reformado el párrafo anterior en sesión N° 037 del 16 de diciembre de 2024)
 a) Declaración jurada por parte del encargado de la elaboración del presupuesto indicando que el documento presentado cumple con el bloque de legalidad.
 b) Documento de solicitud justificada de modificación de presupuesto por parte de la oficina, unidad, departamento o funcionario (a) interesado (a), solicitud que será remitida a la persona encargada de presupuesto mediante un oficio.
 c) Documento impreso del sistema de presupuesto donde consten los saldos de las cuentas a debitar y acreditar.
