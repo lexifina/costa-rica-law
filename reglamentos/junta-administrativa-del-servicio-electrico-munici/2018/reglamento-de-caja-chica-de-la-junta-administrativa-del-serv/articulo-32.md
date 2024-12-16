@@ -1,1 +1,0 @@
-Artículo 32. —Impedimento a obtener otro adelanto con una liquidación pendiente. Al funcionario que tenga pendiente la liquidación de un adelanto, no se le tramitará otro, hasta tanto no liquide el pendiente.

@@ -1,1 +1,0 @@
-Artículo 29. —Entrega Vale de Adelanto El encargado del fondo de caja chica entregará al solicitante el dinero manteniendo en custodia el original y las copias del vale de adelanto por fondo de caja chica.

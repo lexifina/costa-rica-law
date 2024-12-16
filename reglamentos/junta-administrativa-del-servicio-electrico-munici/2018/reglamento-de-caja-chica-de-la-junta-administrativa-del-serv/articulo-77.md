@@ -1,1 +1,0 @@
-Artículo 77. —De la responsabilidad. De presumirse la mediación de eventos que constituyen actos en perjuicio de alguno de los fondos de trabajo, el Jefe de Unidad Ejecutora comunicará a la Gerencia General.
