@@ -1,2 +1,1 @@
-Artículo 37.—Vigencia: El presente Reglamento regirá a partir de su aprobación y publicación en el Diario Oficial La Gaceta.
-San José, 09 de octubre del 2023.—
+Artículo 37º-Responsabilidad en Voto Negativo o Disidente. Los miembros de Junta que hagan constar en el acta su voto negativo o disidente al acuerdo dictado y los motivos que lo justifiquen, quedarán exentos de la responsabilidad que, en su caso, pudiera derivarse de los acuerdos.

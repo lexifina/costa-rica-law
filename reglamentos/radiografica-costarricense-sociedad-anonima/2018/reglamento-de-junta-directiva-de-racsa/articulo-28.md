@@ -1,6 +1,3 @@
-SECCIÓN II
-Acuerdos
-Artículo 28.—Votación Calificada: Las votaciones se harán nominalmente y en voz alta, salvo que por unanimidad la Junta Directiva acuerde en cada caso la votación en secreto. Se requerirá votación calificada en los siguientes asuntos:
-a. Para la celebración de sesión extraordinaria sin cumplir los requisitos de convocatoria u orden del día se requiere de la unanimidad de todos los miembros.
-b. En la eventualidad de que se requiera dejar firme un acuerdo, se requerirá el voto favorable de dos tercios de la totalidad de los miembros de la Junta Directiva.
-c. Para la inclusión de un asunto que no figure en el orden del día en cualquier sesión, se debe declarar la urgencia del asunto, para lo que se requiere el voto favorable de dos tercios de la totalidad de los miembros que integran el Órgano Colegiado.
+SECCIÓN II - Del Acta
+Artículo 28º-Levantamiento y Aprobación del Acta. De cada sesión presencial o virtual que se efectúe, la Secretaría de la Junta Directiva levantará un acta en la que deben constar el lugar, fecha, hora de inicio y finalización, los integrantes presentes de manera virtual o presencial, demás personal presente, la transcripción literal de todas las intervenciones efectuadas, la forma y el resultado de la votación y el contenido de los acuerdos, así como los votos negativos o disidentes y los motivos que los justifiquen, en caso de que existan.
+Cuando algún miembro de Junta quiera razonar su voto debe constar en el acta, y se aportará un documento con la justificación.

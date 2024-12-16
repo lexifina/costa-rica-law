@@ -1,12 +1,5 @@
-CAPÍTULO III
-funcionamiento de la junta directiva
-SECCIÓN I
-SESIONES
-Artículo 16.—Sobre las Sesiones: La Junta Directiva sesionará, de forma presencial o virtual y serán celebradas por lo menos una vez al mes, los días que el mismo órgano defina en su primera sesión o cuando así lo convenga la mayoría, previa convocatoria aprobada por el Presidente.
-16.1 Corresponderá a la Secretaría de la Junta Directiva realizar la comunicación respectiva en los términos establecidos en el artículo denominado a Convocatoria de las Sesiones, de este Reglamento. El Órgano Colegiado tendrá la potestad de definir y ajustar cuando lo crea oportuno la periodicidad de la realización de las sesiones.
-16.2. La Junta Directiva podrá sesionar de forma presencial o virtual, con la participación de todos sus miembros, o bien, con tres (3) de sus miembros, salvo en casos de urgencia, según lo establecido en el artículo denominado Cuórum de este Reglamento.
-16.3. Para la realización de dichas sesiones, los miembros del Órgano Colegiado dispondrán del equipo y el apoyo logístico necesario para el desarrollo de las mismas, con los mecanismos de seguridad que garanticen su privacidad. Habiéndose convocado una sesión de manera presencial y dado el caso que alguno de los miembros tenga algún impedimento para asistir, la Junta Directiva tomará la decisión de definir si dicha sesión se realiza de forma mixta.
-16.4. No obstante, lo establecido en los artículos anteriores, la Junta Directiva sesionará válidamente, sin cumplir todos los requisitos referentes a la convocatoria o a la Agenda, cuando asistan todos sus miembros, ya sea de manera presencial o virtual.
-16.5. Las sesiones tanto ordinarias como extraordinarias, presenciales o virtual se realizarán en forma privada, salvo que por unanimidad de la Junta Directiva se acuerde permitir el acceso del público en general, o algún grupo o personas específicas, a los cuales les podrá conceder el derecho a participar en las deliberaciones con voz, pero sin voto.
-16.6. Sesiones Ordinarias: Las sesiones ordinarias deben tener un carácter permanente, de regularidad o normalidad para conocer, discutir y votar los asuntos ordinarios que le competen y, excepcionalmente, asuntos de naturaleza extraordinaria o especial.
-16.7. Sesiones Extraordinarias: Las sesiones extraordinarias son aquellas que se realizan excepcionalmente, en las que, por lo general, se discuten asuntos de naturaleza especial o urgente que no puede esperar a la próxima sesión ordinaria.
+SECCIÓN IV - De las Comisiones
+Artículo 16º-De las Comisiones. La Junta Directiva podrá constituir de su seno comisiones permanentes y comisiones especiales, las cuales podrán ser mixtas, es decir, con participación de funcionarios de la empresa, de las empresas subsidiarias o de terceros, según lo considere necesario.
+16.1 Del Tipo de Comisiones:
+a. Comisiones Permanentes: aquellas designadas por la Junta Directiva para atender permanentemente algún asunto o trámite y deberán rendir su informe en el plazo que se señale en el momento de su constitución.
+b. Comisiones Especiales: aquellas nombradas por la Junta Directiva para atender un asunto específico y deberán rendir su informe en el plazo que se señale en el momento de su constitución; no obstante, dicho plazo podrá ser prorrogado a juicio de la Junta Directiva, debido a la complejidad del asunto en investigación.

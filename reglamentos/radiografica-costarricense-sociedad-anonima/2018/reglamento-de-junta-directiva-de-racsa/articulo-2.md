@@ -1,5 +1,2 @@
-CAPÍTULO II
-Forma de Organización
-Artículo 2º—Conformación: La Junta Directiva de RACSA estará integrada conforme a lo que disponga la Asamblea de Accionistas.
-Todos los miembros tendrán voz y voto.
-Como asesor de la Junta fungirá el Director(a) de la Dirección Jurídica y Regulatoria o quien éste designe, quien tendrá voz, pero no voto.
+Artículo 2º-Junta Directiva. La Junta Directiva es el órgano colegiado superior jerárquico en materia de gobierno de RACSA.
+La selección de los miembros de la Junta Directiva se hará de acuerdo con lo dispuesto en el Procedimiento para la selección de los miembros de órganos de dirección de las empresas del ICE, y conforme al marco jurídico de RACSA.

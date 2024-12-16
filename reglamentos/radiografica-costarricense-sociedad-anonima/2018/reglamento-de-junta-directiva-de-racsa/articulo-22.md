@@ -1,1 +1,1 @@
-Artículo 22.—Expediente de las Sesiones: Para cada acta se conformará un expediente con los documentos que se hayan analizado en el orden del día respectivo. Las grabaciones no formarán parte del expediente, solo el acta aprobada e inscrita en el libro oficial.
+Artículo 22º-Lugar de las Sesiones. La Junta Directiva podrá sesionar en el lugar que se indique en la convocatoria, según determine el presidente.

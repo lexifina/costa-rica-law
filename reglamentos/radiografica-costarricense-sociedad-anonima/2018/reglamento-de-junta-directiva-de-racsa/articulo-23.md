@@ -1,1 +1,1 @@
-Artículo 23.—Ausencia a Sesiones: La ausencia a sesiones, justificada o no, torna improcedente el pago de dietas.
+Artículo 23º-Expediente de las Sesiones. Para cada acta se conformará un expediente con los documentos que se hayan analizado en el orden del día respectivo. Las grabaciones no formarán parte del expediente, solo el acta aprobada e inscrita en el libro oficial.

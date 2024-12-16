@@ -16,3 +16,4 @@ Reglamento de junta directiva de RACSA
 | 1 | 2018-02-01 | la propia norma |
 | 2 | 2019-04-09 | Reglamento 2217 (2019-04-09) |
 | 3 | 2023-10-02 | Reglamento 2469 (2023-10-02) |
+| 4 | 2024-12-16 | Reglamento 2521 (2024-12-16) |

@@ -1,3 +1,1 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 36.—Derogatoria: Se deroga el Reglamento de Junta Directiva en el artículo 6º de la sesión ordinaria Nº2217 celebrada el 9 de abril del 2019.
+Artículo 36º-Solicitud de Información por parte de Particulares. Las solicitudes de información pública por parte de particulares a la Secretaría de la Junta Directiva, relacionada con actas u otros documentos propios, deberán cumplir con los requisitos establecidos en la Ley N°9097 de Regulación del Derecho de Petición y atenderse por parte de la Secretaría en el plazo legal dispuesto para esos efectos, todo lo actuado deberá ser informado oportunamente al Órgano Colegiado.

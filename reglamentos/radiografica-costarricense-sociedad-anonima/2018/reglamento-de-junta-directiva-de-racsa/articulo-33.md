@@ -1,1 +1,1 @@
-Artículo 33.—Recepción de información por parte de particulares: La entrega de información solicitada por particulares a la Secretaría de la Junta Directiva, relacionada con actas u otros documentos propios, queda supeditada a la autorización del Órgano Colegiado.
+Artículo 33º-Acuerdos Firmes. Los acuerdos quedan firmes en la sesión en que se apruebe el acta, salvo en aquellos casos que por mayoría calificada (tres) de sus miembros acuerden su firmeza.

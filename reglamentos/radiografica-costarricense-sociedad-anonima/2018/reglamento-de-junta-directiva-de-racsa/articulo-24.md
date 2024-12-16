@@ -1,1 +1,1 @@
-Artículo 24.—Cuórum: Para sesionar deberán estar integrado plenamente el Órgano Colegiado y para que sea eficaz la sesión deben estar presentes por los menos tres (3) de sus miembros y sus acuerdos serán válidos cuando sean tomados por mayoría de los presentes. En caso de empate, quien actué como Presidente de la Junta Directiva decidirá con doble voto.
+Artículo 24º-Ausencia a Sesiones. La ausencia a sesiones, justificada o no, torna improcedente el pago de dietas.

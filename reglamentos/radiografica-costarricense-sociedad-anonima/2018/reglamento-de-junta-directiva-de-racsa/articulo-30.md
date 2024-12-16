@@ -1,1 +1,2 @@
-Artículo 30.—Acuerdos Firmes: Los acuerdos quedan firmes en la sesión en que se apruebe el acta, salvo en aquellos casos que por mayoría calificada (tres) de sus miembros acuerden su firmeza.
+SECCIÓN III - De los Acuerdos
+Artículo 30º-Mayoría Absoluta. Los acuerdos de la Junta Directiva serán dictados por mayoría absoluta de los miembros asistentes, presencial o virtualmente, salvo aquellos casos en que expresamente se establezca otra cosa. No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que estén presentes o virtualmente tres de los miembros de la Junta Directiva y se declare la urgencia de este por unanimidad.

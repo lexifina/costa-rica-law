@@ -1,4 +1,1 @@
-SECCIÓN I
-De la Presidencia y Vicepresidencia
-de la Junta Directiva.
-Artículo 4º—Nombramiento de la Presidencia: El Presidente de la Junta Directiva será designado en el acto de nombramiento de la Asamblea General de Accionistas y permanecerá en el cargo por el período legal que establezca la Asamblea de Accionistas.
+Artículo 4º-Periodo de Nombramiento. Los miembros de la Junta Directiva serán nombrados por el periodo legal establecido por la Asamblea de Accionistas.

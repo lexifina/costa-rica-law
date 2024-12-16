@@ -1,5 +1,1 @@
-CAPÍTULO IV
-Dietas
-Artículo 35.—Reconocimiento de Dietas: Procederá el pago de dietas a los miembros integrantes de la Junta Directiva por cada asistencia.
-El monto por reconocimiento de dietas que devengarán los miembros de la Junta Directiva será de acuerdo con lo dispuesto por la Asamblea de Accionistas de la Empresa. Para obtener válidamente el reconocimiento del pago de dietas, no podrá existir superposición horaria.
-Cuando un miembro de Junta asista de forma virtual a la sesión por encontrarse fuera del país o cualquier otra localidad por razones personales o laborales ajenas a su función como miembro de Junta Directiva de la Empresa, no tendrá derecho a cobrar viáticos, gastos de representación, ni ningún otro rubro, salvo la dieta.
+Artículo 35º-Errores Materiales. Para la corrección de errores materiales o de redacción bastará con la simple observación de uno o varios de los integrantes de la Junta Directiva, a efecto de que el órgano colegiado tome nota y determine el cambio para que sea corregida el acta, salvo que la modificación cambie el sentido original del acuerdo, en cuyo caso deberá tramitarse como un recurso de revisión.
