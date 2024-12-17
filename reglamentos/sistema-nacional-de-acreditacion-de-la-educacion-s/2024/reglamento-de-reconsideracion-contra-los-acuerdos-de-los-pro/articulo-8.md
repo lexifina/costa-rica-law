@@ -1,0 +1,1 @@
+Artículo 8. Motivación de la resolución de fondo. Las resoluciones que acogen o rechazan el recurso de reconsideración deben estar debidamente motivadas, con indicación expresa de los fundamentos que las sustenten.

@@ -1,0 +1,2 @@
+ARTICULO 6. Proceso de análisis del Recurso. Admitido el recurso; el Consejo Nacional de Acreditación revisará los agravios y determinará si requiere de un criterio técnico para complementar el análisis de fondo.
+De proceder el criterio técnico, se nombrará un profesional revisor externo que presentará las conclusiones técnicas al Consejo Nacional de Acreditación para resolver en forma definitiva.

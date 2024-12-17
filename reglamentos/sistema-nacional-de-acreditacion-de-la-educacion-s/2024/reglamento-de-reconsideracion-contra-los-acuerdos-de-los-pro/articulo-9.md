@@ -1,0 +1,2 @@
+Artículo 9. Gastos del procedimiento En caso de que la resolución final sea desfavorable para la carrera que presenta el recurso, todos los gastos en que se incurra para tramitar y resolver los recursos presentados correrán por cuenta de ésta.
+El detalle de los montos correspondientes a cancelar será notificado a la carrera por medio del área administrativa dentro de los 5 días hábiles siguientes a la notificación.

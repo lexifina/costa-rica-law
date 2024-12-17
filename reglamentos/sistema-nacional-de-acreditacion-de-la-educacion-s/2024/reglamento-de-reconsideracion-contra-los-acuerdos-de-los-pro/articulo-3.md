@@ -1,0 +1,1 @@
+Artículo 3. Actos sujetos a reconsideración Para los efectos de estas normas serán objeto de reconsideración los acuerdos relacionados con la acreditación y reacreditación de carreras, programas y sus condiciones.
