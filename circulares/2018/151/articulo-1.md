@@ -1,6 +1,5 @@
-(Derogado)
 CIRCULAR N° 151-2018
-(Esta norma se dejó sin efecto mediante circular N° 139-2024 del 25 de junio del 2024)
+(Esta norma recobra su vigencia por circular N° 261 -2024 del 17 de diciembre de 2024)
 ASUNTO: Sobre el servicio de disponibilidad que brinda la Sección de Psiquiatría y Psicología Forense del Departamento de Medicina Legal.-
 A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

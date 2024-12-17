@@ -14,3 +14,4 @@ Sobre el servicio de disponibilidad que brinda la Sección de Psiquiatría y Psi
 | --- | --- | --- |
 | 1 | 2018-11-19 | la propia norma |
 | 2 | 2024-06-25 | Circular 139 (2024-06-25) |
+| 3 | 2024-12-17 | Circular 261 (2024-12-17) |
