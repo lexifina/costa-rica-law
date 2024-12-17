@@ -1,0 +1,2 @@
+Artículo 10º -La solicitud de reintegro la realizará el encargado de la Caja Chica y/o del Fondo Fijo, en el sistema informático que se utilice en la Institución, adjuntando solicitud formal y respaldos correspondientes a la Jefatura que aprueba el reintegro.
+Los reintegros de dinero se realizarán mediante transferencia a la cuenta respectiva que se dio la apertura para este concepto y de acuerdo con la solicitud de reintegro que emita el sistema informático que se utilice a nivel institucional.

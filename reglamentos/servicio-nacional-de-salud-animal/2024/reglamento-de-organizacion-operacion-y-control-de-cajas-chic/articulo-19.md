@@ -1,0 +1,1 @@
+Artículo 19° -Los funcionarios podrán tener pendiente de liquidación un anticipo para la adquisición de bienes y servicios y otro para gastos de viaje, siempre y cuando sean para ejecutarlos en la misma gira. Si al solicitar un anticipo tiene pendiente otro por el mismo concepto, no le será entregado hasta tanto liquide el pendiente.

@@ -1,0 +1,1 @@
+Artículo 33° -Ninguna persona responsable de fondos de Caja Chica o empleado con funciones de cajero, podrá mantener en las cajas o donde guarde los fondos del SENARA, documentos, cheques, que sean propiedad particular o de otras personas, como tampoco debe suplir dinero de su propiedad para realizar o complementar pagos que correspondan a la Institución.

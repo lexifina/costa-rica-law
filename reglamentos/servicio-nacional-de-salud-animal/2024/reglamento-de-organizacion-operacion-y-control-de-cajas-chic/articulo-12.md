@@ -1,0 +1,1 @@
+Artículo 12º -Los documentos que respaldan los reintegros de Cajas Chicas y Fondos Fijos, no podrán sobrepasar los treinta días posteriores a la fecha de la erogación o sea la fecha en que se hizo el pago. De sobrepasarse este tiempo, el aprobador del reintegro está en la obligación de no tramitar dicho documento, excepto que haya una fehaciente explicación.

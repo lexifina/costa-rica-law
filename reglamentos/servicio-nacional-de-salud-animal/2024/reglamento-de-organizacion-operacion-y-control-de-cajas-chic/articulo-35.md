@@ -1,0 +1,1 @@
+Artículo 35° -La revisión y actualización de este Reglamento debe realizarse cada 3 años, o cuando existan un cambio relevante a nivel normativo externo o interno que afecte el fondo de alguno de los aspectos regulados en el presente Reglamento.

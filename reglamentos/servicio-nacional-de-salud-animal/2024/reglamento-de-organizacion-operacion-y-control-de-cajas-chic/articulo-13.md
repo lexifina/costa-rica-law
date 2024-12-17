@@ -1,0 +1,1 @@
+Artículo 13º-Si por dolo o culpa grave se efectúan erogaciones improcedentes, de acuerdo con lo establecido en las normas reglamentarias y administrativas vigentes, el o los funcionarios responsables de autorizar el gasto y efectuar el pago, deberán reintegrar el monto erogado, sin perjuicio de la responsabilidad disciplinaria que pudiera caber.

@@ -1,0 +1,1 @@
+Artículo 26° -Cualquier faltante que se produzca al momento de practicarse el arqueo, deberá ser cubierto de inmediato por el responsable del fondo, el cual debe hacerse necesariamente mediante transferencia a la cuenta del SENARA respectiva; en caso de sobrante, deberá ser registrado en la cuenta de gastos del SENARA y solicitar el comprobante de ingreso.

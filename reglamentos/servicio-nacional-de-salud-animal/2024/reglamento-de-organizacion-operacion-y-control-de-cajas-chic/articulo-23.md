@@ -1,0 +1,1 @@
+Artículo 23° -Para la creación de otros fondos de Caja Chica o Fondos Fijos, se autoriza a la Gerencia su aprobación, previo estudio técnico financiero del Área Administrativa que así lo recomiende, que incluya análisis valorativos sobre la necesidad específica y justificación de los montos.

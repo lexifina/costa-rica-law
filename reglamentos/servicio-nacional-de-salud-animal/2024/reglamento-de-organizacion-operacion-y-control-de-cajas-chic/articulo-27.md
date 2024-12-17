@@ -1,0 +1,1 @@
+Artículo 27° -El encargado de Caja Chica que incumpla cualquiera de las disposiciones en este Reglamento, se hará acreedor a la suspensión temporal o total de las labores relacionadas con la Caja Chica asignada y a las sanciones estipuladas al efecto, en la Ley de Administración Financiera de la República y el Reglamento Autónomo de Trabajo.

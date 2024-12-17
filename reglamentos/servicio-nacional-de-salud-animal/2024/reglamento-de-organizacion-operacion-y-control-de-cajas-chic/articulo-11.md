@@ -1,0 +1,1 @@
+Artículo 11º-Al efectuarse el reintegro de la Caja chica, todos los comprobantes o justificaciones de las erogaciones efectuadas, deberán quedar adjuntas al archivo de respaldo digital correspondiente.

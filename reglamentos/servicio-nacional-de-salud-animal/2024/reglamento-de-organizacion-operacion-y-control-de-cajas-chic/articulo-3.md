@@ -1,0 +1,1 @@
+Artículo 3° - Se utilizará una cuenta en la caja única, exclusivamente para el manejo del Fondo Fijo de Caja Chica en Tesorería Nacional tanto para Oficinas Centrales como para el Distrito de Riego Arenal Tempisque -en adelante DRAT-.
