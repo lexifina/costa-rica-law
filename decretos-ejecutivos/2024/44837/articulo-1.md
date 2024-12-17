@@ -1,0 +1,22 @@
+Nº44837-MP
+EL PRIMER VICEPRESIDENTE EN EL EJERCICIO DE LA PRESIDENCIA
+DE LA REPÚBLICA
+Y
+LA MINISTRA DE LA PRESIDENCIA
+En uso de las atribuciones que les confieren los artículos 11, 146 y 140 inciso 18) de la Constitución Política, los artículos 4, 10, 11, 25 inciso 2), 28.2.b) y 103 inciso 3) de la Ley General de la Administración Pública, N°6227 del 02 de mayo de 1978, el numeral 10° de la Ley General de Control Interno, N°8292 del 31 de julio del 2002 y el artículo 17 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos (Resolución No. 4-DI-AA-2001 de las quince horas del día diez de mayo de dos mil uno).
+Considerando:
+I. Que en materia de viáticos la Presidencia de la República y el Ministerio de la Presidencia se rigen por lo establecido en la Ley Reguladora de los Gastos de Viaje y Gastos por Concepto de Transportes para todos los Funcionarios del Estado, Ley N°3462, del 26 de noviembre de 1964 y el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, Resolución No. 4-DI-AA-2001 de las quince horas del día diez de mayo de dos mil uno.
+II. Que de conformidad con el artículo 17 del Reglamento No. 4-DI-AA-2001 de las quince horas del día diez de mayo de dos mil uno, la Presidencia de la República y el Ministerio de la Presidencia emitieron el Decreto Ejecutivo N°41556-MP, que es "Reglamento para el Pago de Viáticos para los Funcionarios de la Presidencia de la República y el Ministerio de la Presidencia", con el fin de regular de manera previa, formal y general, las situaciones especiales que justifican el reconocimiento y pago de viáticos por excepción de la limitación territorial para el pago de viáticos establecida en los artículos 16 y 24 del Reglamento No. 4-DI-AA-2001, para sus propios funcionarios y los funcionarios de los programas adscritos.
+III. Que según los artículos 7, 8, 9, 10, 12, 13, 14 y 39 de la Ley General de Control Interno N°8292, es responsabilidad del jerarca y los titulares subordinados establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional, por lo que se considera conveniente y oportuno realizar enmiendas en pro de los principios de probidad, eficiencia, eficacia, simpleza y transparencia de los servicios públicos.
+IV. Conforme a lo dispuesto en el artículo 12 del Decreto Ejecutivo N°37045-MP-MEIC de fecha 22 de febrero de 2012, denominado Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y su reforma, es oportuno señalar que la presente reforma, no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central, por lo que no se requiere el control previo de la Dirección de Mejora Regulatoria.
+Por tanto,
+Decretan:
+REFORMA DEL REGLAMENTO PARA EL PAGO DE VIÁTICOS PARA LOS
+FUNCIONARIOS DE LA PRESIDENCIA DE LA REPÚBLICA Y EL MINISTERIO
+DE LA PRESIDENCIA, DECRETO EJECUTIVO N°41556-MP, DE 14 DE ENERO
+DE 2019
+Artículo 1°.- Refórmese el inciso B) sub inciso 1) y párrafo final del artículo 5 del Reglamento para el pago de viáticos para los funcionarios de la Presidencia de la República y el Ministerio de la Presidencia, Decreto Ejecutivo N°41556-MP, de 14 de enero de 2019, para que se lea de la siguiente manera:
+"Artículo 5º-Requisitos para reconocer la disminución de los límites territoriales. Para autorizar el pago de viáticos por excepción territorial, los funcionarios responsables de autorizar y pagar viáticos deben velar porque se cumplan las siguientes condiciones:
+B. Para los programas presupuestarios 041 y 042:
+1) Que las funciones que realiza el funcionario sean necesarias para el cumplimiento de operativos de importancia para la Administración y que las mismas sean desarrolladas tanto en su horario normal de trabajo como fuera del mismo.
+El funcionario competente de cualquier de los programas presupuestarios que cubre el presente reglamento, en el formulario de liquidación de viáticos consignará con claridad en la autorización de viáticos de cada gira, las circunstancias o razones de mérito, conveniencia y oportunidad que justifican la excepción territorial, por ejemplo, sin limitarse a: la particularidad de las funciones a desempeñar, la importancia de la actividad, la facilidad de traslado y/o acceso a servicios, la ubicación geográfica, entre otras. Asimismo, deberá consignarlo cualquier funcionario que pretenda el reconocimiento de viáticos por reintegro, en el formulario destinado para tales efectos."

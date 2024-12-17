@@ -1,0 +1,1 @@
+Artículo 2°.- Deróguese el sub inciso 2) del inciso B) del artículo 5 del Reglamento para el pago de viáticos para los funcionarios de la Presidencia de la República y el Ministerio de la Presidencia, Decreto Ejecutivo N°41556-MP, de 14 de enero de 2019.
