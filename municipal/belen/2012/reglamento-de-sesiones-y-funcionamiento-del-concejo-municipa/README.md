@@ -17,3 +17,4 @@ Reglamento de Sesiones y Funcionamiento del Concejo Municipal del Cantón de Bel
 | 2 | 2014-09-02 | Reglamento municipal 51 (2014-09-02) |
 | 3 | 2019-08-27 | Reglamento municipal 50 (2019-08-27) |
 | 4 | 2021-09-07 | Reglamento municipal 52 (2021-09-07) |
+| 5 | 2024-12-17 | Reglamento municipal 75 (2024-12-17) |

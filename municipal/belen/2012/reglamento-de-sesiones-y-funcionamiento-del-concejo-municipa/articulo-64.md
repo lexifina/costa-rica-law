@@ -1,1 +1,2 @@
-Artículo 64.—Actas de las Comisiones. Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos.
+Artículo 64.-Actas de las Comisiones. Cada Comisión deberá llevar actas que recojan de manera sucinta lo acontecido en sus reuniones, las cuales contendrán los siguientes elementos: encabezado, fecha, número de la reunión, asistentes, firmas, asuntos tratados y sus respectivos acuerdos, así como la referencia del acuerdo del Concejo Municipal que motivó su convocatoria.
+(Así reformado en sesión N° 75 del 17 de diciembre de 2024)

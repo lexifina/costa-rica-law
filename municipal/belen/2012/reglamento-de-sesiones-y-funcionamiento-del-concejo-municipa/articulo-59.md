@@ -1,1 +1,2 @@
-Artículo 59.—Comisiones Especiales. Estas comisiones se establecen por decisión del Concejo, la Presidencia determina sus miembros de entre los candidatos presentados por los participantes permanentes; procurando representatividad de los partidos políticos electos dentro del Concejo Municipal y asegurándose la equidad y armonía.
+Artículo 59.-Comisiones Especiales. Estas comisiones se establecen por decisión del Concejo mediante acuerdo firme, la Presidencia determina sus miembros de entre los candidatos presentados por los participantes permanentes; procurando representatividad de los partidos políticos electos dentro del Concejo Municipal y asegurándose la armonía y equidad de género.
+(Así reformado en sesión N° 75 del 17 de diciembre de 2024)
