@@ -1,0 +1,1 @@
+Artículo 20. - Se concederán 30 días hábiles a partir de la publicación del Edicto para que se presenten oposiciones, las cuales deberán presentarse exclusivamente en la Plataforma de Servicios de la Municipalidad de Nicoya, y direccionados a la Alcaldía Municipal, la misma deberá estar debidamente autenticada e indicar debidamente al opositor y el medio de notificaciones.

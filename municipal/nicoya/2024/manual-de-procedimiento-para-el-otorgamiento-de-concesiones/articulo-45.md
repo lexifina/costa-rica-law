@@ -1,0 +1,1 @@
+Artículo 45. - Si se aprobase la cesión del derecho, El Departamento de zona marítima terrestre, confeccionará dentro de los siguientes 30 días hábiles adenda contractual y enviará copia certificada del expediente administrativo al Instituto Costarricense de Turismo para su aprobación correspondiente.

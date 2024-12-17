@@ -1,0 +1,1 @@
+Artículo 43. - El Departamento de Zona Marítima Terrestre habiendo recibido la solicitud con la información completa, remitirá recomendación técnica a fin de que la Alcaldía Municipal la ponga en conocimiento del Concejo Municipal. En caso de encontrarse incompleta la documentación procederá conforme lo establece el artículo 7 y 8 de este manual.

@@ -1,0 +1,1 @@
+Artículo 19. - El Edicto deberá publicarse en el Diario Oficial La Gaceta, para ello el Departamento de zona marítima terrestre hará la tasación ante la imprenta Nacional y comunicará al interesado el monto y las cuentas para hacer el depósito que cubra dicha publicación. Una copia de dicha publicación se anexará al expediente administrativo.

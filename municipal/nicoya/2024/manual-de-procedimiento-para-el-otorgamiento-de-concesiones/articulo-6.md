@@ -1,0 +1,1 @@
+Artículo 6. - Luego de recibida la solicitud de concesión, el Departamento de Zona Marítimo Terrestre le abrirá un expediente y procederá con la asignación de su número, siguiendo la codificación establecida, que consiste en una numeración consecutiva y dos dígitos más para indicar el año de la presentación.

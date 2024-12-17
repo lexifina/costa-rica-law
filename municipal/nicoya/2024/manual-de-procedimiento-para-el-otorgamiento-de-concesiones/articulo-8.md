@@ -1,0 +1,1 @@
+Artículo 8. - Si el solicitante no lo subsana los errores u omisiones dentro del plazo establecido por el Departamento de zona marítima terrestre, la solicitud se tendrá por anulada, sin perjuicio de que el interesado pueda volver a presentarla.

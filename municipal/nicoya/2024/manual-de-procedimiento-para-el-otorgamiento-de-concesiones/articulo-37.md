@@ -1,0 +1,2 @@
+Artículo 37. - Aprobada la concesión por parte del Instituto Costarricense de Turismo, el interesado iniciará con los trámites para su inscripción en el Registro General de Concesiones del Registro Nacional, dentro de los siguientes 30 días hábiles de ser formalmente notificado.
+Los contratos no surtirán efectos legales hasta tanto no se cuente con la inscripción en el Registro General de Concesiones del Registro Nacional.

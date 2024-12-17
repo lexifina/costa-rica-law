@@ -1,0 +1,2 @@
+Título VII. Anteproyecto
+Artículo 30. - Los solicitantes de concesión que quieran desarrollar explotaciones turísticas deberán presentar para la firma del contrato de concesión, un proyecto o perfil con el fin de rendir la garanta de ejecución establecida en el artículo 56 del reglamento de la Ley Sobre la Zona Marítimo Terrestre. El contrato de concesión deberá indicar el monto de la garantía que rendirá el interesado, así como los meses de plazo de vencimiento.

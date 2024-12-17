@@ -1,0 +1,1 @@
+Artículo 25. - De no existir oposición, o habiéndose desistido de la misma, la Alcaldía Municipal, con la asesoría del Departamento de zona marítima terrestre, dictará un proyecto de resolución de carácter recomendativo hacia el Concejo Municipal.

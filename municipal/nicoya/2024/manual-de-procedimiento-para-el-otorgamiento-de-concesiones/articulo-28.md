@@ -1,0 +1,1 @@
+Artículo 28. - El Concejo conocerá el dictamen de la Comisión de la Zona Marítimo Terrestre, cuando procediera, y mediante acuerdo municipal resolverá la solicitud según sea el caso. En caso de aprobarse la concesión, en el mismo acto se autorizará al alcalde o quien ocupe su puesto, para la firma del contrato de concesión.

@@ -1,0 +1,1 @@
+Artículo 29. - La secretaria del Concejo transcribirá el respectivo acuerdo y notificará a la Alcaldía y al Departamento de Zona Marítimo Terrestre de la resolución del Concejo, devolviendo el expediente para continuar con el trámite.

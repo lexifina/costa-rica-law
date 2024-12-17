@@ -1,0 +1,1 @@
+Artículo 66. - Recibida la denuncia el Departamento de zona marítima terrestre, creará un legajo independiente que se archivará concomitante al expediente de solicitud de concesión si lo tuviera, o en su defecto en el archivo de expedientes de la zona marítima terrestre.

@@ -1,0 +1,1 @@
+Artículo 70. -En caso de que se verifique que la construcción no cuenta con un permiso municipal, el Departamento de zona marítima terrestre deberá denunciar en los Tribunales de Justicia a las personas que se presumen responsables o simplemente la comisión de un delito por persona ignorada, así como iniciar un procedimiento de desalojo y eventual demolición.

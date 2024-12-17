@@ -1,0 +1,1 @@
+Artículo 10. - Las solicitudes se atenderán siguiendo el principio de "Primero en tiempo, primero en derecho" y el orden de prioridades establecido en el artículo 44 de la Ley sobre la zona marítima terrestre No. 6043 y el artículo 57 del reglamento a dicha Ley.

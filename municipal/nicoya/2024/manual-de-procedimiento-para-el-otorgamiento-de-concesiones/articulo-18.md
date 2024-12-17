@@ -1,0 +1,2 @@
+Título IV. Publicación del Edicto:
+Artículo 18. - Una vez realizada la inspección de campo y constatando que la solicitud corresponde a un terreno en administración de la Municipalidad de Nicoya y que se encuentra de conformidad con el Plan Regulador Costero vigente, el Departamento de zona marítima terrestre deberá confeccionar un Edicto, en el que se indique el nombre y calidades de ley de los solicitantes, una breve descripción del terreno solicitado en concesión, plazo de oposiciones, lugar de presentación, así como constar con sello y firma del funcionario responsable.

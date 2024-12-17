@@ -1,0 +1,2 @@
+Artículo 58. - Luego de recibida la solicitud, el Departamento de Zona Marítimo Terrestre seguirá el trámite previsto en los artículos del 5 al 9 y del 11 al 14 de este manual.
+Asimismo, deberá verificar que el interesado haya cumplido con las obligaciones derivadas del contrato concesionario y que el avalúo se encuentre vigente, caso contrario, deberá seguirse el tramite dispuesto en los artículos del 26 al 29 de este manual.

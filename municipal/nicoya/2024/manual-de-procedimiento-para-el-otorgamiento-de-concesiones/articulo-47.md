@@ -1,0 +1,2 @@
+CAPÍTULO III. GRAVÁMENES Y CAMBIOS DE USO.
+Artículo 47. - El concesionario interesado deberá presentar exclusivamente ante la Plataforma de Servicios de la Municipalidad de Nicoya, direccionado al Departamento de zona marítima terrestre una solicitud formal debidamente autenticada por un abogado, indicando su intención de cambiar el uso dado en concesión o de imponer algún gravamen. Para tales efectos deberá cumplirá las disposiciones de los artículos 58, 59 y 60 del Reglamento a la Ley sobre la zona marítima terrestre.

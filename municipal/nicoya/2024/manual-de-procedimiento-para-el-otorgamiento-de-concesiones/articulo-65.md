@@ -1,0 +1,2 @@
+CAPÍTULO VII. OCUPACIONES INDEBIDAS
+Artículo 65. - Cualquier persona se encuentra facultada a denunciar la invasión o construcción ilegal en la zona marítima terrestre, debiendo para ello simplemente llenar el formulario de denuncia que se encuentra a disposición en la Municipalidad. Igualmente se podrá iniciar de oficio una investigación por construcciones ilegales dentro de la zona marítima terrestre, por parte de cualquier funcionario municipal.

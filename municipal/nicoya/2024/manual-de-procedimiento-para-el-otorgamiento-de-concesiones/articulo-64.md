@@ -1,0 +1,1 @@
+Artículo 64. - El departamento de Control Constructivo, previo a otorgar permiso para mejora, ampliación o remodelación sobre una construcción existente, deberá contar con un aval del Departamento de zona marítima terrestre.

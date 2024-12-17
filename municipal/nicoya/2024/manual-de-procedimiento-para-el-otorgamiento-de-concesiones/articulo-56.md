@@ -1,0 +1,1 @@
+Artículo 56. - Toda solicitud de prórroga deberá hacerse acompañar de los requisitos previstos en los artículos 3 y 4 de este Manual, según corresponda, los cuales deberán estar debidamente vigente, y en caso de certificaciones no deberá tener más de un mes de haber sido expedido.

@@ -1,0 +1,1 @@
+Artículo 16. - Una vez realizado el avalúo, el Departamento de Zona Marítimo Terrestre debe calcular el canon provisional según el uso indicado en la solicitud inicial y el porcentaje dispuesto en el reglamento correspondiente.

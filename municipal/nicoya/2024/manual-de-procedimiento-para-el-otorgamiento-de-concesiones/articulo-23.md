@@ -1,0 +1,1 @@
+Artículo 23. - Terminada la comparecencia, la Alcaldía Municipal, con la asesoría que estime necesaria, dictará un acto final, en un plazo no mayor de 30 días hábiles computables a partir del día siguiente a la comparecencia, en la cual se pronunciará sobre si recomienda otorga la concesión de forma total, parcial o denegarla.

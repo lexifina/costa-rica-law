@@ -1,0 +1,1 @@
+Artículo 68. - El Departamento de zona marítima terrestre, contará con el plazo de 5 días hábiles para trasladar el legajo de la denuncia incluyendo el resultado de la inspección de campo al departamento de Construcciones para que estos verifiquen si la construcción cuenta con permiso municipal, o no.

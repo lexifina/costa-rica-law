@@ -1,0 +1,1 @@
+Artículo 63. - El concesionario que debido al uso o usos concesionados debe gestionar permiso de construcción en el Departamento de Control Constructivo, y proceder a tramitarlo mediante la Plataforma del APC del Colegio Federado de Ingenieros y Arquitectos y adjuntarán digitalmente los requisitos respectivos.

@@ -1,0 +1,2 @@
+CAPÍTULO VI. SOBRE EL DESALOJO DE LA ZONA PÚBLICA.
+Artículo 71. -El Departamento de zona marítima terrestre, tan pronto tenga noticia de una infracción a las que se refiere la Ley sobre la Zona Marítimo Terrestre, en los artículos 20, 22 e inciso d) del artículo 53, con el apoyo que estime necesario, levantará información de campo debidamente referida a los mojones colocados por el Instituto Geográfico Nacional, para tener certeza jurídica que la infracción se está realizando en la zona pública de la zona marítimo terrestre.

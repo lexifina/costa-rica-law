@@ -1,0 +1,2 @@
+Título II. Inspección de campo:
+Artículo 11. - Satisfecha la verificación dispuesta en el artículo 9 de este Manual. El Departamento de Zona Marítimo Terrestre debe programar una fecha para realizar una inspección de campo y comunicarla al solicitante para que este proceda con el pago de los derechos de inspección a la Municipalidad. El solicitante deberá enviar al Departamento de Zona Marítimo Terrestre copia del recibo de pago, el cual será archivado en el expediente municipal.

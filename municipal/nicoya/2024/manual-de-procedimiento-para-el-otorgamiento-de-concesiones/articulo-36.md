@@ -1,0 +1,1 @@
+Artículo 36. - El Departamento de zona marítima terrestre enviará el contrato debidamente firmado, junto con el expediente administrativo certificado al Instituto Costarricense de Turismo para su aprobación correspondiente.
