@@ -1,0 +1,1 @@
+Artículo 12: Comunicación previa. Del artículo anterior, previo al inicio de las obras, se notificará a la persona propietaria o poseedora, el propósito municipal de realizar de forma directa la obra de acera, explicando que el costo efectivo será cargado en la facturación de los tributos municipales.

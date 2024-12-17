@@ -1,0 +1,1 @@
+Artículo 8: Permisos de construcción. De conformidad con el artículo 7 de la Ley de Movilidad Peatonal Nº 9976, los desarrolladores inmobiliarios deben entregar los proyectos finales con las obras de movilidad peatonal internas y externas que sean necesarias, conforme con las exigencias y parámetros de este reglamento, la Ley N°9976 y la Ley N°7600 y su Reglamento.

@@ -1,0 +1,8 @@
+Sección II: Deberes y derechos de las personas propietarias o poseedoras
+Artículo 10: Deber de la persona propietaria o poseedora.
+a) Según lo establece el artículo 84.d del Código Municipal; las personas físicas o jurídicas, propietarias o poseedoras, por cualquier título, de bienes inmuebles, tienen el deber de construir las aceras frente a sus propiedades, cuando se trate de una obra nueva, apegado a los lineamientos y diseños establecidos por la Municipalidad y lo establecido en el capítulo v del presente reglamento
+b) Velar por el cuidado y resguardo de la infraestructura pública de las aceras.
+c) Para realizar alteraciones o reparaciones de construcciones, deberá solicitar a la municipalidad el permiso correspondiente y cumplir los requisitos necesarios.
+En caso de solicitud de cierre temporal de aceras, deberá presentar el plan de intervención de ruta alterna segura, caminable y accesible, durante toda la intervención; este plan deberá ser analizado y autorizado conforme a los términos y condiciones establecidos en la normativa legal vigente.
+d) Ante el incumplimiento u omisión de sus obligaciones, cancelar las multas, impuestos, los intereses de ley, y eventuales daños y perjuicios que cause.
+e) La persona propietaria o poseedora por cualquier título de un bien inmueble, cuyo acceso se vea comprometido por la construcción de aceras frente a su propiedad, deberá realizar las modificaciones necesarias a lo interno de su propiedad por su cuenta, para habilitar el acceso a la vía pública desde su bien inmueble, respetando la normativa vigente, prohibiéndose cualquier intervención a realizar sobre la vía pública sin el previo permiso municipal de conformidad con la Ley No.9976.

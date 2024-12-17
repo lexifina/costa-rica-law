@@ -1,0 +1,2 @@
+Sección ll: Planificación
+Artículo 18: Planeamiento de Movilidad Sostenible. La planificación, diseño, construcción y mantenimiento de las obras de infraestructura peatonal se realizarán de acuerdo con las propuestas definidas en el Plan Cantonal de Movilidad Sostenible, se debe contemplar variables urbanas integrales y relacionadas a la movilidad peatonal como lo son: económicas, de infraestructura, de seguridad, de uso de la tierra, de uso del espacio público, de conectividad, de intermodalidad e integración con el sistema de transporte público, entre otras.

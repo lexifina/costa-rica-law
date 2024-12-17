@@ -1,0 +1,1 @@
+Artículo 7: Eliminación de obstáculos. La Municipalidad podrá eliminar de manera inmediata, cualquier obstáculo existente en la vía pública peatonal que dificulte o interrumpa de alguna forma la movilidad peatonal, sin que sea necesario cumplir un procedimiento previo.

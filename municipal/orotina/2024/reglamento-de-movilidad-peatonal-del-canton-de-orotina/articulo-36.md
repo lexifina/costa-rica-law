@@ -1,0 +1,1 @@
+Artículo 36: Fortalecimiento de capital humano. La Municipalidad podrá disponer de un 10% de la recaudación del mantenimiento de las vías peatonales para contratar a personal necesario para ejecutar la Ley de Movilidad Peatonal N°9976.

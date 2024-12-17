@@ -1,0 +1,1 @@
+Artículo 39: Reparación municipal. La municipalidad ejecutará las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado. La sanción anterior y el costo efectivo de las obras será incluido en la facturación de los tributos municipales.

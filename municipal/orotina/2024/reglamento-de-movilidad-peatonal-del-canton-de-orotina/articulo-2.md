@@ -1,0 +1,1 @@
+Artículo 2: Alcance. El presente reglamento tiene como alcance la jurisdicción territorial del Cantón de Orotina. Las disposiciones de este reglamento son aplicables a toda persona física, jurídica, propietaria o poseedora por cualquier título de bienes inmuebles ubicados en el cantón de Orotina.

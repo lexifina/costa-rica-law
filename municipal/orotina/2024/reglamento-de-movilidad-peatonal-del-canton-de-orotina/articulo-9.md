@@ -1,0 +1,1 @@
+Artículo 9: Convenios. La corporación municipal podrá establecer convenios con otros entes, con el objetivo de gestionar efectivamente los principios de la Ley N°9976, de conformidad con el Código Municipal.
