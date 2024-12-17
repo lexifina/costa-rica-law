@@ -1,0 +1,1 @@
+Artículo 2°-Instruir al DGE para que en toda autorización para importación de vehículos exonerados al amparo de la Ley 8444, señale como leyenda que el valor del vehículo reportado según el punto anterior será verificado al momento del desalmacenaje según los controles que están definidos por la legislación tributaria.
