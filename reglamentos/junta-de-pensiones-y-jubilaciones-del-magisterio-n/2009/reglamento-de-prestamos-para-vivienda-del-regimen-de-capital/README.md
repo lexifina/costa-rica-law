@@ -25,3 +25,4 @@ Reglamento de préstamos para vivienda del Régimen de Capitalización Colectiva
 | 10 | 2019-12-17 | Reglamento 143 (2019-12-17) |
 | 11 | 2021-06-18 | Reglamento 69 (2021-06-18) |
 | 12 | 2023-01-10 | Reglamento 2 (2023-01-10) |
+| 13 | 2024-12-17 | Reglamento 142 (2024-12-17) |

@@ -1,3 +1,3 @@
-Artículo 21.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario puede realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos.
-En los pagos que se realicen durante el primer año (extraordinario o cancelación) se cobra una comisión del 2% sobre el monto del pago efectuado, además de los intereses, pólizas y demás cargos generados al momento de la cancelación.
+Artículo 21.-Pagos extraordinarios y cancelaciones anticipadas. El beneficiario puede realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos. En los pagos que se realicen durante el primer año (extraordinario o cancelación) se cobra una comisión del 2% sobre el monto del pago efectuado, además de los intereses, pólizas y demás cargos generados al momento de la cancelación.
 Esta comisión es aplicable solamente para casos otorgados en periodos de ferias o con condiciones especiales que hayan significado erogaciones adicionales por parte de JUPEMA.
+(Así reformado en sesión N° 142 del 17 de diciembre de 2024)
