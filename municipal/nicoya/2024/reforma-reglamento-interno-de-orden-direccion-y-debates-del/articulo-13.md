@@ -1,0 +1,2 @@
+-Artículo 13. Se modifica el artículo 68 del Reglamento interno de orden, dirección y debates del Concejo Municipal del cantón Nicoya para para que se lea de la siguiente manera:
+ARTÍCULO 68. Comisiones. Trámite de dictámenes luego de su aprobación. Los informes o dictámenes de Comisión, serán entregados, a la Secretaria del Concejo Municipal una vez que hayan sido suscritos por los miembros presentes en la reunión respectiva.

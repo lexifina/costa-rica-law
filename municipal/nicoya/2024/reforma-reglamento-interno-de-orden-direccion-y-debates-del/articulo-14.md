@@ -1,0 +1,3 @@
+-Artículo 14. Se modifica el artículo 77 del Reglamento interno de orden, dirección y debates del Concejo Municipal del cantón Nicoya para para que se lea de la siguiente manera:
+ARTÍCULO 77. Comisiones. Dictámenes que pueden ser conocidos por el Plenario. Para que un dictamen de comisión sea conocido por el Concejo Municipal, debe haber sido presentado a la Secretaría Municipal antes del inicio de la sesión.
+Los dictámenes de comisión, una vez que han sido presentados a la Secretaría Municipal, serán ordenados, estrictamente, por su orden de ingreso y en ese mismo orden se pondrán a disposición de la Presidencia del Concejo.

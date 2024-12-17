@@ -1,0 +1,2 @@
+-Artículo 11. Se modifica el artículo 65 del Reglamento interno de orden, dirección y debates del Concejo Municipal del cantón Nicoya para para que se lea de la siguiente manera:
+Artículo 65. Comisiones. Cantidad en las que se puede participar. Un mismo regidor no podrá formar parte de más de siete comisiones permanentes, ni ser Presidente, ni Vicepresidente, en más de dos a la vez. Pueden ser reelectos en esos cargos.

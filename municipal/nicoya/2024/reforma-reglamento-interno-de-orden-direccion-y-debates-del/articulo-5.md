@@ -1,0 +1,2 @@
+-Artículo 5. Se modifica el artículo 39 del Reglamento interno de orden, dirección y debates del Concejo Municipal del cantón Nicoya para que en adelante se lea de la siguiente manera:
+Artículo 39. Acuerdos. Permanencia de Personas Ajenas al Concejo Durante las Sesiones. Las sesiones del Concejo Municipal son públicas y abiertas a los ciudadanos, lo anterior respetando el aforo permitido y el resguardo de la integridad y seguridad de todos los presentes, de ser necesario se podrá solicitar colaboración de la Fuerza Pública para el mantenimiento del orden.
