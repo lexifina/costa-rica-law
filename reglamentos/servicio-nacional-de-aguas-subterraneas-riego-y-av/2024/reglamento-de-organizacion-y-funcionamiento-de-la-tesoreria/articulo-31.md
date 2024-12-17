@@ -1,0 +1,1 @@
+ARTÍCULO 31°: Cuando un cheque debe anularse por error en la confección u otra causa que determine el Depto. Financiero, la dependencia emisora estampará en él mismo su sello de anulado e indicará en los comprobantes y sistema informático utilizado del cheque el motivo de la anulación.

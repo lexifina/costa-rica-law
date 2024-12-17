@@ -1,0 +1,1 @@
+ARTÍCULO 36°: La labor de facturación, confección del recibo de ingresos, cobro y depósito, deberá asignarse a diferentes funcionarios según previo análisis realizado por la jefatura de la Unidad Financiera y/o Coordinación Administrativo y Recursos Humanos, en temas de alcance de competencia, incompatibilidad de funciones y manual de funciones de los puestos relacionados.

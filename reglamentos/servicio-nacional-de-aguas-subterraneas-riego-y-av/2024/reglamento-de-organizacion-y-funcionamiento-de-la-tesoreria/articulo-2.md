@@ -1,0 +1,2 @@
+ARTÍCULO 2°: El nombramiento formal del Tesorero(a) lo hará el Gerente previo concurso realizado por la Unidad de Recursos Humanos y la coordinación con la Dirección Administrativa y/o Dirección del DRAT y la Jefatura de la unidad Financiera y/o Coordinación administrativa en el DRAT.
+Es importante señalar, que quien ocupe este puesto, no podrá ser cónyuge, ni tener vínculos de consanguinidad o afinidad hasta tercer grado con los miembros de la Junta Directiva o cualquier funcionario del SENARA.

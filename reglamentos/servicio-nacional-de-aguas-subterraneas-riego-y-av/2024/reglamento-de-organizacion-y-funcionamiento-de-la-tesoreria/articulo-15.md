@@ -1,0 +1,1 @@
+ARTÍCULO 15°: Los certificados que se reciban por correo físico y/o mensajería y contengan valores, así como cualquier otro valor recibido por otras dependencias de la Institución, diferentes a la Tesorería, deberán ser trasladados de inmediato a este proceso, mediante el mecanismo de control que se tenga asociado para la entrega de documentos por parte de las áreas.

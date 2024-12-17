@@ -1,0 +1,1 @@
+ARTÍCULO 14°: La Tesorería deberá verificar y registrar cada mes, las diferentes cuentas por cobrar pendientes y solicitar la información a cualquier dependencia de la Institución, sobre la información o los reportes necesarios para gestionar oportunamente la percepción de los ingresos y gastos que correspondan.

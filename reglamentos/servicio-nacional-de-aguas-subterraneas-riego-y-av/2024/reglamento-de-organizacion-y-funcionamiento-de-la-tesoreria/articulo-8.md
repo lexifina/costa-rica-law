@@ -1,0 +1,1 @@
+ARTÍCULO 8°: Es obligación del Tesorero(a) y su personal tomar todas las precauciones posibles para proteger debidamente su integridad física y los valores bajo su custodia de los riesgos normales y previsibles.

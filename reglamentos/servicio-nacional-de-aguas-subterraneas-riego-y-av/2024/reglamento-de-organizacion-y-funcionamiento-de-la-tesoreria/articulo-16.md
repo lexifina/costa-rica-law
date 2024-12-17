@@ -1,0 +1,1 @@
+ARTÍCULO 16°: Cuando a pesar de las gestiones efectuadas por la Tesorería, no hubiese sido posible la percepción de un ingreso determinado, el Tesorero(a) deberá informar de inmediato esta circunstancia a la jefatura de la unidad Financiera y/o Coordinador Administrativo del DRAT para que esta jefatura disponga lo correspondiente.
