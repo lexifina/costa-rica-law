@@ -38,3 +38,4 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 2° del decreto ejecutivo N° 44814 del 3 de diciembre del 2024)
 (Modificado por el artículo 3° del decreto ejecutivo N° 44814 del 3 de diciembre del 2024)
 (Modificado por el artículo 5° del decreto ejecutivo N° 44814 del 3 de diciembre del 2024)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44815 del 6 de diciembre del 2024)
