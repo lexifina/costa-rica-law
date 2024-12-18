@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Calificación y Análisis de solicitudes de la OPAMDIS
+Artículo 22° Estudio socioeconómico. Una vez que el sujeto beneficiario haya presentado los requisitos completos de la solicitud, la OPAMDIS, realizará un informe social del adulto mayor solicitante para establecer su nivel socioeconómico, en atención al formulario, al análisis de la información incorporada al expediente y visita domiciliar. Una vez concluido el estudio socioeconómico, se emitirá una resolución que determinará si se otorga o no beneficio solicitado por el adulto mayor solicitante.
+La persona profesional en Trabajo Social, para realizar el estudio socioeconómico, podrá recurrir a los procesos de Cobros, Valoraciones y/o Catastro, según corresponda, en cuanto a aplicación de la exoneración o condonación del adulto mayor solicitante. Los datos personales, serán manipulados en concordancia con la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, Ley N°8968.

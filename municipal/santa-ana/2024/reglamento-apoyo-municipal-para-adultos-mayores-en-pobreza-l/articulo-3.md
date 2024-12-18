@@ -1,0 +1,2 @@
+Artículo 3° Habilitación. Se habilita al Gobierno Local de Santa Ana para que, a través de la administración, con fundamento en un estudio socioeconómico de los solicitantes se pueda brindar exención y condonación a contribuyentes adultos mayores en condición de pobreza y pobreza extrema.
+Para ello, se autoriza a la administración a realizar los estudios socioeconómicos y financieros y en el caso de ser necesario, realizar convenios con instituciones para la condonación y exoneración a los sujetos pasivos contemplados en la Ley N°10.359.

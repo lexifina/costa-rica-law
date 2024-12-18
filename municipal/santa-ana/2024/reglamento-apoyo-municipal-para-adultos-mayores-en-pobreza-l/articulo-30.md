@@ -1,0 +1,1 @@
+Artículo 30° Tratamiento de Datos de los Beneficiarios. Los datos personales, datos personales de acceso restringido y datos sensibles de los adultos mayores serán manipulados en concordancia con la Ley De Protección De La Persona Frente Al Tratamiento De Sus Datos Personales, ley n°8968.
