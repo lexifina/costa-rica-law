@@ -15,3 +15,4 @@ Reglamento de Organización de la Estructura Interna de Funcionamiento de la Sec
 | --- | --- | --- |
 | 1 | 2011-11-07 | la propia norma |
 | 2 | 2021-08-31 | Decreto Ejecutivo 43212 (2021-08-31) |
+| 3 | 2024-12-18 | Decreto Ejecutivo 44859 (2024-12-18) |
