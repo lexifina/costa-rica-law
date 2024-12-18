@@ -1,0 +1,1 @@
+Artículo 3. -Compromiso. La Política de Calidad es la base para el establecimiento de los objetivos de calidad del Sistema de Gestión de Calidad de RACSA. Esta política debe incluir el compromiso de cumplir los requisitos aplicables y de mejorar continuamente.

@@ -1,0 +1,1 @@
+Artículo 5. -Revisión. La Política de Calidad debe ser revisada anualmente por la Alta Gerencia de RACSA y en caso de que sea necesario se actualizará y someterá a conocimiento y aprobación de la Junta Directiva.
