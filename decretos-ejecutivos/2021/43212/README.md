@@ -14,3 +14,4 @@ Reglamento de funcionamiento de la comisión plenaria de la Secretaría Técnica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-10-20 | la propia norma |
+| 2 | 2024-12-18 | Decreto Ejecutivo 44859 (2024-12-18) |
