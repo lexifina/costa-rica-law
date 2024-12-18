@@ -1,4 +1,0 @@
-Artículo 2º-Ámbito de aplicación
-Este reglamento será aplicable y de acatamiento obligatorio para todas las personas en condición de servidor, servidora o puestos de confianza de la Defensoría de los Habitantes, cuyas funciones en todo o en parte, puedan desarrollarse de modo no presencial, manteniendo el vínculo y presencialidad en las actividades que se requiera, previa coordinación y aprobación de la jefatura inmediata y según lineamientos establecidos por el Defensor o Defensora de los Habitantes.
-En ningún caso, se aplicará la modalidad de teletrabajo a un cien por ciento del tiempo laboral, por lo que este se limita a un máximo de tres días a la semana.
-Se dará a conocer la modalidad y se mantendrá informado al funcionariado mediante la divulgación del Programa de Teletrabajo de la Defensoría de los Habitantes.

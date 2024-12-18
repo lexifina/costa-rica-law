@@ -1,4 +1,0 @@
-Artículo 19.-Incumplimiento de la persona teletrabajadora a sus obligaciones
-Cuando la persona teletrabajadora no alcance las metas y objetivos programados en la MPM, la jefatura inmediata deberá analizar las causas y formular, en conjunto con la persona servidora el plan remedial que corresponda para el cumplimiento de estas.
-Cuando la persona teletrabajadora desatienda injustificadamente lo definido en el plan remedial para mejorar su productividad o se determinarse que las causas de bajo rendimiento son le son atribuibles, se aplicarán las medidas administrativas y/o disciplinarias que procedan, dejando a la vez rescindido el contrato de teletrabajo, para lo cual la jefatura inmediata solicitará ante la Dirección Administrativa emitir la resolución correspondiente.
-En todo caso, serán aplicables los recursos administrativos, previstos en el ordenamiento jurídico vigente.

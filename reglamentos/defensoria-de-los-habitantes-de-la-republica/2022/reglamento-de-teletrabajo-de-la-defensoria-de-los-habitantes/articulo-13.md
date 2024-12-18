@@ -1,4 +1,0 @@
-Artículo 13.-Deber de mantener condiciones
-Los funcionarios y las funcionarias incorporados al sistema de teletrabajo deben mantener las condiciones que justificaron su ingreso a este, así como cumplir todas las obligaciones y las responsabilidades correspondientes.
-Las personas teletrabajadoras tienen el mismo acceso a la formación y a las oportunidades de desarrollo de la carrera administrativa y profesional que sus homólogos que laboran en las instalaciones de su institución.
-En caso de que surja alguna dificultad para mantener dichas condiciones, debe plantearlo ante la jefatura inmediata, para que se resuelva lo que procede.

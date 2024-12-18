@@ -1,2 +1,0 @@
-Artículo 25.-Actualización tecnológica
-Durante la ejecución del contrato la persona teletrabajadora mantendrá su derecho a participar en las diversas capacitaciones que imparte la institución, según los términos y las condiciones utilizadas por esta con el resto de personas funcionarias. Será su responsabilidad mantenerse actualizada en cuanto al uso de las herramientas tecnológicas que demanda la ejecución de sus actividades, de acuerdo con la capacitación que imparte la Defensoría de los Habitantes.
