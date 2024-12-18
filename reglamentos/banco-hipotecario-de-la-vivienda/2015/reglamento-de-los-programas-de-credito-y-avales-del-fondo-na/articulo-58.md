@@ -1,9 +1,7 @@
-Artículo 58.—Operaciones objeto de aval. Características: Las operaciones objeto de aval deberán cumplir con las siguientes características específicas:
-Forma de pago mediante cuotas niveladas por mes vencido.
-b) Plazo máximo de hasta de 30 años, toda vez que sea en quinquenios cerrados; es decir, 15 años, 20 años, 25 años, etc.
-c) Tasa de interés corriente referenciada a la tasa básica pasiva calculada por el Banco Central de Costa Rica para las operaciones de crédito en colones y a la tasa LIBOR a seis meses para las operaciones de crédito en dólares.
-d) Periodicidad mensual en la revisión de tasas de interés.
-e) No contemplar cargos o multas contra el deudor por pagos anticipados o extraordinarios.
-f) Contar con seguro de saldos deudores y póliza de incendio.
-g) El monto del crédito podrá ser hasta por el 95% del valor de la vivienda.
-h) La escritura pública de formalización de la operación crediticia deberá hacer referencia a que ésta forma parte del presente programa, y especificar que tanto la Entidad Autorizada como el deudor conocen y aceptan los derechos y obligaciones que a cada uno de ellos competen y que están regulados en los respectivos cuerpos normativos del programa.
+Artículo 58.- Requisitos mínimos: En adición a los requisitos establecidos por las Entidades Autorizadas para el otorgamiento de créditos para vivienda, los deudores y codeudores que requieran el aval deberán cumplir con los siguientes requisitos y condiciones:
+a) Ser costarricenses o extranjeros admitidos legalmente en el país como residentes permanentes.
+b) No tener vivienda propia.
+c) Corresponder a un núcleo familiar con ingresos familiares totales de entre cuatro y diez salarios mínimos de una persona obrera no especializada de la industria de la construcción.
+d) Aportar una prima equivalente al menos al cinco por ciento (5%) del valor de la solución habitacional que será financiada.
+e) Presentar un Comportamiento de Pago Histórico calificado en Nivel 1 según la información derivada del Centro de Información Crediticia (CIC), de la Superintendencia General de Entidades Financieras, en caso de encontrarse registrados en ese sistema.
+(Así reformado mediante sesión N° 99-2024 del 18 de diciembre del 2024)

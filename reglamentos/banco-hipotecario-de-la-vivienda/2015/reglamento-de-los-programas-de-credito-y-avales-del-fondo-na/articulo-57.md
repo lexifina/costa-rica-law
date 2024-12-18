@@ -1,3 +1,4 @@
-SECCIÓN TERCERA
-De las operaciones avaladas
-Artículo 57.—Originación de operaciones. Criterios: El BANHVI garantizará créditos hipotecarios individuales de primer grado destinados a la adquisición de la primera vivienda, que cumplan con las condiciones contenidas en el Artículo 8 del Reglamento sobre Garantías de las Operaciones de Crédito para Vivienda y cuya prima sea aportada por el deudor o codeudor mediante depósito a su nombre en una cuenta de la Entidad Autorizada; estos recursos se mantendrán líquidos y disponibles para el deudor hasta la fecha de la formalización del crédito hipotecario, cuando se realizará el desembolso a favor del vendedor de la vivienda.
+Sección Segunda
+Elegibilidad de deudores
+Artículo 57: Población objetivo: Los créditos hipotecarios avalados por el BANHVI estarán dirigidos a familias con ingresos mensuales entre cuatro y diez salarios mínimos, que cuentan con capacidad para atender el pago de un crédito de vivienda bajo las condiciones aplicadas por las Entidades Autorizadas del SFNV y cumpliendo a cabalidad con los requisitos por ellas establecidos, pero sin posibilidad de aportar como prima el porcentaje total requerido.
+(Así reformado mediante sesión N° 99-2024 del 18 de diciembre del 2024)
