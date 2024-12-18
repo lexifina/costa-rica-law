@@ -1,1 +1,0 @@
-Artículo 7º—El nivel de detalle presupuestario requerido será el mismo nivel de detalle que se estableció para la aprobación interna de los presupuestos ordinarios y extraordinarios, correspondiendo a dicho nivel al de la máxima segregación, de conformidad con los clasificadores presupuestarios para el sector público vigentes.

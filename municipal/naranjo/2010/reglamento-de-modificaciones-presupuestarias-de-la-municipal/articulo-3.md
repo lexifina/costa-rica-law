@@ -1,1 +1,0 @@
-Artículo 3º—Considerando la naturaleza, cuantía, origen de los recursos y el efecto de las variaciones en el cumplimiento de los objetivos y metas institucionales formulados en el Plan Anual Operativo, el Jerarca institucional aprobará las modificaciones presupuestarias, competencia que no delegará a ninguna otra instancia.

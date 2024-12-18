@@ -1,1 +1,0 @@
-Artículo 6º—Las modificaciones presupuestarias podrán efectuarse siempre y cuando los programas, servicios, proyectos, obras, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario y no podrán utilizarse esos recursos para cubrir gastos ejecutados.

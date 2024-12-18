@@ -1,1 +1,0 @@
-Artículo 4º—La cantidad de modificaciones presupuestarias que de forma razonable se ajuste a las necesidades de la institución y buscando mejorar la planificación de los recursos desde la misma formulación del Plan Anual Operativo y presupuesto ordinario institucionales, se definen como máximo de doce modificaciones presupuestarias al año.

@@ -1,1 +1,0 @@
-Artículo 5º—Como parte del componente de información del sistema de control interno que establezca la Administración para el adecuado manejo de los fondos públicos, la documentación relativa a las modificaciones presupuestarias internas deberá estar disponible para el ejercicio de las funciones de fiscalización y control sobre el manejo de los fondos públicos.
