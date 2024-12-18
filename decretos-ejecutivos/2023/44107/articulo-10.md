@@ -37,4 +37,7 @@ u) Colaborar con las autoridades competentes en investigaciones posteriores rela
 v) Disponer del recurso humano requerido para la operación, gestión de la solución tecnológica y generación de las imágenes y datos que al amparo del presente reglamento serán remitidas a las autoridades competentes y analizadas por el CIIO.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44362 del 13 de diciembre del 2023)
 w) Realizar, o coordinar con las autoridades institucionales, las acciones respectivas para que se garantice la seguridad de las mercancías, personal y equipamiento que se vinculen al SINI.
+x) Adaptar y acondicionar, y de ser el caso, construir, de manera adecuada, los espacios físicos donde se instalarán los Sistemas de Controles de Inspección no Intrusivos por parte del ministerio de Hacienda, de acuerdo con las especificaciones que definan los ministerios de Hacienda, Comercio Exterior, Agricultura y Ganadería y Seguridad Pública. Igual obligación recaerá sobre las autoridades portuarias marítimas y aeroportuarias.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en el Alcance Digital N° 7 a La Gaceta N° 10 del 17 de enero de 2025, página N° 2)
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44838 del 18 de diciembre del 2024)
 Asimismo, el operador podrá brindar facilidades logísticas y operativas, en la medida de sus posibilidades, para el apoyo de las labores de las autoridades institucionales y el personal de éstas.
