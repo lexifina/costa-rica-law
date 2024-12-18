@@ -19,3 +19,4 @@ Reglamento Orgánico del Ministerio de Ambiente y Energía
 | 4 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
 | 5 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
 | 6 | 2018-04-09 | Decreto Ejecutivo 41135 (2018-04-09) |
+| 7 | 2024-12-18 | Decreto Ejecutivo 44859 (2024-12-18) |
