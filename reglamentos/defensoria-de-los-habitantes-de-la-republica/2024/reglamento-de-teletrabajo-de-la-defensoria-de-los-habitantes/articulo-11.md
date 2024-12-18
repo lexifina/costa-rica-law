@@ -1,0 +1,1 @@
+ARTICULO 11.- Adenda al contrato de teletrabajo. En forma excepcional se podrá efectuar una adenda al contrato de teletrabajo, cuando por razones debidamente justificadas proceda la variación de los días teletrabajables y el horario acordado en forma permanente. Esta será firmada por las mismas partes ya indicadas.

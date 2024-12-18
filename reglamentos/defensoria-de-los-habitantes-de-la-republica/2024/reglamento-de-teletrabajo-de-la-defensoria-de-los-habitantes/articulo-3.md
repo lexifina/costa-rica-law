@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Condición del contrato
+La incorporación a la modalidad de teletrabajo es voluntaria por parte del servidor/a y de la Institución, en ese sentido, el trabajador/a podrá solicitar su rescisión, igualmente, la parte patronal tendrá la potestad para otorgar y revocar la modalidad de teletrabajo, cuando así lo considere conveniente la jefatura inmediata o la persona jerarca.

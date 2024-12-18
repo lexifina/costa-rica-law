@@ -1,0 +1,6 @@
+CAPÍTULO V
+RECURSOS INFORMÁTICOS Y TELEFÓNICOS
+ARTÍCULO 22.- Recursos informáticos y telefónicos
+La Defensoría de los Habitantes autorizará que la persona teletrabajadora utilice la computadora portátil que tiene asignada para el ejercicio de sus funciones dentro y fuera de la institución. En el CMT suscrito se debe consignar el número de activo institucional que utilizará la persona teletrabajadora, así como otras especificaciones técnicas que sean necesarias.
+Asimismo, el Departamento de Tecnologías de la Información en coordinación con la Dirección Administrativa, dispondrá las medidas necesarias para asegurar una comunicación constante entre las y los habitantes y las personas teletrabajadoras. A tal efecto, adoptarán las acciones técnicas idóneas para redireccionar las llamadas telefónicas realizadas a los números de teléfono oficiales de las personas funcionarias, utilizando el software con que dispone la institución.
+(Nota de Sinalevi: Mediante acuerdo N° 048-2025 publicado en La Gaceta N° 67 del 8 de abril del 2025, la Defensoría de los habitantes ordena acogerse al presente reglamento con algunas salvedades estableciendo lo siguiente: “Respecto a los Artículos 22 y 28, únicamente en lo correspondiente a la atención de habitantes que realizan solicitudes de intervención.”)

@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Vigencia del contrato de teletrabajo
+La vigencia del contrato firmado será por un año, y regirá a partir de que haya sido suscrito por las partes contratantes. Se prorrogará en forma automática por períodos de un año, y de forma indefinida, en tanto la Defensoría o la persona teletrabajadora no manifiesten por escrito y por medios electrónicos, con al menos diez días naturales de antelación, su voluntad de no continuar bajo esta modalidad.
+Lo anterior, excepto que el periodo de nombramiento de la persona teletrabajadora sea a plazo fijo, en cuyo caso la vigencia del presente contrato será por el término de su nombramiento.
