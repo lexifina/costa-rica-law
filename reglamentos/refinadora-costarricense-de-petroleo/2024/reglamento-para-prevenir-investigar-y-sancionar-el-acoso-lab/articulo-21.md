@@ -1,0 +1,2 @@
+Artículo 21.- Garantía de protección
+La presunta víctima, la parte denunciante, personas que declaren como testigos y cualquier otra que colabore en el procedimiento tendrán derecho a la protección contra cualquier tipo de represalia o discriminación derivada de su colaboración. El órgano decisor y/o órgano director, en el ejercicio de sus facultades, deberán tomar las medidas de protección adecuadas para salvaguardar la integridad física, emocional, psicológica y económica de las personas trabajadoras que participen en el procedimiento.

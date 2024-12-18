@@ -1,0 +1,2 @@
+Artículo 22.- Denuncia temeraria o falsa
+La persona que presente una denuncia por acoso laboral de forma temeraria, falsa o abusiva podrá ser sancionada disciplinariamente, previa apertura de causa y observancia del debido proceso, conforme a las disposiciones aplicables en la Empresa sobre la materia disciplinaria. Sin detrimento de las acciones civiles o penales que la persona denunciada pueda ejercer.

@@ -1,0 +1,6 @@
+Artículo 18.- Valoraciones psicológica y social de las partes
+El órgano director podrá, cuando así se justifique, solicitar a los profesionales en Psicología y/o Trabajo Social, llevar a cabo valoraciones de la presunta víctima y de la persona denunciada, así como estudios sociales del entorno laboral y familiar de la víctima.
+Las valoraciones respectivas deberán indicar la relación entre la condición emocional o mental de la víctima y el supuesto acoso laboral que denuncia, así como mencionar razones, conclusiones y recomendaciones.
+En el caso de las personas denunciadas, la valoración deberá referirse al ajuste psicosocial (incluye manejo del estrés), el perfil de personalidad, el control de emociones y relacionar esas variables sobre cómo influyen en el puesto que desempeña, sus relaciones interpersonales en general, y sus relaciones interpersonales con figuras de autoridad y el estilo de liderazgo o formas de supervisión de personal, esto último cuando corresponda, entre otros aspectos.
+Además, las recomendaciones deberán incluir si está en condiciones de supervisar personal o si requiere algún tratamiento o asesoría psicosocial para desempeñarse de manera idónea en la Empresa.
+En ambos casos deberá contarse con el consentimiento de la parte que se someta a dicha valoración.

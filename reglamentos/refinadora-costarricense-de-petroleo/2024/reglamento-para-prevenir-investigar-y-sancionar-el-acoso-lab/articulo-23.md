@@ -1,0 +1,4 @@
+Capítulo V Medidas complementarias
+Artículo 23.- Participación de la Unidad Desarrollo de Capital Humano
+Durante la tramitación de una denuncia, las instancias encargadas de abordar el clima y cultura organizacional en RECOPE, deberán de abstenerse de tomar acciones relacionadas a dicha gestión en la dependencia a la cual pertenecen las partes; y únicamente podrán facilitar material informativo virtual o físico, con recomendaciones y buenas prácticas de convivencia.
+Una vez finalizado el procedimiento disciplinario y comunicada la resolución de la Decisión Final, La Unidad Desarrollo de Capital Humano deberá coordinar con dichas instancias para que activen los programas existentes orientados a la recuperación de los equipos de trabajo que hayan sido afectados directa o indirectamente por el acoso laboral, cuando corresponda y según el criterio técnico de los profesionales a cargo.

@@ -1,0 +1,4 @@
+Artículo 17.- Las partes en el procedimiento por acoso laboral
+La presunta víctima y/o persona denunciante, ambos cuando no concurran bajo la misma persona, serán expresamente reconocidas como parte en el procedimiento de acoso laboral, con todos los derechos inherentes a esta condición.
+La presunta víctima tendrá el derecho de acompañarse por una persona profesional en psicología o alguien de su confianza que le brinde apoyo emocional durante el procedimiento, incluyendo la audiencia, lo cual será advertido por el órgano que instruye el procedimiento en la resolución que da el traslado de cargos.
+De igual manera, a la presunta víctima le asiste el derecho de ser atendida por los profesionales con que cuenta la Empresa en las especialidades de Psicología, Trabajo Social y áreas afines a disposición de los (as) trabajadores (as) de los diferentes ámbitos.
