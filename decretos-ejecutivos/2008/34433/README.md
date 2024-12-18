@@ -24,3 +24,4 @@ Reglamento a la Ley de Biodiversidad
 | 9 | 2021-01-22 | Decreto Ejecutivo 42837 (2021-01-22) |
 | 10 | 2021-02-24 | Decreto Ejecutivo 42742 (2021-02-24) |
 | 11 | 2024-04-16 | Decreto Ejecutivo 44569 (2024-04-16) |
+| 12 | 2024-12-18 | Decreto Ejecutivo 44859 (2024-12-18) |
