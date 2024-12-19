@@ -14,3 +14,4 @@ Reglamento para la administración de fondos fijos institucionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-16 | la propia norma |
+| 2 | 2024-12-19 | Reglamento 0 (2024-12-19) |
