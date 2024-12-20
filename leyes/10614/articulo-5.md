@@ -1,0 +1,2 @@
+ARTÍCULO 5- Normas aplicables
+La construcción y administración de embarcaderos vecinales, así como la prestación de servicios en las áreas destinadas a este fin, se formalizarán mediante contratos de concesión otorgados por la municipalidad correspondiente, el Ministerio de Ambiente y Energía (Minae) y el Instituto Costarricense de Turismo (ICT) se regirán por las disposiciones de la presente ley y su reglamento.

@@ -1,0 +1,2 @@
+ARTÍCULO 20-
+La presente ley no aplicará para todo lo relativo a los Canales del Norte, que se extienden desde Moín hasta el límite fronterizo con Nicaragua, incluyendo todos los sitios como lagunas, canales y ríos, que sean navegables, donde la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) continuará sin alteración de sus competencias, en función de la Ley 3091, Ley Orgánica de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, de 18 de febrero de 1963.

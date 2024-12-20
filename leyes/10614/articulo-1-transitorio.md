@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+TRANSITORIO I- Los embarcaderos que se encuentren en funcionamiento, al momento de la entrada en vigor de esta ley, podrán solicitar en un plazo de veinticuatro meses a las autoridades competentes para otorgar la concesión, podrán regularizar su situación jurídica conforme lo establecido en la presente ley, otorgar concesiones según corresponda, regularizar la infraestructura conforme al procedimiento establecido en esta ley, en un plazo máximo de seis meses posterior a su publicación.

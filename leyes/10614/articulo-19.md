@@ -1,0 +1,2 @@
+ARTÍCULO 19- Gestión en línea
+Para los fines de esta ley, se establece que todo el procedimiento para gestionar, tramitar y dar seguimiento al permiso para la construcción del embarcadero vecinal será formalizado de forma digital, mediante el procedimiento establecido en el reglamento de esta ley, el cual deberá observar los formatos y las herramientas vigentes del Colegio Federado de Ingenieros y Arquitectos.
