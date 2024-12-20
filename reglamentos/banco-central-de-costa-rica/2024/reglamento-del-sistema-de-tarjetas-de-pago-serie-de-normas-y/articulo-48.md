@@ -1,0 +1,1 @@
+Artículo 48. Comisiones de las operaciones de pago en moneda extranjera: Para toda operación de pago local, las marcas de tarjetas no pueden establecer comisiones diferenciadas a emisores y adquirentes, en virtud de la moneda acordada entre el afiliado y el cliente.

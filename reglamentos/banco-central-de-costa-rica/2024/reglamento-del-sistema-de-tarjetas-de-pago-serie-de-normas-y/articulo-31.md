@@ -1,0 +1,1 @@
+Artículo 31. Requerimiento de operaciones de pago con tarjeta no presente. En el caso de los servicios de adquirencia que permiten el procesamiento de operaciones de pago con tarjeta no presente, el adquirente deberá garantizar que el afiliado cumpla con los requerimientos de PCI que sean aplicables a este tipo de operaciones de pago.

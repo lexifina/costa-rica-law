@@ -1,0 +1,1 @@
+Artículo 10. Del código IBAN. Toda nueva tarjeta de crédito, débito y prepago nominativa que se emita debe tener asociado el código IBAN, cuyo número debe embozarse o imprimirse en el anverso, o ante imposibilidad técnica en el reverso de la tarjeta, de forma continua, en ambos casos, en la parte inferior de la tarjeta.
