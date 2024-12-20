@@ -14,3 +14,4 @@ Reforma Instauración del teletrabajo ante la afectación por el desarrollo de p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-29 | la propia norma |
+| 2 | 2024-12-20 | Directriz 46 (2024-12-20) |
