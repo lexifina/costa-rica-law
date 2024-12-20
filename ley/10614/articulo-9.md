@@ -1,0 +1,6 @@
+ARTÍCULO 9- Declaratoria de interés público
+Las autoridades competentes para otorgar la concesión, ante la solicitud escrita del interesado para la construcción de un embarcadero vecinal en un lugar específico y cumpliendo todos los requisitos establecidos en el artículo 8, podrá realizar el análisis correspondiente para realizar una declaratoria de interés público.
+Las autoridades competentes tendrán un máximo de veinte días hábiles, una vez recibida la solicitud, para enviar a un profesional en ingeniería para verificar las condiciones de la zona y comprobar la información que fue remitida, para lo cual emitirá un informe avalando o no la posibilidad de construir o no un embarcadero vecinal en el sitio solicitado.
+Cabrá una prórroga de diez días hábiles, para que las autoridades competentes cumplan con la estipulado en el párrafo anterior.
+La declaratoria de interés público la realizará la autoridad competente, por medio de un acuerdo del consejo municipal de la municipalidad correspondiente o por decreto ejecutivo del Ministerio de Ambiente y Energía (Minae) o del Instituto Costarricense de Turismo (ICT).
+Una vez firme la declaratoria de interés público, el interesado podrá iniciar el trámite para obtener la viabilidad técnica ante la División Marítimo-Portuaria del Ministerio de Obras Públicas y Transportes (MOPT).
