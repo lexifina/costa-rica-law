@@ -1,0 +1,2 @@
+Artículo 3º-Se modifica el inciso c) del artículo 64 del Decreto Ejecutivo N° 25584 MINAE-H-MP del 24 de octubre de 1996, "Reglamento para la Regulación del Uso Racional de la Energía" para que en adelante se lea:
+c) El formulario de la Declaración Jurada deberá indicar las características en cuanto a la eficiencia energética de los bienes indicados en el capítulo IV de este reglamento y sus reformas.
