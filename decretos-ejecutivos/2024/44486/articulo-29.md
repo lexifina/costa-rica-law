@@ -1,0 +1,2 @@
+Artículo 29.- El ruido emitido por vehículos con altoparlantes en vías públicas terrestres, debe ser regulado por el Ministerio de Obras Públicas y Transportes, según se establece en el artículo 116 de la Ley N° 9078 del 04 de octubre del 2012 "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial".
+Cuando estos se encuentren parqueados en estacionamientos y dentro de sitios de operación comercial, industrial o de servicios, deben ajustarse a lo establecido en el presente reglamento.

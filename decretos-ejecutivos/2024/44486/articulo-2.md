@@ -1,0 +1,1 @@
+Artículo 2. - La aplicación del presente reglamento es obligatoria a todas las personas físicas y jurídicas, públicas o privadas, en el territorio nacional que, por razón de algún proyecto, obra o actividad dentro de un establecimiento de una propiedad pública, privada o en el exterior, genere o pueda generar niveles de ruido que sobrepasen los límites máximos permitidos.

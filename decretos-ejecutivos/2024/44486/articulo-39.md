@@ -1,0 +1,1 @@
+Artículo 39. -Deróguese el Decreto Ejecutivo N° 32692-S del 09 de agosto del 2005 "Procedimiento para la Medición de Ruido" publicado en La Gaceta N° 201 del 19 de octubre del 2005 y el N° 39428-S del 23 de noviembre del 2015 "Reglamento para el Control de la Contaminación por Ruido", publicado en el Alcance 09 a La Gaceta N°20 del 29 de enero del 2016.

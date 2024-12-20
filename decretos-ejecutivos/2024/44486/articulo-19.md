@@ -1,0 +1,1 @@
+Artículo 19. - Si los propietarios, representantes o encargados de la fuente emisora impiden la entrada a la autoridad sanitaria, lo cual deberá constar en las actas de inspección, la Autoridad de Salud empleará los valores de referencia de la Tabla 1 para el ruido ambiental, según la zona.

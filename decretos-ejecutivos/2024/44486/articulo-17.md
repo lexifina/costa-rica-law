@@ -1,0 +1,3 @@
+CAPÍTULO IX
+PRESENTACIÓN DE DENUNCIAS POR RUIDO
+Artículo 17. - La persona que considere afectado su derecho a la salud, según lo aquí dispuesto, puede acudir ante el Área Rectora de Salud correspondiente y presentar la denuncia respectiva. No se permitirán las denuncias por ruido interpuestas de manera anónima, pues se requiere conocer la fuente receptora para poder realizar el procedimiento de medición; sin embargo, se debe mantener la confidencialidad de la persona denunciante según procedimientos internos del Ministerio. Además, se debe proporcionar en la denuncia la(s) fecha(s) y hora(s) aproximada(s) en que se presentan los hechos, con el fin de coordinar la medición de ruido.

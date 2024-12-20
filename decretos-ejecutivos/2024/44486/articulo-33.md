@@ -1,0 +1,3 @@
+Artículo 33. - Los principales parámetros para la medición de ruido que provienen de fuentes emisoras son:
+- Para la medición de la fuente generadora activa: Nivel de ruido continuo equivalente en filtro A, LAeq, T, y ponderación temporal rápida (F) para medidas de corta duración, ponderación Slow para ruido continuo y ponderación (IMPT/Peak) para ruido de impacto.
+- Para la determinación del Nivel de ruido ambiente, L90, T, medido como nivel de ruido continuo equivalente en filtro A y ponderación temporal rápida (F) para medidas de corta duración, ponderación Slow para ruido continuo y ponderación IMP/Peak para ruido de impacto.

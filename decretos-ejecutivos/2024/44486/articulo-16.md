@@ -1,0 +1,4 @@
+Artículo 16. - Los límites establecidos en la Tabla 1, deben ajustarse de la siguiente manera:
+a) Ajuste por ruido ambiental: Cuando el ruido ambiental del área supere los límites máximos permisibles, el límite máximo permisible para la fuente generadora será el ruido ambiental medido más 3 dB(A), en la vivienda de la persona afectada.
+b) Ajuste por ruido de impacto: Para ruidos de impacto se impondrá una penalización de 5 dB(A), que deberá sumarse al nivel medido. Este nivel, incluyendo la penalización, no podrá sobrepasar los niveles establecidos en la Tabla 1.
+c) Ajuste por ruido intermitente: Para ruidos intermitentes, se impondrá una penalización de 3 dB(A) que deberá sumarse al nivel medido. Este nivel, incluyendo la penalización, no podrá sobrepasar los niveles establecidos en la Tabla 1 del presente reglamento.

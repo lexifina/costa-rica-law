@@ -1,0 +1,1 @@
+Artículo 11. - En el caso de condominios residenciales, la administración será responsable por velar por el cumplimiento de este reglamento, agotando dicha vía antes de denunciar ante las autoridades competentes.

@@ -1,0 +1,3 @@
+Artículo 25. - El Ministerio de Salud debe realizar la verificación de que el ruido producido por la fuente(s) emisora(s) no sobrepasa(n) los límites permitidos en el presente reglamento una vez que se venció el plazo establecido.
+La medición deberá realizarse sin comunicación previa al denunciado o ejecutor de las acciones correctivas. Estas deben programarse en coordinación con el denunciante y realizarla bajo las mismas condiciones que dio origen a la Orden Sanitaria emitida inicialmente.
+En caso de que los resultados de la verificación cumplan con lo establecido en este Reglamento, el Ministerio de Salud debe cerrar el caso y comunicar a las partes involucradas.

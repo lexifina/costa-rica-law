@@ -1,0 +1,1 @@
+Artículo 18. - El Ministerio de Salud, de conformidad con lo establecido sobre el derecho a la intimidad y a la inviolabilidad del domicilio, debe solicitar a los propietarios, encargados u ocupantes de residencias o de establecimientos, públicos o privados, objeto de la visita, denunciantes o denunciados, el acceso a su inmueble a fin de realizar la medición de ruido.

@@ -1,0 +1,1 @@
+Artículo 10. - El representante legal de todo establecimiento es el responsable de toda operación de carga o descarga de mercancías u objetos que genere ruido, dentro de los límites de una propiedad, no debe rebasar los límites máximos establecidos en la Tabla 1 del presente reglamento.
