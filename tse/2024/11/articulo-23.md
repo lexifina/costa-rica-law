@@ -1,0 +1,1 @@
+Artículo 23º-Es obligatorio conducir, dentro del estacionamiento institucional, a una velocidad que no supere los 10 km/hora. Se deberán respetar las vías de acceso, la señalización vial y las instrucciones impartidas por las personas funcionarias de la Oficina de Seguridad Integral.

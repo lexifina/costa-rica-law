@@ -1,0 +1,1 @@
+Artículo 4º-No constituye una obligación para el Tribunal otorgar la facilidad de espacio de estacionamiento para los vehículos de las personas funcionarias. El permiso de estacionamiento concedido a estas no se considerará salario en especie ni genera derecho adquirido alguno.

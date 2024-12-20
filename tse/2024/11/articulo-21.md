@@ -1,0 +1,1 @@
+Artículo 21º-En caso de accidente, colisión o daños la persona funcionaria responsable del hecho deberá reportarlo de inmediato a la Oficina de Seguridad Integral, la cual ubicará a la persona funcionaria dueña del vehículo involucrado. Lo anterior no excluye la obligación de coordinar con las autoridades competentes y aseguradoras para su debido trámite.

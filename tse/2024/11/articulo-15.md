@@ -1,0 +1,1 @@
+Artículo 15º-Para lograr un adecuado control del ingreso a las áreas de estacionamiento, la persona destacada en el puesto de Seguridad y Vigilancia registrará diariamente los números de placa de los vehículos que ingresen. Las personas visitantes y funcionarias del Tribunal deberán detener su vehículo en dicho puesto e identificarse.

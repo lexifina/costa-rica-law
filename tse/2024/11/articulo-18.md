@@ -1,0 +1,4 @@
+CAPÍTULO III
+Uso, obligaciones y responsabilidades de los usuarios
+Artículo 18º-Ninguna persona a quien se le haya otorgado permiso de estacionamiento de conformidad con este reglamento podrá ceder o prestar, en forma alguna, el uso del espacio asignado para su vehículo, de modo que, al estacionamiento institucional solo podrán ingresar conduciendo el vehículo, las personas funcionarias que estén debidamente autorizadas por la Oficina de Seguridad Integral y que se identifiquen con el gafete institucional en el puesto de Seguridad y Vigilancia.
+En casos excepcionales relacionados con asuntos médicos que afecten la movilidad, debidamente justificados, la Oficina de Seguridad Integral podrá permitir el ingreso de terceras personas que conduzcan el vehículo con la persona funcionaria autorizada como pasajera.

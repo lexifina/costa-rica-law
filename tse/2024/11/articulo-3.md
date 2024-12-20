@@ -1,0 +1,1 @@
+Artículo 3º-Se considerarán áreas de estacionamiento todos aquellos espacios en las instalaciones del Tribunal, en los que sea posible -según las regulaciones y criterios técnicos pertinentes- aparcar vehículos.

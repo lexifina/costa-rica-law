@@ -1,0 +1,1 @@
+Artículo 27º-Contra toda resolución que emita la Jefatura de la Oficina de Seguridad Integral, como parte de las atribuciones conferidas en este reglamento, dentro del plazo de tres días hábiles contados a partir de su comunicación, cabrán los recursos ordinarios de revocatoria y/o apelación en subsidio para ante la Secretaría General de este Tribunal.

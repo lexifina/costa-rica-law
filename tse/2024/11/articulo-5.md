@@ -1,0 +1,1 @@
+Artículo 5.º-En la administración y uso de las áreas de estacionamiento debe privar la necesidad pública ante la pretensión privada; de ahí que, atendiendo razones de oportunidad y conveniencia, el Tribunal podrá destinar dichas áreas a otros fines prioritarios de manera temporal o definitiva.
