@@ -14,3 +14,4 @@ Ampliación y prórroga directriz instauración del teletrabajo ante la afectaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-15 | la propia norma |
+| 2 | 2024-12-20 | Directriz 46 (2024-12-20) |
