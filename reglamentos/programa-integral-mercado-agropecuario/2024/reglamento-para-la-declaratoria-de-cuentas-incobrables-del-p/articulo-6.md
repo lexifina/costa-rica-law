@@ -1,0 +1,1 @@
+Artículo 6°-Incobrablilidad en vía judicial. En la tramitación de cobros judiciales, la Asesoría Jurídica del PIMA, le informará a la Tesorería, Contabilidad y a la Dirección Administrativa Financiera, de los casos que se encuentran en cobro judicial por más de un año y que no hayan sido posible recuperar los recursos para efectos de que sean declarados incobrables.

@@ -1,0 +1,1 @@
+Artículo 11.-Comunicación de declaratoria de incobrabilidad. La resolución debidamente aprobada por la Gerencia que declare la incobrabilidad de una deuda será comunicada a los Procesos de Tesorería y Contabilidad, para su registro correspondiente.

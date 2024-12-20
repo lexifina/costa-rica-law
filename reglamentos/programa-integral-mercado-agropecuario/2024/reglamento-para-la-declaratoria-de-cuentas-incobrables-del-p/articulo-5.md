@@ -1,0 +1,1 @@
+Artículo 5°-Cuenta incobrable. Una cuenta incobrable se genera cuando el PIMA ha agotado todos los recursos posibles y necesarios a fin de recuperar el monto adeudado, tanto en la vía administrativa como judicial, sin ser éste posible o, que por el monto de la deuda no resulta conveniente ni beneficioso para la institución el trámite para su recuperación.

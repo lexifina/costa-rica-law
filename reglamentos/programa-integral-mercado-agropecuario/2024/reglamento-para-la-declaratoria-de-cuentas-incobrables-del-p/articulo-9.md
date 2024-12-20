@@ -1,0 +1,1 @@
+Artículo 9°-Declaratoria cuenta incobrable por artículo 7. Cuando se determine un caso como incobrable por aspectos económicos, según el Artículo 7 del presente Reglamento, será el gestor de cobro respectivo en conjunto con el Líder de Proceso de Tesorería, quien después de agotar la vía administrativa, solicite directamente la declaratoria de incobrabilidad ante la Gerencia.
