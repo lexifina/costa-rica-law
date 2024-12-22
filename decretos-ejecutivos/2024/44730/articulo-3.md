@@ -1,0 +1,1 @@
+Artículo 3°-Deróguese el Decreto Ejecutivo N° 37165-S del 04 de junio del 2012 "Reglamento para el Otorgamiento del Permiso Sanitario de Funcionamiento de los Hogares de Larga Estancia para Personas Adultas Mayores" publicado en el Alcance Digital N° 83 a La Gaceta del 123 del 26 de junio del 2012.
