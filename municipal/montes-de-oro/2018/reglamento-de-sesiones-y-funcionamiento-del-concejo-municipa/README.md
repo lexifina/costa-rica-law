@@ -16,3 +16,4 @@ Reglamento de sesiones y funcionamiento del Concejo Municipal de Montes de Oro
 | 1 | 2018-02-06 | la propia norma |
 | 2 | 2021-12-28 | Reglamento municipal 87 (2021-12-28) |
 | 3 | 2024-06-21 | Reglamento municipal 0 (2024-06-21) |
+| 4 | 2024-12-30 | Reglamento municipal 35 (2024-12-30) |

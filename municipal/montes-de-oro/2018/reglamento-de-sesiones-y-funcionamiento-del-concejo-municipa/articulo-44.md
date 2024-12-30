@@ -1,4 +1,3 @@
 Artículo 44.-La correspondencia que es dirigida al Concejo Municipal, deberá ser entregada en horas ordinarias de la Municipalidad de Montes de Oro.
-El plazo límite para el conocimiento de la correspondencia de la sesión ordinaria semanal será a las 4:00 p.m. del día hábil anterior al día que se realice la sesión ordinaria municipal, con excepción de trámites urgentes, administrativos y jurídicos.
-Su aceptación quedará a criterio del Presidente Municipal.
-(Así reformado mediante publicación en La Gaceta N° 113 del 21 de junio del 2024)
+El plazo límite para la recepción de correspondencia dirigida al Concejo Municipal será hasta el viernes a las 2:00 p.m. Cualquier correspondencia ingresada posterior a dicho plazo será tramitada en la siguiente sesión ordinaria salvo casos excepcionales que justifiquen su inclusión, su aceptación quedará a criterio del Presidente Municipal.
+(Así reformado mediante sesión ordinaria N° 35-2024 del 30 de diciembre del 2024)
