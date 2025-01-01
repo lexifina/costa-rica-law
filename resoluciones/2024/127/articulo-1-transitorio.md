@@ -1,0 +1,2 @@
+Transitorio.-Se instruye a la Unidad de Tecnologías de Información y a la Unidad de Gobierno Corporativo, para que realicen los ajustes necesarios a nivel de sistemas de información y de procesos y procedimientos de planificación, así como cualquier coordinación interna adicional requerida para la entrada en vigencia de los cambios en la estructura orgánica dispuestos en la presente resolución.
+Vigencia. Rige a partir del 01 de enero de 2025.
