@@ -1,0 +1,2 @@
+Artículo 3º-A partir del 01 de enero de 2025, se deja sin efecto el monto establecido en la Resolución Administrativa N° DE-RE-A-21-2024, publicada en el Diario Oficial La Gaceta N° 171, del lunes 16 de setiembre de 2024, que actualizó el impuesto específico consagrado en el artículo 10 de la Ley 5792, para los meses de octubre, noviembre y diciembre de año 2024.
+Dado en la ciudad de Moravia, a los 19 días del mes noviembre de 2024. Publíquese.
