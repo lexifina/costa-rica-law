@@ -1,0 +1,1 @@
+Artículo 4º-Para la correcta ubicación de las ocupaciones en las categorías salariales de este Decreto de Salarios Mínimos, se deberá aplicar lo establecido en los Perfiles Ocupacionales Resolución Administrativa 03- 2000, que fue aprobada por el Consejo Nacional de Salarios y publicada en el Diario Oficial La Gaceta N° 233 del 5 de diciembre del 2000.
