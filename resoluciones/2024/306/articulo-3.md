@@ -1,0 +1,1 @@
+Artículo 3º-Que, por la naturaleza temporal de estos sobresueldos, no constituyen derechos adquiridos al aprobarse, únicamente para garantizar el funcionamiento de los Centros Educativos durante el curso lectivo, en este caso del año 2025.
