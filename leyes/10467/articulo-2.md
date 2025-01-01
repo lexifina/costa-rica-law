@@ -1,0 +1,1 @@
+ARTÍCULO 2- Asignación de recursos. El Poder Judicial deberá integrar los recursos presupuestarios necesarios para la puesta en operación del Juzgado Penal de Batán, el cual queda adscrito al Primer Circuito Judicial de la Zona Atlántica, en el siguiente año presupuestario, posterior a la aprobación de la presente ley.
