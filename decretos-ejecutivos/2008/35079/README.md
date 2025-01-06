@@ -14,3 +14,4 @@ Reglamento técnico RTCR 411:2008 Productos Cárnicos Embutidos: Salchicha, Salc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-05 | la propia norma |
+| 2 | 2025-01-06 | Decreto Ejecutivo 44909 (2025-01-06) |

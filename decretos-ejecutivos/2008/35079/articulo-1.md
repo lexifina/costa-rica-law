@@ -6,14 +6,14 @@ EL MINISTRO DE AGRICULTURA Y GANADERÍA
 Y LA MINISTRA DE SALUD
 En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) y artículo 146 de la Constitución Política del 7 de noviembre de 1949 y sus reformas; artículo 28 inciso 2b), de la Ley General de Administración Pública, Ley Nº 6227 del 2 de mayo de 1978 y sus reformas; Ley del Sistema Internacional de Unidades de Medida, Nº 5292 de 9 de agosto de 1973; Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472 de 20 de diciembre de 1994; Ley General de Salud, Nº 5395 de 30 de octubre de 1973; Ley General del Servicio Nacional de Salud Animal (SENASA), Nº 8495 del 6 de abril del 2006; Ley del Sistema Nacional para la Calidad N° 8279 de 2 de mayo de 2002; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Nº 6054 de 14 de junio de 1977; y, la Ley de Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de negociaciones comerciales multilaterales, Nº 7475 de 20 de diciembre de 1994.
 Considerando:
-1º—Que es un deber ineludible del Estado velar por la salud de la población, evitando o reprimiendo aquellos actos u omisiones de particulares que impliquen un riesgo para la salud humana como bien jurídico de importancia suprema para el desarrollo social y económico del país.
-2º—Que la mortadela, el chorizo, la salchicha y el salchichón son productos de alto consumo y de importancia para la nutrición y salud de las personas y por ello es necesario fijar requisitos físicos, químicos y sanitarios que garanticen la calidad de los mismos, desde el mismo momento de su producción y hasta su consumo final.
-3º—Que mediante el Decreto Nº 18341-MEC. Norma Oficial de Productos Cárnicos. Clasificación y Características del 15 julio de 1988, publicado en La Gaceta Nº 149 de ese mismo año y desde su emisión, se han registrado actualizaciones en la comercialización, parámetros microbiológicos y métodos de análisis de los alimentos considerados en este Reglamento Técnico. Por tanto,
+1º-Que es un deber ineludible del Estado velar por la salud de la población, evitando o reprimiendo aquellos actos u omisiones de particulares que impliquen un riesgo para la salud humana como bien jurídico de importancia suprema para el desarrollo social y económico del país.
+2º-Que la mortadela, el chorizo, la salchicha y el salchichón son productos de alto consumo y de importancia para la nutrición y salud de las personas y por ello es necesario fijar requisitos físicos, químicos y sanitarios que garanticen la calidad de los mismos, desde el mismo momento de su producción y hasta su consumo final.
+3º-Que mediante el Decreto Nº 18341-MEC. Norma Oficial de Productos Cárnicos. Clasificación y Características del 15 julio de 1988, publicado en La Gaceta Nº 149 de ese mismo año y desde su emisión, se han registrado actualizaciones en la comercialización, parámetros microbiológicos y métodos de análisis de los alimentos considerados en este Reglamento Técnico. Por tanto,
 Decretan:
 RTCR 411:2008 PRODUCTOS CÁRNICOS EMBUTIDOS:
 SALCHICHA, SALCHICHÓN, MORTADELA Y CHORIZO.
 ESPECIFICACIONES.
-Artículo 1º—Aprobar el siguiente Reglamento Técnico:
+Artículo 1º-Aprobar el siguiente Reglamento Técnico:
 1. Objetivo y ámbito de aplicación. Este Reglamento Técnico establece las especificaciones físicas, químicas y sanitarias que deben cumplir los productos cárnicos denominados salchicha, salchichón, mortadela y chorizo.
 2. Referencia. Este reglamento técnico se complementa con los siguientes:
 2.1 Decreto Ejecutivo Nº 29588 MAG-S. Reglamento Sanitario y de Inspección Veterinaria de Mataderos, Producción y Procesamiento de Carnes, publicado en La Gaceta Nº 120 del 22 de junio del 2001.
@@ -62,16 +62,16 @@ Artículo 1º—Aprobar el siguiente Reglamento Técnico:
 5.5 Para los productos cocidos, la cocción o tratamiento térmico debe ser aplicado con un mínimo de 72 ºC, por un tiempo requerido para asegurar que el producto no representa un peligro para la salud pública y se mantenga inalterado durante el proceso de post fabricación y comercialización, bajo las condiciones de manejo establecidas por el fabricante. Los productos precocidos deben considerarse como productos crudos, por lo que requieren de cocción antes de ser consumidos.
 5.6 Para el proceso de ahumado, las maderas empleadas deben ser secas, duras y no resinosas. Se permite el uso de humo líquido o sólido.
 5.7 Para el ablandamiento y conservación de las tripas naturales o sintéticas, éstas pueden ser tratadas con aditivos autorizados.
-5.8 El producto debe estar exento de rastros de huesos, pelos, tendones, metales y cualquier otro material ajeno, de acuerdo con el Decreto Ejecutivo Nº 33724-COMEX-MEIC-S, publicado en La Gaceta Nº 82 del 30 de abril del 2007, “Pone vigencia Resolución 176-2006 (COMIECOXXXVIII): Alimentos Procesados Proced. Licencia Sanitaria, Proced. Otorgar Registro Sanitario y Inscripción Sanitaria, Requisitos Importación Alimentos Procesados, Industria Alimentos Bebidas Procesados”.
+5.8 El producto debe estar exento de rastros de huesos, pelos, tendones, metales y cualquier otro material ajeno, de acuerdo con el Decreto Ejecutivo Nº 33724-COMEX-MEIC-S, publicado en La Gaceta Nº 82 del 30 de abril del 2007, "Pone vigencia Resolución 176-2006 (COMIECOXXXVIII): Alimentos Procesados Proced. Licencia Sanitaria, Proced. Otorgar Registro Sanitario y Inscripción Sanitaria, Requisitos Importación Alimentos Procesados, Industria Alimentos Bebidas Procesados".
 6. Designación
 6.1 El producto objeto de este reglamento se designa por:
-6.1.1 “Salchicha”, “Salchichón”, “Mortadela”, “Chorizo”, cuando el producto contenga mezclas cárnicas de diferentes especies animales.
-6.1.2 “Salchicha”, “Salchichón”, “Mortadela”, “Chorizo” de (nombre de la especie animal)”, si el 100 % de la carne lo aporta la especie mencionada. Ejemplo: Una salchicha elaborada con 100% de carne de res se designará “Salchicha de res”.
-6.2 También se puede designar como “Salchicha”, “Salchichón”, “Mortadela”, “Chorizo” con (nombre de la especie animal)” siempre y cuando contenga un mínimo del 51 % de la carne de la especie mencionada o “Salchicha”, “Salchichón”, “Mortadela”, “Chorizo” con (nombre del ingrediente).
+6.1.1 "Salchicha", "Salchichón", "Mortadela", "Chorizo", cuando el producto contenga mezclas cárnicas de diferentes especies animales.
+6.1.2 "Salchicha", "Salchichón", "Mortadela", "Chorizo" de (nombre de la especie animal)", si el 100 % de la carne lo aporta la especie mencionada. Ejemplo: Una salchicha elaborada con 100% de carne de res se designará "Salchicha de res".
+6.2 También se puede designar como "Salchicha", "Salchichón", "Mortadela", "Chorizo" con (nombre de la especie animal)" siempre y cuando contenga un mínimo del 51 % de la carne de la especie mencionada o "Salchicha", "Salchichón", "Mortadela", "Chorizo" con (nombre del ingrediente).
 Ejemplos:
-Una salchicha con 51% de carne de res se designará “Salchicha con res”.
-Esta misma salchicha, que además contenga chile, se designará “Salchicha con res y chile”.
-6.3 Esta designación debe aparecer cerca del nombre comercial en la etiqueta del producto conforme a la legislación nacional vigente. Si el nombre comercial incluye la palabra “Salchicha”, “Salchichón”, “Mortadela”, “Chorizo”” se permite omitir esta palabra.
+Una salchicha con 51% de carne de res se designará "Salchicha con res".
+Esta misma salchicha, que además contenga chile, se designará "Salchicha con res y chile".
+6.3 Esta designación debe aparecer cerca del nombre comercial en la etiqueta del producto conforme a la legislación nacional vigente. Si el nombre comercial incluye la palabra "Salchicha", "Salchichón", "Mortadela", "Chorizo"" se permite omitir esta palabra.
 7. Factores esenciales de composición y calidad
 7.1 Ingredientes
 Todos los ingredientes deben ser de grado alimenticio. Esta lista no es exhaustiva.
@@ -92,19 +92,17 @@ Todos los ingredientes deben ser de grado alimenticio. Esta lista no es exhausti
 - Hongos.
 - Semillas y nueces.
 7.2 Factores esenciales de calidad
-7.2.1 Requisitos químicos. Las características químicas de la “Salchicha”, el “Salchichón”, la “Mortadela”, y el “Chorizo” deben ser conforme a las establecidas en la tabla 1.
-Tabla 1. Características químicas para la “Salchicha”,
-el “Salchichón”, la “Mortadela”, y el “Chorizo”
-Característica | Valor permitido | Método de ensayo
-Humedad | £ 75,0 % | AOAC 930.10
-Grasa, 1) | £ 25,0 % | AOAC 991.36
-Cenizas | £ 3,5 % | AOAC 942.05
-Proteína total 2) | ³ 11,0 % | AOAC 984.18
-Carbohidratos | £ 10,0 % | Este valor se obtiene por diferencia
-Nota 1): para el chorizo, el valor permitido de grasa es £ 40% Nota 2): la proteína adicionada debe de ser £ 49% de la proteína total.
-7.2.2 Requisitos microbiológicos. El muestreo del producto para verificar el cumplimiento de los parámetros microbiológicos, se debe de realizar en el empaque original. La “Salchicha”, el “Salchichón”, la “Mortadela”, y el “Chorizo” deben de cumplir con los parámetros microbiológicos establecidos en las tablas 2 y 3.
+7.2.1 Requisitos químicos. Las características químicas de la "Salchicha", el "Salchichón", la "Mortadela", y el "Chorizo" deben ser conforme con las establecidas en la tabla 1.
+Tabla l. Características químicas para la "Salchicha", el "Salchichón", la
+"Mortadela", y el "Chorizo"
+[imagen]
+Se consideran equivalentes para la determinación de humedad y proteína, los métodos de análisis contenidos en la siguiente tabla:
+Tabla 1.A. Métodos de análisis equivalentes para el análisis de humedad y proteína
+[imagen]
+(Así reformado el punto 7.2.1) anterior por el artículo 1° del decreto ejecutivo N° 44909 del 6 de enero del 2025)
+7.2.2 Requisitos microbiológicos. El muestreo del producto para verificar el cumplimiento de los parámetros microbiológicos, se debe de realizar en el empaque original. La "Salchicha", el "Salchichón", la "Mortadela", y el "Chorizo" deben de cumplir con los parámetros microbiológicos establecidos en las tablas 2 y 3.
 Los métodos de ensayo a utilizar en la determinación de los requisitos microbiológicos serán los detallados en la tabla 4 y en el apartado 11.2.
-Tabla 2. Características microbiológicas para la “Salchicha”, el “Salchichón”, y la “Mortadela” y el “Chorizo” cocido
+Tabla 2. Características microbiológicas para la "Salchicha", el "Salchichón", y la "Mortadela" y el "Chorizo" cocido
 Parámetro | Plan de muestreo | Límite
 Tipo de riesgo A | clase | n 5 | C | m | M
 Coliformes fecales | 3 | 0 | --- | < 3 NMP/g
@@ -121,8 +119,8 @@ Clostridium perfringens | 3 | 2 | 10 UFC/g | 103 UFC/g
 (*) El parámetro para Salmonella spp/ 25 g debe cumplir con lo establecido en el Reglamento
 Técnico sobre Criterios Microbiológicos vigente.
 Tabla 4. Métodos de ensayo para la determinación de los parámetros
-microbiológicos en la “Salchicha”, el “Salchichón”, y
-la “Mortadela” y el “Chorizo”
+microbiológicos en la "Salchicha", el "Salchichón", y
+la "Mortadela" y el "Chorizo"
 Parámetro | Método de ensayo
 Staphylococcus aureus | AOAC 975.55 (recuento total)
 Coliformes fecales | APHA, capitulo 8 BAM-FDA, capitulo 4
@@ -132,8 +130,8 @@ Listeria monocytogenes/25 g | USDA CAP 8
 8. Aditivos alimentarios
 8.1 Se permite el uso de los aditivos indicados en la tabla 5, solos o combinados, más los que sean aprobados por la autoridad competente o el Codex Alimentarius en su NGAA, es decir esta lista no es exhaustiva.
 8.2 Los parámetros analizados en la siguiente tabla se actualizaran de acuerdo con las normas del Codex Alimentarius vigentes.
-Tabla 5. Aditivos de uso permitido en la “Salchicha”,
-el “Salchichón”, la “Mortadela”, y el “Chorizo”
+Tabla 5. Aditivos de uso permitido en la "Salchicha",
+el "Salchichón", la "Mortadela", y el "Chorizo"
 Sustancia | Funciones tecnológicas | Cantidad máxima admisible y restricción de uso
 Ácido ascórbico y sus sales | Antioxidantes, aceleradores de curación. | 2 000 mg/kg.
 Ácido eritórbico y sus sales | Antioxidantes, aceleradores de curación. | 1 000 mg/kg
@@ -161,7 +159,7 @@ Propilparabén | Inhibe el crecimiento de mohos y levaduras | En soluciones de 3
 Glucona-delta-lactona | Disminuye el pH, regulador de acidez | 5 000 mg/kg en masa fresca
 Metilpolisilicona | Antiespumante | 50 mg/kg, en salmueras o humos líquidos
 9. Contaminantes
-9.1 Las materias primas cárnicas que se usen para preparar la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” no deben sobrepasar los límites de contaminantes establecidos en la versión vigente del Codex Alimentarius y contemplados en la tabla 6. Este listado no es exhaustivo.
+9.1 Las materias primas cárnicas que se usen para preparar la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" no deben sobrepasar los límites de contaminantes establecidos en la versión vigente del Codex Alimentarius y contemplados en la tabla 6. Este listado no es exhaustivo.
 Tabla 6. Límites de los contaminantes
 Nombre del contaminante | Límite máximo (mg/kg)
 Organoclorados** | Ausencia
@@ -209,7 +207,7 @@ Hormonas
 Dietilestilbestrol | Negativo
 (*) Para todo tipo de especies (**) Prohibido su uso por el Decreto 18451- MAG- S publicado en La Gaceta Nº 187 del 03 de octubre de 1988.
 10. Higiene
-10.1 El proceso de elaboración y las materias primas destinadas a la fabricación o preparación de la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” debe ser conforme al Decreto Ejecutivo Nº 33724-COMEX-MEIC-S, publicado en La Gaceta Nº 82 del 30 de abril del 2007, “Pone en Vigencia la Resolución 176-2006 (COMIECO XXXVIII) RTCA 67.01.33:06 Reglamento Industrias y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales”.
+10.1 El proceso de elaboración y las materias primas destinadas a la fabricación o preparación de la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" debe ser conforme al Decreto Ejecutivo Nº 33724-COMEX-MEIC-S, publicado en La Gaceta Nº 82 del 30 de abril del 2007, "Pone en Vigencia la Resolución 176-2006 (COMIECO XXXVIII) RTCA 67.01.33:06 Reglamento Industrias y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales".
 10.2 Se debe aplicar el Código Internacional Recomendado de Prácticas de Higiene para los productos Cárnicos Elaborados (Ref. No CAC/RCP 13-1976) y cuando proceda, el Código Internacional Recomendado de Prácticas de Higiene para la Elaboración de la Carne de Aves de Corral (CAC/RCP 14-1976) de la Comisión del Codex Alimentarius.
 10.3 Todas las materias primas, deberán manipularse, almacenarse o transportarse de modo que estén protegidos contra la contaminación y el deterioro.
 10.4 El producto final deberá conservarse de modo que se reduzca al mínimo la posibilidad de contaminación, que resista el deterioro y no presente ningún peligro para la salud pública en las condiciones de manipulación, almacenamiento, transporte y venta indicadas por el fabricante en la etiqueta.
@@ -232,14 +230,14 @@ Los métodos utilizados para los análisis nutricionales del Ministerio de Salud
 11.2.4 Recuento de esporas Clostridium sulfito reductor. El método de determinación de esporas de Clostridium sulfito reductor no tiene un método específico, sin embargo se recomienda el uso de los métodos establecidos en el capítulo 16 (Clostridium perfringens) y 17 (Clostridium botullinum) de la 7 edición de la AOAC.
 11.2.5 Salmonella. Se debe realizar de acuerdo con lo establecido en las normas AOAC 967.25, AOAC 967.25 y AOAC 967.28.
 11.2.6 Listeria monocytogenes. Se debe realizar de acuerdo con lo establecido en la norma USDA CAP 8.
-11.2.7 Coliformes fecales. Se debe realizar de acuerdo con lo establecido en el método APHA “Compendium of Methods for the microbiological examination of foods” Capítulo 8. FDA “Bacteriological Analytical Manual” Capítulo 4.
+11.2.7 Coliformes fecales. Se debe realizar de acuerdo con lo establecido en el método APHA "Compendium of Methods for the microbiological examination of foods" Capítulo 8. FDA "Bacteriological Analytical Manual" Capítulo 4.
 12. Empaque y embalaje
-12.1 El empaque primario de la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” pueden ser fundas sintéticas, tripas naturales o materiales para empaque al vacío, aprobadas para uso en alimentos a fin de garantizar la estabilidad del producto y salvaguardar la salud pública.
-12.2 Las características organolépticas y la composición de la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” no deben ser alteradas negativamente por el material de empaque primario.
-12.3 Para efectos de despacho, la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” deben tener como mínimo un embalaje secundario que los proteja de posibles contaminaciones.
-13. Etiquetado. El etiquetado de la “Salchicha”, el “Salchichón”, la “Mortadela” y el “Chorizo” deberán cumplir:
+12.1 El empaque primario de la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" pueden ser fundas sintéticas, tripas naturales o materiales para empaque al vacío, aprobadas para uso en alimentos a fin de garantizar la estabilidad del producto y salvaguardar la salud pública.
+12.2 Las características organolépticas y la composición de la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" no deben ser alteradas negativamente por el material de empaque primario.
+12.3 Para efectos de despacho, la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" deben tener como mínimo un embalaje secundario que los proteja de posibles contaminaciones.
+13. Etiquetado. El etiquetado de la "Salchicha", el "Salchichón", la "Mortadela" y el "Chorizo" deberán cumplir:
 13.1 Las especificaciones establecidas en la Legislación Nacional vigente, Decreto Ejecutivo Nº 26012-MEIC-. Etiquetado de los Alimentos Preenvasados, publicado en La Gaceta Nº 91 del 14 de mayo de 1997 y sus reformas y cuando corresponda con el Decreto Ejecutivo Nº 30256-MEIC-S. Etiquetado Nutricional de los Alimentos Preenvasados, publicado en La Gaceta Nº 71 del 15 de abril del 2002.
-13.2 En el caso de chorizo crudo la etiqueta deberá contener una leyenda que indique: “consumase bien cocido”.
+13.2 En el caso de chorizo crudo la etiqueta deberá contener una leyenda que indique: "consumase bien cocido".
 13.3 Incorporar el contenido promedio de proteína, grasa y carbohidratos, por 100 gramos de producto. Se considerará una tolerancia de ± 10% para estos macronutrientes respecto a su declaración en la etiqueta.
 14. Verificación
 14.1 El Ministerio de Economía, Industria y Comercio verificará lo establecido en el apartado 6. Designación, el apartado 7. Factores esenciales de Composición y Calidad, el apartado 12. Empaque, Embalaje y 13 Etiquetado.
@@ -248,21 +246,21 @@ Los métodos utilizados para los análisis nutricionales del Ministerio de Salud
 15. Bibliografía
 15.1 Codex Stan 1992-1995, Rev 7-2006 Norma General de Codex para los aditivos alimentarios.
 15.2 CAC/LMR 02-2006 Límites máximos de residuos para medicamentos veterinarios en los alimentos.
-15.3 INTE 13-01-01-05, “Norma general de productos cárnicos procesados — Norma general de embutidos no regulados por normas individuales — Vocabulario”.
+15.3 INTE 13-01-01-05, "Norma general de productos cárnicos procesados - Norma general de embutidos no regulados por normas individuales - Vocabulario".
 15.4 INTE-13-01-02-05. Norma general de productos cárnicos procesados. Norma general de embutidos no regulados por normas individuales. Especificaciones.
 15.5 INTE 13-01-06-06. Norma general de productos cárnicos procesados- Especificaciones para la salchicha.
 15.6 INTE 13-01-03-06 Norma general de productos cárnicos procesados. Especificaciones para el salchichón.
 15.7 INTE 13-01-04-06 Norma general de productos cárnicos procesados. Especificaciones para la mortadela.
 15.8 INTE 13-01-05-06 Norma general de productos cárnicos procesados. Especificaciones para el chorizo.
 15.9 INTE 02-01-03-03. Principios generales de Buenas Prácticas de Manufactura de Alimentos.
-15.10 ISO 2918, “Meat and Meat Products. Determination of Nitrite Content (Reference Method).
-15.11 ISO 3091, “Meat and Meat Products. Determination of Nitrate Content (Reference Method).
-15.12 ISO 4831, “Microbiology. General Guidance for the Enumeration of Coliforms. Most Probable Number Technique.
-15.13 ISO 15213, “Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Enumeration of Sulfite-Reducing Clostridia.
-15.14 ISO 6888-1, “Microbiology of Food and animal Feeding Stuffs - Horizontal Method for the Enumeration of Coagulase Positive Staphylococci (Staphylococcus Aureus and Other Species) by Colony - Count Technique at 35/37 Degrees C - Part 1: Technique With Confirmation of Colonies.
-15.15 ISO 6888-2, “Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Enumeration of Coagulase Positive Staphylococci (Staphylococcus Aureus and Other Species) by Colony - Count Technique at 35/37 Degrees C - Part 2: Technique Without Confirmation of Colonies.
-15.16 ISO 11290-1, “Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Detection and Enumeration of Listeria Monocytogenes -- Part 1. Detection Method.
-15.17 Métodos de ensayo de la USDA “Microbiology Laboratory Guidebook, tercera edición, 1998, volumen 1.
+15.10 ISO 2918, "Meat and Meat Products. Determination of Nitrite Content (Reference Method).
+15.11 ISO 3091, "Meat and Meat Products. Determination of Nitrate Content (Reference Method).
+15.12 ISO 4831, "Microbiology. General Guidance for the Enumeration of Coliforms. Most Probable Number Technique.
+15.13 ISO 15213, "Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Enumeration of Sulfite-Reducing Clostridia.
+15.14 ISO 6888-1, "Microbiology of Food and animal Feeding Stuffs - Horizontal Method for the Enumeration of Coagulase Positive Staphylococci (Staphylococcus Aureus and Other Species) by Colony - Count Technique at 35/37 Degrees C - Part 1: Technique With Confirmation of Colonies.
+15.15 ISO 6888-2, "Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Enumeration of Coagulase Positive Staphylococci (Staphylococcus Aureus and Other Species) by Colony - Count Technique at 35/37 Degrees C - Part 2: Technique Without Confirmation of Colonies.
+15.16 ISO 11290-1, "Microbiology of Food and Animal Feeding Stuffs - Horizontal Method for the Detection and Enumeration of Listeria Monocytogenes -- Part 1. Detection Method.
+15.17 Métodos de ensayo de la USDA "Microbiology Laboratory Guidebook, tercera edición, 1998, volumen 1.
 15.18 Capítulo 16 y 17 de la 7 edición de la AOAC para el Clostridium perfringens y Clostridium botullinum.
 15.19 CAC/RCP 13-1976. Código Internacional Recomendado de Prácticas de Higiene para los productos Cárnicos Elaborados.
 15.20 CAC/RCP 14-1976. Código Internacional Recomendado de Prácticas de Higiene para la Elaboración de la Carne de Aves de Corral, de la Comisión del Codex Alimentarius.
