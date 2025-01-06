@@ -1,0 +1,1 @@
+Artículo 5—Presupuestos Públicos. Los órganos, entes y empresas públicas podrán contemplar en sus presupuestos públicos (dentro del ámbito de sus competencias) recursos para coadyuvar con el funcionamiento del Consejo Distrital de Coordinación Institucional del CMD Peñas Blancas, que permitan ejecutar los planes, programas y proyectos.

@@ -1,0 +1,2 @@
+Artículo 8—Obligación de participar. Los entes estipulados en el artículo 1, tienen el deber de participar activamente del Consejo Distrital de Coordinación Interinstitucional y de cumplir las atribuciones enunciadas en el artículo 17 del Reglamento a la Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades N° 36004-PLAN.
+De igual forma será obligatorio para los entes dar seguimiento y cumplimiento a los acuerdos adoptados en su seno, que corresponden a sus respectivas instituciones.
