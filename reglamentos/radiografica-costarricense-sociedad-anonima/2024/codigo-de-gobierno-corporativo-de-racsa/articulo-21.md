@@ -1,1 +1,0 @@
-Artículo 21. Nombramiento de miembros externos de los Comités de apoyo de Junta Directiva. Los Comités de Apoyo contarán con miembros externos, los cuales serán designados por la Junta Directiva de acuerdo con lo indicado en el Proceso de Reclutamiento y Selección de Miembros Externos de los Comités de Apoyo a la Junta Directiva.

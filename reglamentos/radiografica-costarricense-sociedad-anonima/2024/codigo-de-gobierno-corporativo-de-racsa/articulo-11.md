@@ -1,2 +1,0 @@
-Junta Directiva
-Artículo 11. Composición. La Junta Directiva es el máximo órgano colegiado de RACSA, está integrada por tres miembros nombrados por del Instituto Nacional de Electricidad y dos miembros nombrados por la Compañía Radiográfica Internacional Costarricense Sociedad Anónima (CRICSA), y se nombran de acuerdo con lo establecido en el Procedimiento para la Selección de los Miembros de Órganos de Dirección de las Empresas del ICE. Son nombrados por la Asamblea de Accionistas, por el plazo legal que así dispongan.

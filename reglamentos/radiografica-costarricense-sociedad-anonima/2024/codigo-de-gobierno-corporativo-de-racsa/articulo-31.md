@@ -1,1 +1,0 @@
-Artículo 31. Contraloría General de la República. La Contraloría General de la República, ejercerá controles de fiscalización sobre la gestión empresarial de RACSA al ser una sociedad anónima que administra fondos públicos.

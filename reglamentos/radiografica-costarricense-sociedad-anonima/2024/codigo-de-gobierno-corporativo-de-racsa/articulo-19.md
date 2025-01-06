@@ -1,1 +1,0 @@
-Artículo 19. Proceso de formación Continua Comités de Apoyo. Para el adecuado ejercicio de sus funciones, los miembros de cada Comité de Apoyo adquieren el compromiso de actualizarse, mediante un proceso de formación continuo, sus conocimientos y destrezas en temas de interés del Comité.

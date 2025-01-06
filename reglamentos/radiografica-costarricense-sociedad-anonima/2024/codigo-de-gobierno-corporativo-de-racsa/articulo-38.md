@@ -1,1 +1,0 @@
-Artículo 38. Seguridad de la Información. Para garantizar la seguridad de la información y salvaguardar la confidencialidad, integridad y disponibilidad de la información, los Órganos de Gobierno Corporativo se comprometen a velar por lo dispuesto en la Política de Seguridad de la Información de RACSA y cualquier otra normativa relacionada a esta materia.
