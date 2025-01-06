@@ -1,19 +1,17 @@
-Artículo 12.- A la Asamblea General corresponde la suprema dirección
-del Colegio y sus atribuciones son:
-a) Elegir la Junta Directiva en reunión anual ordinaria, conocer de
-las renuncias de sus miembros y designar a los sustitutos en
-caso de aceptarlas;
-b) Conocer de los informes que rinda la Junta Directiva;
-c) Aprobar o revocar las disposiciones de la Junta Directiva en
-caso de apelación;
-d) Conocer de las quejas que se presenten contra los miembros de la
-Junta Directiva;
-e) Dictar y modificar los reglamentos necesarios para que el
-Colegio cumpla sus funciones o logre sus fines, los cuales
-deberán interpretar fielmente el espíritu de la presente ley;
-f) Imponer, cuando proceda, correcciones disciplinarias a los
-miembros del Colegio; y
-g) Cumplir las demás disposiciones que le señalen esta ley, el
-Reglamento del Colegio y otras leyes.
-La Asamblea se reunirá extraordinariamente cuando lo pidan no menos
-de diez miembros del Colegio.
+Artículo 12- A la Asamblea General le corresponde la suprema dirección del Colegio y sus atribuciones son:
+a) Conocer el resultado de las elecciones ordinarias de la Junta Directiva y juramentar a las personas electas.
+b) Conocer de las renuncias de sus miembros de Junta Directiva y designar a los sustitutos, en caso de aceptarlas.
+c) Conocer de los informes que rinda la Junta Directiva.
+d) Aprobar o revocar las disposiciones de la Junta Directiva, en caso de apelación.
+e) Conocer de las quejas que se presenten contra los miembros de la Junta Directiva, previo informe preparado al efecto por la persona que ocupe el cargo de fiscal de la Junta Directiva. Previo a la presentación del informe, el fiscal, respetando el debido proceso, deberá realizar la investigación preliminar, de conformidad con lo dispuesto por la Ley 6227, Ley General de la Administración Pública, de 2 de mayo de 1978. Según la gravedad de la falta cometida, la Asamblea General, por acuerdo firme de las dos terceras partes de los miembros presentes, podrá acordar sancionar a cualquiera de los miembros de la Junta Directiva mediante una amonestación escrita, la suspensión del ejercicio del cargo hasta por tres meses o la destitución.
+f) Dictar y modificar los reglamentos necesarios para que el Colegio cumpla sus funciones o logre sus fines, los cuales deberán interpretar fielmente el espíritu de la presente ley.
+g) Conocer los recursos que interpongan los agremiados contra las resoluciones de la Junta Directiva. La persona interesada deberá presentar la apelación de los acuerdos recurribles en la Secretaría de la Junta Directiva, por escrito y dentro de cinco días hábiles, plazo que correrá a partir de la comunicación
+del acuerdo con los interesados.
+h) Nombrar el Tribunal Electoral, el cual estará integrado por cinco personas colegiadas, quienes durarán en sus cargos dos años, con posibilidad de ser reelegidas. En el mismo acto se nombrarán dos suplentes, quienes serán llamados a ocupar las ausencias temporales de los miembros propietarios del Tribunal.
+i) Cumplir las demás disposiciones que le señalen esta ley, el reglamento del Colegio y otras leyes.
+La Asamblea General se reunirá ordinariamente en la cuarta semana del mes de noviembre de cada año y, extraordinariamente, cuando lo soliciten, a la Junta Directiva, la persona nombrada como fiscal propietario o no menos de un uno por ciento (1 %) de los miembros del Colegio.
+La elección general de la Junta Directiva y Fiscalía se realizará mediante elección abierta, a celebrarse en la segunda semana de noviembre de cada año, para lo cual el Tribunal Electoral convocará según el Reglamento de Elecciones, que al efecto deberá dictar la Asamblea General.
+En ese proceso podrán participar todos los miembros activos y resultará elegida la papeleta que obtenga el mayor número de votos válidos emitidos. Los votos nulos o en blanco no se sumarán a ningún grupo.
+La votación podrá realizarse por medios o dispositivos electrónicos, o de manera presencial en los centros de votación que para tal propósito deban habilitarse, según lo disponga el Tribunal Electoral y su reglamento.
+Las personas electas serán juramentadas por la Presidencia del Tribunal Electoral, en la Asamblea General ordinaria, e iniciarán funciones el primer día hábil del mes de enero siguiente.
+(Así reformado por el artículo 2° de la ley N° 10623 del 6 de enero del 2025)

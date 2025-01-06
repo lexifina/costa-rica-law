@@ -1,3 +1,8 @@
-Artículo 23.—Recibida una denuncia, la Junta Directiva la trasladará al fiscal de la Junta Directiva, para que este proceda a presentar, dentro de los ochos días hábiles siguientes, un informe debidamente razonado a la Junta Directiva, en el que deberá recomendar pasar el caso al Tribunal de Honor o archivar el expediente.
-Este informe será necesario aún en aquellos casos donde la denuncia sea de oficio. La Junta Directiva tendrá diez días hábiles para trasladar el asunto al Tribunal de Honor o archivarlo. Contra la resolución que ordene archivar el caso, cabrá recurso de revocatoria y apelación ante la Asamblea General.
-( Así reformado por el artículo 1° de la Ley N° 8437 del 13 de abril del 2005)
+Artículo 23- La Fiscalía del Colegio estará integrada por un miembro titular y uno suplente, con una vigencia de dos años y será elegido por papeleta el mismo día de la elección de la Junta Directiva. Deberá respetarse la paridad de género entre la Fiscalía propietaria y la Fiscalía suplente, quien sustituirá a la Fiscalía propietaria en sus ausencias temporales o definitivas. La Fiscalía tendrá las siguientes atribuciones:
+a) Velar por la observancia de esta ley y los reglamentos de funcionamiento del Colegio.
+b) Participar en las sesiones de Junta Directiva, comisiones o cualquier otro órgano del Colegio, con voz pero sin voto.
+c) Convocar a la Asamblea extraordinaria, cuando algún asunto de su competencia lo amerite.
+d) Instruir de forma previa los procesos disciplinarios contra los integrantes del Colegio, para que sean de conocimiento del Tribunal de Honor.
+e) Fiscalizar a los regentes de los establecimientos médicos veterinarios, según el reglamento interno.
+f) Cualquier otra inherente a su gestión de control y fiscalización.
+(Así reformado por el artículo 2° de la ley N° 10623 del 6 de enero del 2025)

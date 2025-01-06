@@ -1,6 +1,4 @@
-Artículo 24.- Contra las resoluciones de la Junta Directiva, procede
-el recurso de revocatoria que resolverá la misma Junta Directiva, y el de
-apelación para ante la Asamblea General. Ambos recursos pueden
-establecerse separada o conjuntamente a más tardar el día de la sesión
-ordinaria siguiente de la Junta Directiva, la cual convocará
-inmediatamente a la Asamblea General en caso de apelación.
+Artículo 24- Contra las resoluciones de la Junta Directiva procede el recurso de revocatoria, que resolverá la misma Junta Directiva y, el de apelación, para ante la Asamblea General. Ambos recursos deberán interponerse dentro del término de tres días contados a partir de la comunicación del acuerdo respectivo. Rechazado el recurso de revocatoria, la Junta Directiva, en el mismo acuerdo, convocará a la Asamblea General para conocer y resolver la apelación.
+Contra las resoluciones de la Junta Directiva que conozca en apelación de las resoluciones del Tribunal de Honor, ordene el inicio de un procedimiento disciplinario, deniegue la comparecencia oral o la admisión de cualquier prueba o la resolución final, únicamente cabrá recurso de revocatoria, que resolverá la misma Junta Directiva.
+Contra los acuerdos de la Junta Directiva relativos a nombramientos del personal administrativo, los asesores requeridos por el Colegio y la designación de día y hora para la celebración de sus sesiones, únicamente cabe recurso de revocatoria.
+(Así reformado por el artículo 2° de la ley N° 10623 del 6 de enero del 2025)
