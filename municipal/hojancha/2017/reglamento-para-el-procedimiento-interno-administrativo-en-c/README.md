@@ -14,3 +14,4 @@ Reglamento para el Procedimiento Interno Administrativo en casos de Hostigamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-17 | la propia norma |
+| 2 | 2025-01-06 | Reglamento municipal 36 (2025-01-06) |
