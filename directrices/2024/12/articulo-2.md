@@ -1,0 +1,2 @@
+Artículo 2.- La columna salarial global actualizada de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: (https://www.empleopublico.mideplan.go.cr/) .
+(Nota de Sinalevi: La columna salarial global actualizada de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), pude ser consulta en el siguiente enlace: Enlace)
