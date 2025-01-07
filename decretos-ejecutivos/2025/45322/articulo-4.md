@@ -1,0 +1,6 @@
+ARTICULO 4: Del trámite inicial: Toda persona profesional en medicina o enfermería que reciba información de una mujer gestante o su el esposo, conviviente o quien haya aportado el material genético, que indique su desinterés en el ejercicio de la parentalidad y su interés en dar a su hijo (a) en adopción, deberá, de forma inmediata:
+a) Brindarle la información acerca de la Ley N° 10.506 y su reglamento.
+b) Elaborar referencia y derivar a la mujer gestante a la Oficina Local del Patronato Nacional.
+c) Poner el asunto en conocimiento mediante una referencia interinstitucional a la instancia competente del PANI.
+d) Dejar registro de lo actuado en el expediente de salud.
+Los servicios de salud públicos o privados serán responsables de brindar información de manera oportuna, clara y suficiente ante una solicitud, para lo que podrán utilizar distintos formatos escritos o audiovisuales, los cuales deberán incluir los siguientes contenidos mínimos: breve descripción del proceso de acogimiento prenatal y procedimiento de referencia al PANI., derechos y deberes de la mujer gestante, mecanismos de apoyo social y psicológico, centros de contacto del PANI, líneas de urgencia para la atención de emergencias (Anexo 1 Folleto informativo de solicitud de acogimiento prenatal).

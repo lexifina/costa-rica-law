@@ -1,0 +1,1 @@
+ARTÍCULO 16.- Resolución Administrativa de cuido provisional: Una vez nacida la persona menor de edad y definido el egreso con la familia potencialmente adoptiva, el Departamento de Adopciones del PANI, mediante resolución administrativa, ordenará el cuido y la protección provisional directa en la familia potencialmente adoptiva.

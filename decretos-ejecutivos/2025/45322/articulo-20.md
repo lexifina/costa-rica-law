@@ -1,0 +1,1 @@
+ARTÍCULO 20.- De las notificaciones: Todas las resoluciones administrativas que se emitan con ocasión de la aplicación de este reglamento, deben ser debidamente notificadas a la mujer gestante, su esposo, conviviente o de quien haya aportado el material genético de la fecundación.
