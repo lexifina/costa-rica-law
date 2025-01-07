@@ -14,3 +14,4 @@ No se renovarán contratos de servicios de televisión pagada en instituciones p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-06 | la propia norma |
+| 2 | 2025-01-07 | Directriz 47 (2025-01-07) |

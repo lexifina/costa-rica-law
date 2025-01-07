@@ -9,10 +9,12 @@ III. Que para enfrentar la situación antes descrita, el Gobierno de la Repúbli
 IV. Que en ejercicio del poder de dirección, el Poder Ejecutivo ha emitido Directrices con el fin de establecer medidas de contención del gasto.
 V. Que a pesar de los esfuerzos apuntados para atender las necesidades de financiamiento del Presupuesto Nacional, se requiere tomar otras acciones inmediatas que permitan continuar con la operatividad y el funcionamiento del Estado costarricense.
 VI. Que deviene de interés público priorizar el pago y racionalizar el uso de los recursos para atender las obligaciones con cargo al Presupuesto Nacional, todo ello buscando la mayor protección de los sectores más vulnerables.
-VII. Que el Artículo 69 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas, establece que “No podrán emitirse órdenes de pago si no existen fondos para hacerlas efectivas.”
+VII. Que el Artículo 69 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas, establece que "No podrán emitirse órdenes de pago si no existen fondos para hacerlas efectivas."
 Por tanto, emite la siguiente,
 Directriz
-“SOBRE NO RENOVACIÓN DE CONTRATOS DE SERVICIOS DE TELEVISIÓN PAGADA EN INSTITUCIONES PÚBLICAS”
+"SOBRE NO RENOVACIÓN DE CONTRATOS DE SERVICIOS DE TELEVISIÓN PAGADA EN INSTITUCIONES PÚBLICAS"
 DIRIGIDA AL SECTOR PÚBLICO
-ARTÍCULO 1º- No se iniciarán procesos de contratación que conlleven nuevas obligaciones para el Gobierno Central, referentes a servicios de televisión pagada, satelital o por cable. En el caso de los ya iniciados que se encuentren sin adjudicar, cada jerarca deberá valorar cuáles de ellos pueden rescindirse.
+Artículo 1°-No se iniciarán procesos de contratación que conlleven nuevas obligaciones para el Gobierno Central, referentes a servicios de televisión pagada, satelital o por cable. En el caso de los ya iniciados que se encuentren sin adjudicar, cada jerarca deberá valorar cuáles de ellos pueden rescindirse.
+Se exceptúa de esta Directriz a la Dirección de Información y Comunicación de la Presidencia de la República, por motivo de la naturaleza de las funciones que realiza, así como las responsabilidades y tareas que han sido asignadas y delegadas.
 Lo dispuesto en el primer párrafo de este artículo no resulta aplicable a las contrataciones ya existentes y que por subsistir la necesidad que las origina, deban ser renovadas o sustituidas. Lo anterior, en el tanto las condiciones presupuestarias lo permitan.
+(Así reformado por el artículo 1° de la directriz N° 047-H-MP del 7 de enero de 2025)
