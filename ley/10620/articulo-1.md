@@ -1,4 +1,5 @@
 No. 10620
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 000380 del 7 de enero del 2025, se evacua la consulta formulada en el sentido de que el proyecto de "Ley de Presupuesto Ordinario y Extraordinario de la República para el ejercicio económico 2025", que se tramitó bajo el expediente legislativo N° 24.535, es inconstitucional por omisión, en cuanto dejó de establecer el porcentaje correspondiente al 8% del Producto Interno Bruto en el presupuesto del Ministerio de Educación Pública para financiar la Educación Pública, lo anterior, en perjuicio del Derecho Constitucional a la educación gratuita y costeada por la Nación. En lo demás, no ha lugar a evacuar la consulta.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA DECRETA:
 LEY DE PRESUPUESTO ORDINARIO Y EXTRAORDINARIO DE LA REPÚBLICA PARA EL
 EJERCICIO ECONÓMICO 2025
