@@ -1,0 +1,1 @@
+Artículo 7º-Procedimiento Sancionador. El procedimiento sancionador se iniciará con la detección de la infracción y levantamiento del parte o acta correspondiente en el cual se le indica en el acto la multa la cual corresponde a medio salario base según indica la norma, articulo 20 de la ley 9047, Ley para Regulación Y Comercialización De Bebidas Con Contenido Alcohólico.
