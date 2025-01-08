@@ -1,1 +1,0 @@
-Artículo 4.- Metodología de trabajo. La Presidencia entregará en la primera sesión de la Comisión posterior a su instalación propuesta de protocolo, de la metodología de organización y funcionamiento para someterla a consideración de los miembros de la misma.
