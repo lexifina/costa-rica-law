@@ -1,0 +1,1 @@
+Artículo 2.- Oficialícese para efectos de aplicación obligatoria en los servicios de salud públicos, privados y mixtos, la" Norma Nacional para la Atención Integral del Sobrepeso y Obesidad" según legajo anexo, el cual forma parte integral del presente Decreto Ejecutivo.

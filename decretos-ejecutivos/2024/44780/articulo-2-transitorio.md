@@ -1,0 +1,1 @@
+Transitorio II. Los servicios de salud públicos, privados y mixtos, hacia los cuales va. dirigida esta norma, disponen del plazo d\: cinco años a partir de la publicación del presente Decreto Ejecutivo, para contar con el recurso humano necesario, para la atención integral del sobrepeso y la obesidad o la coordinación y articulación entre instancias para cubrirlo.
