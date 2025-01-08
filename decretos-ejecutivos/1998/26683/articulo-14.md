@@ -1,10 +1,11 @@
-Artículo 14.—Del secretario: Corresponde al secretario del Consejo, lo siguiente:
-A. Comunicar a los demás Miembros el orden del día de las sesiones ordinarias con suficiente anticipación a la fecha de la reunión.
-B. Registrar en el libro respectivo las actas aprobadas por la Comisión, firmando al pie de ellas, como constancia de la fidelidad del registro.
-C. Notificar oportunamente los acuerdos que dicte la Comisión y la recepción de personas interesadas que conceda el Presidente.
-D. Redactar correspondencia y firmar aquellas notas que le delegue el Presidente.
-E. Organizar y mantener al día el archivo del Consejo.
-F. Llevar la asistencia a las sesiones, dejando constancia de ello en las actas, así como las justificaciones, si las hubieren, de las ausencias y llegadas tardías.
-G. Llevar la minuta de lo tratado en las sesiones y redactar las actas cuidando de dejar constancia clara y precisa de las deliberaciones, acuerdos y resoluciones tomadas.
-H. Cualquier otra función que le asigne el Consejo.
-(Rectifícada la indexación literal del inciso anterior por el artículo 5° del decreto ejecutivo N° 38517 del 22 de mayo del 2014. Anteriormente se indicaba inciso h)
+Artículo 14.-Del Secretario (a): La Comisión tendrá un secretario (a), quien será la persona que ocupe el cargo de Director (a) de Tecnologías de Información o su representante.
+En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el Secretario (a) será sustituido por un Secretario (a) ad-hoc según lo designen los integrantes de la Comisión.
+Corresponde al Secretario (a) de la Comisión, lo siguiente:
+a) Grabar las sesiones de la Comisión y levantar las actas correspondientes, las cuales constituirán una transcripción literal de todas las intervenciones efectuadas en apego a los principios constitucionales de razonabilidad y proporcionalidad, garantizando con ello la publicidad y el acceso a las personas con interés legítimo a todos estos registros.
+b) Comunicar los acuerdos de la Comisión, cuando ello no corresponda al presidente (a).
+c) Comunicar a los demás miembros el orden del día de las sesiones ordinarias con suficiente anticipación a la fecha de la reunión.
+d) Redactar correspondencia y firmar aquellas notas que le delegue el Presidente (a).
+e) Organizar y mantener al día el archivo de la Comisión, tanto el digital como el físico.
+f) Cualquier otra función que le asigne la Comisión.
+g) Las demás que le asignen las leyes y reglamentos.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 44898 del 8 de enero de 2025)
