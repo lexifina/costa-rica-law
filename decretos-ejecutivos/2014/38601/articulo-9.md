@@ -1,9 +1,7 @@
-Artículo 9º—Funciones de la Comisión. Corresponderán a la Comisión Seleccionadora del Fondo becas-taller, las siguientes funciones:
-a) Verificar que las propuestas y los postulantes cumplen con los requisitos establecidos en el presente reglamento.
-b) Contactar a los postulantes con el fin de aclarar dudas o solicitar mayor información sobre el proyecto, en caso de ser necesario.
-c) Fijar el número de proyectos que se apoyarán por cada región y los montos que se asignarán.
-d) Realizar el estudio y selección de los proyectos recibidos, priorizándolos según su pertinencia e impacto a escala local, comunitaria y/o nacional, procurando respetar una distribución equitativa entre todas las regiones geográficas en las cuales se hayan recibido propuestas.
-e) Consultar a especialistas de los diversos órganos desconcentrados y programas del Ministerio de Cultura y Juventud, o de otras organizaciones vinculadas a las temáticas de los proyectos, sobre los aspectos técnicos específicos referidos a los distintos ámbitos culturales, cuando se considere indispensable para valorar la viabilidad y pertinencia técnica de las propuestas concursantes.
-f) Elaborar un acta de cada sesión de trabajo, en la que deberán justificarse las recomendaciones emitidas, consignando específicamente el nombre de los candidatos y proyectos seleccionados y excluidos, y consignando los criterios y las justificaciones utilizadas para aprobar o rechazar las propuestas.
-CAPÍTULO III
-De los requisitos de los proyectos y los postulantes
+Artículo 9.-Funciones de la Comisión. Corresponderán a la Comisión Seleccionadora del Fondo. las siguientes funciones:
+a) Evaluar las propuestas postuladas, verificando que cumplen con los requisitos establecidos en el presente reglamento.
+b) Realizar el análisis y selección de los proyectos recibidos. priorizándolos según su coherencia técnica, pertinencia e impacto a escala local. comunitaria y/o nacional, procurando respetar una distribución equitativa entre todas las regiones geográficas en las cuales se hayan recibido propuestas. siempre que exista dicha posibilidad bajo los criterios de evaluación establecidos.
+c) Justificar en la herramienta de evaluación de cada convocatoria. el puntaje o evaluación dado a cada propuesta analizada. a fin de que esta sea devuelta a la persona u organización postulada para su retroalimentación.
+d) Consultar a especialistas de los diversos órganos desconcentrados y programas del Ministerio de Cultura y Juventud. o de otras organizaciones vinculadas a las temáticas de los proyectos, sobre los aspectos técnicos específicos referidos a los distintos ámbitos culturales, cuando se considere indispensable para valorar la viabilidad y pertinencia técnica de las propuestas concursantes.
+e) Elaborar un acta de cada sesión de trabajo. en la que deberán justificarse las recomendaciones emitidas, consignando específicamente el nombre de las personas postulantes y proyectos seleccionados y excluidos. y consignando los criterios y las justificaciones utilizadas para aprobar o rechazar las propuestas.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 44872 del 8 de enero del 2025)

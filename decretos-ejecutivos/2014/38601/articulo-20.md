@@ -1,2 +1,3 @@
-Artículo 20.—Plazo. La ejecución de los proyectos beneficiarios del Fondo, deberá realizarse en el término planteado en su formulación, que no podrá ser inferior a seis meses, ni superior a dos años.
-La Dirección de Cultura podrá autorizar ampliaciones extraordinarias a los proyectos, a partir de los resultados obtenidos durante el período ordinario de ejecución. Dichas ampliaciones podrán autorizarse hasta un término máximo de dos años.
+Artículo 20.-Plazo. La ejecución de los proyectos beneficiarios del Fondo, deberá realizarse en el término planteado en su formulación, que no podrá ser inferior a seis meses, ni superior a dos años.
+La Dirección de Gestión Sociocultural (**) podrá autorizar ampliaciones extraordinarias a los proyectos, a partir de los resultados obtenidos durante el período ordinario de ejecución. Dichas ampliaciones podrán autorizarse hasta un término máximo de dos años.
+(**)(Así modificada su denominación por el artículo 15 del decreto ejecutivo N° 44872 del 8 de enero del 2025.Anteriormente indicaba "Dirección de Cultura")
