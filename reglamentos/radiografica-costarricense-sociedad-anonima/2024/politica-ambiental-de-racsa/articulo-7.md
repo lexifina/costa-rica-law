@@ -1,0 +1,1 @@
+Artículo 7°-Alineamiento. El Departamento de Estrategia e Innovación mantendrá la coordinación apropiada con las unidades operativas de las empresas del Grupo ICE, en materia de gestión ambiental y la actualización constante de lineamientos corporativos vinculantes y conducentes a mejorar y regular el desempeño.

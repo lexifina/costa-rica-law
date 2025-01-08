@@ -1,0 +1,1 @@
+Artículo 3°-Gestión Integral de Residuos y Prevención de Contaminación. Con el objetivo de prevenir, minimizar y controlar la contaminación que potencialmente generará la operación de RACSA, se ejecutará un Plan de Gestión Integral de Residuos, integrado al PGAI. Especial importancia tendrá la sensibilización dentro y fuera de RACSA en buenas prácticas ambientales.

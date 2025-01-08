@@ -1,0 +1,1 @@
+Artículo 9°-Revisión. La Política Ambiental debe ser revisada anualmente por la Alta Gerencia de RACSA y en caso de que sea necesario se actualizará y someterá a conocimiento y aprobación de la Junta Directiva.
