@@ -1,0 +1,1 @@
+Artículo 49° - En caso de pérdida total o parcial por accidente o robo, los costos correspondientes a los daños directos y/o a terceros corresponden a la institución beneficiada con el préstamo del vehículo.

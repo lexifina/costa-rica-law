@@ -1,0 +1,1 @@
+Artículo 22° - El Funcionario Contralor de Equipo Móvil de la Municipalidad tendrá la responsabilidad de evaluar, periódicamente, las alternativas más convenientes desde el punto de vista técnico y económico, que le permitan a la institución resolver sus requerimientos de vehículos en forma oportuna, eficiente y eficaz.

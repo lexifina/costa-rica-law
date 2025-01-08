@@ -1,0 +1,1 @@
+Artículo 38° - Con el propósito de que los vehículos de la Municipalidad circulen ajustándose a las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, se prohíbe colocar adornos, tanto en el interior como en el exterior de estos, o mantener objetos en el panel de instrumentos.

@@ -1,0 +1,1 @@
+Artículo 53° - Para efectos de interpretación e integración, en lo no regulado en este reglamento habrá de remitirse a las normas de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley General de la Administración Pública y demás normativa de derecho público aplicable.

@@ -1,0 +1,1 @@
+Artículo 11° - Cuando las necesidades institucionales así lo requieran o en casos excepcionales, dichos vehículos podrán ser utilizados por usuarios institucionales, para lo cual deberá contarse con el consentimiento escrito del titular de la Alcaldía.

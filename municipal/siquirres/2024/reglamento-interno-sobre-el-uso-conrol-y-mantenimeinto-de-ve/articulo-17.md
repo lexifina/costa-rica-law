@@ -1,0 +1,1 @@
+Artículo 17° - Los vehículos municipales o alquilados tendrán prioridad en el estacionamiento del Plantel Municipal o en el lugar asignado para este efecto. Será responsabilidad del personal de vigilancia destacado en cada edificio velar por el cumplimiento de lo aquí dispuesto.

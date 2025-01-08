@@ -1,0 +1,1 @@
+Artículo 32° - El Funcionario Contralor de Equipo Móvil de la Municipalidad podrá recomendar la suspensión del permiso de conducir vehículos municipales a cualquier conductor de la institución que contravenga lo dispuesto en la Ley de Tránsito, otras leyes vigentes en la materia y este reglamento.

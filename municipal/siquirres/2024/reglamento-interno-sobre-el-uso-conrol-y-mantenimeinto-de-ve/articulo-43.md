@@ -1,0 +1,1 @@
+Artículo 43° - En todo momento, el conductor deberá observar una conducta respetuosa con las autoridades de Tránsito. En caso de accidento o colisión, se limitará a expresar su versión de lo sucedido.

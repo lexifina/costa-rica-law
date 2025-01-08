@@ -1,0 +1,1 @@
+Artículo 13° - El Funcionario Contralor de Equipo Móvil de la Municipalidad determinará, de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio solicitado.

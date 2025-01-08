@@ -1,0 +1,2 @@
+Artículo 3° - Los vehículos de toda clase propiedad de la Municipalidad, sólo podrán ser conducidos por aquellos funcionarlos que estén nombrados como choferes con los requisitos establecidos en el Manual de Puestos de la Municipalidad.
+También la Administración podrá autorizar a otros funcionarios para que puedan operar estos vehículos. De estas autorizaciones se llevará un registro y se extenderá un carnet a los funcionarios autorizados, de acuerdo con las disposiciones de este Reglamento.

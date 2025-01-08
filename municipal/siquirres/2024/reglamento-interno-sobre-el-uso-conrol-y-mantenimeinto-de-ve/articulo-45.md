@@ -1,0 +1,2 @@
+Artículo 45° - El Funcionario Contralor de Equipo Móvil de la Municipalidad tendrá la facultad de analizar e investigar todo accidente de tránsito en que participe un vehículo municipal, de lo cual rendirá un informe, con la recomendación respectiva, al titular de la Alcaldía.
+Para aplicar cualquier sanción por el incumplimiento de las obligaciones emanadas de este Reglamento, debe seguirse lo estipulado en el Capítulo XXIX del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Siquirres

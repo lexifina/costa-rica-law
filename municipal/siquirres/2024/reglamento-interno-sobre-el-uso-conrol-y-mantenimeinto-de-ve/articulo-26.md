@@ -1,0 +1,1 @@
+Artículo 26° - El Funcionario Contralor de Equipo Móvil de la Municipalidad deberá recomendar la venta, subasta o canje de unidades que, por alguna circunstancia, han dejado de ser útiles para la institución. Para lo anterior, aplicará los mecanismos que para tal efecto están autorizados para la institución.
