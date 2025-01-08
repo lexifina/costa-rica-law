@@ -1,0 +1,1 @@
+Artículo 18.-Cuando exista posibilidad de que la Intendencia Municipal o un funcionario, realicen el transporte al o los concejales y/o síndicos, con vehículo municipal no mediara ningún pago. Esto se deberá consultar al intendente antes del inicio de la sesión. Acuerdo unánime y firme.

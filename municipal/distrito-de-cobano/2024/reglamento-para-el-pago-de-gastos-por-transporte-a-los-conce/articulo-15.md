@@ -1,0 +1,1 @@
+Artículo 15.-Para los efectos: reconocimiento de gastos de transporte, se estará a lo dispuesto por el Concejo Municipal, para el horario de las sesiones ordinarias y extraordinarias, a celebrar por éste y/o sus Comisiones, ya sea en la sede usual del Concejo, o en cualquier otro lugar donde se realice la sesión y así lo haya acordado el Concejo por acuerdo firme.

@@ -1,0 +1,1 @@
+Artículo 14.-El gasto de transporte se reconocerá de la sede del Concejo Municipal al lugar de residencia de los concejales y síndicos, propietarios o suplentes, en caso de sesiones extraordinarias en otros lugares, se deberá indicar el lugar donde esa sesión se lleve a cabo.

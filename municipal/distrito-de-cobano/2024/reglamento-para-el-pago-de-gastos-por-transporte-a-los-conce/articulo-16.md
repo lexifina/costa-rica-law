@@ -1,0 +1,1 @@
+Artículo 16.-Los viáticos correspondientes a transporte, se reconocerán a dichas personas, únicamente cuando la distancia desde el lugar de sesiones de este Concejo y el domicilio del concejal, sea mayor a 10 kilómetros y se cumpla además lo indicado en el artículo 3 y 4 de este reglamento.

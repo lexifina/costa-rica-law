@@ -1,0 +1,1 @@
+Artículo 8°-Una vez verificado el cumplimiento de los requisitos que establece el reglamento, la contabilidad o tesorería, según corresponda, solicitará a los encargados de presupuestos que haga constar la asignación presupuestaria para cubrir estos gastos.
