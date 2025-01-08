@@ -1,1 +1,0 @@
-Artículo 2º-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante la resolución MH-DGH-RES-0037-2024, del 05 de julio de 2024, publicada en La Gaceta número 128 del 12 de julio de 2024.
