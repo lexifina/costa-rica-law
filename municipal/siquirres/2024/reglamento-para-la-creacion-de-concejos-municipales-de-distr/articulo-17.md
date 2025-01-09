@@ -1,0 +1,1 @@
+Artículo 17.-El Concejo Municipal establecerá el horario de votación, no pudiendo ser inferior a seis horas, ni mayor de doce horas. Este tiene la obligación de tomar las medidas necesarias a fin de garantizar un ambiente de seguridad y tranquilidad el día de las elecciones.

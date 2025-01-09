@@ -1,0 +1,1 @@
+Artículo 14.-La formulación de la pregunta objeto de plebiscito debe ser clara y concisa, de modo que se eviten interrogaciones confusas, capciosas o de doble sentido. Salvo casos excepcionales, la pregunta será cerrada y formulada de manera que se pueda contestar con un "SI" o un "NO".

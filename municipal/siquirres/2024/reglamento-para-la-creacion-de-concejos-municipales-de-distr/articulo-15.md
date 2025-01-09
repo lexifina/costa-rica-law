@@ -1,0 +1,1 @@
+Artículo 15.-El Concejo Municipal elaborará las papeletas que serán usadas en la votación del plebiscito, las cuales contendrán la pregunta que se somete a consulta y las casillas para marcar la respuesta. El Tribunal Supremo de Elecciones asesorará a la Municipalidad en cuanto a las seguridades básicas en la confección y manejo de la documentación electoral que sea necesaria.

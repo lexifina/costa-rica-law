@@ -1,0 +1,2 @@
+Artículo 13.-El Concejo Municipal establecerá los límites de la propaganda, debiendo cerrarse el período de campaña al menos un día antes de la realización del plebiscito.
+Así mismo, el Concejo Municipal tiene la responsabilidad de velar porque la información que circule sea veraz, respetuosa, y no induzca a confusión o a error al electorado, pudiendo por medio de acuerdo tomado al respecto, retirar aquella que no cumpla con lo indicado.
