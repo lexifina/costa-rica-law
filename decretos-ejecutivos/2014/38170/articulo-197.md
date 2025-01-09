@@ -1,0 +1,2 @@
+Artículo 197.- (Nota de Sinalevi: El texto de este artículo puede ser consultado en el numeral 175, ya que mediante el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 178 al artículo 197)

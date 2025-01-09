@@ -1,4 +1,9 @@
-CAPÍTULO IX
-Disposiciones finales
-Artículo 172.-La implementación de las decisiones originadas en las dependencias y órganos que conforman las Oficinas Centrales del MEP, cuya ejecución debe cumplirse en el ámbito regional, serán realizadas por medio de la estructura regional, de conformidad con las circulares, directrices y lineamientos dictados para tales efectos por el Nivel Político o, en su defecto, por las Direcciones que conforman el Área de Planificación Institucional y Coordinación Regional, el Área Académica y el Área Administrativa, previo visto bueno del correspondiente Viceministro.
-(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 175 al 172, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+Artículo 172.- Para el cumplimiento de sus funciones la Dirección de Informática de Gestión contará con las siguientes dependencias:
+a) Departamento de Adquisición Tecnológica.
+b) Departamento de Bases de Datos y Seguridad.
+c) Departamento de Gestión y Control Informático.
+d) Departamento de Redes y Telecomunicaciones.
+e) Departamento de Soporte Técnico.
+f) Departamento de Sistemas de Información.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 156 al 153, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 153 al artículo 172)

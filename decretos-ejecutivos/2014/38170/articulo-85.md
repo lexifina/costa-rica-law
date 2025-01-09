@@ -1,4 +1,4 @@
-Artículo 85.—Para el cumplimiento de sus funciones, el Departamento de Educación Intercultural (DEI) contará con dos unidades: la Unidad de Educación Indígena y la Unidad de Contextualización y Pertinencia Cultural.
+Artículo 85.-Para el cumplimiento de sus funciones, el Departamento de Educación Intercultural (DEI) contará con dos unidades: la Unidad de Educación Indígena y la Unidad de Contextualización y Pertinencia Cultural.
 En materia de Educación Indígena le corresponde:
 a) Contribuir al cumplimiento del mandato constitucional que establece que, aunque el español es el idioma oficial de la Nación, el Estado velará por el mantenimiento y cultivo de las lenguas indígenas nacionales, por medio de la promoción de la educación bilingüe y pluricultural en las instituciones educativas de las comunidades indígenas.
 b) Coordinar con las autoridades educativas definidas en el ordenamiento jurídico para los territorios indígenas, de conformidad con la normativa que regula el funcionamiento del Subsistema de Educación Indígena y de las Direcciones Regionales de Educación.
@@ -9,7 +9,8 @@ f) Brindar la asesoría técnica necesaria para el desarrollo de las ofertas edu
 g) Proponer directrices técnicas requeridas para la evaluación de los procesos de aprendizaje y la calidad de las ofertas educativas dirigidas a las comunidades indígenas, de conformidad con la normativa vigente, en coordinación con el Departamento de Evaluación de los Aprendizajes de la Dirección de Desarrollo Curricular, la Dirección de Gestión y Evaluación de la Calidad, así como las Direcciones Regionales de Educación.
 h) Proponer estrategias de articulación y correlación entre las distintas asignaturas, y ofertas del sistema educativo para las comunidades educativas indígenas.
 i) Formular estratégicas para la sensibilización e incorporación de la comunidad y la familia en los procesos educativos.
-j) Asesorar a la Dirección de Recursos Humanos durante el proceso de reclutamiento del personal en los territorios indígenas, de conformidad con lo establecido en el bloque de legalidad aplicable.
+j) Asesorar a la Dirección de Gestión del Talento Humano (*) durante el proceso de reclutamiento del personal en los territorios indígenas, de conformidad con lo establecido en el bloque de legalidad aplicable.
+(*)(Así modificada la denominación anterior por el artículo 1° del decreto ejecutivo N° 44911 del 9 de enero del 2025. Anteriormente indicaba " Dirección de Recursos Humanos")
 k) Otras funciones inherentes, relacionadas con su ámbito de competencia y sus atribuciones, asignadas por el superior jerárquico.
 En materia de Contextualización y Pertinencia Cultural:
 a) Coordinar la asesoría técnica del nivel central y la formulación de directrices para el desarrollo de la educación intercultural y la generación de planes de contextualización y pertinencia cultural en el nivel de las regiones educativas del país para los distintos niveles, ciclos y modalidades educativas.
@@ -18,8 +19,9 @@ c) Asesorar, en coordinación con las Direcciones Regionales de Educación, de c
 d) Asesorar, en coordinación con las Direcciones Regionales de Educación, de acuerdo con la normativa que regula su funcionamiento, los procesos de pertinencia pedagógica para la asesoría de los procesos de mediación pedagógica en las aulas.
 e) Coordinar con la Dirección de Vida Estudiantil los procesos de diálogo intercultural con los niños, niñas y adolescentes con el fin de realizar propuestas pedagógicas que incluyan la perspectiva de dichos grupos etáreos.
 f) Coordinar con los departamentos de la Dirección de Desarrollo Curricular la formulación de propuestas para la incorporación de la educación intercultural como uno de los ejes articuladores del accionar del sistema educativo.
-g) Coordinar con el Instituto de Desarrollo Profesional “Uladislao Gámez” el desarrollo de programas específicos para la formación continua del personal docente del MEP desde una perspectiva intercultural.
-h) Brindar asesoría técnica a la Dirección de Recursos Humanos para que genere criterios y procedimientos orientados a mejorar la contratación de profesionales para el sistema educativo capaces de interactuar en contextos interétnicos e interculturales, de conformidad con la normativa vigente.
+g) Coordinar con el Instituto de Desarrollo Profesional "Uladislao Gámez" el desarrollo de programas específicos para la formación continua del personal docente del MEP desde una perspectiva intercultural.
+h) Brindar asesoría técnica a la Dirección de Gestión del Talento Humano (*) para que genere criterios y procedimientos orientados a mejorar la contratación de profesionales para el sistema educativo capaces de interactuar en contextos interétnicos e interculturales, de conformidad con la normativa vigente.
+(*)(Así modificada la denominación anterior por el artículo 2° del decreto ejecutivo N° 44911 del 9 de enero del 2025. Anteriormente indicaba " Dirección de Recursos Humanos")
 i) Coordinar con la Dirección de Infraestructura Educativa(*) el establecimiento de prototipos constructivos que se ajusten a las necesidades culturales y la cosmovisión de las comunidades educativas, sobre todo en contextos indígenas.
 (*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
 j) Coordinar con la Dirección de Recursos Tecnológicos en Educación la gestión de recursos didácticos con un enfoque de educación intercultural, incorporando las tecnologías de la información y la comunicación (TIC).

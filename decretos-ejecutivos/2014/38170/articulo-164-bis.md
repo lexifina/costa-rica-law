@@ -1,4 +1,4 @@
-Artículo 145 bis. Son funciones de la Unidad de Becas
+Artículo 164 bis. Son funciones de la Unidad de Becas
 1. Funciones generales:
 a) Ejecutar las políticas establecidas por la persona que se desempeñe como ministro de Educación Pública, referente a la administración de las becas.
 b) Aprobar la asignación de las becas a los beneficiarios, con fundamento en lo establecido en la normativa.
@@ -37,3 +37,4 @@ g) Realizar estudios técnicos para actualizar las becas.
 h) Coordinar las comunicaciones (redes sociales, página web).
 i) Otras funciones afines.
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 145 bis al artículo 164 bis)

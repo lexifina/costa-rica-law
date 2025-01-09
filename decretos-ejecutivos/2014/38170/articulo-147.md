@@ -1,13 +1,10 @@
-Artículo 147.-Son funciones del Departamento de Supervisión y Control:
-a) Supervisar, controlar y dar seguimiento a las actividades relacionadas con la ejecución de los programas de equidad.
-b) Diseñar las estrategias de supervisión y control de los recursos asignados a las Juntas de Educación y Administrativas, optimizando los servicios brindados por los programas de equidad.
-c) Establecer mecanismos de control y verificar la correcta aplicación de las normas, disposiciones, leyes y reglamentos que rigen los distintos programas.
-d) Atender las denuncias relacionadas con la gestión de fondos y el manejo técnico administrativo de los programas de equidad y rendir los informes a las instancias correspondientes.
-e) Realizar visitas a los centros educativos de todo el país y supervisar el cumplimiento de las políticas, reglamentos y el correcto manejo de los programas de equidad.
-f) Dar seguimiento a las recomendaciones emitidas en los informes de visitas a los centros educativos.
-g) Solicitar y valorar periódicamente informes contables a las Juntas de Educación y Juntas Administrativas sobre la utilización de fondos asignados por los programas de equidad.
-h) Coordinar con los Departamentos de Transporte Estudiantil, Alimentación y Nutrición y la Unidad de Becas las acciones necesarias para el seguimiento y control de los recursos asignados a cada Junta de Educación y Junta Administrativa, así como remitir los reportes correspondientes sobre el nivel de ejecución.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
-i) Informar a la Dirección de Programas de Equidad sobre las irregularidades identificadas en el manejo de recursos de los programas de equidad y otros aspectos de interés de los programas que surjan en el ejercicio de sus funciones.
-j) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
-(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 150 al 147, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+Artículo 147. Son funciones de la Unidad de Investigación Preliminar y Previa-Docente:
+a. Valorar las denuncias recibidas con el objeto de establecer si corresponde iniciar una investigación preliminar o previa-docente, un procedimiento disciplinario por comisión de faltas a los deberes del cargo o derivar las mismas a las instancias competentes para que resuelva lo conducente.
+b. Establecer conforme al mérito de los autos que integran la causa, si debe solicitarse prueba documental o testimonial que sustente los hechos denunciados.
+c. Coordinar con las instancias regionales y circuitales, el suministro de información necesaria y la comisión de actos procedimentales indispensables para el establecimiento de la verdad real sobre el asunto investigado. En lo que corresponde a aquellas tareas desconcentradas en las Direcciones Regionales de Educación, debe establecer las políticas lineamientos y criterios jurídicos para que el DAD realice una correcta fiscalización, seguimiento, control y mejora de las denuncias desconcentradas en dichas Direcciones Regionales de Educación.
+d. Determinar en qué grado de probabilidad. se configura una falta o infracción a los deberes del cargo y si tal conducta resulta imputable a un funcionario ministerial recabando los elementos de juicio que permitan efectuar una intimación clara precisa y circunstanciada.
+e. Recomendar a la Dirección de Gestión del Talento Humano, la apertura de los procedimientos disciplinarios correspondiente, o el archivo de las diligencias iniciadas por no existir mérito para su continuación.
+f. Instar a la Dirección de Gestión del Talento Humano a hacer el reenvío a las instancias competentes de aquellos asuntos que configuran faltas leves o que requieren el correcto ejercicio de las potestades jerárquicas establecidas en la normativa de Derecho Público.
+g. Establecer en cualquier momento. la necesidad de adoptar medidas provisionales o cautelares que garanticen la objetividad o continuidad del procedimiento y la necesaria protección a la víctima.
+h. Resolver todas las incidencias y excepciones planteadas dentro ele las diligencias investigativas. i. Realizar otras actividades que sean de su competencia.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44911 del 9 de enero del 2025)

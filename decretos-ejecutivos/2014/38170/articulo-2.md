@@ -1,4 +1,4 @@
-Artículo 2º—Para efecto del presente reglamento, se entenderá por:
+Artículo 2º-Para efecto del presente reglamento, se entenderá por:
 AI: Auditoría Interna.
 ARESEP: Autoridad Reguladora de los Servicios Públicos.
 CCSS: Caja Costarricense de Seguro Social.
@@ -29,7 +29,8 @@ DPE: Dirección de Programas de Equidad.
 DPI: Dirección de Planificación Institucional.
 DPRP: Dirección de Prensa y Relaciones Públicas.
 DRE: Dirección Regional de Educación.
-DRH: Dirección de Recursos Humanos.
+DGTH : Dirección de Gestión del Talento Humano
+(Así modificada la denominación anterior por el artículo 1° y 2° del decreto ejecutivo N° 44911 del 9 de enero del 2025. Anteriormente indicaba "DRH: Dirección de Recursos Humanos. ")
 DRTE: Dirección de Recursos Tecnológicos en Educación.
 DSG: Dirección de Servicios Generales.
 DVE: Dirección de Vida Estudiantil.

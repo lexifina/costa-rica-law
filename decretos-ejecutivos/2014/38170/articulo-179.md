@@ -1,1 +1,5 @@
-Artículo 179.— (Nota de Sinalevi: El texto de este artículo puede ser consultado en el numeral 176, ya que mediante el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+SECCIÓN VI
+De la Dirección de Servicios Generales
+Artículo 179.-La Dirección de Servicios Generales es el órgano técnico responsable de planificar, coordinar, controlar y evaluar la prestación de los servicios de seguridad y vigilancia, transporte, mensajería, limpieza y centrales telefónicas, de acuerdo con las necesidades de las Oficinas Centrales y las Direcciones Regionales de Educación. Asimismo, garantizar la prestación de los servicios públicos de agua, electricidad y telecomunicaciones; dar seguimiento a contratos de seguros, contratos de alquiler de edificios y contratos de reparación y mantenimiento de bienes muebles e inmuebles en general.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 163 al 160, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 160 al artículo 179)

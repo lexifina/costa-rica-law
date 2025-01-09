@@ -1,2 +1,4 @@
-Artículo 142.—Para definir el alcance de las labores que deben desempeñar los departamentos y unidades establecidas en el presente decreto, se contará con un manual de organización y funciones, el cual será revisado periódicamente con el afán de mantenerlo actualizado, el cual será responsabilidad del Director quien se hará asesorar por las jefaturas de los departamentos. Toda actualización deberá ser validada por la Dirección de Planificación Institucional del Ministerio de Educación Pública y contar con el visto bueno del Viceministerio Administrativo; previo a ser remitido al Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).
-(Así reformado por el artículo 5° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
+Artículo 142. Para el cumplimiento de sus competencias el Departamento de Remuneraciones tendrá las siguientes unidades:
+i. Unidad de Planillas.
+ii. Unidad de Procedimiento de Cobro Administrativo.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44911 del 9 de enero del 2025)

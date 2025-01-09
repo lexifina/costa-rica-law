@@ -1,8 +1,9 @@
-Artículo 126.—Para el cumplimiento de sus funciones la Dirección de Recursos Humanos contará con los siguientes departamentos:
-a) Departamento de Promoción del Recurso Humano.
-b) Departamento de Gestión de Trámites y Servicios.
-c) Departamento de Asignación del Recurso Humano.
-d) Departamento de Gestión Disciplinaria.
-e) Departamento de Remuneraciones.
-f) Departamento de Servicios Médicos.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
+Artículo 126. La Dirección de Gestión del Talento Humano estará conformada por los siguientes departamentos:
+a. Departamento de Sistemas de Control Gerencial e Innovación (DSCGI)
+b. Departamento de Dotación del Talento Humano (DDTH).
+c. Departamento de Vinculación y Desarrollo Humano (DVDHJ.
+d. Departamento de Prestación de Servicios y Expediente Laboral (DPSEL)
+e. Departamento de Remuneraciones (DR)
+f Departamento de Asuntos Disciplinarios (DAD).
+g. Departamento de Servicios de Salud (DSS).
+(Así reformado por el artículo 3° del decreto ejecutivo N° 44911 del 9 de enero del 2025)

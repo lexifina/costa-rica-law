@@ -1,0 +1,3 @@
+Artículo 193.- En lo que respecta al funcionamiento de los centros educativos públicos, los lineamientos y directrices emitidos por las distintas Direcciones de las Oficinas Centrales del Ministerio de Educación Pública, deberán ser consistentes con lo establecido en el Acuerdo del Centro Educativo de Calidad como Eje de la Educación Costarricense.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 177 al 174, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 174 al artículo 193)

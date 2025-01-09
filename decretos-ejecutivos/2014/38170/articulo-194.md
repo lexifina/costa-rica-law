@@ -1,0 +1,6 @@
+Artículo 194.- A la entrada en vigencia del presente decreto, aplican las siguientes derogatorias y disposiciones transitorias:
+a) Derogatoria del Decreto Ejecutivo 36451-MEP, Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta Nº 48 del 9 de marzo de 2011.
+b) Derogatoria del Capítulo II, De la coordinación entre el Nivel Central y el Nivel Regional, artículos 6, 7, 8, 9 y 10, del Decreto Ejecutivo 35513-MEP, Organización Administrativa de las Direcciones Regionales de Educación del Ministerio de Educación Pública, publicado en La Gaceta N° 187 del 25 de setiembre de 2009.
+c) Derogatoria del Decreto Ejecutivo 37135-MEP, Reforma a la Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta N° 102, Alcance N° 70, del 28 de mayo de 2012.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 178 al 175, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 175 al artículo 194)

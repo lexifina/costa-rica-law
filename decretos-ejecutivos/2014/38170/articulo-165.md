@@ -1,18 +1,24 @@
-Artículo 165.— Son funciones del Departamento de Administración de Edificios:
-a) Proporcionar servicios de apoyo a todas las dependencias del Ministerio de Educación Pública en materia de seguridad, vigilancia, limpieza, control de plagas, mudanzas, correspondencia, mensajería, atención de centrales telefónicas y otros servicios como mantenimiento de equipos de aire acondicionado, mantenimiento de aparatos electrónicos y mantenimiento de zonas verdes, requeridos por la administración.
-b) Realizar las labores de mantenimiento de proyectos menores y atención de obras urgentes en los edificios de Oficinas Centrales del MEP, de las Direcciones Regionales de Educación y las sedes circuitales; para lo que deberá coordinar con la Dirección de Infraestructura Educativa(**) (DIE(*)), cuando corresponda.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
-(**) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
-c) Realizar la propuesta de presupuesto para el pago de los servicios y proyectos atinentes al Departamento.
-d) Verificar que los documentos de pago atinentes al Departamento, correspondan a servicios recibidos por el Ministerio de Educación Pública.
-e) Dar seguimiento a las subpartidas presupuestarias, atinentes al Departamento, que dan contenido económico al pago de los servicios.
-f) Dotar de materiales de mantenimiento e insumos de limpieza y aseo a todas las dependencias de oficinas centrales del MEP; estableciendo la debida planificación y control de los inventarios requeridos.
-g) Establecer los lineamientos, normas y procedimientos para la oportuna y eficiente prestación de los servicios de apoyo a la administración.
-h) Generar proyectos de desarrollo para mejorar las condiciones físicas y ambientales de los edificios.
-i) Coordinar con la administración de los edificios alquilados, los proyectos o actividades especiales que se deban realizar y que estén relacionadas con la seguridad, limpieza y otros servicios a cargo de este Departamento.
-j) Coordinar la prestación de los servicios de seguridad y vigilancia en todos los edificios de Oficinas Centrales, Direcciones Regionales de Educación y las sedes circuitales del Ministerio, según se requiera.
-k) Establecer mecanismos de control y supervisión, para garantizar que los servicios de seguridad y vigilancia cumplan con la normativa vigente y regulaciones específicas aplicables al ámbito público.
-l) Dar inicio a los procedimientos de contratación administrativa que se requieran, para un eficiente cumplimiento con sus funciones, para ser sometido a consideración de sus superiores.
-m) Administrar los contratos privados en materia de seguridad, limpieza, control de plagas, mudanzas, mensajería, atención de centrales telefónicas y cualquier otro servicio de apoyo requerido por el MEP, realizando la fiscalización y supervisión correspondiente.
-n) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
-(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 168 al 165, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+Artículo 165.- Son funciones del Departamento de Planificación y Evaluación de Impacto:
+a) Coordinar con los Departamentos de la Dirección la implementación de la estrategia para la elaboración del Plan Operativo Anual y Presupuesto de cada Departamento y de la Dirección, así como de otros documentos de planificación requeridos por agentes internos y externos del MEP, siguiendo los lineamientos establecidos para tal efecto por la Dirección de Programas de Equidad.
+b) Coordinar con los Departamentos la emisión periódica de los informes sobre el avance en el cumplimiento del Plan Operativo Anual y Presupuesto, así como de otros informes de planificación requeridos por agentes internos o externos al MEP, y remitirlos a la Dirección para su aprobación y entrega a las instancias competentes.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
+c) Brindar apoyo técnico a los Departamentos y a la Dirección, en temas relacionados con formulación, ejecución, monitoreo y evaluación de los planes y estrategias de los distintos programas.
+d) A partir de los lineamientos de la Dirección, diseñar e implementar los instrumentos para la evaluación de los servicios y rendir los informes con las recomendaciones pertinentes.
+e) Coordinar la elaboración de los manuales de procedimientos de las instancias de la Dirección, así como el mantenimiento y actualización oportuna de éstos.
+f) Diseñar los procedimientos e instrumentos de inducción a los funcionarios de la Dirección, ante nuevos ingresos, cambio de funciones o actualizaciones en las funciones asignadas a los puestos.
+g) Conducir las acciones tendientes al establecimiento, mantenimiento, perfeccionamiento y evaluación del sistema de control interno y del sistema específico de valoración de riesgos de la Dirección de Programas de Equidad, con la participación de todos los Departamentos y la asistencia de otras dependencias especializadas.
+h) Proponer a la Dirección el conjunto de parámetros de medición de impacto de los programas de equidad.
+i) Efectuar estudios en los que se relacione la capacidad de la planta física y del equipamiento de los comedores estudiantiles, con la población total que recibe los servicios, con el objeto de determinar las condiciones de calidad y equidad de su prestación y formular las recomendaciones pertinentes.
+j) Realizar estudios de impacto social de los programas de equidad y proponer a la Dirección la implementación de las mejores prácticas para el desarrollo de éstos.
+k) Realizar estudios que tiendan a validar los controles que ejercen diferentes actores de la comunidad educativa, sobre el funcionamiento de las sodas estudiantiles y colegiales, con fundamento en la normativa vigente.
+l) Coordinar el diseño de sistemas de información integrados de los programas de equidad.
+m) Coordinar con los demás departamentos el diseño de los lineamientos de trabajo y procedimientos que deben cumplir las instancias ejecutoras de los programas de equidad.
+n) Realizar estudios sobre la distribución de recursos de los programas de equidad y los mecanismos y procedimientos de selección de beneficiarios, en coordinación con los distintos Departamentos, que orienten a la toma de decisiones de las diferentes instancias de la Dirección de Programas de Equidad.
+o) Gestionar el diseño de los planes de capacitación y asesoramiento para Comités, Juntas Administrativas, Patronatos Estudiantiles, Juntas de Educación y Asociaciones de Padres, entre otros, en coordinación con los distintos departamentos y actores interesados en el tema.
+p) Coordinar la implementación de los planes de capacitación y asesoramiento con instituciones públicas, empresas privadas, asociaciones de padres y organizaciones no gubernamentales, entre otros.
+q) Gestionar materiales escritos y audiovisuales de apoyo para la capacitación y asesoramiento requerida en materia específica de la ejecución de los programas de equidad.
+r) Coordinar con el Instituto Nacional de Aprendizaje (INA) el desarrollo del proyecto de capacitación para servidoras de comedores estudiantiles, personal del centro educativo y el personal de sodas en los centros educativos, según los lineamientos técnicos del Departamento de Alimentación y Nutrición.
+s) Diseñar e implementar los procedimientos necesarios para determinar el monto de los subsidios relacionados con los programas de equidad.
+t) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 149 al 146, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 146 al artículo 165)

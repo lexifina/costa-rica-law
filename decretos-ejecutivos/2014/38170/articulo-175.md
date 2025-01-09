@@ -1,5 +1,15 @@
-Artículo 175.— A la entrada en vigencia del presente decreto, aplican las siguientes derogatorias y disposiciones transitorias:
-a) Derogatoria del Decreto Ejecutivo 36451-MEP, Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta Nº 48 del 9 de marzo de 2011.
-b) Derogatoria del Capítulo II, De la coordinación entre el Nivel Central y el Nivel Regional, artículos 6, 7, 8, 9 y 10, del Decreto Ejecutivo 35513-MEP, Organización Administrativa de las Direcciones Regionales de Educación del Ministerio de Educación Pública, publicado en La Gaceta N° 187 del 25 de setiembre de 2009.
-c) Derogatoria del Decreto Ejecutivo 37135-MEP, Reforma a la Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, publicado en La Gaceta N° 102, Alcance N° 70, del 28 de mayo de 2012.
-(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 178 al 175, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+Artículo 175.- Son funciones del Departamento de Gestión y Control Informático.
+a) Establecer herramientas de control interno según las regulaciones emitidas por la Contraloría General de la República para asegurar que los procesos de la Dirección de Informática de Gestión sean eficientes y seguros.
+b) Coordinar el cumplimiento de las normas establecidas por entidades reguladoras y las disposiciones que en materia de control interno (Ley N° 8292 y sus reformas) dicta la Contraloría General de la República.
+c) Aplicar las listas de verificación y control interno en los diferentes procesos de los Departamentos que conforman la DIG en edificios centrales y en las Direcciones Regionales en labores informáticas realizadas por los técnicos destacados en estas, remitiendo los informes correspondientes.
+d) Llevar la coordinación de la Subcomisión de Control Interno de la DIG, y remitir a la coordinación General de Control interno Institucional, las matrices correspondientes a análisis de riesgo, seguimiento y actividades de Control.
+e) Realizar el control y seguimiento de la programación presupuestaria en ejecución, asignado al Departamento, referente a viáticos, capacitación y horas extras.
+f) Actualizar semestralmente los manuales, estándares, normativas vigentes según las recomendaciones dictadas por la Contraloría General de la República, y que éstos cuenten con la aprobación y visto bueno del Director de la Dirección de Informática de Gestión.
+g) Apoyar y desarrollar tareas específicas relacionadas a las TIC, emanadas directamente de la Dirección de Informática de Gestión.
+h) Velar por el cumplimiento de los manuales, estándares, procedimientos y metodologías establecidos por la Dirección de Informática de Gestión que dan sustento a los distintos procesos informáticos, así como su documentación.
+i) Elaborar el mapeo, lógica y descripción de todos los procedimientos de los distintos departamentos que conforman la Dirección de Informática de Gestión.
+j) Elaborar y ejecutar el Plan de capacitación anual de la DIG.
+k) Colaborar con líneas de coordinación y supervisión en equipos de trabajo multidisciplinarios de proyectos específicos y su debida gestión para el cumplimiento de la normativa TIC.
+l) Desarrollar otras funciones inherentes, relacionadas con su ámbito de competencias y atribuciones, asignadas por el superior jerárquico.
+(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 159 al 156, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+(Así modificada su numeración por el artículo 4° del decreto ejecutivo N° 44911 del 9 de enero del 2025, que lo traspasó del antiguo artículo 156 al artículo 175)

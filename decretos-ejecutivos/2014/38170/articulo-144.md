@@ -1,20 +1,17 @@
-Artículo 144.-Son funciones de la Dirección de Programas de Equidad:
-a) Planificar y desarrollar, en sus aspectos administrativos, operativos y financieros, la prestación de los servicios que se brindan a los estudiantes por medio de los programas de equidad del MEP, respetando la normativa vigente en la materia.
-b) Proponer el uso de nuevos modelos para la prestación de los servicios.
-c) Establecer los lineamientos, procedimientos y mecanismos para la identificación y selección de los beneficiarios de los distintos servicios.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
-d) Conocer y aprobar las propuestas de lineamientos y procedimientos para la ejecución de los programas de equidad, elaboradas por los Departamentos que conforman la Dirección de Programas de Equidad.
-e) Diseñar y establecer un sistema de información para el seguimiento y evaluación de los servicios.
-f) Establecer los mecanismos de control requeridos y velar por el uso racional de los recursos destinados a la prestación de los servicios.
-g) Realizar evaluaciones periódicas sobre la prestación de los servicios.
-h) Velar porque los recursos girados a las Juntas de Educación y las Juntas Administrativas, destinados a la prestación de los servicios, sean utilizados de manera eficiente, transparente y oportuna.
-i) Preparar el Plan Operativo Anual (POA) de la Dirección y el correspondiente anteproyecto de presupuesto, de acuerdo con las prioridades institucionales y del sector educación, así como remitirlos al Viceministerio Administrativo para su aprobación.
-j) Establecer los Manuales de Procedimientos requeridos para el funcionamiento de la Dirección y sus dependencias, el manejo de información oficial, así como la prestación de los servicios y la realización de trámites bajo su responsabilidad, previo visto bueno del Viceministerio Administrativo.
-k) Rendir informes periódicos a las instancias competentes sobre el avance en el cumplimiento del Plan Operativo Anual y el presupuesto de la Dirección, así como otros documentos de planificación requeridos.
-l) Definir la estrategia y coordinar las acciones pertinentes con las instancias internas y externas a la Dirección, con el fin de facilitar el mejoramiento de los métodos y procedimientos de trabajo, la actualización de conocimientos, el análisis de los problemas que se presentan en el desarrollo de los programas de equidad y la búsqueda conjunta de los cambios, ajustes y soluciones requeridas.
-m) Coordinar con instancias externas e internas de MEP y con el Despacho Ministerial, de conformidad con el ordenamiento jurídico, para promover la atención integral de la población estudiantil de más bajos ingresos y mayor vulnerabilidad.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44193 del 4 de julio de 2023)
-n) Coordinar con el Ministerio de Salud, la Caja Costarricense de Seguro Social (CCSS), el INCIENSA, INA, MOPT, ARESEP y otras entidades públicas, las acciones que sean requeridas para el mejoramiento continuo de los servicios de alimentación y nutrición, transporte estudiantil, becas y otros programas que desarrolle la Dirección, de conformidad con el ordenamiento jurídico.
-o) Dictar los lineamientos técnicos, directrices y manuales de procedimientos requeridos para orientar la asignación, uso, supervisión y control de los recursos públicos canalizados a las Juntas de Educación y Juntas Administrativas, en temas de su competencia.
-p) Otras funciones inherentes, relacionadas con sus competencias y atribuciones, asignadas por el superior jerárquico.
-(Así modificada su numeración por el artículo 7° del decreto ejecutivo N° 42488 del 14 de julio del 2020, que lo traspaso del antiguo artículo 147 al 144, ya que se ordena derogar los artículos 143, 144 y 145 y correr la numeración de los restantes numerales)
+Artículo 144. A la Unidad de Procedimiento de Cobro Administrativo le corresponde las siguientes funciones:
+a. identificar las sumas giradas de más en los sistemas informáticos de gestión y pago del MEP, con la finalidad de recuperar aquellas acreditaciones que no corresponden que de forma errónea fueron canceladas a funcionarios y exfuncionarios del MEP.
+b. Realizar los análisis técnicos solicitados por funcionarios activos e inactivos o por dependencias internas o externas, para lograr conocer la existencia de sumas que fueron canceladas de más para sus trámites y/o gestiones propias.
+c. Realizar acuerdo de pago de forma personalizada mediante la mención de cada funcionario para formalizar la deuda y proceder con el cobro respectivo, mediante el rebajo de nómina o por depósito transferencia bancaria.
+d. Responder a los reclamos generados por el debido proceso de cobro: pruebas aportadas por los funcionarios, recursos de amparo, recursos de revocatoria. recursos de apelación en subsidio.
+e. Realizar la inclusión en los sistemas informáticos de los acuerdos de pago para su debido rebajo en la nómina o en su debido caso el descargo de los enteros de gobierno.
+f. Dar seguimiento a los expedientes de cobros para dar cumplimiento a las normas de control interno y archivo general.
+g. Llevar a cabo el debido proceso de los casos de funcionarios inactivos y remitir la documentación para el visto bueno del jerarca institucional.
+h. Remitir a Cobro Judicial del Ministerio de Hacienda los casos correspondientes, para su debido tramite.
+i. Determinar de las sumas giradas de más, el cobro, así corno el monto de la recuperación real de las mismas con el fin de generar insumos estadísticos para la toma de decisiones.
+j. Emitir las certificaciones para el retiro de los ahorros de los ex funcionarios que se encuentran afiliados en la Caja de Ande.
+k. Emitir las certificaciones para los funcionarios que solicitan licencias sin goce salarial a la Unidad de licencias con el fin de verificar si existen sumas giradas de más.
+l. Coordinar con los diferentes órganos fiscalizadores y remitir la información requerida por estos, referente a las sumas giradas de más de los funcionarios activos e inactivos del MEP.
+m. Tramitar la gestión del cobro de las contingencias asignadas por los diferentes departamentos internos del MEP,. así como los de la Tesorería Nacional del Ministerio de Hacienda.
+n. Proporcionar el criterio técnico a la Dirección de Gestión del Talento Humano para que este coordine de manera oportuna con la Dirección de Asuntos Jurídico la información requerida para responder los recursos de amparo interpuestos relacionados con temas de la Unidad de Procedimiento de Cobro Administrativo
+o. Realizar otras actividades que sean de su competencia.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44911 del 9 de enero del 2025)

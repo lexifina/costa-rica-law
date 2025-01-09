@@ -1,9 +1,10 @@
-Artículo 57.—Son funciones del Departamento de Control y Evaluación Presupuestaria:
+Artículo 57.-Son funciones del Departamento de Control y Evaluación Presupuestaria:
 a) Coordinar con los encargados de los Programas Presupuestarios y las unidades ejecutoras las solicitudes de modificación presupuestaria.
 b) Consolidar y remitir a la Dirección Financiera la información para el traslado de partidas y presupuestos extraordinarios, así como dar seguimiento a los procesos relacionados ante el Ministerio de Hacienda y el Ministerio de la Presidencia, hasta su publicación por parte de la Imprenta Nacional.
 c) Dar seguimiento a la ejecución de los distintos Programas y Subprogramas Presupuestarios del MEP.
 d) Mantener información actualizada sobre las subejecuciones, partidas congeladas, presupuestos extraordinarios y otros aspectos relacionados con los disponibles presupuestarios y disponibles de cuota.
-e) Controlar la ejecución del gasto del MEP, de acuerdo con el presupuesto autorizado mediante la ley aprobada para tales efectos; de manera especial al gasto relacionado con remuneraciones; en estrecha coordinación con la Dirección de Recursos Humanos.
+e) Controlar la ejecución del gasto del MEP, de acuerdo con el presupuesto autorizado mediante la ley aprobada para tales efectos; de manera especial al gasto relacionado con remuneraciones; en estrecha coordinación con la Dirección de Gestión del Talento Humano (*).
+(*)(Así modificada la denominación anterior por el artículo 2° del decreto ejecutivo N° 44911 del 9 de enero del 2025. Anteriormente indicaba " Dirección de Recursos Humanos")
 f) Velar por que la ejecución de los distintos Programas y Subprogramas Presupuestarios se realice de acuerdo con la programación financiera presentada por el Jefe de Programa Presupuestario y aprobada por la Dirección General de Presupuesto Nacional del Ministerio de Hacienda.
 g) Establecer, en coordinación con las Unidades Gestoras, los mecanismos e instrumentos para realizar el seguimiento periódico y sistemático de la ejecución presupuestaria.
 h) Generar reportes mensuales sobre el grado de avance de ejecución presupuestaria, a nivel global, por Programa y Subprograma, así como advertir los desfases identificados.

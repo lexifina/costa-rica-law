@@ -1,2 +1,8 @@
-Artículo 139.—La Dirección de Infraestructura Educativa brindará asesoría técnica a las Juntas de Educación y Juntas Administrativas para la ejecución de proyectos relacionados con el mantenimiento preventivo y correctivo, la rehabilitación y la construcción de infraestructura educativa, como su la dotación de mobiliario educativo, financiados con presupuesto del Ministerio de Educación Pública u otras fuentes de financiamiento, de acuerdo con la normativa específica que se establezca para tales efectos.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
+Artículo 139. A la Unidad de Licencias le corresponde las siguientes funciones:
+a. Gestionar los actos administrativos relacionados con readecuaciones de funciones, de acuerdo con el Reglamento de Conserjería de las Instituciones Educativas Oficiales y el Código del Trabajo.
+b. Tramitar los actos administrativos relacionados con reubicaciones por salud, de acuerdo con el Código del Trabajo.
+c. Ejecutar los actos administrativos relacionados con licencias y reubicaciones amparados en el Reglamento de Licencias Especiales.
+d. Gestionar las licencias amparadas en la Convención Colectiva de Trabajo.
+e. Tramitar los actos administrativos relacionados con licencias con goce de salario total, parcial y sin goce de salario.
+f Realizar otras actividades que sean de su competencia.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 44911 del 9 de enero del 2025)

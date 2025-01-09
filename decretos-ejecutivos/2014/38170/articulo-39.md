@@ -1,5 +1,6 @@
-Artículo 39.—El Nivel Director del Viceministerio Administrativo contará con las siguientes Direcciones:
-a) Dirección de Recursos Humanos (DRH).
+Artículo 39.-El Nivel Director del Viceministerio Administrativo contará con las siguientes Direcciones:
+a) Dirección de Gestión del Talento Humano DGTH
+(Así modificada la denominación anterior por el artículo 1° y 2° del decreto ejecutivo N° 44911 del 9 de enero del 2025. Anteriormente indicaba "DRH: Dirección de Recursos Humanos. ")
 b) Dirección de Infraestructura Educativa(**) (DIE)(*).
 (*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
 (**) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 42488 del 14 de julio del 2020)
