@@ -1,0 +1,1 @@
+Artículo 45.-Materia disciplinaria. La PMSC se regirá en lo conducente, por lo dispuesto en el Código Municipal N° 7794 y el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San Carlos.

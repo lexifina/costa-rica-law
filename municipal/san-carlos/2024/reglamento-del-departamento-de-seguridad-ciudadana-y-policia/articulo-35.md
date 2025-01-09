@@ -1,0 +1,1 @@
+Artículo 35.-Obligación de informar a la jefatura. Es obligación de todo PMSC, informar a su jefatura inmediatamente, de todo hecho ilícito del que tenga conocimiento y que para su corrección se requiera de la intervención de otros cuerpos policiales o judiciales; además, deberá evitar la comisión de cualquier delito, falta o infracción a la Ley, que ocurra en su presencia.

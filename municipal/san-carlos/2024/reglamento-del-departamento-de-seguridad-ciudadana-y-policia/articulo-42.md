@@ -1,0 +1,2 @@
+Artículo 42.-Cumplimiento de jornada laboral y relevos. Todos los oficiales de PMSC, estarán obligados a cumplir íntegramente su jornada de trabajo y respetar el horario asignado por sus superiores, para ello deben de presentarse listos para asumir su servicio a la hora establecida.
+No podrán abandonar el servicio hasta que sean debidamente relevados, en cuyo caso se les realizará el pago de tiempo extraordinario correspondiente a que tuvieren derecho conforme lo establece la normativa legal vigente.

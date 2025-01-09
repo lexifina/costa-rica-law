@@ -1,0 +1,1 @@
+Artículo 23.-Vacaciones, permisos y licencias. La PMSC se regirá por lo dispuesto en el Código Municipal N° 7794, el Reglamento Autónomo de Organización y Servicio de la Municipalidad de San Carlos y la Convención Colectiva de Trabajo entre la Municipalidad de San Carlos y el Sindicato de Trabajadores (SITRAMUSCA) vigente.

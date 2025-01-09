@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Sobre el Uniforme
+Artículo 15.-Uniforme estándar reglamentario. Los uniformes estándar que tendrán los funcionarios de la PMSC serán establecidos por la Jefatura del Departamento de Seguridad Ciudadana y Policía Municipal según el análisis táctico respectivo y pueden variar los diseños y distintivos entre los diferentes servicios operativos de la PMSC. La cantidad de uniformes suministrada no podrá ser menor a lo estipulado en la Convención Colectiva de Trabajo entre la Municipalidad de San Carlos y el Sindicato de Trabajadores (SITRAMUSCA) vigente. Dicho uniforme será suministrado por la Administración Municipal conforme a sus condiciones económicas, atendiendo las necesidades de cada policía municipal.

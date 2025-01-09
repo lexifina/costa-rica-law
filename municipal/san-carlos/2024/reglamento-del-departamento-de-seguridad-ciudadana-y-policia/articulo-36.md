@@ -1,0 +1,1 @@
+Artículo 36.-Pruebas de dopaje y alcoholimetría. Los funcionarios de la PMSC se podrán someter a pruebas toxicológicas y de alcoholimetría que la Administración considere necesarias. Las mismas serán obligatorias en todos los casos.

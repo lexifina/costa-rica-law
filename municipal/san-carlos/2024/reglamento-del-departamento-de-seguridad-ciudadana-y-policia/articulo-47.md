@@ -1,0 +1,1 @@
+Artículo 47.-Fortalecimiento de la participación ciudadana. La PMSC realizará programas de prevención en centros educativos y comunidades del cantón, fortaleciendo la participación y organización comunitaria.

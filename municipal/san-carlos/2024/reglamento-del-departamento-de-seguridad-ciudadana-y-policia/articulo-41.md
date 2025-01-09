@@ -1,0 +1,1 @@
+Artículo 41.-Uso de vehículos. En cuanto al uso de los vehículos de la Policía Municipal, este se regirá bajo lo establecido en el Reglamento para el uso de vehículos de la Municipalidad de San Carlos.

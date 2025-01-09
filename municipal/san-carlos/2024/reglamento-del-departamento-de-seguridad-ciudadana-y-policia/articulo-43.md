@@ -1,0 +1,1 @@
+Artículo 43.-Del permiso de Portación de armas y licencia de conducir. Cada oficial de la Policía Municipal de San Carlos, tiene el deber y la obligación de mantener al día el Permiso de Portación de Armas y la licencia de conducir.

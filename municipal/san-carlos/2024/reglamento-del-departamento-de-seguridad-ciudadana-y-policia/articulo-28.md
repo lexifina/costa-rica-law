@@ -1,0 +1,1 @@
+Artículo 28.-Comportamiento Policial. Siendo la disciplina, base fundamental en todo cuerpo policial, el Policía Municipal obedecerá y ejecutará las órdenes que reciba de sus superiores jerárquicos, siempre que no contradigan la legislación vigente y las buenas costumbres, de conformidad al principio de obediencia.

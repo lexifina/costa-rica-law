@@ -1,0 +1,1 @@
+Artículo 13.-Horarios. Los horarios ordinarios que tendrán los funcionarios de la PMSC serán establecidos por la Jefatura del Departamento de Seguridad Ciudadana y Policía Municipal y estarán en total apego del marco jurídico vigente. Sin detrimento de que los mismos puedan ser variados en respuesta a una necesidad operativa.

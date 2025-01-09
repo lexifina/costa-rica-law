@@ -1,0 +1,1 @@
+Artículo 38.-Disposición ante emergencias. En casos de emergencia, estado de necesidad, calamidad pública y desastres, los Policías Municipales de San Carlos, deberán presentarse en el menor tiempo posible a su respectiva base para prestar sus funciones. Será obligación de la PMSC informar a Alcaldía Municipal, sobre las acciones ejecutadas en dichas emergencias.

@@ -1,0 +1,1 @@
+Artículo 33.-Desempeño digno. Desempeñar dignamente sus cargos, conservando las buenas costumbres, ética y disciplina, así como un trato respetuoso para todas las personas, en acatamiento a los derechos humanos, aun cuando se encuentre fuera de servicio.

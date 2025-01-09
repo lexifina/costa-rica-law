@@ -1,0 +1,1 @@
+Artículo 37.-Chequeos médicos. La administración podrá realizar chequeos médicos a los funcionaros de la PMSC los cuales estarán en la obligación de someterse a pruebas médicas, física y psicológicas que aseguren la aptitud para el desempeño adecuado del cargo.

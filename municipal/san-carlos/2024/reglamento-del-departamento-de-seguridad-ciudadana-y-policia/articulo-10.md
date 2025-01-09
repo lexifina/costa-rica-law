@@ -1,0 +1,1 @@
+Artículo 10.-Sustitución temporal de mandos. En caso de ausencia temporal de alguno de los mandos, la Administración designará inmediatamente su sustitución. En lo cotidiano sí coinciden dos mandos con igual rango, asume el de mayor experiencia policial.

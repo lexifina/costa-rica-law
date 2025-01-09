@@ -1,0 +1,1 @@
+Artículo 19.-Identificación en el uniforme. Todos los funcionarios de la Policía Municipal deberán portar en la parte frontal de su uniforme el carné de identificación brindado por la institución. Los que tengan código de tránsito autorizado por el MOPT, también deberán portarlo cuando realicen funciones de Inspectores de Tránsito.

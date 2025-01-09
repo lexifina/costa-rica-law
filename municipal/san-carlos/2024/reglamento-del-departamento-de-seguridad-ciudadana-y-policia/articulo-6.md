@@ -1,0 +1,1 @@
+Artículo 6°-Organización. La PMSC, procurará una organización integral del servicio en dónde todos sus trabajadores se sometan a procedimientos y protocolos de actuación que permitan la maximización del servicio y la asignación de diferentes tareas administrativas, logísticas, operativas y organizativas para todos sus integrantes.

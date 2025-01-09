@@ -1,0 +1,1 @@
+Artículo 9°-Designación de grados policiales. La designación de los grados policiales corresponderá al Alcalde por recomendación de la Jefatura de Seguridad Ciudadana y Policía Municipal. La Administración, definirá vía resolutiva las diferentes escalas que se adoptarán y sus requisitos.
