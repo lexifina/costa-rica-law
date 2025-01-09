@@ -1,1 +1,0 @@
-ARTICULO 21.- El Director del Protocolo y Ceremonial del Estado es el funcionario responsable de la Dirección, al igual que el Director Adjunto, quien estará supeditado a aquél en el cumplimiento de su labor.

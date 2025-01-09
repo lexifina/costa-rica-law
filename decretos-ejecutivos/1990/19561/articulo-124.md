@@ -1,2 +1,0 @@
-ARTICULO 124.- Los Cónsules, Vicecónsules, Agentes Consulares y Cancilleres de Consulados pueden ser nombrados también por carrera remunerada, por Carrera honoraria, o a discreción. Los trámites de nombramiento, requisitos y atestados serán los mismos que para el resto del personal del Servicio Exterior de la República y se regirán por el respectivo Estatuto y Reglamento.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 123 al 124)

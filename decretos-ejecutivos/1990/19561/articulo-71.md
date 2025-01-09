@@ -1,3 +1,0 @@
-ARTICULO 71.- De las medidas disciplinarias.
-a) Para garantizar el buen funcionamiento de la actividades administrativa del Ministerio, el Consejo de Administración tendrá la potestad de recomendar medidas disciplinarias, sin perjuicio de lo que dispongan las medidas legales y reglamentarias vigentes. Estas recomendaciones, y en su caso las medidas disciplinarias que se impongan, se anotarán en los expedientes, junto con los documentos respectivos.
-b) Las decisiones y acuerdos del Consejo, tendrán los recursos establecidos en el Estatuto del Servicio Civil, los cuales se regirán por éste también en su procedimiento.

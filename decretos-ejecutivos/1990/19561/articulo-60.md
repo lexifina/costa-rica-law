@@ -1,1 +1,0 @@
-ARTICULO 60.- Para cumplir con las funciones de asesoría y coordinación estipuladas en el artículo precedente, la Dirección General coordinará directamente las tareas del Departamento de Correspondencia, Comunicaciones y Archivo General.

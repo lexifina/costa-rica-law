@@ -1,9 +1,0 @@
-ARTICULO 75.- Las atribuciones de la Comisión Calificadora, entre otras, son las siguientes:
-a) Interpretar y velar porque se apliquen las disposiciones del Estatuto del Servicio Exterior de la República y demás disposiciones legales vigentes sobre la materia incluyendo las disposiciones de este Reglamento sobre la Carrera Honoraria.
-b) Velar porque los cargos en el Servicio Exterior, salvo las excepciones contempladas en el Estatuto, sean ejercidas por funcionarios de carrera, los cuales podrán servir tanto en el exterior como en el servicio interno del Ministerio, conforme lo dispone la ley Nº 3530 y sus reglamentos.
-c) Organizar y supervisar los concursos de oposición para el ingreso al Servicio Exterior y al Ministerio según lo estipulado en el artículo 15 del Estatuto del Servicio Exterior.
-d) Declarar los funcionarios que quedan incorporados a la carrera diplomática conforme con lo dispuesto en el artículo 15 del Estatuto del Servicio Exterior, y en el artículo transitorio de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, estos últimos por una sola vez.
-e) Preparar el escalafón anual del Servicio Exterior y del Ministerio.
-f) Recomendar los ascensos, rotaciones y traslados de los funcionarios de la carrera, para lo cual la Comisión llevará los expedientes personales preparados por el Departamento de Personal del Ministerio.
-g) Imponer a los funcionarios del Servicio Exterior, con excepción de las amonestaciones verbales o escritas, las medidas disciplinarias por el incumplimiento de los deberes o por haber incurrido en las prohibiciones que establecen los artículos 31 y 35 del Estatuto del Servicio Exterior y su Reglamento, de conformidad con las disposiciones del capítulo IV de la ley Nº 3530; y
-h) Las demás atribuciones que por otras disposiciones le correspondan y las que le puede asignar el Ministro de Relaciones Exteriores y Culto.

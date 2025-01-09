@@ -1,1 +1,0 @@
-ARTICULO 77.- La asesoría estará coordinada por la Dirección General del Ministerio en las tareas descritas en el capítulo XII de este Reglamento, aunque los asesores estarán en la obligación de evacuar consultas directas que les plantearen el Ministro y el Viceministro.

@@ -1,7 +1,0 @@
-ARTICULO 68.- De los permisos.
-a) El Consejo de Administración tendrá la facultad de conceder o negar permisos para los servidores del Ministerio.
-b) Todo funcionario que pretenda efectuar algún tipo de práctica, pasantía, o curso para especializar sus conocimientos fuera del país, deberá contar por lo menos con dos años de servicio en propiedad en el Ministerio, salvo en casos muy calificados que a juicio del Consejo, sea beneficioso dicho viaje para el Ministerio.
-c) La solicitud de permiso en razón de lo dispuesto por el artículo anterior, se presentará al Consejo, él que en definitiva decidirá, tras un minucioso análisis, el caso. El Consejo deberá determinar de acuerdo con las regulaciones vigentes, si el permiso se extiende con goce o sin goce de sueldo, debiendo motivar su decisión.
-d) No estarán sujetos a las disposiciones anteriores, aquellos funcionarios a quienes se les encargue una misión especial en representación del Ministerio o del Gobierno de la República.
-e) En aquellos casos en que un funcionario del Ministerio sea invitado a título personal a un evento internacional, en razón de sus méritos, conocimientos especializados, o en virtud de algún cargo o posición, deberá informarlo al Consejo de Administración para los trámites correspondientes.
-f) Los servidores a quienes se les autorice un permiso o licencia fuera del país, deberán presentar a su regreso un informe detallado al Consejo, en su reincorporación a las labores.

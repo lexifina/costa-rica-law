@@ -1,1 +1,0 @@
-ARTICULO 34.- La Dirección de Protocolo tendrá centralizados sus archivos de trabajo en sus propias oficinas, lo mismo que los libros y documentos referentes a registros especiales de uso diario. Mientras no se disponga de mayor espacio, esos libros y documentos, una vez agotada su capacidad, podrán pasar al Archivo General.

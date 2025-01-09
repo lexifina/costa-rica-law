@@ -1,2 +1,0 @@
-ARTICULO 123.- En cualesquiera de los tres casos citados, los funcionarios consulares reciben instrucciones del Ministerio de Relaciones Exteriores y Culto, en lo que se refiere a políticas consulares; del Ministerio de Gobernación y Policía en lo que se refiere a Migración y Extranjería; y del Ministerio de Comercio Exterior o dependencia equivalente en lo que se refiere a materias de su competencia.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 38435 del 14 de marzo del 2014, que lo traspasó del artículo 122 al 123)

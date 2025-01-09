@@ -1,8 +1,0 @@
-ARTICULO 43.- Son sus funciones principales:
-a) Asesorar a sus superiores jerárquicos en materia económica multilateral y bilateral y en la propuesta de planes y de los instrumentos adecuados para su ejecución.
-b) Servir de órgano de enlace y coordinar entre el Ministerio de Relaciones Exteriores y Culto y las instituciones estatales relacionadas con los programas de integración y política económica y comercio exterior.
-c) Atender directamente, en estrecha coordinación con otras divisiones y oficinas de la Cancillería los asuntos tratados en los organismos internacionales de carácter económico y comercial.
-d) Participar en la elaboración de las directrices e instrucciones destinadas a las delegaciones y representaciones costarricenses en el exterior que asistan a negociaciones bilaterales o multilaterales, congresos, conferencias y foros de carácter económico, comercial o financiero, teniendo en cuenta la necesaria coordinación con los organismos nacionales correspondientes.
-e) Dirigir la recopilación de datos, la elaboración de información, la distribución de material informativo y el desarrollo de investigaciones y estudios que sirvan de base para la formulación de planes y el cumplimiento de sus funciones.
-f) Intervenir en la conclusión de tratados y otros instrumentos en el área de su competencia.
-g) Intervenir en el estudio, la elaboración y la evaluación de los proyectos, programas, y directivas sectoriales preparados por otros órganos de la administración pública centralizada o descentralizada, que tengan importancia para la política exterior del país, con el fin de asegurar la necesaria coherencia en su ejecución.

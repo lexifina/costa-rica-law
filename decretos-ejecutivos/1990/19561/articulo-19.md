@@ -1,3 +1,0 @@
-CAPITULO VII
-De la Dirección de Protocolo y Ceremonial del Estado
-ARTICULO 19.- Corresponde a la Dirección del Protocolo y Ceremonial del Estado todo cuanto se refiere al Derecho Diplomático y a la aplicación de las reglas usuales del Protocolo, así como a las inmunidades y privilegios diplomáticos y al control y autorización de las exenciones aduaneras para los diplomáticos, cónsules, miembros de las misiones internacionales acreditadas en Costa Rica, para el culto católico, las asociaciones religiosas en general, fundaciones privadas o públicas que se establezcan en el país con fines culturales, científicos, de bienestar social o en favor de programas para el desarrollo económico, y para los diplomáticos costarricenses que regresan al país al terminar sus funciones.

@@ -1,3 +1,0 @@
-CAPITULO IX
-Disposiciones generales para la Dirección de Protocolo.
-ARTICULO 33.- Los agregados honorarios son funcionarios dependientes de la Dirección de Protocolo, quienes actúan con instrucciones y por delegación de ésta en la preparación, asistencia y ejecución de los actos oficiales y sociales del Gobierno de la República. Tienen categoría diplomática y comienzan en el servicio del Ministerio con Agregados y Adjuntos al Protocolo, pudiendo ser ascendidos a categorías superiores, de acuerdo con sus méritos y tiempo de servicio, dentro de las categorías diplomáticas de equivalencia que establece el Estatuto de Servicio Exterior de la República.
