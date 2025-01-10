@@ -1,0 +1,2 @@
+Artículo 20.- (El texto de este numeral debe de ser consultado en el artículo 19, ya que por medio del numeral 2° del decreto del Tribunal Supremo de Elecciones, N° 1 del 10 de enero del 2025, se ordenó derogar el artículo 16.)
+(Así modificada su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 1 del 10 de enero del 2025, que lo traspaso del antiguo artículo 19 al artículo 20)
