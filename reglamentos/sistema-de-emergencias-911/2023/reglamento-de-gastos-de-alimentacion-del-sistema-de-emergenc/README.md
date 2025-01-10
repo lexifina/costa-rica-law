@@ -14,3 +14,4 @@ Reglamento de gastos de alimentación del Sistema de Emergencias 9-1-1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-08 | la propia norma |
+| 2 | 2025-01-10 | Reglamento 0 (2025-01-10) |

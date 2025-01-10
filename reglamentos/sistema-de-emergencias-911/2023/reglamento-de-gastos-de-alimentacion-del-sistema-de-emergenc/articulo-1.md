@@ -7,7 +7,10 @@ Considerando:
 1.-Que la auditoría interna emitió informe de advertencia 911-AI-2017-0711 del 24 de abril del 2017.
 2.-Según ha establecido la Contraloría General de la República en su jurisprudencia como el oficio DFO-DL-0666 del 8 de agosto del 2017 lo siguiente: ".las Administraciones tienen la competencia y potestad de asegurar la regularidad jurídica de su accionar en todo momento por lo que sí es posible establecer normas reglamentarias que restrinjan y controlen los gastos de alimentación en reuniones y capacitaciones. Esas regulaciones previenen el uso indebido de los fondos públicos, evitando que el brindar alimentación, se preste para eventuales abusos, privilegios, despilfarros, liberalidades y otras malas prácticas asociadas al uso de los fondos públicos.".
 3.-Que, el Sistema de Emergencias 9-1-1 es un órgano de desconcentración máxima adscrito al Instituto Costarricense de Electricidad y por la naturaleza de las actividades mismas, cuando surgen situaciones imprevistas y excepcionales que requieren la coordinación interinstitucional que prevalece como objetivo de ley, se requiere.
-4.-Que, con el objetivo de cumplir con las disposiciones dictadas por la Contraloría General de la Republica en materia de los gastos por concepto de alimentación, y en aras de buscar la racionalidad en la utilización de los recursos financieros se emite el presente reglamento.
+4. Que por la naturaleza del servicio que presta la Institución en la atención de llamadas de emergencia 24/7, los 365 días del año; es necesario contar con bebidas calientes (café, té) durante la jornada laboral, con el propósito de contribuir con la optimización en el uso de los recursos energéticos, manejo de desechos y aumentar la productividad.
+(Así adicionado el considerado anterior y publicado en La Gaceta N° 5 del 10 de enero de 2025)
+5.-Que, con el objetivo de cumplir con las disposiciones dictadas por la Contraloría General de la Republica en materia de los gastos por concepto de alimentación, y en aras de buscar la racionalidad en la utilización de los recursos financieros se emite el presente reglamento.
+(Así modificada la numeración del considerado anterior y publicado en La Gaceta N° 5 del 10 de enero de 2025, que lo traspaso del antiguo considerando 4 al considerando 5)
 -CAPÍTULO I
 Términos y definiciones
 Fondos Públicos: Son los recursos, valores, bienes y derechos, propiedad del Sistema de Emergencias 9-1-1.
@@ -17,4 +20,5 @@ Principio de Eficiencia: La aplicación más conveniente de los recursos asignad
 Principio de Legalidad: Es el sometimiento de toda actuación pública al ordenamiento jurídico.
 CAPÍTULO II
 Disposiciones generales
-Artículo 1°-Objetivo. El presente Reglamento tiene como objetivo regular lo concerniente a las erogaciones por concepto de gastos de alimentación, que se generen en las jornadas ordinarias y extraordinarias de trabajo de sus funcionarios y de las instituciones adscritas, y en las sesiones de trabajo de la Comisión Coordinadora o del Comité Técnico Asesor (COTEA).
+Artículo 1°- Objetivo: El presente Reglamento tiene como objetivo regular lo concerniente a las erogaciones por concepto de gastos de alimentación, que se generen en las jornadas ordinarias y extraordinarias de trabajo de sus funcionarios y de las instituciones vinculadas y articuladas, y las sesiones de trabajo de la Comisión Coordinadora, del Comité Técnico Asesor (COTEA) así como la atención de reuniones con entes externos.
+(Así reformado y publicado en La Gaceta N° 5 del 10 de enero de 2025)
