@@ -1,0 +1,1 @@
+ARTICULO 76. Del cuido de la cancha. Se deben utilizar sin excepción los aditamentos e insumos para la protección del piso del gimnasio como alfombras, paños y trapos de limpieza estipulados por el CCDRG y según el manual, si la actividad de uso lo amerita.

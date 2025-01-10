@@ -1,0 +1,1 @@
+ARTÍCULO 63. Limitación de reservas El administrador podrá limitar el máximo de horas a reservar por cada semana y usuario por razón de la demanda existente, quedando como prioritario los planes de desarrollo del deporte que tenga el CCDRG

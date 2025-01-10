@@ -1,0 +1,1 @@
+ARTICULO 73. Sobre la manipulación de los implementos de juego. Solo las personas autorizadas y capacitadas mediante la coordinación por parte de este comité pueden realizar la manipulación de los implementos dispuestos en la cancha como tableros, postes, net, marcos, alfombras, similares

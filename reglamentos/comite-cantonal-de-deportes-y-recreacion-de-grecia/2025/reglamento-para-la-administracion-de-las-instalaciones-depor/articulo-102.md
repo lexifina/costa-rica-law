@@ -1,0 +1,1 @@
+ARTÍCULO 102. Uso de los camerinos. Los mismos permanecerán habilitados solo en caso de partidos, actividades que ameriten su uso, arrendamiento que así lo incluya, o a solicitud previa a la junta directiva. Los mismos no serán de acceso al público o usuarios en general.

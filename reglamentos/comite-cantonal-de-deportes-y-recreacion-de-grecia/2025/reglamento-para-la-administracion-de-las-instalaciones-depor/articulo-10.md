@@ -1,0 +1,1 @@
+ARTÍCULO 10. Información a disposición de los interesados. El CCDRG brindará por medio de sus redes sociales, en sus oficinas administrativas o por medios de comunicación local; información general sobre las instalaciones deportivas en su administración directa o indirecta.

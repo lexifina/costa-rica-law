@@ -1,0 +1,1 @@
+ARTÍCULO 98. Ingreso de vehículos a la pista. Solo se permitirá el ingreso de vehículos de emergencia que vengan para ejercer tal fin. Y de vehículos con el fin de cargar y descargar materiales o similares dentro del estadio previa autorización de la administración del CCDRG.

@@ -1,0 +1,1 @@
+ARTÍCULO 100. Acceso a las graderías. El área de sombra permanecerá cerrada y se habilitará solo en caso de eventos especiales o por orden de la administración. El área de sol permanecerá dispuesta para el uso de los visitantes.

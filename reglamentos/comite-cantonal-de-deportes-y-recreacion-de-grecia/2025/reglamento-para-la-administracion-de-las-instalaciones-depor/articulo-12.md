@@ -1,0 +1,1 @@
+ARTÍCULO 12. De la fijación de las tarifas. Las tarifas serán fijadas anualmente por el CCDRG, previo estudio tarifario y serán ratificadas por el Concejo Municipal, en plazo no mayor a 30 días naturales, una vez presentada la propuesta.

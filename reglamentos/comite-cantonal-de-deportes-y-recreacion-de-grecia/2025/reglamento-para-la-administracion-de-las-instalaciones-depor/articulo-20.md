@@ -1,0 +1,1 @@
+ARTÍCULO 20. Prohibición de acceso. En el caso de que se impida el acceso al recinto de las instalaciones deportivas y recreativas a alguna persona o entidad, dicho impedimento será motivo de una resolución razonada y motivada del CCDRG la cual puede ser verbal o escrita, contra la que cabe la interposición de los recursos que en su caso procedan, según la legislación vigente.

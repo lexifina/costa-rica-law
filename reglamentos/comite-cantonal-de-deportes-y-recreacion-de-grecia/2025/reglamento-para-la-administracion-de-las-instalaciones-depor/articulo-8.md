@@ -1,0 +1,2 @@
+ARTÍCULO 8. Responsabilidad de los administradores de las instalaciones deportivas.
+El administrador a cargo de la instalación deportiva y recreativa será el responsable de mantener en perfecto estado de funcionamiento las instalaciones, la limpieza de los servicios sanitarios, vestuarios, duchas, jardines y zonas verdes. El CCDRG deberá brindar seguimiento al buen funcionamiento y mantenimiento de todas las instalaciones deportivas y recreativas bajo su administración directa o indirecta.

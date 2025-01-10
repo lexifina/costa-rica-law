@@ -1,0 +1,2 @@
+CAPÍTULO XIII. DE LAS ESCUELAS DEPORTIVAS
+ARTÍCULO 54. Desarrollo de Escuelas Deportivas. El CCDRG podrá estructurar programas para el desarrollo de las escuelas deportivas utilizando las instalaciones deportivas y recreativas administradas por sí mismo o por los comités comunales o comisiones estructuradas para ese fin. Asimismo, el administrador de la instalación, podrá también en coordinación con el CCDRG desarrollar escuelas deportivas o en su defecto alquilar las instalaciones para que terceros realicen esa función.

@@ -1,0 +1,1 @@
+ARTÍCULO 51. Suspensión de actividades o cursos. La junta directiva del CCDRG podrá suspender actividades o cursos cuando por razones objetivas su continuidad no quede justificada, en cuyo caso serán reintegradas las cuotas canceladas correspondientes a dicho curso o periodo.
