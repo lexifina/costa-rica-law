@@ -6,3 +6,5 @@ b) Cumplir las normas establecidas en el presente reglamento, las leyes que rige
 c) Asegurar el debido resguardo de toda la documentación y equipo que la administración municipal les facilite; que maneje la Comisión en el ejercicio de sus funciones.
 d) Asistir obligatoriamente a todas las sesiones de la Comisión de Festejos Populares.
 e) Coordinar acciones con la Comisión Fiscalizadora de los Festejos Populares del Concejo Municipal, cuando así sea solicitado por la misma.
+f) Convocar obligatoriamente a la Comisión Fiscalizadora de los Festejos Populares, a todas las Sesiones Ordinarias y Extraordinarias, que celebre la Comisión de Festejos Populares.
+(Así adicionado el inciso anterior en sesión N° 036 del 10 de enero de 2025)

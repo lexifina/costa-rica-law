@@ -16,3 +16,4 @@ Reglamento de organización y funcionamiento de los Festejos Populares de la Mun
 | 1 | 2009-05-18 | la propia norma |
 | 2 | 2011-06-28 | Reglamento municipal 61 (2011-06-28) |
 | 3 | 2023-11-28 | Reglamento municipal 186 (2023-11-28) |
+| 4 | 2025-01-10 | Reglamento municipal 36 (2025-01-10) |
