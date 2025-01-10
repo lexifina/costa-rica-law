@@ -1,0 +1,4 @@
+CAPITULO XVIII
+DE LAS INCAPACIDADES PARA TRABAJAR Y SUBSIDIOS
+ARTÍCULO 117:
+Se tendrá por justificadas las ausencias del servidor motivadas por incapacidad para trabajar, debidamente acreditada por la CCSS en caso de enfermedad, maternidad o por el INS en caso de riesgo profesional, bajo las siguientes disposiciones.

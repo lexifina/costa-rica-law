@@ -1,0 +1,2 @@
+ARTICULO 153:
+Para justificar una omisión de marca por una única vez en el mes, el funcionario deberá justificar por escrito ante la jefatura inmediata el mismo día en que se produzca, con exposición clara y precisa de las razones que impidieron al servidor efectuar la marca correspondiente. La jefatura remitirá la documentación, adjuntando su criterio razonado, a el Departamento de Recursos Humanos, dentro de los tres días hábiles siguientes al recibo de la justificación.

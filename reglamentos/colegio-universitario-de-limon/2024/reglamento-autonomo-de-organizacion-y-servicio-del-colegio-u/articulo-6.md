@@ -1,0 +1,2 @@
+ARTÍCULO 6:
+El acto administrativo concreto será eficaz a partir de su notificación al servidor de conformidad con lo dispuesto en el artículo 140 de la Ley General de la Administración Pública, excepto si le concede únicamente derechos o beneficios, en cuyo caso producirá efectos desde que se adopte.

@@ -1,0 +1,2 @@
+ARTÍCULO 2:
+Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento y las políticas que se deriven de los mismos, son de aplicación obligatoria en todo lo relacionado con los derechos, beneficios y deberes de los servidores. El presente reglamento hará una distinción, cuando proceda, en cuanto a los servidores que hayan sido contratados antes y después de la entrada en vigencia de la Ley Nº 10159 Ley Marco de Empleo Público, el diez de marzo del dos mil veintitrés, por así requerirlo la misma.

@@ -1,0 +1,3 @@
+ARTÍCULO 53:
+La asignación del trabajo y funciones académicas para los docentes, será proporcional a la jornada académica y nombramiento asignado.
+Para efectos de lo señalado en este artículo el trabajo y las funciones académicas será asignado por los Coordinadores de Carrera o de Programa, aprobadas por la Dirección Académica y la Dirección de Educación Comunitaria y Asistencia Técnica respectivamente, el trabajo y las funciones académicas podrán ser desarrolladas en todas las áreas de gestión del CUNLIMON sean estas, carreras, cursos libres y programas, dentro de las zonas de influencia y Sedes de la institución.

@@ -1,0 +1,2 @@
+ARTÍCULO 83:
+El Jefe inmediato concederá una entrevista al servidor que lo solicite quien deberá presentar también en esa oportunidad la prueba de su interés, dentro de los tres días hábiles siguientes al recibo de la impugnación y deberá resolver el recurso dentro de los tres días hábiles siguientes a esa entrevista. La resolución deberá ser notificada al servidor en el lugar que señale o en su puesto de trabajo, dentro de los tres días hábiles siguientes.

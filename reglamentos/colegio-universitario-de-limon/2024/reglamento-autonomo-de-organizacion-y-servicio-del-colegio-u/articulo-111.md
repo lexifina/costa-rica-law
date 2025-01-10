@@ -1,0 +1,2 @@
+ARTÍCULO 111:
+Será responsabilidad de la Comisión de Salud Ocupacional el elaborar el diagnóstico de las condiciones de trabajo, el programa de salud ocupacional y si existieran condiciones de trabajo adversas a su salud deberán crearse los respectivos protocolos de seguridad para salvaguarda de su vida, que será validado a lo interno del CUNLIMON y deberá contar con el respectivo aval del Consejo de Salud Ocupacional.

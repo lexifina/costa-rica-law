@@ -1,0 +1,4 @@
+ARTÍCULO 29:
+Las plazas vacantes deberán ser llenadas atendiendo lo señalado en este reglamento, mediante los concursos ordinarios internos y externos. Las plazas vacantes podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso correspondiente. En estos casos el Decano podrá nombrar hasta por un periodo de seis meses, prorrogables por periodos iguales, en tanto se concluya con la selección y nombramiento del personal idóneo.
+Para la realización de los concursos para la selección del personal en las plazas vacantes, la Decanatura determinara el inicio del concurso, basada en criterios de razonabilidad y oportunidad.
+Las personas servidoras públicas que, antes de la entrada en vigencia de la Ley Nº 10159, formen parte de registros de elegibles con nombramientos de forma interina, no serán sujetas a los procedimientos de reclutamiento y selección derivados de dicha ley.

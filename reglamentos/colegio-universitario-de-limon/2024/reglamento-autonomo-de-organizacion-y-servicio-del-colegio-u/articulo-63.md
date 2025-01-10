@@ -1,0 +1,6 @@
+ARTICULO 63:
+Para la selección y nombramiento de los coordinadores de carreras y programas se recurrirá a los concursos ordinarios correspondientes, el procedimiento de selección y nombramiento de los coordinadores será llevado a cabo por el Departamento de Recursos Humanos al amparo de lo dispuesto en este Reglamento y lineamientos del concurso para la selección de los coordinadores de carrera, programas y sedes regionales.
+En caso de no existir candidato calificado, la Dirección recurrirá al Registro de Elegibles, nombrando a un funcionario interino hasta tanto se resuelva realizar un nuevo concurso.
+De persistir la no existencia de candidato calificado para ocupar el puesto de coordinador dentro del Registro de Elegibles, las Direcciones Académica y de Educación Comunitaria y Asistencia Técnica, podrán nombrar a un profesional, dispensado parcialmente alguno de los requisitos para su nombramiento.
+Dicha selección y nombramiento, así como el dispensado parcial de algún requisito, deberá contar con las justificaciones respectivas, además de contar con la aprobación de la Decanatura del Colegio.
+Las funciones y normas de contratación de los coordinadores de carrera o de programa serán las establecidas en el manual descriptivo de puestos y este Reglamento.

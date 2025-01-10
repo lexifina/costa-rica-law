@@ -1,0 +1,2 @@
+ARTÍCULO 75:
+El desempeño de los servidores docentes será evaluado y calificado como mínimo una vez cada período lectivo y la calificación se expresarán en términos de excelente, muy bueno, bueno, regular y deficiente.

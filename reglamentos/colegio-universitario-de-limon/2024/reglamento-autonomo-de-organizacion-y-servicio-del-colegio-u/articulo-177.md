@@ -1,0 +1,4 @@
+ARTÍCULO 177:
+Las sanciones establecidas en el presente capítulo serán aplicadas por los representantes patronales, dentro de un mes contado a partir del momento que haya concluido el procedimiento en el que se determine la responsabilidad del servidor.
+En los casos en que la sanción deba estar precedida de una investigación previa, dicho plazo se contará a partir de la finalización de ese trámite.
+Se exceptúan de las disposiciones anteriores aquellas conductas que constituyan infracciones al ordenamiento de control o fiscalización superior, o a las normas para prevenir la corrupción y el enriquecimiento ilícito en la función pública, respecto a las cuales, la potestad disciplinaria prescribirá de acuerdo con las reglas establecidas en el artículo 71 de la Ley Orgánica de la Contraloría General de la República.
