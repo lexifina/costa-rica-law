@@ -16,3 +16,4 @@ Reglamento especial sobre la certificación de actualización profesional en dis
 | 1 | 2020-04-05 | la propia norma |
 | 2 | 2021-11-02 | Reglamento 1 (2021-11-02) |
 | 3 | 2022-05-24 | Reglamento 23 (2022-05-24) |
+| 4 | 2025-01-10 | Reglamento 11 (2025-01-10) |

@@ -1,5 +1,7 @@
-Artículo 26.—El profesional que tenga su Certificación de Actualización Profesional próximo a vencer, deberá solicitar la renovación para mantener esa condición. Para tales efectos deberá cumplir los siguientes requisitos:
+Artículo 26.-Para efectos de solicitar la renovación el profesional deberá cumplir con los siguientes requisitos:
 a) Estar habilitado para el ejercicio profesional.
 b) Estar al día con sus obligaciones ante el CFIA.
-c) Acreditar que ha participado activamente en labores de: diseño, inspección, Dirección de Obra, Responsabilidad de la ejecución de la construcción (REC) y/o verificación, de instalaciones eléctricas y de telecomunicaciones de proyectos eléctricos en edificios o plantas de producción con capacidades en transformadores mayor a 50 KVA, que la suma de la carga total, al menos sea de 300 KVA, durante cinco años. Se deberá presentar experiencia comprobada.
-d) Acreditar 75 horas lectivas durante los cinco años de vigencia del CAPDEE en capacitaciones formal de aprovechamiento avalados por la COMCAP, en los temas que se darán a conocer por el sitio web del CFIA o por los medios que al efecto establezca la JDG.
+c) Acreditar que ha participado activamente durante los últimos cinco años en cualquiera de las siguientes labores: diseño, inspección, Dirección de Obra, Responsabilidad de la ejecución de la construcción (REC) y verificación de instalaciones eléctricas de proyectos eléctricos en edificios o plantas de producción con capacidades en transformadores mayor a 50 KVA, que la suma de la carga total, al menos sea de 300 KVA.
+La experiencia se acreditará únicamente con proyectos registrados ante el CFIA donde conste el registro de la responsabilidad profesional de la persona solicitante.
+d) Acreditar 75 horas lectivas durante los últimos cinco años en capacitaciones formal de aprovechamiento avalados por la COMCAP, en los temas que se darán a conocer por el sitio web del CFIA o por los medios que al efecto establezca la JDG.
+(Así reformado mediante sesión N° 11-24/25- G.O del 10 de enero de 2025)

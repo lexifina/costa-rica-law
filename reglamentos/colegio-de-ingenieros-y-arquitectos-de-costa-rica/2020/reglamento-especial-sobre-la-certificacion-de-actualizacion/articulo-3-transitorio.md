@@ -1,0 +1,2 @@
+Transitorio III.-Las solicitudes para obtener por primera vez la certificación CAPDEE que se presentaron al CFIA previo a la entrada en vigencia de la presente reforma continuarán sustanciándose por las disposiciones que se encontraban vigentes al momento de su presentación en el Reglamento Especial sobre la Certificación de Actualización Profesional en Diseño Eléctrico de Edificios del CFIA aprobado mediante sesión N° 08 de la sesión16-19/20-G.E. de Junta Directiva General del 17 de marzo de 2020.
+(Así adicionado mediante sesión N° 11-24/25- G.O del 10 de enero de 2025)
