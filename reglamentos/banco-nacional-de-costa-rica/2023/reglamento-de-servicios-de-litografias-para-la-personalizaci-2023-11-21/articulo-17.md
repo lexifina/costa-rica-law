@@ -1,0 +1,2 @@
+Artículo 17.-Plazo para producción, entrega de fórmulas y activación de cheques.
+La Litografía se deberá comprometer a que, una vez aprobado el expediente por el Banco, cuenta con 3 meses para realizar el tiraje de los cheques, realizar la entrega al cliente, presentar el acta y documentos respectivos para la activación ante el Banco, caso contrario el Banco se reserva el derecho de anular la solicitud a nivel de sistema.

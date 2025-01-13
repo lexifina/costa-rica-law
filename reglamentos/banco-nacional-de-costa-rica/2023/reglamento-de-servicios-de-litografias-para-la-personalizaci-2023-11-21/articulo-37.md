@@ -1,0 +1,1 @@
+Artículo 37.-Acatamiento obligatorio. Durante todo el plazo de la ejecución del acuerdo será de acatamiento obligatorio para las litografías acreditadas, todas y cada una de las disposiciones contenidas en este Reglamento y el acuerdo suscrito con el Banco.

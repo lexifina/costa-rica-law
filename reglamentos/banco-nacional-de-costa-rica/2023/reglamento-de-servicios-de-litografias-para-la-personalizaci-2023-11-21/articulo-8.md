@@ -1,0 +1,2 @@
+Artículo 8°-Garantía de los cheques.
+Las empresas deberán otorgar una garantía de 24 meses sobre el papel y las tintas de seguridad utilizadas en la producción de los formularios, los cuales serán contados a partir de la fecha de aprobación y activación de los cheques por parte del Banco. Asimismo, deberán de presentar la certificación que garantice la composición del papel y la certificación de las tintas utilizadas en los cheques que garantice la composición de las tintas, esto con el fin de validar cualquier alteración al documento por borrado químico o mecánico.

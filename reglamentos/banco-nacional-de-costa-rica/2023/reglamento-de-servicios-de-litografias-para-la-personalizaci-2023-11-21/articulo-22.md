@@ -1,0 +1,2 @@
+Artículo 22.-Cambios e inclusión de nuevos diseños de cheques.
+La litografía debe de manifestar su anuencia para incluir nuevos diseños o cambiar el diseño del formulario del cheque en atención a modificaciones requeridas por el Banco. Dichos cambios serán comunicados a la Litografía con un mínimo de 90 días naturales de antelación salvo casos especiales y previamente acordados con la litografía. Por lo que, el Banco solicitará una muestra con el nuevo diseño para ver si hay que realizarle cambios o bien, para dar el visto bueno al mismo.

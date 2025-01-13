@@ -1,0 +1,6 @@
+CAPÍTULO III:
+Entrega de artes y revisión de muestras
+para aprobación definitiva.
+Las empresas que cuenten con la preaprobación deberán de presentar muestras de cheques con los diferentes diseños del Banco para someterlos a revisión, con el fin de que el Banco pueda validar el cumplimiento de los requerimientos técnicos en la producción de cheques de Serie Especial y emita la autorización final. A continuación, se detalla el procedimiento:
+Artículo 9°-Entrega de los diseños de cheques.
+La oficina de Emisión de Valores del Banco, por medio de correo electrónico les brindará a las empresas que cuenten con la preaprobación, dentro de los cinco (5) días hábiles posteriores de recibir la notificación de la Preaprobación para emitir cheques de Serie Especial del Banco Nacional de Costa Rica, los artes con los diferentes diseños de cheques autorizados en el Banco Nacional, con el fin de que realicen las muestras impresas respectivas.

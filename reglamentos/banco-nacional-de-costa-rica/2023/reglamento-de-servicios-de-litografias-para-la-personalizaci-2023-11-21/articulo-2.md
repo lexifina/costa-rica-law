@@ -1,0 +1,2 @@
+Artículo 2°-Definición de Litografías Acreditadas.
+Se define a las Litografías Acreditadas como todas aquellas empresas que han cumplido con las condiciones establecidas en el presente reglamento y han suscrito un acuerdo con el Banco Nacional en donde se comprometen a cumplir con las condiciones especificadas por el Banco para contar con el aval de emitir cheques personalizados en serie especial a favor de los clientes del Banco Nacional solamente en Costa Rica.
