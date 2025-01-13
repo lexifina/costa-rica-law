@@ -1,0 +1,1 @@
+Artículo 6º-Especificaciones técnicas. Corresponderá a la UTI elaborar las especificaciones técnicas de los equipos de cómputo que sean necesarios para satisfacer las demandas específicas de las dependencias del IFAM. Esto se llevará a cabo de acuerdo con las necesidades particulares de cada dependencia y tomando en consideración las tecnologías disponibles en el mercado.

@@ -1,0 +1,1 @@
+Artículo 11º-Actualización de software. El detalle del software que la UTI haya instalado en las computadoras propias o administradas (pues podría ser un arrendamiento o préstamo) por el IFAM será actualizado en las diferentes dependencias, conforme se adquieren nuevas versiones de este, previa comunicación a éstas para coordinar dichas labores.

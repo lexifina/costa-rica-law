@@ -1,0 +1,1 @@
+Artículo 29º-Uso personal de los dispositivos de identificación. En ninguna circunstancia deberá compartirse la cuenta de usuario de dominio asignada por el IFAM, ni la clave de acceso a dicha cuenta, ni cualquier medio de identificación provisto para accesar a sistemas institucionales.

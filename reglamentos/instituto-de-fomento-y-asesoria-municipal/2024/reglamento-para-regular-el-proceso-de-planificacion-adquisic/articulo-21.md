@@ -1,0 +1,1 @@
+Artículo 21º-Diagnóstico de fallas técnicas. En el caso de fallas técnicas del equipo de cómputo, la UTI realizará un diagnóstico preliminar, con el objeto de procurar la solución, o en su defecto, girar las instrucciones del procedimiento a seguir para su reparación.

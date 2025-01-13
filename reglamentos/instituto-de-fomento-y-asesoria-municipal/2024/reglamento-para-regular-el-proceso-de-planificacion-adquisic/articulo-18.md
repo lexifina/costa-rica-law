@@ -1,0 +1,1 @@
+Artículo 18.-Revisión técnica de los equipos de cómputo. Los equipos recibidos de los proveedores serán revisados técnicamente por la UTI antes de ser recibidos a satisfacción y distribuidos a las diferentes dependencias del IFAM, para validar que cumplan o superen las especificaciones solicitadas.

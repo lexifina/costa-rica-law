@@ -1,0 +1,1 @@
+Artículo 27º-Acceso a los sistemas informáticos. En las oficinas que cuenten con una red de equipo de cómputo se utilizará la cuenta de usuario de dominio asignada por el IFAM, la clave de acceso u otros medios de identificación del usuario, para el acceso a los sistemas institucionales.

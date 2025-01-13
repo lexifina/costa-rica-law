@@ -1,0 +1,1 @@
+Artículo 32º-Uso de recursos informáticos fuera del IFAM. Cuando los recursos informáticos del IFAM sean utilizados fuera de sus instalaciones, éstos deberán ser protegidos en todo momento, por el usuario a su cargo. Aún fuera de las instalaciones del IFAM, deben seguirse las prevenciones y recomendaciones del fabricante de los equipos.

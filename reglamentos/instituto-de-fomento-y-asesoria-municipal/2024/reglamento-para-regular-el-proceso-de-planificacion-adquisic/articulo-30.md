@@ -1,0 +1,1 @@
+Artículo 30º-Prohibición para el almacenamiento y trasiego de datos de carácter personal. Está prohibido el almacenamiento, la transmisión, transferencia y, difusión de datos de carácter personal en los equipos del IFAM, sin contar con autorización válidamente emitida por quien esté legitimado para ello.

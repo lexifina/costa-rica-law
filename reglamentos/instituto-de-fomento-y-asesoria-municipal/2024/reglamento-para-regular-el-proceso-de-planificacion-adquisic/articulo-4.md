@@ -1,0 +1,4 @@
+Artículo 4º-Requisitos de Adquisición. Toda contratación en materia de tecnologías de información debe de realzarse de conformidad con la normativa aplicable para las compras en el Sector Público y cumplir con lo siguiente:
+a) Todo el hardware y software para adquirir debe adquirirse con soporte y garantía de al menos tres años. En caso de no contar con presupuesto para realizar el pago de los tres años, se deberá de adquirir el soporte y garantía con pagos anuales.
+b) Se debe verificar que el proveedor o fabricante del hardware y software ofrezca un soporte técnico durante un periodo mínimo de tres años a partir de la fecha de adquisición.
+c) Es necesario que el proveedor o fabricante proporcione una garantía de tres años que cubra posibles defectos de fabricación, problemas de funcionamiento y errores del software adquirido.

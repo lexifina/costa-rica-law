@@ -1,0 +1,1 @@
+Artículo 16º-Mantenimiento preventivo y correctivo. La UTI deberá brindar el mantenimiento preventivo y correctivo a todos los equipos de cómputo de la institución de acuerdo con las especificaciones del fabricante. Ningún usuario podrá dar ningún tipo de mantenimiento a los equipos del IFAM, que implique que estos pierdan su garantía.
