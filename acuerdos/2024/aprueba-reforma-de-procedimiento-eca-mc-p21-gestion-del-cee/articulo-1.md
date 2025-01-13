@@ -1,0 +1,5 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISO 2024-012
+El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 10473 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los documentos: ECA-MC-P21 Gestión del CEE pasó a versión 10, ECA-MC-PT24 Proceso de transición a la norma ISO 17043:2024, versión 01, ECA-MC-P13-I06 Instructivo Evaluación Remota y uso TICS, pasó a versión 02. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, Avenida 02 y Calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h.
+San José, 31-10-2024.-
+(Nota de Sinalevi: Por tener articulado propio los procedimientos ECA-MC-P21 Gestión del CEE, ECA-MC-PT24 Proceso de transición a la norma ISO 17043:2024, ECA-MC-P13-I06 Instructivo Evaluación Remota y uso TICS deben ser consultados en el Sistema de forma independiente:)
