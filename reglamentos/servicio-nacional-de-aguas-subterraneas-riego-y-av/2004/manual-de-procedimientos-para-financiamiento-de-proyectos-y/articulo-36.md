@@ -1,1 +1,0 @@
-Artículo 36.—El Departamento Legal u oficina que se le hayan trasladado los documentos para cobro judicial contará con 60 días naturales para realizar los trámites necesarios ante el juzgado que competa.
