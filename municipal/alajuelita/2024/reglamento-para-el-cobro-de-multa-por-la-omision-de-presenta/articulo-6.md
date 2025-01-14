@@ -1,0 +1,1 @@
+Artículo 6º-Incumplimiento del deber. Ante el incumplimiento del deber establecido en el artículo 16 de la Ley N° 7509, acarreará la imposición por parte de la Administración de la multa contenida en el artículo 17 de dicha norma, mediante los procedimientos indicados en este Reglamento.

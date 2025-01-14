@@ -1,0 +1,1 @@
+Artículo 3º-Alcance. Este reglamento rige para todo el Cantón de Alajuelita, afectando a cualquier persona física y /o jurídica, propietario(s) o poseedor(a) por cualquier título, usufructuarios y /o albacea administrador de las fincas inscritas o sin inscribir, y a los representantes de los propietarios que se indican en el artículo 7° del presente reglamento.

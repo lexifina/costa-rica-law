@@ -1,0 +1,2 @@
+CAPÍTULO IV. Disposiciones finales
+Artículo 22º-Movimientos registrales de la finca. Las multas establecidas mediante acto final y que pesen sobre un bien inmueble determinado, deberán ser pagadas por el sujeto pasivo; en casos de traspaso, compraventa, proporción de copropietarios, segregación, reunión de fincas, y cualquier otra modificación de valor que se haya registrado en la base de datos municipal es el actual titular quien adquiere la deuda existente.

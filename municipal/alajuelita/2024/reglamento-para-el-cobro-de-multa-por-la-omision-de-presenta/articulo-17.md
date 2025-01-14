@@ -1,0 +1,5 @@
+Artículo 17º-Para la imposición de la multa. La Administración Tributaria deberá de constatar los siguientes elementos:
+. la identificación del infractor: que debe ser el sujeto pasivo del impuesto, o bien su representante en los casos en que aplique, conforme al artículo siete del presente reglamento, incisos a), b), c), e) y f).
+. la conducta sancionable: es decir la no presentación de la declaración de bienes inmuebles.
+. la forma de cálculo de la sanción: que sea equivalente a la diferencia del impuesto dejado de pagar.
+Para la imposición de la sanción, la Administración Tributaria deberá de aplicar el avalúo y una vez que éste adquiera firmeza (hasta que se agote toda la fase recursiva) procederá con la notificación al propietario(s) de la resolución administrativa, donde se fundamente el cobro de esta multa, con el fin de que se garantice el debido proceso conforme se deriva del artículo 19 de la Ley N°7509, y como referencia los dictámenes de la Procuraduría General de la República C-181-2016, C-062-2017 y C-084-2017.
