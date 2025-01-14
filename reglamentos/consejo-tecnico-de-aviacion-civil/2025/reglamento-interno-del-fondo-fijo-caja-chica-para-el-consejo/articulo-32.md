@@ -1,0 +1,1 @@
+Artículo 32. -Informes de arqueos. La jefatura del Proceso de Tesorería realizará un programa de arqueos para el fondo fijo caja chica y las cajas auxiliares autorizadas y lo comunicará a los colaboradores del Proceso de Tesorería.

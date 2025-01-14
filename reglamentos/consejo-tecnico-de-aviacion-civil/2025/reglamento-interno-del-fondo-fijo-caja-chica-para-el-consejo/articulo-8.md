@@ -1,0 +1,5 @@
+Artículo 8º-Ampliaciones temporales a las cajas auxiliares. El responsable podrá solicitar formalmente a la Dirección General ampliaciones temporales para el fondo fijo caja chica, por un período que no exceda el mes calendario, con el fin de atender situaciones sumamente especiales, por razones de conveniencia, oportunidad e interés público, para lo cual, deberá ajustarse a lo siguiente:
+a) Solicitud de ampliación del fondo fijo caja chica, adjuntando la composición del fondo o el estado actual de los recursos autorizados al cierre del último semestre, el saldo en la cuenta corriente al último día del mes anterior, además del flujo de efectivo de los últimos tres meses.
+b) Indicar en la solicitud, la fecha en que se depositará el monto de la ampliación temporal.
+c) Acatar las disposiciones que por medio de lineamientos emita la Tesorería Nacional.
+d) Deberá reintegrar el monto de la ampliación temporal, una vez vencido el plazo para la existencia de dicha temporalidad. En todo caso, la temporalidad será finalmente aprobada por la Tesorería Nacional.

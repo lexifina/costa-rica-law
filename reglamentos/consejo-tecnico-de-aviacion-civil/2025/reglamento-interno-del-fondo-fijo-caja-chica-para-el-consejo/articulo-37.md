@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+Artículo 37. -Erogaciones con fondos propios. Las erogaciones que realicen las jefaturas de las unidades organizativas u otros colaboradores no autorizados con su peculio personal, para pagar materiales y suministros del Estado y aquellas erogaciones que incumplen con las estipulaciones de este reglamento o con los lineamientos emanados por la Tesorería Nacional y por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del colaborador que las realizó y no le serán reintegradas por medio del fondo fijo caja chica, salvo que excepcionalmente hubieran sido autorizadas previamente por el responsable de la caja chica.
