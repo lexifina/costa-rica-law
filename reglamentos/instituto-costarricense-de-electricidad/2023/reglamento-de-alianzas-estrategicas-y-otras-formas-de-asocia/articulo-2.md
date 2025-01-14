@@ -1,1 +1,0 @@
-Artículo 2°. Alcance. El presente reglamento debe ser aplicado por todas las dependencias que tengan a cargo la formulación, implementación, ejecución, evaluación, aprobación y gestión de alianzas estratégicas o cualquier otra forma de Asociación Empresarial, en el ICE.

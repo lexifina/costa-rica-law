@@ -1,1 +1,0 @@
-Artículo 32°. Asesoría y acompañamiento durante en la ejecución. Cualquiera de las áreas técnicas, administrativas, jurídicas, de gestión financiera y demás dependencias de la institución, deben brindar la asesoría y aportes que se requieran; según su ámbito de acción; durante la etapa de ejecución de la Asociación Empresarial, de conformidad con los requerimientos formalizados.

@@ -1,1 +1,0 @@
-Transitorio II. Aquellos potenciales socios que estén inscritos en los Registros actuales se mantendrán vigentes, sin perjuicio de que se verifique el cumplimiento y vigencia de los requisitos señalados en el presente reglamento.

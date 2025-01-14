@@ -1,2 +1,0 @@
-Artículo 27°. Refrendo en contratos administrativos bajo la modalidad de alianza estratégica.
-Para estos efectos se aplicará lo dispuesto en el Reglamento sobre el Refrendo de las contrataciones de la Administración Pública que se encuentre vigente, emitido por la Contraloría General de la República y sus modificaciones, así como lo dispuesto en el Reglamento Aprobación Interna de las Contrataciones y Convenios no sujetos a refrendo contralor del ICE y sus actualizaciones, según corresponda.

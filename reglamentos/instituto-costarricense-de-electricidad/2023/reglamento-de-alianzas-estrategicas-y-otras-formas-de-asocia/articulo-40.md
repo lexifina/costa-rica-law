@@ -1,3 +1,0 @@
-Artículo 40. De la Unidad de Seguimiento y Control.
-1. Presentar informes ejecutivos a la Gerencia respectiva y a la Gerencia de Finanzas, según la periodicidad definida por éstas, a fin de reportar los resultados, hallazgos, alertas y recomendaciones del Administrador de la Asociación Empresarial y de la propia Unidad Ejecutora, sobre las Asociaciones en proceso de ejecución, con el propósito de que sean tomadas las medidas preventivas o correctivas pertinentes.
-2. Dar seguimiento a las medidas preventivas o correctivas emprendidas a partir de lo indicado en el punto anterior, e incluir en los siguientes informes dirigidos a la Gerencia respectiva, el estado de ejecución de dichas medidas.

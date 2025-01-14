@@ -1,3 +1,0 @@
-Artículo 39°. De la Unidad Ejecutora.
-1. La Unidad Ejecutora debe presentar informes ejecutivos a la Unidad de Seguimiento y Control y a la Gerencia de Finanzas, según la periodicidad definida por éstas, a fin de reportar los resultados, hallazgos, alertas y recomendaciones del Administrador de la Asociación Empresarial o la propia Unidad Ejecutora, sobre las Asociaciones en proceso de ejecución, con el propósito de que sean tomadas las medidas preventivas o correctivas pertinentes.
-2. La Unidad Ejecutora debe dar seguimiento a las medidas preventivas o correctivas emprendidas, a partir de lo indicado en el punto anterior, e incluye en los siguientes informes dirigidos a la Unidad de Seguimiento y Control, el estado de ejecución de dichas medidas.

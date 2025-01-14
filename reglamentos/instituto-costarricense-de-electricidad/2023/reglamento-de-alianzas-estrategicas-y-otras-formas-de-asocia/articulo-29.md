@@ -1,1 +1,0 @@
-Artículo 29°. La etapa de implementación, entre otros aspectos, implica la reserva de los recursos presupuestarios requeridos para concretar el nuevo negocio, para lo cual la Unidad Implementadora debe coordinar con las dependencias correspondientes.
