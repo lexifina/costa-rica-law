@@ -1,1 +1,0 @@
-Artículo 82.- Derogatorias. Se deroga el Reglamento para Licencias Municipales de la Municipalidad de Curridabat publicado en el Diario Oficial La Gaceta Nº 248 del 24 de diciembre de 2014 y el Reglamento de Karaokes, discomóviles, Música en Vivo y Similares publicado en el Diario Oficial La Gaceta Nº 115 del 15 de junio de 2001.

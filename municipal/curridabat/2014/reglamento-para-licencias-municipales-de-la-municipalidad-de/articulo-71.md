@@ -1,6 +1,0 @@
-Artículo 71.- Para obtener una Licencia comercial de venta estacionaria, se requiere, además de los requisitos establecidos e n el artículo 17 de este Reglamento, en lo que sea procedente, lo siguiente:
-a) Formulario debidamente lleno de solicitud de licencia municipal de venta estacionaria con todos los datos requeridos para su trámite debidamente firmado por la persona interesada, en el caso de quien solicite no efectúe el trámite de manera personal, la firma deberá estar autenticada por un profesional en Notariado.
-b) Presentar un croquis del cubículo comercial en donde se instalará la venta estacionaria, la cual debe irá contar con el visto bueno del Director de Desarrollo y Control Urbano. El área que sea autorizada no podrá ampliarse de ninguna forma; ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar.
-c) Copia de Permiso sanitario de funcionamiento emitido por el Ministerio de Salud y original para ser confrontado por funcionario(a) municipal.
-d) En los puestos que expendan alimentos de consumo directo los vendedores deberán portar un carné de salud.
-No se podrá otorgar más de una licencia comercial para venta estacionaria por cada cuadrante, o a menos de cien metros, medidos sobre la calzada.

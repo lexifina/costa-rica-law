@@ -1,1 +1,0 @@
-Artículo 41.- La declaración jurada municipal que deben presentar los patentados ante la Municipalidad, quedará sujeta a las disposiciones especiales de los artículos 122, 123 y 130 del Código de Normas y Procedimientos Tributarios, así como a lo que establece el artículo 318 del Código Penal.

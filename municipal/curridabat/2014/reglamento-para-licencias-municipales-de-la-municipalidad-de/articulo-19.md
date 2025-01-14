@@ -1,1 +1,0 @@
-Artículo 19.- En el caso de solicitud nueva, traspaso, traslado, ampliación o cambio de actividad comercial, de locales que se ubiquen en centros comerciales, oficentros o similares, no requerirán del certificado de uso de suelo para el trámite correspondiente.

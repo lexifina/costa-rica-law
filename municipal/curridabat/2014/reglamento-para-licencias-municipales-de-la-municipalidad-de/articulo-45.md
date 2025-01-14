@@ -1,1 +1,0 @@
-Artículo 45.- Para gravar toda actividad lucrativa recientemente establecida, la Municipalidad podrá hacer una estimación, tomando como parámetro otros negocios similares. Sin embargo, con la presentación de la primera declaración por parte del titular de la licencia comercial, se precederá a recalificar el monto del impuesto respectivo.

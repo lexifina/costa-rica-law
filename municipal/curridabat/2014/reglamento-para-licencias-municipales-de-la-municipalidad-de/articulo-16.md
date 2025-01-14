@@ -1,1 +1,0 @@
-Artículo 16.- Requisitos. Para solicitar una ampliación de la actividad comercial ya autorizada, se requiere completar el formulario respectivo, junto con los documentos y requisitos establecidos en el artículo 6 de este reglamento.

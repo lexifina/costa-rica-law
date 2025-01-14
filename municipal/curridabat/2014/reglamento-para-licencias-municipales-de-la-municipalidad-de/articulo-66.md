@@ -1,1 +1,0 @@
-Artículo 66.- Por la celebración de actividades con karaoke, discomóvil, bailables o similares, se deberá pagar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen dentro del hecho generador del artículo 51 de este Reglamento y la Ley N°6844. En caso de incumplimiento, se establecerán las multas y cargos del artículo 52 de este Reglamento.

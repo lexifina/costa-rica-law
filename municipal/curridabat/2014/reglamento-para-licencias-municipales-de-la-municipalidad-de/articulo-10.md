@@ -1,2 +1,0 @@
-Artículo 10.- Requisitos. Para solicitar un traspaso de una licencia comercial ante la Municipalidad de Curridabat, se requiere completar el formulario respectivo, junto con los documentos señalados en los puntos 1, 2, 7, 8, 9 y 12 del artículo 6 de este reglamento.
-Además, deberá aportar el documento de cesión que realiza el cedente de la licencia municipal al cesionario, autenticado por un abogado, comprometiéndose el cesionario a ejercer la actividad comercial respectiva, cumpliendo con las normas legales y reglamentarias que regulan la actividad, y el orden público.

@@ -1,1 +1,0 @@
-Artículo 27.- Cuando un establecimiento se encuentre explotando una actividad lucrativa sin la licencia respectiva, será objeto de cierre inmediato notificándole en el mismo momento el acto de cierre, toda vez que la actividad se estaría ejerciendo al margen de la ley.

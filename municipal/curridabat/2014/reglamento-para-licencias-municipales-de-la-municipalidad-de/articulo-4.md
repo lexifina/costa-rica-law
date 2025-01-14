@@ -1,1 +1,0 @@
-Artículo 4.- Para toda solicitud de otorgamiento, traslado, traspaso o ampliación de licencia comercial será requisito indispensable que los interesados estén al día en el pago de los tributos y demás obligaciones municipales, de conformidad con el artículo 18 del Código de Normas y procedimientos Tributarios.

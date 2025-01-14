@@ -1,5 +1,0 @@
-SECCIÓN II
-De la declaración jurada
-Artículo 39.- Todo patentado deberá presentar ante la Sección de Patentes de la Municipalidad de Curridabat a más tardar el 5 de enero de cada año, la declaración jurada de los ingresos brutos obtenidos durante el último período fiscal (Declaración del impuesto sobre la Renta), en la que conste el acuse de recibido por presentación digital ante la Dirección General de Tributación Directa.
-Con base en esta información la Municipalidad calculará el impuesto por pagar.
-Se exceptúan de esta obligación, las empresas que tengan autorización de la Dirección General de Tributación Directa, para presentar la declaración de renta, en fecha posterior a la que establece la ley, estas empresas podrán presentar la declaración a la Municipalidad, dentro de los cinco días hábiles siguientes a la fecha autorizada por la Dirección General de Tributación Directa, no obstante, deberán informar antes del 5 de enero del año respectivo, la fecha autorizada por dicha Dirección.

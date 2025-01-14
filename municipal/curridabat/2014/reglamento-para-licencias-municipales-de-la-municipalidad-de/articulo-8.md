@@ -1,1 +1,0 @@
-Artículo 8.- Los establecimientos comerciales que opten por una licencia Municipal obligatoriamente deberán acatar lo relativo a lo estipulado en la Ley de Construcciones y su Reglamento, Plan Regulador del Cantón de Curridabat y además normativa que resulta aplicable de conformidad con la actividad comercial.

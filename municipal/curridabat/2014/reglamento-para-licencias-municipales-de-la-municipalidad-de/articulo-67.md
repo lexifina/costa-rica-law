@@ -1,1 +1,0 @@
-Artículo 67.- Las personas físicas o jurídicas que brindan servicios de karaoke, discomóviles, bailable y similares a los patentados de negocios, deberán contar con una licencia municipal de acuerdo con el artículo 79 del Código Municipal.

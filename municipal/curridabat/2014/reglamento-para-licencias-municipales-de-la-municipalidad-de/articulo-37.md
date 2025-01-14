@@ -1,6 +1,0 @@
-Artículo 37.- Cada año, a más tardar el 5 de enero, las personas a quienes se refiere el artículo 1 de la Ley de Patentes del Cantón de Curridabat, presentarán una declaración jurada de sus ventas o ingresos brutos. Con base en esta información, la Municipalidad calculará el impuesto por pagar.
-Para tales efectos, la Municipalidad deberá poner a disposición de los contribuyentes los respectivos formularios, a más tardar un mes antes de la fecha señalada.
-Si la persona física o jurídica cuenta con más patentes en Curridabat o en otras municipalidades deberá presentar certificación de un contador público autorizado indicando el monto que le corresponde a cada una.
-(Así reformado el párrafo anterior en sesión N° 200 del 25 de febrero del 2020)
-La declaración debe venir firmada por el representante legal, en caso de persona jurídica y, en caso de persona física, por el titular de la patente.
-En casos especiales, cuando las empresas hayan sido autorizadas por la Dirección General de Tributación para presentar la declaración en fecha posterior a la establecida en la ley y este reglamento, estas empresas podrán presentarla a la Municipalidad dentro de los quince días hábiles siguientes a la fecha autorizada.

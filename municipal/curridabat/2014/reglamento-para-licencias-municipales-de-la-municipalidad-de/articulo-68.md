@@ -1,4 +1,0 @@
-CAPÍTULO VIII
-Sección Única
-De las licencias para ventas ambulantes y ventas estacionarias
-Artículo 68.- Para el otorgamiento de las licencias tanto para venta ambulante como estacionaria, la Municipalidad dará preferencia a personas minusválidas o de la tercera edad, esta licencia deberá estar precedida de un estudio social realizado por la Dirección de Desarrollo Humano, que emitirá un informe al Sección de Patentes Municipales. La resolución de ésta, por medio de la cual se conceda una licencia debe ser razonada, con indicación de los datos completos del beneficiario, su domicilio, las causas por las que la ha solicitado, la comprobación de esas causas y un extracto del estudio social.

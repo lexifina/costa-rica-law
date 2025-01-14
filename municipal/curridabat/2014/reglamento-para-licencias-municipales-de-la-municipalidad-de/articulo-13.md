@@ -1,1 +1,0 @@
-Artículo 13.- Se entenderá por cambio de la actividad comercial ya autorizada, como la modificación de dicha actividad en otra distinta a la originalmente otorgada, pero sin que se cambie la ubicación física del local comercial.

@@ -1,1 +1,0 @@
-Artículo 63.- Todo local comercial que desee realizar de manera ocasional actividad de karaoke, discomóvil o similares, deberá contar con la correspondiente aprobación municipal para su realización, la cual es independiente de su licencia comercial que habilita el funcionamiento del negocio.

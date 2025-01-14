@@ -1,1 +1,0 @@
-Artículo 12.- Requisitos. Para solicitar un traslado de la actividad comercial ya autorizada, se requiere completar el formulario respectivo, junto con los documentos señalados en los puntos 1, 2, 5, 7, 9, 10, 11 y 12 del artículo 6 de este reglamento.

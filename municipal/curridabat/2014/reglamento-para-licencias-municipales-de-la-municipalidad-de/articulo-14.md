@@ -1,1 +1,0 @@
-Artículo 14.- Requisitos. Para solicitar un cambio de la actividad comercial, se requiere completar el formulario respectivo, junto con los documentos y requisitos establecidos en el artículo 6 de este reglamento.

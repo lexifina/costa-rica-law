@@ -1,1 +1,0 @@
-Artículo 15.- Se entenderá por ampliación, la extensión de la actividad comercial que cuenta con licencia municipal, para ser explotada de manera conjunta con otra actividad comercial de similar naturaleza.
