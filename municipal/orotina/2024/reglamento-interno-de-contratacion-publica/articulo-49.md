@@ -1,0 +1,1 @@
+Artículo 49.- Devolución de garantía de cumplimiento. La Proveeduría resolverá respecto de las gestiones tendientes a la devolución de la garantía de cumplimiento, debiendo contar con el criterio previo del Administrador del Contrato.

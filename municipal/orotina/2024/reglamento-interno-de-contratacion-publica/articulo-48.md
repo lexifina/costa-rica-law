@@ -1,0 +1,1 @@
+Artículo 48.- Finiquito del contrato. El Administrador del Contrato será el encargado de gestionar el finiquito de los contratos bajo su responsabilidad, independientemente del tipo de contrato del que se trate. Para tal efecto deberá coordinar con la Proveeduría y la Coordinación de Asesoría Jurídica.

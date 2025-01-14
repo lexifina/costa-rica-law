@@ -1,0 +1,1 @@
+Artículo 37.- Del refrendo. El refrendo interno estará a cargo de la Asesoría Jurídica. El refrendo externo será tramitado ante la Contraloría General de la República. En ambos casos la Proveeduría instruirá el trámite.

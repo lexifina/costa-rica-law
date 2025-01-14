@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. Este reglamento será aplicable a todos los procedimientos de compra de bienes, obras y servicios desarrollados por la Municipalidad de Orotina y por el Comité Cantonal de Deportes y Recreación de Orotina, por medio de la Unidad de Proveeduría, sean estos ordinarios, extraordinarios, especiales, por excepción y cualquiera otro previsto en la legislación.

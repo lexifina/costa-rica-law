@@ -1,0 +1,1 @@
+Artículo 45.- Recepción, almacenamiento y entrega. Para la recepción de los bienes, obras y servicios, el Administrador del Contrato deberá seguir los procedimientos definidos en los artículos 188, 189, 284 y 285 del RLGCP.

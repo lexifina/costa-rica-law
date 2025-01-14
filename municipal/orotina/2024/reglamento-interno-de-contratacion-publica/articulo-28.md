@@ -1,0 +1,1 @@
+Artículo 28.- De la apertura. La Proveeduría será la responsable de realizar la apertura de las ofertas en el SDU. Además, será la responsable de dejar sin efecto un concurso antes de recibir ofertas cuando existan razones justificadas debidamente acreditadas en resolución motivada que conste en el expediente de la contratación.

@@ -1,0 +1,4 @@
+Artículo 29.- Recepción de ofertas y elaboración de estudios. La Proveeduría tendrá a su cargo la apertura de ofertas en el SDU, todo de conformidad con la legislación vigente.
+De igual forma será la encargada de solicitar el estudio legal al área Jurídica, así como el técnico a las distintas unidades técnicas, de las ofertas recibidas, incluyendo al área financiera de ser necesario.
+La Dirección Jurídica y las unidades técnicas a las que se les solicite la elaboración de estudios, están en la obligación de realizarlos de acuerdo con los plazos que se fijen, aun cuando el bien o servicio a adquirir no sea para su uso.
+La Proveeduría deberá comunicar la recomendación de la adjudicación tomando en consideración el resultado del estudio técnico y legal de las ofertas, así como lo acordado por la Comisión de Contratación Administrativa.

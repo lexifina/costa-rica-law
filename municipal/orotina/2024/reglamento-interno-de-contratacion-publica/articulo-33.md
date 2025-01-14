@@ -1,0 +1,2 @@
+Artículo 33.- Del acto final. El acto final deberá estar fundamentado en los criterios técnicos, económicos, jurídicos y financieros, emitidos por las instancias correspondientes y demás documentos del expediente de la respectiva contratación.
+La Alcaldía podrá apartarse de los criterios emitidos, dejando constancia expresa y razonada en el expediente respectivo y tomando como base a esos efectos, otro criterio de la misma naturaleza, el cual deberá ser agregado al expediente.

@@ -1,0 +1,1 @@
+Artículo 24.- Inicio y asignación del procedimiento. Aprobada la decisión inicial la Proveeduría comenzará el procedimiento respectivo. La asignación del procedimiento de contratación corresponderá a la Proveeduría conforme con las disposiciones normativas aplicables y las condiciones particulares de la contratación.

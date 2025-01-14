@@ -1,0 +1,3 @@
+Artículo 35.- Recursos. Los recursos serán recibidos mediante el SDU.
+Tratándose de recursos que debe resolver la Contraloría General de la República, corresponderá a la Proveeduría atender y contestar las audiencias otorgadas a la Municipalidad, previo criterio técnico y jurídico de las respectivas dependencias.
+Resolver los recursos de objeción que se planteen contra los pliegos de condiciones, así como contestar las audiencias que confiera la Contraloría General de la República respecto de los recursos de objeción y los recursos de apelación planteados ante ese órgano. En todos los casos, la Proveeduría contará con el criterio de la unidad técnica, legal o financiera, según la materia que se trate el recurso.

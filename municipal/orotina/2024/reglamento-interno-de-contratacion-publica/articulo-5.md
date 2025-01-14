@@ -1,0 +1,1 @@
+Artículo 5.- Actualización del sistema. La Proveeduría deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de los bienes, obras y servicios que requieran las diversas dependencias institucionales, los cuales deberán ser aprobados previamente por la Alcaldía.

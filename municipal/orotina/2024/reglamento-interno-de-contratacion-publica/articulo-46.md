@@ -1,0 +1,3 @@
+Artículo 46.- Reajuste de Precios. Toda gestión tendiente a un reajuste de precios debe dirigirse a la Proveeduría.
+Será obligación del Administrador del contrato accionar el reajuste de precios cuando la parte interesada es la Municipalidad.
+En todo caso, a solicitud de la Proveeduría, el Administrador del Contrato elaborará y le remitirá el informe correspondiente, el cual será trasladado por la Proveeduría para dictamen de la Comisión de Contratación Administrativa. En última instancia la Proveeduría emitirá la resolución final, contra la cual cabrán recursos de revocatoria y apelación dentro del plazo de tres días, correspondiendo resolver la revocatoria a la Proveeduría y la apelación a la Alcaldía.

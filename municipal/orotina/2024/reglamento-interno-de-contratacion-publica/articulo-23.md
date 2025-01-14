@@ -1,0 +1,2 @@
+Artículo 23.- Contenido presupuestario. La Unidad Usuaria deberá corroborar el contenido presupuestario debidamente aprobado. Para las contrataciones que se ejecuten durante el mismo ejercicio económico, bastará con acreditar el contenido presupuestario disponible.
+En las contrataciones con vigencias plurianuales, se deberá indicar en la decisión inicial que se garantiza el pago de las obligaciones anuales correspondientes a cada ejercicio económico, para lo cual la Administración deberá adoptar las medidas que correspondan.

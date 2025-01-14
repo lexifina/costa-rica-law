@@ -1,0 +1,11 @@
+Artículo 3.- Definiciones. De importancia para este Reglamento, se expone la siguiente terminología:
+1. Administrador del contrato: Corresponde a la persona asignado como responsable de la ejecución contractual de conformidad con los alcances del cargo que ostenta según el Manual de Puestos.
+2. Comisión de Contratación Administrativa: Comisión conformada por la Alcaldía para dictaminar acerca de los actos asignados a su competencia.
+3. Decisión Inicial: Documento para iniciar el trámite de contratación emitido por la unidad técnica, en el que se expresa la finalidad de la contratación, los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación, que la Administración cuenta con los recursos humanos y la infraestructura administrativa suficiente para verificar el cumplimiento de la contratación, así como la información detallada en la normativa de Contratación Pública.
+4. Expediente electrónico: Serie de documentos electrónicos ordenados cronológicamente y almacenados en el SDU, de manera que se garantice su origen y no pueda ser alterado o eliminado.
+5. La Municipalidad: Municipalidad del Cantón de Orotina.
+6. LGCP: Ley General de Contratación Pública Ley No. 9986.
+7. Pliego de condiciones: Reglamento específico de la contratación pública que se promueve, que contiene las condiciones administrativas, legales y técnicas bajo las cuales se rige el procedimiento de compra.
+8. RLGCP: Reglamento a la Ley General de Contratación Pública.
+9. SDU: Sistema Digital Unificado. Sistema electrónico de contratación pública que automatiza todas las etapas del proceso de adquisiciones públicas, incluyendo el Registro de Proveedores y Catálogo de Productos y Servicios. Tiene como objetivo promover la transparencia, eficiencia, efectividad e integración nacional e internacional de las compras públicas del Estado.
+10. Unidad Usuaria: Unidad administrativa que cuenta con las competencias idóneas para solicitar el inicio de una contratación, elaborar la decisión inicial, coordinar con la Proveeduría la elaboración del pliego de condiciones y realizar el estudio técnico específico. Recaerá en la Jefatura de la dependencia y será responsable de participar de todas las etapas del procedimiento de contratación.

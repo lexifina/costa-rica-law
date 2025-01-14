@@ -1,0 +1,1 @@
+Artículo 27. Modificación, prórrogas y aclaraciones al pliego de condiciones. La Proveeduría deberá gestionar y publicar, en coordinación con las Unidades Usuarias, las modificaciones, prórrogas y aclaraciones al pliego de condiciones, conforme con los plazos definidos para cada procedimiento licitatorio.
