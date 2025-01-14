@@ -1,0 +1,1 @@
+Artículo 17.-Funcionario Responsable. El funcionario responsable, es aquel funcionario público del departamento de ZMT encargado de recibir y tramitar las solicitudes de permisos de uso de suelo posesión.

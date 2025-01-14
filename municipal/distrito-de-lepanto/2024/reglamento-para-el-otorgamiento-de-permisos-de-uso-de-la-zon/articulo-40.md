@@ -1,0 +1,1 @@
+Artículo 40.-Acuerdo del Concejo Municipal. Una vez acordada la prórroga por parte del Concejo Municipal, la secretaría deberá notificar al interesado y todos los departamentos administrativos competentes.

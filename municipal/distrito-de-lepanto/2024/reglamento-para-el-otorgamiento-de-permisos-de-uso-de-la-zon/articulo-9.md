@@ -1,0 +1,1 @@
+Artículo 9°-Construcciones existentes. Las construcciones existentes, podrán ser utilizadas a título de uso de suelo, siempre que medie el pago de un canon por el uso de suelo fijado por el Concejo, el cual no generará derecho alguno al administrado por existir antes de la entrada en vigencia de este reglamento.

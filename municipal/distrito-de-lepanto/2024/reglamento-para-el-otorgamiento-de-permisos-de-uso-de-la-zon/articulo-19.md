@@ -1,0 +1,1 @@
+Artículo 19.-Del formulario de solicitud de permiso de uso de suelo. Las personas interesadas en gestionar y obtener un permiso de uso de suelo deberán retirar el formulario de solicitud en el departamento de ZMT o el portal web de la municipalidad.

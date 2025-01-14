@@ -1,0 +1,1 @@
+Artículo 12.-Plazos para permiso de ocupación. El plazo de otorgamiento para permisos de ocupación o uso, no debe ser menor a los cinco años, y las prórrogas que se otorguen no deben superar los 20 años en total. Si en este plazo no se ha elaborado el plan regulador costero y para - Isla Venado, se le otorgara derecho al concesionario de mantener su posesión de uso de suelo.

@@ -1,0 +1,1 @@
+Artículo 13.-Derecho. El permiso de uso en posesión no genera derecho alguno a favor, no constituye un derecho perfecto, un derecho subjetivo, puesto que por su propia esencia admite que podrá ser revocado sin derecho a indemnización.

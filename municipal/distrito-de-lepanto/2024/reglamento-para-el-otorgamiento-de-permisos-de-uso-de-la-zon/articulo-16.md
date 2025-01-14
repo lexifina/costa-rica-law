@@ -1,0 +1,1 @@
+Artículo 16.-Personas facultadas para solicitar el uso de suelo. Cualquier persona física o jurídica conforme dispone la Ley número 6043 y su Reglamento, podrá solicitar a su nombre un permiso de uso de suelo sobre terrenos de la ZMT.

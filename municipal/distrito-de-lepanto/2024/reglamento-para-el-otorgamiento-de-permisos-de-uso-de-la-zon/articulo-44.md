@@ -1,0 +1,1 @@
+Artículo 44.-Acuerdo del Concejo Municipal. Una vez acordada la solicitud de cesión o cambio de uso del permiso por parte del Concejo Municipal, la secretaría deberá notificar al interesado y todos los departamentos administrativos competentes.

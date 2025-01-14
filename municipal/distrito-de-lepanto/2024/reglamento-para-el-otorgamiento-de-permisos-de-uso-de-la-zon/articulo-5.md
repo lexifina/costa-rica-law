@@ -1,0 +1,5 @@
+CAPÍTULO II
+Prohibiciones para otorgar permisos de uso
+Artículo 5°-Prohibiciones. El Concejo Municipal del Distrito de Lepanto, en el área bajo su jurisdicción, no podrá otorgar ningún permiso de uso a favor de sus regidores propietarios o suplentes, o del Alcalde(a) Municipal, Vice Alcalde(a) Municipal Síndicos, Propietarios y Suplentes, así como Intendente(a), Vice Intendenta(e) los Concejales del Distrito, o de sus parientes en primero o segundo grado por consanguinidad o afinidad, respecto a ellos como para quienes intervienen en el otorgamiento o autorización de concesiones.
+De igual manera, esta prohibición se extiende a las funcionarios municipales con influencia o poder de decisión, en cualquier etapa del procedimiento de solicitud del uso de suelo. En general, deberán observarse las prohibiciones o incompatibilidades previstas en cada norma legal, orgánica o estatutaria de los entes y órganos públicos.
+La designación de alguno de los servidores públicos enunciados en el párrafo anterior no afectará al empleado municipal, su cónyuge o pariente de ellos, del cual se le haya otorgado un uso de suelo con anterioridad.

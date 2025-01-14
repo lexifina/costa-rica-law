@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de aplicación. La presente normativa establece las acciones del Concejo Municipal de Distrito Lepanto y las partes interesadas en los procedimientos para otorgar y acceder permisos de ocupación y uso de suelo en posesión en zona restringida, en el distrito de Lepanto.

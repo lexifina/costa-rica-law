@@ -1,0 +1,2 @@
+Artículo 38.-Omisiones en la solicitud de prórroga. En caso de encontrarse omisiones en la solicitud de prórroga, el funcionario responsable procederá a prevenirlas al permisionario, quien contará con el plazo de diez días hábiles para cumplirlas, subsanarlas o corregirlas.
+Una vez cumplidas las prevenciones; si las hubiere; o no habiéndose, procederá el funcionario responsable a remitir a la Intendencia Municipal, la solicitud de prórroga junto con el expediente administrativo original debidamente foliado.

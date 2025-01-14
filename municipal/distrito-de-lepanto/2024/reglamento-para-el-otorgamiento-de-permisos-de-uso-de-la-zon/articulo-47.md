@@ -1,0 +1,10 @@
+Artículo 47.-Construcciones nuevas, mejoras, remodelaciones o ampliaciones. La persona física o jurídica que deba gestionar permiso de construcción será remitido mediante plataforma al departamento de ZMT del Concejo Municipal del Distrito de Lepanto adjuntando los siguientes requisitos:
+a) Copia del documento de identidad de personas físicas, o del representante legal o apoderado especial en el caso de personas jurídicas.
+b) Copia del croquis del área del uso de suelo donde se construirá.
+c) En el caso de Desarrollos Turísticos deberá aportar la aprobación escrita del departamento de ZMT basado en el Perfil de Desarrollo Turístico.
+d) El permiso de uso de suelo en posesión debe contar con declaración ante el Concejo Municipal del Distrito de Lepanto, de conformidad con la ley de Impuesto sobre los Bienes Inmuebles y con el pago del impuesto de las leyes 6043, 7729 y 7505 al día.)
+e) Un juego de planos constructivos sellados por CFIA, ICE, AyA y MS, mediante el sistema digital APC y tramitar la boleta eléctrica en el CFIA.
+f) Copia del contrato por servicios profesionales con el ingeniero responsable y dos boletas eléctricas emitidas por el mismo ingeniero.
+g) Disponibilidad de agua (ó recibo agua cuando ya se cuenta con el servicio) potable por parte del AyA o ASADAS.
+h) Copia del certificado de Uso de suelo y desfogue pluvial para construcción emitido por el departamento de construcciones.
+El trámite de autorización tarda de 15 a 22 días hábiles, no obstante una vez autorizado el permiso, el Concejo Municipal del Distrito de Lepanto otorga para el retiro de la documentación un plazo no mayor a 30 días naturales, caso contrario serán desechados. El departamento de Construcciones, previo a otorgar permiso para mejora, ampliación o remodelación sobre una construcción existente, deberá contar con un aval del departamento de ZMT mediante el cual se acredite que la construcción existente ya había cumplido los pasos de los artículos 12,9 y 19 de la Ley 6043, además, si se trata de un desarrollo turístico igualmente debe observarse lo dispuesto para este tipo de desarrollos.

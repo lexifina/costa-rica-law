@@ -1,0 +1,2 @@
+Artículo 34.-Pago Canon e interés moratorio. El canon se pagará por adelantado, tal y como sea pactado; por año o trimestre; durante los primeros cinco días del año o trimestre, su atraso generará interés moratorio según lo estipulado en el artículo 57 del Código de Normas y Procedimientos Tributarios, Ley número 4755.
+El atraso de dos o más trimestres en forma injustificada, será causal suficiente para dar inicio del procedimiento de revocación del permiso de uso de suelo, al tenor del artículo 154 de la Ley General de Administración Pública.

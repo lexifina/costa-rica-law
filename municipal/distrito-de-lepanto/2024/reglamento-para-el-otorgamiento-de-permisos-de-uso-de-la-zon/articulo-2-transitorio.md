@@ -1,0 +1,1 @@
+Transitorio II.-En caso de personas de escasos recursos que residan permanentemente en la zona y solo cuando se trate de usos de suelo destinados para vivienda para su propio uso, el Concejo Municipal de Distrito Lepanto podrá rebajar el canon de uso de suelo en posesión hasta un 0,50%, previo estudio técnico.

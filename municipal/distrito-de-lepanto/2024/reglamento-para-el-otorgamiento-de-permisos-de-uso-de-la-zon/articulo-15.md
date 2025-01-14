@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Políticas, partes, legitimación y requisitos.
+Artículo 15.-El Concejo Municipal de Distrito Lepanto, conforme a las facultades y obligaciones que le imponen el Código Municipal, la Ley General de la Administración Pública, y específicamente la Ley 6043 y su Reglamento, así como la normativa medioambiental, administra las áreas de zona marítimo terrestre de su competencia, con estricto apego al bloque de legalidad, y a los principios de eficiencia, razonabilidad, igualdad de trato y transparencia en todos sus trámites y procedimientos. Considerando siempre el fin público afecto a la zona.

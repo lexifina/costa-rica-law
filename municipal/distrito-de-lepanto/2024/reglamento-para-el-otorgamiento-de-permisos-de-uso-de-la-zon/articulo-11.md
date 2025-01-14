@@ -1,0 +1,1 @@
+Artículo 11.-De las áreas mínimas de los permisos de uso. Las áreas mínimas de las parcelas donde se otorguen permisos de uso se ajustarán a las dimensiones establecidas en el Reglamento de la ley de la Zona Marítimo Terrestre.

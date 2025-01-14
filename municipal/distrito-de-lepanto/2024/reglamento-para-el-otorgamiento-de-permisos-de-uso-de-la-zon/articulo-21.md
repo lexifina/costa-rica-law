@@ -1,0 +1,12 @@
+CAPÍTULO V
+Apertura de expediente y tramitología.
+Artículo 21.-Revisión y razón de recibido de la solicitud. Una vez recibida la solicitud anterior, el funcionario responsable deberá inmediatamente proceder a revisar la documentación aportada bajo los siguientes lineamientos:
+a) Que el formulario esté correctamente llenado, con letra legible, sin tachones, debidamente firmado por el representante legal en caso de personas jurídicas o por el solicitante en el caso de personas físicas.
+b) La firma de la solicitud debe coincidir con el documento de identidad que lo respalde, debe estar autenticada por notario público, con el sello blanco y el respectivo timbre de Colegio de Abogados o el que exija el Código Notarial vigente o los lineamientos para el ejercicio del notariado, esto último si fuera el caso.
+c) Que el uso solicitado se encuentre conforme lo dispuesto en este Reglamento.
+d) Que el área solicitada coincida con el área del plano o croquis.
+e) Que se indiquen los números de mojones a los cuales fueron amarrados el croquis o en su defecto, que tenga agregado el derrotero en formato CRTM05.
+f) Las colindancias; a menos que se refiere a permisos ya otorgados, no deberán indicar nombres, sino referirse en general a la zona restringida o pública, y si fueran accesos, indicar la calidad de los mismos (calle o acceso peatonal) y su ancho (el establecido por el Concejo).
+g) Que en general los nombres y número de identificación de la solicitud, certificaciones, cédulas, poderes y demás requisitos coincidan y se encuentren correctamente escritos y legibles.
+En caso de que el interesado (persona física o jurídica) no presentare la totalidad de los requisitos dispuestos en el artículo anterior, se deberá seguir el procedimiento estipulado en el artículo 287 de la Ley General de la Administración Pública y numerales 4 y 7 de la Ley de Regulación del Derecho de Petición.
+El funcionario responsable que reciba una solicitud con todos los requisitos que señala el artículo anterior y habiendo revisado los mismos, procederá a llenar la razón de recibido, con clara indicación de: hora, fecha, lugar, documentos aportados, nombre y cédula de la persona que entrega la solicitud, nombre y firma del funcionario responsable y sello de la oficina que recibe. Además deberá foliar el expediente y en el caso que le fue mostrado un documento original y el solicitante aporte fotocopia, plasmar el sello de confrontado contra el original junto con su firma.

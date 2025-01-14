@@ -1,0 +1,2 @@
+Artículo 42.-Omisiones en la solicitud de cesión o cambio del uso del permiso. En caso de encontrarse omisiones en la solicitud de cesión o cambio del uso del permiso, el funcionario responsable procederá a prevenirlas al permisionario, quien contará con el plazo de quince días hábiles para cumplirlas, subsanarlas o corregirlas.
+Una vez cumplidas las prevenciones; si las hubiere; o no habiéndose, procederá el funcionario responsable a remitir a la Intendencia Municipal, la solicitud de prórroga junto con el expediente admirativo original debidamente foliado.

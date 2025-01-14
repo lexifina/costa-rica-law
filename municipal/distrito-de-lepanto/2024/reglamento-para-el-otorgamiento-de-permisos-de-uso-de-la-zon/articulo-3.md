@@ -1,0 +1,13 @@
+Artículo 3°-Definiciones. En adelante, dentro del presente reglamento, y en general en la aplicación de los procedimientos, deberá entenderse lo siguiente: Concejo: Concejo Municipal del Distrito de Lepanto.
+a) ICT: Instituto Costarricense de Turismo.
+b) IGN: Instituto Geográfico Nacional.
+c) Zona Restringida: Faja de ciento cincuenta metros a lo largo del litoral de dominio público contados a partir de la zona pública.
+d) Zona Pública: Faja de cincuenta metros de ancho a contar de la pleamar ordinaria, y las áreas que quedan al descubierto durante la marea baja.
+e) Zona de aptitud turística: Aquellas áreas de la zona marítima terrestre que hayan sido declaradas como tales por el ICT por presentar condiciones favorables para el desarrollo y explotación turísticas.
+f) Pleamar Ordinaria: La línea de la pleamar ordinaria es, para el litoral Pacífico, el contorno o curva de nivel que marca altura de 115 centímetros sobre el nivel medio del mar, y para el litoral Atlántico es el contorno que marca la altura de 20 centímetros sobre el nivel medio del mar.
+g) Contrato: Pacto o convenio entre el Concejo Municipal de Distrito Lepanto y el Permisionario para el disfrute y aprovechamiento de la zona marítima terrestre, por medio del cual se formaliza el uso de suelo.
+h) Solicitud Uso de Suelo: Documento que presenta un administrador ante el Departamento de Zona Marítima Terrestre para poder obtener un uso de suelo en posesión, sobre una determinada área o parcela de la zona restringida, para lo cual debe cumplir con el trámite, y que se plasma dentro de expediente administrativo.
+i) Permiso de Uso Suelo en Posesión: Resolución administrativa, debidamente fundamentada donde el Concejo Municipal, le otorga el derecho en posesión de una determinada parcela de la zona restringida de la zona marítima terrestre bajo su jurisdicción a una persona física o jurídica de tener bajo su poder y voluntad la cosa objeto del derecho, este derecho es en forma unilateral, donde no existe un plan regulador costero, a cambio del pago de un canon. Dicho acto administrativo es de carácter revocable por razones de oportunidad, conveniencia o mérito en cualquier momento.
+j) Usufructo: Corresponde al Concejo Municipal de Distrito Lepanto y se refiere a los fines civiles, entendiéndose por ello el derecho que aquéllas tienen por disposiciones de la Ley sobre la Zona Marítimo Terrestre, para percibir el canon respectivo producido por las concesiones, permisos de uso o arrendamiento de los terrenos y de las mejoras, cuando las hubiere.
+k) PNE: Patrimonio Nacional del Estado.
+l) ZMT: Zona Marítimo Terrestre.
