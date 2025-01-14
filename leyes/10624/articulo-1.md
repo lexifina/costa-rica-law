@@ -1,0 +1,20 @@
+N° 10624
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 1 Y EL ARTÍCULO 1 BIS DE LA LEY 7798, LEY DE CREACIÓN DEL
+CONSEJO NACIONAL DE VIALIDAD, DEL 30 DE ABRIL DE 1998, PARA AUMENTAR EL MONTO
+MÁXIMO A INVERTIR
+PARA LOS MEJORAMIENTOS PUNTUALES CONSIDERADOS PARTE DE LA
+CONSERVACIÓN VIAL
+ARTÍCULO 1- Se reforma el artículo 1 de la Ley 7798, Ley de Creación del Consejo Nacional de Vialidad (Conavi), del 30 de abril de 1998. El texto es el siguiente:
+Artículo 1- La presente ley regula la conservación y construcción de las carreteras, las calles de travesía y los puentes de la red vial nacional. Para los efectos de esta ley se definen los siguientes conceptos:
+[ ..]
+Conservación vial: conjunto de actividades destinadas a preservar, de forma continua y sostenida, el buen estado de las vías y los puentes, de modo que se garantice un servicio óptimo al usuario. La conservación vial comprende todo lo que no alcanza a ser construcción de obras nuevas o variación sustancial de estándar de las existentes. También comprende las obras de restauración que se requieren a causa de emergencias, salvo Ilo dispuesto por la presente ley como excepción. Dentro de la conservación vial pueden distinguirse las siguientes actividades: mantenimiento (rutinario y periódico), refuerzo, rehabilitación y mejoramientos puntuales, así como la instalación de puentes modulares no permanentes y pasarelas peatonales. Incluye además el intercambio de pavimentos entre rígidos y flexibles, de forma parcial o total.
+[.. ]
+Mantenimiento periódico: conjunto de actividades programables, cada cierto período, tendientes a renovar la condición original de los pavimentos mediante la aplicación de capas adicionales de lastre, grava, tratamientos superficiales o recapados asfálticos o de secciones de concreto, según el caso. El mantenimiento periódico de los puentes incluye la limpieza, la pintura y la reparación o el cambio de elementos estructurales dañados o de protección.
+[.. ]
+Rehabilitación: reparación selectiva y refuerzo del pavimento o la calzada, previa demolición parcial o total de la estructura existente, con el objeto de restablecer la solidez estructural y la calidad de ruedo originales. Además, podrá incluir la construcción o reconstrucción del sistema de drenaje que no implique construir puentes o alcantarillas mayores. Antes de cualquier actividad de rehabilitación en la superficie de ruedo deberá verificarse que el sistema de drenaje funcione bien. La rehabilitación de puentes se refiere a reparaciones mayores, tales como el cambio de elementos o componentes estructurales principales, o el cambio de la losa del piso.
+Reconstrucción: renovación completa de la estructura del camino, con previa demolición parcial o total de la estructura del pavimento o las estructuras de puente, para mejorar la calidad de ruedo originales, adaptándola a las especificaciones o técnicas vigentes para atender la demanda actual y proyectada, incorporando a su vez mejoras en las estructuras periféricas, así como elementos nuevos.
+Mejoramiento: mejoras o modificaciones de estándar horizontal o vertical de los caminos, relacionadas con el ancho, el alineamiento, la curvatura o la pendiente longitudinal, a fin de incrementar la capacidad de la vía y la velocidad de circulación. También se incluyen, dentro de esta categoría, la ampliación de la calzada, la elevación del estándar del tipo de superficie ("upgrade") de tierra a lastre o de lastre a asfalto, entre otros, y la construcción de estructuras tales como alcantarillas grandes, puentes o intersecciones, así como la construcción de ciclovías.
+Mejoramientos puntuales: corresponden a mejoras o modificaciones localizadas del estándar horizontal o vertical de los caminos, relacionadas con el ancho, el alineamiento, la curvatura o la pendiente longitudinal, a fin de incrementar tanto la seguridad vial como su funcionalidad. La definición de qué obras corresponden a mejoramientos puntuales será establecida vía reglamento.
