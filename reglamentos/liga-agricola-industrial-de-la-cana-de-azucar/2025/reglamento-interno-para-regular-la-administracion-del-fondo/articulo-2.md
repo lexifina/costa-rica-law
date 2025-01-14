@@ -1,0 +1,3 @@
+Artículo 2º-El presente reglamento tiene por objeto regular la administración del fondo adicional del Fondo de Asistencia Económica de Productores en Régimen de Excedentes, creado al amparo del artículo 17 bis de la Ley, con la finalidad de garantizar su adecuado manejo; así como, permitir inversiones que beneficien al fondo y a los pequeños y medianos productores de caña.
+La custodia y administración del fondo adicional estará a cargo de LAICA.
+LAICA utilizará el fondo adicional con el exclusivo propósito de mitigar la diferencia entre el precio de la cuota y el precio de excedentes que puedan tener los pequeños y medianos productores beneficiarios, en sus entregas de caña en régimen de excedentes, conforme lo dispone el párrafo primero del artículo 17 bis de la Ley.
