@@ -1,0 +1,4 @@
+ARTÍCULO 7- Licencia comercial temporal especial. Se autoriza a la municipalidad por parte del departamento de Patentes para que establezca una licencia comercial temporal especial para la modalidad de comercio sobre ruedas.
+Las tarifas de estas licencias quedan sujetas a aprobación por parte del Concejo Municipal, con recomendación del departamento de Patentes, siendo esta la establecida en el artículo 6- Tarifa del Impuesto del tributo de la Ley 8649, Tarifa de Impuestos municipales del Cantón de Acosta.
+Los plazos de vigencia de esta licencia quedan sujetos a aprobación por parte del Concejo Municipal no pudiendo ser mayor a un año.
+El plazo podrá ser prorrogable de forma automática por un periodo igual, con la presentación por parte del interesado del permiso de funcionamiento del Ministerio de Salud vigente y el cumplimiento de los requisitos establecidos en el artículo 6 de este reglamento.
