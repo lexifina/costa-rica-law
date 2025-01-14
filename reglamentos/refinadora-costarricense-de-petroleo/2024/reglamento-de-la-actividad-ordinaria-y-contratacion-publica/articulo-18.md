@@ -1,12 +1,11 @@
-Artículo 18.-Niveles de competencia.
-Los niveles de competencia para el dictado de actos finales en los procesos de contratación se definen de la siguiente manera:
+Artículo 18.-Niveles de competencia. Los niveles de competencia para el dictado de actos finales en los procesos de contratación se definen de la siguiente manera:
 a) Unidad de Contratación Bienes y Servicios: Menos del umbral superior definido por la Contraloría General de la República para la licitación reducida, excluyendo obra pública.
 b) Departamento de Proveeduría: Menos del umbral superior definido por la Contraloría General de la República para la licitación reducida de obra pública.
-c) Direcciones: Menos del 50% del umbral superior definido por la Contraloría General de la República para licitación menor de obra pública.
-d) Presidencia y Gerencia General: Menos del umbral superior definido por la Contraloría General de la República para la licitación menor de obra pública.
-e) Junta Directiva: A partir del umbral definido por la Contraloría General de la República para la licitación mayor de obra pública.
-Los umbrales definidos para los niveles de competencia, corresponden al régimen diferenciado, conforme a las disposiciones del artículo 36 de la Ley General de Contratación Pública y se ajustarán de forma automática anualmente, según la actualización que efectúe la Contraloría General de la República en la segunda quincena del mes de diciembre, de acuerdo a lo dispuesto en la ley anteriormente citada.
+c) Direcciones, Gerencia General y Presidencia: Menos del umbral superior definido por la Contraloría General de la República para la licitación menor de obra pública.
+d) Junta Directiva: A partir del umbral definido por la Contraloría General de la República para la licitación mayor de obra pública.
+Los umbrales definidos para los niveles de competencia corresponden al régimen diferenciado, conforme a las disposiciones del artículo 36 de la Ley General de Contratación Pública y se ajustarán de forma automática anualmente, según la actualización que efectúe la Contraloría General de la República en la segunda quincena del mes de diciembre, de acuerdo a lo dispuesto en la ley anteriormente citada.
 La Junta Directiva de la Empresa otorgará competencia / poderes a las personas funcionarias que en razón de su puesto deban dictar los actos finales de los procesos de contratación.
-La Gerencia General, o en su ausencia la Presidencia, aprobará la decisión inicial para contratar los procesos de contratación cuyo dictado del acto final sea competencia de la Junta Directiva. Igualmente procederá para la licitación mayor cuando se trate de obra pública, en cuyo caso deberá suscribirse conjuntamente con el jefe de la unidad solicitante, la dirección y la Dirección Operativa.
-La Dirección Operativa aprobará el inicio de los procesos de licitación menor hasta el nivel de competencia otorgado, siendo que cuantías que superen la misma corresponderá aprobarlo a la Gerencia General.
-La jefatura de la unidad solicitante aprobará el inicio de los procesos de licitación reducida para el suministro de bienes y servicios, y para obra pública deberá ser aprobado adicionalmente por la dirección de área.
+La Gerencia General, o en su ausencia la Presidencia, aprobará la decisión inicial para contratar en los procesos de contratación cuyo dictado del acto final sea competencia de la Junta Directiva. Igualmente procederá para la licitación mayor cuando se trate de obra pública, en cuyo caso deberá suscribirse conjuntamente con el jefe de la unidad solicitante, el departamento y la Dirección de Área.
+La Dirección de Área aprobará el inicio de los procesos de licitación hasta el nivel de competencia otorgado, siendo que, cuantías que superen la misma, corresponderá aprobarlo a la Gerencia General.
+La jefatura de la unidad solicitante aprobará el inicio de los procesos de licitación reducida para el suministro de bienes y servicios, y para obra pública deberá ser aprobado adicionalmente por el departamento de área.
+(Así reformado en sesión N° 5442 del 14 de enero de 2025)

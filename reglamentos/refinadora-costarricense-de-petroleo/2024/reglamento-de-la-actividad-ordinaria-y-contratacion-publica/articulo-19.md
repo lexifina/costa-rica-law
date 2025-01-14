@@ -48,3 +48,5 @@ El dictado del acto final de los procesos de contratación pública podrá ser d
 El contrato electrónico de las licitaciones reducidas será aprobado por el titular de la Unidad de Contratación de Bienes y Servicios. Las licitaciones menores y mayores cuyo contrato no requiera el refrendo contralor, serán aprobados por el titular del Departamento de Proveeduría.
 El Órgano Fiscalizador de los contratos según demanda o convenios marco, estará facultado para aprobar las órdenes de pedido que se generen en el sistema digital unificado en la ejecución contractual.
 Los pedidos que se generen en el SIG por parte del Departamento de Proveeduría, serán aprobados por los funcionarios que designe formalmente el titular de este.
+19.23 Modalidad y Tipo de contrato denominados Convenios Marco Corresponderá a la Dirección de Administración y Finanzas adoptar los actos administrativos sobre las gestiones que involucre el tipo y modalidad de contrato denominado Convenio Marco.
+(Así adicionado el inciso anterior en sesión N° 5442 del 14 de enero de 2025)
