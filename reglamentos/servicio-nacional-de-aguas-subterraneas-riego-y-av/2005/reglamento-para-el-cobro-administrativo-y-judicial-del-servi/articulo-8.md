@@ -1,1 +1,0 @@
-Artículo 8º—Contratos de Gestión de Cobro Administrativo. El SENARA podrá realizar la gestión de cobro en forma directa a través de sus propios funcionarios, o bien contratar la gestión de cobro administrativo a un operador público o privado especialista y con capacidad para el cobro a nivel nacional.

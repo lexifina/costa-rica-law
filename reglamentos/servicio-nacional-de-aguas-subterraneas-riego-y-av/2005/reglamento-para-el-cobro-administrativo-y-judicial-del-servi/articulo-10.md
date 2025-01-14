@@ -1,1 +1,0 @@
-Artículo 10.—Traslado de cuentas a cobro judicial. A más tardar dentro de los tres meses siguientes a la fecha de vencimiento de la obligación, y una vez agotadas las gestiones de cobro administrativo, la Unidad Financiero Contable trasladará el respectivo expediente a la Dirección Jurídica para que se proceda con el trámite de cobro judicial.

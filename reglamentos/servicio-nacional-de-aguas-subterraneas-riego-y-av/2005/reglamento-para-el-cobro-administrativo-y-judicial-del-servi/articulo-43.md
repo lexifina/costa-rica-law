@@ -1,1 +1,0 @@
-Artículo 43.—Verificación de requisitos. En cualquiera de los casos, la Gerencia o la Junta Directiva, según sea el caso, requerirán informes escritos de la Dirección Administrativa y de la Dirección Jurídica de SENARA que acredite las gestiones cobratorias efectuadas y las razones financieras y legales por las cuales se recomienda pasar la cuenta como incobrable.
