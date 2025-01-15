@@ -14,3 +14,4 @@ Reglamento para el otorgamiento del crédito y avales al sector productor cafeta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-21 | la propia norma |
+| 2 | 2025-01-15 | Reglamento 0 (2025-01-15) |
