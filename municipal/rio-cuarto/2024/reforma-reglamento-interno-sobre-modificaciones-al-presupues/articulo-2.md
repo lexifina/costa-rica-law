@@ -1,0 +1,2 @@
+Artículo 2º-Se reforma el párrafo primero del artículo 7°. El texto dirá:
+Artículo 7º-Responsabilidades relacionadas con la aprobación presupuestaria interna. El Concejo Municipal deberá de manera oportuna conocer, verificar y pronunciarse mediante acto razonado sobre el cumplimiento del bloque de legalidad aplicable a los presupuestos extraordinarios y modificaciones presupuestarias. Para estos efectos, el Concejo Municipal tendrá el apoyo de La Alcaldía y de la Administración activa de la Municipalidad para cumplir esta función. (...)
