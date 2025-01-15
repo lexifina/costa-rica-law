@@ -1,0 +1,1 @@
+Artículo 12.-Verificación de requisitos: Verificados los requisitos administrativos y realizada la inspección sobre las condiciones que establece la Ley N° 9047, de lo cual quedará constancia en el expediente, la Unidad de Patentes emitirá la resolución debidamente motivada para aprobar o denegar la licencia.

@@ -1,0 +1,1 @@
+Artículo 23.-Vigencia. Las licencias tendrán una vigencia de cinco años prorrogables por períodos iguales de forma automática; siempre y cuando estén al día con las obligaciones materiales y formales. Por ello, cada cinco años, el licenciatario deberá aportar la información y documentación necesaria para comprobar el cumplimiento de los artículos 8 y 9 de la Ley.

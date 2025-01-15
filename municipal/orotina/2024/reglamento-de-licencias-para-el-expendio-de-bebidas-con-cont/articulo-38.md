@@ -1,0 +1,1 @@
+Artículo 38.-Limitación espacial de la licencia. La licencia otorgada por la Municipalidad para el expendio de bebidas con contenido alcohólico solo puede ser utilizada en el establecimiento para el cual se solicitó y no podrá cambiar de ubicación o de titular.

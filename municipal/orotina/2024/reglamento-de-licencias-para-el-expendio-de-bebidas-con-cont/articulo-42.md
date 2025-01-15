@@ -1,0 +1,1 @@
+Artículo 42.-Revocación de licencias. Las infracciones comprobadas serán motivo suficiente para promover el proceso de cancelación de las licencias para el expendio de bebidas con contenido alcohólico, lo que implica la clausura y cancelación de la licencia comercial, sin perjuicio de la denuncia penal correspondiente ante el ente competente.

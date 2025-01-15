@@ -1,0 +1,6 @@
+Artículo 25.-Revocación de licencias. Siguiendo el debido proceso, conforme lo establece la Ley General de la Administración Pública, la Unidad de Patentes podrá revocar la licencia para el expendio de bebidas con contenido alcohólico, en los siguientes casos:
+a) Por renuncia expresa o muerte del licenciatario. Para los efectos de este reglamento, considerando que las licencias se deben cancelar por adelantado, cuando la renuncia se presente durante el transcurso de un mes la Municipalidad no devolverá ni acreditará monto alguno por la fracción del mes no explotada. En caso de muerte, bastará con el documento o prueba que respalde el fallecimiento y se incorporará al expediente administrativo.
+b) Cuando resulte evidente el abandono de la actividad, o la falta de explotación comercial por más de seis meses, aun cuando el interesado no lo haya comunicado, bastará la comprobación mediante inspección de campo, aportando fotografías del lugar y el levantamiento de la respectiva acta de Inspección.
+c) Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine.
+d) Por el incumplimiento de los requisitos o la contravención de las prohibiciones establecidas en la Ley N° 9047.
+e) Por cualquiera de las causales establecidas en el artículo 6 de la Ley N° 9047.

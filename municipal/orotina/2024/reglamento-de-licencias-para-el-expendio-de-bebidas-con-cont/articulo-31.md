@@ -1,0 +1,1 @@
+Artículo 31.-Del acuerdo que autorice o deniegue una solicitud de licencia temporal para venta de bebidas con contenido alcohólico, se expedirá copia a la Unidad de Patentes y a la Plataforma de Servicios de la Municipalidad.

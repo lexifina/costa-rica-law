@@ -1,0 +1,1 @@
+Artículo 45.-Denuncia ante otras autoridades. En los supuestos normativos del Capítulo IV de la Ley N° 9047, la Fuerza Pública y los inspectores municipales tendrán facultades cautelares de decomiso y procederán a levantar el parte correspondiente, mismo que remitirán ante la autoridad competente, adjuntando todas las pruebas e indicios con que cuenten para darle sustento.
