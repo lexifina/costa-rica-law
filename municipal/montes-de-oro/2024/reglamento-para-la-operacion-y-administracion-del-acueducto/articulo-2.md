@@ -1,0 +1,1 @@
+Artículo 2- Objetivo Reglamentar las relaciones, derechos y obligaciones entre Municipalidad de Montes de Oro y sus abonados y/o usuarios; surgidas de la disponibilidad y prestación efectiva del servicio de agua potable en el Cantón de Montes de Oro.

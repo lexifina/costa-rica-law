@@ -1,0 +1,1 @@
+Artículo 66- De la obligación de pagar el cargo fijo de acueducto. Al abonado que se le suspenda el servicio de acueducto por morosidad o por causas no atribuibles al prestador, deberá cancelar el cargo fijo durante todo el periodo de suspensión.

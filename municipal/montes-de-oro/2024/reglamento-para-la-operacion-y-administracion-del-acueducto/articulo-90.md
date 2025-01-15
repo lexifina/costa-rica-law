@@ -1,0 +1,1 @@
+Artículo 90 -Del establecimiento de convenios: De conformidad con lo establecido en el artículo 9 del Código Municipal; la Municipalidad de Montes de Oro tiene la facultad de celebrar convenios con personas o entidades nacionales o extranjeras, pactos, convenios o contratos necesarios para el cumplimiento de sus funciones.

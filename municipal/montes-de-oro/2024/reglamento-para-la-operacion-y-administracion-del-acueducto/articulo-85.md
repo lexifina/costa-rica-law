@@ -1,0 +1,2 @@
+CAPÍTULO NOVENO DISPOSICIONES VARIAS
+Artículo 85 - Del uso de GPS. Los vehículos de la Departamento de la Unidad de Gestion de Servicios al igual que los dispositivos electrónicos de recolección de datos que usan los colaboradores de la Departamento de la Unidad de Gestion de Servicios , podrán contar con un sistema de posicionamiento global (GPS), esto con el fin de controlar el uso de los mismos y así optimizar la prestación de los servicios.

@@ -1,0 +1,1 @@
+Artículo 11- De la divulgación de la suspensión del servicio: La Municipalidad, a través del Departamento de Gestión de Servicios mediante la administración del Acueducto, realizara el aviso rápido y oportuno a los usuarios de las alteraciones o interrupciones de la prestación del servicio de agua potable.

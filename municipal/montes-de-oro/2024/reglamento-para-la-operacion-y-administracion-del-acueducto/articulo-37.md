@@ -1,0 +1,2 @@
+Artículo 37- Consumo equivalente para servicios en zonas de conflicto.
+Cuando se limite la toma de lectura por medio de los medidores de agua por condiciones de seguridad, peligrosidad o servicios de agua y saneamiento compartidos con otros operadores; se procederá a realizar el cobro basado en el volumen promedio de consumo de los abonados medidos. Para efectos del presente reglamento se establece el equivalente en 20m3 por mes. Este será aplicable únicamente a la tarifa domiciliar.

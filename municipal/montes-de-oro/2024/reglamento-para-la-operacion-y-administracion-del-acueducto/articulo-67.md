@@ -1,0 +1,1 @@
+Artículo 67- De la fuente pública: La Municipalidad instalará, una fuente pública, única y exclusivamente en el caso de servicios con tarifa domiciliar que sean suspendidos por morosidad. Estas podrán ser instaladas en un radio máximo de 200 (doscientos) metros. Salvo casos técnicamente justificados; todas las fuentes públicas deben ser medidas.

@@ -1,0 +1,1 @@
+Artículo 24- De la renuncia al servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante la Municipalidad de Montes de Oro, la que contará con el respectivo formulario, si la misma procede se ejecutará previo pago de cualquier saldo existente en la cuenta de la propiedad en mención.

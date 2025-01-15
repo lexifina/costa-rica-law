@@ -1,0 +1,3 @@
+Artículo 33- Del servicio provisional para construcciones con permiso municipal.
+Los nuevos servicios de agua para construcción aprobados por la Municipalidad se clasificarán como servicio provisional de agua para construcción.
+Una vez finalizada la construcción (por suspensión o terminación de la obra) y habiendo cumplido con la normativa de construcciones correspondiente, el abonado deberá tramitar ante la Jefatura de Desarrollo Urbano la declaración de la finalización de obras para proceder con el cambio de tarifa. El cambio a la tarifa correspondiente se realizará a partir del visto bueno indicado por la inspección municipal elaborada por la Jefatura de Desarrollo Urbano.
