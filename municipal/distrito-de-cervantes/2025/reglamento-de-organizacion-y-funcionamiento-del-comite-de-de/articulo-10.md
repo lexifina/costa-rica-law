@@ -1,0 +1,6 @@
+Artículo 10.—La Junta Directiva del Comité de Deportes y Recreación del distrito de Cervantes estará integrada por siete miembros residentes actuales en el distrito, nombrados para tal efecto con quince días hábiles de antelación al vencimiento del período de junta directiva saliente, de la siguiente forma:
+a) Dos miembros de nombramiento del Concejo Municipal.
+b) Dos miembros de las organizaciones deportivas y recreativas del distrito.
+c) Un miembro de las organizaciones comunales restantes.
+d) Dos miembros de la población entre los 15 y menores de 18 años quienes serán elegidos directamente mediante una asamblea cantonal conformada por todas las organizaciones juveniles del cantón y los atletas activos del Programa de Juegos Deportivos Nacionales del Cantón, convocado por el Comité Cantonal de la Persona Joven, y posteriormente juramentados por el Concejo Municipal.
+Los citados en el inciso b y c deberán entregar las propuestas con al menos un mes calendario de antelación a la Secretaria del Concejo Municipal con su currículo en el cual será deseable y se demuestre experiencia en deporte y/o en recreación, el Concejo Municipal realizará el envío de las cartas de invitación con el periodo para presentar los currículos de las personas interesadas de acuerdo con el artículo 174 del Código Municipal.

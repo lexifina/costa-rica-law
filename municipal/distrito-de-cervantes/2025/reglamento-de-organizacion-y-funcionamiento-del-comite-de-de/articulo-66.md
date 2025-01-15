@@ -1,0 +1,5 @@
+CAPÍTULO XIV
+Disposiciones Finales
+Artículo 66.—Para efectos de la organización de las fiestas patrias, fiestas conmemorativas de la fundación del Distrito de Cervantes u otras según lo disponga el Concejo Municipal de Distrito de Cervantes, el uso del gimnasio municipal será reservado para la Comisión de Cultura del Concejo Municipal de Distrito de Cervantes; con el fin de poder organizar de la mejor manera dichas efemérides.
+a) Una vez establecidas las fechas de dichos actos conmemorativos se procederá a comunicar al Comité de Deportes para su conocimiento y respectiva programación; de manera que durante la semana de las conmemoraciones no haya actividades que puedan entorpecer o competir -en el mismo espacio y tiempo-con los procesos de organización y desarrollo de los eventos culturales programados.
+b) El ente encargado de la coordinación entre el Comité de Deportes y el Concejo Municipal de Distrito de Cervantes, durante los períodos conmemorativos antes mencionados, será la Comisión de Cultura designada o en su defecto alguna Comisión Ad hoc.

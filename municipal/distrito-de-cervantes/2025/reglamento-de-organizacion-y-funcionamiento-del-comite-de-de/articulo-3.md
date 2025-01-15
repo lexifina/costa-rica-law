@@ -1,0 +1,1 @@
+Artículo 3°—El domicilio legal del Comité será el distrito Cervantes, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva, debiendo informar al Concejo Municipal del distrito de Cervantes para su debida aprobación.

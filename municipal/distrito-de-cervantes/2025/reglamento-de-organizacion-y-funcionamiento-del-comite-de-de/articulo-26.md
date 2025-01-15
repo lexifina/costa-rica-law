@@ -1,0 +1,1 @@
+Artículo 26.—Las determinaciones o decisiones que tome la Junta Directiva se denominarán acuerdos, deberán constar en el acta correspondiente y ser transcritos y comunicados a las partes involucradas. A estos se les debe brindar el seguimiento correspondiente por parte de la junta, y deben ser custodiados y archivados por la secretaria.

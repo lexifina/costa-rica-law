@@ -1,0 +1,1 @@
+Artículo 21.—El quórum para sesionar estará integrado por la mitad más uno del total de los miembros del Comité de Deportes. Los acuerdos se tomarán por mayoría simple de los votos presentes, cuando una votación se produzca un empate, se votarán de nuevo en el mismo acto o la sesión ordinaria inmediata siguiente y, de empatar otra vez el asunto se tendrá por desechado.
