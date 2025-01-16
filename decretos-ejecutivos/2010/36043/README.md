@@ -14,3 +14,4 @@ Regulaciones permanentes para la implementación de una ayuda temporal por pobre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-15 | la propia norma |
+| 2 | 2025-01-16 | Decreto Ejecutivo 45197 (2025-01-16) |
