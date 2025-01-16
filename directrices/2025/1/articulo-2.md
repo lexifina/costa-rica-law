@@ -1,0 +1,1 @@
+Artículo 2.- El pago de salario global con disponibilidad a cada persona funcionaria del Instituto Costarricense de Acueductos y Alcantarillados (ICAA) que así lo requiera, es resorte de la Administración, debiendo aplicar la normativa específica y el procedimiento establecido para formalizar el respectivo contrato que formalice dicho pago de salario global.

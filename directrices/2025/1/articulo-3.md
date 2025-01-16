@@ -1,0 +1,2 @@
+Artículo 3.- La columna salarial global actualizada del Instituto Costarricense de Acueductos y Alcantarillados (ICAA), se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: (https://www.empleopublico.mideplan.go.cr/) .
+(Nota de Sinalevi: La columna salarial global actualizada del Instituto Costarricense de Acueductos y Alcantarillados (ICAA), puede ser consultada en el siguiente Enlace)
