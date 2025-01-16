@@ -1,0 +1,2 @@
+ARTICULO 15. Para la liquidación de gastos de hospedaje dentro del territorio nacional será requisito presentar el comprobante de pago correspondiente autorizado por el Ministerio de Hacienda, sea factura impresa o electrónica a nombre de la Municipalidad de Carrillo.
+Será responsabilidad del funcionario tramitar ante la Alcaldía Municipal, portar y presentar el documento de exoneración del impuesto de ventas que le asiste a la Municipalidad como ente público.

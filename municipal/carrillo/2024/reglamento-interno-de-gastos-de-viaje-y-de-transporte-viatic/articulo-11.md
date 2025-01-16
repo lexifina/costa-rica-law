@@ -1,0 +1,1 @@
+ARTICULO 11. El reconocimiento de gastos de viaje y transporte a los funcionarios municipales se efectuará cuando su desplazamiento y funciones se ejecuten a una distancia superior a 10 kilómetros de radio desde la Sede Central de la Municipalidad, sita 200 metros al norte del parque central de Filadelfia.

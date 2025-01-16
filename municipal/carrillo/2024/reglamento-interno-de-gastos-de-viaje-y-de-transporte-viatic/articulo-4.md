@@ -1,0 +1,1 @@
+ARTICULO 4. Corresponde al Alcalde o Alcaldesa Municipal autorizar el pago de viáticos por concepto de hospedaje, alimentación y transporte mediante su firma en los documentos que se confeccionen para tales efectos.

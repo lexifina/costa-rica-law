@@ -1,0 +1,1 @@
+ARTICULO 18. Ante el incumplimiento de las obligaciones impuestas en este reglamento por parte de los funcionarios municipales, se procederá según lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.

@@ -1,0 +1,2 @@
+ARTICULO 14. Los montos a reconocer por concepto de viáticos serán los vigentes establecidos por la Contraloría General de la República, según el artículo 18 del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por el ente contralor.
+Para el caso de los gastos de transporte en la modalidad de autobuses o taxis, el monto a reconocer será la tarifa oficial vigente que tenga definida la Autoridad Reguladora de los Servicios Públicos (ARESEP).

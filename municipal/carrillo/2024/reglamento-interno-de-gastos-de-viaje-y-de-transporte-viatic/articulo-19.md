@@ -1,0 +1,1 @@
+ARTICULO 19. Para dar cumplimiento a lo establecido en este reglamento, la Administración deberá incluir en el presupuesto ordinario de cada año la partida presupuestaria correspondiente, de conformidad con las tarifas vigentes de ARESEP y de la Contraloría General de la República.

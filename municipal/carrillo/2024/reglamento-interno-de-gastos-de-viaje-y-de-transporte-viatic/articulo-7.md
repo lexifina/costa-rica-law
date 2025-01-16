@@ -1,0 +1,1 @@
+ARTICULO 7. Los trabajadores municipales tendrán siete días hábiles para realizar las liquidaciones de viáticos, acompañando las mismas de los comprobantes correspondientes, cuando sea requerido, todo conforme a este reglamento y al Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República.

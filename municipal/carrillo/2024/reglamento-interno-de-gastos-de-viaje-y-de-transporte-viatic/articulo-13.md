@@ -1,0 +1,4 @@
+ARTICULO 13. Procederá el reconocimiento de viáticos por gastos de alimentación según el siguiente esquema:
+a) Desayuno: Se reconocerá cuando la gira se inicie antes de o a las siete horas. Este viático no aplica para los funcionarios cuyo horario laboral inicie antes de esa hora, excepto cuando se trate de giras asignadas que no corresponden con sus tareas ordinarias.
+b) Almuerzo: Se cubrirá cuando la partida se realice antes de o a las once horas y el regreso después de las catorce horas.
+c) Cena: Se pagará cuando la partida se realice antes de o a las dieciocho horas y el regreso después de las veinte horas. En casos especiales, previa justificación de la Administración, podrá ampliarse el límite de la partida, siempre y cuando el regreso se produzca después de las veinte horas y el funcionario haya laborado en forma continua antes de su partida.

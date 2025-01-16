@@ -1,0 +1,1 @@
+ARTICULO 10. La información consignada en la liquidación de gastos de hospedaje, alimentación y transporte tiene carácter de declaración jurada, por lo que la consignación de datos imprecisos o falsos puede generarle al funcionario consecuencias legales según la normativa vigente.

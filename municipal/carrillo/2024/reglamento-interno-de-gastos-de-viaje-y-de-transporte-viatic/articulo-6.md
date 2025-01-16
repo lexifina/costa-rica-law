@@ -1,0 +1,1 @@
+ARTICULO 6. Se podrá tramitar adelanto de viáticos según monto estimado requerido, siempre que se cuente con la autorización del Alcalde o Alcaldesa Municipal mediante su firma en el documento que se confeccione para tales efectos.

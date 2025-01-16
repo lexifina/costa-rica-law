@@ -1,0 +1,1 @@
+ARTICULO 3. Concepto. Se entenderá por viático aquella suma de dinero destinada a la atención de gastos de hospedaje, alimentación y transporte, que la Municipalidad de Carrillo reconoce a sus trabajadores cuando corresponda.

@@ -1,0 +1,1 @@
+ARTICULO 20. Para lo no contemplado en este reglamento, se aplicará de manera supletoria lo establecido en el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
