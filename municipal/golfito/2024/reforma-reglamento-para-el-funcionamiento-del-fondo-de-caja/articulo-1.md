@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE GOLFITO
+La Municipalidad de Golfito Informa lo dispuesto por el Concejo Municipal en la Ordinaria número Treinta, celebrada el día veinte de noviembre del año dos mil veinticuatro, contenido en el Capítulo Octavo, Artículo Diecinueve (inciso 3) - acuerdos N° 16 y 17, acuerdo 17-ORD 30.-2024 se aprueba: Considerando que se cuenta con el oficio CO-MG-131-2024, emitido por el Departamento de Contabilidad y la Asesoría Legal, DEROGAR el Artículo 05 del Reglamento para el funcionamiento del Fondo de Caja Chica de la Municipalidad de Golfito.
