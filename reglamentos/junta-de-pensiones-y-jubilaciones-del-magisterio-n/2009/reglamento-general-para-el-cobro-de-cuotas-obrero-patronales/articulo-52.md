@@ -1,1 +1,2 @@
-Artículo 52.—De la cantidad máxima de arreglos de pago. Se establece en tres, la cantidad máxima de arreglos de pago por institución.
+Artículo 52: De la adjudicación
+En el caso que la Junta se adjudique el bien rematado, el abogado gestionará lo pertinente para la puesta en posesión del mismo a favor de la Institución, y se procederá además a realizar de forma inmediata las acciones pertinentes para la inscripción registral. En caso de que sea un tercero el adjudicatario, deberán ejecutarse las acciones legales pertinentes para el depósito a favor de JUPEMA de lo que corresponda.

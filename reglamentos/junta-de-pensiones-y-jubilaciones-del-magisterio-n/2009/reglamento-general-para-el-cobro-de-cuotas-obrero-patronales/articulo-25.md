@@ -1,3 +1,2 @@
-CAPÍTULO CUARTO
-Del proceso de cobro administrativo
-Artículo 25.—De la determinación de la deuda. El Departamento Financiero Contable emitirá el I y II aviso de cobro administrativo, el cual se enviará a los Centros Educativos o a los representantes legales de las instituciones, detallándose como mínimo: Nombre y código de la institución, monto adeudado (según la última planilla reportada), períodos que comprende, plazo con que cuenta para la normalización de su situación o la formalización de arreglos de pago, según lo indicado en el capítulo sexto de este Reglamento y cualquier otra información que considere relevante para la cancelación de la deuda.
+Artículo 25: Recursos
+Contra la resolución que determina una sanción o fija una deuda por parte de la Dirección Ejecutiva, cabe el recurso de revocatoria y apelación ante la Junta Directiva de JUPEMA, el cual deberá interponerse dentro del plazo de 5 días hábiles siguientes al acto de notificación.

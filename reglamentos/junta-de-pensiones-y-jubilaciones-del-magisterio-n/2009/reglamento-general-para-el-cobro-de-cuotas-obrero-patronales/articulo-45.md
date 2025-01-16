@@ -1,3 +1,2 @@
-CAPÍTULO SEXTO
-Otras Acciones Judiciales
-Artículo 45.—Del embargo. En todos los casos, a excepción de aquellos en se necesite la rendición de una garantía, el abogado externo procederá en el trámite inicial de la demanda a solicitar el respectivo embargo, de conformidad con los estudios registrales de bienes o de salarios, según corresponda a personas físicas o jurídicas, en cuyo caso deberá coordinar con el Departamento Financiero Contable a fin de hacerlos efectivos.
+Artículo 45: De la inexistencia de bienes
+En caso de determinar que no existen bienes para embargar, el abogado asignado comunicará esta situación al Departamento Financiero Contable, quien determinará las acciones a seguir o bien la declarará como incobrable, previa aprobación de la Dirección Ejecutiva.

@@ -1,1 +1,3 @@
-Artículo 43.—De la finalización definitiva del proceso. La cancelación definitiva del proceso sólo podrá realizarse, si se cancela la totalidad de la deuda, con los intereses, gastos legales y administrativos o si la institución morosa formaliza un arreglo extrajudicial debidamente garantizado.
+Artículo 43: Del cobro de los honorarios
+Corresponderá al Departamento Financiero Contable exclusivamente, recibir honorarios del demandado, de modo que a los abogados externos les está vedado ejercer esa posibilidad.
+Para ejercer el control correspondiente, se crearán los procedimientos contables necesarios para la separación de los recursos.

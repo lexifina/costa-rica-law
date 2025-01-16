@@ -1,1 +1,2 @@
-Artículo 27.—De los Procedimientos. En el procedimiento para determinación de la deuda, notificación y su contenido, recursos, formalidad, resolución final y ejecución, se debe atender en lo compatible lo dispuesto en este capítulo.
+Artículo 27: Resolución Final
+El recurso de apelación lo resolverá la Junta Directiva dentro de un plazo de 20 días hábiles contados a partir del recibo del expediente.

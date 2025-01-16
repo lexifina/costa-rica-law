@@ -1,2 +1,2 @@
-Artículo 49.—De la solicitud del arreglo de pago. La institución morosa que se encuentre en cobro administrativo, judicial o de transgresión, según capítulo III de este Reglamento, podrá solicitar vía escrita al Departamento Financiero Contable un arreglo de pago. Éste analizará la viabilidad de la propuesta, para lo cual determinará el monto total de la deuda a la fecha de la solicitud, de acuerdo con las planillas de los períodos adeudados y emitirá un plan de pagos.
-(Así reformado mediante sesión N° 028 del 05 de marzo de 2015)
+Artículo 49: Del control de casos asignados:
+El Departamento Financiero Contable deberá llevar un control del rol de los abogados y de los casos asignados, sus estados, informes presentados, fechas de presentación, incumplimiento, si por algún motivo han presentado temporalmente su retiro o bien éste sea en forma permanente.

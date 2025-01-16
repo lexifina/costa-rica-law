@@ -1,1 +1,2 @@
-Artículo 44.—Del control de casos asignados. El Departamento Financiero Contable deberá llevar un control del rol de los abogados y de los casos asignados, sus estados, informes presentados, fechas de presentación, incumplimiento, si por algún motivo han presentado temporalmente su retiro o bien éste sea en forma permanente.
+Artículo 44: Del pago de los honorarios
+De conformidad con lo dispuesto en el artículo 41 de este Reglamento, los honorarios y costas procesales que están a cargo del demandado serán pagados al profesional cuando el patrono haya cancelado el monto total de los adeudos.

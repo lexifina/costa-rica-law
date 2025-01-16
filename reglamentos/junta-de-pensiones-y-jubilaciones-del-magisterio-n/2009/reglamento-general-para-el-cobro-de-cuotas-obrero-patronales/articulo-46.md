@@ -1,1 +1,6 @@
-Artículo 46.—De los remates. Con el propósito de lograr el remate oportuno de los bienes, los abogados externos realizarán todos los actos previos y gestionará las acciones procesales necesarias para ejecutarlo debidamente. En todo caso, una vez que se notifique las fechas para la celebración de los remates, deberá comunicarse al Departamento Financiero Contable con la debida antelación, a fin de que se tomen las previsiones del caso y se instruya lo pertinente sobre el caso particular. Igual diligencia recordatoria deberá realizar el abogado externo un día antes hábil anterior al remate, así como del resultado del mismo una vez celebrado.
+Artículo 46: Del desistimiento o conclusión del juicio
+Corresponderá exclusivamente al Departamento Financiero Contable, ordenar el desistimiento o terminación de las acciones judiciales, por motivos:
+a) del pago total de las sumas adeudadas, incluyendo las costas procesales e intereses;
+b) arreglos de pago debidamente formalizados;
+c) los casos establecidos en el artículo 41 de este reglamento y;
+d) por declaratoria de incobrabilidad.

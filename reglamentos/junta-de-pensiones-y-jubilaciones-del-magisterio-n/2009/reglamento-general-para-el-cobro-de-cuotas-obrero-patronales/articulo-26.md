@@ -1,2 +1,2 @@
-Artículo 26.—Notificación. Corresponde al Departamento Financiero Contable, el envío del aviso de cobro administrativo a las instituciones cotizantes o a sus representantes legales.
-El medio de envío utilizado, será el que el Departamento Financiero considere más eficiente, el cual podrá ser por medio de correo certificado, fax o correo electrónico. Asimismo, se dejará evidencia por escrito del envío.
+Artículo 26: Formalidad
+Los recursos se presentarán por escrito ante el Órgano que dictó la resolución, para lo cual deberá fundamentarse y ofrecerse la prueba pertinente. Además, debe señalar el lugar para atender notificaciones.

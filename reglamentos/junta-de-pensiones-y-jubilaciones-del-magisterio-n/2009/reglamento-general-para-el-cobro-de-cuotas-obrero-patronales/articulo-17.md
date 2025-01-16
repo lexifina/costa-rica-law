@@ -1,5 +1,13 @@
-Artículo 17.—De la suspensión de las diligencias cobratorias. Solo en los casos que los patronos o su representante legal entreguen formalmente, la totalidad de la información y de los documentos solicitados e indiquen su anuencia a normalizar su situación, se procederá a la suspensión del proceso y de las diligencias cobratorias, según refiere los siguientes apartados:
-a) Finalizada la investigación y trámite de prevención, corresponde a la Jefatura del Departamento Financiero Contable autorizar la suspensión del acto de cobro.
-b) Estando en curso la ejecución de la Resolución Final y el proceso de cobro judicial, corresponderá a la Dirección Ejecutiva autorizar la suspensión del acto.
-c) Estando en curso el recurso de apelación contra Resolución Final, corresponderá a la Junta Directiva la suspensión del acto.
-El incumplimiento del convenio para suspensión de las diligencias cobratorias, dará origen al inicio o continuación de las gestiones legales y de cobro pertinentes.
+Artículo 17: De la prevención
+Los Inspectores o notarios según se determine por parte de la administración, harán a los patronos o sus representantes, una prevención motivada por escrito, para que dentro de los 10 días hábiles siguientes a que se realice la prevención, le suministren la información requerida. La prevención contendrá al menos la siguiente información:
+. Nombre del patrono
+. Número de cédula jurídica
+. Número patronal
+. Detalle de la información solicitada
+. Justificación
+. Plazo de entrega de la información
+. Prevenciones en caso de incumplimiento
+. Prevención para señalar lugar para atender notificaciones
+. Fecha y hora
+. Nombre y firma del inspector
+La información presentada por los patronos estará sujeta a la comprobación por parte de JUPEMA (por los medios que esta estime convenientes). Para tal efecto los inspectores podrán practicar las investigaciones, diligencias y exámenes que consideren necesarios y útiles para valorar la veracidad de la información.

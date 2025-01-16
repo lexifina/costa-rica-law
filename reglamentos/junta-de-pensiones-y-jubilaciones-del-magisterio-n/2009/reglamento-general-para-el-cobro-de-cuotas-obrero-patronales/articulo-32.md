@@ -1,3 +1,2 @@
-Artículo 32.—Selección de abogados externos. La Junta de Pensiones procederá con la selección de abogados externos, quienes serán los encargados de llevar a cabo las gestiones de cobro judicial.
-La Junta de Pensiones no tendrá relación laboral ni de servicio con estos profesionales, y en consecuencia no les hará ningún reconocimiento salarial ni de otra naturaleza.
-La operativa aplicable, designación, requisitos, deberes, responsabilidades, control seguimiento para los profesionales en derecho que lleven casos de cobro judicial que estipula el artículo anterior, será normada en el correspondiente manual de procedimientos.
+Artículo 32: De los procedimientos
+En el procedimiento para determinación de la deuda, notificación y su contenido, recursos, formalidad, resolución final y ejecución, se debe atender en lo compatible lo dispuesto en este capítulo.

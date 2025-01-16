@@ -1,1 +1,2 @@
-Artículo 22.—Formalidad. Los recursos se presentarán por escrito ante el órgano que dictó la resolución, para lo cual deberá fundamentarse y ofrecerse la prueba pertinente. Además debe señalar el lugar para atender notificaciones.
+Artículo 22: Del contenido de la notificación
+La notificación contendrá el texto íntegro de la resolución y en los casos que corresponda, indicación de los recursos procedentes y del órgano que los resolverá, ante quien deben interponerse y los plazos correspondientes.

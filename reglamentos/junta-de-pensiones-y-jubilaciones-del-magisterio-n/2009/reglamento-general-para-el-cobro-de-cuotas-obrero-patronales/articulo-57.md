@@ -1,2 +1,2 @@
-Artículo 57.—Vigencia. Este Reglamento fue aprobado y modificado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional en la sesión ordinaria N° 114-2009 celebrada el 14 de octubre de 2009, sesión ordinaria 083-2012, del 30 de julio de 2012 y sesión ordinaria N° 108-2013, del 26 de setiembre de 2013, entrará en vigencia una vez publicado en el Diario Oficial La Gaceta.
-Departamento Financiero Contable
+Artículo 57: De la cantidad máxima de arreglos de pago
+Se establece en tres, la cantidad máxima de arreglos de pago por institución.

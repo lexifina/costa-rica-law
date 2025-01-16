@@ -1,1 +1,4 @@
-Artículo 53.—De la presentación de Informes. El Departamento Financiero Contable deberá emitir a la Dirección Ejecutiva en forma trimestral en un plazo máximo de 10 días hábiles, un informe, que muestre el detalle de todos los casos que se encuentran en arreglo de pago. Dicho informe deberá ser remitido a la Junta Directiva , para su respectivo conocimiento.
+Capítulo Sétimo
+De los arreglos de pago y propuesta de pago
+Artículo 53: De la formalización de los arreglos de pago
+Corresponde al Departamento Financiero Contable realizar las gestiones necesarias para la formalización de los arreglos de pago. Una vez aprobado el arreglo de pago, el documento deberá ser suscrito en un plazo máximo de quince días hábiles, de lo contrario el mismo quedará rechazado y se continuará con el proceso de cobro administrativo o judicial según corresponda.

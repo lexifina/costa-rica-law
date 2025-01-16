@@ -1,11 +1,6 @@
-Artículo 14.—De la prevención. Los supervisores o notario según se determine por parte de la administración, harán a los patronos o sus representantes, una prevención motivada por escrito, para que dentro de los 10 días hábiles siguientes a que se realice la prevención, le suministren la información requerida. La prevención contendrá al menos la siguiente información:
-Nombre del patrono
-Número de Cédula Jurídica
-Número patronal
-Detalle de la información solicitada
-Justificación
-Plazo de entrega de la información
-Prevenciones en caso de incumplimiento
-Prevención para señalar lugar para atender notificaciones
-Fecha y Hora
-Nombre y Firma del Supervisor
+Artículo 14: Base presunta y base cierta
+JUPEMA podrá determinar la cuantía de la obligación obrero patronal y aplicar la base presunta como procedimiento excepcional, cuando se presente alguna de las circunstancias definidas en el artículo 128 de la Ley 7531 y sus reformas. Para tal fin JUPEMA tendrá en consideración la información que haya podido recabar y los indicios recogidos en la correspondiente investigación.
+Para calcular el salario de referencia de los Centros Educativos Privados se procederá utilizando la lista de salarios mínimos del Sector Privado decretada por el Ministerio de Trabajo y Seguridad Social (MTSS) y publicada en el diario La Gaceta para cada año, por el Departamento de Salarios. En dicho proceso se deberá tomar en cuenta los salarios mínimos según la clasificación, perfiles ocupacionales, y nivel académico; así como, el nivel técnico otorgado en dicho estudio.
+De igual forma se deberá utilizar lista de salarios mínimos del Sector Privado decretada por el Ministerio de Trabajo y Seguridad Social (MTSS), cuando los salarios reportados por los patronos no cumplan con el mínimo establecido por la norma.
+En referencia con los Centros Educativos Públicos se procederá según la escala salarial establecida por cada institución.
+JUPEMA aplicará la base cierta cuando el patrono cuente con la documentación necesaria y veraz que permitan a la inspección conocer en forma directa y cierta el hecho generador de la obligación y la cuantía de esta.

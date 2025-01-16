@@ -1,5 +1,2 @@
-Artículo 29.—De los plazos. Las instituciones que presentan una mora de uno a sesenta días naturales, se ubicarán en categoría A (Riesgo Normal). Las gestiones de cobro son: De uno a treinta días naturales, envío de mensajes de texto, mensajes por IVR, correos electrónicos o llamadas telefónicas a los Centros Educativos. De treinta y un días y hasta sesenta días naturales, el envío del primer aviso de cobro administrativo.
-De sesenta y un días a noventa días naturales, se ubicará en categoría B (Riesgo Circunstancial) y les corresponderá el envío del segundo aviso de cobro administrativo.
-Si el patrono no acatare la prevención señalada en los párrafos anteriores y transcurrido el plazo de noventa y un días (categoría C o Riesgo Alto), se procederá a notificar a las instituciones cotizantes de acuerdo con el procedimiento dispuesto en el capítulo tercero de este Reglamento.
-Si producto de la notificación el patrono concreta un arreglo de pago, se suspenderá el proceso de cobro judicial.
-(Así reformado en sesión N° 104 del 24 de setiembre de 2014)
+Artículo 29: Reincidencias
+En cumplimiento del artículo 125 de la Ley 7531 y sus reformas, debe JUPEMA (por los medios que estime convenientes) contar con los mecanismos de control correspondientes que permitan determinar si en el plazo de un año, el Centro Educativo ha reincido en la misma falta, lo cual dará la facultad de sancionar al patrono moroso con el doble de la multa por transgresión que se establece en el artículo 13 de este Reglamento.
