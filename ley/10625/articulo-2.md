@@ -1,0 +1,2 @@
+ARTÍCULO 2- Desafectación del bien segregado
+Se desafecta del uso público únicamente el lote segregado en el artículo uno, de cuatro mil trescientos cincuenta y seis metros cuadrados (4.356 m2), plano de catastro siete-nueve nueve tres tres-dos cero dos cuatro (7-9933-2024), con los siguientes linderos: al norte: calle pública; al sur: calle pública (ampliación de la ruta 32); al este: el MOPT; al oeste: calle pública.

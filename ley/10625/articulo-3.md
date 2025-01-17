@@ -1,0 +1,2 @@
+ARTÍCULO 3- Autorización para donar el bien segregado
+Se autoriza a la Junta de Educación del Colegio Técnico Profesional Padre Roberto Evans Saunders, en el cantón de Siquirres, cédula jurídica tres cero cero ocho cero cinco seis dos cinco cuatro (3008056254), para donar el lote segregado en el artículo uno, plano de catastro número siete-nueve nueve tres tres-dos cero dos cuatro (7-9933-2024), a la Municipalidad del cantón de Siquirres.
