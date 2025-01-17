@@ -1,0 +1,5 @@
+Artículo 12.-Prohibiciones. Queda completamente prohibido para el Departamento de Proveeduría, como encargado de la ejecución en la entrega de donaciones: Para la entrega de bienes por donación de bienes inmuebles, muebles-muebles y en desuso de la Municipalidad de Poás:
+a) Excluir bienes de los registros de activos o inventario, previo a que se cuente con el acuerdo del Concejo Municipal.
+b) Modificar el listado de bienes a entregar en donación de bienes inmuebles, muebles-muebles y en desuso de la Municipalidad de Poás.
+c) Consignar el acta de entrega de bienes a favor de un tercero no autorizado para la recepción de bienes por donación de bienes inmuebles, muebles-muebles y en desuso de la Municipalidad de Poás.
+d) Queda terminantemente prohibido para todo el personal municipal, incluido las personas que ocupen los puestos de Alcalde y Vicealcaldía; Regidores (titulares y suplentes) y Síndicos (titulares y suplentes), solicitar, en nombre de la Municipalidad, cualquier tipo de donación de bienes inmuebles, muebles-muebles y en desuso de la Municipalidad de Poás, debiéndose seguir para ello el procedimiento previsto en el presente Reglamento.

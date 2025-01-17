@@ -1,0 +1,1 @@
+Artículo 11.-En caso de aprobación de la solicitud, la Municipalidad otorgará a las instituciones y/u organizaciones la donación de bienes inmuebles, muebles-muebles y en desuso de la Municipalidad de Poás, realizando el debido proceso, después de aprobada la solicitud por parte del Concejo Municipal.

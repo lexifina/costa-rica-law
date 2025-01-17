@@ -1,0 +1,4 @@
+Artículo 6º-Aspectos a los que debe responder toda donación:
+a- La razonabilidad de necesidades existentes y la vinculación entre el bien a donar, la realidad municipal y el fin público-cantonal.
+b- A la buena fe de las partes, de manera que las intenciones de las donaciones no pueden formularse para pretender generar compromisos institucionales vinculados con la resolución de asuntos en donde el donante participe como sujeto activo o pasivo de conflicto de intereses con la Municipalidad, o cualquier otra condición, mediante la cual se trate de imponer limitaciones o direcciones sobre la naturaleza y propósitos de las funciones y gestión municipal.
+c- Al libre uso del objeto de la donación, conforme los criterios de necesidad y de oportunidad definidos a nivel municipal, así como cualquier otro requerimiento del interés público cantonal.
