@@ -1,0 +1,18 @@
+Nº 44791-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 18 y 20 de la Constitución Política de la República de Costa Rica; 21 inciso 1), 25 inciso 1, y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; el Decreto Ejecutivo Nº 17026-C, "Reglamento de Servicio del Teatro Popular Melico Salazar ", y
+Considerando:
+l. Que el Artículo 32 del Reglamento Autónomo de Servicio del Ministerio de Cultura y Juventud, Decreto Ejecutivo Número Nº 33270; señala: "La jornada ordinaria de labores será continua, de ocho horas, de lunes a viernes inclusive, con el siguiente horario, sin perjuicio de los ajustes que sea necesario realizar en algunas dependencias del Ministerio, debido a la naturaleza del trabajo".
+Il. Que el decreto Ejecutivo Número 17026-C del 31 de marzo de 1986, "Reglamento de Servicio del Teatro Popular Melico Salazar", contempló en su artículo 5 que los días lunes serían el día de descanso del personal técnico del Teatro.
+III. Que por Decreto Ejecutivo No. 44175-C del 15 de junio de 2023, "Reforma Reglamento de Servicio del Teatro Popular Mélico Solazar", se reformó el artículo 5 del Decreto Ejecutivo 17026-C en los siguientes términos: "Artículo 5: Los días de descanso del personal técnico del Teatro Popular Melico Salazar y sus programas, serán lunes y martes; salvo en el caso de la Compañía Nacional de Teatro que serán los días domingo y lunes."
+IV. Que el artículo 41 del Decreto Ejecutivo Nº 33270-C del 2 de junio de 2006, ''Reglamento Autónomo de Servicio del Ministerio de Cultura y Juventud, señala: ''Artículo 41. Salvo casos especiales en que por la naturaleza de sus funciones tengan otro tipo de jornada, todos los servidores del Ministerio disfrutarán de dos días fijos de descanso absoluto, después de cada semana continua de servicios. No obstante lo anterior y a fin de preservar los principios fundamentales del servicio público, tales descansos podrán ser otorgados en forma acumulativa mensual. de conformidad con lo dispuesto en el artículo 152 del Código de Trabajo. "
+V. Que la vigencia de normativas de igual rango, aplicables a la misma institución, y que regulan de manera diferente los mismos supuestos; genera incertidumbre jurídica y potencian los eventuales conflictos de naturaleza laboral a lo interno del Teatro Popular Melico Salazar.
+VI. Que de conformidad con el artículo 12 bis del Reglamento a la Ley de Protección al ciudadano del exceso de requisito3 y trámites administrativos (Decreto Ejecutivo Nº 37045-MP-MEIC del 22 de febrero del 2012) cuando la institución proponente determine que la regulación no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir ante la Administración Central, no de verá realizar este control previo y así deberá indicarlo en la parte considerativa de la regulación propuesta.
+VIl. Que, al utilizar como referencia el cuestionario establecido en la Sección I Formulario de Evaluación Costo Beneficio en la Sección I denominada Control Previo de Mejora Regulatoria del MEIC, se verifica que la presente norma no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir ante el Ministerio de Cultura y Juventud, por lo que no se realiza el control previo.
+Por tanto,
+DECRETAN:
+REFORMA AL DECRETO EJECUTIVO Nº 17026-C
+"REGLAMENTO DE SERVICIO DEL TEATRO
+POPULAR MELICO SALAZAR"
+Artículo 1° - Deróguese el artículo 5 del Decreto Ejecutivo No. 17026-C, Reglamento de Servicio del Teatro Popular Melico Salazar, reformado mediante Decreto Ejecutivo No. 44175-C, "Reforma Reglamento de Servicio del Teatro Popular Mélico Salazar."
