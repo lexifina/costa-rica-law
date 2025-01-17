@@ -1,0 +1,1 @@
+Artículo 26.-Prohibición al Beneficiado. El beneficiario o a quien éste represente se deberá comprometer a no revender o utilizar con un fin distinto al indicado los bienes donados. Esta limitación no podrá superar el plazo de diez años definido en el artículo 292 del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 31.-Deductibilidad del Impuesto sobre la Renta. La deducción que RACSA podría obtener por la donación será aplicable en los términos y condiciones establecidas en la Ley del Impuesto sobre la Renta y el Reglamento respectivo, así como las Directrices emitidas por el Ministerio de Hacienda al respecto

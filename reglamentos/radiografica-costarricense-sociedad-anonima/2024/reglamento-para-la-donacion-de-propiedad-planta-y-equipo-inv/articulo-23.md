@@ -1,0 +1,1 @@
+Artículo 23.-Firma de Escritura. El Gerente General será quien suscriba la escritura correspondiente cuando sea necesaria para la formalización del contrato, previo acuerdo de Junta Directiva según las competencias otorgadas en el artículo 6, cuando así se requiera.

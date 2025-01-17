@@ -1,0 +1,1 @@
+Artículo 10.-Inventario de Activos para Donar. El Departamento de Proveeduría de manera semestral realizará el inventario de los activos de PPE, inventario y bienes controlables en custodia que se consideren aptos para ser donados (mobiliario, equipo electrónico, equipo de cómputo u otros agrupados en lotes).

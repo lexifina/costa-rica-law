@@ -1,0 +1,1 @@
+Artículo 28.-Responsabilidad por Gastos Conexos. Será responsabilidad del beneficiado con la donación asumir la totalidad de los gastos de inscripción, los costos de transporte y equipo de carga de los bienes donados, así como otros costos conexos fiscales o no, en caso de que sea necesario.

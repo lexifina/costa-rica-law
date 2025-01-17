@@ -1,0 +1,1 @@
+Artículo 8º-Bienes Susceptibles de Donación. Los bienes de PPE, inventarios y bienes controlables que mantiene la Empresa, que no se ocupen o declarados en desuso, que requieran ser sustituidos u obsoletos podrán ser donados una vez que se hayan clasificado en alguno de los anteriores criterios por el área competente.

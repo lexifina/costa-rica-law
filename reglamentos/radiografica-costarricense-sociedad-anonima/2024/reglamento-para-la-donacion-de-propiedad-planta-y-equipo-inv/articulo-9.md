@@ -1,0 +1,1 @@
+Artículo 9º-Responsabilidad del Departamento de Proveeduría. El Departamento de Proveeduría será la dependencia responsable de la custodia, clasificación y control de los bienes declarados para donación, para de igual manera, remitir los registros contables que se asocien a dicha transacción.

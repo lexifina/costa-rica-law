@@ -1,0 +1,1 @@
+Artículo 24.-Formalización de Donación de Bienes No Inscribibles. La donación de activos PPE, inventario y bienes controlables que no sean inscribibles se formalizarán mediante un acta de donación que levantará el Departamento de Proveeduría en el momento de la entrega.

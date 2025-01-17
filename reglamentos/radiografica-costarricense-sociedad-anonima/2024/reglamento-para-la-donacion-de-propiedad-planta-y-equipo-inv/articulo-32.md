@@ -1,0 +1,3 @@
+7.6 CAPÍTULO VI- Disposiciones Finales
+Artículo 32.-Vigencia: Este Reglamento deja sin efecto el Reglamento para Regular la Donación de Propiedad, Planta y Equipo, Inventarios y Bienes Controlables de Radiográfica Costarricense S. A, aprobado por la Junta Directiva en el artículo 5º de la sesión ordinaria Nº2244 del 15 de octubre del 2019 y publicado en el Diario Oficial La Gaceta N° 217 del 14 de noviembre de 2019, el Manual de Procedimiento para la donación de mobiliario y equipo y cualquier otra normativa o disposición relacionada con la donación de PPE, inventarios y bienes controlados y rige a partir del día de su publicación en el Diario Oficial La Gaceta.
+San José, 19 de diciembre de 2024.
