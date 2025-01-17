@@ -1,1 +1,0 @@
-ARTÍCULO 62. Tiempo mínimo necesario para obtener un permiso sin goce de salario. Para obtener un permiso sin goce de salario, la persona trabajadora deberá tener, como mínimo, un año de laborar para la Institución de forma continua.

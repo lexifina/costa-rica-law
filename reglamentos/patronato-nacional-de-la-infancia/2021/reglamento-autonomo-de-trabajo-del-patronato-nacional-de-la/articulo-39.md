@@ -1,1 +1,0 @@
-ARTÍCULO 39. Lineamientos en materia de registro y control de asistencia. El Departamento de Recursos Humanos será el competente para dictar los lineamientos a seguir sobre la materia de registro y control de asistencia.

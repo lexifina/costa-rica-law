@@ -1,2 +1,0 @@
-ARTÍCULO 31. Acumulación de vacaciones. Queda prohibido acumular vacaciones; sin embargo, podrán acumularse hasta por un período cuando el servidor o servidora desempeñe labores técnicas, de dirección, de confianza, u otras que resulten esenciales para la prestación del servicio público que brinda la Institución y que dificulten especialmente su reemplazo.
-La jefatura inmediata velará porque los trabajadores y trabajadoras a su cargo no acumulen periodos vacacionales.

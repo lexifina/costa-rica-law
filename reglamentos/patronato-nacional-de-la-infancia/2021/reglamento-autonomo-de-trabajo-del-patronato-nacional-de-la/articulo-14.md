@@ -1,2 +1,0 @@
-ARTÍCULO 14. Evaluación previa al vencimiento del período de prueba. La Institución realizará una única evaluación quince días antes del vencimiento del período de prueba, para efectos de verificar la idoneidad del funcionario o funcionaria. Lo anterior atendiendo a la regulación y procedimientos internos de la Institución.
-Cuando la persona servidora se encuentre en período de prueba por ascenso o traslado, de no cumplirse satisfactoriamente el período de prueba, ésta volverá a su anterior puesto, si era propietaria.

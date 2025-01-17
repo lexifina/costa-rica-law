@@ -1,5 +1,0 @@
-CAPÍTULO XVI
-DE LOS PERMISOS, FACILIDADES Y GARANTÍAS SINDICALES
-Artículo 107. Garantías y derechos sindicales. El Patronato mantendrá una política respetuosa de todas las garantías y derechos que en materia sindical otorguen, a las personas trabajadoras y organizaciones sindicales, la Constitución Política, Convenios Internacionales ratificados por Costa Rica y la legislación laboral vigente y aplicable.
-El PANI reconocerá el derecho de los miembros de la Junta Directiva del Sindicato para que puedan celebrar reuniones con las personas trabajadoras en los diferentes centros de trabajo, así como la de constatar el cumplimiento de las leyes laborales, siempre que no obstaculicen el normal funcionamiento de las labores en el lugar visitado y previo aviso a la Institución. Lo proporcional al tiempo utilizado en lo anterior no será deducido del salario.
-Sin detrimento de lo dispuesto en el presente, lo relativo a licencias y permisos sindicales, así como a facilidades otorgadas para el ejercicio de la actividad sindical, podrán ser reguladas en un reglamento especial.

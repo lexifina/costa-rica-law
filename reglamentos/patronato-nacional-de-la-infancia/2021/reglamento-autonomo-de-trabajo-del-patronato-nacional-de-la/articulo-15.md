@@ -1,4 +1,0 @@
-CAPÍTULO III
-DEL LUGAR, FORMA Y EJECUCIÓN DEL SERVICIO
-ARTÍCULO 15. Lugar y forma de prestación. Los servidores y las servidoras del Patronato prestarán sus servicios en las oficinas de la ciudad de San José, en las sedes de las diferentes oficinas regionales establecidas en todo el país o en cualquier otro lugar en donde las necesidades del servicio así lo demanden; todo lo cual se determinará para cada caso concreto.
-Según el puesto, el trabajo se podrá realizar de forma presencial o remota, según lo actordado desde el principio de la relación laboral o posteriormente. El Patronato podrá implementar el teletrabajo como modalidad flexible de desarrollo de la relación laboral, atendiendo lo dispuesto por la Ley para Regular el Teletrabajo - No. 9738, los decretos y demás normativa o lineamientos aplicables, incluyendo el reglamento que la Institución tenga sobre la materia, respetando en todo momento los derechos laborales de las personas trabajadoras.

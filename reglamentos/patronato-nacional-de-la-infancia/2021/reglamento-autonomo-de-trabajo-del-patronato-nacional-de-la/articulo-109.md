@@ -1,1 +1,0 @@
-Artículo 109. Fuero sindical. Las personas dirigentes sindicales, debido al fuero de protección que disfrutan, sólo podrán ser despedidas sin responsabilidad patronal, siguiendo los procedimientos que para ello establezca la legislación nacional vigente y aplicable.

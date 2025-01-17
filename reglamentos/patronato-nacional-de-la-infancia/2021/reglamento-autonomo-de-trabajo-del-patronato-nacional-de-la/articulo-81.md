@@ -1,6 +1,0 @@
-ARTÍCULO 81 Despido sin responsabilidad patronal. El despido sin responsabilidad patronal se podrá aplicar en los siguientes casos:
-1) Cuando la persona trabajadora incurra en alguna de las conductas establecidas en los artículos 81, 369 y 410 del Código de Trabajo, el artículo 4 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública o bien en otras normas de los mismos cuerpos normativos o de otras leyes o disposiciones vigentes y aplicables, que establezcan causales de despido sin responsabilidad patronal.
-2) Cuando la persona trabajadora solicite o reciba dinero o cualquier otro beneficio material, haciendo valer, para ello, la condición de persona servidora del Patronato.
-3) Cuando la persona trabajadora mienta o engañe al Patronato sobre los motivos para fundamentar la petición de permisos o licencias o presente documentos falsificados o alterados.
-4) Cuando la persona trabajadora exhiba, difunda o reproduzca material pornográfico en edificios, albergues, o cualquier otra planta física institucional o a través de medios tecnológicos del Patronato. Lo anterior salvo que las condiciones de la falta admitan una sanción menor.
-5) Cuando la persona trabajadora incurra en cualquier otra falta grave (una falta de tal gravedad que la aplicación de una sanción menor no resulte una medida disciplinaria suficiente y proporcional).

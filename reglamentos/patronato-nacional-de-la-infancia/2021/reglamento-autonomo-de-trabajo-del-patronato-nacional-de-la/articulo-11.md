@@ -1,1 +1,0 @@
-ARTÍCULO 11. Nombramientos a tiempo determinado. Excepcionalmente, para cubrir necesidades temporales de sustitución, proyectos especiales o mientras se desarrolla un procedimiento tendiente a la selección de personal para plaza vacante, la Institución podrá nombrar a una persona a tiempo determinado.

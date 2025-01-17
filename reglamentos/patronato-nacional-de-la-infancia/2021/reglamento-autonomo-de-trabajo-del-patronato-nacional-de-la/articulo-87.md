@@ -1,1 +1,0 @@
-ARTÍCULO 87. Competencia. La potestad de imponer sanciones disciplinarias corresponderá al Presidente Ejecutivo o Presidente Ejecutiva; asimismo, a la Junta Directiva, respecto a las personas funcionarias que ésta nombra.

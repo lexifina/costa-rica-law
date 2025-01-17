@@ -1,1 +1,0 @@
-ARTÍCULO 78. Amonestación escrita. La amonestación escrita se podrá aplicar cuando la persona trabajadora incurra en una falta que no dé mérito para la imposición de una sanción disciplinaria más grave.

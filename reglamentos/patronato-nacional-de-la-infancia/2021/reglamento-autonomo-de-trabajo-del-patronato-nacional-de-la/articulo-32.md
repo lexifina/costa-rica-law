@@ -1,2 +1,0 @@
-ARTÍCULO 32. Días hábiles. Se considerarán días hábiles ordinarios para el trabajo todos los días del año, excepto los feriados establecidos en el artículo 148 del Código de Trabajo, los días de descanso semanal y aquellos días que sean declarados como asueto y que resulten aplicables a la Institución a criterio de ésta.
-El pago de labores en días feriados o de descanso semanal se regirá por lo establecido en el Código de Trabajo.

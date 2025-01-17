@@ -1,1 +1,0 @@
-ARTICULO 28. Cómputo del disfrute. Para el cómputo de disfrute de vacaciones sólo se tomarán en cuenta los días que resulten hábiles según la jornada de cada persona trabajadora. No podrán ser computados como vacaciones los días feriados, aún cuando éstos se presenten dentro del disfrute del período vacacional.
