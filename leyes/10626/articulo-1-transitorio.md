@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- Las personas que integran la Junta Directiva de los comités cantonales de deportes y recreación, que se encuentren en ejercicio de sus funciones a la entrada en vigencia de la presente ley, se tendrán como válidamente constituidos para todos los efectos legales. Sus miembros se mantendrán en los cargos hasta el 31 de diciembre del año inmediato posterior al año en que se celebren las elecciones municipales del país.
