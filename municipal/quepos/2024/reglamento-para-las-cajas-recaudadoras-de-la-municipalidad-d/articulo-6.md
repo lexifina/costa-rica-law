@@ -1,0 +1,1 @@
+Artículo N° 6º-Servicio al Cliente. El cajero o plataformista municipal deberá atender al contribuyente dentro de los parámetros de respeto, eficiencia, eficacia, dedicación y diligencia requeridos, a efecto de lograr como producto final del proceso la percepción del ingreso y el mayor grado de satisfacción en el contribuyente por la atención recibida.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la Ubicación de las Cajas Recaudadoras
+Artículo N° 23.-Ubicación de las Cajas. Las Cajas Recaudadoras y plataformistas estarán ubicadas en la sala de atención al público. El área de cajas deberá estar separado de las otras oficinas por una división de al menos un metro de alto, con su correspondiente puerta. El acceso a esa área de cajas será restringido y solamente los cajeros, plataformistas y sus superiores podrán acceder a ella. Bajo ninguna circunstancia se permitirá el ingreso de personal no autorizado ni de personas ajenas a la institución, tales como vendedores, agentes, notificadores o familiares.

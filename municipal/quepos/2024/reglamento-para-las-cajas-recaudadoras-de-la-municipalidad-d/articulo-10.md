@@ -1,0 +1,1 @@
+Artículo N° 10.-Valores Asignados al Cajero. El cajero o plataformista municipal deberá mantener todos los valores asignados a él (fondo de operación, sellos, ingresos diarios) dentro de su área de trabajo y no podrá sacarlos sin autorización de sus superiores, salvo para trasladarlos a la Unidad de Tesorería Municipal para la realización de cierres o arqueos.

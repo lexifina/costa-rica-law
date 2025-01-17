@@ -1,0 +1,1 @@
+Artículo N° 30.-Fondo de Cambio. En caso de que algún cajero necesite dinero de baja denominación, con el fin de evitar inconvenientes de cambio en el cobro de impuestos a los contribuyentes, estará disponible un fondo de cambio en la Unidad de Tesorería por la suma de quinientos mil colones exactos (¢500.000.00.)

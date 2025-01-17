@@ -1,0 +1,1 @@
+Artículo N° 4º-Integración de Procedimientos. Para lograr una adecuada atención, se integran en uno solo, los procedimientos de facturación y cobro de tributos, el que deberá ser garantizado mediante la aplicación del Manual de Procedimientos correspondiente y los controles supletorios que se estimen convenientes.

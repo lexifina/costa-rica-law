@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los Faltantes y Sobrantes
+Artículo N° 18.-Obligación de Cubrir Faltantes de Dinero. Cualquier diferencia entre las sumas recaudadas y la suma de los comprobantes, son cubiertas por el cajero o plataformista. En el caso de que el faltante sea menor a cincuenta mil colones exactos (¢50.000.00), inclusive, el cajero o plataformista tendrá a más tardar dos días hábiles después de ocurrido el faltante, para reponer el monto total faltante, y en el caso de que el monto sea mayor a los cincuenta y un mil colones exactos (¢51.000.00), tendrá cinco días hábiles para dicha reposición. De no ser cubierto en dichos plazos, incurre en falta grave de acuerdo con lo señalado en el Código Municipal y el Código de Trabajo.

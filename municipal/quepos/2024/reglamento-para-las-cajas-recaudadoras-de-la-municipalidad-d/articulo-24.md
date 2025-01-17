@@ -1,0 +1,1 @@
+Artículo N° 24.-Seguridad de las Cajas. El área que abarque las Cajas recaudadoras y Plataforma de Servicios, deberán mantenerse Cámaras de Vigilancia que enfoquen claramente las transacciones que se realizan y los contribuyentes atendidos, con el fin de velar tanto por la integridad del funcionario y del contribuyente.

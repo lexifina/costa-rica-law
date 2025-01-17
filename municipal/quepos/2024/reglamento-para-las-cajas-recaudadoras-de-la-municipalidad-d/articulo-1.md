@@ -1,0 +1,9 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+El Concejo Municipal de Quepos, mediante el acuerdo 12, "Conocer dictámenes de Comisiones Municipales, así como informes de la Alcaldía Municipal", de la Sesión Extraordinaria N° 050-2024, celebrada el día jueves 05 de diciembre de 2024, ratificado en la Sesión Ordinaria 051-2024, celebrada el martes 10 de diciembre del 2024, acuerda por unanimidad, lo siguiente:
+Acuerdo N° 12: El Concejo Acuerda: Aprobar en todos sus términos el dictamen MQ-CMAJ-048-24-2024-2026, de la Comisión Municipal Permanente de Asuntos Jurídicos. Por tanto aprobar el texto del Reglamento para las Cajas Recaudadoras de la Municipalidad de Quepos, y que conforme el Artículo 43 del Código Municipal se publique para su entrada en vigencia en el Diario Oficial La Gaceta, tal y como que se transcribe en el dictamen MQ-CMAJ-048-24-2024-2026, de la Comisión Municipal Permanente de Asuntos Jurídicos. Se acuerda lo anterior por unanimidad (cinco votos).
+MUNICIPALIDAD DE QUEPOS REGLAMENTO DE CAJAS
+RECAUDADORAS DE LA MUNICIPALIDAD DE QUEPOS
+CAPÍTULO I
+Disposiciones Generales
+Artículo N° 1º-Objetivo del Reglamento. La Municipalidad de Quepos, a tenor de lo dispuesto en los artículos N° 117,118 y 119 del Código Municipal, establece el presente Reglamento de Cajas Recaudadoras, con el objeto de ordenar las funciones y responsabilidades de los funcionarios relacionados con la operación de las Cajas Recaudadoras, buscando con ello un eficiente funcionamiento en beneficio de la Municipalidad, de los contribuyentes y del control interno de la administración pública.
+Dado el gran crecimiento registrado por la Municipalidad en cuanto al número de contribuyentes y la necesidad de brindar un servicio caracterizado por la agilidad, eficiencia y eficacia, se establece el funcionamiento de varias cajas recaudadoras, tantas como se requiera para garantizar niveles de atención adecuados a los contribuyentes y la disponibilidad de recursos lo permita.

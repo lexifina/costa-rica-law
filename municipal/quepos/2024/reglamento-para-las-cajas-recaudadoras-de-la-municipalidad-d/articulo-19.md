@@ -1,0 +1,1 @@
+Artículo N° 19.-Faltantes de Dinero: El descubrimiento de faltantes de dinero, por parte de la Unidad de Tesorería, deberá ser notificado al cajero o plataformista inmediatamente y de ser reiterativo se debe notificar a la alcaldía, director financiero y la auditoría interna.

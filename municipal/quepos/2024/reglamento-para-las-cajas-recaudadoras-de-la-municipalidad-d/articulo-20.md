@@ -1,0 +1,1 @@
+Artículo N° 20.- De los Sobrantes. Los sobrantes que se produzcan en los cierres diarios de operaciones de los cajeros, deberán ser depositados en las cuentas bancarias a favor de la Municipalidad de Quepos, a más tardar el día hábil siguiente de establecido, mediante depósito de dinero en otra caja recaudadora, o en el Banco deseado, utilizando un comprobante de ingreso.
