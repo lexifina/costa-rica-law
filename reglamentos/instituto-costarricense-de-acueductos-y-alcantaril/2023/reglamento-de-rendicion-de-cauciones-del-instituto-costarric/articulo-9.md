@@ -1,4 +1,1 @@
-Artículo 9°-La Dirección Gestión de Capital Humano actualizará anualmente los cargos y funciones que deben de sujetarse a caución, a efectos de incluir o excluir de dicho requerimiento a otros o bien, debido a una función específica, conforme a los siguientes presupuestos:
-a. La existencia, en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
-b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valorización realizada por la Administración.
-c. Nivel de responsabilidad y el monto o bienes a cargo o administrados por el funcionario.
+Artículo 9º-La Dirección Gestión de Capital Humano, mediante un informe elaborado al efecto, establecerá los sujetos determinados en el inciso d) del artículo anterior, así como los montos a caucionar para estos.

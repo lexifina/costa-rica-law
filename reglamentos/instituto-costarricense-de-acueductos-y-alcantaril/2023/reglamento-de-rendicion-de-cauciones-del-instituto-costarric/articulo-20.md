@@ -1,2 +1,1 @@
-Artículo 20.-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Acuerdo firme.
+Artículo 20.-Al caucionante se le concederá un plazo establecido de dos meses, para que pueda ponerse al día con la rendición de la caución, según lo señalado en este Reglamento, mismo que regirá a partir de la publicación de este Reglamento.

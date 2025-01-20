@@ -14,3 +14,4 @@ Reglamento de rendición de cauciones del Instituto Costarricense de Acueductos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-29 | la propia norma |
+| 2 | 2025-01-20 | Reglamento 3 (2025-01-20) |

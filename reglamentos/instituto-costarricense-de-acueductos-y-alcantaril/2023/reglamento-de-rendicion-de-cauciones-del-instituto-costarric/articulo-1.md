@@ -11,8 +11,8 @@ V.-Que la Contraloría General de la República emitió la Directriz N° D-1-200
 VI.-Que en atención a las directrices emitidas por la Contraloría General de la República en resolución R-CO-10- 2007 de las 13:00 horas del 19 de marzo de 2007, publicada en La Gaceta N° 64 del 30 de marzo de 2007, el AyA dictó el Reglamento de Rendición de Cauciones a favor del Instituto Costarricense de Acueductos y Alcantarillados, acuerdo 2010- 479, publicado en La Gaceta N° 159 de fecha martes 17 de agosto del 2010.
 VII.-Que en razón de la necesidad de actualización y manejo adecuado de control de los mecanismos y responsables en caucionar se requiere la reforma del reglamento actual. Por tanto,
 Deróguese, totalmente el Reglamento 2010-479 del 17- 08-2010 Rendición de Cauciones del Instituto Costarricense de Acueductos y Alcantarillados, publicado en la Gaceta No. 159 de fecha martes 17 de agosto del 2010 el cual en lo sucesivo se leerá así:
-REGLAMENTO DE RENDICIÓN DE CAUCIONES
-A FAVOR DEL AyA
-CAPÍTULO I
+REGLAMENTO DE RENDICIÓN DE CAUCIONES A FAVOR DEL AyA
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 0003 del 20 de enero de 2025, y publicado en La Gaceta N° 26 del 10 de febrero de 2025, y se trascribe a continuación:)
+CAPÍTULO PRIMERO
 Disposiciones Generales
-Artículo 1°-Concepto. La caución es una garantía que se rinde a favor del AyA, y será de depósito y custodia en la Dirección de Finanzas, mediante depósito en efectivo, título valor, póliza de fidelidad personal o carta de garantía, ante las entidades o empresas aseguradoras autorizadas para tal fin.
+Artículo 1º-Concepto. La caución es una garantía que se rinde a favor del AyA, y será consignado y custodiado por la Dirección de Finanzas, mediante depósito en efectivo, título valor, póliza de fidelidad personal o carta de garantía, ante las entidades o empresas autorizadas para tal fin.

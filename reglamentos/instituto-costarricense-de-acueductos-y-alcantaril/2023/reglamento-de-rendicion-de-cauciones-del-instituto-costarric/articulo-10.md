@@ -1,2 +1,4 @@
-Artículo 10.-Ajuste de la caución. El caucionante que sea nombrado en otro puesto que implique un mayor nivel de responsabilidad, según lo definido por los artículos "sétimo" y "noveno" anterior del presente Reglamento, deberá efectuar el reajuste de la caución conforme a la nueva situación laboral, previo a su movimiento y presentar a la Dirección Gestión de Capital Humano, el comprobante que así lo acredite.
-En el caso que exista simultaneidad de funciones sujetas a caución, el funcionario o miembro de Junta Directiva deberá caucionar una sola vez por el monto más alto.
+Artículo 10.-La Dirección Gestión de Capital Humano actualizará anualmente los cargos y las funciones que deben ser sujetas a caución, a efectos de incluir o excluir de dicho requerimiento a otros o bien, debido a una función específica, conforme a los siguientes presupuestos:
+a. La existencia, en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
+c. El nivel de responsabilidad y el monto o bienes, a cargo o administrados por el funcionario.

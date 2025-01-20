@@ -1,3 +1,4 @@
-Artículo 17.-La falta de pago o presentación de la caución, así como la falta de renovación o actualización de esta, se considerarán como falta grave con las implicaciones legales que para la misma sean determinadas de acuerdo con el Reglamento Autónomo de Servicios del AyA o el cese del cargo en el caso de los miembros de la Junta Directiva.
-En el caso de los funcionaros encargados de administrar y controlar la presentación de cauciones, que le otorguen al servidor obligado posesión del cargo sin rendir previamente la caución dispuesta, constituirá un hecho generador de responsabilidad administrativa y la aplicación del régimen sancionatorio correspondiente, de conformidad con lo dispuesto por la Ley General de la Administración Pública y en respeto del Debido Proceso.
-En el caso de los miembros de la Junta Directiva del AyA, corresponderá a la Presidencia Ejecutiva, la verificación de la garantía por el periodo de nombramiento, la cual deberá ser suscrita por los miembros indicados, dentro de los cinco días hábiles posteriores a su nombramiento.
+CAPÍTULO QUINTO
+De la responsabilidad por no rendir
+y presentar caución
+Artículo 17.-El caucionante es responsable por la no rendición y presentación del documento de garantía que la sustenta ante la Dirección de Finanzas y la Dirección Gestión de Capital Humano, en el monto y términos que ésta última le indique.

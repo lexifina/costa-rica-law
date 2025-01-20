@@ -1,3 +1,1 @@
-CAPÍTULO III
-Del Monto a Caucionar
-Artículo 11.-Obligación Inicial. Los caucionantes que suscriban la póliza por primera vez, cancelarán esta primera por el periodo que cubre desde la fecha de su nombramiento hasta el 31 de enero del siguiente año, conforme los montos que le indique la Dirección Gestión de Capital Humano.
+Artículo 11.-Ajuste de la caución. El caucionante que sea nombrado en otro puesto que implique un mayor nivel de responsabilidad, según lo definido por los artículos 8° y 9° de este Reglamento, deberá reajustar la caución conforme a la nueva situación laboral, de manera previa a su movimiento; y presentar el comprobante que así lo acredite a la Dirección de Finanzas con copia a la Dirección Gestión de Capital Humano. En el caso que exista simultaneidad de funciones sujetas a caución, el funcionario o miembro de Junta Directiva citados en el artículo 8° de este Reglamento, deberá caucionar una sola vez por el monto más alto.

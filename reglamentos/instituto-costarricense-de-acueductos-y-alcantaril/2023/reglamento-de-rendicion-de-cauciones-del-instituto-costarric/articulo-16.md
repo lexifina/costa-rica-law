@@ -1,3 +1,1 @@
-CAPÍTULO V
-De la responsabilidad por no presentar caución
-Artículo 16.-Es responsable el caucionante por la no rendición y presentación del depósito en efectivo en la Dirección de Finanzas, o del título valor, póliza de fidelidad personal o carta de garantía, en los términos indicados por la Dirección Gestión de Capital Humano.
+Artículo 16.-Ejecución de la caución. La ejecución de cobro de la caución será precedida de un procedimiento administrativo que se tramitará conforme a la Ley General de la Administración Pública y los procedimientos internos vigentes y aplicables, sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan. Para los anteriores efectos, la Administración está facultada para acceder y requerir la información que sea necesaria ante las instancias que efectuaron o custodian comprobantes del trámite de la garantía.
