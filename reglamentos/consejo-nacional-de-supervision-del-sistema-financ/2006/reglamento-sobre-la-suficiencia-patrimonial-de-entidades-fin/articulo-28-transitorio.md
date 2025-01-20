@@ -1,0 +1,3 @@
+Transitorio XXVIII
+Las cooperativas de ahorro y crédito, dispondrán como fecha máxima hasta el 30 de setiembre de 2025, para presentar a aprobación de la Sugef, la modificación de los estatutos que incluyan los resultados de la valoración y redefinición de la metodología y el Importe Mínimo de Certificados de Aportación (IMCA), con la finalidad de que las cooperativas que definieron un IMCA similar o superior a la diferencia entre Certificados de aportación (CA) menos el porcentaje de retiros definido en sus estatutos (%R): [IMCA = CA (1-%R)], redefinan tanto sus metodologías como el IMCA establecido, a fin de garantizar un pleno alineamiento al fin prudencial pretendido.
+(Así adicionado mediante sesión N° 1913-2025 del 20 de enero del 2025)

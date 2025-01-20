@@ -104,6 +104,8 @@ articulo-24-transitorio.md
 articulo-25-transitorio.md
 articulo-26-transitorio.md
 articulo-27-transitorio.md
+articulo-28-transitorio.md
+articulo-29-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
