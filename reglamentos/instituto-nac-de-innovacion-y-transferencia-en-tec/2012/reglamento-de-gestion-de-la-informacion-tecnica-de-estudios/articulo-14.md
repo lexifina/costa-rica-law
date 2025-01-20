@@ -1,1 +1,0 @@
-Artículo 14º—En lo no dispuesto o previsto en el presente Reglamento, se aplicará supletoriamente en lo que fuere pertinente y procedente, con carácter de vinculante y de acatamiento obligatorio, las disposiciones contempladas en los reglamentos técnicos de información Institucional del INTA y las de la ley No 7202 del 24 de octubre de 1990, Ley del Sistema Nacional de Archivos.

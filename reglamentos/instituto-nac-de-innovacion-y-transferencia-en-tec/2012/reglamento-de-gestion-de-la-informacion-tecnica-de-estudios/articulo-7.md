@@ -1,1 +1,0 @@
-Artículo 7º—Los Estudios Especiales, Consultorías y Actividades Institucionales se considerarán oficialmente terminados, hasta que el informe final haya sido aprobado por el Comité Técnico Asesor (COTECA) y por el demandante y se encuentre oficializado en el Archivo Técnico.

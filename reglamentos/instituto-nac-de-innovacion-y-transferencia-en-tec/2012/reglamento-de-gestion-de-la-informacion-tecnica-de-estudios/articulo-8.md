@@ -1,1 +1,0 @@
-Artículo 8º—La información generada en un Estudio Especial, Consultoría o Actividad Institucional, solo podrá ser publicado, si los respectivos expedientes se encuentran ubicados y oficializados en los Archivos Técnicos. Además, el demandante tendrá que brindar la autorización para su publicación, conforme las disposiciones que en cuanto a publicaciones tenga definidas el INTA.

@@ -1,1 +1,0 @@
-Artículo 13.—No se le cancelarán los honorarios pactados a los consultores o personas externas que realicen estudios especiales o consultorías para la Institución, si incumplen con las disposiciones atinentes establecidas en el presente Reglamento y contrato u/o convenio.
