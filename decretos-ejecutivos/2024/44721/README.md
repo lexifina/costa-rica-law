@@ -14,3 +14,4 @@ Autorización para la importación de frijol por desabastecimiento en el mercado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-30 | la propia norma |
+| 2 | 2025-01-20 | Decreto Ejecutivo 44883 (2025-01-20) |
