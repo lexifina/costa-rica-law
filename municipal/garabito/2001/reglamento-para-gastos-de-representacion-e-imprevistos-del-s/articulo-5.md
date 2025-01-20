@@ -1,1 +1,0 @@
-Articulo 5°— El ejecutante del gasto que por negligencia o dolo incumpla las disposiciones de este reglamento no podrá reclamar el reembolso del mismo, debiendo en este caso correr el gasto por su cuenta.
