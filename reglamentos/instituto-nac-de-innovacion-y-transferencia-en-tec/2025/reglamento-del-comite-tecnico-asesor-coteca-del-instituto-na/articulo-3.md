@@ -1,0 +1,1 @@
+Artículo 3°-Su función principal es la de analizar y recomendar a la Dirección Ejecutiva la aprobación de las propuestas de investigación e informes finales de investigaciones y de actividades de transferencia tecnológica, previa revisión y aprobación técnica por los COTECIAs.

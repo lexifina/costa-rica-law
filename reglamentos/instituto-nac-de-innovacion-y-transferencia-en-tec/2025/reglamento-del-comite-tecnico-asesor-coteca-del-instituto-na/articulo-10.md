@@ -1,0 +1,6 @@
+Artículo 10.-Los COTECIAs tendrán las siguientes responsabilidades:
+a) Analizar y proponer mejoras a las propuestas de investigación, informes finales y otros documentos técnicos, presentados por los funcionarios de cada CIA, para el aseguramiento de la calidad de los documentos que serán canalizados a COTECA.
+b) Comunicar a COTECA y a los funcionarios responsables, los acuerdos de aval técnico para las propuestas de investigación e informes finales revisados en su seno, cómo máximo dos días hábiles después de realizada la reunión correspondiente.
+c) Rendir cuentas ante COTECA y el Director Ejecutivo del Instituto, a través de la entrega periódica a la Secretaría de COTECA de las actas de las reuniones.
+d) Reunirse ordinariamente, al menos dos veces al mes, en semanas alternas a las reuniones de COTECA, y extraordinariamente cuando sea requerido.
+e) Invitar a participar de la reunión a especialistas, al responsable del formato u otro profesional calificado para lograr un mejor criterio técnico. Artículo 11.- Los miembros de COTECA y los COTECIAs deben velar por el cumplimiento de este reglamento. Artículo 12. - Las jefaturas de las diferentes áreas tendrán la responsabilidad de velar porque se cumpla la normativa como lo establece el artículo 3 de la Ley Nº 7202 y las disposiciones de la Ley General de Control Interno; Ley N° 8292.
