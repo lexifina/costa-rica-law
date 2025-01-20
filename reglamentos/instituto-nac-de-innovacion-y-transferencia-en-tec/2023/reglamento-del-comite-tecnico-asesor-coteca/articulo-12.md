@@ -1,1 +1,0 @@
-Artículo 12.-Las jefaturas de las diferentes áreas tendrán la responsabilidad de velar porque se cumpla la normativa que regula el manejo del Área de Gestión de la Información Técnica, como parte del Patrimonio Científico Cultural de Costa Rica, como lo establece el artículo 3 de la Ley Nº 7202 y las disposiciones de la Ley General de Control Interno; Ley Número 8292.
