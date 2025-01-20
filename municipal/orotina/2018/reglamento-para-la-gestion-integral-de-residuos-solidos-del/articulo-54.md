@@ -1,0 +1,2 @@
+Artículo 54. Fondo para la Gestión Integral de Residuos. Los fondos provenientes de las multas que indica el Artículo 25 de la Ley para la Gestión Integral de Residuos No. 8839, una vez girados por el departamento de hacienda Tesorería Nacional a la Municipalidad, ingresarán directamente al presupuesto del Departamento de Gestión Ambiental, con el fin de apoyar la implementación de las acciones del Plan Municipal para la Gestión Integral de Residuos del Cantón de Orotina.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

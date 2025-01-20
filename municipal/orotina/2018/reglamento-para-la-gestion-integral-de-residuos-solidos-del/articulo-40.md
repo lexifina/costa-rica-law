@@ -1,1 +1,2 @@
-Artículo 40. —Cancelación de permisos y licencias. La Municipalidad puede solicitar a las autoridades que los hubieren otorgado, la suspensión, revocación o cancelación de las licencias, permisos y registros necesarios para la realización de las actividades que hayan dado lugar a la comisión de la infracción.
+Artículo 40. - Denuncias. En caso de que existan indicios sobre la comisión de una infracción o delito, los inspectores municipales presentarán la denuncia respectiva ante el Tribunal Ambiental Administrativo o en la Fiscalía correspondiente.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

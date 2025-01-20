@@ -1,3 +1,2 @@
-CAPÍTULO XII Fiscalización y sanciones
-Artículo 36. —Sanciones. La aplicación de multas y sanciones será de conformidad con la Ley para la Gestión Integral de Residuos, sus reglamentos y el Código Municipal, en caso de detectarse incumplimiento de las obligaciones establecidas en este reglamento en cuanto al adecuado manejo, incluyendo: separación, recolección, tratamiento y disposición final de los residuos sólidos.
-La Municipalidad debe establecer multas por atrasos en el pago del servicio de recolección, tratamiento y disposición final de los residuos sólidos de conformidad con el Código Municipal.
+Artículo 36. Prohibición de Mezcla de Diferentes Tipos de Residuos. Se prohíbe entregar en las rutas de recolección diferenciadas para un tipo de residuo (ordinarios, valorizables, voluminosos o no tradicional y orgánicos) o en las campañas de recolección específica, residuos mezclados o contaminados con residuos que pertenezcan a diferentes clasificaciones.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

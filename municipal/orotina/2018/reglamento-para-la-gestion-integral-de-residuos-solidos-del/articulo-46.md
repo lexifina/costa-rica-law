@@ -1,0 +1,2 @@
+Artículo 46. Sanciones de las Infracciones Graves. Las infracciones graves serán sancionadas hasta con ocho veces la tarifa más alta del servicio de gestión de residuos de la Municipalidad, sin perjuicio de la obligación del infractor de compensar y reparar el daño ambiental, así como el pago correspondiente a los costos en los que haya incurrido la Municipalidad. Las sanciones se aplicarán tanto a los dueños registrales de los predios, como a las personas que promuevan las actividades ilícitas.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

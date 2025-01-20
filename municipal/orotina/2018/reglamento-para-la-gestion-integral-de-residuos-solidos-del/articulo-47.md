@@ -1,0 +1,14 @@
+Artículo 47. Infracciones Leves. Se consideran infracciones leves las siguientes:
+a) Colocar residuos domiciliares, comerciales o institucionales en momentos diferentes a la frecuencia y sin las condiciones de entrega para su separación, embalaje y recolección establecida en el servicio de recolección (Ordinario, valorizable, No Tradicional y Orgánico).
+b) Disponer de residuos de jardín o zonas verdes dentro del servicio municipal de recolección de desechos sólidos ordinarios, sin la coordinación respectiva.
+c) Gestionar, almacenar, valorizar, tratar, depositar y disponer residuos de cualquier índole, en lugares no autorizados o aprobados por las autoridades competentes, o en condiciones contrarias a las establecidas en las disposiciones correspondientes.
+d) Transportar residuos (ordinarios, especiales y peligrosos), sin la autorización correspondiente,
+e) Comprar, vender y almacenar material valorizable robado o sustraído ilícitamente.
+f) Importe al territorio nacional o entregue envases, recipientes o empaques de poliestireno expandido en cualquier establecimiento comercial.
+g) Incumpla con lo establecido en la Ley 9786, Ley para Combatir la Contaminación por Plástico y Proteger el Ambiente, de 26 de noviembre de 2019.
+h) Recolectar de la vía pública residuos valorizables ilícitamente, sin la autorización y permisos correspondientes.
+i) Entregar los residuos sólidos en bolsas o recipientes con baja resistencia o abiertos. En caso de que los residuos sean esparcidos en la vía pública por cualquier circunstancia antes de ser recolectados, el generador y el dueño del inmueble está en la obligación de recogerlos y depositarlos nuevamente en un recipiente y lugar adecuado.
+j) Depositar residuos en lugares inseguros, fácilmente accesible a fauna nociva, lo que ocasiona problemas en la recolección, así como derrames en vía pública, el generador y el dueño del inmueble está en la obligación de recogerlos y depositarlos nuevamente en un recipiente y lugar adecuado.
+k) Cualquier actividad que cometa el que gestione los residuos en condiciones contrarias a las establecidas en las disposiciones municipales sobre el servicio de gestión integral de residuos estipuladas en el presente reglamento, principalmente el capítulo de prohibiciones.
+En caso la comercialización de material valorizable inciso h), la primera multa a aplicar será de tres veces la tarifa más alta del servicio de gestión de residuos de la Municipalidad, y en caso de que ocurra reincidencia, la multa a aplicar será de cinco veces la tarifa más alta del servicio de gestión de residuos de la Municipalidad. Si la persona que realiza la infracción no es dueña de una propiedad o vehículo, se le referirá al Ministerio Público con ayuda de la Fuerza Pública para que se le procese por flagrancia.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

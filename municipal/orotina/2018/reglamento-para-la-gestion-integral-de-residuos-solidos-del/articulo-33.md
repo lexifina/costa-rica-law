@@ -1,16 +1,7 @@
-CAPÍTULO XI Prohibiciones
-Artículo 33. —Prohibiciones para los usuarios
-a) Queda prohibido a los usuarios depositar en cualquiera de las rutas de recolección oficiales lo siguiente:
-1) Residuos peligrosos industriales y comerciales.
-2) Sustancias líquidas y excretas.
-3) Residuos infectocontagiosos.
-4) Animales muertos; así como excretas de animales provenientes de fincas, granjas, locales comerciales o criaderos de cualquier tipo.
-5) Lodos provenientes de plantas de tratamiento de aguas negras, industriales, biodigestores o tanques sépticos.
-6) Baterías de ácido plomo.
-7) Llantas de cualquier tipo de vehículo motorizado.
-8) Residuos de demolición y construcción:
-b) Colocar los residuos en el sitio de recolección con más de ocho horas de antelación al horario que establezca la Municipalidad.
-c) Colocar los residuos cárnicos y desechos provenientes de establecimientos alimentación al público en el sitio de recolección con más de ocho horas de antelación al horario que establezca la Municipalidad.
-d) Colocar en el caño los residuos sólidos para ser recolectados por el sistema municipal.
-e) Quemar residuos sólidos de cualquier clase.
-f) Depositar residuos sólidos en los cuerpos de agua, sus zonas de protección, terrenos desocupados, en la vía pública o en sitios públicos.
+CAPÍTULO XI: Prohibiciones.
+(Así adicionado el capítulo anterior mediante sesión N° 53 del 20 de enero del 2025)
+Artículo 33. Prohibiciones Absolutas. Se prohíbe absolutamente a los generadores de residuos, físicos o jurídicos, públicos o privados, o a cualquier otra persona, realizar las siguientes acciones:
+a) Transportar al descubierto residuos biodegradables, que generen polvo o que puedan dejar caer objetos que puedan dañar a personas o vehículos en las vías públicas, en concordancia con la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+b) Acumular materiales, escombros de construcción, o cualquier residuo u objeto en la vía pública, en concordancia con el Artículo 25 del presente reglamento y en concordancia con el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo, la Ley de Igualdad de Oportunidades para las Personas con Discapacidad No. 7600, así como cualquier otra normativa aplicable.
+c) En el caso de los residuos líquidos, aguas residuales y lixiviados vertidas a cuerpos de aguas naturales, acequias, quebradas, ríos o similares, así como en el alcantarillado pluvial, estos deberán cumplir con los estándares que establece el Reglamento de Vertido y Reuso de Aguas Residuales, Decreto Ejecutivo No. 33601-MINAE-S, y cualquier otra normativa conexa que al respecto se genere.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

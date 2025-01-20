@@ -1,1 +1,3 @@
-Artículo 39. —Denuncias. En caso de que existan indicios sobre la comisión de una infracción o delito, los inspectores municipales presentarán la denuncia respectiva ante el Tribunal Ambiental Administrativo o en la Fiscalía correspondiente.
+Artículo 39. Responsabilidades del Inspector. El funcionario municipal encargado de las inspecciones documentará adecuadamente las denuncias e inspecciones y cuando se detecten incumplimientos procederá a realizar la notificación respectiva al responsable.
+Este funcionario deberá aportar una copia legible de la notificación practicada y el informe respectivo al Departamento de Gestión Ambiental. Las observaciones que la Municipalidad realice en sus inspecciones o por denuncias, serán canalizadas a través de la Dirección de Hacienda hacia el o los representantes de la entidad involucrada.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

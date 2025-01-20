@@ -14,3 +14,4 @@ Reglamento para la gestión integral de residuos sólidos del Cantón de Orotina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-13 | la propia norma |
+| 2 | 2025-01-20 | Reglamento municipal 53 (2025-01-20) |

@@ -1,0 +1,2 @@
+Artículo 51. Naturaleza del Infractor. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en el presente reglamento. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento ante la Plataforma de Servicios de la Municipalidad, dirigidas al Departamento de Gestión Ambiental o bien al Departamento de Servicios Públicos.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

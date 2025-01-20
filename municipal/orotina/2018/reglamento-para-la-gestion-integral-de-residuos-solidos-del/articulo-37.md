@@ -1,9 +1,6 @@
-Artículo 37. —Medidas especiales. La Municipalidad, ante la violación de este reglamento, debe aplicar las siguientes medidas protectoras, de conformidad con el artículo 99 de la Ley Orgánica del Ambiente:
-a) Advertencia mediante un comunicado o notificación que existe un reclamo específico.
-b) Botadero Clandestino, Manejo de escombros, Boletas para realizar Multas y transporte de residuos.
-c) Amonestación acorde con la gravedad de los hechos violatorios detectados y comprobados.
-d) Restricciones parciales o totales, u orden de paralización inmediata de los actos que provocan la denuncia.
-e) Cancelación parcial, total, permanente o temporal de los permisos, las patentes los locales o las empresas que provocan la denuncia, el acto o la actividad contaminante o destructiva.
-f) Imposición de las medidas compensatorias o estabilizadoras de ambiente o la diversidad biológica.
-g) Modificación o demolición de las instalaciones o construcciones que dañen el medio ambiente.
-h) Alternativas de compensación de la sanción y por una sola vez a recibir cursos educativos oficiales en materia ambiental; además trabajar en obras comunales en el área del ambiente.
+CAPÍTULO XII: Fiscalización.
+(Así adicionado el capítulo anterior mediante sesión N° 53 del 20 de enero del 2025)
+Artículo 37. -Inspecciones. De conformidad con la Ley para la Gestión Integral de Residuos No. 8839, los funcionarios del Ministerio de Salud y los municipales, debidamente identificados de acuerdo con sus competencias, podrán realizar inspecciones de verificación, seguimiento o cumplimiento de la normativa relativa a la gestión integral de residuos. Para dicho efecto, los inspectores tendrán carácter de autoridad de policía, con fe pública.
+Durante la inspección, los funcionarios indicados anteriormente tendrán libre acceso a las instalaciones o los sitios de inspección y podrán hacerse acompañar de las personas expertas que consideren necesarias (MINAE Min Sa, ICD, OIJ, PCD, UEI entre otros), así como de la Fuerza Pública, quienes están en la obligación de facilitar toda la colaboración que estos requieran para el eficaz cumplimiento de sus funciones.
+En todo caso, la inspección se realizará garantizando el debido proceso. En caso de encontrarse indicios de incumplimiento de la Ley para la Gestión Integral de Residuos No. 8839, los reglamentos que de ella se deriven, o el presente reglamento, se le notificará al responsable el inicio del procedimiento respectivo, señalando la inconformidad y solicitando su corrección dentro de un plazo de 10 días hábiles.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

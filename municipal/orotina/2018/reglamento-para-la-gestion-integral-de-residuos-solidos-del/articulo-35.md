@@ -1,1 +1,2 @@
-Artículo 35. —Prohibición de ingreso del funcionario a propiedad privada. Los funcionarios de recolección tienen terminantemente prohibido ingresar en propiedad privada con el fin de recoger residuos de cualquier tipo, sin importar que haya acceso libre a la propiedad.
+Artículo 35. -Prohibición de ingreso del funcionario a propiedad privada. Los funcionarios de recolección tienen terminantemente prohibido ingresar en propiedad privada con el fin de recoger residuos de cualquier tipo, sin importar que haya acceso libre a la propiedad.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

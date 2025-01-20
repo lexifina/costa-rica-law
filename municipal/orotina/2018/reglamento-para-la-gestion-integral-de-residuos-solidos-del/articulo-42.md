@@ -1,3 +1,2 @@
-Artículo 42. —Consulta. Publíquese en el Diario Oficial La Gaceta, para la correspondiente consulta.
-De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública por un lapso de diez días hábiles, vencido se pronunciará sobre el fondo.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 42. - Infracciones Administrativas. De conformidad con la Ley No. 9825, Reforma a la Ley para la Gestión Integral de Residuos, la Ley Orgánica del Ambiente, las infracciones administrativas de la Ley para la Gestión Integral de Residuos No. 8839, se clasificarán en leves, graves y gravísimas. Las sanciones de las infracciones leves y graves serán competencia de la municipalidad correspondiente al cantón en donde se realizó la infracción, y las sanciones de las infracciones gravísimas serán competencia del Tribunal Ambiental Administrativo.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)

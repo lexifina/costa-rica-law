@@ -1,0 +1,2 @@
+Artículo 48. - Sanciones de las Infracciones Leves. Las infracciones leves serán sancionadas hasta con cinco veces la más alta del servicio de gestión de residuos. Lo anterior sin perjuicio de la obligación del infractor de indemnizar y reparar el daño ambiental, así como el pago de los costos en los que haya incurrido la municipalidad en recoger y disponer los residuos correctamente.
+(Así adicionado mediante sesión N° 53 del 20 de enero del 2025)
