@@ -1,0 +1,2 @@
+Artículo 6 ter-Se autoriza a las juntas administrativas para que, los recursos que provengan de la venta de los productos, bienes y servicios que ofrecen las carreras técnicas, puedan ser invertidos tanto en el mantenimiento preventivo y correctivo de las Unidades de Desarrollo Productivo (UDP) y, luego de existir remanentes, utilizarlos en las necesidades de la institución.
+(Así adicionado por el artículo 1° de la ley N° 10617 del 10 de diciembre de 2024)
