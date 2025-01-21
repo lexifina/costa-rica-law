@@ -1,0 +1,1 @@
+ARTÍCULO 10- Responsabilidades del Consejo Superior de Educación. El Consejo Superior de Educación (CSE) podrá incluir dentro de los programas académicos la información correspondiente para el autocuidado, la prevención de los riesgos, vacunación y los servicios de salud disponibles para la detección del cáncer de cérvix.

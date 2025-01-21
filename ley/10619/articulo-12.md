@@ -1,0 +1,1 @@
+ARTÍCULO 12- Suscripción de convenios. Se podrán suscribir convenios con instituciones, organizaciones no gubernamentales y empresas privadas, para capacitaciones, para la obtención de materiales, pruebas médicas o atención de personas usuarias del servicio de salud.
