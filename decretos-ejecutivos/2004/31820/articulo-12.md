@@ -1,3 +1,0 @@
-Artículo 12.—De las sesiones. Las sesiones del CONAC serán siempre privadas, pero el órgano podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general o bien ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
-Tendrán derecho a asistir con voz pero sin voto los representantes ejecutivos de los órganos o entes que constituyen el SNC (ORT, ENN, ECA).
-No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del órgano y se incluya por decisión y el voto favorable de todos ellos.

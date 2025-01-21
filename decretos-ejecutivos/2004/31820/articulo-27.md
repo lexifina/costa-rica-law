@@ -1,2 +1,0 @@
-Artículo 27.—Oposiciones. Los entes del SNC: ENN, ECA, LACOMET y ORT, podrán presentar oposición sobre las recomendaciones de los comités "ad-hoc" específicamente constituidas y sobre las decisiones del CONAC, para lo cual contarán con un plazo de 15 días hábiles, a partir del momento en que reciba la comunicación formal de los resultados.
-El CONAC conocerá la oposición y resolverá en forma definitiva en un plazo de 15 días hábiles contados a partir de la recepción de la oposición presentada.

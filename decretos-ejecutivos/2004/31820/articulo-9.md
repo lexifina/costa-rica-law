@@ -1,2 +1,0 @@
-Artículo 9º—Coordinación de actividades de promoción. El CONAC coordinará actividades de promoción de la calidad, especialmente, durante el mes de noviembre, denominado Mes de la Calidad. Durante ese mes deberá fomentar y apoyar actividades que promuevan la cultura de la calidad en todos los sectores productivos; así como los programas nacionales para la educación de la calidad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40834 del 13 de noviembre de 2017)

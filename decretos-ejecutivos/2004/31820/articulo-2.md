@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente reglamento, establece el procedimiento para la aplicación de las funciones que le otorga la ley al Consejo Nacional para la Calidad. De la misma forma, se regulan los deberes y facultades de los miembros del CONAC y de los funcionarios que auxilian su labor.

@@ -1,4 +1,0 @@
-CAPÍTULO III
-De las funciones del CONAC
-Artículo 7º—Lineamientos y recomendaciones emitidos por el CONAC. El CONAC orientará dentro de un marco estratégico nacional actualizado, mediante lineamientos y recomendaciones, el desarrollo del Sistema Nacional para la Calidad a través de las funciones a cargo de los entes principales y de las instancias representadas e integrantes del CONAC, de modo que, se ajuste a las necesidades nacionales y a las prácticas internacionalmente aceptadas.
-El CONAC se asegurará que la formulación de lineamientos y recomendaciones sean respetuosos de las normas y compromisos internacionales. Los lineamientos contendrán acciones generales, de modo que sean, más bien, los órganos u organismos implicados quienes definan las estrategias y acciones a llevar a cabo. Para la formulación de lineamientos y recomendaciones, el CONAC podrá hacerse asesorar y auxiliarse en el Comité Técnico, si así lo estima conveniente.

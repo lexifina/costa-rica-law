@@ -1,3 +1,0 @@
-Artículo 19.—Del Comité Técnico. El CONAC conformará un Comité Técnico con funciones coordinadoras que estará integrado por el Director del LACOMET, el Gerente del ECA, el titular de la Secretaría Técnica del ORT y el Director Ejecutivo del ENN, o sus representantes.
-A lo interno del Comité se nombrará a un Coordinador que será el encargado de realizar las convocatorias a las sesiones ordinarias con al menos ocho días hábiles de anticipación, para lo cual se enviará el respectivo orden del día con una antelación de, al menos, tres días hábiles.
-Asimismo, el Coordinador podrá convocar a sesiones extraordinarias cuando los asuntos sometidos a su conocimiento así lo requieran, a criterio del Coordinador.
