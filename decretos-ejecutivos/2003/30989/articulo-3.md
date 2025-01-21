@@ -1,1 +1,0 @@
-Artículo 3º—Formarán parte del Comité en calidad de observadores la Organización para la Agricultura y la Alimentación (FAO), la Organización Mundial para la Salud (OMS) y la Organización Panamericana de la Salud (OPS).

@@ -1,1 +1,0 @@
-Artículo 10.—Se derogan los Decretos Ejecutivos Nº 17195-MEC publicado en La Gaceta Nº 181 del 25 de setiembre de 1986; el Nº 17416-MEC publicado en La Gaceta Nº 44 del 4 de marzo del 1987 y el Nº 17574-MEC publicado en La Gaceta Nº 119 del 24 de junio de 1987.

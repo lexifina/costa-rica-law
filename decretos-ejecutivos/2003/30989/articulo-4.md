@@ -1,1 +1,0 @@
-Artículo 4º—El punto contacto del Comité Nacional del Codex Alimentarius es la Secretaría Técnica adscrita al Ministerio de Economía, Industria y Comercio, de conformidad con el artículo 42 de la Ley Nº 8279.
