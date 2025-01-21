@@ -1,0 +1,2 @@
+Artículo 134.-Relaciones y actos inconvenientes. La persona servidora pública no deberá establecer intereses o relaciones con personas físicas o jurídicas que sean razonablemente inconvenientes o incompatibles con su cargo y con las atribuciones y funciones que tengan asignadas, así como evitar actuaciones que puedan dar motivo de duda razonable de que sus relaciones sociales, de negocios, de familia o de amistad influyen en alguna forma en sus labores en razón de su cargo.
+(Así adicionado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)

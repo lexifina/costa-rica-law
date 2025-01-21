@@ -1,2 +1,2 @@
-Artículo 130.- Quedan exceptuados de la aplicación de este Reglamento quienes sean remunerados por medio de dietas por la integración de organismos colegiados que sean parte de la institución o estén adscritos a ellas.
-El presente Reglamento deja sin efecto el Reglamento Autónomo de Organización y Servicio de fecha 21 de agosto de 1985.
+Artículo 130.- Regalos del personal a cargo. La persona servidora pública en cargo de jefatura, incluso en forma transitoria, no deberá dar ni recibir regalos, invitaciones o atenciones sociales de sus colaborados, fuera del convencionalismo social, que puedan dar motivo razonable a que un observador dude de su imparcialidad en el ejercicio de las funciones de supervisión y disciplina que les corresponden respecto a éstos.
+(Así reformado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)

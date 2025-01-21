@@ -1,2 +1,2 @@
-Artículo 131.- El presente Reglamento rige a partir de su publicación en su Diario Oficial "La Gaceta".
-San José, 17 de abril de 2024.
+Artículo 131.- Invitaciones a agradecimientos, eventos recreativos, comidas y otras atenciones sociales. La persona servidora pública deberá rechazar cualquier tipo de invitación a agradecimientos, eventos recreativos, comidas y otras atenciones similares que se le haya dirigido con motivo u ocasión del desempeño de su cargo público, que puedan interpretarse como intentos de influir sobre su independencia e integridad en el ejercicio de las funciones a su cargo.
+(Así reformado mediante publicación en La Gaceta N° 38 del 26 de diciembre del 2025)

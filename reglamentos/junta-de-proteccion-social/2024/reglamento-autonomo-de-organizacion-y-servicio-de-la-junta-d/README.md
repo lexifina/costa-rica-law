@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Junta de Protección Soci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-05-16 | la propia norma |
+| 2 | 2025-01-21 | Reglamento 0 (2025-01-21) |

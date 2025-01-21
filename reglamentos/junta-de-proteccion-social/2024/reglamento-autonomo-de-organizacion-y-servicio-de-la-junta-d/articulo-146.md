@@ -1,0 +1,3 @@
+Artículo 146.—Colaboraciones para viajes, pago de estudios y otras liberalidades. Ninguna persona servidora pública podrá solicitar o recibir de personas físicas o jurídicas, directa o indirectamente, colaboraciones para viajes, aportes en dinero, pago de estudios o cursos, u otras liberalidades semejantes, para su propio beneficio o de una persona ligada por parentesco hasta tercer grado de consanguinidad o segundo de afinidad inclusive.
+Quedan exceptuadas las becas de estudio y las actividades de formación de capacidades de interés institucional, en el tanto no coloquen a la persona servidora pública en un conflicto de intereses.
+(Así adicionado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2026)

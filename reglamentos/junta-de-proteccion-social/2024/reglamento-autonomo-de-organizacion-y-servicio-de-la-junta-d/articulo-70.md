@@ -1,3 +1,2 @@
-Artículo 70.- La persona servidora pública que ingrese a la Consola de Aplicaciones Corporativa y dentro del módulo de control de salida e ingreso realice la marca de entrada o de salida de otra persona, incurrirá en falta grave y se hará acreedor a las sanciones disciplinarias que correspondan previo procedimiento administrativo.
-Incurrirá en esa misma falta y se aplicará igual procedimiento a la persona servidora pública que consienta que otra realice su marca de entrada o salida en su lugar.
-Se elimina
+Artículo 70.- La persona servidora pública que ingrese a la Consola de Aplicaciones Corporativa y dentro del módulo de control de salida e ingreso realice la marca de entrada o de salida de otra persona, incurrirá en falta grave y se hará acreedor a las sanciones disciplinarias que correspondan previo procedimiento administrativo. Incurrirá en esa misma falta y se aplicará igual procedimiento a la persona servidora pública que consienta que otra realice su marca de entrada o salida en su lugar.
+(Así reformado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)

@@ -1,0 +1,2 @@
+Artículo 138.—Revelar los intereses privados comprometedores. Las personas servidoras públicas deberán informar formalmente a su jefe inmediato o instancia superior jerárquica, sea por escrito o por otro medio verificable, sobre los intereses privados que sean potencialmente generadores de conflictos de intereses potenciales o aparentes respecto a las funciones o asuntos a su cargo, de manera transparente, oportuna y oficiosa.
+(Así adicionado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)

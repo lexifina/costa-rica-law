@@ -1,0 +1,2 @@
+Artículo 155.—A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias las leyes del Código de Trabajo, Ley General de la .Administración Pública, la Ley Marco de Empleo Público y su reglamento, y todas las Normas del ordenamiento jurídico vigente que resulten aplicables.
+(Así adicionado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)

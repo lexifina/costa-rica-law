@@ -1,0 +1,2 @@
+Artículo 147.—Participación política y uso indebido del cargo para beneficio de agrupaciones políticas. Ninguna persona servidora pública podrá utilizar el cargo, sus funciones, la autoridad o influencia que pueda derivarse de él, para beneficiar a un partido político o candidato a puesto de elección popular, así como cualquier otro recurso público asociado a su ejercicio.
+(Así adicionado mediante publicación en La Gaceta N° 38 del 26 de febrero del 2025)
