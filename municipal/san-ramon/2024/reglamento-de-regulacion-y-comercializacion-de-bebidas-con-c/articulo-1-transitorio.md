@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.- Duplicidad de licencias de un mismo tipo en un establecimiento comercial, previas a la entrada en vigor de la reforma al presente reglamento. En los casos en donde exista más de una licencia de comercialización de bebidas con contenido alcohólico activas y del mismo tipo en un determinado establecimiento comercial, antes de la entrada en vigor de la reforma a los artículos 7, 18 inciso f) y 24 inciso c) de este reglamento, se mantendrán como licencias activas hasta que medien las causales de cancelación o revocación de esta o que el licenciatario de por finalizada su actividad comercial. En dicho caso, para la emisión de una nueva licencia se deberán de seguir las disposiciones del presente reglamento.

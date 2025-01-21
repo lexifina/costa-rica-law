@@ -1,0 +1,3 @@
+Artículo 15.- Prohibiciones.
+No se permitirá el expendio de bebidas con contenido alcohólico en el cantón, en los días y fechas que determine nuestra legislación vigente y en aquellos casos que el Concejo Municipal mediante acuerdo firme así lo establezca.
+Por tal motivo los establecimientos con licencias A y B deberán permanecer cerrados. En los demás establecimientos con licencias C, D y E, las áreas dedicadas al consumo, expendio y venta de bebidas alcohólicas, permanecerán totalmente cerradas en dichas fechas, para lo cual la Fuerza Pública y funcionarios municipales autorizados, realizarán las verificaciones del cumplimiento de esta prohibición.

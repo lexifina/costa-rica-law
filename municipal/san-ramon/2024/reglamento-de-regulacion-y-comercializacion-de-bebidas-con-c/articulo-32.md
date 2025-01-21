@@ -1,0 +1,2 @@
+Artículo 32.- Procedimiento obligado.
+Ninguna autoridad municipal podrá, imponer las sanciones establecidas en el capítulo IV de la Ley N.º 9047, si previo no se ha verificado la realización de los procedimientos de la Ley General de la Administración Pública, N.º 6227, del 02 de mayo de 1978 y sus reformas y el Código Municipal, N.º 7794, del 30 de abril de 1998 y sus reformas, según sea el caso, atendiendo los principios del debido proceso y el derecho a la defensa, excepto en los casos señalados en el artículo 25 in fine.

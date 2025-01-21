@@ -1,0 +1,2 @@
+Artículo 33.- Faltas de mera constatación.
+Cuando se presente cualquier condición asociada a la comercialización de bebidas con contenido alcohólico sin contar con la licencia municipal, y/o el consumo de bebidas en vía o sitios públicos. Las autoridades de la policía o las municipales, mediante el levantamiento de un parte, podrán realizar el decomiso de las bebidas indicadas, las cuales deberán ser entregadas ante los Tribunales de Justi cia, conforme las disposiciones del artículo 21 de la Ley N.º 9047.

@@ -1,0 +1,2 @@
+Artículo 4.- Firmas y certificaciones digitales.
+Se podrá hacer uso de Documentos Electrónicos, cuando los medios tecnológicos a disposición de la Municipalidad y la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N.º 8454, del 30 de agosto de 2005 y sus reformas, lo permitan. Se aplicará para la tramitación de licencias, pago de tributos y otros procedimientos relacionados con la aplicación de la Ley N.º 9047.

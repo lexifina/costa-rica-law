@@ -1,0 +1,1 @@
+Artículo 12.- Pagos por resoluciones de la Administración Tributaria Municipal. Los débitos originados por resoluciones de la Administración Tributaria Municipal deberán cancelarse dentro del plazo de quince días hábiles posteriores a la fecha de su notificación. Estos pagos estarán afectos a los intereses establecidos en el artículo 10 de la Ley N.º 9047.

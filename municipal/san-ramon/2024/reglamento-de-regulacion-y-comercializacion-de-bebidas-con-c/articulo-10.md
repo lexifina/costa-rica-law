@@ -1,0 +1,2 @@
+Artículo 10.- Licencias para un mismo establecimiento.
+Cuando un mismo establecimiento o un domicilio fiscal se dediquen a ejercer actividades económicas y/o comercialización de bebidas con contenido alcohólico conjuntamente con varios sujetos pasivos, cada sujeto deberá solicitar la licencia municipal por separado y el monto del impuesto lo determinará la suma total del impuesto individual que le corresponde a cada una de ellas.

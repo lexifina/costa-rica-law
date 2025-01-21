@@ -1,0 +1,2 @@
+Artículo 23 quinquies. - Personas Físicas o Jurídicas que estén iniciando en la comercialización de bebidas con contenido alcohólico y no hayan declarado en el último período fiscal.
+Todos los negocios que se estén iniciando en la comercialización de bebidas con contenido alcohólico y todavía no hayan declarado en el último período fiscal, pagarán los solicitantes, el monto establecido en la categoría correspondiente y el rubro establecido en la subcategoría 1, establecida en la reforma del artículo 10 de la Ley N.º 9047.

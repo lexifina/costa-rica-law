@@ -1,0 +1,3 @@
+Artículo 44.- Destino de Multas.
+Las multas establecidas serán acreditadas en los registros municipales, y deberán ser canceladas en un plazo quince días naturales posterior a su comunicación; caso contrario, se procederá a suspender la licencia concedida hasta que se haga efectivo el pago.
+De mantenerse la mora por quince días hábiles posterior al cierre del establecimiento, la deuda será trasladada a la Administración Tributaria y se ordenará el cierre definitivo del establecimiento y la cancelación de las licencias que se hayan otorgado para el funcionamiento del local, todo ello previo haber concedido el derecho de defensa correspondiente.

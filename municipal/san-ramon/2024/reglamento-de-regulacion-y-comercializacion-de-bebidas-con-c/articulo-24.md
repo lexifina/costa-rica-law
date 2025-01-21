@@ -1,0 +1,10 @@
+Artículo 24.- Pérdida anticipada de vigencia de la licencia.
+Siguiendo el debido proceso, la licencia perderá vigencia antes de su vencimiento en los siguientes casos:
+a) Por renuncia expresa, si se presenta durante el transcurso de un trimestre la Municipalidad no devolverá ni acreditará monto alguno por la fracción del trimestre no explotada, con excepción de que se realice el trámite de cancelación en el primer mes del trimestre, en cuyo caso no se cobrará el trimestre en curso.
+En todo caso, la Municipalidad no tramitará solicitudes de renuncia de licencias que no se encuentren al día en el derecho trimestral señalado en el artículo 10 de la Ley N.º 9047 y el artículo 23 del presente Reglamento.
+Salvo que la renuncia expresa se solicite durante el primer mes del trimestre actual.
+b) Cuando mediante acta de inspección municipal resulte totalmente evidente el abandono de la actividad, aun cuando el interesado no lo haya comunicado. Se procederá con la cancelación de la licencia y se traslada la deuda vencida al departamento de gestión de cobros para el trámite correspondiente.
+c) En el caso de un bien inmueble arrendado y sujeto a una licencia de comercialización de bebidas con contenido alcohólico, si el propietario notifica al Departamento de Licencias Comerciales que el licenciatario dejó de arrendar y no está explotando la actividad comercial, en dicha circunstancia se procederá con la cancelación de la licencia y se traslada la deuda vencida al departamento de gestión de cobros para el trámite correspondiente.
+d) Por la pérdida o cancelación del permiso de funcionamiento de Salud del establecimiento, independiente del motivo que lo origine. Automáticamente queda sin efecto la licencia comercial y de licores aprobada.
+e) Por el incumplimiento de no notificar a la Municipalidad por parte del representante legal de la sociedad licenciataria, sobre la modificación del capital social en más de un cincuenta por ciento.
+f) Por cualquiera de las causales establecidas en el artículo 6 y por el incumplimiento de requisitos y prohibiciones establecidos en el artículo 10 de la Ley N.º 9047.
