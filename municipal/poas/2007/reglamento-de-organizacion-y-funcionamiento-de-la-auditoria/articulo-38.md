@@ -1,1 +1,0 @@
-Artículo 38.—Memorandos u Oficios. La comunicación de resultados se deberá hacer por escrito durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorando u oficio e informes parciales, y al finalizar la labor de campo, por medio del informe final, el cual debe hacer referencia a los memorandos, oficios o informes parciales que se hayan redactado.

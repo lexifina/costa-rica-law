@@ -1,1 +1,0 @@
-Artículo 30.—Delegación. El Personal de Auditoría depende del Auditor Interno y es responsable ante él en el desempeño de sus funciones, las cuales ejercen de conformidad con este Reglamento, con las instrucciones recibidas y el Manual de Auditoría vigente.

@@ -1,3 +1,0 @@
-CAPÍTULO IX
-Del plan de auditoría y los programas de trabajo
-Artículo 54.—Plan Anual de Actividades. Las actividades de la Auditoría deberán ser debidamente planeadas mediante la preparación de un Plan Anual de Actividades, el cual será sometido para análisis a la Contraloría General y al Concejo Municipal a finales de cada año, para su aplicación durante el siguiente período. Este Plan de trabajo debe presentarse, por el Auditor Interno, de conformidad con los lineamientos de la Contraloría General y de proponer al Concejo oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante el plan, incluidas las necesidades administrativas de la Unidad.

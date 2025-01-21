@@ -1,1 +1,0 @@
-Artículo 21.—Apoyo a evaluaciones o Auditorías Externas. La Auditoría servirá de coordinadora y apoyo para las Evaluaciones y Auditorías Externas, las cuales son realizadas por la Contraloría General y por Corporaciones o Despachos de Auditores Externos contratados por la Municipalidad.

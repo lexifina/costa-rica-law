@@ -1,1 +1,0 @@
-Artículo 6º—Órganos del sistema de control interno. La Administración Activa junto con la Auditoría Interna de la Municipalidad, son los componentes orgánicos del sistema de control interno implantado en la Corporación.
