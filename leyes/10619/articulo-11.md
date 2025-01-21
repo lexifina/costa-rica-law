@@ -1,0 +1,1 @@
+ARTÍCULO 11- Responsabilidades del Registro Nacional de Tumores. El Registro Nacional de Tumores del Ministerio de Salud deberá emitir anualmente datos actualizados sobre la prevención, detección temprana, diagnóstico y tratamiento del cáncer de cérvix, los cuales deberán ser publicados en las páginas oficiales de la Caja Costarricense de Seguro Social y el Ministerio de Salud.

@@ -1,0 +1,1 @@
+ARTÍCULO 8- El Estado deberá financiar la prueba de tamizaje primario para la detección del cáncer de cérvix en la población de mujeres que no tienen seguro social, con el fin de prevenir la enfermedad o muerte mediante un diagnóstico temprano.

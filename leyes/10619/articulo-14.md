@@ -1,0 +1,1 @@
+ARTÍCULO 14- Celebración del Día Nacional contra el cáncer de cérvix. Se declara el 26 de marzo de cada año Día Nacional contra el Cáncer de Cérvix. Las instituciones del Estado y las empresas privadas realizarán actividades relacionadas a la prevención del cáncer de cérvix.

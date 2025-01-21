@@ -1,0 +1,1 @@
+ARTÍCULO 9- Responsabilidades del Patronato Nacional de la Infancia. Al Patronato Nacional de la Infancia le corresponde vigilar que las niñas, niños y adolescentes reciban las vacunas correspondientes para la prevención del cáncer de cérvix.
