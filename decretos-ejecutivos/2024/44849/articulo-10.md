@@ -1,0 +1,1 @@
+Artículo 10.-En el caso de los equipos de cómputo alquilados, se aplicarán las mismas reglas establecidas para los equipos de cómputo propios, a excepción de lo relacionado con la asignación del número de patrimonio institucional.

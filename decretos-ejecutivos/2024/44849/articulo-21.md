@@ -1,0 +1,1 @@
+Artículo 21.-EI acceso a la red con credenciales ajenas o el uso indebido de la propia, constituirá causal para que el jefe del Departamento de Tecnología de Información, reporte por escrito al usuario con copia a su jefe inmediato y al director del Programa.

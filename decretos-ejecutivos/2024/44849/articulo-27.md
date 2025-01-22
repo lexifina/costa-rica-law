@@ -1,0 +1,1 @@
+Artículo 27.-El Departamento de Tecnología de Información mantendrá una copia de la bitácora y sus respectivos respaldos sobre las actividades en Internet de todos los usuarios de la red por un período de tres meses.

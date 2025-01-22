@@ -1,0 +1,1 @@
+Artículo 46.-El Departamento de Tecnología de Información por medio de sus diferentes unidades será el ente contralor de la administración de los recursos informáticos en el Ministerio de Justicia y Paz.

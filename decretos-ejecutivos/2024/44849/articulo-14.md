@@ -1,0 +1,1 @@
+Artículo 14.-Es deber del usuario velar por que el antivirus que posee el equipo de cómputo proporcionado por la institución, esté actualizado. En este sentido, debe solicitar su revisión al Departamento de Tecnología de Información, en caso de que exista sospecha de que el mismo esté desactualizado o no esté funcionando.

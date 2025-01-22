@@ -1,0 +1,1 @@
+Artículo 4º-En el Decreto Ejecutivo N° 41109 JP, Reglamento de Organización Administrativa del Ministerio de Justicia y Paz, se establecen las funciones y estructura del Departamento de Tecnología de Información.

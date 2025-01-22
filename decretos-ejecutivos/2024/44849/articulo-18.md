@@ -1,0 +1,1 @@
+Artículo 18.-En la medida que los recursos presupuestarios de la institución lo permitan, cada usuario deberá contar con un segundo factor de autenticación, cuya administración y responsabilidad de uso, recae sobre el propio usuario.

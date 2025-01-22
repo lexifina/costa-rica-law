@@ -1,0 +1,1 @@
+Artículo 11.-EI jefe de cada oficina, en cualquier momento, podrá inspeccionar los equipos y programas almacenados en los discos. Esta inspección no incluye el contenido de los correos electrónicos, de los documentos electrónicos y de cualquier información que sea propiedad del o de los usuarios asignados al equipo de cómputo.

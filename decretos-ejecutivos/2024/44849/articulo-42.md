@@ -1,0 +1,2 @@
+Artículo 42.-El daño, destrucción o pérdida intencional de la información, ya sea almacenada en el servidor de la red o en el disco duro de cualquier equipo de la institución, será notificada por el usuario o quien conozca del hecho a la jefatura inmediata, con la finalidad de que se sienten las responsabilidades del caso.
+Asimismo, la institución podrá acudir a la instancia judicial que corresponda para denunciar la intrusión o destrucción de información institucional por parte de funcionarios o terceras personas.
