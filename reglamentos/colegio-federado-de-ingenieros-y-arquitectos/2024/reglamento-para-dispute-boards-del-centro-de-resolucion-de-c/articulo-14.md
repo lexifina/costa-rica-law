@@ -1,0 +1,3 @@
+Artículo 14.-Responsabilidades
+Ni el CFIA ni el CRC ni sus funcionarios serán responsables frente a las partes ni cualquier tercera persona respecto a los hechos, actos u omisiones de los Adjudicadores y del Dispute Boards, quedando el CFIA y el CRC exentos de todo tipo de responsabilidad civil, penal, administrativa y de cualquier otra índole derivada de las actuaciones y recomendaciones que emita el Dispute Boards.
+El CFIA y el CRC únicamente actúan como facilitadores administrativos en los procesos de Dispute Boards, lo cual significa que no les atañe ningún tipo de responsabilidad frente a terceros por las actuaciones de los adjudicadores que conforman el Dispute Board.

@@ -1,0 +1,4 @@
+Artículo 22.-Asistencia informal en los "Desacuerdos"
+Por iniciativa propia o a petición de una de las partes el Dispute Board puede de manera informal ayudarlas a resolver las desavenencias, con el acuerdo de todas las partes. Esta asistencia informal puede prestarse durante cualquier reunión o visita al sitio. La parte que la solicite debe informar al Dispute Board y a la otra parte antes de la fecha de la reunión para la asistencia informal.
+La asistencia informal puede llevarse a cabo de la manera que el Dispute Board y las partes acuerden.
+Cuando se le solicita que emita una conclusión relacionada con un desacuerdo en el que ha prestado asistencia informal el Dispute Board no queda vinculado por las opiniones formuladas, ya las haya expresado oralmente o por escrito, ni debe tomar en cuenta ninguna información que no haya estado a la disposición de todas las partes.

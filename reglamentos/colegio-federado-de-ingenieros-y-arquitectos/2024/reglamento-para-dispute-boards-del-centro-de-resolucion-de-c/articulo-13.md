@@ -1,0 +1,4 @@
+Artículo 13.-Contrato de los adjudicadores
+Antes del inicio de las actividades del Dispute Board cada Adjudicador debe firmar un convenio con todas las partes intervinientes. Si el Dispute Board es colegiado, cada convenio debe contener condiciones sustantivas idénticas a las de los demás, salvo acuerdo contrario de las partes y el Adjudicador.
+Las partes pueden conjuntamente rescindir el contrato de cualquier Adjudicador sin justificar el motivo, y con efecto inmediato, debiendo pagar los honorarios de gestión de ese miembro correspondientes a un período mínimo de tres meses siguientes a la rescisión, salvo acuerdo contrario de las partes y del Adjudicador.
+Cualquier miembro del Dispute Board puede rescindir el contrato mediante un aviso previo por escrito a las partes con al menos un mes de anticipación, salvo acuerdo contrario de las partes y del Adjudicador.

@@ -1,0 +1,2 @@
+Artículo 31.-Admisibilidad de las conclusiones en los procedimientos ulteriores
+Salvo acuerdo contrario de las partes, una "Conclusión" o cualquier documento escrito separado expedido de conformidad con el artículo 29 de este Reglamento, será admisible en cualquier procedimiento judicial o arbitral, a condición de que todas las partes en este proceso hayan sido parte en el procedimiento del Dispute Board durante el cual se ha emitido la "Conclusión".

@@ -1,0 +1,6 @@
+Artículo 11.-Independencia de los Adjudicadores
+Todos los Adjudicadores deben ser y permanecer imparciales e independientes de las partes.
+Deben suscribir una declaración de aceptación, disponibilidad, imparcialidad e independencia, y dar a conocer por escrito a las partes, a los demás miembros del Dispute Board y al CRC cualquier hecho o circunstancias susceptibles de poner en duda su independencia, o que pudiera dar lugar a dudas razonables sobre su imparcialidad.
+Lo mismo aplica si las dudas surgieran mientras es miembro del Dispute Board.
+Si una parte recusa un adjudicador por supuesta falta de imparcialidad, independencia o cualquier otro motivo, la parte dispone de cinco días contados a partir del conocimiento de los hechos que motivan la recusación para presentar por escrito al CRC la solicitud con los hechos en cuestión. El CRC decidirá en última instancia sobre la solicitud de recusación, después de haber otorgado al adjudicador impugnado, a los demás miembros del Dispute Board y a la otra parte la oportunidad de presentar sus descargos.
+Si la recusación de un Adjudicador es aceptada, éste debe retirarse inmediatamente, el contrato quedará rescindido y se sustituirá según el artículo 9.

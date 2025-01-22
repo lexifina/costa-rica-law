@@ -1,0 +1,2 @@
+Artículo 5º-Aplicación de arbitraje
+Cuando las partes hayan pactado el arbitraje como medio para resolver los "Desacuerdos", "Desavenencias" o "Incumplimientos" definidos en este Reglamento, aplicará este mecanismo y se regirá conforme a las disposiciones del Reglamento del CRC y la normativa costarricense e internacional aplicable para el caso concreto. A falta de tal acuerdo, resolverá cualquier Tribunal de la jurisdicción ordinaria.
