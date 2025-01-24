@@ -1,0 +1,9 @@
+Artículo 28. Responsabilidades de las Unidades Técnicas de la Entidad Autorizada. Las Unidades Técnicas, tendrán a su cargo las siguientes responsabilidades relacionadas con los procesos de contratación:
+a) Realizar, cuando corresponda, un sondeo o un estudio de mercado que considere los potenciales oferentes idóneos del objeto que se pretende contratar
+b) Brindar los insumos necesarios para que el encargado del procedimiento de contratación de la Entidad Autorizada pueda elaborar el pliego de condiciones.
+c) Proponer de manera motivada, la aplicación de las multas por defectos en la ejecución del contrato y/o de las cláusulas penales que se consideren necesarias incluir en el pliego de condiciones, considerando para ello, aspectos tales como, el monto, plazo, riesgo, repercusiones de un eventual incumplimiento para el servicio que se brinde o para el interés público y la posibilidad de incumplimientos parciales o por líneas.
+d) Elaborar el estudio de las ofertas y confeccionar un cuadro comparativo de análisis de las ofertas participantes según su ajuste a las especificaciones del pliego de condiciones.
+e) Determinar la razonabilidad del precio del bien, obra o servicio, entre las ofertas elegibles
+f) Emitir un acto motivado para justificar la razonabilidad del precio en los casos de concursos de licitaciones mayores o menores, cuando la oferta a adjudicar supere el monto presupuestado o cuando sólo se haya recibido una oferta adjudicable.
+g) Apoyar de manera oportuna y diligente al encargado del desarrollo de los procedimientos de contratación en la resolución de recursos, y emitir los criterios técnicos que sustenten la argumentación de la Administración o se aparten de los alegatos de los recurrentes, de conformidad con la normativa vigente
+h) Procurar la verificación, seguimiento y fiscalización de la aplicación de los criterios de contratación estratégica en las fases de selección, adjudicación, formalización y ejecución contractual.

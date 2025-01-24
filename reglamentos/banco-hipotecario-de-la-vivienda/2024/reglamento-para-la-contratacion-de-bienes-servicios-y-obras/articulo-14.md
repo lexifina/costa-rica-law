@@ -1,0 +1,1 @@
+Artículo 14. Recomendación de la adjudicación. La recomendación de adjudicación, de declaratoria de desierto o infructuoso del concurso, será redactada por el responsable del procedimiento de contratación de la Entidad Autorizada tomando en cuenta el resultado del análisis de las ofertas según el estudio correspondiente, y la trasladará al responsable del dictado del acto final.

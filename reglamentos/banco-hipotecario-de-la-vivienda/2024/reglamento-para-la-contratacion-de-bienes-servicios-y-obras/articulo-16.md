@@ -1,0 +1,1 @@
+Artículo 16. Notificación del acto final. El responsable del procedimiento de contratación de la Entidad Autorizada deberá realizar la notificación de los actos del procedimiento mediante el Sistema Digital Unificado.

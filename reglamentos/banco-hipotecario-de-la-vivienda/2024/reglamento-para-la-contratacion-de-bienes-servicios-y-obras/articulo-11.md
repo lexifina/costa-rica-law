@@ -1,0 +1,1 @@
+Artículo 11. Invitación. La personal designada por la Entidad Autorizada será la responsable de realizar la invitación para cada procedimiento que se promueva, utilizando el Sistema Digital Unificado.

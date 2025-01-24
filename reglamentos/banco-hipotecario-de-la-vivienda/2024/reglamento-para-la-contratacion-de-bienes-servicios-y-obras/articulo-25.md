@@ -1,0 +1,2 @@
+Artículo 25.- Reajuste y revisión de precios. El responsable del procedimiento de contratación por parte de la Entidad Autorizada deberá atender y gestionar en coordinación con el Administrador del Contrato las solicitudes de reajustes de precio, y gestionar el financiamiento adicional ante el BANHVI en caso de ser necesario.
+Asimismo, el Administrador del Contrato deberá llevar un control detallado sobre las variaciones de los costos de los contratos en ejecución, para gestionar el cobro ante una eventual disminución en los costos.

@@ -1,0 +1,3 @@
+Artículo 7. Estimación de la contratación y definición del procedimiento de contratación. La estimación de las contrataciones se realizará a partir del anteproyecto o del presupuesto de cada obra aprobado por la Junta Directiva del BANHVI.
+Las Entidades Autorizadas deberán elaborar los estudios o sondeos de mercado cuando para el desarrollo de un determinado proyecto se requiere de bienes, servicios u obras, todo de conformidad con las disposiciones de la LGCP y su Reglamento.
+De conformidad con lo anterior, la Entidad Autorizada, deberá definir el tipo de procedimiento de contratación (ordinario, extraordinario, especial o por excepción, según resulte aplicable) que deberá seguirse.

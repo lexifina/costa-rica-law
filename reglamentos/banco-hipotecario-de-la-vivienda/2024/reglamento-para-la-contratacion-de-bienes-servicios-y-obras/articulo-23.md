@@ -1,0 +1,1 @@
+Artículo 23. Gestión del pago. El Administrador del Contrato será el responsable de gestionar el pago de los bienes, servicio y obras recibidas a satisfacción haciendo uso del Sistema Digital Unificado en aplicación de lo indicado en la LGCP y su Reglamento.

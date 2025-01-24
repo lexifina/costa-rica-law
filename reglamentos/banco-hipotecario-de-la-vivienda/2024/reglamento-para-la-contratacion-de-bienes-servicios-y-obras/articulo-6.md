@@ -1,0 +1,2 @@
+Artículo 6. Del Plan de Adquisiciones. Las Entidades Autorizadas elaborarán un plan de adquisiciones anual, con el detalle de las contrataciones de bienes, servicios y obras, según los requerimientos y asignaciones hechas por el SFNV, el cual deberá estar listo y publicado a más tardar la primera quincena de enero de cada año.
+Dicho plan de adquisiciones deberá modificarse y actualizarse conforme existan nuevas contrataciones asignadas a la EA por el SFNV.

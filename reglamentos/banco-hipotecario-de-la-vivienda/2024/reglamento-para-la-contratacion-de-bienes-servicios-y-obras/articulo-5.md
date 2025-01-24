@@ -1,0 +1,6 @@
+CAPÍTULO II
+GESTIÓN DE LOS PROCESOS DE CONTRATACIÓN
+Artículo 5. Planificación de los proyectos obra pública y los requerimientos de bienes, servicios y obras en general de esos proyectos. Las entidades autorizadas llevarán a cabo los procedimientos de contratación requeridos por el SNFV conforme a la planificación estratégica definida por el BANHVI, como ente rector, a desarrollar durante uno o más períodos presupuestarios, así como las necesidades específicas de bienes, servicios y obras de los proyectos de vivienda en ejecución, tomando en cuenta la disponibilidad presupuestaria y de liquidez para hacerle frente a los pagos en cada período presupuestario.
+Todos los proyectos y las necesidades de bienes, servicios y obras deberán estar alineadas a los procesos de planificación institucional del SFNV de corto, mediano y largo plazo.
+El Subgerente de Operaciones es el responsable de aprobar los estudios que son parte de la fase de Pre-inversión, de todos los proyectos de obra pública que se van a tramitar por medio de las Entidades Autorizadas.
+La Dirección FOSUVI y la Subgerencia de Operaciones deberán consolidar y organizar todos los proyectos de obra pública que serán asignados a las Entidades Autorizadas.
