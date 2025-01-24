@@ -1,0 +1,1 @@
+Artículo 23. -Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de falta de quórum se hará constar la asistencia de los presentes, para los efectos de los artículos 25 y 26 de este Reglamento.

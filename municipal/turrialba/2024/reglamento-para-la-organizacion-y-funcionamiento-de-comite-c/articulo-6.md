@@ -1,0 +1,1 @@
+Artículo 6º-El Concejo Municipal conocerá el plan de desarrollo del gobierno local en materia deportiva y recreativa, como también los respectivos planes anuales operativos y sus modificaciones propuestas por el Comité Cantonal y este último a su vez velará para que el accionar de sus órganos adscritos se ajusten a dichos planes anuales.

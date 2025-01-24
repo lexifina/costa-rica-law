@@ -1,0 +1,1 @@
+Artículo 51. -Los Comités Comunales podrán coordinar en lo conducente y necesario para el fortalecimiento del Deporte y la Recreación de su zona de incidencia con las Asociaciones de Desarrollo de su respectiva comunidad.

@@ -1,0 +1,1 @@
+Artículo 59. -Los recursos del Comité Cantonal se destinarán para desarrollar planes, proyectos y programas deportivos y recreativos cantonales, así como para construir, administrar y mantener las instalaciones deportivas de su propiedad o las otorgadas en administración.

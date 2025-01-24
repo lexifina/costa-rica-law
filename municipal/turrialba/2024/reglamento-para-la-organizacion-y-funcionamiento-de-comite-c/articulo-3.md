@@ -1,0 +1,1 @@
+Artículo 3º-El domicilio legal del Comité Cantonal será el cantón de Turrialba pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros presentes de la Junta Directiva.

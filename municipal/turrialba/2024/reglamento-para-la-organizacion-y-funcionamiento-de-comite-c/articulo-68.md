@@ -1,0 +1,1 @@
+Artículo 68.-Las instalaciones deportivas existentes en instituciones educativas como gimnasios, plazas, pistas de atletismo, piscinas y otros que hayan sido construidas con fondos públicos o por dependencias gubernamentales, deberán ponerse al servicio de las respectivas comunidades del cantón, según las regulaciones que rijan en cada caso.

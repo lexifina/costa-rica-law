@@ -1,0 +1,5 @@
+V. Deróguese el Reglamento Para El Funcionamiento Del Comité Cantonal De Deportes Y Recreación De Turrialba anterior.
+Acuerdo tomado por el Concejo Municipal de la Municipalidad de Turrialba el Artículo V, inciso 14 de la Sesión Ordinaria No032-2024 celebrada el día martes 03 de diciembre del 2024, notificado bajo Oficio Número SM-1777-2024. ACUERDO 11: Autorizar a la Junta Directiva del Comité Cantonal de Deportes y Recreación de Turrialba para que procedan por segunda vez a publicar en el Diario Oficial La Gaceta, el Reglamento para la Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Turrialba, en vista que ya se realizó la primera publicación y dentro del plazo establecido no se recibió ninguna observación ni anotación al mismo por parte de algún ciudadano.
+Rige a partir de la segunda publicación en el Diario La Gaceta, según los alcances del artículo 43 de la Ley 7794, Código Municipal.
+Publicación Segunda vez. Turrialba, 23 de diciembre 2024.__
+<span style='font-family:"Arial",sans-serif;mso-ansi-language: </body>

@@ -1,0 +1,1 @@
+Artículo 62. - Las modificaciones serán vistas y aprobadas internamente por la Junta Directiva del Comité Cantonal de Deportes y Recreación de Turrialba. Lo anterior será comunicado al Concejo Municipal para su conocimiento.

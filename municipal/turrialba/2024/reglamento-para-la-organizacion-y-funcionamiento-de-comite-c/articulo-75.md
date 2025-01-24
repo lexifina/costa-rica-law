@@ -1,0 +1,1 @@
+Artículo 75. -Cualquier reforma que se proponga este reglamento se pondrá en conocimiento para su análisis y recomendación del Comité Cantonal el brindar al Concejo Municipal un informe en un plazo de un mes improrrogable.

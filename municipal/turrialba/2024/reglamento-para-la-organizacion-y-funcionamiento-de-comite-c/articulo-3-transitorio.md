@@ -1,0 +1,1 @@
+III. Se define que todas las condiciones estipuladas en los actuales convenios y contratos celebrados por el Comité Cantonal al momento de entrar en vigencia este Reglamento, continuarán surtiendo sus efectos legales por el plazo de tiempo determinado en sus cláusulas al momento de la firma de los mismos.
