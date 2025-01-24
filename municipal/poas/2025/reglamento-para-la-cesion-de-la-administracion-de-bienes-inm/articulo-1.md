@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE POAS
+AVISA
+REGLAMENTO PARA LA CESIÓN DE LA ADMINISTRACIÓN DE BIENES INMUEBLES MUNICIPALES CON LA REFORMA LEY SOBRE EL DESARROLLO DE LA COMUNIDAD N° 3859.
+La suscrita Edith Campos Víquez, en calidad de Secretaria del Concejo Municipal de la Municipalidad de Poás, hago constar que: El Concejo Municipal del Cantón de Poás, en su Sesión Ordinaria Nº 052-2025, celebrada el 07 de enero de 2025, según consta en el Acuerdo N° 0486-01-2025, se aprobó de forma unánime ratificar y publicar por segunda vez, el Reglamento para la Cesión de la Administración de Bienes Inmuebles Municipales con la Reforma Ley Sobre el Desarrollo de la Comunidad Nº 3859, quedando ratificado en los términos que se detallan:
+REGLAMENTO PARA LA CESIÓN DE LA ADMINISTRACIÓN DE BIENES INMUEBLES MUNICIPALES CON LA REFORMA LEY SOBRE EL DESARROLLO DE LA COMUNIDAD N° 3859.
+Artículo 1º-Objetivo: Esta normativa tiene como propósito establecer reglas y procedimientos que permitan a los ciudadanos gestionar adecuadamente los inmuebles de la Municipalidad de Poás. Estos espacios están destinados a actividades comunitarias, deporte, recreación, cultura y turismo. La idea principal es asegurar que un mayor número de personas tenga acceso y pueda hacer uso de estos lugares públicos, fomentando así la participación de la comunidad en su cuidado y mantenimiento.

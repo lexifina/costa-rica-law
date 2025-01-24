@@ -1,0 +1,1 @@
+Artículo 2º-Prerrogativa de la Municipalidad sobre sus bienes inmuebles: La Municipalidad de Poás tiene el derecho de administrar y regular el uso de sus propiedades públicas y patrimoniales. Esto incluye tanto el terreno como las edificaciones permanentes que ya existen o que se construirán en el futuro.
