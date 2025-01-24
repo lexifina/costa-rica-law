@@ -1,4 +1,0 @@
-Artículo 20. Realización de las Convocatorias. Las sesiones deberán ser convocadas mediante el sistema correspondiente por parte de la Oficialía de Cumplimiento de Gobierno Corporativo, una vez aprobada la agenda y la fecha por parte de la Presidencia.
-La convocatoria para las sesiones ordinarias se efectuará con una antelación de tres días hábiles (3) y las extraordinarias de un día hábil (1) previo a la realización de la sesión, salvo en casos de urgencia.
-La Presidencia del Comité, deberá velar porque a la hora que se fije para realizar las sesiones no exista superposición horaria, para aquellos miembros que son funcionarios públicos.
-Cuando están presentes todos sus miembros, si así lo acuerdan por unanimidad, se podrá sesionar en forma extraordinaria sin cumplir los requisitos de convocatoria y orden del día.

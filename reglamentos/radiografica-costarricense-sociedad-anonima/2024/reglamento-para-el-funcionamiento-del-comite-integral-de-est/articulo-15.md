@@ -1,2 +1,0 @@
-Artículo 15. Calendarización de las Sesiones. Al principio de cada año calendario, la Presidencia del Comité, elaborará un calendario con las fechas preliminares de las sesiones ordinarias, dicho calendario será distribuido entre los miembros de dicho Comité, para valoración y ajustes. La Presidencia del Comité deberá velar porque no exista superposición horaria a la hora de realizar las sesiones.
-La versión final del calendario se comunicará a la Junta Directiva.

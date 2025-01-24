@@ -1,1 +1,0 @@
-Artículo 25. Inicio de las Sesiones. La sesión comenzará con la lectura y aprobación del orden del día establecido, que previamente habrá sido notificado a los miembros del Comité. El desarrollo de la reunión se ajustará al citado orden del día y conforme a los temas convocados.

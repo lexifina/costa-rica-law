@@ -1,1 +1,0 @@
-Artículo 21. Carácter Privado de las Sesiones. Las sesiones del Comité serán privadas; no obstante, podrán participar los funcionarios o terceros que el Comité requiera de conformidad con la agenda. Estos tendrán voz y no voto, no participando en la deliberación final previo a la toma de acuerdos, sobre los temas para los cuales fueron convocados.

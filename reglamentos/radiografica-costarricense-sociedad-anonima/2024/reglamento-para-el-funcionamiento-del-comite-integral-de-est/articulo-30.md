@@ -1,3 +1,0 @@
-Artículo 30. Dirección de las Sesiones. Las sesiones serán presididas por la Presidencia del Comité quien abrirá la reunión y llevará el orden de los temas de acuerdo con la agenda de la convocatoria.
-Las reuniones no deberán exceder las dos horas excepto para asuntos excepcionales cuando la duración extendida de la reunión fue explícita en la convocatoria, o aprobada por unanimidad de los presentes en la sesión.
-La Presidencia abrirá un tema a discusión, le asignará un máximo de tiempo y llevará el control de este. Cada miembro deberá traer analizada la documentación asociada con la agenda de la convocatoria.

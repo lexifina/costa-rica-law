@@ -1,2 +1,0 @@
-Artículo 8. Plazo de Nombramiento de los Integrantes. Los miembros del Comité que son parte de la Junta Directiva serán nombrados por el periodo de un año, pudiendo prorrogarse por acuerdo de Junta Directiva.
-El miembro externo independiente que conforme el Comité, será nombrado por un periodo de un año, pudiendo prorrogarse por tres veces, en periodos iguales.

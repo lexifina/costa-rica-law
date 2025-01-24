@@ -1,1 +1,0 @@
-Artículo 4. Informes y Entregables. El Comité brindará a la Junta Directiva un informe semestral del cumplimiento de funciones y de los principales temas analizados en las sesiones, del estado y seguimiento de acuerdos tomados, su operación, y cualquier otro aspecto establecido en este Reglamento o requerido por norma o ley.
