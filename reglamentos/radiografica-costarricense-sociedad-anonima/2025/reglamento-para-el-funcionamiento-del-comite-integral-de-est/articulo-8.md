@@ -1,0 +1,1 @@
+Artículo 8. Nombramiento de Miembro Externo Independiente. El miembro externo independiente que conforme el Comité, será nombrado por la Junta Directiva y de acuerdo con lo indicado en los Lineamientos para el Reclutamiento y Selección de Miembros Externos de los Comités de Apoyo a la Junta Directiva.

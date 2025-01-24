@@ -1,0 +1,1 @@
+Artículo 7. Nombramiento de los Integrantes. Los miembros del Comité son nombrados y removidos por la Junta Directiva, fundamentándose para ello en el conocimiento, experiencia y papel que hayan desempeñado con anterioridad.

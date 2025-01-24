@@ -1,0 +1,2 @@
+Artículo 19. Conocimiento de Temas Urgentes. De forma excepcional, se podrán conocer temas específicos de estricta urgencia de acuerdo con criterio de la Presidencia del Comité, a través de sesiones ordinarias o extraordinarias, para lo cual, se coordinará con antelación con los otros miembros.
+No podrá ser objeto de deliberación o acuerdo ningún asunto que no figure incluido en el orden del día, salvo que se declare la urgencia de tratar el asunto por el voto favorable de la mayoría simple de los miembros.
