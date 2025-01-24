@@ -1,0 +1,4 @@
+Artículo 26. Aspectos que se deben Contemplar en la Convocatoria. La convocatoria deberá contener hora, fecha, lugar o enlace a la plataforma tecnológica cuando sean virtuales o el lugar donde se realizará la reunión si es presencial, agenda u orden del día con la documentación de respaldo.
+Al establecerse las fechas de cada convocatoria se deben tomar en cuenta las fechas de las sesiones preestablecidas en el cronograma.
+En caso de existir una cancelación o reprogramación de la sesión, la misma deberá notificarse a los miembros del Comité por las vías antes dichas y la Oficialía emitirá una constancia que justifique las razones por las cuales no se llevó a cabo la reunión.
+La nueva convocatoria deberá cumplir con las formalidades establecidas, pudiendo incorporarse temas adicionales en la agenda de la nueva convocatoria.

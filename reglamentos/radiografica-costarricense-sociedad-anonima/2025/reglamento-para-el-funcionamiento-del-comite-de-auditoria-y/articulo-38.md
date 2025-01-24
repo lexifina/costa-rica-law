@@ -1,0 +1,2 @@
+Artículo 38. Dirección de las Sesiones. Las sesiones serán dirigidas por la Presidencia del Comité, quien abrirá la reunión y llevará el orden de los temas de acuerdo con la agenda de la convocatoria.
+La Presidencia abrirá la discusión del tema, le asignará un máximo de tiempo y llevará el control de este. Cada miembro es el responsable de analizar la documentación que da sustento a cada tema asociado con la agenda de la convocatoria.

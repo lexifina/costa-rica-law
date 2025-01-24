@@ -1,0 +1,1 @@
+Artículo 36. Votación y Acuerdos de las Sesiones. La Presidencia del Comité velará por que, como parte de los debates, se alcance una decisión consensuada. El esquema de votación será por mayoría simple.
