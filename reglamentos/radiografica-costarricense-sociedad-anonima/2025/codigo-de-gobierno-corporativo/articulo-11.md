@@ -1,0 +1,2 @@
+Junta Directiva
+Artículo 11. Integración. La Junta Directiva es el órgano superior deliberativo y de dirección de la empresa. Está integrada por tres miembros nombrados por el Instituto Costarricense de Electricidad y dos miembros nombrados por la Compañía Radiográfica Internacional Costarricense Sociedad Anónima (CRICSA), y se nombran de acuerdo con lo establecido en el Procedimiento para la Selección de los Miembros de Órganos de Dirección de las Empresas del ICE. Son nombrados por la Asamblea de Accionistas, por el plazo legal que así dispongan.

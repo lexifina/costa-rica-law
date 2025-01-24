@@ -1,0 +1,1 @@
+Artículo 9. Facultades. El Comité de Vigilancia tiene la facultad de fiscalizar, supervisar, intervenir, examinar e inspeccionar todas las operaciones económicas y financieras realizadas por los distintos órganos que participan en la administración de la sociedad anónima.
