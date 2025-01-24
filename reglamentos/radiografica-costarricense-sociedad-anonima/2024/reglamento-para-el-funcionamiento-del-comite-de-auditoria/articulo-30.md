@@ -1,3 +1,0 @@
-Artículo 30. Deber de Confidencialidad. Los miembros del Comité guardarán reserva de toda aquella información y documentación a la que hayan tenido acceso, cuando así lo señale el respectivo documento o lo advierta el área responsable de la información; utilizando esta exclusivamente en el desempeño de sus funciones y custodiándola con la debida diligencia.
-Además, deberán observar la normativa interna y corporativa vigente, esta obligación de confidencialidad subsistirá aún después de que se haya cesado el cargo.
-No se podrá compartir con expertos o terceros información de orden confidencial o sensible, a excepción que ya exista un contrato de confidencialidad que así lo estipule.

@@ -1,1 +1,0 @@
-Artículo 12. Nombramiento de Miembro Externo Independiente. El miembro externo independiente que conforme el Comité, será nombrado por la Junta Directiva y de acuerdo con lo indicado en el Proceso de Reclutamiento y Selección de Miembros Externos de los Comités de Apoyo a la Junta Directiva de RACSA.
