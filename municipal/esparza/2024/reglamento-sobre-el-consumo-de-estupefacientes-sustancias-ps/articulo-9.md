@@ -1,0 +1,3 @@
+Artículo 9°-Consumo durante la jornada laboral de Alcohol y Sustancias no permitidas.
+a) El personal municipal no podrá trabajar en estado de embriaguez o cualquier otra condición análoga producto del consumo de drogas o sustancias no permitidas.
+b) Se consideran excepciones el consumo de aquellos medicamentos (drogas) recetados por personal médico autorizado necesarios para tratar alguna enfermedad, en este caso, será responsabilidad de la persona funcionaria reportar a la jefatura inmediata dicha situación, para que conste en su expediente, los posibles efectos secundarios que puedan presentarse y que afecten su desempeño en el trabajo.

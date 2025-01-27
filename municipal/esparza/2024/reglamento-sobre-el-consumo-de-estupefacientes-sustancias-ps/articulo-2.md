@@ -1,0 +1,1 @@
+Artículo 2°-Objetivo General. Facilitar el procedimiento de abordaje institucional para el tratamiento de la problemática del consumo de alcohol y otras drogas, así como posibles sanciones a los funcionarios de la institución y establecer la normativa interna tendiente a la intervención y prevención del consumo de alcohol y otras drogas en la Municipalidad de Esparza.

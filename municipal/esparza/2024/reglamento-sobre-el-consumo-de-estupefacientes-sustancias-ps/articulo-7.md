@@ -1,0 +1,6 @@
+Artículo 7°-Sanciones.
+a) Amonestación verbal: Se aplicará por faltas leves a juicio de las personas facultadas para imponer las sanciones, según lo indique el Código de trabajo, Código Municipal y determine el reglamento autónomo de Servicio de la Municipal de Esparza.
+b) Amonestación escrita: Se impondrá cuando el servidor municipal haya merecido dos o más advertencias orales durante un mismo mes calendario o cuando las leyes del trabajo exijan que se le aperciba por escrito antes del despido, y en los demás casos que determinen las disposiciones reglamentarias vigentes.
+c) Suspensión del trabajo sin goce de sueldo hasta por quince días: Se llevará a cabo una vez que se realice el debido procedimiento administrativo ordinario d) Despido sin responsabilidad patronal.
+Las jefaturas de los trabajadores podrán aplicar las sanciones previstas en los incisos a) y b) siguiendo el debido proceso. Enviarán copia a la Oficina de Personal para que las archiven en el expediente de los trabajadores.
+La suspensión y el despido contemplados en los incisos c) y d), serán autorizados por el alcalde, vía resolución de un procedimiento administrativo sancionatorio nombrado al efecto para investigación real de los hechos.
