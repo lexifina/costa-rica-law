@@ -14,3 +14,4 @@ Reglamento de vigilancia de la salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-23 | la propia norma |
+| 2 | 2025-01-27 | Decreto Ejecutivo 44892 (2025-01-27) |
