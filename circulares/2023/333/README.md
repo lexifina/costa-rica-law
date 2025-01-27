@@ -15,3 +15,4 @@ Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Penal y c
 | 1 | 2023-12-20 | la propia norma |
 | 2 | 2024-02-22 | Circular 44 (2024-02-22) |
 | 3 | 2024-04-08 | Circular 72 (2024-04-08) |
+| 4 | 2025-01-27 | Aviso 1 (2025-01-27) |
