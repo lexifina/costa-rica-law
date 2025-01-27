@@ -14,3 +14,4 @@ Reglamento de la autopsia hospitalaria y médico legal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-21 | la propia norma |
+| 2 | 2025-01-27 | Decreto Ejecutivo 44892 (2025-01-27) |
