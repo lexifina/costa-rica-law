@@ -1,1 +1,0 @@
-Artículo 28.- Sede de las reuniones. Las sedes de las reuniones de las Comisiones, serán en las instalaciones del Ministerio de Salud, excepto cuando por acuerdo mayoritario de sus miembros, se decida cambiar la sede de forma temporal.

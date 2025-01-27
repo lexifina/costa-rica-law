@@ -1,1 +1,0 @@
-Artículo 13.- Los miembros de la Comisión serán nombrados por los jerarcas o jefaturas correspondientes de cada institución. Todos los representantes designados en esta Comisión serán personas con conocimientos en el campo materno-infantil y contarán con un suplente también designado por los jerarcas o jefaturas correspondientes de cada institución.

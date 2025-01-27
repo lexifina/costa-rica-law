@@ -1,1 +1,0 @@
-Artículo 5º- Ámbito de aplicación. Las disposiciones del presente reglamento, se deben aplicar obligatoriamente en los establecimientos de salud públicos y privados que brindan servicios de salud en el territorio nacional.
