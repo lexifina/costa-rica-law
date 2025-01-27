@@ -1,4 +1,3 @@
-CAPÍTULO VI
-DE LA EJECUCIÓN DE LA AUDITORÍA
-Artículo 44º Aplicación de normas
-La Auditoría Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Internacionales de Auditoría, Ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna, así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.
+Artículo 44º Evidencia suficiente, competente y pertinente
+Durante la ejecución de los servicios de auditoría, el personal de la Auditoría Interna deberá obtener evidencia suficiente, competente y pertinente por medio de inspecciones, observaciones, investigaciones, indagaciones, confirmaciones, con el objetivo de sustentar los hallazgos y fundamentar las conclusiones de los informes de la mejor manera posible, conforme se estable en las Normas Globales de Auditoría Interna.
+Dichos documentos conformarán los papeles de trabajo, recopilados por el Auditor a cargo de la evaluación correspondiente y estos deben estar debidamente respaldados en el sistema informático utilizado por la Auditoría Interna de Popular Pensiones.

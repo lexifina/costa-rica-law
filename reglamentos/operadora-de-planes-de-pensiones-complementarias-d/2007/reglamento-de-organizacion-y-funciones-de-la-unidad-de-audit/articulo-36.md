@@ -1,6 +1,6 @@
-Artículo 36º Atribuciones de la Auditoría Interna
-Para el acertado cumplimiento de su objetivo, deberes y funciones, la Auditoría tendrá al menos las atribuciones contenidas en el Artículo 33° de la Ley General de Control Interno, así como:
-a) Utilizar, según las circunstancias y su criterio profesional, el tipo, las técnicas y los procedimientos de auditoría que cumplan en mejor forma, las necesidades de los exámenes y verificaciones que lleve a cabo.
-b) Ejercer sus funciones con libertad, independencia funcional y de criterio, respecto del Jerarca y demás órganos y unidades de Popular Pensiones S.A.
-c) Organizarse y disponer del personal profesional y asistente necesario, según lo requiera el adecuado cumplimiento de sus funciones.
-d) Cualesquiera otras que sean concordes con el objeto y las funciones que desempeña.
+Artículo 36º Servicios Preventivos
+Los servicios preventivos contemplan las asesorías, advertencias y autorización de libros. Las asesorías y advertencias deben atender asuntos que sean estrictamente de la competencia de la Auditoría Interna, sin comprometer su independencia y objetividad en el desarrollo posterior de sus actividades.
+a) Servicios de asesoría: a solicitud del Jerarca o de cualquier otro nivel gerencial. Las asesorías que se brinden serán de preferencia escritas; sin embargo, se podrán atender casos verbales, dejando constancia en ambas.
+b) Servicios de advertencia: comunicar a la Junta Directiva o Administración Activa sobre las posibles consecuencias de determinadas conductas o decisiones incompatibles con el ordenamiento jurídico o técnico aplicable, siempre y cuando sean del conocimiento de la Auditoría Interna. Deben ser por escrito.
+Asimismo, pueden versar sobre la solicitud que se le plantea a la Administración Activa para que inicie una investigación preliminar, conforme a la normativa institucional vigente, a efecto de determinar la necesidad o no de instalar un órgano director del procedimiento administrativo, tendiente a identificar responsables y aplicar sanciones por determinadas conductas de un trabajador. El proceder y la legalidad de lo actuado por la Administración será objeto de seguimiento por parte de la Auditoría Interna.
+c) Servicios de autorización de libros: Consignar la razón de apertura o de cierre en los libros y registros relevantes para el control interno institucional y en la fiscalización de su manejo y control.

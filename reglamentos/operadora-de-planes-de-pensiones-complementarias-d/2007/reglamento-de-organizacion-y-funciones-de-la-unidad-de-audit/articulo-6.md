@@ -1,4 +1,5 @@
-Artículo 6º Responsabilidades según LGCI
-Conforme las responsabilidades establecidas en la LGCI son obligaciones del Auditor Interno y demás personal de la Auditoría Interna de Popular Pensiones S.A. con relación al presente Reglamento las siguientes:
-a) Del Auditor Interno, Auditor Supervisor, demás personal de la Auditoría Interna, cumplir este Reglamento en la materia que le concierne a cada trabajador.
-b) Del Auditor Interno, presentar este Reglamento para aprobación de la Contraloría General de la República una vez aprobado por el Jerarca.
+Artículo 6º Modificaciones al reglamento
+Las modificaciones o reformas que se estime conveniente hacer a este Reglamento serán propuestas por el Auditor Interno a la Junta Directiva.
+Las modificaciones propuestas y aprobadas deberán ajustarse a las leyes, reglamentos y cualquier otra norma o resolución jurídica o administrativa vinculante y estar de conformidad con lo establecido el Artículo 22° “Competencias”, inciso h, de la Ley 8292, y la Sección 5 “Sobre el Procedimiento de Aprobación del Reglamento de Organización y Funcionamiento de la Auditoría Interna, y sus modificaciones”, de los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la CGR; las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; de otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna, así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.
+Es obligación del Auditor Interno mantener actualizado el “Reglamento de Organización y Funciones de la Auditoría Interna”, cumplir y hacer cumplir dicho Reglamento.
+La vigencia de cualquier modificación al presente Reglamento regirá a partir de que las mismas sean aprobadas por la Junta Directiva de Popular Pensiones, la Contraloría General de la Republica y su publicación en el Diario Oficial La Gaceta.

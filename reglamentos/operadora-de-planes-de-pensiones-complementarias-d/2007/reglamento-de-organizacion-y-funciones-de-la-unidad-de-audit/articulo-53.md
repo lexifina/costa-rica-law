@@ -1,2 +1,3 @@
-Artículo 53º Atención de recomendaciones
-El trabajador responsable de disponer la implementación de las recomendaciones comunicadas por la Auditoría Interna mediante informes dispondrá de un plazo máximo de 10 días hábiles, contados a partir del día siguiente de su recibo, para informar a esta sobre la atención de tales recomendaciones, conforme Artículo 36° inciso a) de la LGCI.
+Artículo 53º Requerimientos de información
+La Auditoría señalará en cada caso, el plazo en el cual deberá suministrarse la información requerida. Este plazo será establecido, considerando la complejidad del proceso y/o actividad valorada, así como la importancia y urgencia que representa para la oportuna ejecución de sus funciones. Los plazos regirán a partir del día siguiente de la solicitud realizada a la Administración Activa.
+Cuando fuese difícil atender lo solicitado dentro del plazo requerido, el responsable deberá comunicarlo y explicarlo así a la Auditoría, dentro del primer día hábil siguiente al recibo de la petición para su atención.

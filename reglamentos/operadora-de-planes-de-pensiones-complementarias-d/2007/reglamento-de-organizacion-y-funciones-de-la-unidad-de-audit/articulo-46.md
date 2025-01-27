@@ -1,2 +1,4 @@
-Artículo 46º Confidencialidad de la información
-Tal y como se establece en los Artículos 6°, 32° y 35° de la Ley General de Control Interno y el Artículo 8° de la Ley contra la Corrupción y Enriquecimiento Ilícito en la Función Pública, será estrictamente confidencial toda información que el Auditor Interno o cualquiera de sus trabajadores obtenga en el ejercicio de sus funciones; sin embargo, esta confidencialidad no se aplicará a solicitud de autoridades judiciales competentes y cuando a requerimientos de la Contraloría General de la República o de la SUPEN, en el ejercicio de sus competencias fiscalizadoras así lo requieran.
+CAPÍTULO V
+ATENCIÓN DE DENUNCIAS
+Artículo 46º Admisibilidad de denuncias
+El Auditor Interno establecerá los mecanismos y medios para recibir y tramitar todas aquellas denuncias presentadas ante la Auditoría Interna, las cuales pueden ser escritas o verbales y manteniendo la estricta confidencialidad en acato a lo definido en el Artículo 32° inciso f) de la Ley General de Control Interno y el artículo 41° de este Reglamento y lo establecido por la Contraloría General de la República en los Lineamientos generales para el análisis de presuntos Hechos Irregulares.

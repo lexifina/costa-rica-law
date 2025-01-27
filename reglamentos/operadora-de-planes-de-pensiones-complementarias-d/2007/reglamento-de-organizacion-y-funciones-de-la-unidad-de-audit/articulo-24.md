@@ -1,4 +1,4 @@
-Artículo 24º Plan de trabajo de la Auditoría Interna
-El Plan de Trabajo Anual de la Auditoría Interna y el requerimiento de recursos necesarios para su ejecución se dará a conocer al Jerarca para su aprobación, por parte del Auditor Interno, quien debe acatar las observaciones y solicitudes que plantee el Jerarca en su condición de responsable principal por el Sistema de Control Interno institucional.
-Las modificaciones al Plan de Trabajo Anual que se requieran durante su ejecución deben comunicarse oportunamente al jerarca.
-El Plan de Trabajo y sus modificaciones se deben remitir a la Contraloría General de la República, en la forma y términos que al efecto disponga ese órgano contralor. La remisión de esa información no tiene como objetivo otorgar una aprobación o visto bueno a lo planificado por la Auditoría.
+Artículo 24º Conflictos de interés
+El Auditor Interno y los trabajadores de la Auditoría Interna deben velar porque no se presenten conflictos de interés al asesorar o prestar servicios distintos de la fiscalización a la Operadora y que dichos servicios o asesoramiento no incluyan responsabilidades o facultades de gestión, que debe continuar desempeñando la Administración Activa.
+De conformidad con lo establecido en las Normas Globales de Auditoría Interna y directrices referentes a los principios y enunciados éticos aplicables a la Auditoría Interna en el Sector Público, cuando existan factores que puedan comprometer su independencia y objetividad o exista algún tipo de conflicto de interés, el Auditor Interno deberá informarlo a la Junta Directiva de Popular Pensiones. En el caso de que las limitaciones sean aplicables a los demás trabajadores de la Auditoría, la situación deberá hacerse del conocimiento del Auditor
+Interno.

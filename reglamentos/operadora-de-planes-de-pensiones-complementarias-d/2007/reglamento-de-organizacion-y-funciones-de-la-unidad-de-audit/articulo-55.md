@@ -1,5 +1,2 @@
-Artículo 55º Informes para la Junta Directiva
-Los informes que deben remitirse por competencia a la Junta Directiva se regularán por los siguientes criterios:
-a) La Auditoría solicitará efectuar la conferencia final con el Jerarca antes de emitir el informe final definitivo, con el fin de exponer los resultados, conclusiones y recomendaciones de conformidad con lo establecido por las políticas y procedimientos. El Jerarca deberá agendar su conocimiento en un plazo de 10 días hábiles que comenzará a regir a partir del día hábil siguiente de recibido el informe de auditoría.
-b) El Jerarca cuenta con un plazo de 30 días hábiles improrrogables, después de recibido el informe final definitivo, para emitir el acuerdo en relación con las recomendaciones formuladas.
-Para efecto del cómputo del plazo previsto en el párrafo anterior, el mismo rige a partir del día hábil siguiente de la remisión por parte de la Auditoría Interna del Informe Final, de acuerdo con lo establecido el Artículo 37° de la LGCI.
+Artículo 55º Estructura de los informes
+En cuanto a los requisitos, partes, revisión y remisión de los informes; se aplicará principalmente lo dispuesto en la Ley 8292, las Normas Globales de Auditoría Interna, procedimientos internos de la Auditoría Interna y cualquier lineamiento que al efecto emita la Contraloría General de la República.

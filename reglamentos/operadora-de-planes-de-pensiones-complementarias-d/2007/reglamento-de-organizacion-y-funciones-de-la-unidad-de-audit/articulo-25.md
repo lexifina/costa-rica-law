@@ -1,5 +1,4 @@
-Artículo 25º Presupuesto de la Auditoría
-La Auditoría Interna, deberá formular técnicamente su presupuesto, conforme a los lineamientos aplicables y al Plan Anual de Trabajo y este deberá presentarse al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones S.A.
-El desglose por objeto del gasto debe concordar con las subpartidas que cubran necesidades propias y directas de la Auditoría Interna, para que exprese su costo real. La asignación de presupuesto que finalmente haga la Junta Directiva para la Auditoría Interna debe ser razonable para que le permita cumplir su gestión acorde con su Plan de Trabajo Anual.
-Para el cambio de destino de los recursos asignados a la Auditoría Interna, se deberá contar con aprobación de la Junta Directiva presentando los criterios técnicos que sustenten dicha modificación.
-La Auditoría Interna debe tener independencia para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza, conforme lo dicten sus necesidades para cumplir con su Plan de Trabajo, considerando un uso razonable de los recursos presupuestarios de Popular Pensiones.
+Artículo 25º Dependencia y estructura
+La Auditoría Interna de Popular Pensiones, es un órgano asesor con dependencia orgánica de la Junta Directiva de Popular Pensiones.
+Es responsabilidad del Auditor Interno contar con los recursos humanos, materiales, presupuestarios, tecnológicos, de asesoría académica, técnica e instalaciones físicas necesarias para el adecuado cumplimiento de sus funciones. Para tales propósitos, oportunamente planteará sus necesidades ante el Jerarca, quien deberá tomar las decisiones que correspondan para satisfacer adecuada y oportunamente esas necesidades, de conformidad con lo establecido en el artículo 27 de la Ley 8292 y la sección 7 de los
+“Lineamientos sobre Gestiones que involucran a la Auditoría Interna, presentados ante la Contraloría General de la República” sobre la solicitud y asignación de recursos.

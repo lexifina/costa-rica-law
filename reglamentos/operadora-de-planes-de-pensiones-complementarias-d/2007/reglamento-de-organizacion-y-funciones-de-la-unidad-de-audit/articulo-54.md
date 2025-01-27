@@ -1,3 +1,6 @@
-Artículo 54º Programa de seguimiento
-La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración Activa, que hayan sido formuladas en sus informes o estudios especiales de Auditoría, Auditorías Externas, así como las de los entes supervisores, con la finalidad de verificar si esas recomendaciones han sido puestas en práctica.
-Para tales propósitos, la Auditoría Interna podrá solicitar cuando estime conveniente, al responsable de la implementación de las recomendaciones oficialmente aceptadas o a quien corresponda, referirse por escrito y en detalle sobre el cumplimiento de dichas recomendaciones y de los plazos para su efectiva, eficiente y oportuna aplicación, sin perjuicio de cualesquiera otras verificaciones y evaluaciones que lleve a cabo.
+CAPÍTULO VII
+DE LA COMUNICACIÓN DE RESULTADOS
+Artículo 54º Informes de Auditoría
+La Auditoría deberá comunicar los resultados de sus auditorías o estudios especiales, mediante informes a efecto de que se tomen las decisiones del caso en tiempo, a propósito, y conveniencia, conforme lo dicta la Ley 8292.
+Dicha comunicación se dirigirá con ese propósito al trabajador de la Administración Activa que corresponda, Gerencia General o a la Junta Directiva solo cuando la gravedad o importancia de los hechos lo ameriten y que las decisiones para tomar sean de su exclusiva competencia o así lo soliciten.
+La comunicación de resultados se podrá realizar por escrito de forma física o electrónica según se estime. Podrá efectuarse durante el desarrollo de la Auditoría o estudio especial, mediante informes parciales y al finalizar la labor por medio del informe final.

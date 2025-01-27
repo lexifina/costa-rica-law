@@ -1,7 +1,7 @@
-CAPÍTULO II
-DE LA ORGANIZACIÓN
-Artículo 10º Nombramiento, suspensión o destitución del Auditor Interno
-El nombramiento del Auditor Interno es a tiempo completo, por plazo indefinido y será inamovible, salvo que la Junta Directiva de Popular Pensiones S.A., en apego a lo establecido en el Artículo 31° de la Ley General de Control Interno, Ley de Protección al Trabajador y todas aquellas otras regulaciones o disposiciones aplicables así lo solicite.
-El Auditor Interno dependerá y responderá directamente por su gestión ante esa autoridad.
-Solo podrá ser suspendido o destituido de su cargo por causa justa y decisión emanada de la Junta Directiva de Popular Pensiones S.A., previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República, todo de conformidad con lo establecido en el Artículo 15° de la Ley Orgánica de la Contraloría General de la República, así como la sección 3 de los “Lineamientos sobre Gestiones que involucran a la Auditoría Interna, presentados ante la Contraloría General de la República” para las gestiones de nombramiento, suspensión y destitución de dicho cargo.
-El trabajador que actuare en sustitución del Auditor Interno en condiciones pro tempore, responderá de su gestión ante la máxima autoridad de la cual depende.
+Artículo 10º Autoridad
+La Junta Directiva de Popular Pensiones otorga a la función de auditoría interna el mandato de proporcionar a la Junta Directiva y a la alta gerencia seguridad, asesoramiento, perspicacia y previsión objetivos.
+La autoridad de la función de auditoría interna se crea por su relación de reporte directo con la Junta Directiva. Dicha autoridad permite el acceso sin restricciones a la información necesaria para el desarrollo de sus labores.
+La Junta Directiva autoriza a la función de auditoría interna a:
+• Tener acceso completo y sin restricciones a todas las funciones, datos, registros, información, propiedad física y personal pertinente para llevar a cabo las responsabilidades de auditoría interna. Los auditores internos son responsables de la confidencialidad y de salvaguardar los registros y la información.
+• Asignar recursos, establecer frecuencias, seleccionar materias, determinar alcances de trabajo, aplicar técnicas y emitir comunicaciones para lograr los objetivos de la función.
+• Obtener asistencia del personal necesario de Popular Pensiones y otros servicios especializados dentro o fuera de Popular Pensiones para completar los servicios de auditoría interna.

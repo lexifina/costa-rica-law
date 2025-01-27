@@ -1,4 +1,2 @@
-CAPÍTULO VIII
-PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD
-Artículo 59º Establecimiento del programa
-La Auditoría Interna mantendrá en operación un Programa de Aseguramiento de la Calidad para la actividad de Auditoría Interna, que incluye autoevaluaciones anuales.
+Artículo 59º Atención de recomendaciones
+El trabajador responsable de disponer la implementación de las recomendaciones comunicadas por la Auditoría Interna mediante informes dispondrá de un plazo máximo de 10 días hábiles, contados a partir del día siguiente de su recibo, para informar a esta sobre la atención de tales recomendaciones, conforme Artículo 36° inciso a) de la Ley General de Control Interno.

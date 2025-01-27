@@ -1,2 +1,5 @@
-Artículo 61º Comunicación de resultados
-Los resultados de la Autoevaluación Anual de la Calidad de la Auditoría Interna deberán constar en un informe con el respectivo plan de mejoras y deberá ser comunicado en los plazos establecidos, a la Junta Directiva de Popular Pensiones S.A. y al personal de la Auditoría Interna.
+Artículo 61º Informes para la Junta Directiva
+Los informes que deben remitirse por competencia a la Junta Directiva se regularán por los siguientes criterios:
+a) La Auditoría solicitará efectuar la conferencia final con el Jerarca antes de emitir el informe final definitivo, con el fin de exponer los resultados, conclusiones y recomendaciones de conformidad con lo establecido por las políticas y procedimientos. El Jerarca deberá agendar su conocimiento en un plazo de 10 días hábiles que comenzará a regir a partir del día hábil siguiente de recibido el informe de auditoría.
+b) El Jerarca cuenta con un plazo de 30 días hábiles improrrogables, después de recibido el informe final definitivo, para emitir el acuerdo en relación con las recomendaciones formuladas.
+Para efecto del cómputo del plazo previsto en el párrafo anterior, el mismo rige a partir del día hábil siguiente de la remisión por parte de la Auditoría Interna del Informe Final, de acuerdo con lo establecido el Artículo 37° de la Ley General de Control Interno.

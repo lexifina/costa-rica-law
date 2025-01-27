@@ -1,2 +1,3 @@
-Artículo 60º Autoevaluación de la Calidad
-La Auditoría Interna deberá autoevaluar anualmente la calidad de su actividad, así como el cumplimiento de la normativa legal y técnica vigente, de conformidad con los lineamientos y directrices que establece la Contraloría General de la Republica.
+Artículo 60º Programa de seguimiento
+La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración Activa, que hayan sido formuladas en sus informes o estudios especiales de Auditoría, Auditorías Externas, así como las de los entes supervisores, con la finalidad de verificar si esas recomendaciones han sido puestas en práctica.
+Para tales propósitos, la Auditoría Interna podrá solicitar cuando estime conveniente, al responsable de la implementación de las recomendaciones oficialmente aceptadas o a quien corresponda, referirse por escrito y en detalle sobre el cumplimiento de dichas recomendaciones y de los plazos para su efectiva, eficiente y oportuna aplicación, sin perjuicio de cualesquiera otras verificaciones y evaluaciones que lleve a cabo.

@@ -1,4 +1,5 @@
-CAPÍTULO IV
-FINALIDAD, DEBERES, FUNCIONES Y ATRIBUCIONES
-Artículo 31º Finalidad de la Auditoría Interna
-El objeto fundamental de la Auditoría Interna es prestar un servicio de asesoría constructiva y de protección a la Administración Activa, para alcanzar las metas y objetivos con mayor eficiencia, eficacia y economía, proporcionándole información oportuna, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina, en procura de prevención de riesgo y mejoramiento continuo.
+Artículo 31º Presupuesto de la Auditoría
+La Auditoría Interna, deberá formular técnicamente su presupuesto, conforme a los lineamientos aplicables y al Plan Anual de Trabajo y este deberá presentarse al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones.
+El desglose por objeto del gasto debe concordar con las subpartidas que cubran necesidades propias y directas de la Auditoría Interna, para que exprese su costo real. La asignación de presupuesto que finalmente haga la Junta Directiva para la Auditoría Interna debe ser razonable para que le permita cumplir su gestión acorde con su Plan de Trabajo Anual.
+Para el cambio de destino de los recursos asignados a la Auditoría Interna, se deberá contar con aprobación de la Junta Directiva presentando los criterios técnicos que sustenten dicha modificación.
+La Auditoría Interna debe tener independencia para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza, conforme lo dicten sus necesidades para cumplir con su Plan de Trabajo, considerando un uso razonable de los recursos presupuestarios de Popular Pensiones.

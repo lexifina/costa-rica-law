@@ -1,4 +1,3 @@
-CAPÍTULO III
-DE LOS SERVICIOS DE LA AUDITORÍA INTERNA
-Artículo 28º De los servicios
-Los servicios que proporciona la Auditoría Interna, como producto de su actividad, se clasifican en servicios de auditoría y servicios preventivos.
+Artículo 28º Asignación de recursos a la Auditoría
+La Auditoría deberá contar con los recursos humanos, materiales, tecnológicos, de asesoría técnica e instalaciones físicas necesarios para el adecuado cumplimiento de sus funciones y la capacitación para el desarrollo profesional de sus trabajadores que considere indispensables para el cumplimiento de su Plan de Trabajo Anual y el buen funcionamiento de su unidad.
+Para tales propósitos, el Auditor Interno formulará técnicamente y comunicará a la Junta Directiva de Popular Pensiones, el requerimiento de los recursos necesarios para asegurar el cumplimiento de las competencias de la actividad de Auditoría Interna, para contar con un número determinado de trabajadores que permitan ejercer su actividad con la debida oportunidad, cobertura y disponibilidad, considerando un uso razonable de los recursos presupuestarios de Popular Pensiones, esto según la sección 7 de los “Lineamientos sobre Gestiones que involucran a la Auditoría Interna, presentados ante la Contraloría General de la República” sobre la solicitud y asignación de recursos.

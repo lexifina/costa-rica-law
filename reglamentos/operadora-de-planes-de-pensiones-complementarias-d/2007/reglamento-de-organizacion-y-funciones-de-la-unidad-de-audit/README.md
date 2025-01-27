@@ -18,3 +18,4 @@ Reglamento de Organización y Funciones de la Unidad de Auditoría Interna de la
 | 3 | 2016-03-30 | Reglamento 482 (2016-03-30) |
 | 4 | 2019-05-22 | Reglamento 0 (2019-05-22) |
 | 5 | 2020-11-11 | Reglamento 618 (2020-11-11) |
+| 6 | 2025-01-27 | Reglamento 771 (2025-01-27) |

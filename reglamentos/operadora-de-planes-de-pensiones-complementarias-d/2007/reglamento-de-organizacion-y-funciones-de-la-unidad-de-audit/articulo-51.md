@@ -1,2 +1,2 @@
-Artículo 51º Conferencia final
-La Auditoría Interna solicitará audiencia para efectuar la conferencia final, al trabajador responsable de disponer la puesta en operación de las recomendaciones analizadas previamente, quien deberá otorgarla a la brevedad posible a partir de su recibo para concertar su realización.
+Artículo 51º Manual de procedimientos de Auditoría Interna
+El Auditor Interno deberá preparar, mantener actualizado y en uso por los trabajadores de la Auditoría Interna, un “Manual de Procedimientos de Auditoría Interna”, con el objeto de tener un instrumento que, entre otras cosas, defina las políticas, responsabilidades, objetivos y funciones de sus subalternos, así como las características y procedimientos de Auditoría que éstos deben aplicar en Popular Pensiones.

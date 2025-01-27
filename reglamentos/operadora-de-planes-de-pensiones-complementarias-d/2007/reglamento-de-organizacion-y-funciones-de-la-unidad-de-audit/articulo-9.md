@@ -1,7 +1,13 @@
-Artículo 9º Independencia funcional
-La Auditoría Interna fungirá como un órgano asesor y de advertencia, que dependerá directamente de la Junta Directiva de Popular Pensiones S.A., con independencia funcional y de criterio.
-Dicha Auditoría estará bajo la responsabilidad y dirección, a tiempo completo, del Auditor Interno, quien debe ser al menos Licenciado en Contaduría Pública y deberá conocer las disposiciones jurídicas por las que se rige la Administración Pública en general y el Sistema de Pensiones en particular, con reconocido prestigio e integridad profesional y moral, con un alto sentido de la responsabilidad y el respeto por Popular Pensiones S.A., sus trabajadores y sus propietarios. Al Auditor Interno, así como al personal de la Auditoría Interna, le corresponde definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna de conformidad con el Artículo 21° de la Ley 8292 y la norma 1.1.3 de las Normas para el ejercicio de la Auditoría Interna en el Sector Público.
-Los trabajadores de la Auditoría Interna tienen la responsabilidad de estar alerta sobre cualquier circunstancia, situación o hecho, personales o externos, que puedan disminuir o poner en duda su independencia, o cuando se presente un conflicto de intereses; de ser así, deben comunicarlo a su superior inmediato para que éste asigne a otro trabajador la labor encomendada.
-El Auditor Interno, así como a todos los trabajadores de la Auditoría Interna que les aplique deberá acogerse al régimen de prohibición establecido en el Artículo 34° de la Ley 8292, así como a las regulaciones de tipo administrativo establecidas por el Jerarca que le serán aplicables de conformidad con el Artículo 24° de la Ley 8292.
-En caso de enfermedad o justa causa que motive la ausencia del Auditor Interno en el puesto, la Junta Directiva podrá nombrar por recargo de funciones en su lugar un sustituto, por el tiempo que dure la ausencia del titular.
-Para lo anterior, se cuenta con un Plan de Sucesión en Puestos Claves de la Auditoría Interna, mismo que se encuentra aprobado por la Junta Directiva de Popular Pensiones S.A.
+Artículo 9º Funcionalidad de la Auditoría Interna
+La Auditoría Interna es parte integral del Sistema de Control Interno de Popular Pensiones, debe mantener una oportuna y efectiva participación y coordinación con los demás componentes del sistema, a fin de que se alcance el objetivo que une a esos componentes, esto es, garantizar la legalidad y la eficiencia en los Sistemas de Control Interno en el manejo de los fondos públicos.
+Tendrá como función principal, a partir de los servicios de asesoría y aseguramiento, la comprobación de la existencia, el cumplimiento, la suficiencia y la validez del Sistema de Control Interno, así como de brindar información al Órgano de Dirección sobre la calidad del proceso de gestión del riesgo en aquellas áreas y programas sujetos a su estudio, competencia y fiscalización, proporcionando una garantía razonable de que la actuación del resto de la Administración Activa se realiza conforme al marco legal y a las sanas prácticas.
+La función de la Auditoría Interna contribuye a Popular Pensiones en:
+• Consecución exitosa de sus objetivos.
+• Gobernanza, gestión de riesgos y procesos de control.
+• Toma de decisiones y supervisión.
+• Reputación y credibilidad ante los grupos de interés.
+• Capacidad para servir al interés público.
+La función de la Auditoría Interna de Popular Pensiones es más eficaz cuando:
+• La auditoría interna es realizada por profesionales competentes de conformidad con las Normas Globales de Auditoría Interna del IIA, que se establecen en interés público.
+• La función de auditoría interna se posiciona de forma independiente con responsabilidad directa ante la Junta Directiva.
+• Los auditores internos están libres de influencias indebidas y están comprometidos a realizar evaluaciones objetivas.

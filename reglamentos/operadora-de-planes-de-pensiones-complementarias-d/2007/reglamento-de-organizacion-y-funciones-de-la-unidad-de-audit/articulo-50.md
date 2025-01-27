@@ -1,3 +1,4 @@
-Artículo 50º Análisis de hallazgos
-Los hallazgos obtenidos en el transcurso de la Auditoría o estudio especial de Auditoría deben ser analizados con los trabajadores responsables de la unidad o proceso auditado, de previo a emitir las conclusiones y recomendaciones definitivas contenidas en el informe, a fin de obtener de ellos sus puntos de vista, opiniones, propuestas alternas de mejoras y de propiciar las acciones correctivas inmediatas. Se exceptúan los casos de auditorías o estudios especiales de naturaleza confidencial o de carácter reservado (Relación de Hecho), en los que los resultados no deberán ser analizados con el auditado.
-Si durante el análisis de los hallazgos se presentan divergencias sobre la implantación de las recomendaciones o parte de ellas y no se llega a un acuerdo, en la comunicación formal de resultados, la Auditoría consignará las observaciones pertinentes del auditado.
+CAPÍTULO VI
+DE LA EJECUCIÓN DE LA AUDITORÍA
+Artículo 50º Aplicación de normas
+La Auditoría Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Globales de Auditoría Interna, Ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna, así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.

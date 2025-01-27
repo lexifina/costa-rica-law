@@ -1,24 +1,7 @@
-Artículo 12º Obligaciones del Auditor
-Sin perjuicio de lo establecido en otras disposiciones, son obligaciones del Auditor Interno:
-a) Definir, establecer, divulgar y mantener actualizadas las políticas, lineamientos, directrices, procedimientos y prácticas requeridas para cumplir con sus competencias y las de su equipo de trabajo.
-b) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna.
-c) Preparar y remitir al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones S.A., un informe de labores con periodicidad trimestral, así como aquellos informes especiales que considere necesarios y los que le sean requeridos.
-d) Preparar y remitir al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones S.A. un informe anual, (Artículo 22° inciso g) LGCI), acerca del cumplimiento del Plan de Trabajo, seguimiento de recomendaciones, ejecución del presupuesto, cumplimiento del Plan de Capacitación, avance del Plan Estratégico y sinopsis de aspectos que merecen especial atención por parte de la Administración, de acuerdo con los resultados de los estudios desarrollados.
-e) Establecer la organización que tendrá la dependencia a su cargo, misma que deberá constar en el documento correspondiente y que será de conocimiento de todos los trabajadores de Popular Pensiones S.A.
-f) Mantener actualizado el universo auditable de la Auditoría Interna y el ámbito de acción respecto a los fondos públicos sujetos a competencia institucional, así como los fondos y actividades privadas de acuerdo con los Artículos 5° y 6° de la Ley Orgánica de la Contraloría General de la República.
-g) Establecer, en conjunto con sus auditores, la visión, misión y valores que regirán las actuaciones del personal de la Auditoría Interna y su relación con la Administración Activa.
-h) Determinar los criterios técnicos y jurídicos necesarios para establecer, divulgar, aplicar y mantener un programa de aseguramiento continuo de la calidad y mejora de los procesos de la Auditoría, incluyendo la aplicación de las disposiciones jurídicas y técnicas.
-i) Establecer las condiciones formales mínimas que debe reunir cada uno de los documentos utilizados por la Auditoría, para comunicar el resultado de los servicios preventivos y de auditoría; de conformidad con lo establecido en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público y demás normativa aplicable.
-j) Documentar, divulgar y mantener actualizados los programas de seguimiento de recomendaciones que serán utilizados por la Auditoría Interna, para corroborar su efectiva implementación y su contribución al cumplimiento de los objetivos institucionales.
-k) Establecer las pautas principales sobre las relaciones y coordinaciones del personal de la Auditoría con los auditados, las autoridades de control, supervisión y fiscalización.
-l) Presentar los informes que le solicite la Junta Directiva de Popular Pensiones S.A., las autoridades de control, supervisión y fiscalización, los entes judiciales y de policía, así como cualquier otra autoridad competente para ello, de conformidad con la legislación vigente.
-m) Mantener un programa de capacitación y autoaprendizaje para el desarrollo del personal.
-n) Presentar ante el Ministerio Público las denuncias por presuntos delitos en perjuicio de la Operadora, de conformidad con los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares emitidos por la Contraloría General de la República según R- DC-102-2019 del 14 de octubre 2019.
-o) Asumir un rol activo de asesoría preventiva al Jerarca, en solicitud de éste en las materias de su competencia, con el fin de que se contribuya a evitar actos que atenten contra la legalidad y la eficiencia en el manejo de los Fondos Públicos.
-p) Difundir entre el personal de la Auditoría y poner en operación, según proceda, las herramientas que aporta la Contraloría General de la República para fortalecer la actividad de Auditoría Interna.
-q) Establecer y regular a lo interno de la Auditoría, las pautas principales sobre las relaciones y coordinaciones del personal con los auditados.
-r) Supervisar y disponer las medidas necesarias para procurar que los auditores guarden la confidencialidad de la información sobre la que tengan acceso.
-s) Administrar de forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos institucionales.
-t) Elaborar el Plan de Trabajo de la Auditoría conforme los lineamientos dictados por la Contraloría General de la República y presentarlo a conocimiento de la Junta Directiva
-u) Elaborar una guía de atención de denuncias por presuntos hechos irregulares.
-v) Hacer cumplir este Reglamento y las disposiciones vigentes en materia de control y fiscalización de los recursos que administra la Operadora.
+CAPÍTULO II
+DE LA ORGANIZACIÓN
+Artículo 12º Nombramiento, suspensión o destitución del Auditor Interno
+El nombramiento del Auditor Interno es a tiempo completo, por plazo indefinido y será inamovible, salvo que la Junta Directiva de Popular Pensiones, en apego a lo establecido en el Artículo 31° de la Ley General de Control Interno, Ley de Protección al Trabajador y todas aquellas otras regulaciones o disposiciones aplicables así lo solicite.
+El Auditor Interno dependerá y responderá directamente por su gestión ante esa autoridad.
+Solo podrá ser suspendido o destituido de su cargo por causa justa y decisión emanada de la Junta Directiva de Popular Pensiones, previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República, todo de conformidad con lo establecido en el Artículo 15° de la Ley Orgánica de la Contraloría General de la República, así como la sección 4 de los “Lineamientos sobre Gestiones que involucran a la Auditoría Interna, presentados ante la Contraloría General de la República” para las gestiones de nombramiento, suspensión y destitución de dicho cargo.
+El trabajador que actuare en sustitución del Auditor Interno en condiciones pro tempore, responderá de su gestión ante la máxima autoridad de la cual depende.

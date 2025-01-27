@@ -1,4 +1,13 @@
-Artículo 20º Delegación y administración del personal de la Auditoría Interna
-El Auditor Interno actuará como jefe de personal de la Auditoría, aplicando para ello los procedimientos establecidos por la Administración de Popular Pensiones S.A. En materia de nombramientos, traslados, suspensión, remoción, concesión de licencias y demás movimientos de personal; se actuará de conformidad con los Artículos 24° y 28° de la Ley General de Control Interno y la sección 5 “Sobre las regulaciones administrativas aplicables a los funcionarios de las auditorías internas del sector público”, según Lineamientos sobre Gestiones que Involucran a la Auditoría Interna presentadas ante la CGR y demás normativa aplicable.
-El Auditor Interno podrá delegar en su personal las funciones bajo criterios de idoneidad y conforme lo establece la Ley General de Administración Pública.
-Corresponde al Auditor Interno vigilar y tomar las decisiones para que los trabajadores de la Auditoría Interna cumplan en el ejercicio de sus competencias con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas que sean aplicables en Popular Pensiones S.A.
+Artículo 20º Supervisión de la Junta Directiva
+Para establecer, mantener y garantizar que la función de auditoría interna de Popular Pensiones tenga suficiente autoridad para cumplir con sus deberes, la Junta Directiva debe:
+• Discutir con el Auditor Interno, el rol, las responsabilidades, el alcance y los servicios apropiados (aseguramiento y/o asesoramiento) de la función de auditoría interna.
+• Asegurarse de que el auditor interno tenga acceso sin restricciones a la Junta Directiva, se comunique e interactúe directamente con ella, incluso en reuniones privadas sin la presencia de la alta dirección.
+• Discutir con el auditor interno otros temas que deben incluirse en el estatuto de auditoría interna.
+• Participar en discusiones con el auditor interno sobre las "condiciones esenciales", descritas en las Normas Globales de Auditoría Interna, que establecen las bases que permiten una función de auditoría interna efectiva.
+• Aprobar el estatuto de la función de auditoría interna, que incluye el mandato de auditoría interna y el alcance y los tipos de servicios de auditoría interna.
+• Aprobar el plan de auditoría interna basado en riesgos.
+• Aprobar la administración de recursos humanos y los presupuestos de la función de auditoría interna.
+• Colaborar con la alta dirección para determinar las cualificaciones y competencias que la organización espera del auditor interno, tal y como se describe en las Normas Globales de Auditoría Interna.
+• Autorizar el nombramiento y remoción del auditor interno.
+• Revisar el desempeño del auditor interno.
+• Asegurarse de que se ha establecido un programa de aseguramiento y mejora de la calidad y revisar los resultados anualmente.

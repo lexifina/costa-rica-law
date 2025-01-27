@@ -1,3 +1,9 @@
-Artículo 18º Conflictos de interés
-El Auditor Interno y los trabajadores de la Auditoría Interna deben velar porque no se presenten conflictos de interés al asesorar o prestar servicios distintos de la fiscalización a la Operadora y que dichos servicios o asesoramiento no incluyan responsabilidades o facultades de gestión, que debe continuar desempeñando la Administración Activa.
-De conformidad con lo establecido en las Normas de Auditoría y directrices referentes a los principios y enunciados éticos aplicables a la Auditoría Interna en el Sector Público, cuando existan factores que puedan comprometer su independencia y objetividad o exista algún tipo de conflicto de interés, el Auditor Interno deberá informarlo a la Junta Directiva de Popular Pensiones S.A. En el caso de que las limitaciones sean aplicables a los demás trabajadores de la Auditoría, la situación deberá hacerse del conocimiento del Auditor Interno.
+Artículo 18º Asistencia a las sesiones de Junta Directiva
+El Auditor Interno o en su ausencia el personal designado de acuerdo con el Plan de Sucesión de la Auditoría Interna de Popular Pensiones podrá asistir a las sesiones de Junta Directiva cuando el Órgano colegiado así lo solicite.
+La participación en las sesiones se guiará por los siguientes lineamientos:
+a) Brindar asesoría sobre asuntos concretos y en solicitud explícita por parte del Jerarca.
+b) Asistir a las sesiones con derecho a voz, pero sin voto.
+c) Brindar asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+d) Pedir y vigilar que su opinión conste en las actas respectivas.
+e) Posponer su opinión cuando a su criterio y por la complejidad del tema en discusión requiera recabar mayores elementos de juicio.
+f) Abstenerse de participar en comisiones de trabajo o similares, de naturaleza eminentemente administrativa, excepto de que se trate de comisiones conformadas por miembros de Junta Directiva, en donde se requiera su participación con carácter de asesor en el campo de su competencia.

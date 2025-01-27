@@ -1,6 +1,17 @@
-Artículo 43º Tratamiento de las denuncias
-La Auditoría Interna le dará el trámite que corresponda a las denuncias, de conformidad con los siguientes parámetros, mediante resolución motivada:
-a) Las denuncias que no sean de su competencia se canalizarán a las instancias competentes de conformidad con la Ley Nº 8220 Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.
-b) Las denuncias que sean manifiestamente improcedentes o infundadas serán archivadas de oficio, siempre y cuando no presenten afectación a un tercero.
-c) Las denuncias reiterativas que contengan aspectos que hayan sido atendidos, se comunicará al denunciante, Gerencia General o Junta Directiva de Popular Pensiones S.A. según lo ya resuelto.
-d) Las denuncias que se refieran únicamente a intereses particulares del denunciante, en relación con conductas u omisiones de la Administración Activa que les resulten lesivas de alguna forma y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente, serán archivadas de oficio.
+Artículo 43º Otros aspectos relativos al funcionamiento de la Auditoría Interna
+El Auditor Interno deberá velar por el cumplimiento de al menos lo siguiente:
+a) Que se realicen los servicios de Auditoría que considere necesarios y prudentes de acuerdo con las normas técnicas que rigen su actuar.
+b) Emitir a sus trabajadores los lineamientos que considere necesarios en cuanto al procesamiento de la información en aspectos como:
+• Cualidades de la información.
+• Análisis y evaluación de esta.
+• Registros.
+• Acceso y custodia de la información.
+• Calidad de los trabajos realizados.
+• Supervisión de las labores realizadas.
+c) Que el proceso de comunicación de los resultados se realice por los medios idóneos, a saber:
+• Informes de Auditoría.
+• Relaciones de Hechos.
+• Oficios producto de servicios preventivos.
+• Estudios no programados.
+• Otros a criterio del Auditor Interno.
+d) Girar instrucciones precisas al personal a su cargo, sobre aspectos en materia de seguimiento de las recomendaciones que emite la Auditoría Interna y las disposiciones giradas por la Contraloría General de la República y otros órganos externos de fiscalización, cuando sean de su conocimiento.

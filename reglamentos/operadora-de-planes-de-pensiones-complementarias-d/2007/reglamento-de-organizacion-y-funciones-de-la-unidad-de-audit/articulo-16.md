@@ -1,8 +1,6 @@
-Artículo 16º Prohibiciones al personal de la Auditoría Interna
-En acato a lo establecido en el Artículo 34° de la Ley General de Control Interno, el Auditor Interno y demás trabajadores de la Auditoría Interna tendrán las siguientes prohibiciones:
-a) Realizar funciones y actuaciones de la Administración Activa, salvo las necesarias para cumplir su competencia.
-b) Formar parte de un Órgano Director de un Procedimiento Administrativo.
-c) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-d) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
-e) Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativo eventualmente penal de los colaboradores o colaboradoras de los entes y órganos sujetos a la Ley General de Control Interno.
-f) Auditar operaciones o procesos específicos en los cuales haya sido previamente responsable como trabajador de la Administración, proveedor o por cualquier otro motivo. Para tal efecto, se presume que hay impedimento si provee servicios para una actividad, en la cual se tuvieron responsabilidades o relaciones que puedan resultar incompatibles en los 2 últimos años contados a partir de su ingreso a la Auditoría, situación que deberá comunicar al Auditor Interno al momento de la asignación del estudio.
+Artículo 16º Ética y Profesionalismo
+El Auditor Interno se asegurará de que el equipo de Auditoría Interna de Popular Pensiones:
+• Cumpla con las Normas Globales de Auditoría Interna, incluyendo los principios de Ética y Profesionalismo: integridad, objetividad, competencia, debido cuidado profesional y confidencialidad.
+• Comprenda, respete, cumpla y contribuya a las expectativas legítimas y éticas de la organización y sea capaz de reconocer conductas contrarias a esas expectativas.
+• Fomente y promueva una cultura ética en la organización.
+• Informe sobre el comportamiento de la organización que sea incoherente con las expectativas éticas de la organización, tal como se describe en la normativa interna aplicable.

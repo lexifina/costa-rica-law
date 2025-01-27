@@ -1,9 +1,28 @@
-Artículo 14º Asistencia a las sesiones de Junta Directiva
-El Auditor Interno o en su ausencia el personal designado de acuerdo con el Plan de Sucesión de la Auditoría Interna de Popular Pensiones S.A., podrá asistir a las sesiones de Junta Directiva cuando el Órgano colegiado así lo solicite.
-La participación en las sesiones se guiará por los siguientes lineamientos:
-a) Brindar asesoría sobre asuntos concretos y en solicitud explícita por parte del Jerarca.
-b) Asistir a las sesiones con derecho a voz, pero sin voto.
-c) Brindar asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
-d) Pedir y vigilar que su opinión conste en las actas respectivas.
-e) Posponer su opinión cuando a su criterio y por la complejidad del tema en discusión requiera recabar mayores elementos de juicio.
-f) Abstenerse de participar en comisiones de trabajo o similares, de naturaleza eminentemente administrativa, excepto de que se trate de comisiones conformadas por miembros de Junta Directiva, en donde se requiera su participación con carácter de asesor en el campo de su competencia.
+Artículo 14º Obligaciones del Auditor
+Sin perjuicio de lo establecido en otras disposiciones, son obligaciones del Auditor Interno:
+a) Definir, establecer, divulgar y mantener actualizadas las políticas, lineamientos, directrices, procedimientos y prácticas requeridas para cumplir con sus competencias y las de su equipo de trabajo.
+b) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna.
+c) Preparar y remitir al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones, un informe de labores con periodicidad trimestral, así como aquellos informes especiales que considere necesarios y los que le sean requeridos.
+d) Preparar y remitir al Comité Corporativo de Auditoría y a la Junta Directiva de Popular Pensiones un informe anual, (Artículo 22° inciso g) Ley General de Control Interno), acerca del cumplimiento del Plan de Trabajo, seguimiento de recomendaciones, ejecución del presupuesto, cumplimiento del Plan de Capacitación, avance del Plan Estratégico y sinopsis de aspectos que merecen especial atención por parte de la Administración, de acuerdo con los resultados de los estudios desarrollados.
+e) Establecer la organización que tendrá la dependencia a su cargo, misma que deberá constar en el documento correspondiente y que será de conocimiento de todos los trabajadores de Popular Pensiones.
+f) Mantener actualizado el universo auditable de la Auditoría Interna y el ámbito de acción respecto a los fondos públicos sujetos a competencia institucional, así como los fondos y actividades privadas de acuerdo con los Artículos 4° inciso b), 5° y 6° de la Ley Orgánica de la Contraloría General de la República.
+g) Establecer, en conjunto con sus auditores, la visión, misión y valores que regirán las actuaciones del personal de la Auditoría Interna y su relación con la Administración Activa.
+h) Determinar los criterios técnicos y jurídicos necesarios para establecer, divulgar, aplicar y mantener un programa de aseguramiento continuo de la calidad y mejora de los procesos de la Auditoría, incluyendo la aplicación de las disposiciones jurídicas y técnicas.
+i) Establecer las condiciones formales mínimas que debe reunir cada uno de los documentos utilizados por la Auditoría, para comunicar el resultado de los servicios preventivos y de auditoría; de conformidad con lo establecido en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público y demás normativa aplicable.
+j) Documentar, divulgar y mantener actualizados los programas de seguimiento de recomendaciones que serán utilizados por la Auditoría Interna, para corroborar su efectiva implementación y su contribución al cumplimiento de los objetivos institucionales.
+k) Establecer las pautas principales sobre las relaciones y coordinaciones del personal de la Auditoría con los auditados, las autoridades de control, supervisión y fiscalización.
+l) Presentar los informes que le solicite la Junta Directiva de Popular Pensiones, las autoridades de control, supervisión y fiscalización, los entes judiciales y de policía, así como cualquier otra autoridad competente para ello, de conformidad con la legislación vigente.
+m) Proponer y gestionar un programa de capacitación y autoaprendizaje para el desarrollo del personal.
+n) Presentar ante el Ministerio Público las denuncias por presuntos delitos en perjuicio de la Operadora, de conformidad con los Lineamientos Generales para el Análisis de Presuntos Hechos Irregulares emitidos por la Contraloría General de la República según RDC-102-2019.
+o) Asumir un rol activo de asesoría preventiva al Jerarca, en solicitud de éste en las materias de su competencia, con el fin de que se contribuya a evitar actos que atenten contra la legalidad y la eficiencia en el manejo de los Fondos Públicos.
+p) Difundir entre el personal de la Auditoría y poner en operación, según proceda, las herramientas que aporta la Contraloría General de la República para fortalecer la actividad de Auditoría Interna.
+q) Establecer y regular a lo interno de la Auditoría, las pautas principales sobre las relaciones y coordinaciones del personal con los auditados.
+r) Supervisar y disponer las medidas necesarias para procurar que los auditores guarden la confidencialidad de la información sobre la que tengan acceso.
+s) Administrar de forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos institucionales.
+t) Elaborar el Plan de Trabajo de la Auditoría basado en riesgos y conforme los lineamientos dictados por la Contraloría General de la República, el cual tome en cuenta las aportaciones de la Junta Directiva y de la administración activa . Así como presentarlo a conocimiento de la Junta Directiva de Popular Pensiones.
+u) Revisar y ajustar el plan de auditoría interna, según sea necesario, en respuesta a los cambios en el negocio, los riesgos, las operaciones, los programas, los sistemas y los controles de Popular Pensiones.
+v) Comunicar el impacto de las limitaciones de recursos en el plan de auditoría.
+w) Garantizar que los trabajos de auditoría interna se realicen, documenten y comuniquen de acuerdo con las Normas Globales de Auditoría Interna.
+x) Asegurar que la función de auditoría interna posea u obtenga colectivamente el conocimiento, las habilidades y otras competencias y calificaciones necesarias para cumplir con los requisitos de las Normas Globales de Auditoría Interna y cumplir con el mandato de auditoría interna.
+y) Elaborar una guía de atención de denuncias por presuntos hechos irregulares.
+z) Hacer cumplir este Reglamento y las disposiciones vigentes en materia de control y fiscalización de los recursos que administra la Operadora.

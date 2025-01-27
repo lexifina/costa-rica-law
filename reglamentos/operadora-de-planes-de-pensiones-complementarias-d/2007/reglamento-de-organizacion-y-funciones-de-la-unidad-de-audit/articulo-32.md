@@ -1,2 +1,3 @@
-Artículo 32º Ámbito de acción
-El ámbito de acción de la Auditoría Interna está conformado por Popular Pensiones S.A. y los entes u órganos públicos y privados sujetos a la competencia institucional de la misma. Para cumplimiento de esta, el Auditor Interno deberá definir y mantener actualizados los procedimientos aplicables en el ámbito de su competencia conforme lo estipulado en los Artículos 4° y 22°, inciso a) de la LGCI y otra normativa legal y técnica que aplique en la materia con las limitaciones que establece el Artículo 34° de la LGCI.
+Artículo 32º Asesoría y Asistencia Técnica
+El Auditor Interno, así como los trabajadores de la Auditoría, contarán con la asesoría y asistencia técnico-jurídica necesaria de los profesionales en Derecho que le brindan servicio a la Operadora, cuando a consecuencia del ejercicio de sus funciones resulten parte en un proceso judicial y/o administrativo.
+De presentarse algún tipo de conflicto de interés institucional, este será resuelto de previo por el Jerarca.
