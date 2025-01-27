@@ -1,6 +1,5 @@
-(Suspendida)
 CIRCULAR N° 335-2023
-(Nota de Sinalevi: Mediante circular N 44 del 22 de febrero de 2024, y publicada en el Boletín Judicial N° 39 del 29 de febrero de 2024, se acordó suspender la presente norma.)
+(Mediante aviso N° 1-2025 del 27 de enero de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma. Dicho levantamiento rige a partir del 5 de febrero del 2025 y hasta el 15 de marzo del 2025)
 Asunto: Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción de Notariado y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA DE NOTARIADO
 SE LES HACE SABER QUE:
