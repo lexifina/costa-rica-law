@@ -14,3 +14,4 @@ Reforma integral Reglamento de Organización y Funciones de la Unidad de Auditor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-01-07 | la propia norma |
+| 2 | 2025-01-27 | Reglamento 771 (2025-01-27) |
