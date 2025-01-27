@@ -1,5 +1,16 @@
-Artículo 7º—Dictamen técnico. En caso que el equipo técnico ubicado en el Departamento de Fomento Cultural de la Dirección de Cultura, encargado de las Declaratorias de Interés Cultural, considere necesario contar con un dictamen técnico especializado sobre el valor cultural de la gestión planteada, a la luz de lo estipulado en el artículo 4 del presente reglamento, solicitará dentro de los diez días hábiles siguientes a la fecha de presentación de la solicitud, la colaboración de las distintas instancias administrativas y órganos del Ministerio, según el área artística o cultural propia del proyecto, evento, actividad o producto, para que rindan un dictamen técnico que valore la propuesta sometida a consideración.
-En caso de que deba darse el subsane de los documentos por parte del interesado, el plazo descrito en el párrafo anterior, se suspenderá al momento de hacer la prevención al solicitante, y se reactivará su contabilización, a partir del momento en que aporte la documentación requerida.
-Este dictamen deberá rendirse dentro del plazo de un mes calendario y contemplará criterios sobre la viabilidad de la propuesta, calidad, impacto público, nivel artístico-cultural, así como cualquier otro factor relevante para justificar la procedencia de la declaratoria. Para esto, los distintos órganos y programas ministeriales, prestarán la mayor colaboración posible.
-En caso que el dictamen disponga que el proyecto, evento, actividad o producto no reúne las condiciones técnicas para ser objeto de declaratoria, el Director de Cultura comunicará al solicitante la denegatoria de su solicitud, indicándole que dispone de un término de tres días hábiles para recurrir esta decisión ante el Despacho del Ministro de Cultura y Juventud, quien tendrá diez días hábiles para resolver el caso, decisión que agotará la vía administrativa.
-Si el Ministro de Cultura y Juventud resuelve sostener la denegatoria de la solicitud de declaratoria, se archivará el asunto. Si por el contrario considera que la declaratoria es procedente, ordenará lo pertinente a la Dirección de Cultura, para que se continúe con el trámite correspondiente.
+Artículo 7.- Dictamen técnico. Le corresponde a las siguientes Entidades Especializadas, la emisión de los dictámenes técnicos de las solicitudes, conforme a su competencia:
+a) Área Patrimonial: Dirección de Patrimonio Cultural.
+b) Área Artes visuales: Museo de Arte Costarricense.
+c) Á rea Diseño: Museo de Arte y Diseño Contemporáneos.
+d) Área Música: Centro Nacional de la Música/ Dirección de Bandas.
+e) Área Audiovisual: Centro Costarricense de Producción Cinematográfica.
+j) Área Artes Escénicas: Teatro Popular Melico Salazar.
+g) Área Documental y de Historia Cultural: Archivo Nacional.
+h) Área Literatura: Colegio de Costa Rica.
+i) Área de Artes Circenses y Tecnológicas: La Libertad.
+j} Área Sociocultural: Dirección de Gestión Sociocultural.
+k) Área de Juventudes: Consejo de la Persona Joven.
+El dictamen técnico emitido por las distintas Entidades Especializadas deberá contener criterios sobre la viabilidad de la propuesta, calidad, impacto público, nivel cultural, así como cualquier otro factor relevante que permita determinar el valor cultural de la actividad, proyecto o producto y emitir así el aval de la declaratoria.
+En caso de que el dictamen disponga, que la actividad, proyecto o producto no reúne las condiciones técnicas para ser objeto de declaratoria, la persona directora de la Dirección de Gestión Sociocultural comunicará al solicitante la denegatoria de su solicitud.
+El solicitante dispone de tres días hábiles para recurrir esta decisión ante el Despacho del Ministro de Cultura y Juventud, quien tendrá diez días hábiles para resolver el caso, decisión que agotará la vía administrativa.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 44900 del 27 de enero del 2025)

@@ -1,0 +1,2 @@
+Artículo 8 bis. Plazo de Resolución: De conformidad con los plazos otorgados, para que cada una de las instancias administrativas realicen el trámite correspondiente para el dictado del acuerdo ejecutivo, se establece un plazo máximo de 75 días naturales para emitir la declaratoria de interés cultural y notificar lo correspondiente al solicitante.
+(Así adicionado por el artículo 8° del decreto ejecutivo N° 44900 del 27 de enero del 2025)

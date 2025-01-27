@@ -15,3 +15,4 @@ Reglamento para el trámite de declaraciones de interés cultural del Ministerio
 | --- | --- | --- |
 | 1 | 2015-03-18 | la propia norma |
 | 2 | 2023-07-04 | Decreto Ejecutivo 44135 (2023-07-04) |
+| 3 | 2025-01-27 | Decreto Ejecutivo 44900 (2025-01-27) |
