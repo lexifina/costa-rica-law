@@ -1,4 +1,4 @@
-Artículo 7º—Funciones de la Dirección General. En el ejercicio de su competencia, además de las funciones señaladas en el CAUCA, el RECAUCA y la legislación vigente, le corresponde a la Dirección General :
+Artículo 7º-Funciones de la Dirección General. En el ejercicio de su competencia, además de las funciones señaladas en el CAUCA, el RECAUCA y la legislación vigente, le corresponde a la Dirección General:
 a. Definir, en coordinación con el Ministro o el Viceministro de Ingresos, las políticas, directrices y demás disposiciones que regulen el Sistema Aduanero Nacional, de conformidad con lo que establece la legislación vigente.
 b. Organizar y dirigir la función de las diferentes dependencias del Servicio, comunicando las políticas, directrices y demás disposiciones que se deben seguir y vigilar su cumplimiento.
 c. Coordinar con la entidad competente y dar seguimiento a los servicios que brinda el Servicio Nacional de Aduanas, así como a las necesidades planteadas por las aduanas.
@@ -17,7 +17,8 @@ o. Conocer y resolver de los recursos interpuestos contra actos dictados por la 
 p. Imponer sanciones administrativas y tributarias aduaneras, cuando corresponda.
 q. Determinar los ajustes a la obligación tributaria aduanera, cuando corresponda.
 r. Coordinar y colaborar con otros órganos del Ministerio de Hacienda en la materia de su competencia.
-s. Autorizar a los Auxiliares de la Función Pública Aduanera, con excepción del agente aduanero.
+s. Autorizar a los Auxiliares de la Función Pública Aduanera, para lo cual el Director General podrá delegar la firma en el funcionario que éste designe. El Director General podrá delegar el acto material de la firma, en forma física o con firma digital, en un funcionario específico, mediante resolución de alcance general.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44894 del 27 de enero del 2025)
 t. Organizar, dirigir y dar seguimiento a las relaciones y asuntos internacionales, incluyendo negociaciones comerciales, cooperación y asistencia técnica internacional y aquellas actividades que generen la suscripción o modificación de tratados internacionales, acuerdos o convenios que se refieran a materia aduanera.
 u. Promover, con gobiernos de otros países e instituciones internacionales oficiales, el intercambio de información y capacitación en materia aduanera y de comercio internacional.
 v. Definir los lineamientos generales de la Planificación Estratégica del Servicio, de acuerdo con el Plan Nacional de Desarrollo.
