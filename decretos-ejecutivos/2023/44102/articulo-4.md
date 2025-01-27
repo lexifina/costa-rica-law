@@ -1,0 +1,1 @@
+Artículo 4º-Pago de gastos por incumplimiento. El costo de los servicios que genere el incumplimiento del presente reglamento, se atenderá de conformidad con lo dispuesto en el artículo 62 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, siendo cubierto por el infractor.
