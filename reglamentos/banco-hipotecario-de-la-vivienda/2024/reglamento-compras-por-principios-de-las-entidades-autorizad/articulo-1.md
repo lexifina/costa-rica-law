@@ -1,0 +1,17 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+JUNTA DIRECTIVA
+La Junta Directiva del Banco Hipotecario de la Vivienda, en su sesión N° 99-2024, del 18 de diciembre de 2024, tomó el acuerdo número 11 que indica lo siguiente:
+"Acuerdo N° 11:
+Considerando:
+I.-Que por medio del oficio BANHVI-GG-CI-0010-2024, la Gerencia General de este Banco trasladó a las Entidades Autorizadas los borradores de reglamentos propuestos por la Asesoría Legal con el objetivo establecer el marco normativo que regule las compras de bienes y servicios por parte de las Entidades Autorizadas para el desarrollo de proyectos habitacionales en terrenos del Banco Hipotecario de la Vivienda (BANHVI) o bien en proyectos de bono comunal.
+II.-Que en lo que ahora interesa, el Reglamento de Compras por Principios de las Entidades Autorizadas tiene por objeto regular las compras de bienes, servicios y obras que serán tramitadas y gestionadas por los sujetos privados que tengan la condición de entidades autorizadas del Sistema Financiero Nacional para la Vivienda y que se requieran para el desarrollo de los proyectos en terrenos del BANHVI y de Bono Colectivo, en aquellos casos en los que la contratación no supere el 50% del límite inferior del umbral fijado para la licitación menor del régimen ordinario contemplada en la Ley General de Contratación Pública Ley N° 9986. Cuando el monto de la contratación supere dicho monto se deberán aplicar las disposiciones de la Ley General de Contratación Pública Ley N° 9986 y su respectivo Reglamento en todo su alcance. Asimismo, tiene por objeto regular las responsabilidades de las dependencias y encargados de las entidades autorizadas que participan directa o indirectamente de los procesos de contratación pública dentro del Sistema.
+III.-Que una vez conocidas y valoradas las observaciones presentadas por las entidades autorizadas sobre dicho proyecto de reglamento, la Asesoría Legal y la Gerencia General, por medio de los oficios BANHVI-AL-OF-0147-2024 del 02 de diciembre de 2024 y BANHVI-GG-OF-1282-2024 del 06 de diciembre de 2024, respectivamente, someten a la consideración de esta Junta Directiva una propuesta definitiva del texto de dicha normativa.
+IV.-Que esta Junta Directiva estima pertinente actuar de la forma que recomienda la Administración, de conformidad con lo establecido en los artículos 26 inciso d), 46 y 65 de la Ley del Sistema Financiero Nacional para la Vivienda.
+Por tanto, se acuerda aprobar el siguiente:
+REGLAMENTO
+COMPRAS POR PRINCIPIOS DE LAS
+ENTIDADES AUTORIZADAS
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°-Objeto y ámbito de aplicación. El presente reglamento tiene por objeto regular las compras de bienes, servicios y obras que serán tramitadas y gestionadas por los sujetos privados que tengan la condición de entidades autorizadas del Sistema Financiero Nacional para la Vivienda y que se requieran para el desarrollo de los proyectos en terrenos BANHVI y de bono colectivo, en aquellos casos en los que la contratación no supere el 50% del límite inferior del umbral fijado para la licitación menor del régimen ordinario contemplada en la Ley General de Contratación Pública Ley N° 9986. Cuando el monto de la contratación supere dicho monto se deberán aplicar las disposiciones de la Ley General de Contratación Pública Ley N° 9986 y su respectivo Reglamento en todo su alcance.
+Asimismo, tiene por objeto regular las responsabilidades de las dependencias y encargados de las entidades autorizadas que participan directa o indirectamente de los procesos de contratación pública dentro del sistema.

@@ -1,0 +1,3 @@
+Artículo 13.-Publicidad y plazo para recibir ofertas. Cuando se tenga confeccionado el pliego de condiciones se deberá invitar al menos a 3 proveedores potenciales, aunque la EA se encuentra obligada a estudiar todas las ofertas recibidas en el concurso independientemente si provienen de oferentes que han sido invitados o no.
+Para la validez del procedimiento no será necesario contar efectivamente con las tres ofertas, pero si? que los invitados sean empresas dedicadas al giro propio del objeto contractual específico.
+La publicidad del concurso se hará mediante invitación directa por correo electrónico y se dará un plazo mínimo de un día hábil y un máximo de cinco días hábiles para la presentación de las ofertas.

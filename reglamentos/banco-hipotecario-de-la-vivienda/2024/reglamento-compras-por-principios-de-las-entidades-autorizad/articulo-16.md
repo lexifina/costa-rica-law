@@ -1,0 +1,5 @@
+Artículo 16.-Acto final. El acto final deberá estar fundamentado en la recomendación elaborada por el responsable del proceso de contratación de la EA y demás documentos del expediente de la respectiva contratación.
+El responsable de emitir el acuerdo o resolución final del procedimiento podrá apartarse de la recomendación, dejando constancia expresa y razonada en el expediente respectivo y tomando como base a esos efectos, otro criterio de la misma naturaleza, el cual deberá ser agregado al expediente.
+La competencia, en cuanto al dictado del acto final, la revocación del acto final no firme, la declaratoria de insubsistencia, la re-adjudicación, la nueva adjudicación, la caducidad de los procedimientos de contratación; así como la modificación, cesión del o terminación del contrato queda definida a partir de los siguientes rangos económicos:
+a) El responsable del proceso de contratación: Las compras promovidas mediante el procedimiento de CD.
+b) Gerente General o quien delegue la Junta Directiva: Los procesos de contratación promovidos mediante una CM.

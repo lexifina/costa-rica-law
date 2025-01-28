@@ -1,0 +1,1 @@
+Artículo 22.-Gestión del pago. El Administrador del Contrato será el responsable de gestionar el pago de los bienes, servicios y obras recibidas a satisfacción ante el encargado del procedimiento de contratación de la EA, quien serán los responsables de gestionar el proceso de pago.

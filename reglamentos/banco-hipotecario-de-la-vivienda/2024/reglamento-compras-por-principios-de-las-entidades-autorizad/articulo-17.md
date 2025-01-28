@@ -1,0 +1,1 @@
+Artículo 17.-Notificación del acto final. El responsable del proceso de contratación de la EA deberá realizar la notificación de los actos del procedimiento utilizando los mismos medios mediante los cuales se cursó la invitación.

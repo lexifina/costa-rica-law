@@ -1,0 +1,1 @@
+Artículo 3°-Capacidad para contratar. Las contrataciones realizadas por los sujetos privados que ostenten la condición de entidad autorizada del SFNV, se hacen por encargo y en representación de ese sistema financiero.

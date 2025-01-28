@@ -1,0 +1,1 @@
+Artículo 15.-Recomendación. La EA será la responsable de elaborar la recomendación para el dictado del acto final tomando en consideración los criterios técnicos, económicos y jurídicos a partir del estudio de las ofertas.
