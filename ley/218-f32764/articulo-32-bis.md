@@ -1,0 +1,3 @@
+Artículo 32 bis- Cruz Roja Costarricense
+Se reconoce a la Benemérita Cruz Roja Costarricense como una asociación de interés público por su condición sui generis originada del derecho internacional humanitario. El Registro Nacional dará tratamiento prioritario a las gestiones presentadas por la Asociación Cruz Roja Costarricense, en aras de garantizar la continuidad de sus operaciones y el servicio humanitario que brinda en todo el territorio nacional; lo anterior, sin demérito de los principios registrales.
+(Así adicionado por el artículo 18 de la Ley de la Cruz Roja Costarricense, N° 10632 del 28 de enero del 2025)
