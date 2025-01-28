@@ -1,1 +1,1 @@
-Artículo 54.- Nadie puede ser condenado al pago de una multa sin la tramitación del expediente en que se haga luego constar el haber sido satisfecha la multa como se establece en los artículos anteriores.
+Artículo 54.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

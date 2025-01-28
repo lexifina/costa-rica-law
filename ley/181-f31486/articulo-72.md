@@ -1,1 +1,1 @@
-Artículo 72.- No podrán las Juntas acordar pagos de carácter permanente ni por anualidades. Los giros que se extiendan con cargo a ellas deberán ser autorizados en cada caso por un acuerdo especial comunicado conforme se establece en los artículos precedentes.
+Artículo 72.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

@@ -1,1 +1,1 @@
-Artículo 46.- Por ninguna causa se acordará la inversión de fondos de un distrito en objetos extraños a la administración escolar, ni se podrá hacer uso del dinero perteneciente a un distrito para cubrir los gastos causados en otro.
+Artículo 46.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

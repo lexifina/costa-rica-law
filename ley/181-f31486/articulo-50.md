@@ -1,1 +1,1 @@
-Artículo 50.- Se hace extensivo a las administraciones de fondos escolares lo dispuesto por el artículo 36 de la ley de Hacienda Municipal, así como las prescripciones pertinentes de la Sección VII de la misma ley.
+Artículo 50.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

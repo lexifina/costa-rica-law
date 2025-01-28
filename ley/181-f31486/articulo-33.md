@@ -1,5 +1,1 @@
-Artículo 33.- Cuando por motivos legales o justificados, quedare una vacante en el personal de una Junta de Educación durante el lapso regular que la ley determina para el ejercicio de sus funciones, el Inspector del Circuito presentará a la Municipalidad una terna escogida entre los candidatos que propongan los respectivos Directores de Escuela.
-La Municipalidad deberá hacer el nombramiento dentro del mes siguiente a la fecha de presentación de la terna. Transcurrido ese plazo sin que se haya efectuado, se tendrá por nombrada y actuará como miembro de la Junta, la persona cuyo nombre encabece la terna, previa aceptación del cargo que hará ante la Dirección Provincial de Escuelas de su respectiva provincia o en su defecto ante el Inspector Delegado por ésta.
-Lo mismo se hará cuando por cualquier motivo legal fuere necesario reponer a un miembro propietario o suplente que no hubiera cumplido su período. En ambos casos el reemplazante se considerará nombrado únicamente para el tiempo que falte al sustituido para completar su período legal.
-Siempre que ocurra renovación de parte de una Junta, se procederá a nueva instalación.
-(Así reformado por el artículo 1° de la ley N° 2581 de 17 de junio de 1960)
+Artículo 33.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

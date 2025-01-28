@@ -1,2 +1,1 @@
-Artículo 58.-Los tesoreros escolares tendrán como honorarios un cinco por ciento (5%) sobre las cantidades que mensualmente recauden, salvo sobre las sumas directamente entregadas por el tesoro público. Las juntas pagarán las primas de las fianzas de los tesoreros. En todo caso, los honorarios indicados no podrán exceder de mil colones mensuales.
-(Así reformado por el artículo 3° de la ley N° 8823 del 5 de mayo de 2010, “Reforma varias leyes sobre la participación de la Contraloría General de la República para la simplificación y el Fortalecimiento de la Gestión Pública)
+Artículo 58.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

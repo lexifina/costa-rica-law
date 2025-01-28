@@ -1,2 +1,1 @@
-ARTICULO 46.-
-En las instituciones de enseñanza podrán funcionar otras organizaciones escolares como Patronatos Escolares, Asociaciones de Padres y Educadores, Consejos Agrícolas y otros similares a las Juntas a que se refiere este capítulo.
+ARTICULO 46.- (Derogado por el artículo 36 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)
