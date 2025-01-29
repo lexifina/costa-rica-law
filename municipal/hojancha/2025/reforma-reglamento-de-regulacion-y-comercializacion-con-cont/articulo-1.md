@@ -1,0 +1,57 @@
+MUNICIPALIDAD DE HOJANCHA
+CONCEJO MUNICIPAL
+El Concejo Municipal de Hojancha comunica acuerdo N°04 de la sesión ordinaria número 037-2025, celebrada el 13 de enero del 2025, que textualmente dice:
+Acuerdo 4.
+Con referencia al oficio Patentes-OI-002-2025, emitido por la Lic. Leidy Carrillo Cortes, Departamento de Rentas y Patentes a. í. Municipalidad de Hojancha, a través del cual remite solicitud de reforma al Reglamento y Comercialización de Bebidas con Contenido Alcohólico del Cantón de Hojancha; se acuerda:
+1º-Derogar el acuerdo N°9 de la sesión ordinaria N°159-2013, mediante el cual el Concejo Municipal acordó, adherirse a lo establecido en el artículo 4 y 10 de la Ley 9047" Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico" para que, en el cantón de Hojancha, fueran aplicados los montos más bajos establecidos en esta norma.
+2º-Aprobar la reforma de los artículos 43 bis y 44 del Reglamento de Regulación y comercialización con contenido alcohólico para el cantón de Hojancha, publicado en la Gaceta N°225 del 21 de noviembre del 2012, para que se lean de la siguiente forma:
+"Artículo 43 bis. Los sujetos pasivos que tengan licencia para el expendio de bebidas con contenido alcohólico deberán realizar, trimestralmente a la municipalidad respectiva, el pago por anticipado de este derecho que se establecerá según el tipo de licencia que le fue otorgado a cada establecimiento comercial conforme a su actividad principal.
+El periodo de presentación del formulario para la actualización del impuesto de patente deberá presentarse durante el periodo comprendido entre el 01 de enero al 15 de marzo de cada año, pudiendo el patentado solicitar una prórroga en el plazo por un máximo de 20 días hábiles.
+Para aquellos patentados que cuenten con un régimen especial de declaración deberá presentar la constancia a la municipalidad, junto con la copia de la declaración del periodo anterior declarado.
+.Artículo 44. Los sujetos pasivos que tengan licencia para el expendio de bebidas con contenido alcohólico deberán realizar trimestralmente a la municipalidad respectiva el pago anticipado de este derecho, que se establecerá según el tipo de licencia que le fue otorgado a cada establecimiento comercial conforme a su actividad principal.
+El hecho generador del derecho trimestral lo constituye el otorgamiento de la licencia de expendio de bebidas con contenido alcohólico por cada municipalidad.
+Los parámetros para determinar la potencialidad del negocio serán:
+a) El personal empleado por la empresa.
+b) El valor de las ventas anuales netas del último período fiscal.
+c) El valor de los activos totales netos del último período fiscal, con los cuales se aplicará la siguiente fórmula:
+P=[ (0,6 x pe/NTcs) + (0,3 x van/VNcs) + (0,1 x ate/Atcs)] x 100
+Donde:
+P: puntaje obtenido por el negocio.
+pe personal promedio empleado por el negocio durante el último período fiscal.
+NTcs: parámetro de referencia para el número de trabajadores de los sectores de comercio y servicios.
+van: valor de las ventas anuales netas del negocio en el último período fiscal.
+VNcs: parámetro monetario de referencia para las ventas netas de los sectores de comercio y servicios.
+ate: valor de los activos totales netos de la empresa en el último período fiscal.
+ATcs: parámetro monetario de referencia para los activos netos de los sectores de comercio y servicios.
+Para el caso del ATcs, no podrá tener un valor menor de diez millones de colones.
+Los valores NTcs, VNcs y ATcs serán actualizados según lo hace anualmente el Ministerio de Economía, Industria y Comercio, por medio de Digepyme, de conformidad con lo señalado en la Ley N.° 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002.
+Con sustento en la anterior fórmula, las licencias se clasificarán en las siguientes subcategorías de acuerdo con el puntaje obtenido:
+Subcategoría 1. Puntaje obtenido menor o igual a 10
+Subcategoría 2. Puntaje obtenido mayor de 10 y menor o igual a 35
+Subcategoría 3. Puntaje obtenido mayor de 35, pero menor o igual a 100
+Subcategoría 4. Puntaje obtenido mayor de 100
+La tarifa a cobrar, en razón del otorgamiento de la patente municipal, para las diferentes categorías y subcategorías, se establece conforme a la siguiente tabla:
+Categoría | Subcategoría 1 | Subcategoría2 | Subcategoría 3 | Subcategoría 4
+Licorera (A) | ¼ | 3/8 | ½ | 1 ½
+Bar (B1) | * | 3/8 | ½ | 1
+Bar c/ actividad bailable (B2) | ¼ | 3/8 | ½ | 1
+Restaurant (C) | ** | 3/8 | ½ | 1
+Minisúper (D 1) | 1/8 | 3/8 | ½ | 1
+Supermercado (D2) | ½ | ¾ | 1 | 2 ½
+Hospedaje <15 (E 1 a) | ¼ | 3/8 | ½ | 1
+Hospedaje >15 (E 1B) | ½ | 5/8 | ¾ | 1 ½
+Marinas (E2) | ½ | ¾ | 1 | 2 ½
+Gastronómicas (E3) | ½ | ¾ | 1 | 1 ½
+Centros noctur nos (E4) | ½ | ¾ | 1 | 2
+Actividades te máticas (E5) | ¼ | 3/8 | ½ | 1
+· Para los sujetos pasivos de la categoría de bar (B1), la fracción a pagar para los clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del respectivo cantón, y 1/8 para los sujetos pasivos ubicados en los distritos restantes del respectivo cantón.
+· Para los sujetos pasivos de la categoría de restaurante (C) la fracción a pagar para los sujetos pasivos clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del respectivo cantón, y de 1/8 para los sujetos pasivos ubicados en los distritos restantes del respectivo cantón.
+· Los sujetos pasivos categorizados como "Hospedaje < 15 (E1a)" y "Hospedaje > 15 (E1b)", de cualquier subcategoría, ubicados en distritos distintos al distrito primero del respectivo cantón, pagarán 3/4 de la tarifa establecida en la tabla anterior.
+Esta tabla mantiene la clasificación de licencias establecida en este reglamento.
+La fracción indicada en la tabla anterior para cada subcategoría corresponde a la proporción del salario base establecido en el artículo 2 de la Ley N° 7337, de 5 de mayo de 1993, y sus reformas.
+Las licencias referidas en este reglamento podrán suspenderse por falta de pago, o bien, por incumplimiento de los requisitos y las prohibiciones establecidos por esta ley y su reglamento, que regulan el desarrollo de la actividad.
+El pago extemporáneo de los derechos trimestrales está sujeto a una multa de entre un uno por ciento (1%) hasta un máximo de veinte por ciento (20%) sobre el monto no pagado.
+El pago extemporáneo de los derechos trimestrales está sujeto al pago de intereses.
+Los negocios que se estén iniciando en la comercialización de bebidas con contenido alcohólico y todavía no hayan declarado en el último período fiscal pagarán los patentados el monto establecido en la categoría correspondiente y el rubro establecido en la subcategoría 1, establecida en el artículo 10 de la ley 9047."
+3º-Autorizar a la secretaria del Concejo Municipal para que proceda con la publicación en el diario oficial la Gaceta. Aprobado por unanimidad. Acuerdo definitivamente aprobado.
+Dado en Hojancha Guanacaste, a los catorce días del mes de enero del dos mil veinticinco
