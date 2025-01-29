@@ -1,0 +1,2 @@
+Artículo 4º-Incorpórese un nuevo artículo 18 del Reglamento sobre la Rendición de Cauciones en favor del Tribunal Supremo de Elecciones, Decreto N° 2-2008 y sus Reformas, para que se lea de la siguiente manera:
+"Artículo 18.-De la revisión periódica del Reglamento. Este reglamento será revisado cada cinco años para su actualización de acuerdo con las directrices emanadas por los entes correspondientes".

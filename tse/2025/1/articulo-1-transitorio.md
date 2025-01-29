@@ -1,0 +1,2 @@
+Transitorio único.-En relación con lo dispuesto en el artículo 11 de la reforma, el cual establece que en el mes de diciembre de cada año, la Contaduría y el Departamento de Recursos Humanos revisarán el listado de personas funcionarias obligadas a caucionar, se entiende que dicha revisión comenzará a regir a partir de diciembre de 2025.
+Dado en San José, a los diez días del mes de enero de dos mil veinticinco.

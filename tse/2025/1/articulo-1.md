@@ -1,0 +1,37 @@
+N° 1-2025
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con las atribuciones que le confieren el inciso 10) del artículo 102 de la Constitución Política y el inciso ñ) del artículo 12 del Código Electoral, y
+Considerando:
+I.-Que en el informe de Control Interno N° ICI-05-2020 emitido en abril de 2020 por la Auditoría Interna, relativo a la evaluación del cumplimiento de la normativa sobre las cauciones que deben rendir los funcionarios del Tribunal, en el que otras consideraciones se recomendó al Consejo de Directores, girar las instrucciones necesarias a los funcionarios de las instancias correspondientes para reformar el Reglamento sobre la rendición de cauciones del Tribunal Supremo de Elecciones.
+II.-Que la Contaduría Institucional, en conjunto con el Departamento de Recursos Humanos, recomendó al Consejo de Directores, mediante el oficio N° CONT-0334-2024 del 22 de marzo de 2024, autorizar el ajuste y la actualización de las cauciones que deben rendir las personas funcionarias del Tribunal Supremo de Elecciones, de acuerdo con la disposición normativa correspondiente.
+III.-Que el Consejo de Directores, en el artículo segundo, inciso j), de la sesión ordinaria N° 13-2024, celebrada el 2 de abril de 2024, dispuso: "Pase a estudio individual de los señores Directores y las señoras Directoras, para que en un plazo máximo de 15 días hábiles se refieran al respecto".
+IV.-Que la Dirección General de Estrategia Tecnológica y la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos, en oficios N° DGET-131-2024 del 16 de abril de 2024 y N° DGRE-0502-2024 del 22 de abril de 2024, rindieron el informe respectivo.
+V.-Que el Consejo de Directores, en el artículo segundo, inciso a), de la sesión ordinaria N° 17-2024, celebrada el 30 de abril de 2024, dispuso: "En virtud de los argumentos expuestos por la señora Xenia Guerrero Arias, Directora General de Estrategia Tecnológica y el señor Héctor Enrique Fernández Masís, Director General del Registro Electoral y de Financiamiento de Partidos Políticos, se devuelve dicho informe para que sean tomados en consideración y se remita a este Colegiado un nuevo informe, en el plazo de 30 días hábiles".
+VI.-Que la Contaduría Institucional en conjunto con el Departamento de Recursos, por oficio N° CONT-0600-2024 del 8 de agosto de 2024, remitió el informe respectivo al Consejo de Directores con la solicitud de aprobar modificaciones efectuadas al Reglamento sobre la rendición de cauciones del Tribunal Supremo de Elecciones, en atención a las recomendaciones emitidas por la Auditoría Interna.
+VII.-Que el Consejo de Directores, en el artículo segundo, inciso a), de la sesión ordinaria N° 36-2024, celebrada el 27 de agosto de 2024, dispuso: "1- Tener por rendido el informe, cuyas conclusiones y recomendaciones se acogen. 2.- Hágase de conocimiento del Superior con la recomendación de aprobar".
+VIII.-Que el Tribunal Supremo de Elecciones, en el artículo tercero, inciso b), de la sesión ordinaria N° 121-2024, celebrada el 10 de diciembre de 2024, dispuso: "1.- Incorporar al orden del día. 2.- Aprobar conforme lo recomienda el Consejo de Directores".
+DECRETA:
+La siguiente:
+REFORMA AL REGLAMENTO SOBRE LA RENDICIÓN
+DE CAUCIONES EN FAVOR DEL TRIBUNAL
+SUPREMO DE ELECCIONES
+Artículo 1º-Refórmense los artículos 3°, 5°, 11, y 15 del Reglamento sobre la Rendición de Cauciones en favor del Tribunal Supremo de Elecciones, Decreto N° 2-2008 y sus Reformas, para que en lo sucesivo se lean así:
+"(…)
+.Artículo 3º-Forma de rendir la caución. La caución en favor del Tribunal Supremo de Elecciones se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza -de fidelidad ante las entidades o empresas aseguradoras autorizadas.
+(…)
+.Artículo 5º-Momento para rendir la caución. Los funcionarios obligados a rendir caución deberán hacerlo una vez notificados de su designación en el puesto y, como plazo máximo, dentro de los diez días hábiles siguientes a la fecha en que asumen el cargo. Dentro de ese plazo, corresponderá al Departamento de Recursos Humanos informar al Departamento de Contaduría respecto de las personas obligadas a rendir la garantía correspondiente, sin perjuicio de las responsabilidades que corresponden al jerarca y a los titulares subordinados. Una copia del documento de póliza rendida por el funcionario previamente remitida por el Departamento de Contaduría, se agregará al expediente personal o prontuario en custodia del citado departamento.
+(...)
+.Artículo 11.-Revisión del listado de personas funcionarias obligadas a caucionar. En el mes de diciembre de cada año, la Contaduría y el Departamento de Recursos Humanos revisarán el listado de personas funcionarias obligadas a caucionar, para lo cual deberá de considerar, entre otros, los siguientes aspectos:
+a. La existencia de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos, en forma separada o combinada.
+b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
+c. El nivel de la responsabilidad y el monto o bienes a cargo o administrado por la persona funcionaria.
+En caso de que se compruebe que alguna persona funcionaria que no ocupa alguno de los puestos mencionados anteriormente, realiza una o varias de las funciones previstas en el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, esto es, la de recaudar, custodiar o administrar fondos y valores públicos, deberá rendir la respectiva caución en favor del Tribunal Supremo de Elecciones, previo requerimiento escrito por parte de la Contaduría institucional. La Contaduría y el Departamento de Recursos Humanos determinarán los casos en que ello proceda, a partir de las funciones definidas en el correspondiente Manual de Puestos de la Institución.
+(...)
+.Artículo 15.-Competencia. Compete a la Contaduría del Tribunal la administración general de las cauciones que se rindan a favor del Tribunal Supremo de Elecciones, y para ello deberá:
+a. Calcular y mantener actualizados los montos que por concepto de las garantías deben rendir los caucionantes.
+b. Velar por que, en ninguna circunstancia, el monto de la caución que sea determinado para los diferentes niveles sea inferior al monto de la cobertura para este tipo de seguros.
+c. Recibir, custodiar y verificar la efectividad de los documentos que comprueban la presentación de garantías por parte de los caucionantes, estableciendo para ello los controles y medidas de seguridad pertinentes.
+d. Notificar por escrito al caucionante, con un mínimo de veinte días hábiles de anticipación, del momento en que debe renovar o actualizar la caución. La ausencia de recordatorio no exime al caucionante de su deber de renovación de la caución.
+e. Informar al Departamento de Recursos Humanos y al superior jerárquico, cualquier incumplimiento observado en el proceso de presentación de la caución.
+f. Efectuar las acciones correspondientes para la ejecución de la caución cuando la responsabilidad del caucionante haya sido declarada conforme lo establece el ordenamiento jurídico.
+g. Mantener un registro actualizado de los caucionantes que contenga al menos: nombre, puesto, tipo de garantía, número de póliza, grupo al que pertenece, monto desglosado de la prima, monto asegurado, fecha de emisión y vencimiento de la garantía y estado actual en cuanto a su vigencia".
