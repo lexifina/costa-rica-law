@@ -1,7 +1,7 @@
-Artículo 13.- La Junta Directiva se compondrá de seis miembros del
-Colegio que desempeñarán las funciones de Presidente, Vicepresidente,
-Secretario, Tesorero, Fiscal y Vocal. Durarán en sus funciones un año.
-Su elección se hará de acuerdo con el Reglamento respectivo.
-Para ocupar el cargo de Presidente se necesitará ser mayor de treinta
-años y haber recibido el Diploma de Médico Veterinario por lo menos cinco
-años antes de la designación.
+Artículo 13- La Junta Directiva se compondrá de siete miembros del Colegio, que desempeñarán las funciones de presidente, vicepresidente, secretario, tesorero y tres vocales. Durarán en sus funciones dos años. Su elección se hará de acuerdo con el reglamento respectivo. Estos nombramientos deberán asegurar la representación paritaria y alternativa de ambos sexos para que, en la integración del órgano colegiado, la diferencia entre el total de hombres y mujeres no sea superior a uno.
+Las personas elegidas como integrantes de la Junta Directiva durarán dos años en funciones y solo podrán ser reelegidas al mismo cargo de forma continua y únicamente por un período más.
+Conjuntamente con la elección de la Junta Directiva se nombrará una persona fiscal y su suplente. El plazo de nombramiento será por dos años, pudiendo ser reelectos únicamente por un período más. Deberá respetarse la paridad de género entre la persona fiscal propietaria y su suplente. La persona designada como suplente de la persona fiscal propietaria, la sustituirá en sus ausencias temporales o definitivas.
+La persona nombrada como fiscal propietaria velará por la observancia de esta ley y los reglamentos de funcionamiento del Colegio, y participará en las sesiones de Junta Directiva, comisiones o cualquier otro órgano del Colegio, con voz pero sin voto.
+En el caso de renuncia, muerte o impedimento de un directivo para terminar su período de nombramiento, la Junta Directiva nombrará interinamente a una persona colegiada para que asuma la vacante y en el acto convocará a Asamblea General para nombrar a la persona colegiada que continuará en el cargo hasta finalizar el plazo de nombramiento de la persona sustituida.
+Queda facultada, la Junta Directiva, para celebrar sesiones virtuales por cualquier medio tecnológico, en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros del órgano y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación. Para sesionar de forma virtual, la Junta Directiva debe acordarlo por mayoría simple de sus integrantes.
+(Así reformado por el artículo 2° de la ley N° 10623 del 6 de enero del 2025)
