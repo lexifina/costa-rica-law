@@ -1,1 +1,0 @@
-Artículo 9º—Materiales y equipos brindados por la Administración. La Administración Contratante proveerá materiales, equipos o servicios en el sitio de la obra cuando así lo establezca en el respectivo cartel de licitación. No habrá reajuste de precios para materiales o equipos que supla la Administración Contratante.

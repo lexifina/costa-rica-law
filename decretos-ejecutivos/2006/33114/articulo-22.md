@@ -1,1 +1,0 @@
-Artículo 22.—Procedimiento de reajuste de precios para la parte contratada en colones. La parte del contrato facturada en colones será reajustada conforme el procedimiento que se establece en los artículos 18, 19 y siguientes de este Reglamento.
