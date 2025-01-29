@@ -1,2 +1,2 @@
-ARTÍCULO 42.- Incumplimiento de deberes agravado
-La pena de inhabilitación por el delito de incumplimiento de deberes será de dos a seis años, si el incumplimiento se produce en una situación de riesgo para la integridad personal o de necesidad económica de la mujer víctima.
+Artículo 42- Se impondrá pena de prisión de uno a tres años a quien por cualquier medio golpee, maltrate física, psicológica o emocionalmente a un descendiente, ascendiente, pariente colateral consanguíneo, por afinidad o adopción hasta el tercer grado inclusive, dependiente económico, de la mujer con la que mantiene o mantuvo una relación de matrimonio, de unión de hecho o alguna relación sentimental, de acuerdo con el artículo 2 de la presente ley.
+(Así adicionado por el artículo 5° de la Ley contra la Violencia Vicaria, N° 10634 del 29 de enero del 2025)
