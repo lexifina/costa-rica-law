@@ -1,0 +1,2 @@
+Artículo 9º-Después de 5 (cinco) ausencias injustificadas, el atleta podrá ser excluido del programa deportivo competitivo y/o recreativo matriculado, y no podrá integrar nuevamente dicho programa, por un período de un año, a partir de la fecha de su exclusión.
+El atleta, no obstante, lo anterior, podrá integrar cualquier otra disciplina deportiva, durante el período de exclusión de la disciplina referida en el párrafo anterior.

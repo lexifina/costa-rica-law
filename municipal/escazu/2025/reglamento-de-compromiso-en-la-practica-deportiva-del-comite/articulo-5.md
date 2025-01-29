@@ -1,0 +1,1 @@
+Artículo 5º-En el caso de los programas recreativos, para las personas atletas es obligatorio asistir al ochenta por ciento de las reservaciones realizadas. En caso de no poder asistir a la clase, actividad u otro, es obligatorio cancelarla con al menos seis horas de anticipación. En caso de incumplimiento de este artículo, se tipificará como una falta leve.

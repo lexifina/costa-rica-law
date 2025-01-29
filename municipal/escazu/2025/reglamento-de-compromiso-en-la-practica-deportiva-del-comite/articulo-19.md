@@ -1,0 +1,1 @@
+Artículo 19.-Para los efectos pertinentes del debido proceso, la comisión de padres debe seguir los canales de comunicación y jerárquicos, establecidos por el CCDRE, en el artículo 16 del presente reglamento.

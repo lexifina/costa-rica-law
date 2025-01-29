@@ -1,0 +1,1 @@
+Artículo 7º-Los atletas, sus padres o representantes legales de los programas competitivos deberán justificar las ausencias y/o tardías de forma escrita ante el entrenador o asistente, en un plazo máximo de 3 días hábiles, posterior a la ausencia o llegada tardía se considerará ausencia injustificada, según corresponda.

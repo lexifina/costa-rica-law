@@ -1,0 +1,1 @@
+Artículo 8º-En caso de que la persona atleta, sus padres o representante legal determine que no desea o no podrá seguir formando parte del programa deportivo y/o recreativo matriculado, deberá notificarlo por escrito, en formato físico o electrónico (correo electrónico o Whatsapp) al entrenador o instructor, con copia al gestor a cargo de la disciplina.

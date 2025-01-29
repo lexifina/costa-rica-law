@@ -1,0 +1,1 @@
+Artículo 31. -La notificación de una sanción, independientemente de su categoría, deberá ser notificada por los medios establecidos por la Ley General de la Administración Pública y la Ley de Notificaciones Judiciales según corresponda.
