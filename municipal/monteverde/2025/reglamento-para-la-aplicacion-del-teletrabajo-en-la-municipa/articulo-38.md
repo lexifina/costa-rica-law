@@ -1,0 +1,1 @@
+Artículo 38.-El teletrabajador debe firmar un contrato de trabajo según corresponda a su situación laboral, donde se especifican las condiciones del programa de teletrabajo. En este reglamento, como anexo del mismo, se incluye una propuesta de contrato de teletrabajo.

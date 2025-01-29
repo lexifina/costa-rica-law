@@ -1,0 +1,1 @@
+Artículo 12.-La permanencia de un colaborador en el programa de teletrabajo, estará sujeta al cumplimiento de las condiciones objetivas que justificaron el ingreso, al cumplimiento de las obligaciones, responsabilidades, metas y objetivos y a las disposiciones reglamentarias y legales aplicables.

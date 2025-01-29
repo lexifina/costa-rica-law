@@ -1,0 +1,1 @@
+Artículo 27.-La Municipalidad de Monteverde brindará el soporte técnico necesario a los sistemas informáticos y equipo propiedad de la institución. En el caso de los trabajadores que utilicen su propio equipo, la Municipalidad les comunicará las características legales y técnicas que este debe cumplir.

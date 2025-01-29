@@ -1,0 +1,1 @@
+Artículo 36.-A efecto de llevar el control de disponibilidad del teletrabajador este deberá definir en coordinación con la respectiva jefatura el momento del día en que se disfrutaran los tiempos de alimentación, con ajuste a los limites señalados en los instrumentos de empleo público municipales.

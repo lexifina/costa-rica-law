@@ -1,0 +1,1 @@
+Artículo 52.-Para hacer efectiva la modalidad de teletrabajo, la Oficina de Recursos Humanos confeccionará el respectivo contrato que indique esa condición, sustentada en la resolución del titular de la Alcaldía.

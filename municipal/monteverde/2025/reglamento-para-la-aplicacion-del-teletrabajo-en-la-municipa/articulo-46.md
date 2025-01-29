@@ -1,0 +1,1 @@
+Artículo 46.-En caso de finalizarse el contrato de teletrabajo, el teletrabajador deberá devolver en un plazo no mayor a 1 día hábil los activos y herramientas que le fueron facilitados para el desempeño de sus funciones.

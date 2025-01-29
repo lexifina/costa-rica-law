@@ -1,0 +1,1 @@
+Artículo 24.-La decisión del Alcalde Municipal, deberá emitirse por escrito, mediante acto administrativo formal, previo criterio de la Comisión Técnica señalada por el artículo 07 de este reglamento, el cual será incluido como parte del motivo del acto.

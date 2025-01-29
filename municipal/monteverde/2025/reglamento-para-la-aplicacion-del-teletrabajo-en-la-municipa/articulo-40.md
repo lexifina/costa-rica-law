@@ -1,0 +1,1 @@
+Artículo 40 -Todo trabajador que desee ingresar al programa de teletrabajo, se le entregará el detalle de características físicas que debe tener su espacio de trabajo, y éste, en su solicitud formal, deberá declarar bajo juramento que cumple las mismas y suscribirá un consentimiento de fiscalización sobre el eventual control que pueda ejercer el patrono.

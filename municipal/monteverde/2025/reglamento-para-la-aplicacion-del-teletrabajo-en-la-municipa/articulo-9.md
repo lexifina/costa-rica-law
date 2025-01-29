@@ -1,0 +1,5 @@
+Artículo 9º-La cantidad máxima de días teletrabajables será recomendada al alcalde Municipal por parte de la comisión citada en el artículo 07 de este reglamento, teniendo en cuenta lo siguiente:
+a) Necesidades institucionales relacionadas con la atención de usuarios internos y externos, siendo que el elemento de mayor trascendencia con respecto a este componente es garantizar al usuario físico una atención inmediata, según sea el área de trabajo.
+b) La continuidad y eficiencia del servicio público.
+c) Naturaleza y funciones del puesto. En este componente se deberá propiciar que los trabajadores incluidos en el programa de teletrabajo sean aquellos cuya actividad sustancial está basada en la producción intelectual de considerable complejidad, propia del ejercicio de actividades profesionales y/o técnicas. El análisis requerido deberá quedar documentado formalmente y estará a cargo de la comisión señalada en el artículo 07 de este reglamento.
+d) Cumplimiento de los demás requisitos legales y reglamentarios aplicables, incluidos los relativos a salud ocupacional, ergonomía y cualquier otro aplicable al efecto.

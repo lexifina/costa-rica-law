@@ -1,0 +1,1 @@
+Artículo 39 -El colaborador que aplique al teletrabajo modalidad domiciliar, deberá acondicionar un espacio físico en su casa de habitación con las características de ergonomía, seguridad e higiene, recomendadas por el área de Salud Ocupacional de la Municipalidad; además deberá permitir el acceso para futuras inspecciones y cumplir con las mejoras solicitadas.
