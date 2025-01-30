@@ -1,4 +1,4 @@
-Artículo 2º—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Servicio Fitosanitario del Estado.
+Artículo 2º-Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Servicio Fitosanitario del Estado.
 Código | Descripción | Monto
 1 | Certificados del Servicio Fitosanitario del Estado:
 1.a | De Exportación o Reexportación de productos y subproductos vegetales | ¢ 2 990,00
@@ -20,21 +20,21 @@ Código | Descripción | Monto
 4 | Acreditación de Agencias Certificadoras:
 4.a | Acreditación de Agencias Certificadoras | ¢ 420 700,00
 5 | Por exportación de:
-5.a | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor. | ¢ 12,00
-5.b | Por cada caja, saco, bulto con muestras para fines científicos a exportar | ¢ 675,00
-5.c (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte. (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | ¢ 13,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
-5.d | Por cada caja, saco, bulto con muestras sin fines de lucro a exportar | ¢ 900,00
-5.e | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | ¢ 12 000,00
-5.f | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte | ¢ 130,00
+5.a | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor. | ¢ 7,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.b | Por cada caja, saco, bulto con muestras para fines científicos a exportar | ¢ 381,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.c (Derogado el código anterior por el artículo 4 del decreto ejecutivo N° 44902 del 30 de enero del 2025) | (Derogado el por el artículo 4 del decreto ejecutivo N° 44902 del 30 de enero del 2025) | ¢ (Derogado el monto anterior por el artículo 4 del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.d | Por cada caja, saco, bulto con muestras sin fines de lucro a exportar | ¢ 507,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.e | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | ¢ 6.765,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.f | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte | ¢ 74,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 5.g. | Exportador Ocasional de:
-5.g.1 | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor | ¢ 120,00
-5.g.2 | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | ¢ 66 075,00
+5.g.1 | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor | ¢ 67,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.g.2 | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | ¢ 37.248,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 5.h. | Inspección In situ para vegetales de exportación: por cada visita a:
-5.h.1 | Inscritos en Registro de Exportadores | ¢ 54 050,00
-5.h.2 | No Inscritos en Registro de Exportadores | ¢ 90 020,00
+5.h.1 | Inscritos en Registro de Exportadores | ¢ 30.469,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.h.2 | No Inscritos en Registro de Exportadores | ¢ 50. 747,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 5.i. | Para verificación de tratamiento: por cada visita Se exceptúan aquellos envíos de poca cantidad como muestras para apertura de mercados o sin valor comercial.
-5.i.1 | Inscritos en Registro Exportadores | ¢ 54 050,00
-5.i.2 | No Inscritos en el Registro Exportadores | ¢ 90 020,00
+5.i.1 | Inscritos en Registro Exportadores | ¢ 30.469,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+5.i.2 | No Inscritos en el Registro Exportadores | ¢ 50.747,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 6 | Por inspección de: |
 6.a | Lotes para autorizar siembra de organismos genéticamente modificados | ¢ 54 050,00
 6.b (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | De unidad de transporte (contenedor, camión, furgón, carreta), que transporte insumos agrícolas, producto y subproducto de origen vegetal en importación o tránsito, o inspección de plantas o productos vegetales. (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | ¢ 10 800,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
@@ -45,9 +45,9 @@ Código | Descripción | Monto
 6.d.2 | Por cada lancha pluvial de transporte de mercadería, personas y equipajes | ¢ 10 450,00
 7 | Sello o marchamo:
 7.a | Por cada sello o marchamo a medios de transporte de almacenamiento de empaque o embalaje, conteniendo productos vegetales | ¢ 2 990,00
-8 | Por cada dictamen de ausencia de plagas o condición fitosanitaria en cada finca, invernadero, plantas de empaque o embarques, en productos vegetales (plantas, productos y subproductos) para la exportación (se exceptúan aquellos embarques de poca cantidad de material así como aquellas muestras sin valor comercial, o con fines de apertura de mercado):
-8.a | Inscritos en Registro Exportadores | ¢ 54 050,00
-8.b | No Inscritos en el Registro Exportadores | ¢ 90 020,00
+8 | Por cada dictamen de ausencia de plagas o condición fitosanitaria en cada finca, invernadero, plantas de empaque o embarques, en productos vegetales (plantas, productos y subproductos) para la exportación (se exceptúan aquellos embarques de poca cantidad de material, así como aquellas muestras sin valor comercial, o con fines de apertura de mercado):
+8.a | Inscritos en Registro Exportadores | ¢ 30.469,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+8.b | No Inscritos en el Registro Exportadores | ¢ 50.747,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 9 | Por cada análisis de laboratorio para el diagnóstico de plagas en vegetales:
 9.a | Utilizando únicamente microscopio | ¢ 7 500,00
 9.b | Utilizando únicamente microscopio con recomendación técnica | ¢ 15 000,00
@@ -88,6 +88,11 @@ Código | Descripción | Monto
 11.e | Lectura en ultravioleta visible | ¢ 20 900,00
 11.f | Por implementación de un método de análisis para la determinación de residuos de plaguicidas en productos vegetales, agua y suelo (no incluye validación del método).Por ingrediente activo/cultivo o por ingrediente activo/sustrato. | ¢ 1 358 500,00
 | Para los efectos de los servicios establecidos en los incisos del 11.a al 11.e, aplicarán descuentos de acuerdo con la cantidad de muestras presentadas en forma simultánea de la siguiente manera: De 6 a 10 muestras 5% De 11 en adelante 10% Para los efectos del inciso 11.f por cada cultivo o sustrato adicional para los que se implemente el método de análisis se cobrará un recargo de ¢290 000,00
+11.1 (Así adicionado el código anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | Análisis químicos de residuos de plaguicidas en productos de origen vegetal y suelos, orgánicos o en período de transición (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+11.1.a (Así adicionado el código anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | Preparación de la muestra en productos de origen vegetal y suelos, orgánicos o en período de transición. (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | ¢ 29.596,00 (Así adicionado el monto anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+11.1.b (Así adicionado el código anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | Lectura utilizando cromatografía de gases en productos de origen vegetal y suelos, orgánicos o en período de transición (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | ¢ 23.219,00 (Así adicionado el monto anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+11.1.c (Así adicionado el código anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | Lectura utilizando cromatografía líquida en productos de origen vegetal y suelos, orgánicos o en período de transición (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) | ¢ 27.411,00 (Así adicionado el monto anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
+Para los efectos de los servicios establecidos en los códigos 11.1.a, 11.1.b y 11.1.c, aplicarán descuentos de acuerdo con la cantidad de muestras presentadas en forma simultánea de la siguiente manera: (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) De 6 a 10 muestras 5% (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025) De 11 en adelante 10% (Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44902 del 30 de enero del 2025)
 12 | Entrenamiento o asistencia técnica impartida por funcionarios del SFE
 12.a | Entrenamiento en servicio o asistencia técnica a extranjeros en Costa Rica (por día por persona) | ¢ 62 700,00
 12.b | Entrenamiento en servicio o asistencia técnica impartida por funcionario del SFE en el exterior (por día). Esta tarifa no incluye los costos del transporte y los viáticos del funcionario(s), que deben ser asumidos por el interesado. | ¢ 83 600,00
@@ -128,4 +133,5 @@ Código | Descripción | Monto
 20.e | Por certificación legal | ¢ 5 225,00
 20.f | Por fotocopia (Cada página) | ¢ 47,00
 21 | Otros servicios técnicos de campo, laboratorios, venta de productos, materiales y suministros no contemplados en otros rubros (considerando tarifas establecidas por los Colegios Profesionales afines o según valor en el mercado). |
+| | |
 (Así reformado por el artículo 1° del decreto ejecutivo N° 35753 del 11 de enero del 2010)
