@@ -15,3 +15,4 @@ Reforma Fijación de tarifas de los servicios del Ministerio de Agricultura y Ga
 | --- | --- | --- |
 | 1 | 2010-02-01 | la propia norma |
 | 2 | 2010-11-26 | Decreto Ejecutivo 36341 (2010-11-26) |
+| 3 | 2025-01-30 | Decreto Ejecutivo 44902 (2025-01-30) |
