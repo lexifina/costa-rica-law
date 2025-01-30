@@ -1,7 +1,6 @@
 Sección III
 Deberes de la Junta Administrativa
-Artículo 16°. Deberes
-Además de los establecidos en el presente Reglamento, la Junta Administrativa tendrá los siguientes deberes:
+Artículo 16°.Deberes. Además de los establecidos en el presente Reglamento, la Junta Administrativa tendrá los siguientes deberes:
 1.Ejercer la dirección y el control estratégico del FGA y FPC.
 2.Proponer para aprobación del Consejo Directivo, el Plan Estratégico del FGA y el FPC.
 3.Conocer y examinar los estados e informes financieros y actuariales del FGA y FPC.
@@ -28,6 +27,7 @@ Además de los establecidos en el presente Reglamento, la Junta Administrativa t
 24.Velar porque las finanzas y la gestión del FGA y FPC sean sanas y se administren con criterios de optimización financiera y servicio al cliente, con absoluta independencia de otros recursos del ICE.
 25.Considerar aquellas solicitudes de otorgamiento de beneficios para su estudio y resolución que presenten los trabajadores y que ameriten un manejo especialísimo de excepción debidamente motivado y que por sus características particulares, únicas, extremas, complejas y/o de emergencia, pueda requerir un tratamiento no previsto en estas disposiciones, siempre y cuando no contradiga lo ya regulado.
 26.Aprobar, cuando corresponda, el requerimiento de la contratación de servicios profesionales necesarios para el normal funcionamiento de la operación del Fondo. Posteriormente se iniciará la contratación conforme lo dispone el régimen de contratación administrativa y la normativa asociada con su gestión.
-27.Sesionar ordinariamente y de forma independiente al menos una vez al mes tanto para el FGA como para el FPC. Podrá sesionar extraordinariamente las veces que considere pertinentes, con el fin de atender las exigencias propias de cada Fondo. Los miembros titulares están obligados a asistir a las sesiones, salvo causa justificada.
+27. Sesionar de forma presencial o virtual, ordinariamente y de forma independiente al menos una vez al mes tanto para el FGA como para el FPC. Podrá sesionar extraordinariamente, de forma presencial o virtual, las veces que considere pertinentes, con el fin de atender las exigencias propias de cada Fondo de naturaleza especial o urgente. Los miembros titulares están obligados a asistir presencial o virtualmente a las sesiones, según lo que indique la convocatoria, salvo causa justificada.
+(Así reformado el inciso anterior en sesión N° 6669 del 30 de enero de 2025)
 28.Dictar los acuerdos que considere convenientes y tomar las medidas necesarias para una adecuada administración y el logro de los objetivos del FGA y FPC.
 29.Conocer los recursos de apelación que se interpongan contra las resoluciones de la Administración del Fondo y agotar la vía administrativa.

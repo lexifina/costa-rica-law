@@ -15,3 +15,4 @@ Reglamento para la operación del fondo de garantías y ahorro y del fondo de pe
 | --- | --- | --- |
 | 1 | 2023-06-14 | la propia norma |
 | 2 | 2024-10-15 | Reglamento 6652 (2024-10-15) |
+| 3 | 2025-01-30 | Reglamento 6669 (2025-01-30) |

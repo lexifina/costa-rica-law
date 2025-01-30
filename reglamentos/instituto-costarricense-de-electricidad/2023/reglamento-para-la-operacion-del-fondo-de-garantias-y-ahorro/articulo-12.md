@@ -1,2 +1,2 @@
-Artículo 12°. De las votaciones.
-Las decisiones se tomarán por mayoría simple de los miembros asistentes. En caso de empate en la votación, se aplicará lo dispuesto en el artículo 49 inciso f) de la Ley General de Administración Pública, en lo referente al voto de calidad que ostenta el Presidente de la Junta Administrativa.
+Artículo 12.-De las votaciones. Las decisiones se tomarán por mayoría simple de los miembros asistentes presencial o virtualmente, según haya sido convocada la sesión. En caso de empate en la votación, se aplicará lo dispuesto en el artículo 49 inciso f) de la Ley General de Administración Pública, en lo referente al voto de calidad que ostenta el Presidente de la Junta Administrativa.
+(Así reformado en sesión N° 6669 del 30 de enero de 2025)
