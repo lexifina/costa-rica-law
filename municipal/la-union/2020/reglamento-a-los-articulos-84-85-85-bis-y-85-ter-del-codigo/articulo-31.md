@@ -1,1 +1,1 @@
-Artículo 31.-Colocación de señales táctiles. Para garantizar el recorrido urbano accesible, especialmente para las personas con una reducción visual parcial o total, los propietarios de bienes inmuebles deberán colocar losetas de concreto táctil según lo establecido en la norma INTE 03-01-17-08 Ed2, emitida por el Instituto de Normas Técnicas de Costa Rica (INTECO).
+Artículo 31.-Colocación de señales táctiles. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

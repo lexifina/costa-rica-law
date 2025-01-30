@@ -1,1 +1,1 @@
-Artículo 23.-Pendiente. La pendiente en el sentido transversal de la acera, tendrá como máximo un tres por ciento (3%) y como mínimo el dos por ciento (2%).
+Artículo 23.-Pendiente. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

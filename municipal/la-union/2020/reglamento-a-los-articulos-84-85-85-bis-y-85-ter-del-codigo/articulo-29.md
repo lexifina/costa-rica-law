@@ -1,1 +1,1 @@
-Artículo 29.-Franja verde. Las franjas verdes sólo se permitirán en aceras con un ancho igual o superior a dos metros (2 m). Para el diseño y dimensionamiento deberá consultarse a la Dirección de Infraestructura y Servicios.
+Artículo 29.-Franja verde. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

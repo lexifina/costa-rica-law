@@ -1,1 +1,1 @@
-Artículo 30.-Arco de esquinas. El diámetro para conformar el arco de las esquinas deberá tener la menor longitud posible.
+Artículo 30.-Arco de esquinas. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

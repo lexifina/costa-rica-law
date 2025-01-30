@@ -1,1 +1,1 @@
-Artículo 33.-Impedimento económico. Cuando el propietario y/o poseedor carezca de recursos económicos suficientes para realizar la construcción y/o mantenimiento de aceras, deberá presentar a la Municipalidad un estudio socioeconómico que así lo respalde. Dicho estudio deberá ser validado por el Instituto Mixto de Ayuda Social (IMAS).
+Artículo 33.-Impedimento económico. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

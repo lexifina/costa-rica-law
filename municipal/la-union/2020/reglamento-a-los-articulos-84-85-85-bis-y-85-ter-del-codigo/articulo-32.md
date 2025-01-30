@@ -1,1 +1,1 @@
-Artículo 32.-Costo de construcción de un metro cuadrado de acera. El valor de construcción de un metro cuadrado (m2) de acera será determinado anualmente por la Dirección de Infraestructura y Servicios, según el tipo de material requerido, entre otros, y publicado en el Diario Oficial La Gaceta.
+Artículo 32.-Costo de construcción de un metro cuadrado de acera. (Derogado por el artículo 78 del Reglamento de Movilidad Peatonal del Cantón de La Unión aprobado mediante sesión ordinaria N°059-2025 del 30 de enero de 2025)

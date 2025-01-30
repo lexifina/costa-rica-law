@@ -14,3 +14,4 @@ Reglamento a los artículos 84, 85, 85 BIS y 85 TER del Código Municipal para e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-01 | la propia norma |
+| 2 | 2025-01-30 | Reglamento municipal 59 (2025-01-30) |
