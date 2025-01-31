@@ -1,0 +1,3 @@
+Artículo 52. Lineamientos para labores de auditoría
+El auditor interno es el responsable de establecer lineamientos relacionados con la identificación, análisis, evaluación y registro de la información, al momento de ejecutar las labores de auditoría por las personas trabajadoras a su cargo; así como también, sobre la custodia y control de acceso a los registros del trabajo.
+Los lineamientos para ejecutar estudios de auditoría, están contenidos en el Manual de la Auditoría Interna de BCR Corredora de Seguros S.A., donde se detallan las fases en que se desarrolla un estudio que son: planificación, examen, comunicación de resultados y seguimiento de disposiciones o recomendaciones.

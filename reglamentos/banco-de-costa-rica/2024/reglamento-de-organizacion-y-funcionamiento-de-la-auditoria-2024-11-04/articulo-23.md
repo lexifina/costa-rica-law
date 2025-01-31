@@ -1,0 +1,2 @@
+Artículo 23. Responsabilidades de rendición de cuentas
+El auditor interno es responsable de presentar para conocimiento del Comité Corporativo de Auditoría y de la Junta directiva de la sociedad, informes periódicos de avance, e informes de cierre anual, referidos a su plan anual de labores, plan operativo y plan estratégico; asimismo, debe presentar el informe anual de labores establecido en el artículo 22, inciso g de la Ley General de Control Interno n°8292.

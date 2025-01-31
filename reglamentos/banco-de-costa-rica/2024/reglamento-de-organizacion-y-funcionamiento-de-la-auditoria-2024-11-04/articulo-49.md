@@ -1,0 +1,2 @@
+Artículo 49. Servicios de advertencia
+Los servicios de advertencia consisten en alertas que, con el debido cuidado y tono constructivo, brinda la auditoría interna por escrito a la administración activa, sobre posibles consecuencias de su proceder, cuando sean de su conocimiento, así como sobre conductas o decisiones que podrían contravenir el ordenamiento jurídico, técnico y sanas prácticas administrativas.

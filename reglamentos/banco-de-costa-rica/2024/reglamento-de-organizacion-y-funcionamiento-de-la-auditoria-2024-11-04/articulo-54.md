@@ -1,0 +1,5 @@
+Artículo 54. De los lineamientos para supervisión de labores de auditoría
+La auditoría interna debe establecer lineamientos y herramientas que faciliten la supervisión, la identificación oportuna de situaciones que se deben de atender y establecer los cursos de corrección que sean necesarios.
+El auditor interno y demás personas trabajadoras de la auditoría interna, deben asegurarse de que las comunicaciones del trabajo sean precisas, objetivas, claras, concisas, constructivas y oportunas.
+Los análisis efectuados, deben estar respaldados debidamente en papeles de trabajo, que en su estructuración y contenido cumplan con los lineamientos establecidos en el Manual de la Auditoría Interna de BCR Corredora de Seguros S.A., como soporte principal de las observaciones y recomendaciones emitidas.
+Las observaciones, conclusiones y recomendaciones de la auditoría se deben respaldar con información suficiente, útil y competente, las recomendaciones se deben alinear con los principios de eficacia, eficiencia, economía y calidad, sobre la gestión del control, para la contribución al fortalecimiento de la gestión evaluada.

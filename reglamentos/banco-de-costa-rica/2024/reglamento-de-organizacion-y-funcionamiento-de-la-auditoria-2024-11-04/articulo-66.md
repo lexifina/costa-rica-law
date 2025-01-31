@@ -1,0 +1,5 @@
+Capítulo VI. De las denuncias
+Artículo 66. Sobre el trámite de denuncias
+La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos por parte de las personas trabajadoras de BCR Corredora de Seguros S.A., según lo regulado por la Ley contra la corrupción y el enriquecimiento ilícito en la función pública N° 8422.
+En el Reglamento para el trámite de las denuncias presentadas ante la Auditoría Interna de BCR Corredora de Seguros S.A., se regula la forma como las personas deben presentar las denuncias ante la Auditoría Interna de BCR Corredora de Seguros S.A., los requisitos que debe reunir una denuncia y el procedimiento que empleará la Auditoría Interna para valorar si es procedente verificar los hechos que se denuncian.
+En el Procedimiento para el trámite de denuncias presentadas ante la Auditoría Interna de BCR Corredora de Seguros S.A., se definen los lineamientos internos que personas trabajadoras de la auditoría interna que participan en el proceso del trámite de denuncias deben seguir para la adecuada atención de estas.

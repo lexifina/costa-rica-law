@@ -1,0 +1,2 @@
+Artículo 65. Comunicación
+Las relaciones de hechos, con las salvedades dispuestas en la Ley General de Control Interno n°8292, se dirigen a la persona competente para adoptar las medidas respectivas y se acompañan del respectivo expediente electrónico, el cual se debe enviar en estricto orden cronológico y debidamente foliado, con un índice de la prueba que la soporta. a identidad del denunciante y la denuncia por él suscrita se debe omitir del expediente en cuestión.

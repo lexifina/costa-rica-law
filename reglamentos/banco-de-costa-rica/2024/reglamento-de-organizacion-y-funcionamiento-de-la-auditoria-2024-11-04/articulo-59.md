@@ -1,0 +1,4 @@
+Artículo 59. De los informes dirigidos al jerarca
+Para informes dirigidos a la Junta Directiva de la sociedad, esta tiene un plazo de treinta días hábiles improrrogables, contados a partir de la fecha de recibido del informe, para que se ordene al titular subordinado que corresponda la implantación de las recomendaciones tal como lo establece el la Ley General de Control Interno n°8292.
+Si la Junta Directiva, discrepa de las recomendaciones de la auditoría interna, debe seguir el trámite establecido en el artículo 38 de la Ley General de Control Interno y comunicar lo correspondiente a la auditoría interna, indicando el nombre de los responsables y el plazo estimado de ejecución.
+Cuando la Junta Directiva, ordene soluciones distintas de las emitidas por la auditoría interna, esta última debe valorar la procedencia de seguir el trámite establecido en el artículo 39 de la Ley General de Control Interno.

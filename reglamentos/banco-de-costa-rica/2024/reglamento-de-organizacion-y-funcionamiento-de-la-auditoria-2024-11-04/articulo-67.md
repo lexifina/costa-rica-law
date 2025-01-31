@@ -1,0 +1,4 @@
+Capítulo VII. Del seguimiento de recomendaciones
+Artículo 67. Del seguimiento a las recomendaciones de auditoría
+El auditor interno debe implantar un programa para dar seguimiento a los informes emitidos por la auditoría interna, por los auditores externos y por las entidades fiscalizadoras que la ley establece. La vigilancia del cumplimiento de los plazos para que los titulares subordinados implanten las recomendaciones y la oportuna verificación de esas acciones, son elementos de dicho programa.
+El auditor interno es el responsable de que esta actividad de seguimiento se lleve a cabo en forma permanente, tal y como se establece en la norma 206 de las Normas Generales de auditoría para el sector público y la norma 2.11 de las Normas para el ejercicio de la Auditoría Interna en el sector público, para lo cual debe tomar en cuenta además, el seguimiento de los resultados de los trabajos preventivos según corresponda.

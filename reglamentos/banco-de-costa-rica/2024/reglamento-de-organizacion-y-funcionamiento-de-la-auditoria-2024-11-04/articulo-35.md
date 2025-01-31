@@ -1,0 +1,4 @@
+Artículo 35. Relaciones con otros profesionales o técnicos
+La Auditoría Interna puede incorporar entre sus recursos, el uso de personas profesionales o técnicas de diferentes disciplinas -personas trabajadoras o no de la subsidiaria- para que lleven a cabo labores de su especialidad, en apoyo a labores de auditoría interna que requieran de conocimientos, técnicas u otras competencias especializadas adicionales.
+Para las colaboraciones y asesorías que pueda requerir la auditoría interna, de personas trabajadoras de la sociedad, el Auditor Interno puede ejercer la potestad que establece el artículo 33 de la Ley General de Control Interno.
+En caso de contratación de servicios profesionales externos, debe observarse lo dispuesto en los Lineamientos sobre gestiones que involucran a la Auditoría Interna presentadas ante la Contraloría General de la República, así como los procedimientos de contratación pública aplicables.

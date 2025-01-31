@@ -1,0 +1,2 @@
+Artículo 68. Del programa de seguimiento a las recomendaciones
+Según se establece en las Normas para el ejercicio de la Auditoría Interna en el Sector Público, el programa de seguimiento debe contemplar entre otros aspectos, la relevancia de las observaciones y recomendaciones informadas, la complejidad y condiciones propias de las acciones pertinentes, los efectos e impactos de la implementación de la acción y la oportunidad del seguimiento.
