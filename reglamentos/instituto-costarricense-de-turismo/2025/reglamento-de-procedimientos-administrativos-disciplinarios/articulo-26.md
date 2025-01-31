@@ -1,0 +1,3 @@
+Artículo 26. De la custodia del expediente administrativo.
+a. Durante el transcurso del procedimiento, el expediente administrativo deberá estar en custodia del órgano instructor. De ser colegiado deberá estar en resguardo del presidente del órgano. No obstante, en todo momento, se deberá dar acceso a las partes y sus representantes debidamente acreditados, en el horario institucional, sea de lunes a viernes entre las ocho y las dieciséis horas.
+b. El costo de las copias y certificaciones del expediente, en términos del ordinal 272 de la LGAP, correrán por cuenta del solicitante, incluyendo el uso de respaldos de tipo electrónico.

@@ -1,0 +1,6 @@
+SECCIÓN VIII
+DE LA COMPARECENCE
+Artículo 49. Comparecencias virtuales.
+a. Con fundamento en el artículo 41 de la Constitución Política, artículo 50 inciso a) y 229 de la Ley General de la Administración Pública, artículos 2.2., 2.7, 24.4, 25.1 3.4, 41.4.5 y 7 del Código Procesal Civil, así como en los principios de justicia pronta y cumplida y continuidad del servicio público, se podrá efectuar comparecencias virtuales.
+b. Para la realización de las comparecencias virtuales, el Departamento de Tecnología de la Información -TI- deberá técnicamente señalar la plataforma o plataformas que brindan mayor seguridad y confidencialidad de la información. Además, deberá dotar a la institución de las licencias necesarias para que los funcionarios que integren los órganos directores, cuenten con las herramientas necesarias, así como la preparación adecuada para el correcto uso de dichas plataformas, brindando el soporte necesario que se requiera durante la celebración de la comparecencia virtual.
+c. Los testigos deberán apersonarse de forma presencial a la comparecencia en fecha, hora y lugar señalados, sin perjuicio de ser admitidas y evacuadas por el órgano director, de forma virtual, cuando se demuestre la integralidad de la prueba a evacuar.

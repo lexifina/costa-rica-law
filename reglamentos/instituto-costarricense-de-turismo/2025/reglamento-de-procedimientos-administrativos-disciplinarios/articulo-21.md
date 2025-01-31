@@ -1,0 +1,2 @@
+Artículo 21. Abstención y recusación.
+Los motivos de impedimento vincularán tanto a los miembros del órgano decisor, director, quienes agoten la vía administrativa, como a todos los asesores que hayan participado en el procedimiento. Las disposiciones ligadas a la abstención y recusación serán resueltas de acuerdo con lo estatuido en la LGAP, sin perjuicio de la normativa vinculada con otros preceptos normativos.

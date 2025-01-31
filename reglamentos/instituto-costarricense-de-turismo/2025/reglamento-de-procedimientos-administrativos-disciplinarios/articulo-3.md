@@ -1,0 +1,3 @@
+Artículo 3. Ámbito de aplicación.
+Este Reglamento será aplicable a todos los procedimientos administrativos disciplinarios y de responsabilidad civil de los servidores del ICT y sus órganos adscritos, en el ejercicio de sus potestades constitucionales y legales. En su tramitación, se observarán las normas del procedimiento ordinario estatuidas en el libro segundo de la LGAP y normas supletorias, en estricto apego con el debido proceso y con el derecho de defensa. Para efectos de procedimientos de despido se aplicará, además, lo regulado en los artículos 20, 21 y 22 de la LMEP.
+Las IP, que en razón de su competencia realice la Auditoría Interna se exceptúan del presente reglamento.

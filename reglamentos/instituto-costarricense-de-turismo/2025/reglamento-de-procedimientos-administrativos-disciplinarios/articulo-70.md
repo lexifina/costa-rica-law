@@ -1,0 +1,2 @@
+Artículo 70. Grados de responsabilidad
+En la eventualidad de que en el hecho irregular o ilícito hubiera participado más de un servidor, la responsabilidad civil se distribuirá entre ellos de acuerdo con su jerarquía, en consonancia con el artículo 213 de la LGAP; y el grado de participación de cada uno de los servidores públicos causantes del daño, según lo estipulado en el artículo 205 de la LGAP.

@@ -1,0 +1,4 @@
+Artículo 5. Actuaciones de las diferentes oficinas y dependencias.
+El órgano decisor, director y, el funcionario que desarrolla la investigación preliminar, podrán requerir, dentro de sus potestades, informes, pericias, o actuaciones de cualquiera de los funcionarios del ICT y de sus órganos adscritos, quienes deberán cumplir con lo solicitado dentro del plazo establecido por el solicitante.
+No cumplir con lo ordenado, podrá originar falta en el cumplimiento del servicio, lo que podría implicar responsabilidad disciplinaria, civil y hasta penal, según sea el caso.
+El requerimiento de información no debe ser justificado por parte del órgano de investigación, basta con la petición, en razón de las facultades y deberes de autoridad judicial que le asisten, siempre y cuando el requerimiento tenga relevancia para los hechos que se investigan.

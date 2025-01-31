@@ -1,0 +1,2 @@
+Artículo 65. Efectos devolutivos.
+Ningún recurso contra los actos dictados dentro del procedimiento producirá el efecto suspensivo contra lo impugnado, sin perjuicio de lo dispuesto en el artículo 148 de la LGAP. De acuerdo al artículo 20 de la LMEP, el acto final que decrete el despido de un servidor o servidora se suspenderá hasta la notificación del acto que agota la vía administrativa, siempre y cuando la parte haya presentado los recursos procedentes dentro del plazo indicado por este Reglamento.

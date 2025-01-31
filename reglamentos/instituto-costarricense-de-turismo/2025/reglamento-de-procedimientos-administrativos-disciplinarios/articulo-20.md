@@ -1,0 +1,2 @@
+Artículo 20. Asesores externos.
+Dentro de las potestades que la ley confiere y, por resolución debidamente motivada, el ICT podrá contratar asesores externos para la tramitación de procedimientos administrativos, incluyendo la posibilidad de ser designados como órganos directores o, responsables de investigaciones preliminares. Deberá realizar las actividades y comparecencias en las instalaciones de la institución, quedando expresamente prohibido celebrarlas en otros sitios, salvo razones debidamente fundamentas y autorizadas expresamente por la Administración.

@@ -1,0 +1,3 @@
+Artículo 52. Dirección en la comparecencia y evacuación de prueba.
+El órgano director es el encargado de dirigir la comparecencia. Si el órgano director es colegiado la comparecencia será dirigida por la persona funcionaria o persona contratada que haya sido designada como presidente, correspondiéndole la dirección del procedimiento, para el cumplimiento de su función como presidente deberá coordinar con los demás integrantes del órgano director, las acciones que deben seguir de conformidad con lo dispuesto en la LGAP artículo 314.
+La comparecencia se realizará de acuerdo a lo regulado en el artículo 317 de la LGAP, sin perjuicio de que el órgano director aplique supletoriamente lo dispuesto en los artículos 90 a 102 del CPCA.

@@ -1,0 +1,2 @@
+Artículo 51. Comparecencia oral y pública.
+Cuando la comparecencia oral se realice por infracciones al régimen de Hacienda Pública que podría implicar una sanción disciplinaria; se desarrollará de manera oral y pública, en términos del ordinal 10 de la LCCEIF. No obstante, el órgano director podrá declarar la comparecencia privada por consideraciones de decoro, por derecho a la intimidad de las partes o de terceros, cuando se pueda entorpecer el procedimiento de recopilación de evidencias, o cuando peligre un secreto cuya revelación podría ser penalmente castigada.

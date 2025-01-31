@@ -1,0 +1,2 @@
+Artículo 61. Actos recurribles.
+En el procedimiento administrativo cabrá recurso ordinario solamente contra el acto de inicio, el acto final, el rechazo de prueba, el rechazo a celebración de comparecencia, la resolución sobre la competencia, el acto que resuelva la recusación, la negativa de acceso al expediente o piezas de éste, la resolución sobre la medida cautelar y el acto que reduzca o anticipe plazos. Se considerará como final también el acto de tramitación que suspenda indefinidamente o haga imposible la continuación del procedimiento.

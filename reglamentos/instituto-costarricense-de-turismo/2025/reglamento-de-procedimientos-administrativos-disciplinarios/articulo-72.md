@@ -1,0 +1,2 @@
+Artículo 72. Reparación integral del daño.
+La reparación integral del daño podrá ser solicitada por el servidor únicamente para faltas de tipo patrimonial. Deberá el interesado presentar su solicitud por escrito ante el órgano decisor e incluir la forma en que éste cubrirá el daño patrimonial ocasionado. Deberá existir aceptación del órgano decisor y de la persona afectada, en caso de que la hubiere.

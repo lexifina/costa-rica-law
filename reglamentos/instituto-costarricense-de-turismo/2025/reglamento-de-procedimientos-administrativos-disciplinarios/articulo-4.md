@@ -1,0 +1,3 @@
+Artículo 4. Procedimientos ordinario y sumario.
+El procedimiento por seguir será el ordinario establecido en el libro segundo LGAP. En caso de establecerse la posibilidad del despido de un servidor institucional, deberá de aplicarse lo establecido en los artículos 21 y 22 de la LMEP.
+No obstante, se podrá tramitar un procedimiento sumario, cuando la sanción a imponer no pueda ser mayor a una amonestación escrita, y el acto final no cause perjuicio grave al administrado en los términos del ordinal 320 de la LGAP. Sin perjuicio del uso supletorio del libro segundo de la LGAP y de lo regulado en el artículo 229 del mismo cuerpo normativo.

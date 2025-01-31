@@ -1,0 +1,2 @@
+Artículo 24. Coadyuvante.
+Se constituirá en coadyuvante todo sujeto que esté directamente interesado en el acto final, o en su denegación o reforma, aunque el interés sea derivado. El coadyuvante, no podrá pedir nada para sí ni podrá cambiar la pretensión a la que coadyuva, empero, podrá hacer todas las alegaciones de hecho y derecho, así como usar los recursos y medios procesales para hacer valer su interés, sin que por ello cause menoscabo al coadyuvado.
