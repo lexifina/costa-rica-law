@@ -1,0 +1,8 @@
+Artículo 30. Remisión de la gestión de la denuncia a la Dirección de Administración y Finanzas.
+Una vez concluida la valoración inicial de los hechos y su admisibilidad de conformidad con el Reglamento de Procedimientos Laborales de Refinadora Costarricense de Petróleo S.A., en el plazo ordenatorio de diez (10) días hábiles, la Contraloría de Servicios, definirá el abordaje que dará a cada caso particular, para lo cual deberá remitir a la Dirección de Administración y Finanzas en calidad de órgano decisor, para su conocimiento:
+a) Copia de la denuncia junto a un informe de presuntos hechos irregulares.
+b) Copia de la denuncia junta a un informe de recomendación del traslado de la denuncia al Ministerio Público, cuando se determinan presuntas responsabilidades de tipo penal.
+d) Remitir el asunto a las autoridades internas pertinentes, cuando se trate de casos que corresponda atender en primera instancia a la Administración Activa y ésta no haya sido enterada de la situación, o se encuentre realizando una investigación por los mismos hechos.
+En todos los casos anteriores, la Contraloría de Servicios deberá dejar constancia en el expediente de las valoraciones efectuadas para la selección del abordaje del caso.
+En los supuestos anteriores, se debe informar a la persona denunciante o solicitante sobre lo resuelto, mediante acto debidamente motivado, sin comprometer las reglas de confidencialidad señaladas en el presente procedimiento.
+En caso de que el asunto sea remitido a otra instancia, deben trasladarse todos los elementos atinentes al caso que se encuentren en su poder o que sean de conocimiento de la Contraloría de Servicios.

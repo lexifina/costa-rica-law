@@ -1,0 +1,3 @@
+Artículo 6°- Independencia de la Contraloría de Servicios.
+Conforme a lo establecido en el artículo 13 de la Ley del Sistema Nacional de Contralorías de Servicios, N.º 9158 y el artículo 10 de su reglamento, la Contraloría de Servicios de RECOPE ejercerá sus funciones con independencia funcional y de criterio respecto de la Presidencia y los demás componentes de la Administración Activa de la Empresa, por lo que no deberá realizar funciones ni actuaciones de ésta, excepto las necesarias para cumplir sus propias funciones.
+Asimismo, la Presidencia, como superior jerárquico, no podrá tomar o ejecutar acciones de ningún tipo, tendientes a influir o hacer cambiar el criterio de la Contraloría de Servicios en el ejercicio de sus funciones.

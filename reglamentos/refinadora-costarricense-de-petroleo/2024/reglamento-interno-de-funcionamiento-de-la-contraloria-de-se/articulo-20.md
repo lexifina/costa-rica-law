@@ -1,0 +1,5 @@
+Capítulo IV
+De la denuncia
+Artículo 20.- Derecho y deber de denunciar.
+Conforme al Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Decreto Ejecutivo N.º 32333, artículos 8 y 9, las personas tienen el derecho y el deber de denunciar los presuntos actos de corrupción. Así mismo, de conformidad con el artículo 281, inciso a) del Código Procesal Penal, las personas trabajadoras o servidores públicos tienen el deber de denunciar ante las autoridades competentes los actos presuntamente corruptos o irregulares, que se produzcan en la función pública, de los que tengan conocimiento, con el fin de que sean investigados y aplicadas las acciones correctivas.
+De conformidad con lo anterior, RECOPE designa como canal único y estandarizado para interponer las denuncias, a la Contraloría de Servicios, la cual mantendrá medios abiertos y accesibles para que las personas puedan ejercer el derecho y el deber de denunciar los actos presuntamente irregulares de los que tengan conocimiento, con la debida fundamentación y pruebas, con el fin de que sean investigados y aplicadas las acciones correctivas.

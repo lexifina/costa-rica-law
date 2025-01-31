@@ -1,0 +1,6 @@
+Artículo 23.- Garantía de Confidencialidad y No Divulgación.
+La persona denunciante o interesada tendrá derecho a que su identidad sea protegida en todo momento, de acuerdo con el artículo 8 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, y el artículo 10 del reglamento a la ley de cita, una vez interpuesta la denuncia, así como durante y luego de concluido el proceso de investigación.
+Tanto el Titular Subordinado responsable de la atención y cualquier otra persona que participe del proceso, ya sea de forma temporal o permanente, deberán mantener los mismos principios de confidencialidad.
+RECOPE mantendrá los mecanismos idóneos para proteger dicha identidad, así como toda la información relacionada con el caso, conforme al artículo 6 de la Ley General de Control Interno, Ley N.º 8292.
+El personal que brinde soporte técnico, administrativo u otro, se compromete a mantener la confidencialidad de la información de la cual mantenga conocimiento, para lo cual deberá firmar el "Contrato de confidencialidad y No Divulgación entre RECOPE y la persona trabajadora de la Contraloría de Servicios de RECOPE", (Anexo 1 a este reglamento).
+El incumplimiento comprobado de este artículo por parte de alguna de las personas será susceptible de sanciones disciplinarias, civiles, gremiales y penales de acuerdo con la normativa interna.

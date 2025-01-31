@@ -1,0 +1,2 @@
+Artículo 27.- Deber de informar a la Contraloría de Servicios de las denuncias, quejas, inconformidades y sugerencias recibidas en otras áreas.
+Cuando las personas trabajadoras ajenas a la Contraloría de Servicios reciban por algún medio, denuncias, quejas, inconformidades o sugerencias, estarán en la obligación de remitirla mediante el canal único de denuncias que administra la Contraloría de Servicios, en el plazo máximo de un (1) día hábil siguiente a su recepción.

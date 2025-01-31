@@ -1,0 +1,2 @@
+Artículo 25.- Prohibición de represalias contra los denunciantes.
+Queda absolutamente prohibido tomar represalias contra las personas denunciantes ya sean internas o externas a RECOPE. De comprobarse cualquier represalia o amenaza a estas, la persona afectada podrá informar a la Contraloría de Servicios, documentando con pruebas lo sucedido. La Contraloría de Servicios deberá remitir un informe de presuntos hechos irregulares al órgano decisor para lo correspondiente según la normativa interna.

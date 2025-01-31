@@ -1,0 +1,3 @@
+Artículo 11.- Dotación de Recursos para la gestión.
+Conforme al artículo 38 de la Ley N.º 9158 la Empresa dotará a la Contraloría de Servicios de las herramientas necesarias para la adecuada atención de las gestiones presentadas, de manera que cuente, entre otros, con el recurso humano, tecnológico, electrónico y material.
+Para salvaguardar la información contenida en los registros físicos o electrónicos, las herramientas deberán contar con elementos de seguridad suficientes, de manera que se asegure la confidencialidad de la persona denunciante, conforme a lo establecido en el artículo 6 de la Ley General de Control Interno, Ley N.º 8292.

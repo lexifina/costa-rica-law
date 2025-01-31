@@ -1,0 +1,2 @@
+Artículo 15.- Instalaciones físicas de la Contraloría de Servicios.
+Las oficinas de la Contraloría de Servicios deben ubicarse en una zona de fácil acceso al público, cumpliendo con lo establecido en la Ley de Igualdad de Derechos para Personas con Discapacidad, Ley N.º 7600. Además, deberá contar con condiciones adecuadas de privacidad, comodidad, iluminación, ventilación y limpieza, que permita la atención de las personas usuarias, clientes y público en general, de acuerdo con el artículo 18 de la Ley N.º 9158.

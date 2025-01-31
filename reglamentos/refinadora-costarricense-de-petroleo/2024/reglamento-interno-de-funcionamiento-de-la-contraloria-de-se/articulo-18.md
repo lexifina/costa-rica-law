@@ -1,0 +1,2 @@
+Artículo 18.- Recomendaciones de la Contraloría de Servicios.
+La Presidencia de RECOPE deberá presentar, ante la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios, un informe anual de las acciones desarrolladas por la Empresa producto de las recomendaciones emitidas por la Contraloría de Servicios, puntualizando, en el caso de las que no fueron avaladas, las razones que justificaron dicha decisión. Dicho informe deberá presentarse durante el primer trimestre de cada año.
