@@ -1,0 +1,3 @@
+Artículo 14.- Solicitud de licencia comercial de locales previamente clausurados ejercer actividad comercial sin contar con autorización municipal. En caso de que sobre un local exista cierre decretado por una orden de clausura por ejercer la actividad comercial sin contar con la previa autorización municipal, la solicitud para obtener una licencia comercial nueva se gestionará una vez que se haya levantado dicha orden de clausura por medio del respectivo acto administrativo.
+De dicha condición se informará al gestionante en caso de presentar la solicitud sin contar con el levantamiento de la clausura.
+El levantamiento de la orden de clausura se tramitará de conformidad con lo estipulado en el presente reglamento.

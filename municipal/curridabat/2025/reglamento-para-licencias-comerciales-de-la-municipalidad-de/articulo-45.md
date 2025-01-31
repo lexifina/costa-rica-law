@@ -1,0 +1,6 @@
+Sección II
+De la declaración jurada de las ventas o ingresos brutos
+Artículo 45.- Todo patentado deberá presentar ante el Departamento de Patentes de la Municipalidad de Curridabat a más tardar el 30 de marzo de cada año, o en la fecha que la Dirección General de Tributación autorice el cambio en la presentación de la Declaración del Impuesto de la Renta, la declaración jurada de los ingresos brutos obtenidos durante el último período fiscal (Declaración del impuesto sobre la Renta), en la que conste el acuse de recibido por presentación digital ante la Dirección General de Tributación Directa, siendo que, con base en esta información la Municipalidad calculará el impuesto por pagar.
+Si la persona física o jurídica cuenta con más patentes en Curridabat o en otras municipalidades deberá presentar certificación de un contador público autorizado indicandoel monto que le corresponde a cada una.
+La declaración debe venir firmada por el representante legal, en caso de persona jurídica y, en caso de persona física, por el titular de la patente.
+En casos especiales, cuando las empresas hayan sido autorizadas por la Dirección General de Tributación para presentar la declaración en fecha posterior a la establecida en la ley y este reglamento, estas empresas podrán presentarla a la Municipalidad dentro de los quince días hábiles siguientes a la fecha autorizada.

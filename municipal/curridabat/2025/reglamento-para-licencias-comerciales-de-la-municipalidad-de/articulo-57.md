@@ -1,0 +1,3 @@
+Artículo 57.- Modificaciones o eliminación de la publicidad. El patentado que elimine o modifique la rotulación de publicidad exterior en su local, debe comunicarlo por escrito, por medio de una nota en la que se solicita la inspección del sitio.
+La firma que se consigne en la solicitud deberá estar autenticada por un abogado, o firmarlo ante el funcionario municipal de la Plataforma de Servicios, el cual verificará que el solicitante firmó ante él, debiendo estampar el sello correspondiente en el formulario de solicitud.
+Una vez verificada con la inspección la comunicación hecha por parte del patentado, se ajustará o eliminará el pago del impuesto de publicidad, el cual se hará efectivo a partir del trimestre siguiente.

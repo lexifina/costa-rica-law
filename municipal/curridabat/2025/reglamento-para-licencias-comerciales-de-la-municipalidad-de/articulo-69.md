@@ -1,0 +1,2 @@
+Artículo 69.- Para la eliminación de una licencia comercial descrita en los supuestos del 6 al 11 del artículo anterior, se aplicará lo dispuesto en el Libro Segundo de la Ley General de la Administración Pública del procedimiento ordinario, en cuanto a lo no regulado por el Código Municipal.
+De comprobarse por medio del procedimiento la eliminación de la licencia comercial, no supone el reconocimiento de indemnización alguna a favor del patentado.

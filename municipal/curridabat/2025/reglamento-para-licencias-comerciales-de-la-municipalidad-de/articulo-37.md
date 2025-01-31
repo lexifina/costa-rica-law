@@ -1,0 +1,1 @@
+Artículo 37.- Los propietarios, administradores, concesionarios y cualquier persona que de una u otra forma explote un establecimiento comercial está en la obligación de brindar toda la colaboración a estos funcionarios.

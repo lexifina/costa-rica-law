@@ -1,0 +1,8 @@
+Sección III
+De la determinación de oficio del impuesto de patentes
+Artículo 49.- Del procedimiento administrativo para realizar la determinación de oficio o la recalificación. Se notificará al titular de la licencia comercial de la causal que con base en el artículo 9 de la Ley N° 9185, haya incurrido para la determinación de oficio del impuesto, pudiendo en este acto de considerarlo necesario, requerir al contribuyente la presentación de nuevas declaraciones o la rectificación de las presentadas dentro del plazo cinco días hábiles.
+Mediante acto debidamente fundamentado y emitido por el Jefe del Departamento de Patentes o en su defecto su superior inmediato
+Contra dicho acto, cabrá el recurso de revocatoria con apelación en subsidio en los términos del artículo 171 del Código Municipal, el que deberá interponerse dentro de los cinco días hábiles siguientes contados a partir del día hábil siguiente de efectuada la notificación, en el que se deberá especificar los hechos y las normas legales en que se fundamente su reclamo y alegar las defensas que considere pertinentes con respecto a las infracciones que se le atribuyan, proporcionando u ofreciendo las pruebas de descargo respectivas
+El recurso de revocatoria se dirigirá y será resuelto por el Jefe del Departamento de Patentes y el recurso de apelación en subsidio será dirigido y resuelto por el Alcalde (sa).
+En caso de que el titular de la licencia comercial no presentare ninguna oposición, la resolución quedará firme.
+La resolución final dictada por el Alcalde tendrá recurso de revocatoria con apelación en subsidio, éste último para ante el Tribunal Contencioso Administrativo, el que agotará la vía administrativa.

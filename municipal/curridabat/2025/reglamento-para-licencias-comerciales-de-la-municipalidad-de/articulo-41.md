@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Del cobro del impuesto de patentes
+Artículo 41.- Base imponible. Salvo los casos en que la Ley N°9185 determina un procedimiento diferente para fijar el monto del impuesto de patente, se establecen como factores determinantes de la imposición, la renta líquida gravable y las ventas o los ingresos brutos anuales que perciban las personas físicas o jurídicas afectas al impuesto, durante el período fiscal anterior al año en que se dé la imposición.
+Por ventas se entiende el volumen de estas, hechas las deducciones que establece la Ley General del Impuesto sobre las Ventas. En caso de darse diferencia entre los montos de las ventas y los ingresos brutos, se tomará para el cálculo del cobro de la licencia el monto mayor.
+En los casos de los establecimientos de correduría de bienes raíces e inmuebles, se consideran ingresos brutos los percibidos por concepto de comisiones e intereses u otros ingresos de su propia actividad.

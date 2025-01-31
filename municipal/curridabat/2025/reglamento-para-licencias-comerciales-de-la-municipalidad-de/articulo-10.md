@@ -1,0 +1,2 @@
+Artículo 10.- Resolución habilitadora. Verificada la presentación de los requisitos iniciales, el Departamento de Patentes emitirá en el plazo de cuarenta y ocho horas la resolución habilitadora de apertura de local comercial, la que permitirá que la persona solicitante esté autorizada para iniciar con la actividad comercial.
+La habilitación de apertura otorgada por medio de la resolución dicha, es de carácter temporal, por cuanto la persona solicitante deberá presentar en el plazo de sesenta días naturales el resto de los requisitos que se indican en el artículo siguiente.

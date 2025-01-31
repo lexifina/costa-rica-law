@@ -1,0 +1,2 @@
+Artículo 60.- Revocación de la licencia comercial por no gestionar la reactivación. Cumplidos doce meses desde la suspensión de la licencia y debidamente notificado por el Departamento de Patentes, el patentado tendrán un plazo máximo de diez días hábiles para solicitar la reactivación de su licencia.
+En caso de no hacerlo dentro de dicho plazo, se tendrá por revocada, en forma automática, la licencia otorgada.

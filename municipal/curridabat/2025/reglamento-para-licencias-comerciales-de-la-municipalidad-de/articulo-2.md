@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. El presente reglamento se aplicará para la obtención de la licencia comercial de todas las actividades comerciales que se desarrollen dentro del Cantón de Curridabat, aún y cuando su domicilio fiscal se encuentre en otro cantón.

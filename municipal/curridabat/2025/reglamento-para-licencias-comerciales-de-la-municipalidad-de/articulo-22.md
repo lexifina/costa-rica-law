@@ -1,0 +1,1 @@
+Artículo 22.- Requisitos a presentar dentro del plazo de sesenta días naturales posteriores a la emisión de la resolución habilitadora. Dentro del plazo de sesenta días naturales posteriores a la notificación de la resolución habilitadora, la persona solicitante deberá aportar los requisitos establecidos en el artículo 11 del presente reglamento.

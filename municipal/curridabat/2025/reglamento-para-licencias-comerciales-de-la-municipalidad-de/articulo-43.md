@@ -1,0 +1,2 @@
+Artículo 43.- El impuesto por licencia municipal tendrá vigencia para el año natural siguiente a la declaración, rigiendo así desde el mes de enero hasta diciembre. Este impuesto será cancelado por trimestre adelantados en los meses de enero, marzo, junio y setiembre de cada año.
+El atraso en la cancelación oportuna del impuesto generará intereses, que se calcularán de conformidad con lo que para el efecto haya establecido la Municipalidad, en cumplimiento de lo establecido en el Código Municipal.

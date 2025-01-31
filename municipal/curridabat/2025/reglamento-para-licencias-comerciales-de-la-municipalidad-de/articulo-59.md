@@ -1,0 +1,2 @@
+Artículo 59.- Gestión de reactivación. El licenciatario podrá solicitar la reactivación de la licencia en cualquier momento ante el Departamento de Patentes, con lo cual se retomará el cobro del impuesto correspondiente.
+Para la reactivación efectiva de la licencia, el interesado deberá haber cancelado cualquier pendiente relacionado con este impuesto o estar al día en caso de que esté cancelando sus pendientes a través de la figura de arreglo de pago.

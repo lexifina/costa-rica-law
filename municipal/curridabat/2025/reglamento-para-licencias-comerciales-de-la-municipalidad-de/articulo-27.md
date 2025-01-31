@@ -1,0 +1,1 @@
+Artículo 27.- Plazo. El plazo máximo por el que se autorizará este tipo de actividades será de tres meses. Transcurrido dicho plazo la actividad deberá cesar o en caso de que el interesado desee continuar explotando la actividad comercial, deberá cumplir con todos los requisitos para una licencia permanente, bajo pena que, de no cumplir, se clausure la actividad comercial.
