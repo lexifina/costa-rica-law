@@ -1,0 +1,1 @@
+Artículo 10.-Oficio de resolución de la solicitud. Se remitirá un oficio al peticionario (al medio de notificación señalado), con el correspondiente visado del plano o en caso contrario, con una resolución en la que se describan y fundamenten los motivos de la denegatoria del visado, o bien los aspectos que deben ser subsanados por parte del profesional responsable.

@@ -1,0 +1,1 @@
+Artículo 11.-Para efectos de consultas sobre el estado de trámites o sobre observaciones incluidas en los oficios de resolución de denegatoria de visados, los interesados deberán hacer referencia al número de presentación catastral para el que se ingresó el trámite, o bien el número de oficio de la resolución emitida por la Municipalidad.

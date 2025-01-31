@@ -1,0 +1,1 @@
+Artículo 3°-Potestad municipal de visado. El otorgamiento o negación del visado de plano es competencia del control territorial que ejerce la Municipalidad, esto de conformidad con lo establecido en los artículos 33 y 34 de la Ley de Planificación Urbana.
