@@ -1,0 +1,3 @@
+CAPÍTULO II. ORGANIZACIÓN INSTITUCIONAL PARA LA GESTIÓN TRIBUTARIA
+SECCIÓN I. ASPECTOS GENERALES
+ARTÍCULO 5. FUNCIONES DE LA GESTIÓN TRIBUTARIA. Corresponde a la Administración Tributaria del CMDC lograr, al máximo, el cumplimiento voluntario de los deberes y obligaciones tributarias de los contribuyentes del CMDC, mediante el desarrollo de un conjunto de acciones, cuyo propósito es la implementación y ejecución de sistemas y procedimientos eficientes de planificación, coordinación y control. Dentro de este marco, le corresponderá todo lo relacionado con la gestión, recaudación y fiscalización de las obligaciones tributarias municipales o de administración municipal.

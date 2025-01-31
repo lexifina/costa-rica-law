@@ -1,0 +1,1 @@
+Artículo 31. SEGUIMIENTO AL CUMPLIMIENTO DE LA ESTRATEGIA Es responsabilidad del Coordinador Tributario, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar de sus resultados a la Intendencia.

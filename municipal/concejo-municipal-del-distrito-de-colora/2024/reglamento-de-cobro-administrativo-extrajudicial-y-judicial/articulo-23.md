@@ -1,0 +1,1 @@
+ARTÍCULO 23. REFERENTE PARA ARREGLO DE PAGO. Para formalizar un arreglo de pago se tomará como base mínima de lo adeudo, un octavo del "salario base" establecido en el artículo 2 de la Ley No. 7337, de 5 de mayo de 1993.

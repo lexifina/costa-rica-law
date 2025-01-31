@@ -1,0 +1,1 @@
+ARTÍCULO 30. DE LA DIVULGACIÓN DE LA ESTRATEGIA DE COBRO: El Coordinador Tributario Municipal en coordinación con el Coordinador de Cobros y Patentes definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte del Concejo Municipal de Distrito.

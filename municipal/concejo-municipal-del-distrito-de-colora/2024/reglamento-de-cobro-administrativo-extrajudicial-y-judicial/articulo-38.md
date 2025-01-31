@@ -1,0 +1,1 @@
+ARTÍCULO 38. FORMALIZACIÓN DE LA CONTRATACIÓN. Los oferentes elegidos firmarán un contrato con el CMDC, así como cualquier otro documento que requiera la Institución, según las regulaciones establecidas en la Ley de Contratación Pública y su reglamento.

@@ -1,0 +1,1 @@
+ARTÍCULO 21. FORMALIZACIÓN DEL ARREGLO DE PAGO. La formalización del arreglo de pago se realizará ante la Administración Tributaria del CMDC, mediante la suscripción del documento idóneo que tendrá dicha instancia para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que se exija para tal gestión.

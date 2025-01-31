@@ -1,0 +1,1 @@
+ARTICULO 59. ESTABLECIMIENTO DEL COSTO DE TRAMITE DE COBRO. Para los efectos de la resolución de incobrabilidad, la sección de cobro, establecerá el costo aproximado que tiene un proceso de cobro administrativo para la institución, el cual actualizara en el mes de enero de cada año.

@@ -1,0 +1,1 @@
+ARTICULO 63.COMUNICACION DE DECLARATORIA DE INCOBRABILIDAD. La resolución de declare de incobrabilidad para una deuda será comunicada al área financiera para que proceda a realizar el ajuste contable correspondiente.

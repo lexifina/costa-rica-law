@@ -1,0 +1,2 @@
+ARTÍCULO 39. NO SUJECIÓN A PLAZO. La contratación no estará sujeta a cumplir con un plazo determinado, sino que dependerá del plazo que dure la tramitación de los procesos judiciales respectivos.
+Sin embargo, corresponderá a la Administración Tributaria, verificar mediante los informes que los procesos judiciales están activos, de lo contrario, se aplicará las sanciones que regula este Reglamento contra el abogado externo que incumpla con esta obligación.

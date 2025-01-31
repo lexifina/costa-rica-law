@@ -1,0 +1,1 @@
+ARTÍCULO 44. HONORARIOS EN PROCESO EJECUTIVO. Los Abogados Externos cobrarán directamente al sujeto pasivo los honorarios del proceso ejecutivo, de conformidad a lo establecido en el Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado vigente.

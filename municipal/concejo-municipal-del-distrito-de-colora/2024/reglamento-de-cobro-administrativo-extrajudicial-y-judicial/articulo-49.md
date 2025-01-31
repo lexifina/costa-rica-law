@@ -1,0 +1,1 @@
+ARTÍCULO 49. TERMINACIÓN O SUSPENSIÓN DEL PROCESO JUDICIAL. Una vez que el cobro judicial haya sido iniciado solo podrá darse por terminado por el pago total de la suma adeudada al CMDC, incluyendo las costas procesales y personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo.

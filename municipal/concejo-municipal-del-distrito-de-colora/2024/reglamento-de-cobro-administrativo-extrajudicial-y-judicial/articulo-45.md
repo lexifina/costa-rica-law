@@ -1,0 +1,1 @@
+ARTICULO 45. ASUNCIÓN DE GASTOS. El CMDC asumirá todos los gastos que se presenten por la tramitación de los procesos judiciales asignados a los abogados externos, pero deberá cobrar dichos gastos tales como peritajes, timbres, gastos administrativos que realice en la gestión cobratoria, a los sujetos pasivos.

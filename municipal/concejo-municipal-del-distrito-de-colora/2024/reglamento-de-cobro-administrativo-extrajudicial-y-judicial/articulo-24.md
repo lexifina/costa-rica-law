@@ -1,0 +1,1 @@
+ARTÍCULO 24. SOBRE LA DOCUMENTACIÓN RELACIONADA CON LOS ARREGLOS DE PAGO. Toda la documentación que haya sido requerida por la Administración Tributaria para la suscripción del arreglo de pago, así como dicho documento, será agregada al expediente y debidamente foliada, para su conservación.

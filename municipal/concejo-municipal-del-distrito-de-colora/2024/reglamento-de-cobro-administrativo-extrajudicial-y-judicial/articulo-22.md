@@ -1,0 +1,1 @@
+ARTÍCULO 22. RESOLUCIÓN DEL ARREGLO DE PAGO. La resolución de arreglo de pago se tendrá por cumplido únicamente, ante el pago total que realice el sujeto pasivo de la obligación y se resolverá cuando se haya retrasado de más de una cuota, remitiéndose inmediatamente el expediente a la etapa ejecutiva.

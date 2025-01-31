@@ -1,0 +1,1 @@
+ARTÍCULO 46. AUSENCIAS DE LOS ABOGADOS. Ante ausencias de su oficina por plazos mayores a siete días hábiles, deberá indicar a la Administración Tributaria, el nombre, número de carné, dirección de oficina, número de fax y teléfonos del profesional que deja responsable de los procesos judiciales a su cargo.

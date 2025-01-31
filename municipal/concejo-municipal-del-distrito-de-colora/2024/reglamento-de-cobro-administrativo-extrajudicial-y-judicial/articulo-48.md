@@ -1,0 +1,1 @@
+ARTÍCULO 48. LIQUIDACIÓN DE COSTAS. Firme la sentencia respectiva en el cobro judicial, el abogado externo director del proceso deberá presentar la liquidación de costas en un plazo no mayor de cinco días hábiles.
