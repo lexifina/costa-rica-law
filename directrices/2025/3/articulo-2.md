@@ -1,0 +1,2 @@
+Artículo 2º-La columna salarial global que establece la distribución de las clases y salarios correspondiente a los puestos mencionados en el Considerando VIII y X; y del artículo 1, todos de la presente Directriz, realizada conforme al artículo 34 de la Ley Marco de Empleo Público, N° 10159, se encuentra disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica: https://www.empleopublico.mideplan.go.cr/
+(Nota de Sinalevi: La escala de los salarios globales debe ser consultada en el siguiente Enlace)
