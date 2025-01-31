@@ -1,0 +1,1 @@
+Artículo 13.-Designación Permanente. Cuando la ausencia del auditor sea permanente, la institución deberá gestionar lo correspondiente según lo establecido en los Lineamientos sobre gestiones que involucren a la auditoría interna presentadas ante la CGR. (Resolución R-DC-83-2018) del punto 2.2.3 al 2.3.15.

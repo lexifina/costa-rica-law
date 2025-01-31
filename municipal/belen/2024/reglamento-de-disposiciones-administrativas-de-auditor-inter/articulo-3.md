@@ -1,0 +1,1 @@
+Artículo 3°-Idoneidad. El Auditor Interno debe caracterizarse por la idoneidad para el puesto que desempeña, debe ser un profesional altamente capacitado, que reúna todas las características y conocimientos necesarios, para liderar el equipo de la Auditoría Interna de la Municipalidad de Belén.

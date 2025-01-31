@@ -1,0 +1,1 @@
+Artículo 5°-Jornada y horario de trabajo. Se establece una jornada continua y acumulativa diaria de nueve horas con un horario de lunes a viernes de las siete horas a las dieciséis horas, para una jornada semanal de cuarenta y cinco horas, en caso de que se solicite un cambio de horario el Concejo Municipal podrá modificarlo, si lo considera conveniente.

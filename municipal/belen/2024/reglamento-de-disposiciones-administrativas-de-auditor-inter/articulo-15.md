@@ -1,0 +1,1 @@
+Artículo 15.-Prohibiciones del auditor interno. Se debe considerar lo normado en los "Lineamientos Sobre Gestiones que Involucran a la Auditoría Interna Presentadas ante la CGR", así como lo que establece la Ley General de Control Interno, N° 8292, en su artículo 34.
