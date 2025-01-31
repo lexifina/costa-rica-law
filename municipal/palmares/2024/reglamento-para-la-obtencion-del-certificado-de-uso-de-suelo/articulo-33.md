@@ -1,0 +1,5 @@
+Artículo 33.-Plazos de resolución. Toda solicitud deberá resolverse en el término máximo de diez días inhábiles contados a partir del día siguiente de su presentación completa de la solicitud del certificado de uso de suelo.
+Para los casos previstos en el artículo 32 y dadas las justificaciones técnicas o complejidad del caso previamente determinadas; así como para casos de fuerza mayor y/o caso fortuito debidamente acreditados, se resolverá la solicitud de uso de suelo, en un plazo de quince días inhábiles.
+En este último caso así deberá informarse al peticionario dentro del plazo de tres días hábiles contados a partir del día siguiente de la presentación.
+No se computará como parte de dicho plazo, las subsanaciones que sean debidamente notificadas al peticionario por defectos u omisiones de su solicitud.
+El plazo de resolución definitiva de la solicitud de certificado de uso de suelo, sólo podrán ser suspendidos por fuerza mayor, de oficio o a petición de parte, lo anterior de conformidad con el numeral 259 y 263 de la Ley General Administración Pública. Tal actuación debe estar debidamente motivada por razones de legalidad, conveniencia y oportunidad.

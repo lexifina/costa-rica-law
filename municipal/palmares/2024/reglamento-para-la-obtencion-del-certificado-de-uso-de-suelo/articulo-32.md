@@ -1,0 +1,1 @@
+Artículo 32.-Cómputo del plazo para resolver. El plazo de la Municipalidad de Palmares para resolver toda solicitud de certificado de uso de suelo presentada, es de diez días inhábiles, contados a partir del día hábil siguiente en que se presentó la solicitud.

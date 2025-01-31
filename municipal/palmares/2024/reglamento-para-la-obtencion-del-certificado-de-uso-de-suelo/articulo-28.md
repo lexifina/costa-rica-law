@@ -1,0 +1,1 @@
+Artículo 28.-Sobre la presentación de la solicitud. El peticionario presentará la solicitud completa en la Plataforma de Servicios o por el medio electrónico que la Municipalidad habilite para tal fin, al que se le asignará un número de trámite, y se remitirá al Encargado del Sistema de Información Geográfico del Departamento de Catastro Municipal para su análisis y resolución.

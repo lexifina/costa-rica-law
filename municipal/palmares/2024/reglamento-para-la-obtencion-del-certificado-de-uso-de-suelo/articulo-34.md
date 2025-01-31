@@ -1,0 +1,1 @@
+Artículo 34.-Sobre el Silencio Positivo. Al tratarse el presente reglamento sobre la solicitud de certificado de uso de suelo, y no sobre un trámite de licencia, permiso o autorización, no le aplica el silencio positivo previsto en los artículos 330 de la Ley General de la Administración Pública y 42, siguientes y concordantes del reglamento a la Ley 8220.

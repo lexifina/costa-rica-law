@@ -1,0 +1,1 @@
+Artículo 4º-Fines del trámite del certificado de uso de suelo. En virtud de la naturaleza del certificado de uso de suelo, el mismo es requisito previo a la solicitud de una licencia de construcción y/o para la solicitud de licencias comerciales y de expendio de licor, sea en terrenos sin construir o terrenos con edificaciones ya existentes; o aportar el existente.

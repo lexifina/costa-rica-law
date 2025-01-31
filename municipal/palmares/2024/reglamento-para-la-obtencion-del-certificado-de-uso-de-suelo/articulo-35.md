@@ -1,0 +1,4 @@
+Artículo 35.-Tasa. La Municipalidad de Palmares cobrará una tasa por la emisión del certificado del uso de suelo, por ser un servicio administrativo inherente a la entidad municipal, teniendo por norma habilitante el artículo 83 del Código Municipal, el cual establece que la municipalidad queda autorizada para emanar el reglamento correspondiente, que norme de qué forma se procederá para organizar y cobrar cada tasa.
+La tasa se fijará tomando en consideración su costo más un diez por ciento (10%) de utilidad para desarrollarlo. Una vez fijados, entrarán en vigencia treinta días después de su publicación en La Gaceta.
+La tasa inicial, una vez publicado el presente reglamento, según el estudio de costos se establece en un monto de ¢7.118 (siete mil ciento dieciocho) colones, la municipalidad calculará y actualizará la tasa en forma anual.
+Rige a partir de su publicación.

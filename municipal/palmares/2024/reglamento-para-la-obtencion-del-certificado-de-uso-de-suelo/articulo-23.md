@@ -1,0 +1,7 @@
+Artículo 23.-Instalaciones Industriales y de Almacenamiento. Sin perjuicio de la excepción para edificaciones públicas, establecida en la Ley de Construcciones, Ley N°833, y lo dispuesto en el Reglamento sobre Higiene Industrial, Decreto Ejecutivo N°11492-SPPS y el Reglamento de Zonas Industriales Gran Área Metropolitana emitido por el INVU, y sus reformas o la normativa que los sustituya, los establecimientos industriales y de almacenamiento, están sujetos a lo indicado por el certificado del uso del suelo que debe ser emitido por la municipalidad. Este debe contener los requerimientos establecidos en el CAPÍTULO VII. Disposiciones para edificaciones del Reglamento de Construcciones del INVU en materia de certificado de uso de suelo y en los artículos 6, 7, 9, 10, 11, 12, 13, 14, 15, 16 y 20 del presente reglamento.
+La cobertura máxima, retiros y alturas para establecimientos industriales y de almacenamiento deben ser:
+1) Cobertura máxima: de un 60% del área del predio
+2) Retiro frontal: el indicado por el INVU
+3) Retiros laterales y posteriores: de 6,00 m
+4) Alturas: las áreas de trabajo industrial deben tener un piso de altura; en los casos en que la maquinaria o el proceso requiera mayor altura, se debe contar con autorización del Ministerio de Salud.
+En caso que utilicen pavimentos drenantes en las áreas de estacionamientos, el 50% del área impermeabilizada con este tipo de material, se debe contabilizar para el cálculo de cobertura. Lo anterior sin perjuicio de las disposiciones establecidas por las entidades competentes en materia ambiental.
