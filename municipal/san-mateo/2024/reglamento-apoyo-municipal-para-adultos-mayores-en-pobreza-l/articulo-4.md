@@ -1,0 +1,4 @@
+Artículo 4º-Requisitos para optar por el beneficio de condonación o exención. Para poder optar por este beneficio, las personas interesadas deberán:
+a) Presentar la solicitud de condonación y/o exención ante la administración tributaria de la municipalidad, mediante los formularios creados por la Administración al efecto.
+b) La municipalidad deberá consultar, en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), la calificación de pobreza del contribuyente que hace la solicitud.
+En caso de que las personas solicitantes no estén registradas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), la administración municipal deberá articular con este órgano para que las personas solicitantes sean analizadas y registradas en dicho sistema, para acreditar oficialmente su condición.

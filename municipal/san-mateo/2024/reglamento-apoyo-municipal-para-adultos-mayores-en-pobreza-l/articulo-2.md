@@ -1,0 +1,2 @@
+Artículo 2º-Habilitación. Se habilita a la Municipalidad de San Mateo para que, mediante la administración, con base en un estudio técnico financiero y de procedimientos previo, se pueda brindar exención y condonación a los adultos mayores de 65 años que califiquen en la condición de pobreza extrema.
+Para ello, se autoriza a la administración a realizar los estudios correspondientes y al órgano deliberante a realizar los convenios respectivos; a efecto de implementa la condonación a los sujetos pasivos contemplados en la Ley N° 10.359 y N° 10 526.

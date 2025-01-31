@@ -1,0 +1,6 @@
+Artículo 7º-Metodología de aplicación. El procedimiento para la aplicación de este beneficio a las personas contribuyentes que contempla el presente reglamento será el siguiente:
+1. La persona contribuyente que desea apegarse a este beneficio, deberá presentar la solicitud formal para la condonación en cualquier mes de vigencia de la Ley, y de conformidad con el acuerdo del Concejo Municipal para la aplicación de la condonación, y para exención se deberá presentar la solicitud dentro de los 2 primeros meses del periodo fiscal.
+2. La administración determinará con base los estudios técnicos financieros de SINIRUBE si los solicitantes se encuentran dentro de los supuestos para acoger la solicitud.
+a. En el caso de las condonaciones no podrán exceder el plazo de 1 año contado a partir de la entrada en vigencia de este beneficio.
+b. Las exenciones podrán ser renovadas cada año, según se dé el cumplimiento de los requisitos legales y reglamentarios y así lo determine la Administración.
+3. La administración resolverá y notificará las solicitudes en un plazo no mayor a los 2 meses posterior a la solicitud. En caso de las personas que les sea rechazada la solicitud se indicarán los recursos, el plazo de interposición y resolución y la instancia correspondiente para conocer dicho recurso.
