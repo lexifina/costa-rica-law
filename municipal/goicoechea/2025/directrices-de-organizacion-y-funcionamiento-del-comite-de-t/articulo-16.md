@@ -1,0 +1,2 @@
+Artículo N° 16 De los acuerdos
+Los acuerdos del Comité de Tecnología de Información se tomarán por mayoría de votos y en caso de empate, el voto del Coordinador será contado doblemente. Estos acuerdos serán vinculantes para todas las unidades de la Municipalidad, así como a todos sus funcionarios, en la medida en que la falta de cumplimiento, cualquiera que sea la causa que no esté debidamente justificada, será objeto de las sanciones correspondientes de acuerdo con la normativa vigente.

@@ -1,0 +1,2 @@
+Artículo N° 14 De las convocatorias
+Las convocatorias de las sesiones ordinarias del Comité de Tecnología de información se notificarán a sus integrantes por escrito o correo electrónico, con al menos tres días hábiles de anticipación, indicando el lugar, fecha y hora de la reunión, así como la orden del día y documentos a revisar. Para sesiones extraordinarias, las convocatorias deberán realizarse al menos con un día de anticipación, incluyendo la misma información que las convocatorias ordinarias.

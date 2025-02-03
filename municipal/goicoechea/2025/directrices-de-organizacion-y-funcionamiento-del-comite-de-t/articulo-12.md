@@ -1,0 +1,2 @@
+Artículo N° 12 De las actas o minutas.
+En cada sesión se deberá levantar un acta que será aprobada y firmada, a más tardar en la siguiente sesión, por todos los miembros del Comité de Tecnología de Información asistentes a la reunión, la cual contendrá los nombres de los miembros asistentes, desarrollo, acuerdos emitidos, responsables de la ejecución de los acuerdos tomados y los plazos establecidos para su cumplimiento.

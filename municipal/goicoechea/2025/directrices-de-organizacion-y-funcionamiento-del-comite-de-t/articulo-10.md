@@ -1,0 +1,2 @@
+Artículo N° 10 Funciones de los invitados
+Los invitados por el Coordinador del Comité de Tecnología de Información tendrán la función de emitir consideraciones y sugerencias de carácter técnico que permitan ampliar la información y/o aclarar dudas del Comité con respecto a los asuntos a tratar, de acuerdo y en relación con las funciones a su cargo. Ocasionalmente y dependiendo del tema trabajo el Comité cuenta con la facultad de contratar asesores externos o colaboradores de entidades públicas que permitan reforzar el proceso de toma de decisiones.

@@ -1,0 +1,2 @@
+Artículo N° 17 De la remisión de informes
+Los informes periódicos elaborados por la Jefatura de Informática, Jefes o Directores del Unidades Técnicas o Administrativas, Auditoría Interna y externas, así como los documentos que den respuesta a los acuerdos del Comité, deberán ser remitidos directamente por las áreas responsables al Coordinador del Comité de Tecnología de Información, el cual distribuirá los mismos a los miembros del Comité (vía electrónica o física, según corresponda).
