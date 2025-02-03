@@ -1,0 +1,1 @@
+Artículo 8º-Atención de situaciones calificadas. El Departamento Electoral será quien atenderá y resolverá en forma motivada cualquier situación particular que manifieste la persona ciudadana sobre la imposibilidad para pagar la reposición de cédula de identidad.

@@ -1,0 +1,1 @@
+Artículo 4º-Cómputo del año calendario. Para fines del cobro por reposición de la cédula de identidad, el año calendario a que se refiere la Ley n.° 10243 empezará a computarse a partir de la fecha en que se efectúe la primera solicitud de reposición.

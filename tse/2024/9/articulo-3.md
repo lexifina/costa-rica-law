@@ -1,0 +1,1 @@
+Artículo 3º-Trámite de cobro por reposición de documento de identidad. A partir de la segunda reposición o reimpresión de cédula de identidad en un mismo año calendario, se cobrará por la emisión de un nuevo documento conforme al costo que se indica en el artículo 5 de este reglamento.

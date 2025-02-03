@@ -1,0 +1,1 @@
+Artículo 6º-Gestión de cobro y excepciones. La Dirección General del Registro Civil emitirá los lineamientos en los que se definirá el procedimiento que deberán seguir las personas ciudadanas para el pago de la reposición de cédula de identidad de conformidad con la Ley y este reglamento o para la aplicación de excepciones.
