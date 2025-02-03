@@ -1,0 +1,2 @@
+Transitorio único. Se faculta a la División de Incentivos Fiscales de esta Dirección, para que realice las valoraciones internas respectivas, de forma tal que las autorizaciones de exención otorgadas con fecha de vencimiento en el año 2025 y 2026, se les pueda ampliar el plazo, siempre y cuando se pueda validar el cumplimiento de los requisitos formales que fundamentaron la primera autorización, para que tengan el mismo plazo de 4 años indicado en el artículo 1° de la presente resolución.
+Es conforme.
