@@ -1,0 +1,1 @@
+Artículo 8°-La recomendación de la Comisión Especial se hará en orden descendente con el objetivo de que si la persona propuesta no aceptare su designación, la misma recaerá en la persona que ocupe el lugar siguiente y de persistir la no aceptación en la tercera persona distinguida, el reconocimiento en ese año se declarará desierto.

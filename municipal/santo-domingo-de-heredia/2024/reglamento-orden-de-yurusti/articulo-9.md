@@ -1,0 +1,1 @@
+Artículo 9°-A los integrantes de la comisión Especial de la Municipalidad de Santo Domingo, y a los miembros del concejo municipal, les alcanzan las mismas limitaciones, prohibiciones y deberes que señala el código municipal en cuanto a la filiación familiar o política con algunos de los candidatos propuestos en la terna.

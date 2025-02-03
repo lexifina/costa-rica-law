@@ -1,0 +1,1 @@
+Artículo 2°-Su objetivo será analizar, estudiar y deliberar sobre las propuestas que se formulen a esta comisión sobre el domingueño que se haga merecedor de ser distinguido con la "Orden de Yurustí".
