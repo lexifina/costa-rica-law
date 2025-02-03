@@ -1,0 +1,1 @@
+Artículo 2º-Se declara de interés público el funcionamiento y las actividades que realice la Comisión y consecuentemente se solicita la colaboración de las entidades pública; para que, dentro de sus posibilidades y competencias, sirvan de apoyo y asesoramiento a la Comisión.

@@ -1,0 +1,1 @@
+Artículo 3º-La Presidencia de la Comisión estará 'a cargo del ministro de Relaciones Exteriores y Culto o de su representante de la Dirección General de Política Exterior, el Departamento de Límites y Fronteras.

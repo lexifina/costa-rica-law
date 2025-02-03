@@ -1,0 +1,1 @@
+Artículo 9º-El Ministerio de Relaciones Exteriores y Culto, a través del Departamento de Límites y Fronteras, deberá coordinar con los otros entes, y organizar los asuntos logísticos y administrativos para la realización de las sesiones.

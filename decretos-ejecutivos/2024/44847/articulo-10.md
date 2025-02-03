@@ -1,0 +1,1 @@
+Artículo 10.-La Comisión podrá crear subcomisiones de trabajo con el fin de asegurar el adecuado desempeño de sus funciones. Las subcomisiones de trabajo estarán conformadas por funcionarios de nivel técnico de las instituciones que integran la Comisión, las cuales también deberán cumplir con lo regulado en el artículo 6, del presente Decreto Ejecutivo.
