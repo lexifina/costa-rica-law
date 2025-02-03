@@ -1,0 +1,1 @@
+Artículo 35.-La resolución de la Municipalidad que deniegue la licencia, tendrá los recursos de revocatoria y apelación para ante el Alcalde Municipal, de conformidad con lo establecido en el artículo 171 del Código Municipal.

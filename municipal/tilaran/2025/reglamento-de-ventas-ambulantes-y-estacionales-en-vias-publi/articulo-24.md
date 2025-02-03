@@ -1,0 +1,1 @@
+Artículo 24.-De los recursos: La resolución de la Municipalidad que deniegue la licencia, tendrá los recursos de revocatoria y de apelación para ante el Alcalde Municipal de conformidad con lo establecido en el artículo 171 del Código Municipal.

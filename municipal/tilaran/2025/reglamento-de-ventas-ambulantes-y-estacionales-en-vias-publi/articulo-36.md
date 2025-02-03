@@ -1,0 +1,1 @@
+Artículo 36.-Las resoluciones de la Municipalidad que ordenen la suspensión de la licencia por falta de pago, no tendrá curso alguno y su tramitación no admitirá prueba en contrario salvo la excepción de pago.

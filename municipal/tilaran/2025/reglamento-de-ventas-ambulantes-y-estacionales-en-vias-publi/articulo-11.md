@@ -1,0 +1,1 @@
+Artículo 11.-De las prohibiciones: Quedan terminantemente prohibidas en ventanas de comercios establecidos cuando los dependientes y/o productos tengan que ocupar la vía pública para ejercer la actividad.

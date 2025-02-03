@@ -1,0 +1,1 @@
+Artículo 6º-De la caducidad de la licencia: La municipalidad declarará la caducidad de la patente de ventas ambulantes o estacionarias, cuando el patentado de ésta, no la utilice por más de dos trimestres. En tal caso, no podrá volver a otorgarse una patente de esta naturaleza a quien la dejó caducar.
