@@ -14,3 +14,4 @@ Reglamento al plan municipal para la gestión integral de residuos sólidos del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-16 | la propia norma |
+| 2 | 2025-02-03 | Reglamento municipal 40 (2025-02-03) |
