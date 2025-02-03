@@ -1,0 +1,1 @@
+Artículo 10.-Improbaciones. Las solicitudes de modificación presupuestaria que por diversas razones sean improbadas, podrán ser presentadas nuevamente por medio de una nueva solicitud de modificación presupuestaría, cuando hayan sido corregidas las causas de su rechazo o improbación.

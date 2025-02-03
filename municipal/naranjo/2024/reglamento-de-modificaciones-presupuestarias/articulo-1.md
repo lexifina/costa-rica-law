@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE NARANJO
+CONCEJO MUNICIPAL
+Reforma integral al Reglamento Interno de Modificaciones Presupuestarias del Gobierno Local de Naranjo, aprobado por el Concejo Municipal de Naranjo mediante el Acuerdo SE-56- 05-2024 tomado en la sesión extraordinaria N° 56 celebrada el 18 de diciembre de 2024.
+El Concejo Municipal del Cantón de Naranjo, de conformidad con lo establecido en los 169 y 170, de la Constitución Política, artículos 2°, 3° y 4° párrafo primero e inciso a), de la Ley N° 7794 Código Municipal, en uso de sus atribuciones, emite el presente "Reglamento de Modificaciones Presupuestarias con fundamento en el Reglamento sobre Variaciones al Presupuesto de los Entes y Órganos Públicos, Municipalidades y Entidades de Carácter Municipal, Fideicomisos y Sujetos Privados. R-1-2006-CODFOE de la Contraloría General de la República (CGR), publicado en La Gaceta N° 170 del martes 5 de setiembre del 2006, el cual establece en su artículo 14, que corresponde al Jerarca establecer los mecanismos y procedimientos formales que estime conveniente, previos al trámite interno de formulación y aprobación de las modificaciones presupuestarias.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º-Alcance. El presente reglamento de modificación de recursos presupuestarios del Gobierno Local de Naranjo en el ejercicio de sus competencias y el resguardo de la hacienda pública; asimismo; precisa los procedimientos alcances y regulaciones aplicables.

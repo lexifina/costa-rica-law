@@ -1,0 +1,1 @@
+Artículo 6º-De los recursos de la Ley 8114 y 9329. En el caso de las modificaciones que incluyan recursos cuyo origen sea transferencias de Gobierno Central por las leyes N° 8114 Ley de Simplificación y Eficiencias Tributarias y N° 9329 Ley de Transferencia de Competencias, deberá adjuntarse el respectivo acuerdo de la Junta Vial Cantonal.

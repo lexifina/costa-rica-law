@@ -1,0 +1,1 @@
+Artículo 14.-Vigencia. Este presente Reglamento de Modificaciones Presupuestarias rige a partir de su publicación en el Diario Oficial La Gaceta, para lo cual se utilizará el procedimiento establecido en el artículo 43 de la Ley N° 7794 Código Municipal.
