@@ -17,3 +17,4 @@ Reglamento autónomo de servicio del Instituto Costarricese de Acueductos y Alca
 | 2 | 2012-12-11 | Reglamento 57 (2012-12-11) |
 | 3 | 2017-05-10 | Reglamento 30 (2017-05-10) |
 | 4 | 2019-05-14 | Reglamento 25 (2019-05-14) |
+| 5 | 2025-02-03 | Reglamento 7 (2025-02-03) |
