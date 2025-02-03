@@ -1,0 +1,6 @@
+Artículo 3º-Requisitos para participar.
+Para poder participar en la elección y ser elegido representante ante la Comisión Técnica Interinstitucional de la REDCUDI, se deberá aportar lo siguiente:
+a.- Nota suscrita por la persona o personas que ostenta (n) la representación legal de la asociación u organización no gubernamental en la que se indique el nombre y número de identificación de la persona que representara a la entidad en el proceso de elección, nombre de la organización y personería jurídica vigente.
+b.- Documento que acredite que la asociación u organización no gubernamental cuenta con permiso de habilitación o funcionamiento vigente extendido por el Ministerio de Salud para brindar servicios de cuido y atención integral de niños y niñas.
+c.- Certificación donde se haga constar que la asociación u organización no gubernamental dedicada a administrar y atender centros de cuido y desarrollo infantil no está siendo sujeta de investigación por situaciones violatorias de derechos en perjuicio de personas menores de edad emitida por la unidad ejecutora de subsidios para el beneficio de cuidado y desarrollo infantil según corresponda.
+Los anteriores documentos deberán indicarse expresamente en la publicación de la convocatoria como requisitos para participar.

@@ -1,0 +1,3 @@
+Artículo 7º-Apertura de la Sesión.
+Constatadas las personas representantes con legitimación para participar, se procederá a dar solemne apertura a la sesión, indicando los nombres de las personas que participaran y de las asociaciones y organizaciones no gubernamentales que representan.
+La sesión será dirigida por la persona que ostenta el cargo de Director Ejecutivo de la Secretaría Técnica de la REDCUDI, a quien corresponderá, entre otros aspectos, declarar la apertura de la sesión, presentar el orden del día, explicar los objetivos de la misma y el procedimiento que se empleará para la elección de la persona representante, así como levantar el acta de la sesión.

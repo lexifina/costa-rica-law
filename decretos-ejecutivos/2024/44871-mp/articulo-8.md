@@ -1,0 +1,6 @@
+Artículo 8º-Postulación de candidatos y elección de la persona representante.
+Para la elección de la persona representante, en la sesión las personas participantes podrán postular candidatos o auto postularse, lo cual se deberá consignar en el acta de la sesión.
+La elección de la persona representante del sector formado por las asociaciones u organizaciones no gubernamentales, dedicadas a administrar y atender los centros de cuido y desarrollo infantil, ante la Comisión Técnica Interinstitucional de la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI), se realizará mediante voto libre, directo y secreto, de los electores presentes en la sesión, escogiendo entre las distintas organizaciones que se hayan presentado para tal efecto.
+Cada asociación u organización no gubernamentales debidamente inscrita dispondrá de un único voto.
+El voto podrá ser ejercido únicamente por la persona representante legal de la organización o que cuente con una autorización escrita por parte de éste, que se haya inscrito conforme con los requisitos del artículo 3 del presente reglamento.
+Para los efectos del sufragio, se instalará una mesa electoral con una urna para el depósito de las papeletas con el voto de los electores.

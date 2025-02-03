@@ -1,0 +1,3 @@
+Artículo 10.-Proclamación.
+Habiendo ejercido el voto el último de los electores presentes en la sesión, se cerrará la votación y se consignará la hora en el acta, así mismo, se procederá al respectivo escrutinio.
+Concluido el escrutinio y conocido el resultado, se procederá a proclamar el candidato con la mayor cantidad de votos, el cual quedará automáticamente electo como representante del sector formado por las asociaciones u organizaciones no gubernamentales, dedicadas a administrar y atender los centros de cuido y desarrollo infantil, ante la Comisión Técnica Interinstitucional de la Red Nacional de Cuido y Desarrollo Infantil (REDCUDI).

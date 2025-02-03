@@ -1,0 +1,3 @@
+Artículo 5º-Obligaciones y Derechos del representante de las asociaciones u organizaciones que integrará la Comisión Técnica interinstitucional.
+La persona representante de las asociaciones u organizaciones que resulté electa tendrá todos los derechos y obligaciones derivadas de su naturaleza de miembro de la Comisión Técnica Interinstitucional de la REDCUDI según la Ley N° 9220 y sus reformas, reglamentos y demás normativa institucional.
+Deberá participar en las sesiones que se convoquen una vez cada dos meses y, extraordinariamente, cuando se le convoque por su presidente; las decisiones se tomarán por mayoría simple de los presentes y fungirá en forma ad honórem.
