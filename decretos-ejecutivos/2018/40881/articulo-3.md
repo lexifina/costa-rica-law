@@ -1,1 +1,0 @@
-Artículo 3.- La citada Normativa se pone a disposición, para las personas que deban consultarla, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministerio desalud.go.cr Y en fisico estará disponible en la Secretaría Técnica de Salud Mental.
