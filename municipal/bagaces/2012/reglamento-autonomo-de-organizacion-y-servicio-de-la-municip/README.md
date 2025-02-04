@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Municipalidad de Bagaces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-12 | la propia norma |
+| 2 | 2025-02-04 | Reglamento municipal 57 (2025-02-04) |
