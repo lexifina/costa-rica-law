@@ -14,3 +14,4 @@ Creación del Fondo de prevención, exclusión y combate contra el fusarium oxys
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-15 | la propia norma |
+| 2 | 2025-02-05 | Decreto Ejecutivo 44926 (2025-02-05) |
