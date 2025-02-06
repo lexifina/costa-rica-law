@@ -1,0 +1,1 @@
+Artículo 2º- Alcance. Este reglamento es de acatamiento obligatorio a toda persona física o jurídica que almacene, transporte y comercialice biogás y biometano en el territorio nacional en escalas semi-industriales e industriales.

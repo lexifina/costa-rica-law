@@ -1,0 +1,1 @@
+Artículo 13º- Comercialización. Cualquier persona física o jurídica podrá comercializar el biogás y el biometano, siempre que las instalaciones semi-industriales e industriales cumplan con las normas NFPA citadas en el artículo 9 del presente reglamento, y cuenten con los permisos correspondientes según se indica en el artículo 14 del presente reglamento.

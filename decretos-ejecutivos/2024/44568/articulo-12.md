@@ -1,0 +1,1 @@
+Artículo 12º- Excedentes de Biogás. En caso de que en los sistemas de escala semiindustrial o industrial se generen excedentes de biogás y/o biometano, los cuales no sean consumidos o almacenados en estas instalaciones, deberán contar con un proceso de quemado seguro del biogás por medio de antorcha, con el fin de evitar la emisión de gas metano.
