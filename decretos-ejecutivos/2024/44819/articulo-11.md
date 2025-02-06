@@ -1,0 +1,2 @@
+Artículo 11.- Acuerdos de la Comisión Institucional. Los acuerdos de la Comisión Institucional serán adoptados por mayoría absoluta de sus miembros presentes en la sesión.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros de la Comisión Institucional y sea declarada la urgencia del asunto por el voto favorable de todos ellos.

@@ -1,0 +1,1 @@
+Artículo 8.- Sesiones de la Comisión Institucional. La Comisión Institucional sesionará ordinariamente cada seis meses y extraordinariamente cuando el caso lo amerite, a solicitud de la Presidencia. Para esto deberá convocarse vía correo electrónico con una antelación mínima de veinticuatro horas.

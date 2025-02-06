@@ -1,0 +1,1 @@
+Artículo 9.- Quórum en las sesiones de la Comisión Institucional. Para que pueda sesionar la Comisión Institucional, se necesitará la presencia de una mayoría absoluta de sus miembros. Si no hubiere quórum a la hora convocada, podrá sesionar después de media hora. y para ello será suficiente la asistencia de la tercera parte de sus miembros.
