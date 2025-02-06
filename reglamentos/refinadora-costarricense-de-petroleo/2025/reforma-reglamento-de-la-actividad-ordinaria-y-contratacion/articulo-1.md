@@ -1,0 +1,20 @@
+REFINADORA COSTARRICENSE DE PETRÓLEO S. A.
+Para su conocimiento y fines consiguientes, me permito comunicarles el acuerdo firme tomado por la Junta Directiva de la Empresa, el cual consta en el artículo 07 de la Sesión ordinaria N° 5442-140, celebrada el martes 14 de enero de 2025.
+Acuerdo firme:
+De conformidad la recomendación contenida en el oficio DAF-0017-2025 del 10 de enero de 2025, se acuerda
+1. Reformar el artículo 18 del "Reglamento de la Actividad Ordinaria y Contratación Pública de RECOPE" aprobado por la Junta Directiva en el artículo 5, del acta de la Sesión Ordinaria 5415-113 celebrada el 02 de julio de 2024, para que en adelante disponga lo siguiente:
+"Artículo 18.-Niveles de competencia
+Los niveles de competencia para el dictado de actos finales en los procesos de contratación se definen de la siguiente manera:
+a) Unidad de Contratación Bienes y Servicios: Menos del umbral superior definido por la Contraloría General de la República para la licitación reducida, excluyendo obra pública.
+b) Departamento de Proveeduría: Menos del umbral superior definido por la Contraloría General de la República para la licitación reducida de obra pública.
+c) Direcciones, Gerencia General y Presidencia: Menos del umbral superior definido por la Contraloría General de la República para la licitación menor de obra pública.
+d) Junta Directiva: A partir del umbral definido por la Contraloría General de la República para la licitación mayor de obra pública.
+Los umbrales definidos para los niveles de competencia corresponden al régimen diferenciado, conforme a las disposiciones del artículo 36 de la Ley General de Contratación Pública y se ajustarán de forma automática anualmente, según la actualización que efectúe la Contraloría General de la República en la segunda quincena del mes de diciembre, de acuerdo a lo dispuesto en la ley anteriormente citada.
+La Junta Directiva de la Empresa otorgará competencia / poderes a las personas funcionarias que en razón de su puesto deban dictar los actos finales de los procesos de contratación.
+La Gerencia General, o en su ausencia la Presidencia, aprobará la decisión inicial para contratar en los procesos de contratación cuyo dictado del acto final sea competencia de la Junta Directiva. Igualmente procederá para la licitación mayor cuando se trate de obra pública, en cuyo caso deberá suscribirse conjuntamente con el jefe de la unidad solicitante, el departamento y la Dirección de Área.
+La Dirección de Área aprobará el inicio de los procesos de licitación hasta el nivel de competencia otorgado, siendo que, cuantías que superen la misma, corresponderá aprobarlo a la Gerencia General.
+La jefatura de la unidad solicitante aprobará el inicio de los procesos de licitación reducida para el suministro de bienes y servicios, y para obra pública deberá ser aprobado adicionalmente por el departamento de área".
+2. Reformar el artículo 19 del "Reglamento de la Actividad Ordinaria y Contratación Pública de RECOPE", para adicionar el inciso 19.23, que dispondrá lo siguiente:
+"Artículo 19.-Delegación de actos administrativos
+(...)
+19.23 Modalidad y Tipo de contrato denominados Convenios Marco Corresponderá a la Dirección de Administración y Finanzas adoptar los actos administrativos sobre las gestiones que involucre el tipo y modalidad de contrato denominado Convenio Marco".
