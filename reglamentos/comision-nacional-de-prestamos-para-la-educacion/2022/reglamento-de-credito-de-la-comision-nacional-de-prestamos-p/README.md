@@ -18,3 +18,4 @@ Reglamento de crédito de la Comisión Nacional de Préstamos para Educación
 | 3 | 2023-09-07 | Reglamento 19 (2023-09-07) |
 | 4 | 2023-11-09 | Reglamento 23 (2023-11-09) |
 | 5 | 2024-09-26 | Reglamento 26 (2024-09-26) |
+| 6 | 2025-02-06 | Reglamento 3 (2025-02-06) |

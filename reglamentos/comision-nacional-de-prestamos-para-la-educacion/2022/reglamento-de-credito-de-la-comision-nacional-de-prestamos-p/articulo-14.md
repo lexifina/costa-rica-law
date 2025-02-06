@@ -35,3 +35,5 @@ n. La desestimación de una solicitud de crédito se realizará según se establ
 (Así modificada la numeración del inciso anterior en sesión N° 19-2023 del 7 de setiembre de 2023, que lo traspaso del antiguo inciso m) al inciso n))
 o. CONAPE podrá revisar la información crediticia del solicitante y validar la información presentada, cuando así lo considere necesario mediante los medios disponibles con que cuente la institución para reforzar el análisis crediticio y toma de decisiones.
 (Así adicionado el inciso anterior en sesión N° 26 del 26 de setiembre de 2024)
+p. El solicitante o beneficiario de un préstamo, sea o no asalariado, o con ingresos propios, no podrá presentar la condición de embargo en ninguna de las etapas de ejecución del préstamo. En caso de que no lo informe con su solicitud de préstamo, se desestimará, descolocará o trasladará a la fase de cobro. q. Como resultado del análisis de su solicitud, CONAPE podrá ajustar el monto solicitado para el préstamo, en caso de que la garantía no sea suficiente, lo cual será comunicado al solicitante.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 03-2025 del 6 de febrero de 2025)

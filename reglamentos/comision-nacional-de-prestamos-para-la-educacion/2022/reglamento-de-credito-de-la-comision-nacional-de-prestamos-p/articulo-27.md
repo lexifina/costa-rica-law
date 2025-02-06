@@ -1,5 +1,6 @@
 27. ARTÍCULO Deducciones del ingreso familiar
-CONAPE puede aplicar al cálculo del factor de Ingreso líquido familiar mensual, las siguientes deducciones en caso de que, por tema de ingreso, la solicitud requiera aprobarse como una garantía menor:
+CONAPE puede aplicar al cálculo del factor de Ingreso líquido familiar mensual, las siguientes deducciones:
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 03-2025 del 6 de febrero de 2025)
 a. Deducciones obligatorias
 i. CCSS
 ii. Fondo del régimen obligatorio de pensión complementaria.

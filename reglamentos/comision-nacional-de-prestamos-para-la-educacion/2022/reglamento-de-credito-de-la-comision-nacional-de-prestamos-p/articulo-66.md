@@ -1,3 +1,5 @@
 CAPÍTULO X: SEGUIMIENTO Y CONTROL DEL CRÉDITO
 66. ARTÍCULO Desembolso del préstamo
 El préstamo se desembolsará de conformidad con la periodicidad y los montos estipulados en el respectivo Plan de Desembolsos, salvo casos excepcionales a juicio de la Sección de Desembolsos y Control de Crédito, resuelto mediante Resolución Administrativa.
+Además, el prestatario deberá informar a Conape si presenta condición de embargos, independiente de su estatus laboral como asalariado, no asalariado o ingresos propios. En caso de estar embargado, la Jefatura de la Sección de Desembolsos podrá autorizar el desembolso que está en trámite y otorgar un plazo justificado para que el prestatario regule su situación. Una vez vencido este plazo y de persistir la condición de embargo, se suspenderán los siguientes desembolsos y en salvaguarda de los recursos públicos, se podrá trasladar la operación crediticia a la fase de recuperación.
+(Así adicionado el párrafo anterior en sesión ordinaria N° 03-2025 del 6 de febrero de 2025. En esta misma sesión se indica que la modificación es al artículo 65. No obstante; del análisis se deduce que en realidad es al numeral 66)
