@@ -14,3 +14,4 @@ Reforma ECA-MP-P08 Manual de procedimientos de evaluación y acreditación (Vers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-05 | la propia norma |
+| 2 | 2025-02-06 | Acuerdo 2 (2025-02-06) |
