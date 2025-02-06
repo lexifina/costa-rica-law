@@ -1,0 +1,1 @@
+Artículo 2.- Derogatoria. Se deroga el Decreto Ejecutivo N° 43639-MP-MRREE, "Creación del Comisionado de la Presidencia de la República para la inclusión social", del 18 de julio de 2022, publicado en La Gaceta N° 211 del 04 de noviembre de 2022.
