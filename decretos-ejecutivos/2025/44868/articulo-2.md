@@ -1,0 +1,5 @@
+Artículo 2. Adiciónese el inciso ddd) y eee) al Artículo 2 del Decreto Ejecutivo No. 43432-S del 09 de marzo de 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorizaciones para eventos temporales de concentración masiva de personas, otorgados por el ministerio de salud", publicado en el alcance 60 a la gaceta N° 56 del veintitrés de marzo del dos mil veintidós, que se lea de la siguiente manera:
+"Artículo 2°. - Definiciones y abreviaturas.
+(...)
+ddd) Empresa Virtual: Aquella empresa que desarrolla sus actividades económicas completamente en el entorno digital; no requiere de un espacio físico para la operación del negocio y para la atención de proveedores o clientes; todas sus comunicaciones y transacciones se llevan a cabo a través de herramientas digitales; y sus trabajadores trabajan de manera remota."
+eee) Productos de interés Sanitario: Producto cuyo uso, consumo o exposición puede afectar a la salud y por ello son regulados por el Ministerio de Salud.
