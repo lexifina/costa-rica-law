@@ -1,0 +1,2 @@
+Artículo 108.- Libros que deben legalizar las Asociaciones Solidaristas.
+En el caso de la Asociaciones Solidaristas, deberán presentar para la autorización de sello de apertura y cierre de libros debidamente foliados los siguientes: actas de Asamblea Generales, actas de Junta Directiva, registro de socios y libros de contabilidad. Para el caso de la autorización de sello de una nueva apertura y cierre de libros es necesaria la presentación de los anteriores. Lo anterior con firma en forma manuscrita o digital en formato de documento portátil (PDF).

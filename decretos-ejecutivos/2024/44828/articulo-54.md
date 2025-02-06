@@ -1,0 +1,5 @@
+CAPÍTULO TERCERO
+De la Inscripción y Registro de Asociaciones Solidaristas
+Artículo 54.- De la denominación
+Toda asociación constituida al amparo de la LAS incluye en su nombre el concepto "Asociación Solidarista". El nombre de la asociación será propiedad exclusiva de la misma y nadie podrá hacer uso de él. Toda asociación solidarista deberá constituirse con no menos de doce trabajadores mayores de edad y podrán ser afiliados los trabajadores mayores de dieciséis años.
+Según lo señala el RLAS en su artículo 2, si se trata de una asociación solidarista que incluye varias empresas, la denominación debe contener la frase: "y afines". Se debe presentar la carta de compromiso de aporte patronal de cada una de ellas donde se identifique el representante legal, el nombre y cédula jurídica de la empresa y además conste el nombre completo de la asociación y el monto del porcentaje del aporte patronal que aportará el patrono a la asociación. Debe comprobarse mediante documento idóneo (certificación registral o notarial) que las empresas tienen un vínculo jurídico entre sí.

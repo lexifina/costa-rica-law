@@ -1,0 +1,2 @@
+Artículo 116.- Base de la publicidad registral.
+La publicidad registral está constituida por la información contenida en los expedientes de las Organizaciones Sociales, los tomos, información electrónica y digitalización documental. Debe existir entre esos sistemas una estrecha relación, siendo todos auxiliares, recíprocos y complementarios, a fin de garantizar la unidad, seguridad y congruencia de la información registral. La información registrada por el DOS es accesible a través de los expedientes impresos y digitales según la disponibilidad.

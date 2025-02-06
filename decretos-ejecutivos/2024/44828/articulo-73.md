@@ -1,0 +1,2 @@
+Artículo 73.- De la inscripción de reformas al estatuto de una Federación Solidarista.
+Según lo estipula la LAS en el artículo 29, para modificar el estatuto total o parcialmente se deberá celebrar una asamblea extraordinaria. Por su parte el artículo 36 de esta misma Ley permite la posibilidad de que en una misma asamblea se podrán tratar asuntos de carácter ordinario y extraordinario, si la convocatoria así lo indica.

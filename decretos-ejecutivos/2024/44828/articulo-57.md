@@ -1,0 +1,12 @@
+Artículo 57.- Requisitos para la inscripción de la renovación de la Junta Directiva y el órgano de fiscalía de asociaciones solidaristas.
+Según lo estipula la LAS en su artículo 27 inciso c), corresponde a la asamblea general de asociados la ratificación, reelección o revocatoria del nombramiento de los directores o del fiscal y su suplente, así como la designación de las vacantes que queden en alguno de sus titulares. Para la inscripción de la renovación de la Junta Directiva y el órgano de fiscalía, además de los requisitos generales que se detallan en el Capítulo Único inciso 4) del presente reglamento se debe presentar lo siguiente:
+a. Copia del acta donde se efectuaron los nombramientos, firmada por el Presidente. Si la documentación se presenta impresa, las firmas deben ser manuscritas. Si los documentos se presentan en forma digital, se verificará el certificado y firma digital, en formato de documento portátil.
+Según lo establece la LAS en su artículo 73 y el RLAS en su artículo 9, el DOS verificará en el acta lo siguiente:
+i. Fecha, hora y lugar de celebración.
+ii. Cumplimiento del quórum de apertura necesario según número de convocatoria (primera, segunda).
+iii. Número de asistentes. (En caso de celebrarse en primera convocatoria).
+iv. Acuerdo de nombramiento de la Junta Directiva con indicación del nombre, apellidos y número de identificación. Siempre será número impar, con no menos de cinco de los miembros. Fungirán en sus cargos por el plazo que fije el estatuto, el cual no podrá ser mayor
+a dos años
+v. Nombramiento del Órgano de Fiscalía con indicación del nombre, apellidos y número de identificación. La vigilancia de la asociación estará a cargo de uno o varios fiscales, asociados o no, quienes durarán en sus cargos por el plazo que se fije en los estatutos. Estos miembros podrán ser reelegidos por períodos consecutivos no mayores de dos años. Sus nombramientos son revocables.
+vi. Según lo estipula el RLAS, en su artículo 10 cuando se trate de inscripción de directivos deberá acompañarse de una declaración jurada en el sentido de que los miembros electos a cargos de junta directiva no están afectados por lo indicado en el artículo 14 de la LAS. Se deberá llenar el Anexo 1 Formulario para declaración jurada miembros de junta directiva de asociaciones solidaristas.
+b. Nómina de asociados a la fecha de celebración de la asamblea, suscrita por el Presidente y Secretaría.

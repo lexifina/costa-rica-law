@@ -1,0 +1,2 @@
+Artículo 26.- Cooperativas de ahorro y crédito.
+Cuando se trate de cooperativas de ahorro y crédito o de organismos de grado superior de esta clase, además de lo anterior deben aportar la autorización de la SUGEF, cuando corresponda según lo establecido en la LAC, en su artículo 21. En caso de cooperativas de autogestión debe presentar la constancia de que notificó a la CPCA según lo establece la LAC artículo 85.

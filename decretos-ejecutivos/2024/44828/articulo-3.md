@@ -1,0 +1,1 @@
+Artículo 3.- Competencia. Es competencia del DOS el registro e inscripción de la constitución de las Organizaciones Sociales, de sus órganos directivos y sus modificaciones estatutarias; y otros como la inscripción de la disolución, fusión, así como la emisión, a solicitud de parte, de las certificaciones de su personería jurídica.

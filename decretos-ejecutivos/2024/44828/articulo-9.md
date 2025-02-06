@@ -1,0 +1,1 @@
+Artículo 9.-Retiro de Documentación. Con el propósito de subsanar la información aportada con expectativa de registro, el usuario podrá hacer la solicitud de retiro sin inscribir de los documentos presentados en el tanto, no hayan sido registrados ni generado derecho, para ello deberá llenar el "Formulario para solicitar el retiro de documentos sin inscribir" (Anexo 03).

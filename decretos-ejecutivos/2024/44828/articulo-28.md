@@ -1,0 +1,1 @@
+Artículo 28.- Liquidación de la Cooperativa. Una vez finalizada la liquidación de la organización, el INFOCOOP deberá comunicarlo mediante oficio al DOS el cual procederá a elaborar el edicto de cancelación de inscripción.

@@ -1,0 +1,2 @@
+Artículo 109.- Libros que deben legalizar las Asociaciones Sindicales.
+En el caso de Asociaciones Sindicales deberán presentar para la autorización de sello de apertura, debidamente foliados los siguientes: Actas de Asamblea Generales, registro de socios y libros de contabilidad. Para el caso de la autorización de sello de una nueva apertura y cierre de libros es necesaria la presentación de los anteriores impresos o digital en formato de documento portátil.

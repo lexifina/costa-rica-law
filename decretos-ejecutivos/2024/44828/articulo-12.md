@@ -1,0 +1,1 @@
+Artículo 12.- Fe pública. El DOS dará fe de la información contenida en una certificación al momento de ser expedida. Las variaciones que ocurran con posterioridad no acarrearán responsabilidad alguna al Registro.

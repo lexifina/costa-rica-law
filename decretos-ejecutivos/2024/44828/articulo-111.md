@@ -1,0 +1,2 @@
+Artículo 111- Solicitud de legalización.
+La legalización de libros se hará para las asociaciones solidaristas constituidas al amparo de lo estipulado en el Reglamento a la LAS, en su artículo 9 y para las asociaciones sindicales según lo dispone el artículo 349 inciso a) del CT. Para la solicitud ante el DOS de la legalización de libros se deberá presentar requerimiento con firma en forma manuscrita o digital en formato de documento portátil, por el representante legal de la organización.

@@ -1,0 +1,1 @@
+Artículo 7.- Horario. El horario de recepción de documentos impresos será en horas hábiles. En el caso de las solicitudes digitales que se realicen en horas no hábiles se registrará como fecha de ingreso, del día hábil siguiente siguiendo el orden en que ingresaron.

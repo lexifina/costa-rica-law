@@ -1,0 +1,2 @@
+Artículo 40.- Recibo de la sentencia de los Tribunales de Trabajo.
+Ya sea que se trate de un trámite de disolución forzosa o voluntaria, una vez recibida la sentencia de disolución por parte de los Tribunales de Trabajo, el DOS cancelará la respectiva inscripción por nota marginal y ordenará que se publique por tres veces consecutivas en el diario oficial un extracto de la resolución judicial, administrativa o de la Asamblea del sindicato, que así lo haya acordado.
