@@ -16,3 +16,4 @@ Procedimiento ECA-MP-P08-101 Instructivo de grupos de trabajo (Versión 01)
 | 1 | 2020-07-02 | la propia norma |
 | 2 | 2020-10-19 | Acuerdo 0 (2020-10-19) |
 | 3 | 2021-07-14 | Acuerdo 9 (2021-07-14) |
+| 4 | 2025-02-06 | Acuerdo 2 (2025-02-06) |
