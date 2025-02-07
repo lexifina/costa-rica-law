@@ -1,0 +1,1 @@
+Artículo 2°- Se deroga el Decreto Ejecutivo N° 40510-MINAE del 5 de mayo del 2017, "Reglamento Técnico RTCR 482:2015 Productos eléctricos Refrigeradores y Congeladores Electrodomésticos Operados por Motocompresor Hermético. Especificaciones de Eficiencia Energética", publicado en La Gaceta Nº164, Alcance N° 211 del 30 de agosto de 2017.
