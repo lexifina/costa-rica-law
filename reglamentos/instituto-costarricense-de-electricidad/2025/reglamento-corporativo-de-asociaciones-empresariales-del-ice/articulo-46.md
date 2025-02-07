@@ -1,0 +1,3 @@
+Artículo 46. Finalización de la Asociación Empresarial
+1. El Administrador del Acuerdo de Asociación Empresarial debe realizar un Informe de Cierre Final de la Asociación Empresarial.
+2. El Administrador del Acuerdo de Asociación Empresarial podrá suscribir un documento de finalización de la Asociación Empresarial (finiquito), no mediando ningún asunto pendiente. Este documento debe ser firmado por las mismas autoridades que suscribieron la Asociación Empresarial, con la asesoría de las Áreas Jurídicas, o bien por el representante que haya sido designado para este fin en el documento de formalización de la Asociación Empresarial.

@@ -1,0 +1,2 @@
+Artículo 34. De la conformación del expediente y su custodia.
+Los Enlaces de Registro deben respaldar la gestión de evaluación, inscripción y actualización de los potenciales socios y para ello deben consignar un expediente de registro por cada uno de ellos. Dicho expediente podrá ser físico o electrónico, conformado por documentos finales, debidamente foliado o bien identificado con la secuencia respectiva, siguiendo el mismo orden cronológico en que fueron presentados los distintos documentos.

@@ -1,0 +1,3 @@
+Artículo 50. Derogatorias
+1. Se deja sin efecto el Reglamento de Alianzas Estratégicas y Otras Formas de Asociación Empresarial, versión 5 aprobado por el Consejo Directivo en el artículo 4 de la Sesión 6558 del 24 de enero de 2023, así como cualquier otra normativa, directriz, lineamiento o circular que se le oponga.
+2. Se instruye a los órganos competentes de las subsidiarias del ICE para que dejen sin efecto los reglamentos existentes en esta materia; así como la normativa, directriz, lineamiento o circular que se oponga al presente Reglamento Corporativo de Asociaciones Empresariales del ICE y sus Empresas.

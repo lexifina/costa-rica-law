@@ -1,0 +1,1 @@
+Transitorio II. Al entrar en vigencia este Reglamento, los acuerdos de asociaciones empresariales en ejecución se regirán por la normativa con la cual fueron desarrollados, excepto por lo indicado en el Capítulo VIII de este Reglamento, referente al seguimiento al proceso de ejecución.
