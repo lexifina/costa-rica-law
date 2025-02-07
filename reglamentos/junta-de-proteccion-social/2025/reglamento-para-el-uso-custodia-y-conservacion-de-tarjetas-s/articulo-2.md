@@ -1,0 +1,1 @@
+Artículo 2º-Objeto. El presente Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares o tarjetas SIM propiedad de la Junta, que esta asigne a sus funcionarios como un medio para facilitar y mejorar el desempeño de sus funciones.

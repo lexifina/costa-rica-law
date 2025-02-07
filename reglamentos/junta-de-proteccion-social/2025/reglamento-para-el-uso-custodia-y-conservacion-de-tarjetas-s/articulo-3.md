@@ -1,0 +1,3 @@
+Artículo 3º-De los usuarios del servicio. En atención a los cargos que desempeñan, esta Institución autoriza la asignación de tarjetas SIM o teléfonos celulares de su propiedad a los siguientes funcionarios: Presidente, Gerente General, Gerentes de Área, Auditor Interno y Subauditor Interno.
+Asimismo, se autoriza la asignación de tarjetas SIM o de teléfonos celulares de su propiedad a otros funcionarios que previo análisis de conveniencia, necesidad y oportunidad la Gerencia General, determine procedente.
+La asignación y uso de tarjetas SIM y teléfonos celulares, se debe sujetar en todo momento a los principios de razonabilidad, racionalidad y, en general a las prácticas de sana administración de los recursos públicos.

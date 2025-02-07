@@ -1,0 +1,2 @@
+Artículo 4º-De la Comunicación de las Asignaciones. La Gerencia comunicará formalmente a la Asesoría Jurídica el nombre de los funcionarios a los cuales se les asigna el uso de una tarjeta SIM o un teléfono celular propiedad de la Junta, o bien el nombre de los funcionarios con los que se ha acordado el uso de teléfono propio.
+Además de lo anterior, la Gerencia deberá indicar si la asignación que se lleva a cabo es por tiempo indefinido o temporal, caso en el cual, indicará la fecha y/o la condición a partir de la cual se dará por finalizada tal asignación.

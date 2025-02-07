@@ -1,0 +1,2 @@
+Artículo 9º-Uso exclusivo. La tarjeta SIM o el teléfono celular asignado es para uso exclusivo del usuario al que se le asignó, entendiendo que será utilizado para atender y realizar llamadas relativas única y exclusivamente al cumplimiento de las funciones, tareas y actividades propias de su cargo. En consecuencia, queda terminantemente prohibido el trasiego o préstamo de tarjetas SIM o teléfonos celulares de un usuario a otro.
+Se exceptúa de esta disposición el uso temporal y excepcional de teléfono propio cuando el mismo se haga con la tarjeta SIM propiedad del usuario.

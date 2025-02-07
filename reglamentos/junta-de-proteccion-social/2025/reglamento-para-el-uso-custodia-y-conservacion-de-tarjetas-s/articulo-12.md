@@ -1,0 +1,2 @@
+Artículo 12.-De la Resolución del Convenio. La asignación para el uso de una tarjeta SIM, un teléfono celular o el servicio de internet, no crea derechos, no se considerará parte del salario ni como atribución o beneficio personal.
+En consecuencia, la Gerencia podrá dejar sin efecto la asignación para su uso en cualquier momento, sea porque desaparezca la necesidad Institucional, por incumplimiento a las disposiciones de este Reglamento, por limitaciones presupuestarias o por cualquier otra razón que se determine previo análisis justificado y razonado.

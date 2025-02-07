@@ -1,0 +1,1 @@
+Artículo 13.-De las sanciones. El incumplimiento de las disposiciones contenidas en el presente Reglamento hará acreedor al usuario de las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que conforme al ordenamiento jurídico le sean aplicables.

@@ -1,0 +1,4 @@
+Artículo 7º-Control de tarjetas SIM y teléfonos celulares asignados. El Departamento Contable y Presupuesto, así como la Unidad de Control de Activos deberá llevar un registro actualizado de las tarjetas SIM y de los teléfonos celulares propiedad de la Junta que sean asignados.
+En el caso de las tarjetas SIM en dicho registro se consignará el número de línea asignado y el operador telefónico al que pertenece la misma.
+En el caso de los teléfonos celulares en dicho registro se consignará el número de línea asignado, el número de serie, marca, modelo, número de patrimonio del teléfono y sus accesorios.
+Además de lo anterior, en ambos tipos de asignación se consignará el nombre, el número de cédula y el cargo del usuario a quien se le autorizó el uso de la tarjeta SIM o el teléfono celular, así como la fecha de su asignación y cualquier otro dato que se considere de importancia.
