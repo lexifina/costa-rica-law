@@ -1,5 +1,5 @@
-Artículo 3º-Distribución de los recursos. El Consejo determinará, conforme a la recomendación que genere su Director(a) Ejecutivo(a), la distribución de los recursos asignados en la norma presupuestaria anual a través de dos cuentas especiales autorizadas por la Tesorería Nacional, a saber:
-a) Una cuenta presupuestaria en la que se registrarán las asumas asignadas a la partida 6 denominada Fondo por Girar.
-b) Una cuenta presupuestaria en la que se registrarán las asumas asignadas a la partida 7 denominada Fondo de Proyectos.
+Artículo 3º-Distribución de los recursos. El Consejo determinará en el transcurso de cada periodo presupuestario, conforme la recomendación que genere su Director(a) Ejecutivo(a), la distribución de los recursos asignados en la norma presupuestaria anual a través de dos cuentas especiales autorizadas por la Tesorería Nacional, a saber:
+a) Una cuenta denominada Fondo por Girar.
+b) Una cuenta denominada Fondo de Proyectos.
 La Dirección Ejecutiva del Consejo fundamentará su recomendación tomando en cuenta los recursos dispuestos en las partidas y subpartidas presupuestarias, el detalle conceptual establecido para estas en el Clasificador por Objeto del Gasto, los niveles de recaudación y disposición que sobre las mismas le comunique la Tesorería Nacional, así como cualquier otro elemento que considere conveniente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 44360 del 8 de enero del 2024)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44922 del 10 de febrero del 2025)

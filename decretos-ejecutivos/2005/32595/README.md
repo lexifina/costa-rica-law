@@ -15,3 +15,4 @@ Reglamento del artículo 19 de la Ley N° 3859 sobre Desarrollo de la Comunidad 
 | --- | --- | --- |
 | 1 | 2005-09-08 | la propia norma |
 | 2 | 2024-01-08 | Decreto Ejecutivo 44360 (2024-01-08) |
+| 3 | 2025-02-10 | Decreto Ejecutivo 44922 (2025-02-10) |
