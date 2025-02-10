@@ -1,0 +1,1 @@
+Artículo 2º-Oficializar la versión 2.0 del Diccionario de Competencias Laborales Docentes, contemplando los ajustes de forma y fondo planteados, así como aquellos niveles de dominio establecidos para las clases de puestos docentes (exceptuando las clasificaciones ocupacionales del Subsistema de Educación Indígena).
