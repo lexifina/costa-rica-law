@@ -1,0 +1,1 @@
+ARTÍCULO 17. En caso de ser necesaria una segunda elección, el Departamento Talento Humano convocará a elecciones dentro de los cinco días hábiles siguientes a la declaratoria del resultado de la primera elección, utilizando el mismo padrón de esta primera elección.

@@ -1,0 +1,1 @@
+ARTÍCULO 18. En una segunda elección quedará electa la papeleta que obtenga la mayoría de votos válidamente emitidos. Si en una segunda elección se produce un empate, la suerte decidirá mediante el lanzamiento de una moneda, a cargo del Tribunal Electoral.

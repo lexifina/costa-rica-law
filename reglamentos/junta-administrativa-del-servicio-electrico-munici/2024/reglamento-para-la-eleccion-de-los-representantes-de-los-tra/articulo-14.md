@@ -1,0 +1,1 @@
+ARTÍCULO 14. Los electores deberán identificarse iniciando sesión en el sistema informático para elecciones del FAG, a través de su usuario y contraseña. Ejercerán su voto electrónico eligiendo una opción entre, una papeleta inscrita o "Voto en blanco".

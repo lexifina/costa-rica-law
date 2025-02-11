@@ -1,0 +1,1 @@
+ARTÍCULO 3. Es un deber inherente a la condición de cotizante del FAG el desempeño de las funciones de miembro del Tribunal. Únicamente procederá la excusa para participar en el caso de que se alegue motivos de fuerza mayor, la cual, estará sujeta a la valoración y decisión del Departamento de Talento Humano.

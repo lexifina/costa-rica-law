@@ -1,0 +1,1 @@
+ARTÍCULO 16. Quedará electa la papeleta que obtenga la mayoría de votos válidamente emitidos, siempre que estos en total representen la mitad más uno de los funcionarios que conforman el padrón electoral.

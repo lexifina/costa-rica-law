@@ -1,0 +1,3 @@
+ARTÍCULO 12. Las personas que acepten formar parte de las papeletas, deberán estar de acuerdo en atender las obligaciones que impone el ser miembro de la Junta de Crédito y Vigilancia del FAG conforme lo establecen las diferentes normas del Fondo.
+Las Papeletas solo podrán estar constituidas por personal permanente o nombrado a plazo fijo, que coticen para el FAG, y contar con equidad de género tanto en los postulantes propietarios como suplentes.
+En caso de no obtenerse postulación alguna se prorrogará el plazo para las postulaciones hasta por una semana y de no lograrse la participación deseada se tendrá por prorrogada por un periodo adicional la representación de los (as) trabajadores (as) en la Junta de Crédito y Vigilancia del FAG vigente

@@ -1,0 +1,2 @@
+ARTÍCULO 11. Para las elecciones de los representantes de los (as) Trabajadores (as) en la Junta de Crédito y Vigilancia del FAG, los votos se recibirán el día señalado en un período comprendido entre las 05:30 y 17 horas para los centros de trabajo: Birris, Tuis, Barro Morado, El Bosque y Fátima, y entre las 07:24 y 17:00 horas para los centros de trabajo: Edificio Central y Cerrillos
+En el caso de nuevos centros de trabajo, el Departamento Talento Humano establecerá el horario correspondiente.

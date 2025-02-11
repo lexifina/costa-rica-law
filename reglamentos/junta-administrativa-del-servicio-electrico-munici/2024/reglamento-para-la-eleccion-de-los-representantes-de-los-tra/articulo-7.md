@@ -1,0 +1,7 @@
+ARTÍCULO 7. Las elecciones de los representantes de los Trabajadores en la Junta de Crédito y Vigilancia del FAG, se regirá por las siguientes normas:
+a) El Departamento Talento Humano determinará la fecha de la elección, al menos dentro de los cuarenta y cinco días previos al vencimiento del nombramiento de los(as) representantes de los Trabajadores (as) en la Junta de Crédito y Vigilancia del FAG, conforme lo dispuesto en el artículo 15 de las Normas para el Establecimiento y Operación del Fondo de Retiro,
+Ahorros y Garantías
+b) La convocatoria deberá realizarse por lo menos con veinte días de anticipación a la elección. La juramentación del Tribunal Electoral deberá realizarse por lo menos con cinco días hábiles de anticipación al día de vencimiento del cargo electivo actual
+c) Las exclusiones del Padrón deben aplicarse por razones de renuncia, muerte, permiso sin goce de salario por la totalidad del tiempo laboral y despido. Las vacaciones, incapacidades y permisos con goce de salario no son razones para excluir a cotizantes del padrón
+d) En el término de cinco días hábiles previos a la fecha de la elección, el Departamento Talento Humano remitirá el Padrón al Tribunal, clasificado este último según ubicación del votante en cada centro de trabajo donde le corresponde emitir el voto. El padrón electoral recibido deberá ser comunicado vía correo institucional
+e) Los cotizantes emitirán su voto en el sistema informático de elecciones del FAG

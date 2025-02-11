@@ -1,0 +1,1 @@
+ARTÍCULO 9. El Departamento Talento Humano establecerá el cronograma con la indicación expresa de los periodos para la postulación de papeletas, el desarrollo de la propaganda y demás actividades propias del proceso de elecciones

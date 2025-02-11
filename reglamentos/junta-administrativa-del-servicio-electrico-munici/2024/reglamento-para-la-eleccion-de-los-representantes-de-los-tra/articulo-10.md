@@ -1,0 +1,2 @@
+ARTICULO 10. El plazo otorgado a las papeletas postulantes para realizar actividades de propaganda y promoción abarcará desde la declaratoria de candidaturas hasta el día hábil anterior a la realización de las votaciones.
+El Tribunal deberá estimular y propiciar los espacios y mecanismos para que los integrantes de las distintas papeletas puedan comunicar y exponer a la población laboral sus propuestas.
