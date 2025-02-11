@@ -56,7 +56,8 @@ Objetivos específicos del SEVRI-Colegio de Contadores Públicos de Costa Rica:
 Compromiso del Superior Jerárquico y Titulares Subordinados:
 La Junta Directiva y la Dirección Ejecutiva se comprometen a implementar las gestiones pertinentes para que el SEVRI se incorpore de manera integral en las actividades que realiza el Colegio de Contadores Públicos de Costa Rica, para esto se proporcionara los recursos humanos, tecnológicos y financieros para lograr la implementación y consolidación del SEVRI, aplicando los resultados en la toma de decisiones para cumplirlos objetivos estratégicos.
 Lineamientos Generales del SEVRI-Colegio de Contadores Públicos de Costa Rica:
-Ø El Colegio de Contadores Públicos de Costa Rica, por medio de los encargados asignados al SEVRI, desarrollaran las acciones correspondientes para establecer, mantener y perfeccionar el SEVRI. El SEVRI será aplicado por el Departamento de Fiscalía del Colegio.
+Ø El Colegio de Contadores Públicos de Costa Rica, por medio de los encargados asignados al SEVRI, desarrollaran las acciones correspondientes para establecer, mantener y perfeccionar el SEVRI. El SEVRI será aplicado por el Departamento Financiero Administrativo del Colegio.
+(Así reformado el punto anterior mediante sesión ordinaria N° 2-2025 del 11 de febrero de 2025)
 Ø Los titulares subordinados realizarán la valoración de riesgos que se detallan en este manual, se requiere la colaboración constante de los colaboradores involucrados con el fin de obtener resultados reales.
 Ø La información que suministre el SEVRI debe ser accesible, comprensible, completa, actualizada y de carácter oficial, que debe estar disponible a los sujetos interesados.
 Ø La administración del Colegio valorara en los diferentes proyectos desarrollados por el Colegio de Contadores Públicos de Costa Rica, si se debe contar con la identificación de los riesgos asociados a su puesta en marcha.

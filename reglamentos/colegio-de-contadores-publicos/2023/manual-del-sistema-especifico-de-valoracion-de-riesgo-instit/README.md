@@ -14,3 +14,4 @@ Manual del sistema específico de valoración de riesgo institucional del Colegi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-23 | la propia norma |
+| 2 | 2025-02-11 | Reglamento 2 (2025-02-11) |
