@@ -1,0 +1,24 @@
+CIRCULAR No. 29-2025
+Asunto: Sustitución de la Circular 47-2020: Reglas prácticas para efectivizar el cumplimiento del establecimiento de regímenes de interrelación familiar; por las Reglas prácticas para efectivizar el cumplimiento del establecimiento de Regímenes de -interrelación familiar supervisados.
+A LOS DESPACHOS JUDICIALES DEL PAÍS QUE CONOCEN PROCESOS DE FAMILIA,
+VIOLENCIA DOMÉSTICA, O NIÑEZ Y ADOLESCENCIA
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 08-2025 celebrada el 30 de enero de 2025, artículo XXXIV, a solicitud de la Comisión de la Jurisdicción de Familia, Niñez y Adolescencia, dispuso hacer de conocimiento de los despachos que conocen procesos de familia, violencia doméstica, o niñez y adolescencia, lo siguiente:
+La intervención del Departamento de Trabajo Social y Psicología tiene como finalidad emitir un criterio técnico respecto a la dinámica generada y otros factores relevantes, acontecidos durante el transcurso del encuentro y referentes a la relación recíproca entre la persona beneficiaria del régimen y la persona solicitante de este.
+- Estos procesos se regirán por los siguientes lineamientos:
+- El rol profesional de la persona perito está circunscrito a una labor de observación de la dinámica entre las personas referidas, de modo que, no corresponde realizar intervención terapéutica, incluido el proceso de revinculación, ni de otra índole que se aparte del objetivo técnico en el ámbito forense.
+- Es necesario que toda persona beneficiaria de un régimen de interrelación familiar supervisado, haya sido informada del vínculo con la persona solicitante de previo a ser referida al Departamento.
+- Al personal del Departamento no le corresponde convencer u obligar a la persona beneficiaria a ingresar al recinto donde se va a efectuar el régimen supervisado o participar de la sesión.
+- Cualquier requerimiento de apoyo para las personas intervinientes del régimen deberá ser diligenciado previamente por el juzgado correspondiente (por ejemplo, asignación de apoyos técnicos, nombramiento de intérpretes, entre otros recursos).
+- Para la definición del régimen de interrelación familiar supervisado deben considerarse las particularidades de la persona beneficiaria (por ejemplo, edad, condición de discapacidad, entre otros), con el fin de determinar el tiempo de cada sesión (horas), así como la extensión del plazo máximo, cuyo periodo recomendado es de tres meses. La autoridad judicial debe señalar lo anterior en las respectivas boletas de referencia.
+- El Departamento de Trabajo Social y Psicología supervisa los procesos dentro del horario ordinario establecido institucionalmente.
+- El régimen de interrelación familiar supervisado debe realizarse en un espacio privado, sin interrupciones, de ser posible en una Cámara de Gesell de acuerdo con las disposiciones institucionales.
+- Al juzgado a cargo le corresponderá especificar las obligaciones concretas que debe llevar a cabo cada persona participante del régimen, sea:
+- No procede la presencia e ingreso al recinto en el que se desarrolla el régimen, por parte de la persona custodia o encargada de acompañar a la persona beneficiaria del régimen.
+- La responsabilidad del personal perito judicial del Departamento es cumplir con la supervisión del régimen, cualquier inconformidad o inconveniente de alguna de las partes con la ejecución de este deberá canalizarlo por medio del juzgado. El personal pericial no tiene facultades para suspender o modificar el régimen de interrelación familiar supervisado, tampoco le compete analizar los antecedentes (por medio del conocimiento de expedientes u otros) del proceso, ni dar audiencia a las partes para conocer su criterio respecto a la conveniencia o no del régimen.
+- Cualquier situación que imposibilite la ejecución del régimen, deberá ser informada de inmediato por parte del Departamento a la Autoridad Judicial mediante comunicado escrito, y esta deberá dar respuesta inmediata con el fin de optimizar los recursos institucionales y no incurrir en atrasos innecesarios en el proceso.
+- La autorización en torno al uso de medios tecnológicos para realizar llamadas, audios, videos y fotografías por alguna de las partes durante el régimen supervisado, deberá ser otorgada previamente por parte de la autoridad judicial del despacho solicitante.
+- Si durante el régimen supervisado la parte solicitante aporta alimentos a la persona beneficiaria, es su responsabilidad tomar en cuenta sus antecedentes de salud, evitando exponerla a una situación de riesgo.
+Se insta al mantenimiento de una comunicación fluida entre los despachos de familia, así como aquellos que conozcan de esta materia y el Departamento de Trabajo Social y Psicología.
+Publíquese una vez en el Boletín Judicial.
+San José, 11 de febrero de 2025.
