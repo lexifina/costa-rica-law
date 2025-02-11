@@ -1,0 +1,1 @@
+Artículo 6º- Los actos de la Administración Municipal que afecten a el funcionario se regirán en lo conducente por las reglas de los artículos 124 al 161 del Código Municipal, Código de Trabajo y legislación concordantes.
