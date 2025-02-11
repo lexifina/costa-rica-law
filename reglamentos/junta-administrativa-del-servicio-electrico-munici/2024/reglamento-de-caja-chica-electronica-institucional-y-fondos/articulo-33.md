@@ -1,0 +1,5 @@
+Artículo 33-Arqueos de Fondos.
+El Departamento de Tesorería es el responsable de aplicar los arqueos sorpresivos a los encargados de fondos para lo cual el Jefe del Departamento de Tesorería realizará una programación anual la cual se manejará con sigilo con el profesional del Departamento de Tesorería destinado para dicha actividad con la finalidad de que ningún colaborar adicional tenga acceso a dicha información para de esta forma poder realizar los controles respectivos sobre los recursos bajo custodia de los encargados de fondos.
+Para los arqueos no sorpresivos asociados a traslados temporales o cese definitivo el departamento responsable debe coordinar previamente con el Departamento de Tesorería la programación respectiva para su aplicación
+La aplicación de los arqueos se realizará mediante el formulario PARF.PR5.FM14 del Arqueo de Caja Chica y Fondos Especiales
+De detectarse sobrantes o faltantes en el acto de aplicar los arqueos se debe de cumplir con lo definido en PARF.PR5.PT01 "Política de Faltantes y Sobrantes"

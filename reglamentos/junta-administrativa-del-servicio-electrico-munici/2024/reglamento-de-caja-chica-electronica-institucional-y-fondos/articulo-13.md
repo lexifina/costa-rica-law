@@ -1,0 +1,5 @@
+COMPETENCIAS
+Artículo 13- Sub Gerente, Directores de Negocios, Jefes de Área, Jefes de Departamento.
+a. El Sub-Gerente, Directores de Negocio, Jefes de Área tienen la competencia técnica para solicitar al Gerente General la autorización de emisión de tarjetas de compras institucionales para la adquisición de combustibles, pagos de peajes, parquímetros, parqueos, revisiones técnicas, gastos de alimentación y cualquier otro rubro que considere necesario para temas de operativa institucional para lo cual deben de remitir la solicitud formal con las justificaciones técnicas del requerimiento
+b. El Sub-Gerente, Directores de Negocio, Jefes de Área tienen la competencia técnica para solicitar ante el Jefe del Departamento de Tesorería el cierre de fondos especiales mediante las tarjetas de compras institucionales
+c. Será competencia de la jefatura inmediata del encargado de los fondos especiales comunicar al Área de Servicios Administrativos las exclusiones e inclusiones de encargados de fondos de caja para tramitar las actualizaciones respectivas de las pólizas de fidelidad ante la aseguradora.

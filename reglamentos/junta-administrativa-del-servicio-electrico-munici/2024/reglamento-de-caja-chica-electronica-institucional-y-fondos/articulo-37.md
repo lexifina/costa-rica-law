@@ -1,0 +1,4 @@
+Artículo 37-Cese definitivo del encargado del fondo o traspasos temporales de un responsable a otro.
+Cuando el funcionario encargado de la Administración de un Fondo, cese definitivamente de sus funciones o traspasos temporales, el jefe inmediato procederá a asignar el sustituto y el Departamento Tesorería realizará un arqueo de traslado que debe quedar firmado por el funcionario que entrega, el funcionario que realiza el arqueo y el que recibe los fondos.
+Será responsabilidad del encargado del fondo que cesa definitiva o temporalmente impartir la respectiva inducción al nuevo encargado sobre el adecuado funcionamiento del Fondo, uso del módulo en SIFAJ de requerirse, así como del Reglamento vigente.
+Cuando el encargado del fondo se ausente de su trabajo temporalmente por un plazo igual o superior a 5 días hábiles se aplicará el mismo procedimiento asignando un sustituto y coordinando el arqueo de traslado del fondo, así como la respectiva inducción.

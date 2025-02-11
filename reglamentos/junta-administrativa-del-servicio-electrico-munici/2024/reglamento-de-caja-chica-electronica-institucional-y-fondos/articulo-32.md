@@ -1,0 +1,3 @@
+Artículo 32-Póliza de fidelidad.
+Se asignará una póliza de fidelidad a todos los encargados de fondos especiales de cambio de menudo y Fondos de las Cajas de Plataforma de Servicio al Cliente según la definición del artículo 35 de la Convención Colectiva vigente que posean bajo su custodia el efectivo.
+Será responsabilidad de la jefatura inmediata del encargado del fondo comunicar al Jefe del Área de Servicios Administrativos las exclusiones, modificaciones de montos e inclusiones de encargados de fondos de caja para tramitar las actualizaciones respectivas de las pólizas ante la entidad aseguradora.

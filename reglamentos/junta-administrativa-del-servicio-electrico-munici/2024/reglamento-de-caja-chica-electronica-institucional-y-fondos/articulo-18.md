@@ -1,0 +1,4 @@
+Artículo 18- Actualización del monto del Fondo de Caja Chica Electrónica Institucional.
+Anualmente y a más tardar en la segunda quincena del mes de diciembre de cada año se actualizará el monto asignado al Fondo de Caja Chica Electrónica Institucional una vez publicados los umbrales que emite la Contraloría General de la República según procedimiento de contratación
+La actualización del monto asignado al Fondo de Caja Electrónica Institucional deberá ser comunicado, con la debida antelación, al encargado de Fondo de Caja Chica Electrónica Institucional, al Departamento Contabilidad y al Departamento de Tesorería
+El encargado del Fondo de Caja Chica Electrónica Institucional una vez emitida y comunicada la actualización del monto del fondo de caja debe presentar dentro del plazo de los cinco días hábiles siguientes la solicitud de trasferencia para el depósito en la cuenta bancaria de la administración del fondo del monto adicional autorizado

@@ -1,0 +1,4 @@
+Artículo 35-Medidas que garanticen la seguridad de los Fondos.
+La ubicación física, las medidas de control y seguridad para el resguardo de cada uno de los fondos es responsabilidad del Jefe inmediato del encargado del Fondo en conjunto con el encargado de fondo.
+El responsable del fondo debe contar con un espacio físico asignado bajo llave para la custodia de la caja de seguridad en donde se resguarda el fondo en efectivo asignado, tanto el espacio físico como la caja de seguridad debe de contar con las condiciones óptimas para el resguardo, se debe de contar con una cámara de seguridad que monitore las áreas asignadas para los plataformistas.
+Siempre se debe velar cumplir con el resguardo y seguridad del efectivo sea en cuenta bancaria o el que se custodia físicamente para evitar que se materialice un evento que coloque en riesgo su administración.

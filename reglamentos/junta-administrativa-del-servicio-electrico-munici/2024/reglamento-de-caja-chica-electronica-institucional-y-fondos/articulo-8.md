@@ -1,0 +1,2 @@
+Artículo 8- Sub Gerente, Directores de Negocios, Jefes de Área, Jefes de Departamento.
+a. Autorizar vales por las compras de Caja Chica Electrónica Institucional según los montos establecidos para autorizar compras con fondos de Caja Chica, emitida por la Gerencia General. De no utilizarse el efectivo girado deben emitir un oficio de justificación a la hora de la devolución del dinero al responsable del Fondo de caja chica y proceder con el depósito del efectivo en la cuenta bancaria indicada por el Departamento de Tesorería

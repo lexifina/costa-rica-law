@@ -1,0 +1,8 @@
+Artículo 25- Prohibición para utilizar el Fondo de Caja Chica Electrónica Institucional.
+El Fondo de Caja Chica Electrónica institucional no podrá utilizarse en los siguientes casos:
+a. Cuando el valor de la compra sobrepase los límites autorizados en el presente Reglamento.
+b. Cuando los bienes estén disponibles en el Departamento Almacén. En caso de comprobarse que respecto al bien adquirido existía reserva en el Departamento Almacén, el funcionario que realizó la compra, asumirá el gasto y conservará para sí el bien adquirido
+c. Los Fondos de Caja Chica no deberán utilizarse para realizar operaciones distintas para las cuales fue creado el fondo y para las que se destinan esos recursos.
+d. No podrá realizarse compra alguna por medio del Fondo de Caja Chica Electrónica Institucional si ya existe en curso un procedimiento de contratación pública vigente por el mismo objeto.
+e. En concordancia con el artículo 33 de la Ley General de Contratación Pública y 83 de su reglamento, la Administración no podrá fragmentar sus operaciones respecto a necesidades previsibles, por lo que no es permitido realizar varias compras a través del Fondo de Caja Chica Electrónica Institucional en un mismo momento dentro del presupuesto ordinario con los recursos necesarios y habiéndose planificado las necesidades administrativas concretas, con el propósito específico de evadir el procedimiento de contratación que corresponda.
+f. No obstante, para los incisos d) y e) se podrá realizar compras mediante este Fondo ante un requerimiento acreditado como imprescindible e impostergable para prevenir un perjuicio económico, técnico o de imagen para la Institución, para lo cual se debe contar con un oficio de autorización del Gerente General.

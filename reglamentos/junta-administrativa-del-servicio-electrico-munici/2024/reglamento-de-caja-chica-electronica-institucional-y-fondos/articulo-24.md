@@ -1,0 +1,2 @@
+Artículo 24- Vale para las compras mediante el Fondo de Caja Chica Electrónica Institucional Toda solicitud de dinero por fondos de caja chica deberá realizarse mediante el formulario PARF.PR5.FM12 denominado "Vale de Caja Chica". Estos formularios se generan directamente en el módulo de Caja Chica-SIFAJ y deberán estar debidamente numerados de forma consecutive.
+Los formularios que deban anularse, en virtud de error humano en su confección, deben de adjuntarse en los documentos de la liquidación.
