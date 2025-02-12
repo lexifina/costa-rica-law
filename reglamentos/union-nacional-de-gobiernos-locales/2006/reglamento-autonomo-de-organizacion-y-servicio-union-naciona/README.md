@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicio Unión Nacional de Gobiernos Lo
 | --- | --- | --- |
 | 1 | 2006-02-23 | la propia norma |
 | 2 | 2007-01-18 | Reglamento 2 (2007-01-18) |
+| 3 | 2025-02-12 | Reglamento 5 (2025-02-12) |
