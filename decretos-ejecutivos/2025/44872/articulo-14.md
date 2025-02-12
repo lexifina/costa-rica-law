@@ -1,0 +1,1 @@
+Artículo 14.- Refórmense los artículos 1, 2, 3, 4, 6, 8, 9, 11, 12, 14, 17, 19, 22, 23, 25 y 26 del Decreto No. 38601-C, denominado "Reglamento del Fondo Becas-Taller para el Desarrollo de Proyectos Culturales", para que en donde se consigna "becas-taller" se lea "Fondo para Iniciativas Socioculturales (Becas Taller").

@@ -1,0 +1,1 @@
+Artículo 15.- Refórmense los artículos 2, 6, 7, 8, 12, 14, 15, 17, 19, 20, 21, 22 y 24 del Decreto No. 38601-C, denominado ''Reglamento del Fondo Becas-Taller para el Desarrollo de Proyectos Culturales", para que en donde se consigna "Dirección de Cultura" se lea ''Dirección de Gestión Sociocultural".
