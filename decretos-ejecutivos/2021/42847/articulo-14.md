@@ -45,9 +45,11 @@ b. Aprobación de un programa de estudios de posgrado (residencia médica) de se
 Este programa de estudios debe contemplar y garantizar rotaciones en adultos y niños.
 Podrán también solicitar la inscripción en esta Especialidad, aquellos Médicos Especialistas en Cirugía General, Cirugía Pediátrica, Cirugía Vascular o en Cirugía de Tórax General, ante el Colegio de Médicos y Cirujanos y que cumplan cola aprobación de un programa de estudios de posgrado (residencia médica) de tres (3) años en la Especialidad de Cirugía de Tórax y Cardiovascular, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad. Este programa de estudios debe contemplar y garantizar rotaciones en adultos y niños.
 (Así reformado el punto 14.8) anterior en sesión ordinaria 2023-06-14, celebrada el 14 de junio de 2023)
-14.9. Especialidad Médica en Cirugía General.
+(*) 14.9. Especialidad Médica en Cirugía General.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Cirugía General y del Aparato Digestivo.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Cirugía General, en un Hospital de Tercer Nivel, Regional o Periférico perteneciente o adscrito a una Universidad.
+(*) (Así reformada la especialidad de médica en cirugía general anterior en sesión ordinaria 2025-02-12, celebrada el 12 de febrero de 2025)
 14.10 Especialidad Médica en Cirugía Pediátrica.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cinco (5) años en la Especialidad de Cirugía Pediátrica, en un Hospital de Tercer Nivel, Regional, Periférico o Centro Especializado, perteneciente o adscrito a una Universidad.

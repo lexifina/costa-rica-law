@@ -41,3 +41,4 @@ Reglamento de especialidades y subespecialidades médicas
 | 26 | 2024-07-31 | Reglamento 0 (2024-07-31) |
 | 27 | 2024-07-31 | Reglamento 0 (2024-07-31) |
 | 28 | 2024-10-16 | Reglamento 0 (2024-10-16) |
+| 29 | 2025-02-12 | Reglamento 0 (2025-02-12) |
