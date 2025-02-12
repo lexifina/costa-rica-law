@@ -1,0 +1,6 @@
+Artículo 13. Seguridad en la atención extrahospitalaria.
+Para dar un entorno seguro durante la atención de los incidentes:
+a) Los proveedores públicos y privados de atención extrahospitalaria deberán tener procedimientos internos acordes a los procedimientos establecidos por el Ministerio de Salud, para garantizar la salud y seguridad del personal extrahospitalario y de sus pacientes en incidentes que requieran la participación y apoyo de los recursos policiales.
+b) El Estado costarricense procurará por medio de los cuerpos policiales, a brindar apoyo a los proveedores de la atención extrahospitalaria para establecer y mantener perímetros de seguridad, para su resguardo durante la atención de las emergencias, según los procedimientos o solicitudes que surjan durante dicha atención.
+c) Las instituciones deben contar con un manual de procedimientos de uso interno para el mantenimiento de los equipos, que impliquen la prestación del servicio, así como, los procesos de desinfección y manejo de desechos biopeligrosos, producto de la atención y traslado de pacientes.
+d) Los proveedores de servicios de atención extrahospitalaria, deberán contar con los procedimientos internos y dispositivos para procurar el resguardo a la integridad física de sus colaboradores.

@@ -1,0 +1,2 @@
+Artículo 48. Medidas Especiales.
+Con el fin de evitar el riesgo o daño a la salud de las personas, teniendo en vista una efectiva protección de la salud de la población, ante el incumplimiento de las disposiciones establecidas en este Decreto Ejecutivo, las autoridades sanitarias están facultadas para aplicar las medidas especiales que resulten aplicables, establecidas en los artículos 355 y 356 de la Ley N° 5395 del 30 de octubre de 1973 "Ley General de Salud". "

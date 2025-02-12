@@ -1,0 +1,2 @@
+Artículo 28. Capacitación y recertificación.
+Es responsabilidad de todo el personal APA y AEM recertificarse cada dos años. En el caso del personal TEM, deberán seguir las directrices establecidas por el Colegio de Médicos y Cirujanos, para la actualización de sus conocimientos. En el caso de los profesionales en enfermería extrahospitalaria deberán seguir las directrices establecidas por el Colegio de Enfermeras de Costa Rica.

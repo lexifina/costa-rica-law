@@ -1,0 +1,3 @@
+Artículo 26. Uso de ambulancias privadas en casos fortuitos.
+En caso de que un proveedor privado se encuentre con un incidente debido a circunstancias imprevistas o fuera de lo planificado, será prioritario garantizar la asistencia extrahospitalaria.
+Esta asistencia es esencial en aquellos casos en que la condición del paciente requiera atención médica urgente y la espera de una ambulancia de otro proveedor público pudiera comprometer su vida o integridad. Los proveedores privados, sin desmerecer su interés comercial, deberán mantener un firme compromiso con la atención de emergencias y el bienestar de los pacientes, garantizando así un servicio eficiente y oportuno en situaciones críticas.

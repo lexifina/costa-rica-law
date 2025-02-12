@@ -1,0 +1,2 @@
+Artículo 16. Protección de datos personales.
+Los proveedores públicos y privados de servicios extrahospitalarios deberán, actuar apegados a lo establecido en la Ley N° 8968 del 7 de julio del 2011 "Protección de la persona frente al tratamiento de sus datos personales" y a las disposiciones establecidas en el Decreto Ejecutivo N° 37554-JP del 30 de octubre del 2012 "Reglamento a la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales".

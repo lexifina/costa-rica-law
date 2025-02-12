@@ -1,0 +1,1 @@
+Transitorio I: Se otorga un plazo de un año a partir de la publicación del presente reglamento para que el Ministerio de Salud elabore los procedimientos que deben aplicarse para cumplir con lo estipulado en el presente reglamento.

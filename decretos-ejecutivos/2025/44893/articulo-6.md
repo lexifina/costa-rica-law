@@ -1,0 +1,5 @@
+Artículo 6. La Caja Costarricense de Seguro Social (CCSS) en la atención extrahospitalaria.
+La Caja Costarricense de Seguro Social (CCSS) con sustento en el artículo 6 de la Ley N° 7566 del 18 de diciembre de 1995 "Creación del Sistema de Emergencias 9-1-1", los incisos b) y d) del artículo 7 del Decreto Ejecutivo N° 43617-S del 28 de junio del 2022 "Creación del sistema nacional de atención de emergencias médicas y traumáticas (SINAEMET)", tendrá las siguientes responsabilidades en el ámbito de la atención extrahospitalaria:
+a) Recibir la información de los proveedores de atención extrahospitalaria sobre la condición de los pacientes clasificados, para derivarlos según su condición de salud y la capacidad resolutiva de la red de servicios de la CCSS.
+b) Coordinar con los proveedores de atención extrahospitalaria la recepción, atención y seguimiento de los pacientes referidos a los establecimientos de la red de servicios de la CCSS.
+c) Establecer mecanismos efectivos de comunicación, intercambio de información y retroalimentación con los proveedores de atención extrahospitalaria, a fin de asegurar la continuidad y calidad de la atención.

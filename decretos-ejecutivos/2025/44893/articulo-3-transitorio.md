@@ -1,0 +1,1 @@
+Transitorio III: Se otorga un plazo de veinticuatro meses a partir de la publicación del presente reglamento al Ministerio de Salud, para que desarrolle e implemente el Registro Nacional de Asistentes de Primeros Auxilios (APA) y Asistentes de Emergencias Médicas (AEM).

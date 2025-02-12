@@ -1,0 +1,1 @@
+Transitorio II: Se otorga un plazo de seis meses a partir de la publicación del presente reglamento para que los establecimientos de salud públicos o privados, que reciban personas usuarias de servicio provenientes de la atención extrahospitalaria, elaboren e implementen los protocolos y procedimientos establecidos en el inciso b) del artículo 9 del presente Decreto Ejecutivo.
