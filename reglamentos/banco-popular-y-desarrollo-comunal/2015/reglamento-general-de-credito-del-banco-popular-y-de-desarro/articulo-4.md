@@ -1,4 +1,5 @@
-Artículo 4º Sin perjuicio de lo establecido en el artículo anterior, los créditos se regirán por las siguientes condiciones generales:
+Artículo 4º
+Sin perjuicio de lo establecido en el artículo anterior, los créditos se regirán por las siguientes condiciones generales:
 a. En todo análisis de crédito se deberá considerar el nivel de riesgo de la operación, quedando facultado el Banco, en forma discrecional, de conformidad con las reglas de los artículos 15 y 16 de la Ley General de la Administración Pública, a denegar el crédito.
 b. Solamente se recibirán solicitudes de crédito que estén acompañadas de toda la documentación solicitada.
 c. Durante la tramitación del crédito y su vigencia, el Banco podrá solicitar cualquier otro documento que considere para el caso concreto, con el fin de actualizar, completar o aclarar la información presentada por la parte solicitante.

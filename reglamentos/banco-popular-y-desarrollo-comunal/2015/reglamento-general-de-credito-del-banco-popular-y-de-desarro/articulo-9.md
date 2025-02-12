@@ -1,1 +1,2 @@
-Artículo 9º En caso de pignoración de acciones, el Banco se reservará el derecho de voto en la asamblea de accionistas, tanto ordinaria como extraordinaria. Corresponderá a la Gerencia General Corporativa designar representación del Banco para tales efectos.
+Artículo 9º
+En caso de pignoración de acciones, el Banco se reservará el derecho de voto en la asamblea de accionistas, tanto ordinaria como extraordinaria. Corresponderá a la Gerencia General Corporativa designar representación del Banco para tales efectos.

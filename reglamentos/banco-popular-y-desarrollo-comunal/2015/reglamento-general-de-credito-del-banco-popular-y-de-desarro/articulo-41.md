@@ -1,4 +1,5 @@
-Artículo 41° En caso de emergencia declarada por el órgano competente señalado por Ley o cuando en cumplimiento de lo indicado en el artículo 34 e) de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, a juicio de la Gerencia General Corporativa deba solucionarse una emergencia de carácter social o económica nacional, regional o local, la Gerencia General Corporativa podrá crear líneas de crédito específicas y utilizar parámetros por sobre los dispuestos en éste Reglamento en los siguientes aspectos:
+Artículo 41°
+En caso de emergencia declarada por el órgano competente señalado por Ley o cuando en cumplimiento de lo indicado en el artículo 34 e) de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, a juicio de la Gerencia General Corporativa deba solucionarse una emergencia de carácter social o económica nacional, regional o local, la Gerencia General Corporativa podrá crear líneas de crédito específicas y utilizar parámetros por sobre los dispuestos en éste Reglamento en los siguientes aspectos:
 Garantía: hasta en un 20% adicional al porcentaje máximo en garantías.
 Montos máximos: hasta en un 50% el monto máximo de los créditos.
 Niveles resolutivos: La Gerencia General Corporativa ante emergencias declaradas y en apego a este artículo podrá establecer otros niveles resolutivos a los señalados en este reglamento.

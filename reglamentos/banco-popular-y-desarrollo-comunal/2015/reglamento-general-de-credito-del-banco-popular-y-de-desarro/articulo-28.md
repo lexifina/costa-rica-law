@@ -1,1 +1,2 @@
-Artículo 28° Toda resolución relativa a la solicitud crediticia debe ser comunicada a la persona solicitante, en el lugar señalado por éste o personalmente en las oficinas del Banco, con el texto íntegro de lo resuelto y con indicación de los recursos procedentes, del plazo dentro del cual deben ser interpuestos y del órgano ante el cual se deben presentar.
+Artículo 28°
+Toda resolución relativa a la solicitud crediticia debe ser comunicada a la persona solicitante, en el lugar señalado por éste o personalmente en las oficinas del Banco, con el texto íntegro de lo resuelto y con indicación de los recursos procedentes, del plazo dentro del cual deben ser interpuestos y del órgano ante el cual se deben presentar.

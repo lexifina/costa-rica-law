@@ -1,1 +1,2 @@
-Artículo 12° Cualquier bien objeto de prenda o hipoteca, cuando corresponda, debe estar debidamente asegurado y deberá constar en la póliza que el Banco es el acreedor. Las excepciones a este requisito se aplicarán cuando los bienes estén protegidos por otro mecanismo, técnica y legalmente viable.
+Artículo 12 º
+Cualquier bien objeto de prenda o hipoteca, cuando corresponda, debe estar debidamente asegurado y deberá constar en la póliza que el Banco es el acreedor. Las excepciones a este requisito se aplicarán cuando los bienes estén protegidos por otro mecanismo, técnica y legalmente viable.

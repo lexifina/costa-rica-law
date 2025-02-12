@@ -1,1 +1,3 @@
-Artículo 34° En la etapa de seguimiento, el Banco clasificará a la parte deudora con el nivel de capacidad de pago correspondiente, de conformidad con lo establecido por la Instancias de fiscalización y según los parámetros aprobados por la Junta Directiva Nacional.
+Artículo 34°
+En la etapa de seguimiento, el Banco clasificará a la parte deudora con el nivel de capacidad de pago correspondiente, de conformidad con lo establecido por la Instancias de fiscalización y según los parámetros
+aprobados por la Junta Directiva Nacional.
