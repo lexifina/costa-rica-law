@@ -14,3 +14,4 @@ Salarios globales y modificaciones a salarios de las clases y grupos operaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-29 | la propia norma |
+| 2 | 2025-02-13 | Directriz 4 (2025-02-13) |
