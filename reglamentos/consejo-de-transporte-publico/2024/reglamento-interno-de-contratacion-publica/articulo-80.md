@@ -1,0 +1,7 @@
+Artículo 80. Excepción del uso del Sistema Digital Unificado. El artículo 27 del R.L.G.C.P establece que excepcionalmente, la Administración podrá apartarse del uso del sistema digital unificado únicamente en los supuestos de caso fortuito o fuerza mayor. En tales casos, la Administración deberá dentro del plazo de diez días hábiles siguientes a la presentación del evento, solicitar a la Dirección de Contratación Pública la aprobación para efectuar parcial o totalmente la contratación fuera del sistema, debiendo presentar para tales efectos solicitud formal emitida por el jerarca o por quien este delegue, en la que conste:
+1. La situación que se alega como caso fortuito o fuerza mayor.
+2. Prueba de que el evento acaecido no es imputable a la Administración.
+3. Fundamentación de que la promoción del concurso es la única forma de satisfacer el interés público.
+4. Prueba de que la Administración invitó al proveedor a registrarse en el sistema digital unificado, así como la respuesta emitida por este, cuando corresponda.
+5. La definición de si la solicitud de excepción requerida por la Administración, es total o parcial. En caso de ser parcial, debe hacerse referencia al módulo específico del sistema sobre el cual solicita la exclusión.
+Una vez recibida la información indicada anteriormente, la Dirección de Contratación Pública deberá emitir mediante acto motivado la autorización respectiva dentro del plazo de un mes calendario.

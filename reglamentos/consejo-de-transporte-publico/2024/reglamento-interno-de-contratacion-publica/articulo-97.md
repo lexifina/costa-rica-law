@@ -1,0 +1,1 @@
+Artículo 97. Tipos de Sanciones a funcionarios Públicos. Las sanciones que reciban los funcionarios públicos resultarán aplicables las que son de apercibimiento por escrito, así como la suspensión sin goce salarial o el estipendio hasta por tres meses, así como el despido sin responsabilidad patronal o la cancelación de credenciales sin responsabilidad para el Estado.

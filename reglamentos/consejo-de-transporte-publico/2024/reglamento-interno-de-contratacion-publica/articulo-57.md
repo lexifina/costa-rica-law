@@ -1,0 +1,1 @@
+Artículo 57.- Adjudicación y re adjudicación. El acto de adjudicación deberá dictarse dentro del plazo establecido en el pliego de condiciones, que no podrá ser superior al doble del fijado para recibir ofertas ( artículo 140 RLGCP).

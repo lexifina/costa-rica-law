@@ -1,0 +1,3 @@
+SECIÓN SEGUNDA
+CONSERVACIÓN DE LA INFORMACIÓN DEL EXPEDIENTE
+Artículo 81. De la Conservación de la Información del Expediente Electrónico. Cada Proceso de Contratación Pública que realice el Consejo de Transporte Público en el Sistema Digital Unificado, el expediente será electrónico y contendrá todos los documentos que se generen, lo correspondiente a la incorporación de documentos, así como el manejo de la confidencialidad sobre la información contenida dentro del Sistema Digital Unificado se regirá de acuerdo a la normativa establecida en el Reglamento de la Ley General de Contratación Pública, de la misma manera para el registro electrónico oficial de proveedores y subcontratistas.

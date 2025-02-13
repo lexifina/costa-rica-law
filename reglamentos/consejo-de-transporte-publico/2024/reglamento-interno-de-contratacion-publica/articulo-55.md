@@ -1,0 +1,2 @@
+Artículo 55.- Recepción de ofertas. El plazo para recibir ofertas es de tres y cinco días hábiles contabilizados a partir del día siguiente a la comunicación de la invitación a participar y hasta el propio día de la apertura de ofertas.
+Las ofertas serán presentadas a través del Sistema Digital Unificado, antes de recibir ofertas, por razones de interés público o institucional, el Consejo de Transportes Público podrá dejar sin efecto el respectivo concurso dejando constancia de su decisión mediante una resolución motivada.

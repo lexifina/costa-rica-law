@@ -1,0 +1,1 @@
+Artículo 44.- Invitación: El Consejo de Transporte Público invitará mediante el sistema digital unificado a todos los proveedores del bien o servicio inscritos en el Registro Electrónico Oficial de Proveedores de ese sistema.

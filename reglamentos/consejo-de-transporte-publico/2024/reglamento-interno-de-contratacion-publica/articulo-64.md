@@ -1,0 +1,11 @@
+SECCIÓN PRIMERA
+SOBRE LA SOLICITUD Y TRÁMITE DE LOS CONTRATOS EXCEPTUADOS DE LOS
+PROCEDIMIENTOS ORDINARIOS DE CONTRATACIÓN PÚBLICA
+Artículo 64. - Contratación entre entes de Derecho Público. Aquella Actividad Contractual que sea desarrollada entre sí por entes de derecho público, se exceptúa de la aplicación de los Procedimientos Ordinarios siempre y cuando cumplan con los requisitos señalados dentro del artículo 6 del R.L.G.C.P los cuales son:
+a) Verificar que el objeto contractual se encuentre dentro de las facultades legales delente a contratar.
+b) Acreditar en el expediente electrónico la idoneidad del ente público en relación con el objeto que se desea contratar.
+c) Garantizar que la entidad contratada realice al menos un setenta por ciento (70%) de la prestación del objeto contractual, lo cual se calculará tomando en cuenta la naturaleza y características propias de dicho objeto, pudiendo determinarse de acuerdo con los entregables, fases, objetivos, entre otros elementos, según lo determine la Administración de acuerdo con los estudios previos y las respectivas prestaciones identificadas. Bajo ningún concepto las prestaciones sustanciales definidas en el contrato podrán ser subcontratadas.
+d) Garantizar que las contrataciones con terceros estén referidas únicamente a cuestiones especializadas y accesorias. Para realizar cualquier tipo de subcontratación deberán observarse los procedimientos ordinarios establecidos en la Ley General de Contratación Pública.
+e) Definir técnicamente, en el pliego de condiciones, el objeto a contratar de modo que queden debidamente plasmados los bienes, obras o servicios que prestará el contratista público. La potestad modificatoria queda sujeta a las regulaciones de la Ley General de Contratación Pública.
+f) Realizar un estudio de mercado, de conformidad con lo establecido en el artículo 44 inciso d) del Reglamento de la Ley General de Contratación Pública, que considere a los potenciales agentes públicos y privados, idóneos y, de forma motivada, exponer las razones por las cuales se escoge contratar al agente público.
+Las consultas a los agentes públicos y privados deberán realizarse en los mismos términos y plazos establecidos por la Administración, tanto en el estudio de mercado como en la contratación respectiva, lo cual deberá constar en el expediente.

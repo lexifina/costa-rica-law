@@ -1,0 +1,12 @@
+CAPITULO V
+SOBRE EL PROCESO DE CONTRATACIÓN PÚBLICA SECCIÓN PRIMERA
+GENERALIDADES DEL PROCESO
+SECCIÓN PRIMERA
+SOBRE EL PLIEGO DE CONDICIONES
+Artículo 21.- Revisión y aprobación: Una vez que la Proveeduría Institucional finalice el pliego de condiciones en el Sistema Digital Unificado, remitirá mediante el mismo a la Unidad Técnica Solicitante, y cuando corresponda al Asesor Legal de la Proveeduría Institucional o al Departamento de Asuntos Jurídicos y a la Jefatura del Departamento Financiero, para que proceda con su revisión de acuerdo con sus competencias, remisión de observaciones si las hubiera y posterior aprobación. Existirán máximo cuatro aprobaciones del pliego de condiciones, estas dependerán del monto del proceso de contratación, y son los detallados a continuación.
+1. Unidad Técnica Solicitante: Será la responsable de revisar los aspectos técnicos que lleva el pliego de condiciones, emitir observaciones si las hubiera y dar aprobación correspondiente (revisión y aprobación obligatoria).
+2. Asesor Legal de la Proveeduría Institucional o en su defecto el Departamento de Asuntos Jurídicos del CTP: Cuando por monto supere el 50% del límite económico establecido por la Contraloría General de la República para la Licitación reducida, será el responsable de revisar los aspectos legales que lleva el pliego de condiciones, emitir observaciones si las hubiera y dar aprobación correspondiente (revisión y aprobación depende de la cuantía).
+3. Departamento Financiero: De solicitarse dentro del pliego de condiciones, existirá un análisis de estados financieros en donde la Jefatura del Departamento Financiero será la responsable de revisar dichos estados para determinar si la empresa tiene la capacidad económica para ser contratada; esta aprobación solo se solicitará para las Licitaciones Mayores. (revisión y aprobación depende de la cuantía).
+4. Proveedor Institucional: Una vez que se cuente con las aprobaciones correspondientes le corresponderá dar la aprobación final del pliego de condiciones (revisión y aprobación obligatoria).
+Cada una de las dependencias involucradas examinará las propuestas en relación con los aspectos vinculados con el ámbito de su competencia y rendirá un informe concluyente a la Proveeduría Institucional en un plazo de hasta diez días hábiles (más adelante se definirán los días máximos para cada proceso de contratación).
+Una vez recibidas las aprobaciones correspondientes, la Proveeduría Institucional procederá con su publicación.

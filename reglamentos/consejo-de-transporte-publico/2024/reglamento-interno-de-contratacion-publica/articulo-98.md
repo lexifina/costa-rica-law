@@ -1,0 +1,2 @@
+Artículo 98. Procedimiento para imponer sanciones a funcionarios públicos. Para la ejecución del régimen de sanciones establecidas para las personas funcionarias en la Ley de General de Contratación Pública, se aplicará el procedimiento establecido en el Reglamento Autónomo del Servicio del Consejo de Transporte Publico y supletoriamente la Ley General de Administración Pública, sin perjuicio de las responsabilidades civiles o penales que puedan surgir.
+En caso de que el procedimiento lo tramite la Contraloría General de la República aplicará su propia normativa.

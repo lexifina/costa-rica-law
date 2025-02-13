@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+CONVENIO MARCO
+Artículo 85.- Convenios Marco. Mediante esta modalidad de contratación se pueden adquirir obras, bienes y servicios para suplir necesidades del CTP, a efectos de que una sola institución realice el procedimiento licitatorio y las restantes puedan servirse de su ejecución sin tener que tramitar procedimientos ordinarios, con el propósito de aprovechar las economías de escala.
+Por medio de convenios marco, la Dirección de Contratación Pública o la Administración, según corresponda seleccionará los proveedores con los que las instituciones usuarias deberán contratar obras, bienes y servicios, este tipo de convenios podrán celebrarse hasta por un período de dos años y podrán prorrogarse por períodos adicionales hasta de un año, para un total de cuatro años, en cuanto a la tramitología y ámbito de aplicación del Convenio Marco el Consejo de Transporte Público se acogerá a lo establecido dentro del capítulo VIII del R.L.G.C.P.

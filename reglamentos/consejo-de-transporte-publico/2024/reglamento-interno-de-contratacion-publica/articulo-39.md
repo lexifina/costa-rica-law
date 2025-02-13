@@ -1,0 +1,1 @@
+Artículo 39.- Competencia para dictar el acto final. El acto final, sea de adjudicación, re-adjudicación, desierto o infructuoso, será emitido por la Junta Directiva del Consejo de Transporte Público, dándose una firmeza del acto de adjudicación por un plazo de 8 días hábiles siguientes a la comunicación del acto final.

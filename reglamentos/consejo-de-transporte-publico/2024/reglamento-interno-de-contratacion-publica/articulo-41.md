@@ -1,0 +1,1 @@
+Artículo 41.- Fase Recursiva: Los recursos de objeción al pliego de condiciones, así como al acto final (Adjudicación infructuosa o desierta) se deberán de interponer ante la Contraloría General de la República.

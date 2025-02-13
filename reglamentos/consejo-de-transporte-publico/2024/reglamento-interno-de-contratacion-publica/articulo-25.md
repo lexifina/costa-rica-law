@@ -1,0 +1,4 @@
+SECCION SEGUNDA
+SANEAMIENTO DE LAS OFERTAS
+Artículo 25.- Del proceso de saneamiento de las ofertas en la corrección de aspectos subsanables, sean éstos insustanciales o sustanciales. Una vez analizadas las ofertas por las unidades correspondientes, la Proveeduría Institucional deberá abrir una fase de saneamiento de las ofertas en la que procederá con la subsanación de todos los aspectos insustanciales que sean necesarios, y que no otorguen una ventaja indebida, con el objeto de conservar la totalidad o la mayor cantidad de ofertas posibles al momento del dictado de la adjudicación, todo se gestionará por el Sistema Digital Unificado.
+La Proveeduría Institucional concederá a los oferentes un plazo como máximo de hasta cinco días hábiles, para que corrijan errores o suplan información sobre aspectos subsanables, todo de conformidad con el artículo 134 del Reglamento de la Ley General de Contratación Pública.

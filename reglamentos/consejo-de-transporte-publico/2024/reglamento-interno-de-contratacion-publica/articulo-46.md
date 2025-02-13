@@ -1,0 +1,1 @@
+Artículo 46.- Recepción de ofertas. El plazo para recibir ofertas será entre cinco y quince días hábiles según la complejidad del objeto, contabilizados a partir del día siguiente a la comunicación de la invitación a participar y hasta el día fijado para la apertura de ofertas inclusive.

@@ -1,0 +1,5 @@
+CAPÍTULO IX
+EXCEPCIONES DE LOS PROCEDIMIENTOS ORDINARIOS DE CONTRATACIÓN
+PÚBLICA
+En este capítulo se abarcará únicamente los procesos que generalmente utiliza el Consejo de Transporte Público, en caso de diligenciar alguno de los demás procedimientos de carácter exceptuado, se aplicará lo establecido dentro de la Ley General de Contratación Pública y su Reglamento.
+Artículo 62.- Ámbito de aplicación. Las actividades contractuales que se exceptúan legalmente de los Procedimientos Ordinarios de Contratación Pública, podrán ser objeto de negociación directa entre el Consejo de Transporte Público y el Contratante en tanto la Administración actué en el ejercicio de su competencia y el Contratante reúna los requerimientos de carácter legal, técnica y financiera para celebrar el respectivo contrato, por tal motivo todo procedimiento de contratación que gestione el Consejo de Transporte Público y se encuentre regulado dentro del artículo 3 de la Ley General de Contratación Pública, deberá tramitarse por medio del Sistema Digital Unificado.

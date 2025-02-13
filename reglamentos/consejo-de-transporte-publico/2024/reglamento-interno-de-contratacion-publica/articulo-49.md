@@ -1,0 +1,5 @@
+Artículo 49.- Competencia para dictar el acto final. El responsable de emitir el acto final, sea de adjudicación, re adjudicación, desierto o infructuoso, se definirá por la cuantía o monto económico y será uno de los siguientes supuestos:
+1. Director Ejecutivo: cuando el monto sea menor del 50% del límite económico establecido para la Licitación Menor.
+2. Junta Directiva: Cuando por monto sea igual o mayor al 50% del límite económico establecido por la Contraloría General de la República para la Licitación Menor El responsable de emitir la aprobación final a las solicitudes de contratación es el mismo que emitirá el acto final sea de adjudicación, re adjudicación, desierto o infructuoso.
+La firmeza del acto de adjudicación será por un plazo de 5 días hábiles siguientes a la comunicación del acto final.
+Este tipo de procedimiento tendrá recurso de revocatoria, bajo los supuestos establecidos dentro del artículo 270 del Reglamento a la Ley General de contratación Publica, y el acto final será dictado por el mismo responsable que tiene competencia para adjudicar.

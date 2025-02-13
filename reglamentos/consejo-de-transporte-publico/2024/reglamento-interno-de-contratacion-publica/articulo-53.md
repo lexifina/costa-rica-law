@@ -1,0 +1,3 @@
+Artículo 53.- Invitación. La invitación a participar, las modificaciones al pliego de condiciones y el acto de adjudicación, así como los demás actos propios del procedimiento, se comunicarán en el Sistema Digital Unificado.
+El Consejo de Transporte Público invitará mediante el Sistema Digital Unificado a los oferentes idóneos del bien o servicio inscritos en el Registro de Proveedores de ese sistema.
+En los casos en los que se utilice un registro precalificado, podrán participar solamente las empresas que cumplan esa precalificación, antes de la apertura de las ofertas, independientemente de si han sido invitadas o no.

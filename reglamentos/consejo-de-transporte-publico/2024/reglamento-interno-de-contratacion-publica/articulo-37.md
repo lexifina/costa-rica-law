@@ -1,0 +1,1 @@
+Artículo 37.- Recepción de ofertas: Deberá de cumplirse con un plazo mínimo de quince días hábiles, contado desde el día siguiente de la comunicación del aviso a participar en el sistema digital unificado, hasta el día y hora de la apertura de las ofertas, inclusive.
