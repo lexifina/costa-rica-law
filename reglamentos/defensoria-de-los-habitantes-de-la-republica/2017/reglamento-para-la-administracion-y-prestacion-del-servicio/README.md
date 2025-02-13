@@ -15,3 +15,4 @@ Reglamento para la administración y prestación del servicio de transporte en l
 | --- | --- | --- |
 | 1 | 2017-08-14 | la propia norma |
 | 2 | 2022-08-09 | Reglamento 0 (2022-08-09) |
+| 3 | 2025-02-13 | Reglamento 0 (2025-02-13) |
