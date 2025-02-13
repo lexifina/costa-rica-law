@@ -1,1 +1,0 @@
-Artículo 6º—Justificaciones de comprobantes. Toda compra o pago que se realice por medio del Fondo Fijo-Caja Chica deberá contar con justificación de la compra donde se indique para qué actividad se utilizará el bien o servicio, y la subpartida correspondiente. Además se requiere que se indique el programa presupuestario y el departamento al cual se cargará el gasto.

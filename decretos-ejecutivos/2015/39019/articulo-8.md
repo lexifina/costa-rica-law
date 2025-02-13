@@ -1,1 +1,0 @@
-Artículo 8º—Responsable. El procedimiento del Fondo Fijo- Caja Chica es responsabilidad del Jefe de la Unidad Financiero Contable, quién deberá documentar por escrito la entrega de fondos al encargado de caja chica.

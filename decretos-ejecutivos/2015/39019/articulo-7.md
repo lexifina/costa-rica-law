@@ -1,1 +1,0 @@
-Artículo 7º—Definición del monto. Previo visto bueno de la Tesorería Nacional, la Junta Administrativa del Archivo Nacional es la única autorizada para la apertura, cierre, aumento o disminución del Fondo Fijo-Caja Chica, así como para el establecimiento de los límites económicos permitidos para compras por Caja Chica.
