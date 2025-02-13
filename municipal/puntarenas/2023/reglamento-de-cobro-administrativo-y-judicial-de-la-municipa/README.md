@@ -14,3 +14,4 @@ Reglamento de cobro administrativo y judicial de la Municipalidad de Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-17 | la propia norma |
+| 2 | 2025-02-13 | Reglamento municipal 64 (2025-02-13) |
