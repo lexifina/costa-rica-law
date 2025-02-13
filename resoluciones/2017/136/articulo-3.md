@@ -1,2 +1,0 @@
-3º—Modificar la redacción del Resuelve Segundo de la resolución RCS-292-2016 del 14 de diciembre del 2016 para que se lea de la siguiente manera:
-“SEGUNDO: APROBAR LA METODOLOGÍA PARA EL CÁLCULO DEL CARGO POR USO COMPARTIDO DE POSTERÍA EN LOS PROCESOS DE INTERVENCIÓN, ASÍ COMO PARA TODOS LOS OPERADORES QUE HACEN USO COMPARTIDO DE POSTERÍA.”
