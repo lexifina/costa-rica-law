@@ -1,0 +1,1 @@
+Artículo 4º-Del destino de las becas. Las becas para estudiar se otorgarán como ayudas complementarias para ser utilizadas para la compra de uniformes, materiales educativos, transporte, o cualquier otro gasto relacionado con las actividades educativas.
