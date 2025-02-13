@@ -1,0 +1,1 @@
+Artículo 10.-Salvaguardias para la Independencia y Objetividad. El Auditor Interno es responsable de establecer controles formales que prevengan cualquier situación que pueda comprometer la independencia y objetividad del personal de auditoría.

@@ -1,0 +1,1 @@
+Artículo 15.-Requisitos para los cargos. Para su nombramiento el Auditor y Subauditor Interno deberán cumplir los requisitos que, se establecen en los LAICGR y los requisitos adicionales que establezca la municipalidad.

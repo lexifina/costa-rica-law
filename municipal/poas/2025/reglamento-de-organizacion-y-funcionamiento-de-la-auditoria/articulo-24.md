@@ -1,0 +1,1 @@
+Artículo 24.-Potestades de la Auditoría Interna. Serán potestades del Auditor y demás personal de la Auditoría Interna, todas aquellas contenidas en la LGCI, así como, las que establezca otra normativa aplicable emitida por la Asamblea Legislativa o las instituciones de control facultadas al efecto.

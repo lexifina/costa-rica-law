@@ -1,0 +1,1 @@
+Artículo 6°-Estructura. Es responsabilidad del Auditor Interno disponer para su unidad de una estructura organizativa concordante con la razón de ser y la normativa que regula a la municipalidad todo acorde con los recursos asignados.
