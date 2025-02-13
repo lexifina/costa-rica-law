@@ -1,0 +1,1 @@
+Artículo 4º-La Dirección de Ingeniería y Desarrollo de Proyectos realizará un Estudio para determinar la factibilidad técnica, económica social, financiera y ambiental, así como también, las gestiones y el seguimiento de las acciones y documentos tales como (permiso de paso, concesión) y todos aquellos que sean indispensables para garantizar la correcta ejecución del proyecto

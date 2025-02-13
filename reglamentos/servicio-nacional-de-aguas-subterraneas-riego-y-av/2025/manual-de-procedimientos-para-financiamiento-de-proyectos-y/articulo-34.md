@@ -1,0 +1,1 @@
+Artículo 34.-Cuando se presenten casos de cuentas que se pasan a cobro judicial, la Contabilidad deberá realizar los asientos de traslado de Cuentas por Cobrar a la cuenta Cuentas por Cobrar en Cobro Judicial.

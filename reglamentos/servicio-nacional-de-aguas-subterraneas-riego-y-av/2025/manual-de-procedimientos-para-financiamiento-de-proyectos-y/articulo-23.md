@@ -1,0 +1,1 @@
+Artículo 23.-Una vez que el Proceso Financiero Contable tenga en custodia la totalidad de los pagarés del respectivo Proyecto, emitirá una constancia dirigida a la Unidad de Servicios Administrativos como requisito para iniciar el proceso de contratación, Sin esta constancia, no se debe iniciar el trámite de contratación de las obras.

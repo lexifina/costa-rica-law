@@ -1,0 +1,1 @@
+Artículo 24.-Toda inclusión, exclusión o cambio de usuarios, deberá hacerse mediante solicitud escrita a la Dirección de Ingeniería y Desarrollo de Proyectos y deberá cumplir con los mismos requisitos que los demás usuarios del mismo proyecto.

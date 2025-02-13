@@ -1,0 +1,3 @@
+CAPÍTULO X
+Procedimiento para cuentas incobrables
+Artículo 44.-Realizadas todas las acciones administrativas y judiciales pertinentes, sin que se haya podido lograr la recuperación de la cuenta, la Dirección Administrativa hará la estimación de cuentas incobrables y tramitará ante la Gerencia su aprobación. Lo anterior teniendo en cuenta que la incobrabilidad en la mayoría de los casos (salvo en los casos de aplicación de un criterio de oportunidad por costo-beneficio detallado en el siguiente articulo) es un mero trámite para efectos contables, ya que se han agotado los medios de cobro administrativo y judicial sin que se haya podido recuperar lo adeudado

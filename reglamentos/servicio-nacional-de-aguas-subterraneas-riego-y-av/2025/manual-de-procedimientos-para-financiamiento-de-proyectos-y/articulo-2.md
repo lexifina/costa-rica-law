@@ -1,0 +1,1 @@
+Artículo 2º-Seguidamente el Coordinador Regional realizará un Perfil/Perfectibilidad del Proyecto señalando las principales generalidades de este e identificando a los promoventes o usuarios potenciales del proyecto.
