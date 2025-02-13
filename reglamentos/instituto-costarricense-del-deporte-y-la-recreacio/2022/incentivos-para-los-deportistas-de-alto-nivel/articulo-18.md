@@ -1,7 +1,0 @@
-ARTÍCULO 18 DEL PROCESO DE SALUD DEPORTIVA
-18.1 Toda persona atleta o paraatleta debe tomar en cuenta que deberá realizar un chequeo anual en cada una de las áreas que constituyen al proceso de Gestión de la Salud Deportiva del ICODER (Nutrición, Psicología, Medicina, y Fisioterapia) de la siguiente manera:
-18.1.1 El chequeo deberá realizarlo amás tardar dos meses después de la firma del convenio, deberá someterse al chequeo según el día y la hora acordada por el profesional del Proceso de Gestión de La Salud Deportiva.
-18.1.2 En caso de que la persona atleta no pueda asistir el día indicado deberá comunicarlo al profesional a cargo para reagendar la cita. En caso de no cumplir con el chequeo no se le pagará hasta que cumpla con el requisito y el pago no será retroactivo.
-18.1.3 Cada servicio que el Proceso de Gestión de La Salud Deportiva ofrece emitirá en el mes de agosto de cada año un comunicado de los atletas o para tletas atendidos, con el objetivo de incluirlo en el expediente individual de cada persona becada.
-18.1.4 Toda persona atleta o para atleta becado deberá tomar en cuenta que, en el expediente individual, debe constar que recibió los servicios en las áreas que constituyen el Proceso de Gestión de La Salud Deportiva en al menos tres áreas (Fisioterapia, Nutrición, Psicología y/o Medicina).
-18.1.5 Los chequeos podrán realizarse de acuerdo con la capacitad operativa del área que constituye el Proceso de Gestión de La Salud Deportiva.

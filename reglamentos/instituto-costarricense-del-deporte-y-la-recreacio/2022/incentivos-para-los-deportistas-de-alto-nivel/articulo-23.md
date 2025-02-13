@@ -1,4 +1,0 @@
-ARTICULO 23 SOBRE EL PRESUPUESTO.
-23.1 Los diferentes incentivos para deportistas de alto nivel en el presente reglamento dependen de la asignación presupuestaria asignada para tal fin. Por consiguiente, si en algún año no se cuenta con el recurso económico para apoyar a los deportistas, el ICODER no está obligado a cumplir con lo indicado en este reglamento.
-23.2 El haber recibido beca en un año presupuestario, no genera ningún derecho o responsabilidad del ICODER para que la misma sea extendida para el año siguiente.
-23.3 Cuando los recursos otorgados por el ICODER sean limitados hacia el Programa de Incentivos al Deportista de Alto Nivel y no alcance para otorgar los montos indicados en el presente reglamento en el apartado de Becas Deportivas para personas atletas/ paraatletas Seleccionados Nacionales, la distribución del recurso se ejecutará utilizando la herramienta técnica recomendada por la CPSN año con año, siendo esta aprobada por el CNDR.
