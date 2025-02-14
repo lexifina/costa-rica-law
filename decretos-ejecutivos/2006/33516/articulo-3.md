@@ -1,1 +1,0 @@
-Artículo 3º—Todas las disposiciones contenidas en el presente Reglamento, serán aplicables también a los Jefes de Departamentos y de Delegaciones y Oficinas Regionales, cuando en sus representaciones tengan asignados vehículos automotores.
