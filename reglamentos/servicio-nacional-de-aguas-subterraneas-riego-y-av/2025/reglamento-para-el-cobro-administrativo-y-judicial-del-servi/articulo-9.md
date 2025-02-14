@@ -1,0 +1,1 @@
+Artículo 9º-Agotamiento de las gestiones de Cobro Administrativo. La Unidad Financiera será responsable de gestionar los cobros hasta agotar todas las alternativas posibles dentro del plazo definido para el cobro administrativo en esta normativa. De toda gestión que se haga se dejará constancia en el expediente respectivo.

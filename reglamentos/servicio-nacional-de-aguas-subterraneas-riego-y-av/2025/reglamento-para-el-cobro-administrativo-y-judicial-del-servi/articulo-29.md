@@ -1,0 +1,5 @@
+Artículo 29. -Prohibiciones de los abogados externos. Se prohíbe a los abogados externos contratados por SENARA, lo siguiente:
+A. Realizar cualquier tipo de arreglo judicial o extrajudicial, sin la aprobación previa y por escrito de las autoridades administrativas del SENARA. Toda gestión para un arreglo judicial o extrajudicial, deberá ser canalizada, conocida y sometida a aprobación previa de las autoridades administrativas del SENARA.
+B. Recibir cualquier suma de dinero por parte del deudor, fiadores o cualquier tercera persona, como abono a principal, intereses, costas u honorarios provenientes de la deuda sometida al cobro judicial que se le asignó.
+C. Solicitar al SENARA, por concepto de sus honorarios profesionales, sumas diferentes a las estipuladas en la Tabla de Honorarios autorizada por el Colegio de Abogados.
+D. Realizar cualquier gestión incompatible con su función de abogado director del proceso que representa al SENARA, o cualquier gestión que en tal condición le esté prohibida por la legislación civil, mercantil, procesal civil, o las normas de la ética que rigen a los profesionales en Derecho.

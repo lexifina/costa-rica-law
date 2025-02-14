@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Este Reglamento será de aplicación obligatoria para todas las instancias administrativas de SENARA en lo que a cada una correspondiere, para gestionar el cobro judicial de las cuentas que se le asignen.

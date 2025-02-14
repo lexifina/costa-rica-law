@@ -1,0 +1,1 @@
+Artículo 19. -Documentación del arreglo de pago. Todo documento originado en la solicitud, estudio y resolución de un arreglo de pago, debe ser agregado al expediente administrativo (digital y/o físico este último cuando corresponda así la evidencia documental) de la deuda que al efecto lleva la Unidad Financiero Contable.
