@@ -1,1 +1,0 @@
-TRANSITORIO I.—Se establece un plazo de sesenta días naturales para la entrada en vigencia del presente decreto, plazo durante el cual las operadoras de pensiones deberán ajustar sus procedimientos internos e informáticos a las necesidades requeridas en los artículos precedentes.
