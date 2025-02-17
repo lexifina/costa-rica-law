@@ -1,1 +1,0 @@
-Artículo 17. El fiscal de la junta directiva, tendrá voz, pero no voto en la toma de decisiones, es su deber vigilar el cumplimiento de lo establecido en la ley, la convención colectiva vigente, este reglamento y los acuerdos de la junta directiva.

@@ -1,1 +1,0 @@
-Artículo 14. Los integrantes del Comité tendrán voz y voto, con excepción de lo establecido en el artículo 17 de este reglamento y sus decisiones se tomarán con la mitad más uno de los asistentes a las sesiones de trabajo. Las decisiones del Comité, tendrán recurso de revocatoria y apelación ante el Concejo Municipal.

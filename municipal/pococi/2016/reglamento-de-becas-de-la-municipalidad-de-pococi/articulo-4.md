@@ -1,1 +1,0 @@
-Artículo 4. Es facultad del Comité de Becas el otorgamiento de 25 becas para los funcionarios (as), municipales, en carreras afines a los intereses de la institución. Eventualmente podrán otorgarse beca a hijo(a) de funcionarios (as) municipales.

@@ -1,1 +1,0 @@
-Artículo 18. La solicitud de beca se deberá entregar en las fechas establecidas en la convocatoria expedida por el Comité y según el calendario anual publicado. Los beneficiarios deberán acudir al comité dentro del plazo establecido, so pena de considerarse extemporánea su solicitud.
