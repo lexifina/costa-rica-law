@@ -1,0 +1,12 @@
+Artículo 20.-Responsabilidad de los servidores que autorizan y supervisan la jornada extraordinaria y su constatación. Son responsabilidades de los servidores que autorizan y de los que supervisan las labores de tiempo extraordinario y su constatación, las siguientes:
+a) Verificar la existencia de contenido económico en la subpartida de previo a autorizar la jornada extraordinaria del programa que representa.
+b) Contar con la autorización del Departamento de Gestión y Desarrollo Humano para laborar tiempo extraordinario.
+c) Aprobar la jornada extraordinaria, sólo si se trata de labores orientadas a satisfacer las necesidades extraordinarias imperiosas e impostergables de la Administración o que sean labores urgentes y/o temporales que surgen en un momento determinado.
+d) Verificar que el reporte de jornada extraordinaria concuerde con el tiempo que efectivamente labora el servidor.
+e) Verificar los registros respectivos en el control de asistencia, o cualquiera otro sistema de control que se establezca, de manera que se demuestre el tiempo extraordinario efectivamente laborado.
+t) Tramitar el pago de tiempo extraordinario de los servidores, ante el Departamento de Gestión y Desarrollo Humano en el formulario de Reporte de Tiempo Extraordinario Laborado que se utiliza ordinariamente para tales efectos, el cual deberá ser firmado por el superior inmediato del departamento, unidad o proyecto en el cual colabora, dando fe de la jornada extraordinaria reportada por el servidor.
+g) Presentar el reporte de control de marca. Si el servidor involucrado no marca, este deberá presentar copia de la bitácora de asistencia, del tiempo extraordinario laborado debidamente validado, firmado y sellado por el Director, jefe de departamento, unidad o encargado del proyecto.
+h) Informar al Departamento de Gestión y Desarrollo Humano cualquier daño o alteración encontrada en el control de asistencia, con el fin de que se tomen las medidas para que la jornada extraordinaria que se labore quede registrada por otro medio.
+i) Presentar al Departamento de Gestión y Desarrollo Humano, informe donde se evalúe la eficiencia y ejecución del proyecto, así como los parámetros de medición del mismo, dentro de los diez días hábiles posteriores a la fecha de finalización del proyecto.
+j) No reportar más horas extraordinarias de las autorizadas para la ejecución del proyecto.
+k) Respetar todas las disposiciones del presente Reglamento y demás normativa que regule la materia.

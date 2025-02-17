@@ -1,0 +1,1 @@
+Artículo 18.- Totalidad de horas extraordinarias. La cantidad de horas extraordinarias a laborar por año en la Institución quedará sujeta a las necesidades de la Institución con base en los proyectos que se presente y aprueben, así como al contenido presupuestario aprobado para el pago de horas extraordinarias para cada año.

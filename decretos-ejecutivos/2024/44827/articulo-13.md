@@ -1,0 +1,1 @@
+Artículo 13.- Pago de la jornada extraordinaria en la modalidad de teletrabajo. Podrá laborar horas extraordinarias el teletrabajador que disponga de una jornada y horario definidos, y que estén sujetos a controles y constataciones, y que cumplan con lo referente a controles de asistencia y reportes requeridos establecidos en este Reglamento.

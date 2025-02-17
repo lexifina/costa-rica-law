@@ -1,0 +1,1 @@
+Artículo 12.- Prohibiciones del pago de hora extraordinaria. Quedan expresamente excluidos del pago de horas extraordinarias con motivo de la ausencia de limitación para ellos de su jornada laboral, quienes ostentan los cargos de Director Ejecutivo y Auditor Interno.
