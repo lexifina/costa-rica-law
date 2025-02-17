@@ -31,3 +31,4 @@ Reglamento a la Ley de Loterías.
 | 16 | 2011-04-14 | Decreto Ejecutivo 36595 (2011-04-14) |
 | 17 | 2014-02-04 | Decreto Ejecutivo 38361 (2014-02-04) |
 | 18 | 2015-05-04 | Decreto Ejecutivo 39051 (2015-05-04) |
+| 19 | 2025-02-17 | Decreto Ejecutivo 44948 (2025-02-17) |
