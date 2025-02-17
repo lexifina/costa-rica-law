@@ -1,1 +1,0 @@
-Artículo 39. Pasados tres meses si el encargado no retira la beca del estudiante, pierde automáticamente el derecho de continuar disfrutando de este beneficio, siempre y cuando se compruebe que se le ha notificado.

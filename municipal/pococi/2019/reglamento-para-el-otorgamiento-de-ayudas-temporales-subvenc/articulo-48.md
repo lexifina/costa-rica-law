@@ -1,1 +1,0 @@
-Artículo 48. Para la aplicación de las sanciones dispuestas en el presente Reglamento, deberá seguirse un procedimiento sumario respetando el Derecho de Defensa de las partes involucradas. Ninguna de las sanciones contenidas en este reglamento podrá superar los tres años.

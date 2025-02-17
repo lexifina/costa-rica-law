@@ -1,1 +1,0 @@
-Artículo 43. La Comisión de Asuntos Sociales es la competente para retirar la beca, previa comprobación de actos cometidos por el beneficiario que ameriten tal sanción, con la posterior aprobación del Concejo Municipal.

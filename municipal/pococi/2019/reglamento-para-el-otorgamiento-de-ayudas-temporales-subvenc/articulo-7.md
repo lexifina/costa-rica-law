@@ -1,1 +1,0 @@
-Artículo 7. Del monto de la ayuda. El monto de la ayuda queda sujeto según estudio y recomendación de la Oficina Bienestar Social, Familia y Mujer y que sea enviado al Concejo Municipal para su análisis y aprobación.

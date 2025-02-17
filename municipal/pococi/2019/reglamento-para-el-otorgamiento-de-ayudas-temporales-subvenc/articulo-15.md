@@ -1,1 +1,0 @@
-Artículo 15. Una vez conocida la solicitud por parte del Concejo Municipal, este lo trasladará para su estudio y dictámenes a las Comisiones de Asuntos Sociales o Asuntos Culturales según sea el caso y de Hacienda y Presupuesto quienes harán los estudios necesarios para determinar fehacientemente el objeto y fin que conlleva la subvención solicitada.

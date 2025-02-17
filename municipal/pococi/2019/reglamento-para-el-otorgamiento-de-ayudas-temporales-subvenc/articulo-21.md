@@ -1,1 +1,0 @@
-Artículo 21. Las becas adjudicadas serán para realizar estudios en el país y será exclusivamente para estudiantes de primaria y secundaria del sistema de educación pública, así como órganos o entes públicos que brinden diferentes programas de educación, como por ejemplo cultura y deporte.

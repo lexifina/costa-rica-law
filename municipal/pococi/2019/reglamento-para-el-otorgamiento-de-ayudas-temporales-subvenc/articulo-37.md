@@ -1,1 +1,0 @@
-Artículo 37. Por cada solicitud de Beca Municipal la Secretaria Municipal abrirá un expediente en donde constarán todos los documentos aportados por el interesado. Tanto el Concejo de Distrito como la Comisión de Asuntos Sociales no darán trámite aquellas solicitudes que sean entregadas en forma incompleta o carente de documentos.

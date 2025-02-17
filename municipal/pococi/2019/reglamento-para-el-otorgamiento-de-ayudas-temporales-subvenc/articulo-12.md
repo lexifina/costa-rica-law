@@ -1,2 +1,0 @@
-Artículo 12. Las ayudas temporales previstas en este reglamento sean para una persona o familia serán por una única vez cuando esta sea por la misma causa o motivo, asimismo, la Oficina Bienestar Social, Familia y Mujer deberá fiscalizar que la ayuda recibida cumpla los fines para los cuales fue brindada.
-La Oficina Bienestar Social, Familia y Mujer llevará un archivo de las ayudas otorgadas que deberá de ser consultado de previo a aprobar nuevas solicitudes.

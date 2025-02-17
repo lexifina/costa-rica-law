@@ -1,1 +1,0 @@
-Artículo 36. La Tesorería Municipal en atención a listado recibido de becados y sus encargados (madre, padre o representante), girará a nombre de estos la primera semana de cada mes, mediante cheque o por depósito bancario, el monto respectivo de la beca.
