@@ -1,1 +1,2 @@
-Artículo 37—Aprobación. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Protección Social, mediante acuerdo JD-961 de la sesión extraordinaria Nº 58-2018 celebrada el 11 de octubre de 2018.
+Artículo 37.-Aprobaciones, modificaciones y reformas al Reglamento. El Auditor Interno será el responsable de someter a aprobación de la Junta Directiva de la Junta de Protección Social, las reformas que puedan ser necesarias para mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junta de Protección Social.
+(Así reformado en sesión N° 10 del 17 de febrero de 2025)

@@ -1,1 +1,2 @@
-Artículo 36—Aprobaciones, modificaciones y reformas al Reglamento. El Auditor Interno será el responsable de someter a aprobación de la Junta Directiva de la Junta de Protección Social, las reformas que puedan ser necesarias para mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junta de Protección Social.
+Artículo 36.-Archivo permanente. La Auditoría Interna mantendrá un archivo permanente físico y digital debidamente clasificado y actualizado, que contenga la correspondencia enviada y recibida, los informes de auditoría; así como la normativa legal y técnica, entre otros.
+(Así reformado en sesión N° 10 del 17 de febrero de 2025)
