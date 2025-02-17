@@ -14,3 +14,4 @@ Lineamientos generales para el análisis de presuntos hechos irregulares serán 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-11-04 | la propia norma |
+| 2 | 2025-02-17 | Resolución 11 (2025-02-17) |
