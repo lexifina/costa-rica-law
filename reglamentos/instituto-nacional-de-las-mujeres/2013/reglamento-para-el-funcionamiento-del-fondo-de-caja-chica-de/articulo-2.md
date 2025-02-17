@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación: El presente reglamento establece las disposiciones que rigen para la asignación, operación y control del Fondo Fijo de Caja Chica del INAMU y las denominadas cajas auxiliares que se autoricen por acuerdo de Junta Directiva.

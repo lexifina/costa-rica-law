@@ -1,2 +1,0 @@
-Artículo 48.—Responsables del fondo de las cajas auxiliares. Las cajas auxiliares estarán bajo la responsabilidad de la(s) persona(s) que se designe(n) según lo establecido en el Manual Institucional de Cargos o en su defecto por la Dirección de Áreas Estratégicas o Administrativa Financiera según corresponda.
-Una vez que haya recibido a satisfacción la entrega formal de los recursos, la persona responsable deberá cumplir con la correcta operación de las cajas auxiliares, de la custodia del efectivo y de los respectivos comprobantes.

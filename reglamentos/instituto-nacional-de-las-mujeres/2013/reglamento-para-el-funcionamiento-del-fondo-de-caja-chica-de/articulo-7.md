@@ -1,1 +1,0 @@
-Artículo 7º—Responsables del fondo fijo de caja chica. La responsabilidad de la totalidad del fondo de caja chica será de la Tesorería Institucional, que será supervisada por la Coordinación del Área Financiero Contable.

@@ -1,1 +1,0 @@
-Artículo 50.—Solicitud del adelanto. El adelanto de las cajas auxiliares debe solicitarse en el formulario diseñado para tal propósito. El original del formulario de adelanto se debe adjuntar al realizar la liquidación por parte de la encargada de la caja auxiliar y una copia es para la solicitante.
