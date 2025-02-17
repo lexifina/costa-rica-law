@@ -14,3 +14,4 @@ Fija las bandas tarifarias para el servicio de inspección técnica vehicular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-01-23 | la propia norma |
+| 2 | 2025-02-17 | Resolución 6 (2025-02-17) |

@@ -1,4 +1,5 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi. Mediante resolución N° RE-0006-IT-2025 del 17 de febrero de 2025, se acordó declarar parcialmente con lugar el recurso de revocatoria contra la presente norma, únicamente en cuanto al argumento sobre la utilización de la cantidad de inspecciones del período 2024 para la categoría de Inspecciones en sitio primer nivel de comercialización (Decreto N°30751 y por artículo 5 de la Ley 9078). Asimismo se declara la nulidad absoluta parcial de esta resolución, únicamente en lo relacionado con el cálculo de las variables de inspecciones en sitio primer nivel de comercialización (Decreto N°30751 y por artículo 5 de la Ley 9078) utilizando la cantidad de inspecciones del período 2024,y en consecuencia anular las bandas tarifarias establecidas en el Por Tanto I de dicha resolución.)
 RE-0001-IT-2025
 San José, a las 09:50 horas del 14 de enero de 2025
 CONOCE EL INTENDENTE DE TRANSPORTE A.Í. EL ESTUDIO TARIFARIO
@@ -531,30 +532,31 @@ POR TANTO:
 Fundamentado en las facultades conferidas en la Ley de la Autoridad Reguladora de los Servicios Públicos (Ley 7593 y sus reformas), en el Decreto Ejecutivo 29732-MP, Reglamento a la Ley 7593, en la Ley General de la Administración Pública Ley 6227 (en adelante LGAP), el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados (RIOF).
 EL INTENDENTE DE TRANSPORTE A.Í.
 RESUELVE:
-I. Acoger el informe IN-0006-IT-2025 del 14 de enero de 2025 y proceder a fijar las bandas tarifarias para el servicio de inspección técnica vehicular de la siguiente manera:
+(*)I. Acoger el informe IN-0006-IT-2025 del 14 de enero de 2025 y proceder a fijar las bandas tarifarias para el servicio de inspección técnica vehicular de la siguiente manera:
 Categoría de vehículo | Tarifa máxima (colones) | Tarifa mínima (colones)
 Inspección | |
-Vehículo peso menor 3.5T | 5.794 | 4.898
-Vehículo peso mayor 3.5T | 6.964 | 5.888
-Taxis | 6.983 | 5.904
-Autobuses-buseta-microbús | 6.792 | 5.742
-Motocicletas | 4.374 | 3.698
-Equipo especial (Maquinaria obras, agrícola) | 4.383 | 3.706
-Vehículos eléctricos, históricos y por decreto 30709-MAG- MOPT | 4.508 | 3.811
-Vehículo tipo remolques o semirremolques | 4.681 | 3.957
-Inspección en sitio primer nivel comercialización (por artículo 5 de la ley de tránsito 9078 y decreto 30751-MOPT) | 2.839 | 2.400
-Servicios especiales (reposición de documentos, inspección de cambios de características registrales) | 2.839 | 2.400
-Reinspección | |
+Vehículo peso menor 3.5T | 6.012 | 5.083
+Vehículo peso mayor 3.5T | 7.206 | 6.093
+Taxis | 7.226 | 6.109
+Autobuses-buseta-microbús | 7.030 | 5.944
+Motocicletas | 4.562 | 3.857
+Equipo especial (Maquinaria obras, agrícola) | 4.572 | 3.866
+Vehículos eléctricos, históricos y por decreto 30709-MAG-MOPT | 4.700 | 3.973
+Vehículo tipo remolque o semirremolque | 4.876 | 4.122
 Categoría de vehículo | Tarifa máxima (colones) | Tarifa mínima (colones)
-Vehículo peso menor 3.5T | 4.489 | 3.795
-Vehículo peso mayor 3.5T | 4.853 | 4.103
-Taxis | 4.988 | 4.217
-Autobuses, buseta, microbús | 5.026 | 4.249
-Motocicletas | 3.702 | 3.130
-Equipo especial (Maquinaria obras, agrícola) | 4.076 | 3.446
-Vehículos eléctricos, históricos y por decreto 30709-MAG- MOPT | 3.679 | 3.111
-Vehículo tipo remolques o semirremolques | 3.798 | 3.211
-A las tarifas propuestas no se les aplica alguna regla de redondeo, ya que, de conformidad con lo señalado en el oficio 245-CDR-2019 y el comunicado de prensa del 25 de junio de 2019 emitido por la Autoridad Reguladora de los Servicios Públicos con ocasión de la entrada en vigencia de la Ley de Fortalecimiento de las Finanzas Públicas (Ley 9635), las tarifas calculadas no incluyen el impuesto al valor agregado (I.V.A.), el cual debe ser adicionado al momento del cobro a los usuarios.
+Inspección en sitio primer nivel comercialización (por artículo 5 de la ley de tránsito 9078 y decreto 30751-MOPT) | 2.996 | 2.533
+Servicios especiales (reposición de documentos, inspección de cambios de características registrales) | 2.996 | 2.533
+Reinspección | |
+Vehículo peso menor 3.5T | 4.680 | 3.957
+Vehículo peso mayor 3.5T | 5.052 | 4.271
+Taxis | 5.189 | 4.387
+Autobuses, buseta, microbús | 5.228 | 4.420
+Motocicletas | 3.877 | 3.278
+Equipo especial (Maquinaria obras, agrícola) | 4.259 | 3.601
+Vehículos eléctricos, históricos y por decreto 30709-MAG-MOPT | 3.854 | 3.258
+Vehículo tipo remolque o semirremolque | 3.975 | 3.361
+A las tarifas aprobadas no se les aplica alguna regla de redondeo, ya que, de conformidad con lo señalado en el oficio 245-CDR-2019 y el comunicado de prensa del 25 de junio de 2019 emitido por la Autoridad Reguladora de los Servicios Públicos con ocasión de la entrada en vigencia de la Ley de Fortalecimiento de las Finanzas Públicas (Ley 9635), las tarifas calculadas no incluyen el impuesto al valor agregado (I.V.A.), el cual debe ser adicionado al momento del cobro a los usuarios..
+(*) (Así reformado el punto I) anterior mediante resolución N° RE-0006-IT-2025 del 17 de febrero de 2025)
 II. Ordenar a los operadores de los servicios de inspección técnica vehicular remitir a la Intendencia de Transporte, las estadísticas de los servicios brindados según las categorías establecidas en la metodología tarifaria vigente, así como los estados financieros y documentos de contabilidad regulatoria de acuerdo con las disposiciones que para estos fines establezca la Aresep.
 III. Las tarifas del Por Tanto I rigen a partir del día natural siguiente de su publicación en el Diario La Gaceta.
 Conforme con lo que ordena el artículo 245, en relación con el 345 de la LGAP, se indica que contra esta resolución se pueden interponer los recursos ordinarios de revocatoria y de apelación, y el extraordinario de revisión en los supuestos y condiciones establecidos en los artículos 353 y 354 de la LGAP. Los recursos ordinarios podrán interponerse en el plazo de tres días hábiles contados a partir del día hábil siguiente a la notificación de esta resolución ante la Intendencia de Transporte, de conformidad con los artículos 346 y 349 de la LGAP.
