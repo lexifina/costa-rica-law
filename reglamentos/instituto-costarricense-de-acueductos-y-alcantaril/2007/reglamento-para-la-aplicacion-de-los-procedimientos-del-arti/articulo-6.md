@@ -1,1 +1,0 @@
-Artículo 6º—Las normas de este reglamento están integradas a los procedimientos y requisitos para la admisibilidad, revisión y aprobación de nuevos proyectos de desarrollo en los términos establecidos por el reglamento para el trámite de visado de planos para la construcción Decreto 27967-MP-MIVAH- MEIC.

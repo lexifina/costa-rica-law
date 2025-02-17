@@ -1,1 +1,0 @@
-Artículo 10.—El proyecto, los planos técnico-constructivos y toda documentación requerida, será sometida a la aprobación del Colegio Federado de Ingenieros y de Arquitectos, la Municipalidad respectiva, AyA, SETENA y cualesquier otro ente competente cuando así corresponda.

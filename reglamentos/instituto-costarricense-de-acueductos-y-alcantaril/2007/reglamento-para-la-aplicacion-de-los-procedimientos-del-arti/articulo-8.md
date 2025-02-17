@@ -1,1 +1,0 @@
-Artículo 8º—AyA deberá establecer el número total de servicios que se habilitarán una vez que se ejecuten las obras, identificando tanto los que forman parte del proyecto o proyectos correspondientes al Desarrollador, Urbanizador o Fraccionador, como aquellos que se ubiquen fuera de este.
