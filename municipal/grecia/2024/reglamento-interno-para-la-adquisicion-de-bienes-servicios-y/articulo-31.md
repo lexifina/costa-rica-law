@@ -1,0 +1,1 @@
+Artículo 31.-Plazo para emitir el acto del Refrendo Interno: El Departamento de Gestión Jurídica contará con un plazo de hasta quince días hábiles para emitir el acto de refrendo interno. Esto se realizará sin perjuicio de las dos prevenciones que se puedan generar durante el trámite, las cuales suspenderán el cómputo del plazo hasta su debida atención.

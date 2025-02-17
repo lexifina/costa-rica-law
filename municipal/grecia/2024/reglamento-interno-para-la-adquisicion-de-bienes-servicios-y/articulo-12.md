@@ -1,0 +1,1 @@
+Artículo 12.-Selección de procedimientos: La selección de los procedimientos de contratación corresponderá a la Administración de Bienes y Servicios, quien lo hará en función del monto presupuestado para la agrupación de contratación y considerando los montos establecidos para cada tipo de procedimiento, según lo aprobado por la Contraloría General de la República.

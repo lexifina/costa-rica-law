@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del expediente
+Artículo 26.-Del expediente administrativo electrónico: El expediente administrativo electrónico se constituye por una serie de documentos electrónicos ordenados cronológicamente y almacenados en un medio que garantiza que ninguno de esos documentos será alterado o eliminado. En cada procedimiento de contratación pública que se realice en el Sistema Digital Unificado, el expediente será electrónico y contendrá todos los actos generados durante el trámite del procedimiento y en la etapa de ejecución contractual. Todo interesado tendrá acceso libre al expediente electrónico del procedimiento de contratación, el cual podrá ser consultado en línea.

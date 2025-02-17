@@ -1,0 +1,5 @@
+CAPÍTULO III
+Tramitación de solicitudes de compra
+Artículo 11.-Solicitudes de compra: La unidad solicitante como titular subordinado competente esta autorizados para realizar las solicitudes de compra de bienes y servicios. Será responsable de verificar el cumplimiento del objeto de la contratación, salvo disposición en contrario.
+Las solicitudes de contratación debe incluir la decisión inicial, el estudio de mercado y las especificaciones técnicas, que deberán ser formuladas por la unidad técnica, de acuerdo con lo dispuesto por la Ley General de Contratación Pública y su reglamento, utilizando el formulario disponible en el Sistema Digital Unificado.
+Si el formulario de decisión inicial se presenta con información incompleta o poco clara, la Administración de Bienes y Servicios podrá advertir, por única vez, a la unidad técnica que lo remitió. Esta tendrá un plazo de tres días hábiles para solventar la disconformidad. Si no se procede de manera satisfactoria, se anulará la solicitud de compra y podría resultar en sanciones disciplinarias, conforme a lo dispuesto por el Reglamento Autónomo de Organización y Servicio de la Municipalidad de Grecia (RAOS).

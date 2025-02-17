@@ -1,0 +1,1 @@
+Artículo 32.-Modificaciones contractuales: Cuando surjan modificaciones a un contrato que cuente con refrendo o refrendo interno, estas quedarán sujetas únicamente al refrendo interno. Será responsabilidad del Administrador del Contrato gestionar dichas modificaciones en tiempo y forma, de acuerdo con el ordenamiento jurídico.

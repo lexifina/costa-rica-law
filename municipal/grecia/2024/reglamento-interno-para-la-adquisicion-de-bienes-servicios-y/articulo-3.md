@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de Aplicación: El presente reglamento interno rige para los procedimientos de contratación en la Municipalidad de Grecia para los bienes, servicios y obra bajo el amparo jurídico establecido en la Ley General de Contratación Pública y su Reglamento.

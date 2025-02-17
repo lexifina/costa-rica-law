@@ -1,0 +1,1 @@
+Artículo 4º-Actualización del sistema: La Administración de Bienes y Servicios como ente rector institucional responsable del sistema de adquisición de bienes y servicios deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes y servicios que requieran las diversas dependencias institucionales.
