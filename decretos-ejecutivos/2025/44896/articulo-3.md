@@ -1,0 +1,1 @@
+Artículo 3º-El Sistema Nacional de Áreas de Conservación podrá establecer acuerdos y convenios con contrapartes públicas y privadas. para consolidar el modelo de gobernanza del Parque Natural Urbano- Simón Bolívar. conforme a la legislación vigente.

@@ -1,0 +1,1 @@
+Transitorio I.-El Área de Conservación Central. deberá contar con el Plan de Manejo del Parque Natural Urbano Simón Bolívar. aprobado en el plazo de seis meses y el reglamento de uso público en un plazo de ocho meses, lo anterior, a partir de la publicación del presente decreto.

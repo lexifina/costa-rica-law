@@ -1,0 +1,1 @@
+Artículo 4º-Dentro del Parque Natural Urbano- Simón Bolívar, rigen las limitaciones que establece la Ley de Biodiversidad N° 7788 del 30 de abril de 1998: el Reglamento a la Ley de Biodiversidad. Decreto Ejecutivo N° 34433-MINAE del 11 de marzo de 2008. el Decreto Ejecutivo N° 42742 y normativa conexa.
