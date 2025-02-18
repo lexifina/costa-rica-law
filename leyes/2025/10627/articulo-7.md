@@ -1,0 +1,6 @@
+ARTÍCULO 7- Nombramientos. Los miembros del Consejo Consultivo de Educación Financiera (Cocef), indicados en el artículo 5, del inciso a) al inciso h), serán los jerarcas de las instituciones o quien ostente el cargo de máxima autoridad.
+El representante de las cámaras del sector empresarial, al que se refiere el inciso i), será designado por la Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (Uccaep).
+El representante del movimiento solidarista, al que se refiere el inciso j), será designado por la Confederación Nacional de Asociaciones Solidaristas (Conasol).
+El representante del movimiento cooperativo financiero, al que se refiere el inciso k), será designado por el Consejo Nacional de Cooperativas (Conacoop).
+La elección de los representantes a los que se refieren los incisos i), j) y k) se realizarán mediante asamblea extraordinaria de las respectivas organizaciones, convocada para tal efecto y celebrada conforme a la ley, y serán ratificados por la Presidencia de la República.
+El representante a que se refiere el inciso I) será designado por el ministro de Economía, Industria y Comercio, de acuerdo con el reglamento de la Ley 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, de 20 de diciembre de 1994.

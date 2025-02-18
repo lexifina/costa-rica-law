@@ -1,0 +1,11 @@
+ARTÍCULO 9- Funciones y atribuciones del Cocef. El Consejo Consultivo de Educación Financiera (Cocef) tendrá las siguientes funciones y atribuciones:
+a) Aprobar la política pública para la promoción de la educación financiera para los habitantes de la República.
+b) Definir los principios, los lineamientos, las herramientas, las metodologías y las actividades para la adopción de una Estrategia Nacional de Educación Financiera.
+c) Crear las subcomisiones técnicas de apoyo a lo interno de su estructura y solicitar cuando sea requerido, mediante consulta no vinculante, el apoyo a entidades externas y a expertos para el mejor desempeño de sus funciones, y para dar respuesta a inquietudes concretas de la Comisión.
+d) Proponer y facilitar alianzas público-privadas, colaboraciones y mecanismos de cooperación del sector público y privado, como los definidos en los convenios o cartas compromiso, para impulsar la política pública para la promoción de la educación financiera y, cuando sea posible, integrar las acciones de formación en educación financiera.
+e) Coordinar, a través del Ministerio de Educación Pública (MEP), el envío de propuestas educativas al Consejo Superior de Educación para que sean evaluadas, con la finalidad de su eventual adopción y adecuación en el currículo de educación formal para primaria y secundaria.
+f) Divulgar las acciones o los planes aprobados para la consecución del fin de esta ley.
+g) Velar por la ejecución de los programas y las acciones que se establezcan en la política pública de promoción de la educación financiera, en el sector no gubernamental y el sector privado, para los diferentes segmentos de la población.
+h) Velar por la realización de actividades, foros, materiales, capacitaciones presenciales o virtuales y cualquier otra estrategia metodológica en términos de facilitar el acceso a la información, sobre los fines de esta ley, a la población en general.
+i) Generar datos, información y una metodología para medir el impacto de la implementación de la Estrategia Nacional de Educación Financiera, modificar y mejorar los esfuerzos para la consecución de los fines de esta ley, en estricto apego a lo establecido por la Ley 8969, Protección de la Persona frente al Tratamiento de sus Datos Personales, de 7 de julio de 2011.
+j) Cualquier otra que sea necesaria para el cumplimiento de sus fines.

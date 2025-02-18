@@ -1,0 +1,2 @@
+ARTÍCULO 10- Sesiones del Cocef. El Consejo Consultivo de Educación Financiera (Cocef) se reunirá ordinariamente cada trimestre y, de manera extraordinaria, las veces que sean necesarias, siempre y cuando al menos cuatro de sus miembros o la Presidencia así lo solicite. De cada sesión de la comisión se levantará un acta que indique, entre otros, los acuerdos y compromisos establecidos.
+Los representantes del Cocef no devengarán dietas producto de la participación en las sesiones.
