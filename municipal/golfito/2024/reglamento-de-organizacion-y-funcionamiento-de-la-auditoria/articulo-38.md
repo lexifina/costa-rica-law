@@ -1,0 +1,1 @@
+Articulo 38. PROGRAMA DE TRABAJO. La Auditoría Interna debe elaborar un programa de trabajo detallado en el cual se especifiquen las actividades por realizar, los plazos, los recursos necesarios y los responsables de cada tarea. Este programa de trabajo debe ser aprobado por el jerarca y debe revisarse y actualizarse periódicamente para asegurar su pertinencia y efectividad.

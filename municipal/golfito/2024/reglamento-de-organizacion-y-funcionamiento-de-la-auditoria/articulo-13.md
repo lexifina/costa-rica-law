@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+Programa de educación y capacitación continúa
+Articulo 13. - PRESUPUESTO DEL PROGRAMA DE CAPACITACIÓN. Cada año, la Auditoría Interna preparará un plan de educación y capacitación profesional continua para sus funcionarios con el propósito de que el personal de la auditoría mantenga y perfeccione sus capacidades y competencias profesionales para cumplir con pericia y debido cuidado profesional los trabajos que se les asignan. La asignación presupuestaria para este programa será incluida en la solicitud de recursos que se somete a aprobación del jerarca todos los años, quedando sujeta a la disponibilidad presupuestaria que posea la Municipalidad para ese momento y siguiendo la normativa que para efectos de capacitaciones posea la Municipalidad de Golfito.

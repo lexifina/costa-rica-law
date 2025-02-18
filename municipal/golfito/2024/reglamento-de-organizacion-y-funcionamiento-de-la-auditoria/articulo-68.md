@@ -1,0 +1,3 @@
+Articulo 68. PUBLICACIÓN Y DIFUSIÓN. El presente reglamento deberá ser publicado en el Diario Oficial y difundido a través de los medios de comunicación institucionales para asegurar su conocimiento por parte de todos los funcionarios y partes interesadas. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Aprobado por el Concejo Municipal en la Sesión Ordinaria N.° 25, celebrada el 16 de octubre del año 2024, según consta en el Capítulo Quinto, Artículo Once, Acuerdo N.° 12.
+Aprobado por la Contraloría General de la Republica mediante oficio DFOE-LOC-1721(19917) en fecha 22 de noviembre 2024.
