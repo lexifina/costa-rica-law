@@ -14,3 +14,4 @@ Reglamento interno de gastos de alimentación y bebidas para la Junta Directiva 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-03-09 | la propia norma |
+| 2 | 2025-02-18 | Reglamento 12 (2025-02-18) |
