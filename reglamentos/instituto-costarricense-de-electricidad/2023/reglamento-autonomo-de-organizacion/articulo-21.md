@@ -1,2 +1,0 @@
-Artículo 21 - Gerencia de Telecomunicaciones.
-Es la gerencia encargada de brindar un ecosistema de última generación de soluciones de telecomunicaciones seguras, integrales e innovadoras a nivel nacional e internacional, considerando elementos de convergencia, diversidad, calidad, seguridad, confiabilidad, agilidad y oportunidad de los servicios ofrecidos; así como el diseño, desarrollo, gestión y actualización de la infraestructura necesaria y requerida.

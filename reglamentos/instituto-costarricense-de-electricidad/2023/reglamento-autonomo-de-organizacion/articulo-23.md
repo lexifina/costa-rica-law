@@ -1,2 +1,0 @@
-Artículo 23 - Gerencia de Electricidad.
-Es la gerencia encargada de garantizar, de forma ágil, el suministro de energía eléctrica sostenible para liderar la electrificación de la economía costarricense, considerando la planificación, desarrollo y gestión de la infraestructura necesaria para la satisfacción de la demanda eléctrica del país, así como desarrollar negocios no regulados y convergentes para la generación de nuevos ingresos y mejorar la experiencia al cliente.
