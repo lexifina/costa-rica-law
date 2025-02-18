@@ -1,0 +1,1 @@
+Artículo 15.-Derecho a la continuidad de la relación de trabajo. La infección por VIH no constituye una causa justificada de despido. En caso de que la persona trabajadora sufra discriminación por VIH, podrá dar por terminado su contrato de trabajo con responsabilidad patronal, de conformidad con lo preceptuado en el inciso k) del artículo 83 del Código de Trabajo.

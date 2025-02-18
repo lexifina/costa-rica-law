@@ -1,0 +1,1 @@
+Artículo 12.-De las pruebas de VIH. La persona empleadora no podrá solicitar pruebas de VIH para efectos de permanencia en el empleo y garantizará que en sus procesos de selección y contratación de personal no se incluya la realización o solicitud de pruebas de detección de anticuerpos al VIH.
