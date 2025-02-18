@@ -1,0 +1,1 @@
+Artículo 25.- Para obtener los fondos de la Tesorería Municipal deberá presentar la autorización de la Comisión Técnica para tal fin. Los fondos autorizados deberán ser trasladados a la cuenta del sujeto beneficiario, previa comprobación de los requisitos de este reglamento y los que fije la Contraloría General de la República.

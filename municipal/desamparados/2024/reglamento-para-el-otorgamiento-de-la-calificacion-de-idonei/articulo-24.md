@@ -1,0 +1,2 @@
+Artículo 24.- Para cumplir con el control, los fondos asignados serán depositados en una cuenta especial y se llevarán independientemente en la contabilidad de las organizaciones. La Comisión Técnica velará porque se cumplan estos requisitos.
+El sujeto beneficiario que obtenga recursos de conformidad con este reglamento, deberá presentar ante la Municipalidad de Desamparados, mediante declaración jurada, en la que conste el acuerdo de su órgano directivo, con la respectiva liquidación presupuestaria de los fondos trasferidos.

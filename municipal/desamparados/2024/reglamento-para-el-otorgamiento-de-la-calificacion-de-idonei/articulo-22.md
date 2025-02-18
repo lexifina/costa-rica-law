@@ -1,0 +1,2 @@
+Artículo 22.- El dictamen de recomendación que hace la Comisión Técnica, no será vinculante para el Concejo Municipal, quien, en caso de desaprobación, fundamentará su decisión mediante un acto motivado y dicho documento debe ser adjuntado al expediente.
+En la aprobación definitiva debe indicarse con cargo a cuál partida presupuestaria se realizará el giro de los fondos, y en caso de no tener contenido presupuestario los proyectos se podrán incluir en el presupuesto siguiente.

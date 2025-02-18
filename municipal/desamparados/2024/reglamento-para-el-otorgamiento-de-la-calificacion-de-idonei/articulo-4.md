@@ -1,0 +1,1 @@
+Artículo 4.- Los sujetos beneficiarios que solicitan la calificación de idoneidad para administrar fondos públicos deben presentar en los dos primeros meses del año, el formulario y los requisitos que para el efecto suministrara la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 33.- Este reglamento deroga cualquier disposición anterior que se le oponga y rige a partir de su publicación en el Diario Oficial, y su aplicación deberá realizarse de forma armónica con los lineamientos emitidos por la Contraloría General de la República en esta materia.

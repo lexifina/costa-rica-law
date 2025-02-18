@@ -1,0 +1,1 @@
+Artículo 18.-Tanto la Municipalidad como los sujetos beneficiarios deberán cumplir con las Normas de Control Interno para los sujetos beneficiarios que custodien o administren, por cualquier título, fondos públicos, emitido por la Contraloría General de la República.
