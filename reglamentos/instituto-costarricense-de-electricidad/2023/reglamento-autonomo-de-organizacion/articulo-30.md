@@ -34,7 +34,8 @@ Artículo 30 - Competencias. Las competencias de la Gerencia Servicios y Recurso
 33. Gestionar los centros de atención telefónica, así como la gestión de cobranza, en coordinación con las Gerencias de Telecomunicaciones y Electricidad; además establecer los indicadores y mecanismos para su control y seguimiento.
 34. Establecer lineamientos de rectoría en las materias bajo su competencia.
 35. Gestionar el portafolio de servicios de soporte interno en su ámbito de competencia, así como los acuerdos de nivel de servicio que correspondan.
-36. Coordinar con la Gerencia Tecnología y Soluciones Digitales, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar.
+36. Coordinar con la División Tecnologías de Información, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar.
+(Así reformado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)
 37. Desarrollar, mantener y actualizar la infraestructura necesaria y requerida para gestionar los servicios bajo su ámbito de competencia, asegurando un crecimiento y calidad acordes con el desarrollo de la industria, de acuerdo con los planes de inversión y presupuestos que le fueren aprobados.
 38. Ejercer la administración y mantenimiento sobre la infraestructura que por normativa les corresponda.
 39. Dirigir, supervisar y dar seguimiento a los servicios de soporte bajo su ámbito de competencia por medio de las dependencias a su cargo.

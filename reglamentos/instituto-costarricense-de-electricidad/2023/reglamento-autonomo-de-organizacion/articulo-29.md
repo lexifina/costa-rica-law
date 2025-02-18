@@ -1,2 +1,3 @@
 Artículo 29 - Gerencia Servicios y Recursos Empresariales.
-Es la gerencia encargada de gestionar, de forma ágil, los servicios de soporte con un enfoque en la optimización en el manejo de los recursos y servicios empresariales, en coordinación con las otras gerencias, a través de los procesos de proveeduría, logística, bienes inmuebles, documentación e información, gestión de cobranza, centros de atención telefónica, seguridad institucional, talento, entre otros que se le asignen.
+Es la gerencia encargada de gestionar, de forma ágil, los servicios de soporte con un enfoque en la optimización en el manejo de los recursos y servicios empresariales, en coordinación con las otras gerencias, a través de los procesos de proveeduría, logística, bienes inmuebles, documentación e información, gestión de cobranza, centros de atención telefónica, talento, entre otros que se le asignen.
+(Así reformado mediante sesión N° 6641 del 13 de agosto del 2024)

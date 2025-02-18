@@ -8,6 +8,6 @@ c) Gerencia General
 d) Gerencia de Telecomunicaciones
 e) Gerencia de Electricidad
 f) Gerencia de Finanzas
-g) Gerencia Tecnología y Soluciones Digitales
-h) Gerencia Servicios y Recursos Empresariales
+g) Gerencia Servicios y Recursos Empresariales
 Los titulares de la Gerencia General y de las gerencias se consideran funcionarios de confianza de la Institución.
+(Así reformado mediante sesión N° 6641 del 13 de agosto del 2024)

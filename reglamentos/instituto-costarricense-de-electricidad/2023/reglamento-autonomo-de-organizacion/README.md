@@ -14,3 +14,4 @@ Reglamento autónomo de organización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-04-18 | la propia norma |
+| 2 | 2025-02-18 | Reglamento 6641 (2024-08-13) |

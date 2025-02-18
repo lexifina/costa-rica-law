@@ -36,7 +36,8 @@ Artículo 22 - Competencias. Las competencias de la Gerencia de Telecomunicacion
 35. Asegurar en su ámbito de competencia, el cumplimiento de la regulación aplicable y rendir el informe correspondiente a la Gerencia General.
 36. Establecer lineamientos de gestión en las materias bajo su competencia.
 37. Coordinar entre las gerencias, los aspectos relacionados con la prestación de servicios (incluyendo acuerdos de servicio) y la generación de sinergias.
-38. Coordinar con la Gerencia Tecnología y Soluciones Digitales, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar.
+38.Coordiar con la División Tecnologías de Información, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar.
+(Así reformado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)
 39. Desarrollar, mantener y actualizar la infraestructura necesaria y requerida para brindar los productos y la comercialización de los servicios de telecomunicaciones, asegurando un crecimiento y calidad acordes con el desarrollo de la industria, los planes de inversión y presupuestos que le fueren aprobados.
 40. Ejercer la administración y mantenimiento sobre la infraestructura que por normativa les corresponda.
 41. Dirigir, supervisar y dar seguimiento al negocio telecomunicaciones por medio de las dependencias a su cargo.

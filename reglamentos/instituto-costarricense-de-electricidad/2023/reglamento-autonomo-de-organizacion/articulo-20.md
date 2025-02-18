@@ -52,4 +52,9 @@ Artículo 20 - Competencias. Las competencias de la Gerencia General son las sig
 51. Asegurar, en su ámbito de competencia, el cumplimiento de la normativa para la administración integral de riesgos.
 52. Recomendar al Consejo Directivo los límites de exposición y el apetito de riesgo.
 53. Liderar la gestión de calidad para la mejora continua.
-54. Cualquier otra función que indique el ordenamiento jurídico, así como aquellas que se le otorguen por acuerdo del Consejo Directivo.
+54.Liderar la ciberseguridad, seguridad física y la supervisión del funcionamiento y cumplimiento del Modelo Facultativo de Organización, Prevención de delitos, Gestión y Control.
+(Así reformado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)
+55. Asegurar el cumplimiento del Modelo Facultativo de Organización, Prevención de delitos, Gestión y Control, propuesto por la Dirección Ciberseguridad y Protección Empresarial, sea acorde con lo dispuesto en la legislación y asegurar su implementación
+(Así adicionado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)
+56. Cualquier otra función que indique el ordenamiento jurídico, así como aquellas que se le otorguen por acuerdo del Consejo Directivo.
+(Así adicionado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)

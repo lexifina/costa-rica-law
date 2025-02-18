@@ -43,7 +43,8 @@ Artículo 26 - Competencias. Las competencias de la Gerencia de Finanzas son las
 42. Asegurar en su ámbito de competencia, el cumplimiento de la regulación aplicable y rendir el informe correspondiente a la Gerencia General.
 43. Establecer lineamientos de rectoría en las materias bajo su competencia.
 44. Coordinar entre las gerencias, los aspectos relacionados con la prestación de servicios (incluyendo acuerdos de servicio).
-45. Coordinar con la Gerencia Tecnología y Soluciones Digitales, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar, a fin de que se evalúe su priorización.
+45.Coordinar con la División Tecnologías de Información, los requerimientos de los proyectos de tecnologías de información y soluciones digitales que requieren desarrollar.
+(Así reformado el inciso anterior mediante sesión N° 6641 del 13 de agosto del 2024)
 46. Dirigir, supervisar y dar seguimiento a la gestión financiera por medio de las dependencias a su cargo.
 47. Resolver todos los asuntos de su competencia o especialidad administrativa.
 48. Dar apoyo a la gestión financiera a nivel corporativo, cuando la Presidencia Ejecutiva o la División de Estrategia así lo requieran.
