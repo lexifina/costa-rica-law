@@ -1,0 +1,1 @@
+ARTÍCULO 5- Creación del Cocef. Se crea el Consejo Consultivo de Educación Financiera (Cocef), órgano presidido por el Ministerio de Economía, Industria y Comercio (MEIC) y que tendrá como objetivo la aprobación, dirección, ejecución, supervisión y evaluación de la Política Nacional de Educación Financiera.

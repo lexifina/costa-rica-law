@@ -1,0 +1,3 @@
+ARTÍCULO 2- Conceptos
+a) Educación financiera: proceso mediante el cual los individuos adquieren una mejor comprensión de los conceptos y productos financieros y previsionales, y desarrollan las habilidades y competencias necesarias para la toma de decisiones informadas y la evaluación de riesgos y oportunidades, para la mejora de la inclusión financiera y del bienestar financiero personal y familiar.
+b) Estrategia Nacional de Educación Financiera (ENEF): herramienta de política pública de carácter permanente, que permite orientar las acciones del país en el impulso del bienestar y la educación financiera de la población. Sus características principales son la garantía de la gratuidad de las iniciativas que desarrolla o apoya y su imparcialidad comercial.
