@@ -14,3 +14,4 @@ Reforma Integral Plan Regulador Urbano del Cantón Central de Cartago, incluye: 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-02 | la propia norma |
+| 2 | 2025-02-18 | Reglamento municipal 0 (2025-02-18) |
