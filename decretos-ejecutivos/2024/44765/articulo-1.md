@@ -1,0 +1,13 @@
+N° 44765-MGP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+En ejercicio de las facultades establecidas en los artículos 140 incisos 3), 18) y 20) y 146 dela Constitución Política; artículos 4, 11 y 25 inciso 1), 27 inciso 1 y 28 inciso 2) acápite b) de la Ley General de la Administración Pública N° 6227, del 2 de mayo de 1978, publicada en el Alcance N°90 del Diario Oficial La Gaceta N° 102 del 30 de mayo de 1978; artículos 1 y 6 de la Ley sobre Desarrollo de la Comunidad, N° 3859 del 7 de abril de 1967, publicada en el Diario Oficial La Gaceta N° 88 del 19 de abril de 1967 y el artículo 3 del Decreto Ejecutivo N° 26935-G, Reglamento a la Ley N° 3859 "Sobre Desarrollo de la Comunidad" del 20 de abril de 1998 publicado en el Diario Oficial La Gaceta N° 97 del 21 de mayo de 1998.
+Considerando:
+1.-Que la Dirección Nacional de Desarrollo de la Comunidad es un órgano adscrito al Ministerio de Gobernación y Policía, el cual según lo estipulado en el artículo 1° de la Ley N° 3859 "Sobre Desarrollo de la Comunidad", actúa como un instrumento básico de organización de las comunidades del país, para lograr su participación activa y consciente en el desarrollo de Costa Rica.
+2.-Que mediante Decreto Ejecutivo N° 35232-MG del 20 de febrero de 2009, publicado en La Gaceta N° 97 del 21 de mayo de 2009, se promulgó el Reglamento para la Adjudicación de Becas, Licencias o Facilidades de Capacitación y/o Formación a Funcionarios de la Dirección Nacional de Desarrollo de la Comunidad, destinado a regular los mecanismos para la facilitación de becas y licencias para el funcionario.
+3.-Que posterior a la promulgación de dicho cuerpo normativo se han emitido otros de la misma naturaleza, pero de mayor integralidad para con los elementos que deben tomarse en cuenta al generar aquellas facilidades para el personal cubierto por el Régimen del Servicio Civil, verbigracia, el Decreto Ejecutivo 40608-MP, denominado Reforma al Reglamento del Estatuto de Servicio Civil Decreto Ejecutivo N° 21 y reforma del Reglamento a la Ley de Licencias de adiestramiento servidores públicos Decreto Ejecutivo N° 17339-P.
+4.-Que se cuenta así con una normativa a nivel de todo el Régimen del Servicio Civil con suficiente grado de especificidad que vuelve innecesaria la continuidad del Decreto Ejecutivo N° 35232-MG. Por tanto,
+Decretan:
+Derogatoria del Decreto Ejecutivo N° 35232-MG
+del 20 de febrero de 2009
+Artículo 1°-Deróguese el Decreto Ejecutivo N° 35232- MG "Reglamento para la Adjudicación de Becas, Licencias o Facilidades de Capacitación y/o Formación a Funcionarios de la Dirección Nacional de Desarrollo de la Comunidad" del 20 de febrero de 2009, publicado en La Gaceta N° 97 del 21 de mayo de 2009.
