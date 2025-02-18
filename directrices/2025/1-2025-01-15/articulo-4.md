@@ -1,0 +1,1 @@
+Artículo 4°-Sanción disciplinaria. Las personas funcionarias del Consejo de Salud Ocupacional que, al evacuar consultas sobre los temas comprendidos dentro del Compendio de Criterios Técnicos en Materia de Salud Ocupacional, se aparten de la posición del Consejo, incurrirán en falta a sus deberes con las consecuentes responsabilidades disciplinarias.
