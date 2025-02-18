@@ -1,0 +1,3 @@
+CAPÍTULO XV. DEL PRESUPUESTO MUNICIPAL.
+Artículo 73. De las responsabilidades: Si el presupuesto no se llegara a aprobar, por razones imputables al Alcalde, a funcionarios administrativos o a regidores en el tiempo establecido por el Código Municipal, el Concejo Municipal tendrá un plazo improrrogable de diez días para definir el procedimiento para establecer las responsabilidades administrativas, civiles y penales que puedan resultar de tal omisión.
+De las acciones iniciadas, en ejecución de lo indicado en el párrafo anterior, deberá enviarse copia de inmediato a la Auditoría Municipal y a la Contraloría General de la República. En estos casos la Municipalidad estará sometida a lo dispuesto en el artículo noventa y ocho del Código Municipal.

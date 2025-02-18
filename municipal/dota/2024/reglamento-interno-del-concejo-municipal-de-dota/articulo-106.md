@@ -1,0 +1,1 @@
+Artículo 106. De la segunda publicación: La segunda publicación se efectúa una vez que haya transcurrido ya el período de consulta pública, tiene un efecto jurídico de trascendental importancia, pues fija la fecha a partir de la cual adquiere eficacia e inicia su aplicación. Debe indudablemente publicarse de manera íntegra.

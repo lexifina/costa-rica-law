@@ -1,0 +1,1 @@
+Artículo 94. De la organización de las consultas populares: La misma recaerá en una comisión especial creada por el Concejo Municipal para tal fin, la cual se guiará por lo estipulado en el Reglamento de Consultas Populares de esta Municipalidad.

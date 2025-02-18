@@ -1,0 +1,1 @@
+Artículo 92. De la mayoría necesaria para acordar celebrar consultas populares: Exceptuando el plebiscito revocatorio del mandato del Alcalde Municipal, será necesaria la presentación de una moción firmada por al menos cinco regidores, la cual debe ser aprobada por mayoría absoluta del Concejo Municipal, para acordar la celebración de consultas populares.

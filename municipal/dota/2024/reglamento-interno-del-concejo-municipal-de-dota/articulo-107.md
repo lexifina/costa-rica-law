@@ -1,0 +1,2 @@
+CAPÍTULO XVIII. DE LOS NOMBRAMIENTOS DEL CONCEJO MUNICIPAL.
+Artículo 107. De la potestad del Concejo Municipal: Conforme a lo indicado en el Código Municipal y las diferentes leyes de la República, corresponde al Concejo Municipal nombrar representantes municipales ante diferentes dependencias como juntas administrativas de fundaciones y centros educativos del cantón, juntas directivas de federaciones, del Comité Cantonal de Deportes y Recreación, de la Junta Vial Cantonal, entre otros.

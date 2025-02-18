@@ -1,0 +1,1 @@
+Artículo 64. De la participación de asesores en las comisiones: Los funcionarios municipales, el Alcalde, los asesores del Concejo y los vecinos del cantón, podrán participar, en calidad de asesores, con voz, pero sin derecho a voto, en las comisiones del Concejo Municipal. Serán llamados por acuerdo del Concejo para participar en las comisiones.

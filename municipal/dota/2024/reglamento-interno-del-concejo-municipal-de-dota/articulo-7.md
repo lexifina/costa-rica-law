@@ -1,0 +1,1 @@
+Artículo 7. Del inicio de las sesiones: Las sesiones deben iniciarse a la hora señalada en tanto exista quórum, tres regidores. De no existir quórum, se darán quince (15) minutos, se tomará la hora que indique el reloj instalado en la sala de sesiones.

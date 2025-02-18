@@ -1,0 +1,1 @@
+Artículo 103. De los reglamentos internos: Son los de organización y funcionamiento dentro de la propia Municipalidad. Los reglamentos internos deben publicarse en el Diario Oficial, sin embargo, no se someterán al trámite de consulta previa por diez días hábiles, debido a que no afectan a terceros.

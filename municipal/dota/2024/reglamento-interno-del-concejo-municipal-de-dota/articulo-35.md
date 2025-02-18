@@ -1,0 +1,3 @@
+Artículo 35. Votaciones: Todo acuerdo del Concejo debe ser tomado por la mayoría de votos que establece el Código Municipal, serán tomados previo dictamen de una Comisión o Moción, firmado por los proponentes. El regidor debe emitir su voto, este deberá ser afirmativo o negativo, no puede abstenerse; sin embargo, le es posible inhibirse de la discusión y votación de los asuntos en que él tenga interés directo, su cónyuge o algunos de sus familiares, conforme a lo dispuesto en el artículo 31 inciso a) del Código Municipal.
+Para contabilizar y enunciar los votos, los regidores deben estar en sus respectivas curules.
+No existe posibilidad alguna para que no se contabilice un voto, cuando el regidor lo haya hecho; pero alegue que votar no era su intención.

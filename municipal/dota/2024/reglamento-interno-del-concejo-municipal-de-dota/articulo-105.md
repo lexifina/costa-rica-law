@@ -1,0 +1,1 @@
+Artículo 105. Del trámite a las objeciones de la consulta pública: El Órgano Colegiado deberá analizar las observaciones planteadas trasladándolas a la comisión que se designe para tal fin. Si son aceptadas por el pleno del Concejo se incorporarán en la segunda publicación.

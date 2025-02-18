@@ -1,0 +1,1 @@
+Artículo 34. Votos requeridos para tomar un acuerdo: Los acuerdos del Concejo se toman por mayoría absoluta, conforme lo ordena el artículo cuarenta y dos del Código Municipal, salvo algunos casos especiales en que el Código Municipal exige una mayoría diferente.

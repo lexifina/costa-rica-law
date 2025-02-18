@@ -1,0 +1,3 @@
+Artículo 37. De la firmeza de los acuerdos: Los acuerdos tomados por el Concejo, quedarán firmes al aprobarse el acta respectiva. Cuando el Concejo lo estime conveniente, por razones de oportunidad y conveniencia, por votación de las dos terceras partes de la totalidad de sus miembros podrá declarar sus acuerdos como definitivamente aprobados, previa moción de orden que solicite la firmeza del acuerdo.
+Los acuerdos que sean declarados firmes adquieren plena validez jurídica a partir de ese acto.
+Si el acta no se ha presentado para su aprobación, se puede pedir el definitivamente aprobado de un acuerdo, mediante moción de orden, pero debe aprobarse mediante mayoría calificada.

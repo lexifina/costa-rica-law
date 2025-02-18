@@ -1,0 +1,2 @@
+Artículo 22. Del procedimiento a seguir durante las sesiones ordinarias y extraordinarias: Las sesiones del Concejo Municipal serán públicas, según artículo 41 del Código Municipal. Esta Corporación, por medio de moción de orden, concederá el espacio o tiempo para la intervención oral de alguna persona que asista.
+La ciudadanía tendrá libre acceso a las actas de las sesiones, debiendo hacer una solicitud escrita, indicando la información que requiere.

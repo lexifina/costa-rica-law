@@ -1,0 +1,1 @@
+Artículo 9. De la modificación del día y hora de las sesiones ordinarias: Para modificar el día y la hora de sesiones ordinarias del Concejo Municipal se requerirá de acuerdo del Concejo y de su publicación en el Diario Oficial La Gaceta, con al menos un mes de anticipación.

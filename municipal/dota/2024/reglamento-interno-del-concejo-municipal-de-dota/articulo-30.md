@@ -1,0 +1,1 @@
+Artículo 30. Del traslado de asuntos competencia del Alcalde: Cuando el objeto de la audiencia sea competencia de la Alcaldía, la Presidencia Municipal lo remitirá, por medio de la Secretaría Municipal, para que éste le dé el trámite correspondiente, comunicándosele así a los interesados y al Concejo Municipal.

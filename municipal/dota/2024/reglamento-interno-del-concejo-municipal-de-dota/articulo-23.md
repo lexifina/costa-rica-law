@@ -1,0 +1,1 @@
+Artículo 23. Los asuntos de fuerza mayor o emergencia serán atendidos en sesiones extraordinarias convocadas de urgencia, por escrito, por el Alcalde Municipal, en coordinación con la Presencia del Concejo Municipal.

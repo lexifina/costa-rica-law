@@ -1,0 +1,1 @@
+Artículo 46. De las mociones sin dispensa de trámite de comisión: Cuando se presente una moción sin dispensa de trámite de comisión solo podrá hacer uso de la palabra para referirse al fondo del asunto el Regidor proponente por un tiempo no mayor a tres minutos, luego el Presidente remitirá la moción a la comisión correspondiente.

@@ -1,0 +1,1 @@
+Artículo 39: Acuerdo a sesiones extraordinarias: Las sesiones extraordinarias se convocarán por acuerdo en una sesión ordinaria. El Alcalde convocará igualmente por escrito. También a la Secretaría del Concejo Municipal se le debe comunicar; llevándose siempre un registro que contenga fecha, hora y nombre de dicha convocatoria y asuntos a tratar.

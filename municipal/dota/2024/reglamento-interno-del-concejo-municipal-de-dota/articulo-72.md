@@ -1,0 +1,2 @@
+Artículo 72. De las sesiones de las comisiones y la lista de asistencia: Las comisiones deberán sesionar en forma ordinaria al menos dos veces al mes y extraordinariamente cuando sea necesario. De cada reunión de comisión debe firmarse la lista de asistencia.
+La fecha y hora de las sesiones deben establecerse con carácter permanente mediante acuerdo unánime de los integrantes de la comisión, y se comunicará al Concejo Municipal mediante dictamen.

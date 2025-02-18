@@ -1,0 +1,22 @@
+CAPÍTULO XI. DE LA PRESIDENCIA MUNICIPAL.
+Artículo 52. De los deberes de la Presidencia Municipal: Corresponderá a la Presidencia Municipal, junto a las otras atribuciones conferidas en el Código Municipal y en este Reglamento:
+Abrir, presidir, suspender y cerrar las sesiones del Concejo Municipal. Estando en debate un asunto la Presidencia no podrá levantar la sesión hasta tanto no se agote la discusión del mismo.
+Preparar el orden del día en coordinación con la Secretaría del Concejo.
+Anunciar las votaciones y la aprobación o rechazo de un asunto.
+Conceder el uso de la palabra y retirarla a quien se exceda en sus expresiones, se sobrepase el tiempo reglamentario o se desvíe del asunto en discusión.
+Conceder el uso de la palabra para justificar el voto negativo sobre un acuerdo por un período máximo de tres minutos.
+Mantener el orden de las sesiones. Hacer retirar de ellas a aquellas personas que se encuentren en el recinto y no guarden la compostura debida o el respeto requerido, interrumpan o impidan la celebración de la sesión. Entiéndase que podrán ser desalojadas las personas que se encuentren en el recinto donde sesiona el Concejo Municipal y que, se dirijan de manera irrespetuosa, insolente, maleducada, con gritos y ofensas a los regidores u a otros miembros del Concejo, síndicos, funcionarios municipales o invitados.
+Requerir la presencia de la Fuerza Pública cuando lo estime pertinente en protección de la integridad física de las personas que están en el recinto donde se sesiona.
+Ordenar el retiro total y definitivo de un Regidor de la sala de sesiones cuando este no esté cumpliendo las reglas de respeto y decoro en el comportamiento, tanto para los demás regidores como para los demás presentes en el recinto donde sesiona el Concejo Municipal. En este caso el regidor retirado de la sesión será sustituido por su suplente y perderá la respectiva dieta.
+En el caso de que sea un regidor suplente el que debe de ser retirado de la sesión porque está sustituyendo a un propietario, si no hay ningún otro regidor de su partido que lo sustituya, será retirado y la sesión continuará con el resto de Regidores, siempre y cuando no se rompa el quórum. Si el Regidor que no cumple con las disposiciones de comportamiento que exige el presente reglamento se rehúsa a salir del salón de sesiones, el Presidente suspenderá temporalmente la sesión hasta que se retire de manera total del recinto, y podrá la presidencia utilizar la colaboración de la Fuerza Pública o seguridad privada en caso de que exista para dar cumplimiento a dicha acción.
+Firmar, junto con el Secretario Municipal, las actas de las sesiones, en la misma sesión en que se aprueban.
+Nombrar a las personas que integrarán las comisiones permanentes y especiales. Procurar que en todas las comisiones participen miembros de los partidos políticos representados en el Concejo y señalar el plazo en que las comisiones especiales deben rendir sus dictámenes.
+Guardar la debida compostura, con respeto, educación y el decoro en el uso de sus facultades y atribuciones y desempeñar el cargo dentro de las disposiciones del Código Municipal, de este Reglamento y cualquier otra disposición regulatoria.
+Conceder audiencias.
+Conceder permiso a los miembros del Concejo, a los síndicos, al Alcalde para salir temporalmente de una sesión, durante un lapso no mayor de quince minutos. Pasado este período el regidor o síndico que no se reintegre a la sesión perderá la dieta correspondiente y será sustituido por el regidor suplente. Deberá la Presidencia indicar la hora de salida y entrada de quienes se retiren temporalmente a efecto de que conste así en el acta, para lo cual contará con la colaboración del Secretario Municipal.
+Autorizar la entrada y permanencia de la prensa al Recinto Parlamentario.
+Coordinar con el Alcalde el nombramiento de los funcionarios que participen como asesores de comisiones del Concejo Municipal.
+Anunciar y proceder con las suplencias respectivas durante las sesiones.
+Dar curso a las mociones y dictámenes presentados.
+Contestar solidariamente los recursos de amparo en representación del Concejo Municipal, cuando así lo exprese la Sala Constitucional.
+Formular las denuncias judiciales que correspondan, cuando el actuar u omisión de un regidor encuadre dentro de los presupuestos del delito de incumplimiento de deberes u otro tipo penal según la legislación en materia penal vigente. Asimismo, deberá formular cualquier otra denuncia de carácter judicial o administrativa en procura de proteger los intereses municipales.

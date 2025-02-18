@@ -1,0 +1,6 @@
+Artículo 108. De la elección de los representantes municipales ante el Comité Cantonal de Deportes y Recreación: El Concejo Municipal debe elegir a sus representantes ante el Comité Cantonal durante la segunda quincena del mes de noviembre a más tardar el 30 de noviembre de cada dos años.
+El Concejo Municipal dictará mediante acuerdo el plazo máximo para recepción de currículos de los interesados.
+La votación en la que se escogerán y nombrarán a los dos miembros y el fiscal, será secreta por obligación y deberá respetarse para ello la equidad de género.
+Resultarán electos el candidato y la candidata que obtengan la mayoría de votos de los Regidores Propietarios, en caso de empate entre postulantes se realizará nuevamente la votación con los que resultaron empatados, en caso de mantenerse el empate se resolverá por la suerte.
+Una vez realizada la elección de los representantes municipales, de las asociaciones deportivas del cantón, de las asociaciones de desarrollo integral y de la fiscalía, la presidencia deberá llamar a las y los electos al acto de juramentación a la sesión municipal inmediata.
+No podrán ser candidato a tal puesto los regidores propietarios o suplentes, los síndicos propietarios o suplentes, el alcalde municipal y la persona que presida la Unión Cantonal de Asociaciones de Desarrollo.

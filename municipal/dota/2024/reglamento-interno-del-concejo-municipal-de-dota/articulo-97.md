@@ -1,0 +1,1 @@
+Artículo 97. Del inicio de negociaciones: La manera de dar inicio a los mismos es mediante una moción o dictamen que autorice a la administración municipal a dar inicio a la negociación de los convenios, abocándose de esta manera a la negociación y redacción de las cláusulas y artículos de este tipo de figura legal con la contraparte interesada.

@@ -1,0 +1,2 @@
+Artículo 61. Comisiones Especiales: El Concejo Municipal podrá crear comisiones especiales con el fin de estudiar un asunto específico y elaborar un dictamen, la Presidencia Municipal se encargará de integrarlas, tratando de dar proporcionalidad y representación de las distintas fracciones.
+Las comisiones especiales se integrarán con un mínimo de tres miembros de los cuales dos deben ser regidores propietarios y suplentes. Podrán integrarlas los síndicos propietarios y suplentes; estos últimos tendrán voz y voto.

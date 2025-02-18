@@ -1,0 +1,1 @@
+Artículo 49: Votación de la moción de orden: Las mociones de orden deben ser conocidas y puestas a votación inmediatamente, sin discusión y en riguroso orden de presentación. Por ser mociones de orden requieren para su aprobación el voto de la mitad más uno de los regidores.
