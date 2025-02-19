@@ -1,0 +1,1 @@
+ARTÍCULO 34- Bienes inmuebles. Las juntas de educación no podrán vender, donar o segregar los terrenos donde está el centro educativo, si no media autorización por parte de la máxima autoridad del Ministerio de Educación Pública.

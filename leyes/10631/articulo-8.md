@@ -1,0 +1,1 @@
+ARTÍCULO 8- Representante legal. La persona que ocupe el cargo de presidencia de una junta de educación será la representante legal, judicial y extrajudicialmente, y los contratos que celebre y actos en que intervenga a nombre de la junta serán válidos bajo su personal responsabilidad.

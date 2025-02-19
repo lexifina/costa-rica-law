@@ -1,0 +1,1 @@
+ARTÍCULO 36- Derogaciones a la Ley 2160, Ley Fundamental de Educación, de 25 de setiembre de 1957. Se derogan los artículos 42, 43, 44, 45, 46 y 47 de la Ley 2160, Ley Fundamental de Educación, de 25 de setiembre de 1957.

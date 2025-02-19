@@ -1,0 +1,1 @@
+ARTÍCULO 17- Libre participación. Cualquier persona ciudadana o persona extranjera con residencia legal en el país interesada en participar de una junta de educación podrá postular su nombre ante el centro educativo respectivo, cumpliendo con los requisitos establecidos.

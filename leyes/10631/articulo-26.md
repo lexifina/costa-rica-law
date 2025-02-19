@@ -1,0 +1,1 @@
+ARTÍCULO 26- Exención de impuestos. Las juntas de educación están exentas del pago de todo impuesto nacional y municipal, incluyendo servicios y tasas, y sus bienes destinados al cumplimiento de finalidades educativas serán inembargables.

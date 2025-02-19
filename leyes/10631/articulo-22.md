@@ -1,0 +1,2 @@
+ARTÍCULO 22- Procedimiento debido proceso de investigación. Los concejos municipales y el consejo local de educación indígena (CLEI) de los territorios indígenas, elaborarán el procedimiento a seguir para los procesos de investigación, aplicación de sanciones y la destitución de los miembros de junta, respetando los principios del debido proceso, y lo comunicarán a la comunidad y al director regional de educación
+Cuando la resolución del debido proceso así lo indique, deberán remover a las personas miembros de las juntas de educación.

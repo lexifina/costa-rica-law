@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Nombramiento de las juntas de educación
+ARTÍCULO 11- Selección de la terna y nombramiento. La persona administradora del centro educativo, en conjunto con el personal docente y administrativo, será el responsable de proponer las ternas para los cinco miembros que conformarán la junta, procurando un proceso de consulta transparente y participativa, así como de verificar el cumplimiento de los requisitos establecidos. Para ello, se deberá publicitar a la comunidad educativa el proceso.
+El supervisor o supervisora del centro educativo presentará ante el concejo municipal o consejo local de educación indígena la terna propuesta por la persona administradora del centro educativo. Corresponde al concejo municipal o consejo local de educación indígena realizar la selección y nombramiento de los cinco miembros que conformarán la junta, así como su posterior juramentación.

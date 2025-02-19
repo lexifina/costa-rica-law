@@ -1,0 +1,22 @@
+ARTÍCULO 10- Funciones. Las juntas de educación tendrán las siguientes funciones:
+a) Ejecutar el PAT presentado por la persona administradora del centro educativo y las prioridades establecidas.
+b) Formular anualmente el presupuesto del centro educativo, utilizando como insumo las prioridades establecidas en el PAT remitido por la persona administradora del centro educativo.
+c) Velar por el desarrollo y mantenimiento correctivo y preventivo de la infraestructura del plantel educativo. Entiéndase como obras menores de mantenimiento de la infraestructura educativa.
+d) Mantener al día sus libros contables, por medio del tesorero contador.
+e) Rendir cuentas de su actividad financiero-contable a la comunidad educativa anualmente.
+f) Remitir los informes y documentos solicitados por el Ministerio de Educación Pública en tiempo y forma adecuadas.
+g) Denunciar cualquier manejo inconveniente del centro educativo y sus recursos ante las autoridades competentes.
+h) Gestionar los servicios de comedores escolares y transporte estudiantil, de conformidad con los lineamientos y políticas que al efecto establezca el Ministerio de Educación Pública.
+i) Realizar todas las compras del centro educativo en apego a los procedimientos de contratación de acuerdo con la Ley 9986, Ley General de Contratación Pública, del 27 de mayo de 2021
+j) Mantener al día la vigencia de la personería jurídica.
+k) Ejecutar de manera oportuna, eficiente y transparente los recursos públicos que les hayan sido transferidos, respetando el destino establecido según fuente de financiamiento.
+I) Gestionar el suministro de los bienes y servicios requeridos para el funcionamiento operativo del centro educativo, tanto a nivel administrativo como académico.
+m) Autorizar en periodos no lectivos el uso de las instalaciones del centro educativo para el desarrollo de actividades a solicitud de terceros, siempre y cuando no se afecte el funcionamiento del centro educativo y sus actividades extracurriculares.
+n) Alquilar los espacios dentro del predio educativo que se requieran para atender las necesidades de la comunidad educativa, según la naturaleza del centro educativo, incluida la concesión de la soda, los centros de fotocopiado y librería, siempre y cuando no comprometa el funcionamiento normal del centro educativo y previa coordinación con la administración del centro educativo, tomando en cuenta lo que establece la Ley 9986, Ley General de Contratación Pública, del 27 de mayo de 2021, para los efectos.
+ñ) Desarrollar con otras juntas, programas, proyectos y actividades de interés común para los centros educativos que representan; de manera que se apoyen entre sí y se reproduzcan las buenas prácticas administrativas y el intercambio de experiencias exitosas.
+o) Apoyar su gestión en otros organismos tales como el patronato escolar para el desarrollo de programas, proyectos y acciones para el mejoramiento de las condiciones generales del centro educativo y el bienestar estudiantil.
+p) Asistir a las convocatorias para participar en procesos de capacitación, inducción y actividades para el mejoramiento de su capacidad de gestión, al ser una responsabilidad por administrar recursos públicos.
+q) Remitir al Departamento de Servicios Administrativos y Financieros, para su aprobación, el presupuesto anual del centro educativo y los presupuestos extraordinarios, así como las correspondientes modificaciones presupuestarias.
+r) Formular proyectos para el desarrollo de infraestructura educativa haciendo uso de los prototipos o modelos contextualizados y establecidos por la Dirección de Infraestructura Educativa.
+s) Presentar ante el Departamento de Servicios Administrativos y Financieros, así como al administrador del centro educativo, informes sobre la ejecución presupuestaria y los estados financieros contables que sean requeridos, según las normas contables vigentes y atendiendo los lineamientos que emita el Viceministerio de Planificación Institucional y Coordinación Regional del Ministerio de Educación Pública para asegurar el control y monitoreo del uso de los recursos públicos. El Ministerio de Educación Pública podrá establecer mecanismos de coordinación con el Colegio de Contadores Privados de Costa Rica para apoyar la emisión de estos lineamientos.
+t) Asumir la administración del centro educativo durante los períodos de vacaciones, feriados y fines de semana, coordinando previamente con la administración del centro educativo lo que corresponda.

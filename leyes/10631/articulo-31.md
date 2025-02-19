@@ -1,0 +1,1 @@
+ARTÍCULO 31- Sesiones. Las sesiones de las juntas de educación serán privadas. Cualquier ciudadano o ciudadana, o grupo de ciudadanos, podrá hacer llegar a la junta propuestas para ser sometidas a su consideración. Las actas de las juntas serán públicas. La dirección del centro educativo dispondrá una copia del acta de cada sesión para consulta de la comunidad educativa.
