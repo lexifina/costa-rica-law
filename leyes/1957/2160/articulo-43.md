@@ -1,5 +1,1 @@
-ARTICULO 43.-
-Cada Institución de Enseñanza Media contará con una Junta Administrativa nombrada por la Municipalidad respectiva, de las ternas enviadas por los Consejos de Profesores correspondientes.
-Las Juntas Administrativas tienen plena personería jurídica para adquirir derechos y contraer obligaciones. En cuanto a bienes inmuebles, sólo podrán adquirir los que sean necesarios para el cumplimiento de los fines de los colegios que tengan a su cargo. En la realización de estos actos jurídicos, las Juntas Administrativas estarán sujetas a las disposiciones que respecto a las Juntas de Educación establecen los artículos 36, 37 y 38 del Código de Educación. En cuanto a impuestos nacionales y municipales, las Juntas Administrativas gozarán de las mismas exenciones otorgadas por las leyes a las juntas de educación.
-Los bienes propiedad de las Juntas Administrativas destinados a sus funciones públicas son inembargables.
-(Así adicionado por el artículo 1 de la ley No.2298 del 22 de noviembre de 1958)
+ARTICULO 43.- (Derogado por el artículo 36 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

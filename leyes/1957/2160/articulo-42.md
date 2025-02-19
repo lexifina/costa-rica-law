@@ -1,2 +1,1 @@
-ARTICULO 42.-
-Las Juntas de Educación actuarán como delegaciones de las Municipalidades. Serán organismos auxiliares de la Administración Pública y servirán, a la vez, como agencias para asegurar la integración de la comunidad y la escuela.
+ARTICULO 42.- (Derogado por el artículo 36 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)
