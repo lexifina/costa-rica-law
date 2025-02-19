@@ -1,0 +1,1 @@
+Artículo 7. El monto por concepto de beca se distribuye de la siguiente manera: estudiantes de secundaria ?40,000.00 mensuales, estudiantes de programas educativos y culturales ?60,000.00 mensuales, estudiantes universitarios ?100,000.00 mensuales.

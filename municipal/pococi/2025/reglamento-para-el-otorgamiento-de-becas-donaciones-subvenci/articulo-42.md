@@ -1,0 +1,1 @@
+Artículo 42. Sobre la entrega incompleta de información. La entrega incompleta de la información requerida para tramitar los beneficios regulados en este Reglamento podrá ocasionar retrasos y/o rechazos en el trámite de la solicitud, ya que la Municipalidad requerirá de la totalidad de la documentación para materializar las ayudas.

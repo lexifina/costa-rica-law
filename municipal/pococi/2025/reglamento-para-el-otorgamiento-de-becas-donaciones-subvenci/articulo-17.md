@@ -1,0 +1,1 @@
+Artículo 17. El Proceso de Desarrollo Social y Cultural deberá hacer un expediente por centro educativo, en el cual se archivará las certificaciones o constancias emitidas para cada uno de los estudiantes becados.

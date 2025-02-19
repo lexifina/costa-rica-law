@@ -1,0 +1,1 @@
+Artículo 25. Se autoriza a la Comisión de Asuntos Sociales a solicitar al Concejo Municipal, siempre y cuando medie una acción o inacción atribuible a la Gobierno Local, a pagar becas previamente otorgadas en forma retroactiva en la medida de las posibilidades del Presupuesto Municipal.

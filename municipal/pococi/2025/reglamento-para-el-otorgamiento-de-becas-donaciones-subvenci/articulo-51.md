@@ -1,0 +1,1 @@
+Artículo 51. Las ayudas que brinde la Municipalidad serán destinadas, únicamente y exclusivamente, a solventar las necesidades socioeconómicas, alimentarias, de vivienda, de salud, o cualquier otra calamidad que afronten los vecinos del cantón según la situación de desgracia o infortunio a que se refiere el artículo 2° anterior.

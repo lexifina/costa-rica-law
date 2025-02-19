@@ -1,0 +1,2 @@
+Artículo 70. Este Reglamento regirá a partir de su publicación en el Diario Oficial.
+Por Unanimidad SE ACUERDA: Una vez superado el proceso de consulta pública y realizadas las observaciones y correcciones pertinentes, se aprueba para su segunda publicación, el Reglamento para el Otorgamiento de becas, Donaciones, Subvenciones y Ayudas temporales ante estado de desgracia e infortunio de la Municipalidad de Pococí. Se aprueba su publicación definitiva en el Diario Oficial La Gaceta. Se Dispensa del Trámite de Comisión Acuerdo Definitivamente Aprobado.

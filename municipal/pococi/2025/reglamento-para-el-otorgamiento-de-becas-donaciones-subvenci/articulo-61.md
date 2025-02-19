@@ -1,0 +1,1 @@
+Artículo 61. La Municipalidad otorgará ayudas con base en lo dispuesto en los artículos anteriores, solamente a una persona o familia y por una sola vez, cuando se origine por la misma causa o motivo.

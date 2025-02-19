@@ -1,0 +1,1 @@
+Artículo 22. Por cada solicitud de beca municipal el Proceso de Desarrollo Social y Cultural abrirá un expediente en donde constará todos los documentos aportados por el interesado. Tanto el Concejo de Distrito como la Comisión de Asuntos Sociales no darán tramite a aquellas solicitudes que sean entregadas de forma incompleta o carente de documentos.

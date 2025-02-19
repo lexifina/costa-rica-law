@@ -1,0 +1,11 @@
+Artículo 8. Podrán solicitar una beca de estudio los estudiantes que cumplan los siguientes requisitos:
+a) Ser vecino del cantón de Pococí, con previa constancia por parte de la Asociación de Desarrollo o de la Junta Administrativa del Colegio, o bien, extendida por la Subcomisión de Becas del Concejo de Distrito, de la comunidad donde reside.
+b) Contar con un mínimo de dos años de residencia en el cantón, para ello, se indicará en la constancia solicitada en el inciso a.
+c) Ser estudiante activo de secundaria del sistema educativo público costarricense.
+d) Ser estudiante activo de la educación superior tanto del sistema público como privado, deberá contar previamente con el proceso de matrícula.
+e) En el caso de estudiante universitarios, quienes no hayan cursado previamente una carrera.
+f) En caso de ser un programa público de cultura o deporte, tener la aprobación del encargado del programa en el cantón y ser menor de 18 años.
+g) Pertenecer a una familia de escasos recursos económicos, para lo cual se realizará un estudio socioeconómico. Se considerará estudios previos realizados por el Instituto Mixto de Ayuda Social y sus clasificaciones de pobreza, siendo prioridad los niveles de pobreza extrema, básica y no extrema, según el orden citado.
+h) Poseer un promedio académico anual o cuatrimestral, no inferior a 85% y en la nota de conducta no inferior al 90%, salvo estudiantes en condiciones académicas especiales. Asimismo, en caso de pertenecer a un programa público de cultura o deporte, aportar un escrito del encargado del programa del cantón, donde haga constar que el estudiante es de buena conducta y cumple con los objetivos del programa respectivo, salvo que sea estudiante de primer ingreso.
+i) No ser beneficiario de otra beca académica.
+j) Todo estudiante que hay sido becado por la Municipalidad, tiene derecho a la renovación de la misma el año siguiente, siempre y cuando cumpla con todos los requisitos y deberes estipulados en este reglamento.

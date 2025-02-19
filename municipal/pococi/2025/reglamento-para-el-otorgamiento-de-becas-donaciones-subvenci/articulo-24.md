@@ -1,0 +1,1 @@
+Artículo 24. Pasados tres meses si el encargado o beneficiado no hace buen uso del monto transferido para la cancelación de los costos derivados de los procesos educativos, pierde automáticamente el derecho de continuar disfrutando este beneficio, siempre y cuando se compruebe que se le ha notificado.

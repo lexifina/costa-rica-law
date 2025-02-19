@@ -1,0 +1,1 @@
+Artículo 23. Una vez acordada la aprobación de la lista de los becados por el Concejo Municipal, el Proceso de Desarrollo Social y Cultural comunicará a cada institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibido por el departamento de orientación o registro, según sea el caso.

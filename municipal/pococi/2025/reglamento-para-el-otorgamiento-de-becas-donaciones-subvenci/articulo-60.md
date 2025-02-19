@@ -1,0 +1,1 @@
+Artículo 60. El monto definitivo de la ayuda lo determinará la Alcaldía Municipal, contando con los estudios técnicos correspondientes, la cual debe estar debidamente motivada, y en ningún caso, el monto final asignado para la ayuda, podrá exceder la partida presupuestaria que para tales efectos se haya establecido en el Presupuesto respectivo.

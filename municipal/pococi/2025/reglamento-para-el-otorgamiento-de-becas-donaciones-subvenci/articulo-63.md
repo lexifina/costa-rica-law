@@ -1,0 +1,3 @@
+Artículo 63. De las sanciones.
+Si durante la tramitación o posteriormente a su entrega, se comprobare la existencia de datos falsos o cualquier otro elemento que conduzca a error a la Municipalidad, según el caso y el momento en que se da, se suspenderá el proceso de estudio de la solicitud o en su caso, la Alcaldía revocará la ayuda aprobada y otorgada, para lo cual deberá seguirse el procedimiento establecido en el artículo siguiente de este Reglamento.
+Adicionalmente, una vez determinada la existencia de dicha falsedad o de elementos que hayan conducido a error a la Municipalidad, esta podrá acudir de inmediato, a las vías judiciales correspondientes para recuperar los recursos concedidos y pedir que se sancione al infractor.
