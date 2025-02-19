@@ -1,2 +1,1 @@
-Artículo 51.- Las autoridades judiciales, fiscales o de policía, no podrán bajo ningún concepto, recibir el valor de las multas que impongan.
-Firme la sentencia, el importe de la multa deberá ser satisfecho en la Tesorería Escolar, la que extenderá por duplicado el recibo correspondiente, entregará uno de los ejemplares al interesado y remitirá el otro inmediatamente a la autoridad que dictó la sentencia.
+Artículo 51.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

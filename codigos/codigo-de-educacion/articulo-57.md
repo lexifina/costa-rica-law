@@ -1,1 +1,1 @@
-Artículo 57.- Las Juntas de Educación están facultadas para subvencionar a los Jefes Políticos y Agentes Principales de Policía que sean acreedores a ello, con una suma mensual no mayor del diez por ciento sobre las multas impuestas.
+Artículo 57.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

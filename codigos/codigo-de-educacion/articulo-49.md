@@ -1,1 +1,1 @@
-Artículo 49.- Los Tesoreros Escolares están obligados a remitir al Contador General Escolar, en la primera quincena de cada mes, un cuadro que demuestre las entradas y salidas de fondos correspondientes a cada distrito, en el mes anterior.
+Artículo 49.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

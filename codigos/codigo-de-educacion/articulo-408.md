@@ -1,1 +1,1 @@
-Artículo 408.- El Vicepresidente de la Junta tendrá las mismas atribuciones en los casos de ausencia temporal o absoluta del Presidente.
+Artículo 408.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

@@ -1,1 +1,1 @@
-Artículo 403.- El miembro de la Junta que sin previo permiso o licencia dejare de concurrir a seis sesiones consecutivas, será repuesto inmediatamente.
+Artículo 403.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

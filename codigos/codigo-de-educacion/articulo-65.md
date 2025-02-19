@@ -1,2 +1,1 @@
-Artículo 65.- El pago debe hacerse al Tesorero de la Junta, y cuando más tarde, dentro de los diez días siguientes al del vencimiento; el contribuyente moroso pagará un recargo de diez por ciento, que se exigirá con el principal por medio de apremio personal.
-No se procederá a la exacción de las cuotas señaladas sino después de que el Gobernador de la provincia haya puesto la nota de cúmplase al pie del detalle respectivo.
+Artículo 65.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)
