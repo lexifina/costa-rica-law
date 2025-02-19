@@ -14,3 +14,4 @@ Reglamento para el uso de los vehículos pertenecientes al Ministerio de Econom�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-03 | la propia norma |
+| 2 | 2025-02-19 | Decreto Ejecutivo 44915 (2025-02-19) |
