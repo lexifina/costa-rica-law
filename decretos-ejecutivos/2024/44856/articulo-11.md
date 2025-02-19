@@ -1,0 +1,6 @@
+Artículo 11-Funciones de la Dirección General. Para el préstamo de la Plaza, la Dirección General del Museo Nacional de Costa Rica realizará las siguientes funciones:
+a) Recibir y analizar las solicitudes para uso de la Plaza, que haya recibido para su respectivo trámite.
+b) Aprobar o denegar dichas solicitudes conforme los términos del presente reglamento, las cuales deben encontrarse claramente justificadas.
+c) Emitir a los interesados, las recomendaciones que estime pertinentes para la protección de la Plaza y de los alrededores y paredes del antiguo Cuartel Bellavista, de manera que la actividad a desarrollar motivo del préstamo no ocasione daños y que esto pueda propiciar la suspensión del permiso otorgado por causa de incumplimiento de lo pactado.
+d) Llevar juntamente con el Área de Servicios Generales del Departamento de Administración y Finanzas, el control de las actividades autorizadas en cuanto a fechas, horarios y espacios, con la finalidad de procurar el mayor aprovechamiento de éstas, a efecto de evitar la autorización simultánea de actividades en la Plaza.
+e) Mantener un registro ordenado cronológicamente de los permisos concedidos para el uso de la Plaza, esto con el fin de evitar la autorización simultánea de actividades.

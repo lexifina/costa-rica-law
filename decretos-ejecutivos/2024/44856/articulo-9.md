@@ -1,0 +1,1 @@
+Artículo 9° - Gastos derivados del préstamo. El préstamo de la Plaza, por ser a título precario y gratuito, no implicará ningún pago económico por parte del permisionario al Museo Nacional de Costa Rica, toda vez que el permiso de uso del dominio público no implica ni representa un derecho real sobre dicho bien.

@@ -1,0 +1,1 @@
+Artículo 15.- Cantidad de personas. La capacidad máxima de la Plaza es de dos mil (2000) personas, sin embargo, el conjunto de personas que se encuentren en la Plaza, según el tipo de actividad organizada no deberá exceder la cantidad oportunamente recomendada por la Dirección General del Museo Nacional de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 14.- Gastos derivados del préstamo de la Plaza. El préstamo de la Plaza por ser a título precario o gratuito, el permisionario no deberá pagar ninguna suma económica a la Administración, salvo que por causa de la actividad realizada deba cubrir los daños que sean ocasionados en esta.
