@@ -1,0 +1,1 @@
+ARTÍCULO 27- Fiscalización. En tanto administradoras de recursos públicos las juntas de educación estarán sujetas a la fiscalización ordinaria y extraordinaria del Ministerio de Educación Pública, la municipalidad competente y de cualquier otra entidad de la que reciban recursos públicos, así como de la Contraloría General de la República.

@@ -1,1 +1,1 @@
-Artículo 66.- Si terminada la obra hubiere fondos sobrantes, se reservarán para llenar las necesidades sucesivas de la escuela.
+Artículo 66.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

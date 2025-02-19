@@ -1,0 +1,1 @@
+ARTÍCULO 21- Denuncias. Cualquier miembro de la comunidad educativa podrá presentar por escrito las denuncias sobre supuestos hechos anómalos de la junta, con el fin de que se realice la investigación correspondiente.

@@ -1,2 +1,1 @@
-ARTICULO 45.-
-La distribución e inversión de los dineros correspondientes a las Juntas de Educación y Administrativas se hará de conformidad con la política educativa y el planeamiento de la enseñanza indicados por el Consejo Superior de Educación y el Ministerio del ramo, de acuerdo con el Reglamento que se dicte.
+ARTICULO 45.- (Derogado por el artículo 36 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

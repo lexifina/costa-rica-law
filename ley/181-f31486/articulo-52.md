@@ -1,1 +1,1 @@
-Artículo 52.- Al pie del expediente en cuya resolución se impone una multa correspondiente al fondo escolar, la autoridad respectiva certificará el duplicado del recibo expedido por la Tesorería, como constancia de que la multa ha sido satisfecha.
+Artículo 52.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

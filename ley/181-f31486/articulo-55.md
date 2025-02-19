@@ -1,1 +1,1 @@
-Artículo 55.- La infracción de cualquier de las disposiciones contenidas en los artículos 51, 52 y 54 serán castigadas con las penas que establece el artículo 380 del Código Penal vigente o las similares de cualquier nuevo Código Penal que llegue a promulgarse.
+Artículo 55.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)

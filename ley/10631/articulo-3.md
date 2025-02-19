@@ -1,0 +1,1 @@
+ARTÍCULO 3- Responsabilidades. Las juntas de educación son entidades de derecho público y sus actuaciones deberán apegarse al bloque de legalidad. Estos entes están destinados a cumplir con los propósitos de la presente ley y realizar las operaciones prescritas en ella.

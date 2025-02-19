@@ -1,1 +1,1 @@
-Artículo 40.- La recaudación de los valores que corresponden a las Juntas de Educación, cualquiera que sea su fuente, deberá hacerse por los administradores de los fondos escolares, de acuerdo con lo que prescriben las leyes y reglamentos de la materia.
+Artículo 40.- (Derogado por el artículo 35 de la Ley de Juntas de Educación, N° 10631 del 28 de enero de 2025)
