@@ -1,0 +1,5 @@
+Artículo 20 bis.-Invitados permanentes.
+Podrán participar en todas las sesiones de los Comités Locales, un representante de los operadores y/o concesionarios, y/o gestores interesados de los puertos, aeropuertos y puestos fronterizos terrestres, quienes participarán en calidad de invitados permanentes, solo con derecho a voz.
+El coordinador de frontera o cualquier otro representante del Ministerio de Comercio Exterior participará en las sesiones de los Comités Locales en calidad de invitado permanente, solo con derecho a voz.
+En las sesiones del Comité Local de Puertos del Atlántico participará un representante de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) y en las sesiones del Comité Local de Caldera un representante del Instituto Costarricense de Puertos del Pacifico (INCOP), quienes participarán en calidad de invitados permanentes, solo con derecho a voz.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45097 del 20 de febrero del 2025)

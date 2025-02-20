@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de los comités locales de facilita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-08-11 | la propia norma |
+| 2 | 2025-02-20 | Decreto Ejecutivo 45097 (2025-02-20) |
