@@ -1,1 +1,0 @@
-Artículo 9º—Creación del Comité Interinstitucional de Información Ambiental CIIA-SINIA. Se crea el Comité Interinstitucional de Información Ambiental (CIIA-SINIA) como la comisión técnica interinstitucional de apoyo en la consecución del desarrollo del SINIA. La coordinación del CIIA-SINIA recae en la UC-SINIA.

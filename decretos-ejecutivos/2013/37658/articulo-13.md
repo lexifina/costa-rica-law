@@ -1,1 +1,0 @@
-Artículo 13.—Financiamiento. El principal financiamiento del SINIA se realizará a través de los recursos financieros y humanos existentes en las instituciones y aquellos aportes de organismos nacionales y de cooperación internacional.

@@ -1,1 +1,0 @@
-Artículo 5º—Constitución del CD-SINIA. (Derogado por el artículo 21 del Reglamento Operativo de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial (SEPLASA), aprobado mediante decreto ejecutivo N° 40710 del 4 de agosto del 2017)
