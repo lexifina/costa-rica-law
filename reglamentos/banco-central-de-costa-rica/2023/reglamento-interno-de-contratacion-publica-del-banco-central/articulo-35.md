@@ -1,0 +1,2 @@
+Artículo 35: Derogaciones. A partir de la publicación de este reglamento, queda derogado el "Reglamento para la adquisición de compras menores del Banco Central de Costa Rica y los Órganos de Desconcentración", que había sido aprobado por la Junta Directiva del Banco Central de Costa Rica, mediante artículo 8 del acta de la sesión 5940-2020, celebrada el 10 de junio de 2020 y publicado en el diario oficial La Gaceta 143 del 16 de junio de 2020".
+(Así adicionado en sesión N° 6240 del 20 de febrero del 2025)
