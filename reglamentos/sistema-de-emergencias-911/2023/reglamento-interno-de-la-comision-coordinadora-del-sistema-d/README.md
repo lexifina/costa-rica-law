@@ -14,3 +14,4 @@ Reglamento Interno de la comisión coordinadora del Sistema de Emergencias 9-1-1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-09 | la propia norma |
+| 2 | 2025-02-20 | Reglamento 0 (2025-02-20) |

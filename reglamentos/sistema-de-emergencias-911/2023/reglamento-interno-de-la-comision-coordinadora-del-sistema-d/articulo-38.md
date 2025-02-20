@@ -1,0 +1,2 @@
+Artículo 38.-Las instituciones u organismos coadyuvantes, según el artículo anterior, tendrán una relación directa con la institución u organismo integrante de la Comisión Coordinadora con la cual colaboraran y asumirán las tareas o funciones que expresamente esta le asigne. Además, no integraran la Comisión Coordinadora del Sistema de Emergencias 9-1-1.
+(Así adicionado y publicado en La Gaceta N° 34 del 20 de febrero del 2025)
