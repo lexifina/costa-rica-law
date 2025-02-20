@@ -1,1 +1,2 @@
-Artículo 537. Cobro de tarifas y comisiones ante cierre de cuentas. Con el cierre de las cuentas de fondos de un afiliado, el BCCR efectuará el cobro de las tarifas y comisiones adeudadas al momento del cierre.
+Artículo 537. Revisión y ajuste de las tarifas y comisiones. La estructura de tarifas y comisiones del SINPE será revisada y ajustada, con base en la metodología aprobada por la Junta Directiva del BCCR. Las modificaciones a la estructura de tarifas y comisiones rigen a partir del mes siguiente a su aprobación y respectiva publicación en La Gaceta.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 530 al artículo 537)

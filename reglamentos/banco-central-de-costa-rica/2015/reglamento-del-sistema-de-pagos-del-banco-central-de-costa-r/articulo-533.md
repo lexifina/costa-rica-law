@@ -1,2 +1,6 @@
-Artículo 533. Reporte de las estructuras de comisiones. Los afiliados deben reportar al BCCR, en la forma y por los medios que éste determine, las comisiones que cobran a sus clientes (cliente origen) por la prestación de los servicios interbancarios del SINPE, debiendo también reportar sus actualizaciones al BCCR antes de ponerlas en vigencia.
-La información de las comisiones tendrá que responder al costo final que los afiliados cobran a sus clientes por el consumo de los servicios, por lo que deberá incluir todos los componentes que determinen los costos de transacción que finalmente deben asumir los clientes en su relación comercial.
+LIBRO XL
+TARIFAS Y COMISIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 533. Definición del servicio. Tarifas y Cobros (TCS) es el servicio de compensación multilateral neta, por medio del cual se cobran las tarifas por el uso de la plataforma del SINPE y las comisiones interbancarias.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 526 al artículo 533)

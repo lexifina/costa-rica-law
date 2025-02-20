@@ -1,0 +1,2 @@
+Artículo 539. Presentación de propuestas alterna. En caso de que los afiliados o sus asociaciones gremiales no estén de acuerdo con las comisiones interbancarias definidas por el BCCR podrán presentar ante la Gerencia del BCCR su propuesta con la justificación y estudio de costos respectivo, la cual deberá resolverse de conformidad con lo que establezca la Ley 6227.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 532 al artículo 539)

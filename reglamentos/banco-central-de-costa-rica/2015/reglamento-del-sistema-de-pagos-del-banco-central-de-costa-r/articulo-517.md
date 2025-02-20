@@ -1,1 +1,2 @@
-Artículo 517. Ajuste automático de tarifas. Las tarifas definidas en el presente reglamento para este servicio serán ajustadas automáticamente conforme con lo que establezcan los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
+Artículo 517. Información de otros sistemas de compensación y pago. En su función rectora del Sistema de Pagos, el BCCR podrá solicitar la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 510 al artículo 517)

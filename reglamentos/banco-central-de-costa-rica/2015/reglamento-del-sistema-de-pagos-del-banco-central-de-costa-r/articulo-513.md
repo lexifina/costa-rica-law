@@ -1,1 +1,6 @@
-Artículo 513. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 9694 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.
+LIBRO XXXVIII
+INFORMACIÓN SOBRE EL SISTEMA DE PAGOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 513. Definición del servicio. Información sobre el Sistema de Pagos (ISP) es el servicio de recopilación, procesamiento y divulgación de información agregada de los sistemas y medios de pago ofrecidos por el Sistema Financiero Nacional. Sus participantes deberán velar por el cumplimiento de principios de oportunidad, veracidad, calidad, suficiencia y comparabilidad de la información.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 506 al artículo 513)

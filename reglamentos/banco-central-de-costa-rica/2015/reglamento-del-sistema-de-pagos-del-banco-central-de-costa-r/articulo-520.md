@@ -1,4 +1,2 @@
-CAPÍTULO IV
-DE LAS CONSULTAS
-Artículo 520. Condiciones de la consulta. Los participantes deberán realizar las consultas con carácter individual y exclusivamente para autenticar a sus clientes frente a necesidades de validación de su identidad, durante trámites concretos.
-El participante podrá acceder a la base de datos fotográfica única y exclusivamente cuando atiende a un cliente suyo que se identifique en demanda de servicios y presente para ello su cédula de identidad. Este servicio se utiliza como verificación del documento de identificación, por tanto, no sustituye el uso de la cédula de identidad.
+Artículo 520. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 9694 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 513 al artículo 520)

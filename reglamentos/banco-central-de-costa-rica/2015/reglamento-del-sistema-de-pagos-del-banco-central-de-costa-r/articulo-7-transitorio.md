@@ -1,0 +1,2 @@
+TRANSITORIO III. Los PSP que actualmente tengan autorizado el servicio de Transferencia entre Cuentas Corresponsales (TCC) serán deshabilitados del servicio a más tardar 3 meses después de la publicación de la entrada en vigencia de este reglamento.
+(Así adicionado en sesión N° sesión N° 6240 del 20 de febrero del 2025. En dicha sesión se indica adicionar este numeral como transitorio III. No obstante; ya existe un transitorio III, pero con texto diferente, por lo que se a adicionado como transitorio 7)

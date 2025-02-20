@@ -1,1 +1,4 @@
-Artículo 534. Publicación de información. Con el fin de cumplir con lo dispuesto por la Ley 7472, el BCCR actualizará y publicará periódicamente en los medios de prensa nacional y en el sitio Web del BCCR, las comisiones, canales de distribución y horarios con los que los afiliados ofrecen a sus clientes los servicios interbancarios del SINPE, de manera que los usuarios del Sistema Financiero Nacional tengan acceso a la información relacionada con las condiciones de comercialización de dichos servicios.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 534. Participantes del servicio. En el servicio TCS operan todos los afiliados del SINPE.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 527 al artículo 534)

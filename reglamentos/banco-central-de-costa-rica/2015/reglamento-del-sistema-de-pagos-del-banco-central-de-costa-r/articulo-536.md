@@ -1,4 +1,6 @@
-CAPÍTULO VI
-DEL PROCEDIMIENTO DE COBRO DE LAS TARIFAS Y COMISIONES
-Artículo 536. Casos especiales de cobro. Cuando la cuenta de fondos en moneda nacional del afiliado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta de fondos que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
-Transcurridos 15 días naturales, si el BCCR no logra realizar el cobro de la totalidad de las tarifas y comisiones, podrá suspender del servicio al afiliado, hasta que este cancele el monto adeudado.
+CAPÍTULO IV
+DE LAS TARIFAS Y COMISIONES
+Artículo 536. Fijación de tarifas y comisiones. Las comisiones por los servicios que se provean entre sí los afiliados por medio del SINPE, así como las tarifas por la utilización de los servicios del SINPE, son fijadas por el BCCR en moneda nacional, con excepción del servicio PIN. En el caso de los asociados regionales, las tarifas en colones serán convertidas y cobradas en dólares estadounidenses utilizando el tipo de cambio definido por el Departamento de Contabilidad del BCCR, vigente el día en que se realiza el cobro.
+El cobro de tarifas y comisiones aplica a partir del momento en que el afiliado inicia su operación en el SINPE; haciéndose efectivo el primer cobro, el primer día hábil del mes siguiente al inicio de operación. No se considerará para el cobro, el período requerido para la realización de pruebas.
+En los casos del retiro de servicios, los cobros por suscripción se harán por el mes completo en que la entidad decida retirarse como participante de un servicio, debiendo también cobrarse las tarifas que procedan por las transacciones que procese durante ese periodo.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 529 al artículo 536)

@@ -1,6 +1,2 @@
-CAPÍTULO III
-DEL ESQUEMA TARIFARIO
-Artículo 528. Esquema de tarifas y comisiones. Se establece un esquema que será utilizado para definir las tarifas del SINPE y las comisiones interbancarias aplicables a todas las transacciones procesadas por el SINPE, con las siguientes condiciones:
-a) La entidad que demanda el servicio (entidad origen) paga por cada transacción ordenada en el servicio.
-b) No se cobra comisión alguna al cliente destino.
-c) El cobro al cliente origen es libre (relación privada entidad-cliente).
+Artículo 528. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 521 al artículo 528)

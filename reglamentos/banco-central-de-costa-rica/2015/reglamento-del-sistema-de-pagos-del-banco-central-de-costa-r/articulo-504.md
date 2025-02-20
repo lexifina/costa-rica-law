@@ -1,1 +1,2 @@
-Artículo 504. Entrega del comprobante de cobro revertido. En el caso de reclamación por débitos no autorizados, la entidad destino del reclamo deberá entregar al cliente destino el comprobante del cobro revertido emitido por el servicio, cuando el cliente así lo solicite.
+Artículo 504. Alcance del reclamo de créditos no aplicados. La reclamación por créditos no aplicados se limita a una solicitud de información efectuada por la entidad origen, por lo que para la entidad destino del reclamo no implica ningún movimiento de dinero sobre su cuenta de fondos.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 497 al artículo 504)

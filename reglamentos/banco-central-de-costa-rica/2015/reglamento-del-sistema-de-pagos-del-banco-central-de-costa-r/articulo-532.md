@@ -1,1 +1,6 @@
-Artículo 532. Presentación de propuestas alterna. En caso de que los afiliados o sus asociaciones gremiales no estén de acuerdo con las comisiones interbancarias definidas por el BCCR podrán presentar ante la Gerencia del BCCR su propuesta con la justificación y estudio de costos respectivo, la cual deberá resolverse de conformidad con lo que establezca la Ley 6227.
+CAPÍTULO VI
+DE LAS SUSPENSIONES
+Artículo 532. Suspensión por incumplimientos. Será suspendida del servicio por un periodo de tres meses, la entidad que incumpla las responsabilidades establecidas por el presente libro, así como las disposiciones contenidas en la Serie de Normas y Procedimientos del SINPE, las cuales los participantes se obligan a cumplir.
+La suspensión será de seis meses cuando la entidad incurra en un segundo incumplimiento dentro de un mismo año calendario. El BCCR aplicará las sanciones una vez que se cumpla con el debido proceso.
+En ambos casos, la restitución al servicio se dará siempre y cuando el participante corrija, a entera satisfacción del BCCR, la situación por la cual se dio la suspensión. El BCCR podrá en estos casos solicitar al participante las pruebas que considere pertinentes para demostrar su situación a derecho.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 525 al artículo 532)

@@ -1,3 +1,2 @@
-CAPÍTULO VI
-DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
-Artículo 487. Reportes de información transaccional. Los participantes deben reportar mensualmente por medio de los sistemas de información habilitados por medio de SICVECA, el saldo, los montos acumulados de depósitos y demás datos que se determinen en la Serie de Normas y Procedimientos del SINPE, respecto a todas las cuentas registradas en el PUC. Aquellos participantes que no están sujetos a la supervisión de la SUGEF deberán reportar la información respectiva directamente al PUC.
+Artículo 487. Acceso de información para las ayudas sociales. El Ministerio de Hacienda y cualquier otra institución pública que brinde ayudas sociales, tendrán acceso a la información administrada en el PUC para realizar los pagos correspondientes, siempre que la dependencia interesada disponga de la debida autorización de parte del beneficiario de la ayuda social para consultar estos datos.
+(Así adicionado en sesión N° 6240 del 20 de febrero del 2025)

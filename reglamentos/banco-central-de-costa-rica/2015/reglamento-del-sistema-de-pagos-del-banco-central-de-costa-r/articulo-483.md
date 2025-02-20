@@ -1,6 +1,5 @@
-Artículo 483. Requisitos de apertura y funcionamiento de las CES de Nivel 2.
-a) Presentación del documento de identificación del titular de la cuenta: el cliente de forma presencial deberá presentar su cédula de identidad, DIMEX o DIDI en cualquiera de los canales autorizados para la apertura y activación de la cuenta.
-b) Canales autorizados para la apertura y activación de la cuenta: agencias, sucursales, corresponsales financieros, canales transaccionales autenticados o por parte de un agente autorizado de la entidad financiera. Podrán utilizarse canales electrónicos para la solicitud de apertura de la CES, pudiendo activarse para su uso estas cuentas, únicamente en caso de clientes regulares y si la solicitud se hace desde un canal transaccional autenticado.
-c) Información requerida del titular de la cuenta: nombre completo, número y tipo de documento de
-identificación. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
-d) Límite mensual máximo de depósitos en la cuenta: dos mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
+CAPÍTULO V
+DE LAS CUENTAS DE ADMINISTRACIÓN DE RECURSOS (CAR)
+(Así adicionado el capítulo anterior en sesión N° 6240 del 20 de febrero del 2025)
+Artículo 483. Definición. Cuenta derivada del acuerdo, contrato, convenio o cualquier otro negocio jurídico lícito, por el cual una persona jurídica, como actividad de negocio, recibe recursos de un tercero, en el entendido que dichos recursos son recibidos, custodiados, girados o traspasados, de acuerdo con las instrucciones del dueño de los fondos, todo lo cual deberá observar lo dispuesto por el ordenamiento jurídico aplicable. En esta cuenta se registra y contabiliza, el dinero en moneda nacional o extranjera recibido de un cliente por un Proveedor de Servicios de Pago, para la ejecución de las operaciones de pago, transferencias, remesas al exterior y otros servicios autorizados según la Ley 7786.
+(Así adicionado en sesión N° 6240 del 20 de febrero del 2025)

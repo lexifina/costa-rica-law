@@ -1,1 +1,2 @@
-Artículo 521. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
+Artículo 521. Confidencialidad y protección de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades afiliadas o no al SINPE, acatando lo establecido en la Ley 9694 del Sistema de Estadística Nacional y la Ley 8968 de Protección de la Persona frente al tratamiento de sus datos personales.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 514 al artículo 521)

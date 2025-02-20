@@ -1,1 +1,2 @@
-Artículo 511. Acceso a la información. El BCCR pondrá a disposición de los afiliados del SINPE y público en general, información estadística de forma agregada sobre el sistema de pagos costarricense.
+Artículo 511. Entrega del comprobante de cobro revertido. En el caso de reclamación por débitos no autorizados, la entidad destino del reclamo deberá entregar al cliente destino el comprobante del cobro revertido emitido por el servicio, cuando el cliente así lo solicite.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 504 al artículo 511)

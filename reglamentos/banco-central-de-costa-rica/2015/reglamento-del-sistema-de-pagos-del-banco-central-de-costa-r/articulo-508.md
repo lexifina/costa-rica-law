@@ -1,3 +1,2 @@
-CAPÍTULO III
-DEL ESQUEMA DE OPERACIÓN
-Artículo 508. Funciones del BCCR: Por medio del servicio ISP, el BCCR recopila, procesa, analiza y divulga públicamente información sobre el sistema de pagos costarricense con acatamiento de lo establecido en la Ley 9694.
+Artículo 508. Reintegro de fondos para transacciones con identificación del cliente origen y cliente destino diferente. Ante un reclamo del cliente destino ante su entidad por la aplicación de un cobro que no cumplió con las condiciones de la domiciliación emitida, la entidad destino es responsable de verificar dicha domiciliación y justificar ante éste el cobro efectuado. En caso de detectarse que el cobro realizado no cumple con las condiciones establecidas en la domiciliación emitida, la entidad destino deberá reintegrar los fondos al cliente destino a más tardar al finalizar el ciclo de reclamación por débitos no autorizados, pudiendo gestionar un cobro revertido por medio del servicio.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 501 al artículo 508)

@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 518. Participantes. Podrá operar en el servicio Consulta de Identificación Ciudadana cualquier asociado del SINPE que requiera la consulta de los datos demográficos, foto y firma de los ciudadanos costarricenses, en virtud de las necesidades de validación de la identidad de sus clientes durante el trámite de una transacción o la prestación de un servicio.
+Artículo 518. Acceso a la información. El BCCR pondrá a disposición de los afiliados del SINPE y público en general, información estadística de forma agregada sobre el sistema de pagos costarricense.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 511 al artículo 518)

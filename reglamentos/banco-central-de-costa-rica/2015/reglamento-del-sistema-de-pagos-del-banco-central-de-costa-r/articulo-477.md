@@ -1,1 +1,2 @@
-Artículo 477. Emisores de CES. Podrán emitir CES en Colones, Dólares Estadounidenses y Euros las entidades financieras supervisadas (bancos, mutuales, entidades financieras no bancarias, cooperativas de ahorro y crédito, asociaciones solidaristas, entre otras), según lo indicado por el artículo 14 de la Ley 7786, debiendo la entidad asignar al cliente el tipo de CES que corresponda según el nivel de ingreso manifestado.
+Artículo 477. Emisores de CES. Podrán emitir CES las entidades financieras (bancos y entidades autorizadas por leyes especiales) y deberán ser activadas para su uso en fecha posterior a su registro en el PUC.
+(Así reformado en sesión N° 6240 del 20 de febrero del 2025)

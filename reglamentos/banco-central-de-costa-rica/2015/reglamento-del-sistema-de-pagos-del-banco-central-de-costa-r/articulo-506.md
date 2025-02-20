@@ -1,5 +1,4 @@
-LIBRO XXXVIII
-INFORMACIÓN SOBRE EL SISTEMA DE PAGOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 506. Definición del servicio. Información sobre el Sistema de Pagos (ISP) es el servicio de recopilación, procesamiento y divulgación de información agregada de los sistemas y medios de pago ofrecidos por el Sistema Financiero Nacional. Sus participantes deberán velar por el cumplimiento de principios de oportunidad, veracidad, calidad, suficiencia y comparabilidad de la información.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 506. Obligatoriedad de uso del servicio. Los afiliados deberán utilizar el servicio REF para presentar todos los reclamos que procedan por concepto de débitos no autorizados o créditos no aplicados, por lo que la entidad destinataria no estará obligada a atender ningún reclamo presentado por otros medios.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 499 al artículo 506)

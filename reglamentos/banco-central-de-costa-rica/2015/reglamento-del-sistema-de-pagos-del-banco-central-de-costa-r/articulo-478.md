@@ -1,1 +1,2 @@
-Artículo 478. De la naturaleza de las CES. Las CES 1 y 2 son creadas con el propósito de promover la inclusión financiera en el país. Las CES 3 tiene como objetivo la simplificación de trámites para los clientes; además, la facilidad de administración de estas cuentas para las entidades financieras supervisadas.
+Artículo 478. De la naturaleza de las CES. Las CES son creadas con propósito de promover la inclusión financiera de las personas físicas.
+(Así reformado en sesión N° 6240 del 20 de febrero del 2025)

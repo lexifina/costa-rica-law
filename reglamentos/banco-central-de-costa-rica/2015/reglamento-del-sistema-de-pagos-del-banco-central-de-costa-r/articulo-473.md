@@ -1,1 +1,2 @@
-Artículo 473. Naturaleza del padrón. El PUC es administrado por el BCCR como herramienta de apoyo al control, así como para prevenir y reprimir las actividades de legitimación de capitales y el financiamiento al terrorismo dentro del Sistema Financiero Nacional.
+Artículo 473. Naturaleza del padrón. El PUC es administrado por el BCCR para el registro de las cuentas corrientes, cuentas de ahorro, cuentas de expediente simplificado y cualquier otra cuenta de fondos a la vista, así como las cuentas de administración de recursos, para cumplir con el objetivo establecido en el artículo 2, inciso c), la función esencial señalada en el artículo 3, inciso i) de la Ley 7558 y la Ley 7786.
+(Así reformado en sesión N° 6240 del 20 de febrero del 2025)

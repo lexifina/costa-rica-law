@@ -1,6 +1,7 @@
-CAPÍTULO V
-DEL CICLO DEL SERVICIO
-Artículo 535. Del ciclo de operación del servicio. El ciclo del servicio TCS opera con las siguientes etapas:
-a) Cálculo de las tarifas y comisiones: el primer día hábil de cada mes y con base en los registros de las transacciones del mes anterior, el SINPE calcula el multilateral neto para determinar el monto a cargo de cada afiliado.
-Para el cálculo de las tarifas y comisiones por el uso de la plataforma del SINPE, se computarán todas las transacciones enviadas. Para determinar las comisiones interbancarias, serán excluidas las transacciones no concluidas exitosamente por problemas atribuibles a la entidad destino.
-b) Liquidación: el SIL efectúa la liquidación en firme con el mecanismo de liquidación multilateral neta.
+CAPÍTULO III
+DEL ESQUEMA TARIFARIO
+Artículo 535. Esquema de tarifas y comisiones. Se establece un esquema que será utilizado para definir las tarifas del SINPE y las comisiones interbancarias aplicables a todas las transacciones procesadas por el SINPE, con las siguientes condiciones:
+a) La entidad que demanda el servicio (entidad origen) paga por cada transacción ordenada en el servicio.
+b) No se cobra comisión alguna al cliente destino.
+c) El cobro al cliente origen es libre (relación privada entidad-cliente).
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 528 al artículo 535)

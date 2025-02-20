@@ -1,1 +1,4 @@
-Artículo 498. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 30 días naturales de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.
+CAPÍTULO VII
+DE LAS RESPONSABILIDADES
+Artículo 498. Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información registrada en el PUC, pudiendo hacer uso de la misma en forma agregada con fines estadísticos o de divulgación sobre el nivel de bancarización, inclusión financiera, uso del efectivo, entre otros; ello sin perjuicio de las potestades de acceso a la misma que poseen la Unidad de Inteligencia Financiera del Instituto Costarricense sobre Drogas, los jueces de la República y los órganos supervisores, conforme con la Ley 7786 y su normativa conexa.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 491 al artículo 498)

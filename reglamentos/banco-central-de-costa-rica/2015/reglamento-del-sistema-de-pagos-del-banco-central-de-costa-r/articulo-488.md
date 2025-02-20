@@ -1,1 +1,5 @@
-Artículo 488. Información de control para las ayudas sociales. Para el caso de las ayudas sociales con acreditación en las CES, el MHDA y cualquier otra institución pública que brinde ayudas sociales tendrán acceso a la información para fines de control, siempre que disponga de la debida autorización de parte del beneficiario de la ayuda social para consultarla por medio del PUC.
+CAPÍTULO VI
+DE LOS TIPOS DE CUENTAS
+(Así modificada la numeración del capítulo anterior en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo capítulo V al capítulo VI)
+Artículo 488. Tipos de CES. Se autoriza a los participantes a abrir a sus clientes CES de Nivel 1, Nivel 2 y Nivel 3.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 481 al artículo 488)

@@ -1,5 +1,2 @@
-LIBRO XXXIX
-CONSULTA DE IDENTIFICACIÓN CIUDADANA
-CAPÍTULO I
-DEL SERVICIO
-Artículo 516. Definición del servicio. Consulta de Identificación Ciudadana (CIC) es el servicio por medio del cual se accede a parte de la información de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones.
+Artículo 516. Recolección y análisis de información. El servicio ISP contempla la recolección y análisis de la información de las transacciones realizadas por los afiliados en todos los servicios financieros del SINPE y la generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional, tanto para fines estadísticos como para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense.
+(Así modificada su numeración en sesión N° 6240 del 20 de febrero del 2025, que lo traspaso del antiguo artículo 509 al artículo 516)
