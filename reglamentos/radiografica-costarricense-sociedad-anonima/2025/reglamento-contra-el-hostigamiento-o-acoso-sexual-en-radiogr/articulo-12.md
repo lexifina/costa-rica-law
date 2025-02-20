@@ -1,0 +1,5 @@
+Artículo 12.-Trámite de la Denuncia: Una vez interpuesta la denuncia, la persona denunciante podrá en un plazo de tres días hábiles, realizar cualquier ampliación, modificación o rectificación. Dentro del plazo inicial (3 días hábiles), quién reciba la denuncia, debe remitirla a la Gerencia General.
+La Gerencia General, en un plazo de 3 días hábiles a partir de recibida la información, conformará la Comisión Investigadora de acuerdo con lo señalado en el artículo 9 de este Reglamento.
+Dentro del plazo mencionado en el párrafo anterior, la Gerencia General debe informar a la Defensoría de los Habitantes de la República sobre la recepción de la denuncia, consignando únicamente una referencia mínima que permita identificar, a las partes, omitiendo, el nombre de las mismas, salvo orden expresa de esta entidad.
+Una vez conformada la Comisión Investigadora, la misma se encargará del proceso administrativo, resguardando el expediente, en orden cronológico y debidamente foliado.
+La Comisión Investigadora debe notificar a las partes sobre el inicio de la investigación en un plazo máximo de ocho días hábiles.

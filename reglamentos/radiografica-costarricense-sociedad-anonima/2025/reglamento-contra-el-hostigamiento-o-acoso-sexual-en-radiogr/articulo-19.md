@@ -1,0 +1,1 @@
+Artículo 19.-Comunicación de la Resolución Final. La resolución final debe ser puesta en conocimiento de las partes en un plazo no mayor de quince días naturales desde el momento de su emisión por parte de la Gerencia General, independientemente del resultado del proceso. Además, debe comunicar el resultado del procedimiento a la Defensoría de los Habitantes de la República.

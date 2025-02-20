@@ -1,0 +1,1 @@
+Artículo 16.-Sobre la Prueba. Las pruebas son evaluadas de conformidad con las reglas de la sana crítica, la lógica y la experiencia. Ante la ausencia de prueba directa se debe valorar la indiciaria y todas las otras fuentes de prueba conforme al derecho común, atendiendo los principios especiales que rigen en materia de hostigamiento sexual.

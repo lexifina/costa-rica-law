@@ -1,0 +1,1 @@
+Artículo 21.-De las Denuncias Falsas. Podrá incurrir en los delitos de difamación, injuria o calumnia, toda persona que interponga denuncia falsa de acoso sexual, de conformidad con lo dispuesto en la Ley, en concordancia con el Código Penal.
