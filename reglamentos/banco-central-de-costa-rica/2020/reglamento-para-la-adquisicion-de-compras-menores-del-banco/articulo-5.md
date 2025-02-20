@@ -1,2 +1,0 @@
-Artículo 5º—Aprobación de documentos. Los documentos probatorios de la adquisición en el proceso operativo deberán ser aprobados únicamente por el titular del Centro Gestor en el BCCR o a quien este delegue; en el caso de los ODM será aprobado por el Coordinador Administrativo, o por quién éste delegue. El Departamento de Proveeduría deberá constatar la validez de la firma.
-La delegación aquí descrita, deberá ser comunicada al Departamento de Proveeduría oportunamente.

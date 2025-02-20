@@ -1,2 +1,0 @@
-Artículo 14.—Faltante en el fondo de efectivo. Cuando se detectaran anomalías en el uso específico para el cual se creó este fondo, deberán ser justificadas por el auxiliar.
-Atendiendo los principios de proporcionalidad y razonabilidad, el Director del Departamento de Proveeduría comunicará los hechos a los superiores, con el fin de que se valore la apertura o no de un procedimiento administrativo.
