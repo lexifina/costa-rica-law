@@ -1,0 +1,2 @@
+ARTÍCULO 16- Personal cruzrojista remunerado
+En caso de emergencia o desastre, el personal cruzrojista remunerado podrá laborar hasta doce horas diarias, con un máximo de setenta y dos horas semanales, de conformidad con el artículo 143 del Código de Trabajo. La jornada de trabajo deberá atender las condiciones especiales de la prestación de los servicios de la Asociación Cruz Roja Costarricense. Se respetarán, en todo momento, las garantías sociales y salariales que establezca el ordenamiento jurídico costarricense.

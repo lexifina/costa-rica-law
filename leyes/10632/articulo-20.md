@@ -1,0 +1,7 @@
+ARTÍCULO 20- Reforma de la Ley 8031, Uso y Protección del Emblema de la Cruz Roja y la Media Luna Roja
+Se reforma el artículo 7 de la Ley 8031, Uso y Protección del Emblema de la Cruz Roja y la Media Luna Roja, de 19 de octubre de 2000. El texto es el siguiente:
+Artículo 7- Abuso del emblema
+Será sancionada con multa equivalente a diez salarios base, toda persona que use, sin autorización, el emblema de la Cruz Roja, la Media Luna Roja o el Cristal Rojo, las señales distintivas, la denominación Cruz Roja, Media Luna Roja o el Cristal Rojo, así como aquellas imitaciones que puedan prestarse a confusión, tales como el uso en farmacias, servicios médicos, clínicas, hospitales, letreros, carteles, anuncios, prospectos o documentos comerciales, mercancías o embalajes, rótulos o membretes comerciales, placas de identidad u otros.
+Cuando el abuso se cometa en tiempo de conflicto armado, la pena será de doce salarios base.
+La denominación salario base referida en este artículo corresponde al salario determinado por el Consejo Superior del Poder Judicial en la relación de puestos del presupuesto ordinario de la República del periodo de que se trate.
+Las multas por concepto del incumplimiento de las disposiciones establecidas en el presente artículo pasarán a ser utilizadas en labores directas de difusión del derecho internacional humanitario y la protección del emblema, por parte de la Cruz Roja.
