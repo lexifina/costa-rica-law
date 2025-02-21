@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Incentivos
+Artículo 64. Los generadores que participen en el proceso de GIRS en el distrito podrán solicitar incentivos ante el Concejo, presentando ante la Unidad de Gestión Ambiental el formulario para solicitud de incentivos en GIRS que estará disponible en dicha oficina y en el sitio web del Concejo, junto a la información complementaria que se requiera para optar por los distintos tipos de incentivo. Estos serán otorgados únicamente a partir de la gestión integral de los residuos ordinarios. Los residuos peligrosos, de manejo especial y otros distintos a los ordinarios no se considerarán para este fin y deben ser manejados de acuerdo a lo establecido en la legislación nacional.

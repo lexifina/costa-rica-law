@@ -1,0 +1,9 @@
+Artículo 14. Requisitos para los sistemas de almacenamiento colectivo. Los contenedores a los que hace referencia los Artículos 12 y 13 del presente reglamento cumplirán como mínimo con los siguientes requisitos:
+a) Deben poseer tapas superiores y/o puertas laterales para proteger los residuos de la fauna, que sean resistentes a las inclemencias del tiempo.
+b) Estar ubicados en el sitio que mejor garantice el fácil acceso a los residuos desde la vía pública. Deben construirse o ubicarse dentro de la propiedad privada, contiguos a la acera, o donde el Concejo autorice, garantizando el acceso directo desde la vía pública.
+c) En contenedores con puertas laterales, la apertura de las mismas no debe interrumpir u obstaculizar el tránsito por la vía pública
+d) El diseño del sistema debe ser ergonómico para garantizar condiciones óptimas de seguridad ocupacional a los operarios recolectores y facilitar la labor de extracción de los residuos.
+e) Contar con las dimensiones necesarias y suficientes para garantizar el almacenamiento temporal y adecuada de los residuos, evitando que estos se depositen residuos fuera de los contenedores. Según su tipo, deberán respetarse las siguientes condiciones:
+i. Tipo canasta: la altura medida desde el suelo hasta el borde superior del contenedor no debe superar una altura de 1,2 m, mientras que su profundidad máxima (vertical) no debe ser mayor a 1 m. Sus dimensiones máximas deberán ser de 2,0 m de ancho y 4,0 m de largo.
+ii. Tipo cajón: cuando la altura sea igual o menor a 1,5 m, la relación entre la medida de la altura y la profundidad (horizontal) no podrá ser inferior a 1,5:1.
+f) Los contenedores de uso colectivo no pueden estar ubicados dentro de las áreas de protección forestal, salvo casos que respondan al interés público, sea autorizado por el Concejo Municipal y se toman las medidas de prevención y mitigación suficientes para salvaguardar el medio ambiente.

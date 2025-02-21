@@ -1,0 +1,1 @@
+Artículo 57. En el caso de los centros comerciales y plazas, se realizará una asignación tarifaria a cada local comercial de manera individualizada. Por su parte, a cada local comercial que se encuentre desocupado se le asignará una categoría comercial 0.

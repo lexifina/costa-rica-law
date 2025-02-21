@@ -1,0 +1,1 @@
+Artículo 63. Conforme al Artículo 83 del Código Municipal, los contribuyentes deberán pagar por los servicios de manejo integral de residuos sólidos que le preste el Concejo, aunque ellos no demuestren interés en tales servicios.

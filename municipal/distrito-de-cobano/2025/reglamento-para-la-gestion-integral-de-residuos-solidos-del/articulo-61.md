@@ -1,0 +1,1 @@
+Artículo 61. El reclamo debe efectuarlo el dueño o apoderado legal de la propiedad donde se desarrolla la actividad generadora de residuos, o por aquella persona a la cual se le haya asignado el cobro correspondiente.

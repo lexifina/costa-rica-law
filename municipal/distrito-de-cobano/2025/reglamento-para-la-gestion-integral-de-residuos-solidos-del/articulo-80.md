@@ -1,0 +1,1 @@
+Artículo 80. Fondo para la GIRS. Se gestionará conforme al artículo 29 de la Ley N° 8839, para que una vez girados por la Tesorería Nacional al Concejo, estos ingresarán directamente al presupuesto de la Gestión Integral de Residuos Sólidos con el fin de apoyar la implementación de las acciones del Plan Municipal para la Gestión Integral de Residuos.

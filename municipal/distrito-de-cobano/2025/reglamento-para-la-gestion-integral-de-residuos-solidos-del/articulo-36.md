@@ -1,0 +1,1 @@
+Artículo 36. Todos los centros de recuperación localizados en el distrito deberán presentar ante el Concejo al menos un informe semestral en donde se indique la cantidad, por tipo, de residuos valorizables recolectados o recibidos y su trazabilidad.

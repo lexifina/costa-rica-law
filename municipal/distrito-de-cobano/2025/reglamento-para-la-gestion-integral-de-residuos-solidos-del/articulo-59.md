@@ -1,0 +1,1 @@
+Artículo 59. Cuando una licencia comercial es suspendida temporalmente, al establecimiento comercial se le asignará la categoría comercial 0 por el tiempo en que exista dicha suspensión; una vez que la licencia comercial sea activada nuevamente, se volverá a aplicar la categoría comercial que tuvo antes de dicha suspensión.

@@ -1,0 +1,1 @@
+Artículo 52. Tarifas diferenciadas. El Concejo podrá establecer tarifas diferenciadas para el manejo de los residuos según su clasificación, frecuencia de recolección, tratamiento, cantidad generada o tipo de actividad que realice el generador.

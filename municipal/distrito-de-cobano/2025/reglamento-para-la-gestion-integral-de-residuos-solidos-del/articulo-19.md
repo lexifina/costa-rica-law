@@ -1,0 +1,1 @@
+Artículo 19. Obligatoriedad de conocimiento. El conocimiento del presente reglamento es una obligación de todos los generadores del distrito y demás actores definidos en el alcance del mismo, por lo que su desconocimiento no podrá ser usado como excusa para omitir las obligaciones respectivas y las sanciones correspondientes.

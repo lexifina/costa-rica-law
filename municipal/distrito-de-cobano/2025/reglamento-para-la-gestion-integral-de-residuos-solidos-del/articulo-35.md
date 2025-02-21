@@ -1,0 +1,1 @@
+Artículo 35. Los centros de recuperación públicos o privados que se encuentren dentro del territorio del distrito deberán cumplir con las disposiciones establecidas en el Reglamento de Centros de Recuperación de Residuos Valorizables, Decreto Ejecutivo N.º 41052-S.

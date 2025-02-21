@@ -1,0 +1,1 @@
+Artículo 46. Supervisión civil. Las personas residentes y visitantes del distrito velarán por el cumplimiento de la normativa nacional vigente y aplicable a la GIRS y en caso de que requiera denunciar deberá proceder según lo indicado en el Artículo 81 de este reglamento.

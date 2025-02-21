@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Recolección privada
+Artículo 31. El usuario podrá contratar directamente a una empresa privada, para que movilice sus residuos ordinarios, valorizables, de jardín, no tradicionales, peligrosos, de manejo especial, de construcción y demolición, entre otros, siempre y cuando el proveedor del servicio esté debidamente inscrito y autorizado por el Ministerio de Salud y cuente con las licencias municipales necesarias e inscripción respectiva ante la Oficina de Gestión Ambiental Municipal para realizar dicha actividad; sin embargo, el uso de un servicio de carácter privado no inhibe el pago por la prestación efectiva y eficiente del servicio público municipal cuando este se brinde de manera efectiva o potencial.

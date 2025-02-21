@@ -1,0 +1,2 @@
+Artículo 87. Notificaciones. Previo a la imposición de estas multas, el Concejo deberá de notificar al propietario o poseedor de los inmuebles correspondientes, su deber de cumplir tales obligaciones.
+En caso de omisión de apersonarse o ejercer su derecho de defensa, se procederá a imponer la multa correspondiente, la cual se cargará en la misma cuenta donde le cobran los servicios públicos a cada contribuyente.

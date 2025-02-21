@@ -1,0 +1,1 @@
+Artículo 56. Cuando exista una licencia comercial que por su naturaleza permita que la actividad comercial se realice en más de una finca, se podrá asignar una sola categoría comercial acorde a la generación (kg/mes) de dicha actividad, en tal caso, la categoría se vinculará a la finca titular de la licencia comercial.

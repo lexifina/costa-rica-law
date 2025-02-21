@@ -1,0 +1,1 @@
+Artículo 18. De los programas de manejo de residuos por parte de los generadores. Estos deberán cumplir con la Política Nacional de Gestión de Residuos, la Ley para la Gestión Integral de Residuos 8839 y su reglamento, la "Estrategia Nacional de Recuperación, Separación y Valorización de Residuos" así como lo establecido en el PMGIRS y el presente reglamento.

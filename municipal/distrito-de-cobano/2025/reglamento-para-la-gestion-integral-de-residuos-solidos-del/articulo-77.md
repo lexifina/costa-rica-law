@@ -1,0 +1,2 @@
+Artículo 77. Naturaleza del Infractor. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en los Artículos 71, 73 y 75 del presente reglamento.
+En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento ante la Plataforma de Servicios del Concejo, dirigidas a la Oficina de Gestión Ambiental o por los medios que el Concejo disponga para ello.

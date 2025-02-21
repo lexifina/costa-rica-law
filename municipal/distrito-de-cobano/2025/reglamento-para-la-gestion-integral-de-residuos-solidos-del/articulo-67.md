@@ -1,0 +1,1 @@
+Artículo 67. Validez del incentivo. El incentivo de recalificación de la categoría asignada tendrá validez a partir del trimestre siguiente desde la fecha de su otorgamiento, siempre y cuando no se compruebe alguna falta a este reglamento que obligue a eliminar el incentivo otorgado o se aplique un nuevo ajuste tarifario que modifique la categorización de los usuarios.

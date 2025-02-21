@@ -1,0 +1,2 @@
+Artículo 38. Centros de recuperación de materiales orgánicos. El Concejo tiene la facultad de instalar y operar centros de recuperación de materiales orgánicos o autorizar a terceros previamente calificados para el acopio y tratamiento de los mismos y la comercialización del producto final.
+Estos centros deberán contar con los permisos correspondientes por parte de las instituciones competentes y cumplir con la legislación nacional vigente y aplicable.

@@ -1,0 +1,1 @@
+Artículo 9. Contenido del Plan Municipal para la GIRS. El Plan Municipal debe incorporar como mínimo los elementos establecidos en el artículo 22° del Reglamento General a la Ley para la Gestión Integral de Residuos.

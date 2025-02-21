@@ -1,0 +1,3 @@
+Transitorio 2. A todos los usuarios y administradores de los contenedores colectivos, que para la fecha de entrada en vigencia del presente reglamento no cuenten con las condiciones que en este se describen para su diseño y uso, tendrán un plazo de seis meses para ajustarlo a las condiciones determinadas en los Artículos 12, 13, 14 y 15 del presente reglamento.
+El Concejo Municipal de Distrito de Cóbano avisa que en Sesión Ordinaria número 036-25 celebrada el 07 de enero del 2025, el Concejo Municipal acordó APROBAR POR UNANIMIDAD la segunda publicación del Reglamento para la Gestión Integral de Residuos Sólidos del Distrito de Cóbano.
+<span style='font-family:"Arial",sans-serif; </body>
