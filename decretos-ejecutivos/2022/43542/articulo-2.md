@@ -1,1 +1,0 @@
-Artículo 2.- Se tienen comprendidas dentro de esta declaratoria de emergencia todas las acciones, obras y servicios necesarios para poder contener, solucionar y prevenir nuevos ataques en contra de los Sistemas de Información del Estado Costarricense.
