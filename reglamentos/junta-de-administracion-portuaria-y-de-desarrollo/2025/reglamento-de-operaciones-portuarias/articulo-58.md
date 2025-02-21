@@ -1,0 +1,9 @@
+ARTÍCULO 58
+De la entrega y recibo de mercaderías
+a) JAPDEVA sólo responderá por las cantidades de bultos, fardos y unidades de cada cargamento, que se encuentren anotados como recibidos en los documentos oficiales de entrega y recibo de mercancías y que estén debidamente declarados ante la Aduana y sean constatados en el documento DUA.
+b) Las diferencias que se presenten en los cálculos de chequeo por parte de JAPDEVA y de la agencia o usuario, en la carga de importación, exportación o en tránsito, deberán aclararse de inmediato, mediante el recuento de la carga.
+Los gastos de personal y equipo utilizados en ese recuento, correrán por cuenta del naviero, agencia o usuario. Si se comprueba que hubo responsabilidad de funcionarios o empleados de JAPDEVA, las diferencias detectadas, los gastos de personal y equipo utilizados en el recuento, correrán por cuenta de JAPDEVA, sin perjuicio de la acción que quepa contra ellos.
+c) Cuando se presentan diferencias en los cálculos de chequeo de la carga de importación o en tránsito, se tomará para el recibo el dato del funcionario que se designe JAPDEVA, hasta tanto no se efectúe el chequeo para la entrega de la carga al propietario, su representante o agencia correspondiente. Los datos que arroje el chequeo último será el definitivo.
+d) La diferencia del chequeo en cargamentos de exportación deberá ser aclarada en forma inmediata mediante el recuento de las mercancías, productos o cosas antes del zarpe de la nave. La omisión de este requisito implicará para el Capitán, armador o dueño de la nave, la aceptación del chequeo que haya resultado superior.
+e) Toda Mercadería será pesada en las basculas de entrada y salida. JAPDEVA se reserva el derecho de realizar el pesaje en forma aleatoria si esto afecta la fluidez en las salidas y entradas a zona portuaria.
+f) Ante cualquier diferencia con el usuario por el pesaje, JAPDEVA tomará los datos pesados como base para el cobro del muellaje.

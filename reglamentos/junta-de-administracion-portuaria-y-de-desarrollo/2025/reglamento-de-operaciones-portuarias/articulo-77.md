@@ -1,0 +1,5 @@
+CAPÍTULO XI
+De la seguridad y protección en las Instalaciones Portuarias
+ARTÍCULO 77
+Fundamento Jurídico.
+La Protección de las Instalaciones Portuarias está sujeta a las normas jurídicas, técnicas y de seguridad vigentes tanto a nivel nacional como internacional. Estas normas son las adoptadas en el Código Internacional para la Protección de los Buques y de las Instalaciones Portuarias (PBIP) y las disposiciones que el Gobierno de Costa Rica a través de las autoridades competentes implemente en todos los muelles y puertos marítimos y/o fluviales habilitados para el comercio exterior de mercancías, servicios y de pasajeros de transporte internacional. La seguridad del puerto es un servicio tercerizado, de tal forma que se ejercerá según contratación que se realizará a la luz de lo dispuesto en la normativa vigente. Las medidas y procedimientos de protección establecidos y los que se establezcan, se aplicarán en las instalaciones portuarias de modo que reduzcan al mínimo los inconvenientes o demoras para los pasajeros, los buques, el personal y los visitantes de los buques, las mercancías y los servicios

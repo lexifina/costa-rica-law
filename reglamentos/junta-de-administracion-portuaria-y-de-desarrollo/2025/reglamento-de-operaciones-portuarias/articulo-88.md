@@ -1,0 +1,5 @@
+ARTÍCULO 88.
+Programación de Ventanas
+JAPDEVA podrá firmar carta de entendimiento para la reserva del puesto y hora de atraque para las naves o buques que cuenten con un servicio regular a un día y una hora determinada. Dicho sistema se denomina reserva de las ventanas de atraque y estará sujeta a la cantidad de maniobras solicitadas en un espacio de 4 meses y también a la cantidad de carga movilizada.
+JAPDEVA tendrá 24 horas para responder la solicitud y brindar la ventana que mejor se ajuste de acuerdo con la programación de buques. Para formalizar el acuerdo se deberá firmar una carta de entendimiento entre el Gerente Portuario o quien designe y el representante de la Agencia Naviera. Tendrá una validez de 4 meses.
+En aquellos casos en que la Agencia Naviera requiera modificar el Tiempo Estimado de Arribo (ETA) de una reserva de atraque previamente aprobada, deberá consultarlo con la JAPDEVA en horario de 08:00-15:00, la cual deberá pronunciarse en el plazo de 4 horas a partir de recibida la comunicación oficial. De ser negativa la decisión, esta deberá ser motivada.
