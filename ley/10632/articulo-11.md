@@ -1,0 +1,2 @@
+ARTÍCULO 11- Apoyo y colaboración de la empresa privada
+Las empresas privadas podrán colaborar y apoyar el servicio humanitario desplegado por la Cruz Roja en la medida de sus posibilidades, mediante la realización de cualquier tipo de negociación, acto jurídico o donación, amparada por la legislación costarricense; se incluye la posibilidad de que los medios de comunicación privados colaboren en la difusión de mensajes de prevención y preparación para emergencias o desastres.

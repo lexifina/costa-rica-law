@@ -1,0 +1,2 @@
+ARTÍCULO 17- Vehículos y edificaciones de la Cruz Roja
+Los vehículos terrestres, acuáticos y aéreos de la Cruz Roja Costarricense, así como las edificaciones temporales o permanentes en las que realice su operación humanitaria, ya sean propias, alquiladas o en préstamo, gozarán de la protección de conformidad con lo establecido en los Convenios de Ginebra, por lo que deben ser respetados por todas las personas físicas y jurídicas que se encuentren en el territorio nacional.
