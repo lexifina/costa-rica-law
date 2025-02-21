@@ -17,4 +17,6 @@ ch) El conviviente en unión de hecho sólo tendrá derecho cuando dicha unión 
 6) Las Juntas de Educación correspondientes a los lugares donde tuviere bienes el causante, respecto de los comprendidos en su jurisdicción.
 Si el causante nunca hubiere tenido su domicilio en el país, el juicio sucesorio se tramitará en el lugar donde estuviere la mayor parte de sus bienes.
 Las Juntas no tomarán posesión de la herencia sin que preceda resolución que declare sus derechos, en los términos que ordena el Código de Procedimientos Civiles.
+7- La Cruz Roja Costarricense.
+(Así adicionado el inciso anterior por el artículo 23 de la Ley de la Cruz Roja Costarricense, N° 10632 del 28 de enero del 2025)
 (Así reformado por el artículo 1° de la ley Nº 1443 de 21 de mayo de 1952)
