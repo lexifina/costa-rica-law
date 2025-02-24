@@ -2,7 +2,8 @@ ARTÍCULO 94.-Serán categorías especiales, entre otras, las siguientes:
 1) Trabajadores transfronterizos.
 2) Trabajadores temporales.
 3) Trabajadores de ocupación específica, visitantes de negocios, personal de transferencia dentro de una misma empresa y personal adscrito a los servicios posteriores a la venta, así como trabajadores por cuenta propia.
-4) Estudiantes, investigadores, docentes y voluntarios.
+4) Personas estudiantes, docentes, pasantes, investigadoras y voluntarios con fines educativos y culturales, incluyendo aquellos invitados, para que realicen actividades de corta estadía.
+(Así reformado el inciso anterior por el artículo 2° de la Ley para la promoción, atracción y estadía de estudiantes, docentes e investigadores extranjeros, N° 10645 del 24 de febrero del 2025)
 5) Invitados especiales del Estado, sus instituciones y los que por razones de seguridad pública el Ministerio de Seguridad estime su pertinencia, así como denunciantes o testigos en procesos judiciales o administrativos.
 6) Artistas, deportistas e integrantes de espectáculos públicos, profesionales o técnicos destacados o personas invitadas para que realicen actividades de importancia para el país.
 7) Refugiados.
