@@ -26,3 +26,4 @@ Reglamento de Fondos Rotativos de Trabajo, Caja Chica y Viáticos del Instituto 
 | 11 | 2021-02-22 | Reglamento 6 (2021-02-22) |
 | 12 | 2022-02-28 | Reglamento 11 (2022-02-28) |
 | 13 | 2024-03-07 | Reglamento 5 (2024-03-07) |
+| 14 | 2025-02-24 | Reglamento 3 (2025-02-24) |
