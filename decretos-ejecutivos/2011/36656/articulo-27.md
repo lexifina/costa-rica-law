@@ -1,1 +1,0 @@
-Artículo 27.—Las donaciones de bienes dirigidas a favor del Consejo, sean nacionales o internacionales, deberán tramitarse según los lineamientos que determine para este efecto la Dirección General de Administración de Bienes, e inscribirse a nombre del Ministerio de Salud como Órgano Superior del Consejo.

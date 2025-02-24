@@ -1,1 +1,0 @@
-Artículo 10.—Serán funciones del Presidente presidir el Consejo, velar por el cumplimiento de las funciones del Consejo, convocar las sesiones extraordinarias, confeccionar el orden del día y demás que le asignen las leyes y reglamentos.
