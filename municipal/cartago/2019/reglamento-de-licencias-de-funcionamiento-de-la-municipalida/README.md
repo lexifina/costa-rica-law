@@ -14,3 +14,4 @@ Reglamento de Licencias de funcionamiento de la Municipalidad de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-12-09 | la propia norma |
+| 2 | 2025-02-25 | Reglamento municipal 65 (2025-02-25) |
