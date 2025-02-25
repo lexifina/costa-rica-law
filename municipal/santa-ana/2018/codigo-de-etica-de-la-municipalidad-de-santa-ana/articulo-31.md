@@ -1,1 +1,0 @@
-Artículo 31º Serán responsables directos de crear en la institución una cultura organizacional de conjunto a través de acciones que propicien el conocimiento, el acceso a la información y las acciones comunes.
