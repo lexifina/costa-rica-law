@@ -1,0 +1,1 @@
+Artículo 46. Evaluación periódica de los controles. Los controles presupuestarios establecidos deberán evaluarse periódicamente y ajustarse en lo que corresponda en procura de que sean efectivos y ayuden a mejorar el presupuesto como instrumento de gestión.

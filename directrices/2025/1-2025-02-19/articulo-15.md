@@ -1,0 +1,1 @@
+Artículo 15. Sujeción al bloque de legalidad. Cada una de las fases del proceso presupuestario deberá sujetarse al bloque de legalidad de tal manera que se garantice la gestión eficiente, eficaz, económica y de calidad de los recursos públicos. CIFOPALMA y el Órgano Técnico serán responsables por el cumplimiento del bloque de legalidad que regula cada fase.

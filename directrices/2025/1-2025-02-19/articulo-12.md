@@ -1,0 +1,1 @@
+Artículo 12. Eficacia del presupuesto. El presupuesto y sus variaciones tendrán efecto legal, siempre que hubieren cumplido los requisitos y disposiciones previstos en el bloque de legalidad y que cuente con la debida aprobación por parte del fideicomitente.

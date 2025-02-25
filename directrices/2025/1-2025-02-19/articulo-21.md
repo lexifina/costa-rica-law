@@ -1,0 +1,1 @@
+Artículo 21. Programación de requerimientos de bienes y servicios. El Órgano Técnico con base en los lineamientos emitidos por CIFOPALMA, deberá establecer los mecanismos y procedimientos que permitan determinar los requerimientos de bienes, servicios y otros gastos para el cumplimiento de los objetivos estratégicos del Fideicomiso No. 955.

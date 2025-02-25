@@ -1,0 +1,1 @@
+Artículo 42. Producto final de la fase de ejecución presupuestaria. La fase de ejecución presupuestaria termina con un presupuesto ejecutado, que consiste en los ingresos percibidos y los egresos realizados, así como los logros en los objetivos estratégicos y metas definidos para la ejecución del presupuesto del Fideicomiso.

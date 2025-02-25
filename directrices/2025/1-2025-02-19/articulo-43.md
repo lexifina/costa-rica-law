@@ -1,0 +1,1 @@
+Artículo 43. Fase de control presupuestario. El control identifica y mide las desviaciones en la ejecución del presupuesto para que se realicen oportunamente las correcciones que correspondan, a fin de lograr concordancia entre esa ejecución y los límites previstos -financieros y físicos- definidos en el presupuesto aprobado y el plan anual del fideicomiso.

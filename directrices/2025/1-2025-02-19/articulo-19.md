@@ -1,0 +1,2 @@
+Artículo 19. Estimación de los ingresos. Las estimaciones de los ingresos del presupuesto se harán con base en métodos técnicos, matemáticos, financieros y estadísticos de común aceptación, considerando su composición y estacionalidad.
+Los supuestos utilizados para dichas estimaciones deberán estar técnicamente fundamentados y documentados. En aquellos casos que se perciban ingresos en moneda diferente al colón costarricense, se debe disponer de la metodología que justifique la estimación realizada, así como los supuestos utilizados para el cálculo.

@@ -1,0 +1,2 @@
+Artículo 40. Exactitud y confiabilidad de la liquidación presupuestaria. CIFOPALMA debe establecer los mecanismos y procedimientos necesarios para garantizar razonablemente la confiabilidad, pertinencia, relevancia y oportunidad de la información contenida en la liquidación presupuestaria para que sirva de apoyo en la toma de decisiones y en la rendición de cuentas.
+CIFOPALMA deberá remitir al Fideicomitente los informes presentados por el Órgano Técnico.

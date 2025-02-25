@@ -1,0 +1,1 @@
+Artículo 45. Cumplimiento de la normativa y mecanismos de control. CIFOPALMA velará por el cumplimiento de los mecanismos de control establecidos y la normativa emitida, competente en materia de control presupuestario.

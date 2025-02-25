@@ -1,0 +1,2 @@
+Artículo 16. Asignación de recursos para la coordinación del proceso presupuestario. CIFOPALMA deberá tomar las medidas necesarias para que el desarrollo de las diferentes fases del proceso presupuestario sea realizado de manera óptima por el Órgano Técnico, velar por el buen funcionamiento del
+presupuesto, así como que se disponga de los recursos humanos, materiales y tecnológicos suficientes para el cabal cumplimiento de sus funciones.

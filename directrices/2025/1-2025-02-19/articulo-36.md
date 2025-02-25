@@ -1,0 +1,1 @@
+Artículo 36. Mecanismos de variación al presupuesto. Los presupuestos extraordinarios y las modificaciones presupuestarias constituyen los mecanismos legales y técnicos para realizar las inclusiones, los aumentos, o las disminuciones de ingresos y gastos del presupuesto por parte de la instancia competente, acatando para ello el bloque de legalidad que les aplica.

@@ -1,0 +1,1 @@
+Artículo 34. Variaciones al presupuesto y vinculación con la planificación. Toda variación al presupuesto deberá ser justificada, especificando en caso de proceder, los cambios o ajustes que requiere el plan anual.

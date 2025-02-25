@@ -1,0 +1,1 @@
+Artículo 10. Presupuesto por partidas presupuestarias. El presupuesto del Fideicomiso N°955 deberá obedecer a la técnica de presupuesto por partidas presupuestarias. El Órgano Técnico debe definir y proponer las partidas presupuestarias acorde con las funciones sustantivas y objetivos estratégicos del fideicomiso.

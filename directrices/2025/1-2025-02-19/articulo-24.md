@@ -1,0 +1,1 @@
+Artículo 24. Fase de aprobación presupuestaria. La aprobación comprende el análisis y discusión rigurosos de la viabilidad técnica, legal y administrativa del presupuesto inicial o de sus variaciones y la emisión del acto de autorización y validación por parte de CIFOPALMA y de aprobación por el Fideicomitente.

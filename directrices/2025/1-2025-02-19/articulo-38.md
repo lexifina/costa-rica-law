@@ -1,0 +1,2 @@
+Artículo 38. Sujeción de los presupuestos extraordinarios y de las modificaciones presupuestarias al bloque de legalidad y a la normativa técnica presupuestaria.
+Los presupuestos extraordinarios y las modificaciones presupuestarias deberán ser formulados, aprobados, ejecutados, controlados y evaluados, con estricto apego al bloque de legalidad y con la normativa técnica establecida en esta Directriz.

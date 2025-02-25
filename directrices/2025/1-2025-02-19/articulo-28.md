@@ -1,0 +1,3 @@
+Artículo 28. Fecha para someter a aprobación el presupuesto. El presupuesto inicial y los presupuestos extraordinarios deberán presentarse para aprobación del fideicomitente, en las siguientes fechas:
+I. El presupuesto inicial, a más tardar el 30 de setiembre, del año anterior al de su vigencia. O en los siguientes siete días hábiles previa justificación.
+II. Los presupuestos extraordinarios deberán presentarse al Fideicomitente, en el periodo comprendido entre el 1° de enero y el último día hábil del mes de setiembre del año que rige el presupuesto y en este último mes únicamente podrá presentarse un documento presupuestario.

@@ -1,0 +1,1 @@
+Artículo 25. Autorización y validación del presupuesto. El presupuesto inicial y sus variaciones serán autorizados y validados por CIFOPALMA mediante acto razonado, ajustándose en todos sus externos a lo establecido al efecto por la Ley General de la Administración Pública, otorgándoles de esa manera validez jurídica a los citados documentos.
