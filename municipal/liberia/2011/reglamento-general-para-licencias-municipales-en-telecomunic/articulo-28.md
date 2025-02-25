@@ -1,1 +1,0 @@
-Artículo 28.—El presente Reglamento rige a partir de su publicación, según Acuerdo Municipal Nº 3, Artículo segundo, capítulo segundo de la Sesión Ordinaria Nº 19-2011, celebrada el 09 de mayo de 2011.

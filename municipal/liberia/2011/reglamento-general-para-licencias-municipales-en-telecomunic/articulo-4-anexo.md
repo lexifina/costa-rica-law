@@ -1,9 +1,0 @@
-ANEXO 4.1
-| | | |
-Declaración Jurada - Artículo 20 Numeral 2 del Reglamento
-Número xxx: Ante mí, (nombre del Notario), Notario Público con oficina abierta en (lugar donde se ubica la oficina del Notario), comparece el señor(a) (nombre del compareciente y calidades), [EN CASO DE PERSONA JURÍDICA: en representación de (nombre de la persona jurídica) cuya representación consta en ______________________________] a quien se le apercibe con las cuales la ley castiga el perjurio y el falso testimonio, declara bajo la fe de juramento que: PRIMERO: su representada solicita Licencia de Construcción ante La Municipalidad de Liberia para una obra constructiva, tanto una torre y su obra civil relacionada. SEGUNDO: En un radio de doscientos cincuenta metros desde el centro de la Torre propuesta no se observa una torre de Telecomunicaciones de más de 30 metros desde la calle pública.
-ANEXO 4.2
-| | | |
-Declaración Jurada - Artículo 20 Numeral 2 del Reglamento
-| | | |
-Número xxx: Ante mí, (nombre del Notario), Notario Público con oficina abierta en (lugar donde se ubica la oficina del Notario), comparece el señor(a) (nombre del compareciente y calidades), [EN CASO DE PERSONA JURÍDICA: en representación de (nombre de la persona jurídica) cuya representación consta en ______________________________] a quien se le apercibe con las cuales la ley castiga el perjurio y el falso testimonio, declara bajo la fe de juramento que: PRIMERO: su representada solicita Licencia de Construcción ante La Municipalidad de Liberia para una obra constructiva, tanto una torre y su obra civil relacionada. SEGUNDO: las Obras Constructivas se construirán para ser compartidas por un mínimo de tres emplazamientos de antenas y equipo, conforme a lo establecido por el Artículo setenta y siete de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley N° Ocho mil seiscientos sesenta del ocho de agosto de dos mil ocho.
