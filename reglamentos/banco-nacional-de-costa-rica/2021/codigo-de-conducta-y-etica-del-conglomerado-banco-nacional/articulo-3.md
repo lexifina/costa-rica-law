@@ -1,4 +1,5 @@
-Capítulo III. Nuestro Comportamiento
+CAPÍTULO III
+Nuestro Comportamiento
 3.1 Conductas Inaceptables
 3.1.1 No se permite ningún tipo de hostigamiento sexual o acoso laboral.
 3.1.2 Ejecutar actividades delictivas o bien que se aparten del principio de legalidad administrativa, que puedan afectar la reputación, a sus clientes o el desempeño de su área o puesto, incluso fuera de la relación laboral o de servicio.
@@ -26,10 +27,8 @@ En el caso de las Subsidiarias sujetas a cumplir con la Ley Reguladora del Merca
 3.1.23 Atribuirse valores a sí mismos o atribuírselos a su grupo de interés económico, cuando los clientes los hayan solicitado en condiciones idénticas o mejores.
 3.1.24 Anteponer la venta de valores propios o de empresas de su grupo de interés económico a la venta de valores de sus clientes, cuando estos hayan ordenado vender la misma clase de valores en condiciones idénticas o mejores.
 3.1.25 Difundir información falsa sobre los valores, sus emisores o cualquier situación que pueda tener impacto en los mercados de valores.
-3.1.26 Utilizar los valores cuya custodia les haya sido encomendada para operaciones no
-autorizadas por los titulares de dichos valores.
-3.1.27 Cuando por cuenta propia realicen operaciones con valores, no efectuarlas
-exclusivamente por medio del puesto de bolsa con el cual trabajan.
+3.1.26 Utilizar los valores cuya custodia les haya sido encomendada para operaciones no autorizadas por los titulares de dichos valores.
+3.1.27 Cuando por cuenta propia realicen operaciones con valores, no efectuarlas exclusivamente por medio del puesto de bolsa con el cual trabajan.
 3.1.28 En caso de realizar una operación por cuenta propia con un cliente, no hacerle constar con antelación, por un medio autorizado por la Superintendencia, tal circunstancia.
 3.2 Conflictos de interés
 3.2.1 Los integrantes del CFBNCR deben actuar de manera honesta y ética, buscando siempre la protección de los intereses de la Institución. Los supuestos que configuran un eventual conflicto de intereses, obedecen a alguna circunstancia que compromete la prestación imparcial de un servicio.

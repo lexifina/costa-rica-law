@@ -18,3 +18,4 @@ Código de conducta y ética del conglomerado Banco Nacional
 | 3 | 2023-06-20 | Reglamento 12649 (2023-06-20) |
 | 4 | 2024-04-16 | Reglamento 12688 (2024-04-16) |
 | 5 | 2024-11-26 | Reglamento 12728 (2024-11-26) |
+| 6 | 2025-02-25 | Reglamento 12739 (2025-02-25) |
