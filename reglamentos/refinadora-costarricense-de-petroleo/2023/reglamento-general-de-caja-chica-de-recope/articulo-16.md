@@ -1,1 +1,0 @@
-Artículo 16.-(Derogado por el artículo 68 del Reglamento de procedimientos laborales de la Refinadora Costarricense de Petróleo S. A., aprobado mediante sesión N° 5426-124 del 10 de setiembre del 2024)

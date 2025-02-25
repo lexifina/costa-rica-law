@@ -1,1 +1,0 @@
-Artículo 9°-Del incumplimiento de requisitos. Los revisores de las Áreas de Servicios Administrativos y Tesorería devolverán el pago que incumpla con los lineamientos y requisitos establecidos en el presente reglamento y en las directrices emitidas.
