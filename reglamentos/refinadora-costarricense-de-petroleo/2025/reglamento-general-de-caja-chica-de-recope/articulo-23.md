@@ -1,0 +1,10 @@
+Artículo 23.-De las responsabilidades de las personas solicitantes en las liquidaciones de caja chica.
+Las personas solicitantes serán responsables de:
+a) Verificar que la compra de los bienes y servicios hayan sido recibidos a satisfacción y cumplan en cuanto a precio y calidad.
+b) No aprobarse a sí mismo los bienes o servicios contratados según lo estipulado en la Ley General de Control interno.
+c) Gestionar para la compra de bienes y servicios al menos tres cotizaciones, salvo cuando el costo total de los bienes o servicios sea inferior al 14% del monto asignado a nivel de Jefatura de Unidad, según lo indicado en el Artículo 5. En caso de no disponer de las tres cotizaciones, se deberá realizar la justificación en el "Formulario para la Compra Excepcionada por Caja Chica", que deberá ser firmado por el Presidente(a), Gerente(a) General, Gerente(a) de Dirección, Auditor(a) General y Subauditor(a) General, Directores(as) de Departamento y Subauditores(as) de Área, según corresponda.
+Las cotizaciones deben ser de la misma naturaleza del bien o el servicio requerido. Se debe acreditar la razonabilidad de los precios y consignar la justificación de la oferta o cotización seleccionada.
+En todo caso, el análisis de las cotizaciones debe realizarse considerando el costo total, incluyendo el precio de adquisición, los impuestos asociados, los gastos de internamiento, cuando proceda, y cualquier otro gasto que forma parte del bien o servicio.
+Las cotizaciones deben quedar respaldadas con documentos e imágenes y éstas deben tener una vigencia no mayor a un mes e incorporarse como soporte al pago. No se aceptan cotizaciones justificadas en llamadas telefónicas.
+d) Tramitar el pago de la compra de los bienes y servicios con la persona encargada de realizar el registro.
+e) Verificar, de previo a cualquier adquisición, si el bien o servicio está incorporado dentro de los Convenios Marco a los que RECOPE se ha adherido y la fecha de entrega de éstos permite satisfacer la necesidad empresarial en tiempo y forma; caso contrario, en el campo de observaciones de la liquidación de caja chica en el sistema SIG-SAP deberá quedar consignado.

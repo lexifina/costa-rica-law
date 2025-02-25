@@ -1,0 +1,2 @@
+Artículo 3°-Del cumplimiento.
+Las personas trabajadoras y el personal con cargo de Titular Subordinado, que realicen trámites de Caja Chica, deberán cumplir con las disposiciones de este Reglamento; por su parte, las personas trabajadoras de la Unidad de Servicios Administrativos, que realizan trámites de compras por combustibles, y de la Unidad de Tesorería, que realizan trámites de caja chica, serán encargados de velar por el cumplimiento del presente reglamento.
