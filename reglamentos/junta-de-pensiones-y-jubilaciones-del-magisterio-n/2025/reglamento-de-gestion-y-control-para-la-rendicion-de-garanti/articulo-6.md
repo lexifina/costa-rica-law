@@ -1,0 +1,3 @@
+Artículo 6. Presentación y vigencia de póliza:
+La vigencia de las garantías se sujeta siempre al período durante el cual subsista la obligación de rendirla, y debe mantenerse por el lapso de prescripción civil o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios, según referencia expresa del artículo 120 de la Ley No. 8131.
+La obligación de velar por la vigencia de la garantía es exclusiva del trabajador o miembro de Junta Directiva obligado a rendirla, sin perjuicio de la colaboración que al respecto puedan brindar las dependencias de JUPEMA. Además, es responsable de entregar al Departamento de Gestión de Talento Humano un comprobante de la suscripción de la garantía.

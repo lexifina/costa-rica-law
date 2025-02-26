@@ -1,0 +1,6 @@
+JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
+REGLAMENTO GESTIÓN Y CONTROL PARA LA RENDICIÓN DE
+GARANTÍAS O CAUCIONES
+De conformidad con lo dispuesto por la Junta Directiva en la Sesión Ordinaria No. 003-2025 de fecha 17 de enero de 2025 y en la Sesión Ordinaria No. 008-2025 de fecha 24 de enero de 2025, se aprueban las siguientes modificaciones a los apartados y artículos del Reglamento Gestión y Control para la Rendición de Garantías o Cauciones, para que se lean de la siguiente manera:
+1. PROPÓSITO (Artículo 1)
+Regular las disposiciones atinentes a la rendición de las garantías o cauciones que deben presentar obligatoriamente todos aquellos trabajadores y miembros de Junta Directiva que administren, recauden y custodien fondos o valores, o que, por la naturaleza de sus funciones y responsabilidades, deban caucionar para asegurar el correcto cumplimiento de sus deberes y obligaciones conforme la ley No. 7531 del 13 de julio de 1995, el Reglamento de Organización y Funcionamiento de JUPEMA, así como la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131, la circular n° R-CO-10-07 y las Normas de Control Interno para el Sector Público emitidas por la Contraloría General de la República.
