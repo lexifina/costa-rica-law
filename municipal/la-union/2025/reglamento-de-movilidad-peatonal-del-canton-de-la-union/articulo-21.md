@@ -1,0 +1,4 @@
+Artículo 21- Material. En la construcción de aceras se usará únicamente con acabado antideslizante: a. Concreto cepillado y martelinado.
+b. Adoquín en forma rectangular con seis centímetros (6 cm) de espesor como mínimo y de color gris.
+c. Losetas prefabricadas de cemento.
+d. Losetas podotáctiles El uso de adoquín será obligatorio en aquellas zonas cuando por conveniencia de la Municipalidad así fuese requerido. El adoquín podrá ser simulado mediante la técnica del concreto estampado. En ninguna circunstancia se permitirá la construcción de aceras con cerámica. Las losas de concreto se realizarán en paños de un metro cincuenta centímetros (1,50 m) a dos metros (2,00 m) de largo. Las juntas entre los paños se deberán hacer de una profundidad entre tres a cuatro centímetros (3 cm a 4 cm) y un ancho de seis a ocho milímetros (6 mm a 8 mm). La resistencia del concreto deberá ser de 21 MPa a los 28 días (210 kg/cm2).

@@ -1,0 +1,1 @@
+Artículo 72- Coordinación con Patentes. Para validar la autorización, la Dirección de Infraestructura y Servicios emitirá un oficio al departamento de Patentes donde se indican los alcances del uso del espacio, y consultando el estado de la patente comercial.

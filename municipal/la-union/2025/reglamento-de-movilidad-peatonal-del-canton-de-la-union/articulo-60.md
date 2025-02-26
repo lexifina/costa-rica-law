@@ -1,0 +1,1 @@
+Artículo 60- Reincidencia. En caso de reincidencia será castigado con una sanción equivalente de un salario base del auxiliar 1 definido en 2 de la Ley No. 7337, denominada Crea Concepto Salario Base para Delitos Especiales del Código Penal, al propietario registral, cargando la multa a la facturación de los tributos municipales.

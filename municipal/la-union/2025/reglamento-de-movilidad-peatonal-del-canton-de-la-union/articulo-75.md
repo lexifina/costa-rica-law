@@ -1,0 +1,1 @@
+Artículo 75- Limitaciones del permiso. Esta autorización solamente permitirá la colocación de mesas, sillas y otro mobiliario liviano de apoyo a la actividad. Todo mobiliario deberá ser retirado diariamente al finalizar la actividad comercial conforme al artículo 2 de la Ley de Comercio al Aire Libre, No. 10126. Capítulo XIII. Disposiciones finales.

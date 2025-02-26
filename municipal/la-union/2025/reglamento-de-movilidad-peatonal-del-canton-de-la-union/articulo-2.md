@@ -1,0 +1,1 @@
+Artículo 2- Alcance. El presente reglamento es de acatamiento obligatorio para todas las personas, físicas o jurídicas, públicas o privadas, propietarias y/o poseedoras por cualquier título, de bienes inmuebles ubicados en el cantón de La Unión.

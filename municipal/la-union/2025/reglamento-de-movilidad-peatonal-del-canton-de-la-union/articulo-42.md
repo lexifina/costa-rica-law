@@ -1,0 +1,1 @@
+Artículo 42- Señales y salientes. Toda señal u objeto saliente colocado en la acera deberá estar a una altura mínima de dos metros y cincuenta centímetros (2,50 m) y no deberá entorpecer el paso del peatón, ni deberá sobrepasar la distancia transversal del ancho del cordón y caño.

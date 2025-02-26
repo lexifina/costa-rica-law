@@ -1,0 +1,1 @@
+Artículo 43- Otros elementos de mobiliario urbano. Cualquier elemento urbano que se desee colocar, como postes, hidrantes, torres de telefonía, arbustos o cualquier otro, se deberá colocar en la franja de mobiliario respetando y dejando la franja caminable libre de obstáculos.

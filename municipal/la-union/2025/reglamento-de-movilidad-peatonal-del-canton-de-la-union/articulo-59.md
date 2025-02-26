@@ -1,0 +1,2 @@
+Capítulo IX. Sanciones.
+Artículo 59- Alteraciones o modificaciones. Por cualquier alteración o modificación de las aceras o vías peatonales en cuanto a geometría, anchos, niveles, acabados y materiales, sin previa autorización, la corporación municipal impondrá una sanción al propietario y/o poseedor equivalente de medio salario base del auxiliar 1 definido en el 2 de la Ley No. 7337, denominada Crea Concepto Salario Base para Delitos Especiales del Código Penal, al propietario registral, cargando la multa a la facturación de los tributos municipales.

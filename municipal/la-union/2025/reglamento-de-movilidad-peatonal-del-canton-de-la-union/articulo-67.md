@@ -1,0 +1,1 @@
+Artículo 67- Uso del espacio público La Dirección de Infraestructura y Servicios determinará, respetando el ancho mínimo de circulación, el permiso de uso espacial del espacio público para diferentes tipos de actividades.

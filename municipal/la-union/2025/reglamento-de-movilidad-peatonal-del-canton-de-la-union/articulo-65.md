@@ -1,0 +1,1 @@
+Artículo 65- Recargo por morosidad. En caso de que el pago se realice fuera del término establecido, generará el cobro de los intereses, el cual será fijado según lo dispuesto en Código Municipal y el Código de Normas y Procedimientos Tributarios.

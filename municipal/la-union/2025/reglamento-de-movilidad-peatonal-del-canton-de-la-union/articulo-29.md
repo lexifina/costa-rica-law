@@ -1,0 +1,1 @@
+Artículo 29- Sobre las gradas. No se permiten las gradas en las aceras, sin embargo, en los casos de calles con pendiente mayor a veinticinco por ciento (25%), estas pueden permitirse, previo diseño y autorización por parte de la Dirección de Infraestructura y Servicios.

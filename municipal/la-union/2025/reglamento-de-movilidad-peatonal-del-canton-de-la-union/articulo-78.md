@@ -1,0 +1,2 @@
+Capítulo XIV. Disposiciones derogatorias y vigencia.
+Artículo 78- Derogatoria. Se deroga la Sección I del Capitulo V del Reglamento a los artículos 84,85,85 BIS y 85 TER Del Concejo Municipal para el cobro del costo efectivo, intereses y multas por omisión en los deberes de los propietarios y/o poseedores por cualquier título de bienes inmuebles para el Cantón de La Unión, en cuanto a la construcción de aceras ,consignando en los artículos comprendidos entre el 18 y 33 inclusive.

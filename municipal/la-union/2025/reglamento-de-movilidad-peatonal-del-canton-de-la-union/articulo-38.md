@@ -1,0 +1,1 @@
+Artículo 38- Diseño. En caso de que el propietario desee colocar el elemento, sólo se aceptarán solicitudes, que cuenten con un diseño avalado y normado para la protección de los peatones y infraestructura pública.

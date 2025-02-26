@@ -1,0 +1,10 @@
+Sección IV. Infraestructura verde y señalética.
+Artículo 41- Sobre las franjas verdes Para la construcción de franjas verdes, se deben observar los siguientes detalles.
+a. Las franjas verdes sólo se permitirán en aceras con un ancho igual o superior a un metro y veinte centímetros (1,20 m). Para el diseño y dimensionamiento deberá consultarse a la Dirección de Infraestructura y Servicios.
+b. La Municipalidad y el Ministerio de Obras Públicas y Transportes (MOPT) y sus consejos definirán los sectores que contarán con la franja de mobiliario.
+c. Las áreas verdes tendrán preferiblemente una dimensión mínima de treinta centímetros (30 cm) de ancho.
+d. La infraestructura verde como árboles o arbustos deben ser revisadas antes de su colocación con el fin de asegurar que no afecten la transitabilidad, la seguridad ciudadana y seguridad vial. Para ello, se podrá solicitar apoyo a la Unidad Ambiental o las guías que se cuentan para estos efectos. La infraestructura verde, como árboles o arbustos, deberán ajustarse a las pautas establecidas en el "Protocolo de plantación de árboles y plantas en aceras", elaborado por la Unidad Ambiental y disponible en el sitio web municipal. En este documento se detallan las especies y especificaciones necesarias. Además, se requerirá cumplir con lo establecido en esta materia por el Reglamento de Desarrollo Sostenible del Plan Regulador de La Unión.
+e. No se permiten especies con espinas o similar que puedan afectar la salud y seguridad del tránsito peatonal.
+f. Cuando las dimensiones lo permitan y no se afecte la franja caminable se podrán construir en las aceras alcorques.
+g. Cuando por las condiciones geométricas y topográficas, se requiera salvaguardar la integridad de terrenos se podrán construir obras de protección en las zonas verdes siempre y cuando no se afecte el tránsito peatonal. Toda obra que se realice debe contar con el permiso de construcción correspondiente y la aprobación de la Municipalidad.
+h. Las áreas verdes no se utilizarán para otros fines, como el de parqueo de automóviles tal y como lo describe la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, No. 9078.

@@ -1,0 +1,13 @@
+Artículo 5- Obligaciones de la Municipalidad. Es obligación de la corporación municipal garantizar el derecho a una movilidad inclusiva, de forma integral en todos los entornos físicos, atendiendo el principio de igualdad, para ello se han definido las siguientes responsabilidades:
+a. Diseñar, construir, conservar, señalar, demarcar, reconstruir, reforzar y concesionar aceras de la red vial municipal, así como todos aquellos componentes de infraestructura peatonal necesaria para asegurar una movilidad inclusiva y accesible, incluyendo además infraestructura verde e iluminación, entre otros.
+b. Asegurar la movilidad peatonal segura e inclusiva en todas las obras nuevas de mejoramiento de la red vial cantonal.
+c. Garantizar que cualquier obra o tipo de colocación de mobiliario que se realice en zonas destinadas a la movilidad peatonal, tanto en vías nacionales como cantonales cuente con la debida aprobación. d. Establecer un mecanismo de financiamiento mediante el diseño de una tasa que, de sustento económico al servicio de mantenimiento, rehabilitación y construcción de las aceras, según los términos descritos en el Código Municipal.
+e. Realizar el cobro de las obras nuevas ejecutadas, cuando el estado de deterioro de las aceras así lo requiera, así como cuando se realicen sin autorización por parte del propietario y/o poseedor alteraciones o modificaciones de las aceras o vías peatonales en cuanto a geometría, anchos, niveles, acabados y materiales.
+f. Diseñar mecanismos que definan facilidades de pago respecto al cobro efectivo de las obras nuevas de aceras, producto del deterioro o de modificación o alteraciones a las mismas.
+g. Incorporar en el Plan Quinquenal, el mantenimiento de la red vial cantonal y, en sus planes anuales operativos, las propuestas técnicas, debidamente fundamentadas, que mejoren las condiciones de seguridad vial para los peatones.
+h. Colocar dispositivos necesarios que garanticen la seguridad de los ciudadanos y la protección de la infraestructura pública, respetando los anchos mínimos de circulación.
+i. Eliminar cualquier obstáculo existente en las aceras o vías peatonales que interrumpan la movilidad de los transeúntes.
+j. Elaborar y realizar revisiones periódicas al Plan Movilidad Sostenible.
+k. Realizar inspecciones periódicamente de las vías peatonales del cantón, con el fin de verificar su estado, para efectos de mantenimiento y determinar su grado de deterioro. l. Podrá adquirir y dar en arrendamiento equipos adecuados para el depósito
+temporal de materiales de construcción en las aceras.
+m. Determinar, respetando el ancho mínimo de circulación, el permiso de uso espacial del espacio público para actividades.

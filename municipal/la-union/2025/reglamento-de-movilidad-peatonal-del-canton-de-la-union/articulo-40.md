@@ -1,0 +1,1 @@
+Artículo 40- Resultado de solicitud. En caso de que la solicitud se acepte la colocación, estos elementos deben ser contrastantes al color del pavimento y contar con dispositivos reflectivos cuando sean elementos inertes.

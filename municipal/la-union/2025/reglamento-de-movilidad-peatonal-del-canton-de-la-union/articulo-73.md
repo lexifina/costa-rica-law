@@ -1,0 +1,1 @@
+Artículo 73- Análisis. Revisada técnicamente si se acepta o no uso del espacio público, se dará respuesta al interesado a través de la Plataforma de Servicios de la Municipalidad o el medio de notificaciones indicado por la persona interesada y se incluirá en el programa de ejecución de obras de la institución de acuerdo al Plan de Movilidad Urbana Sostenible de la Municipalidad.
