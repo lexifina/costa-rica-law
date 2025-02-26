@@ -1,1 +1,0 @@
-Artículo 16.-Conflictos de interés del Ejecutor. El Ejecutor o Sujeto privado deberá abstenerse de cualquier situación que le pueda generar conflictos de interés entre beneficiarios de los programas y proyectos a su cargo, de sus colaboradores o subcontratistas.

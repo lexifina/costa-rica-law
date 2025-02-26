@@ -1,3 +1,0 @@
-CAPÍTULO V
-De la modalidad 3
-Artículo 8°-De la modalidad 3. El Consejo Rector del Sistema de Banca para el Desarrollo, así como la Secretaría Técnica del SBD, podrán autorizar transferencias de beneficios patrimoniales a sujetos privados, sin que exista contraprestación de bienes, servicios o derechos a favor del propio FONADE o la Secretaría Técnica del SBD, en cuyo caso el sujeto privado deberá ser un sujeto beneficiario de la Ley 8634 y sus reformas o que la transferencia vaya a dar un beneficio directo a un sujeto beneficiario de la Ley 8634 y sus reformas. Estas transferencias serán realizadas en el marco del objeto del presente lineamiento y se regirán por lo dispuesto por la Contraloría General de la República.

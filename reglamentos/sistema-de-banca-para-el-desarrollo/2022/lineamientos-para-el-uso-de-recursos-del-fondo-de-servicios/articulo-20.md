@@ -1,2 +1,0 @@
-Artículo 20.-De las Auditorías. La Secretaría Técnica, o quien ésta disponga, podrá contratar auditorías o realizar visitas de seguimiento y verificación en sitio, de la información y la ejecución del contrato.
-El Ejecutor no deberá impedir las labores que lleven a cabo las auditorías ni los funcionarios de la Secretaría Técnica, así como a facilitar toda la información que se le requiera para llevar a cabo las funciones señaladas.
