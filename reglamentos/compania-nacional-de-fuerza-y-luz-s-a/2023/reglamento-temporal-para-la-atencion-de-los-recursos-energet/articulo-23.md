@@ -1,6 +1,0 @@
-Artículo 23.-Firma del contrato e instalación del sistema de medición e interconexión. Una vez aprobada la inspección, la Sucursal respectiva procederá con la notificación (mediante oficio) del resultado y de los costos de interconexión para la firma del contrato, lo anterior en un plazo no mayor a 5 días hábiles posterior a la ejecución de la inspección. Se convocará para la firma del contrato de interconexión, la cual puede ser de manera física en la Sucursal respectiva o por medio de firma digital. En ambos casos se deberá cumplir con lo siguiente:
-a) Para la instalación del sistema de medición se deberá cancelar un monto de ?111 500 (con IVA incluido). Este monto no incluye el costo de los equipos de medición.
-b) Presentar la cédula de identidad o personería jurídica vigente (con no más de treinta días naturales de haberse emitido) según corresponda.
-c) En caso de que la firma del contrato la realice un tercero deberá presentar un poder especial autenticado.
-d) Presentar la boleta del CFIA de la persona profesional responsable.
-e) La firma del contrato de interconexión debe realizarse como mínimo 10 días antes de la fecha de lectura del medidor, día en que debe instalarse los sistemas de medición.

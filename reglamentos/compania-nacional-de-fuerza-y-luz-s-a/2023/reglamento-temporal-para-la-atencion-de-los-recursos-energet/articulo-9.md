@@ -1,1 +1,0 @@
-Artículo 9º-Excedentes de energía. La CNFL registrará los excedentes de energía, sin embargo, hasta tanto no se publiquen las tarifas correspondientes, no se reconocerá un valor económico a los excedentes.

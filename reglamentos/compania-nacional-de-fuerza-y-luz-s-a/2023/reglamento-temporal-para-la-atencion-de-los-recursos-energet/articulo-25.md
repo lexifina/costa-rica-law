@@ -1,1 +1,0 @@
-Artículo 25.-Naturaleza accesoria del contrato de interconexión. El contrato de interconexión es de naturaleza accesoria al contrato de suministro eléctrico que existe entre la persona propietaria del servicio y la CNFL, por lo que la finalización del contrato de interconexión o su incumplimiento, no afecta la validez y vigencia del contrato principal.

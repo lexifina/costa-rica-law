@@ -1,1 +1,0 @@
-Artículo 18. Previo a la solicitud de disponibilidad de potencia en circuito. Antes de presentar una solicitud de disponibilidad de potencia la persona interesada debe verificar que el circuito al que se interconectará el DER no haya alcanzado su capacidad de penetración, publicada en el portal Web de la CNFL. Además, el servicio no debe contar con medición totalizada.

@@ -1,1 +1,0 @@
-Artículo 2º-Alcance. Este reglamento aplica a las personas abonadas que deseen instalar recursos energéticos distribuidos para autoconsumo conectadas al sistema de distribución de la CNFL en las modalidades de operación con entrega de excedentes a la red y operación sin entrega de excedentes a la red.
