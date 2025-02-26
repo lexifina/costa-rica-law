@@ -1,0 +1,4 @@
+Artículo 20. Liquidación de gastos y adquisición de activos
+Las liquidaciones de gastos deberán presentarse conforme lo establecido en cada convenio entre el Ejecutor y la Secretaría Técnica. Esta liquidación deberá incluir los comprobantes de las erogaciones realizadas o evidencias que correspondan, formalmente liquidadas por el representante legal del ejecutor ante la instancia que establezca la Secretaría Técnica.
+Asimismo, tanto para la liquidación de gastos como para los mecanismos de adquisición de activos con recursos del Fondo de Servicios no Financieros y de Desarrollo Empresarial, la Secretaría Técnica podrá dictar los requerimientos específicos.
+Las condiciones sobre la propiedad intelectual (derechos de autor, invenciones, patentes, etc.) aplica lo que establezca el Ejecutor, supletoriamente en los ámbitos no contemplados aplicarían los lineamientos establecidos por la Secretaría Técnica del SBD.

@@ -1,0 +1,2 @@
+Artículo 14. Renovación de la acreditación de los Ejecutores de Servicios de Desarrollo Empresaria
+Siempre que la Acreditación se mantenga vigente, el Ejecutor podrá solicitar la renovación de la acreditación antes de su vencimiento, demostrando su idoneidad. corresponderá a la Secretaría Técnica vía procedimiento, realizar el proceso de renovación de la Acreditación de los Ejecutores de Servicios de Desarrollo Empresarial, donde se verifique que se mantienen las condiciones de idoneidad cumpliendo con lo que establece el presente Reglamento.

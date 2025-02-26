@@ -1,0 +1,2 @@
+Artículo 24. Evaluación de los Programas y Proyectos de Servicios de Desarrollo Empresarial
+Los programas y proyectos que utilicen el Fondo de Servicios de Desarrollo Empresarial deberán considerar mecanismos de evaluación, así como las previsiones necesarias para verificar el cumplimiento los objetivos y propósitos de las intervenciones. Adicionalmente, la Secretaría Técnica determinará según su planificación y pertinencia, el desarrollo de evaluaciones de impacto sobre estas iniciativas, programas o Ejecutores de Servicios de Desarrollo Empresarial.

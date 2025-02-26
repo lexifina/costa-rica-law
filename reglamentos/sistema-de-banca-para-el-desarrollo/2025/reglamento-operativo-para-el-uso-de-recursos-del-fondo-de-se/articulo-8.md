@@ -1,0 +1,3 @@
+Artículo 8. Operativa de los Programas o Proyecto bajo la Modalidad 1
+El Consejo Rector podrá aprobar Programas o Proyectos que usen recursos del Fondo de Servicios de Desarrollo Empresarial del FONADE propuestos por la Secretaría Técnica y acordes con sus planes, directrices o políticas, para que sean ejecutados mediante la contraprestación de servicios por parte de un tercero.
+La Secretaría Técnica será la responsable de realizar los procesos de contratación de dichos servicios, en estricto apego a la Ley General de Contratación Pública, así como los lineamientos y procedimientos derivados de la normativa vigente.

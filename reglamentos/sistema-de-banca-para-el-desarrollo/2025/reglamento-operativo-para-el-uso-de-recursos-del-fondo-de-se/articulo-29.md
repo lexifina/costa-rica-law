@@ -1,0 +1,2 @@
+Artículo 29. Transitorio
+Todos los Programas o Proyectos aprobados y formalizados con Ejecutores de Servicios de Desarrollo Empresarial previamente a la publicación de este Reglamento mantendrán las condiciones originalmente pactadas hasta la finalización de sus plazos contractuales. La aprobación de nuevos Programas o Proyectos que utilicen el Fondo de Servicios no Financieros y de Desarrollo Empresarial, estarán obligadas a apegarse a este Reglamento y volver a realizar el proceso de acreditación si corresponde.

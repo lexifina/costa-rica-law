@@ -1,0 +1,2 @@
+Artículo 15. Asignación de recursos para servicios no financieros o desarrollo empresarial bajo la Modalidad 2
+La Secretaría Técnica realizará las valoraciones respecto a las propuestas de proyectos que requieren líneas de recursos de servicios de desarrollo empresarial. Le corresponderá al Comité de Activos y Pasivos como instancia técnica, la aprobación de las líneas de recursos específicas por Programa o Proyecto, siempre que esté dentro de las condiciones y parámetros autorizados por el Consejo Rector en sus planes y líneas estratégicas.

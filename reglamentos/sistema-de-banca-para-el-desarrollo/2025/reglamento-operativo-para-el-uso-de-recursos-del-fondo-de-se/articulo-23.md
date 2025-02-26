@@ -1,0 +1,2 @@
+Artículo 23. Potestad de emplear medidas cautelares
+La Secretaría Técnica tendrá la potestad, cautelarmente, de ordenar la suspensión del Programa o Proyecto, mediante resolución razonada, en caso de presentarse situaciones que hagan prever un posible incumplimiento grave por parte del Ejecutor. En ese caso, la Secretaría Técnica deberá proceder ante el Consejo Rector para que este órgano adopte los actos que considere convenientes.
