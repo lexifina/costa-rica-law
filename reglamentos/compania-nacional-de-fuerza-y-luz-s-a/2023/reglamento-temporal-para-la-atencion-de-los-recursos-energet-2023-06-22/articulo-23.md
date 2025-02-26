@@ -1,9 +1,0 @@
-Artículo 23.-Inspección y reinspección. Una vez que se finalice la construcción del sistema de generación y dentro del plazo de vigencia de la disponibilidad de potencia, la persona interesada deberá solicitar a la CNFL la inspección.
-La CNFL revisará el sistema de generación distribuida para verificar que cumple las normas técnicas para la operación en paralelo con el sistema de distribución eléctrica. Para esto se debe considerar que:
-a) Previo a la inspección, la persona interesada deberá cancelar el monto establecido, el cual es ¢278.795 (con IVA incluido).
-b) En caso de que la inspección resulte en un rechazo, se deberá atender las correcciones que corresponda y gestionar una reinspección, la cual tiene un costo de ¢139.395 (con IVA incluido).
-c) Tanto los ajustes requeridos como la reinspección deberán realizarse dentro del plazo de vigencia de la disponibilidad de potencia del circuito.
-d) En caso de que se requiera alguna modificación a la red de distribución o interconexión de comunicación del sistema de generación con la CNFL, previo a la solicitud de inspección, el PDER deberá cumplir con esos requisitos.
-e) Una vez verificados los documentos con la información técnica respectiva y realizada la inspección del proyecto, de no encontrarse inconvenientes técnicos o cambios en la capacidad o características de los equipos, se aprobará el sistema de generación.
-f) De existir cambios en las especificaciones o modelos de los equipos o una variación de la capacidad del proyecto, de acuerdo con lo aprobado en la solicitud de disponibilidad de potencia en circuito, se desestimará la solicitud y se deberá realizar una nueva solicitud de disponibilidad de potencia en circuito.
-g) La CNFL tendrá un plazo de 15 días hábiles para realizar la verificación de los requisitos y la inspección.
