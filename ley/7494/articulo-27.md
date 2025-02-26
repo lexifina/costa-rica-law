@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 5944 del 26 de febrero del 2025, se acordó adicionar la sentencia de la Sala Constitucional N° 022483 del 7 de agosto de 2024, de forma que en el dimensionamiento de los efectos de la declaratoria de inconstitucionalidad contenida en ese fallo, se agregue que también recobra vigencia el artículo 27 de la Ley de Contratación Administrativa, Ley N°7494, específicamente, en relación con el artículo 22 de la Ley N°8660, de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones. Dado lo anterior este numeral recobra su vigencia.)
 CAPITULO VI
 Procedimientos de contratación
 Sección primera
