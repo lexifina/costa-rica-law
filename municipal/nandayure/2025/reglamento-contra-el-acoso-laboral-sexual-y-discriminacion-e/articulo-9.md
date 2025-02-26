@@ -1,0 +1,1 @@
+Artículo 9. Garantía del denunciante y testigos. Ninguna persona que denuncie una situación de acoso laboral o discriminación, o que comparezca como testigo en dichos casos, podrá sufrir perjuicio personal alguno en su relación laboral con la Municipalidad de Nandayure.

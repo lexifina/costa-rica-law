@@ -1,0 +1,8 @@
+Artículo 3. Ámbito de exclusión. No se considerará como acoso o discriminación para efectos del presente reglamento, las siguientes situaciones:
+a. Ejercicio legítimo de la autoridad. Las actuaciones de supervisión, dirección, evaluación o disciplina realizadas por los superiores jerárquicos, siempre que se ejecuten con objetividad, proporcionalidad y conforme a la normativa aplicable.
+b. Conflictos laborales puntuales. Las discrepancias, discusiones o diferencias de opinión que surjan de forma aislada en el entorno laboral, siempre que no sean sistemáticas ni tengan como objetivo menoscabar la dignidad de una persona.
+c. Interacciones propias del entorno laboral. Los saludos, comentarios generales, bromas ocasionales o manifestaciones de cortesía que sean razonables y respetuosas, y que no incluyan elementos ofensivos, denigrantes o discriminatorios.
+d. Evaluación del desempeño. La valoración de las funciones o resultados de una persona trabajadora, incluyendo la retroalimentación, siempre que se realice de manera fundamentada, respetuosa y dentro de las políticas de la Municipalidad.
+e. Medidas disciplinarias justificadas. Las sanciones o amonestaciones que se apliquen conforme a los procedimientos establecidos, cuando estén debidamente fundamentadas y se implementen de manera proporcional y respetuosa.
+f. Exigencias laborales razonables. Las demandas relacionadas con los plazos, objetivos o resultados inherentes al puesto, siempre que estas sean razonables y no constituyan abuso de autoridad ni hostigamiento.
+g. Cumplimiento normativo. Las acciones orientadas a garantizar el cumplimiento de las normas, políticas internas o leyes aplicables, realizadas de manera justa, respetuosa y sin ánimo de perjudicar a las personas involucradas.
