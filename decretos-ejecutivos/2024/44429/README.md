@@ -16,3 +16,4 @@ Integración de la Junta Directiva del Patronato Nacional de Ciegos
 | 1 | 2024-04-12 | la propia norma |
 | 2 | 2024-08-08 | Decreto Ejecutivo 44619 (2024-08-08) |
 | 3 | 2024-11-07 | Decreto Ejecutivo 44811 (2024-11-07) |
+| 4 | 2025-02-26 | Decreto Ejecutivo 44934 (2025-02-26) |

@@ -18,7 +18,7 @@ Artículo 1° - Integrar la Junta Directiva del Patronato Nacional de Ciegos con
 . Abel Augusto Valerio Gómez, cédula de identidad 4 0213 0426, representante de las Organizaciones de personas con discapacidad visual.
 - Marcela María Jiménez Villa, portadora de la cédula de identidad 1-0920-0460, representante del Ministerio de Trabajo y Seguridad Social (MTSS).
 (Así reformado el nombramiento anterior por los artículos 1 y 2 del decreto ejecutivo N° 44811 del 7 de noviembre de 2024)
-. Carlos Roberto Cob Delgado, cédula de identidad N° 1-1128-0922 , representante de la Caja Costarricense de Seguro Social (CCSS)
-(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 44619 del 8 de agosto del 2024. Asimismo por el artículo 1° del decreto ejecutivo antes mencionado, se ordenó cesar al José Miguel Angulo Castro, cédula de identidad 1 0530 0008, como representante de la Caja Costarricense de Seguro Social (CCSS))
+. Marcela Carrillo Chavarría, cédula de identidad: 1-1190-0897, representante de la Caja Costarricense de Seguro Social (CCSS)
+(Así reformado el nombramiento anterior por el artículo 2° del decreto ejecutivo N° 44934 del 26 de febrero de 2025. Asimismo, por el artículo 1° del decreto ejecutivo antes mencionado, se ordenó cesar al señor Carlos Roberto Cob Delgado, cédula de identidad N° 1-1128-0922, como miembro de la Junta Directiva del Patronato Nacional de Ciegos, en representación de la Caja Costarricense de Seguro Social)
 . Johana Andrea Sánchez Guerrero, cédula de identidad 7 0209 0053, representante de las Organizaciones de personas con discapacidad visual.
 . Gabriel Andrés Rodríguez Vargas, cédula de identidad 1 1356 0050, representante del Colegio de Médicos y Cirujanos de Costa Rica.
