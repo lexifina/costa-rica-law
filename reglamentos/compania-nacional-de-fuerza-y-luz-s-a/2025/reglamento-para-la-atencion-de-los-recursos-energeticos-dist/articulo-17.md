@@ -1,0 +1,2 @@
+Artículo 17.-Diseño del sistema de monitoreo y control del DER
+Para sistemas que requieren comunicación con el SCADA del Centro de Control de la CNFL se deberá remitir para su aprobación el diseño del sistema de monitoreo y control del DER, el cual deberá cumplir con lo indicado en el artículo 15 incisos a y b. Adicionalmente, previo a la inspección la persona abonada deberá enviar el mapeo completo de las señales, indicar el número de la IP pública y el o los puertos asignados, con el fin de configurar los accesos a la red de la CNFL.

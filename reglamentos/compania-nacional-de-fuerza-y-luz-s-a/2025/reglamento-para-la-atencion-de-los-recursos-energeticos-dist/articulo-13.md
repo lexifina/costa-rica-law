@@ -1,0 +1,2 @@
+Artículo 13.-Previo a la solicitud de interconexión y estudios de ingeniería e inspección inicial
+Antes de presentar una solicitud de interconexión y estudios de ingeniería e inspección inicial la persona interesada debe verificar que el circuito al que se interconectará el DER no haya alcanzado su capacidad de penetración, publicada en el portal web de la CNFL. Además, el servicio no debe contar con medición totalizada.

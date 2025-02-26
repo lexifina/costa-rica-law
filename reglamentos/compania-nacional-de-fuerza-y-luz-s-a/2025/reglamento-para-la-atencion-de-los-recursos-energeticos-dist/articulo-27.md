@@ -1,0 +1,2 @@
+Artículo 27.-Formulario F-070 Adenda al Contrato para el suministro de energía eléctrica por interconexión DER de la persona física o jurídica propietaria de un DER sin entrega de excedentes
+La persona física o jurídica propietaria de un DER con operación sin entrega de excedentes que no cuenten con un contrato de interconexión, deberá suscribirlo según se establece en el artículo 127 de la Norma AR-NT-SUCOM. Para esto, tendrán un plazo máximo de tres meses a partir de la entrada en vigor de este reglamento.
