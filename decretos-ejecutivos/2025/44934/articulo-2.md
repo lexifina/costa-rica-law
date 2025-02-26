@@ -1,0 +1,1 @@
+Artículo 2°-Nombrar a la señora Marcela Carrillo Chavarría, cédula de identidad: 1-1190-0897, como representante de la Caja Costarricense de Seguro Social ante la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
