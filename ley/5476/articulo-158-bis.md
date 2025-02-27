@@ -6,4 +6,6 @@ d) La ebriedad habitual, el uso indebido de drogas u otras sustancias estupefaci
 e) La dureza excesiva en el trato o las órdenes, los consejos, las insinuaciones o los ejemplos corruptores que los padres dieran a sus hijos.
 f) La negativa de los padres a dar alimentos a sus hijos, el dedicarlos a la mendicidad y permitir que deambulen en las calles.
 g) Incapacidad irreversible o ausencia declarada judicialmente.
+h) Mediante resolución judicial en firme que determine un caso de violencia vicaria; no obstante, la persona juzgadora determinará la pertinencia en función del caso concreto, la afectación a la persona menor de edad y la observancia de su interés superior.
+(Así adicionado el inciso anterior por el artículo 7° de la Ley contra la Violencia Vicaria, N° 10634 del 29 de enero del 2025)
 (Así adicionado por el artículo 3° punto I) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)

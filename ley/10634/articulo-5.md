@@ -1,0 +1,7 @@
+ARTÍCULO 5- Adiciónese un nuevo capítulo V al título II de la Ley 8589, Penalización de la Violencia Contra las Mujeres, de 25 de abril de 2007, y córrase la numeración. El texto es el siguiente:
+CAPÍTULO V
+Violencia vicaria
+Artículo 41- Se impondrá pena de prisión de veinte a treinta y cinco años, a quien dé muerte a un descendiente, ascendiente, pariente colateral consanguíneo, por afinidad o adopción hasta el tercer grado inclusive, dependiente económico, de la mujer con la que mantiene o mantuvo una relación de matrimonio, de unión de hecho o alguna relación sentimental, de acuerdo con el artículo 2 de la presente ley.
+Artículo 42- Se impondrá pena de prisión de uno a tres años a quien por cualquier medio golpee, maltrate física, psicológica o emocionalmente a un descendiente, ascendiente, pariente colateral consanguíneo, por afinidad o adopción hasta el tercer grado inclusive, dependiente económico, de la mujer con la que mantiene o mantuvo una relación de matrimonio, de unión de hecho o alguna relación sentimental, de acuerdo con el artículo 2 de la presente ley.
+Artículo 43- Si se maltratare o golpeare al animal o animales de compañía de la mujer con la que mantiene o mantuvo una relación de matrimonio, de unión de hecho o alguna relación sentimental, se impondrá la pena de prisión de uno a dos años.
+Si se le causare la muerte al animal o animales de compañía de la mujer con la que mantiene o mantuvo una relación de matrimonio, de unión de hecho o alguna relación sentimental, se impondrá la pena de prisión de dos a tres años.
