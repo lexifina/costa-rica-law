@@ -1,6 +1,6 @@
 # Ley de Penalización de la Violencia Contra las Mujeres
 
-Ley N° 8589 del 2007-04-25. SINALEVI, ficha 60183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=60183&param2=145022&param3=1>.
+Ley N° 8589 del 2007-04-25. SINALEVI, ficha 60183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=60183&param2=145029&param3=1>.
 
 Publicada en La Gaceta N° 103 del 2007-05-30.
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 11 | 2021-06-10 | Ley 9975 | 2021-05-14 |
 | 8 de 11 | 2021-08-23 | Ley 10022 | 2021-08-23 |
 | 9 de 11 | 2025-02-27 | Ley 10636 | 2025-01-29 |
+| 10 de 11 | 2025-02-27 | Ley 10634 | 2025-01-29 |
