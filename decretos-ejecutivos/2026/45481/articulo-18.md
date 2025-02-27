@@ -1,0 +1,2 @@
+Artículo 18.- Lectura y aprobación del acta. Previo a su aprobación, durante la sesión la persona secretaria procederá a dar lectura al acta de la sesión anterior. Una vez concluida la lectura, la persona presidenta podrá conceder la palabra a las personas integrantes de la Junta, por una vez.
+Posteriormente a la lectura, comentarios y aprobación del acta, la persona secretaria hará el resumen correspondiente al control de acuerdos.

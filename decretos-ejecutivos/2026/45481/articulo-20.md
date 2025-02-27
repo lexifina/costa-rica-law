@@ -1,0 +1,2 @@
+Artículo 20.- Acceso a documentos. Las personas integrantes de la Junta de Relaciones Laborales del Instituto sobre Alcoholismo y Farmacodependencia tendrán acceso a los documentos de naturaleza laboral relacionados con la persona trabajadora y el caso sometido a su consideración.
+Asimismo, las partes tendrán acceso al expediente principal que se encuentra en la Junta de Relaciones Laborales del Instituto sobre Alcoholismo y Farmacodependencia del Instituto sobre Alcoholismo y Farmacodependencia.

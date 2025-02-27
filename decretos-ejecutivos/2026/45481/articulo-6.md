@@ -1,0 +1,1 @@
+Artículo 6.- Ámbito de aplicación. La Junta de Relaciones Laborales del del Instituto sobre Alcoholismo y Farmacodependencia no tendrá competencia para resolver asuntos que pudiesen presentarle personas trabajadoras contratadas para actividades específicas y ocasionales, que no sean del giro normal en la institución.

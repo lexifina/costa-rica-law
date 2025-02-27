@@ -1,0 +1,1 @@
+Artículo 10.- Acuerdos. Los acuerdos que se tomen quedarán en firme en la misma sesión, en que sean tratados los temas de discusión, siempre y cuando así lo convenga la mayoría de los miembros de la Junta a la hora de la votación correspondiente.

@@ -1,0 +1,6 @@
+Artículo 5.- Competencia. La Junta de Relaciones Laborales del Instituto sobre Alcoholismo y Farmacodependencia es un organismo de carácter recomendativo, no vinculante en los asuntos que sean sometidos a su consideración.
+Son atribuciones de la Junta:
+a) A solicitud de la persona interesada intervenir de manera preventiva en los diferendos individuales y colectivos que se susciten entre la administración, direcciones, jefaturas y sus personas trabajadoras, promoviendo el mejoramiento de las relaciones obreropatronales.
+Los interesados deben agotar previamente las instancias administrativas correspondientes, antes de someter cualquier asunto al conocimiento de la Junta. No podrá intervenir la Junta de Relaciones Laborales del Instituto sobre Alcoholismo y Farmacodependencia del Instituto sobre Alcoholismo y Farmacodependencia en conflictos donde se denuncie acoso laboral y/o sexual.
+b) Recomendar en situaciones que se conozca modificación de jornada, horarios de trabajo y traslados, discriminación por razones de edad y/o género; a petición de la persona trabajadora afectada, debiendo pronunciarse dentro del plazo máximo de diez días hábiles.
+c) Asesorar a la Administración Superior, direcciones o jefaturas, en aquellos asuntos laborales que dichas autoridades juzguen conveniente.

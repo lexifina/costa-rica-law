@@ -1,0 +1,2 @@
+Artículo 22.- Sobre la Dirección General. La Junta de Relaciones Laborales del Instituto sobre Alcoholismo y Farmacodependencia comunicará a quien ostente la Dirección General el vencimiento del período de las personas integrantes nombradas por la persona Directora General, para que proceda a la prórroga o al nombramiento de sus nuevos representantes.
+La persona Directora General podrá remover o reemplazar a sus representantes cuando lo estime conveniente.
