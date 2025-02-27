@@ -1,55 +1,22 @@
-ANEXO 1
-Formulario de información general AI-01*
-Año fiscal: ___________________
-1) Nombre de la persona física o jurídica:
-___________________________________________________________
-___________________________________________________________
-2) N° cédula identidad o jurídica: ________________________________
-3) Teléfono: __________ Fax: ____________Apdo. Postal: ___________
-E-mail:_____________________________________________________
-4) Dirección exacta de la finca (provincia, cantón, distrito):
-___________________________________________________________
-___________________________________________________________
-5) Composición familiar, tiempo dedicado a la actividad orgánica y aporte económico en el año fiscal
-Nombre y parentesco | Edad años | Tiempo en %, trabajado durante el año | Aporte económico anual (colones)
-| | |
-| | |
-| | |
-| | |
-| | |
-| | |
-| | |
-| | |
-| | |
-Totales | | |
-6) Pertenece a un Grupo de Productores Organizados: Si___ No___
-Nombre del GPO:_____________________________________________
-___________________________________________________________
-Actividad agropecuaria orgánica anual
-Actividad | Certificada | Transición | Total área | Ingreso bruto
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-Totales | | | |
-Área de la unidad: cultivos___________m2 Construcciones_________ m2
-Otros ____________ m2 - total: ______________________________ m2
-7) Destino de los productos: Mercado nacional___ Exportación ________
-8) Personal promedio empleado durante el último año fiscal ___ personas
-9) Unidad certificada o en transición, indicar: la(s) Agencia(s) Certificadora(s) ó el Sistema de Certificación Participativa:
-___________________________________________________________
-___________________________________________________________
-___________________________________________________________
-___________________________________________________________
-Nombre, firma, cédula y fecha del encargado de familia:
-___________________________________________________________
-*Este formulario constituye una declaración jurada de los datos que consigna el solicitante
+Anexo 1
+Formulario de Información General AI-011
+Año fiscal: __________________
+1. Nombre del operador orgánico o en transición2: ___________________
+2. Número de cédula física o jurídica3: ___________________
+3. Número promedio de empleos generados durante el último periodo fiscal: _____________
+4. Ingreso bruto en colones obtenido en el último periodo fiscal producto de la actividad orgánica o en transición: _____________
+5. Valor de los activos totales de la finca en colones en el último periodo fiscal: _____________
+6. Pertenece a un Grupo de Productores Organizados: Sí ____ No ____
+En caso positivo, indicar el nombre del GPO: __________________________
+7. Datos de la actividad agropecuaria anual:
+[imagen]
+Nombre de la persona productora, número de cédula y firma7:
+___________________________________
+1 perjurio. Artículo 318. Se impondrá prisión de tres meses a dos años al que faltare a la verdad cuando la ley le impone bajo juramento o declaración jurada, la obligación de decirla con relación a hechos propios.
+2 nombre bajo el cual se encuentra registrado ante la Unidad de Registro de Agricultura Orgánica del SFE como operador certificado o en transición. En caso de productores que pertenezcan a un GPO, indicar el nombre de la persona certificada mediante la certificación grupal.
+3 número de cédula física o jurídica del operador registrado ante la Unidad de Registro de Agricultura Orgánica del SFE como operador certificado o en transición. En caso de productores que pertenezcan a un GPO, indicar la información correspondiente a la persona certificada mediante la certificación grupal.
+4 indicar la actividad agropecuaria que se encuentra certificada orgánica o en transición. Por ejemplo: Café, cítricos, hortalizas, entre otras.
+5 marque con una "x" la opción correspondiente.
+6 corresponde al área que se encuentra cultivada.
+7 en caso de operadores con personería jurídica, la solicitud debe presentarla el representante legal y aportar nombre completo, número de cédula de identidad y firma.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 45095 del 27 de febrero del 2025)
