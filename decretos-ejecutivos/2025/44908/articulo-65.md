@@ -1,0 +1,1 @@
+Artículo 65.- Derogaciones de RTCR. En el caso de derogatoria de RT no se requerirá un criterio técnico vinculante del Conart; no obstante, la propuesta de Decreto Ejecutivo debe ser notificada previo a la firma del jerarca del ministerio competente a la ST-Conart, la cual podrá emitir las recomendaciones que correspondan.

@@ -1,0 +1,6 @@
+Sección V
+Comités Técnicos de Reglamentación Técnica y procedimientos de evaluación de la conformidad.
+Artículo 74.- De la constitución de Comités Técnicos. Los ministerios competentes deben conformar un comité técnico de carácter consultivo para que estudie y analice el anteproyecto de reglamento técnico o PEC previo a la presentación a la ST-Conart o coadyuve en el proceso de revisión de las observaciones, recibidas de la consulta pública nacional e internacional a la OMC.
+El comité técnico debe estar integrado de forma tal, que se garantice la representatividad y equilibrio entre las partes interesadas. Para lo anterior, en la medida de lo posible debe considerarse un representante de cada uno de los sectores según el tema a regular: académico, ministerios competentes, consumidores, laboratorios, organismos de evaluación de la conformidad, colegios profesionales, cámaras empresariales y sector privado.
+Cada sector debe nombrar a un titular y suplente para asistir a las reuniones y en el caso de que ambos asistan el suplente tendrá voz, pero no voto.
+No será necesario formar comité técnico en los siguientes casos: derogatorias, casos de emergencia según lo definido en el AOTC, simplificación de la aplicación de un reglamento técnico y corrección de errores materiales.

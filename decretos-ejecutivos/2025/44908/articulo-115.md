@@ -1,0 +1,3 @@
+Sección II
+Funcionamiento de los Subcomités Nacionales del Codex Alimentarius
+Artículo 115.- Objetivo de los Subcomités Nacionales del CNCA. Los subcomités nacionales del Codex Alimentarius, en adelante, los subcomités, tienen por objeto llevar a cabo las labores técnicas necesarias para dar la debida atención y seguimiento a los proyectos y documentos emitidos o generados en el seno del Codex Alimentarius. Asimismo, los subcomités deberán desempeñar un papel activo, procurando la proposición ante el Comité Nacional de aquellos posibles proyectos o anteproyectos de normas, directrices u otros documentos que el país requiera y que podrían ser sometidas a conocimiento de los respectivos Comités Internacionales del Codex Alimentarius, o bien de la actualización de estos.

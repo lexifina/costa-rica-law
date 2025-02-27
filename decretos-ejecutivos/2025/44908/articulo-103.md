@@ -1,0 +1,1 @@
+Artículo 103.- Secretaría Técnica del CNCA. La ST-CNCA será ejercida por el Departamento de Reglamentación Técnica y Codex de la Dirección de Calidad del MEIC, y fungirá como Punto de Contacto del CNCA ante la Comisión del Codex Alimentarius a nivel internacional, de conformidad con lo establecido en el artículo 57 de la Ley.

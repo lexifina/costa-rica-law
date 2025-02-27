@@ -1,0 +1,3 @@
+Artículo 80.- De los acuerdos de los comités técnicos. Los comités técnicos tomarán acuerdos válidos con relación al anteproyecto de reglamento técnico o PEC, siempre y cuando se cuente con el quórum válido para sesionar.
+Para los acuerdos deberá obtenerse el consenso de los miembros presentes, evitando en lo posible las votaciones. Si agotados todos los esfuerzos no existe consenso, se someterá a votación; siendo necesario obtener dos tercios de la votación a favor, para tomar el acuerdo en discusión y en caso de empate, el presidente tendrá voto de calidad.
+En todo caso, cuando no se logre consenso en un comité técnico el ministerio competente en su atribución de potestad de imperio podrá continuar el trámite.

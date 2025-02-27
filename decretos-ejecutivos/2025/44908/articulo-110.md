@@ -1,0 +1,1 @@
+Artículo 110.-Acta de la sesión del CNCA. Cada sesión del CNCA, deberá ser registrada en un Acta que llevará la Secretaría Técnica Nacional, de conformidad con el Libro Primero, Título Segundo, Capítulo Tercero, de la Ley 6227.

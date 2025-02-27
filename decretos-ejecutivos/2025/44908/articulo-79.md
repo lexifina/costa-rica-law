@@ -1,0 +1,2 @@
+Artículo 79.- De la asistencia a las reuniones de los comités técnicos. En caso de que el titular o el suplente no pudiera asistir a determinada reunión del comité técnico, deberá comunicarlo al presidente respectivo, con al menos un día de anticipación, para que su ausencia sea considerada como justificada en el acta de esa reunión.
+Si el miembro titular o su suplente dejase de asistir injustificadamente a tres o más reuniones consecutivas, el presidente notificará esta circunstancia al sector que lo designó, para que proceda a sustituirlo.

@@ -1,0 +1,1 @@
+Artículo 56.- De la idoneidad de los miembros del Conart. Los designados ante dicho consejo deberán tener conocimiento sobre el Sistema Nacional para la Calidad y de los alcances de los acuerdos de Obstáculos Técnicos al Comercio y sobre la Aplicación de Medidas Sanitarias y Fitosanitarias de la Organización Mundial de Comercio.

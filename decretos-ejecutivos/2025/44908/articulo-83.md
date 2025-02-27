@@ -1,0 +1,1 @@
+Artículo 83.- De la conclusión de la revisión del anteproyecto de reglamento técnico o PEC. El comité técnico tendrá un plazo máximo de cuatro meses para concluir la revisión del anteproyecto de reglamentación técnico. No obstante, debido a causas justificadas dicho plazo podrá extenderse siempre que se cuente con el aval de la jefatura del presidente del comité.

@@ -1,0 +1,1 @@
+Artículo 51.- Conformación del PNRT. Para elaborar el PNRT se tomará en cuenta las propuestas de reglamentos técnicos de los ministerios competentes y la consulta realizada a otros sectores interesados para lo que se seguirán los lineamientos que dicte la ST-Conart.

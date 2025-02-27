@@ -1,0 +1,8 @@
+Artículo 70.- De la consulta pública nacional. Todos los anteproyectos de reglamento técnico deben someterse por el ministerio proponente a consulta pública nacional por un período de 60 días naturales.
+Esta consulta se hará mediante el Sistema Digital SICOPRE, además se debe incluir un aviso en el sitio web oficial del ministerio proponente, donde se comunique la consulta pública del anteproyecto de reglamento técnico.
+Esta consulta nacional se realizará de manera simultánea a la consulta internacional por un plazo 60 días naturales a la OMC, para lo cual el ministerio proponente debe coordinar con el CIOT la fecha de inicio del período de consulta pública.
+El ministerio proponente debe hacer la solicitud de notificación del anteproyecto de reglamento técnico ante la ST-Conart, dicha solicitud debe venir acompañada del borrador final de éste.
+La ST-Conart por medio del CIOT debe completar el formulario de notificación y tendrá la responsabilidad de notificar directamente a dicha organización, por medio del sistema en línea del Comité de Obstáculos Técnicos al Comercio.
+Asimismo, el CIOT procederá a notificar a los países o regiones con los que haya establecido obligaciones de notificación en este tema, en virtud de los acuerdos internacionales vigentes.
+A solicitud debidamente justificada de un país miembro de la OMC de extender el plazo para presentar observaciones, la ST-Conart podrá gestionar dicha ampliación, para lo cual consultará al ministerio proponente, siendo que este último contará con un plazo de dos días hábiles para definir esa ampliación.
+Si el ministerio proponente no se manifiesta en ese plazo, se aplicará el silencio positivo y se otorgará el plazo solicitado.

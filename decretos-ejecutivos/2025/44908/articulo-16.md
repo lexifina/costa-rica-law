@@ -1,0 +1,1 @@
+Artículo 16.- De la periodicidad de las sesiones. El Conac sesionará, en forma ordinaria, una vez por semestre y, en forma extraordinaria, por convocatoria de su presidente o con nueve de sus miembros.

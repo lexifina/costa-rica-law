@@ -1,0 +1,2 @@
+Artículo 106.- Sesiones del CNCA. El CNCA se reunirá en forma ordinaria según el calendario de sesiones internacionales previamente establecido por la Secretaría del Codex Alimentarius.
+Las reuniones serán programadas al final de cada año, para lo cual la ST-CNCA enviará a sus miembros la respectiva convocatoria anual. Dichas sesiones podrán realizarse en modalidad presencial o virtual. La ST-CNCA participará en las sesiones ordinarias y extraordinarias del Comité, en su carácter de asesor técnico de conformidad con el artículo 56 de la Ley.

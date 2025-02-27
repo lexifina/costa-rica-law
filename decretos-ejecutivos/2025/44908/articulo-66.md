@@ -1,0 +1,3 @@
+Artículo 66.- Corrección de errores materiales. En el caso de que un RTCR cuente con errores materiales, estos podrán ser rectificados en cualquier momento, conforme el artículo 157 de la Ley Nº 6227.
+Para los efectos anteriores deberá emitirse un decreto ejecutivo, el cual se exonera de la consulta pública nacional, pero debe notificarse a OMC, cuando se publique en el Diario Oficial La Gaceta, en respuesta al principio de transparencia.
+Esta propuesta de Decreto Ejecutivo debe ser notificada previo a la firma del jerarca del ministerio competente a la ST-Conart, la cual podrá emitir las recomendaciones que correspondan.

@@ -1,0 +1,2 @@
+Artículo 41.-Contenido de las evaluaciones. Los informes de los comités o comisiones incluirán una descripción del grado de cumplimiento de los lineamientos generales y recomendaciones, así como de las acciones correctivas que eventualmente se requieran.
+En el caso del ENN, el informe deberá incluir una valoración fundamentada, recomendando al Conac la continuación, renovación o retiro del reconocimiento.

@@ -1,0 +1,2 @@
+Artículo 76.-Del presidente de los comités técnicos. Los comités técnicos serán presididos por el representante del ministerio proponente de conformidad con el inciso d) del artículo 49 de la Ley, quien dará todo su apoyo para el cumplimiento de los objetivos de los comités.
+En el caso que en la propuesta bajo análisis participen varias autoridades con competencia en la materia regulada, la coordinación se designará de común acuerdo entre los ministerios proponentes.

@@ -1,0 +1,5 @@
+Artículo 89.- Requisitos para la presentación de una propuesta de PEC a la ST-Conart. Todo anteproyecto de procedimiento de evaluación de la conformidad se debe acompañar con la norma internacional u otra normativa que se utilice como base para su formulación. Si no existe norma internacional u otra normativa, se aportará el sustento técnico utilizado.
+En caso de que la propuesta incluya disposiciones distintas de las contenidas en la norma internacional, deberá aportarse el fundamento técnico y científico que justifica dicha separación.
+En todos los casos los procedimientos de evaluación de la conformidad aplicables deben elaborarse de acuerdo con la valoración del riesgo del bien a tutelar, de conformidad con el artículo 60 de la Ley.
+El anteproyecto de PEC presentado a consideración de la ST-Conart debe cumplir con las disposiciones referentes a la evaluación costo beneficio contenidas en la Ley Nº 8220.
+Para la revisión del anteproyecto de PEC se debe seguir lo indicado en los artículos 74 a 85 del presente reglamento.

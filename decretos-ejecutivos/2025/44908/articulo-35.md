@@ -1,0 +1,1 @@
+Artículo 35.- Elaboración del Plan Nacional de Calidad (PNC). Corresponde al Comité Técnico, en coordinación con todos los entes del SNC, elaborar el PNC, el cual guiará el desarrollo y la operatividad del SNC, mediante objetivos de corto, mediano y largo plazos, en períodos de diez años, de conformidad con el artículo 12, inciso e) de la Ley.

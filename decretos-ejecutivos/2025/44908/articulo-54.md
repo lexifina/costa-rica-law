@@ -1,0 +1,1 @@
+Artículo 54- Seguimiento del PNRT. Los ministerios competentes deberán enviar un informe al finalizar el primer semestre de cada año que incluya los avances del PNRT. La ST-Conart presentará el avance del PNR T al Conart y al Conac.

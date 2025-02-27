@@ -1,0 +1,2 @@
+Artículo 5.- De los objetivos y principios del SNC. Será responsabilidad de todos los integrantes del SNC, que se señalan en el artículo 6 de dicha Ley, cumplirlos y velar porque los objetivos y principios que se señalan en los artículos 5 y 7 de la Ley, se ejecuten en las diferentes actuaciones o actos que se emitan.
+El MEIC, a través de la ST-Conac, asesorará, informará, comunicará y capacitará sobre estos objetivos y principios.

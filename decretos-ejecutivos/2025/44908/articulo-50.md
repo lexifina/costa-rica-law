@@ -1,0 +1,3 @@
+Artículo 50.- Actualizaciones al PNRT. El PNRT no es estático, por lo que podrá ser modificado por la autoridad competente por razones de pérdida de interés actual de la propuesta, el surgimiento de nuevas necesidades manifestadas por los sectores interesados o resultado negativo del análisis costo-beneficio.
+En estos casos el ministerio competente deberá solicitar a la ST-Conart el cambio en el plan con la debida justificación. Los cambios al PNRT serán comunicados al Conart una vez se conozcan y anualmente se informará al Conac para su aval.
+El Conart actualizará el PNRT con base en los informes anuales presentados por la ST-Conart de conformidad con el inciso e) artículo 52 de la Ley.

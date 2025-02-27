@@ -1,0 +1,1 @@
+Artículo 37.- Actualizaciones del PNC. El contenido de este plan podrá ser ajustado de acuerdo con las necesidades que puedan surgir a nivel nacional a fin de contribuir a la productividad y competitividad del país.

@@ -1,0 +1,1 @@
+Artículo 119.- Elección del coordinador del Subcomités Nacionales del CNCA. Al momento de constituir el respectivo subcomité, la ST- CNCA, recomendará el nombramiento de un coordinador de acuerdo con su idoneidad para el manejo del tema, el cual deberá ser avalado por el CNCA en la siguiente sesión ordinaria.

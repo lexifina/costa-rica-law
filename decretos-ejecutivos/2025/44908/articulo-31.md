@@ -1,0 +1,5 @@
+Capítulo IV
+Lineamientos, directrices y recomendaciones
+Artículo 31.- Lineamientos, directrices y recomendaciones emitidos por el Conac. El Conac orientará dentro de un marco estratégico nacional, mediante lineamientos, directrices y recomendaciones, el desarrollo del SNC a través de las funciones a cargo de los entes principales y de las instancias representadas e integrantes del Conac, de modo que, se ajuste a las necesidades nacionales y a las prácticas internacionalmente aceptadas, en materia de calidad, metrología, evaluación de la conformidad, normalización reglamentación técnica, y a las necesidades nacionales.
+Para la formulación de directrices y lineamientos de carácter vinculante, el Conac podrá hacerse asesorar y auxiliarse en los entes técnicos del SNC, si así lo estima conveniente.
+El Conac velará por la adecuada coordinación de las actividades de promoción y difusión de la calidad y elaborará las directrices de carácter vinculante que considere convenientes. También, dará el seguimiento necesario a los lineamientos generales y a las recomendaciones que emita.

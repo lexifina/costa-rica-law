@@ -1,0 +1,5 @@
+Artículo 75.- Funciones de los comités técnicos. Son funciones de los comités técnicos las siguientes:
+a. Elaborar anteproyectos de reglamentos técnicos o PEC previo a someter al conocimiento del Conart;
+b. Coadyuvar en la elaboración del costo beneficio, conforme al artículo 12 de la Ley Nº 8220. Para ello los ministerios proponentes podrán requerir, de los agentes económicos, los consumidores o centros de investigación, los datos necesarios para la elaboración de este, de conformidad con lo establecido en el artículo 50 de la Ley;
+c. Realizar, cuando sea necesario, ya sea como comité o a través de alguno de sus miembros investigaciones con la finalidad de establecer los requisitos o especificaciones técnicas de los reglamentos técnicos;
+d. Estudiar las modificaciones de los anteproyectos de reglamento técnico o PEC cuando a éstos se les hayan puntualizado observaciones o comentarios, en las etapas de consulta pública; e. Asesorar a las autoridades cuando estas lo soliciten, para atender consultas.

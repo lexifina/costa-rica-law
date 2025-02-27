@@ -1,0 +1,3 @@
+Artículo 125.- Casos de inexistencia de Subcomités Nacionales del CNCA. En caso de que a la fecha de la recepción de una consulta proveniente del Codex Alimentarius no exista un subcomité idóneo o se encuentre inactivo para el análisis de esta documentación, se procederá de la siguiente manera:
+a. La ST-CNCA remitirá el documento a los subcomités y/o expertos relacionados en la materia, para que lo analicen y emitan su criterio dentro del plazo establecido.
+b. En caso de no recibirse respuestas, la ST-CNCA procederá a reasignar la tarea a otro subcomité o buscará una solución alternativa para garantizar una respuesta adecuada.

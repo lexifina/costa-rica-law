@@ -1,0 +1,2 @@
+Artículo 15.- Otros comités o comisiones del Conac. El Conac podrá, mediante acuerdo firme, crear comités o comisiones, integrados por sus propios miembros. En estos comités o comisiones podrán participar expertos técnicos, para realizar actividades especiales y estudiar temas específicos.
+El plazo de funcionamiento de éstos dependerá de la complejidad del asunto sometido a estudio y será definido por el Conac.

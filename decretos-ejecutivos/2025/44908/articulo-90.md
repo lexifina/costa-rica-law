@@ -1,0 +1,1 @@
+Artículo 90- Evaluación de los proyectos de PEC presentados ante la ST-Conart. La ST-Conart debe constatar que es un PEC, para lo que emitirá un criterio técnico previo a someterse a la consulta pública en el sistema de control previo Sicopre. El criterio emitido por la ST-Conart debe incluirse en dicho sistema.

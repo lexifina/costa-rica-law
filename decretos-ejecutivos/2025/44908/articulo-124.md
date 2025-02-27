@@ -1,0 +1,2 @@
+Artículo 124.- Traslado de la documentación. La documentación que se reciba del Codex Alimentarius será remitida por la Secretaría Técnica Nacional al coordinador del respectivo subcomité en un plazo máximo de cinco días hábiles, siguientes a la fecha de su recepción.
+El coordinador debe analizar junto con los miembros del subcomité la documentación recibida, con el propósito de valorar el contenido de la información y dar respuesta a las consultas, cuando corresponda.

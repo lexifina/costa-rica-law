@@ -1,0 +1,4 @@
+Artículo 17.- De las convocatorias. Las convocatorias a sesiones ordinarias y extraordinarias deben realizarse por medio del correo electrónico o cualquier otro medio que acuerde el Conac que garantice la constancia de haber hecho la invitación. Las sesiones ordinarias se convocarán con una antelación de quince días hábiles y las sesiones extraordinarias se convocarán con una anticipación de tres días hábiles.
+Ambas convocatorias se acompañarán de la documentación pertinente.
+En las sesiones ordinarias el orden del día a tratar debe enviarse a los miembros al menos tres días hábiles antes de la próxima sesión y en las sesiones extraordinarias con un día hábil de antelación, salvo en casos de urgencia.
+No obstante, quedará válidamente constituido el órgano colegiado sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

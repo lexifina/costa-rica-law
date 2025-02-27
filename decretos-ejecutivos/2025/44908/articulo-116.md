@@ -1,0 +1,1 @@
+Artículo 116.- Constitución de los Subcomités Nacionales del CNCA. Los subcomités serán constituidos por la Secretaría Técnica Nacional, a iniciativa de cualquiera de los miembros del Comité Nacional. Su constitución se someterá a aprobación del Comité Nacional del Codex, reunida en sesión ordinaria. La creación se hará constar en el acta de dicha sesión.

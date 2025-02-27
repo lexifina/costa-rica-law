@@ -1,0 +1,2 @@
+Artículo 28.- Periodicidad y actualizaciones de la PNCAL. La PNCAL se elaborará cada treinta años con revisiones periódicas cada cinco años.
+El contenido de la PNCAL podrá ser ajustada de acuerdo con las necesidades que puedan surgir en el país a fin de contribuir a la productividad y competitividad, así como mejorar las condiciones del comercio nacional de bienes y servicios en beneficio de la sociedad.

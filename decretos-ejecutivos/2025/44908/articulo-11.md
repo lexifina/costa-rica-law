@@ -1,0 +1,2 @@
+Artículo 11.- Integración del Conac. La integración del Conac será acorde con lo estipulado en el artículo 10 de la Ley. Le corresponde al MEI C presidir el Conac de acuerdo con lo indicado en la Ley.
+Los miembros suplentes tienen las mismas obligaciones y atribuciones de los miembros propietarios, pudiendo acompañar al miembro propietario a las sesiones del Conac, en cuyo caso tendrá voz, pero no voto.

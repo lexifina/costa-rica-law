@@ -1,0 +1,1 @@
+Artículo 108.- Quórum del CNCA. Los miembros del CNCA deben confirmar su asistencia por lo menos un día antes de la sesión. Para poder sesionar válidamente, el quórum se conformará con la mitad más uno de sus miembros. En caso de falta de quórum, se procederá a aplicar lo estipulado en el Artículo 53 de la Ley 6227.
