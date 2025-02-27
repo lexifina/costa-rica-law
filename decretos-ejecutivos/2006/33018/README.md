@@ -16,3 +16,4 @@ Reglamento a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos
 | 1 | 2006-04-21 | la propia norma |
 | 2 | 2008-10-27 | Decreto Ejecutivo 34890 (2008-10-27) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2025-02-27 | Decreto Ejecutivo 44928 (2025-02-27) |
