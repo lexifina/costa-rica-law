@@ -1,0 +1,1 @@
+ARTÍCULO 4- La Asociación donataria no podrá variar el uso o destino que actualmente tienen los bienes inmuebles que mediante esta ley se autoriza a donar. En caso de que la Asociación se disuelva, o los inmuebles se destinen a otro fin, estos pasarán a ser propiedad de la Municipalidad de San Rafael de Heredia.
