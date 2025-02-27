@@ -1,0 +1,21 @@
+Artículo 2.-Modifiquense el artículo 23 del "Reglamento de Circulación por Carretera con base en el Peso y las Dimensiones de los vehículos de Carga", contenido en el Decreto Ejecutivo Nº 31363- MOPT, para que se lea de la siguiente manera:
+''Artículo 23. -Criterios para la determinación del Peso Máximo Autorizado (PMA) o permisible, para los vehículos unitarios o camiones y para los vehículos unitarios o camiones acoplados a remolques Debido a que el Peso Máximo Autorizado (PMA) o permisible se compone por el Peso Máximo Autorizado por Eje o por Conjunto de Ejes y por el Peso Máximo Autorizado Total, se establecen los siguientes criterios técnicos de determinación, para los vehículos unitarios o camiones y para los vehículos unitarios o camiones acoplados a remolques:
+Peso Máximo Autorizado por Eje o por Conjunto de Ejes para los vehículos unitarios o camiones.
+Resulta del menor valor de las siguientes condiciones o especificaciones y este análisis se debe realizar por eje o por grupo de ejes, según corresponda a la clasificación de cada vehículo unitario o camión. - Capacidad de carga de las llantas que integran un eje o conjunto de ejes.
+Peso Bruto por Eje o por Conjunto de Ejes, según especificaciones de fabricante o el indicado por un ingeniero mecánico o carrera a fin, en cuyo caso no deberá ser superior al establecido por el fabricante.
+Límites de los Pesos Máximos Autorizados o permisibles por Eje o por Conjunto de Ejes, establecidos en los artículos 83 y 84 del presente Reglamento.
+Peso Máximo Autorizado Total para los vehículos unitarios o camiones.
+Resulta del menor valor de las siguientes condiciones o especificaciones, según corresponda a la clasificación de cada vehículo unitario o camión.
+Capacidad de carga total de las llantas que integran el vehículo unitario o camión.
+Peso Bruto Total o Vehicular, según especificaciones de fabricante o el indicado por un ingeniero mecánico o carrera a fin, en cuyo caso no deberá ser superior al establecido por el fabricante.
+Límites de los Pesos Máximos Autorizados o permisibles, establecidos en el artículo 84 presente Reglamento.
+Peso Máximo Autorizado por Eje o por Conjunto de Ejes para los vehículos unitarios o camiones acoplados a remolques (incluyendo el remolque).
+Resulta del menor valor de las siguientes condiciones o especificaciones y este análisis se debe realizar por eje o por grupo de ejes, según corresponda a la clasificación de cada vehículo unitario o camión y al remolque acoplado.
+Capacidad de carga de las llantas que integran un eje o conjunto de ejes (tanto del vehículo unitario o camión, como los del remolque acoplado).
+Peso Bruto por Eje o por Conjunto de Ejes, según especificaciones de fabricante (tanto del vehículo unitario o camión, como del remolque acoplado) o el indicado por un ingeniero mecánico o carrera a fin, en cuyo caso no deberá ser superior al establecido por el fabricante. Límites de los Pesos Máximos Autorizados o permisibles por Eje o por Conjunto de Ejes, establecidos en los artículos 83 y 85 del presente Reglamento.
+Peso Máximo Autorizado Total para los vehículos unitarios o camiones acoplados a un remolque incluyendo el remolque.
+Resulta del menor valor de las siguientes condiciones o especificaciones, según corresponda a la clasificación de cada vehículo unitario o camión y al remolque acoplado.
+Menor condición entre capacidad de carga total de las llantas del vehículo unitario o camión, Peso Bruto Total o Vehicular del vehículo unitario o camión y límites de los Pesos Máximos Autorizados o permisibles, establecidos en el artículo 85 presente Reglamento para el vehículo unitario o camión, más la suma de la menor condición entre capacidad de carga total de las llantas del remolque.
+Peso Bruto Total o Vehicular del remolque y límites de los Pesos Máximos Autorizados o permisibles, establecidos en el artículo 85 presente Reglamento para el remolque.
+Peso Bruto Vehicular Combinado, según especificaciones de fabricante.
+Sólo en el caso de modificaciones o conversiones realizadas a los vehículos y de pruebas de estanqueidad se aceptarán certificaciones extendidas por un organismo técnico autorizado o, en su defecto, por un ingeniero mecánico con especialidad en automotores autorizado por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica".
