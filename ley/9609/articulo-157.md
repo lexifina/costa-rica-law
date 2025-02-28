@@ -1,0 +1,2 @@
+ARTÍCULO 157- Reconocimiento de personas
+Para la realización del reconocimiento de personas, se tomarán las medidas necesarias a fin de respetar su dignidad, seguridad y el respeto de los derechos de la personalidad. Con esa finalidad, se les permitirá la compañía de alguna persona de su confianza e, incluso, se podrá ordenar que se practique en el sitio donde se encuentre quien deba ser reconocido.

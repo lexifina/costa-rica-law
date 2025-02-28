@@ -1,1 +1,2 @@
-ARTICULO 4º.- Cuando se trate de localizar derechos en que sea propietario o colindante el Estado, las diligencias se tramitarán ante el Juez Civil de Hacienda con la intervención de la Procuraduría General de la República.
+Artículo 4- Cuando el Estado sea propietario o colindante del derecho a localizar, las diligencias se tramitarán ante el tribunal de la jurisdicción competente, según la naturaleza del inmueble sobre el cual versa dicho derecho, con la intervención de la Procuraduría General de la República.
+(Así reformado por el artículo 341 inciso 1) del Código Procesal Agrario, N° 9609 del 27 de setiembre de 2018)

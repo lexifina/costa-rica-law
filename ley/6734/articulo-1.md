@@ -1,4 +1,6 @@
+(Derogado)
 N° 6734
+(Esta norma fue derogada por el artículo 342 del Código Procesal Agrario, N° 9609 del 27 de setiembre de 2018)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 TITULO I

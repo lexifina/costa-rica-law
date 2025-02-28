@@ -1,0 +1,6 @@
+ARTÍCULO 159- Custodia
+Al ordenarse la entrega de pruebas que ameriten previsiones especiales, a la parte oferente o a otra persona, para su guarda y preservación, deberán respetarse las siguientes reglas:
+1) El tribunal hará las previsiones para su efectiva custodia.
+2) De oficio o a solicitud de parte, se podrá ordenar que terceras personas capacitadas o entidades públicas especializadas se encarguen de la recolección de los elementos probatorios que deben ser custodiados de forma especial, cuando su peligrosidad o su naturaleza así lo ameriten. Una vez recolectados y almacenados de la forma técnica apropiada, el tribunal o uno de sus integrantes, si fuera un órgano colegiado, se apersonará al lugar para colocar los sellos respectivos y documentar los datos necesarios.
+3) Previo a su depósito, el tribunal documentará, entre otros datos, su contenido, forma y estado. Tanto en el objeto como en su medio de almacenamiento, se colocarán etiquetas y sellos del tribunal, con indicación del proceso, el nombre de la parte oferente, el contenido y la fecha de entrega.
+4) Al hacerse la entrega se documentará dicho acto y se indicará la resolución que lo ordena, el bien en custodia, el nombre de la parte oferente y el de quien lo recibe.

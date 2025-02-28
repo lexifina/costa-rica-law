@@ -1,0 +1,5 @@
+ARTÍCULO 14- Sedes de los tribunales
+Con la finalidad de acercar las sedes de los juzgados agrarios a las distintas poblaciones y comunidades, para garantizar el acceso a las personas usuarias, se realizará la distribución de la competencia territorial por zonas, con base en el índice de conflictos y gestiones. La delimitación geográfica podrá comprender distritos de diferentes cantones, o cantones de provincias distintas.
+Los asientos de los juzgados se establecerán con ese fin en la cabecera de cada provincia, sin perjuicio de que si las circunstancias lo ameriten se creen otros en otros cantones. Se tomarán en consideración las vías de acceso y comunicación, la lejanía de los lugares y el encarecimiento de costos para el traslado de los usuarios y las usuarias.
+El Tribunal Agrario tendrá su sede en el Segundo Circuito Judicial de San José, lo cual no obsta para que se instauren otros en circuitos judiciales diferentes. Mientras ello no suceda, los radicados en San José tendrán competencia en el ámbito nacional.
+La instauración de las sedes citadas no afectará la itinerancia de las personas juzgadoras para la práctica de actos a su cargo.

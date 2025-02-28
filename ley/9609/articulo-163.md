@@ -1,0 +1,2 @@
+ARTÍCULO 163- Gastos derivados de la prueba en custodia
+Los gastos de recolección, traslado, almacenamiento, custodia, devolución y destrucción, cuando proceda, serán cubiertos por la parte oferente o a quien le corresponda la carga de la prueba. Si es necesario y se trata de una parte asistida por la defensa pública o una persona indígena, se podrá pedir colaboración para ello, sin costo alguno, a las entidades públicas competentes, cuando no puedan ser asumidos por el Poder Judicial.

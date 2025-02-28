@@ -1,0 +1,2 @@
+ARTÍCULO 316- Bienes inventariados en posesión de terceras personas
+La persona cónyuge sobreviviente o conviviente de hecho, a quien la ley le confiera derechos, la madre, el padre, los hijos e hijas que habiten en la vivienda al momento de la muerte de la causante, continuarán en ella, mientras no resulte adjudicada a otra. Si se declara en firme la indignidad de quien la habita, no podrá seguir ocupándola, excepto si existen menores de edad o incapaces, dependientes de esta. Los anteriores supuestos regirán, salvo disposición en contrario.

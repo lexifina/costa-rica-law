@@ -1,0 +1,2 @@
+ARTÍCULO 140- Examen abusivo o redundante
+El tribunal podrá dar por terminado el examen para quien lo formula, cuando sea evidente que esté prolongando la audiencia sin motivo, las preguntas sean reiteradas, versen sobre temas rechazados o insinúen la respuesta. Antes de imponerse esa sanción, deberá apercibirse a quien corresponda, el deber de corregir su actuación. Las partes podrán objetar las preguntas que se formulen, cuando no sean legalmente procedentes.

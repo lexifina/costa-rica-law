@@ -1,0 +1,3 @@
+ARTÍCULO 300- Ejecución provisional de condenas dinerarias
+La ejecución provisional de sentencias de condena dineraria se limitará al embargo de bienes por la suma que haya sido otorgada. No se admitirá oposición de la persona ejecutada. Podrá levantarse el embargo si acredita que ha hecho el depósito del monto por el cual se decretó en la cuenta del tribunal respectivo.
+Si la sentencia de condena dineraria provisionalmente ejecutada es revocada, se levantarán los embargos y se condenará a la ejecutante al pago de las costas de la ejecución provisional y a resarcir los daños y perjuicios causados.

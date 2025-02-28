@@ -1,0 +1,4 @@
+ARTÍCULO 263- Cultivos pendientes
+Si existen cultivos o frutos que estén cosechándose o pendientes de ello, al momento de la firmeza de la sentencia estimatoria, la parte vencida podrá pedir, en los ocho días siguientes, se difiera la entrega total o parcial del bien, por el tiempo indispensable para su recolecta. Con la solicitud se deberá rendir garantía de pago o depositar el monto de la renta correspondiente por el tiempo adicional requerido para ese fin.
+La solicitud se pondrá en conocimiento de la contraria por tres días. Si se acoge, podrán ordenarse las medidas pertinentes. El plazo concedido para postergar la entrega del bien debe ser razonable. Quedará sin efecto si sobreviene la pérdida de los cultivos.
+Si al referirse a dicha gestión, la parte vencedora presenta simultáneamente solicitud de embargo, el tribunal resolverá conjuntamente ambas peticiones.

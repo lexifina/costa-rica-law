@@ -1,0 +1,3 @@
+ARTÍCULO 63- Reposición de actuaciones
+Si se extravía total, o parcialmente, un expediente, será repuesto inmediatamente por cualquier medio. Para esos efectos, el tribunal ordenará a las partes aportar o remitir electrónicamente los documentos originales para ser certificados, copias electrónicas de los que hayan presentado, si es posible con las constancias de recibidos respectivos, y de las cédulas de notificación recibidas. Si es necesario, se repondrán las pruebas indispensables para decidir conforme a derecho.
+La persona que en criterio del órgano disciplinario competente sea responsable por dolo o culpa grave deberá asumir el pago de los daños y perjuicios que se generen con la reposición.

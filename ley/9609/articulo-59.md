@@ -1,0 +1,5 @@
+ARTÍCULO 59- Idioma
+El idioma español deberá ser utilizado en todos los actos procesales. En los procesos donde participen personas indígenas, el tribunal les informará su derecho a que las resoluciones y actuaciones sean traducidas a su idioma con el apercibimiento de nulidad de lo actuado en caso de incumplimiento.
+Deberá acompañarse la traducción de los documentos redactados en otro idioma.
+Cuando la parte o interviniente deba ser oída o atendida y no se comunique por medio del idioma español o presente alguna capacidad disminuida temporal o permanentemente, deberá informarlo con suficiente antelación, a fin de que el tribunal tome las previsiones necesarias.
+Se le nombrará una persona intérprete, cuyo costo estará a cargo de quien lo requiera, salvo que se trate de una declaración de parte o testimonial. Si se trata de personas indígenas o patrocinadas por la defensa pública, la persona intérprete deberá ser suplida a cargo del Poder Judicial. Lo será también cuando se brinde permanentemente el servicio de traducción en el idioma correspondiente, en el circuito judicial al que pertenece el tribunal.
