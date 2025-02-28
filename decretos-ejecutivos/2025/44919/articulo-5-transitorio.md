@@ -1,0 +1,1 @@
+Transitorio V. El MEP, cuenta con un plazo de tres meses, contado a partir de la publicación del presente Decreto Ejecutivo, para emitir los lineamientos señalados en el artículo 55 de este reglamento.

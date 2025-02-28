@@ -1,0 +1,1 @@
+Transitorio VIII. El CAPEMCOL del Hospital Nacional de Salud Mental, la CCSS, el IAFA, el MJP, el CONAPAM y el CONAPDIS, cuentan con un plazo de nueve meses a partir de la entrada en vigor del presente reglamento, para la elaboración, validación e implementación del lineamiento de atención de las personas con enfermedad mental y conflicto con la ley.

@@ -1,0 +1,1 @@
+Transitorio IX. Las instituciones u organizaciones, tanto públicas como privadas, cuentan con un plazo de seis meses a partir de la entrada en vigor del presente reglamento, para la elaboración, validación e implementación de los protocolos de abordaje integral del comportamiento suicida, señalados en el apartado X del Anexo 2 del presente Decreto Ejecutivo.

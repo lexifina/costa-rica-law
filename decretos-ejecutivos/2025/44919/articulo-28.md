@@ -1,0 +1,6 @@
+CAPÍTULO III
+MECANISMOS DE ARTICULACIÓN Y COORDINACIÓN
+INTERINSTITUCIONAL E INTERSECTORIAL
+Artículo 28.- Comisiones en Salud Mental. En cumplimiento de lo dispuesto en los artículos 16 y 26 de la Ley N° 10412 del 29 de noviembre del 2023 "Ley Nacional de Salud Mental", se establece como mecanismo de coordinación y articulación interinstitucional e intersectorial las CORESAM y las COLOSAM en el segundo y tercer nivel de gestión del Ministerio de Salud respectivamente, creadas en el presente reglamento.
+Para el primer nivel de gestión, se continuará realizando las acciones de coordinación y articulación interinstitucional e intersectorial a través de la CONAISAM, creada mediante el artículo 25 del Decreto Ejecutivo N° 41383 del 17 de setiembre del 2018 "Reglamento de Organización y Funcionamiento de la Secretaría Técnica de Salud Mental".
+En lo relativo a la articulación interinstitucional e intersectorial para el abordaje integral y oportuno del comportamiento suicida, deben aplicarse las disposiciones del "Lineamiento para la articulación interinstitucional e intersectorial del abordaje integral del comportamiento suicida", según el Anexo 2, el cual forma parte integral del presente reglamento.

@@ -1,0 +1,5 @@
+CAPÍTULO II
+POLITICAS PÚBLICAS EN SALUD MENTAL
+Artículo 24.- Política Nacional de Salud Mental. De acuerdo con lo dispuesto en los artículos 15, 18 y 19 de la Ley N° 10412 del 29 de noviembre del 2023 "Ley Nacional de Salud Mental", corresponde al Ministerio de Salud, a través de la STSM, la elaboración y supervisión de la Política Nacional de Salud Mental. Para llevar a cabo esta tarea, la Dirección de Planificación del Ministerio de Salud debe brindar apoyo, respaldo y asesoría. Asimismo, podrá contar con el apoyo, el respaldo y la asesoría de agencias internacionales y alianzas público-privadas.
+En el proceso de formulación de políticas públicas el Ministerio de Salud debe convocar a actores sociales estratégicos en su construcción y validación, siguiendo los lineamientos emitidos por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN). En temas vinculados con sustancias psicoactivas, la STSM debe coordinar con el IAFA y el ICD.
+En temas vinculados con personas con enfermedad mental en conflicto con la ley, la STSM debe coordinar con CAPEMCOL.

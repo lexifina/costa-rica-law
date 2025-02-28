@@ -1,0 +1,3 @@
+Artículo 18.- Alta Médica. El internamiento finaliza en los siguientes casos:
+a) Por la decisión de la persona profesional en medicina con especialidad en psiquiatría. Según los criterios clínicos ya establecidos.
+b) Por la solicitud de salida exigida, con excepción de la medida terapéutica excepcional realizada por indicación de la persona profesional en medicina con especialidad en psiquiatría, en beneficio de una persona con enfermedad o condición que la inhibe de tomar decisiones temporal o permanente, conforme a las disposiciones establecidas en los artículos 29, 30 y 31 de la Ley N° 5395 del 30 de octubre de 1973 "Ley General de Salud".

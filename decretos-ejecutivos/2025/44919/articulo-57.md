@@ -1,0 +1,1 @@
+Artículo 57.- Apoyos educativos y socioemocionales para todas las personas estudiantes, con énfasis en personas menores de edad. El MEP asegurará que las personas estudiantes de prescolar, primaria y secundaria dispongan de los apoyos cognitivos y socioemocionales que coadyuven a la salud mental.

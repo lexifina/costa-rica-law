@@ -1,0 +1,1 @@
+Artículo 51.- Disposición supletoria. En lo no regulado en el presente reglamento en materia de órganos colegiados, le será aplicable a las Comisiones y al OTA, las disposiciones contenidas en el Libro Primero, Capítulo Tercero del Título Segundo de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".

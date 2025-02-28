@@ -1,0 +1,1 @@
+Transitorio IV. El Ministerio de Salud, por medio de la STSM, cuenta con un plazo de tres meses, contado a partir de la publicación del presente Decreto Ejecutivo, para emitir los lineamientos señalados en el artículo 11 de este reglamento.

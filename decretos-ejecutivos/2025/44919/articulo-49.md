@@ -1,0 +1,1 @@
+Artículo 49.- Funciones del Órgano Técnico de Apoyo. Las funciones que debe realizar el OTA son las indicadas en el artículo 31 de la Ley N° 10412 del 29 de noviembre del 2023 "Ley Nacional de Salud Mental".

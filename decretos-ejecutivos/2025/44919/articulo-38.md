@@ -1,0 +1,1 @@
+Artículo 38.- Sesiones de las Comisiones Locales de Salud Mental. Las COLOSAM sesionarán de forma ordinaria una vez al mes y, extraordinariamente, cada vez que sea requerido, mediante convocatoria de quien lo preside. El quórum requerido para sesionar será de la mitad más uno de sus representantes; y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes.

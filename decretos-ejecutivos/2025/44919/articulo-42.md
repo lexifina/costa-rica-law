@@ -1,0 +1,1 @@
+Artículo 42.- Conformación del Órgano Técnico de Apoyo. La conformación del OTA se encuentra establecida en el artículo 30 de la Ley N° 10412 del 29 de noviembre del 2023 "Ley Nacional de Salud Mental".
