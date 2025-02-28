@@ -14,3 +14,4 @@ Reglamento de los edificios del mercado municipal del Cantón Central de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-03 | la propia norma |
+| 2 | 2025-02-28 | Reglamento municipal 0 (2025-02-28) |
