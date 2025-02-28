@@ -1,0 +1,2 @@
+ARTÍCULO 192- Procedimiento sin audiencia o en audiencia única
+Cuando no se justifique el señalamiento de audiencias, por la naturaleza del proceso, circunstancias propias de este, o no existir prueba que realizar, se dictará la sentencia. Sin perjuicio de lo anterior, el tribunal podrá disponer, de oficio o a instancia de parte, que el proceso se tramite en audiencia única, en la cual podrán expresarse conclusiones.

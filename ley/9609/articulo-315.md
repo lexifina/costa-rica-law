@@ -1,0 +1,6 @@
+ARTÍCULO 315- Trámite y requisitos del proceso sucesorio
+En lo referido al proceso sucesorio, se aplicará lo dispuesto en la normativa procesal civil, leyes especiales siempre que sean compatibles con los principios procesales agrarios y las siguientes disposiciones:
+1) El tribunal podrá adoptar las medidas cautelares necesarias para la preservación del haber sucesorio y garantizar la continuidad de las actividades agrarias y conexas a estas.
+2) Si se plantean un proceso sucesorio judicial y otro notarial, el primero se acumulará al segundo, salvo improcedencia legal del segundo o si quienes iniciaron el judicial no quieren o no puedan hacer valer sus eventuales derechos en el notarial. En tal caso, el notarial se acumulará al judicial.
+3) Los créditos serán pagados, si es posible, una vez firme la resolución que los tenga por reconocidos. De ser necesario, se dispondrá la venta de bienes que se elijan al efecto. Si tienen limitaciones legales, deberá atenderse lo dispuesto en la normativa especial, en caso de que se permitiera su enajenación.
+4) El tribunal estará facultado para autorizar, sin comunicación previa a las partes interesadas, la venta anticipada de bienes perecederos o cuando sea evidentemente necesaria y útil realizarla; en especial de frutos o animales.

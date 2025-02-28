@@ -1,0 +1,2 @@
+ARTÍCULO 148- Dictámenes o informes técnicos
+El tribunal podrá, de oficio o a petición de parte, solicitar dictámenes o informes técnicos de universidades, institutos, colegios profesionales, laboratorios oficiales u otros organismos especializados, públicos o privados, cuando se refieran a aspectos propios de sus funciones, conocimientos o experiencia. En la resolución que lo ordene se indicarán la persona, la dependencia u oficina encargada de realizarlo y el plazo conferido. Será aplicable lo regulado para la rendición de informes en general.

@@ -1,0 +1,2 @@
+ARTÍCULO 45- Abogadas o abogados suplentes
+Con el fin de evitar la posposición de audiencias, la persona abogada directora podrá designar a uno o dos suplentes, sin que ello implique costo adicional de honorarios para la parte, siempre y cuando la parte que representa así lo autorice de forma expresa, sin que sea obligatoria tal designación, quienes sean suplentes tendrán las mismas facultades de actuación en el proceso.

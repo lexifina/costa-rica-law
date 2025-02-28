@@ -1,0 +1,2 @@
+ARTÍCULO 261- Depósito cautelar
+En los procesos de desahucio, cualquiera que sea la causal invocada, si la persona arrendataria ha desalojado el inmueble, de oficio o a solicitud de parte, podrá otorgarse a la arrendante su tenencia, a título de depósito cautelar. Previo reconocimiento judicial, deberá levantarse un acta donde se consignará el estado del bien y el inventario de lo existente en este.

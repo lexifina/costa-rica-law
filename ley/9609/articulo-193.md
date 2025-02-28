@@ -1,0 +1,7 @@
+ARTÍCULO 193- Inasistencia de las partes a las audiencias
+Ante la inasistencia injustificada de las partes a las audiencias se aplicarán las siguientes disposiciones:
+1) Si la parte actora o reconventora no comparece a la audiencia preparatoria, se tendrá por desistida la demanda o la reconvención y se le condenará al pago de las costas, los daños y perjuicios. Sin perjuicio de lo anterior, podrá continuarse el proceso, si alguna de las partes presentes alega interés legítimo o si por la naturaleza de lo debatido deba continuarse, siempre que no exista impedimento cuya superación dependa exclusivamente de la parte demandante.
+2) Si la inasistente a la audiencia preparatoria es la parte demandada, se dictará sentencia de inmediato, con la prueba que conste en el expediente, salvo que sea necesario practicar la prueba ofrecida por la actora o cuando las pretensiones se refieran a cuestiones de orden público o derechos indisponibles.
+3) Si ninguna de las partes asiste a la audiencia preparatoria, de forma injustificada, se declarará desistido el proceso sin condenatoria alguna.
+4) Si a la audiencia de juicio no comparece ninguna de las partes, el tribunal emitirá la sentencia conforme a lo dispuesto en este código. Si se presenta solo una, se practicará la prueba admitida a dicha parte. No se recibirá la prueba ofrecida por la parte ausente, salvo que la contraria manifieste interés en ella o el tribunal la considere necesaria.
+5) En los procesos de audiencia única se aplicará lo dispuesto para la inasistencia a la audiencia preparatoria.

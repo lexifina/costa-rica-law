@@ -1,0 +1,10 @@
+ARTÍCULO 171- Dirección de la audiencia
+La audiencia será dirigida conforme a los poderes y los deberes dispuestos por el ordenamiento jurídico y las siguientes reglas:
+1) Se promoverá el contradictorio como instrumento para la verificación de la verdad de los hechos.
+2) Iniciará con la presentación de quienes integren el tribunal. Se verificará la presencia de las partes o sus representantes, las personas coadyuvantes, testigas, expertas e intérpretes.
+3) Quien presida explicará los fines y las actividades de la audiencia. Ordenará las lecturas necesarias, hará las advertencias legales, juramentará a quien corresponda, moderará el debate y evitará la lectura innecesaria de textos y documentos. Impedirá divagaciones, sin que con ello pueda coartar el derecho de defensa y la igualdad procesal de las partes. Si es necesario, retirará el uso de la palabra y, en su caso, ordenará el abandono del recinto a quien no siga sus instrucciones.
+4) Por su orden, se concederá la palabra a la parte actora o gestionante, a la contraria y a las terceras personas intervinientes. Si comparecen coadyuvantes, se les dará participación luego de la parte a favor de la que intervienen. Finalmente, podrá participar el tribunal, sin perjuicio de que participe cuando lo estime necesario. Tratándose de tribunales colegiados, quien presida otorgará la palabra a las demás integrantes.
+5) El tribunal garantizará se mantenga el orden y el respeto a las personas presentes, utilizando las potestades de corrección y disciplina que le confiere el ordenamiento jurídico.
+6) La ausencia de las partes no impedirá la celebración de la audiencia con la que concurra, sin perjuicio de la aplicación de otras sanciones procesales, salvo norma en contrario.
+7) La parte que se apersone de forma tardía tomará la audiencia en el estado en que se encuentre, sin que se retrotraigan etapas ya cumplidas. Si alguna se retira, sin justa causa, proseguirá la audiencia.
+Cuando a una parte la asista más de un abogado o abogada, solo podrá participar una en representación, conforme a su elección pudiendo alternarse las intervenciones.

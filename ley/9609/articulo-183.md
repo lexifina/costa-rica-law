@@ -1,0 +1,1 @@
+ARTÍCULO 183- Obligaciones de quienes asistan a las audiencias Quienes asistan a las audiencias permanecerán con actitud respetuosa y en silencio, mientras no estén autorizadas para participar. No podrán portar armas u otros objetos que perturben u ofendan, ni adoptar un comportamiento intimidatorio, provocativo o capaz de producir disturbios.

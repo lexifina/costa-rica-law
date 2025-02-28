@@ -1,0 +1,3 @@
+ARTÍCULO 161- Devolución de la prueba custodiada
+Una vez examinada la prueba en custodia, durante la audiencia de juicio, o antes de ello cuando así se haya dispuesto, el tribunal ordenará su devolución a la parte que corresponda, salvo objeción fundada de la contraria. En tal caso, podrá ordenarse, a costo de esta, que se mantenga la custodia hasta la terminación del proceso, salvo que la objetante desista de su gestión. También se ordenará la devolución de lo custodiado, cuando el proceso termine de forma anticipada por cualquier causa.
+Si es necesario, se fijará fecha para la devolución, y el tribunal o uno solo de sus integrantes, cuando se trate de un órgano colegiado, se apersonará al lugar pertinente para realizar la devolución.

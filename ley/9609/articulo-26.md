@@ -1,0 +1,2 @@
+ARTÍCULO 26- Conflictos de competencia
+Si el tribunal que recibe un expediente disiente de lo dispuesto sobre la competencia por el remitente, planteará el conflicto de competencia en el lapso de tres días luego de recibido, el cual será resuelto por el órgano superior de ambos. Se aplicará el mismo trámite dispuesto para la inconformidad. Si ambos tribunales no tienen un superior común, resolverá el órgano competente según la Ley N.° 7333, Ley Orgánica del Poder Judicial, de 5 de mayo de 1993.

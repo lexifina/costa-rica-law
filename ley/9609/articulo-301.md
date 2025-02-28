@@ -1,0 +1,10 @@
+ARTÍCULO 301- Trámite de ejecución provisional
+Si la solicitud de ejecución provisional es admisible, la persona juzgadora le dará curso, conforme a las siguientes reglas:
+1) La petición deberá ser fundada e indicar el monto de garantía de ejecución provisional que se ofrece.
+2) Recibida la solicitud, el tribunal formará un legajo que contendrá las actuaciones indispensables, las cuales serán incorporadas de oficio. De una vez, programará una audiencia a la mayor brevedad.
+3) En audiencia se escuchará a la proponente y a la contraria. Esta podrá oponerse y, además, ofrecer contragarantía para suspender la ejecución provisional en el supuesto de que sea acogida. El tribunal resolverá en el acto, con criterios de razonabilidad, racionalidad, proporcionalidad y equidad. Definirá el monto de la garantía, el cual será suficiente para restaurar la situación anterior si se revoca la sentencia, o si ello es imposible, se resarzan los daños, los perjuicios y las costas.
+Otorgará tres días a la parte proponente para que deposite el monto de la garantía, con el apercibimiento de que en caso de incumplimiento se tendrá por abandonada la gestión sin necesidad de resolución que así lo declare. De haberse ofrecido contragarantía, se fijará el monto y prevendrá el depósito en los mismos tres días.
+4) Si la solicitante de la ejecución provisional no asiste a la audiencia, se tendrá por desistida la gestión. Dicho pronunciamiento no tendrá recurso alguno. Si quien no asiste es la contraria, se resolverá la solicitud conforme corresponda.
+5) Verificado el depósito de la garantía se procederá a ejecutar la sentencia. Si la garantía no es dineraria, se requerirá lo pertinente para su verificación.
+6) De depositarse la contragarantía, no se ejecutará provisionalmente la sentencia y se procederá de inmediato a la devolución de la garantía.
+7) Contra lo que se resuelva en la ejecución provisional no cabrá recurso de apelación. Lo resuelto se comunicará al tribunal que conozca el recurso de apelación o de casación, según corresponda, a efecto de que priorice la emisión de la resolución respectiva.

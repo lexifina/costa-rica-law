@@ -1,0 +1,2 @@
+ARTÍCULO 41- Enajenación del bien o derecho litigioso
+La enajenación del bien o del derecho litigioso, a título particular, por acto entre vivos, permite a la persona adquirente o cesionaria suceder a la enajenante o cedente, siempre que la parte contraria no se oponga dentro del plazo de tres días a partir de la resolución que la apruebe. Si se acepta la oposición, la adquirente o cesionaria podrá intervenir como tercera o litisconsorte, según corresponda. En todo caso, la transmitente continuará como parte para todos los efectos procesales que beneficien a la contraria.

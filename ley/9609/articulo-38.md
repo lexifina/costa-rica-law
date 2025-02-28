@@ -1,0 +1,4 @@
+ARTÍCULO 38- Aviso a las personas terceras interesadas
+Se podrá dar aviso a las personas vinculadas con el objeto del proceso sobre su existencia, siempre que se desprenda su interés, a fin de que puedan hacer valer sus eventuales derechos por las vías correspondientes.
+Se ordenará la comunicación a gestión fundada de parte, en la que se indicará la dirección exacta donde localizar a la persona tercera interesada, siempre que se pida antes de la audiencia de juicio. De acogerse la gestión, se procederá a hacer la comunicación, pero el proceso no se suspenderá por ese motivo. Lo resuelto carecerá del recurso de apelación. Si resulta infructuoso el acto de comunicación, se dejará sin efecto la orden de aviso.
+Las personas terceras interesadas podrán comparecer aun cuando no hayan sido citadas. Si se hace en audiencia, se resolverá sobre su participación de forma inmediata. En caso contrario, su solicitud deberá resolverse en tres días.

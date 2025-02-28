@@ -1,0 +1,4 @@
+ARTÍCULO 145- Elaboración y presentación del dictamen
+Si no se indica de forma debida cuál es el objeto de la pericia, la persona experta deberá pedir al tribunal, por cualquier medio, las aclaraciones pertinentes, antes de proceder con su labor. Asimismo, pedirá al tribunal que haga la comunicación debida a las partes con señalamiento de hora y fecha en los casos cuando requiera de su presencia en la práctica de la prueba o para visitar un inmueble.
+Las partes podrán concurrir a esas diligencias, sin obstaculizarlas. Estarán obligadas a prestarle auxilio a la persona experta, en cuanto sea necesario para el cumplimiento de su labor. Si se niegan, se podrá pedir al tribunal la adopción de las medidas pertinentes.
+Si no se rinde el dictamen en el plazo conferido, no se amplía o no comparece la experta sin justa causa a la audiencia de juicio, perderá sus honorarios y gastos.

@@ -1,0 +1,2 @@
+ARTÍCULO 64- Publicidad de las actuaciones escritas
+Todo alegato escrito o documento incorporado al expediente, con las excepciones de ley, será de acceso a las personas que figuren como partes, abogadas y a quienes el ordenamiento jurídico autorice. Se pondrán a disposición de las personas usuarias los mecanismos necesarios, a fin de que la consulta del expediente físico o electrónico sea efectiva.

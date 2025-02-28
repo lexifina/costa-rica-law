@@ -1,0 +1,2 @@
+ARTÍCULO 53- Deberes de las partes e intervinientes
+Las partes y demás intervinientes ajustarán su conducta a la buena fe, lealtad, probidad, uso racional del sistema procesal, debido respeto de los sujetos procesales y al deber de cooperar con la administración de justicia y evitarán incurrir en todo comportamiento malicioso, temerario, negligente, dilatorio, discriminatorio, abusivo, irrespetuoso o fraudulento.

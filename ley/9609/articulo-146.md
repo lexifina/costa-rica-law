@@ -1,0 +1,2 @@
+ARTÍCULO 146- Requisitos del dictamen
+La experticia será fundada y contendrá, de manera clara y precisa, una relación detallada de las actividades realizadas, fuentes, parámetros o elementos técnicos y probatorios utilizados y las conclusiones. Se adjuntarán los documentos y los anexos respectivos, o se indicará la fuente correspondiente, cuando no sea posible incluirlos. Deberá presentarse por escrito y firmado, al menos tres días antes de la audiencia de juicio, sin perjuicio del informe oral en las audiencias.
