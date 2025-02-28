@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE LIMÓN
+MODIFICACION DEL ARTICULO 69 AL REGLAMENTO DE LOS EDIFICIOS DEL MERCADO MUNICIPAL DEL CANTÓN CENTRAL DE LIMÓN
+Artículo 69.-Arreglos de pago. Entiéndase como arreglo de pago el compromiso que asume el inquilino moroso en el arriendo de alquiler del local POR UNA UNICA VEZ con la Municipalidad de cancelar las sumas adeudada. Aplíquese lo dispuesto en el Reglamento para el procedimiento del Cobro Administrativo y Judicial con relación a los arreglos de pago.
+En caso de requerir información adicional, aclaración de dudas u otras, se nombra a la MGF. Jéssica Quirós Castro, quien puede localizarse en correo electrónico institucional jessica.quiros@municlimon.go.cr o al celular 8704-4394.
+Así las cosas, ruego proceder con todo respeto y consideración a la aprobación y publicación de esta modificación al reglamento de Cobro Administrativo y Judicial.
