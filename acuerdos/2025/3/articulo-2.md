@@ -1,0 +1,1 @@
+Artículo 2º-Finalidad. El fin de la Comisión será conocer y analizar los proyectos de inversión pública identificados por la Oficina de Planificación Institucional, para determinar si serán considerados como parte del Portafolio de Proyectos de Inversión Pública Institucional.
