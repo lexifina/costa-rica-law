@@ -1,6 +1,7 @@
 Artículo 99- Los Tribunales de Familia conocerán:
 1) De forma colegiada de tres jueces, lo siguiente:
-a) Los recursos de apelación de sentencias definitivas de los procesos conocidos en los juzgados de Familia, juzgados de Niñez y Adolescencia y juzgados de Violencia Doméstica y Protección Cautelar, salvo las sentencias finales de los procesos de restitución internacional de personas menores de edad.
+a) Los recursos de apelación de sentencias definitivas de los procesos conocidos en los juzgados de Familia, juzgados de Niñez y Adolescencia y juzgados de Violencia Doméstica y Protección Cautelar.
+(Derogada la frase "salvo las sentencias finales de los procesos de restitución internacional de personas menores de edad", del inciso anterior por el artículo 5° inciso 2) de la ley N° 10558 del 23 de octubre de 2024)
 b) Los conflictos de competencia material suscitados entre juzgados de Familia, juzgados de Niñez y Adolescencia o juzgados de Violencia Doméstica y Protección Cautelar.
 2) De forma unipersonal, lo siguiente:
 a) Los recursos de apelación de resoluciones interlocutorias de los procesos conocidos en los juzgados de Familia, juzgados de Niñez y Adolescencia o juzgados de Violencia Doméstica y Protección Cautelar.
