@@ -1,5 +1,6 @@
-ARTICULO 106.- Los Juzgados de Familia conocerán:
-1.- De los asuntos de Derecho de familia.
-2.- En grado, de las resoluciones que dicten las alcaldías de pensiones alimenticias.
-3.- De las competencias que se susciten entre las alcaldías de pensiones alimenticias de su territorio.
-4.- De los demás asuntos que determine la ley.
+Artículo 106- Los juzgados de Familia conocerán:
+a) Los procesos y su ejecución relativos a los conflictos y determinaciones del derecho de las relaciones familiares, salvo los conocidos en los juzgados de Pensiones Alimentarias, de Violencia Doméstica o de Niñez y Adolescencia.
+b) Los recursos de apelación provenientes de los juzgados de Pensiones Alimentarias.
+c) Los conflictos de competencia territorial suscitados entre juzgados de Pensiones Alimentarias.
+d) Los demás asuntos que estipule la ley.
+(Así reformado por el artículo 2° punto III) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
