@@ -244,6 +244,7 @@ articulo-226.md
 articulo-227.md
 articulo-228.md
 articulo-229.md
+articulo-229-bis.md
 articulo-230.md
 articulo-231.md
 articulo-232.md
