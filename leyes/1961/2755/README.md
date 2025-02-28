@@ -1,6 +1,6 @@
 # Ley sobre Localización de Derechos Indivisos
 
-Ley N° 2755 del 1961-06-09. SINALEVI, ficha 2527: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2527&param2=2684&param3=1>.
+Ley N° 2755 del 1961-06-09. SINALEVI, ficha 2527: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2527&param2=145032&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1961-06-09 | Ley 2755 | 1961-06-09 |
 | 2 de 3 | 1961-07-12 | Ley 2779 | 1961-06-09 |
+| 3 de 3 | 2025-02-28 | Ley 9609 | 2018-09-27 |

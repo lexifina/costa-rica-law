@@ -1,6 +1,6 @@
 # Ley de Informaciones Posesorias
 
-Ley N° 139 del 1941-07-14. SINALEVI, ficha 10044: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10044&param2=115531&param3=1>.
+Ley N° 139 del 1941-07-14. SINALEVI, ficha 10044: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10044&param2=145034&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 2012-11-28 | Sala Constitucional, resolución 16629 (2012-11-28) | 2012-11-28 |
 | 7 de 9 | 2014-02-26 | Ley 9205 | 2013-12-23 |
 | 8 de 9 | 2017-02-15 | Sala Constitucional, resolución 2375 (2017-02-15) | 2017-02-15 |
+| 9 de 9 | 2025-02-28 | Ley 9609 | 2018-09-27 |
