@@ -1,6 +1,10 @@
-ARTICULO 99.- Los Tribunales Colegiados de Familia conocerán:
-1.- De los recursos de apelación y consulta que procedan contra las resoluciones de los juzgados de familia y tutelares de menores.
-2.- De los impedimentos, excusas y recusaciones de sus jueces colegiados propietarios o suplentes.
-3.- De los conflictos de competencia en materia de familia.
-4.- De los demás asuntos que determine la ley.
-( Así reformado por el numeral 10 de la Ley de Reorganización Judicial Nº 7728 de 15 de diciembre de 1997)
+Artículo 99- Los Tribunales de Familia conocerán:
+1) De forma colegiada de tres jueces, lo siguiente:
+a) Los recursos de apelación de sentencias definitivas de los procesos conocidos en los juzgados de Familia, juzgados de Niñez y Adolescencia y juzgados de Violencia Doméstica y Protección Cautelar, salvo las sentencias finales de los procesos de restitución internacional de personas menores de edad.
+b) Los conflictos de competencia material suscitados entre juzgados de Familia, juzgados de Niñez y Adolescencia o juzgados de Violencia Doméstica y Protección Cautelar.
+2) De forma unipersonal, lo siguiente:
+a) Los recursos de apelación de resoluciones interlocutorias de los procesos conocidos en los juzgados de Familia, juzgados de Niñez y Adolescencia o juzgados de Violencia Doméstica y Protección Cautelar.
+b) Los conflictos de competencia territorial entre juzgados de Familia, entre juzgados de Niñez y Adolescencia o entre juzgados de Violencia Doméstica y Protección Cautelar.
+c) Los impedimentos, las excusas y las recusaciones de uno o varios de sus miembros propietarios o suplentes.
+d) Los demás asuntos que determine la ley.
+(Así reformado por el artículo 2° punto III) de la ley que aprobó el Código Procesal de Familia, N° 9747 del 23 de octubre de 2019)
