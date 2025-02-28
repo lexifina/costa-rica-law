@@ -1,0 +1,2 @@
+ARTÍCULO 274- Sentencia estimatoria
+En la sentencia estimatoria, se ordenará la suspensión definitiva de la obra, cuya ejecución se hará de inmediato, aunque se presente apelación. Además, se condenará a la parte demandada a pagar los daños y perjuicios. Deberán liquidarse una vez que esté firme la sentencia. Cuando constituya un peligro o transgresión evidente al derecho de propiedad ajena, se podrá ordenar la destrucción de lo edificado.

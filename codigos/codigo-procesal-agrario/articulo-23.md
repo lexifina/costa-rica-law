@@ -1,0 +1,5 @@
+ARTÍCULO 23- Litispendencia
+Se produce litispendencia cuando se tramiten separadamente dos o más procesos iguales, o con identidad parcial en las pretensiones, en los que no exista sentencia firme.
+En el primer caso, de oficio o a solicitud de parte, se ordenará la terminación y el archivo del proceso instaurado más recientemente.
+Si se trata de una litispendencia parcial y no procede la acumulación, se continuarán conociendo las pretensiones iguales en el proceso que se encuentre en una etapa más avanzada. En los restantes asuntos, se declarará la terminación del proceso únicamente respecto de las pretensiones sobre las cuales sea improcedente pronunciarse por dicho motivo. Se continuará con la tramitación, salvo si resulta innecesario resolver las pretensiones no coincidentes, en cuyo caso procederá declarar la terminación total y su archivo definitivo. Si todos los procesos se encuentran en el mismo estado procesal, se tramitarán las pretensiones en el más antiguo.
+La demanda interpuesta ante un tribunal extranjero no produce litispendencia, salvo disposición expresa en contrario.

@@ -1,0 +1,8 @@
+ARTÍCULO 122- Forma de los interrogatorios
+Los interrogatorios serán orales y directos. En ellos deberán respetarse las siguientes reglas:
+1) Las preguntas serán claras y precisas. No podrán referirse a más de un hecho y se procurará que las expresiones utilizadas sean comprensibles para quien declara. Si es necesario, el tribunal explicará sumariamente su contenido.
+Rechazará las preguntas que no guarden relación directa con los hechos controvertidos o el objeto del proceso, las impertinentes, las inconducentes, repetidas y dilatorias. También las referidas a hechos admitidos, evidentes y notorios, salvo que la parte alegue desconocimiento de estos, las insinuantes, las ofensivas, las insultantes o las capciosas.
+2) Las respuestas no incluirán valoraciones o calificaciones, excepto las que ofrezcan las personas expertas y testigas técnicos. El tribunal limitará las respuestas cuyo contenido no verse sobre lo debatido.
+3) Si surge controversia sobre la forma y el contenido de alguna pregunta, las partes expondrán brevemente su posición, sin sugerir o insinuar respuestas. No se decretará el receso de la audiencia y se retirará a la persona declarante, salvo que el tribunal lo estime innecesario.
+4) Quien declare no podrá leer notas ni apuntes, excepto cuando sean personas expertas o se autorice por tratarse de preguntas referidas a cifras, fechas, planos, croquis, datos de difícil precisión o cuando el tribunal lo estime necesario. De ser previsible la consulta de documentos en la audiencia, deberán tenerse cuando declare y si se considera pertinente, el tribunal ordenará su incorporación.
+5) El tribunal podrá pedir aclaraciones, sin que con ello afecte la declaración fluida de la persona declarante.

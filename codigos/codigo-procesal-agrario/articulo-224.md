@@ -1,0 +1,2 @@
+ARTÍCULO 224- Conciliación extrajudicial
+La conciliación puede realizarse de forma extrajudicial, antes o durante el proceso. Si existe proceso, podrá presentarse en este el acuerdo, a fin de que se pronuncie sobre la homologación. En tal caso, serán aplicables las normas previstas para la conciliación judicial. De no existir proceso, se seguirá el procedimiento homologatorio regulado en los procesos no contenciosos.

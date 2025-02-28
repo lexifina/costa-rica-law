@@ -1,0 +1,3 @@
+ARTÍCULO 244- Suspensión provisional de acuerdos sociales y similares
+Cuando se impute la infracción de derechos, legales o convencionales, referidos a acuerdos sociales o de otras agrupaciones legalmente constituidas, se podrá disponer la suspensión provisional de los efectos del acuerdo impugnado. Para impedir la ejecución, se anotará la medida en el registro respectivo.
+Si se trata de sociedades comerciales, quien lo solicite deberá demostrar que representa al menos el diez por ciento (10%) del capital social. En caso de otras personas jurídicas o entidades, deberá demostrar que es titular de cuotas en la misma proporción.

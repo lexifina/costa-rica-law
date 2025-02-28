@@ -1,0 +1,2 @@
+ARTÍCULO 137- Sustitución de las personas testigas
+Procederá la sustitución fundada de las personas testigas ofrecidas y admitidas. La de estas últimas se aceptará solo por motivos de fuerza mayor o caso fortuito, que impida su apersonamiento a la audiencia al momento de rendir declaración. La solicitud se tramitará y resolverá en la audiencia preparatoria si es por causas posteriores, en la audiencia de juicio.

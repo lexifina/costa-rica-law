@@ -1,0 +1,3 @@
+ARTÍCULO 204- Apelación diferida
+Cuando se formule el recurso de apelación contra una resolución emitida en la audiencia de juicio, si es admisible y no pone fin al proceso o tiene solamente efecto devolutivo, no se suspenderá el procedimiento. La apelación se tendrá como interpuesta de forma diferida. Quedará condicionada a que quien apele impugne la sentencia, reitere la apelación y a que lo objetado tenga trascendencia en la sentencia. La apelación diferida será resuelta al conocer de dicho pronunciamiento.
+El recurso interpuesto de forma diferida por una parte, quien no figure como apelante de la sentencia, por haber resultado victoriosa, deberá ser considerado cuando su objeción recobre interés ante la procedencia del recurso planteado por otra parte.

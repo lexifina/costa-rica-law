@@ -1,0 +1,2 @@
+ARTÍCULO 237- Medidas cautelares atípicas
+Podrán adoptarse, de forma inmediata, medidas cautelares atípicas dentro de los procesos agrarios para la protección de las actividades productivas y las conexas a estas, que sean objeto de estos procesos. La falta de certeza científica absoluta o técnica sobre lo que es objeto de tutela no podrá ser justificante para no adoptar las medidas cautelares correspondientes.

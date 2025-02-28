@@ -1,0 +1,3 @@
+ARTÍCULO 228- Condiciones para la Administración Pública
+La Administración Pública y las demás instituciones de derecho público podrán conciliar, transar, someter a arbitraje y utilizar otros medios alternativos de solución de conflictos, salvo disposición en contrario, y siempre que no se contraríen normas de orden público.
+Deberá presentarse el acuerdo o la resolución que lo autorice, adoptada por el respectivo superior jerárquico o por el órgano en que este delegue esa función. Si está representada por la Procuraduría General de la República se requerirá la autorización expresa, iguales requisitos se exigirán en caso de gestión anticipada de alguna forma de terminación del proceso.

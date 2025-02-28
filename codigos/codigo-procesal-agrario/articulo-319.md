@@ -1,0 +1,6 @@
+ARTÍCULO 319- Reversión de la adjudicación de bienes y derechos en regímenes especiales
+Si se trata de bienes otorgados por medio del contrato de asignación de tierras, el ente administrativo podrá revertir la adjudicación o dotación, si el ordenamiento jurídico lo permite.
+Definido el monto de los extremos que legalmente corresponda reconocer a las personas herederas, se otorgará a la entidad o a quien corresponda un mes para que lo deposite en la cuenta del tribunal a favor de estas, salvo que sea procedente otorgar un plazo mayor por requerirse una modificación presupuestaria por el ente.
+El dinero depositado se distribuirá entre las personas herederas, a menos de que deba destinarse a pagar obligaciones pendientes a cargo del sucesorio, conforme al orden de prelación legal.
+Verificado el cumplimiento de lo indicado, se ordenará la reversión del inmueble a favor del ente, la respectiva inscripción del título de propiedad en el Registro Público de la Propiedad Inmueble a su nombre y la cancelación de las deudas hipotecarias o las limitaciones inscritas en beneficio de este.
+Si no se cancela la suma correspondiente, en el plazo conferido, será aplicable lo establecido en el proceso de ejecución de sentencia para las condenas dinerarias a cargo de la Administración Pública.

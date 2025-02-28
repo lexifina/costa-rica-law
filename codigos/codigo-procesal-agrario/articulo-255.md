@@ -1,0 +1,6 @@
+ARTÍCULO 255- Sentencia desestimatoria y conversión a ordinario
+Si se emite sentencia desestimatoria, se revocará cualquier acto de ejecución o medida cautelar acordados. No obstante, la parte actora podrá solicitar en el plazo de cinco días a partir de su firmeza que se convierta el proceso sumario en ordinario.
+Si se trata de los mismos hechos y partes, bastará que en la solicitud se informe que se mantiene lo expresado en la demanda sumaria y se readecuen las pretensiones. Caso contrario, deberá adjuntar de una vez el nuevo alegato de demanda, cumpliendo los requisitos legales.
+El emplazamiento a la parte demandada se hará por el plazo de quince días, y su comunicación se hará en el medio señalado en el sumario. Si se demanda a otras personas, serán notificadas de forma personal. De igual manera, se notificará a quienes no se hayan apersonado al sumario o no hayan señalado medio para esos efectos.
+Cuando se admita la conversión, se mantendrán las medidas cautelares declaradas.
+La prueba practicada con anterioridad conservará su eficacia, siempre que no se vulneren la inmediación, el derecho de defensa y el contradictorio de las partes, de lo contrario podrá incorporarse como documental.

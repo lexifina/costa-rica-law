@@ -1,0 +1,5 @@
+ARTÍCULO 72- Comunicación de los actos procesales
+La práctica de las notificaciones y todo lo relativo a ese acto procesal, se regirá por lo dispuesto en este código y la normativa especial para notificaciones. Para realizarlas, se considerará una sola persona, quienes litiguen unidas con una misma representación legal.
+Las resoluciones pronunciadas en audiencia, se tendrán por notificadas a quienes estén presentes o hayan debido concurrir al acto, salvo disposición expresa en contrario.
+Los señalamientos para audiencias y otras actuaciones deberán ser notificados a las partes con una anticipación mínima de tres días, salvo disposición en contrario o en situaciones de urgencia relacionadas con la programación de audiencias. En este último supuesto, la notificación podrá realizarse mediante telegrama, teléfono u otro medio de comunicación similar, de lo cual se dejará constancia.
+Si en una resolución se impone una obligación de hacer o una orden de abstención, con el apercibimiento de que se podrá seguir causa por el delito de desobediencia a la autoridad, solo para los efectos penales, se notificará adicionalmente de forma personal a la parte obligada.

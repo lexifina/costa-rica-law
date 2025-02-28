@@ -1,0 +1,1 @@
+ARTÍCULO 234- Honorarios de abogados y abogadas y rendición de cuentas Para la fijación de los honorarios de abogados y abogadas, lo relacionado con el convenio de cuota litis y la rendición de cuentas se aplicará la normativa procesal civil.

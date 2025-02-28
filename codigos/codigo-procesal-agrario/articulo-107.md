@@ -1,0 +1,3 @@
+ARTÍCULO 107- Momento y forma para interponer las excepciones
+Las excepciones procesales y materiales deberán oponerse al contestar la demanda o la contrademanda. Podrán invocarse y fundamentarse excepciones materiales, incluida la de prescripción, hasta en la fase probatoria de la audiencia de juicio, si los hechos ocurren con posterioridad a la contestación o llegan a conocimiento de la parte demandada, después de expirado el plazo para contestar.
+En procesos ordinarios, las excepciones de cosa juzgada, transacción y caducidad podrán formularse hasta antes de dar inicio la fase de conclusiones de la audiencia de juicio. Serán resueltas en sentencia.

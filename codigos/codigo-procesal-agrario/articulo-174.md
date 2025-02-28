@@ -1,0 +1,4 @@
+ARTÍCULO 174- Ingreso forzoso
+Cuando la audiencia o la actuación deba realizarse en el lugar de los hechos, las partes deberán permitir al tribunal el ingreso al bien objeto del proceso. Quien esté a cargo o ejerza la posesión de este al practicarse la actuación facilitará el acceso.
+El tribunal ingresará con las partes y demás personas que estime necesario.
+De requerirse transitar por bienes ajenos para llegar al sitio, la parte interesada deberá obtener el permiso respectivo. Si se le deniega, requerirá al tribunal, con la debida antelación, la emisión de la orden de ingreso forzoso. Le suministrará la información necesaria, a fin de notificar personalmente dicha orden a la persona obligada. Esta contendrá la hora y la fecha programada para la actuación o la audiencia, y el apercibimiento de que, en caso de negativa, se le podrá seguir causa por el delito de desobediencia, sin perjuicio de incurrir en otras figuras delictivas.

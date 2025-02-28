@@ -1,0 +1,4 @@
+ARTÍCULO 185- Participación de los medios de comunicación
+Cuando las audiencias se realicen en salas de debate o en lugares de dominio público, el tribunal podrá permitir a los medios de comunicación colectiva instalar el equipo necesario para informar sobre su desarrollo. Señalará, en cada caso, las condiciones en que se ejercerán esas facultades.
+El tribunal podrá prohibir o limitar la grabación, la filmación o afines cuando se pueda perjudicar el desarrollo de la audiencia o se esté en presencia de algún motivo por el cual proceda ordenar su privacidad. También, cuando alguna de las partes o personas que deban rendir declaración soliciten, expresamente, que no sea grabada su voz o su imagen.
+Si la audiencia se celebra en bienes privados, para autorizar el ingreso de los medios de comunicación, será indispensable la anuencia de las partes o, en su caso, de la persona propietaria o encargada.

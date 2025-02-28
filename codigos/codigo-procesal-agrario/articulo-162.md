@@ -1,0 +1,2 @@
+ARTÍCULO 162- Destrucción de la prueba
+Si la devolución del elemento probatorio no es posible por su peligrosidad, no se retira en el plazo conferido o resulta innecesario hacerlo por el estado en que se encuentra, quien lo custodia deberá solicitar autorización para destruirlo, e informar las causas, lo cual se pondrá en conocimiento de las partes por tres días. Si se autoriza, el tribunal prevendrá que se elimine de forma idónea. A la diligencia asistirá el tribunal para documentar el acto.

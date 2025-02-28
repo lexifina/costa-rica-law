@@ -1,0 +1,3 @@
+ARTÍCULO 310- Embargo en ejecución
+En las sentencias de condena sobre extremos económicos determinables en dinero, cantidad por liquidar, de dar, de hacer, de no hacer, para asegurar los derechos de la parte ejecutante, se decretará embargo de bienes en cantidad suficiente, a criterio del tribunal. Se hará a instancia de parte y no se requerirá depósito alguno.
+De lo actuado se levantará un acta en la que se consignarán hora, fecha y lugar, las características necesarias para identificar los bienes muebles y, en el caso de inmuebles, las citas de inscripción, su naturaleza, extensión, linderos, edificaciones, cultivos existentes, su estado y demás datos de interés.

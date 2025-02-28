@@ -1,0 +1,4 @@
+ARTÍCULO 136- Citación de las personas testigas
+La citación de las personas testigas se podrá hacer por cualquier medio escrito o tecnológico, de lo cual se dejará constancia. Se pedirá el auxilio de la Fuerza Pública si es necesario.
+La parte proponente que requiera la citación deberá solicitar que se emita la orden con suficiente anticipación para que sea recibida con al menos tres días de antelación. Le corresponderá diligenciarla y devolverla al despacho antes del inicio de la audiencia correspondiente. En casos de urgencia, se podrá pedir sean citadas por el tribunal, sin plazo previo.
+La persona declarante debidamente citada por medio de orden escrita, que rehúse comparecer sin justa causa, podrá ser conducida a la audiencia por la Fuerza Pública. Si injustificadamente se niega a declarar, es omisa o esquiva, se testimoniarán piezas al Ministerio Público para la respectiva investigación penal.

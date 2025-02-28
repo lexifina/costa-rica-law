@@ -1,0 +1,2 @@
+ARTÍCULO 278- Sentencia estimatoria
+En la sentencia estimatoria se ordenará el derribo o la adopción de medidas de seguridad permanentes o temporales. Aunque se recurra, si se dispone el derribo, podrá practicarse inmediatamente de forma total o parcial, cuando no sea posible postergar la ejecución sin grave e inminente riesgo. También podrán ordenarse medidas de seguridad, permanentes o temporales, cuando no se hayan dispuesto o realizado antes. Cuando proceda, se condenará a la parte demandada al pago de los daños y perjuicios.

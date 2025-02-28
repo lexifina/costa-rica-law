@@ -1,0 +1,3 @@
+ARTÍCULO 323- Oposición fundada y conciliación
+Si a la solicitud se opone alguna persona de manera fundada, se dará traslado a la promovente por tres días. Cualquiera de las involucradas podrá pedir audiencia de conciliación para dirimir el conflicto. De omitirse tal petición o no lograrse un acuerdo, se dará por terminado el proceso y se remitirá a las partes a la vía ordinaria, para que la opositora presente la demanda en el plazo de un mes. En caso de no hacerlo, se continuará el proceso no contencioso, salvo impedimento legal.
+La resolución que dé por terminado el proceso no contencioso no tendrá eficacia de cosa juzgada material.

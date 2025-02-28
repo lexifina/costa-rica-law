@@ -1,0 +1,3 @@
+ARTÍCULO 191- Incorporación de prueba
+La prueba documental y aquellos elementos probatorios admitidos y recibidos fuera de audiencia serán incorporados por el tribunal, con solo su mención. Este, de oficio o a solicitud fundada de parte, podrá disponer la lectura parcial o total, en casos excepcionales. Los objetos y otros elementos de prueba afines podrán exhibirse o mostrarse, cuando resulte necesario.
+La parte deberá hacer la solicitud de exhibición o reproducción, total o parcial, al finalizar la audiencia preparatoria, para que el tribunal tome las previsiones, a fin de evitar recesos o suspensiones en la audiencia de juicio.

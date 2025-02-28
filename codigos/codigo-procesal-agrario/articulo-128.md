@@ -1,0 +1,4 @@
+ARTÍCULO 128- Prueba para mejor resolver
+En la audiencia preparatoria, el tribunal podrá ordenar la prueba de oficio que estime necesaria para determinar la verdad real de los hechos.
+Además, podrá admitirse u ordenarse para mejor resolver, de manera excepcional, hasta antes de cerrarse la audiencia de juicio. De ser necesario, podrá decretarse la suspensión de esa audiencia para obtenerla. Si no se han logrado incorporar las probanzas ordenadas al cierre de la audiencia de juicio, se prescindirá de ella.
+Cuando se trate de prueba referida a información de registros públicos o la actualización de información que conste en el proceso, para verificar su vigencia, el tribunal podrá obtener la información directamente, por algún medio electrónico o tecnológico a su alcance. De no ser posible, la pedirá de oficio o prevendrá aportarla a quien corresponda la carga probatoria.

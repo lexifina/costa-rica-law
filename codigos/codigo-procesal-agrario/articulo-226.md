@@ -1,0 +1,3 @@
+ARTÍCULO 226- Transacción
+Las partes, en cualquier estado del procedimiento, podrán transar sobre el derecho en litigio y hacer valer el acuerdo, aportando el documento donde conste lo convenido. Podrá exponerse oralmente ante el tribunal, de lo cual se dejará constancia en un acta.
+El tribunal analizará la transacción para determinar si concurren los requisitos legales para su validez y de no existir objeciones lo homologará. Si contiene defectos subsanables, de previo a resolver lo que corresponda, prevendrá su corrección. Salvo disposición legal en contrario, la transacción homologada produce cosa juzgada material. Si comprende todas las pretensiones debatidas, tendrá como consecuencia la terminación del proceso.

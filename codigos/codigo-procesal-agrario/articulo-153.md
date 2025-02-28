@@ -1,0 +1,9 @@
+ARTÍCULO 153- Informes y expedientes
+El tribunal de oficio o a petición de parte podrá solicitar informes a cualquier persona física o jurídica, privada o pública, en relación con actos o documentos de su conocimiento o que estén en su poder, si se relacionan con los hechos o los actos de interés para lo debatido. También podrá requerirse la remisión de expedientes, testimonios, documentos, anexos, estudios relacionados con los informes, anotaciones, asientos de libros, archivos o similares. Los informes se considerarán auténticos, cuando sean emitidos por una persona funcionaria pública.
+Se aplicarán las siguientes reglas:
+1) No será admisible la solicitud de rendir un informe cuando, manifiestamente, tienda a sustituir otro medio de prueba no admitido.
+2) La persona o entidad requerida podrá negarse a rendir el informe por motivos fundados, entre ellos, cuando se trate de información declarada secreto de Estado, pueda comprometer seriamente el secreto comercial o información no divulgada.
+En tal caso, y una vez recibida la solicitud, de inmediato, ha de exponer con claridad y precisión los motivos de impedimento. El tribunal valorará si son aceptables.
+3) El tribunal advertirá que debe cumplirse con lo ordenado, en el plazo de ocho días, contado a partir del recibo de la solicitud, salvo que se autorice un plazo mayor.
+Cuando se trate de entidades públicas o personas jurídicas, la solicitud deberá dirigirse a la responsable, funcionaria u oficina encargada de su emisión o de ejecutar la orden. Se apercibirá que, en caso de incumplimiento, podrá incurrirse en el delito de desobediencia a la autoridad.
+4) La información se remitirá al tribunal a la mayor brevedad, por cualquier medio idóneo, incluso electrónicamente. Se indicará, expresamente, que tiene el carácter de declaración jurada, a fin de garantizar su exactitud, lo cual se prevendrá al ordenarla, sin perjuicio de que en criterio del tribunal deba exponerse oralmente en audiencia.

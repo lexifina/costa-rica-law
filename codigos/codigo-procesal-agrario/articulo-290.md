@@ -1,0 +1,3 @@
+ARTÍCULO 290- Órganos de fiscalización de las condenas por daño ambiental colectivo
+La sentencia que imponga una condena por daño ambiental colectivo deberá indicar cuáles serán los órganos de fiscalización encargados de controlar que se cumpla efectivamente lo ordenado, para prevenir, proteger o restaurar los daños al ambiente.
+El órgano ejecutor podrá requerir, periódicamente, a dichos órganos informes de los avances en la ejecución, con el fin de emitir los recordatorios necesarios cuando exista alguna tardanza u omisión, o bien, para tomar otras medidas legales pertinentes en función de lo ejecutoriado.

@@ -1,0 +1,2 @@
+ARTÍCULO 225- Conciliación previa facultativa
+Antes de interponerse una demanda en esta sede, se podrá solicitar al órgano especializado en conciliación agraria que señale una audiencia, a fin de promover la conciliación con la eventual parte demandada. Para tal efecto, la persona proponente indicará el objeto del conflicto y la dirección exacta dónde se podrá notificar a quienes deban convocarse. La solicitud podrá ser presentada por todas las interesadas.

@@ -1,0 +1,10 @@
+CAPÍTULO V
+EJECUCIÓN HIPOTECARIA Y PRENDARIA
+ARTÍCULO 312- Procesos hipotecario y prendario
+En los procesos de ejecución hipotecaria y prendaria, se aplicará en lo pertinente lo dispuesto en las leyes especiales y la normativa procesal civil, siempre que sean compatibles con los principios procesales agrarios, así como las siguientes disposiciones:
+1) Si se solicita el remate de bienes dotados o asignados por medio de programas sociales a una persona productora agraria, se verificará su procedencia. Si la ejecutante integra el Sistema Bancario Nacional, acreditará que con antelación informó de la situación a la entidad respectiva, para que esta ejerciera los derechos o potestades que la ley le otorga. De lo contrario, se declarará inadmisible la demanda.
+2) En la resolución que dé curso a la ejecución hipotecaria o prendaria, se harán las prevenciones generales a la parte ejecutada, indicándosele que podrá liberar los bienes en ejecución si deposita todos los extremos adeudados, hasta antes de dar por iniciada la subasta.
+3) Si se trata de la ejecución de frutos o productos de cualquier naturaleza, se corroborará que el privilegio prendario no se encuentre caduco. De estarlo, declarará la inadmisibilidad de la demanda.
+4) Cuando se alegue desmejoramiento de la garantía, podrá practicarse un reconocimiento judicial a solicitud de parte ejecutante.
+5) La aprobación del remate de los restantes bienes quedará sujeta a que lo adeudado no quede cubierto con lo subastado. Cuando uno o varios de los bienes pertenezcan a una persona que haya consentido darlos en garantía, serán los últimos en subastarse.
+De ser evidente que lo obtenido en la subasta no cubre lo adeudado, se aprobará el remate, si procede. De existir duda de si cubre lo adeudado totalmente, se prevendrá a la parte ejecutante que presente la liquidación final dentro del plazo de tres días, a fin de determinar respecto de cuáles bienes deberá aprobarse el remate. Ante su omisión, el órgano ejecutor resolverá lo procedente con lo que conste en el proceso.

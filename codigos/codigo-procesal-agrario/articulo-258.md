@@ -1,0 +1,4 @@
+ARTÍCULO 258- Demanda de desahucio y legitimación
+Además de los requisitos generales, en la demanda se consignará la causal de desalojo, el lugar donde esté ubicado el inmueble, el monto de renta vigente y la fecha de pago cuando proceda. Se deberá demostrar el derecho de propiedad del bien o el que legitime a la parte actora, y el contrato de arrendamiento, si está documentado.
+La demanda la podrá establecer solo la persona que compruebe ser propietaria, arrendante, subarrendante, poseedora del bien por título legítimo, o acredite que su derecho deriva de quien tuvo facultad para otorgarlo. Si no se demuestra dicha condición, la demanda será declarada improponible.
+El desahucio procederá contra la persona arrendataria, subarrendataria, poseedora del inmueble y ocupante por mera tolerancia.

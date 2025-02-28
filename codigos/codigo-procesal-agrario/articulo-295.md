@@ -1,0 +1,2 @@
+ARTÍCULO 295- Ingreso forzoso para la ejecución
+Para la ejecución de pronunciamientos y acuerdos ejecutorios, cualquiera que sea su naturaleza, si las circunstancias lo ameritan, la persona juzgadora de ejecución podrá ordenar el ingreso forzoso, cuando sea necesario entrar a un inmueble o edificación perteneciente a una tercera persona. Salvo casos excepcionales, deberá ser ejecutado por la misma autoridad judicial que lo ordenó.

@@ -1,0 +1,5 @@
+ARTÍCULO 87- Interrupción de plazos
+Los plazos podrán interrumpirse por caso fortuito o fuerza mayor que imposibiliten a las partes realizar o participar en el acto por sí o por medio de quien ejerza su representación, y se volverán a iniciar cuando haya cesado la causa. Durante la interrupción solo se practicarán actos urgentes y de aseguramiento.
+Los motivos serán apreciados por el tribunal, de oficio o a instancia de parte. Entre otros, serán admisibles:
+1) La muerte o la enfermedad grave de una parte, si carece de apoderado o apoderada judicial su abogado o abogada estará en la obligación de informarlo al tribunal tan pronto tengan conocimiento. De igual forma, si quien falleció es representante de una persona jurídica y no existe posibilidad legal de que otra asuma el cargo.
+2) La muerte o la enfermedad grave del apoderado o apoderada judicial. En este caso, se notificará a la parte de forma personal, para que en el plazo de tres días, provea al cuidado de sus intereses. Dichos motivos no serán eficaces si son alegados por la parte que ha gestionado después de ocurridos, o no se invocan dentro de los tres días después de haber cesado.

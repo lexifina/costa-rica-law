@@ -1,0 +1,7 @@
+ARTÍCULO 202- Recurso de apelación
+Procederá el recurso de apelación solo contra las resoluciones expresamente dispuestas y se interpondrá ante el tribunal que las emitió.
+Tratándose de autos escritos, el plazo para presentarlo será de tres días. Los que se emitan en audiencia deberán apelarse inmediatamente después de su emisión.
+El plazo para apelar las sentencias será de cinco días, salvo disposición legal en contrario. En audiencia se podrá interponer oralmente, luego de la comunicación de estas, supuesto en el cual se tendrá por renunciado el plazo para recurrir. Lo anterior, salvo que por motivos fundados el tribunal cierre la audiencia una vez emitida la sentencia.
+El tribunal de primera instancia deberá pronunciarse sobre la admisión del recurso de apelación. Conferirá traslado a la parte contraria, para que dentro del tercer día se manifieste, salvo que este se formule en audiencia, supuesto en el cual deberá exponer sus alegatos de inmediato.
+Si las partes ofrecen prueba, deberán hacerlo al plantear la apelación o al pronunciarse la contraria sobre el recurso.
+Cuando esté pendiente algún acto procesal urgente, el expediente no se remitirá al superior hasta que se cumpla. Si lo tiene aquel y lo requiere el inferior para dar cumplimiento a alguna actuación, el órgano de segunda instancia enviará una copia idónea en soporte digital o físico, excepto que se pueda acceder total o parcialmente al expediente electrónico.

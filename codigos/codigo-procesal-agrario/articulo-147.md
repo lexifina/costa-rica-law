@@ -1,0 +1,3 @@
+ARTÍCULO 147- Examen del dictamen en audiencia
+El dictamen pericial será examinado en la audiencia de juicio, primero por la parte proponente, luego por la contraria y finalmente por el tribunal. Las partes podrán contar con el auxilio de personas asesoras técnicas o profesionales.
+Quien rinda el peritaje comparecerá a la audiencia y expondrá brevemente su dictamen. En ese acto, podrán pedírsele las aclaraciones o las adiciones necesarias e, incluso, objetarse y cuestionarse el informe, con otros medios probatorios. Deberá dar las explicaciones requeridas y referirse a la prueba invocada en contra de sus conclusiones.

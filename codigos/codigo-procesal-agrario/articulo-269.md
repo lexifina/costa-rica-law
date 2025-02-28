@@ -1,0 +1,3 @@
+ARTÍCULO 269- Supuestos especiales en interdictos de amparo y restitución
+Si los interdictos de amparo de posesión y de restitución se dirigen contra quien, inmediata y anteriormente, poseyó como dueño o dueña, la parte actora deberá probar que por más de un año ha poseído pública y pacíficamente como dueña, o que tiene otro título legítimo para poseer.
+Si versan sobre servidumbres continuas no aparentes, o sobre discontinuas, el reclamo, para ser atendible, deberá fundarse en un título que provenga de la persona propietaria del fundo sirviente, o de aquellas de quienes esta lo obtuvo. Si se trata de una obligación de paso constituida judicialmente, deberá aportarse la sentencia firme.

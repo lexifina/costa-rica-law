@@ -1,0 +1,3 @@
+ARTÍCULO 36- Llamada a la persona poseedora mediata
+La parte poseedora de un bien en nombre ajeno, al ser demandada en nombre propio, deberá manifestarlo en la contestación e indicar los datos de identificación y domicilio de la persona que se aduce es la titular, para que se le cite. La citación podrá también solicitarse antes o durante la audiencia preparatoria. El tribunal concederá a la persona poseedora un plazo de ocho días, a fin de que intervenga en el proceso. Si asume ser parte, la citante podrá pedir que se le excluya del proceso, para lo cual se necesitará la aceptación de la actora.
+No será aplicable lo dispuesto en esta norma, cuando por la naturaleza de lo debatido deba tenerse como litisconsorte necesario a la persona poseedora mediata.

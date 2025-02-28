@@ -1,0 +1,2 @@
+ARTÍCULO 212- Efectos del recurso de casación
+La admisión del recurso de casación produce efectos suspensivos, salvo en todas las cuestiones que se tramiten en pieza separada, medidas cautelares y ejecución provisional, para las cuales el tribunal de primera instancia conserva su competencia. Excepcionalmente, el órgano que conozca de la casación podrá decretar medidas cautelares y tutelares, de oficio o a gestión de parte.

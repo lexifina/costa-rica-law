@@ -1,0 +1,3 @@
+ARTÍCULO 221- Medios alternativos en los casos donde es parte una persona indígena
+En los asuntos entre personas indígenas o cuando al menos una parte lo sea, deberán ponerse en práctica prioritariamente los modelos establecidos por los respectivos pueblos indígenas a que pertenecen para la solución de conflictos, conforme al derecho indígena. Además, podrán basarse en dictámenes periciales culturales, cuando resulte necesario.
+Deberá reconocerse la pertinencia cultural de dichas poblaciones, a fin de que también se protejan sus valores, prácticas sociales y se respete su concepto de justicia, siempre que no se transgredan los derechos humanos.

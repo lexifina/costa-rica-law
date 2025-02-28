@@ -1,0 +1,8 @@
+ARTÍCULO 214- Audiencia para resolver el recurso de casación
+Para la audiencia en casación, se seguirán las siguientes reglas:
+1) La audiencia será presidida por la persona relatora que integre la Sala de Casación. Dará la palabra a la parte recurrente, le otorgará el tiempo durante el cual hará su exposición y le requerirá que motive, de forma ordenada y concisa, cada uno de los vicios alegados. Luego se escuchará a la contraria por un tiempo igual para que exprese su posición sobre el recurso.
+2) No se permitirá la lectura del recurso o documentos, salvo que se trate de citas breves de prueba, jurisprudencia, textos legales o doctrinarios, los cuales podrán ser leídos únicamente en lo conducente. Se dará un lapso para la réplica y la contrarréplica. Quienes integren el órgano de casación podrán solicitar aclaraciones o explicaciones a las partes. Si son varias las partes recurrentes, la actora iniciará la exposición.
+3) Se incorporará la prueba documental que se haya admitida en casación y se escuchará a las partes sobre ella. En su caso, se recibirá la prueba restante, siguiendo las reglas dispuestas para la audiencia de juicio. Finalmente, se otorgará a las partes un período para conclusiones.
+4) La ausencia injustificada de la parte implicará el desistimiento de la prueba, en caso de que se haya admitido, sin necesidad de resolución que así lo declare.
+Se realizará la audiencia con las partes presentes.
+5) Cuando la audiencia se realice a solicitud de la parte recurrente, y esta no asiste de manera injustificada, se le impondrán las costas del recurso, independientemente del resultado. Si dos o más partes gestionaron la audiencia, y ninguna se presenta, cada una asumirá las costas del recurso.

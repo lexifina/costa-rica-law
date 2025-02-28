@@ -1,0 +1,4 @@
+ARTÍCULO 309- Frutos en especie y efectos de comercio
+Cuando sea necesaria la ejecución, por incumplimiento de la obligación de entrega de cantidad determinada de frutos en especie o de efectos de comercio, se procederá a la conversión a dinero y a hacer efectiva la suma resultante, según los parámetros fijados en la sentencia.
+La valoración de los frutos se hará por el precio corriente y actual en el mercado del lugar donde deba verificarse la entrega; en su defecto, el más próximo, al día en que se practique, salvo disposición en contrario de la sentencia o de ley especial.
+El precio se acreditará, salvo normativa en contrario, con el informe de una o un corredor jurado, y si no con el de una persona que sea comerciante de reconocida honorabilidad. En el acto del nombramiento se fijarán sus honorarios. El tribunal establecerá el procedimiento de valoración o la hará prudencialmente.

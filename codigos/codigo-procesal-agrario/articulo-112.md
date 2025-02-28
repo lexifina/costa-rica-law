@@ -1,0 +1,4 @@
+ARTÍCULO 112- Procedimiento simplificado
+Las partes podrán presentar la demanda y la contestación de manera conjunta, renunciando al emplazamiento y solicitando que se señale de una vez la audiencia de juicio. Si no existe prueba que practicar, podrán solicitar se proceda al dictado de la sentencia.
+Las partes podrán solicitar, en la demanda o en la contrademanda, que una vez contestadas estas, el proceso se resuelva de una vez, con la prueba que conste. Al emplazarse de la demanda o la reconvención, el tribunal necesariamente hará indicación de esa solicitud. Si no se formula oposición en la contestación o la réplica, se tendrá por aceptada tácitamente la solicitud y se procederá a la emisión de la sentencia, salvo que el tribunal considere que se está ante un fraude procesal.
+Cuando se rechace la gestión, se continuará con la tramitación del proceso.

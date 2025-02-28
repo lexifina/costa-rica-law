@@ -1,0 +1,6 @@
+CAPÍTULO III
+ORGANIZACIÓN Y FUNCIONAMIENTO
+ARTÍCULO 9- Órganos jurisdiccionales
+La jurisdicción agraria estará a cargo de los juzgados y tribunales agrarios, integrados por personas juzgadoras especializadas y por la Sala Primera de la Corte Suprema de Justicia. Además, se contará con un equipo especializado de personas juzgadoras especialistas en materia agraria, a cargo de conciliaciones y de ejecución, sin perjuicio de que por las cargas de trabajo asuman funciones de las demás personas juzgadoras para lograr una gestión más eficiente.
+Para su organización, funcionamiento y conformación, se aplicará lo dispuesto en este Código y en la Ley N.° 7333, Ley Orgánica del Poder Judicial, de 5 de mayo de 1993. Con ese fin, el Tribunal Agrario deberá constituirse con las secciones que sean necesarias, y tendrá su sede en el Segundo Circuito Judicial de San José; sin perjuicio de que la Corte Plena disponga la creación de otras sedes regionales del Tribunal, conforme a los requerimientos de trabajo para ofrecer un servicio público eficiente y de calidad.
+Los juzgados contarán con las personas juzgadoras que sean necesarias. Se faculta a la Corte Plena para que amplíe las sedes de los juzgados agrarios, conforme a los criterios señalados.

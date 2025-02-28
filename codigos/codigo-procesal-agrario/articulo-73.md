@@ -1,0 +1,3 @@
+ARTÍCULO 73- Auxilio judicial
+Los tribunales deberán prestarse auxilio en las actuaciones que requieran colaboración. Se exceptúa el auxilio judicial cuando se trate de práctica de prueba o de actos propios de una audiencia, que vulneren el principio de inmediación.
+Se podrá pedir colaboración directamente a cualquier funcionario o funcionaria administrativa. Además, solicitar a los entes públicos pertinentes información sobre los datos que consten en sus registros, a fin de identificar o localizar a una parte, cuando sea indispensable realizar una notificación de forma personal y no se cuente con otro medio para lograrlo de forma efectiva.

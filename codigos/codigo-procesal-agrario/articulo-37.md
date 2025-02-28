@@ -1,0 +1,4 @@
+ARTÍCULO 37- Intervención coadyuvante
+Podrá intervenir en el proceso quien tenga un interés jurídico legítimo en su resultado, sin alegar derecho alguno a su favor, solo con el fin de coadyuvar a una parte.
+La coadyuvancia podrá gestionarse hasta antes de las conclusiones en la audiencia de juicio. Si la solicitud se efectúa en audiencia, se resolverá de inmediato. Si se realiza fuera de ella, se tramitará por medio del proceso incidental.
+Quien se apersone como coadyuvante, tomará el proceso en el estado en que se encuentre. Se le permitirá hacer alegatos, recusar, participar en actividades probatorias e interponer recursos y demás medios procedimentales para hacer valer su interés, excepto en lo que perjudique a quien coadyuva. Por su intervención, no devengará ni pagará costas, salvo en razón de las alegaciones que promueva con independencia de la parte principal.

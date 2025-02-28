@@ -1,0 +1,2 @@
+ARTÍCULO 287- Destino de los recursos pecuniarios derivados de una condena indemnizatoria
+Los recursos pecuniarios derivados de una condena indemnizatoria, en lo concerniente al daño ambiental, deberán orientarse a la reparación de la afectación concreta. De no ser posible, se deberán destinar a la protección, preservación, restauración o mejoramiento en general de bienes, recursos, servicios o ecosistemas, iguales o equivalentes a los afectados.

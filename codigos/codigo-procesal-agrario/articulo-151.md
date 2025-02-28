@@ -1,0 +1,8 @@
+ARTÍCULO 151- Exhibición de documentos
+Se ordenará a las partes la exhibición de documentos, informes, libros o cualquier otro elemento probatorio de esa naturaleza si están en su dominio o disposición, se refieran al objeto del proceso, sean prueba común o puedan derivarse datos probatorios para quien lo solicite.
+Se aplicarán las siguientes reglas:
+1) Con la petición de exhibición, quien lo solicite podrá aportar una copia o reproducción del documento. Si no lo tiene en su poder, indicará en términos concretos su contenido. Cuando se ordene la exhibición, se advertirá a la parte requerida, que ante su negativa injustificada, se podrá tener como exacto lo presentado o afirmado por la contraria. Lo anterior se dispone siempre que por medio de otras pruebas resulten manifiestamente verosímiles la existencia y el contenido del documento no exhibido.
+2) Si el documento se encuentra en poder de una tercera persona, se le prevendrá lo exhiba, siempre que sea trascendente para el proceso y no le produzca perjuicio.
+3) En ambos supuestos se podrá presentar copia certificada o testimonio del documento prevenido, salvo si el tribunal o las partes exijan el original por razones fundadas.
+4) Las personas funcionarias públicas no podrán negarse a expedir certificaciones o testimonios, ni oponerse a exhibir los documentos de sus dependencias y archivos, de acuerdo con el ordenamiento vigente.
+5) Al ordenarse la exhibición se advertirá que ante la negativa injustificada de cumplimiento podrá seguirse causa por el delito de desobediencia a la autoridad, sin perjuicio de que en sede penal la conducta se recalifique.

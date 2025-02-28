@@ -1,0 +1,2 @@
+ARTÍCULO 94- Nulidad posterior a sentencia
+Cuando se trate de procesos litigiosos en los cuales no proceda la revisión, podrá alegarse la nulidad con posterioridad a la resolución firme que ponga fin al proceso, mediante la vía incidental. El reclamo se sustentará en una de las causales por las cuales es admisible la revisión. Deberá plantearse dentro de los tres meses siguientes al conocimiento de la causal, o desde del momento en que debió conocerla o pudo hacerla valer la parte perjudicada. En caso contrario, se declarará inadmisible.

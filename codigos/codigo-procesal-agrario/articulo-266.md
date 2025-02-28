@@ -1,0 +1,4 @@
+ARTÍCULO 266- Amparo de posesión
+El interdicto de amparo de posesión procederá cuando la persona que esté en posesión de un inmueble resulte perturbada por actos o hechos que manifiesten intención de despojo o perjudiquen el libre goce del bien.
+Se estimará que existe intención de despojo siempre que la persona responsable de los hechos que se demandan haya conocido o debido conocer las consecuencias lesivas sobre el derecho ajeno.
+La sentencia estimatoria ordenará a la parte demandada que mantenga a la actora en posesión del bien y se abstenga de perturbarle, con el apercibimiento de ser juzgada por el delito de desobediencia a la autoridad. Lo anterior se dispone sin perjuicio de la aplicación de las disposiciones que corresponden ante el incumplimiento de sentencias con condena de no hacer.

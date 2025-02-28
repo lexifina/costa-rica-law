@@ -1,0 +1,2 @@
+ARTÍCULO 324- Pago por consignación
+Si lo debido es un bien determinado, el producto de una cosecha, un grupo de animales, entregables en el lugar donde se encuentren o en uno distinto del domicilio de la persona acreedora, o si el objeto no está determinado sino en su especie, no habrá necesidad de llevar el bien para hacer la oferta. En ese caso, bastará que se intime a la persona acreedora, para que acepte el pago, con indicación precisa del objeto de la prestación y, en su caso, del lugar donde se encuentra, lo cual se hará constar en el acta.
