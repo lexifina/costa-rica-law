@@ -14,3 +14,4 @@ Reglamento para el procedimiento del cobro administrativo y judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-02-03 | la propia norma |
+| 2 | 2025-02-28 | Reglamento municipal 0 (2025-02-28) |
