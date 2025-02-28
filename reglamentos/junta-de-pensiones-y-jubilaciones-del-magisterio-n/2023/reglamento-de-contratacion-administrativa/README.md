@@ -14,3 +14,4 @@ Reglamento de contratación administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-07 | la propia norma |
+| 2 | 2025-02-28 | Reglamento 24 (2025-02-28) |

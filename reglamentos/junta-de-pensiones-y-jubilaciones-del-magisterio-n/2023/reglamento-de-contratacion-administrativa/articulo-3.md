@@ -8,7 +8,8 @@ Definiciones
 - COMPRAS SOSTENIBLES: compras conformes con los principios que rigen la contratación administrativa y que tienen el mayor impacto positivo ambiental, social y económico posible durante todo el ciclo de vida del producto.
 - CUADRO COMPARATIVO: se utiliza para presentar una comparación de cualidades y calidades entre ellas: precio, garantía, tiempos de entrega y forma de pago, así como cualquier otro tipo de información, de las ofertas presentadas por los proveedores, de forma tal que facilite la toma de decisiones en la adquisición de bienes y servicios.
 - DEPARTAMENTO: unidad subordinada de la Dirección Ejecutiva, dentro de la estructura del organigrama Institucional.
-- DEPARTAMENTO ADMINISTRATIVO: encargado de satisfacer las necesidades de bienes y servicios (suministros, caja chica, seguridad, transporte, mantenimiento, limpieza y control de activos), de la Institución, que les permita llevar a cabo su trabajo en forma eficiente y sin ningún contratiempo para el adecuado servicio a los afiliados.
+- DEPARTAMENTO ADMINISTRATIVO: Encargado de satisfacer las necesidades de bienes y servicios (suministros, pagos menores, seguridad, transporte, mantenimiento, limpieza y control de activos), de la Institución, que les permita llevar a cabo su trabajo en forma eficiente y sin ningún contratiempo para el adecuado servicio a los afiliados.
+(Así reformada la definición anterior mediante sesión ordinaria N° 0024-2025 del 28 de febrero de 2025)
 - DEPARTAMENTO FINANCIERO-CONTABLE: encargado de administrar los recursos financieros que la institución recauda, con el fin de cumplir con las obligaciones institucionales, mediante un adecuado registro contable y presupuestario.
 - DEPARTAMENTO USUARIO: es el departamento que requiere el bien o servicio a contratar responsable de iniciar el proceso de contratación.
 - DESIERTO: si fueron presentadas ofertas elegibles, pero por razones de protección al interés público así lo recomiendan, la administración, mediante un acto motivado, podrá declarar desierto el concurso.
@@ -26,7 +27,10 @@ Definiciones
 - OFERTA EN CONJUNTO: se dan cuando dos o más oferentes se unen para participar en un proceso de contratación, pero definiendo por separado las responsabilidades de cada uno en la fase de ejecución, es decir, cada oferente es responsable por su parte, aunque ante la administración ofertan como uno solo.
 - PROVEEDOR: persona física o jurídica que se encuentra debidamente inscrita en el registro de proveedores de la Institución que ofrece un bien o servicio.
 - PROVEEDURÍA: provee a la institución de todos los bienes y servicios que se requieren para su buen funcionamiento, mediante los procesos y lineamientos establecidos en el Reglamento de Contratación Administrativa.
-- REGLAMENTO: conjunto de disposiciones establecidas por JUPEMA y debidamente aprobadas por su Junta Directiva, con el propósito de normar las condiciones bajo las cuales se regirá la contratación de bienes y servicios.
+- Persona Trabajadora: Toda persona física que presta a otra u otras, sus servicios materiales, intelectuales o de ambos géneros, en virtud de un contrato de trabajo expreso o implícito, verbal o escrito, individual o colectivo. (Artículo 4°, Código de Trabajo).
+(Así adicionada la definición anterior mediante sesión ordinaria N° 0024-2025 del 28 de febrero de 2025)
+- REGLAMENTO: Conjunto de reglas o preceptos emitidos por la autoridad competente y cuyo objeto es definir los principios generales contenidos en la normativa a que se refiere para su aplicación aprobado por su Junta Directiva.
+(Así reformada la definición anterior mediante sesión ordinaria N° 0024-2025 del 28 de febrero de 2025)
 - REFRENDO DE VERIFICACIÓN INTERNO: es un acto de aprobación, por lo que funge como un requisito de eficacia del contrato administrativo.
 - REGISTRO DE PROVEEDORES: base de datos de potenciales proveedores inscritos que ofrecen bienes y servicios a JUPEMA.
 - SERVICIO: Prestación intangible suministrada por terceros ya sea persona física o jurídica.

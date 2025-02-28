@@ -1,9 +1,8 @@
-Artículo 36.-
-Precio Inaceptable.
+Artículo 36.-Precio Inaceptable.
 Precio inaceptable. Se estimarán inaceptables y en consecuencia motivo de exclusión de la oferta que los contenga, los siguientes precios:
 a) Ruinoso o no remunerativo para el oferente, que dé lugar a presumir el incumplimiento por parte de éste de las obligaciones financieras por insuficiencia de la retribución establecida. La administración deberá indagar con el oferente si con el precio cobrado será capaz de cumplir con los términos del contrato. Esa consulta deberá efectuarla antes de aplicar el sistema de evaluación, a efecto de no incluir en el listado de ofertas elegibles aquélla que contenga un precio ruinoso.
 b) Precio excesivo es aquel que comparándose con los precios normales de mercado los excede o bien que supera una razonable utilidad. Igualmente, la administración, indagará con el oferente cuáles motivos subyacen para ese tipo de cotización, antes de adoptar cualquier decisión.
 c) Precio que excede la disponibilidad presupuestaria, en los casos en que la administración no tenga medios para el financiamiento oportuno; o el oferente no acepte ajustar su precio al límite presupuestario, manteniendo las condiciones y calidad de lo ofrecido. En este último caso, la oferta se comparará con el precio original.
 d) Precio producto de una práctica colusoria o de comercio desleal.
 JUPEMA deberá acreditar en el estudio de ofertas, mediante la recomendación técnica, las razones con base en las cuales concluye que el precio es inaceptable.
-En la invitación a cotizar, la administración indicará el rango mínimo y máximo que determinará los precios ruinosos o excesivos que será de un +/- 10%.
+(Así reformado mediante sesión ordinaria N° 0024-2025 del 28 de febrero de 2025)

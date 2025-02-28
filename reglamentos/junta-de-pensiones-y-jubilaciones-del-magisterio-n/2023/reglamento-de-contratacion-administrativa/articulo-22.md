@@ -1,5 +1,4 @@
-Casos de excepción a los lineamientos de la contratación de bienes y servicios,
-compras directas.
+Casos de excepción a los lineamientos de la contratación de bienes y servicios, compras directas.
 Artículo 22.-
 Excepciones
 La contratación mediante los procesos establecidos en el artículo 12, constituye el procedimiento normal en una compra de bienes o servicios. Consecuentemente, la contratación por vía directa constituye una práctica normal previa demostración, siguiendo los lineamientos establecidos en los siguientes incisos:
@@ -20,4 +19,5 @@ h) Arrendamiento o compra de bienes únicos: la compra o arrendamiento de bienes
 i) Situaciones imprevisibles o de carácter urgente: las contrataciones necesarias para enfrentar situaciones totalmente imprevisibles y urgentes que afecten o amenacen gravemente la continuidad de los servicios esenciales. En estos casos el Departamento Administrativo con el visto bueno de la Dirección Ejecutiva puede efectuar de inmediato las contrataciones que resulten necesarias y deja constancia expresa de todas las circunstancias, en el expediente de la contratación. Consecuentemente estos proveedores deben forman parte del registro de proveedores de la Institución.
 j) También puede comprarse directamente a las entidades sociales o económicas del Magisterio Nacional, que ofrezcan bienes o servicios provistos por ellos y a precios razonables.
 k) Compra de artículos cuyo precio esté regulado por el Estado por ejemplo combustibles.
-l) Las compras realizadas con fondos de caja chica que sean indispensables e impostergables, siempre y cuando no excedan el cinco por ciento (5%) del monto máximo fijado para la compra directa de este reglamento.
+l) Las compras realizadas como pagos menores que sean indispensables e impostergables, siempre y cuando no excedan el cinco por ciento (5%) del monto máximo fijado para la compra directa de este reglamento.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 0024-2025 del 28 de febrero de 2025)
