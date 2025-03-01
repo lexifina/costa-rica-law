@@ -1,0 +1,1 @@
+Artículo 3.- Requisito previo a la habilitación. El certificado de regencia otorgado por el Colegio de Optometristas de Costa Rica es requisito para solicitar ante el Ministerio de Salud la habilitación de los servicios de óptica, ya sea por primera vez o por renovación.

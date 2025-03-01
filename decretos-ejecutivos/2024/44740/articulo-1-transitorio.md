@@ -1,0 +1,1 @@
+Transitorio único. Las ópticas que han venido operando cuentan con un plazo de seis meses a partir de la entrada en vigencia del presente decreto, para obtener la aprobación de la regencia por parte del Colegio de Optometristas de Costa Rica. De forma extraordinaria el Colegio contará con 180 días para resolver estas solicitudes y notificar al administrado.

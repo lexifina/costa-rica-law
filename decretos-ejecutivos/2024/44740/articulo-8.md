@@ -1,0 +1,1 @@
+Artículo 8.- Ubicación del certificado de regencia. El certificado de regencia debe colocarse dentro de la óptica en un lugar visible claramente a los usuarios, junto a la correspondiente habilitación del Ministerio de Salud.
