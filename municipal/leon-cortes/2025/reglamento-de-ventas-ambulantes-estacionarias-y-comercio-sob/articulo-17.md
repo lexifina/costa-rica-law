@@ -1,0 +1,2 @@
+Artículo 17.-La ubicación de los puestos para ventas estacionarias en zonas de cuadrantes urbanos, será como máximo de uno por cada cien metros, siempre y cuando las condiciones lo permitan a juicio de la Municipalidad y el presente Reglamento.
+En caso de ubicaciones rurales, queda a criterio de la Municipalidad la designación de los sitios, previo informe técnico de los departamentos de Hacienda Municipal, Desarrollo y Control Urbano y la Unidad Técnica de Gestión Vial Municipal.

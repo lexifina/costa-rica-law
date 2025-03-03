@@ -1,0 +1,1 @@
+Artículo 12.-Los vendedores de lotería, chances y tiempos de la Junta de Protección Social de San José, deberán solicitar la respectiva licencia, siendo eximidos de los requisitos del inciso b) del artículo 4 de este Reglamento, así como aquellos exceptuados por ley especial. Estos no podrán hacer uso de ningún tipo de mobiliario para ejercer la actividad en vías públicas.

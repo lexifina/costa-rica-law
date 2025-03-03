@@ -1,0 +1,1 @@
+Artículo 16.-Queda totalmente prohibida la solicitud, tramitación e instalación de servicios públicos de electricidad y acueducto, para la actividades económicas reguladas en el presente reglamento, esto por encontrarse en sitio de dominio público. Se exceptúan en este caso las actividades reguladas en el artículo N° 7 del presente reglamento.

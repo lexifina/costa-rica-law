@@ -1,0 +1,1 @@
+Artículo 11.-Quedan terminantemente prohibidas las ventas en ventanas de comercios debidamente establecidos mediante patente comercial domiciliada, cuyos dependientes y/o productos ocupen la vía pública para ejercer la actividad, salvo los casos autorizados mediante acuerdo del Concejo Municipal o bajo la regulación de la Ley de Comercio al Aire Libre N°10126.

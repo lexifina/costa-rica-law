@@ -1,0 +1,1 @@
+Artículo 8°-Las ventas ambulantes, estacionarias o de comercio sobre ruedas, no funcionarán en sitios prohibidos por otras leyes, o en aquellos lugares que atenten con la seguridad del peatón y tránsito de vehículos.

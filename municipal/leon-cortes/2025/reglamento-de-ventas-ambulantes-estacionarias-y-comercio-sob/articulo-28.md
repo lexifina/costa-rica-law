@@ -1,0 +1,2 @@
+Artículo 28.- Los montos de impuesto por patentes a pagar para las actividades reguladas en la presente normativa, se definirán conforme a lo establecido por la Ley N° 8735 para patentes comerciales, siendo aplicable a estas en su totalidad lo establecido en mencionada regulación.
+El no pago del impuesto de patentes en los términos fijados en ley y este Reglamento, generará las multas, recargos e intereses establecidos en la normativa reguladora conexa vigente.

@@ -1,0 +1,1 @@
+Artículo 21.-La solicitud de cambio de actividad económica, deberá ser tramitada mediante la utilización del formulario general de trámites de licencias comerciales que la Municipalidad pone a disposición de los interesados para tales efectos.

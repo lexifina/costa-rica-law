@@ -1,0 +1,1 @@
+Artículo 15.-En los puestos que se preparen y expendan alimentos de consumo directo, se exigirá la exposición pública del certificado de permiso sanitario de funcionamiento expedido por el Ministerio de Salud. Los trabajadores deberán portar el carné de manipulación de alimentos, así como contar con una vestimenta adecuada conforme a los leyes y reglamentos sanitarios.
