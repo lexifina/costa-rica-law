@@ -21,3 +21,4 @@ Reglamento Orgánico del Ministerio de Salud
 | 6 | 2021-05-14 | Decreto Ejecutivo 41999 (2019-09-20) |
 | 7 | 2021-05-14 | Decreto Ejecutivo 43080 (2021-04-22) |
 | 8 | 2023-12-05 | Decreto Ejecutivo 44350 (2023-12-05) |
+| 9 | 2025-03-03 | Decreto Ejecutivo 44972 (2025-03-03) |
