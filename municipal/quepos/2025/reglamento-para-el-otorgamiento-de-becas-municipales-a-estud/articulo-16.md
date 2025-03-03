@@ -1,0 +1,1 @@
+Artículo 16 _Una vez aprobadas las becas el encargado de la tutela del estudiante deberá gestionar ante la entidad bancaria a la que la Municipalidad de Quepos se encuentre afiliada, un número de cuenta bancaria a nombre del menor de edad para ser entregada en la Unidad de Talento Humano Municipal.
