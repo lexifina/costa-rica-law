@@ -1,0 +1,22 @@
+N° 44898-SP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SEGURIDAD PÚBLICA
+Con fundamento en los artículos 140 incisos 3), 8) y 18) y 146 de la Constitución Política; y artículos 25 inciso 1), 27, inciso 1) y 28, inciso 2) acápites a) y b) de la Ley General de la Administración Pública N° 6227 del 02 de mayo de 1978.
+Considerando:
+I.-Que las tecnologías de información constituyen una herramienta fundamental para el mejoramiento de la gestión policial y administrativa y la calidad de servicios que el Ministerio de Seguridad Pública brinda al país, propiciando con su utilización cambios cualitativos y cuantitativos en los procesos y servicios, para una mayor eficiencia, eficacia y transparencia institucional.
+II.-Que el desarrollo de las tecnologías de información involucra una alta inversión de recursos materiales, financieros y tecnológicos que debe aprovecharse eficientemente, por lo que se requiere de un grupo de trabajo que coadyuve con la Administración, en cuanto a la inversión, adquisición, distribución, uso y mantenimiento de las tecnologías de información de los proyectos tecnológicos de gran impacto, en conformidad con las "Normas técnicas para la gestión y el control de las Tecnologías de Información" (N-2-2007-CO-DFOE), aprobadas mediante Resolución del Despacho de la Contralora General de la República, N° R-CO-26-2007 del 7 de junio del 2007, publicada en La Gaceta N° 119 del 21 de junio del 2007.
+III.-Que, como responsabilidad ineludible de la Comisión de Tecnología y Seguridad de la Información del Ministerio de Seguridad Pública, le corresponde refrendar los instrumentos elaborados en materia de seguridad de la información y el registro e inventario de activos, suministrados por la Dirección de Tecnologías de la Información, así como brindar apoyo al fortalecimiento y mejora continua que requiera la Institución en este ámbito.
+IV.-Que mediante circular MSP-DM-722-2018 del 08 de diciembre de 2018, el Despacho del Ministro de Seguridad Pública, debido a los resultados del informe de Auditoría Interna N° 01-057-2018 AD/TI, en el que se determinó riesgos en cuanto a la seguridad de información institucional, giró instrucciones para que se conformara una Comisión Institucional, integrada en aquel momento por los tres Viceministerios, la Oficina de Prensa y Relaciones Públicas, Archivo Institucional, Asesoría Jurídica, Dirección de Tecnologías de Información - quien preside - y la Oficina de Mejoramiento y Control de la Gestión Institucional, con la finalidad de establecer la clasificación, fuentes de datos internas, manipulación, procesamiento, publicación y difusión de la información, así como las personas funcionarias responsables en cada proceso a nivel institucional.
+V.-Que al cumplirse el objetivo para el cual fue creada la Comisión, se hace necesario con el avance de las tecnologías y sistemas de información y cambios en la estructura organizacional del Ministerio, actualizar el presente marco normativo, de modo que permita satisfacer las necesidades actuales e imperantes de la referida Comisión, por lo que se procede a reformar el "Reglamento Interno de la Comisión de Informática del Ministerio de Seguridad Pública", Decreto Ejecutivo N° 26683-SP, a efectos de que se ajuste a los requerimientos en materia de tecnología y seguridad de la información.
+VI.-Que de conformidad con el párrafo tercero del artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC de 22 de febrero del 2012, no se procedió a llenar la Sección I, denominada "Control Previo de Mejora Regulatoria" del "Formulario de Evaluación Costo Beneficio", dado que esta propuesta no establece ni modifica trámites, requisitos y/o procedimientos vinculados a las personas administradas. Por tanto;
+Decretan:
+REFORMA AL DECRETO EJECUTIVO N° 26683-SP
+DEL 10 DE FEBRERO DE 1998, DENOMINADO
+"REGLAMENTO INTERNO DE LA COMISIÓN
+DE TECNOLOGÍAS DE LA INFORMACIÓN
+DEL MINISTERIO DE SEGURIDAD PÚBLICA",
+PUBLICADO EN EL DIARIO OFICIAL
+LA GACETA N° 40
+DEL 26 DE FEBRERO DE 1998
+Artículo 1º-Modifíquese el título del Decreto Ejecutivo N° 26683-SP, del 10 de febrero de 1998, para que en lugar de: "Reglamento Interno de la Comisión de Tecnologías de Información del Ministerio de Seguridad Pública, se lea de la siguiente manera:
+"Reglamento Interno de la Comisión de Tecnología y Seguridad de la Información del Ministerio de Seguridad Pública".
