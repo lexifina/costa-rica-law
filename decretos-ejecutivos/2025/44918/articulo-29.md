@@ -1,0 +1,1 @@
+ARTÍCULO 29. SUPERVISIÓN DEL EFECTIVO CUMPLIMIENTO DE LAS SANCIONES IMPUESTAS. Corresponde a la Dirección de Recursos Humanos el efectivo cumplimiento de las sanciones decretadas con motivo de la aplicación del procedimiento dispuesto en este Reglamento.

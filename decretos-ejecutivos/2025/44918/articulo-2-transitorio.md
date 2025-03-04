@@ -1,0 +1,1 @@
+Transitorio II: El MEP en el plazo de seis meses, posteriores a la publicación de la presente normativa, realizará las gestiones correspondientes que tiendan a cumplir con la divulgación del presente Reglamento conforme se señala en los artículos 8, 9 y 10 de este Reglamento.

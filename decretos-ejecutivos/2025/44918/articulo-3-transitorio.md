@@ -1,0 +1,1 @@
+Transitorio III: El registro estadístico señalado en el artículo 28, a cargo de la Dirección de Recursos Humanos, deberá entrar en funcionamiento en el plazo de un mes, una vez publicado el presente Reglamento en el Diario Oficial La Gaceta.

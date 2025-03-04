@@ -1,0 +1,1 @@
+ARTÍCULO 21. IMPEDIMENTOS, EXCUSAS Y RECUSACIONES. En los casos de impedimento, excusa o recusación de las personas que conforman el órgano director o cualquier otro órgano que tuviere participación en la tramitación o resolución de una causa disciplinaria por acoso laboral, se regulará por lo que dispone el artículo 12 del Código Procesal Civil.

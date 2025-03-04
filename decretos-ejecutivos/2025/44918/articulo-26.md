@@ -1,0 +1,1 @@
+ARTÍCULO 26. RATIFICACIÓN, ACLARACIÓN Y ADICIÓN DE LA DENUNCIA. Excepcionalmente, cuando lo estime conveniente, el órgano director de la investigación preliminar, en caso de apertura, podrá solicitar a la persona denunciante su comparecencia o cualquier documento necesario para ratificar, aclarar o ampliar el contenido de su denuncia.

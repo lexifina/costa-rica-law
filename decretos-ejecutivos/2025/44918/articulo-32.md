@@ -1,0 +1,1 @@
+ARTÍCULO 32. NORMAS APLICABLES. En lo que corresponda y para lo no previsto en este Reglamento, se estará a lo dispuesto en la Ley Marco de Empleo Público, su reglamento, la Ley General de la Administración Pública, el Estatuto del Servicio Civil, Reglamento autónomo de servicios del Ministerio de Educación Pública Decreto Ejecutivo 5771-E y demás normativa vigente.
