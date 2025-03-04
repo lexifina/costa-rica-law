@@ -1,1 +1,2 @@
-Artículo 54.—Acuerdos de Comisión: Los acuerdos de las comisiones se tomarán con el carácter de firmes y se decidirán por simple mayoría.
+Artículo 54. -Lectura y análisis de la correspondencia recibida. La Secretaría del Concejo presentará como correspondencia recibida para la Sesión Ordinaria; aclarando a quien va dirigida, con fecha, número de trámite correspondiente toda aquella documentación que ingrese hasta las 12 horas de los dos días hábiles inmediatos anterior, excepto lo que sea considerada de trámite urgente.
+(Así reformado mediante sesión ordinaria N°13- 2025 del 4 de marzo del 2025)

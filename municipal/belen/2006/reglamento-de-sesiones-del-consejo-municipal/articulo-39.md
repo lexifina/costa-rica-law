@@ -1,1 +1,2 @@
-Artículo 39.—Audiencias Públicas: El Concejo recibirá un máximo de tres audiencias las primeras y terceras sesiones ordinarias de cada mes, en las que, quienes la hayan solicitado, tendrán 20 minutos para hacer su exposición.
+Artículo 39. -Uso de la palabra. La Presidencia concederá el uso de la palabra en el mismo orden en que lo soliciten los participantes, dirigiendo la deliberación y el debate de forma participativa y equitativa. Salvo los casos en que la Presidencia o este Reglamento fijen un lapso menor o mayor, cada participante permanente podrá referirse al asunto en discusión; hasta por un tiempo de cinco minutos la primera vez, y por una segunda vez hasta por un lapso de tres minutos.
+(Así reformado mediante sesión ordinaria N°13- 2025 del 4 de marzo del 2025)

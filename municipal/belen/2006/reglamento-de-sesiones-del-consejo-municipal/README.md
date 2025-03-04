@@ -14,3 +14,4 @@ Reglamento de Sesiones del Consejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-26 | la propia norma |
+| 2 | 2025-03-04 | Reglamento municipal 13 (2025-03-04) |
