@@ -1,0 +1,1 @@
+Artículo 6º-Incumplimiento de deberes. Cualquier incumplimiento a los deberes y obligaciones establecidos en el artículo 16 de la Ley de Impuesto sobre Bienes Inmuebles N° 7509, acarreará la imposición, por parte de la Municipalidad, de las multas contenidas en el artículo 17 de la antes señalada, mediante los procedimientos indicados en este Reglamento.

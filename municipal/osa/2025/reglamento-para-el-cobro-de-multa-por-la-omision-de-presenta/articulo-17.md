@@ -1,0 +1,1 @@
+Artículo 17°-Obligación de cumplimiento. La Municipalidad, cuando detecte el incumplimiento de la obligación con lo señalado en el artículo 16 de la ley 7509, le impondrá las multas establecidas en el artículo 17 de la misma ley y detalladas en el presente reglamento, ajustadas al valor actual definido por avaluó municipal.

@@ -1,0 +1,1 @@
+Artículo 23°- Ingresar la multa a la base de datos. Las multas por incumplimiento de no presentar la declaración de bienes inmuebles en el tiempo establecido por la ley serán responsabilidad del departamento de Bienes Inmuebles una vez que haya pasado el tiempo establecido en el artículo 21 del presente reglamento.

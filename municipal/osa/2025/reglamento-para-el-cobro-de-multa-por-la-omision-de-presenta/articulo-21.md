@@ -1,0 +1,1 @@
+Artículo 21°- Procedimiento. Una vez notificada el acta por inobservancia se ingresa en la base de datos para que en 5 días hábiles se ingrese en el Sistema Municipal la multa la cual será cancelada por el sujeto pasivo en un solo tracto.

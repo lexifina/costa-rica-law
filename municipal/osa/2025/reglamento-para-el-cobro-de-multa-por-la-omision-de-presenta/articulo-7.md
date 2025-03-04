@@ -1,0 +1,1 @@
+Artículo 7°- Hecho generador. El hecho generador de la multa que impone el artículo 17 de la Ley N°7509, es la no presentación de la declaración de bienes inmuebles en los términos que lo dispone el artículo 16 de dicha ley.
