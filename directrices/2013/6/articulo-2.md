@@ -1,1 +1,0 @@
-Artículo 2º- Objetivo. Instruir a las instituciones contempladas en el artículo anterior, sobre la estandarización del tipo de cambio a utilizar en los registros de las transacciones en moneda extranjera.
