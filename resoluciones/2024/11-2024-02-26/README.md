@@ -14,3 +14,4 @@ Lineamientos necesarios para la implementación del sello regulatorio de calidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-03-05 | la propia norma |
+| 2 | 2025-03-05 | Resolución 10 (2025-03-05) |
