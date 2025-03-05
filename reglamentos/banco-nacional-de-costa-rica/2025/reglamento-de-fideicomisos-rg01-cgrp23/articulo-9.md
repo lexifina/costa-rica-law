@@ -1,0 +1,1 @@
+Artículo 9º.-Responsabilidades en la administración. Cuando se presente alguna falta imputable directamente al Fiduciario, según sea el caso del tipo de Fideicomiso los gastos serán cubiertos por el Fiduciario. La definición de dicho cargo deberá ser debidamente declarada por un Juez o autoridad competente mediante resolución en firme.

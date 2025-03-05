@@ -1,0 +1,1 @@
+Artículo 5º-Constitución del servicio fiduciario. El fideicomiso se constituirá por escrito, de conformidad con lo establecido en el Código de Comercio de la República de Costa Rica y será debidamente emitido por Fideicomisos, en aquellos casos que así se requiera por el tipo de Fideicomiso a suscribir se coordinaran labores o autorizaciones de otras áreas del BN.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 25.-Ejercitar los derechos y acciones. Cuando por alguna razón hubiere que ejercitar los derechos y acciones necesarios y entablar acción judicial para la defensa de los bienes objetos del fideicomiso, Fideicomisos lo comunicará a las partes y realizará los trámites correspondientes de acuerdo con lo situación que se presente y pueda verse afectado, no sólo el patrimonio fideicometido sino también alguna de las partes participantes o el fin mismo del Fideicomiso, por lo que deberá incluirse dentro de los honorarios este tipo de posibles gastos que tendrán que ser cubiertos por patrimonio del Fideicomiso si lo hubiere, o por el Fideicomitente.

@@ -1,0 +1,2 @@
+Artículo 19.-Sobre garantizar rentabilidad en su administración.
+De conformidad con lo establecido en el Artículo 647 del Código de Comercio; se prohíbe al fiduciario garantizar los rendimientos de los bienes fideicometidos. El fiduciario responderá de cualquier pérdida que fuere ocasionada por su culpa o negligencia declarada así por sentencia judicial en firme, en la inversión o en el manejo y atención de los bienes fideicometidos.

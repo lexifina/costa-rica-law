@@ -1,0 +1,1 @@
+Artículo 28.-Hechos relevantes. Fideicomisos comunicará obligatoriamente a todos los representantes de su cartera de Fideicomisos todo aquello que pueda tener relación directa y afecte el objetivo o propósito del Fideicomiso o modifique lo estipulado en el Contrato de Fideicomiso suscrito entre las partes.

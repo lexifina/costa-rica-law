@@ -1,0 +1,1 @@
+Artículo 18.-Constitución y trámite de apertura de otros servicios. Fideicomisos del BNCR podrá realizar la apertura o gestionar productos y servicios (apertura de cuentas corrientes y Fondos de Inversión y otros) de la Institución, dentro del contrato de fideicomiso, con el propósito de garantizar un ágil y eficiente servicio a sus clientes.

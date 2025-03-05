@@ -1,0 +1,1 @@
+Artículo 2º-De la gestión de Fiducia. El BNCR a través de Fideicomisos administrará los bienes fideicometidos de conformidad con lo dispuesto en las cláusulas contractuales, la normativa legal respectiva y en cumplimiento de los Artículos Nos. 644 y 645 del Código de Comercio.
