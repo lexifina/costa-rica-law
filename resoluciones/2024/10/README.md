@@ -14,3 +14,4 @@ Requerimiento de información básica que deben cumplir las Asociaciones adminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-03-05 | la propia norma |
+| 2 | 2025-03-05 | Resolución 9 (2025-03-05) |
