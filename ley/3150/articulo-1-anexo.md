@@ -1,34 +1,42 @@
-ANEXO “A” DEL TRATADO GENERAL DE INTEGRACIÓN ECONÓMICA CENTROAMERICANA
+ANEXO "A" DEL TRATADO GENERAL DE INTEGRACIÓN ECONÓMICA CENTROAMERICANA
 NOTA GENERAL
 1. Siempre que la denominación del rubro o producto coincida con la que corresponda a la partida (cuatro dígitos) o subpartida (de seis u ocho dígitos) indicados en la columna de la izquierda, se entenderá que ese rubro o producto comprende todo lo incluido bajo dicha partida o subpartida en el SAC. Cuando la denominación del rubro o producto sea más restringida que la correspondiente al título de la partida o subpartida indicados a la izquierda se entenderá que se comprende solamente el o los artículos mencionados específicamente en esta lista.
 2. Cuando se aplique el control de importación, las mercancías gozarán de libre comercio sólo mediante la respectiva licencia. De no otorgarse licencia, la importación estará sujeta al pago de los derechos arancelarios y a las disposiciones generales de importación vigentes en las Partes Contratantes.
-3. El Comité Ejecutivo de Integración Económica, con base en el artículo III de las Disposiciones Transitorias del Protocolo al Tratado General de Integración Económica Centroamericana (Protocolo de Guatemala), revisará periódicamente el Anexo “A” para incorporar progresivamente al libre comercio de las mercancías allí incluidas.
-LISTA DE MERCANCÍAS SUJETAS A REGÍMENES
-ESPECIALES DE CONFORMIDAD CON EL
-ARTÍCULO IV DEL TRATADO GENERAL
-DE INTEGRACIÓN ECONÓMICA
-CENTROAMERICANA
+3. El Comité Ejecutivo de Integración Económica, con base en el artículo III de las Disposiciones Transitorias del Protocolo al Tratado General de Integración Económica Centroamericana (Protocolo de Guatemala), revisará periódicamente el Anexo "A" para incorporar progresivamente al libre comercio de las mercancías allí incluidas.
+(*) LISTA DE MERCANCÍAS SUJETAS A REGÍMENES ESPECIALES DE CONFORMIDAD CON EL ARTÍCULO
+IV DEL TRATADO GENERAL DE INTEGRACION ECONÓMICA CENTROAMERICANA
 RÉGIMEN COMÚN A LOS CINCO PAÍSES
-[imagen]
+CÓDIGO | DESCRIPCIÓN | REQUISITOS El intercambio
+0901.1 | Café sin tostar. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+17.01 | Azúcar de caña, refinada o sin refinar. |
+1701.13.00.00 | Azúcar de caña mencionado en la Nota 2 de subpartida de este Capítulo. | Control de importación.
+1701.14.00.00 | Los demás azúcares de caña.
+1701.91.00.00 | Con adición de aromatizante o colorante.
+1701.99.00.00 | Los demás
 REGÍMENES BILATERALES
 GUATEMALA-COSTA RICA
-[imagen]
-EL SALVADOR-HONDURAS
-[imagen]
+CÓDIGO | DESCRIPCIÓN | REQUISITOS
+0901.2 | Café tostado. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+22.07 2208.90.10.00 | Bebidas alcohólicas destiladas. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+27.10; 27.13 y 27.15 | Productos derivados del petróleo. Se exceptúan los rubros siguientes: 2710.12 solo los solventes minerales (2710.12.10.00 y 2710.12.40.00); 2710.19.12.00 Los demás kerosenos; 2710.19.13.00 Otros aceites para uso industrial; 2710.19.24.00 Aceites básicos parafínicos o nafténicos, refinados; 2713.11.00.00 Sin calcinar (Coque de petróleo); 2713.20.00.00 Betún de petróleo. Los cuales gozarán de libre comercio entre los Estados Parte. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 EL SALVADOR-COSTA RICA
-[imagen]
+CÓDIGO | DESCRIPCIÓN | REQUISITOS
+0901.2 | Café tostado. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+22.07 2208.90.10.00 | Alcohol etílico, esté o no desnaturalizado | Control de importación.
 HONDURAS-COSTA RICA
-[imagen]
-COSTA RICA-NICARAGUA
-[imagen]
-(Así modificado mediante resolución N° 06-2010 (CEIE), la cual fue aprobada mediante decreto ejecutivo N° 36317 del 4 de noviembre de 2010)
-(Mediante Resolución N° 331-2013 (COMIECO-LXVI) de 12 de diciembre de 2013 “Aprobación de los regímenes bilaterales de excepción al libre comercio de las mercancías de cada uno de los otros Estados Parte del Subsistema de Integración Económica con la República de Panamá”, aprobado mediante decreto ejecutivo N° 38336 del 28 de febrero de 2014, se incorpora el presente Anexo, el cual se transcribe a continuación:)
+CÓDIGO | DESCRIPCIÓN | REQUISITOS
+0901.2 | Café tostado. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+COSTA RICA- NICARAGUA
+CÓDIGO | DESCRIPCIÓN | REQUISITOS
+0901.2 | Café tostado. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+(*)(Así reformada la lista anterior mediante Resolución Nº 11-2024 (CEIE) de fecha 24 de julio de 2024 y su Anexo: Modifica, por sustitución total, el Anexo de la Resolución Nº 06-2010 (CEIE) del 03 de septiembre de 2010" publicada mediante decreto ejecutivo N° 44966 del 5 de marzo del 2025)
+(Mediante Resolución N° 331-2013 (COMIECO-LXVI) de 12 de diciembre de 2013 "Aprobación de los regímenes bilaterales de excepción al libre comercio de las mercancías de cada uno de los otros Estados Parte del Subsistema de Integración Económica con la República de Panamá", aprobado mediante decreto ejecutivo N° 38336 del 28 de febrero de 2014, se incorpora el presente Anexo, el cual se transcribe a continuación:)
 DECRETO EJECUTIVO N°38336-COMEX
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE COMERCIO EXTERIOR
 De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3), 8), 10), 18) y 20) y 146 de la Constitución Política; los artículos 4, 25, 27 párrafo 1, 28 párrafo 2 inciso b) y 142 párrafo 2 de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley N° 7638 del 30 de octubre de 1996; los artículos 1, 3, 4, 6, 7, 13, 14, 15, 22 y 23 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, Ley de Aprobación N° 6986 del 03 de mayo de 1985; los artículos 1, 6, 10, 15, 36, 37, 38, 46, 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley de Aprobación N° 7629 del 26 de septiembre de 1996; y
 CONSIDERANDO:
-I.- Que el Consejo de Ministros de Integración Económica Centroamericana, mediante Resolución N° 331-2013 (COMIECO-LXVI) de fecha 12 de diciembre de 2013; aprobó los regímenes bilaterales de excepción al libre comercio de las mercancías de cada uno de los otros Estados Parte del Subsistema de Integración Económica con la República de Panamá, en la forma que aparece en el Anexo de la Resolución en cuestión, el cual se incorpora al Anexo “A” del Tratado General de Integración Económica Centroamericana.
+I.- Que el Consejo de Ministros de Integración Económica Centroamericana, mediante Resolución N° 331-2013 (COMIECO-LXVI) de fecha 12 de diciembre de 2013; aprobó los regímenes bilaterales de excepción al libre comercio de las mercancías de cada uno de los otros Estados Parte del Subsistema de Integración Económica con la República de Panamá, en la forma que aparece en el Anexo de la Resolución en cuestión, el cual se incorpora al Anexo "A" del Tratado General de Integración Económica Centroamericana.
 II.- Que en cumplimiento de lo indicado en dicha Resolución, se procede a su publicación.
 Por tanto;
 DECRETAN:
@@ -44,7 +52,7 @@ ANEXO DE LA RESOLUCIÓN No. 331-2013 (COMIECO-LXVI)
 REGÍMENES BILATERALES DE EXCEPCIÓN AL LIBRE COMERCIO DE LAS MERCANCÍAS DE CADA UNO DE LOS
 ESTADOS PARTE MIEMBROS DEL SUBSISTEMA DE INTEGRACIÓN ECONÓMICA CON LA REPÚBLICA DE
 PANAMÁ
-RÉGIMEN COSTA RICA – PANAMÁ
+RÉGIMEN COSTA RICA - PANAMÁ
 ANEXO DE LA RESOLUCIÓN No. 331-2013 (COMIECO-LXVI)
 REGÍMENES BILATERALES DE EXCEPCIÓN AL LIBRE COMERCIO DE LAS MERCANCÍAS DE CADA UNO DE LOS ESTADOS PARTE MIEMBROS DEL SUBSISTEMA DE INTEGRACIÓN ECONÓMICA CON LA REPÚBLICA DE PANAMÁ
 RÉGIMEN COSTA RICA - PANAMÁ
@@ -1011,7 +1019,7 @@ CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 20
 1901.90.90EE | Únicamente leche malteada | 9 | 8 | 7 | 6 | 5 | 4 | 3 | 2 | 1 | 0 | | | | | |
 1905.31.10 | - - - Con adición de cacao, para sandwich de helado | 6.8 | 5.5 | 4.1 | 2.7 | 1.4 | 0 | | | | | | | | | |
 1905.31.90 | - - - Otras | 6.8 | 5.5 | 4.1 | 2.7 | 1.4 | 0 | | | | | | | | | |
-1905.32.00 | - - Barquillos y obleas, incluso rellenos (“gaufrettes"," wafers") y " waffles" (“gaufres") | 6.8 | 5.5 | 4.1 | 2.7 | 1.4 | 0 | | | | | | | | | |
+1905.32.00 | - - Barquillos y obleas, incluso rellenos ("gaufrettes"," wafers") y " waffles" ("gaufres") | 6.8 | 5.5 | 4.1 | 2.7 | 1.4 | 0 | | | | | | | | | |
 CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 2018 | AÑO 2019 | AÑO 2020 | AÑO 2021 | AÑO 2022 | AÑO 2023 | AÑO 2024 | AÑO 2025 | AÑO 2026 | AÑO 2027 | AÑO 2028 | Notas aclaratorias
 1905.90.00 | - Los demás (Excepto: Abrebocas de maíz, horneados con sabor a queso y frutas; pasteleria dulce con o sin covertura, con o sin relleno, en categoría inmediata; y productos congelados de pasteleria con desgravación de 7 años ) | 3.8 | 1.9 | 0 | | | | | | | | | | | | |
 1905.90.00AA | Unicamente galletas de soda o saladas | 6.8 | 5.5 | 4.1 | 2.7 | 1.4 | 0 | | | | | | | | | |
@@ -1653,7 +1661,7 @@ CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 20
 9619.00.40 | - De materia textil, de punto | 6 | 4.5 | 3 | 1.5 | 0 | | | | | | | | | | |
 9619.00.90 | - Otros | 6 | 4.5 | 3 | 1.5 | 0 | | | | | | | | | | |
 APÉNDICE DEL RÉGIMEN GUATEMALA-PANAMÁ
-(CONTINGENTES DE IMPORTACIÓN GUATEMALA – PANAMÁ)
+(CONTINGENTES DE IMPORTACIÓN GUATEMALA - PANAMÁ)
 Las cantidades que excedan los contingentes establecidos en este Apéndice, recibirán el tratamiento dispuesto en el Anexo.
 Los contingentes enumerados en el presente Apéndice serán administrados de conformidad con la legislación de Guatemala.
 Los montos de los contingentes establecidos para cada año, ingresarán libres de arancel aduanero.
@@ -1707,7 +1715,7 @@ Cantidad anual | 400 toneladas métricas
 Crecimiento | Sin crecimiento
 Reglas de Origen aplicables dentro del | 15.07 Un cambio a la subpartida 1507.10 a
 contingente 1507.90 desde cualquier otra subpartida.
-1512.11 – 15.12.19 Un cambio a la subpartida 1512.11 a 1512.19 desde cualquier otra subpartida.
+1512.11 - 15.12.19 Un cambio a la subpartida 1512.11 a 1512.19 desde cualquier otra subpartida.
 9. Aceite en Bruto de Palma
 Línea arancelaria | 1511.10.00
 Cantidad anual | 250 toneladas métricas
@@ -1758,7 +1766,7 @@ Dicha medida se aplicará a las fracciones arancelarias 0201.10.00, 0201.20.00, 
 relativo al producto en el programa de desgravación arancelaria.
 4. Guatemala aplicará a las mercancías originarias correspondientes a las fracciones del SAC 2207.10.10 y 2207.10.90 y 2207.20.00 un arancel de 30% o el NMF vigente al momento de la importación, la tasa que sea menor.
 5. Guatemala aplicará a las mercancías originarias correspondientes a la fracción del SAC 2208.40.90, un arancel de 22.5% o el NMF vigente al momento de la importación, la tasa que sea menor.
-RÉGIMEN HONDURAS – PANAMÁ
+RÉGIMEN HONDURAS - PANAMÁ
 CODIGO 1 (SAC - 2012) | DESCRIPCION | 2014 | 2015 | 2016 | 2017 | 2018 | 2019 | 2020 | 2021 | 2022 | 2023 | 2024 | 2025 | 2026 | NOTAS
 0102.29.00 | - - Los demás | 6 | 5.3 | 4.7 | 4 | 3.3 | 2.7 | 2 | 1.3 | 0.7 | 0 | 0 | 0 | 0 |
 0102.39.00 | - - Los demás | 6 | 5.3 | 4.7 | 4 | 3.3 | 2.7 | 2 | 1.3 | 0.7 | 0 | 0 | 0 | 0 |
@@ -1994,7 +2002,7 @@ CODIGO 1 (SAC - 2012) | DESCRIPCION | 2014 | 2015 | 2016 | 2017 | 2018 | 2019 | 
 1902.19.00 | - - Las demás | 9 | 8 | 7 | 6 | 5 | 4 | 3 | 2 | 1 | 0 | 0 | 0 | 0 |
 1902.20.00 | - Pastas alimenticias rellenas, incluso cocidas o preparadas de otra forma | 9 | 8 | 7 | 6 | 5 | 4 | 3 | 2 | 1 | 0 | 0 | 0 | 0 |
 1902.30.00 | - Las demás pastas alimenticias | 9 | 8 | 7 | 6 | 5 | 4 | 3 | 2 | 1 | 0 | 0 | 0 | 0 |
-1904.10.10 | - - “Pellets” de harina, de arroz | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
+1904.10.10 | - - "Pellets" de harina, de arroz | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 1904.10.90 | - - Otros | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 1904.20.00 | - Preparaciones alimenticias obtenidas con copos de cereales sin tostar o con mezclas de copos de cereales sin tostar y copos de cereales tostados o cereales inflados | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 1904.30.00 | - Trigo bulgur | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
@@ -2068,7 +2076,7 @@ CODIGO 1 (SAC - 2012) | DESCRIPCION | 2014 | 2015 | 2016 | 2017 | 2018 | 2019 | 
 3920.10.20 | - - De copolímeros de etileno y acetato de vinilo, de espesor superior o igual a 2 mm pero inferior o igual a 50 mm | 8 | 6 | 4 | 2 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 3920.10.99 | - - - Las demás | 4 | 3 | 2 | 1 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 4011.99.00 | - - Los demás | 2 | 1.5 | 1 | 0.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
-4012.11.00 | - - De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar (“break” o “station wagon”) y los de carreras) | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
+4012.11.00 | - - De los tipos utilizados en automóviles de turismo (incluidos los del tipo familiar ("break" o "station wagon") y los de carreras) | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 4012.12.00 | - - De los tipos utilizados en autobuses o camiones | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 4012.13.00 | - - De los tipos utilizados en aeronaves | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
 4012.19.00 | - - Los demás | 6 | 4.5 | 3 | 1.5 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 |
@@ -2562,7 +2570,7 @@ CODIGO 1 (SAC - 2012) | DESCRIPCION | 2014 | 2015 | 2016 | 2017 | 2018 | 2019 | 
 6003.30.00 | - De fibras sintéticas | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
 6003.40.00 | - De fibras artificiales | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
 6003.90.00 | - Los demás | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
-6004.10.10 | - - Con poliuretano (“licra”) | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
+6004.10.10 | - - Con poliuretano ("licra") | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
 6004.10.90 | - - Otros | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
 6004.90.00 | - Los demás | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
 6005.21.00 | - - Crudos o blanqueados | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
@@ -3231,29 +3239,29 @@ Arancel aplicable | El arancel intracuota será de cero por ciento (0%) y fuera 
 Códigos arancelarios | 6115.10.90; 6115.95.00; 6115.96.00; 6115.99.00
 Volumen año 2014 | 15,000 Docenas de Pares
 Crecimiento | sin crecimiento
-Arancel aplicable | A este grupo de incisos arancelarios cubiertos por la cuota se les aplicará un arancel “intracuota” de cero por ciento (0%)
+Arancel aplicable | A este grupo de incisos arancelarios cubiertos por la cuota se les aplicará un arancel "intracuota" de cero por ciento (0%)
 a) Para las cantidades por arriba de la cuota bilateral de quince mil (15,000) docenas de pares de medias y calcetines comprendidos en los incisos arancelarios 6115.10.90; 6115.95.00; 6115.96.00; 6115.99.00 del SAC de Honduras, se les aplicará el arancel de cero por ciento (0%), y deberán cumplir con la regla de origen a) dentro de cuota, contemplada para estas mercancías en la Sección II, Artículo 6(a), sin perjuicio del resultado de la negociación establecida en el Artículo 6 (b).
 b) Para las demás mercancías cubiertas por las partidas arancelarias 6115 se les aplicará el arancel cero por ciento (0%), siempre que cumplan con la regla de origen c) regla aplicable a los demás artículos de la partida 6115, contemplada para estas mercancías en la Sección II, Artículo 6 (a), sin perjuicio del resultado de la negociación establecida en el Artículo 6 (b).
-RÉGIMEN NICARAGUA – PANAMÁ
+RÉGIMEN NICARAGUA - PANAMÁ
 CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 2018 | AÑO 2019 | AÑO 2020 | AÑO 2021 | AÑO 2022 | AÑO 2023 | AÑO 2024 | OBSERVACIONES
 0201100000 | - En canales o medias canales | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0201200011 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0201200011 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0201200019 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0201200091 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0201200091 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0201200099 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0201300011 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0201300011 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0201300019 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0201300091 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0201300091 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0201300099 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0202100000 | - En canales o medias canales | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0202200011 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0202200011 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0202200019 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0202200091 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0202200091 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0202200099 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
-0202300011 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0202300011 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0202300019 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 2018 | AÑO 2019 | AÑO 2020 | AÑO 2021 | AÑO 2022 | AÑO 2023 | AÑO 2024 | OBSERVACIONES
-0202300091 | - - - De los tipos denominados “prime” y “choise” | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
+0202300091 | - - - De los tipos denominados "prime" y "choise" | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0202300099 | - - - Los demás | 15.0 | 12.0 | 9.0 | 6.0 | 3.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | Ver Apéndice a los Anexos 4.2 y 4.3, nota 1
 0203110000 | - - En canales o medias canales | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 0203120000 | - - Jamones, paletas y sus trozos, sin deshuesar | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL | EXCL |
@@ -3497,7 +3505,7 @@ CÓDIGO | | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 
 1904909000 | - - Otros | | 7.5 | 6.0 | 4.5 | 3.0 | 1.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 1905319000 | - - - Otras | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
 CÓDIGO | | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 2018 | AÑO 2019 | AÑO 2020 | AÑO 2021 | AÑO 2022 | AÑO 2023 | AÑO 2024 | OBSERVACIONES
-1905320000 | - - Barquillos y obleas, incluso rellenos (“gaufrettes”, “wafers”) y “waffles” | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
+1905320000 | - - Barquillos y obleas, incluso rellenos ("gaufrettes", "wafers") y "waffles" | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
 1905900010 | - - Hostias, sellos para medicamento, obleas, pastas desecadas de harina, de almidón o fécula en hojas y productos análogos | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
 1905900020 | - - Pan simple | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
 1905900030 | - - Pan dulce tradicional de panadería ordinaria | 10.0 | 9.0 | 8.0 | 7.0 | 6.0 | 5.0 | 4.0 | 3.0 | 2.0 | 1.0 | 0.0 |
@@ -3981,7 +3989,7 @@ CÓDIGO | DESCRIPCIÓN | AÑO 2014 | AÑO 2015 | AÑO 2016 | AÑO 2017 | AÑO 20
 8704315911 | - - - - - - Con cabina sencilla | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 8704315919 | - - - - - - Los demás | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 8704315990 | - - - - - Otros | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
-8704316110 | - - - - - Camioneta de reparto “panel”, con capacidad de hasta 2 t de carga | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
+8704316110 | - - - - - Camioneta de reparto "panel", con capacidad de hasta 2 t de carga | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 8704316190 | - - - - - Otros | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 8704316900 | - - - - Los demás | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
 8704317100 | - - - - De peso total con carga máxima inferior o igual a 2.5 t. | 2.5 | 2.0 | 1.5 | 1.0 | 0.5 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 | 0.0 |
@@ -4790,7 +4798,7 @@ CODIGO V ENMIENDA | DESCRIPCION | NOTAS3
 6003.30.00 | - De fibras sintéticas | EXCL
 6003.40.00 | - De fibras artificiales | EXCL
 6003.90.00 | - Los demás | EXCL
-6004.10.10 | - - Con poliuretano (“licra”) | EXCL
+6004.10.10 | - - Con poliuretano ("licra") | EXCL
 6004.10.90 | - - Otros | EXCL
 6004.90.00 | - Los demás | EXCL
 6005.21.00 | - - Crudos o blanqueados | EXCL
@@ -7838,7 +7846,7 @@ Crecimiento anual 13 toneladas métricas, de manera indefinida
 Líneas arancelarias | 1507.90.00, 1512.19.00
 Cantidad anual | 400 toneladas métricas
 Crecimiento | Sin crecimiento
-Reglas de Origen aplicables dentro del contingente | 15.07 Un cambio a la subpartida 1507.10 a 1507.90 desde cualquier otra subpartida. 1512.11 – 15.12.19 Un cambio a la
+Reglas de Origen aplicables dentro del contingente | 15.07 Un cambio a la subpartida 1507.10 a 1507.90 desde cualquier otra subpartida. 1512.11 - 15.12.19 Un cambio a la
 subpartida 1512.11 a 1512.19 desde cualquier otra subpartida.
 9. Aceite en Bruto de Palma
 Línea arancelaria | 1511.10.00
@@ -11687,7 +11695,7 @@ Código | Descripción | 2014 | Observación
 2207.20.00 | Alcohol etílico y aguardiente desnaturalizados, de cualquier graduación | EXCL |
 2208.20.10 | Con grado alcohólico volumétrico superior o igual a 60% vol | EXCL |
 2208.20.90 | Otros | EXCL |
-2208.90.11 | “Tequila” y “mezcal” (en envases originales para su expendio al por menor) | EXCL |
+2208.90.11 | "Tequila" y "mezcal" (en envases originales para su expendio al por menor) | EXCL |
 2208.90.12 | Los demás, de graduación alcohólica superior 60 % vol (en envases originales para su expendio al por menor) | EXCL |
 2208.90.13 | Los demás, de graduación alcohólica inferior o igual a 60 % vol y con valor C.I.F. superior a B/. 2,50 por litro (en envases originales para su expendio al por menor) | EXCL |
 2208.90.14 | Los demás, de graduación alcohólica inferior o igual a 60 % vol y con valor C.I.F. inferior o igual a B/. 2,50 por litro, excepto los presentados a granel (bulk) (en envases originales para su expendio al por menor) | EXCL |
@@ -11700,7 +11708,7 @@ Código | Descripción | 2014 | Observación
 2208.90.24 | Los demás, de graduación alcohólica inferior o igual a 60 % vol y con valor C.I.F. inferior o igual a B/. 2,50 por litro, siempre que se presente a granel (bulk) | EXCL |
 2208.90.29 | Los demás | EXCL |
 2208.90.30 | Dilución acuosa de zumos de hortalizas, frutas u otros frutos, mezclada con cualquier producto destilado, adicionada de anhídrido carbónico y con grado alcohólico volumétrico inferior o igual a 6 % vol, (en envases originales para su expendio al por menor) | EXCL |
-2208.90.41 | Bebidas compuesta de “Ron” y “Cola”, con grado alcohólico volumétrico inferior o igual a 20 % vol (en envases originales para su expendio al por menor) | EXCL |
+2208.90.41 | Bebidas compuesta de "Ron" y "Cola", con grado alcohólico volumétrico inferior o igual a 20 % vol (en envases originales para su expendio al por menor) | EXCL |
 2208.90.42 | Las demás, con grado alcohólico volumétrico superior a 60 % vol. (en envases originales para su expendio al por menor) | EXCL |
 2208.90.43 | Las demás, con grado alcohólico volumétrico superior a 20 % vol. pero inferior a 60 % vol. (en envases originales para su expendio al por menor) | EXCL |
 2208.90.44 | Con grado alcohólico volumétrico inferior o igual a 20 % vol (en envases originales para su expendio al por menor) | EXCL |
@@ -12974,7 +12982,7 @@ Código | Descripción | 2014 | Observación
 9307.00.00 | Sables, espadas, bayonetas, lanzas y demás armas blancas, sus partes y fundas | RESTRI | 4/ Restringido
 9504.30.00 | Los demás juegos activados con monedas, billetes de banco, tarjetas bancarias, fichas o por cualquier otro medio de pago, | RESTRI | 4/ Restringido
 Código | Descripción | 2014 | Observación
-| excepto los juegos de bolos automáticos (“bowlings") | |
+| excepto los juegos de bolos automáticos ("bowlings") | |
 9504.50.00 | Videoconsolas y máquinas de videojuego, excepto las de la subpartida 9504.30 | RESTRI | 4/ Restringido
 9504.90.11 | Activados por monedas y que pagan premios en efectivo | RESTRI | 4/ Restringido
 9619.00.22 | De guata de materias textiles | EXCL |
