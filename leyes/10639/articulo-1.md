@@ -1,0 +1,10 @@
+N° 10639
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+SEGREGACIÓN Y DESAFECTACIÓN DE UN BIEN
+PROPIEDAD DEL INSTITUTO MIXTO DE AYUDA
+SOCIAL Y AUTORIZACIÓN PARA SU DONACIÓN
+A LA ASOCIACIÓN OBRAS DEL ESPÍRITU SANTO
+ARTÍCULO 1- Segregación del bien. Se autoriza al Instituto Mixto de Ayuda Social (IMAS), cédula de persona jurídica cuatro-cero cero cero-cero cuatro dos uno cuatro cuatro (4-000-042144), a segregar un terreno de cuatrocientos tres metros cuadrados (403 m2), según el plano SJ- tres cero ocho siete uno - dos cero dos tres (SJ- 30871-2023), cuya finca madre se encuentra inscrita en el Registro de Bienes Inmuebles del Registro Nacional, bajo el sistema de folio real uno-uno nueve nueve tres nueve nueve - cero cero cero (1-199399-000), y se describe así: naturaleza: varias edificaciones destinadas a servicio social, matrícula número uno- nueve nueve nueve tres nueve nueve (1999399); situada en el distrito tres, Hospital; cantón primero, San José, de la provincia de San José, con los siguientes linderos: al noreste calle pública con un frente a ella de ciento cuarenta y cinco metros con ochenta y tres centímetros (145,83 m); al noroeste: Clavelina Miranda Miranda; al sureste Municipalidad de San José, en parte y en parte con frente a calle pública con setenta y ocho metros con noventa centímetros (78, 90m); al suroeste: Municipalidad de San José en parte y en parte con río María Aguilar. Mide veintiún mil ciento setenta y siete metros cuadrados (21177 m2), descrito por el plano catastrado número SJ- dos cero siete ocho nueve seis cinco - dos cero uno ocho (SJ-2078965-2018), un terreno con construcción y se describe así: situado en la provincia de San José; cantón primero, San José; distrito tres, Hospital. Sus linderos son: al norte calle pública con un frente de veintitrés metros con veintiocho decímetros (23,28 m); al este, calle pública con un frente a ella de dieciocho metros con noventa y dos decímetros lineales (18,92 m); al oeste, el Instituto Mixto de Ayuda Social (IMAS) y al sur el Instituto Mixto de Ayuda Social (IMAS).
+El resto de la finca madre se la reserva el Instituto Mixto de Ayuda Social (IMAS).
