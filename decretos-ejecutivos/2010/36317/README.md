@@ -14,3 +14,4 @@ Publica Resolución N° 06-2010(CEIE) de fecha 03 de septiembre de 2010; y su an
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-13 | la propia norma |
+| 2 | 2025-03-05 | Decreto Ejecutivo 44966 (2025-03-05) |
