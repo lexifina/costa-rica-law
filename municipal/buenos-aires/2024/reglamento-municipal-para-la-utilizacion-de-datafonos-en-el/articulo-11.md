@@ -1,0 +1,3 @@
+Artículo 11.-Entrada en vigor. De la vigencia de la normativa interna: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deja sin efecto cualquier normativa anterior que se le oponga. Este reglamento busca promover un manejo eficiente y transparente de los pagos de tributos y servicios, mejorando la relación entre la municipalidad y los usuarios, facilitando así el cumplimiento de sus obligaciones fiscales.
+Asimismo, se traslada a la Administración para que lo sancione y se publique en el Diario Oficial La Gaceta. Acuerdo unánime y definitivamente aprobado.
+jueves, 06 de febrero de 2025.

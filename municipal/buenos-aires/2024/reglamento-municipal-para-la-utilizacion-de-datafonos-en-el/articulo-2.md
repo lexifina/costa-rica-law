@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Este reglamento es aplicable a todos los inspectores municipales y a los usuarios que realicen pagos de tributos y servicios a través de datafonos, así como a cualquier entidad asociada que actúe en representación de la municipalidad.
