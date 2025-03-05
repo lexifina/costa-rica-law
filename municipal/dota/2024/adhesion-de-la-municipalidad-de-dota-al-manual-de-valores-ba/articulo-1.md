@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE DOTA
+Se transcribe el acuerdo estipulado en el artículo XXI de la sesión ordinaria N° 0019, celebrada el día 9 de setiembre del 2024, tomado por la Corporación Municipal de Dota, que dice:
+Acuerdo Artículo XXI:
+Acuerdo a la tipología constructiva ONT para la Municipalidad de Dota, oficio AMD-0284-2024. El Concejo Municipal del cantón de Dota, por unanimidad de votos (5 de 5 regidores propietarios presentes en la sesión) con base a la solicitud en el Oficio AMD-0284- 2024, firmado por el señor Adrián Cordero Cordero, Alcalde Municipal de Dota, acuerda: adherirse al Manual de Valores Base Unitarias por Tipología Constructiva, publicado por parte del Órgano de Normalización Técnica del Ministerio de Hacienda, en Alcance Digital N° 187, del Diario Oficial La Gaceta N° 178 del 28 de setiembre del 2023, para efectos de lo que indica la Ley N° 7509. Acuerdo definitivamente aprobado.
