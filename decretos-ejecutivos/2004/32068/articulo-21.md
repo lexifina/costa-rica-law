@@ -1,2 +1,0 @@
-Artículo 21.—Estructura de los Comités Técnicos de Reglamentación Técnica. En el caso de que la propuesta de reglamento requiera un análisis técnico por parte de un comité, la Secretaría Técnica procederá a conformar dicho Comité con un representante de cada uno de los siguientes sectores: académico, ministerios competentes, consumidores y sector productivo involucrado.
-El carácter temporal o permanente de los comités técnicos se definirá según el número de casos remitidos a cada uno.

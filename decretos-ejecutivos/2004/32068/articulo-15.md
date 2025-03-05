@@ -1,3 +1,0 @@
-Artículo 15º: Plazo para resolver del ORT. El ORT contará con un plazo de 10 días hábiles para emitir su criterio con respecto a los anteproyectos de reglamentos técnicos que desee implementar el Poder Ejecutivo y tendrá la posibilidad de extender dicho plazo debidamente fundamentado, hasta por la mitad del plazo inicialmente señalado, si la complejidad del tema así lo requiere.
-Dichos criterios podrán ser acordados por medios electrónicos, pero deberán ser ratificados por dicho Órgano, en las sesiones ordinarias siguientes del ORT, cumpliendo las formalidades establecidas en el artículo 56 inciso 2) de la Ley N° 6227 General de la Administración Pública.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39320 del 4 de agosto del 2015)
