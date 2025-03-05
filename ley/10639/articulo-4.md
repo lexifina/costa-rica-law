@@ -1,0 +1,1 @@
+ARTÍCULO 4- Destino del bien segregado. El inmueble donado será utilizado por la Asociación Obras del Espíritu Santo, para el desarrollo de sus programas sociales dirigidos a brindar atención integral a las poblaciones más vulnerables.
