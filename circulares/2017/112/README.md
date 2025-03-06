@@ -13,3 +13,4 @@ Regionalización, competencia territorial y órganos de alzada correspondientes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-25 | la propia norma |
+| 2 | 2025-03-06 | Circular 45 (2025-03-06) |
