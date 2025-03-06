@@ -1,0 +1,2 @@
+Artículo 9 bis. De las denuncias contra miembros de la Junta Directiva. En caso de presentarse una denuncia contra miembros de la Junta Directiva, se actuará de conformidad con lo establecido en el artículo 21 de la Ley Orgánica del Banco Central de Costa Rica. Para ello, la Junta Directiva se encargará de levantar la información pertinente y la remitirá al Consejo de Gobierno para lo que corresponda.
+(Así adicionado en sesión N° 6242 del 6 de marzo de 2025)
