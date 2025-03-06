@@ -1,21 +1,7 @@
-Artículo 35.- Cobro de honorarios y costas. Cuando corresponda el
-jefe de la oficina de defensa civil de las víctimas o quien este designe,
-gestionará ante la autoridad correspondiente la fijación y el cobro de
-los honorarios por los servicios prestados.
-Constituirá título ejecutivo, la certificación que se expida sobre
-el monto de los honorarios a cargo de la víctima. De oficio, la autoridad
-que conoce del proceso, ordenará el embargo bienes del deudor, en
-cantidad suficiente para garantizar el pago de los honorarios. El abogado
-a quien corresponda hacer las diligencias de cobro, ejercerá todas las
-acciones judiciales o extrajudiciales para hacerlo efectivo.
-La fijación de honorarios se hará en sentencia o en el momento en
-que la víctima decida prescindir de los servicios de la oficina.
-Iguales reglas se aplicarán, en lo que corresponda, para el cobro de
-costas por honorarios de abogado de la parte actora civil, contra la
-parte vencida.
-Los ingresos provenientes de lo dispuesto en esta norma, serán
-depositados en una cuenta especial destinada al mejoramiento de la
-oficina y a la creación de un fondo para satisfacer las necesidades
-urgentes de las víctimas de delitos. La Corte Plena establecerá los
-mecanismos adecuados para reglamentar y controlar el uso de tales
-recursos.
+Artículo 35- Cobro de honorarios y costas. Cuando corresponda, la jefatura de la Oficina de Defensa Civil de las Víctimas, o quien esta designe, gestionará ante la autoridad correspondiente la fijación y el cobro de los honorarios y de las costas por los servicios prestados.
+La fijación de honorarios se hará: a) cuando se determine solvencia económica de quien promueve, para lo cual la Oficina de Defensa Civil de las Víctimas le prevendrá a la persona asistida, por el término de tres días, que realice el depósito de honorarios según el arancel por servicios profesionales, depósito que debe realizarse previo a la confección de la acción civil; b) en el momento en que la víctima decida prescindir de los servicios de la Oficina, mediante la interposición del incidente de cobro de honorarios; e) en sentencia.
+El documento auténtico en el que conste el monto de los honorarios y costas, a favor de la Oficina de Defensa Civil, servirá como base para la ejecución. De oficio, la autoridad que conoce del proceso ordenará el embargo de bienes del deudor en cantidad suficiente para garantizar el pago de los honorarios. El abogado o la abogada, a quien corresponda hacer las diligencias de cobro, ejercerá todas las acciones judiciales o extrajudiciales para hacerlo efectivo.
+Iguales reglas se aplicarán, en lo que corresponda, para el cobro de costas por honorarios de abogado de la parte actora, contra la parte vencida.
+Las sumas obtenidas en los procesos tramitados por la Oficina de Defensa Civil serán imputadas en el siguiente orden prelativo: intereses, capital y costas, debiendo cancelarse primero lo que corresponde a la persona actora civil y posteriormente los montos a favor de la Oficina de Defensa Civil de las Víctimas.
+A los ingresos provenientes de lo dispuesto en esta norma no les será aplicable el principio de universalidad e integridad, contemplados en la Ley 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, y serán considerados de fin social para los efectos de la Ley 9635, Fortalecimiento de las Finanzas Públicas, de 3 de diciembre de 2018.Serán depositados en una cuenta especial o expediente automatizado, cuyos rubros serán destinados en el siguiente orden: al mejoramiento de la Oficina de Defensa Civil de las Víctimas, a la creación de un fondo para satisfacer las necesidades urgentes de las víctimas de delitos y al Ministerio Público, por lo que no se les aplicará el principio de anualidad. La Corte Plena establecerá los mecanismos adecuados para reglamentar y controlar el uso de tales recursos.
+(Así reformado por el artículo único de la ley N° 10666 del 6 de marzo de 2025)
