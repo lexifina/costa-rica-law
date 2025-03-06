@@ -1,0 +1,1 @@
+Artículo 3º-Todas las personas afrodescendientes que participen en los procesos de reclutamiento para plazas reservadas al amparo de la Ley N° 10120, deben cumplir con todos los requisitos legales y constitucionales determinados en cada proceso, superando las pruebas selectivas y de idoneidad, según lo determine el régimen de personal correspondiente.

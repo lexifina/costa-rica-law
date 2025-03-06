@@ -1,0 +1,1 @@
+Artículo 15.-En lo que respecta a plazas reservadas bajo el amparo de la Ley N° 10120, no se podrá nombrar a personas que no cumplan estrictamente con la condición de afrodescendencia y que, además, no superen satisfactoriamente el proceso concursal respectivo.

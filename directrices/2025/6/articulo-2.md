@@ -1,0 +1,1 @@
+Artículo 2º-Los procesos de reclutamiento y selección se regirán bajo los principios de mérito, igualdad, transparencia, de acuerdo con los lineamientos establecidos tanto en la Ley Marco de Empleo Público y su reglamento, así como en las regulaciones específicas del Régimen de Servicio Civil.

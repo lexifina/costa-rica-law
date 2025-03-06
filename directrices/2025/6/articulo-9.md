@@ -1,0 +1,1 @@
+Artículo 9º-Todas las instituciones podrán reservar plazas bajo el amparo de la Ley N° 10120 tanto en sus oficinas centrales como en sus oficinas o sedes regionales según la disponibilidad de plazas vacantes, procurando la paridad entre los diferentes estratos profesionales.

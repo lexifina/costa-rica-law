@@ -1,0 +1,1 @@
+Artículo 13.-Las disposiciones no contempladas en el presente Decreto deberán remitirse ante la Dirección General de Servicio Civil, para su respectiva atención al ser este el ente técnico rector en material del manejo de personal estatal.

@@ -1,0 +1,1 @@
+Artículo 6º-Las Oficinas de Gestión Institucional de Recursos Humanos (OGEREH) o sus denominadas homólogas, en coordinación con el máximo jerarca institucional de las respectivas instituciones, tendrán por objetivo primordial el velar por el efectivo cumplimiento de la Ley N° 10.120.
