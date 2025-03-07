@@ -1,0 +1,1 @@
+Artículo 28.-Cualquier violación a lo dispuesto en el artículo anterior será motivo para accionar el procedimiento administrativo para sancionar al funcionario responsable, de conformidad con los artículos 149 y 150 del Código Municipal.

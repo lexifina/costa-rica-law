@@ -1,0 +1,1 @@
+Artículo 7º-Además de las copias de las actas que se envían a la Contraloría General de la República, se deberá elaborar con los fundamentos constitucionales, legales, reglamentarios y técnicos, una justificación de ingresos y gastos, origen y aplicación de recursos con certificaciones de las instituciones, como la Caja Costarricense de Seguro Social, cuando corresponda.

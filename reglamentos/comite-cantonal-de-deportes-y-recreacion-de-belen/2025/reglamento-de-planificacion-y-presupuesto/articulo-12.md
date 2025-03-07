@@ -1,0 +1,1 @@
+Artículo 12.-La Administración General establecerá el procedimiento, formularios, plantillas, e instructivos, que se utilizarán para alimentar y trasladar al Plan Operativo Institucional, todas las iniciativas y el presupuesto que le correspondan, vinculado a una línea de acción de los Planes de corto, mediano, largo plazo.

@@ -1,0 +1,1 @@
+Artículo 32.-Del Superávit: El superávit libre de los presupuestos se dedicará primero a conjugar el déficit del presupuesto ordinario, y segundo para atender obligaciones de carácter ordinario o inversiones.

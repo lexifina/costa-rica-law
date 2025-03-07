@@ -1,0 +1,1 @@
+Artículo 25.-Durante la elaboración del Ante proyecto del Plan Operativo y Presupuesto hasta su aprobación final, se conformará un expediente administrativo donde consten los documentos que dieron origen y respalden la propuesta, cuya custodia recaerá en el sub proceso de Presupuesto.

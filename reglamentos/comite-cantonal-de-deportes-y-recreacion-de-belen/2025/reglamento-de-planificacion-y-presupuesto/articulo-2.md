@@ -1,0 +1,1 @@
+Artículo 2º-Por los servicios de alquiler de instalaciones deportivas que realice el Comité Cantonal de Deportes y Recreación de Belén, se cobrará el monto fijado en el tarifario hecho por este, previo estudio de mercado.

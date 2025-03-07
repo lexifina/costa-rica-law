@@ -1,0 +1,1 @@
+Artículo 36.-La Administración General será la que instruya a todas la áreas del Comité de Deportes y Recreación de Belén el inicio del proceso de formulación, que cumplirá con todos los pasos similares a los establecidos para elaborar un presupuesto extraordinario, comunicándolo a los técnicos de Planificación y Presupuesto, quienes dispondrán del tiempo debidamente programado.

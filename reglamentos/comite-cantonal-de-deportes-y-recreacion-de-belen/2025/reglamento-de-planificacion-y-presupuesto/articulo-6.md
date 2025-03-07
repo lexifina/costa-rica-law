@@ -1,0 +1,1 @@
+Artículo 6º-Los presupuestos ordinarios y extraordinarios que se envíen a la Contraloría General de República para su información, se les adjuntará copia de las actas de las sesiones en que fueron aprobados, en estas actas deberá estar transcrito íntegramente todo el presupuesto, y las actas deberán estar firmadas por el secretario (a) de Junta directiva.

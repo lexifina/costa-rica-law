@@ -1,0 +1,1 @@
+Artículo 11.-La Administración General trasladará al Asistente Financiero el detalle de los egresos presupuestados por todas las áreas, para que, en un plazo de no más de 7 días hábiles, confeccione una propuesta de presupuesto consolidada con los ingresos del Comité Cantonal de Deportes y Recreación de Belén.

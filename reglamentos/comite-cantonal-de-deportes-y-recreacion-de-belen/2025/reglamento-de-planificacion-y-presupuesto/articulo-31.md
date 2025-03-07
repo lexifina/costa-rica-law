@@ -1,0 +1,1 @@
+Artículo 31.-Antes del 15 de febrero de cada año, la persona encargada como Asistente Financiero elevará el informe del artículo anterior a la Contraloría General de la República para su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 15.-El Plan Estratégico del Comité Cantonal de Deportes y Recreación de Belén, tendrá una vigencia de 5 años, una vez vencido se deben renovar, y su elaboración será responsabilidad de la Administración General, en conjunto con los encargados de las diferentes áreas.

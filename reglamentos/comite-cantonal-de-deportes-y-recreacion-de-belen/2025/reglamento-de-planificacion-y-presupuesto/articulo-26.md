@@ -1,0 +1,1 @@
+Artículo 26.-Todo proyecto o Reglamento que refleje un aumento en los egresos deberá cumplir con un procedimiento para su debida aprobación y validez; el cual la administración deberá formular e implementar a partir de la publicación de este reglamento.

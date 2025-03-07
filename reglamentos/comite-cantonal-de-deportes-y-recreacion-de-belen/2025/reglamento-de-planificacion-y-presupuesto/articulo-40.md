@@ -1,0 +1,1 @@
+Artículo 40.-En todo el proceso de formulación y evaluación de los Presupuestos (Ordinario, Extraordinarios y Modificaciones), que no fuesen presentados en tiempo e incumplan con las disposiciones de este Reglamento se generarán responsabilidades administrativas, civiles y penales sobre aquellos funcionarios que sean responsables de tal omisión.
