@@ -1,0 +1,3 @@
+Sección II
+Departamento de Asuntos Jurídicos Internacionales
+ARTICULO 44°.- Corresponde al Departamento de Asuntos Jurídicos Internacionales planear, dirigir y controlar la gestión jurídica internacional de competencia del Ministerio de Relaciones Exteriores y Culto, y brindar la respectiva asesoría y asistencia en los asuntos en que sean de aplicación los principios y las normas del Derecho Internacional Público y Privado, de coordinar y supervisar las acciones relacionadas con asuntos contenciosos y no contenciosos internacionales, y en la confección y registro de los instrumentos internacionales, así como diligenciar las solicitudes de declaratoria de la condición de persona apátrida y asilada política, y de cooperación jurídica internacional cuando corresponda.

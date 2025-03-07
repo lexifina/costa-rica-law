@@ -1,0 +1,1 @@
+ARTICULO 59.- Para cumplir sus funciones, la Dirección de Protocolo y Ceremonial del Estado y Culto, está dividida en dos departamentos: Departamento de Inmunidades y Privilegios; y Departamento de Ceremonial del Estado.

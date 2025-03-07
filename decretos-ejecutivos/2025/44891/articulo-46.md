@@ -1,0 +1,1 @@
+ARTICULO 46°. - El Departamento de Asuntos Jurídicos Internacionales se organizará a través de equipos de trabajo interdisciplinarios, que se encargarán de desarrollar las siguientes áreas temáticas: Defensa del Estado, Acuerdos e Instrumentos Jurídicos Internacionales, Cooperación Judicial y Protección Internacional.

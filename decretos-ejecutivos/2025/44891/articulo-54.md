@@ -1,0 +1,3 @@
+Sección III
+Departamento Consular
+ARTICULO 54°.- Corresponde al Departamento Consular contribuir a una eficiente, transparente y eficaz gestión consular, para garantizar la atención al ciudadano costarricense y brindar también el servicio a los extranjeros que lo requieran, garantizando, al mismo tiempo las obligaciones que en el ámbito internacional, establece la Convención de Viena sobre Relaciones Consulares y en el ámbito nacional, las obligaciones de los funcionarios consulares en su calidad de auxiliares de la Dirección General de Migración y Extranjería, el Tribunal Supremo de Elecciones el Poder Judicial.

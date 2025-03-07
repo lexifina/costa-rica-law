@@ -1,0 +1,1 @@
+ARTICULO 24°. - Para efectos de la precedencia jerárquica y de acuerdo con lo estipulado por la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, el Director General tendrá rango equivalente a la tercera jerarquía del ministerio.

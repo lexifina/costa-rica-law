@@ -1,0 +1,3 @@
+Sección II
+Departamento de Inmunidades y Privilegios
+ARTICULO 61°. - Corresponde al Departamento de Inmunidades y Privilegios estudiar y resolver los asuntos relacionados con los privilegios e inmunidades de los funcionarios diplomáticos, consulares y de misión internacional acreditados ante el Gobierno de la República, respetando la normativa nacional en materia fiscal y los convenios internacionales en materia de inmunidades y privilegios. Además, realizar la acreditación de los funcionarios diplomáticos y de organismos internacionales y el otorgamiento del documento de identificación diplomática.

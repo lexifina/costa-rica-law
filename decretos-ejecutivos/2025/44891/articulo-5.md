@@ -1,0 +1,1 @@
+ARTICULO 5º. Las Direcciones de Política Exterior, de Cooperación Internacional, de Servicio Exterior, de Protocolo, Ceremonial del Estado y Culto, y Academia Diplomática Manuel María de Peralta, contarán con un Director Alterno, el cual estará subordinado y sustituirá en ausencia al director titular.

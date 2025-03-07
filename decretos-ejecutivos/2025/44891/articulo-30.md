@@ -1,0 +1,15 @@
+ARTICULO 30°. - Son sus funciones más importantes:
+a) Tramitar los procedimientos de contratación pública del Ministerio, desde la elaboración del pliego de condiciones hasta la emisión del respectivo contrato o pedido o formalización contractual.
+b) Elaborar, en coordinación con los diferentes programas presupuestarios que conforman el Ministerio, el programa anual de adquisiciones y sus modificaciones, y publicarlo en el sistema digital unificado de compras públicas.
+c) Planear y programar las contrataciones públicas de interés del Ministerio, así como consolidar los requerimientos institucionales de bienes y servicios comunes, y dar el debido seguimiento a la ejecución de todos los trámites.
+d) Confeccionar el pliego de condiciones, convocar a audiencias previas, cuando sea necesario, así como atender y tramitar las aclaraciones u objeciones al cartel.
+e) Emitir la recomendación de adjudicación, declaratoria de deserción o de infructuosidad de los procedimientos de contratación pública tramitados, así como atender y tramitar los recursos de revocatoria o apelación.
+f) Gestionar la formalización contractual para la respectiva suscripción del contrato, así como la obtención del refrendo del Órgano Contralor o de refrendo interno, cuando corresponda.
+g) Registrar y mantener actualizada, en el sistema digital unificado de compras públicas, la información de todos los procedimientos de contratación pública tramitados, a fin de brindar información oportuna, confiable y transparente a los administrados.
+h) Recibir, custodiar y dar seguimiento a las garantías de participación y cumplimiento presentadas por los participantes en los diversos procedimientos de contratación pública, y recomendar en el ámbito interno del Ministerio lo pertinente en cuanto a su ejecución o devolución, según corresponda.
+i) Tramitar y preparar para firma el respectivo procedimiento de rescisión y resolución de contratos, a través del sistema digital unificado de compras públicas, y en su caso imponer las respectivas sanciones con apoyo de la Asesoría Jurídica del Ministerio.
+j) Registrar en el sistema digital unificado de compras públicas, las sanciones a particulares impuestas a los contratistas, la causal y el plazo de sanción. Ejecutar las labores de recepción, registro, almacenamiento y distribución de bienes que ingresen al Ministerio, en coordinación con los técnicos de la institución, según corresponda.
+k) Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiada y bajo un adecuado sistema de control e inventario, los bienes adquiridos por el Ministerio a través de los diferentes procedimientos de contratación pública.
+l) Llevar un adecuado control de los inventarios de bienes muebles e inmuebles, así como su correcto registro contable.
+m) Brindar asesoría a las autoridades superiores y demás personal del Ministerio, en materia de contratación pública y administración de bienes, así como atender las consultas que surjan al respecto.
+n) Cualquier otra función inherente a su ámbito de competencia y atribuciones que le sea asignada.

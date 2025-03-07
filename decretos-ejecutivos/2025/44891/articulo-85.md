@@ -1,0 +1,3 @@
+Sección III
+Proceso de Cooperación Multilateral
+ARTICULO 85.- Corresponde al proceso de Cooperación Multilateral, identificar, coordinar, posicionar y negociar los recursos otorgados por organismos multilaterales, regionales, sujetos de derecho internacional y otros actores en las diversas modalidades de cooperación tales como: triangular, multiactor y descentralizada, a fin de contribuir al desarrollo sostenible del país, en congruencia con las prioridades nacionales establecidas en el Plan Nacional de Desarrollo e Inversión Pública y los principios de la Política Exterior, así como con otros instrumentos orientadores en la materia.

@@ -1,0 +1,3 @@
+CAPITULO XV
+De la Academia Diplomática Manuel María de Peralta
+ARTICULO 91°.- Corresponde a la Academia Diplomática Manuel María de Peralta promover la profesionalización de la función diplomática costarricense, a través de programas de formación y capacitación realizada; asesorar, por medio de la realización de estudios, investigaciones, publicaciones y análisis prospectivos sobre los temas que les sean requeridos por los jerarcas del ministerio, para coadyuvar en la toma de decisiones con respecto a las competencias que atañen a la institución, y asimismo, funcionar como centro superior de investigación y rescate de la historia diplomática costarricense.

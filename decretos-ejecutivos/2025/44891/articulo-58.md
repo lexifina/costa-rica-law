@@ -1,0 +1,4 @@
+Capítulo XII
+Sección I
+De la Dirección de Protocolo y Ceremonial del Estado y Culto
+ARTICULO 58°- Corresponde a la Dirección General de Protocolo, Ceremonial del Estado y Culto, dirigir, coordinar y supervisar todo cuanto se refiere al Ceremonial costarricense y a la aplicación de las reglas usuales del Protocolo, así como a la concesión de privilegios diplomáticos y al control sobre exenciones aduaneras a los diplomáticos extranjeros acreditados ante el Gobierno de Costa Rica. En materia de Culto le corresponde representar al Estado costarricense en todas aquellas actividades en torno a la religión, permitiendo así velar por las buenas relaciones entre el pueblo costarricense y las distintas confesiones religiosas que funcionan de manera oficial en el país, así como velar cuando sea posible por el respeto a la libertad de Culto y libre ejercicio de Culto en el país promoviendo la armonía entre las autoridades civiles y eclesiásticas.

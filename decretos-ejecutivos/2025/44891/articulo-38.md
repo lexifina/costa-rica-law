@@ -1,0 +1,13 @@
+ARTICULO 38°. - Son sus funciones más importantes:
+a) Expedir pasaportes diplomáticos y de servicio, y los correspondientes permisos de salida del país, dentro del plazo establecido.
+b) Gestionar, coordinar y dar seguimiento a las solicitudes planteadas ante embajadas de gobiernos acreditados ante el Gobierno de Costa Rica, a efecto de que otorguen visa para los viajes oficiales que realizan las personas portadoras de un pasaporte diplomático o de servicio.
+c) Emitir certificaciones sobre los actos administrativos que desarrolla el Departamento de Pasaportes.
+d) Llevar un registro de los pasaportes en blanco, entregados, destruidos, anulados, vencidos y devueltos, así como de las notas verbales emitidas para interceder por los visados de tránsito, ingreso o permanencia a determinados países, con el fin de garantizar la seguridad y custodia de esos documentos.
+e) Controlar los plazos y vigencia en el otorgamiento de los permisos de salida y de los pasaportes diplomáticos y de servicio, con el objetivo de registrar las personas cesadas en sus cargos, ya sea por renuncia, despido o término de funciones, a fin de que devuelvan los pasaportes al Ministerio de Relaciones Exteriores y Culto, para su debida custodia, anulación y posterior destrucción, según corresponda
+f) Denunciar ante la autoridad nacional o internacional correspondientes, el extravío, robo o hurto de aquellos pasaportes que estén bajo su responsabilidad y custodia.
+Conminar a través de los medios establecidos a las personas que no hagan devolución del pasaporte diplomático o del pasaporte de servicio, cuando así corresponda.
+g) Ejecutar el proceso de anulación de los pasaportes diplomáticos y de servicio cuando corresponda y llevar un control de este proceso, que concluirá con las gestiones necesarias y el procedimiento adecuado para su destrucción.
+h) Coordinar el traslado de los pasaportes al Ministerio de Relaciones Exteriores y Culto, retenidos por las autoridades de la Dirección General de Migración y Extranjería al ingresar a Costa Rica, estableciendo los procedimientos de resguardo y vigilancia respectivos.
+i) Controlar que los pasaportes diplomáticos y de servicio utilicen el formato establecido por la entidad, para que salgan impresos con nitidez y, por tanto, permitan garantizar su autenticidad e integridad.
+j) Informar mensualmente a la Dirección General de Migración y Extranjería (DGME) el detalle de los pasaportes diplomáticos y de servicio que han sido otorgados, anulados, vencidos y reportados como extraviados, hurtados o robados.
+k) Gestionar las consultas relacionadas con información sobre la emisión de pasaportes diplomáticos y de servicio.

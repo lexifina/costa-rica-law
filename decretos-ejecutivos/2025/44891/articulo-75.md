@@ -1,0 +1,13 @@
+ARTICULO 75°. - Son sus funciones más importantes:
+a) Atender, en coordinación con el ente rector en la materia, la participación de Costa Rica en las reuniones de la Convención Marco de Naciones Unidas sobre el Cambio Climático.
+b) Coordinar el equipo negociador nacional sobre medio ambiente y cambio climático, que incluye los subgrupos de negociación sobre mitigación, transparencia, adaptación, pérdidas y daños, balance global, entrada en vigor, financiamiento, transferencia de tecnología, creación de capacidades y género y derechos humanos.
+c) Participar, en coordinación con el ente rector en la materia, en la definición de la posición nacional en materia de cambio climático.
+d) Dar seguimiento de las posiciones nacionales sobre la Contribución Nacional, estrategias nacionales de mitigación, y plan nacional de adaptación.
+e) Participar en los trabajos de la Asociación Independiente de América Latina y el Caribe y del Foro de Vulnerabilidad Climática.
+f) Atender, en coordinación con la misión ante el respectivo organismo multilateral, el trabajo de los grupos de amigos o países que comparten la visión de la búsqueda de promover intereses y objetivos comunes, específicamente en el área de Medio Ambiente y Cambio Climático.
+g) Atender, en coordinación con el ente rector en la materia, la participación de Costa Rica ante los órganos y entidades cuya área de acción es el medio ambiente, el cambio climático, las energías renovables, la biodiversidad y el desarrollo sostenible, tales como: Agencia Internacional de Energías Renovables, Internacional Solar Alliance, Fondo Verde para el Clima, Programa de Naciones Unidas para el Medio Ambiente, Asamblea de Naciones Unidas para el Medio Ambiente, Comisión Ballenera Internacional, Convención sobre Diversidad Biológica, entre otros.
+h) Atender el trabajo, en coordinación con la misión ante el respectivo organismo multilateral (Agencias del Sistema de las Naciones Unidas), así como en otros organismos internacionales.
+i) Dar seguimiento a la implementación nacional de los Objetivos de Desarrollo Sostenible y participación en las conferencias sobre Desarrollo Sostenible.
+j) Participar con instituciones públicas y privadas en la formulación de políticas y estrategias nacionales sobre Desarrollo Sostenible y Medio Ambiente.
+k) Elaborar y presentar ante organismos internacionales y en cumbres mundiales la posición de Costa Rica en materia de Desarrollo Sostenible y Medio Ambiente.
+l) Apoyar y prestar colaboración a los sectores públicos y privados (ONGs) para la definición de prioridades nacionales en materia de desarrollo sostenible.

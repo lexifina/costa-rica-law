@@ -1,0 +1,16 @@
+ARTICULO 66°. - Son sus funciones más importantes:
+a) Atender directrices y lineamientos del Presidente de la República, del Ministro y Viceministros de Relaciones Exteriores en materia de política exterior.
+b) Formular y ejecutar la política exterior, debiendo para ello dirigir la elaboración de planes y programas de acción que conjuntan las directrices y lineamientos emanados de las autoridades superiores del Gobierno, de acuerdo con las diferentes situaciones políticas, económicas y sociales que la afectan directa o indirectamente.
+c) Coordinar las actividades de los ministerios y otras instituciones públicas en aquellos asuntos que inciden en la Política Exterior y la determinación y demarcación de las fronteras y límites del país, a través de información y asesoría oportuna sobre los principios, acciones e intereses de la política exterior costarricense, con el fin de mantener su unidad de que se maneje exitosamente la representación y las negociaciones externas en los planos político, económico, jurídico y de asistencia técnica.
+d) Planear, dirigir, coordinar y supervisar los procesos de política bilateral, integración regional y multilateral a través de reuniones, comunicados, acuerdos u otros para mejorar las relaciones en la Política Exterior.
+e) Organizar, ejecutar y controlar las directrices, disposiciones y otros, mediante reuniones periódicas, u otros medios, con el fin de evaluar los objetivos o resultados obtenidos.
+f) Coordinación de las actividades de otros Ministerios e instituciones públicas y privadas en materia de política exterior y concretar las necesidades institucionales y nacionales en materia de determinación y ejecución de la política exterior.
+g) Supervisar y armonizar la coordinación con los entes rectores nacionales para respaldar técnicamente, cuando corresponda, las posiciones que se tomarán en todas las reuniones en las que el país esté representado.
+h) Suministrar insumos sobre la política exterior costarricense a las demás dependencias del Ministerio de Relaciones Exteriores y Culto que lo requieren: Despacho del Canciller, Despacho del Vicecanciller, todas direcciones del Ministerio de Relaciones Exteriores y Culto.
+i) Orientar las relaciones del personal destacado en la sede, dictando lineamientos en materia de su especialidad, mediante la coordinación de las actividades de los diferentes ministerios y otras instituciones públicas y privadas en materia de Política Exterior.
+j) Proponer las medidas administrativas generales para todas las dependencias que integran la Dirección, emitiendo circulares, haciendo reuniones para mejorar los procesos sustantivos de la organización y el buen funcionamiento de estos.
+k) Concertar las necesidades y posiciones de la Institución en materia de Política Exterior, por medio de reuniones, estudios y análisis de información.
+l) Girar directrices sobre Política Exterior al Servicio Exterior.
+m) Representar a la Dirección y al Ministerio en eventos de política exterior a nivel nacional e internacional. Ocasionalmente le corresponde representar al sector privado en foros internacionales.
+n) Coordinar con el Servicio Exterior la conducción de asuntos de interés nacional en que deben participar nuestras representaciones en el exterior.
+o) Ejecutar otras actividades propias de los procesos en que le corresponde intervenir.

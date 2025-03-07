@@ -1,0 +1,3 @@
+Sección IV
+Proceso de Diplomacia Económica
+ARTICULO 87: Corresponde al Proceso de Diplomacia Económica promover los más altos valores y principios de la política exterior orientados a lograr el posicionamiento de Costa Rica a través de seis pilares o ejes de acción: el comercial, el científico-tecnológico e innovación, la atracción turística, el cultural y deportivo, académico y el económico ambiental, establecidos para contribuir al cumplimiento de los objetivos del Plan Nacional de Desarrollo e Inversión Pública a partir del trabajo articulado interinstitucional, el sector privado y académico.
