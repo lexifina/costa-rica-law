@@ -1,0 +1,7 @@
+Artículo 6: Derechos de los usuarios. Los usuarios de las instalaciones tienen derecho a:
+a) Hacer uso de las instalaciones en los días y en el horario señalado en el permiso o contrato de arrendamiento, o en el horario establecido para aquellas instalaciones de libre acceso.
+b) Hacer uso de los servicios y espacios complementarios como vestuarios, servicios sanitarios, etc., en las instalaciones dotadas de dichos servicios, no estando permitido dejar ningún tipo de objeto en los mismos, eximiéndose el CCDRE de toda responsabilidad.
+c) Encontrar las instalaciones, material y mobiliario con que están equipadas en perfectas condiciones de limpieza y mantenimiento.
+d) Realizar cualquier sugerencia o reclamo que considere oportuno en las hojas que se encuentran a su disposición para tal fin en las instalaciones.
+e) Si por inclemencias del tiempo, en los alquileres de instalaciones, fuera imposible realizar la práctica deportiva -recreativa; con el visto bueno del Administrador o funcionario del CCDRE y previa presencia en la instalación se procederá a compensar dicho uso en fechas próximas, o la devolución del pago correspondiente.
+f) Presentar las quejas, sugerencias o reclamos que estimen convenientes por escrito a la Administración del CCDRE como primera instancia, esto debe realizarse al correo administracióncdre@muniesparza.go.cr, como segunda instancia a la Junta Directiva del CCDRE al correo ccdresparza@muniesparza.go.cr

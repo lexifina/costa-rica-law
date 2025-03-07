@@ -1,0 +1,1 @@
+Artículo 3: Ámbito de aplicación. El presente Reglamento tiene por objeto regular el uso de las instalaciones en administración o propiedad registral del CCDRE. Lo anterior al amparo en el Código Municipal, Ley número 7794.

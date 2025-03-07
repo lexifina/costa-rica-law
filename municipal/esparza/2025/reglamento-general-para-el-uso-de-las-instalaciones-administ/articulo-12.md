@@ -1,0 +1,18 @@
+Artículo 12: Regulaciones de solicitud de uso en préstamo o alquiler de las instalaciones para actividades de carácter masivas y no masivas.
+a) La Junta Directiva dispondrá de diez días hábiles para analizar la solicitud presentada para actividades masivas y determinar si se rechaza o acepta la solicitud.
+b) Si Junta Directiva aprueba la solicitud de alquiler para uso de instalaciones, se le comunicará al interesado para que proceda a realizar los depósitos correspondientes por alquiler, garantía de cumplimiento y garantía contra daños, según corresponda y otros permisos necesarios; además de contar con una póliza de riesgo para cada uno de los participantes.
+c) Posterior a la cancelación de los montos estipulados y presentación de todos los documentos solicitados, se elaborará la factura electrónica correspondiente por el alquiler.
+d) Si Junta Directiva aprueba la solicitud de préstamo de instalaciones, se le comunicará al interesado, los cuales deben aportar los insumos de aseo que utilizaran para el desarrollo de sus actividades, así como desechar toda la basura producto del uso de las instalaciones y colocarla en la canasta para tal fin que se ubicada en la entrada principal, además serán responsables de contar con una póliza que asegure a cada usuario que participa en las actividades que desarrollan y de cualquier daño a las instalaciones.
+e) Si la solicitud es rechazada por Junta Directiva se le comunicará al interesado mediante correo electrónico las razones consideradas para no aceptar la solicitud.
+f) Los depósitos por cumplimiento de garantías o daños realizados se reintegrarán siempre y cuando exista la certeza de que no hubo daños o incumplimientos en el uso de las instalaciones. El trámite para la devolución se hará dentro de los diez días hábiles siguientes a la solicitud del interesado.
+g) Para los alquileres de instalaciones para actividades masivas y no masivas, los interesados deben enviar al correo electrónico ccdresparzasparza@muniesparza.go.cr el comprobante de pago de la
+transferencia realizada a la cuenta bancaria del CCDRE o transferencia por sinpe móvil. La administración realizará la emisión de la factura electrónica previa entrega del número de cédula física y/o personería jurídica y un correo electrónico. Una vez realizado este trámite, se procederá a confeccionar la factura electrónica correspondiente.
+h) El monto para cancelar por alquileres serán las tarifas fijadas para el uso de la instalación según directriz emitida por Junta Directiva del CCDRE cada año. Cualquier otra actividad de alquiler que no esté contemplada en la tabla de tarifas de uso de instalaciones será resuelta por la Junta Directiva del CCDRE.
+i) Todo alquiler debe ser depositado por el usuario directamente a la cuenta del CCDRE o por medio de sinpe móvil, información que será suministrada al momento de realizar el trámite correspondiente.
+Documentos para presentar en caso de realización de eventos masivos.
+i. Copia de cédula y/o personería jurídica y responsable de la actividad, (teléfono, correo electrónico u otra información que permita la comunicación ágil).
+j. Copia de cédula de identidad del represente legal de la organización (para entidades jurídicas).
+k. Copia de cédula de identidad para personas físicas.
+l. Presentar el plan de operación y la logística del evento, donde se incluya la cantidad aproximada de personas que se beneficiará o participará de la actividad.
+m. Indicar si habrá presencia de publicidad y qué medio utilizarán para la exposición en la instalación o alrededores de esta.
+n. Deberán gestionar permiso con el Ministerio de Salud, Fuerza Pública o privada, patente de la Municipalidad de Esparza y asistencia médica (Cruz Roja o cualquier otro ente privado de atención).

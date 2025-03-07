@@ -1,0 +1,1 @@
+Artículo 4: Administración y responsabilidad. La administración de las instalaciones, estarán a cargo del Administrador. Será esta instancia del CCDRE la responsable de cumplir las normas establecidas en el presente reglamento.

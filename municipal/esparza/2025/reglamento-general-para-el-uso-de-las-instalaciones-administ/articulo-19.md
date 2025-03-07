@@ -1,0 +1,1 @@
+Artículo 19: En caso de que la actividad no se pueda llevar a cabo por parte del organizador del evento, deberá informarlo al CCDRE con 5 días hábiles de anterioridad a la fecha del evento. Si el organizador no avisa con antelación y no existe una garantía de cumplimiento que se pueda hacer efectiva, tendrá que esperar seis meses para que se le vuelva a otorgar un permiso nuevo.

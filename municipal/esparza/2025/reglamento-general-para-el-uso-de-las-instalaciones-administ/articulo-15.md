@@ -1,0 +1,1 @@
+Artículo 15: La administración, deberá realizar junto con el permisionario una revisión del inmueble, zona o área que se da en préstamo o alquiler antes de que hagan posesión de este y después de finalizada la actividad. En caso de que el horario no lo permita, cada usuario antes de la actividad debe levantar un acta de como recibe las instalaciones.

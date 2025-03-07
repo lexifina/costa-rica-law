@@ -1,0 +1,1 @@
+Artículo 20: El CCDRE proporcionará los servicios públicos para la realización de eventos, el beneficio estará incluido en el alquiler o préstamo. Salvo así sea indicado y cuantificado en el permiso. Todo organizador deberá contratar seguridad privada y de emergencias médicas.
