@@ -14,3 +14,4 @@ Apoyo económico para el fortalecimiento profesional de las personas colegiadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-23 | la propia norma |
+| 2 | 2025-03-07 | Reglamento 122 (2025-03-07) |

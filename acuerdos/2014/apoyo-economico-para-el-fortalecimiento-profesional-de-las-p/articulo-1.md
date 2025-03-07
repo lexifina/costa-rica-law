@@ -8,6 +8,7 @@ Revisado por: Comisión de Revisión de Políticas.
 Fecha de emisión: 02 de Octubre de 2009 | Reemplaza a: POL/PRO-FAPP01 versión 2, POL/ PRO-FAPP02 Versión 2 y POL/PRO-FAPP05 versión 1
 Elaborado por: Departamento de Formación Académico Profesional y Personal | Aprobado para entrar en vigencia: Acuerdo 08, sesión ordinaria 013- 2010 celebrada el 08 de Febrero 2010
 | |
+(Nota de Sinalevi: Esta norma fue remplazada sesión N° 122-2024 de febrero del 2025 y publicada en el Alcance Digital N° 32 a La Gaceta N° 45 del 7 de marzo del 2025)
 Objetivo:
 Establecer los requisitos y procedimientos para brindar el apoyo económico con el fin de fortalecer la formación profesional de las personas colegiadas.
 Políticas generales:
