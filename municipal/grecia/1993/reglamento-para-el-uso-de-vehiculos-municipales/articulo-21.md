@@ -1,1 +1,0 @@
-Artículo 21.—Quedan derogadas todas las disposiciones reglamentarias anteriores sobre el uso de vehículos Municipales. Cualquier reforma o adición a este reglamento, será aprobada por el Concejo Municipal y requerirá su puesta en práctica de la aprobación definitiva de la Contraloría General de la República.
