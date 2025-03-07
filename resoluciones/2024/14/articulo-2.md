@@ -1,1 +1,0 @@
-Artículo 2º- Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número MH-DGH-RES-0011-2023 de las catorce horas y veinte minutos del siete de marzo de dos mil veintitrés, publicada en La Gaceta N°48 del 15 de marzo de 2023.
