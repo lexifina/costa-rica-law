@@ -1,2 +1,2 @@
-Artículo 15.-Interés Público. Los objetivos y acciones contenidas en el presente decreto son de interés público. Se determina de interés público también la promoción e implementación de los ODS y su Agenda 2030 en los ámbitos locales, municipales y regionales. De manera que se insta a la institucionalidad regional y local a desarrollar acciones para la localización y cumplimiento de los ODS en los territorios y comunidades del país.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 44077 del 5 de junio del 2023)
+Artículo 15.- Foro Nacional de los ODS. Se crea el Foro Nacional de los ODS como un espacio público para la rendición de cuentas de las acciones realizadas para el cumplimiento de los ODS en Costa Rica. El foro será organizado y convocado por la Secretaría Técnica.
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44945 del 7 de marzo de 2025, que lo traspasó del antiguo artículo 14 al artículo 15)

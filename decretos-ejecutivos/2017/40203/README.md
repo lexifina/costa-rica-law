@@ -16,3 +16,4 @@ Gobernanza e implementación de los objetivos de desarrollo sostenible en Costa 
 | 1 | 2017-03-01 | la propia norma |
 | 2 | 2019-12-20 | Decreto Ejecutivo 42127 (2019-12-20) |
 | 3 | 2023-06-05 | Decreto Ejecutivo 44077 (2023-06-05) |
+| 4 | 2025-03-07 | Decreto Ejecutivo 44945 (2025-03-07) |

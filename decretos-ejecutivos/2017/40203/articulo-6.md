@@ -1,5 +1,3 @@
-Artículo 6.- Funciones del Consejo. El Consejo tendrá las siguientes funciones:
-a) Avalar una estrategia nacional de planificación, implementación y seguimiento de los ODS con enfoque prospectivo, integrando las dimensiones económica, social y ambiental de conformidad con las normas de Derechos Humanos, el Consenso de Montevideo sobre Población y Desarrollo, del Derecho Nacional e Internacional y en concordancia con los distintos instrumentos de planificación nacional a corto, mediano y largo plazo.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 44077 del 5 de junio del 2023)
-b) Establecer las medidas necesarias que permitan la asignación de recursos financieros para la implementación de los ODS.
-c) Aquellas que resulten derivadas del ejercicio de su competencia.
+Artículo 6º-Funcionamiento del Consejo. El Consejo se reunirá ordinariamente tres veces al año, previa convocatoria del Presidente de la República o de la o el Vicepresidente de la República en que se delegue, por medio de la Secretaría Técnica, y extraordinariamente a solicitud del Presidente de la República o de la o el Vicepresidente de la República en que se delegue, cuando lo considere necesario. En cada sesión se levantarán actas de los asuntos tratados y de los acuerdos tomados, función que atenderá la o el coordinador de la Secretaría Técnica.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 44077 del 5 de junio del 2023)
+(Así modificada su numeración por el artículo 2° del decreto ejecutivo N° 44945 del 7 de marzo de 2025, que lo traspasó del antiguo artículo 5 al artículo 6)
