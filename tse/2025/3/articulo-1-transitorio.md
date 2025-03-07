@@ -1,0 +1,1 @@
+Transitorio I.-Las personas que actualmente se encuentran nombradas, en propiedad o en condición "de confianza", como titulares de los puestos calificados como de "Alta Dirección Pública" se mantendrán en sus cargos indefinidamente, salvo que se configure alguna de las causales de remoción previstas en el artículo 7 de este reglamento.

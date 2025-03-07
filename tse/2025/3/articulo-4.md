@@ -1,0 +1,2 @@
+Artículo 4°-Plazo del nombramiento y período de prueba. En atención a la autonomía constitucional del Tribunal Supremo de Elecciones y conforme a lo dispuesto en el artículo 18 de la Ley Marco de Empleo Público, el nombramiento en un cargo de Alta Dirección Pública de la institución será por plazo indefinido.
+La persona que sea designada en un cargo de Alta Dirección Pública, una vez llevado a cabo el respectivo concurso de oposición, deberá cumplir el período de prueba que regula la normativa institucional.

@@ -1,0 +1,2 @@
+Artículo 7°-Normas de aplicación complementaria y/o supletoria. En todo lo que sea compatible con la naturaleza especial de los puestos de Alta Dirección Pública, serán de aplicación las normas generales de empleo y condiciones de trabajo del Tribunal Supremo de Elecciones.
+En ausencia de regulación expresa en este Reglamento, se estará en lo que fuere aplicable al Reglamento del Estatuto de Servicio Civil.
