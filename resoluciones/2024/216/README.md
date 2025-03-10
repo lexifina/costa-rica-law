@@ -14,3 +14,4 @@ Reforma Resolución N° RCS-358-2018 "Modificación del Procedimiento para la ho
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-22 | la propia norma |
+| 2 | 2025-03-10 | Resolución 0 (2025-03-10) |
