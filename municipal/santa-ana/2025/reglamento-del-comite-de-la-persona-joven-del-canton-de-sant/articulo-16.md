@@ -1,0 +1,1 @@
+Artículo 16.-Podrán celebrarse sesiones extraordinarias, estas cuando sean convocadas por la Presidencia o a solicitud de por lo menos tres miembros, con un mínimo de 24 horas de anticipación y sesionarán en cualquier lugar dentro del cantón.

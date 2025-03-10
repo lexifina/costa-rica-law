@@ -1,0 +1,1 @@
+Artículo 50.-La Municipalidad brindará un espacio al CPJ para la realización de las reuniones de esta comisión, o brindará las herramientas tecnológicas para que puedan llevarse a cabo las sesiones desde la virtualidad en caso de así requerirse por razones de salud pública.

@@ -1,0 +1,1 @@
+Artículo 14.-De las Sesiones. Deberá sesionar dos veces al mes, según lo establecido en la Ley N. º 8261, iniciando funciones el 01 de enero del año impar posterior a su elección y finalizándolas el 31 de diciembre del año par siguiente.

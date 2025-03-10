@@ -1,0 +1,1 @@
+Artículo 34.-La Oficina de Promoción Social coordinará y fiscalizará, dichas elecciones y definirá las fechas, en que cada sector realice sus elecciones y asambleas para definir sus representantes; la cual no tendrá ninguna injerencia en las decisiones internas de la asamblea.

@@ -1,0 +1,1 @@
+Artículo 35.-El Concejo Municipal deberá nombrar entre los miembros del Concejo mediante acuerdo, con mayoría simple, una comisión especial para fiscalizar el proceso de elección del Comité de la Persona Joven y el cumplimiento de los plazos perentorios para cada etapa. El nombramiento deberá realizarse antes de finalizar el mes de agosto.

@@ -1,0 +1,1 @@
+Artículo 63.-La Municipalidad de Santa Ana dispondrá de un espacio físico adecuado a las necesidades del CPJ, para la realización de sus reuniones, eventos y actividades. Su administración, custodia, conservación y protección corresponderá al CPJ.

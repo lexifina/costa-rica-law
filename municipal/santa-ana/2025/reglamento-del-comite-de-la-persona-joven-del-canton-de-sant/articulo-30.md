@@ -1,0 +1,1 @@
+Artículo 30.-De las Comisiones del CPJ. El CPJ podrá crear Comisiones la cuales tendrán las funciones que se le encomienden en el acuerdo que las cree. La Presidencia nombrará quienes integrarán las Comisiones.

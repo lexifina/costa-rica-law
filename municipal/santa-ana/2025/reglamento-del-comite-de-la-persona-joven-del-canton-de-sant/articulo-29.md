@@ -1,0 +1,1 @@
+Artículo 29.-Sanción falta grave. Previo debido proceso, las faltas graves se sancionarán con la solicitud de remoción del miembro del CPJ de Santa Ana ante la organización o institución que represente.

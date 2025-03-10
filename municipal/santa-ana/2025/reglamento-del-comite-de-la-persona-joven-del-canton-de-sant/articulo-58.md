@@ -1,0 +1,1 @@
+Artículo 58.-Integrarán la Asamblea Cantonal para la elección de la representación del Comité ante el CCDRSA las organizaciones juveniles, religiosas, colegiales del cantón y personas atletas activas del Programa de Juegos Deportivos Nacionales del cantón.

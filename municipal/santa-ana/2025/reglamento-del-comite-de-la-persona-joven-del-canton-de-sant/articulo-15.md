@@ -1,0 +1,1 @@
+Artículo 15.-El quórum para sesionar será la mitad más uno de los miembros del Comité, de no haber el quórum mínimo para sesionar después de 15 minutos de la hora señalada, se realizará la sesión con los miembros presentes dejando constar en el acta la asistencia.

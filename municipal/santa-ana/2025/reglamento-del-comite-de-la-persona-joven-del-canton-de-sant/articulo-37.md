@@ -1,0 +1,1 @@
+Artículo 37.-Del Representante Municipal. El Concejo Municipal realizará en el mes de setiembre, mediante acuerdo municipal, el nombramiento del representante del Gobierno Local en el CPJ de Santa Ana.

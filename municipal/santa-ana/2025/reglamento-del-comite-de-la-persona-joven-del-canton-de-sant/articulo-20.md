@@ -1,0 +1,2 @@
+Artículo 20.-De las personas visitantes y las audiencias. En las sesiones del CPJ podrán presentarse personas externas a ésta, con previa solicitud de audiencia, que deberá gestionar ante la secretaría del comité.
+Las personas visitantes que asistan a la sesión y expongan sobre algún tema en relación con la actividad general del CPJ de Santa Ana, tendrán un tiempo no mayor a 15 minutos para su exposición, todo con el propósito de darle celeridad a las sesiones y que otras personas puedan exponer sus inquietudes

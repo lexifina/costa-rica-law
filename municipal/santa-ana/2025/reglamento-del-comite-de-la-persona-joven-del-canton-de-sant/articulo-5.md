@@ -1,0 +1,1 @@
+Artículo 5.-La municipalidad y el Comité de la Persona Joven serán los mediadores en la promoción y cumplimiento de una verdadera y efectiva participación de los jóvenes en los asuntos públicos y en la defensa de sus derechos.
