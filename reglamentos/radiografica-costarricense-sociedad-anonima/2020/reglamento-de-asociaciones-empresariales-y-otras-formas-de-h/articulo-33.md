@@ -1,2 +1,0 @@
-Artículo 33.—Casos de Concentración. En los casos en que RACSA pretenda realizar una asociación empresarial con otro operador de redes o proveedor de servicios de telecomunicaciones,
-la Dirección Producto y Proyectos, de previo a elevar el caso de negocio a la Gerencia General, deberá valorar con la Dirección Jurídica y Regulatoria si se requiere contar con la autorización previa de concentración por parte de SUTEL, de conformidad con el artículo 56 de la Ley General de Telecomunicaciones.

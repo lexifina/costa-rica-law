@@ -1,6 +1,0 @@
-CAPÍTULO IX
-De la ejecución y evaluación
-Artículo 36.—Dirección del Proyecto y Administración del Contrato. La Dirección Producto y Proyectos es la responsable de la implementación del servicio como un todo y fungirá como Director del Proyecto, coordinando lo necesario para llevar a buen término la ejecución del proyecto.
-La Dirección Gestión de Plataformas es la responsable de administrar el contrato y llevar a cabo a buen término la ejecución del contrato en conjunto con el socio, conforme a lo pactado en el acuerdo de asociación empresarial, incluyendo autorizar los pagos. Para ello deberán ejercer las funciones que establece el Reglamento para los Procesos de Adquisición de las Empresas del ICE.
-La Dirección Comercial es la responsable de velar por que se mantenga la propuesta de valor ofrecida al Cliente, para ello mantendrá una estrecha comunicación con el Cliente durante el período de implementación del servicio y operación y retroalimentará a la Dirección Producto y Proyectos y a la Gerencia General.
-La Dirección Gestión Financiera es la encargada de vigilar la evolución y cumplimiento de las premisas financieras del caso de negocio aprobado, así como realizar el análisis de la capacidad financiera del socio y emitir criterio sobre los resultados de estudios de viabilidad financiera de los casos de negocio, sometidos a su conocimiento.

@@ -1,1 +1,0 @@
-Transitorio II.—En el plazo máximo de quince días hábiles posteriores a la publicación del presente Reglamento, las dependencias que estén tramitando algún tipo de asociación empresarial, deberán informar a la Gerencia General cuáles de ellas se encuentran en trámite y cuentan con un caso de negocio, para que sean tramitadas conforme al presente Reglamento.

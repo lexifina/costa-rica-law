@@ -1,1 +1,0 @@
-Artículo 13.—Obligación de actualización. Los socios registrados están obligados a mantener actualizada la información que hayan aportado al momento de solicitar su inscripción en el Registro. Dicha actualización deberán realizarla cada tres años, o bien cuando ocurran cambios a nivel accionario o patrimonial.

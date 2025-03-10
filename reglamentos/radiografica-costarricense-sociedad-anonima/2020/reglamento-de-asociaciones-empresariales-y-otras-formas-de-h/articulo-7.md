@@ -1,1 +1,0 @@
-Artículo 7º—Administrador del Registro del Socios. El Departamento de Proveeduría será el Administrador del Registro de Socios en coordinación con la Dirección de Producto y Proyectos y tendrá bajo su responsabilidad el manejo centralizado, así como la definición de procesos de dicho Registro, garantizando su calidad y buen funcionamiento.

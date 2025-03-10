@@ -1,1 +1,0 @@
-Artículo 11.—Registro de Socios del ICE. RACSA podrá utilizar de forma complementaria, el Registro de Socios del ICE, para lo cual debe registrarse en forma electrónica aportando una certificación de encontrarse registrado en el ICE.

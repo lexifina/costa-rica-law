@@ -1,1 +1,0 @@
-Artículo 39.—Informes de la Dirección Comercial. La Dirección Comercial deberá presentar cada tres meses un informe tanto a la Dirección Producto y Proyectos como a la Gerencia General, a fin de medir el nivel de cumplimiento de las proyecciones financieras estimadas en el caso de negocio de la Asociación Empresarial.

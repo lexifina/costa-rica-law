@@ -1,1 +1,0 @@
-Artículo 42.—Finiquito. Luego de finalizado el acuerdo de asociación empresarial y no mediando ningún asunto pendiente, las Partes están facultadas para suscribir un finiquito que las exima de reclamos posteriores de cualquier tipo.

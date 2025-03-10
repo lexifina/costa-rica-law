@@ -1,1 +1,0 @@
-Artículo 53.—Derogatoria. El presente Reglamento deroga el Reglamento de Asociaciones Empresariales aprobado por la Junta Directiva en el artículo segundo de la sesión ordinaria N° 2225 celebrada el día 30 de mayo de 2019.
