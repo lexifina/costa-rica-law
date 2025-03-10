@@ -14,3 +14,4 @@ Reglamento de gestión, fiscalización y cobro administrativo y judicial de la c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-09 | la propia norma |
+| 2 | 2025-03-10 | Reglamento 3 (2025-03-10) |
