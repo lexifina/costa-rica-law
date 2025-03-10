@@ -1,0 +1,1 @@
+Artículo 8º-Determinación del cuerpo edil. Una vez dictaminada la propuesta por parte de la Comisión Permanente de Asuntos Culturales, el Concejo tomará el acuerdo respectivo, otorgando o no la distinción solicitada. El dictamen de la Comisión no tiene carácter vinculante para el Concejo.

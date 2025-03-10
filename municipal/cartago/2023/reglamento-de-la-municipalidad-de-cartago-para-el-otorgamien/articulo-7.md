@@ -1,0 +1,1 @@
+Artículo 7º-De la Comisión. Recibida la postulación en el Concejo, se trasladará a la Comisión Permanente de Asuntos Culturales, la cual se encargará de verificar la información brindada, estudiar los documentos, y emitir la recomendación respectiva, en un plazo máximo de quince días hábiles.

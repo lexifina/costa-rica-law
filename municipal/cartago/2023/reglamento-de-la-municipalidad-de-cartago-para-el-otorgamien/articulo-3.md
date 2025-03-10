@@ -1,0 +1,1 @@
+Artículo 3º-Del carácter de la distinción. Todas las distinciones a que hace referencia este reglamento tienen carácter exclusivamente honorífico, por lo que no otorgan ningún derecho administrativo ni remuneración económica.

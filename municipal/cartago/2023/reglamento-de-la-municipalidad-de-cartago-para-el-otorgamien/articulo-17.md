@@ -1,0 +1,2 @@
+Artículo 17.-De la entrega. Las distinciones honoríficas del artículo 16 consistirán en la entrega de un pergamino, en el que se hará constar a la persona ciudadana o grupo el reconocimiento y las razones por las que ha sido designado; y un recuerdo alusivo.
+En el caso de la distinción Llaves de la Ciudad de Cartago, el Concejo podrá delegar en la persona que ocupa la Alcaldía, su entrega en un acto diferente a la sesión del Concejo.

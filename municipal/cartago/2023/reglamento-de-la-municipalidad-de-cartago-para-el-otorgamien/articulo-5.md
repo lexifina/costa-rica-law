@@ -1,0 +1,2 @@
+Artículo 5°-Requisito indispensable. Para ser acreedora de una distinción honorífica otorgada por la Municipalidad de Cartago, las personas físicas, jurídicas o de hecho deberán tener o haber tenido su domicilio en el cantón de Cartago durante al menos cinco años.
+Por acuerdo unánime de las personas regidoras propietarias, se podrá otorgar una distinción sin cumplir con el requisito indicado en el párrafo anterior.

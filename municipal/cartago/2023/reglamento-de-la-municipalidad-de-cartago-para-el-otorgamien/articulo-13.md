@@ -1,0 +1,1 @@
+Artículo 13.-Excepción. Excepcionalmente se distinguirá con la Declaratoria de Hija Predilecta o Hijo Predilecto del Cantón, a una persona ya fallecida que en vida cumplía los requisitos indicados en los artículos anteriores.

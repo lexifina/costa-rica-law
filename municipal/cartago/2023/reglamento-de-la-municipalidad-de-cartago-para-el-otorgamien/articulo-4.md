@@ -1,0 +1,1 @@
+Artículo 4º-Del presupuesto. El Concejo aprobará una partida presupuestaria en el presupuesto ordinario de cada año o en un extraordinario cuando sea necesario, para sufragar los gastos de los actos solemnes de reconocimiento y entrega de las distinciones honoríficas.

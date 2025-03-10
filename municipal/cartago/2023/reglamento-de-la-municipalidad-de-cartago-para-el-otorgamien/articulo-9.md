@@ -1,0 +1,1 @@
+Artículo 9º-Del acto de reconocimiento. Salvo lo dispuesto en el artículo 14 de este reglamento, la entrega de las distinciones honoríficas se realizará en una Sesión Extraordinaria del Concejo Municipal. Por votación de al menos las dos terceras partes de las personas regidoras presentes, el Concejo podrá acordar la realización de una sesión solemne para la entrega.

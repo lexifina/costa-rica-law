@@ -1,0 +1,2 @@
+Artículo 20.-De la revocatoria: - existir una denuncia contra una persona u organización distinguida, el Concejo Municipal la remitirá a la Comisión Permanente de Asuntos Culturales para la revisión, el estudio y dictamen sobre la procedencia o no de la revocatoria de la distinción honorífica. El dictamen no tiene carácter vinculante para el Concejo.
+La revocatoria y retiro de cualquiera de las distinciones honoríficas deberá ser aprobada por al menos las dos terceras partes de las personas regidoras presentes.
