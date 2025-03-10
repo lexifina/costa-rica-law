@@ -2,7 +2,8 @@ CAPÍTULO II
 DEFINICIONES
 ARTÍCULO 5- Definiciones
 Para efectos de esta ley se definen los siguientes términos:
-a) Bicicleta: vehículo de dos ruedas de tracción humana o asistida accionada mediante pedales.
+a) Bicicleta: vehículo de dos o más ruedas impulsado por tracción humana o asistida y accionado mediante pedales. En su versión electroasistida la velocidad máxima del mecanismo de asistencia al pedaleo, en superficie plana, no supera los 25 km/h e igualmente debe ser pedaleada para avanzar.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 10651 del 10 de marzo de 2025, "Reforma Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley de Movilidad y Seguridad Ciclística, para la ampliación del concepto de bicicleta")
 b) Carril compartido: vías de bajo volumen vehicular con un máximo de 4000 vehículos motorizados al día y una velocidad máxima de treinta kilómetros por hora (30 km/h). Se diferencia de la vía compartida en el tanto, en el carril compartido, la prioridad es la bicicleta.
 c) Ciclista: persona que conduce una bicicleta o su pasajero.
 d) Ciclovía demarcada: franja debidamente demarcada y señalizada sobre la misma calzada pero de uso exclusivo para bicicletas, únicamente en vías con un volumen máximo de 4000 vehículos por día y una velocidad máxima de cuarenta kilómetros por hora (40 km/h).

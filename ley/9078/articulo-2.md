@@ -11,7 +11,8 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 9. Autopista: vía de acceso restringido de cuatro o más carriles de circulación sea que cuente o no con una isla central divisoria.
 10. Aviso: elemento de interés general, sin fines de publicidad comercial.
 11. Bahía de parada de transporte público: espacio debidamente autorizado como tal y complementario a la estructura de la vía, utilizado como zona de transición entre la calzada y el andén, destinado temporalmente al abordaje y desabordaje de pasajeros, a vehículos de transporte público en ruta regular.
-12. Bicicleta: vehículo de dos ruedas de tracción humana y accionada mediante pedales.
+12. Bicicleta: vehículo de dos o más ruedas impulsado por tracción humana o asistida y accionado mediante pedales. En su versión electroasistida la velocidad máxima del mecanismo de asistencia al pedaleo, en superficie plana, no supera los 25 km/h e igualmente debe ser pedaleada para avanzar.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 10651 del 10 de marzo de 2025, "Reforma Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley de Movilidad y Seguridad Ciclística, para la ampliación del concepto de bicicleta")
 13. Bicimoto: vehículo de dos ruedas con motor térmico de cilindrada no superior a 50 cc o en el caso de vehículos con motores distintos de los de combustión interna, con una potencia hasta de 5 kw, cuyo sistema de dirección es accionada por manillar.
 14. Boleta de citación: fórmula mediante la cual se notifica, física o electrónicamente, a una persona la infracción que se le atribuye y se le emplaza a comparecer ante la autoridad competente.
 15. Buseta: vehículo automotor dedicado al transporte de personas con una capacidad de entre veintiséis y cuarenta y cuatro pasajeros sentados.
@@ -64,7 +65,7 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 60. Letrero: cualquier sustrato, material y/o elemento en que hay inscripciones o figuras que se exhiben con fines de comunicación y de interés común o general.
 61. Licencia de conducir: permiso otorgado por el Estado mediante el que se faculta a una persona a conducir un vehículo durante un período determinado.
 62. Línea: servicio de transporte público que se presta en determinada ruta.
-63. Línea de barrera: línea que divide la calzada en su centro, sea esta una línea continua blanca, línea amarilla o doble línea amarilla, la cual indica que es prohibido circular, adelantar o bien hacer giros en “U” o maniobras hacia la izquierda de esa línea.
+63. Línea de barrera: línea que divide la calzada en su centro, sea esta una línea continua blanca, línea amarilla o doble línea amarilla, la cual indica que es prohibido circular, adelantar o bien hacer giros en "U" o maniobras hacia la izquierda de esa línea.
 64. Línea amarilla: señalamiento horizontal pintado con color amarillo sobre el pavimento, que se usa para separar corrientes de tránsito de sentido contrario, en líneas de borde izquierdo separados por medianeras y en algunas islas canalizadoras. Puede ser una línea fragmentada o continua. Cuando se demarca en el borde del caño, en calles locales, indica la prohibición de estacionamiento en ese tramo de la vía. En caso de ambigüedad en el señalamiento, prevalece lo que indique el señalamiento vertical fijo, de acuerdo con lo señalado por el Acuerdo Centroamericano sobre Señales Viales Uniformes.
 65. Línea blanca: señalamiento horizontal pintado con color blanco sobre el pavimento, que se usa para separar corrientes de tránsito en un mismo sentido, en líneas de borde en carreteras de doble sentido, en líneas de borde derecho en carreteras separadas por medianera y en algunas islas canalizadoras. Puede ser una línea fragmentada o continua, todo ello en consonancia con lo señalado por el Acuerdo Centroamericano sobre Señales Viales Uniformes.
 66. Luces de freno: las que emiten los dispositivos proyectores de luz roja, cuando se oprime el pedal del freno.
@@ -92,7 +93,7 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 88. Permiso temporal de aprendizaje: documento que se expide, en forma temporal, para aprender a conducir vehículos automotores y que queda supeditado al acatamiento de las disposiciones.
 89. Peso bruto: peso total del vehículo que resulta al sumar su peso vacío de acuerdo con las especificaciones de fábrica, más el peso de la carga útil que puede transportar según las mismas especificaciones.
 90. Peso máximo autorizado (PMA): peso máximo autorizado para un vehículo determinado, según su diseño y de conformidad con lo que establezca el reglamento respectivo.
-91. “Pick up”: vehículo carga liviana con motor delantero frontal y que en la parte trasera cuenta con un cajón o batea de metal o de otro material, abierto, usado especialmente para el transporte de carga.
+91. "Pick up": vehículo carga liviana con motor delantero frontal y que en la parte trasera cuenta con un cajón o batea de metal o de otro material, abierto, usado especialmente para el transporte de carga.
 92. Plaqueta de pesos y dimensiones: placa que identifica a los remolques y semiremolques livianos de menos de 750 kilogramos. Tendrá las características y la información que se determine reglamentariamente.
 93. Polarizado tipo espejo: material o sustancia que, visto desde el exterior, provoca el efecto de reflejar la imagen y no permitir la visibilidad hacia el interior del vehículo.
 94. Polarizado tipo limusina: material o sustancia que, visto desde el exterior, presenta una opacidad absoluta y no permite la visibilidad hacia el interior del vehículo.
@@ -122,7 +123,7 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 118. Transporte de carga limitada o taxi carga: servicio de transporte público de carga realizado por medio de vehículos de carga autorizados, al cual le es aplicable una tarifa establecida según la ley.
 119. Transporte público de grúa o taxi grúa: servicio de transporte público de grúa realizado por medio de vehículos grúa, al cual le es aplicable una tarifa establecida según la ley.
 120. Transporte público de personas: servicio de traslado público de pasajeros realizado por medio de autobuses, busetas, microbuses, taxis u otros vehículos autorizados, al cual le es aplicable una tarifa o precio establecida según lo determine el ordenamiento jurídico.
-121. UTV: vehículo utilitario todo terreno tipo “side by side” de cuatro o más ruedas, conocidos como mulas, con sistema de frenado, aceleración y manivela.
+121. UTV: vehículo utilitario todo terreno tipo "side by side" de cuatro o más ruedas, conocidos como mulas, con sistema de frenado, aceleración y manivela.
 122. Vehículo: medio de transporte usado para trasladar personas o bienes por la vía pública.
 123. Vehículo abandonado: vehículo dejado en la vía pública por un período de más de veinticuatro horas.
 124. Vehículo articulado: vehículo compuesto por un cabezal y uno o dos semirremolques que son arrastrados por el primero, unidos mediante una articulación que, además de vincularlos, permite la transmisión de carga.
@@ -142,3 +143,12 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 138. Zona de seguridad: zona de paso regulada por semáforos que, de forma alterna, permite el paso de peatones y vehículos.
 139. Zona de carga y descarga: espacio de una vía pública destinado exclusivamente a la carga y la descarga de mercancías de vehículos de motor, remolques y semirremolques.
 (Así adicionado el inciso anterior por el artículo 2° de la ley N° 9460 del 20 de junio de 2017)
+(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 10834 del 15 de diciembre de 2025, se adicionarán las siguientes definiciones de este numeral. De conformidad con el artículo 2° de la ley antes referida la misma empezará a regir doce meses posteriores a la publicación en el diario oficial La Gaceta, es decir el 20 de diciembre de 2026, por lo que a partir de esa fecha las definiciones se leerán de la siguiente manera:
+Movilidad: acción de trasladarse de un lugar a otro.
+Movilidad activa: uso de cualquier medio de transporte no motorizado para desplazarse de un lugar a otro, adicionales a la movilidad peatonal, tales como patinetas, bicicletas, sillas de ruedas, patines, entre otros.
+Seguridad vial: disciplina que estudia y aplica las acciones y los mecanismos tendientes al buen funcionamiento de la circulación en la vía pública, previniendo los accidentes de tránsito.”)
+(Nota de Sinalevi: Mediante el artículo 1° de la Ley para mejorar la eficacia de la legislación en materia de control de alcohol y drogas en la conducción, N° 10860 del 27 de febrero de 2026, se adicionarán a este numeral dos nuevas definiciones. De conformidad con el Transitorio III de la ley antes mencionada la misma empezará a regir doce meses después de su publicación, es decir el 28 de marzo de 2027, por lo que a partir de esa fecha las nuevas definiciones serán las siguientes:
+47. Drogas ilícitas: cualquier sustancia psicoactiva ilícita, que introducida al organismo, por cualquier vía de administración, actúa y afecta el sistema nervioso, generando alteraciones en los procesos mentales y en las funciones que regulan pensamientos, emociones, comportamientos, conciencia, humor, reflejos, capacidad y tiempos de reacción, procesamiento de información, coordinación perceptivo-motriz y atención, de las que se excluyen aquellas sustancias que se utilicen bajo prescripción médica.
+( ... )
+72. Metabolito psicoactivo: cualquier sustancia o molécula resultante del proceso de metabolización de sustancias psicoactivas en el cuerpo humano que conserve sus efectos psicoactivos como un producto intermedio o final, y que tenga psicoactividad. Para los propósitos de esta ley, se excluyen los metabolitos de sustancias psicoactivas usadas bajo prescripción médica.
+( ... ).”)
