@@ -1,0 +1,16 @@
+COMITÉ CANTONAL DE DEPORTES
+Y RECREACIÓN DE BELÉN
+La suscrita Secretaría del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la Sesión Ordinaria N°.03- 2025, Artículo 5, celebrada el catorce de enero del dos mil veinticinco y ratificada el veintiuno de enero del año dos mil veinticinco, que literalmente dice:
+La Secretaría del Concejo Municipal Ana Patricia Murillo, informa que en La Gaceta 237 del 17 de diciembre de 2024, se publicó el acuerdo tomado en el Artículo 28 del Acta 68-2024, el Reglamento del Sistema para la Adquisición de Bienes y Servicios del Comité Cantonal de Deportes y Recreación de Belén.
+REGLAMENTO DEL SISTEMA PARA LA ADQUISICIÓN DE BIENES Y SERVICIOS DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE BELÉN
+Considerando:
+I.-Que el artículo 170 de la Constitución Política, así como el artículo 4º, 13 inciso c) y 178 del Código Municipal reconocen la autonomía política, administrativa y financiera de las municipalidades y la facultad de dictar un Reglamento que regule la organización y funcionamiento de los Comités Cantonales de Deportes y Recreación y la administración de las instalaciones deportivas municipales al igual de cualquier otro reglamento interno que permita una sana administración de los recursos públicos.
+II.-Que la potestad reglamentaria municipal, la ejerce el Concejo Municipal, al tenor de lo dispuesto en el artículo 13 inciso e) del Código Municipal, Ley N° 7794 del 30 de abril de 1998 y sus reformas, Gaceta N° 94 del 18 de mayo de 1998 y sus reformas al señalar: ".Artículo 13. Son atribuciones del Concejo: (.) c) Dictar los reglamentos de la Corporación, conforme a esta ley.".
+III.-Que el artículo 3, inciso g) de la Ley General de Contratación Pública, y artículo 12 del respectivo reglamento, dispone en lo que interesa: "Artículo 3º-Excepciones/ "Las compras realizadas con fondos de caja chica que sean indispensables e impostergables, siempre y cuando no excedan el diez por ciento (10%) del monto fijado para la licitación reducida, conforme lo disponga el reglamento de esta ley".
+IV.-Que el Reglamento de la Ley General de Contratación Pública, en el numeral 12 dispone en lo conducente:
+".Artículo 12.-Compra con Fondos Caja Chica.
+"Se exceptúan de los procedimientos ordinarios las compras realizadas que sean para gastos menores, indispensables e impostergables, siempre que no excedan el diez por ciento (10%) del monto previsto para la licitación reducida correspondiente al régimen ordinario, para la adquisición de bienes y servicios, regulado en el artículo 36 de la Ley General de Contratación Pública".
+V.-Que, producto de la entrada en vigencia de la Ley General de Contratación Pública, Ley 9986 y su Reglamento Decreto Ejecutivo 43808-H, vigentes desde el primero de diciembre del 2022, se hace necesario la realización de un reglamento con la normativa que rige las compras públicas del Comité Cantonal de Deportes y Recreación de Belén.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º-Objeto. El presente Reglamento tiene por objeto regular el sistema de adquisición de bienes y servicios del Comité Cantonal de Deportes y Recreación de Belén. Así como las competencias de las diversas dependencias con funciones asignadas dentro del sistema.
