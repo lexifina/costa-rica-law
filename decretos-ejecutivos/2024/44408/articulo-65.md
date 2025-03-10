@@ -1,1 +1,2 @@
-Artículo 65.-Los ministerios, entidades descentralizadas y empresas públicas en lo relativo a puestos de confianza subalternos, deberán cumplir con lo dispuesto en el Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público vigente y lo que disponga el MIDEPLAN al respecto.
+Artículo 65.-Para cualquier movimiento de personal, la administración activa es la responsable de garantizar que los funcionarios cumplan con los requisitos académicos, de experiencia y legales que exigen los correspondientes manuales institucionales de clases de puestos y de cargos vigentes.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 63 al artículo 65)

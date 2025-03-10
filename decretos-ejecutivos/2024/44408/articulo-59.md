@@ -1,1 +1,2 @@
-Artículo 59.-Cada plaza contará con un único código o número de puesto y en ésta solo se podrá nombrar a un funcionario, salvo en los casos de suplencia o sustitución en que se podrá nombrar a otro funcionario en el mismo código o número de puesto para esos efectos.
+Artículo 59.-La AP durante el primer trimestre de cada año, comunicará a los ministerios, las entidades públicas y sus órganos desconcentrados, la cantidad de puestos autorizados.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 57 al artículo 59)

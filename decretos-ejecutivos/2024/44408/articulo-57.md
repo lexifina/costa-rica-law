@@ -1,1 +1,2 @@
-Artículo 57.-La AP durante el primer trimestre de cada año, comunicará a los ministerios, las entidades públicas y sus órganos desconcentrados, la cantidad de puestos autorizados.
+Artículo 57.- En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 55 al artículo 57)

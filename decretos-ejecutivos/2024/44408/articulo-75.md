@@ -1,2 +1,2 @@
-Artículo 75.-Para la formulación de los presupuestos rige a partir de su publicación y para su ejecución a partir del 01 de enero y hasta el 31 de diciembre del 2025.
-Dado en la Presidencia de la República, a los 06 días del mes de marzo de dos mil veinticuatro.
+Artículo 75.-La STAP, cuando corresponda, divulgará en la página electrónica del MH, los requisitos o trámites que deben cumplir los ministerios, las entidades públicas y sus órganos desconcentrados, para que sus gestiones o solicitudes sean atendidas.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 73 al artículo 75)

@@ -1,0 +1,2 @@
+Artículo 28 bis.- Los ministerios, las entidades públicas y sus órganos desconcentrados cubiertos por el ámbito de la Autoridad Presupuestaria deberán cumplir con la Ley N.º 10.495 y la reglamentación que se emita, con la salvedad de las excepciones parciales establecidas en los artículos 02, 16 y 18 de dicha normativa.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45036 del 10 de marzo del 2025)

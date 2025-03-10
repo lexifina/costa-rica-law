@@ -1,3 +1,2 @@
-CAPÍTULO V
-Sobre materia salarial
-Artículo 47.- La AP resolverá las modificaciones en la clasificación y/o valoración y actualizaciones salariales de los puestos considerados en el artículo 37 de la Ley N.° 10159.
+Artículo 47.- Las revaloraciones salariales que disponga el Poder Ejecutivo, podrán ser aplicadas a los puestos excluidos del Régimen de Servicio Civil, una vez que se hagan extensivos por parte de la AP.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45036 del 10 de marzo del 2025)

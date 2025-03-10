@@ -26,6 +26,7 @@ articulo-25.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
+articulo-28-bis.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
@@ -73,3 +74,5 @@ articulo-72.md
 articulo-73.md
 articulo-74.md
 articulo-75.md
+articulo-76.md
+articulo-77.md

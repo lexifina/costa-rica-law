@@ -14,3 +14,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-04-01 | la propia norma |
+| 2 | 2025-03-10 | Decreto Ejecutivo 45036 (2025-03-10) |

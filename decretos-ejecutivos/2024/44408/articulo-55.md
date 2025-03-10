@@ -1,1 +1,4 @@
-Artículo 55.- En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.
+CAPÍTULO VI
+Sobre empleo
+Artículo 55.- Las plazas por servicios especiales no se podrán convertir a plazas por cargos fijos.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 53 al artículo 55)

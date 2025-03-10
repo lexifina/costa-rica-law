@@ -1,1 +1,2 @@
-Artículo 64.-La AP autorizará los traslados horizontales de plazas, ocupadas o vacantes, entre los ministerios, instituciones y empresas públicas cubiertas por su ámbito.
+Artículo 64.- No se permitirán las reasignaciones de puestos ocupados en propiedad y vacantes, para los ministerios, las entidades públicas y sus órganos desconcentrados; con excepción de aquellas reasignaciones que sean descendentes o bien aquellas reasignaciones que mantengan el mismo nivel salarial.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45036 del 10 de marzo del 2025 que lo traspasó del antiguo artículo 62 al artículo 64)
