@@ -1,0 +1,1 @@
+Artículo 22.-Se recomienda que el pliego de condiciones para la compra de los uniformes sea en modalidad abierta o por demanda, para compras fuera de periodo, siempre manteniendo las mismas calidades de uniformes que se definieron en la contratación.

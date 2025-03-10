@@ -1,0 +1,1 @@
+Artículo 16.-Cualquier uniforme o pieza adicional que desee confeccionar un funcionario, deberá ser comprado por el funcionario, cubriendo la totalidad del costo y no será permitido variar los materiales ni las características del uniforme, además, antes de su compra y uso por parte del funcionario, deberá contar con el visto bueno por parte de Gestión Talento Humano.

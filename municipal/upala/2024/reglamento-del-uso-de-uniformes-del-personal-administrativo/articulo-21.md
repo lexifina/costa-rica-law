@@ -1,0 +1,1 @@
+Artículo 21.-Los servidores municipales que cuenten con nombramiento por Sueldos fijos, o servicios especiales con periodos mayores a 3 meses de forma continua se le suplirá uniforme según criterio de la jefatura.

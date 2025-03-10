@@ -1,0 +1,1 @@
+Artículo 2º-El alcalde o alcaldesa nombrará a los 7 integrantes para la Comisión de Uniformes, en las primeras 2 semanas del mes de octubre de cada año, conformado por cada área de Gestión de Talento Humano, Gestión Administrativa, Gestión Socioeducativo, Gestión Vial, Gestión de Desarrollo Territorial, Gestión Tributaria y Gestión Financiera.

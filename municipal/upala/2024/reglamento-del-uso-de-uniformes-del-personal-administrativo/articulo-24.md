@@ -1,0 +1,1 @@
+Artículo 24.-Si un funcionario sufre el robo o hurto de cualquiera de las partes del uniforme, deberá reportarlo a su jefatura correspondiente y aportar como evidencia la denuncia ante el Organismo de la Investigación Judicial, en un plazo máximo de 5 días hábiles.

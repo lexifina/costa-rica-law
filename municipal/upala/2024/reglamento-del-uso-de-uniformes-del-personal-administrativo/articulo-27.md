@@ -1,0 +1,1 @@
+Artículo 27.-Será responsabilidad de los jefes o encargados el cumplimiento de este reglamento, notificando a Talento Humano, quien coordinará con la alcaldía la sanción a imponer a los servidores Municipales.

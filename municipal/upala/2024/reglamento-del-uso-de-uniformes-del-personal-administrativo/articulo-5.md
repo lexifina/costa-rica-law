@@ -1,0 +1,1 @@
+Artículo 5º-El Subproceso de Adquisición de bienes y servicios será el responsable de entregar los uniformes a los coordinadores y jefaturas bajo registro de requisición de insumos. Posterior a ello las jefaturas entregaran a Talento Humano la boleta de compromiso de entrega de equipo de protección personal y uniforme para su debido resguardo en el expediente.

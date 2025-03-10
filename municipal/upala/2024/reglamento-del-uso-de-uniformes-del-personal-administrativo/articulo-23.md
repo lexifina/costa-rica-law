@@ -1,0 +1,1 @@
+Artículo 23.-La fiscalización sobre el uso adecuado y correcto del uniforme, según las disposiciones de este Reglamento, corresponde a los jefes de cada departamento, quienes notificarán al Departamento de Talento Humano en un plazo no mayor a 3 día hábiles, en caso de incurrir en alguna de las faltas descritas en el Capítulo N° 2, Faltas y Sanciones.

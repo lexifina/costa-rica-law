@@ -1,0 +1,1 @@
+Artículo 25.-En caso de que, por cualquier circunstancia un funcionario deje de laborar para la institución, el jefe superior inmediato deberá solicitarle la devolución de los uniformes que estén en su poder, a excepción de los servidores municipales que se acojan a su pensión podrán conservar una camisa o blusa del uniforme y hacer entrega de los demás.

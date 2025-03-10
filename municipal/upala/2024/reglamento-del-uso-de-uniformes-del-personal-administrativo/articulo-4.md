@@ -1,0 +1,1 @@
+Artículo 4º-Gestión Administrativa será el encargado de realizar la solicitud en la plataforma de compras públicas, o el mecanismo que se determine por la administración en su momento, para solicitar la compra de los uniformes, con la información técnica que la Comisión de Uniformes y la oficina de Salud Ocupacional o profesional que cuente con dicha expertis le entregue.

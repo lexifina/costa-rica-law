@@ -1,0 +1,1 @@
+Artículo 9º-El uniforme que utilizarán los servidores operativos es catalogado como equipo de protección personal, ya que deberán de contar con protección anti-rayos UV, la oficina de Salud Ocupacional o profesional que cuente con dicha expertis, asesorará a la Comisión para el cumplimiento de estas especificaciones técnicas.

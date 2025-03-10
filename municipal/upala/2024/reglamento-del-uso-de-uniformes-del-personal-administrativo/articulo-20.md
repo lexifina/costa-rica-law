@@ -1,0 +1,1 @@
+Artículo 20.-El cuidado y buen uso del uniforme es responsabilidad absoluta del funcionario, lo que significa que si por descuido u otra causa imputable al mismo, el uniforme se deteriora antes del tiempo establecido por garantía del uniforme entregado, la reparación o sustitución de este corre en su totalidad por parte del funcionario.

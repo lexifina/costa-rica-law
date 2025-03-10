@@ -1,0 +1,1 @@
+Artículo 26.-Todo funcionario tendrá 3 días hábiles para justificar el incumplimiento en el uso del uniforme, y le corresponderá a la respectiva jefatura, resolver en un plazo máximo de 3 días hábiles dicha justificación.

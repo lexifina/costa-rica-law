@@ -1,0 +1,1 @@
+Artículo 15.-En caso de que un funcionario deba realizar una gira fuera de su lugar de trabajo o participar dentro de un acto solemne, deberá usar el uniforme respectivo, a excepción que por el tipo de gira o acto se recomiende otro tipo de vestimenta lo cual coordinará la autorización con la jefatura respectiva.

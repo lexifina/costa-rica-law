@@ -1,0 +1,1 @@
+Artículo 13.-De lunes a jueves el personal administrativo utilizará el uniforme descrito en el Art. N° 7 del presente reglamento, los viernes se permitirá únicamente el uniforme con camiseta tipo polo.
