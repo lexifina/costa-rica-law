@@ -20,6 +20,8 @@ Artículo 1º-Para efectos de la aplicación de las Directrices Generales de Pol
 Administración activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluye a los jerarcas, como última instancia.
 Cambio de nomenclatura: Variación en la clasificación de puestos de confianza subalternos, definidos por la Autoridad Presupuestaria, manteniéndose dentro de la misma condición y naturaleza o de puestos de servicios especiales de proyectos de inversión.
 (Así reformado la definición anterior por el artículo 1° del decreto ejecutivo N° 44536 del 4 de junio de 2024)
+Cargo: Nomenclatura interna con el que se conoce a cada uno de los puestos de la organización.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
 Clase: Grupo de puestos suficientemente similares con respecto a deberes, responsabilidades y autoridad, de manera que pueda utilizarse el mismo título descriptivo para designar cada puesto comprendido en esta y que exijan los mismos requisitos (académicos, experiencia, capacidad, conocimientos, eficiencia, habilidad y otros).
 Concesión de préstamos: Erogaciones destinadas a la actividad crediticia mediante las cuales se entrega a un prestatario una suma de dinero, bienes u otro medio convenido, para su utilización durante un determinado plazo, con la condición de devolverla al final del mismo y con el reconocimiento de una tasa de interés pactada, concedidos a entes públicos, sector privado y sector externo.
 Concesión neta de préstamos: Es el saldo neto resultante de la concesión de préstamos menos la recuperación de estos.
@@ -50,7 +52,8 @@ Jerarca supremo: Órgano superior o máxima autoridad que dirige la entidad púb
 Jornales: Remuneraciones al personal no profesional que la institución contrata para que efectúe trabajos primordialmente de carácter manual, cuya retribución se establece por hora, día o a destajo.
 Manual de cargos: Conjunto de descripciones y especificaciones de los cargos propios de una entidad pública, ministerio u órgano.
 Manual institucional de clases de puestos: Conjunto de clases de puestos específicos de la entidad pública, ministerio u órgano, que ordena los procesos de trabajo en que participan los diferentes puestos de la organización.
-Ministerio: Organización integrada por una pluralidad de dependencias, bajo la dirección político-administrativa de los ministros. Incluye a los órganos desconcentrados sin personalidad jurídica instrumental.
+Ministerio: Organización integrada por una pluralidad de dependencias, bajo la dirección político-administrativa de los ministros. Incluye a sus órganos desconcentrados.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
 Ministro rector: Ministro que se encarga de dirigir, coordinar y velar por el acatamiento de las estrategias y políticas públicas de cada uno de los sectores, en que se integran y clasifican las entidades públicas, ministerios y órganos, según su competencia.
 Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados, que tiene por objeto disminuir o aumentar los diferentes conceptos de estos o incorporar otros que no habían sido considerados, sin que se altere el monto global del presupuesto aprobado.
 Nivel de empleo: Cantidad de plazas autorizadas por la AP, incorporadas en los presupuestos de las entidades públicas, ministerios u órganos.
@@ -76,6 +79,8 @@ Puesto ocupado interinamente: Aquel que de conformidad con la normativa o regula
 Reasignación de puestos: Cambio en la clasificación de un puesto de cargos fijos que conlleva a una asignación salarial mayor, menor o igual, con motivo de haber experimentado una variación sustancial y permanente en sus tareas y niveles de responsabilidad.
 (Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44536 del 4 de junio de 2024)
 Reestructuración organizacional: Proceso político, administrativo y técnico, dirigido al fortalecimiento de la gestión pública, que podría conllevar la modificación de unidades administrativas en cuanto a su gestión, normativa, tecnología, infraestructura, recursos humanos y estructura de una entidad pública, ministerio u órgano desconcentrado del sector público.
+Relación de puestos: Documento técnico legal que refleja la agrupación de todos los puestos ocupados y vacantes según clasificación, unidades administrativas y la asignación presupuestaria mensual y anual, correspondiente a los salarios base y pluses salariales legalmente establecidos.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
 Revaloración por ajuste técnico: Modificación salarial específica de una clase o grupo de estas, basada en razones técnico-jurídicas distintas a la de costo de vida.
 Revaloración salarial: Modificación del salario de las clases de puestos por concepto de incrementos decretados por el Poder Ejecutivo.
 Sector público: Conjunto de instituciones que realizan función de gobierno, son propiedad del gobierno o están bajo su control. Se divide en dos sectores mutuamente excluyentes: el Sector Público no Financiero y el Sector Público Financiero.
@@ -86,7 +91,8 @@ Se divide en dos subsectores Gobierno General y Empresas Públicas no Financiera
 Superávit libre: Exceso de ingresos ejecutados sobre los gastos reales efectuados al final de un ejercicio presupuestario, que son de libre disponibilidad en cuanto al tipo de partida o subpartida que pueden financiar
 Superávit específico: Es aquel excedente que por disposición normativa u operativa se encuentra comprometido para un fin específico y que puede ser utilizado en períodos subsiguientes. Dichos recursos no podrán utilizarse para establecer el superávit del período subsiguiente, ni pueden ser gravados de ninguna forma.
 Ubicación por reestructuración: Ubicar a los ocupantes de los puestos en la nueva clasificación, originada por la variación del Manual de Clases Anchas o en los manuales de la institución (de clases y de cargos), siempre que ocurran variaciones fundamentales en estos instrumentos. Tiene los mismos efectos de una reasignación.
-Vacante: Puesto en el que no existe persona nombrada para el desempeñando de sus deberes y responsabilidades, sea interina o en propiedad.
-Valoración: Valoración: Proceso mediante el cual se asignan las remuneraciones a las clases de puestos, tomando en consideración el estudio de los factores de clasificación, los índices de costo de vida, encuestas de salarios. Y otros elementos de conformidad con lo regulado en la Ley N° 10159 y su reglamento.
-(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 44536 del 4 de junio de 2024)
+Vacante: Puesto en el que no existe persona nombrada para el desempeño de sus deberes y responsabilidades, sea interina o en propiedad.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
+Valoración: Proceso mediante el cual se asignan las remuneraciones a las clases de puestos, tomando en consideración el estudio de los factores de clasificación, los índices de costo de vida, encuestas de salarios. Y otros elementos de conformidad con lo regulado en la Ley N° 10159 y su reglamento.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 42259 del 11 de marzo del 2020)

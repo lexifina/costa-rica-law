@@ -1,2 +1,1 @@
-Artículo 13.-Este Decreto se encuentra disponible en la página electrónica del Ministerio de Hacienda.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 44536 del 4 de junio de 2024)
+Artículo 13.-(Derogado por el artículo 2° del decreto ejecutivo N° 45008 del 10 de marzo de 2025)
