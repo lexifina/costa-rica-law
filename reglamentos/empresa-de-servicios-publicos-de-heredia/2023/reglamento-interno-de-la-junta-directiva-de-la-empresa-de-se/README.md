@@ -14,3 +14,4 @@ Reglamento interno de la junta directiva de la Empresa de Servicios Públicos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-13 | la propia norma |
+| 2 | 2025-03-11 | Reglamento 4358 (2025-03-11) |
