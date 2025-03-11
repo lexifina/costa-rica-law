@@ -1,1 +1,6 @@
-Artículo 6º—Sobre la recepción de las ofertas: Se recibirán las ofertas, en el Departamento de Recurso Humanos, solamente de aquellos interesados que demuestren poseer los requisitos establecidos para el puesto en concurso. La solicitud deberá acompañarse de las fotocopias relativas a la documentación que da sustento al contenido de la oferta. Las mismas deben ser presentadas en forma personal y bajo ninguna circunstancia se recibirán mediante fax, correo, ni correo electrónico. Ni se recibirán ofertas condicionadas. El oferente deberá aportar lugar o medio en donde recibir notificaciones.
+Artículo 6. Requisitos del puesto: Los requisitos mínimos del puesto de Auditor Interno son los definidos por la Contraloría General de la República, en la Resolución R-DC-83-2018, publicada en La Gaceta N° 146 del 13 de agosto del 2018, y sus reformas, así como en el Manual Descriptivo de Puestos del Gobierno Local de Santa Ana, a saber:
+a. Licenciatura en Contaduría Pública o carrera afín.
+b. Incorporado al colegio profesional respectivo.
+c. Experiencia mínima de cinco años en el ejercicio de la Auditoría Interna o externa en el sector público.
+d. Experiencia mínima tres años en puestos de jefatura en Auditoría Interna o externa en el sector público o, en su defecto en el sector privado.
+(Así reformado mediante sesión ordinaria N° 45 del 11 de marzo del 2025)

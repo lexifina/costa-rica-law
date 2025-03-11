@@ -14,3 +14,4 @@ Reglamento para la Realización del Concurso Público para Reclutamiento, Selecc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-15 | la propia norma |
+| 2 | 2025-03-11 | Reglamento municipal 45 (2025-03-11) |
