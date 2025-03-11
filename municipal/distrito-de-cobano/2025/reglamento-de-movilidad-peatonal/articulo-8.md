@@ -1,0 +1,1 @@
+Artículo 8: El Concejo Municipal del Distrito de Cóbano se encuentra facultado para colocar, en las aceras, cualquier dispositivo de seguridad que pueda garantizar la seguridad de las personas ciudadanas y proteger la infraestructura pública conforme al artículo 11 de la Ley de Movilidad Peatonal N°9976.

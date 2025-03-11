@@ -1,0 +1,4 @@
+Capítulo 5: Planificación
+Artículo 19:
+Caso 1 con plan quinquenal: La planificación, diseño, construcción y mantenimiento de las aceras se realizará de acuerdo con las labores propuestas en el Plan quinquenal del Concejo Municipal de Distrito de Cóbano, este plan debe actualizarse cada 5 años según la actualización del plan quinquenal. La municipalidad deberá nombrar una comisión entre las unidades competentes en el tema para su ejecución
+Caso 2 sin plan quinquenal: La planificación, diseño, construcción y mantenimiento de las aceras se realizará de acuerdo con las labores propuestas en el Plan de Movilidad Sostenible del Concejo Municipal de Distrito de Cóbano, este plan debe actualizarse cada 5 años. El Concejo Municipal del Distrito de Cóbano deberá nombrar una comisión entre las unidades competentes en el tema para su ejecución.

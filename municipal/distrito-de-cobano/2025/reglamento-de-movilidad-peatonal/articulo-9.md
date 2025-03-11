@@ -1,0 +1,1 @@
+Artículo 9: El Concejo Municipal del Distrito de Cóbano se encuentra facultado para realizar las labores de construcción de obra nueva de acera de forma directa, con el fin de garantizar la accesibilidad y la seguridad de todas las personas, posterior a la debida notificación al propietario. Conforme al artículo 83 bis del Código Municipal.

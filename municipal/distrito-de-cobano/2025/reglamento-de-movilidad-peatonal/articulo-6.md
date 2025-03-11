@@ -1,0 +1,3 @@
+Artículo 6: Deberes de las personas propietarias o poseedoras
+Son deberes de los propietarios o poseedores de los inmuebles ubicados en el distrito de Cóbano, velar por el cuidado y resguardo de la infraestructura pública de las aceras.
+Por motivo de efectuar alteraciones o reparaciones de construcciones que afecten la seguridad de los peatones, el propietario o poseedor debe solicitar al El Concejo Municipal del Distrito de Cóbano el permiso para el cierre temporal de aceras y establecer una ruta alterna que complete el espacio caminable y accesible como alternativa segura durante toda la intervención.

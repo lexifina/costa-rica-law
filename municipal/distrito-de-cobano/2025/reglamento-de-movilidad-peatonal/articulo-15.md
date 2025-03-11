@@ -1,0 +1,2 @@
+Artículo 15: participación en la etapa de construcción de obras
+Se podrán realizar mejoras en las aceras mediante la modalidad participativa de obras, bajo el marco de un convenio entre la corporación municipal y asociaciones de desarrollo local, sin ser necesarios traslados horizontales de fondos; en caso de que la zona con necesidad de intervención se encuentre fuera del casco urbano o zona priorizada.

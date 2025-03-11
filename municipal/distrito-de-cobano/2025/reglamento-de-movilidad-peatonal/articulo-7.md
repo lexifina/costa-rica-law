@@ -1,0 +1,1 @@
+Artículo 7: El Concejo Municipal del Distrito de Cóbano ejecutará las obras de reparación o sustitución de manera directa, de forma tal que el servicio no se vea afectado, conforme el artículo 16 de la Ley de Movilidad Peatonal N°9976.

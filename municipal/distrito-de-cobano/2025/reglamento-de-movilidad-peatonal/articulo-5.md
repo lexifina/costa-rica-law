@@ -1,0 +1,4 @@
+Artículo 5: prioridad de atención para el mantenimiento, rehabilitación y construcción de aceras Caso 1 sin plan quinquenal: El Concejo Municipal del Distrito de Cóbano deberá diseñar, aprobar y ejecutar el plan de movilidad sostenible del Distrito.
+Mientras se diseña o actualiza el instrumento de planificación de movilidad sostenible, la comisión realizará la priorización con base en la tabla de la norma INTE W85 y el artículo 9 de la Ley de Movilidad.
+Caso 2 con plan quinquenal: El Concejo Municipal del Distrito de Cóbano deberá diseñar, aprobar y ejecutar el plan de movilidad sostenible del Distrito incorporándose al plan quinquenal.
+Mientras se diseña o actualiza el instrumento de planificación de movilidad sostenible, la comisión realizará la priorización con base en la tabla de la norma INTE W85 y el artículo 9 de la Ley de Movilidad.

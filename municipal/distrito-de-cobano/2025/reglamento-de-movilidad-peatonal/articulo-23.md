@@ -1,0 +1,3 @@
+Artículo 23: Materiales y texturas en las aceras
+a) Las aceras deben garantizar que son superficies antideslizantes, las cuales deben ser probadas en condiciones de humedad máxima. En caso de presentar riesgo por no ser antideslizante debe realizar las mejoras para que la superficie sea porosa y por tanto antideslizante. Esto aplica únicamente para aceras construidas en buen estado, entiéndase superficies sin filos, huecos, grietas, con pendiente transversal y longitudinal no superiores a lo solicitado en la ley 7600 y este reglamento.
+b) La infraestructura peatonal deberá ajustarse a lo establecido en Ley de igualdad de Oportunidades para las personas con discapacidad Nº 7600.
