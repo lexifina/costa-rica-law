@@ -2112,3 +2112,12 @@ CF' | Costos fijos mensuales del conjunto de rutas y/o ramales.
 CFr | Costos fijos mensuales de la ruta "r".
 CIASr | Costo mensual de infraestructura de apoyo al servicio en la ruta "r".
 cki | Coeficiente de ajuste por reconocimiento de kilometraje
+|
+|
+|
+(Nota de Sinalevi; Mediante resolución N° RE RE-0016-IT-2025 del 11 de marzo de 2025, “Determinación de los valores promedio del autobús nuevo modelo 2024 para el servicio de transporte público remunerado, modalidad autobús”, se acordó fijar los valores promedio del autobús nuevo para cada uno de los tipos de autobús con reglas de cálculo tipo 2 con año de fabricación 2024, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús, según lo establecido en esta norma, de la siguiente manera:
+Tipo de autobús | Valor promedio
+Interurbano Largo (TIL) | ₡179 610 798
+Urbano No Plano/Montano (TUP) | ₡77 020 488
+Interurbano Corto/Medio No Plano (TIP) | ₡95 768 064
+")
