@@ -1,0 +1,2 @@
+Artículo 113. Derogatoria
+Este Reglamento deroga el Reglamento anterior de la Auditoría Interna del Instituto Nacional de las Mujeres, así como, cualquier norma de igual o inferior rango que se le oponga.

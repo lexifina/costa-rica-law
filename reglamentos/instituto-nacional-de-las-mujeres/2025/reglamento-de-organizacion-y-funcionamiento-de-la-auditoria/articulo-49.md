@@ -1,0 +1,2 @@
+Artículo 49. Evaluaciones externas
+La persona Auditora Interna podrá gestionar la realización de evaluaciones externas, tales como revisiones de aseguramiento de calidad, conforme a los lineamientos o normativa emitida por la Contraloría General de la República, a los recursos disponibles, por un revisor o equipo de revisión calificado e independiente, provenientes de fuera de la organización, que pueden en dado caso ser personas funcionarias de otras auditorías internas del sector público.

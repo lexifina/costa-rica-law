@@ -1,0 +1,2 @@
+Artículo 97. Implementación de recomendaciones por aceptación tácita de informes
+En caso de que una persona titular subordinada a la cual la Auditoría Interna le envió copia del informe no reciba por escrito las medidas alternativas propuestas por la persona destinataria del informe en el plazo estipulado, deberá entender las recomendaciones contenidas en el informe de la Auditoría Interna como aceptadas, y procederá de forma inmediata a la implementación de las recomendaciones que le fueron remitidas.

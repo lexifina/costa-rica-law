@@ -1,0 +1,2 @@
+Artículo 66. Informes de Seguimientos de implementación de acciones
+Son informes en que se le indica a la Administración Activa, el estado de implementación de las acciones, disposiciones u observaciones realizadas, tanto por la Auditoría Interna, la Auditoría Externa, las disposiciones emitidas por la Contraloría General de la República, así como, de otras instancias con competencia y que la Administración Activa debe darle énfasis al cumplimiento o implementación de estas.

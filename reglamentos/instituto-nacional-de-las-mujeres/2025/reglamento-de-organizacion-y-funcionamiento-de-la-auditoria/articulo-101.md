@@ -1,0 +1,2 @@
+Artículo 101. Cronograma de implementación
+En el plazo definido por la Ley de Control Interno en los artículos 35 y 36, la persona o personas destinatarias del oficio o informe conteniendo recomendaciones u observaciones deberá remitir a la Auditoría Interna el cronograma propuesto para la implementación de las recomendaciones, en caso de que no se remita en el plazo señalado se entenderá que las acciones serán desarrolladas de forma inmediata.

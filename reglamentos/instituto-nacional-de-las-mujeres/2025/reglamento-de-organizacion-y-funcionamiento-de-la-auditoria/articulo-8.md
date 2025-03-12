@@ -1,0 +1,2 @@
+Artículo 8. Declaración de Independencia
+A fin de asegurar la independencia, antes de iniciar un estudio la persona funcionaria de Auditoría responsable deberá realizar una declaración (escrito) de que no es responsable de las operaciones a evaluar, ni en el caso de algún familiar, para lo cual es importante observar lo indicado por el Reglamento del Colegio de Contadores Públicos en cuanto a la relación por parentesco consanguineidad o afinidad, de tal forma que la independencia y objetividad no se vean comprometidos.

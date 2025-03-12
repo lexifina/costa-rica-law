@@ -1,0 +1,2 @@
+Artículo 86. Comunicación de Informe de Control Interno cuando también hay Investigación Preliminar
+Cuando se trata de un estudio que origina tanto un informe de control interno como una investigación preliminar, a criterio de la persona Auditora Interna puede no darse la conferencia final en virtud de esta situación, principalmente si la investigación preliminar señala como posibles responsables a niveles jerárquicos altos que podrían entorpecer la discusión del Informe de Control Interno.
