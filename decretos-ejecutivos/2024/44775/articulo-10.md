@@ -1,0 +1,1 @@
+Artículo 10.-Del Control Interno de la COPROCOM. La COPROCOM estará sujeta a la fiscalización de la Contraloría General de la República y de la auditoría interna del Ministerio de Economía, Industria y Comercio (MEIC), según las competencias establecidas en la normativa vigente.

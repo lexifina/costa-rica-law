@@ -1,0 +1,1 @@
+Artículo 3°-A la COPROCOM no le corresponderá conocer de los actos de competencia desleal estipulados en el artículo 17 de la Ley N° 7472, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, de fecha 20 de diciembre de 1994 y su reglamento. Estos casos serán del conocimiento exclusivo de los órganos jurisdiccionales competentes.

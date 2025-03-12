@@ -1,0 +1,1 @@
+Artículo 2°-La COPROCOM tendrá las funciones señaladas en el artículo 3 de la Ley de Fortalecimiento de las Autoridades de Competencia de Costa Rica, Ley N° 9736, así como las dispuestas en el reglamento a esa ley.
