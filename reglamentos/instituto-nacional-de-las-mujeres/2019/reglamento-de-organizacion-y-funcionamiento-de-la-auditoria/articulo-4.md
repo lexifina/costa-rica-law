@@ -1,4 +1,0 @@
-Artículo 4. Ámbito de competencia.
-La Auditoría Interna cumplirá con su función de protección de los fondos públicos sujetos al ámbito de competencia del INAMU, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar, o sobre fondos y actividades privadas de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto que éstos se originen en transferencias efectuadas por aspectos dentro de la competencia del INAMU.
-La función de Auditoría Interna se debe ejercer directamente en la Institución, de lo contrario debe existir un pronunciamiento de la Contraloría General de la República que lo avale.
-Para estos efectos los sujetos cubiertos por el ámbito de competencia deberán brindar las mismas facilidades a la Auditoría Interna que se indican en este Reglamento para la Administración Activa del INAMU.

@@ -1,3 +1,0 @@
-Artículo 55. Informe anual de desempeño a la Junta Directiva
-La persona Auditora Interna deberá informar, al menos, anualmente, a la Junta Directiva sobre la actividad desplegada por la Auditoría Interna en lo referido a propósito y desempeño del Plan de Trabajo. El informe anual de desempeño de la Auditoría Interna deberá ser presentado a más tardar en el mes de enero del año siguiente.
-El informe anual de desempeño debe contener asuntos relevantes sobre la efectividad de los procesos institucionales de valoración del riesgo, control y dirección, así como promover las mejores pertinentes, además de asuntos relevantes sobre la dirección, exposición al riesgo y control, así como otros temas de importancia.

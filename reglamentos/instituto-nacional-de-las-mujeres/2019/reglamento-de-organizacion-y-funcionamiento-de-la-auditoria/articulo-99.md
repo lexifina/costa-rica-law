@@ -1,3 +1,0 @@
-Artículo 99. Obligación de implantar las recomendaciones y observaciones
-La Junta Directiva o la persona titular subordinada, una vez aceptados los resultados (recomendaciones y observaciones de la Auditoría Interna), vencido el plazo o aceptadas las medidas alternativas por la Auditoría Interna, deberá girar por escrito, dentro de los plazos establecidos en los artículos 36 y 37 de la Ley de Control Interno, la orden para su implementación
-al responsable designado, con copia a la Auditoría Interna. Dicha instrucción deberá remitirse dentro del plazo establecido en los artículos citados.

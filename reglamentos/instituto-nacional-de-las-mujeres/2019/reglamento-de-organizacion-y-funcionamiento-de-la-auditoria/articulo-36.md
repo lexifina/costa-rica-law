@@ -1,3 +1,0 @@
-Capítulo 7. Ámbito de competencia, Relaciones y coordinaciones
-Artículo 36. Coordinaciones internas y externas
-La persona Auditora Interna deberá coordinar a lo interno de la institución la realización de los servicios de la actividad de la Auditoría Interna, así como, a solicitud de la Contraloría General de la República y los auditores externos, compartir información y coordinar actividades y con los órganos judiciales, para minimizar la duplicación de esfuerzos, todo ello sin perjuicio de lo establecido en los artículos 6 de la Ley de Control Interno y el artículo 8 de la Ley contra la Corrupción y el Enriquecimiento Ilícito.

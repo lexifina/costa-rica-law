@@ -1,2 +1,0 @@
-Artículo 54. Administración de los recursos
-La persona Auditora Interna deberá asegurarse de que los recursos de la Auditoría Interna sean adecuados, suficientes y efectivamente asignados para cumplir con su plan de trabajo. Si hay limitaciones, deberá informar de esa situación a la Junta Directiva para su oportuna atención. La persona Auditora Interna ejecutará los recursos de la Auditoría Interna de manera independiente de la Administración Activa.

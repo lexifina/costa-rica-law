@@ -1,2 +1,0 @@
-Artículo 50. Informe sobre las evaluaciones realizadas
-Los resultados de las evaluaciones internas y externas deberán constar en un informe y la persona Auditora Interna deberá preparar un plan de mejora si así lo requieren los resultados, mismo que debe ajustarse a los recursos con que cuenta la Auditoría Interna. y deberá comunicarlo a la Presidencia Ejecutiva y a la Unidad de Planificación. La persona Auditora Interna será responsable de dar un seguimiento adecuado al plan de mejora.

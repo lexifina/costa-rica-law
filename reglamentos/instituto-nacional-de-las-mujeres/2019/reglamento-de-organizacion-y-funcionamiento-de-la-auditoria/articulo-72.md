@@ -1,2 +1,0 @@
-Artículo 72. Advertencia o asesoría sobre la marcha
-Si durante la realización de un trabajo de auditoría a posteriori surgen oportunidades de realizar una advertencia o asesoría, la persona funcionaria deberá comunicarlo a la persona Auditora Interna, o persona encargada, a fin de que este valore si a su juicio las circunstancias lo demandan. Se deberá dar instrucción a las personas funcionarias de la Auditoría Interna para que estén alertas ante este tipo de situaciones y de que lo comuniquen de manera adecuada.

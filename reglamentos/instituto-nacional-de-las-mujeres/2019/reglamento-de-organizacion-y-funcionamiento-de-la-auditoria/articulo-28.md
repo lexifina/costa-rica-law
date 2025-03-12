@@ -1,2 +1,0 @@
-Artículo 28. Registro presupuestario separado
-El responsable o la responsable del control del presupuesto institucional deberá mantener un registro separado del monto asignado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controle la ejecución y las modificaciones de los recursos presupuestarios. Para la ejecución o movimientos presupuestarios deberá contarse con la anuencia o visto bueno de la persona Auditora Interna.

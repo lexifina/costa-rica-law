@@ -1,3 +1,0 @@
-Artículo 59. Requisitos para la apertura o legalización de libros
-La Administración Activa solamente puede tener dos libros abiertos al mismo tiempo, esto ya que un órgano no puede quedarse sin un libro abierto mientras se hace el cierre.
-En caso de libros de actas en hojas sueltas, la dependencia solicitante deberá presentar cada una de las hojas con el membrete institucional, la identificación clara del libro de que se trata, esto con el fin de que cada folio sea fácilmente identificable en caso de extravío. Cada una de las hojas deberá estar foliada con un número único, en caso de tener libros del mismo tipo, la numeración debe continuar con la del libro anterior, esto con el fin de que no se puedan confundir los folios de dos libros.

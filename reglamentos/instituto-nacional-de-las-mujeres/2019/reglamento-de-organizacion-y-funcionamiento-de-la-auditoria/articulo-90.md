@@ -1,2 +1,0 @@
-Artículo 90. Comunicación del Informe de investigación preliminar a los eventuales responsables
-En caso de que la persona Auditora Interna así lo considere podrá comunicar a las personas eventuales responsables indicados en la investigación preliminar los resultados, con la finalidad de obtener más información. Esta comunicación no es obligatoria dado que la Auditoría Interna no debe guardar el debido proceso.

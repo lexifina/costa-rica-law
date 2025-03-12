@@ -1,2 +1,0 @@
-Artículo 40. Ampliación del plazo
-Cuando un área o departamento, persona funcionaria no pueda suministrar la información o los documentos solicitados dentro del plazo establecido, deberá comunicarlo así a la Auditoría Interna dentro de los tres días hábiles siguientes al recibido de la solicitud. En casos debidamente justificados, la Auditoría Interna podrá prorrogar el plazo originalmente establecido para el suministro de la información requerida.

@@ -1,2 +1,0 @@
-Artículo 108. Informes sobre seguimiento de acciones sobre resultados
-La persona Auditora Interna deberá informar, por lo menos, una vez al año, a la Junta Directiva sobre el estado de las recomendaciones de la Auditoría Interna, así como de los Auditores Externos, las disposiciones de la Contraloría General de la República y otras Instituciones competentes cuando sean de conocimiento y competencia de la Auditoría Interna. El informe contendrá una evaluación del grado general de cumplimiento por parte de la Administración Activa.

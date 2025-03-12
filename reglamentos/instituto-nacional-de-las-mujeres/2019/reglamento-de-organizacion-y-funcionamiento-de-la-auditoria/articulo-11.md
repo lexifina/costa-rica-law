@@ -1,4 +1,0 @@
-Artículo 11. Organización Interna
-La Auditoría Interna es una dependencia funcional; se organizará y funcionará según el presente Reglamento y conforme lo disponga la persona Auditora Interna, todo de conformidad con las disposiciones que emita la Contraloría General de la República.
-Corresponde a la persona Auditora Interna proponer la estructura organizativa y funcional de la Auditoría Interna.
-Esta Estructura debe ser debidamente documentada y aprobada por la Junta Directiva, todo de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, deberá ser concordante con los objetivos, el crecimiento y los riesgos del Instituto Nacional de las Mujeres, a efecto de garantizar entre otros, una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.

@@ -1,2 +1,0 @@
-Artículo 24. Responsable de la asignación de recursos
-La Junta Directiva deberá asignar, de acuerdo con las posibilidades institucionales, a la Auditoría Interna los recursos necesarios para la atención de la estrategia de fiscalización razonable, la cual deberá ser presentada por la persona Auditora Interna de acuerdo con el artículo anterior. Será también obligación de la Junta Directiva disponer lo necesario ante las autoridades competentes, para que se gestionen esos recursos en forma oportuna y adecuada

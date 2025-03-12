@@ -1,4 +1,0 @@
-Artículo 104. Registro del control de avance de implantación de acciones
-Corresponderá a la persona titular subordinada correspondiente, llevar el registro para controlar el avance la implementación de las acciones que le corresponde implementar y el cumplimiento del plazo establecido. Además, rendirá cuentas a la Junta Directiva respecto del seguimiento si por orden de ésta se están implementando y ese mismo control lo llevará para aquellas que haya ordenado.
-Debido a que se trata del control de implementación de acciones, este registro deberá incorporar las recomendaciones, las asesorías, advertencias, observaciones y otros que en cumplimiento de sus funciones realice la Auditoría Interna.
-La Junta Directiva deberá llevar el control de las acciones que le correspondan, para lo cual podrá realizarlo dentro del seguimiento de acuerdos respectivo, siempre que la información sea suficiente.
