@@ -1,2 +1,4 @@
-ARTÍCULO 5.- Profesionales del Colegio
-El Colegio estará formado por profesionales en Criminología graduados en universidades, así como en colegios paraunivesitarios.
+Artículo 5- Profesionales del Colegio. El Colegio estará formado por profesionales en criminología graduados en universidades, así como en colegios parauniversitarios.
+Para efectos de esta ley se entenderán como profesionales en criminología todas las carreras atinentes al estudio criminal, integrando las siguientes disciplinas: criminología, ciencias criminológicas, criminalistica, ciencias policiales, investigación criminal y administración policial y prevención del delito.
+El Colegio podrá incorporar a otros profesionales de ciencias atinentes al fenómeno criminal, previa realización de un estudio técnico que contemple la justificación y evaluación de las casas de estudio correspondientes. Esta incorporación será posible siempre y cuando no se encuentre regulado por otro colegio profesional, y deberá contar con la aprobación de la Asamblea General.
+(Así reformado por el artículo 1° de la ley N° 10644 del 24 de febrero del 2025)
