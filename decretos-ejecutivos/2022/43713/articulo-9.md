@@ -1,2 +1,2 @@
-Artículo 9. Vigencia. Rige a partir de su publicación.
+Artículo 9. Vigencia. (Derogado por el artículo 9° de los Lineamientos para la definición de territorios y población objetivo para el desarrollo de vivienda individual y proyectos habitacionales financiados con recursos del Sistema Financiero Nacional para la Vivienda, aprobado mediante decreto ejecutivo N° 45094 del 12 de marzo del 2025)
 Dado en la Ciudad de Cartago, el día catorce del mes de setiembre del dos mil veintidós.

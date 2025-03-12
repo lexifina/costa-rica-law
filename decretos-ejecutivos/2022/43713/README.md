@@ -14,3 +14,4 @@ Lineamientos para la definición de territorios y población objetivo para el de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-11-04 | la propia norma |
+| 2 | 2025-03-12 | Decreto Ejecutivo 45094 (2025-03-12) |
