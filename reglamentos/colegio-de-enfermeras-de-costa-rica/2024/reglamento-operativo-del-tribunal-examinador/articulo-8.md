@@ -1,0 +1,2 @@
+Artículo 8º-Sobre los contenidos. El examen teórico evaluará los contenidos académicos que deben conocer los (as) postulantes a auxiliares de enfermería, para ejecutar las tareas definidas en el artículo 20, inciso a) de Reglamento del Estatuto de Servicios de Enfermería, Decreto Ejecutivo N° 18190-S.
+Definición de los contenidos. El Tribunal Examinador definirá los contenidos del examen teórico, los cuales deben ser publicados anualmente a más tardar el mes de febrero de cada año.

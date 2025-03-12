@@ -1,0 +1,2 @@
+Artículo 15.-Sobre los contenidos. El examen práctico evaluará los procedimientos técnicos que deben conocer los (as) postulantes a auxiliares de enfermería, para ejecutar las tareas definidas en el artículo 20, inciso a) de Reglamento del Estatuto de Servicios de Enfermería, Decreto Ejecutivo N° 18190-S.
+Definición de los procedimientos técnicos. El Tribunal Examinador definirá los procedimientos técnicos a evaluar del examen práctico, los cuales deben ser publicados anualmente a más tardar el mes de febrero de cada año.

@@ -1,0 +1,1 @@
+Artículo 21.-Resolución final. La Junta Directiva conocerá el acuerdo del Tribunal Examinador donde se indica la recomendación de otorgamiento de la licencia de auxiliar de enfermería y tomará el acuerdo respectivo. Contra este acuerdo cabrá la fase recursiva que establece la Ley General de Administración Pública.
