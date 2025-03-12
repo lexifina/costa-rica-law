@@ -1,0 +1,1 @@
+Artículo 10. Derogatoria. Deróguese el Decreto Ejecutivo No. 19276-S del 09 de noviembre de 1989 "Reglamento General del Sistema Nacional de Salud" publicado en La Gaceta No. 230 del 05 de diciembre de 1989.

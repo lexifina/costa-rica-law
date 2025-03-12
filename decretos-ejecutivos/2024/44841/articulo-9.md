@@ -1,0 +1,1 @@
+Artículo 9. Conducción y dirección del SNS. El Ministerio de Salud es el responsable de dirigir y conducir el desarrollo de estas actividades, tiene la potestad y la obligación de convocar y articular a los demás integrantes del Sistema que por su ámbito de competencias deban participar en cada actividad particular.
