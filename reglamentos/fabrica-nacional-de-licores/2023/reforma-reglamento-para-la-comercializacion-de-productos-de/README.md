@@ -14,3 +14,4 @@ Reforma Reglamento para la comercialización de productos de Fanal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-28 | la propia norma |
+| 2 | 2025-03-13 | Reglamento 3174 (2025-03-13) |
