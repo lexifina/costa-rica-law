@@ -1,4 +1,5 @@
 Artículo 79. Son funciones del Área de Gestión Administrativa:
-1. Dirigir, coordinar, administrar y supervisar las áreas de recepción, conserjería, seguridad y vigilancia, transportes, construcción y mantenimiento, gestión ambiental y salud ocupacional, con base en los lineamientos emitidos por la Dirección General de
-Administración Universitaria.
+1. Dirigir, coordinar, administrar y supervisar las áreas de recepción, conserjería, seguridad y vigilancia, transportes, construcción y mantenimiento, gestión ambiental y salud ocupacional, con base en los lineamientos emitidos por la Dirección General de Administración Universitaria.
 2. Apoyar la gestión de los procesos financieros, adquisición de bienes y almacenamiento, recursos humanos y administración de bienes e inventarios, de registro y otros procesos administrativos, de conformidad con lo dispuesto por las Direcciones Universitarias respectivas, y en concordancia con el inciso anterior.
+3. La Sede Central es responsable de la dirección, administración y supervisión de los procesos de seguridad, salud ocupacional, mantenimiento y jardinería, transportes y conserjería para la Administración Universitaria.
+(Reformado mediante el Acuerdo 19 tomado por el Consejo Universitario en la Sesión Ordinaria No. 6-2025, celebrada el jueves 13 de marzo de 2025, a las ocho horas con treinta minutos, según el Artículo 25 del Capítulo X, Publicado en el diario oficial La Gaceta No.64 del jueves tres de abril del dos mil veinticinco, sección Reglamentos)

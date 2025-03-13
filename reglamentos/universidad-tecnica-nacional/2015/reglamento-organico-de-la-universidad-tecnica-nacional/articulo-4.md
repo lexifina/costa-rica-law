@@ -2,13 +2,15 @@ Artículo 4. Para dar cumplimiento a sus fines, la Universidad Técnica Nacional
 1. Desarrollar programas académicos de docencia, investigación y extensión en todos los campos.
 2. Preparar profesionales e investigadores de nivel superior en el ámbito científico y tecnológico que demanda el país.
 3. Otorgar grados, títulos y títulos honoríficos.
-4. Reconocer y equiparar estudios, títulos y grados universitarios otorgados por las universidades extranjeras, cuando se refieran a carreras afines a las que ofrece.
+4. Reconocer y equiparar estudios, títulos y grados universitarios otorgados Página | 6 por las universidades extranjeras, cuando se refieran a carreras afines a las que ofrece.
 5. Reconocer estudios de instituciones y programas de educación superior, de conformidad con los requisitos vigentes en la Universidad, para efectos de continuar estudios en esta Institución.
-6. Propiciar el mejor aprovechamiento de los recursos educativos del país, mediante la suscripción de convenios de cooperación con instituciones y empresas públicas o privadas, nacionales o Página | 6 extranjeras, para el desarrollo de programas conjuntos de docencia, investigación o extensión.
+6. Propiciar el mejor aprovechamiento de los recursos educativos del país, mediante la suscripción de convenios de cooperación con instituciones y empresas públicas o privadas, nacionales o extranjeras, para el desarrollo de programas conjuntos de docencia, investigación o extensión.
 7. Modernizar y revisar, en forma sistemática, el contenido de los currículos
 y planes de estudio de las carreras que ofrece en todos los niveles y modalidades de enseñanza, para garantizar su pertinencia y adaptación a las necesidades del desarrollo nacional.
 8. Impulsar acciones formativas, integrales o específicas, dirigidas al desarrollo de habilidades y competencias empresariales.
 9. Fomentar la transferencia de resultados de investigaciones científicas y tecnológicas, nacionales o extranjeras, al sistema productivo, a la sociedad nacional o a la comunidad local, y promover el emprendimiento a partir de la investigación y el desarrollo de procesos de innovación y modernización técnica.
-10. Ofrecer la venta de bienes y servicios a la comunidad en el campo de actividades relacionadas con las carreras que brinda la Universidad, directamente o mediante sociedades que podrá formar con instituciones y organismos públicos de desarrollo, tanto nacionales como extranjeros, así como participar en otras sociedades comerciales en las cuales debe tener participación mayoritaria en el capital social.
+10. Ofrecer la venta de bienes y servicios a la comunidad en el campo de actividades relacionadas con las carreras que brinda la Universidad,
+directamente o mediante sociedades que podrá formar con
+instituciones y organismos públicos de desarrollo, tanto nacionales como extranjeros, así como participar en otras sociedades comerciales en las cuales debe tener participación mayoritaria en el capital social.
 11. Consultar en forma permanente a los sectores productivos la pertinencia de las carreras y programas que se ofrecen.
 12. La Universidad Técnica Nacional podrá coordinar y articular sus programas de docencia, investigación y extensión con otras Instituciones de educación superior, públicas, privadas, nacionales y extranjeras y también con los programas de educación técnica del Ministerio de Educación Pública y con el Instituto Nacional de Aprendizaje, de conformidad con el Reglamento correspondiente y los convenios que se suscriban.

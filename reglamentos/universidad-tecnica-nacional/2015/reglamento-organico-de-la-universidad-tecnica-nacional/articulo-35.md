@@ -11,7 +11,7 @@ Además de las funciones generales establecidas en el artículo 33 le correspond
 9. Dirigir, coordinar, supervisar y evaluar la oferta académica de los cursos: Actividad Cultural y Actividad Deportiva de los planes de estudio de la universidad.
 10. Supervisar y evaluar los diversos planes de estudio de la Universidad, con el propósito de coordinarlos y adaptarlos a las necesidades de la sociedad.
 11. Orientar el quehacer de las unidades de la docencia.
-12. Facilitar el trabajo docente para el mejoramiento académico continuo mediante el análisis, investigación y desarrollo de prácticas pedagógicas innovadoras.
+12. Facilitar el trabajo docente para el mejoramiento académico continuo mediante el análisis, investigación y desarrollo de Página | 20 prácticas pedagógicas innovadoras.
 13. Avalar las propuestas relativas a: cupos, apertura de nuevas carreras, diseño, rediseño, suspensión, cierre y evaluación de carreras y planes de estudio así como la oferta académica.
 14. Atender la actividad interdisciplinaria en el campo académico.
 15. Dirigir política y estratégicamente sus Programas y Centros adscritos.

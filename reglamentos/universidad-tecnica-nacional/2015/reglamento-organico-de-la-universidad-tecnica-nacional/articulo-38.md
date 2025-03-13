@@ -4,4 +4,5 @@ Artículo. 38. Son funciones del Centro de Formación Pedagógica y Tecnología 
 3. Gestionar la utilización de diversos medios de comunicación educativa mediante el Sistema de Radio y Televisión de la UTN.
 4. Dirigir, orientar, coordinar, promover, supervisar y evaluar, y
 cuando corresponda desarrollar directamente, la producción de los recursos didácticos centradas en el aprendizaje y necesarios para los diversos programas académicos de la universidad.
-(Reformado mediante Acuerdo 15-24-2020, tomado por el Consejo Universitario en la Sesión Ordinaria No. 24-2020, celebrada el jueves 15 de octubre de 2020, a las nueve horas, según el Artículo 19 y publicado en el Diario Oficial la Gaceta No. 267 del 6 de noviembre del 2020)
+(Reformado mediante Acuerdo 15-24-2020, tomado por el Consejo Universitario en la Sesión
+Ordinaria No. 24-2020, celebrada el jueves 15 de octubre de 2020, a las nueve horas, según el Artículo 19 y publicado en el Diario Oficial la Gaceta No. 267 del 6 de noviembre del 2020)

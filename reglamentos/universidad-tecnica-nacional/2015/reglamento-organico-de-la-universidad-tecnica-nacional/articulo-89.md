@@ -1,1 +1,1 @@
-Artículo 89. Cabrá un sólo recurso de apelación, ante el superior inmediato de quien dictó la resolución recurrida. El recurso deberá ser resuelto por quien corresponda en el plazo establecido en la Ley
+Artículo 89. Cabrá un sólo recurso de apelación, ante el superior inmediato de quien dictó la resolución recurrida. El recurso deberá ser resuelto por quien corresponda en el plazo establecido en la Ley.

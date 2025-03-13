@@ -1,6 +1,6 @@
 Artículo 3. Son fines de la Universidad Técnica Nacional:
 1. Crear, conservar, transformar y transmitir el conocimiento en el marco de un esfuerzo sostenido, orientado al mejoramiento integral de la sociedad costarricense, al fortalecimiento de su eficiencia, su equidad, su sostenibilidad y su democracia.
-2. Ofrecer, a sus estudiantes una educación integral que fomente su óptima Página | 5 formación profesional y técnica, así como su desarrollo personal, ético y cultural.
+2. Ofrecer, a sus estudiantes una educación integral que fomente su óptima formación profesional y técnica, así como su desarrollo personal, ético y cultural.
 3. Promover la investigación científica y científico-tecnológica de alto nivel académico, para contribuir al mejoramiento de la vida social, cultural, política y económica del país.
 4. Coadyuvar en los procesos de desarrollo, modernización y
 mejoramiento técnico de los sectores productivos.
