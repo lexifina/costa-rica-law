@@ -14,3 +14,4 @@ Procedimiento para la promoción del Premio Acumulado Doble y de Premios Extras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-29 | la propia norma |
+| 2 | 2025-03-13 | Reglamento 16 (2025-03-13) |

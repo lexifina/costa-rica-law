@@ -1,5 +1,7 @@
-Artículo 2°- Definiciones
-Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Artículo 2°- Definiciones. Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Combinación Ganadora: Corresponde a la combinación conformada por serie y número que resulta ganadora de un premio acumulado o de un premio extra en los sorteos ordinarios y extraordinarios de Lotería Nacional y Lotería Popular.
+En caso de Sorteos de Lotería Nacional Extraordinarios en modalidad de Alfanuméricos, la combinación ganadora del premio acumulado o de un premio extra estará conformada por letra, serie y número.
+(Así adicionada la definición anterior mediante sesión N° 16-2025 del 13 de marzo de 2025)
 Junta: Junta de Protección Social.
 Premio Acumulado: Consiste en dinero en efectivo que como premio acumulado se sorteará en cada sorteo de Lotería Nacional y Lotería Popular. Ese premio iniciará con un monto inicial de ¢100.000.000,00 (cien millones de colones con cero céntimos) y que acumula un montode ¢25.000.000,00 (veinticinco millones de colones con cero céntimos) por cada sorteo de Lotería Popular y Lotería Nacional en que este premio no sea acertado.
 La Junta Directiva se reserva la facultad de aprobar aumentos extraordinarios al monto del Premio Acumulado.

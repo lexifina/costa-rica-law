@@ -11,4 +11,5 @@ Cantidad | Premios | Total
 10 | 5.000.000,00 | 50.000.000,00
 59 | | ¢169.500.000,00
 En total, las 59 bolitas suman un monto de ¢169.500.000.000 (ciento sesenta y nueve millones quinientos mil colones con cero céntimos) en premios extra.
-El total del Premio Acumulado o de los premios extras, cuando sean acertados, se repartirán entre todas las fracciones de la combinación serie y número de las emisiones correspondientes de cada sorteo.
+El total del Premio Acumulado o de los premios extras, cuando sean acertados, se repartirán entre todas las fracciones que correspondan a las combinaciones de éstos, de conformidad con lo estipulado en el artículo 2 de este procedimiento.
+(Así reformado el párrafo anterior mediante sesión N° 16-2025 del 13 de marzo de 2025)
