@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. Para la elaboración de los planes de ajustes a los sistemas de información y/o establecer los mecanismos y herramientas dispuestas en el numeral 9.2. y 10.1 se otorga un plazo de 18 meses a partir de la entrada en vigor de esta normativa

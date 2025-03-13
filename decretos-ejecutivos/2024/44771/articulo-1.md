@@ -1,0 +1,17 @@
+No. 44771-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) y 103 inciso 1) de la Ley No. 6227 del 02 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 3, 7 y 9 de la Ley N° 5395 de 30 de octubre de 1973, "Ley General de Salud"; 2 inciso c) de la Ley N° 5412 de 8 de noviembre de 1973, "Ley Orgánica del Ministerio de Salud".
+CONSIDERANDO:
+1.- Que es función del Estado velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos.
+2.- Que la Ley General de Salud en los artículos 50 y 71 dispone que las personas físicas o jurídicas públicas o privadas que requieran brindar servicios de salud y afines, deberán obtener el permiso del Ministerio de Salud, previo a su instalación y operación; para lo cual deben garantizar que reúnen o cumplen los requisitos legales generales y particulares establecidos.
+3.- Que el Ministerio de Salud, por sus competencias constitucionales, legales y por su función de rectoría, de velar por la salud de la población, está en la obligación de tomar las providencias necesarias para salvaguardar a los habitantes, por lo cual establece normas que garantizan estándares óptimos, con el fin de cumplir con la misión que le corresponde.
+4.- Que el cáncer de mama es una de las principales causas de muerte en mujeres en nuestro país, condición que afecta emocional y económicamente la vida de las mujeres que lo padecen y las que mueren por esta causa, además de ser un problema de salud pública en virtud del aumento del número de casos, lo que origina costos económicos a las instituciones de salud para su diagnóstico y tratamiento.
+5.- Que, por lo anterior, se considera necesario y oportuno oficializar la "NORMA NACIONAL PARA LA ATENCIÓN INTEGRAL DEL CÁNCER DE MAMA EN COSTA RICA" para así definir los lineamientos de salud pública que deben cumplir los servicios de salud en el territorio nacional, para garantizar el acceso, la calidad, la igualdad, la equidad, y con esto promover la implementación de programas de detención oportuna y efectiva en el manejo integral del cáncer de mama.
+6.- Que en concordancia con lo establecido el artículo 361 de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública" el presente Decreto Ejecutivo cumplió con el trámite de consulta pública, la misma se realizó en la página web del Ministerio de Salud, en fecha 07 al 18 de octubre del 2024, siendo que fueron atendidas todas las observaciones emitidas por los administrados.
+7.- Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado.
+POR TANTO,
+DECRETAN:
+OFICIALIZACIÓN DE LA "NORMA NACIONAL PARA LA ATENCIÓN
+INTEGRAL DEL CÁNCER DE MAMA EN COSTA RICA"
+Artículo 1.- Oficialícese para efectos de aplicación obligatoria en los servicios de atención médica públicos, privados y mixtos, la "Norma nacional para la atención integral del cáncer de mama en Costa Rica".

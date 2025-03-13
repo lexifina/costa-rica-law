@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo No. 43263-S del 30 de septiembre de 2021 "Oficialización y declaratoria de interés público y nacional de la Norma nacional para la prevención y el manejo del cáncer de mama en Costa Rica".
