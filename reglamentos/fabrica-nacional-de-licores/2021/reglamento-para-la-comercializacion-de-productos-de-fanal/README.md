@@ -15,3 +15,4 @@ Reglamento para la comercialización de productos de Fanal
 | --- | --- | --- |
 | 1 | 2022-06-21 | la propia norma |
 | 2 | 2023-02-16 | Reglamento 3122 (2023-02-16) |
+| 3 | 2025-03-13 | Reglamento 3174 (2025-03-13) |
