@@ -1,0 +1,1 @@
+Transitorio único. - Las solicitudes presentadas de previo a la entrada en vigencia de la presente reforma, continuarán su trámite en la forma definida por el reglamento vigente al momento de su presentación.

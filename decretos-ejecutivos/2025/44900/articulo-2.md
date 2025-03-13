@@ -1,0 +1,3 @@
+Artículo 2- Modifíquese el artículo 3 del Decreto Ejecutivo No. 38831-C del 16 de diciembre de 2014, denominado Reglamento para el trámite de declaratorias de interés cultural del Ministerio de Cultura y Juventud, para que en lo sucesivo se lea de la siguiente forma:
+"Artículo 3.- Unidad Técnica
+La Dirección de Gestión Sociocultural del MCJ, se encargará de coordinar técnica y administrativamente el trámite de las Declaratorias de Interés Cultural. Para esto, se cuenta con una persona encargada de revisar técnicamente las solicitudes, informes e insumos requeridos a las potenciales personas, organizaciones o instituciones beneficiarias, para determinar el fundamento de la declaratoria. "

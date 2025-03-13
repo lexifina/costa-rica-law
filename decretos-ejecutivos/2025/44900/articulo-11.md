@@ -1,0 +1,3 @@
+Artículo 11- Modifíquese el artículo 13 del Decreto Ejecutivo No. 38831-C del 16 de diciembre de 2014, denominado el Reglamento para el trámite de declaratorias de interés cultural del Ministerio de Cultura y Juventud, para que en lo sucesivo se lea de la siguiente forma:
+"Artículo 13.- Revocación. En caso de que, en las actividades, proyectos o productos declarados de interés cultural, se compruebe que se ha incurrido o propiciado las conductas descritas en los incisos del b) al i) del artículo 4 del presente reglamento, el Poder Ejecutivo revocará de inmediato la declaratoria.
+Con la presentación de su proyecto, el solicitante acepta la posibilidad de revocación de la declaratoria en los términos descritos en el presente artículo. "
