@@ -1,0 +1,1 @@
+Artículo 44. Ninguna persona colaboradora debe iniciar la gestión de los procesos sin antes comprender cómo funciona la organización, qué se espera de ellos y dispongan del conocimiento necesario para desempeñarse adecuadamente en su puesto.

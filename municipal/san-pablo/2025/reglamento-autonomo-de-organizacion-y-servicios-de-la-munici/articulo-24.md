@@ -1,0 +1,1 @@
+Artículo 24. Los principios éticos del servicio público tienen como función el crear valor público, inspirando la confianza de las personas ciudadanas para fortalecer la credibilidad en el gobierno, sus gestores, e instituciones, con el objetivo de facilitar a los gobernantes el cumplimiento de los diversos fines estatales en beneficio de la comunidad.

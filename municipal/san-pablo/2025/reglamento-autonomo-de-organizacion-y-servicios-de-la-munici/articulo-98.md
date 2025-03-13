@@ -1,0 +1,1 @@
+Artículo 98. Por otra parte, la Municipalidad realizará las acciones necesarias para cumplir con la normativa técnica derivada de la aplicación de la Ley 7600 de Igualdad de Oportunidades para las Personas con Discapacidad.

@@ -1,0 +1,3 @@
+Artículo 135. Para aplicar cualquier sanción disciplinaria de llamada de atención escrita, previamente deberá concederse audiencia a la persona trabajadora en cumplimiento del debido proceso.
+1. En los demás casos como la suspensión sin goce de salario y el despido, deberá abrirse un procedimiento administrativo disciplinario de conformidad con el Libro 2º de la Ley General de la Administración Pública, para lo cual la persona alcalde nombrará o designará el Órgano Director que corresponda, sea unipersonal o colegiado.
+2. El expediente que se levante al efecto servirá de base para la resolución final del órgano decisor, y se conservará en los archivos de la Dirección de Recursos Humanos.

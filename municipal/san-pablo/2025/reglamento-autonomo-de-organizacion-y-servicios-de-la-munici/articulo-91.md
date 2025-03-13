@@ -1,0 +1,1 @@
+Artículo 91. La Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud (Ley 9028) de Costa Rica también se aplica al uso de productos de vapeo. Aunque la ley se centra en el tabaco, incluye disposiciones que abarcan el uso y la regulación de productos relacionados con el tabaco, como los dispositivos de vapeo.

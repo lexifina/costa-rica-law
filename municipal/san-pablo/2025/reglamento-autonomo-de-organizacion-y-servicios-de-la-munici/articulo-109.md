@@ -1,0 +1,1 @@
+Artículo 109. Cuando la persona trabajadora desempeñe labores técnicas o profesionales que dificulten su reemplazo, podrá la Municipalidad acumularle las vacaciones por un periodo. Es obligación de todo (a) responsable de dependencias de la Municipalidad, el no permitir que se acumulen dos o más periodos de vacaciones.

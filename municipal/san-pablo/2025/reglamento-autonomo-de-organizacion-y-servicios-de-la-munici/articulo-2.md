@@ -1,0 +1,2 @@
+Artículo 2. El presente Reglamento servirá para regular las relaciones de empleo de la Municipalidad de Pablo de Heredia. en adelante denominada la MUNICIPALIDAD, y sus servidores, con ocasión o por consecuencia del trabajo, de conformidad con lo dispuesto en el ordenamiento jurídico administrativo- laboral.
+Con el fin de evitar el exceso de acumulación gráfica, en el reglamento al utilizar la palabra funcionario, servidor o similar terminología, se estará haciendo referencia tanto a hombres como mujeres, sin discriminación de género.

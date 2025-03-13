@@ -1,0 +1,2 @@
+Artículo 119. Excepto que las personas trabajadoras permanezcan en el centro de labores, bajo las órdenes del patrono, no se considerará tiempo efectivo de trabajo aquél durante el cual se suspendan las labores por motivos de fuerza mayor o caso fortuito, siempre que dicha suspensión no exceda de un día.
+1. La Municipalidad, podrá convenir con las personas trabajadoras en reponer las horas perdidas, con el propósito de completar la jornada ordinaria semanal, siempre y cuando tal prestación de servicios se lleve a cabo dentro de la misma semana en que ocurrió el hecho.

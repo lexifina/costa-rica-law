@@ -1,0 +1,1 @@
+Artículo 62. Todo programa de capacitación, en que organismos o instituciones públicas o privados, diferentes a la Municipalidad de San Pablo de Heredia, ofrezcan becas o bien la Municipalidad las otorgue, se canalizará a través de la Dirección de Recursos Humanos.

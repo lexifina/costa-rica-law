@@ -1,0 +1,18 @@
+Capítulo XXVIII DE LAS LICENCIAS CON Y SIN GOCE DE SALARIO
+Artículo 111. Siendo un derecho de la persona trabajadora de la Municipalidad, podrá solicitar licencia ocasional o de excepción en los siguientes casos:
+1. Las licencias por regla general serán sin goce de sueldo, no obstante, tratándose de casos especiales contemplados en el Código Municipal, podrán concederse con el disfrute de la retribución correspondiente.
+2. Situaciones familiares de la persona trabajadora:
+a) Del nacimiento de un hijo o hija, la persona trabajadora gozará de 3 días libres.
+b) De la Licencia de Maternidad: La trabajadora embarazada tiene derecho a una licencia remunerada de maternidad que comprende un mes antes del parto y tres meses después del mismo. Este período de tres meses también se considera como el mínimo de lactancia.
+c) Licencia de Paternidad y Maternidad: Los padres que tengan un hijo biológico o a través de un proceso de adopción podrán gozar de un permiso de paternidad y maternidad, con goce de salario por un mes calendario, posterior al día del nacimiento o, en los procesos de adopción se iniciará el día inmediato siguiente a la fecha en que sea entregada con fines de adopción la persona menor de edad o, en su defecto, a partir de la firmeza de la sentencia que aprueba la adopción y se ordene su entrega efectiva.
+Para gozar de la licencia, la persona o personas adoptantes deberán presentar una certificación de la resolución administrativa o judicial o sentencia en firme que permita la entrega e inicio de la convivencia efectiva de la persona menor de edad con fines de adopción o adopción definitiva.
+d) Por muerte de cónyuge, el compañero, los hijos, los entenados, los padres (naturales o adoptivos), los hermanos consanguíneos: cinco días hábiles, contados a partir del día del fallecimiento, previa constancia extendida por autoridad competente.
+e) Se podrá otorgar un permiso remunerado, hasta en un tercio de la jornada, durante un período máximo de un año, para que la persona servidora pública pueda cuidar a un familiar por consanguinidad o afinidad hasta el segundo grado, con discapacidad o por razones de enfermedad terminal o accidente.
+f) Se podrá otorgar un permiso no remunerado, hasta en un tercio de la jornada laboral, durante un período máximo de un año calendario, para que la persona servidora pública pueda cuidar a un familiar por consanguinidad o afinidad hasta el segundo grado, con discapacidad en situación de dependencia funcional o por razones de enfermedad terminal o accidente grave.
+g) Por matrimonio civil o católico de la persona trabajadora, la Municipalidad le dará 5 días hábiles continuos.
+h) Por citas judiciales y médicas, el tiempo que sea necesario, justificando posteriormente mediante comprobante de la autoridad correspondiente.
+3. La Municipalidad otorgará el tiempo necesario a todos aquellos funcionarios que tengan que tramitar su licencia de conducir; esto con la presentación del comprobante respectivo.
+4. La persona que ostente el cargo de alcalde podrá otorgar licencias que no excedan de tres meses, para que las personas funcionarias acojan las invitaciones de gobiernos o de organismos internacionales, para viajes de representación o participación en seminarios, congresos o actividades similares.
+5. Actividades Sindicales:
+a) La Municipalidad dará permiso con goce de salario a todos los afiliados al sindicato para que asistan a las asambleas y reuniones que efectué el sindicato.
+b) Para reuniones ordinarias de la junta directiva del sindicato, la Municipalidad concederá a todos los miembros directivos, permiso de 2 horas hábiles por quincena

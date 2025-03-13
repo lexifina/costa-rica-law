@@ -1,0 +1,1 @@
+Artículo 92. De conformidad con lo dictado anteriormente, se sancionará a todas las personas trabajadoras sin excepción, que contravengan el fumado o vapeado dentro de las oficinas, pasillos, servicios sanitarios y otros sitios no autorizados para tales efectos.

@@ -1,0 +1,6 @@
+Artículo 56. Del cese del empleo público como consecuencia de la evaluación del desempeño
+1. Será causal de despido inmediato aplicable a toda persona servidora municipal, obtener dos evaluaciones del desempeño consecutivas inferiores a una calificación del 70%, que se encuentren en firme, una vez agotado el procedimiento de impugnación de la calificación.
+2. Dicha calificación deberá ser debidamente justificada por la jefatura inmediata que la asigne y por la autoridad jerárquica que la confirme, en caso de haber sido recurrida.
+3. Las entidades y órganos incluidos deberán aplicar planes remediales que les permitan determinar las causas por las que las personas servidoras públicas obtienen una calificación inferior al 70% y aplicar acciones para mejorar su desempeño.
+4. Si pese a la aplicación del plan remedial, la persona servidora pública no logra mejorar su desempeño y obtiene de forma consecutiva otra calificación inferior al 70%, se configurará la causal de despido inmediato.
+5. Todo despido justificado se entenderá sin responsabilidad para la Administración Pública y hará perder a la persona servidora pública todos los derechos que esta ley y la normativa aplicable en cada familia de puestos le concede, excepto las proporciones de los extremos laborales que correspondan y los adquiridos conforme a los regímenes de pensiones vigentes

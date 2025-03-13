@@ -1,0 +1,1 @@
+Artículo 96. El procedimiento para la referencia de fumadores y usuarios de vapeadores al Instituto sobre Alcoholismo y Farmacodependencia (IAFA) en Costa Rica se basa en el programa "Dejar de Fumar y Vapear", diseñado para ofrecer apoyo a las personas que desean cesar su consumo de tabaco y productos de vapeo. A continuación, se describen los pasos generales del proceso:

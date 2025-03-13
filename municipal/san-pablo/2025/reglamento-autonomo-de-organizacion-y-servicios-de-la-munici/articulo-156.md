@@ -1,0 +1,1 @@
+Artículo 156. El presente reglamento entrará en vigencia una vez publicado en el diario oficial La Gaceta, previa aprobación del Concejo Municipal. Se procederá a reproducir y entregar un ejemplar a las personas servidoras municipales.

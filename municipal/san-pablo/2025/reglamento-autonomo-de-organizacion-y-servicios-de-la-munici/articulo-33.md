@@ -1,0 +1,1 @@
+Artículo 33. Las personas servidoras municipales encargados de los sistemas de cómputo de la Municipalidad podrán realizar revisiones del equipo al azar y con previo aviso, para verificar su correcto uso, ello con la debida justificación técnica y con visto bueno del Director Administrativo.

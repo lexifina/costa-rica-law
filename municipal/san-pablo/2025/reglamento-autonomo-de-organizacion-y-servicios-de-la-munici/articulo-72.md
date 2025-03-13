@@ -1,0 +1,1 @@
+Artículo 72. La Dirección de Recursos Humanos analizará si la actividad propuesta responde a la programación establecida, y si la persona trabajadora seleccionada reúne los requisitos que este departamento establezca para la aceptación de su participación.

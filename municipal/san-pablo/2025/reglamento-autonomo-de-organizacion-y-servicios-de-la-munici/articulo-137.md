@@ -1,0 +1,2 @@
+Artículo 137. Tanto la amonestación verbal como la escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como la jefatura inmediata de la persona trabajadora, previo cumplimiento del debido proceso.
+1. Las sanciones de suspensión sin goce de salario o despido, por inasistencia al trabajo corresponderá aplicarlas a la persona alcalde, previo informe del órgano director del procedimiento administrativo.

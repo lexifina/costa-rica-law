@@ -1,0 +1,1 @@
+Artículo 21. La Dirección de Recursos Humanos es el órgano responsable de atraer, retener y desarrollar el talento humano necesario para ejecutar los procesos y brindar los servicios con la calidad exigida por la comunidad ciudadana, según los estándares que derivan de la estrategia, principios y valores institucionales.

@@ -1,0 +1,9 @@
+Artículo 11. Se espera que las personas coordinadoras y todas aquellas personas servidoras municipales que tengan bajo su responsabilidad actividades de proceso, actúen como líderes públicos eficaces, capaces de dirigir a sus equipos, inspirar a su fuerza de trabajo y establecer una cultura organizativa que promueva la innovación al tiempo que refuerce los valores del sector público, como altos estándares de integridad y ética. Además, al dar un ejemplo personal, los líderes son un componente fundamental a la hora de establecer y reforzar una cultura de integridad en la organización.
+1. Esto implica una administración pública gestionada en función del mérito, lo cual reduce las oportunidades de patronazgo y nepotismo, y proporciona las bases necesarias para desarrollar una cultura de integridad. En términos prácticos, esto es:
+a) Hay criterios adecuados y predeterminados de cualificación y rendimiento para todos los cargos.
+b) Hay procesos de gestión de personal objetivos y transparentes en función de los cuales se evalúa a los candidatos.
+c) Hay procesos de reclutamiento abiertos que garantizan la oportunidad de evaluación de todos los candidatos potencialmente cualificados.
+d) Hay mecanismos de supervisión y recurso que garantizan la implementación justa y coherente del sistema.
+e) Se promueve la diversidad de la fuerza de trabajo en un entorno inclusivo, lo cual influye en la mejora de la formulación de políticas y la innovación en la prestación de servicios.
+f) La capacitación se orienta hacia dotan a las personas trabajadoras municipales de los conocimientos, habilidades y actitudes necesarias para gestionar adecuadamente los asuntos de integridad y buscar asesoramiento especializado cuando resulte necesario.
+g) A su vez, la concientización contribuye a fomentar el compromiso entre las personas trabajadoras municipales y motiva la conducta para que cumplan con sus deberes públicos y beneficien al público.

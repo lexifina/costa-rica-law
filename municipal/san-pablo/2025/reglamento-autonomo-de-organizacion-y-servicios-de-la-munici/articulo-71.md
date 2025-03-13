@@ -1,0 +1,1 @@
+Artículo 71. La Municipalidad programará y presupuestará mediante la Dirección de Recursos Humanos actividades de capacitación o formación acordes con las necesidades detectadas y prioridades en las distintas unidades de la Institución, en coordinación con el Despacho del alcalde, las direcciones y jefaturas de departamento.

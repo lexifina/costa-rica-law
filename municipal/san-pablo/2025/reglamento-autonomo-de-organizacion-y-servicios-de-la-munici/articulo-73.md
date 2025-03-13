@@ -1,0 +1,1 @@
+Artículo 73. La Municipalidad por medio de la Dirección de Hacienda Municipal adjudicará una partida presupuestaria anual para la capacitación y formación de las personas trabajadoras. el cual no será menor al 0.40 % del presupuesto ordinario.

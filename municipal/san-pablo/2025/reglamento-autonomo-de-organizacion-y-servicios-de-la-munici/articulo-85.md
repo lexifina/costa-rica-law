@@ -1,0 +1,1 @@
+Artículo 85. La Municipalidad a través de la Dirección de Recursos Humanos, dentro de sus posibilidades económicas, materiales y profesionales reales, podrá brindar los servicios médicos requeridos a todas las personas servidoras municipales.

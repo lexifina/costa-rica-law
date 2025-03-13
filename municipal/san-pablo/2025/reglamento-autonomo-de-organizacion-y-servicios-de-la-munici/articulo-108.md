@@ -1,0 +1,2 @@
+Artículo 108. Cuando se presente en caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato de la persona trabajadora en vacaciones, podrá pedirse a éste (a) su regreso, sin que ello represente obligación para la persona trabajadora o represalias en su contra.
+1. Si está anuente, se interrumpirá el disfrute por todo el tiempo que sea necesario, y al término de la situación que la originó, continuará la persona trabajadora el disfrute de su derecho.

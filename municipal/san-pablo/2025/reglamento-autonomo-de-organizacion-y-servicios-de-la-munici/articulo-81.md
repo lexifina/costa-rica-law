@@ -1,0 +1,1 @@
+Artículo 81. Será responsabilidad de la Dirección de Recursos Humanos, velar por su creación, apoyar su funcionamiento, otorgar el tiempo necesario en horas hábiles y con goce de salario para que sus representantes se reúnan, suministrar los implementos, espacio físico y documentación requerida y atender las mejoras sugeridas en un plazo máximo de 30 días.

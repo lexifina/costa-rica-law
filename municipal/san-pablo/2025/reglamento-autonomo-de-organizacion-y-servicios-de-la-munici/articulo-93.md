@@ -1,0 +1,1 @@
+Artículo 93. Las sanciones por contravenir la Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud (Ley 9028) y la Ley 10066, que regula los sistemas electrónicos de administración de nicotina (SEAN), incluyen varias medidas punitivas que buscan asegurar el cumplimiento de las normativas. A continuación, se detallan las sanciones relevantes:

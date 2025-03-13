@@ -1,0 +1,1 @@
+Artículo 84. La Dirección de Recursos Humanos mediante el área de Salud Ocupacional y con la participación de la Comisión de Salud Ocupacional, elaborarán e implementarán el programa de salud ocupacional que cubra a todas las dependencias de la Municipalidad, de conformidad con el artículo 28 de la Ley sobre Riegos de Trabajo y Ley General de Salud.

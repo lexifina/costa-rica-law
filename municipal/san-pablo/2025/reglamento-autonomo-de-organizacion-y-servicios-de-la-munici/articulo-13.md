@@ -1,0 +1,2 @@
+Artículo 13. De la visión de la Municipalidad de San Pablo de Heredia
+1. Ser la Municipalidad líder en la prestación eficiente de servicios y construcción de obra pública de la provincia de Heredia, que propicia un mayor desarrollo humano, económico, social, sustentable y bienestar a las familias del cantón; mediante su gestión administrativa, proactiva e innovadora en el uso de las tecnologías de información y comunicación.

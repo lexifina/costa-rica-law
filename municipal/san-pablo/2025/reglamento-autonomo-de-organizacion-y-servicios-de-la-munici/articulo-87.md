@@ -1,0 +1,1 @@
+Artículo 87. La Municipalidad adoptará las medidas necesarias para las personas servidoras municipales cuya permanencia en un puesto no sea aconsejable, por razón de riesgos a su salud, comprobados de manera científica; debiendo proceder al traslado de la persona trabajadora a un puesto más adecuado a su condición.

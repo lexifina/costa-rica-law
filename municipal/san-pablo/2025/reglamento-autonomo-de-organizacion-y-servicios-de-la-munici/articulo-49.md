@@ -1,0 +1,2 @@
+Capítulo XIX DE LA EVALUACIÓN DEL DESEMPEÑO
+Artículo 49. Las personas servidoras de la Municipalidad, tendrán de acuerdo con el Código Municipal, una evaluación y calificación de sus servicios. Para tales efectos la Dirección de Recursos Humanos confeccionará los formularios y los modificará si fuera el caso, previa consulta a la persona alcalde. Todo de acuerdo con el procedimiento oficial establecido en el Reglamento de la Ley Marco de Empleo Público, a saber:

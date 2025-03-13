@@ -1,0 +1,6 @@
+Artículo 122. De las ausencias
+1. Las ausencias por enfermedad deberán ser comprobadas, mediante dictamen médico expedido por la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros o por cualquier otro medio idóneo (en este último caso; siempre y cuando la ausencia sea por un único día).
+2. Las ausencias al trabajo por enfermedad deberá justificarlas la persona trabajadora con incapacidad emitida por la Caja Costarricense de Seguro Social, o el Instituto Nacional de Seguros.
+Podrá la jefatura inmediata avalar en casos muy especiales la justificación de ausencia por un día cuando se trate de problemas de salud que no puedan ser atendidos por CCSS. La ausencia al trabajo debe ser comunicada al inicio de la jornada de trabajo.
+3. Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias y la persona servidora municipal deberá realizar la marca en consecuencia y, aportar el comprobante oficial que justifica la licencia.
+Podrá la jefatura inmediata avalar en casos muy especiales la justificación de ausencia por un día cuando se trate de problemas de salud que no puedan ser atendidos por CCSS. La ausencia al trabajo debe ser comunicada al inicio de la jornada de trabajo.

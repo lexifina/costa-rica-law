@@ -1,0 +1,8 @@
+Capítulo XXIX DE LAS INCAPACIDADES PARA TRABAJAR
+Artículo 113. La Municipalidad reconocerá las ausencias a la persona trabajadora motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, y se sujetará a las siguientes disposiciones:
+1. Por visitas al médico tanto de INS, como CCSS, la Municipalidad pagará el tiempo necesario, siempre que sea justificado.
+2. Por incapacidad de la CCSS de menos de 3 días la Municipalidad pagará al trabajador 100 % del salario.
+3. Por incapacidades de la CCSS, después de 4 días la Municipalidad pagará al trabajador el porcentaje necesario hasta completar el 100% del salario y por el tiempo que dure la incapacidad.
+4. Tratándose de incapacidad para trabajar por riesgo profesional se tomará lo dispuesto en el artículo 198 de la Ley Sobre Riesgo del Trabajo (Reforma al Código de Trabajo (Ley sobre Riesgos del Trabajo), garantizándose en todo caso el pago del 100% del salario.
+a) En todo lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se consideraran disposiciones supletorias del presente Reglamento, el Reglamento para la extensión de incapacidades a la persona trabajadora, personas beneficiarias del Régimen de Enfermedad y Maternidad y el Reglamento General de Riesgo de Trabajo y las interpretaciones que de los mismos expida la Caja Costarricense del Seguro Social.
+b) En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo profesional, el monto del subsidio que pague la respectiva institución aseguradora sumado al que pague la Municipalidad, podrá exceder el monto del salario de la persona trabajadora.

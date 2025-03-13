@@ -1,0 +1,2 @@
+Artículo 80. El Código de Trabajo, en el artículo 288, establece que toda empresa o institución con más de 10 trabajadores deberá crear una Comisión de Salud Ocupacional.
+Esta comisión deberá estar integrada con igual número de representantes del patrono y de los trabajadores, y su finalidad será la de investigar las causas de los riesgos del trabajo, determinar las medidas para prevenirlos y vigilar para que, en el centro de trabajo, se cumplan las disposiciones de salud ocupacional.

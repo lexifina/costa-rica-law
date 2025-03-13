@@ -1,0 +1,1 @@
+Artículo 66. La Municipalidad brindará el tiempo necesario, transporte y viáticos a sus personas trabajadoras para la participación en actividades de capacitación o formación de acuerdo con la tabla de viáticos vigente.

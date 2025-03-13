@@ -1,0 +1,4 @@
+Artículo 17. La estructura Municipal está integrada por:
+1. Un cuerpo deliberativo denominado Concejo Municipal integrado por 5 Personas Regidoras Propietarias, y 5 personas Regidoras Suplentes, cuyas atribuciones se encuentran establecidas en el artículo 13 del Código municipal. Además de 2 personas Síndicos Propietarios y 2 personas Síndicos Suplentes.
+2. Una persona alcalde municipal, y dos personas vicealcaldes, que tienen las obligaciones, potestades y responsabilidades derivados de los artículos 17 y demás del Código Municipal, artículos 101 y 103 de la Ley General de la Administración Pública, y demás leyes conexas que rijan sobre la materia.
+3. Una persona Auditora nombrada por el Concejo Municipal, cuyas obligaciones se encuentran indicadas en el artículo 52 del Código Municipal, y la Ley de Control Interno.

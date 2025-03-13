@@ -1,0 +1,2 @@
+Artículo 104. Las vacaciones se deberán gozar sin interrupciones salvo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada de la persona trabajadora y su presencia se considere necesaria para la buena marcha del servicio.
+1. Las boletas de vacaciones serán autorizadas por los (las) coordinadores de las dependencias, quienes enviarán a la Dirección de Recursos Humanos para los registros pertinentes.

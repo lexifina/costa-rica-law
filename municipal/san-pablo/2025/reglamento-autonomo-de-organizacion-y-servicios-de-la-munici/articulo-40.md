@@ -1,0 +1,1 @@
+Artículo 40. Corresponde a la persona alcalde municipal, realizar nombramientos, promociones y remoción de las Personas trabajadoras municipales, con excepción de aquellos que dependan directamente del Concejo Municipal.

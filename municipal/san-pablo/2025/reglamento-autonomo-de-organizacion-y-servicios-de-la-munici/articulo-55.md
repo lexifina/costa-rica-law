@@ -1,0 +1,3 @@
+Artículo 55. Fundamento metodológico de la evaluación del desempeño.
+1. La evaluación del desempeño de las personas servidoras públicas, se fundamentará en indicadores cuantitativos de cumplimiento de metas individuales de productos y servicios prestados, vinculados a los procesos y los proyectos que realice la dependencia a la que pertenece, y la del cuerpo de los niveles directivos en todos sus niveles para el cumplimiento de las metas y los objetivos institucionales.
+2. Será responsabilidad de cada superior definir los procesos y los proyectos de la dependencia, así como los productos y los servicios prestados, de conformidad con la Ley Marco de Empleo Público y la Ley de Fortalecimiento de las Finanzas Públicas.

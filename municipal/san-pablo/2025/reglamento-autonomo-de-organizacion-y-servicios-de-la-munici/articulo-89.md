@@ -1,0 +1,1 @@
+Artículo 89. Toda persona trabajadora grupo u organización de los servidores (as) de la Municipalidad tendrá derecho a presentar las quejas y propuestas tendientes a mejorar las condiciones laborales a la Comisión de Salud Ocupacional, la cual deberá pronunciarse en los plazos establecidos en la Ley General de la Administración Pública.

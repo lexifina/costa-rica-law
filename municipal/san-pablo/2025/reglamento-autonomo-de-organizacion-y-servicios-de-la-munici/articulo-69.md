@@ -1,0 +1,1 @@
+Artículo 69. Aquellas personas trabajadoras municipales contratadas interinamente, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita de la jefatura respectiva y la autorización la Dirección de Recursos Humanos

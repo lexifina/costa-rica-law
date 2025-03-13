@@ -1,0 +1,1 @@
+Artículo 64. Una vez programada las actividades de capacitación, notificadas las respectivas jefaturas designadas y notificados las personas servidoras municipales para la participación, no se concederá licencia con o sin goce de salario que coincida con el período que se desarrolle la actividad.

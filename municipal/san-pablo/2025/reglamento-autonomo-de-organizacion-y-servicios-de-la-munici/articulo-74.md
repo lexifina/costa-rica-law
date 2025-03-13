@@ -1,0 +1,1 @@
+Artículo 74. Cualquier procedimiento no contemplado en el presente capítulo se regulará según corresponda, por las normas establecidas en los reglamentos internos o externos con excepción de la materia sancionadora.
