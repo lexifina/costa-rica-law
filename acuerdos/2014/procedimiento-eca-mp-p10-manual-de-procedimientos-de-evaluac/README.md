@@ -22,3 +22,4 @@ Procedimiento ECA-MP-P10 Manual de procedimientos de evaluación y acreditación
 | 7 | 2020-12-09 | Acuerdo 13 (2020-12-09) |
 | 8 | 2023-02-08 | Acuerdo 1 (2023-02-08) |
 | 9 | 2023-04-04 | Acuerdo 7 (2023-04-04) |
+| 10 | 2025-03-17 | Acuerdo 4 (2025-03-17) |
