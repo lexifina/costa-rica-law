@@ -1,2 +1,3 @@
 Artículo 21. De la periodicidad de las reuniones
-Las reuniones se deben celebrar al menos una vez al mes, el día y la hora que este Comité determine, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Las reuniones se deben celebrar al menos dos veces al mes, el día y la hora que este Comité determine, salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Los temas por conocer durante las reuniones del comité considerarán al menos lo siguiente: en una reunión atenderán los temas relacionados con la gestión de capital y otras funciones del comité que no sean conocidos como se define a continuación. La otra reunión será para atender las funciones relacionadas con los temas específicos del Banco, tales como, pero sin estar limitados a estos, estrategia y gobierno, asesoría, supervisión y control, gestión de riesgo y gestión de negocios.

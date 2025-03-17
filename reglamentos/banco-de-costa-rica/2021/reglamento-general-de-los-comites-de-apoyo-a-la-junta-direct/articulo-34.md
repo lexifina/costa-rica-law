@@ -1,4 +1,3 @@
 Artículo 34. Del quorum
 El quorum de funcionamiento queda válidamente constituido con la mayoría simple (presencia de la mitad más uno de sus integrantes con voz y voto).
-Para los comités corporativos que en su conformación participen miembros del órgano de dirección, no podrán sesionar cuando la Junta Directiva General, por motivo del vencimiento de los nombramientos de sus directores, esté desintegrada. Esto hasta que el órgano de dirección esté nuevamente integrado y nombre a los directores en cada comité.
-La Secretaría General Junta Directiva es la encargada de informar a los entes supervisores la situación dada.
+Para los comités corporativos que en su conformación participen miembros del Órgano de Dirección, no podrán sesionar cuando la Junta Directiva General, por motivo del vencimiento de los nombramientos de sus directores, esté desintegrada. Esto hasta que el Órgano de Dirección esté nuevamente integrado y nombre a los directores en cada comité. La Secretaría General de la Junta Directiva es la encargada de informar a los entes supervisores la situación dada.

@@ -15,10 +15,10 @@ k. Conocer y gestionar el programa anual del plan de cultura de riesgo y dar seg
 l. Analizar y elevar a la Junta Directiva correspondiente los informes emitidos por la Gerencia Corporativa de Riesgo o las jefaturas de riesgo de las sociedades del CFBCR, incluido el análisis de las pruebas de estrés en los riesgos que corresponde hacerlas.
 m. Intercambiar periódicamente con la Auditoría Interna o equivalente y otros comités relevantes, la información necesaria para asegurar la cobertura efectiva de todos los riesgos y los ajustes necesarios en el Gobierno Corporativo de la entidad a la luz de sus planes de negocio o actividades y el entorno.
 Funciones relacionadas con supervisión:
-a. Supervisar que la gestión del riesgo sea efectiva y que los eventos de riesgo sean consistentemente identificados, evaluados, mitigados y monitoreados.
-b. Supervisar las estrategias, la gestión de los riesgos y la ejecución de la Declaración de Apetito de Riesgo y contrastar dichas exposiciones frente a los límites de tolerancia aprobados por la Junta Directiva General según el Apetito de Riesgo establecido.
-c. Conocer, analizar y referirse a los informes sobre el Perfil de Riesgo y el funcionamiento, evaluación y perfeccionamiento de los sistemas de gestión integral del riesgo del Conglomerado Financiero BCR.
-d. Conocer sobre los temas estratégicos analizados por el Comité de Riesgos de la OPC.
-e. Analizar las pruebas de estrés realizadas en la gestión de riesgo que correspondan.
-f. Supervisar la labor de la Gerencia Corporativa de Riesgo en la implementación de la gestión integral del riesgo.
-g. Conocer los informes que emita la Gerencia Corporativa de Riesgo en relación con la Gerencia de Negocios Esfera; además, de las matrices de riesgo y el seguimiento a la administración de los programas de mitigación de esos riesgos.
+n. Supervisar que la gestión del riesgo sea efectiva y que los eventos de riesgo sean consistentemente identificados, evaluados, mitigados y monitoreados.
+o. Supervisar las estrategias, la gestión de los riesgos y la ejecución de la Declaración de Apetito de Riesgo y contrastar dichas exposiciones frente a los límites de tolerancia aprobados por la Junta Directiva General según el Apetito de Riesgo establecido.
+p. Conocer, analizar y referirse a los informes sobre el Perfil de Riesgo y el funcionamiento, evaluación y perfeccionamiento de los sistemas de gestión integral del riesgo del Conglomerado Financiero BCR.
+q. Conocer sobre los temas estratégicos analizados por el Comité de Riesgos de la OPC.
+r. Analizar las pruebas de estrés realizadas en la gestión de riesgo que correspondan.
+s. Supervisar la labor de la Gerencia Corporativa de Riesgo en la implementación de la gestión integral del riesgo.
+t. Conocer los informes que emita la Gerencia Corporativa de Riesgo en relación con la Gerencia de Negocios Esfera; además, de las matrices de riesgo y el seguimiento a la administración de los programas de mitigación de esos riesgos.

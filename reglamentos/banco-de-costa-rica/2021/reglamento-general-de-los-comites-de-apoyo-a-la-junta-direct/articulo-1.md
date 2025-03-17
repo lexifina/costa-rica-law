@@ -25,23 +25,24 @@ Juntas directivas de las subsidiarias: son nombradas por la Junta Directiva Gene
 Banprocesa por ser una sociedad de responsabilidad limitada, cuenta con una asamblea de cuotistas, conformada por la Junta Directiva General.
 Tecnologías de información (TI): conjunto de técnicas para la captura, almacenamiento, transformación, transmisión y presentación de la información generada o recibida a partir de procesos de negocios, de manera que pueda ser organizada y utilizada en forma consistente y comprensible por los usuarios que estén relacionados con ella. Incluye elementos de hardware, software, telecomunicaciones y conectividad, entre otros.
 Voto de calidad: es el voto otorgado a la persona que presida el órgano colegiado para resolver un empate entre los miembros presentes, el cual solamente puede ser ejercido cuando tal empate se produzca.
-IV. Formularios de referencia
-Los formularios utilizados en este documento se enuncian a continuación:
+IV. Formularios de referenciaLos formularios utilizados en este documento se enuncian a continuación:
 23-ZD Resumen de acuerdos ratificados en los Órganos Colegiados y hechos relevantes
 53-ZD_Memorando para solicitar inclusión de temas en sesiones de órganos colegiados
 364-SD Créditos resueltos por el Comité de Crédito
 365-SD Fiscalización Gerencia de Riesgo y Control Normativo
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° sesión 26-24 del 10 de junio del 2024, publicado en el Alcance Digital N° 122 a La Gaceta N° 121 del 3 de julio del 2024 y se transcribe a continuación:)
+Reglamento general de los comités de apoyo a la Junta Directiva General y
+Administración
+(Nota de Sinalevi : El texto de este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión N° 14-25 del 17 de marzo de 2025, publicado en el Alcance Digital N° 49 a La Gaceta N° 69 del 10 de abril del 2025 y se transcribe a continuación:)
 Título I
 De los comités de apoyo a la Junta Directiva General
 Capítulo I
 Comité Corporativo de Auditoría
 Artículo 1. De la integración
-De conformidad con el Acuerdo Conassif 04-16 Reglamento de Gobierno Corporativo, el Comité Corporativo de Auditoría debe ser presidido por un director de la Junta Directiva General; está conformado por:
+De conformidad con el Acuerdo Conassif 04-16 Reglamento sobre Gobierno Corporativo, el Comité Corporativo de Auditoría debe ser presidido por un director de la Junta Directiva General; está conformado por:
 . Dos directores representantes de la Junta Directiva General del BCR.
 . Un miembro externo e independiente al Conglomerado Financiero BCR
 Todos sus miembros deben poseer las habilidades, conocimientos y experiencia demostrable en el manejo y comprensión de la información financiera, contable y de auditoría. Además, deben contar, como mínimo, con un grado académico preferible en el área de administración de negocios, contaduría pública o carrera afín, y experiencia mínima de tres años en labores afines. Lo anterior debe quedar debidamente acreditado y la documentación en custodia de la Secretaría de la Junta Directiva General.
-Pueden participar con voz, pero sin voto, el gerente corporativo de Finanzas, los auditores internos o quien estos designen en su ausencia; así como, los funcionarios del Conglomerado Financiero BCR o auditor externo que el Comité Corporativo de Auditoría considere necesarios.
+Pueden participar con voz, pero sin voto, el gerente corporativo de finanzas, los auditores internos o quien estos designen en su ausencia; así como, las personas trabajadoras del Conglomerado Financiero BCR o auditor externo que el Comité Corporativo de Auditoría considere necesarios.
 Cuando se conozcan temas específicos de alguna empresa del Conglomerado Financiero BCR, debe estar presente su gerente general o el ejecutivo de alto nivel que lo sustituya en su ausencia y el auditor interno respectivo, o quien lo sustituya en su cargo.
 El Comité está facultado para contar con la participación de asesores externos a la Organización.
 Según los temas específicos que forman parte del orden del día, el Comité en mención puede invitar a las personas trabajadoras que estime conveniente.

@@ -1,2 +1,2 @@
 Artículo 18. De la periodicidad de las reuniones
-Las reuniones se tienen programadas para celebrarse semanalmente, el día y la hora que este Comité determine. Salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
+Las reuniones se tienen programadas para celebrarse semanalmente, el día y la hora que este comité determine. Salvo que el presidente considere que no hay asuntos que tratar hasta la siguiente sesión.
