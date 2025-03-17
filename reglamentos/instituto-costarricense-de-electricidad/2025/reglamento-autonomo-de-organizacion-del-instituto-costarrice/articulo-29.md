@@ -1,0 +1,1 @@
+Artículo 29 - Derogación. Se deroga el Reglamento Autónomo de Organización versión 2 aprobado por el Consejo Directivo en el artículo 2 del Capítulo III de la Sesión de Consejo Directivo 6569 del 18 de abril del 2023 y sus reformas y cualquier otra normativa que se oponga a lo dispuesto en este reglamento.

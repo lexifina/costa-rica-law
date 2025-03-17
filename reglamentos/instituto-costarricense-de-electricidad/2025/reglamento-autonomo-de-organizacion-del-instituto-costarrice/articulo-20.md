@@ -1,0 +1,2 @@
+Artículo 20 - Gerencia de Telecomunicaciones.
+Es la gerencia encargada de brindar soluciones de telecomunicaciones e infocomunicaciones seguras, integrales e innovadoras a nivel nacional e internacional, mediante un ecosistema de última generación, considerando elementos de convergencia, diversidad, calidad, seguridad, confiabilidad, agilidad y oportunidad de los servicios ofrecidos; así como el diseño, desarrollo, gestión y actualización de la infraestructura necesaria y requerida.
