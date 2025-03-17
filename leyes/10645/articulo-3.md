@@ -1,0 +1,12 @@
+ARTÍCULO 3- Adiciónense los siguientes párrafos al artículo 105 de la Ley 8764, Ley General de Migración y Extranjería, del 19 de agosto de 2009. El texto es el siguiente:
+Artículo 105-
+(...)
+Para la solicitud de la categoría especial de personas estudiantes, docentes, pasantes, investigadoras y voluntarios con fines educativos y culturales invitados para que realicen actividades de corta estadía, reconocidas en el inciso 4) del artículo 93 de la presente ley, aquellas universidades e instituciones educativas que estén inscritas ante ventanilla educativa en la Dirección General de Migración y Extranjería y cuenten ya con su código, podrán emitir un listado con fe pública, ante la Dirección General de Migración y Extranjería de los estudiantes, docentes, investigadores o voluntarios de corta estadía y el periodo de su ingreso y estadía. Dicha constancia con fe pública se acompañará para cada solicitante de:
+i. Documento de identidad.
+ii. Prueba de solvencia, pidiéndole a los interesados o institución de origen una declaración jurada de solvencia económica, sin que deban presentar estados bancarios auditados como se les solicita actualmente.
+iii. Constancia de estudiante que demuestre que efectivamente ingresa al país con fines de aprendizaje académico o intercultural.
+iv. El convenio con la institución de origen o remitente cuando aplique.
+En cuanto al plazo de vigencia de la categoría especial de personas estudiantes, docentes, investigadoras y voluntarios con fines educativos y culturales invitados para que realicen actividades de corta estadía será de 140 días, prorrogables por un periodo igual o uno que no exceda los 280 días adicionales, siempre que resulte razonable y proporcional de comprobar ante la Dirección General de Migración y Extranjería por parte de la institución educativa que extiende la invitación al visitante y que el plazo solicitado corresponda a los períodos dentro de los cuales desarrollarán las actividades de aprendizaje, enseñanza, investigación o voluntariado de corta estadía. Una vez presentada la gestión de solicitud, la Dirección General de Migración y Extranjería tendrá un plazo de treinta días hábiles para resolver el trámite e informar a los interesados.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veinticuatro días del mes de febrero del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
