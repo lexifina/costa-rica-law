@@ -14,3 +14,4 @@ Reforma ECA-MC-C15, Criterios para Evaluación y Acreditación de Proveedores de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-03-08 | la propia norma |
+| 2 | 2025-03-17 | Acuerdo 3 (2025-03-17) |
