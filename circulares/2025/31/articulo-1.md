@@ -1,0 +1,10 @@
+CIRCULAR N° 31-2025
+Asunto: Requerimientos para gestiones de delegación o sustitución de poderes especiales judiciales o poderes generales judiciales
+A TODAS LAS AUTORIDADES DE LA JURISDICCIÓN CIVIL, DE COBRO Y CONCURSAL
+SE LES HACE SABER:
+El Consejo Superior, en sesión N° 116-2024, celebrada el 19 de diciembre del 2024, artículo XLIX, acordó acoger la circular denominada "Requerimientos para gestiones de delegación o sustitución de poderes especiales judiciales o poderes generales judiciales", propuesta por la Comisión de la Jurisdicción Civil, de Cobro y Concursal en sesión CJC-10-2024 celebrada el 5 de diciembre de 2024, artículo I, a fin de garantizar la adecuada atención de las gestiones en las que un mandatario, apoderado especial judicial o apoderado general judicial, delegue o sustituya su poder en otra persona abogada conforme con el artículo 1264 del Código Civil, para evitar retrasos innecesarios por subsanación, la cual dispone:
+1. Las gestiones en las que un mandatario, sea apoderado especial judicial o apoderado general judicial, delegue o sustituya su poder en otra persona abogada, cuando así se le faculte por su po-derdante, no deberán rotularse "Poder Especial Judicial" sino "Sustitución de Poder". Lo anterior, con a fin de lograr un trámite más eficiente y célere.
+2. En los supuestos de delegación de poder a favor de un abogado o abogada sustituto, regu- lada en el artículo 1264 del Código Civil, no será necesaria la firma de otra persona abogada que autentique el escrito de sustitución de poder, pues -conforme con el aviso de Corte Plena del 30 de junio de 1993- para este supuesto, la autenticación es necesaria solo cuando el poderdante no es persona abogada, como es el caso de lo establecido por el artículo 20.3 del Código Procesal Civil. En caso de serlo, como sucede en los supuestos de sustitución del poder especial judicial y delegación por poder general judicial, la firma del abogado o abogada que sustituye su poder es auténtica y no requiere de ninguna otra autenticación.
+Publíquese una vez en el Boletín Judicial.
+Rige a partir de su publicación.
+San José, 11 de febrero de 2025.
