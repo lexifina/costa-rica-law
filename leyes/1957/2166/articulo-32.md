@@ -1,3 +1,4 @@
 Artículo 32- Obligaciones de los funcionarios. El funcionario sujeto al contrato por dedicación exclusiva que ostente más de una profesión no podrá ejercer, de manera particular o ad honorem, la profesión o las profesiones que tengan relación con el cargo que desempeña y que constituyen un requisito para desempeñar el puesto que ocupa, ni otra actividad relacionada con el compromiso contractual de exclusividad en la función.
-La suscripción del contrato se hará en razón de la profesión requerida en el cargo. Los funcionarios sujetos por ley al régimen de prohibición no podrán ejercer su profesión o profesiones, independientemente de que cumplan o no con los requisitos para hacerse acreedores a la compensación por este concepto.
+La suscripción del contrato se hará en razón de la profesión requerida en el cargo.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 008201 del 17 de marzo del 2025, se declaró la inconstitucionalidad del párrafo anterior in fine de este artículo)
 (Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

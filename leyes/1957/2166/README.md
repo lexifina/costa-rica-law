@@ -1,6 +1,6 @@
 # Ley de Salarios de la Administración Pública
 
-Ley N° 2166 del 1957-10-09. SINALEVI, ficha 3672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3672&param2=138772&param3=1>.
+Ley N° 2166 del 1957-10-09. SINALEVI, ficha 3672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3672&param2=147114&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 13 | 2022-02-18 | Ley 10137 | 2022-02-17 |
 | 11 de 13 | 2023-03-10 | Ley 10159 | 2022-03-08 |
 | 12 de 13 | 2023-12-13 | Ley 10423 | 2023-11-20 |
+| 13 de 13 | 2025-03-17 | Sala Constitucional, resolución 008201 (2025-03-17) | 2025-03-17 |
