@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-PO4-I04 Instrucción para presentar el alcance de a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-07-29 | la propia norma |
+| 2 | 2025-03-17 | Acuerdo 4 (2025-03-17) |
