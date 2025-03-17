@@ -1,0 +1,1 @@
+Artículo 5°-Preferencia en la asignación. La jornada extraordinaria será asignada prioritariamente al personal de la unidad que lo solicite. En caso de imposibilidad justificada, se seleccionará personal idóneo de otros departamentos.

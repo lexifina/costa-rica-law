@@ -1,0 +1,1 @@
+Artículo 13.-Verificación y tramitación del pago. El Departamento de Recursos Humanos revisará la documentación solicitada en el artículo 10 de este reglamento. Una vez verificados y sistematizados los reportes serán remitidos al Departamento de Tesorería para efectuar el pago correspondiente.

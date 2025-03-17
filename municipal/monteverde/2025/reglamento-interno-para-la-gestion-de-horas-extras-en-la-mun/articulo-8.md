@@ -1,0 +1,1 @@
+Artículo 8°-Verificación de presupuesto y autorización. La Alcaldía verificará la disponibilidad presupuestaria antes de autorizar por escrito el tiempo extraordinario. No se reconocerá el pago de horas extraordinarias no aprobadas previamente.

@@ -1,0 +1,1 @@
+Artículo 6°-Registro y control. El control de tiempo extraordinario se registrará en una bitácora oficial gestionada por cada unidad, donde se detallará el tiempo trabajado, las tareas realizadas y la firma del responsable. Así como también la marca registrada cuando exista reloj marcado.

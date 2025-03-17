@@ -1,0 +1,1 @@
+Artículo 18.-Entrada en vigencia. El presente reglamento entrará en vigor a partir de su aprobación y publicación en el diario oficial correspondiente". Acuerdo tomado por unanimidad y definitivamente aprobado.

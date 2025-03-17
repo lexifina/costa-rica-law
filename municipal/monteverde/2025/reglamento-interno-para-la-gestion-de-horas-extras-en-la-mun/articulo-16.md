@@ -1,0 +1,1 @@
+Artículo 16.-Supervisión del cumplimiento. El Departamento de Recursos Humanos será responsable de supervisar el cumplimiento de este reglamento y garantizar que no se realicen pagos que no cumplan con los requisitos establecidos.

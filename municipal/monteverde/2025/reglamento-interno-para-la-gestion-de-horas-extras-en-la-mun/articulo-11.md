@@ -1,0 +1,2 @@
+Artículo 11.-Fecha de pago del tiempo extraordinario. El pago del tiempo extraordinario se realizará en la fecha establecida para la segunda quincena de cada mes. Para esto, el jefe de cada departamento deberá entregar la documentación planteada en el artículo 11 del presente reglamento, tres días antes de la fecha de pago.
+En caso por excepción el titular de la Alcaldía, podrá autorizar el pago anticipado del tiempo extraordinario, enviado un oficio al Departamento de Recursos Humanos.

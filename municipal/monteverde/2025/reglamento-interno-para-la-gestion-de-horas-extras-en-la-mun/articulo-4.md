@@ -1,0 +1,1 @@
+Artículo 4°-Obligación de laborar tiempo extraordinario. Es obligación de todo servidor municipal atender los requerimientos de tiempo extraordinario cuando la institución lo demande, salvo justificaciones razonables debidamente aprobadas. En situaciones de emergencia, podrá obviarse la comunicación previa.
