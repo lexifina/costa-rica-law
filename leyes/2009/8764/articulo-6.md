@@ -1,5 +1,4 @@
-ARTÍCULO 6.-
-La formulación de la política migratoria estará orientada principalmente a lo siguiente:
+ARTÍCULO 6.-La formulación de la política migratoria estará orientada principalmente a lo siguiente:
 1) Promover, regular, orientar y ordenar las dinámicas de inmigración y emigración, en forma tal que contribuyan al desarrollo nacional por medio del enriquecimiento económico social y cultural de la sociedad costarricense. Con ese propósito, se promoverá la regularización e integración de las comunidades inmigrantes en la sociedad costarricense, así como el establecimiento de mecanismos que permitan mantener y estimular el vínculo permanente entre la sociedad nacional y sus comunidades de emigrantes.
 2) Facilitar el retorno de las personas nacionales ubicadas en el exterior, que vean afectado su derecho de retorno al país, por causas humanitarias previamente constatadas, o motivo de muerte, siempre y cuando los familiares no puedan sufragar, por necesidad extrema, los costos de traslado del cuerpo.
 3) Controlar el ingreso, la permanencia y el egreso de personas extranjeras al país, en concordancia con las políticas de desarrollo nacional y seguridad pública.
@@ -7,3 +6,5 @@ La formulación de la política migratoria estará orientada principalmente a lo
 5) Garantizar la protección, atención y defensa de las personas víctimas de la trata de personas y coordinar con las instituciones competentes tales garantías.
 6) Garantizar que el territorio nacional será asilo para toda persona con fundados temores de ser perseguida, enfrente un peligro de ser sometida a tortura o no pueda regresar a otro país, sea o no de origen, donde su vida esté en riesgo, de conformidad con los instrumentos internacionales y regionales debidamente ratificados.
 7) Garantizar el cumplimiento de los derechos de las niñas, los niños y los adolescentes migrantes, de conformidad con las convenciones internacionales en esta materia. Se tendrá especialmente en cuenta el interés superior de estas personas.
+8- Promover la razonabilidad, agilidad y eficiencia de trámites migratorios asociados a la llegada y estadía de personas estudiantes, docentes, pasantes, investigadoras y voluntarios con fines educativos y culturales.
+(Así adicionado el inciso anterior por el artículo 1° de la Ley para la promoción, atracción y estadía de estudiantes, docentes e investigadores extranjeros, N° 10645 del 24 de febrero de 2025)
