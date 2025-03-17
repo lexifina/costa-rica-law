@@ -1,2 +1,2 @@
-Artículo 2.- Rige a partir del 01 de julio de 2013
-Dado en la Presidencia de la República, a los cuatro días del mes de junio del año dos mil trece.
+Artículo 2.- Para el caso de la República de Costa Rica, el Ministerio de Comercio Exterior creado mediante la Ley N º 7638 del 30 de octubre de 1996, será la "Entidad Designada" para efectos de la Decisión Nº 1 de fecha 01 de septiembre de 2012 y sus Anexos, que se publican mediante el presente Decreto Ejecutivo.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 45043 del 17 de marzo de 2025)
