@@ -14,3 +14,4 @@ Reforma Directriz para la Implementación del Sistema de Mensajería de Document
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-30 | la propia norma |
+| 2 | 2025-03-17 | Acuerdo 1 (2025-03-17) |
