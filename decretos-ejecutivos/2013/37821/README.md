@@ -17,3 +17,4 @@ Reglamento para la emisión de los Certificados de Exportación de Banano y de P
 | 2 | 2014-01-07 | Decreto Ejecutivo 38354 (2014-01-07) |
 | 3 | 2020-01-21 | Decreto Ejecutivo 42188 (2020-01-21) |
 | 4 | 2022-05-19 | Decreto Ejecutivo 43583 (2022-05-19) |
+| 5 | 2025-03-17 | Decreto Ejecutivo 45089 (2025-03-17) |
