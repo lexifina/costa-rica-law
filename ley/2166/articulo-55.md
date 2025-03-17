@@ -1,3 +1,4 @@
 Artículo 55- Reserva de ley en la creación de incentivos y compensaciones salariales
 La creación de incentivos o compensaciones, o pluses salariales solo podrá realizarse por medio de ley.
 (Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 008201 del 17 de marzo del 2025, se interpretó este numeral bajo el entendido de que la restricción para negociar no se aplica a los empleados del Sector Público que válidamente puedan celebrar convenciones colectivas de acuerdo con la Constitución y la ley. Todo lo anterior, sin perjuicio de los controles de legalidad y de constitucionalidad sobre el resultado de la negociación, en atención a los principios constitucionales de razonabilidad, proporcionalidad y el buen uso de los fondos públicos.)
