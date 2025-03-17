@@ -1,0 +1,1 @@
+Artículo 6°-Competente para resolver sobre la venta o enajenación de bienes. El competente para resolver lo relacionado con este reglamento será el Comité de Capital, Activos y Pasivos de la Secretaría Técnica de Banca para el Desarrollo, salvo casos de ventas por temas excepcionales los cuales podrán ser tratados por el Consejo Rector del Sistema de Banca para el Desarrollo

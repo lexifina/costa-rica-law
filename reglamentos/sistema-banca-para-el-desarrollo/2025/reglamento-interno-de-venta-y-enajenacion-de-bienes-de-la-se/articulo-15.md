@@ -1,0 +1,2 @@
+Artículo 15.-Avalúos. El (la) Encargado (a) de Administración de Bienes y Servicios será el (la) responsable de que cada uno de los bienes sujetos a procedimientos de venta o enajenación cuenten con su respectivo avalúo; el cual, no podrá tener más de veinticuatro (24) meses de vigencia.
+Los avalúos han de ser elaborados por peritos designados por la Secretaría Técnica. También podrá utilizarse avalúos realizados por la Dirección General de Tributación Directa cuya vigencia no supere el plazo indicado.

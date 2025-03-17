@@ -1,0 +1,2 @@
+Artículo 23.-Recepción de ofertas en proceso de remate. Las ofertas de compra podrán entregarse en sobre cerrado o por medios tecnológicos, conforme a las regulaciones que al respecto se establezcan en las condiciones generales del pliego de condiciones, antes de la fecha y hora señaladas en la publicación.
+La oferta que incumpla con la indicación del precio de compra, forma de pago, el nombre, firma, número de documento de identidad o cédula jurídica del oferente y el lugar o medio para las notificaciones, no se admitirá en el concurso.

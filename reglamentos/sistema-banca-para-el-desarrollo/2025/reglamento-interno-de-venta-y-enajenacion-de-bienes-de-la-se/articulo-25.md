@@ -1,0 +1,2 @@
+Artículo 25.-Ventas directas. Esta alternativa se pondrá a disposición de los interesados cuando el remate resulte infructuoso y cuente con la autorización de la venta directa por el Comité de Capital, Activos y Pasivos, mediante un pliego de condiciones.
+Los interesados deberán presentar una oferta por el mecanismo y bajo las condiciones establecidas y con la documentación requerida en el pliego de condiciones.

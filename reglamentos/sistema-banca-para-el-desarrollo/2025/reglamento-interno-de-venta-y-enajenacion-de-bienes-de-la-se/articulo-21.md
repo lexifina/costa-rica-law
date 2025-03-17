@@ -1,0 +1,2 @@
+Artículo 21.-Remate de bienes. La Secretaría Técnica del SBD utilizará como mecanismo ordinario para la venta, este proceso. Por medio de la Proveeduría Institucional realizará al menos un remate por semestre para ofrecer los bienes adjudicados, para lo cual se publicará en el diario oficial La Gaceta y en la página web del SBD la invitación al remate, así como sus detalles correspondientes.
+Una vez realizada la invitación de forma pública, se suspende automáticamente la posibilidad de presentar una oferta por venta directa, hasta tanto, no se resuelva el proceso de remate.

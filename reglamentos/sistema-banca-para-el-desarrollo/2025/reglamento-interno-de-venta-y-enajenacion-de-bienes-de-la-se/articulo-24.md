@@ -1,0 +1,8 @@
+Artículo 24.-Apertura de ofertas EN REMATE. Una vez vencida la fecha y hora para la recepción de ofertas de manera presencial o por medios tecnológicos se realizará el acto de apertura con la presencia de, al menos, una persona de la Proveeduría Institucional, y dos funcionarios del SBD como testigos.
+Los funcionarios presentes en el acto tendrán las siguientes obligaciones:
+a. Permanecer en la apertura de ofertas desde la hora convenida en el aviso de venta y hasta la finalización del acto.
+b. Verificar mediante la confrontación de las ofertas recibidas la información indicada en el pliego de condiciones.
+c. La Proveeduría Institucional, en tiempo y fecha de apertura revisará las ofertas y anotará en el acta respectiva el precio inicial ofertado por cada participante y su oferta económica presentada, posterior a ello, cada uno de los oferentes contará con un plazo de 10 minutos para definir si participará en una presentación de una segunda oferta al alza donde presentará en el formulario dispuesto por la administración una segunda propuesta, una vez cumplido este plazo y así indicado por el representante de la administración, se procederá a dar lectura a la segunda oferta, la cual se considerará como base final ofertada y así será indicado en el acta correspondiente, con ello se cerrará el acta y se realizará la lectura final. Solo podrán presentar una oferta al alza los participantes presentes al momento de este acto.
+d. Atestiguar la firma de la lista de asistencia y del acta de apertura por todos los presentes.
+e. Validar el contenido del acta versus las ofertas recibidas.
+f. Firmar el acta de apertura.

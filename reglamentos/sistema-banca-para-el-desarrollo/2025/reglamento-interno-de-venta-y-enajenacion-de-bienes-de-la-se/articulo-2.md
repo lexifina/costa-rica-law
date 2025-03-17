@@ -1,0 +1,1 @@
+Artículo 2°-Actividad Ordinaria. La venta de los bienes considerados en el artículo anterior es actividad ordinaria de la Secretaría Técnica. Está sujeta a las limitaciones indicadas en los artículos 1068 del Código Civil, 2 del Reglamento Interno de Contratación Pública del SBD, articulo 15, inciso d) y 16 de la Ley 8204.

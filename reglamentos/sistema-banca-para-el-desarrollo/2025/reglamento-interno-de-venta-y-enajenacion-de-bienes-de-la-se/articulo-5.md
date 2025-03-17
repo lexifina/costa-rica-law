@@ -1,0 +1,1 @@
+Artículo 5°-De los bienes. Los bienes amparados a los términos y condiciones de venta o enajenación establecidos en el presente artículo corresponden a aquellos que hayan sido adquiridos bajo adjudicación o dación de pago y sean propiedad de la Secretaría del Sistema de Banca para el Desarrollo como administradora del Fondo Nacional de Desarrollo.

@@ -1,0 +1,3 @@
+Artículo 14.-Pago de servicios públicos, impuestos municipales y otros impuestos. El Encargado de Administración de bienes y Servicios, será el responsable de verificar y tramitar el pago de los servicios públicos, e impuestos relacionados con cada bien adjudicado.
+En caso de que la propiedad cuente con una deuda por parte del dueño anterior, se deberá saldar la deuda pendiente con la municipalidad, para posteriormente tramitar la exoneración de los impuestos que corresponda. Este saldo deberá sumarse al monto de venta de la propiedad.
+El Encargado de Administración de Bienes y Servicios, tramitará ante la Municipalidad las declaraciones de bienes inmuebles, así como del trámite y pago de cualquier tipo de obligación municipal que puedan requerir dichas propiedades.

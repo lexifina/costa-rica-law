@@ -1,0 +1,4 @@
+Artículo 26.-Condiciones para la venta directa: El trámite de venta directa deberá cumplir con:
+1. Deberá presentar su propuesta a la Secretaría Técnica del SBD según el procedimiento correspondiente.
+2. La Proveeduría revisará la oferta y emitirá una recomendación al Comité de Capital, Activos y Pasivos, considerando la recomendación presentada por el (la) Encargado (a) de Contratación, de acuerdo con lo establecido en el artículo 9 de este reglamento, dicha recomendación deberá ser presentada al Comité en un plazo no mayor a quince (15) días hábiles contados a partir de la fecha de presentación de la oferta.
+3. El Comité de Capital, Activos y Pasivos resolverá o no la venta, considerando la recomendación recibida e indicando los motivos en aquellos casos en que no procede la venta al oferente.

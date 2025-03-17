@@ -1,0 +1,1 @@
+Artículo 19.-Excepciones al mecanismo ordinario de venta. El Consejo Rector de la Secretaría Técnica, podrá determinar en cualquier momento el interés de no colocar a la venta el bien por razones de conveniencia institucional, interés público razonado u otras debidamente acreditadas para la situación particular. Para ello emitirá un acto razonado.
