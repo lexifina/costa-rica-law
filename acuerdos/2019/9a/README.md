@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P04-I01 Instrucción para Presentar el alcance de acreditac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-18 | la propia norma |
+| 2 | 2025-03-17 | Acuerdo 4 (2025-03-17) |

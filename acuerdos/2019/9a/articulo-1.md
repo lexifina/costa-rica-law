@@ -1,63 +1,60 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
-N° 2019-009.—El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P04-I01, instrucción para Presentar el alcance de acreditación de laboratorios de ensayo pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta; ECAMC-C21 Criterios para evaluación y acreditación de laboratorios clínicos bajo la norma INTE/ISO 15189:2014 de versión 01 a versión 02, para este documento se brindará un transitorio de 30 días naturales para aplicación, a partir de la publicación en Diario Oficial La Gaceta. ECA-MC-C18 Criterios para evaluación y acreditación de laboratorios bajo la Norma INTE-ISO/IEC 17025:2017 pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I04, instrucción para presentar el alcance de acreditación de laboratorios de ensayos en química. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I02, instrucción para presentar el alcance de acreditación de laboratorios de calibración. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez; cédula N° 8-0130-0191
-San José, 10 de octubre del 2019.—
-(Nota de Sinalevi: Por tener articulado propio los procedimientos ECA-MC-C21, ECA-MC-C18, ECA-MP-P04-I04, ECA-MP-P04-I02, deben ser consultados en el sistema de forma independiente)
+N° 2019-009.-El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, da a conocer la modificación de los siguientes documentos: Procedimientos: ECA-MP-P04-I01, instrucción para Presentar el alcance de acreditación de laboratorios de ensayo pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta; ECAMC-C21 Criterios para evaluación y acreditación de laboratorios clínicos bajo la norma INTE/ISO 15189:2014 de versión 01 a versión 02, para este documento se brindará un transitorio de 30 días naturales para aplicación, a partir de la publicación en Diario Oficial La Gaceta. ECA-MC-C18 Criterios para evaluación y acreditación de laboratorios bajo la Norma INTE-ISO/IEC 17025:2017 pasa de versión 01 a versión 02. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I04, instrucción para presentar el alcance de acreditación de laboratorios de ensayos en química. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. ECA-MP-P04-I02, instrucción para presentar el alcance de acreditación de laboratorios de calibración. Fecha de entrada en vigencia a partir de la publicación en La Gaceta. Los documentos descritos anteriormente se encuentran a disposición de los interesados en la página electrónica http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en San José, Barrio Don Bosco, avenida 02 y calle 32, contiguo a la Embajada de España, en horario de lunes a viernes de 8 h a 16 h. única vez; cédula N° 8-0130-0191
+San José, 10 de octubre del 2019.-
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
-[imagen]
-1 OBJETIVO
-Explicar los criterios bajo los cuales el laboratorio de ensayo, con alcance diferentes a ensayos químicos, deben llenar el alcance de acreditación, para presentar una solicitud de acreditación inicial o ampliación en la norma INTE-ISO/IEC 17025, en su versión vigente.
-2 ALCANCE
-Aplica a los laboratorios de ensayo, con ensayos diferentes a ensayos químicos, que presenten solicitud para acreditación inicial o ampliación. Además, para cualquier modificación que se requiera realizar al alcance ya acreditado.
-Para laboratorios de ensayos químicos se aplica el instructivo ECA-MP-P04-I04.
-3 SECUENCIA DE PASOS
-Cuando un laboratorio de ensayo llena la solicitud debe completar el Alcance de Acreditación, correspondiente a la siguiente tabla de acuerdo con las instrucciones:
-Nombre del laboratorio, dirección sede del laboratorio, tipo de instalación o sede.
-[imagen] Nota: el alcance se debe presentar en esta tabla, sin modificar los encabezados
-3.1 Datos del laboratorio
-Indicar los siguientes datos o información:
- Nombre del laboratorio
- Dirección de la sede del laboratorio, solamente aplica para sedes fijas, (no aplica para laboratorios temporales, laboratorios móviles ni sitios de cliente)
- Tipo de instalación o sede, indicar el tipo de sede, si corresponde, sede fija, laboratorio temporal, laboratorio móvil, o actividades que se realizan en sitio de cliente o campo.
-En caso de que un laboratorio solicite acreditación para más de un tipo de sede, debe llenar una tabla o cuadro de alcance por cada sede para la cual solicita acreditación.
-Nota 1: Para laboratorio de ensayos de filiación o paternidad, que cuenten con más de una sede fija de toma de muestra, se podrán incluir todas las sedes fijas de toma de muestra, con sus respectivas direcciones, dentro de los datos de laboratorio, previo a indicar la actividad de toma de muestra, esto en lugar de llenar un cuadro de toma de muestra para cada sede (Ver ejemplos en este documento).
-3.2 Artículo, materiales, productos a ensayar o muestrear
-Anotar el nombre de los artículos, materiales o productos a los cuales el ensayo será aplicado (ejemplo: agua, agua residual, agua de mar, carne, vegetales, lámparas fluorescentes, dosímetros, concreto, cemento, suelos, lodos, alambre de cobre, tomate, piña, asfalto, plasma, orina).
-Nota 2: Para el caso de laboratorios que realicen análisis de aguas, deben completarlo de la siguiente manera: agua, aguas residuales, aguas de mar. Dichas matrices se especifican a continuación:
-- Agua, incluye: agua potable, industrial, superficial, lago, río, subterránea, pozo, piscina, de enfriamiento o circulación, de caldera o alimentación.
-- Aguas residuales, incluye: aguas residuales, que de acuerdo al Reglamento a Nivel Nacional corresponde a aguas residuales de tipo ordinario y de tipo especial.
-- Aguas de mar, incluye: aguas saladas.
-3.3 Nombre del ensayo o muestreo y propiedades a ensayar o muestrear Señalar el nombre del ensayo (ejemplo: presencia de Salmonella spp en alimentos, glucosa en sangre, viscosidad de mezclas asfálticas, determinación del asentamiento del concreto del cemento hidráulico, determinación de la corriente de entrada).
-En el caso de muestreo indicar el nombre del muestreo, además indicar si el muestreo que se pretende acreditar es para ensayos fisicoquímicos o microbiológicos u otro tipo de ensayo (por ejemplo, muestreo de agregados para ensayos físicos, muestreo de alimentos para ensayos microbiológicos, muestreo de aguas para ensayos microbiológicos).
-3.4 Especificación, referencia al método y técnica usada
-Indicar la referencia al método utilizado para la ejecución del ensayo, así como el nombre de la técnica específica empleada, si aplica (ejemplo: Standard Methods APHA-AWWAWEF, 23rd ed. 2017, 111B, Recuento en placa).
-En caso de normas y referencias de métodos debe tenerse en cuenta lo siguiente:
-- Siempre que en una norma se incluyan varios ensayos y el laboratorio no solicite la acreditación para la totalidad de los mismos, se deberá especificar claramente qué ensayos (incluyendo referencia al apartado de la norma en que se citen) están incluidos en el alcance solicitado.
-- En caso de que el método sea normalizado, sin ninguna modificación, se debe indicar únicamente la norma de referencia con su edición o año.
-- En caso de métodos normalizados modificados o no normalizados, se debe indicar la frase “método modificado a partir de” para métodos modificados y “método elaborado a partir de”, para métodos no normalizados, seguido de la norma o referencias, con su edición o año, que se modificaron o se utilizaron de base para el método.
-- En caso de métodos desarrollados por el laboratorio, se debe indicar el código del procedimiento interno del laboratorio y su versión.
-- En los casos en los que haya sido necesario desarrollar un procedimiento para complementarlas, se indicará junto con la norma de ensayo, la referencia a este procedimiento.
-- Si un laboratorio brinda servicios de ensayo para cumplimiento de un reglamento técnico y cumple con todas las condiciones respecto a método de ensayo y sus referencias solicitadas por el reglamento técnico, se puede incluir dentro de este apartado de especificación referencia al método, el reglamento técnico respectivo y su versión, para el cual el laboratorio brinda servicios de ensayo.
-3.5 Ámbito de trabajo
-Anotar el ámbito de concentración del analito (especie) o ámbito de la propiedad física que se mide, para el cual el laboratorio demuestra competencia técnica al utilizar el método indicado.
-Nota 3: El Ámbito de trabajo aplica para métodos de ensayo cuantitativos o metrológicos, así como para los métodos de ensayo cualitativos que hagan referencia a límites cuantitativos de trabajo.
-Nota 4: En caso de muestreo el ámbito de trabajo no aplica (NA).
-4 EJEMPLOS
-Ejemplo 1. Un laboratorio con sede fija, sede temporal y actividades en sitio de cliente:
-Laboratorio ECA, ubicado en Paseo Colón, contiguo a embajada España, San José, Costa Rica, instalaciones fijas.
-[imagen]
-Laboratorio ECA, actividades que se realizan en sedes temporales
-[imagen]
-Laboratorio ECA, actividades que se realizan únicamente en sitio de cliente o campo
-Artículos, materiales o productos a ensayar o muestrear | Nombre específico del ensayo o muestreo y propiedades a ensayas o muestrear | Especificación, referencia al método y técnica utilizada | Ámbito de trabajo
-Concreto recién mezclado | Muestreo de concreto recién mezclado | Norma INTE C17:2019 Código de procedimiento interno ECA-MU-02 | NA
-Ejemplo 2. Un laboratorio con dos sedes fijas y actividades en sitio de cliente Laboratorio ECA, ubicado en Paseo Colon, contiguo a embajada España, San José, Costa Rica, instalaciones fijas.
-[imagen]
-[imagen]
-[imagen]
-Laboratorio ECA, Sedes fijas de toma de muestra:
- Sede Oficentro, costado este estadio Nacional, Sabana, San José, Costa Rica.
- Sede Medicentro, Frente a Multiplaza Curridabat, San José, Costa Rica.
-[imagen]
-5 IDENTIFICACIÓN DE CAMBIOS
-Motivo: Modificación del ECA-MP-P04-I01
-Refiérase a la solicitud de elaboración o modificación del documento número 2019-128 Los cambios son para adaptarlo al nuevo formato de alcance Version 05 y remover lo químico del documento ya que esto se documento en otro instructivo.
+(Nota de Sinalevi :El presente procedimiento fue reformado parcialmente y reproducido su texto mediante publicación en La Gaceta N° 76 del 29 de abril del 2025, donde se actualiza la versión 02 existente y se publica la versión 03, que se transcribe a continuación:)
+continuación:)
+[imagen] |
+Documentos aplicables en los diferentes procesos de evaluación | Código N? : ECA-MP-P02-I01 | Páginas: 1 de 7
+Fecha de entrada en vigencia: 2025.04.09 | Versión: 12
+1. OBJETIVO
+1.1. Establecer los documentos aplicables en los diferentes procesos de evaluación para evaluaciones iniciales, seguimientos, reevaluaciones y testificaciones.
+2. ALCANCE
+2.1. Aplica a personal de las Secretarías de Acreditación, organismos de evaluación de la conformidad, Evaluadores ECA.
+3. DOCUMENTOS APLICABLES
+3.1. Es requisito para la acreditación el cumplimiento de lo establecido en el siguiente cuadro, según aplique:
+Área | Documentos aplicables |
+Para todas las áreas | Documentos exclusivos para OEC, Secretarías 1. ECA-MC-P07 2. ECA-MC-P08 3. ECA-MC-MA-P03 4. ECA-MP-P09 5. ECA-MC-P16 6. ECA-MC-P19 7. ECA-MC-P34 Documentos requeridos para OEC y Equipo Evaluador 1. ECA-MP 2. ECA-MC-P13 y sus instructivos 3. ECA-MC-P18 4. Procesos de transición a la norma o guía según el área de acreditación (cuando aplique). Formularios para Equipo Evaluador 1. ECA-MC-P01-F01 2. ECA-MC-P13-F01 3. ECA-MC-P13-F02 4. ECA-MC-P13-F09 5. ECA-MC-P13-F10 6. ECA-MC-P21-F12 7. ECA-MC-P21-F14 8. Google Forms de Valoración del desempeño a integrantes del equipo evaluador 9. Solicitud de acreditación, según el área de acreditación. (en los casos de procesos iniciales o ampliaciones de alcance) 10. ECA-MP-P04-F27 |
+Organismos de Inspección | Documentos requeridos |
+Modificado por: | Revisado por: | Aprobado por: |
+Secretario Secretaría de Acreditación de Laboratorios | Profesional Secretaría de Acreditación de Laboratorios | Gerente |
+| | | |
+| 1. Norma INTE-ISO/IEC 17020 en versión vigente. 2. ECA-MC-C01 3. ECA-MC-C09 4. ECA-MC-C12 5. ECA-MC-C19 6. ECA-MC-C20 7. ECA-MC-C24 Formularios Equipo Evaluador 1. ECA-MC-C20-F01 2. ECA-MC-C20-F02 3. ECA-MC-C20-F03 4. ECA-MC-P13-F06 5. ECA-MC-P13-F22 6. ECA-MC-P13-F25
+Organismos de certificación en general | Documentos requeridos 1. ECA-MC-P11 2. ECA-MC-P11-F02 3. ECA-MC-C04 4. ECA-MC-C04-F01 5. ECA-MC-C16
+OCSG en general | Documentos requeridos 1. Norma INTE-ISO/IEC 17021-1. 2. ECA-MC-P11-I01 3. ECA-MC-C05 Formularios Equipo Evaluador 1. ECA-MC-P11-F01 2. ECA-MC-P13-F32 3. ECA-MC-P13-F33 4. ECA-MC-C05-F01 5. ECA-MC-P13-F35
+Solo esquema OCSG Calidad | Documentos requeridos 1. Norma ISO/IEC 17021-3 2. INTE-ISO/IEC 9001 en su versión vigente. 3. ECA-MC-C05
+Esquema OCSG Ambiental | Documentos requeridos 1. Norma INTE-ISO/IEC 17021-2 (para ambiente). 2. INTE-ISO/IEC 14001 en su versión vigente.
+Esquema de OCSG Igualdad de Género | Documentos requeridos 1. ECA-MC-C17 2. INTE G38-1:2021: Promoción para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 1. Parte 1;
+| 3. INTE G38-2:2021: Acciones afirmativas para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 2. Parte 2; 4. INTE G38-3:2021: Sistema de gestión para la igualdad de género en el ámbito laboral. Requisitos para el Nivel 3. Parte 3 5. Esquema para la certificación en igualdad de género en el ámbito laboral
+Esquema OCSG de la seguridad y salud en el trabajo | Documentos requeridos 1. INTE-ISO 45001:2018. 2. ECA-MC-C22
+Esquema OCGS Seguridad y resilencia. | Documentos requeridos 1. INTE-ISO 28000 en su versión vigente. 2. ECA-MC-C05 3. ISO 28003 en su versión vigente.
+Solo esquema OCSG Sistemas de Gestión de la Energía | Documentos requeridos 1. INTE ISO 50001 en su versión vigente. 2. INTE ISO 50003 en su versión vigente. 3. ECA-MC-P13-F55 4. ECA-MC-C05
+Sistema de Gestión Antisoborno | Documentos requeridos 1. Norma INTE/ISO 37001 en su versión vigente 2. norma INTE/ISO 17021-9 en su versión vigente 3. ECA-MC-C05
+Sistemas de gestión de Seguridad de la Información | Documentos requeridos: 1. INTE/ISO/IEC 27001 en su versión vigente 2. ISO IEC 27006 en su versión vigente 3. ECA-MC-C05 4. ISO/IEC 27006-1:2024
+Alcance Flexible Sistemas de gestión | Documentos requeridos 1- ECA-MC-P25 Formularios 1. ECA-MC-P25-F01
+OCP en general | Documentos requeridos 1. Norma INTE-ISO/IEC 17065 en su versión vigente. 2. Norma INTE-ISO/IEC 17030 en su versión vigente. 3. Norma INTE-ISO/IEC 17067 en su versión vigente. 4. ECA-MC-P18 5. ECA-MC-C01 6. ECA-MC-C19 Formulario Equipo Evaluador 1. ECA-MC-P11-F03 2. ECA-MC-P13-F16 3. ECA-MC-P13-F19
+Esquema de certificación de productos Halal | Documentos requeridos 1. Norma UAE.S 2055-1 Productos Halal - Parte 1 - Requisitos generales para alimentos Halal, versión vigente. 2. Norma UAE.S 2055-2 Productos Halal - Parte 2 - Requisitos generales para Organismos de Certificación Halal, versión vigente. 3. ECA-MC-C25 4. UAE.S 993 Requisitos para el sacrificio de animales según la ley islámica. 5. UAE.S GSO 713 Regulaciones de higiene para el proceso de matanza de aves y el personal relacionado 6. UAE.S GSO 9 Etiquetado de productos alimenticios pre-empacados Formularios específicos: 1. ECA-MC-P13-F59 Informe Evaluación y remota OCP HALAL V01 (Versión Español) 2. ECA-MC-P13-F59 Informe Evaluacion y remota OCP HALAL V01 - (Versión Inglés) 3. ECA-MC-P13-F60 Nota digitales para EXPERTOS TÉCNICO HALAL (English version) 4. 045 ECA-MC-P13-F60 Nota digitales para EXPERTOS TÉCNICO HALAL (Versión español)
+OCH | Documentos requeridos 1. Norma INTE-ISO/IEC 17024. Formularios Equipo Evaluador 1. ECA-MC-P11-F11 2. ECA-MC-P13-F17 3. ECA-MC-P13-F20
+Laboratorios de ensayo y calibración | Documentos requeridos 1. Norma INTE-ISO/IEC 17025 en su versión vigente. 2. ECA-MC-C20 3. ECA-MC-C19 4. ECA-MC-C18 5. ECA-MC-C09 (en caso de que aplique) 6. ECA-MC-C16 Formularios Equipo Evaluador 1. ECA-MC-P13-F03 2. ECA-MC-P13-F51 3. ECA-MC-P13-F05 4. ECA-MC-P13-F62
+Proveedores de ensayos de aptitud | Documentos requeridos 1. Norma INTE-ISO/IEC 17043 en su versión vigente. 2. Norma INTE-ISO 13528 en su versión vigente. 3. Normas INTE-ISO/IEC 17025 e INTE-ISO 15189 en su versión vigente, según aplique.
+| 4. Norma INTE-ISO/IEC 17034 en su versión vigente, si aplica. 5. ECA-MC-C15 6. ECA-MC-C20 7. ECA-MC-C19 7. ECA-MC-C09 (en caso de que aplique) 8. ECA-MC-C16, en lo que corresponda Formularios Equipo Evaluador 1. ECA-MC-P13-F41 2. ECA-MC-P13-F42 3. ECA-MC-P13-F43 4. ECA-MC-P13-F64
+Laboratorios Clínicos | Documentos requeridos 1. Norma INTE-ISO 15189 en su versión vigente. 2. ECA-MC-C20 3. ECA-MC-C19 4. ECA-MC-C18 5. ECA-MC-C09 (en caso de que aplique) 6. ECA-MC-C16, 7. ECA-MC-C21 Formularios Equipo Evaluador 1. ECA-MC-P13-F23 2. ECA-MC-P13-F26 3. ECA-MC-P13-F59 4. ECA-MC-P13-F60
+Organismos Validadores Verificadores de gases de efecto invernadero | Documentos requeridos 1. Norma INTE/ISO 14065 en su versión vigente. 2. Norma INTE/ISO 14066 en su versión vigente. 3. Norma INTE/ISO 14064-1 en su versión vigente. 4. Norma INTE B5 en su versión vigente. 5. Norma INTE/ISO 14064-2 en su versión vigente. 6. Norma INTE/ISO 14064-3 en su versión vigente. 7. Norma INTE/ISO 17029 en su versión vigente (Cuando aplique). 8. ECA-MC-C10 9. Programa País Carbono Neutralidad: Categoría Organizacional. Versión 2.0. 10. ECA-MC-C10-F01 Formularios Equipo Evaluador 1. ECA-MC-P11-F05 2. ECA-MC-P11-F06 3. ECA-MC-P13-F13 4. ECA-MC-P13-F24
+Etiquetado ambiental: Tipo I | Documentos requeridos 1. Norma INTE/ISO 17065 en su versión vigente. 2. Norma INTE/ISO 14020 en su versión vigente. 3. Norma INTE/ISO 14024 (aplica al dueño del programa) 4. Norma INTE B8 en su versión vigente 5. Norma etiquetado tipo I aplicable (ejemplo: Norma de la Alianza Ambiental Américas - AAA, Programa Nacional de Etiquetado Ambiental y Energético de Costa Rica, productos de limpieza, concreto, entre otros)
+Etiquetado ambiental: Tipo III | Documentos requeridos 1. PPCN 2.0 Categoría de producto y Programa Nacional de Etiquetado Ambiental y Energético 2. Norma INTE-ISO/IEC 14067 en su versión vigente 3. Norma ISO 14026 en su versión vigente, cuando aplique 4. Norma INTE/ISO 14040 (ACV) en su versión vigente 5. Norma INTE/ISO 14044 (ACV) en su versión vigente 6. Reglas de categoría de producto (PCR) (que aplique según el producto). 7. Revisión crítica: INTE/ISO 14071 en su versión vigente, cuando aplique 8. Norma PAS 2050, cuando aplique según el programa 9. INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo III. Principios y procedimientos (aplica al dueño del programa)
+Etiquetado ambiental: Huella de agua | Documentos requeridos 1. INTE-ISO 14046: 2014. Gestión Ambiental - huella de agua - Principios, requisitos y directrices. 2. Reglas de categoría de producto (RCPs) según la categoría de producto 3. INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo III. Principios y procedimientos (aplica al dueño del programa) 4. INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas.
+Etiquetado ambiental: Otras huellas | Docu 1. | mentos requeridos Huella de carbono: INTE/ISO 14067 en su versión vigente (a partir de 2018)
+| 2. | INTE-ISO 14040: 2007. Gestión Ambiental - Análisis de Ciclo de Vida - Principio y marco de referencia
+| 3. | INTE-ISO 14044:2007/Emn 1:2018. Gestión Ambiental. Análisis de Ciclo de Vida. Requisitos y directrices.
+| 4. | Reglas de categoría de producto (RCPs) según la categoría de producto
+| 5. | INTE/ISO 14025:2007 Etiquetas y declaraciones ambientales. Declaraciones tipo III. Principios y procedimientos (aplica al dueño del programa).
+| 5. | INTE/ISO 14026:2018 Etiquetas y declaraciones ambientales. Principios, requisitos y directrices para la comunicación de información sobre huellas
+|
+Evaluaciones integradas | Documentos requeridos 1. Normas aplicables según esquema. 2. Criterios de evaluación aplicables según esquema 3. ECA-MC-P13-I05 Formularios Equipo Evaluador 1. ECA-MC-P13-F27 2. ECA-MC-P13-F29 3. ECA-MC-P13-F34 4. ECA-MC-P13-F61
+4. TRANSITORIO
+No aplica.
+5. IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Actualización de documento
+Referirse a la solicitud de gestión de documento consecutivo: | 2025-013
+Observaciones: Se actualizan documentos que aplican a laboratorios clínicos y a proveedores de ensayos de aptitud por cambio versión de normas ISO aplicables
+| |
