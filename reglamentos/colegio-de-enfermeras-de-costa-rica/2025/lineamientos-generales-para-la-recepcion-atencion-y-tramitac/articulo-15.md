@@ -1,0 +1,1 @@
+Artículo 15.-Resultado de la investigación preliminar: La Fiscalía notificará a la parte denunciante sobre los resultados de la investigación preliminar, indicando los motivos del archivo, traslado a otras instancias como el Ministerio Público, Auditorías, Colegios Profesionales o al Tribunal de Ética y Moral Profesional. Lo anterior se hará mediante resolución motivada.

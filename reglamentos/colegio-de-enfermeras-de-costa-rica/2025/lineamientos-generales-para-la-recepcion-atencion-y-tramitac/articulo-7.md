@@ -1,0 +1,2 @@
+Artículo 7º-Prevención de represalias laborales: La persona que presente denuncias por presuntos actos de corrupción y que labore para la Corporación, no sufrirá menoscabo en su situación laboral, a consecuencia de la denuncia presentada.
+La Fiscalía tomará las medidas pertinentes para prevenir todas las formas de represalia laboral y acciones discriminatorias contra la persona denunciante, inclusive de los testigos de actos de corrupción, incluidas las amenazas de represalias.

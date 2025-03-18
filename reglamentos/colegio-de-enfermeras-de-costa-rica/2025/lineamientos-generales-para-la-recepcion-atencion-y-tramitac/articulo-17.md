@@ -1,0 +1,3 @@
+Artículo 17.-Seguimiento de denuncias ante el Tribunal de Ética y Moral Profesional. La Fiscalía en el ejercicio de sus funciones, dará seguimiento continuo al estado de las denuncias tramitadas y trasladas al Tribunal de Ética y Moral Profesional, con el propósito de verificar y conocer del curso efectivo de la denuncia planteada ante la Corporación, así como la recomendación emanada por el órgano auxiliar.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Aprobado en Sesión de Junta Directiva del Colegio de Enfermeras de Costa Rica, el día 04 de marzo del 2025, según acuerdo N° 10, Acta N° 2755, San José, Costa Rica.

@@ -1,0 +1,6 @@
+COLEGIO DE ENFERMERAS DE COSTA RICA
+Considerando
+1. Que es facultad de la Junta Directiva conforme a lo establecido en el ordinal 39 inciso n) del Reglamento Decreto Ejecutivo N° 37286-S, la toma de acuerdos necesarios para que la Corporación cumpla con sus objetivos y fines esenciales.
+2. Que los ordinales 46 y 47 del Reglamento Decreto Ejecutivo N° 37286-S, obligan a la Fiscalía del Colegio de Enfermeras velar por el estricto cumplimiento de las normas legales y reglamentarias, acuerdos y disposiciones en firme tomadas por la Asamblea General, la Junta Directiva y los Tribunales de la Corporación.
+3. Que para asegurar el proceso de recepción e investigación de las denuncias ético disciplinarias seguidas contra las (os) colegiadas (os) y auxiliares de enfermería se establecen las funciones y deberes de la Fiscalía, órgano encargado de la tramitación de las denuncias, pudiendo inclusive iniciarles de oficio.
+Artículo 1º-Objetivo General. Establecer los lineamientos generales para la recepción, atención y tramitación de denuncias presentadas por el público en general contra profesionales en enfermería y auxiliares de enfermería por posibles infracciones ético-disciplinarias o por ejercicio ilegal de la profesión, de acuerdo con el ordenamiento jurídico aplicable.

@@ -1,0 +1,1 @@
+Artículo 16.-Plazo de la Investigación Preliminar: La Fiscalía fomentará el uso de medios digitales para agilizar sus actuaciones. La o el Fiscal Asistente delegado en conjunto con la asesoría legal, tendrán un plazo de 30 días hábiles para la entrega del resultado de la investigación preliminar al Fiscal a cargo del órgano.

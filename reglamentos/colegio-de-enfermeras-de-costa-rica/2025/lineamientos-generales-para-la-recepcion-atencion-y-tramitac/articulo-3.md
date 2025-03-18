@@ -1,0 +1,1 @@
+Artículo 3º-Recepción y tramitación de denuncias. La recepción y tramitación de denuncias se realizará conforme a los principios de confidencialidad, simplicidad, economía, eficacia, eficiencia y razonabilidad, garantizando un proceso ágil y orientado a resultados.
