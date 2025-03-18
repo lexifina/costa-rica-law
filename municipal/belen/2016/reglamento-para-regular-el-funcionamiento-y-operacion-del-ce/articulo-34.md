@@ -1,1 +1,0 @@
-Artículo 34º —En casos de ausencia, es obligación del trabajador, hacer la comunicación vía telefónica de su condición y presentar dentro de los tres días siguientes a su reincorporación laboral, la justificación en la Coordinación del Centro.

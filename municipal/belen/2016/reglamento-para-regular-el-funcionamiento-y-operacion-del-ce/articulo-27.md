@@ -1,3 +1,0 @@
-CAPÍTULO VI
-DEL PERSONAL TÉCNICO Y DE SERVICIO
-Artículo 27º —El personal con que se cuente para la prestación del servicio será por la vía del proceso licitatorio, conforme con la normativa contemplada en la Ley de Contratación Administrativa y su Reglamento, y de ser posible por la vía de excepción de conformidad con el artículo 2 de la Ley en mención y pedir autorización para iniciar la operación a partir dela modalidad de Contratación Directa Concursada. El mencionado personal deberá llevar a cabo las tareas y funciones concernientes a su cargo con responsabilidad, de acuerdo al principio del interés superior del niño de acuerdo y observando las directrices de la Coordinación Técnica del Centro.
