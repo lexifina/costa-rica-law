@@ -1,0 +1,1 @@
+Artículo 3º-Suspensión temporal. Se procederá con la debida suspensión temporal si el colegiado(a) acumularé dos o más colegiaturas pendientes de pago o su equivalente, así como en caso de mantener la licencia vencida, o ambos escenarios según corresponda. De igual modo, se procederá con la suspensión temporal del auxiliar de enfermería, que mantenga la licencia vencida.

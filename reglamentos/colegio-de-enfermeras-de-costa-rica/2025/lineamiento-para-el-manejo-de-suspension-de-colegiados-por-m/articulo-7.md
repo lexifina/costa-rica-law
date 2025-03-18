@@ -1,0 +1,1 @@
+Artículo 7º-Aprobación del acto de suspensión. La Junta Directiva será la responsable de tomar el acuerdo de suspensión, el cual deberá ser trasladado a los departamentos de Dirección Administrativa, Financiero-Contable, Tecnologías de la Información, Unidad de Cobros y Fiscalía del CECR para su debida ejecución y seguimiento.

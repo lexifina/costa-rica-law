@@ -1,0 +1,1 @@
+Artículo 8º-Contenido del acuerdo de suspensión. El acuerdo de Junta Directiva deberá incluir, como parte de su contenido, el otorgamiento del plazo de gracia de tres días hábiles indicado en el artículo 2 de este Lineamiento.

@@ -1,0 +1,8 @@
+Artículo 2º-Definición de conceptos. Para la debida aplicación de las disposiciones contenidas en este lineamiento, se deberá entender:
+Auxiliar de Enfermería: persona que tiene una titulación técnica en cuidados de enfermería y ejecuta labores de enfermería bajo la instrucción y supervisión constante de la persona profesional de enfermería.
+Colegiada(o): profesional de enfermería que se encuentra incorporada(o) y activa(o) al Colegio de Enfermeras de Costa Rica.
+Inhabilitación: Pérdida de la habilitación legal para el ejercicio profesional de la Enfermería, o para las labores técnicas del auxiliar de Enfermería, según sea el caso.
+Morosidad: Condición en la que se encuentra una persona colegiada que no ha cumplido con el pago de dos o más colegiaturas, o sus equivalentes, según lo estipulado por el Colegio.
+Plazo de gracia: Período improrrogable de tres días hábiles, contados a partir del día hábil siguiente a la notificación del acto de suspensión emitido por la Junta Directiva del Colegio de Enfermeras de Costa Rica.
+Suspensión por licencia vencida: Acto administrativo por el cual la Junta Directiva del Colegio de Enfermeras de Costa Rica suspende temporalmente a una persona colegiada del ejercicio profesional y al auxiliar de enfermería, por falta de renovación de la licencia, según corresponda.
+Suspensión por morosidad: Acto administrativo por el cual la Junta Directiva del Colegio de Enfermeras de Costa Rica, suspende temporalmente a una persona colegiada del ejercicio profesional, cuando esta se encuentra en condición de morosidad, por tener dos o más colegiaturas vencidas.

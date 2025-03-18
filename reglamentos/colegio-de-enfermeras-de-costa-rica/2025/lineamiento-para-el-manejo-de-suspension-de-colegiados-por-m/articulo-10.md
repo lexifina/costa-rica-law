@@ -1,0 +1,1 @@
+Artículo 10.-Comunicación al departamento financiero contable. La Dirección Administrativa deberá remitir, al Departamento Financiero-Contable, la lista de colegiados y auxiliares que fueron notificados del acto de suspensión. En dicho comunicado, se indicará la fecha en la que los interesados(as) fueron notificados, así como el vencimiento del período de gracia.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Publicación de la lista de suspendidos
+Artículo 16.—Publicación de lista de Profesionales Suspendidos. Una vez cumplido el período de gracia y por haber adquirido firmeza el acuerdo de suspensión de la Junta Directiva, el Departamento Financiero-Contable remitirá la lista consolidada de los colegiados y auxiliares suspendidos a la Dirección Administrativa, quien deberá gestionar al día hábil siguiente la correspondiente publicación en los medios digitales de la Corporación, y remitirá el aviso de publicación que contendrá el enlace de consulta de la lista de suspendidos en el Diario Oficial La Gaceta.

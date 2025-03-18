@@ -1,0 +1,1 @@
+Artículo 13.-Plazo para resolver el recurso. Una vez presentado el recurso de revocatoria, la Junta Directiva dispondrá de un plazo de quince días hábiles para emitir la resolución final. Lo resuelto por la Junta Directiva agotará la vía administrativa.
