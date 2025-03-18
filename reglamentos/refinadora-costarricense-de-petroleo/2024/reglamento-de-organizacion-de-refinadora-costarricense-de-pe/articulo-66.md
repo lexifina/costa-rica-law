@@ -1,3 +1,0 @@
-Artículo 66°- Transitorio para la implementación de este reglamento. El Gerente(a) General será responsable del proceso de implementación ordenada de este Reglamento y que el mismo sea contemplado para la formulación presupuestaria del periodo 2025.
-Todas las dependencias continuarán realizando las funciones que han venido desempeñando hasta que se complete el proceso de implementación.
-Para el periodo presupuestario 2024 se deberán contemplar las correspondientes modificaciones presupuestarias para dotar a cada dependencia de la organización de los fondos suficientes para el inicio de operaciones durante ese año.
