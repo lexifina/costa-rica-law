@@ -1,0 +1,3 @@
+Artículo (4)
+1. Las personas nacionales de ambas partes que tienen los pasaportes referidos en el Artículo (1) de este Acuerdo, excepto los referidos en el Artículo (3) de este Acuerdo, deben aplicar para una visa de residencia que cubra un período mayor al especificado en el Artículo (2) de este Acuerdo en el territorio del Estado de la otra parte, según los procedimientos establecidos en ambos países.
+2. Cualquier nacional de ambas partes que posean los pasaportes referidos en el Artículo (1) de este Acuerdo y que deseen ingresar o quedarse en el territorio de la otra parte con fines laborales o de estudio. deberá cumplir con la reglamentación de concesiones expedidas por las autoridades competentes de la otra parte.

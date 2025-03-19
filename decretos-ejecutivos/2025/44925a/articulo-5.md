@@ -1,0 +1,2 @@
+Artículo (5)
+Las personas nacionales de ambas partes que poseen los pasaportes referidos en el Artículo (1) de este Acuerdo deberán, en caso de pérdida, daño o robo de su pasaporte, informar a las autoridades competentes de la otra parte y la misión diplomática acreditada deberá asegurar un pasaporte temporal o un documento de viaje para su regreso al territorio de la otra parte, según la legislación interna de cada parte.
