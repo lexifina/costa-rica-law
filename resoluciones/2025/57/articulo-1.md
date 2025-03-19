@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+(Nota de Sinalevi: Mediante resolución N° D.JUR-0102-03-2025-JM y publicada en el Alcance Digital N° 39 a La Gaceta N° 53 del 19 de marzo del 2025, se acordó prorrogar la presente norma, para lograr la repatriación de las personas extranjeras deportadas de los Estados Unidos de América)
 RESOLUCIÓN D.JUR-0057-02-2025-JM
 DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA. San José, a la hora y fecha que indica el certificado de firma digital. Se autoriza ingreso excepcional, permanencia transitoria y documentación de personas extranjeras deportadas de los Estados Unidos de América.
 RESULTANDO:
@@ -37,4 +38,3 @@ D. CONDICIONES: El otorgamiento del permiso que regula la presente resolución q
 Además, en caso de encontrarse a la persona laborando también podrá multarse al patrono, conforme a los artículos 174 y siguientes de Ley 8764.
 SEGUNDO: Rige a partir de su publicación en el Diario Oficial La Gaceta.
 Publíquese.
-<span style='font-family:"Arial",sans-serif;mso-ansi-language: </body>
