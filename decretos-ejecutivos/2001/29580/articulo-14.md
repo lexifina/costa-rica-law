@@ -1,1 +1,0 @@
-Artículo 14.—De la Póliza de Seguros: Para efectos del inciso b) del artículo 15 de la Ley, se establece un monto no menor de ¢500.000.00 para cada niño, por concepto de póliza de seguros que cubra eventuales accidentes o daños que sufran las personas menores de edad, durante su traslado al centro o permanencia en él. Esta póliza debe ser ajustada cada dos años.

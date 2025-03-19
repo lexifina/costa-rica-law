@@ -1,1 +1,0 @@
-Artículo 9°.- Del financiamiento de los programas y proyectos: Todas las instituciones y organizaciones, dentro de su ámbito de competencia y de acuerdo con sus posibilidades podrán aportar recursos humanos y económicos para el desarrollo de los fines y funciones del Consejo y de la Secretaría Ejecutiva.

@@ -1,1 +1,0 @@
-Artículo 5º—De las sesiones ordinarias, extraordinarias y el quórum: El Consejo se atiene a lo dispuesto en la Ley de Centros de Atención Integral y al Título Segundo del Capítulo Tercero de la Ley General de la Administración Pública en relación con los órganos colegiados.
