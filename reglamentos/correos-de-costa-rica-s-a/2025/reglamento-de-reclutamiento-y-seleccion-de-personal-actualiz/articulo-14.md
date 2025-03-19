@@ -1,0 +1,5 @@
+CAPITULO V: Excepciones y Restricciones generales
+Artículo 14. Se exceptúa de la aplicación de este Reglamento a:
+a)La contratación del personal bajo el régimen laboral público tal es el caso de los puestos del Gerente General y el Sub-Gerente General, cuyo nombramiento se realizará de conformidad con lo establecido en la Ley de Correos y su Reglamento;
+b)El Auditor Interno y el Sub Auditor Interno, cuya elección y nombramiento serán de acuerdo con la Ley de Control Interno, los lineamientos y disposiciones de la Contraloría General de la República y el Reglamento de Organización y Funciones de la Auditoría Interna.
+c)Los Gerentes de área, secretaria de Gerencia, los Asesores o Asistentes de Gerencia General, cuya competencia de contratación recae sobre el Gerente General, para estos puestos se verificará el cumplimiento de requisitos establecidos en el Manual Descriptivo de Clasificación de Puestos vigente en la Empresa; se gestionará las entrevistas técnicas y por competencias, se aplicarán las pruebas psicométricas y demás que se consideren necesarias, para garantizar la idoneidad del candidato.
