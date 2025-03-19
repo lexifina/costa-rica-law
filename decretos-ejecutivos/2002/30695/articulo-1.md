@@ -3,11 +3,11 @@ EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 1, 2 y 13 de la Ley N° 5395 de 30 de octubre de 1973, "Ley General de Salud"; 2 inciso ch) de la Ley N° 5412 de 8 de noviembre de 1973, "Ley Orgánica del Ministerio de Salud",
 Considerando:
-1º—Que la Ley General de Salud contempla que la salud de la población, es un bien de interés público tutelado por el Estado.
-2º—Que mediante Decreto Ejecutivo N° 29898-S de 1 de octubre del 2001 publicado en la Gaceta N° 207 de 29 de octubre del 2001, se oficializó la Norma para la Habilitación de Hogares Comunitarios.
-3º—Que se ha considerado pertinente y oportuno adecuar esa normativa a la legislación vigente. Por tanto,
+1º-Que la Ley General de Salud contempla que la salud de la población, es un bien de interés público tutelado por el Estado.
+2º-Que mediante Decreto Ejecutivo N° 29898-S de 1 de octubre del 2001 publicado en la Gaceta N° 207 de 29 de octubre del 2001, se oficializó la Norma para la Habilitación de Hogares Comunitarios.
+3º-Que se ha considerado pertinente y oportuno adecuar esa normativa a la legislación vigente. Por tanto,
 Decretan:
-Artículo 1º—Oficialícese para efectos de aplicación obligatoria "La Norma para la Habilitación de Hogares Comunitarios.
+Artículo 1º-Oficialícese para efectos de aplicación obligatoria "La Norma para la Habilitación de Hogares Comunitarios.
 0 Introducción.
 La necesidad de mejorar la calidad de atención en los servicios de salud y afines y la redefinición de las funciones del Ministerio de Salud como ente rector del Sector de Salud, y las funciones del Consejo de Atención Integral, órgano adscrito al Ministerio de Salud, han generado acciones para normalizar las condiciones de operación de los establecimientos que actúan o prestan servicios, directa o indirectamente, en materias ligadas con la salud y el bienestar de las personas. Es así que se establece la Norma para la Habilitación Hogares Comunitarios.
 Los requisitos establecidos en esta norma se basan en lo dispuesto en la Ley General de Salud, el Reglamento General para la Habilitación de Establecimientos de Salud y Afines, emitido mediante Decreto Ejecutivo Nº 30571-S del 25 de junio del 2002, Ley General de Centros de Atención Integral y su Reglamento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad y su Reglamento y otras disposiciones legales y reglamentarias que resultan vinculantes con la materia.
@@ -51,7 +51,7 @@ d. Gestión
 4.1.1.3.4 Nombre de persona que supervisa
 4.1.1.3.5 Certificado médico donde se establezca que la madre comunitaria tiene condiciones físicas y de salud que la hacen apta para el cuidado de hasta diez niños/niñas menores de siete años
 4.1.1.3.6 Nota del IMAS en donde se hace constar que ya se realizó el estudio socioeconómico
-4.1.1.3.7 Certificado de Habilitación (Consejo de Atención Integral – Ministerio de Salud).
+4.1.1.3.7 Certificado de Habilitación (Consejo de Atención Integral - Ministerio de Salud).
 4.1.1.4 El hogar comunitario debe tener un expediente personal de cada niño y niña que contenga al menos la siguiente información.
 4.1.1.4.1 Fotografía
 4.1.1.4.2 Ficha de identificación
@@ -61,13 +61,13 @@ d. Gestión
 4.2 Estructura Física.
 4.2.1 Planta Física.
 4.2.1.1 El acceso a la vivienda debe estar libre de barreras arquitectónicas o naturales (huecos, charcos, etc.) que pongan en riego la seguridad de los niños y las niñas)
-4.2.1.2 El hogar comunitario debe estar ubicado a más de cien metros de focos de contaminación (sonora, biológica, olfativa, química, física o de orden artificial), de ríos, riachuelos y zonas propensas a inundación o deslizamientos.
+4.2.1.2 (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.2.1.3 Los pisos, paredes y cielo rasos deben de ser lisos, no porosos, de fácil limpieza, estar en buen estado de conservación y sin evidencia de falla estructural.
 4.2.1.4 Las ventanas deben estar en perfecto estado de funcionamiento y conservación.
 4.2.1.5 De acuerdo a las características de la zona, los hogares comunitarios deben contar con dispositivos de protección (contrapuertas de cedazo, mosquiteros, etc.) que impidan el acceso de fauna nociva (roedores, insectos u otros).
 4.2.1.6 El mobiliario y el equipo que por su diseño es propenso a caída o volcamiento por accidente o sismos, deben estar debidamente fijados a soportes.
 4.2.1.7 Todas las cunetas, caños, y drenajes expuestos que interfieran con la circulación de los usuarios deben estar cubiertos con parrillas metálicas con un diseño antiderrapante y con separaciones entre rejillas no mayores a los tres centímetros en ambas direcciones.
-4.2.1.8 El hogar comunitario debe contar con un interruptor eléctrico general y una adecuada conexión a tierra, así como un tablero de distribución eléctrica con interruptores según el Código Eléctrico de Costa Rica.
+4.2.1.8. (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.2.1.9 Todas las salidas de tomacorrientes deben tener un dispositivo de protección especial contra accidentes.
 4.2.1.10 Los apagadores deberán estar a una altura entre ochenta cm y ciento veinte cm.
 4.2.1.11 Todas las cerraduras de puertas y ventanas deben estar en perfecto estado.
@@ -86,10 +86,10 @@ d. Gestión
 4.3 Seguridad e higiene.
 4.3.1 Planta Física.
 4.3.1.1 La puerta principal de la vivienda debe estar libre de obstáculos y barreras arquitectónicas, debe tener al menos noventa cm de ancho.
-4.3.1.2 El hogar comunitario debe contar con llaves de cierre rápido para la tubería del gas, a una distancia al menos de un metro de los quemadores. Los cilindros deberán estar fuera de la casa.
+4.3.1.2 (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.3.2 Recurso Material.
 4.3.2.1 El hogar comunitario debe contar al menos con un detector de humo y un extintor de incendios portátil.
-4.3.3 Gestión.
+4.3.3 (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.3.3.1 El hogar comunitario debe mantener almacenadas las sustancias inflamables y otros productos químicos, en un lugar totalmente inaccesible a los niños, mantenerse ventilado, seguro y sin riesgo evidente para la seguridad de l@s usuari@s y el inmueble.
 4.4 Atención en Salud.
 4.4.1 Planta física.
@@ -106,13 +106,7 @@ f. Guantes desechables de látex
 g. Gasa
 h. Curitas
 i. Jabón antiséptico
-4.4.2.1.2 Medicamentos.
-a. Acetaminofén pediátrico
-b. Alcohol
-c. Sulfadiazina de plata (quemaduras)
-d. Loción de calamina
-e. Suero oral (sobres)
-f. Crema de óxido de zinc
+4.4.2.1.2 (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.4.3 Documentación.
 4.4.3.1 El hogar comunitario debe tener un plan de emergencias acorde con las características de la vivienda. Este plan debe contemplar al menos los siguientes aspectos.
 4.4.3.1.1 Evacuación
@@ -186,42 +180,4 @@ b. Basureros con tapa
 4.7.1.2.1 La Ley Contra La Violencia Doméstica Nº 7586,
 4.7.1.2.2 La Declaración de los Derechos Niños y las Niñas
 4.7.1.2.3 El Código de la Niñez y la Adolescencia.
-5. ANEXOS:
-ANEXO A
-Requisitos para solicitar la habilitación
-(Este anexo forma parte integrante de la norma)
-Para solicitar la habilitación de un Hogar comunitario, la persona interesada debe presentar la documentación preferentemente al Área de Salud, a la cual pertenezca el establecimiento, según su ubicación geográfica o a la Dirección de Servicios de Salud del Ministerio de Salud . Los siguientes documentos deben estar debidamente llenos, completos y confrontados con los originales:
-1. Formulario de habilitación de establecimientos de salud y afines, debidamente lleno con dos copias.
-Este formulario se retira en el Área de Salud del Ministerio Salud.
-2. Fotocopia de Cédula de Identidad, ambos lados, de la persona responsable del establecimiento.
-ANEXO B:
-Requisitos de información y documentación
-al realizar la evaluación del establecimiento
-(Este anexo forma parte integrante de la norma)
-I. Identificación del establecimiento.
-1. Nombre
-2. Código
-II. Ubicación.
-1. Región
-2. Área de Salud
-3. Provincia
-4. Cantón
-5. Distrito
-6. Dirección
-7. Dirección postal
-8. Teléfono
-III. Información sobre la persona responsable del hogar.
-1. Nombre
-2. Cédula
-IV. Documentación.
-1. Documento escrito para la comunicación y reporte a la familia e instituciones pertinentes respecto a la atención de las niñas y los niños.
-2. Guía escrita para la recepción de sugerencias y quejas por parte de los usuarios, familia y comunidad .
-3. Un expediente administrativo que contenga información de la madre comunitaria.
-4. Nota del IMAS en donde se hace constar que ya se realizó el estudio socioeconómico.
-5. Un expediente personal de cada niño y niña.
-6. Un plan de emergencias acorde con las características de la vivienda.
-7. Un directorio telefónico con los números de emergencia.
-8. Documentos que orienten las actividades cotidianas y las experiencias de juego que se desarrollen con l@s niñ@s avalado en el marco del convenio Ministerio de Educación Pública (MEP) y el Instituto Mixto de Ayuda social ( IMAS).
-9. Un certificado de capacitación otorgado por el IMAS para ser madres comunitarias.
-10. Un ciclo de menúes al menos para quince días.
-11. Una guía escrita para la denuncia y referencia de posibles situaciones de violencia.
+5. ANEXOS: (Derogado por el artículo 26 inciso c) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).

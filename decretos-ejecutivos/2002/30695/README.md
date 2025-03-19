@@ -14,3 +14,4 @@ Normas para la Habilitación de Hogares Comunitarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-23 | la propia norma |
+| 2 | 2025-03-19 | Decreto Ejecutivo 45004 (2025-03-19) |
