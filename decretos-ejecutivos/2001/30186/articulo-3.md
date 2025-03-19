@@ -1,4 +1,4 @@
-Artículo 3º—Rige a partir de su publicación.
+Artículo 3º-Rige a partir de su publicación.
 Norma para la Habilitación de Centros de Atención Integral
 0. Introducción
 Dada la creación del Consejo de Atención Integral (Ley General de Centros de Atención Integral Nº 8017) y en vista de que una de sus funciones es otorgar a los establecimientos interesados el permiso de funcionamiento o habilitación, es que se emite el documento Normas para la Habilitación de Centros de Atención Integral que atienden personas hasta de 12 años de edad.
@@ -40,15 +40,15 @@ Algunos requisitos solo aplican para las alternativas de atención temporal noct
 4.1.1.1 El centro debe disponer, por escrito, de un plan general de atención a las niñas y los niños, que incluya la metodología de trabajo de acuerdo con las áreas de atención y el proceso de evaluación de los resultados obtenidos.
 4.1.2 Gestión
 4.1.2.1 El centro debe disponer por escrito con la visión, misión, objetivos, población meta y asignación de personal según las funciones que desempeña.
-4.1.2.2 El centro debe tener la autorización de funcionamiento del Patronato Nacional de la Infancia, según la Ley Orgánica PANI, Nº 7648 de Creación del PANI, para la alternativa de residencia transitoria, asociaciones y fundaciones.
-4.1.2.3 Los establecimientos que atiendan usuarios con problemas de farmacodependencia, deben tener el aval técnico del Instituto sobre Alcoholismo y Farmacodependencia, Ley Nº 7035 de Creación del Instituto sobre Alcoholismo y Farmacodependencia.
+4.1.2.2. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
+4.1.2.3. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.2 Recurso Humano
 4.2.1 Personal profesional
 4.2.1.1 El centro debe contar con una persona adulta encargada y responsable directa del funcionamiento del mismo. Es recomendable que sea un profesional. En caso de que el encargado no tenga formación profesional debe ser supervisado por un profesional con experiencia en atención de niñas y niños y llevar un registro de las mismas.
 4.2.1.2 El centro debe garantizar servicios profesionales en educación, medicina, enfermería, odontología, trabajo social, nutrición, psicología y otros profesionales en salud, de forma que los niños y niñas atendidas, tengan acceso a estos servicios, de acuerdo con la atención que brinde y las necesidades de la población que atiende.
 4.2.2 Personal de atención directa
 4.2.2.1.El personal de atención directa debe haber cursado al menos el Tercer Ciclo de Educación Diversificada, tener experiencia en el campo y un plan de capacitación (realizado o por realizar) el cual debe constar por escrito y debidamente registrado en el centro.
-4.2.2.2. El personal disponible tiene que ser acorde al número de niños y niñas que atiende.
+4.2.2.2. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.2.3 Personal de apoyo
 4.2.3.1 El personal misceláneo debe al menos saber leer y escribir.
 4.2.3.2 En caso de ofrecer servicio de alimentación, debe contar al menos con una cocinera por cada 50 usuarios / as o menos.
@@ -98,7 +98,7 @@ f) Una ducha con agua caliente por cada 4 usuarios, en residencia transitoria
 4.3.1.21 Los apagadores deben estar a una altura máxima de 1,20 metros desde el nivel de piso terminado.
 4.3.1.22 Los servicios sanitarios deben contar con iluminación y ventilación, por medio de ventanas, linternillas o tragaluces abiertos directamente a áreas externas
 4.3.2 Recurso material
-4.3.2.1 El centro de alternativa de atención temporal, debe tener un rótulo que lo identifique, colocado en un lugar visible y cumpliendo con las normas municipales para tal efecto.
+4.3.2.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.3.2.2 Los servicios sanitarios deben disponer de los siguientes accesorios
 a) Una toallero por cada módulo de lavatorios, ubicados a altura entre 75 y 100 cm.
 b) Un dispensador de papel por cada inodoro, ubicado a altura entre 90 y 100 cm.
@@ -107,41 +107,24 @@ d) Un basurero con tapa.
 4.3.2.3 El centro debe tener muebles con aristas redondeadas y diseño que brinde la máxima seguridad a los usuarios.
 4.3.2.4 El tamaño del mobiliario debe ser acorde a las características de los usuarios.
 4.3.3 Gestión
-4.3.3.1 La construcción del edificio donde opere el centro debe tener la aprobación de la Oficina Central de Permisos de Construcción (INVU), cumplir con lo establecido en el Código Sísmico, Código de cimentaciones, Código Eléctrico, Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones, Ley General de Salud y Normativa del Benemérito Cuerpo de Bomberos así como otras regulaciones pertinentes. (esto aplica para los centros que empiecen a funcionar posteriormente a la promulgación de la Ley 8017).
+4.3.3.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
 4.4 Seguridad e Higiene
 4.4.1 Planta física
-4.4.1.1 El centro con capacidad de más de diez usuarios debe tener al menos dos salidas alternas, que cumplan las siguientes características:
-a) Ancho mínimo de 1.20 metros
-b) De apertura hacia afuera a vías públicas o áreas de dispersión
-c) Libres de obstáculos
-d) Señalizadas según la regulación vigente
-e) Puertas pintadas de color verde (Norma Técnica 31-07-01-97 del INS)
-4.4.1.2 En centros con capacidad menor de diez usuarios, la puerta de salida debe cumplir con las siguientes características:
-a) Ancho mínimo de 1.20 metros
-b) De apertura hacia afuera a vías públicas o áreas de dispersión
-c) Libre de obstáculos
-d) Señalizadas según la regulación vigente
-e) Puerta pintada de color rojo
-4.4.1.3 En caso de que el centro utilice LPG (gas propano licuado) para cocinar, los cilindros deberán estar ubicados a una distancia mínima de 3 metros de cualquier abertura del edificio (ventanas, puertas, etc.), o de cualquier fuente de ignición (motores y paneles eléctricos, equipos de aire acondicionado, etc.). Deben estar bajo techo, anclados, con adecuada señalización, y resguardados en una jaula construida con malla metálica.
-4.4.1.4 La tubería de trasiego de gas, desde los cilindros hasta la cocina, debe ser de cobre, bronce, o acero galvanizado (H.G.), y deberá estar protegida contra daños físicos. La tubería debe contar con llaves de cierre rápido a una distancia aproximada de 2 metros de los quemadores y los cilindros. Deben ser de fácil acceso.
+4.4.1.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
+4.4.1.2 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
+4.4.1.3 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
+4.4.1.4 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.4.1.5 El edificio donde opere el centro debe tener ventilación cruzada, mediante adecuadas áreas de ventanería, que permitan un flujo controlado del aire en forma transversal en los espacio y óptimas condiciones sanitarias
 4.4.2 Recurso material
-4.4.2.1. El centro debe contar con los siguientes equipos, materiales y facilidades:
-a) Señalización de áreas peligrosas y de seguridad
-b) Sistemas de detección de incendios
-c) Extintores de incendio
-d) Iluminación autónoma de emergencia (alternativa de atención Residencia Transitoria y Atención Nocturna)
+4.4.2.1. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
 4.4.2.2 El centro debe contar con suministro constante de agua potable.
 4.4.3 Documentación
-4.4.3.1 El centro debe contar con un plan escrito de emergencias acorde con las características del mismo. Este plan debe contemplar, al menos los siguientes aspectos:
-a) Evacuación
-b) Emergencias de salud
-c) Emergencias por otros eventos
+4.4.3.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
 4.4.4 Gestión
-4.4.4.1 El centro debe asegurar el orden, la higiene y limpieza diaria en todas las áreas del establecimiento.
+4.4.4.1. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.5 Promoción del Desarrollo
 4.5.1 Recurso material
-4.5.1.1 Para las actividades de promoción del desarrollo y recreación debe disponer de suficiente material didáctico, recreativo, mobiliario y equipo en buenas con condiciones de acuerdo con la cantidad y edad de los usuarios por atender, sus características y necesidades.
+4.5.1.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.5.1.2 El mobiliario debe cumplir con las siguientes características:
 a) Las mesas deben estar a una altura acorde a la edad y características de la población atendida.
 b) Las sillas deben ser livianas, diseñadas anatómicamente y de alturas variadas según la edad de los niños y las niñas.
@@ -149,7 +132,7 @@ c) Los usuarios deben disponer de espacios o compartimentos individuales para gu
 4.6. Atención en Salud
 4.6.1. Recurso material
 4.6.1.1. El centro debe disponer de una línea telefónica que permita mantener una comunicación eficaz y oportuna.
-4.6.1.2 El centro debe disponer de un mueble con puertas y cerradura con llave en buen estado, para mantener los medicamentos prescritos a los usuarios.
+4.6.1.2. (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
 4.6.1.2 El centro debe contar con un botiquín de primeros auxilios, ubicado fuera del alcance de los niños y las niñas, que contenga al menos los siguientes medicamentos y materiales:
 a) Tijeras
 b) Gasa
@@ -181,7 +164,7 @@ i) Valoración del estado nutricional
 j) Valoración del desarrollo (incluye gráficas peso/edad, talla/edad)
 k) Notas de profesionales
 4.6.3 Gestión
-4.6.3.1 El centro debe tener establecido el cumplimiento de la Ley 7501, "Prohibición del Fumado".
+4.6.3.1 (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025).
 4.6.3.2 El centro debe tener claramente definido y por escrito el procedimiento de acceso y custodia de los expedientes de los niños y las niñas.
 4.7 Nutrición (aplicables en caso de que el centro brinde alimentación a los usuarios)
 4.7.1 Planta física
@@ -221,7 +204,7 @@ i. Pileta para el lavado del equipo de aseo
 ii. Basurero con tapa
 4.7.3 Documentación
 4.7.3.1 El centro debe tener disponible y cumplir con el
-a) Reglamento de Servicios de Alimentación al Público
+a) (Derogado por el artículo 26 inciso b) del Reglamento a la Ley General de Centros de Atención Integral, aprobado mediante decreto ejecutivo N° 45004 del 19 de marzo de 2025)
 b) Manual de Normas para el Manejo de Alimentos y
 c) Ciclo de Menús al menos para 15 días confeccionado por un profesional en nutrición
 4.8 Prevención y atención de la violencia

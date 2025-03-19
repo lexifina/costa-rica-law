@@ -14,3 +14,4 @@ Oficializa Normas para la Habilitación de Centros de Atención Integral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-07 | la propia norma |
+| 2 | 2025-03-19 | Decreto Ejecutivo 45004 (2025-03-19) |
