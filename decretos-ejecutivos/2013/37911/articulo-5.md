@@ -1,11 +1,27 @@
-Artículo 5º-Del procedimiento y vigencia del Registro. El registro de la información declarada se realizará por única vez en la Agencia de Extensión Agropecuaria más cercana a la ubicación de la finca; sin embargo, la vigencia de la condición de pequeño y mediano productor es por un año a partir de la fecha de actualización de la información, para lo cual el interesado debe actualizar la información previo al vencimiento del plazo. Es obligación del productor actualizar todos los cambios que realice en el uso y posesión del inmueble de uso agrícola, así como cambios en las actividades agropecuarias declaradas.
-El registro quedará suspendido en forma automática:
-1- Si no se actualiza la información al finalizar la vigencia.
-2- Si existe duda o contradicción en la información declarada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42314 del 6 de febrero del 2020)
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 43395 del 13 de enero de 2022 , se reformó el numeral 2° del decreto ejecutivo N° 42472 del 13 de julio de 2020, en donde se acordó prorrogar, la fecha de vigencia de los registros del "Sistema de Registro del Ministerio de Agricultura y Ganadería, para certificar la condición de pequeño y mediano productor agropecuario (PYMPA)" que hayan vencido o venzan dentro del período comprendido durante el año 2022, de manera escalonada con base en último dígito de cédula jurídica o documento de identificación (cédula de identidad, DIMEX o NITE).
-El vencimiento del registro actual será de acuerdo a la renovación propuesta y el orden de atención en las Agencias de Extensión Agropecuaria del MAG, con base en la siguiente tabla:
-[imagen]
-DIMEX: Documento de Identificación Migratorio
-para Extranjeros.
-NITE: Número de Identificación Tributario Especial.")
+Artículo 5º-Del procedimiento, requisitos, plazo de resolución y vigencia del Registro.
+a) Procedimiento:
+1. La persona productora agropecuaria presentará los requisitos solicitados en el inciso b) de este artículo, ante cualquier Agencia de Extensión Agropecuaria del Ministerio de Agricultura y Ganadería, independientemente de la ubicación geográfica en la que se encuentre el bien o los bienes inmuebles. Esta presentación se puede realizar en formato físico o de forma digital utilizando la firma digital vigente de acuerdo con lo establecido en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, N.° 8454 del 30 de agosto de 2005 y sus reformas.
+2. La persona funcionaria de la Agencia de Extensión Agropecuaria recibirá la documentación y verificará el cumplimiento de los requisitos establecidos en el inciso b) de este artículo. En caso de que se requieran correcciones, se realizará un apercibimiento al correo electrónico indicado por la persona productora, señalando los subsanes necesarios para continuar con el proceso de registro.
+Estos deberán ser atendidos en un plazo máximo de 10 días hábiles.
+3. Una vez que se haya verificado el cumplimiento de los requisitos establecidos en el inciso b) de este artículo, la persona funcionaria de la Agencia de Extensión Agropecuaria, registrará al productor en el Sistema Digital que para este fin dispone la Dirección Nacional de Extensión Agropecuaria (DNEA).
+4. La Agencia de Extensión Agropecuaria que realice el registro, hará llegar por la vía de correo electrónico el "Certificado de Registro de Productor Agropecuario PYMPA" a la persona productora, que acredita que fue registrado como Pequeño o Mediano Productor Agropecuario (PYMPA), y que puede aprovechar los beneficios que este certificado brinda. Este deberá atenderse en el plazo definido en el inciso c) de este artículo.
+5. Es obligación de la persona productora actualizar todos los cambios que realice en el uso y posesión del bien inmueble de uso agropecuario, los cambios en las actividades agropecuarias declaradas, y realizar la renovación del registro de acuerdo con lo establecido en el inciso d) de este artículo.
+b) Requisitos del solicitante:
+1. Presentar la cédula de identidad, el pasaporte o la cédula de residencia vigente, para verificar su identidad.
+2. En caso de personas jurídicas, la Agencia de Extensión Agropecuaria verificará a nivel interno por medio de los sistemas del Registro Nacional de la Propiedad, que la persona que realiza el trámite se encuentra autorizada para tal fin mediante la certificación de personería jurídica.
+3. La Agencia de Extensión Agropecuaria verificará a nivel interno por medio de los sistemas del Registro Nacional de la Propiedad, la información del bien inmueble donde se realiza la actividad agropecuaria, a través de una certificación literal.
+4. En caso de préstamo del bien inmueble donde se realiza la actividad agropecuaria, presentar declaración jurada que se encuentra en el Anexo 3 de este Decreto Ejecutivo, firmada por el dueño registral del bien inmueble, en la que autoriza al productor solicitante el uso de este.
+5. En caso de tratarse de un arrendamiento, presentar el contrato de arrendamiento del bien inmueble en el que se incluya el plazo de vigencia y el tipo de derecho que posee el arrendante. Puede utilizar el formato presentado en el Anexo 4 de este Decreto Ejecutivo.
+6. Aportar el formulario de declaración jurada para la persona productora agropecuaria que determina su condición de PYMPA, que se encuentra en el Anexo 1 de este Decreto Ejecutivo.
+7. Presentar el Consentimiento Informado para el uso de los datos personales suministrados al Ministerio de Agricultura y Ganadería (MAG), que se encuentra en el Anexo 2 de este Decreto Ejecutivo.
+8. En caso de cultivos de uso regulado como el cáñamo y el cannabis, se deberá contar con la autorización o licencia respectiva de acuerdo con lo establecido en la Ley del cannabis para uso medicinal y terapéutico y del cáñamo para uso alimentario e industrial, N.° 10113 del 2 de marzo del 2022, situación que será verificada por la Agencia de Extensión Agropecuaria.
+9. En el caso de producción pecuaria, se deberá contar con Certificado Veterinario de Operación (CVO) emitido por el SENASA de conformidad con la Ley 8495 del 6 de abril del 2006, Ley General del Servicio Nacional de Salud Animal. En el caso de producción agrícola regulada por el Servicio Fitosanitario del Estado, deberá encontrarse inscrito ante dicha institución conforme a lo establecido en la Ley 7664 del 8 de abril de 1997. Esta condición será verificada a nivel interno por parte de la Agencia de Extensión Agropecuaria.
+c) Plazo de resolución: Cinco días naturales.
+d) Vigencia: El registro de PYMPA tendrá una vigencia de dos años naturales contados a partir de la fecha de emisión del Certificado de Registro de Productor Agropecuario PYMPA. Este se podrá renovar por un periodo similar, aportando la información definida en el inciso b) de este artículo, 15 días hábiles antes al vencimiento del plazo.
+e) Cancelación del registro: El registro quedará cancelado de forma automática por las siguientes condiciones:
+1. Si no se actualiza la información al finalizar la vigencia.
+2. Si existe duda o contradicción en la información declarada.
+3. Si se comprueba que la propiedad del inmueble corresponde a otra persona y no ha informado de tal situación.
+4. Si se comprueba falsedad en la información presentada en las declaraciones juradas.
+En caso de que la persona productora agropecuaria considere que la cancelación del registro es improcedente, podrán interponer los recursos correspondientes conforme a lo dispuesto en la Ley Nº 6227, Ley General de la Administración Pública del 02 de mayo de 1978.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45096 del 19 de marzo del 2025)

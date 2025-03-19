@@ -1,4 +1,4 @@
-Artículo 10.—Cálculo para determinar la condición de Pequeño y Mediano Productor Agropecuario (PYMPA):
-Se considera pequeño o mediano productor agropecuario a las personas físicas o jurídicas, cuyas propiedades de uso agropecuario destinadas a la producción primaria agrícola o pecuaria tengan un rango de área declarada con valores iguales o inferiores al parámetro de calificación de la tabla anterior.
-En el caso de las cooperativas de autogestión y asociaciones de productores indígenas se dividen los valores de los parámetros de área, entre el número de asociados de cada cooperativa o asociación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 42472 del 13 de julio del 2020)
+Artículo 10.-Cálculo para determinar la condición de PYMPA:
+Se considera PYMPA a las personas físicas o jurídicas, cuyas propiedades de uso agropecuario destinadas a la producción primaria agrícola o pecuaria tengan un rango de área declarada con valores iguales o inferiores a los parámetros de categorización determinados en el artículo 9 de este Decreto Ejecutivo.
+En el caso de las cooperativas de autogestión, asociaciones de productores indígenas, asociaciones de mujeres y productores agremiados formalmente bajo las mismas condiciones que las cooperativas y/o asociaciones, se dividen los valores de los parámetros de área, entre el número de asociados de cada cooperativa o asociación para determinar su condición de PYMPA.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45096 del 19 de marzo del 2025)

@@ -1,55 +1,40 @@
-ANEXO 2. IDENTIFICACIÓN DEL INMUEBLE DONDE LA
-PERSONA PRODUCTORA DESARROLLA LA
-ACTIVIDAD PRODUCTIVA
-[imagen]
-(Este documento se debe declarar por separado para cada inmueble utilizado por la persona productora)
-TIPO DE TENENCIA DEL INMUEBLE POR PARTE DE LA PERSONA PRODUCTORA
-□ Propia | □ Prestada | □ Alquilada | □ Usufructo | □ Posesión (Franja Fronteriza, Zona Marítimo Terrestre, Territorio Indígena, Asentamiento) | □ Sin Documento Idóneo
-¿El inmueble que utiliza es propio? (Si el inmueble no pertenece a la persona productora debe aportar y declarar bajo juramento la información del propietario registral del inmueble.) | □ Si | □ No
-¿La persona productora vive en el inmueble? | □ Si | □ No
-IDENTIFICACIÓN DEL PROPIETARIO REGISTRAL DEL INMUEBLE
-Nombre de la persona física o jurídica propietaria del inmueble: |
-Número de identificación de la persona física o jurídica propietaria del inmueble: |
-INFORMACIÓN DEL INMUEBLE
-Folio real:
-UBICACIÓN DEL INMUEBLE
-Provincia | Cantón | Distrito | Caserío o Comunidad
-| | |
-Dirección Exacta:
-AREAS Y USOS DEL INMUEBLE | Hectáreas
-| Área total del inmueble (Hectáreas): | |
-| Área dedicada a actividades agrícolas (Hectáreas) | |
-| Área dedicada a actividades pecuarias (Hectáreas) | |
-| Área dedicada al barbecho (Hectáreas) | |
-| Área dedicada a zonas de reserva o conservación (Hectáreas) | |
-| Área dedicada a otras actividades (Hectáreas) | |
-Nota: La suma de las áreas dedicadas a las diferentes actividades debe ser igual al área total del inmueble.
-TIPO DE ACTIVIDAD EN PRODUCCION PRIMARIA AGRICOLA Y PECUARIA
-| Grupos de actividades productivas | Área estimada (hectáreas) |
-| Pecuario Grupo 1: Pastos naturales, pastos mejorados o forrajes para la producción de ganado bovino de carne o doble propósito; así como caballos y búfalos, incluye sistemas silvopastoriles | |
-| Pecuario Grupo 2: Pastos naturales, pastos mejorados, pastos de corta o forrajes para la utilización en sistemas de producción de lechería especializada, así como estabulados y semiestabulados | |
-| Pecuario Grupo 3: Pastos naturales, pastos mejorados, pastos de corta o forrajes en sistemas de producción de especies pecuarias menores (cabras y ovejas) | |
-| Pecuario Grupo 4: Áreas para estanques de acuacultura de tilapia, trucha o camarón | |
-| Pecuario Grupo 5: Granjas destinadas a la producción de cerdos, aves, conejos, abejas y zoocriaderos) | |
-| Plantas ornamentales, flores, follajes y productos de jardinería Grupo 1: producción de plantas vivas (no forestales) en invernadero o ambientales protegidos, vivero de cultivo de tejidos | |
-| Plantas ornamentales, flores, follajes y productos de jardinería Grupo 2: producción de plantas vivas (no forestales) bajo cobertura sarán | |
-| Plantas ornamentales, flores, follajes y productos de jardinería Grupo 3: producción de plantas vivas (no forestales) a campo abierto. Incluye plantaciones de ciprés ornamental | |
-| Hortalizas y legumbres grupo 1: papa, cebolla, tomate, chayote, chile dulce y chile picante; incluye producción en invernadero o ambientes protegidos, así como en hidroponía. | |
-| Hortalizas y legumbres grupo 2: lechuga, repollo, zanahoria, pepino, remolacha, brócoli, coliflor, apio, zapallo, ayote, culantro, culantro coyote, rábano, mostaza, arracache, cebollín, hongos, jengibre, berenjena, calabaza, albahaca, orégano, tomillo, ajo y demás hortalizas y legumbres; incluye viveros, además la producción en invernadero o ambientes protegidos, así como en hidroponía. | |
-| Raíces y tubérculos: yuca, tiquizque, malanga, camote, ñame, ñampí | |
-| | | | | | | | |
-| Frutales Grupo 1: piña, banano, naranja, melón, sandía, mango; incluye viveros | |
-| Frutales Grupo 2: papaya y plátano; incluye viveros | |
-| Frutales Grupo 3: limón ácido, mandarina y otros cítricos; pipa, coco, manzana, ciruela, aguacate, fresa, mora, rambután, cas, carambola, guayaba, maracuyá, higos, manzana de agua, tamarindo, jocote, zapote, níspero, guanábana, anona, pitahaya, caimito etc.; incluye viveros | |
-| Café, cacao y especias: café, cacao, pimienta, canela, vainilla, incluye viveros | |
-| Granos básicos Grupo 1: arroz, sorgo | |
-| Granos básicos Grupo 2: frijol, maíz | |
-| Palma aceitera: palma africana, incluye viveros | |
-| Semillas, cultivos y frutos diversos: plantas medicinales, aloe vera, manzanilla, menta | |
-| Materiales vegetales trenzables, bambú y productos vegetales que producen fibras naturales (yute, abacá, etc.) | |
-| Caña de azúcar | |
-| Pejibaye: palmito y pejibaye para fruta | |
-| Tabaco | |
-| Cultivos energéticos: higuerilla, jatrofa, biomasa | |
-| Otras Actividades no PYMPA: forestales | |
-(Así adicionado por decreto ejecutivo N° 42472 del 13 de julio del 2020)
+ANEXO 2
+(NORMATIVO)
+CONSENTIMIENTO INFORMADO LEY N° 8968
+CONSENTIMIENTO INFORMADO PARA EL USO DE LOS DATOS PERSONALES
+SUMINISTRADOS AL MINISTERIO DE AGRICULTURA Y GANADERIA (MAG)
+I) Condiciones generales:
+1) El Ministerio de Agricultura y Ganadería reconoce, conforme a lo dispuesto por la Ley No. 8968, Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales y su Reglamento, el derecho a la autodeterminación informativa que promulga dicha ley. De modo que la información personal que usted suministre a este Ministerio, debe ser veraz, exacta y actualizada, además tendrá derecho a consultarla, modificarla, suprimirla y revocarla; esto puede hacerlo en cualquiera de las oficinas del Ministerio de Agricultura y Ganadería.
+2) Los datos que usted suministre, serán almacenados y protegidos, en bases de datos para llevar el control y seguimiento de los diferentes servicios que se le ofrecen, para el cumplimiento de los fines estrictamente relacionados con el Sector Agropecuario, por lo que son de uso interno, salvo aquellos casos en que se requiera de la participación de otra institución pública o privada para el cumplimiento de estos fines.
+Por lo anterior, es necesario que usted nos dé su consentimiento informado, para recopilar y guardar su información y ofrecerle así nuestros servicios.
+II) Tipos de datos solicitados:
+El Ministerio de Agricultura y Ganadería, ha recopilado para su uso exclusivo, su información personal de carácter de acceso irrestricto, de acceso restringido y datos sensibles, la cual corresponde a lo siguiente:
+1) Datos personales de acceso irrestricto: los contenidos en bases de datos públicas de acceso general, según dispongan leyes especiales y de conformidad con la finalidad para la cual estos datos fueron recabados.
+2) Datos personales de acceso restringido: los que, aun formando parte de registros de acceso al público, no son de acceso irrestricto por ser de interés solo para su titular o para la Administración Pública.
+3) Datos sensibles: información relativa al fuero íntimo de la persona, como por ejemplo los que revelen origen racial, opiniones políticas, convicciones religiosas o espirituales, condición socioeconómica, información biomédica o genética, vida y orientación sexual, entre otros.
+III) Uso de los datos solicitados:
+El MAG, podrá usar los datos personales suministrados por usted, de la siguiente manera:
+1) Los datos de acceso irrestricto para identificar, caracterizar, registrar y vincular a las personas que solicitan los diferentes servicios que brinda el MAG. Además, para elaborar estadísticas agregadas de la ejecución de los servicios y de la población participante.
+2) Los datos personales de acceso restringido se utilizan para verificación de requisitos de ingreso a los diferentes servicios que ofrece el MAG sus órganos y otras instituciones del sector agropecuario en beneficio del productor.
+3) Además, se contemplan los datos de contacto (dirección exacta, números telefónicos y correos electrónicos), los cuales se utilizan para ofrecerle otros servicios complementarios de su interés, tales como: ferias, charlas, evaluaciones de los servicios brindados y de satisfacción del usuario utilizando para ello, medios como mensajes de texto, correo electrónico y redes sociales, telefónicas, personal o cualquier otro que esté disponible para fines informativos.
+4) Los datos personales de carácter sensible: se requieren para valorar los criterios de priorización de ingreso a los diferentes servicios de extensión agropecuaria que ofrece el MAG. También se utilizan para elaborar estudios y estadísticas de rendición de cuentas institucionales y en proyectos del sector cuando se realicen en beneficio del productor por lo que la información se brinda para esos fines únicamente
+IV) Por lo que autorizo al MAG a:
+1) Usar los datos personales que constan en la base de datos PYMPA para valorar, tramitar y resolver las solicitudes de servicios que brinda el MAG sus órganos e instituciones del sector, los cuales serán almacenados en el sistema institucional de forma digital.
+2) Usar los datos personales de acceso restringido para conformar un registro de personas, con posibilidad de ser considerados a futuro, en estudios que realizan instituciones públicas nacionales y organismos internacionales especializados en materia agropecuaria, para mejorar los servicios agropecuarios, garantizando la confidencialidad y seguridad de la información que se ofrece.
+3) Usar los datos de contacto para enviarme comunicaciones y notificaciones administrativas por medio de los sistemas electrónicos como mensajes de texto, correo electrónico, redes sociales, teléfono, personal o cualquier otro medio que llegare a estar disponible para fines informativos; así como para ofrecerme otros servicios complementarios, tales como nuevas capacitaciones, oportunidades en emprendimientos, ferias, congresos y charlas.
+4) Usar los datos de contacto para que se brinde mi nombre, número de teléfono y correo electrónico de contacto a instituciones del Sistema Bancario Nacional interesadas en brindar financiamiento en materia agropecuaria o instituciones del sector agropecuario que brinden actividades de desarrollo de la persona agropecuaria.
+5) Usar los datos de carácter sensible para la elaboración de estadísticas institucionales e interinstitucionales sobre la población atendida y servicios ofrecidos, garantizándose la confidencialidad y seguridad de la información que se suministre.
+6) Usar los datos personales públicos y privados que contengan información tributaria en el caso de que así se solicite por parte de la Dirección General de Tributación Directa, para fines fiscales.
+Doy fe, que conozco y me informé sobre los derechos y prohibiciones de la Ley No.8968, Ley Protección de la Persona frente al Tratamiento de Datos Personales y soy consciente que dicha autorización es para beneficiar mi posición de usuario(a) únicamente. Asimismo, doy fe que he sido debidamente informado(a) por el MAG, de mi derecho a acceder, modificar, suprimir y revocar mis datos, así como de sus usos y almacenamiento en las bases de datos de uso exclusivo del MAG, sus órganos e instituciones del sector agropecuaria las implicaciones correspondientes de no brindar el consentimiento informado. Autorizo al MAG a brindar mi información a otras instituciones del sector cuando sea necesario para poder cumplir con sus objetivos institucionales, así como a trasladarlas a otras bases de datos del Ministerio.
+Nombre Completo: ___________________________________________________________
+Cédula o identificación: _______________________________________________
+ACEPTO
+Firma: _____________________________________________________________
+Teléfono: ___________________________________________________________
+Correo electrónico notificaciones: ______________________________________
+USO EXCLUSIVO DEL MINISTERIO
+NOMBRE FUNCIONARIO QUE RECIBE:
+__________________________________________________________________
+FIRMA FUNCIONARIO QUE RECIBE: ________________________________
+FECHA, HORA Y LUGAR: __________________________________________"
+(Así reformado por el artículo 2° del decreto ejecutivo N° 45096 del 19 de marzo del 2025)
