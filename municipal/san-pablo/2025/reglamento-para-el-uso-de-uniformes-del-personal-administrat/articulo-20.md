@@ -1,0 +1,1 @@
+Artículo N°20 - La compra de los uniformes será cubierta por la administración, por tanto, debe tratarse los mismos como bienes municipales, que deben ser bien cuidados y resguardados por quien lo utilice.

@@ -1,0 +1,1 @@
+Artículo Nº 4 - Una vez conformada la Comisión de Uniformes, deberán definir las características y especificaciones técnicas de los uniformes y ser fiscalizador de todo el proceso de solicitud, compra y entrega de los uniformes.

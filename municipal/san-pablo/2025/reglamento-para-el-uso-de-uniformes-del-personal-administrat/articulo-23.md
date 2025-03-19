@@ -1,0 +1,1 @@
+Artículo N°23 - Para los funcionarios que se encuentren incapacitados al momento de la solicitud de uniformes, y cuyo periodo de incapacidad supere los 3 meses, no se le solicitará uniforme, pudiendo el administrador del contrato hacer la orden de compra luego de la incorporación del funcionario.

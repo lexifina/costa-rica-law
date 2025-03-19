@@ -1,0 +1,1 @@
+Artículo N° 16 - En caso de que una funcionaria esté embarazada se le permitirá, utilizar piezas de vestir que le facilite su situación dando comodidad y manteniendo su presentación limpia y ordenada.

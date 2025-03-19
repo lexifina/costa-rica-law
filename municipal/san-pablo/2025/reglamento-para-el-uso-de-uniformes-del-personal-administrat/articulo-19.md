@@ -1,0 +1,1 @@
+Artículo N°19 - Cuando el uniforme sufra algún daño sin dolo o falta de cuidado del funcionario, o por temas de accidente laboral, el funcionario deberá reportarlo con su jefatura, en un plazo no mayor a 3 días hábiles, y podrá solicitar a su jefatura que realice la solicitud de compra para reponerlo, entregando a Recursos Humanos las piezas dañadas.

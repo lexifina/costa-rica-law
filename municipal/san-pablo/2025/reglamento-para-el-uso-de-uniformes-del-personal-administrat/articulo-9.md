@@ -1,0 +1,1 @@
+Artículo Nº 9 - El uniforme que utilizarán los funcionarios operativos es catalogado como equipo de protección personal, ya que deberán de contar con protección anti rayos UV, y tratamiento químico contra bacterias, la oficina de Salud Ocupacional asesorará a la Comisión para el cumplimiento de estas especificaciones técnicas.

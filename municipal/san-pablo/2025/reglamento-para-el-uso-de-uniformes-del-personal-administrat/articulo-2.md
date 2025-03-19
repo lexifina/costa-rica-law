@@ -1,0 +1,1 @@
+Artículo Nº 2 - Recursos Humanos entregara a cada funcionario (a) municipal, cuando se le entregue uniformes, una copia del presente reglamento, dejando evidencia en su expediente que dicha copia fue recibida conforme.

@@ -1,0 +1,1 @@
+Artículo Nº 7 - La administración se compromete a entregar los uniformes de manera anual, en los primeros 4 meses de cada año, siempre y cuando exista viabilidad financiera, y se deberá dar prioridad a los uniformes del sector operativo, ya que es catalogado como equipo de protección personal para esta población.

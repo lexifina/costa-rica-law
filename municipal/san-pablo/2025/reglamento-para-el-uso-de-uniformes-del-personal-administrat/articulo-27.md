@@ -1,0 +1,1 @@
+Artículo N°27 - El Departamento de Recursos Humanos, llevará un estricto control e inventario de la indumentaria que se entregue a los funcionarios, anexando a su expediente la boleta de compromiso de entrega de EPP y uniforme.

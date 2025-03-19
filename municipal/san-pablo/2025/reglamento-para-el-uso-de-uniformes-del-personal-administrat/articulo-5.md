@@ -1,0 +1,1 @@
+Artículo Nº 5 - El departamento de Recursos Humanos será el encargado de realizar la contratación pública correspondiente, con la información técnica que la Comisión de Uniformes y la oficina de Salud Ocupacional le entregue.
