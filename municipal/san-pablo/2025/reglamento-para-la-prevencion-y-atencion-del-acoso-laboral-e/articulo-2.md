@@ -1,0 +1,3 @@
+Artículo 2º-Del ámbito de aplicación: Este Reglamento regula los procedimientos de prevención y sanciones de conductas y situaciones que constituyan acoso laboral en todas las relaciones de empleo que tienen las personas trabajadoras de la Municipalidad de San Pablo de Heredia.
+Será de obligatoria observancia de todos los jerarcas, titulares subordinados y todas las personas trabajadoras de la Municipalidad de San Pablo de Heredia, el cumplimiento del presente Reglamento.
+Las disposiciones de este Reglamento también serán aplicables a las conductas de acoso laboral que ejerzan los funcionarios de la institución contra terceros que presten sus servicios en las instalaciones de la Municipalidad de San Pablo de Heredia, sus centros u órganos adscritos.

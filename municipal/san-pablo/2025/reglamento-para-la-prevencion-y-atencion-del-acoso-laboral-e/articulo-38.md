@@ -1,0 +1,1 @@
+Artículo 38.-De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será el Despacho de la Alcaldía quien remita copia al Departamento de Recurso Humano con el fin de que se incluya en el expediente personal de las partes.
