@@ -1,0 +1,1 @@
+Artículo 18.-Cuando ya no desee explotar o ejercer la actividad comercial ambulante o estacionaria, deberá llenar el formulario correspondiente de renuncia de permiso y así evitar la continuidad del cobro del impuesto correspondiente.

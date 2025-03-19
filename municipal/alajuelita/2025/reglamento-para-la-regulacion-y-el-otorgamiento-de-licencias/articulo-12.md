@@ -1,0 +1,1 @@
+Artículo 12.-Cuando la Municipalidad o el MOPT o cualquier otra institución estatal requiera hacer una mejora en la vía, el espacio podrá ser reubicado o eliminado sin ninguna responsabilidad para la Administración.

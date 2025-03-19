@@ -1,0 +1,1 @@
+Artículo 8º-Por el ejercicio de la actividad comercial de venta ambulante o estacionaria, el permisionario deberá cancelar el respectivo impuesto de patente, de conformidad con lo establecido en la Ley de Impuestos Municipales del Cantón de Alajuelita y el Código Municipal.

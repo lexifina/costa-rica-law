@@ -1,0 +1,1 @@
+Artículo 7º-Se dará preferencia en el otorgamiento de permisos ambulantes y estacionarios a adultos mayores, a personas con discapacidad quienes, deberán presentar el carné de CONAPDIS y a personas que tengan a cargo el cuidado permanente de una persona con discapacidad o adulto mayor en primer grado de consanguinidad.

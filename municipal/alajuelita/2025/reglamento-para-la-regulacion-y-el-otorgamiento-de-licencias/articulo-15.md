@@ -1,0 +1,1 @@
+Artículo 15.-Se prohíbe las ventas ambulantes y estacionarias en los parques del cantón de Alajuelita, a excepción de fiestas cívicas, patronales, turnos, ferias, mismas que se regirán por el reglamento correspondiente.

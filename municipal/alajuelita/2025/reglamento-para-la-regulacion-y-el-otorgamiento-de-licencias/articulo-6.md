@@ -1,0 +1,1 @@
+Artículo 6º-La actividad comercial ambulante y estacionaria autorizada contempladas en la ley y este reglamento, deberá ser ejercida directamente por el solicitante y en ningún caso dicha autorización podrá ser traspasada, enajenada o arrendada a un tercero. Además, únicamente se podrá otorgar una licencia por cada núcleo familiar.

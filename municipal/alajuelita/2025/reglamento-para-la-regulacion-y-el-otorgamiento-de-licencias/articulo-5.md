@@ -1,0 +1,1 @@
+Artículo 5º-El permiso ambulante y estacionario, tendrá una vigencia de un año, podrá ser renovado por periodos iguales siempre y cuando se cumpla con los requisitos establecidos en este reglamento y la normativa sanitaria vinculante.

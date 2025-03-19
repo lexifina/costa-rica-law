@@ -1,0 +1,1 @@
+Artículo 13.-Queda terminantemente prohibida la cesión, donación, venta o cualquier forma de traspaso de la licencia o permiso autorizado. Al que se le comprobare tal negociación se le cancelará la licencia de manera inmediata.
