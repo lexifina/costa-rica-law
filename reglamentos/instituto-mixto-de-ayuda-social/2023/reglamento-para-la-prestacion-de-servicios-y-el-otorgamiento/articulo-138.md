@@ -1,1 +1,1 @@
-Artículo 138: Vigencia: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 138: (Nota de Sinalevi: El texto de este numeral, puede encontrar en el artículo 136, ya que en el acuerdo N° 32-02-2025 de la sesión 06-02-2025 y publicado en el Alcance Digital N° 39 a La Gaceta N° 53 del 19 de marzo del 2025, se ordenó derogar los numerales 88 y 89 y correr la numeración de los restantes artículos.)

@@ -15,3 +15,4 @@ Reglamento para la prestación de servicios y el otorgamiento de beneficios, sub
 | --- | --- | --- |
 | 1 | 2023-12-07 | la propia norma |
 | 2 | 2024-10-31 | Reglamento 38 (2024-10-31) |
+| 3 | 2025-03-19 | Reglamento 6 (2025-03-19) |

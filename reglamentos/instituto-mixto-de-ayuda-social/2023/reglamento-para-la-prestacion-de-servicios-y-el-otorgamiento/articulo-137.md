@@ -1,1 +1,1 @@
-Artículo 137: El presente Reglamento se aprueba mediante acuerdo firme del Consejo Directivo del IMAS CD-304-11-2023 de fecha 27 de noviembre del 2023.
+Artículo 137: (Nota de Sinalevi: El texto de este numeral, puede encontrar en el artículo 135, ya que en el acuerdo N° 32-02-2025 de la sesión 06-02-2025 y publicado en el Alcance Digital N° 39 a La Gaceta N° 53 del 19 de marzo del 2025, se ordenó derogar los numerales 88 y 89 y correr la numeración de los restantes artículos.)

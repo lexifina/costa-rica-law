@@ -1,5 +1,2 @@
-Artículo 98: Requisitos específicos del subsidio Gastos de Implementación para Titulación:
-a) Solicitud por parte de la persona u hogar beneficiario en la cual se indique número de finca y plano catastrado del inmueble, así como la descripción de los servicios requeridos.
-b) Una factura proforma a nombre de la persona que solicita una transferencia económica, que detalle la descripción de los bienes o servicios requeridos. En el caso de confección de planos de catastro se debe indicar el monto económico y el área del lote a catastrar y para la formalización de escritura por medio de notario público (segregación, traspaso, derechos, usufructo) indicar el monto de la escritura ante el Registro Nacional.
-c) Nota de la persona propietaria del inmueble autorizando el trámite solicitado a favor de los hogares solicitantes.
-d) Certificado de uso de suelo del inmueble emitido por la Municipalidad respectiva.
+Artículo 98: En caso de creación de beneficios, subsidios o transferencias monetarias con base en normativa externa de rango superior que coincida con los fines y objetivos del IMAS, se deberá cumplir con los requisitos y condiciones que se establezcan en dicha normativa.
+(Así modificada su numeración mediante acuerdo N° 32-02-2025 de la sesión 06-02-2025 y publicado en el Alcance Digital N° 39 a La Gaceta N° 53 del 19 de marzo del 2025, que lo traspaso del antiguo artículo 100 al artículo 98, ya que en dicha sesión ordenó derogar los numerales 88 y 89 y correr la numeración de los restantes artículos.)

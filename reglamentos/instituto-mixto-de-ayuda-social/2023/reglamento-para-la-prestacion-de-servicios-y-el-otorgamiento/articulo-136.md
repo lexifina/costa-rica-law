@@ -1,1 +1,2 @@
-Artículo 136: Derogatoria: El presente Reglamento deroga íntegramente el Reglamento de Prestación de Servicios y Otorgamiento de Beneficios Institucionales aprobado por acuerdo del Consejo Directivo CD-204-05-18, del 28 de mayo del 2018, así como toda otra normativa de rango inferior que le oponga.
+Artículo 136: Vigencia: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así modificada su numeración mediante acuerdo N° 32-02-2025 de la sesión 06-02-2025 y publicado en el Alcance Digital N° 39 a La Gaceta N° 53 del 19 de marzo del 2025, que lo traspaso del antiguo artículo 138 al artículo 136, ya que en dicha sesión ordenó derogar los numerales 88 y 89 y correr la numeración de los restantes artículos.)
