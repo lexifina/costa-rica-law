@@ -1,0 +1,3 @@
+Artículo 12.-Manejo de la Información confidencial.
+a) Los colaboradores de la Municipalidad de Naranjo deben guardar respeto al derecho a la intimidad y aplicación del derecho de acceso a la información de interés público de los funcionarios, los ciudadanos y partes interesadas que soliciten información.
+b) Se prohíbe a los colaboradores divulgar información confidencial de manera directa o mediante un tercero, o utilizar esta información para beneficio propio o de un tercero. El servidor será responsable conforme lo establece el ordenamiento jurídico y la normativa interna por los perjuicios que genere el uso indebido de información confidencial.

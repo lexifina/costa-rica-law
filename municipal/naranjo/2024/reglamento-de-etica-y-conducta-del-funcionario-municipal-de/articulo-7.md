@@ -1,0 +1,2 @@
+Artículo 7º-Discriminación u hostigamiento. El deber es de absoluto respeto a la dignidad humana, y cero tolerancias hacia la discriminación y el hostigamiento o acoso, laboral y/o sexual, entre colaboradores, proveedores, clientes o cualquier otra persona con quien se genere alguna relación de negocios con la Municipalidad de Naranjo. Al respecto aplican tanto la legislación vigente como las Políticas Internas en esta materia.
+Las conductas contrarias a esta norma deberán ser debidamente denunciadas o informadas según lo dispuesto en este código.
