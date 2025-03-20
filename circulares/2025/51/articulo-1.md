@@ -1,0 +1,11 @@
+CIRCULAR No. 51-2025
+Asunto: Eliminación de bolsas plásticas en las papeleras personales y correcta separación de residuos
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS SE LES HACE SABER QUE:
+Que el Consejo Superior en sesión Nº 09-2025 celebrada el 04 de febrero de 2025, artículo XIV, acordó, con el fin de gestionar eficientemente los recursos institucionales, eliminar el uso de bolsas plásticas en las papeleras personales ubicadas en las oficinas y despachos, las cuales deben tener como fin depositar el papel y el cartón que será enviado a reciclaje.
+Lo anterior en virtud de que dicha práctica ha incentivado el mal hábito de disponer residuos no valorizables en dichos recipientes, así como un desinterés en realizar una correcta separación de los residuos; lo cual incide negativamente en el cumplimiento del compromiso del Poder Judicial con la Agenda 2030 y los Objetivos de Desarrollo Sostenible (ODS) y los fines perseguidos por el Plan de Gestión Ambiental Institucional (PGAI) 2022-2026 aprobado por Corte Plena en sesión n°52-2021 celebrada el 06 de diciembre de 2021, artículo XXIV.
+Es importante aclarar que las bolsas plásticas suministradas por el Departamento de Proveeduría deberán utilizarse exclusivamente para los recipientes ubicados en comedores, cocinetas y servicios sanitarios, con el fin de depositar los residuos no valorizables.
+De igual forma, el personal judicial deberá velar por la correcta disposición de los residuos aplicando los lineamientos establecidos en la Circular N°88-2019 (adjunta), en especial en aquellos lugares donde se cuente con estaciones de reciclaje. La citada circular se encuentra en el siguiente enlace:
+https://secretariacorte.poder-judicial.go.cr/index.php/informacion-general/documentos-interes?download=53620:circular-de-secretaria-de-la-corte-n-088-2019
+Finalmente, se solicita a las jefaturas promover la participación del personal judicial en las actividades de capacitación y sensibilización para la gestión integral de residuos que se desarrollan por parte de la Comisión de Gestión Ambiental Institucional y las Subcomisiones existentes en los distintos Circuitos Judiciales.
+Publíquese una vez en el Boletín Judicial.
+San José, 20 de marzo de 2025
