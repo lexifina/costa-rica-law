@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Derechos de los estudiantes
+Artículo 35°- Casilleros. Los estudiantes tendrán derecho a que se les asigne un espacio personal o compartido, para guardar prendas personales o instrumentos necesarios para su proceso de aprendizaje, salvo que, por motivos de caso fortuito o fuerza mayor, el TNT no estuviera en capacidad de solventar tal servicio. No obstante, en razón de que los espacios del TNT se utilizan para otras actividades distintas del Ciclo Básico durante otros días y horarios, cada alumno es responsable de decidir los mecanismos de cerramiento y custodia de los objetos de valor que pudiere dejar en tales espacios.

@@ -1,0 +1,1 @@
+Artículo 33º- Respeto e interacción. Los estudiantes se comprometen a mantener una actitud permanente de respeto y tolerancia hacia compañeros, docentes y administrativos, así como frente a cualquier visitante o invitado, evitando conductas agresivas, ofensivas, discriminatorias, de acoso o de violencia en cualquier de sus formas.

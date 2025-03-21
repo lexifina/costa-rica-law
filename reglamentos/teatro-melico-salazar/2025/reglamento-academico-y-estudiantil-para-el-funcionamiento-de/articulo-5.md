@@ -1,0 +1,1 @@
+Artículo 5º- Áreas de Trabajo. El proceso formativo del Ciclo Básico está dividido en dos grandes áreas de trabajo: El Área de Actuación y el Área de Promoción, compuesta cada una por un grupo de Énfasis.

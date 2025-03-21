@@ -1,0 +1,1 @@
+Artículo 6º- Áreas de Estudio. A nivel de organización del conocimiento, el proceso docente está conformado por tres áreas: El Área de Entrenamiento Actoral; el Área de Investigación Escénica, y el Área de Promoción.

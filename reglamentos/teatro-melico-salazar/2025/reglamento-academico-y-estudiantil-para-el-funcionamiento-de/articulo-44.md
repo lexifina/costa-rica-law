@@ -1,0 +1,1 @@
+Artículo 44º- Re admisión. Los alumnos que hayan sido separados del TNT, pueden volver a realizar el proceso de admisión a partir del año siguiente, pasando por todas las etapas del proceso de admisión.

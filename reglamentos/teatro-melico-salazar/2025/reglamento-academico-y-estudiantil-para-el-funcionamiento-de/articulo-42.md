@@ -1,0 +1,10 @@
+Artículo 42º- Otras causales de separación forzosa. Además del bajo rendimiento inferior a la nota mínima requerida a que refiere el artículo 39º, serán causales de separación forzosa de un estudiante, las siguientes:
+a) Tener en un mismo cuatrimestre siete o más ausencias justificadas o una sola ausencia injustificada. En caso de exceso de ausencias justificadas aplica la excepción establecida en el artículo 29º
+b) No presentarse a la hora establecida a la muestra de una propuesta o examen, en cualesquiera de las disciplinas, sin que exista una razón de fuerza mayor o caso fortuito debidamente documentada;
+c) Afectar el desarrollo normal del proceso formativo del grupo, por falta de responsabilidad, impuntualidad, ausencia a ensayos, indisciplina en las clases y/o ensayos, ausencia de aportes creativos o de participación; actitudes irrespetuosas contra sus compañeros o profesores, que pudieran actuar como elementos disociativos y en, general, por actitudes análogas como las descritas en el artículo 31,32 y 33 del presente reglamento.
+d) Por causar en forma directa o indirecta, daños en las instalaciones del TNT, por imprudencia, negligencia, o deliberada intención.
+e) Por abusar del uso de las instalaciones utilizándolas para actividades ajenas a los propósitos y fines del TNT, o para su beneficio personal extra académico sin autorización de la Dirección.
+f) Por comprometer o dañar con su conducta, actitudes o manifestaciones, el buen nombre de la institución.
+g) Por comprobarse la presentación de documentos falsos o alterados en su expediente.
+h) Por presentarse a las instalaciones bajo los efectos del alcohol o de drogas prohibidas.
+i) Por irrespetar o afectar, luego de ser apercibidos al respecto, las actividades del TNT, sean estas del ciclo básico o de cualquier otro proceso ajeno a la actividad de los alumnos regulares, independientemente de su carácter interno o externo, mediante ruido no justificado, desaseo, invasión de espacios no autorizados, o de cualquier otra manera, independientemente del día o la hora.

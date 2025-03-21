@@ -1,0 +1,1 @@
+Artículo 30º- Acceso a espacios. Los estudiantes deberán abstenerse de ingresar sin autorización a los espacios asignados a la administración, así como a las bodegas y demás áreas no dispuestas para su proceso educativo.

@@ -1,0 +1,1 @@
+Artículo 13º- Sobre la Charla de Inducción. Consiste en una charla grupal en donde se explican pormenorizadamente los requisitos del proceso de admisión y las etapas que lo conforman, las características de la estructura formativa, las dinámicas de trabajo, el perfil de ingreso y egreso que se busca, y demás aspectos vinculados al enfoque conceptual y metodológico del TNT.

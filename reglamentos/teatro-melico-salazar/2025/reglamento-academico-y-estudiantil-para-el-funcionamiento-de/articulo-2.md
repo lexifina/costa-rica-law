@@ -1,0 +1,1 @@
+Artículo 2º- Ámbito de aplicación. El presente Reglamento se aplica para todos los estudiantes y profesores del TNT en el marco de sus relaciones, obligaciones y derechos vinculados con su proceso formativo del denominado "Ciclo Básico". Por lo anterior, es deber tanto de profesores como de estudiantes, conocer el presente reglamento, no pudiendo alegar desconocimiento del mismo.
