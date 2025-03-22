@@ -1,5 +1,5 @@
-ARTÍCULO 74.- Redención anticipada
-La Tesorería Nacional podrá redimir anticipadamente los títulos valores colocados incluso antes de la fecha de entrada en vigencia de la presente Ley, siempre que existan los recursos suficientes y la operación resulte beneficiosa al fisco. En tales operaciones, deberán utilizar procedimientos garantes del cumplimiento de los principios de publicidad, seguridad y transparencia.
-Los entes y órganos públicos tenedores de títulos deberán aceptar la redención anticipada que determine la Tesorería Nacional, en caso de que le resulte beneficioso al fisco.
+Artículo 74- Redención anticipada
+La Tesorería Nacional, con la instrucción de la Dirección General de Gestión de Deuda Pública, podrá redimir anticipadamente los títulos valores colocados incluso antes de la fecha de entrada en vigencia de la presente ley, siempre que existan los recursos suficientes y la operación resulte beneficiosa al fisco. En tales operaciones, deberán utilizar procedimientos garantes del cumplimiento de los principios de publicidad, seguridad y transparencia.
+Los entes y órganos públicos tenedores de títulos deberán aceptar la redención anticipada que determine la Dirección de Gestión de Deuda Pública, en caso de que le resulte beneficioso al fisco.
 Los fondos provenientes de la redención anticipada de los títulos, cuyos propietarios sean los entes y órganos públicos sujetos al principio de caja única, se acreditarán en el fondo único a cargo de la Tesorería Nacional, conforme a este principio. Si tales fondos no son utilizados por los entes u órganos públicos respectivos en el ejercicio presupuestario vigente, pasarán a formar parte del Fondo General de Gobierno.
-(Así reformado por el artículo 7 de la Ley N° 8299 de 22 de agosto del 2002, Ley de Restructuración de la Deuda Pública)
+(Así reformado por el artículo 1° de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024)
