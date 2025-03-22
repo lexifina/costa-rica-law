@@ -1,6 +1,6 @@
 ARTÍCULO 61.Atribuciones de la Tesorería Nacional. La Tesorería Nacional tendrá las funciones y los deberes siguientes:
 a) Elaborar, con la Dirección de Presupuesto Nacional, la programación financiera de la ejecución del presupuesto nacional.
-b) Preparar el flujo de fondos y administrar el sistema de caja única establecido en el artículo 65 de esta Ley, efectuar las estimaciones y proyecciones presupuestarias del servicio de la deuda del tesoro y darles seguimiento.
+b) (Derogado por el artículo 41 inciso a) de la ley Manejo eficiente de la liquidez del sector público, N° 10495 del 17 de junio del 2024)
 c) Procurar el rendimiento óptimo de los recursos financieros del tesoro público.
 d) Emitir letras del tesoro, de conformidad con el artículo 75 de esta Ley.
 e) Custodiar los títulos y valores del Gobierno de la República o de terceros que se pongan a su cargo; para esto, podrá contratar entidades especializadas en prestar estos servicios, de conformidad con la Ley de Contratación Administrativa y la reglamentación que se emita sobre este particular.
