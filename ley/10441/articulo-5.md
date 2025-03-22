@@ -1,0 +1,8 @@
+ARTÍCULO 5- Principios generales. El Sistema Nacional de Inversión Pública se rige por los principios rectores siguientes:
+a) Consistencia con las políticas nacionales: todos los proyectos de inversión deben ser consistentes con los objetivos y las líneas de acción definidos en los instrumentos de planificación nacional, entre ellos: el Plan Estratégico Nacional, el Plan Nacional de Desarrollo y de Inversión Pública o los Planes Regionales de Desarrollo.
+b) Economía, efectividad y eficiencia: se deben buscar las mejores alternativas para maximizar el impacto en el bienestar de los ciudadanos, la gestión para resultados en los bienes y servicios, con el mejor uso de los recursos públicos limitados ante necesidades ilimitadas.
+c) Oportunidad: ser oportuno en la atención de las necesidades de la población.
+d) Continuidad: los proyectos requieren contar con las condiciones y los recursos que aseguren su desarrollo y ejecución en beneficio de la ciudadanía.
+e) Gestión de riesgos y gestión ambiental: con la finalidad de contribuir a la continuidad de los servicios y bienes a la población, se requiere incluir en los proyectos elementos que reduzcan los efectos asociados al riesgo, a la variabilidad, al cambio climático y otros factores de incertidumbre.
+f) Sostenibilidad ambiental: se refiere a la incorporación de medidas que garanticen el desarrollo sostenible y aumenten la resiliencia de la población.
+g) Transparencia y rendición de cuentas: como un principio transversal para incorporar las mejores prácticas de gobierno corporativo en la gestión de proyectos, la cual será al mismo nivel en todos los componentes del proyecto y durante todo el ciclo de vida de este.
