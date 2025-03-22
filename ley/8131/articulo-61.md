@@ -8,5 +8,5 @@ f) Velar por la percepción adecuada de las rentas recibidas por los cajeros aux
 g) Establecer, en coordinación con la Contraloría General de la República, los requerimientos de información y procedimientos que deberán atender las entidades públicas y privadas para recibir transferencias de recursos de la Administración Central, para asegurarse de que se realicen de acuerdo con la ley y los reglamentos.
 h) (Derogado por el artículo 135 inciso d) de la Ley General de Contratación Pública, N° 9986 del 27 de mayo de 2021).
 i) Proponer su propia organización, la cual se determinará y regulará mediante reglamento.
-j) Definir los procedimientos de emisión, colocación y redención de la deuda interna del Gobierno de la República.
+j) (Derogado por el artículo 5° de la Ley de Fortalecimiento de la gestión de la deuda pública, N° 10524 del 18 de setiembre del 2024)
 k) Los demás deberes y las atribuciones que le asignen la Constitución, la Ley o los reglamentos.
