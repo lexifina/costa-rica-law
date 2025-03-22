@@ -1,4 +1,1 @@
-ARTÍCULO 66.- Caja única
-Todos los ingresos que perciba el Gobierno, entendido este como los órganos y entes incluidos en los incisos a) y b) del artículo 1º de esta Ley, cualquiera que sea la fuente, formarán parte de un fondo único a cargo de la Tesorería Nacional. Para administrarlos, podrá disponer la apertura de una o varias cuentas en colones o en otra moneda.
-Los recursos recaudados en virtud de leyes especiales que determinen su destino, se depositarán en cuentas abiertas por la Tesorería Nacional en el Banco Central de Costa Rica. Estos recursos financiarán total o parcialmente, según lo disponga la ley respectiva, el presupuesto de gastos del ente responsable de la ejecución del gasto. La Tesorería Nacional girará los recursos a los órganos y entes, de conformidad con sus necesidades financieras según se establezca en la programación presupuestaria anual.
-(Así reformado por el artículo 7 de la Ley N° 8299 de 22 de agosto del 2002, Ley de Restructuración de la Deuda Pública)
+ARTÍCULO 66.- Caja única (Derogado por el artículo 41 inciso a) de la ley Manejo eficiente de la liquidez del sector público, N° 10495 del 17 de junio del 2024)

@@ -1,6 +1,6 @@
 # Ley de la Administración Financiera de la República y Presupuestos Públicos
 
-Ley N° 8131 del 2001-09-18. SINALEVI, ficha 47258: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47258&param2=145311&param3=1>.
+Ley N° 8131 del 2001-09-18. SINALEVI, ficha 47258: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47258&param2=141198&param3=1>.
 
 Publicada en La Gaceta N° 198 del 2001-10-16.
 
@@ -19,3 +19,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 13 | 2022-12-01 | Ley 10122 | 2022-02-02 |
 | 10 de 13 | 2022-12-22 | Ley 10335 | 2022-12-21 |
 | 11 de 13 | 2025-03-22 | Ley 10441 | 2024-03-13 |
+| 12 de 13 | 2025-03-22 | Ley 10495 | 2024-06-17 |
