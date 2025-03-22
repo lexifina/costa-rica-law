@@ -1,0 +1,1 @@
+TRANSITORIO ll- Proyectos previos a la entrada en vigencia de la presente ley. Los proyectos que se encuentren en fase de preinversión o en la fase de inversión, a la fecha de entrada en vigencia de la presente ley, se tramitarán de conformidad con las reglas que se encontraban vigentes previo a la emisión de esta ley.

@@ -1,0 +1,1 @@
+ARTÍCULO 22- Responsabilidad por incumplimiento de funciones. El incumplimiento o la inobservancia de deberes relacionados con la presente ley genera responsabilidades de tipo administrativo, civil y penal, según sea el caso. Las sanciones se aplicarán previo proceso administrativo o judicial, de acuerdo con la normatividad especial sobre la materia.

@@ -1,0 +1,1 @@
+ARTÍCULO 23- Recursos para la implementación de la ley. Conforme a las potestades legales establecidas en la Ley 5525, Ley de Planificación Nacional, de 2 de mayo de 1974, el Ministerio de Planificación Nacional y Política Económica (Mideplán) podrá requerir personal técnico de otros ministerios para la implementación de la presente ley.

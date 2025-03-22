@@ -1,0 +1,1 @@
+ARTÍCULO 2- Definición del Sistema Nacional de Inversión Pública. El Sistema Nacional de Inversión Pública comprende el conjunto de normas, principios, métodos, instrumentos, procesos y procedimientos para formular y concretar los proyectos de inversión de mayor impacto en el bienestar de la población, desde el punto de vista del desarrollo económico, social y ambiental.
