@@ -17,3 +17,4 @@ Acuerdo SGV-A-176 Delegación de Competencias
 | 2 | 2015-09-29 | Acuerdo 200 (2015-09-29) |
 | 3 | 2020-10-16 | Acuerdo 242 (2020-10-16) |
 | 4 | 2023-05-23 | Acuerdo 277 (2023-05-23) |
+| 5 | 2025-03-24 | Acuerdo 2 (2025-03-24) |
