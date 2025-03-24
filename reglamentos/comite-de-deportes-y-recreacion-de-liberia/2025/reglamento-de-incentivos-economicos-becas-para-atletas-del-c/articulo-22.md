@@ -1,0 +1,1 @@
+Artículo 22.-El atleta podrá solicitar revisión semestral de su incentivo en los primeros 15 días del sexto y doceavo mes siempre y cuando demuestre fehacientemente que su condición económica ha desmejorado.

@@ -1,0 +1,3 @@
+Artículo 28.-Monto de los incentivos económicos:
+El monto de los incentivos económicos será establecido por el Comité Cantonal de Deportes y Recreación de Liberia, de acuerdo a los recursos disponibles en su presupuesto. Que según reglamento interno de organización y funcionamiento del CCDR de Liberia corresponde a un 5% del presupuesto ordinario.
+En caso de que el presupuesto disponible no sea suficiente para cubrir el total de los incentivos económicos otorgados en un período determinado, el Comité Cantonal establecerá un orden de prioridades para la asignación de los mismos, en función de los criterios establecidos en el presente reglamento.

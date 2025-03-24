@@ -1,0 +1,1 @@
+Artículo 36.-Publicidad de los incentivos económicos. El Comité Cantonal de Deportes y Recreación de Liberia deberá publicar anualmente los nombres de los atletas beneficiados con los incentivos económicos otorgados en el Diario Oficial La Gaceta, con el fin de garantizar la transparencia en el otorgamiento de los incentivos.

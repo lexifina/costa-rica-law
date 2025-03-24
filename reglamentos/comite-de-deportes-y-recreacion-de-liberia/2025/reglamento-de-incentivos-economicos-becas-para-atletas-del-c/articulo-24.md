@@ -1,0 +1,1 @@
+Artículo 24.-La Dirección Deportiva realizará estudios técnicos necesarios para verificar la condición socioeconómica y demás requisitos que debe cumplir el solicitante, según lo establecido en el presente reglamento y determinará el monto y tipo de financiamiento. La comisión designada ratificará la decisión.

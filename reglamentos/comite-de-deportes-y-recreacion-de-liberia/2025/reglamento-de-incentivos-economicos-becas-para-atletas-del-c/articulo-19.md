@@ -1,0 +1,2 @@
+Incentivo por condición socioeconómica
+Artículo 19.-El incentivo por condición socioeconómica para atletas está dirigido a los atletas que tienen una condición socioeconómica vulnerable y que demuestran su compromiso con la representación del cantón de Liberia en eventos deportivos. El CCDR de Liberia podrá aprobar incentivo para cubrir gastos económicos en los que incurren los (as) atletas por concepto de la práctica de especialidad deportiva en la que están inscritos ante el CCDR de Liberia.
