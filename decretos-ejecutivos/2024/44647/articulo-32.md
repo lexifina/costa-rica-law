@@ -1,0 +1,1 @@
+Artículo 32.- Principio de prioridad. La prioridad entre dos o más documentos sujetos a inscripción se establece por el orden de presentación ante la Dirección de Servicios del Registro Nacional. Si son excluyentes entre sí, tendrá prioridad el documento presentado primero en tiempo. La prioridad registra! se determina por las citas de presentación asignadas al documento.

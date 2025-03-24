@@ -1,0 +1,1 @@
+Artículo 286.- Consignación de la nota de aviso catastral. Mediante resolución administrativa, se ordenará la consignación de la nota de aviso catastral, la cual funcionará como publicidad noticia para advertir a terceras personas sobre las inconsistencias en los asientos registrales y catastrales.

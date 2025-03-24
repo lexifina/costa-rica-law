@@ -1,0 +1,2 @@
+Artículo 283.- Recursos ordinarios y extraordinarios. Será ordinario el recurso de apelación, y extraordinario el recurso de revisión. Solo la resolución que rechaza y deniega la gestión administrativa y la resolución final que concluye el procedimiento, tendrán recurso de apelación, por cuanto son las únicas con efectos jurídicos propios.
+No cabrá recurso alguno contra las resoluciones interlocutorias o de mero trámite.

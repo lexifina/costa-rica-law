@@ -1,0 +1,18 @@
+Artículo 108.- Inscripción de planos generales de cementerios. Cuando se trate de proyectos que incluyan nichos, tumbas y fosas, en el Departamento Catastral Registral se solicitará un diseño general firmado por la persona profesional en agrimensura, aprobado por el Colegio Federado de Ingenieros y de Arquitectos, y visado por el Ministerio de Salud y la respectiva municipalidad; para los efectos se deberá cumplir con los siguientes requisitos:
+a) Cumplir con lo establecido en el artículo 84, de este reglamento.
+b) Indicar el nombre oficial del proyecto.
+c) Señalar el número de plano catastrado de la finca madre.
+d) Indicar la situación geográfica del proyecto con indicación del lugar, barrio o caserío, nombre y número del distrito, cantón y provincia; todo de acuerdo con la División Territorial Administrativa de Costa Rica, vigente al momento de la presentación del documento.
+e) Mencionar el nombre completo de las personas colindantes o identificadores prediales. Cuando existan linderos naturales o artificiales como ríos, canales, quebradas, caminos, carreteras o calles, se consignará el nombre de estos. Si el inmueble se encuentra en distritos oficializados, aportará los números de identificadores prediales los inmuebles colindantes.
+f) Mencionar los nombres de los cuerpos de aguas, las servidumbres y restricciones que afecten el proyecto y sus respectivas notas de afectación.
+g) Incluir en forma gráfica la distribución geométrica de los nichos, tumbas y fosas con su correspondiente numeración, trazado y ancho de las calles, aceras y zonas verdes; así como el tamaño, forma, números de filas y nombre de los bloques o jardines que conforman el proyecto. Se incluirán, además, los cuadros de dimensiones, cantidades y numeración de los nichos, tumbas y fosas con su respectivo cuadro de áreas correspondiente.
+Para lo cual deberá acompañarse del archivo digital, a efecto de que se incorpore a los sistemas de información de referencia espacial. Este plano general puede desarrollarse por jardines y/o bloques.
+h) Contar con un sistema único de puntos permanentes de control horizontal y vertical vinculado a la red geodésica nacional, enlazado al Sistema Nacional de Coordenadas Oficiales y cumplir con las precisiones y exactitudes establecidas en el presente reglamento.
+Deberá aportar, además, el cuadro de las coordenadas de los puntos de referencia indicando el tipo de monumentación.
+i) Adjuntar las aprobaciones de los planos constructivos por parte del Colegio Federado de Ingenieros y de Arquitectos, Ministerio de Salud y de la municipalidad respectiva.
+En aquellos casos, que el desarrollo se dé por etapas, el visado de las instituciones competentes debe indicar que la misma se encuentra debidamente terminada.
+j) Adjuntar declaración jurada de la persona profesional responsable, manifestando bajo la fe de juramento, que el Área Rectora de Salud otorgó el visado correspondiente. El documento debe contener el nombre completo y calidades de la persona profesional responsable; la fecha en que el Área Rectora de Salud otorgó la autorización al proyecto que se refiere; nombre y firma de la persona funcionaria que lo concede; y/o el número de oficio de aprobación con que se otorgó, si lo tuviere.
+k) En lo que respecta al visado y/o autorización municipal, estas podrán estar contenidas en los planos generales sometidos a análisis, o bien, aportar la declaración jurada en los términos que se indicó en el inciso anterior.
+l) Mencionar el número de tomo y de folio del protocolo en donde consta el levantamiento y/o replanteo del desarrollo.
+m) Indicar el uso (nicho, fosa o tumba).
+n) Incluir el detalle geométrico con las dimensiones de los nichos, tumbas y fosas.

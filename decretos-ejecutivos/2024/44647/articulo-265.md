@@ -1,0 +1,6 @@
+Artículo 265.- Requisitos de la gestión administrativa a solicitud de parte. El escrito inicial que promueve una gestión administrativa a instancia de parte se presentará ante la Dirección del Registro Inmobiliario y deberá cumplir con los siguientes requisitos:
+a) Relatar los hechos que describan y delimiten la existencia de la inexactitud que conste en la publicidad registra! inmobiliaria.
+b) Indicar un medio para recibir notificaciones, ya sea electrónico o cualquier otro que permita la Ley de Notificaciones Judiciales, Ley 8687.
+c) Si se actúa por medio de representante, en la solicitud se deben indicar las citas de inscripción de los poderes inscribibles de que se trate; y/o aportar la documentación que acredite la validez de los poderes no inscribibles con que se actúe.
+d) Aportar el comprobante de cancelación del arancel registra!, establecido en la Ley de Aranceles del Registro Público, Ley 4564. Excepto que la gestión administrativa esté motivada en un error u omisión registral, en aplicación del artículo 2, inciso e), párrafo segundo de la Ley de Aranceles del Registro Público, Ley 4564.
+e) Autenticar notarialmente la firma de parte gestionante y aportar el timbre del Colegio de Abogados de Costa Rica, según el Arancel de Honorarios por Servicios Profesionales de Notariado.

@@ -1,0 +1,1 @@
+Artículo 134.- Inscripción de planos de agrimensura en zona fronteriza norte. Para los planos de agrimensura que se sitúen geográficamente dentro de los dos kilómetros fronterizos de la zona norte se requiere para su inscripción el visado del Ministerio de Ambiente y Energía (MINAE). Además, se deberá cumplir con lo dispuesto en los artículos 84 y 86, de este reglamento.

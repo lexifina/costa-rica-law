@@ -1,0 +1,1 @@
+Artículo 171.- Relación de asientos de presentación. La relación de asientos de presentación se autorizará en los casos en que, para lograr la inscripción se deban tramitar en forma conjunta documentos judiciales o administrativos con documentos notariales. Para tales efectos, los asientos de presentación deberán estar vigentes.

@@ -1,0 +1,7 @@
+Artículo 184.- Inscripción del asiento referente a los derechos de usufructo, uso y habitación. La inscripción de un asiento registral referente a la constitución de derechos de usufructo, uso y habitación, requiere que el documento que se presenta para su inscripción, contenga los siguientes datos:
+a) Nombre, apellidos, domicilio exacto, estado civil y número de documento de identificación de la persona física o jurídica a cuyo favor se haga la inscripción y los de aquella que transmita o constituya el derecho que ha de inscribirse.
+b) Indicar cuál de los tres derechos reales es el que se adquiere. Pueden coexistir en un inmueble derechos de usufructo, uso y habitación, en el tanto se indique la proporción de cada uno de ellos, y no excedan el cien por ciento del disfrute del bien.
+c) El título traslativo de dominio.
+d) La estimación o precio según corresponda.
+e) Cuando el usufructo se transmite o es adquirido por dos o más personas, se puede indicar la proporcionalidad en que quedarán titulares de este, caso contrario se debe entender que se disfrutará en forma conjunta.
+f) Cuando se reserva el usufructo a favor de una tercera persona o en forma conjunta, no será necesaria la aceptación del beneficiario o su comparecencia; ni tampoco requiere exigirse la tipificación del contrato ( causa traslativa de dominio), ya que se trata en este caso particular de una donación. No obstante, sí se requiere la estimación, para efectos del pago de la constitución de dicho usufructo.

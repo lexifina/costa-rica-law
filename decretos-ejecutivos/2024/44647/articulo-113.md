@@ -1,0 +1,1 @@
+Artículo 113.- Fincas que publicitan como naturaleza tumba o nicho y que cuentan con planos generales o diseños de sitio aprobados. En estos casos, los planos que se sometan a calificación, deberán ser concordantes con la distribución y dimensiones que se establecen en los planos generales constructivos de estos desarrollos.

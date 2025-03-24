@@ -1,0 +1,3 @@
+Artículo 154.- Revisión de la boleta de seguridad. La persona registradora a quien se le asignó el documento para su trámite deberá corroborar que la boleta de seguridad que lo acompaña corresponda a la asignada a la persona notaria o autoridad que emite el documento.
+Cuando un documento se haya otorgado en conotariado, la boleta de seguridad deberá pertenecer a la persona notaria que emite el testimonio para su inscripción.
+Cuando la boleta de seguridad haya sido previamente utilizada, no se aporte o no corresponda a la persona notaria que emite el testimonio, se cancelará el asiento de presentación del documento.

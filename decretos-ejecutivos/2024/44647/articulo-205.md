@@ -1,0 +1,2 @@
+Artículo 205.- División o reunión de fincas. Si el inmueble se dividiera, se confeccionarán tantas nuevas inscripciones y matrículas como fincas resultaren, anotándose en la inscripción primigenia, los números de matrículas de las fincas resultantes. Cuando se reúnan inmuebles, se hará una nueva y única matrícula.
+Si la división o la reunión se realizan a favor de varias personas, deberá indicarse la proporcionalidad en que quedan como copropietarios.

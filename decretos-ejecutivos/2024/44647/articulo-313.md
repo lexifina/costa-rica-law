@@ -1,0 +1,1 @@
+Artículo 313.- Cancelación de asientos irregulares. Una vez vencidas las audiencias conferidas, la persona directora o subdirectora registral resolverá conforme a la prueba objetiva aportada y dentro de los treinta días hábiles siguientes, ordenando la cancelación de un asiento provisional o definitivo, cuando no exista un presunto tercero registral protegido.

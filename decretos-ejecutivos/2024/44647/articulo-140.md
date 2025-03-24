@@ -1,0 +1,1 @@
+Artículo 140.- Acceso por vía fluvial. Es procedente la registración de planos de agrimensura que acceden por ríos navegables, siempre y cuando se indique la distancia adyacente al río como zona de protección con el ancho que indica el ordenamiento jurídico.

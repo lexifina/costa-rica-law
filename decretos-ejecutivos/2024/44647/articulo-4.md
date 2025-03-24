@@ -1,0 +1,1 @@
+Artículo 4.- Finalidad del Registro Inmobiliario. El Registro Inmobiliario tiene como finalidad fortalecer la seguridad registral inmobiliaria, por medio de los efectos jurídicos de su publicidad material, atendiendo a la eficacia y eficiencia en la tramitación de los documentos presentados.

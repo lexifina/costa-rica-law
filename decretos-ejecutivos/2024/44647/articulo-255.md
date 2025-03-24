@@ -1,0 +1,1 @@
+Artículo 255.- Nota de advertencia administrativa. Medida cautelar que se consigna en los asientos registrales y/o catastrales para efecto de brindar publicidad noticia, mientras se encuentra en trámite un procedimiento de gestión administrativa.

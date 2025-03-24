@@ -1,0 +1,3 @@
+Capítulo sexto: Impugnación a la calificación de documentos
+Artículo 41.- Criterios registrales. La persona directora o subdirectora respectiva comunicarán los criterios registrales derivados de precedentes administrativos sobre casos concretos, que resulten aplicables y pertinentes en la calificación de documentos sujetos a inscripción, los cuales serán de acatamiento obligatorio para las personas registradoras en casos análogos.
+Las resoluciones referentes a oposiciones a la calificación, ocursos, resoluciones finales de diligencias administrativas u otros, se considerarán criterios registrales aplicables por las personas registradoras para casos análogos, en el tanto sean comunicados en la forma dispuesta en el presente artículo.

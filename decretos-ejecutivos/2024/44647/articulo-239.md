@@ -1,0 +1,1 @@
+Artículo 239.- Tarifa. La Junta Administrativa del Registro Nacional establecerá la tarifa para la legalización de los libros que regula el artículo 32 bis, de la Ley Reguladora de la Propiedad en Condominio, Ley 7933, quedando facultada para la modificación por acuerdo de Junta, cuando lo considere conveniente para la prestación eficiente del servicio.

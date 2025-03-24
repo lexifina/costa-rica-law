@@ -1,0 +1,6 @@
+Artículo 149.- Requisitos para la cancelación de la inscripción de los planos catastrados. Para la cancelación de la inscripción de un plano catastrado, se deberá cumplir con los siguientes requisitos:
+a) Comparecencia de la persona legitimada en escritura pública, solicitando expresamente la cancelación de la inscripción, indicando el número del plano o planos catastrados.
+b) Adjuntar el pago de los rubros tributarios de ley.
+c) Presentar el testimonio ante la Dirección de Servicios del Registro Nacional.
+d) En caso de cancelación de la inscripción de planos para expropiar y planos cuyo titular registral de los asientos a los cuales se relaciona el plano catastrado es el Estado y sus instituciones, la solicitud la realizará el representante de la institución por escrito, el cual deberá ser emitido en papel membretado y sellado, con la boleta de seguridad respectiva, y presentarse ante la Dirección de Servicios del Registro Nacional. Si la entidad estatal no tiene asignadas boletas de seguridad, la solicitud de cancelación de la inscripción del plano catastrado deberá presentarse ante la Dirección del Registro Inmobiliario.
+e) La cancelación del plano catastrado será procedente siempre y cuando el documento no haya sido utilizado para generar un asiento registral.

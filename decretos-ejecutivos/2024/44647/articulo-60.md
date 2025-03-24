@@ -1,0 +1,1 @@
+Artículo 60.- Vías públicas. Para proceder a la conformación del mapa catastral los gobiernos locales están obligados a remitir las vías públicas del cantón, en el formato digital que señale la Dirección del Registro Inmobiliario.

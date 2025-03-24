@@ -1,0 +1,1 @@
+Artículo 68.- Tolerancias del mapa catastral. En la conformación del mapa catastral, el valor de la tolerancia en la escala 1: 1000, será de ± 0,85 m., y el valor de la tolerancia en la escala 1 :5000, será de ± 4,25 m.

@@ -1,0 +1,3 @@
+Transitorio III.-
+Los planos catastrados que de previo a la entrada en vigencia de este reglamento no hayan generado movimientos registrales en el Departamento Inmobiliario Registral y que no se encuentren sujetos a los plazos de provisionalidad regulados en el decreto ejecutivo número 34331, quedarán cancelados de pleno derecho en el plazo de un año contado a partir de la puesta en vigencia del presente reglamento.
+Quedarán exceptuados de la anterior cancelación de pleno derecho los planos catastrados que, sean de interés para el Estado y sus instituciones, así como aquellos planos que las autoridades jurisdiccionales hayan ordenado mantener su vigencia por existir procedimientos judiciales en trámite.

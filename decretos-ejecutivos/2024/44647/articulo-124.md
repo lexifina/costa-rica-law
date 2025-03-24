@@ -1,0 +1,2 @@
+Artículo 124.—Planos situados en islas. Los planos que correspondan a islas marítimas no necesitarán visado de la Dirección del Instituto Geográfico Nacional, como tampoco de la Asamblea Legislativa para su inscripción. En aquellos casos que no se cuente con la delimitación de la zona pública, se solicitará la autorización a que alude el artículo 63 del Reglamento a la Ley sobre la Zona Marítimo Terrestre, Ley 6043.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 188 del 9 de octubre de 2024, página N° 2)

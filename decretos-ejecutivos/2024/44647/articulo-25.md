@@ -1,0 +1,12 @@
+Artículo 25.- Deberes y atribuciones de las personas funcionarias del Departamento de Mantenimiento Catastral. Las personas funcionarias del Departamento de Mantenimiento Catastral tienen competencia para ejecutar labores profesionales orientadas a la provisión de insumos para la emisión de criterios y disposiciones técnicas, así como mediciones geodésicas y catastrales, levantamientos de agrimensura y dibujo de planos para inscripción; y para ejecutar labores profesionales relacionadas con la planeación, análisis, medición, cálculo, ajuste y corrección de los levantamientos catastrales, y con la asesoría, emisión de criterios y lineamientos técnicos y resoluciones de inexactitudes en levantamientos catastrales complejos, con el fin de fortalecer el ordenamiento territorial del país.
+Corresponde a las personas funcionarias del Departamento de Mantenimiento Catastral:
+a) Realizar los estudios de asientos registrales y catastrales, comprobando que cumplan con las tolerancias y parámetros establecidos en la normativa vigente para desarrollar la correspondiente conciliación jurídica-catastral.
+b) Redactar y firmar los estudios técnicos catastrales solicitados por el Estado, sus instituciones y las autoridades jurisdiccionales, únicamente en territorios oficializados.
+c) Analizar la conformidad de linderos, ubicación, área, forma y dimensiones de las fincas descritas mediante planos de agrimensura y catastrados, para darle mantenimiento a la obra catastral con cobertura nacional.
+d) Ejecutar el proceso de actualización y mantenimiento del mapa catastral, para garantizar su vigencia y permanencia en el tiempo.
+e) Participar en la elaboración de lineamientos técnicos para la generación, implementación y uso de información catastral.
+f) Gestionar la corrección de las inexactitudes generadas en los sistemas de procesamiento electrónico de datos, procurando la corrección y actualización de la información publicitada.
+g) Coordinar, supervisar y dirigir visitas de campo, sobre situaciones específicas con predios en el mapa catastral, en procura de aportar elementos que contribuyan a su actualización y mantenimiento.
+h) Mantener actualizadas las bases de datos relacionadas con la obra catastral, para la consulta y calificación de planos de agrimensura.
+i) Atender y resolver las consultas y trámites que le formulen sus superiores jerárquicos, las personas funcionarias, otros entes o personas usuarias.
+j) Acatar las disposiciones emitidas por sus superiores jerárquicos.

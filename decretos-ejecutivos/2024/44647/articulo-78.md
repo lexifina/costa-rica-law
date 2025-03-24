@@ -1,0 +1,2 @@
+Capítulo tercero: Estudios técnicos catastrales rendidos por las personas agrimensoras
+Artículo 78.- Estudios técnicos catastrales. Las personas agrimensoras están facultadas para rendir conciliaciones jurídicas-catastrales en las gestiones administrativas, apelaciones y oposiciones, para lo cual deberán cumplir técnicamente con lo que señala este reglamento. En las gestiones administrativas, será necesario contar con el aval de las personas titulares registrales.

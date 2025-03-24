@@ -1,0 +1,2 @@
+Artículo 67.- Exactitudes del mapa catastral. Para los predios con áreas iguales o menores a 5000 m2 se aplicarán las exactitudes correspondientes a la escala 1: 1000.
+Si en la actualización cartográfica se cuenta con cartografía a escala 1: 1000, aún y cuando el mapa catastral en ese sector hubiese sido confeccionado a escala 1 :5000, las tolerancias exigidas en ese caso serán las de la escala 1: 1000. Si el plano fue inscrito previamente a contar con el insumo a escala 1: 1000, en el proceso de verificación del plano se aplicarán las tolerancias de la escala 1 :5000.

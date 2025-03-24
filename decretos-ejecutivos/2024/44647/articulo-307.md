@@ -1,0 +1,2 @@
+Artículo 307.- Legitimación para solicitar la cancelación de asientos de presentación provisional o de inscripción definitiva de origen irregular. La solicitud de cancelación de asientos irregulares podrán realizarla las personas interesadas o afectadas de la anotación provisional o de la inscripción definitiva de origen irregular.
+No podrán alegarse derechos derivados directamente de un asiento registral originado en documentación irregular e inexistente, salvo los del tercero registral protegido por el principio de fe pública registral.

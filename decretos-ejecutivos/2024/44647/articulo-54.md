@@ -1,0 +1,1 @@
+Artículo 54.- Plazo para resolver la calificación del documento complejo. La persona registradora deberá calificar y devolver a la persona usuaria el documento complejo en el plazo máximo de tres meses, contado a partir de la fecha del asiento de presentación.

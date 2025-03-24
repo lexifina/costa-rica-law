@@ -1,0 +1,10 @@
+Artículo 19.- Deberes y atribuciones de las personas registradoras del Departamento Catastral Registral. Las personas registradoras del Departamento Catastral Registral tienen competencia para ejecutar actividades profesionales orientadas a la calificación y registro de los planos de agrimensura sometidos a su estudio, lo cual harán por los medios de que dispongan en coordinación con la Dirección del Registro Inmobiliario, con el fin de garantizar la publicidad y fortalecer la seguridad registral inmobiliaria.
+Corresponde a las personas registradoras del Departamento Catastral Registra}:
+a) Comprobar que los planos de agrimensura que ingresan para calificación e inscripción cumplan con los requisitos formales y legales para su registración.
+b) Verificar los levantamientos que constan en los planos de agrimensura, comprobando que cumplan con los parámetros de exactitud. precisión del mapa catastral y con los requisitos establecidos en la normativa vigente.
+c) Analizar y comprobar las dimensiones, área y georreferenciación aportadas en las presentaciones de los planos de agrimensura, verificando o descartando la existencia de inconsistencias que afecten la certeza de los asientos inmobiliarios.
+d) Calificar dentro de los plazos de ley, bajo su estricta responsabilidad y de acuerdo con el orden de presentación todos los documentos que le correspondan.
+e) Proceder a la inscripción o devolución de los planos de agrimensura defectuosos, conforme a los asientos catastrales y registrales, y al ordenamiento jurídico establecido.
+f) Autorizar la inscripción de los planos de agrimensura sometidos a su estudio, mediante los medios que fije la Dirección del Registro Inmobiliario, y actualizar inmediatamente la información de las bases de datos, para que esta pueda ser consultada por las personas usuarias.
+g) Evacuar las consultas que le formulen sus superiores jerárquicos respecto de los planos de agrimensura sometidos a su estudio.
+h) Acatar las disposiciones emitidas por sus superiores jerárquicos.

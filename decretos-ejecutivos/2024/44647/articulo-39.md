@@ -1,0 +1,1 @@
+Artículo 39.- Principio de continuidad del mapa catastral. Los datos que contiene el mapa catastral son continuos, espaciales y temporales, en consecuencia, los predios que no tengan titular registral deben contener un identificador predial.

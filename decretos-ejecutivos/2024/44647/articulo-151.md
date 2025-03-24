@@ -1,0 +1,6 @@
+Capítulo sétimo: Provisionalidad de los planos catastrados
+Artículo 151.- Inscripción provisional de los planos catastrados. Los planos de agrimensura se inscribirán provisionalmente y tendrán una vigencia de un año contado a partir de la fecha de inscripción respectiva, salvo los siguientes casos:
+a) Los planos para información posesoria, para usucapir y para localizar derechos tendrán una vigencia de tres años contados a partir de la fecha de inscripción respectiva, excepto aquellos planos que se encuentran en trámites judiciales y lo comunique así la autoridad jurisdiccional competente.
+b) Los planos para concesión tendrán una vigencia de tres años contados a partir de la fecha de inscripción respectiva, excepto aquellos planos que se encuentran en trámites de otorgamiento de concesión y lo indique así la autoridad administrativa, sea el gobierno local competente.
+c) Los planos que sean de interés para el Estado y sus instituciones no estarán sujetos a provisionalidad alguna.
+Los términos antes indicados, se establecen con el fin de que la persona interesada proceda a realizar el movimiento registral correspondiente en el Departamento Inmobiliario Registral, durante el término de vigencia del plano catastrado. Transcurrido el plazo de provisionalidad del plano catastrado quedará de pleno derecho cancelada la inscripción respectiva.

@@ -1,0 +1,1 @@
+Artículo 166.- Inscripción. Superada la etapa de verificación de requisitos de admisibilidad y aspectos tributarios, así como la etapa de revisión del acto o negocio jurídico rogado, la persona registradora procederá a la autorización de inscripción del documento, generando, modificando o cancelando el respectivo asiento registral, según corresponda.

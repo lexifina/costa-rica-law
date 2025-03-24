@@ -1,0 +1,1 @@
+Artículo 177.- Forma de registrar la información. La inscripción de un inmueble se efectuará consignándole un número de matrícula, bajo el cual se indicará toda la información referente a este. El asiento de inscripción se confeccionará registrando la información requerida en cada caso, empleando los medios tecnológicos disponibles en la institución.

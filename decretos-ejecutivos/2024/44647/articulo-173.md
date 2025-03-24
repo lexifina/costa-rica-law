@@ -1,0 +1,6 @@
+Artículo 173.- Requisitos para el retiro sin inscribir de documentos. Una vez presentado un documento, se consideran rogados para su inscripción todos los actos o contratos inscribibles que consten en el mismo y para la cancelación total del asiento de presentación se deberá cumplir con los siguientes requisitos:
+a) Solicitud del retiro sin inscribir suscrita por las partes legitimadas, mediante escritura pública o documento auténtico, de acuerdo con la formalidad utilizada en el documento que se retira.
+b) Reingresar el documento a retirar y adjuntarle la solicitud del retiro sin inscribir. No será procedente su presentación ante la Dirección de Servicios del Registro Nacional para generar un nuevo asiento de presentación.
+c) Cancelar en su totalidad todos los tributos respectivos requeridos para la inscripción del documento a retirar. El arancel registral cancelado en el documento no será objeto de devolución.
+d) El asiento registra! del documento a retirar deberá estar vigente ya que, de estar caduco, solo podrá ser cancelado por la persona registradora al determinar la caducidad e inscribir nuevos títulos.
+e) Es válida la inscripción de algunos de los actos o contratos inscribibles contenidos en el documento, y la cancelación de las anotaciones inicialmente rogadas, si se solicita el retiro sin inscribir parcial.

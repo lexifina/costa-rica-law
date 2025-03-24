@@ -1,0 +1,14 @@
+Artículo 105.- Inscripción de planos generales o diseños de sitio de la urbanización. Para todo proceso urbanístico, es necesario previo a su aprobación en el Departamento Catastral Registral, que el plano general o diseño de sitio y sus modificaciones, contengan la aprobación de la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo y la municipalidad respectiva, independientemente de la existencia de plan regulador, para lo cual deberá acompañarse del archivo digital, a efecto de que se incorpore a los sistemas de información de referencia espacial.
+El plano general o diseño de sitio, deberá contener los siguientes requisitos:
+a) Cumplir con lo establecido en el artículo 84, de este reglamento.
+b) Indicar el nombre completo de la persona propietaria y el nombre oficial de la urbanización.
+c) Aportar la firma digital de la persona profesional responsable de los trabajos topográficos y de mensura de la urbanización, indicando con caracteres claros su nombre completo, su título profesional y el número de su carné.
+d) Indicar el número de plano catastrado de la finca urbanizada.
+e) Señalar la situación geográfica de la urbanización con indicación del lugar, barrio o caserío, distrito, cantón y provincia, todo de acuerdo con la División Territorial Administrativa de Costa Rica vigente.
+f) Indicar el nombre completo de las personas colindantes o identificadores prediales.
+Cuando existan linderos naturales o artificiales como ríos, canales, quebradas, caminos, carreteras o calles, se consignará el nombre de estos. En el caso de caminos, su destino, y en áreas urbanas, el número de avenidas y calles.
+g) Mencionar los nombres de los cuerpos de aguas, las servidumbres y restricciones que afecten la urbanización si las hubiere.
+h) Indicar en forma gráfica la distribución de los lotes con su correspondiente numeración; todos sus frentes, fondos, áreas y uso propuesto, trazado y ancho de las calles, aceras y zonas verdes; así como el tamaño y forma de los bloques. Para lo cual deberá acompañarse del archivo digital, a efecto de que se incorpore a los sistemas de información de referencia espacial.
+i) Incluir todas las operaciones de mensura y topografía de urbanización que deberán estar referidas a un sistema único de puntos permanentes de control horizontal y vertical vinculado a la red geodésica nacional, enlazado al Sistema Nacional de Coordenadas Oficial, además, cumplir con las precisiones y exactitudes establecidas en el presente reglamento.
+j) Aportar las autorizaciones del Instituto Nacional de Vivienda y Urbanismo y de la municipalidad respectiva, así corno el sello del Colegio Federado de Ingenieros y de Arquitectos.
+k) Señalar el número de tomo y de folio del protocolo en donde consta el levantamiento y replanteo de la urbanización.

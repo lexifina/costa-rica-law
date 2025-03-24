@@ -1,0 +1,1 @@
+Artículo 193.- Constitución y expedición de cédulas hipotecarias. La constitución de las hipotecas de cédulas se efectuará en escritura pública. Una vez constituido e inscrito el testimonio, se emitirán las cédulas que deberán ser firmadas por la persona registradora de cédulas hipotecarias y la persona titular del inmueble hipotecado o su legítimo representante.

@@ -1,0 +1,1 @@
+Artículo 228.- Asignación del número de legalización. Al inscribirse la constitución del condominio, la Sección de Propiedad en Condominio del Registro Inmobiliario de forma oficiosa, asignará el número de legalización correspondiente, el cual se hará de conocimiento en la hoja de inscripción física o digital.

@@ -1,0 +1,1 @@
+Artículo 143.- Acceso por camino privado. Es procedente la registración de planos de agrimensura que acceden por caminos privados. siempre y cuando se traten de fincas completas y que ese acceso conste en los asientos registrales.

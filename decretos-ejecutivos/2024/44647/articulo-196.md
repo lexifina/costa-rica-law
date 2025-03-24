@@ -1,0 +1,1 @@
+Artículo 196.- Diferencia entre la literalidad de la cédula hipotecaria y el asiento registral. Si del cotejo de la literalidad de la cédula hipotecaria con su respectivo asiento registra} resultaren incongruencias o diferencias, la persona registradora denegará la emisión, hasta tanto no se subsanen los errores u omisiones.

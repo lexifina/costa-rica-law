@@ -1,0 +1,1 @@
+Artículo 189.- Cierres de fincas que publicitan gravámenes de servidumbre en contra. No procederá el cierre de una finca que publicite una servidumbre sirviente de cualquier tipo, salvo que comparezca la persona titular de los fundos dominantes y consienta la cancelación de dichos gravámenes.

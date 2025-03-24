@@ -1,0 +1,3 @@
+Capítulo cuarto: Procedimiento de gestión administrativa
+Artículo 262.- Objetivo de la gestión administrativa. Por medio de la gestión administrativa se procura el saneamiento de las inexactitudes en la publicidad registral inmobiliaria con la anuencia de las personas titulares o terceras legitimadas; y en caso de ser improcedente tal corrección se procederá a la inmovilización de los asientos registrales o catastrales.
+El conocimiento de las inexactitudes en la publicidad registral inmobiliaria por este procedimiento puede iniciarse de oficio o a solicitud de parte interesada, conforme la información contenida en los asientos registrales y catastrales.

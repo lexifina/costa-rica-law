@@ -1,0 +1,2 @@
+Artículo 322.- Acceso al expediente administrativo. Las partes y sus representantes, las personas profesionales en derecho o en topografía, y cualquier persona interesada, tendrán derecho a examinar y leer el expediente administrativo, ante la Dirección del Registro Inmobiliario.
+La copia simple o la certificación del expediente administrativo, sea total o parcial, deberá ser solicitada en la Dirección de Servicios Registrales del Registro Nacional, cancelando de previo la tarifa correspondiente.

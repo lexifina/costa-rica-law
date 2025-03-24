@@ -1,0 +1,1 @@
+Artículo 153.- Documentos judiciales y documentos notariales consulares. Los testimonios expedidos por cónsules deberán presentarse con la boleta de seguridad asignada al Ministerio de Relaciones Exteriores y los documentos judiciales con la boleta de seguridad asignada al Poder Judicial.

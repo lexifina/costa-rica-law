@@ -1,0 +1,1 @@
+Artículo 139.- Acceso por vía férrea. Para registrar un plano de agrimensura que describa un fraccionamiento y que éste acceda mediante vía férrea, el mismo deberá contar con la aprobación del Instituto Costarricense de Ferrocarriles.

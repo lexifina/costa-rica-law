@@ -1,0 +1,2 @@
+Artículo 320.- Dictado de las resoluciones administrativas. Todas las horas del día en que se dicten las resoluciones administrativas, se expresarán en el sistema horario de veinticuatro horas.
+Las actuaciones administrativas, se realizarán normalmente en días y horas hábiles, sin embargo, las resoluciones podrán dictarse en días y horas inhábiles, cuando la demora pueda causar graves perjuicios a la publicidad registral inmobiliaria.

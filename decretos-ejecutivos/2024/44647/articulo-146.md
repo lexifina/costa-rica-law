@@ -1,0 +1,1 @@
+Artículo 146.- Fundos enclavados. Procederá la inscripción de planos de agrimensura que no contengan acceso, siempre y cuando correspondan a fincas completas y se compruebe de la información registral que es un fundo enclavado.

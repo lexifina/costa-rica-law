@@ -1,0 +1,1 @@
+Artículo 97.- Planos de agrimensura de un mismo inmueble. En el Departamento Catastral Registra} se suspenderá la registración de planos de agrimensura que describan porciones de terrenos que estén contenidas en otras presentaciones, en tales casos señalará el defecto.

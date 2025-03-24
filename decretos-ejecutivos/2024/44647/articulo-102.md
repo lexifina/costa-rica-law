@@ -1,0 +1,4 @@
+Artículo 102.- Indicaciones generales para los visados en fraccionamientos y urbanizaciones. En el Departamento Catastral Registral sólo se inscribirán los planos que se ajusten a las disposiciones legales expresamente admitidas por la respectiva municipalidad y el Instituto Nacional de Vivienda y Urbanismo, mediante el visado correspondiente, de conformidad con las siguientes indicaciones generales:
+a) No se solicitarán los visados cuando los planos a inscribir correspondan a fincas completas, rectificaciones de áreas o derechos de posesión.
+b) La autorización o visado de un plano de agrimensura, cuando sea requerida, deberá ser previa a la inscripción en el Departamento Catastral Registral.
+c) Todo fraccionamiento requiere visado de la municipalidad respectiva, independientemente del área del levantamiento.

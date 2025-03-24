@@ -1,0 +1,2 @@
+Artículo 278.- Solicitud de prueba para mejor resolver. En la instrucción del procedimiento y antes del dictado de la resolución final, se podrá procurar prueba técnica, la cual deberá estar relacionada con las inexactitudes en la publicidad registral inmobiliaria en investigación.
+Rendida la prueba, la misma deberá ser incorporada al expediente mediante resolución, y puesta en conocimiento por un plazo de quince días hábiles a todas las partes apersonadas.

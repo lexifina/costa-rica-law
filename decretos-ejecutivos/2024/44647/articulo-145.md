@@ -1,0 +1,1 @@
+Artículo 145.- Derecho de paso. Procederá la inscripción de planos de agrimensura que señalen como acceso derecho de paso siempre y cuando se aporte la sentencia judicial que constituyó el acceso o bien de la información registral se desprenda que ese acceso está constituido.

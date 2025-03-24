@@ -1,0 +1,4 @@
+Artículo 216.- Inscripción de prórrogas y ajustes de plazo de concesiones al amparo de la Ley 6758. La inscripción de la prórroga o del ajuste de plazo de una concesión constituida al amparo de la Ley que regula la ejecución del Proyecto Turístico Papagayo, Ley 6758, requiere la presentación del respectivo testimonio de escritura pública en el cual comparezca la persona concesionaria o su representante legal y la persona representante legal del Instituto Costarricense de Turismo; y, además, debe cumplir con las siguientes especificaciones:
+a) Transcripción literal de la resolución que aprueba la prórroga o el ajuste de plazo, la cual debe ser emitida por la Junta Directiva del Instituto Costarricense de Turismo.
+La persona notaria debe dar fe de la firmeza de la resolución.
+b) Transcripción del convenio de prórroga o ajuste de plazo, en el cual debe constar el número de matrícula de la concesión y el nuevo plazo de la concesión.

@@ -1,0 +1,1 @@
+Artículo 49.- Recurso de apelación contra el ocurso. De lo resuelto por la persona directora procederá el recurso de apelación ante el Tribunal Registral Administrativo, como tercer recurso formal. Este deberá presentarse ante la Dirección, dentro de los cinco días hábiles siguientes a la notificación de la resolución final dictada en las diligencias ocursales.

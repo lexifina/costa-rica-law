@@ -1,0 +1,3 @@
+Título tercero: Documentos inscribibles en el Departamento Inmobiliario Registral
+Capítulo primero: Medios de seguridad
+Artículo 152.- Boleta de seguridad. Todo documento que se presente en forma física para su inscripción en el Departamento Inmobiliario Registral, con el fin de generar un asiento de presentación nuevo, los retiros sin inscribir, los ulteriores testimonios de documentos defectuosos, las resoluciones contractuales de documentos con asiento de presentación provisional vigente y las certificaciones notariales adjuntas a documentos judiciales, deberán traer la respectiva boleta de seguridad. Se exceptúan de este requisito los documentos de la Dirección del Registro Inmobiliario.

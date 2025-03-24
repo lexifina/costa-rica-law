@@ -1,0 +1,1 @@
+Artículo 115.- Fincas que señalan como naturaleza tumbas o nichos nacidas con anterioridad al 28 de octubre de 1982. Todo plano que se presente de fincas nacidas con anterioridad al 28 de octubre del año 1982, podrá registrarse aún y cuando no exista plano general del cementerio.

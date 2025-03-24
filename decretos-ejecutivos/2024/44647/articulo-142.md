@@ -1,0 +1,1 @@
+Artículo 142.- Acceso por canales principales de Tortuguero. Es procedente la registración de planos de agrimensura que se acceden por los canales principales de Tortuguero, siempre y cuando se indique la distancia adyacente al canal como zona inalienable correspondiente a los doscientos metros de la zona marítimo terrestre.

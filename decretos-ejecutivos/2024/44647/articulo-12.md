@@ -1,0 +1,2 @@
+Artículo 12.- De la Asesoría Legal. El Registro Inmobiliario cuenta con una Asesoría Legal, especializada en la materia propia de su competencia, la cual depende directamente de la persona directora y está constituida por una persona coordinadora y las personas asesoras legales.
+La Asesoría Legal tiene como función principal brindar asesoría sobre aspectos jurídicos registrales a la Dirección del Registro Inmobiliario, a las Subdirecciones, y demás unidades organizativas, con base en las leyes y normativa vigente que regula la actividad profesional.

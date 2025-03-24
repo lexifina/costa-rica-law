@@ -1,0 +1,1 @@
+Artículo 40.- Utilización de los sistemas de procesamiento electrónico de las bases de datos. Los medios de acceso a la base de datos son de uso único y exclusivo de la persona funcionaria del Registro Inmobiliario a quien se le asigna y será el responsable por su utilización irregular.

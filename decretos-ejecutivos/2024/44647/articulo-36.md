@@ -1,0 +1,2 @@
+Artículo 36.- Principio de especialidad. La especialidad se refiere a la determinación de la titularidad, características y demás condiciones publicitables del derecho real conforme a la ley.
+El Registro Inmobiliario tiene competencia especializada en cuanto a la inscripción de los derechos reales inmobiliarios, por lo que no se podrá inscribir ningún documento en otro Registro que opere con otra especialidad funcional.

@@ -1,0 +1,2 @@
+Artículo 194.- Requisitos de los documentos de constitución de cédulas hipotecarias. Los documentos de constitución de cédulas hipotecarias deberán contener los mismos requisitos que los documentos en los cuales se constituyen gravámenes hipotecarios, según el artículo 191, de este reglamento.
+En este caso específico, tanto el gravamen como la propia cédula hipotecaria, publicitarán la tasa de interés moratorio en caso de haberse pactado.

@@ -1,0 +1,1 @@
+Artículo 289.- Oposición de las personas titulares registrales o interesadas. De presentarse por escrito alguna oposición de las personas titulares registrales o interesadas, en virtud de la consignación del aviso catastral en los asientos registrales o catastrales relacionados, se aplicará el procedimiento de gestión administrativa.

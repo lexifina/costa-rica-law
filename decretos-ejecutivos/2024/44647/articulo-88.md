@@ -1,0 +1,1 @@
+Artículo 88.- Área en los planos de agrimensura. El área indicada en los datos generales debe coincidir con el área derivada del archivo digital aportado por la persona agrimensora, la cual será responsable de las consecuencias derivadas de la inexactitud entre el listado de coordenadas y el área indicada.

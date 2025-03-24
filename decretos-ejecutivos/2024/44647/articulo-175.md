@@ -1,0 +1,1 @@
+Artículo 175.- Reposición de documentos físicos deteriorados o extraviados. En el caso que la persona registradora deteriore o extravíe documentos físicos presentados para su inscripción, deberá proceder de oficio a la reposición del documento mediante copias certificadas para su tramitación.

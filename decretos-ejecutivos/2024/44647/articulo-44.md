@@ -1,0 +1,5 @@
+Artículo 44.- Calificación de los documentos en la oposición. La persona registradora al recibir el documento con la oposición a la calificación lo valorará nuevamente y determinará si mantiene los defectos consignados, en cuyo caso lo trasladará a la coordinación respectiva.
+La coordinación de la persona registradora podrá revocar el defecto consignado y ordenar bajo su responsabilidad la inscripción respectiva, o podrá confirmar el defecto, en cuyo caso deberá trasladar el documento a la persona subdirectora competente.
+En el Departamento Catastral Registra}, la coordinación de la persona registradora al confirmar el defecto deberá dictar una calificación técnica, de previo a trasladar el documento a la persona subdirectora catastral.
+La persona subdirectora competente podrá revocar la orden de suspensión de la inscripción consignada, ordenando mediante resolución debidamente razonada la inscripción del documento.
+En caso contrario, la persona subdirectora competente podrá confirmar el defecto o los defectos consignados.

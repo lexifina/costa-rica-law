@@ -1,0 +1,1 @@
+Artículo 317.- Resolución del Tribunal Registral Administrativo. Una vez resuelto en segunda instancia lo que corresponda por el Tribunal Registral Administrativo y devuelto el expediente, deberá procederse con la ejecución de lo dispuesto por dicho órgano, en el plazo de cinco días hábiles, contado a partir del recibido del expediente en la Dirección del Registro Inmobiliario.

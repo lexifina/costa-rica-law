@@ -1,0 +1,3 @@
+Capítulo tercero: Competencias de las unidades organizativas
+Artículo 8.- Del Departamento Catastral Registral. La persona con cargo de jefatura del Departamento Catastral Registral depende directamente de la persona subdirectora catastral, y contará con personas coordinadoras de grupo y personas registradoras.
+En este departamento se lleva a cabo el proceso de calificación y registración de los planos de agrimensura, de conformidad al ordenamiento técnico y jurídico, conciliando y depurando la información inmobiliaria, como instrumento que contribuye a garantizar la publicidad y fortalecer la seguridad registral inmobiliaria.

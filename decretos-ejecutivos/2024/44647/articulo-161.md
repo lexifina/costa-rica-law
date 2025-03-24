@@ -1,0 +1,1 @@
+Artículo 161.- Etapas del marco de calificación registral. La calificación registral de los documentos estará conformada por dos etapas, la primera será de verificación de requisitos de admisibilidad y aspectos tributarios, y la segunda será de revisión del acto o negocio jurídico rogado.

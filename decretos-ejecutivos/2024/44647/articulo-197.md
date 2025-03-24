@@ -1,0 +1,1 @@
+Artículo 197.- Sustitución de hipoteca común por hipoteca de cédula hipotecaria. La sustitución de una hipoteca común por una de cédula hipotecaria, se hará en la misma escritura en que ésta se constituye, de conformidad con lo dispuesto por el artículo 428, del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 202.- Anotaciones preventivas judiciales. Se anotará preventiva y provisionalmente el mandamiento expedido por la autoridad jurisdiccional, en el tanto indique en forma clara y correcta las citas de inscripción de los bienes y derechos a gravarse, sin calificar los elementos que contenga dicho mandamiento.

@@ -1,0 +1,1 @@
+Artículo 65.- Valor jurídico de las actas de conformidad, y de las actas de deslinde y de identificación. Las actas de conformidad, así como, las actas de deslinde y de identificación, forman parte del proceso de conformación del mapa catastral.

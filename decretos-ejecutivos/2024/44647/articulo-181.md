@@ -1,0 +1,7 @@
+Artículo 181.- Inscripción de la titularidad real. Para inscribir la titularidad de los derechos reales, se requiere que el documento que se presenta para su inscripción contenga los siguientes datos:
+a) Nombre, apellidos, domicilio exacto, estado civil y número de documento de identificación de la persona física o jurídica a cuyo favor se haga la inscripción y los de aquella que transmita o constituya el derecho que ha de inscribirse.
+b) Título traslativo de dominio del derecho o bien de que se trate.
+c) Determinación del valor, monto o estimación, según sea el caso, de cada acto o contrato inscribible.
+d) Si lo que se adquiere es un derecho proporcional en una finca, debe indicarse la proporción del derecho adquirido, así como la proporción del derecho reservado por el transmitente.
+e) Los derechos de copropiedad se pueden adquirir en fracciones, porcentajes, metros cuadrados o montos proporcionales en valor dinerario, en este último caso, si se cuenta con una base de determinación sustentada en un criterio técnico objetivo; y en todo caso deben conservarse en el mismo tipo de especie para todos los derechos existentes en el inmueble. Cuando se adquiere en porcentajes o metros cuadrados, las proporciones podrán tener un máximo de dos decimales.
+f) Si la adquisición es por parte de varias personas, debe darse la proporción en que se adquiere el inmueble, referido este sobre la proporción que se adquiere sobre todo el bien y no sobre el derecho específico.

@@ -1,0 +1,2 @@
+Artículo 89.- Situación geográfica en los planos de agrimensura. Cuando el documento que se someta a escrutinio señale dos provincias distintas, el plano deberá registrarse donde está la mayor porción de terreno. Cuando se indican dos cantones y dos distritos, deberá publicitarse ambos en el asiento.
+En aquellos casos en los cuales se dé un cambio en la situación geográfica producto de una actualización de la División Territorial Administrativa, la Dirección del Registro Inmobiliario quedará facultada para actualizar de oficio los asientos catastrales y registrales.

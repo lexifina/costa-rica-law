@@ -1,0 +1,2 @@
+Artículo 246.- Aprobación de la restitución de información en los asientos registrales. La restitución de información en las inscripciones incompletas o deterioradas se realizará confeccionando un nuevo asiento registral, en el que se transcribirá el derecho real de que se trate, sus respectivas cargas o gravámenes, y toda la información que se considere veraz y actual.
+Deberán adicionarse a la inscripción restituida todos los datos o las anotaciones comprobadas de acuerdo con los documentos que hayan sido aportados al expediente.

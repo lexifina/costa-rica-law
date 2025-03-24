@@ -1,0 +1,1 @@
+Artículo 288.- Cancelación de la nota de aviso catastral. Una vez determinado el saneamiento de las inconsistencias detectadas en el levantamiento, actualización y mantenimiento de información catastral, se dictará una resolución que ordene la cancelación de la nota de aviso catastral publicitado en su oportunidad. en los asientos registrales y/o catastrales relacionados.

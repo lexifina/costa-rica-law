@@ -1,0 +1,1 @@
+Artículo 179.- Principio de reserva de ley para publicitar gravámenes y anotaciones. El Registro Inmobiliario publicitará únicamente los gravámenes, cargas y anotaciones que estén establecidos en normas de rango legal o reglamentarias, que deban ser objeto de la publicidad registral inmobiliaria.

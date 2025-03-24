@@ -1,0 +1,1 @@
+Artículo 94.- Devolución de los planos a la persona agrimensora. La devolución de los planos a la persona profesional responsable se hará en la siguiente forma: con las indicaciones claras y concisas de todos los defectos que contenga, con el fundamento técnico o normativo correspondiente; inscritos o cancelados.

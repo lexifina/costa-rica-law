@@ -1,0 +1,1 @@
+Artículo 96.- Defectos subsanados. Los planos de agrimensura una vez corregidos, deberán ser presentados nuevamente ante el sistema informático de recepción de planos, por los medios de reingreso que correspondan.

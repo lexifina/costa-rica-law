@@ -1,0 +1,1 @@
+Artículo 144.-Acceso en terrenos del Polo Turístico Golfo de Papagayo. Los accesos públicos que señalen planos que se ubiquen dentro del Polo Turístico Golfo de Papagayo, serán avalados por el Instituto Costarricense de Turismo (ICT), a partir del visado de dicho polo turístico.

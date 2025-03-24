@@ -1,0 +1,1 @@
+Artículo 204.- Anotación de documentos judiciales provenientes de procesos concursales. Los documentos judiciales que sean presentados para la anotación de los bienes, producto de la existencia de un proceso de índole concursal, una vez recibidos por la persona registradora, se anotarán en los bienes que expresamente indique la autoridad judicial correspondiente.

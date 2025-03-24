@@ -1,0 +1,1 @@
+Artículo 52.- Plazo para la clasificación del documento complejo. La clasificación del documento complejo deberá efectuarse dentro del término de los ocho días naturales, contados a partir de la fecha del asiento de presentación.

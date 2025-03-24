@@ -1,0 +1,2 @@
+Artículo 156.- Extravío de la boleta de seguridad. El uso y custodia de las boletas de seguridad es responsabilidad única y exclusiva de la persona notaria o la autoridad que emite el documento.
+Todo extravío de boletas de seguridad deberá ser reportado ante el Departamento de Normalización Técnica del Registro Inmobiliario, dentro de los tres días hábiles siguientes establecidos en la Ley sobre inscripción de documentos en el Registro Público, Ley 3883, para proceder a la anulación de estas.

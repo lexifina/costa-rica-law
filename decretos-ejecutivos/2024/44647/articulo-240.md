@@ -1,0 +1,2 @@
+Capítulo sexto: Restitución de información en los asientos registrales
+Artículo 240.- Inscripciones incompletas o deterioradas en tomos. Las inscripciones constantes en los tomos que no han sido trasladadas al sistema de información registral, que se encuentran incompletas o deterioradas, y que no consten con información suficiente e idónea respaldada en los sistemas de procesamiento electrónico de las bases de datos, deberán ser restituidas en procura del saneamiento de la publicidad registral inmobiliaria, mediante lo regulado en el presente reglamento.

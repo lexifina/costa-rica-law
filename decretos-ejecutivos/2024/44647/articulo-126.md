@@ -1,0 +1,2 @@
+Artículo 126.—Planos que se ubican dentro del Desarrollo Turístico Golfo de Papagayo. Los planos que correspondan a concesiones situadas dentro del Desarrollo Turístico Golfo de Papagayo deberán contener autorización del Instituto Costarricense de Turismo en donde se manifieste que el plano está conforme al plan maestro.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 188 del 9 de octubre de 2024, página N° 2)

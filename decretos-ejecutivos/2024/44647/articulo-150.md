@@ -1,0 +1,1 @@
+Artículo 150.- Cancelación de planos que no publicitan identificación o la publicitan errónea. En planos catastrados que no indican número de identificación o no exista coincidencia con el número de identificación indicado en el plano y el que corresponde a la persona interesada, deberá declararse bajo la fe de juramento que se trata de la misma persona que ruega la cancelación.

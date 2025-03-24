@@ -1,0 +1,3 @@
+Capítulo octavo: Generalidades de los expedientes administrativos
+Artículo 319.- Conformación del expediente administrativo. Para tramitar los procedimientos regulados en el presente reglamento, se deberá conformar un expediente administrativo, que contendrá los documentos fisicos y/o electrónicos que motivarán el dictado de la resolución final.
+Dentro del expediente administrativo tendrán la misma equivalencia funcional los documentos electrónicos, respecto a los documentos físicos; siempre y cuando estos, cumplan con los requisitos y las formalidades que la ley exija para cada acto o contrato en particular.

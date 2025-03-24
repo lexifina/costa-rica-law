@@ -1,0 +1,2 @@
+Artículo 195.- Expedición y entrega de la cédula hipotecaria. Inscrito el documento, la persona registradora expedirá la cédula hipotecaria, en la cual consignará en forma expresa lo establecido en el artículo 430, inciso 4, del Código Civil. su firma y la de la persona titular del inmueble hipotecado o su legítimo representante.
+La entrega de la cédula hipotecaria se hará constar en un libro que se llevará al efecto, firmado por la persona funcionaria y por la persona interesada o su legítimo representante.

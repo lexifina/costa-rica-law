@@ -1,0 +1,1 @@
+Artículo 287.- Plazo de la nota de aviso catastral. La nota de aviso catastral se mantendrá publicitada en los asientos registrales y catastrales, hasta tanto no se realice el saneamiento de las inconsistencias detectadas en el levantamiento, actualización y mantenimiento de información catastral, sea de oficio o a gestión de la parte interesada.

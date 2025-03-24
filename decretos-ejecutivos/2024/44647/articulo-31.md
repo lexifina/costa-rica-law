@@ -1,0 +1,2 @@
+Artículo 31.- Principio de rogación. El Registro Inmobiliario tramita únicamente los documentos que son presentados para su inscripción y la presentación formal del documento significa la solicitud de registración.
+En los documentos presentados para inscripción en el Departamento Inmobiliario Registral se consideran rogados todos los actos o contratos contenidos y referentes a derechos reales inscribibles, salvo que desde el primer ingreso del documento se indique lo contrario.
