@@ -1,2 +1,2 @@
-Artículo 30º Vigencia- Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en el Ministerio de Ambiente y Energía, San José, el siete de febrero del año dos mil veintitrés.
+Artículo 30º- Derogatoria. Deróguese el Acuerdo 006-2019-MINAE denominado "Programa Nacional de Etiquetado Ambiental y Eficiencia Energética de Costa Rica y Creación del Comité Técnico de Etiquetado Ambiental y Energético" del 22 de febrero de 2019, publicado en la Gaceta 87 del 13 de mayo de 2019, en el alcance 106.
+(Así modificada su numeración por el artículo 2° del acuerdo N° 003 -2025 -MINAE del 24 de marzo de 2025, que lo traspaso del antiguo artículo 29 al artículo 30)

@@ -14,3 +14,4 @@ Programa Nacional de etiquetado ambiental y de eficiencia energética de Costa R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-02-14 | la propia norma |
+| 2 | 2025-03-24 | Acuerdo 3 (2025-03-24) |
