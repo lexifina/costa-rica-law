@@ -14,3 +14,4 @@ Fija montos de la contribución del Estado a los partidos políticos para las el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-12 | la propia norma |
+| 2 | 2025-03-24 | Resolución 1982 (2025-03-24) |
