@@ -1,0 +1,5 @@
+Artículo 24.- Procedimiento de recepción y resolución de inconformidades. Una vez recibida la inconformidad, la Contraloría la tramitará con la mayor diligencia y trasladará la misma a la unidad organizativa del Ministerio de Salud responsable de resolver, y concederá un plazo de hasta cinco días hábiles para que se refieran al asunto. La Contraloría, ante casos complejos, podrá extender hasta en cincuenta días naturales dicho plazo, debiendo dejarse constancia de las razones en el expediente administrativo.
+Con base en la respuesta brindada por la unidad organizativa, la Contraloría contará con un plazo de diez días hábiles para dar una respuesta razonada y legalmente fundamentada al usuario.
+Si la Administración no responde dentro del plazo establecido, la Contraloría enviará el asunto al Jerarca con la recomendación correspondiente para la toma de decisiones.
+En caso de meras consultas o sugerencias que presenten los usuarios, éstas se resolverán sin necesidad de realizar un expediente.
+En el caso de materia regulada por normativa especial, se atenderá según los plazos que cada una disponga.

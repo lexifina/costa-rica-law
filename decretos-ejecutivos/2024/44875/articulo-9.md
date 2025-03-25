@@ -1,0 +1,1 @@
+Artículo 9.- Funciones de la Contraloría. Las funciones para ejecutar serán las establecidas en el artículo 14 de Ley No. 9158 "Ley Reguladora del Sistema Nacional de Contraloría de Servicios" así como en el Manual de Organización y Funciones institucional.

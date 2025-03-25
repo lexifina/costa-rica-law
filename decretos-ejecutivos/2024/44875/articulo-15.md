@@ -1,0 +1,1 @@
+Artículo 15.- El Sub - Contralor(a). Deberá ser nombrado(a) mediante los procedimientos ordinarios de la institución. Deberá cumplir con los requisitos establecidos en el artículo 25 de la Ley No. 9158 "Ley Reguladora del Sistema Nacional de Contraloría de Servicios".

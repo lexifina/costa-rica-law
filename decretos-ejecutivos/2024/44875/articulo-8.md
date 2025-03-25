@@ -1,0 +1,1 @@
+Artículo 8.- Ubicación de la Contraloría. La Contraloría estará ubicada en las oficinas centrales del Ministerio de Salud, garantizándole a todas las personas usuarias un fácil y adecuado acceso a sus servicios, así como un espacio fisico que garantice la privacidad durante la toma de sus inconformidades.

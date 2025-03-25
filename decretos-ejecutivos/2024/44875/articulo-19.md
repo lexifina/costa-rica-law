@@ -1,0 +1,9 @@
+Artículo 19.- Requisitos mínimos para la presentación de inconformidades. Las inconformidades podrán ser presentadas de forma presencial o a través de correo electrónico y deben cumplir con los siguientes requisitos:
+a) Identificación de la persona: Nombre y apellidos del denunciante, número de identificación y firma del documento.
+b) Medio para recibir notificaciones.
+c) Detalle de los hechos u omisiones deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación por parte de la Contraloría (momento y lugar en que ocurrieron tales hechos), y la persona funcionaria que presuntamente los realizó.
+d) Pretensión
+e) Indicación de las dependencias institucionales presuntamente involucradas.
+f) Cualquier referencia o elementos de prueba, elemento obligatorio cuando se trate de denuncias contra el actuar de un funcionario. Si se trata de prueba testimonial, deberá señalar el nombre, dirección y medio donde se puedan localizar a los testigos, y deberá indicar los hechos a los que se referirán.
+El usuario podrá solicitar la reserva o secreto de su identidad respecto a terceros. Dicha solicitud podrá realizarse de forma verbal o por escrito al momento de plantear su inconformidad.
+En caso de que la denuncia no incorpore la totalidad de los requisitos señalados en este artículo, o bien, existe imprecisión en los hechos denunciados, la Contraloría prevendrá para que, en un plazo de 10 días hábiles, a partir de su respectiva notificación, se aclaren y precisen los hechos, o aporten las pruebas correspondientes para sustentar la denuncia. Transcurrido ese tiempo, si la persona denunciante no cumple con la aclaración o ampliación solicitada, mediante acto administrativo en firme, se cerrará y archivará la gestión sin perjuicio, que posteriormente sea presentada, como un nuevo trámite.

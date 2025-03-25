@@ -1,0 +1,4 @@
+Artículo 11. - Conclusiones y recomendaciones de la Contraloría. La Contraloría podrá emitir conclusiones y recomendaciones como producto de las investigaciones que realice, de conformidad con sus competencias.
+Cuando la Contraloría emita una recomendación, la unidad organizativa a la cual va dirigida, debe tramitarla de manera ágil y eficaz, con el fin de mejorar el servicio que brinda. En los casos que se estime necesario, los resultados de esas investigaciones serán comunicadas por parte de la Contraloría al Despacho Ministerial.
+Cuando previa investigación, la Contraloría determine irregularidades en la prestación de bienes o servicios, debe emitir conclusiones y recomendaciones al Jerarca, quien estará facultado para tomar las acciones necesarias con el fin del mejoramiento de los mismos.
+La Contraloría velará por el efectivo cumplimiento de las recomendaciones emitidas y al menos una vez al año evaluará su efectividad.

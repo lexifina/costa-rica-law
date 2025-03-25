@@ -1,0 +1,3 @@
+Artículo 21. - Horas y días hábiles. Todas las horas y los días serán hábiles para emitir y notificar electrónicamente los documentos a cargo de la Contraloría, los mismos se tendrán por notificados con el envío a la cuenta de correo electrónico señalada por el interesado, quien es el responsable de la disponibilidad, seguridad y capacidad de la cuenta seleccionada, así como de la revisión periódica de los correos recibidos.
+La fecha y hora respecto al cómputo del plazo, se tendrá por acreditadas de acuerdo con lo que establece el artículo 38 de Ley Nº.8687 del 04 de diciembre del 2008 "Ley de Notificaciones Judiciales".
+Respecto a las notificaciones personales, el plazo empieza a regir a partir de la fecha y hora que el interesado reciba la documentación.

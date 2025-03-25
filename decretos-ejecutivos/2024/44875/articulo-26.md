@@ -1,0 +1,1 @@
+Artículo 26.- Suspensión tramitación de inconformidades. La Contraloría suspenderá una investigación cuando se encuentre debidamente acreditado que el mismo hecho es conocido por otra unidad organizativa institucional u otro ente gubernamental o judicial competente para resolver.

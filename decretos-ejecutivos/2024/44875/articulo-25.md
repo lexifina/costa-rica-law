@@ -1,0 +1,2 @@
+Artículo 25. - Registro de las gestiones presentadas ante la Contraloría. Se mantendrá una base de datos actualizada con un registro de control y seguimiento de toda inconformidad con recomendaciones generales y las acciones concretas que se adoptaron para el caso, así como el tiempo en que se tuvo por satisfecha la petición.
+Este registro será insumo para el Informe Anual de Contralorías de Servicios, que se presenta a MIDEPLAN, en el cual se resume la naturaleza de las gestiones realizadas.

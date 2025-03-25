@@ -1,0 +1,1 @@
+Artículo 7.- Organización interna de la Contraloría. La Contraloría contará con un Contralor(a) y un Sub-Contralor(a) cuyo nombramiento será por tiempo indefinido por el Ministro de Salud, no pudiendo recaer en un puesto de confianza ni con recargo de funciones. Asimismo, contará como mínimo con tres funcionarios (as) profesionales y un funcionario (a) de apoyo secretarial.

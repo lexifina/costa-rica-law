@@ -1,0 +1,1 @@
+ARTÍCULO 30.- Traslado de asuntos a otras instituciones. Las inconformidades que se presenten ante esta Contraloría por presuntas violaciones de los derechos de las personas usuarias e irregularidades en la prestación de los servicios, que no sean competencia del Ministerio de Salud, serán trasladadas previo análisis, a la institución correspondiente para la eventual atención.
