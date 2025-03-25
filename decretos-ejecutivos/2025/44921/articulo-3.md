@@ -1,0 +1,3 @@
+ARTÍCULO 3°- A partir del 30 de septiembre de 2025, la tarifa del Impuesto Selectivo de Consumo aplicable a algunas de las mercancías incluidas en la Ley N º 4961 y sus reformas, denominada "Reforma Tributaria y Ley de Consolidación de Impuestos Selectivos de Consumo", se reducirá gradualmente hasta alcanzar una tasa del 150/o. La disminución se llevará a cabo mediante una reducción anual de cinco puntos porcentuales sobre la tarifa vigente, completándose en un plazo máximo de tres años.
+Las disposiciones de este artículo serán aplicables a las mercancías detalladas a continuación enlistadas con su respectivo inciso arancelario:
+[imagen]
