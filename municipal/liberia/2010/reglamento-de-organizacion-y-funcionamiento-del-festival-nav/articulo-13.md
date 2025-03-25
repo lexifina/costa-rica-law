@@ -1,1 +1,0 @@
-Artículo 13º—De los criterios de evaluación de las carrozas y las bandas. La Comisión Organizadora aprobará, a más tardar en el mes de marzo de cada año, un Reglamento de calificación para cada categoría participante en el Festival. Al ser aceptada la participación en el Festival de una banda o carroza, la Organización le entregará una copia del respectivo Reglamento.

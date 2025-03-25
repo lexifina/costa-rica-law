@@ -1,1 +1,0 @@
-Artículo 15º.—Del recorrido del festival. El recorrido del Festival será definido anualmente por la Comisión, siguiendo parámetros de seguridad ciudadana, orden y comodidad para el desarrollo del espectáculo y del público, que será revisado, corregido si es necesario, y aprobado por el Concejo Municipal de Liberia.

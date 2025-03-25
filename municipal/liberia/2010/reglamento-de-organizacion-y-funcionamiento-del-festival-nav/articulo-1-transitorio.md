@@ -1,4 +1,0 @@
-Transitorio.—Para los efectos de la organización del Festival Navidad Liberiana 2010, el Alcalde aplicará la normativa de este Reglamento en forma integral, a partir del momento en que sea aprobado en firme por el Concejo Municipal y procederá al nombramiento de la Comisión, dentro de los ocho días naturales siguientes. La Comisión, a partir de su nombramiento, queda igualmente obligada a aplicar la normativa de este instrumento de forma inmediata.
-Acuerdo firme Nº 4, Artículo primero de la sesión ordinaria 21-2010, celebrada por Concejo Municipal de Liberia el 7 de julio del 2010.
-El Concejo Municipal de Liberia acuerda aprobar Acta Nº 6-2010 del informe de la Comisión de Cultura y Deportes. Definitivamente aprobado por siete votos positivos de los regidores Elena Sotela Salas, Mario Alberto Baldioceda Rodríguez, Álvaro Rosales García, Eugenio Román Ocampo, Eliécer Robles Jiménez, Mayela García Arriola y Álvaro Enrique Soto Araya.
-Liberia, 8 de julio del 2010.—
