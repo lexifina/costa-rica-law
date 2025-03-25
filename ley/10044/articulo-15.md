@@ -1,4 +1,6 @@
-ARTÍCULO 15- Reglamentación
-El Poder Ejecutivo reglamentará lo aquí dispuesto en un plazo no mayor a doce meses a partir de la entrada en vigencia de la presente ley.
+Artículo 15- Autorización para otorgar incentivos. El Estado y los gobiernos locales identificarán acciones e incentivos para el desarrollo y crecimiento de emprendimiento, micros, pequeñas y medianas empresas de las industrias creativas y culturales, incluyendo facilitación de procesos de importación y exportación de bienes y servicios vinculados a actividades creativas y culturales, facilitación migratoria, promoción de agremiaciones dentro de la economía creativa y cultural y el establecimiento de incentivos estratégicos sectoriales, entre otras acciones.
+Las entidades y los órganos de la Administración Pública, así como los gobiernos locales, podrán otorgar facilidades o beneficios dentro de su marco de competencia institucional a los emprendimientos de personas físicas, industrias y empresas creativas y culturales.
+Los gobiernos locales velarán por que los permisos, las autorizaciones y demás requerimientos necesarios a nivel local para el desarrollo de actividades creativas y culturales sean fácilmente previsibles, transparentes y expeditos. Para todos estos fines, tanto el Estado como los gobiernos locales deberán establecer sistemas de ventanilla única que simplifiquen los trámites respectivos y que deberán estar desarrollados en el reglamento de esta ley.
+(Así reformado por el artículo 1° de la ley N° 10675 del 25 de marzo de 2025)
 Rige a partir de su publicación.
 Dado en la Presidencia de la República, San José, a los doce días del mes de noviembre del año dos mil veintiuno.

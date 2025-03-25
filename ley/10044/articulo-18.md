@@ -1,0 +1,2 @@
+Artículo 18- Promoción del comercio exterior creativo. El Consejo, en conjunto con el Ministerio de Comercio Exterior (Cómex) y con la Promotora del Comercio Exterior de Costa Rica (Procomer), construirá un programa para incentivar y aumentar las exportaciones de bienes y servicios de las industrias creativas, y otorgará un reconocimiento periódico a las empresas creativas y culturales que generen las mayores exportaciones o muestren un desempeño sobresaliente en la exportación en dichos sectores.
+(Así adicionado por el artículo 2° de la ley N° 10675 del 25 de marzo de 2025)

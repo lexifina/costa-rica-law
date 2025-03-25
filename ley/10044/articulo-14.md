@@ -1,2 +1,3 @@
-ARTÍCULO 14- Autorización para destinar recursos y prestar colaboración
-Se autoriza a todas las instituciones de la Administración central, gobiernos municipales y entes descentralizados para que voluntariamente destinen recursos y presten colaboración para los proyectos que desarrolle el Consejo Nacional de Economía Creativa y Cultural. El Ministerio de Cultura y Juventud (MCJ) estará autorizado para apoyar iniciativas de otras instituciones estatales, municipales o descentralizadas, vinculadas con los temas tutelados en la presente ley.
+Artículo 14- Financiamiento creativo. El Sistema de Banca para el Desarrollo apoyará con distintas herramientas de acceso a financiamiento y de apoyo empresarial para el impulso de la economía cultural y creativa.
+Asimismo, el Consejo Nacional de Economía Creativa y Cultural identificará otros mecanismos alternativos de financiamiento, apalancamiento, comercialización y apoyo, con el fin de promover los emprendimientos creativos y culturales. Con este fin, sugerirá las reformas a la normativa reglamentaria y legal que considere pertinente.
+(Así reformado por el artículo 1° de la ley N° 10675 del 25 de marzo de 2025)

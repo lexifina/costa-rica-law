@@ -1,8 +1,13 @@
-ARTÍCULO 9- Funciones de la Unidad de Cultura y Economía (UCE).
-a) Fortalecer el Sistema de Información Cultural Costarricense (Sicultura), que está integrado por et Directorio Cultural, el Directorio de Capacitación, Financiamiento y Apoyo, la Agenda de Eventos, el Mapa Cultural y las Estadísticas Culturales. Todos los registros institucionales relacionados con los emprendimientos culturales deben considerar como plataforma el Sicultura
-b) Mantener actualizadas las herramientas que registran y geolocalizan los "recursos culturales" del país.
-c) Articular el trabajo de la Cuenta Satélite de Cultura y demás fuentes de información institucional del Ministerio de Cultura y Juventud.
-d) Desarrollar un sistema prospectivo que guíe la ruta de desarrollo hacia el largo plazo en ternas de investigación, desarrollo de insumos estadísticos para la toma de decisiones, acompañamiento en la coordinación de temas de cultura con las instituciones encargadas de promoción de emprendedurismo, visión de desarrollo hacia la vanguardia en temas culturales que promuevan el desarrollo e impulso de las industrias de economía creativa y cultural.
-e) Visibilizar el aporte de la cultura la economía, como motor de desarrollo, mediante los indicadores monetarios y no monetarios generados anualmente por la Cuenta Satélite de Cultura de Costa Rica.
-f) Coordinar e incentivar la investigación de temas relacionados con el sector cultura, especialmente del área cultura y economía, acercando a la academia e instituciones especialistas en la materia.
-g) Cualquier otra que le sea asignada por vía reglamentaria.
+Artículo 9- Comité Consultivo de la Economía Creativa y Cultural. Se crea el Comité Consultivo de la Economía Creativa y Cultural, como órgano de consulta del Consejo Nacional de la Economía Creativa y Cultural. El Comité tendrá como función principal emitir criterio sobre las políticas y estrategias formuladas por el Consejo, así como también recomendar nuevas políticas y acciones dirigidas a desarrollar la Economía Creativa y Cultural.
+El Comité Consultivo estará conformado por doce representantes del sector productivo de la economía creativa y cultural, nombrado por los siguientes subsectores, de acuerdo con los dominios culturales delimitados por el Marco de Estadísticas Culturales de la Unesco:
+a) Presentaciones artísticas y celebraciones: artes escénicas, música y festivales, fiestas y ferias.
+b) Artes visuales y artesanías: artes visuales, artesanías y fotografía.
+c) Libros y prensa: libros, periódicos, revistas y otros materiales impresos, bibliotecas y ferias de libros.
+d) Medios audiovisuales e interactivos: filmes y vídeos, radio y televisión, creación de archivos sonoros y difusión por internet, y videojuegos.
+e) Diseño y servicios creativos: modas, diseño gráfico, diseño interior, paisajismo, servicios arquitectónicos y publicidad.
+f) Turismo cultural.
+Cada subsector nombrará dos representantes, una persona que represente a las personas emprendedoras y otra que represente a las empresas de cada subsector, para lo cual el Ministerio de Cultura y Juventud (MCJ), junto con el Ministerio de Economía, Industria y Comercio (MEIC) deberán asegurarse de que las convocatorias para estas elecciones sean lo más informadas y participativas posibles.
+El nombramiento de los miembros será por un periodo permanente de cinco años, con posibilidad de reelección no consecutiva.
+El Comité Consultivo elegirá de entre sus miembros una presidencia, una vicepresidencia y una secretaría, quienes participarán en las sesiones del Consejo Nacional de Economía Creativa y Cultural y por lo menos uno de los puestos deberá provenir de las personas representantes de los emprendedores.
+Las sesiones del Comité podrán ser virtuales, y los acuerdos se tomarán por mayoría calificada; en caso de empate, la presidencia tendrá doble voto. De ser necesarios otros aspectos de funcionamiento, se definirán vía reglamentaria.
+(Así reformado por el artículo 1° de la ley N° 10675 del 25 de marzo de 2025)
