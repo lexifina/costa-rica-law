@@ -1,2 +1,2 @@
-Artículo 14: Del Plazo de nombramiento de las personas integrantes de la Comisión Evaluadora
-Las personas integrantes de la Comisión Evaluadora serán nombradas por un periodo de un año, sin recibir ningún pago o tipo de dieta, serán nombrados de manera Ad Honorem y en optimización del programa y los recursos con que se cuenta para el apoyo de proyectos.
+Artículo 14.-Del Plazo de nombramiento de las personas integrantes de la Comisión Evaluadora. Las personas integrantes de la Comisión Evaluadora serán nombradas por un periodo de 6 meses, sin recibir ningún pago o tipo de dieta, serán nombrados de manera Ad Honorem y en optimización del programa y los recursos con que se cuenta para el apoyo de proyectos. Una vez que el Concejo Municipal ratifique los resultados de la selección de proyectos ganadores, finalizará automáticamente el nombramiento de la Comisión Evaluadora.
+(Así reformado en session N° 047 del 25 de marzo de 2025)

@@ -14,3 +14,5 @@ j) Universidades públicas o privadas.
 k) Propuestas orientadas a la manutención o beneficio directo o indirecto de integrantes o familiares de Juntas Directivas y otras organizaciones postulantes, entre otros: pago de sueldos (excepto que se trate de honorarios de artistas o ejecutantes del proyecto durante el desarrollo de éste), gastos operacionales permanentes, entre otros.
 l) Remodelaciones, restauraciones, alquileres o adquisición de infraestructura, equipo técnico, equipo tecnológico, mobiliario y otros de carácter permanente para la organización o persona participante.
 m) Cancelaciones de deudas o préstamos para una organización participante.
+n) Personas u organizaciones que hayan sido ganadoras en la edición previa de los Fondos Concursables de este programa, debiendo esperar un año para volver a participar.
+(Así adicionado el inciso anterior en sesión N° 047 del 25 de marzo de 2025)

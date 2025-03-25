@@ -14,3 +14,4 @@ Reglamento del programa fondo concursable para proyectos artísticos y sociocult
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-07-12 | la propia norma |
+| 2 | 2025-03-25 | Reglamento municipal 47 (2025-03-25) |
