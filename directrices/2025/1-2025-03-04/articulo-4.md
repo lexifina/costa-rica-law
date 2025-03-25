@@ -1,0 +1,2 @@
+Artículo 4º-Registros contables. Las instituciones deberán llevar los registros contables de las cuentas afectas a moneda distinta a la moneda funcional (colón costarricense), en libros auxiliares.
+En cuanto a presentación, la información de los auxiliares deberá contener los siguientes datos para cada movimiento o transacción: en colones, moneda contratada, tipo de cambio utilizado al último día del mes calendario.

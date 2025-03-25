@@ -1,0 +1,1 @@
+Artículo 9º-Revelación en el estado de notas contables. A efectos de llevar a cabo la consolidación de cifras del sector público costarricense, las instituciones están obligadas a revelar en el estado de notas contables todo lo relacionado con las conversiones en moneda extranjera sin excepción.

@@ -1,0 +1,13 @@
+Artículo 3º-Definiciones. Para los efectos de esta directriz se entenderá por:
+- Libro auxiliar: Son aquellos en los que se registra de forma detallada los valores y la información que se ha registrado en los libros principales. Como aspectos más importantes, podemos destacar: llevan el registro de las operaciones realizadas cronológicamente y dan detalles de las actividades realizadas.
+- Tasa de cambio de contado: Es la tasa de cambio utilizado en las transacciones con entrega inmediata.
+- Tasa de cambio de cierre: Es la tasa de cambio de contado existente a la fecha del balance.
+- Diferencia de cambio: Es la que surge al convertir un determinado número de unidades de una moneda a otra moneda, utilizando tasas de cambio diferentes.
+- Tasa de cambio: Es la relación de cambio entre dos monedas.
+- Valor razonable: Es el precio que sería recibido por vender un activo o pagado por transferir un pasivo en una transacción ordenada entre participantes del mercado en la fecha de la medición.
+- Moneda de presentación: Es la moneda en que se presentan los estados financieros.
+- Moneda extranjera (o divisa): Es cualquier otra distinta de la moneda funcional de la entidad.
+- Partidas monetarias: Son unidades monetarias mantenidas en efectivo, así como activos y pasivos que se van a recibir o pagar, mediante una cantidad fija o determinable de unidades monetarias.
+- Inversión neta en un negocio en el extranjero: Es el importe que corresponde a la participación de la entidad que presenta sus estados financieros, en los activos netos del citado negocio.
+- Cuentas de Activo: Son aquellas que inician con la numeración 1 del plan contable emitido y publicado por la Dirección General de la Contabilidad Nacional.
+- Cuentas de Pasivo: Son aquellas que inician con la numeración 2 del plan contable emitido y publicado por la Dirección General de la Contabilidad Nacional.

@@ -1,0 +1,1 @@
+Artículo 5º-Tipo de cambio. El tipo de cambio considera el registro de moneda extranjera de acuerdo con las tasas de cambio de contado y tasa de cambio de cierre. Además, se debe considerar la conversión de la información financiera que consideran las tasas de cambios que serán convertidos en moneda a la moneda de presentación.

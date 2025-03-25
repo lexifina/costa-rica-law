@@ -1,0 +1,1 @@
+Artículo 11.-Derogatoria. Se deroga la Directriz N° 006-2013 de las catorce horas del veintisiete de junio del dos mil trece, denominada "Registro de Transacciones en Moneda Extranjera" y toda disposición de igual o inferior rango que se le oponga a la presente directriz.
