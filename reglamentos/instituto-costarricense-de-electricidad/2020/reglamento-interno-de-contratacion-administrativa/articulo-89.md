@@ -1,1 +1,1 @@
-Artículo 89. Corresponde a la Dirección Proveeduría Institucional notificar la resolución del recurso de revocatoria, dentro de los tres días hábiles siguientes al dictado del acto final. De acogerse el recurso se procederá a readjudicar según lo que dicta el artículo 165 del Reglamento a la Ley 8660.
+Artículo 89º. Recibidos los argumentos del adjudicatario recurrido en el plazo señalado, la Dirección Proveeduría los enviará al Área Técnica y a la Dirección Contratación, para que ambos se pronuncien en un plazo de cuatro días hábiles.

@@ -15,3 +15,4 @@ Reglamento interno de contratación administrativa
 | --- | --- | --- |
 | 1 | 2020-06-14 | la propia norma |
 | 2 | 2020-12-08 | Reglamento 6419 (2020-12-08) |
+| 3 | 2025-03-25 | Reglamento 6679 (2025-03-25) |

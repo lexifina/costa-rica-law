@@ -1,1 +1,1 @@
-Artículo 94. En las audiencias finales y las especiales debe seguirse el mismo procedimiento de la audiencia inicial.
+Artículo 94º. Cuando la Contraloría General de la República solicite un expediente administrativo, la Dirección Proveeduría deberá remitirlo mediante una copia certificada dentro del día hábil siguiente y prevenir a los oferentes dentro del mismo plazo para que dentro de los tres días hábiles siguientes a la notificación mantengan o restablezcan la vigencia de las ofertas y la garantía de participación si la hubiere.

@@ -1,1 +1,1 @@
-Artículo 86. Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Dirección Proveeduría Institucional los enviará al Área Técnica y a la Dirección Contratación Administrativa del ICE, para que ambos se pronuncien en un plazo de cuatro días hábiles.
+Artículo 86º. Si el recurso es declarado con Jugar, la Dirección Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

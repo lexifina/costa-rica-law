@@ -1,5 +1,3 @@
-SECCIÓN V Coordinadores de la Contratación Administrativa (CCA)
-Artículo 7. Funcionarios (as) nombrados por la Administración Superior, el Auditor Interno, jefaturas de Divisiones, Unidades o Negocios.
-El CCA dependerá directamente de la jefatura de la dependencia a la que pertenezca. La jefatura del CCA deberá acreditar ante la División Gestión del Talento Humano, que el funcionario designado cumpla con el perfil del CCA vigente.
-Cuando se requiera cubrir una ausencia temporal del CCA, la dependencia correspondiente lo deberá comunicar a la Dirección Proveeduría Institucional, en un plazo no mayor de 3 días hábiles del conocimiento del hecho que motiva la ausencia, el nombre del CCA sustituto, indicando el plazo a sustituir, que no deberá ser mayor de cuatro meses, salvo casos de excepción debidamente justificados.
-Para nombramientos de un nuevo CCA permanente se deberá seguir lo establecido en el párrafo anterior.
+Artículo 7º. Dirección Proveeduría. La Dirección Proveeduría es la dependencia encargada de la conducción de los procedimientos de contratación administrativa, así como velar porque los mismos sean óptimos, oportunos, estandarizados y cumplan con todos los requisitos establecidos.
+Para el cumplimiento de sus competencias, la Administración le suministrará todos los recursos humanos y materiales que garanticen su gestión eficiente.
+Para el eficiente y eficaz cumplimiento de las funciones de la Dirección Proveeduría, todas las demás dependencias de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría en el cumplimiento de sus cometidos.

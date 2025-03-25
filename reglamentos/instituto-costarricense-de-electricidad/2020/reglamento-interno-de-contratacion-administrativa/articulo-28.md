@@ -1,2 +1,1 @@
-SECCIÓN I Licitaciones
-Artículo 28. Es un procedimiento para que el ICE adquiera los bienes y servicios que requiere para su normal operación. Acorde con la normativa vigente y según el monto del concurso, se clasifican en abreviada y pública e inician mediante la aprobación del Programa de Adquisiciones.
+Artículo 28º. Razonabilidad del Precio. Toda recomendación de adjudicación de una licitación pública, abreviada y contrataciones directas de excepción deberá incluir un estudio que determine la razonabilidad del precio recomendado, conforme los lineamientos que al efecto emita la Dirección Proveeduría.

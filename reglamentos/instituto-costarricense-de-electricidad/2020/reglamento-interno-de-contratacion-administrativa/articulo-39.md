@@ -1,2 +1,2 @@
-SECCIÓN III Remate
-Artículo 39. El remate es el procedimiento ordinario al que puede recurrir alternativamente la Administración para vender o arrendar bienes muebles o inmuebles, cuando así resulte más conveniente a sus intereses. Deberá respetarse para esos efectos lo establecido sobre este procedimiento en el Reglamento a la Ley 8660.
+Artículo 39º. Los funcionarios que presidirán /os remates, así como el Secretario y el Pregonero que lo asiste, serán designados por la Dirección Proveeduría. El funcionario que presida tendrá la competencia para adjudicar el remate correspondiente y demás actuaciones según la normativa aplicable. Se entenderá, además, que para /os remates no se tendrá un límite superior en el monto. En los casos de remate electrónico, /os funcionarios que participen en el remate serán /os encargados de monitorear el trámite durante el tiempo en que esté abierto el concurso.
+En este tipo de procedimiento no cabe recurso alguno.

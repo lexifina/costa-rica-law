@@ -1,1 +1,3 @@
-Artículo 87. Recibidos los criterios del Área Técnica y de la Dirección Contratación Administrativa del ICE, la Dirección Proveeduría Institucional en un plazo máximo de un día hábil deberá remitirla al órgano que adjudicó para que en un plazo máximo de 3 días hábiles siguientes a la recepción de la documentación emita el acto final del recurso.
+Sección II Recurso de Revocatoria
+Artículo 87º. En los concursos cuyos procedimientos no corresponda el recurso de apelación procederá la interposición del recurso de revocatoria. Dicho recurso se presentará dentro del plazo de cinco días siguientes a la fecha en que se comunicó el acto de adjudicación.
+El recurrente podrá solicitar expresamente que su recurso lo resuelva el jerarca del ICE.

@@ -1,1 +1,3 @@
-Artículo 68. Según lo establecido en Reglamento al Título II de la Ley 8660, las garantías de participación y cumplimiento son opcionales. En las contrataciones de arrendamiento de bienes inmuebles no se exigirá rendir la garantía de cumplimiento.
+Capítulo XI Eficacia contractual
+Sección I Refrendo Interno
+Artículo 68º. Requerirán de refrendo interno, las contrataciones dispuestas en el reglamento que disponga la Institución para estos efectos y conforme al Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública de la Contraloría General de la República.

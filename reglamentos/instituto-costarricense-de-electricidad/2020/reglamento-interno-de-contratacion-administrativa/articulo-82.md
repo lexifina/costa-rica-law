@@ -1,1 +1,3 @@
-Artículo 82. Si el recurso es interpuesto en una licitación abreviada ante la Dirección Proveeduría Institucional, ésta en coordinación con el Área Técnica y la Dirección Contratación Administrativa, prepararán la recomendación de resolución, quienes, en un plazo de tres días hábiles, la remitirán al Director de la Dirección Proveeduría Institucional para la resolución final. En caso de improcedencia manifiesta o de inadmisibilidad del recurso, la Dirección Proveeduría Institucional podrá rechazarlo de plano.
+Capítulo XIII Recursos Sección I
+Recursos de objeción
+Artículo 82º. Contra el cartel de las licitaciones públicas se interpondrá ante la Contraloría General de la República este recurso. Contra el cartel de las licitaciones abreviadas procederá la interposición del recurso de objeción al cartel ante la Administración.

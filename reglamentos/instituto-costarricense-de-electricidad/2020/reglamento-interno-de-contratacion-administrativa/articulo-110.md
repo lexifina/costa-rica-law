@@ -1,1 +1,2 @@
-Artículo 110.Una vez recibidos los descargos del contratista, los mismos serán remitidos al AC para que en coordinación con el CCA en lo que le corresponda, se pronuncien con respecto a dichas pruebas, en un plazo de 5 días hábiles.
+Sección II Sanciones a particulares
+Artículo 110º. Una vez que el AC determine que el oferente o contratista incurrió en una conducta donde en apariencia sea aplicable una sanción, deberá en coordinación con el CCA, iniciar el procedimiento sancionatorio ante la Dirección Proveeduría, indicando el plazo y tipo de sanción a aplicar.

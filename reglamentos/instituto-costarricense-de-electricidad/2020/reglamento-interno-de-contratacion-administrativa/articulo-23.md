@@ -1,6 +1,3 @@
-Artículo 23. La exclusión del Registro de Proveedores se regirá por lo dispuesto en la normativa vigente en la materia de contratación administrativa en lo que respecta a las inhabilitaciones.
-Adicionalmente se podrá dar la exclusión legal de una persona física o jurídica del registro por los siguientes motivos:
-a) Muerte o extinción.
-b) Manifestación expresa del interesado.
-c) Carencia de interés de la Administración de continuar contratando determinado bien o servicio.
-d) Inactivo por no actualización de atestados y referencias.
+Artículo 23º. Excepción del uso SICOP. La Dirección Proveeduría será la responsable de coordinar lo relativo al uso de las plataformas de compras que utílíce el ICE.
+La Dirección Proveeduría podrá autorizar realizar compras fuera del uso de SICOP, en caso fortuito o fuerza mayor debidamente justificados, o cuándo se trate de una contratación confidencial. En el cartel se dispondrá la información que deberá de aportar el oferente.
+La solicitud de excepción de uso del sistema lo deberá suscribir el jefe de División o Dirección.

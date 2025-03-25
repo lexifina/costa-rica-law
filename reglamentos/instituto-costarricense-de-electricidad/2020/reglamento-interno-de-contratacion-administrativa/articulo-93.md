@@ -1,1 +1,2 @@
-Artículo 93. Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Dirección Proveeduría Institucional deberá enviar la respuesta al Órgano Contralor antes de que se cumpla el plazo concedido por éste.
+Sección III Recurso de Apelación
+Artículo 93º. Este recurso deberá plantearse ante la Contraloría General de la República en los casos de las licitaciones públicas e inestimables. Dicho recurso deberá plantearse dentro del plazo de 5 días hábiles siguientes a la publicación del respectivo acto final. Igualmente cabrá recurso de apelación contra la declaratoria de desierta o infructuosa de todo un concurso o bien algunas de sus líneas cuando su monto supere el tope establecido para la Licitación Abreviada.

@@ -1,3 +1,6 @@
-Artículo 58. Todas las modificaciones contractuales cualitativas sin costo deberán ser autorizadas por el órgano que adjudicó la contratación original. En el caso de las modificaciones cuya contratación original haya sido adjudicada por la Junta de Adquisiciones ICE/Corporativa, será el Gerente respectivo el que las apruebe.
-En las modificaciones contractuales cualitativas con costo, deberán ser autorizadas por el órgano competente de acuerdo con lo definido por la Gerencia General en la Directriz de montos para adjudicar y resolver trámites de contratación administrativa. Para determinar dicha competencia será necesario sumar el monto del contrato original más el monto de todas las modificaciones que se hayan realizado al contrato, incluyendo esta cualitativa con costo.
-Aquellas modificaciones que deban ser aprobadas por las Gerencias, requerirán dictamen legal.
+Sección III
+Modificaciones contractuales y Contratos Adiciona/es
+Artículo 58º. Las modificaciones contractuales pueden ser tanto cualitativas como cuantitativas.
+Cualitativas en relación con el objeto, plazo de entrega o de inicio, así como otras condiciones originalmente pactadas. Cuantitativas cuando van referidas tanto a aumentos o ampliaciones como disminuciones.
+Asimismo, las modificaciones pueden darse durante la ejecución contractual (modificación unilateral) o bien una vez ejecutado el contrato (contrato adicional).
+Será responsabilidad de la dependencia técnica que promovió la contratación, acreditar el cumplimiento de los requisitos que establecen los artículos 178 y 179 del Reglamento al Título II de la Ley 8660.

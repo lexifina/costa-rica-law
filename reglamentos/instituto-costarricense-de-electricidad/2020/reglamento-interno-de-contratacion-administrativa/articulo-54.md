@@ -1,6 +1,11 @@
-SECCIÓN II Suspensión
-Artículo 54. En el caso de la suspensión del contrato, dependiendo de la cuantía a la que han sido autorizados para adjudicar las distintas instancias, estarán facultados para suspender el contrato.
-En el caso de las contrataciones que hayan sido adjudicadas por la Junta de Adquisiciones ICE/Corporativa estarán facultadas para suspender el contrato la Gerencia respectiva. La suspensión será procedente por razones de interés público, institucional o bien por causas que imposibilitan la ejecución del contrato. Lo anterior de conformidad con lo previsto en el artículo 180 del Reglamento a la Ley 8660.
-El AC en coordinación con el CCA deberá presentar su recomendación al órgano que adjudicó. Una vez autorizada la suspensión respectiva, la documentación deberá ser remitida a la Dirección Proveeduría Institucional para su incorporación al expediente administrativo correspondiente.
-La suspensión deberá contar con el dictamen legal favorable.
-De previo al reinicio del contrato, el AC deberá aportar una certificación de contenido presupuestario actualizada que confirme la existencia de los recursos económicos suficientes que permitan cubrir las erogaciones establecidas.
+Capítulo X Ejecución Contractual
+Prórrogas, suspensión, modificaciones contractuales, mejoras, actualizaciones y formalización del
+contrato.
+Sección I
+Prórroga en el plazo de entrega y prórrogas contractuales
+Artículo 54º. Prórrogas al plazo de entrega. La prórroga al plazo de entrega deberá ser aprobada o rechazada mediante resolución motivada, por el Jefe de División o en defecto el Director inmediato a la Gerencia, salvo aquellos procedimientos que hayan sido adjudicados por la Junta de Adquisiciones, en cuyo caso se faculta al Gerente respectivo, o el Jefe de División o Director inmediato a la Gerencia General.
+El contratista planteará la solicitud a través del Sistema SICOP para aquellos casos de contrataciones que se tramiten en dicho sistema. En los casos en que se tramiten en físico planteará la solicitud ante el AC. En ambos casos esta solicitud debe realizarse conforme se establece en el artículo 176 del Reglamento al Título II de la Ley 8660, donde el AC en coordinación con el CCA la valorarán y deberá presentar su recomendación al órgano competente con la información que respalde la solicitud.
+Una vez autorizada o rechazada la prórroga por el órgano competente será notificada por el AC. La documentación deberá estar incorporada en el expediente administrativo correspondiente.
+Aquellas prórrogas que por su competencia deban ser aprobadas por las Gerencias respectivas, o bien Jefe de División o Dirección de nivel inmediato inferior a la Gerencia General, cuando por el monto le asista la competencia, deberán contar con criterio legal.
+Cuando un contratista solicite una prórroga producto de una mejora o actualización tecnológica, deberá cumplirse con lo que establece el artículo 175 del Reglamento al Título II de la Ley 8660. En ese sentido, el AC deberá emitir criterio técnico y trasladarlo al órgano competente que aprobará la mejora, no siendo necesario contar con criterio legal.
+En el caso de los contratos de entrega según demanda, aplicará lo dispuesto en el artículo 36 inciso f para efectos de prórroga al plazo de entrega.

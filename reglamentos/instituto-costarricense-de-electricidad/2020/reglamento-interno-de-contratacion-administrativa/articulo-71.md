@@ -1,1 +1,2 @@
-Artículo 71. En el caso de las contrataciones tramitadas con expediente físico, la Dirección Proveeduría Institucional en coordinación con la dependencia que promueve la contratación velará también porque se encuentre adjunta la valoración de mercado por parte de un puesto de bolsa de los bonos y certificados dados en garantía, según lo establecido en el Reglamento al Título II de la Ley 8660.
+Capítulo XII Sección I Garantías
+Artículo 71º. Según lo establecido en Reglamento al Título II de la Ley 8660, las garantías de participación y cumplimiento son opcionales. En las contrataciones de arrendamiento de bienes inmuebles no se exigirá rendir la garantía de cumplimiento.
