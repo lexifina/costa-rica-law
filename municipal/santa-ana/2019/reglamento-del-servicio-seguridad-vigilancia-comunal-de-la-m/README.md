@@ -14,3 +14,4 @@ Reglamento del servicio seguridad, vigilancia comunal de la Municipalidad de San
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-12 | la propia norma |
+| 2 | 2025-03-25 | Reglamento municipal 47 (2025-03-25) |

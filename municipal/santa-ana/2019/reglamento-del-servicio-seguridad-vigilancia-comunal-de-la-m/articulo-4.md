@@ -1,3 +1,4 @@
 CAPÍTULO III
 Organización
-Artículo 4º—Administrativamente; la Policía Municipal depende de la Gestión de Servicios Públicos y Ambientales, pudiendo organizarse internamente, de acuerdo con las necesidades del servicio.
+Artículo 4º-La Policía Municipal administrativamente depende del Alcalde, pudiendo organizarse internamente, de acuerdo con las necesidades del servicio.
+(Así reformado mediante sesión ordinaria N° 47 del 25 de marzo de 2025)
