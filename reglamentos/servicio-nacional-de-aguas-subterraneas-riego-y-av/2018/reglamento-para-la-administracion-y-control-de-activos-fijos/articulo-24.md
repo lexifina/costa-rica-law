@@ -1,1 +1,0 @@
-Artículo 24°- El SENARA realizará los inventarios que considere pertinentes a los activos dados en calidad de préstamo a otras instituciones. Las Instituciones que cuenten con activos prestados por parte del SENARA deberán brindar periódicamente la información que se le solicite en cuanto a estado de los mismos (físico y de funcionamiento).

@@ -1,1 +1,0 @@
-Artículo 45°- Disposiciones derogatorias. Se deroga el Reglamento Para la Administración y Control de Activos Fijos para el Servicio Nacional De aguas Subterráneas Riego y Avenamiento indicado en el Acuerdo N°3680 de la sesión ordinaria N°552-08 del 17 de diciembre 2008, el cual fue publicado en La Gaceta N°31 del 13 de febrero del 2009.

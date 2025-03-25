@@ -1,1 +1,0 @@
-Artículo 5°- Deberá la Unidad de Recursos Humanos, informar a la Unidad de Servicios Administrativos el ingreso de nuevos funcionarios, para proceder con la asignación de los activos correspondientes, según así lo solicite la jefatura encargada.

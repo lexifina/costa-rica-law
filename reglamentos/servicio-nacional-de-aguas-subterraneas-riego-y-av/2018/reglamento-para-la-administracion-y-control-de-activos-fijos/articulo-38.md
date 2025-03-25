@@ -1,1 +1,0 @@
-Artículo 38°- Cuando el servidor(a) responsable de la custodia del activo que ha sufrido daño no ejerciere su defensa, no constituirá motivo para tener por imputable a su responsabilidad los daños comprobados, debiendo la Unidad de Servicios Administrativos continuar con la investigación a fin de verificar la verdad real de los hechos y dar por concluido el procedimiento.
