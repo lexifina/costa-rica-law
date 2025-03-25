@@ -1,0 +1,7 @@
+Artículo 5.- De los distintos órganos y sus competencias.
+Los siguientes órganos tendrán competencia para conocer y resolver todo lo relacionado con los procedimientos de contratación pública de bienes y servicios, de acuerdo con los tipos de licitaciones que se detallan a continuación:
+Órgano | Tipo de licitación
+Gerencias de BN Fondos | Contrataciones, sin importar la causal, por montos menores al 40% fijado para la Licitación Reducida del régimen diferenciado, aplicando los siguientes criterios: · Las Gerencias de Área en forma individual hasta un máximo de un 15% del límite anterior. · Las Gerencias de manera conjunta (dos firmas) mayor a un 15% y hasta menos del 40% de dicho límite. · La Gerencia General de la sociedad hasta menos del 40% de dicho límite. Con respecto a las Gerencias, el uso de esta facultad no podrá conllevar el fraccionamiento ilícito de contrataciones ni se podrá sumar el porcentaje de dos o más Gerencias para adjudicar contrataciones mayores a ese 40% en total.
+Comité de Licitaciones | Contrataciones, sin importar la causal cuya estimación preliminar sea igual o superior al 40% del límite establecido para la Licitación Reducida del régimen diferenciado.
+Cada Gerencia conocerá y resolverá todo lo relacionado con los procedimientos de contratación pública de obras, bienes y servicios que sea solicitado por la unidad usuaria técnica de su área.
+El órgano que aprueba el pliego de condiciones mantendrá su competencia para dictar el acto final con independencia del monto del acto de adjudicación.

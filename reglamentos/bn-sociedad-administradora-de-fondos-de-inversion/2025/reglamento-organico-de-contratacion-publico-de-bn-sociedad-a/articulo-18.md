@@ -1,0 +1,1 @@
+Artículo 18.- Derogatorias. Se deroga el Reglamento Orgánico de Contratación Pública de BN Sociedad Administradora de Fondos de Inversión, S. A, edición 1, aprobado por la Junta Directiva de BN SFI, S.A., sesión N°442-08 del 11 de abril del 2023.
