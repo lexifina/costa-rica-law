@@ -8,17 +8,17 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 2402 Cigarros (puros) (incluso despuntados), cigarritos (puritos) y cigarrillos, de tabaco o de sucedáneos del tabaco.
 2403 Los demás tabacos y sucedáneos del tabaco, elaborados; tabaco "homogeneizado" o "reconstituido", extractos y jugos de tabaco.
 3208 Pinturas y barnices a base de polímeros sintéticos o naturales modificados, dispersos o disueltos en un medio no acuoso; disoluciones definidas en la nota 4 de este capítulo.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3209 Pinturas y barnices a base de polímeros sintéticos o naturales modificados, dispersos o disueltos en un medio acuoso.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3210 Las demás pinturas y barnices; pigmentos al agua preparados del tipo de los utilizados para el acabado del cuero.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 321100000 Secativos preparados.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3212 Pigmentos (incluidos el polvo y escamillas metálicos) dispersos en medios no acuosos, líquidos o en pasta, del tipo de los utilizados para la fabricación de pinturas; hojas para el marcado a fuego; tintes y demás materias colorantes presentados en formas o en envases para la venta, al por menor.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3214 Masilla, cementos de resina y demás mastiques; plastes (enduidos) utilizados en pintura; plastes (enduidos) no refractarios del tipo de los utilizados en albañilería.
-(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
+(Nota: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3305 Preparaciones capilares.
 3307 Preparaciones para afeitar o para antes o después del afeitado, desodorantes corporales, preparaciones para el baño, depilatorios y demás preparaciones de perfumería, de tocador o de cosmética, no expresadas ni comprendidas en otra parte; preparaciones desodorantes de locales, incluso sin perfumar, aunque tengan propiedades desinfectantes.
 3401 Jabón; productos y preparaciones orgánicos tenso activos usados como jabón, en barras, panes, trozos o piezas troqueladas o moldeadas, aunque contengan jabón; papel, guata, fieltro y tela sin tejer, impregnados, recubiertos o revestidos de jabón o de detergentes.
@@ -38,7 +38,7 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 8510 Afeitadoras, máquinas de cortar el pelo o esquilar y aparatos de depilar, con motor eléctrico incorporado.
 8511 Aparatos y dispositivos eléctricos de encendido o de arranque, para motores de encendido por chispa o por compresión (por ejemplo: magnetos, dinamomagnetos, bobinas de encendido, bujías de encendido o calentamiento, motores de arranque); generadores (por ejemplo: dinamos, alternadores) y reguladores disyuntores utilizados con estos motores.
 8516 Calentadores eléctricos de agua de calentamiento instantáneo o acumulación y calentadores eléctricos de inmersión; aparatos eléctricos para calefacción de espacios o suelos; aparatos electrotérmicos para el cuidado del cabello (por ejemplo: secadores, rizadores, calientatenacillas); planchas eléctricas; los demás aparatos electrotérmicos de uso doméstico; resistencias calentadoras, excepto las de la partida Nº 85.45.
-NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 32890 del 8 de noviembre del 2005, se reduce la tarifa del Impuesto Selectivo de Consumo a un cero por ciento (0%), a los “vaporizadores y emanadores eléctricos para plaquitas y pastillas repelentes de zancudos y mosquitos” de la posición arancelaria 8516.79.00.00.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 32890 del 8 de noviembre del 2005, se reduce la tarifa del Impuesto Selectivo de Consumo a un cero por ciento (0%), a los "vaporizadores y emanadores eléctricos para plaquitas y pastillas repelentes de zancudos y mosquitos" de la posición arancelaria 8516.79.00.00.)
 8519 Giradiscos, tocadiscos, tocacasetes y demás reproductores de sonido, sin dispositivo de grabación de sonido incorporado.
 8520 Magnetófonos y demás aparatos de grabación de sonido, incluso con dispositivo de reproducción de sonido incorporado.
 8521 Aparatos de grabación o reproducción de imagen y sonidos (vídeos), incluso con receptor de señales de imagen y sonido incorporado.
@@ -64,3 +64,11 @@ NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 32890 del 
 8716 Remolques y semirremolques para cualquier vehículo; los demás vehículos no automóviles; sus partes.
 9504 Artículos para juegos de sociedad, incluidos los juegos con motor o mecanismo, billares, mesas especiales para juegos de casino y juegos de bolos automáticos.
 (Así reformado por el inciso e) del artículo 23 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 44921 del 3 de febrero del 2025, se acordó que, apartir del 31 de marzo de 2025, La tarifa del Impuesto Selectivo de Consumo aplicable a algunas de Las mercancías incluidas en la Ley Nº 4961 y sus reformas, denominada "Reforma Tributaria y Ley de Consolidación de Impuestos Selectivos de Consumo", se reducirá progresivamente hasta alcanzar un 10%. Esta reducción se llevará a cabo mediante una disminución anual de cinco puntos porcentuales sobre La tarifa vigente, completándose en un plazo máximo de cuatro años.
+Las disposiciones de este artículo serán aplicables a las mercancías detalladas a continuación enlistadas con su respectivo inciso arancelario:
+[imagen] ")
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 44921 del 3 de febrero del 2025, se acordó que, a partir del 30 de junio del 2025, se reducirá a una tarifa del 00/o del Impuesto Selectivo de Consumo algunas de las mercancías incluidas en la Ley Nº 4961, denominada "Reforma Tributaria y Ley de Consolidación de Impuestos Selectivos de Consumo" y sus reformas, mismas que se detallan a continuación enlistadas con su respectivo inciso arancelario:
+[imagen] )
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 44921 del 3 de febrero del 2025, se acordó que, apartir del 30 de septiembre de 2025, la tarifa del Impuesto Selectivo de Consumo aplicable a algunas de las mercancías incluidas en la Ley N º 4961 y sus reformas, denominada "Reforma Tributaria y Ley de Consolidación de Impuestos Selectivos de Consumo", se reducirá gradualmente hasta alcanzar una tasa del 150/o. La disminución se llevará a cabo mediante una reducción anual de cinco puntos porcentuales sobre la tarifa vigente, completándose en un plazo máximo de tres años.
+Las disposiciones de este artículo serán aplicables a las mercancías detalladas a continuación enlistadas con su respectivo inciso arancelario:
+[imagen] )
