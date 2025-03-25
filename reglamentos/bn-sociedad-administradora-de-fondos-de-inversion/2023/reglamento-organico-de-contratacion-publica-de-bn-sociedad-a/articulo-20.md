@@ -1,1 +1,0 @@
-Artículo 20.- Derogatorias. Se deroga el Reglamento para la Operación del Comité de Licitaciones de BN Sociedad Administradora de Fondos de Inversión, S. A (RG02BF07), edición 3, sesión N°442-08 del 11 de abril del 2023.

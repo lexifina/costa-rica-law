@@ -1,2 +1,0 @@
-Artículo 2.- Alcance. El presente Reglamento regula las funciones, atribuciones, facultades y obligaciones de los diferentes órganos administrativos de BN Fondos, relacionados con la contratación pública de bienes y servicios sujetas al régimen de contratación pública dispuesto en la LCA, la LGCP, el RLCA y el RLGCP.
-De conformidad con el transitorio I de la LGCP, los procedimientos de contratación y contratos iniciados antes de la entrada en vigor de dicha ley se concluirán conforme a las disposiciones vigentes en el momento de adoptarse la decisión inicial del concurso.

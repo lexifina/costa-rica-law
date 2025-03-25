@@ -1,2 +1,0 @@
-Articulo 10.- Funciones de la Jefatura Administrativa Adjudicar los procedimientos por excepción correspondientes a Servicios de capacitación abierta, cuyo acto de adjudicación sea hasta un máximo de un 5% del tope fijado por la Contraloría General de la República para la Licitación Reducida, según los límites generales.
-También podrá aprobar la prórroga para dictar el acto final y los contratos, conforme párrafo anterior.
