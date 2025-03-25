@@ -1,1 +1,1 @@
-Artículo 16º. Director de Proyecto y otras formas de coordinación definidas en el API. Persona nombrada por el Órgano de Dirección o Alta Gerencia, Auditoría Interna, jefaturas de División y Dirección, según se dispone en el modelo para la Administración Proyectos Integral (API).
+Artículo 16°. Director de Proyecto y otras formas de coordinación definidas en el API. Persona nombrada por el Órgano de Dirección o Alta Gerencia, Auditoría Interna, jefaturas de División y Dirección, según se dispone en el modelo para la Administración Proyectos Integral (API).

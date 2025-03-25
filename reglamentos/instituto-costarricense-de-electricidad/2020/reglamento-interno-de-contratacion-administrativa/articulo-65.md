@@ -1,6 +1,6 @@
 Sección V
 Malas prácticas en materia de Contratación Administrativa
-Artículo 65º. Cuando se presente un contrato irregular se procederá de la siguiente forma:
+Artículo 65°. Cuando se presente un contrato irregular se procederá de la siguiente forma:
 a) Cuando se detecte que se está frente a una contratación irregular la dependencia a cargo de la contratación, deberá remitir a la Dirección Proveeduría el informe técnico que describa los hechos acaecidos.
 b) La Dirección Proveeduría traslada los hechos al contratista involucrado en la situación irregular presentada, concediéndole un plazo de 3 días hábiles para que presente los descargos pertinentes.
 c) El Contratista envía sus descargos a la Dirección Proveeduría.

@@ -1,1 +1,1 @@
-Artículo 51º. De no cumplirse con los lineamientos establecidos para el convenio marco, las ordenes de pedido, se entenderán como irregulares, de conformidad con los términos establecidos en cada Convenio Marco.
+Artículo 51°. De no cumplirse con los lineamientos establecidos para el convenio marco, las ordenes de pedido, se entenderán como irregulares, de conformidad con los términos establecidos en cada Convenio Marco.

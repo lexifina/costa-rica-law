@@ -1,5 +1,6 @@
-Capítulo VIII Convenios Marco
-Artículo 49º. Convenio Marco. Para la implementación de convenios marco deberá acatarse lo dispuesto en el artículo 97 de Reglamento al Título II de la Ley 8660.
+Capítulo VIII
+Convenios Marco
+Artículo 49°. Convenio Marco. Para la implementación de convenios marco deberá acatarse lo dispuesto en el artículo 97 de Reglamento al Título II de la Ley 8660.
 Para su ejecución se seguirá lo dispuesto para la contratación según demanda.
 Cuando alguna dependencia requiera adherirse en algún Convenio Marco administrado por la Dirección de Contratación Pública del Ministerio de Hacienda o por cualquier otra entidad, deberá solicitar a la Dirección Proveeduría la adhesión al mismo, suscrita por el Jefe de División o Dirección, indicando el consumo estimado de los bienes o servicios requeridos, considerando el plazo de vigencia del convenio y deberá asignar al responsable de realizar los pedidos.
 La Dirección Proveeduría gestionará la solicitud de adhesión ante la entidad administradora del convenio, mediante nota incluyendo el consumo estimado. Una vez obtenida la anuencia de adhesión, la Dirección Proveeduría procederá a informar a la dependencia solicitante y a los enlaces oficiales de cada Gerencia como medio de solventar las necesidades.

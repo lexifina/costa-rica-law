@@ -1,3 +1,3 @@
-Sección II Rescisión del contrato
-Artículo 103º. Rescisión unilateral. El AC en coordinación con el CCA y el Jefe de División o en su defecto el Director, deberá acreditar los motivos de interés público, caso fortuito o fuerza mayor por los cuales se requiere rescindir el contrato, así como los extremos a liquidar, lo cual deberá contar con el criterio de la Dirección de Estudios Económicos y Financieros de la Gerencia de Finanzas.
-Posteriormente deberá solicitar a la Dirección Proveeduría la suspensión del contrato y la apertura del procedimiento de rescisión del contrato total o parcial, de acuerdo con lo establecido en el artículo 114 de la Ley General de Contratación Pública.
+Sección II
+Rescisión del contrato
+Artículo 103°. Rescisión unilateral. El AC en coordinación con el CCA y el Jefe de División o en su defecto el Director, deberá acreditar los motivos de interés público, caso fortuito o fuerza mayor por los cuales se requiere rescindir el contrato, así como los extremos a liquidar, lo cual deberá contar con el criterio de la Dirección de Estudios Económicos y Financieros de la Gerencia de Finanzas. Posteriormente deberá solicitar a la Dirección Proveeduría la suspensión del contrato y la apertura del procedimiento de rescisión del contrato total o parcial, de acuerdo con lo establecido en el artículo 114 de la Ley General de Contratación Pública.

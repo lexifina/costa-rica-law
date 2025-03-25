@@ -1,2 +1,4 @@
-Sección II Contenido del Documento Registro de Proveedores
-Artículo 22º. El Registro de Proveedores. Tiene por objeto contar con un banco de proveedores debidamente acreditados, para ello el interesado se inscribirá única y exclusivamente en las obras, bienes y servicios que esté en capacidad de suministrar. El Registro de Proveedores se mantendrá en medíos electrónicos, utilizando para ello las plataformas de Compras que se utilicen en el ICE.
+Sección II
+Contenido del Documento
+Registro de Proveedores
+Artículo 22°. El Registro de Proveedores. Tiene por objeto contar con un banco de proveedores debidamente acreditados, para ello el interesado se inscribirá única y exclusivamente en las obras, bienes y servicios que esté en capacidad de suministrar. El Registro de Proveedores se mantendrá en medios electrónicos, utilizando para ello las plataformas de Compras que se utilicen en el ICE.

@@ -1,1 +1,1 @@
-Artículo 35º. Cantidad definida. Consiste en el suministro de bienes mediante una cantidad especifica previamente definida ya sea que se fije un plazo de entrega único o con varios tractos referidos a entregas parciales.
+Artículo 35°. Cantidad definida. Consiste en el suministro de bienes mediante una cantidad especifica previamente definida ya sea que se fije un plazo de entrega único o con varios tractos referidos a entregas parciales.

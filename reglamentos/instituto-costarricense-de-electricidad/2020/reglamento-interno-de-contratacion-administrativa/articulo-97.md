@@ -1,1 +1,1 @@
-Artículo 97º. En las audiencias finales y las especiales debe seguirse el mismo procedimiento de la audiencia inicial.
+Artículo 97°. En las audiencias finales y las especiales debe seguirse el mismo procedimiento de la audiencia inicial.

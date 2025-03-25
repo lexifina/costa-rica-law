@@ -1,1 +1,1 @@
-Artículo 89º. Recibidos los argumentos del adjudicatario recurrido en el plazo señalado, la Dirección Proveeduría los enviará al Área Técnica y a la Dirección Contratación, para que ambos se pronuncien en un plazo de cuatro días hábiles.
+Artículo 89°. Recibidos los argumentos del adjudicatario recurrido en el plazo señalado, la Dirección Proveeduría los enviará al Área Técnica y a la Dirección Contratación, para que ambos se pronuncien en un plazo de cuatro días hábiles.

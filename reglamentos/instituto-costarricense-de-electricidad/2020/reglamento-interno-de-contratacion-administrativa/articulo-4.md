@@ -1,4 +1,5 @@
-Artículo 4º. Abreviaturas y Siglas. AC: Administrador de contrato.
+Artículo 4°. Abreviaturas y Siglas.
+AC: Administrador de contrato.
 API: Administración de Proyectos Integral.
 CCA: Coordinador de Contratación Administrativa.
 CCSS: Caja Costarricense de Seguro Social.

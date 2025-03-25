@@ -1,1 +1,1 @@
-Artículo 86º. Si el recurso es declarado con Jugar, la Dirección Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.
+Artículo 86°. Si el recurso es declarado con lugar, la Dirección Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

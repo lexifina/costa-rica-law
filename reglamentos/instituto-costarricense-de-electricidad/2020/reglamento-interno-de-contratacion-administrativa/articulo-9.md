@@ -1,6 +1,6 @@
-Artículo 9º. Dirección Contratación. Dependencia perteneciente a la División Jurídica que tendrá las siguientes funciones:
+Artículo 9°. Dirección Contratación. Dependencia perteneciente a la División Jurídica que tendrá las siguientes funciones:
 1) Atender consultas sobres aspectos puntuales de carácter jurídico que se pretendan incluir en los carteles.
-2) Dictaminar la procedencia legal de las contrataciones directas de excepción amparadas al artículo 112 del Reglamento al Título II de la Ley 8660, salvo lo dispuesto en los incisos f) en Jo referente a capacitación abierta, m), ñ), o), s) y u), de dicho artículo.
+2) Dictaminar la procedencia legal de las contrataciones directas de excepción amparadas al artículo 112 del Reglamento al Título II de la Ley 8660, salvo lo dispuesto en los incisos f) en lo referente a capacitación abierta, m), ñ), o), s) y u), de dicho artículo.
 3) Participar en las audiencias previas del cartel, para brindar la asesoría en materia legal que corresponda.
 4) Emitir el dictamen jurídico sobre recursos de objeción al cartel, revocatoria y apelación.
 5) Emitir el criterio jurídico de las ofertas, modificaciones contractuales, contratos adicionales de las contrataciones que, según la Directriz de montos para adjudicar y resolver trámites de contratación administrativa, emitida por la Gerencia General, sean iguales o superiores al rango dispuesto para las Gerencias.

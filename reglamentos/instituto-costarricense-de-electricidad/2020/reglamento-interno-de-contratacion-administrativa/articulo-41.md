@@ -1,1 +1,1 @@
-Artículo 41º. Contratación Directa de escasa cuantía. La contratación directa es un procedimiento contractual que permite al ICE adquirir bienes, obras y servicios por montos iguales o menores al límite derivado del artículo 22 de la Ley 8660 para este tipo de trámite.
+Artículo 41°. Contratación Directa de escasa cuantía. La contratación directa es un procedimiento contractual que permite al ICE adquirir bienes, obras y servicios por montos iguales o menores al límite derivado del artículo 22 de la Ley 8660 para este tipo de trámite.
