@@ -1,2 +1,0 @@
-ARTÍCULO 52. SECRETARIA. DEBIDO PROCESO EN SANCIONES
-El Secretario(a) Municipal, de acuerdo con el artículo cincuenta y tres del Código Municipal, sólo podrá ser suspendido ó destituido de su cargo si existiera justa causa, la cual debe ser demostrada mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa. Para los efectos del debido proceso, deberán atenderse los Reglamentos Internos de la Municipalidad y la Convención Colectiva de Trabajadores

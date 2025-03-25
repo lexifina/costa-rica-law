@@ -1,4 +1,0 @@
-ARTÍCULO 88. PRESUPUESTO. MODIFICACIONES Y PRESUPUESTO EXTRAORDINARIO. REMISIÓN.
-Los proyectos de presupuesto extraordinario y los de modificaciones, deberán ser presentados al Archivo del Departamento de Secretaría Municipal, y la misma Administración deberá haber enviado copia para cada fracción por medios electrónicos, cuando menos con tres días de antelación, a aquel en que se conocerá en el Concejo Municipal. (Artículo 95 CM). Se requerirá de votación calificada para aprobar la modificación de un programa a otro. (Art. 100 CM).
-Los presupuestos extraordinarios y las modificaciones, podrán ser conocidos por el Concejo en sesiones ordinarias o extraordinarias.
-Una vez aprobado un presupuesto extraordinario o una modificación, el Alcalde Municipal deberá remitirlo a la Contraloría General de la República, dentro de los quince días naturales siguientes a su aprobación. (Artículo 97 CM).

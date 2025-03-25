@@ -1,2 +1,0 @@
-ARTÍCULO 48. ALCALDE. CONVOCATORIA SESIONES EXTRAORDINARIAS
-En cumplimiento del inciso m-), del artículo diecisiete del Código Municipal, el Alcalde debe hacer la convocatoria a sesiones extraordinarias por escrito, cuando así se lo soliciten por lo menos la tercera parte de los regidores propietarios y con veinticuatro horas de anticipación. Constituye prueba de que convocados, la firma de recibido en la hoja de convocatoria.

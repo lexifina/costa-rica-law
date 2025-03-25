@@ -1,2 +1,0 @@
-ARTÍCULO 66. COMISIONES. TRÁMITE DE DICTÁMENES LUEGO DE SU APROBACIÓN
-Los informes o dictámenes de Comisión, serán entregados, a la Jefatura del Departamento una vez que hayan sido suscritos por los miembros presentes en la reunión respectiva, y luego de ser puestos en conocimiento de las fracciones por parte de las secretarias de las comisiones, vía electrónica por lo menos veinticuatro horas antes del inicio de la sesión del Concejo Municipal en que se analizarán.

@@ -1,3 +1,0 @@
-ARTÍCULO 107.
-La Comisión de Festejos Populares será integrada por el Concejo Municipal en la primera sesión del mes de Febrero de cada año, de acuerdo con lo dispuesto en el artículo treinta y uno inciso d), del Código Municipal, y la Ley No. cuatro mil doscientos ochenta y seis, de las Comisiones de Festejos Populares, y por el artículo 8 segundo párrafo del Reglamento de Organización y funcionamiento de los Festejos Populares de la Municipalidad del Cantón Central de San José.
-Reformado mediante Acuerdo 1 de Sesión Extraordinaria 18 de 22 de enero de 2003 y ratificado mediante Acuerdo 11 de Sesión Ordinaria 44 de 04 de marzo de 2003.

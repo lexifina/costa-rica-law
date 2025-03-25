@@ -1,2 +1,0 @@
-ARTÍCULO 89. PRESUPUESTO. INFORME EJECUCIÓN. LIQUIDACIÓN PRESUPUESTARIA
-Junto con el informe de ejecución del presupuesto ordinario y de los extraordinarios, al 31 de diciembre del año anterior, el Alcalde Municipal presentará al Concejo Municipal, la liquidación presupuestaria y luego de aprobada, antes del quince de febrero, lo elevará a la Contraloría General de la República, para su aprobación.

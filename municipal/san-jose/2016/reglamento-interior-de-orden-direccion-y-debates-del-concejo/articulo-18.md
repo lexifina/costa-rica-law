@@ -1,3 +1,0 @@
-ARTÍCULO 18. SESIONES. EXTRAORDINARIAS
-Las sesiones extraordinarias, se celebrarán, previo acuerdo y convocatoria del Concejo Municipal, según las formalidades establecidas en el artículo treinta y seis del Código Municipal. El acuerdo requiere el voto de mayoría absoluta (simple). La sesión extraordinaria se realizará a la hora, el día, la fecha y con el orden del día que indique el acuerdo. En las mismas solo podrán conocerse los asuntos incluidos en la convocatoria, o además en alteración de lo que, por unanimidad, acuerden conocer los miembros del Concejo.
-Al menos en una sesión Extraordinaria al mes se incluirá en la convocatoria dentro del Orden del día, un Capítulo de Control político.

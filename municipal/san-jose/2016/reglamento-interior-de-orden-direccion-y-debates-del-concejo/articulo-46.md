@@ -1,3 +1,0 @@
-ARTÍCULO 46. ALCALDE. INTERPOSICIÓN VETO
-La interposición del veto por parte del Alcalde Municipal, tendrá prioridad en el orden del día del Concejo Municipal de la sesión inmediata siguiente a su presentación y el Presidente Municipal no podrá negarse a dar trámite a ese veto, ni posponer su conocimiento en el Concejo.
-La interposición del veto suspende la ejecución del acuerdo recurrido. Si el mismo es Rechazado, se elevará en alzada ante el Tribunal Contencioso Administrativo, para que resuelva conforme a derecho.

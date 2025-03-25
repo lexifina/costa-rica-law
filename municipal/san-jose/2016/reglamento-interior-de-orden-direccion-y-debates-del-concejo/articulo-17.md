@@ -1,2 +1,0 @@
-ARTÍCULO 17. SESIONES. ALTERACIÓN DEL ORDEN DEL DÍA
-Mediante una moción de alteración del orden se podrá aprobar que un artículo del Orden del día se anteponga al resto de las presentadas, o que una moción o documento que no fue presentado dentro del plazo fijado en el artículo anterior se pueda conocer en la sesión respectiva. Este tipo de moción, para ser aprobada requiere del voto calificado del total de Regidores que conforman el Concejo Municipal, no de los miembros presentes. Con su aprobación se ejecuta de inmediato.

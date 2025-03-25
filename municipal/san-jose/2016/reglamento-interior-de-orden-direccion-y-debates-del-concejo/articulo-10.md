@@ -1,2 +1,0 @@
-ARTÍCULO 10. SESIONES. ORDINARIAS.
-Las sesiones ordinarias se celebrarán los días y a la hora que fije, mediante acuerdo, el Concejo Municipal, contando éste con la potestad de cambiar la fecha y la hora de realización de las sesiones ordinarias en cualquier momento y cuantas veces lo desee, previa publicación, en La Gaceta, y según lo dispuesto por el artículo anterior. No será necesaria dicha publicación todos los meses si no existen cambios dispuestos.

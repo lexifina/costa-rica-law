@@ -1,2 +1,0 @@
-ARTÍCULO 77. COMISIONES. REGISTRO DE DOCUMENTOS
-Recibido un expediente por la secretaría de una comisión, esta lo anotará en libro de registro de entrada y trámite de expedientes de comisión, que debe ser foliado y previamente autorizado por la Secretaría Municipal. En este libro se asignará a cada expediente un número, con el fin de que se respete estrictamente el orden en que serán conocidos y resueltos por la comisión. Solo por votación calificada, la comisión podrá alterar ese orden de presentación y conocer otro asunto, lo que se hará constar en el acta.

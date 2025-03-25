@@ -1,3 +1,0 @@
-ARTÍCULO 40. PRESIDENCIA. DEBER DE EXCUSARSE. SUSTITUCIÓN
-Cuando la Presidencia tuviese que involucrarse en la defensa de algún asunto en discusión en el plenario municipal, en el cual tuviera interés directo o incurriera en alguno de los motivos de recusación estipulados en el artículo 31 inciso a) del Código Municipal, 53 del Código Procesal Civil, y artículo 230 ss y concordantes de la Ley General de la Administración Pública, dejará su cargo temporalmente al Vicepresidente.
-Si el que ejerce La Presidencia durante la sesión es el Vicepresidente, y éste incurriera en las causales de excusa o recusación respectivas, el Regidor de mayor de edad será el llamado a sustituirlo.
