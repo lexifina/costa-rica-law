@@ -14,3 +14,4 @@ Reglamento de parques ambientales para la separación, tratamiento, aprovechamie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-06-26 | la propia norma |
+| 2 | 2025-03-26 | Decreto Ejecutivo 44974 (2025-03-26) |
