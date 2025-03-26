@@ -15,3 +15,4 @@ Reglamento sobre el manejo de residuos sólidos ordinarios
 | --- | --- | --- |
 | 1 | 2011-02-17 | la propia norma |
 | 2 | 2014-01-07 | Decreto Ejecutivo 38272 (2014-01-07) |
+| 3 | 2025-03-26 | Decreto Ejecutivo 44974 (2025-03-26) |

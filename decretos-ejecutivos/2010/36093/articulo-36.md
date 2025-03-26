@@ -1,1 +1,2 @@
-Artículo 36.—Cuando se utilice la técnica de disposición final por medio de relleno sanitario se deberá cumplir con lo señalado en el Reglamento sobre Rellenos Sanitarios.
+Artículo 36.-Cuando se utilice la técnica de disposición final por medio de relleno sanitario se debe cumplir con lo señalado en el Decreto Ejecutivo 44421 -S, Reglamento de parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, publicado el 25 de abril del 2024."
+(Así reformado por el artículo 13 del Reglamento para la gestión regionalizada de residuos sólidos, ordinarios y orgánicos en Costa Rica, aprobado mediante decreto ejecutivo N° 44974 del 26 de marzo del 2025)
