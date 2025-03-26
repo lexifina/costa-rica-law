@@ -1,0 +1,2 @@
+Artículo 146.- De las fuentes radiactivas huérfanas. Toda persona física o jurídica que sospeche de la presencia de una fuente radiactiva huérfana deberá notificar al Sistema 9-1-1 de la situación.
+Las instituciones con responsabilidades asignadas en el Plan Nacional de Emergencias Radiológicas vigente coordinarán de manera inmediata con el Órgano Regulador para gestionar el resguardo de la misma, con el fin de proteger la salud y el ambiente, de acuerdo al riesgo del material.

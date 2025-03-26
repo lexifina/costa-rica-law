@@ -1,0 +1,1 @@
+Artículo 161.- Del análisis de la emergencia radiológica y nuclear y de la respuesta a la emergencia. Posterior a la emergencia, el Órgano Regulador en conjunto con las instituciones involucradas, realizarán y documentarán un informe con el fin de determinar las medidas necesarias para evitar nuevas emergencias y se realizará un seguimiento de las lecciones aprendidas.

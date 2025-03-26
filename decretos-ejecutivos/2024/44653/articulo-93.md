@@ -1,0 +1,1 @@
+Artículo 93.- De los bultos. Los bultos deben estar aprobados por el Órgano Regulador y estar marcados y etiquetados conforme a la Sección V del Reglamento para el Transporte Seguro de Materiales Radiactivos del Organismo Internacional de Energía Atómica.

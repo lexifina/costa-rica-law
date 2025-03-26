@@ -1,0 +1,3 @@
+Sección VIII
+TRANSPORTE DE MATERIALES RADIACTIVOS
+Artículo 81.- Del transporte de materiales radiactivos. El transporte de materiales radiactivos se regirá por la normativa vigente establecida para tal efecto por el Órgano Regulador y el Ministerio de Obras Públicas y Transportes, en conformidad con las disposiciones establecidas a nivel internacional mediante el Reglamento para el Transporte Seguro de Materiales Radiactivos del Organismo Internacional de Energía Atómica (OIEA) y las Recomendaciones Relativas al Transporte de Mercancías Peligrosas de la Organización de Naciones Unidas (ONU), así como los preceptos del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 38.- De los requisitos para las autorizaciones. Para solicitar cualquiera de las autorizaciones a las que se refiere el artículo 35 del presente reglamento, se deben presentar los requisitos establecidos en el Anexo IV "Requisitos de las Autorizaciones y Registros" del presente reglamento, para su evaluación y aprobación.

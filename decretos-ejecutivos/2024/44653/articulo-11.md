@@ -1,0 +1,1 @@
+Artículo 11.- De la optimización de la protección y seguridad radiológica. Cada parte con responsabilidad en materia de protección y seguridad radiológica asegurará que la optimización de la protección se aplique en todas las situaciones de exposición.

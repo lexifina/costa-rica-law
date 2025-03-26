@@ -1,0 +1,1 @@
+Artículo 180.- De la disposición de residuos radiactivos al servicio municipal. Se prohíbe la disposición de residuos radiactivos al servicio municipal (recolección, transporte y disposición final de residuos ordinarios).

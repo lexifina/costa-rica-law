@@ -1,0 +1,1 @@
+Artículo 56.- Del personal que realiza los servicios técnicos. Todo el personal que realice servicios técnicos debe contar con la licencia de operador otorgada por el Órgano Regulador, para lo cual debe cumplir con los requisitos del artículo 168 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 21.- Del operador de fuentes de radiación. Toda persona interesada en desempeñarse como operador de fuentes de radiación debe contar con la licencia de operador otorgada por el Órgano Regulador, para lo cual debe cumplir con los requisitos del artículo 168 del presente reglamento.

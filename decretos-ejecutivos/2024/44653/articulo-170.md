@@ -1,0 +1,1 @@
+Artículo 170.- De la capacitación de las Instituciones Estatales que participan en la respuesta de emergencias radiológicas y nucleares. Las Instituciones Estatales con responsabilidades asignadas en el Plan Nacional de Emergencias Radiológicas deberán asegurar la capacitación en materia de protección y seguridad radiológica para el personal que labora en ellas.

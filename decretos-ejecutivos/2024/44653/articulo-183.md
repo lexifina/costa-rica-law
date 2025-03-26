@@ -1,0 +1,1 @@
+Artículo 183.- Del uso de equipos de rayos X de fluoroscopía utilizados en radiología sin intensificador de imagen. Se prohíbe el uso de equipos de rayos X de fluoroscopía utilizados en radiología sin intensificador de imagen ni detector plano.

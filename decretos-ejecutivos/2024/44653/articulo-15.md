@@ -1,0 +1,1 @@
+Artículo 15.- Del titular autorizado. El titular autorizado, es el responsable de la protección y seguridad radiológica, sólo podrá realizar las actividades expresamente especificadas en la autorización y bajo los límites y condiciones establecidos en la resolución otorgada por el Órgano Regulador.

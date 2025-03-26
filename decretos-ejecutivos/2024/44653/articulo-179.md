@@ -1,0 +1,1 @@
+Artículo 179.- De la importación de residuos radiactivos. Se prohíbe la importación y el movimiento transfronterizo por el territorio nacional de residuos radiactivos, incluyendo fuentes radiactivas selladas en desuso y equipos que las contengan o que estén asociados a éstas.

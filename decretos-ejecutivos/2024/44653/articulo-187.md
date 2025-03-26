@@ -1,0 +1,1 @@
+Artículo 187.- Derogatoria. Deróguese el Decreto Ejecutivo Nº 24037-S del 22 de diciembre de 1994 “Reglamento sobre Protección contra las Radiaciones Ionizantes” publicado en La Gaceta Nº 48 del 8 de marzo de 1995 y su reforma.

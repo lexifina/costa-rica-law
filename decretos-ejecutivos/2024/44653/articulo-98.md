@@ -1,0 +1,1 @@
+Artículo 98.- De la protección de estudiantes y aprendices. Las personas menores de 18 años y mayores de 17 años solamente podrán ser sometidos a exposición ocupacional con fines de capacitación y su acceso zonas controladas solamente debe realizarse bajo supervisión del Responsable de la Protección Radiológica o por un miembro del personal ocupacionalmente expuesto.

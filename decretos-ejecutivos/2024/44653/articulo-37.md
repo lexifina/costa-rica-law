@@ -1,0 +1,1 @@
+Artículo 37.- De la clasificación de las instalaciones. Para la solicitud de las autorizaciones de puesta en servicio y operación a las que se refiere el artículo 35 del presente reglamento, las instalaciones se clasificarán de acuerdo con lo establecido en el Anexo III "Clasificación de las Instalaciones" del presente reglamento.

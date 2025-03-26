@@ -1,0 +1,7 @@
+Artículo 73.- De los requisitos para la autorización de desalmacenaje de fuentes de radiación. Para obtener la autorización de desalmacenaje de una FDR, el importador deberá cumplir con los siguientes requisitos:
+1. Contar con el registro sanitario de Equipo y Material Biomédico, registro sanitario de medicamentos o registro de fuentes de radiación vigente.
+2. Contar con la autorización de transporte de materiales radiactivos, vigente, cuando ésta corresponda, otorgada por el Órgano Regulador. Además, en el caso de que un prestador de servicios de transporte de materiales radiactivos lleve a cabo el transporte, éste debe estar registrado conforme a lo dispuesto en al artículo 83 del presente reglamento.
+3. Presentar copia de la factura del envío de la FDR. En caso de materiales radiactivos la factura debe consignar la identificación del radioisótopo y la actividad.
+4. Presentar copia del documento que muestre el conocimiento de embarque, carta de porte o guía aérea.
+5. Contar con la autorización de importación vigente, otorgada por el Órgano Regulador, cuando se trate de fuentes radiactivas selladas.
+El trámite de desalmacenaje se debe realizar de forma electrónica a través del Sistema de la Ventanilla Única de Comercio Exterior de la Promotora de Comercio Exterior (PROCOMER). El trámite debe ser resuelto por el Órgano Regulador en un plazo de 3 días hábiles, contados a partir del día de su presentación por el administrado.

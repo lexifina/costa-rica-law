@@ -1,0 +1,1 @@
+Artículo 40.- Del idioma de la documentación. Todo documento que requiera el Órgano Regulador conforme a las disposiciones del presente reglamento debe ser presentado en idioma español, en caso de un documento que se encuentre escrito en otro idioma, debe venir acompañado de la traducción oficial.

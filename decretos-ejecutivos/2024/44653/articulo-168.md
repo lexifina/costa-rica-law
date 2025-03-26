@@ -1,0 +1,3 @@
+Artículo 168.- De los requisitos del operador de fuentes de radiación. Toda persona interesada en desempeñarse como operador de fuentes de radiación debe contar con la licencia de operador otorgada por el Órgano Regulador, cuyos requisitos son los establecidos en la Sección XIII.2 del Anexo XIII “Requisitos de la Autorización de Responsable de la Protección Radiológica, Licencia de Operador y Autorización de Prestación de Servicios de Capacitación en Protección Radiológica” del presente reglamento.
+La licencia de operador tendrá una vigencia de 2 años.
+Las solicitudes de licencia de operador se deberán tramitar ante las Direcciones de Área Rectora de Salud del Ministerio de Salud.

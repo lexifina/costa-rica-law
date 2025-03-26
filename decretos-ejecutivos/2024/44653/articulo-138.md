@@ -1,0 +1,4 @@
+Artículo 138.- De la restricción de dosis del público. El Órgano Regulador podrá establecer restricciones de dosis y restricciones de riesgos que deberán utilizarse en la optimización de la protección y seguridad radiológica para los miembros del público. Al establecer restricciones respecto de una fuente de radiación vinculada a una práctica el Órgano Regulador tendrá en cuenta lo siguiente:
+1. Las características de la fuente de radiación y de la práctica que sean importantes desde el punto de vista de la exposición del público.
+2. Las buenas prácticas en la operación de fuentes de radiación similares.
+3. Las contribuciones a la dosis a partir de otras prácticas autorizadas o de posibles prácticas autorizadas futuras, estimadas en la fase de diseño y planificación, de modo que no se prevea que la dosis total a los miembros del público sobrepase el límite de dosis en ningún momento después de que se comience a utilizar la fuente de radiación.

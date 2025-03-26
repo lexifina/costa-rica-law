@@ -1,0 +1,1 @@
+Artículo 66.- De los prestadores de servicios de capacitación en protección radiológica. Toda persona física o jurídica que preste servicios de capacitación en protección radiológica debe cumplir con las disposiciones del artículo 169 del presente reglamento.

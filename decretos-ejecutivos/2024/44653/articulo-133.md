@@ -1,0 +1,7 @@
+Artículo 133.- De los registros en las exposiciones médicas. El titular autorizado mantendrá y facilitará los siguientes registros de las exposiciones médicas:
+1. En radiología de diagnóstico, la información para la evaluación retrospectiva de las dosis, incluidos el número de exposiciones y la duración de los procedimientos radiológicos fluoroscópicos.
+2. En los procedimientos de intervención guiados por imágenes, la información para la evaluación retrospectiva de las dosis, incluidos la duración del componente fluoroscópico y el número de imágenes obtenidas.
+3. En medicina nuclear, los tipos de radiofármaco administrados y su actividad.
+4. En la radioterapia externa o la braquiterapia, una descripción del volumen blanco de planificación, la dosis absorbida al centro del volumen blanco de planificación y las dosis absorbidas máxima y mínima administradas al volumen blanco de planificación o información alternativa equivalente sobre las dosis absorbidas al volumen blanco de planificación y las dosis absorbidas a los tejidos u órganos de que se trate determinados por el médico realizador del procedimiento radiológico y además, en el caso de la radioterapia externa, el fraccionamiento de la dosis y el tiempo total de tratamiento.
+5. Registros de los resultados de las calibraciones y comprobaciones de los parámetros físicos y clínicos seleccionados durante el tratamiento de los pacientes.
+6. Registros de la dosimetría de los pacientes.

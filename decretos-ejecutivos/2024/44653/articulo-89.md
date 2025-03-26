@@ -1,0 +1,1 @@
+Artículo 89.- Exposición ocupacional debido a actividades de transporte. El transportista será responsable de cumplir con las disposiciones de la Sección IX del Capítulo II del presente reglamento, en cuanto a la exposición ocupacional debido a actividades de transporte de materiales radiactivos de los trabajadores bajo su responsabilidad.

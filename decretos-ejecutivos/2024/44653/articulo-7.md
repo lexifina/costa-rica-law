@@ -1,0 +1,1 @@
+Artículo 7.- Del enfoque graduado. La aplicación de los requisitos de protección y seguridad radiológica establecidos en el presente reglamento por parte del Órgano Regulador deberá ser proporcional a los riesgos radiológicos asociados a la situación de exposición.

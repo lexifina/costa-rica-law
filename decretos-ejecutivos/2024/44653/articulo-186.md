@@ -1,0 +1,1 @@
+Artículo 186.- De los planos de construcción y las memorias de cálculo. Los requisitos de las secciones VII.1 y VII.2 del Anexo VII “Información que deben contener los Planos de Construcción, Memorias de Cálculo y Levantamientos Radiométricos” serán de obligatorio cumplimiento 30 días naturales después de la fecha de la publicación del presente Decreto Ejecutivo.

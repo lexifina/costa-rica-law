@@ -1,0 +1,1 @@
+Artículo 156.- De las medidas protectoras. La responsabilidad de implementar las medidas protectoras establecidas en el Plan Nacional de Emergencias Radiológicas y Nucleares será del Órgano Regulador durante la fase de respuesta a la emergencia.

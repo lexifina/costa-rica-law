@@ -1,0 +1,1 @@
+Artículo 102.- De las zonas de trabajo. El titular autorizado clasificará los lugares de trabajo, en función del riesgo de exposición y teniendo en cuenta la probabilidad y magnitud de las exposiciones potenciales, en zonas controladas y zonas supervisadas.

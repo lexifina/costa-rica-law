@@ -1,0 +1,1 @@
+Artículo 84.- De la vigencia del registro de prestador de servicios de transporte de materiales radiactivos. El registro al que se refiere el artículo 83 del presente reglamento, ya sea por primera vez o renovación, tendrá una vigencia de 5 años.

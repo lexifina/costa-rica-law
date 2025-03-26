@@ -1,0 +1,4 @@
+Artículo 136.- De los miembros del público que ingresan a zonas controladas. Los titulares autorizados deberán:
+1. Velar por que los miembros del público visitantes que ingresen en cualquier zona controlada sean acompañados por el Responsable de la Protección Radiológica o por un miembro del personal ocupacionalmente expuesto, les sea proporcionado el equipo de protección personal que debe utilizarse dentro de la instalación y se apliquen los criterios tiempo, distancia y blindaje, dependiendo de la naturaleza de su ingreso.
+2. Proporcionar información e instrucciones a los miembros del público visitantes antes de que entren en una zona controlada a fin de ofrecer protección y seguridad radiológica a los miembros del público visitantes y a otras personas que podrían verse afectadas por sus acciones.
+3. Asegurar que se mantiene un control y un registro de la entrada de los miembros del público visitantes a una zona controlada.

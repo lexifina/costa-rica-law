@@ -1,0 +1,6 @@
+Artículo 150.- Monitoreo y registro de las descargas de materiales radiactivos. Los titulares autorizados deberán:
+1. Establecer y ejecutar programas de monitoreo de las descargas de materiales radiactivos para que se cumpla con el artículo 149 del presente reglamento y se demuestre el cumplimiento de los límites y condiciones de la autorización de operación de la instalación.
+2. Elaborar y mantener registros actualizados de los resultados de los programas de monitoreo y de las dosis que se estime reciban los miembros del público.
+3. Presentar al Órgano Regulador reportes anuales con los resultados del programa de monitoreo que incluyan los niveles y la composición de las descargas de materiales radiactivos al ambiente y las estimaciones retrospectivas de las dosis que haya recibido la persona representativa.
+4. Informar al Órgano Regulador en caso de que se superen los límites de descarga establecidos en la autorización de operación de la instalación, indicando los motivos por los cuales se sobrepasaron y las medidas correctivas.
+5. Mantener capacidad para llevar a cabo actividades de monitoreo en una emergencia en caso de incrementos imprevistos de los niveles de radiación o de las concentraciones de radioisótopos en el ambiente como consecuencia de un accidente u otro suceso poco común atribuido a la fuente radiactiva o instalación autorizada.

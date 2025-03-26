@@ -1,0 +1,1 @@
+Artículo 65.- De los prestadores de servicios de transporte de materiales radiactivos. Toda persona física o jurídica que preste servicios para el transporte de materiales radiactivos deberá cumplir con las disposiciones de la Sección VIII del Capítulo II del presente reglamento.

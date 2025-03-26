@@ -1,0 +1,1 @@
+Artículo 185.- De los informes de evaluación de seguridad. El requisito de presentación de informes de evaluación de seguridad, para instalaciones Tipo I, clase 3, 4, 6, 7, 8, 9 y 10, será de obligatorio cumplimiento un año después de la fecha de la publicación del presente reglamento.

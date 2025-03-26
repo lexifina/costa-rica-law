@@ -1,0 +1,5 @@
+Artículo 121.- De las prácticas médicas injustificadas. De conformidad con el artículo 120, las siguientes prácticas médicas no están justificadas:
+1. Prácticas que involucren exposición a las radiaciones ionizantes que hayan sido reemplazadas por otras que constituyan una opción más ventajosa y con mayores beneficios técnicos.
+2. Exámenes con fines ocupacionales, legales o en relación con seguros de salud, que se realicen sin referencia a indicaciones clínicas prescritas por un médico.
+3. Exámenes masivos en grupos de población, a menos que compensen los costos económicos y sociales, incluido el detrimento radiológico de no realizar dichos exámenes.
+4. Prácticas con fines de investigación biomédica, a menos que éstas hayan sido aprobadas por el Consejo Nacional de Investigación en Salud del Ministerio de Salud, siguiendo las disposiciones de la Declaración de Helsinki y los lineamientos del Consejo de Organizaciones Internacionales de las Ciencias Médicas, la Organización Mundial de la Salud y la Comisión Internacional de Protección Radiológica (ICRP).

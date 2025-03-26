@@ -1,0 +1,8 @@
+Artículo 123.- De los deberes del titular autorizado. El titular autorizado para prácticas médicas debe asegurar que:
+1. Toda exposición de un paciente a una FDR con fines de diagnóstico o terapéuticos, sea prescrita por un médico.
+2. Se asigne al médico responsable del procedimiento radiológico, en cooperación con personal de la instalación con funciones específicas en relación con la protección y seguridad radiológica, la responsabilidad por la aplicación de los principios de justificación y optimización en las exposiciones médicas.
+3. Se asigne al médico responsable del procedimiento radiológico, en cooperación con personal de la instalación con funciones específicas en relación con la protección y seguridad radiológica, la responsabilidad de velar por la protección y seguridad radiológica de los pacientes durante la planificación y administración de la exposición médica.
+4. Se disponga de profesionales de la salud que hayan recibido capacitación en protección y seguridad radiológica, para el desempeño de las tareas que tengan asignadas en la realización del procedimiento radiológico.
+5. Se adopten todas las medidas para reducir al mínimo la probabilidad de que se produzcan exposiciones médicas involuntarias o accidentales debidas a errores de diseño y fallos operacionales del equipo radiológico médico, a fallos y errores de programas informáticos, o como consecuencia de errores humanos.
+6. La dosimetría de pacientes se realice utilizando equipos calibrados.
+7. Todo paciente o representante legal autorizado del paciente, sintomático o asintomático, que sea sometido a exposición médica, haya sido informado de los beneficios de diagnóstico o terapéuticos previstos del procedimiento radiológico, así como de los riesgos radiológicos.

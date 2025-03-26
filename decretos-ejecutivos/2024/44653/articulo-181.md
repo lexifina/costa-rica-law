@@ -1,0 +1,1 @@
+Artículo 181.- De la mezcla y disposición de residuos radiactivos. Se prohíbe mezclar residuos radiactivos con otros residuos que no contienen o no están contaminados con material radiactivo para su almacenamiento, procesamiento, tratamiento y disposición final.

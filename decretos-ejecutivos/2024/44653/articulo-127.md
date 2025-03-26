@@ -1,0 +1,3 @@
+Artículo 127.- Restricciones de dosis de visitantes, cuidadores y acompañantes voluntarios.
+En la optimización de la protección y seguridad radiológica de procedimientos que deben aplicarse a personas que libre y voluntariamente prestan asistencia, cuando ello no constituye parte de su ocupación, para el cuidado, apoyo y bienestar de pacientes sometidos a procedimientos radiológicos médicos, el titular autorizado debe asegurar que la exposición de dichas personas se restrinja de manera que la dosis que reciban no exceda 5 mSv durante el periodo abarcado por el examen con fines de diagnóstico o el proceso de tratamiento del paciente.
+Se prohíbe la visita de niños a pacientes a los que se les ha suministrado o implantado materiales radiactivos.
