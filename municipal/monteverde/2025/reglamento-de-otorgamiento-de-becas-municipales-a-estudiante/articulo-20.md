@@ -1,0 +1,1 @@
+Artículo 20.-Por cada solicitud de beca municipal la Secretaría Municipal abrirá un expediente en donde constarán todos los documentos aportados por el interesado. La Comisión de Becas no dará trámite a aquellas solicitudes que sean entregadas en forma incompleta.

@@ -1,0 +1,1 @@
+Artículo 23.-La Comisión de Becas otorgará cada año becas de excelencia académica, por una única vez en la medida de las posibilidades del Presupuesto Municipal, a los tres estudiantes de secundaria, de instituciones educativas públicas del Cantón de Monteverde, que obtuvieron los tres primeros lugares en su rendimiento académico con un promedio anual de 90 como mínimo.

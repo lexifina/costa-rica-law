@@ -1,0 +1,1 @@
+Artículo 15.-La Secretaría Municipal deberá enviar a la Comisión de Becas, según el período de notas de cada centro educativo, el listado de los estudiantes becados para ser evaluados y determinar si continúa o no con la beca.

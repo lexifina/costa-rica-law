@@ -1,0 +1,1 @@
+Artículo 5º-La información que se da en el formulario respectivo deberá ser fidedigna. Si se comprueba lo contrario automáticamente se rechazará la solicitud, la Comisión de Becas estará en plena autoridad para verificar la información cuando así lo considere.

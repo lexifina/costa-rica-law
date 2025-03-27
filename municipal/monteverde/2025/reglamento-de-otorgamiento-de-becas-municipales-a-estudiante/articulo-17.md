@@ -1,0 +1,1 @@
+Artículo 17.-Cada estudiante becado deberá presentar una certificación de cuenta electrónica a su nombre del Banco Nacional de Costa Rica, en la cual se le depositará mensualmente el monto de su beca.

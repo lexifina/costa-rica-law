@@ -1,0 +1,1 @@
+Artículo 6º-La Alcaldía Municipal deberá incluir en el presupuesto anual ordinario, así como en los extraordinarios los recursos necesarios para dar cumplimiento al Programa de Becas Municipales tomando en cuenta la recomendación que la Comisión de Becas emita, todo lo anterior después de la debida aprobación del Concejo Municipal de la Municipalidad.

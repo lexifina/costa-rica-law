@@ -1,0 +1,1 @@
+Artículo 19.-La Tesorería Municipal, no emitirá el primer pago sin haber recibido el listado general y la autorización de la Comisión de Becas, aprobada por la municipalidad, en la cual se le comunica que el estudiante ha completado su documentación y se le ha asignado la beca por ese año.

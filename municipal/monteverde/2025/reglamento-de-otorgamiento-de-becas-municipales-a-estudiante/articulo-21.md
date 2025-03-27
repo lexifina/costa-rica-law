@@ -1,0 +1,1 @@
+Artículo 21.-Una vez aprobada la lista de becados por la municipalidad la Secretaría Municipal comunicará a cada institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibido por el Departamento de Orientación. Así mismo, se notificará por escrito a cada uno de los becados.

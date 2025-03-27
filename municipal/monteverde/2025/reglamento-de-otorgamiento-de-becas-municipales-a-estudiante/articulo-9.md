@@ -1,0 +1,1 @@
+Artículo 9º-Solamente se otorgará una beca por familia, pero queda a criterio de la Comisión de Becas otorgar otras becas a la misma familia, con base en el estudio socioeconómico del respectivo núcleo familiar y recomendación del Centro Educativo correspondiente.
