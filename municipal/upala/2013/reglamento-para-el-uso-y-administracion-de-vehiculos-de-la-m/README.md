@@ -14,3 +14,4 @@ Reglamento para el uso y administración de vehículos de la Municipalidad de Up
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-28 | la propia norma |
+| 2 | 2025-03-27 | Reglamento municipal 81 (2025-03-27) |
