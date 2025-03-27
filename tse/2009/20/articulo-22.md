@@ -1,7 +1,7 @@
 Artículo 22.- Además de los deberes de imparcialidad, neutralidad y objetividad en el trato de la información que se espera de los observadores internacionales, éstos deberán:
 a) Respetar la Constitución Política de la República de Costa Rica y sus leyes, así como cualquier norma o disposición emanada del Tribunal Supremo de Elecciones en materia electoral.
-b) Presentar la solicitud de acreditación ante el Departamento de Comunicaciones y Relaciones Públicas y facilitar los documentos y la información que les sean requeridos con motivo de ese trámite, así como portar el carné de identificación.
-(Así reformado el inciso anterior por el artíuclo 1° del decreto del Tribual Supremo de Elecciones, N° 23 del 14 de noviembre de 2019)
+b) Presentar la solicitud de acreditación ante la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos y facilitar los documentos y la información que les sean requeridos con motivo de ese trámite, así como portar el carné de identificación.
+(Así reformado el inciso anterior por el artíuclo 4° del decreto del Tribual Supremo de Elecciones, N° 5 del 27 de marzo de 2025)
 c) Abstenerse de interferir u obstaculizar en modo alguno las actividades del proceso electivo o consultivo, ni las propias de los organismos electorales y de los actores de esos procesos.
 d) Abstenerse de hacer proselitismo e incurrir en beligerancia política.
 e) Realizar sus actividades de observación de manera seria, respetuosa, responsable e imparcial.
