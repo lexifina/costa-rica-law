@@ -1,0 +1,5 @@
+TRANSITORIO I- El Ministerio de Hacienda y la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) deberán reintegrar, en partes iguales en un plazo no mayor a diez años, en uno o varios tractos a convenir entre el Ministerio de Hacienda y Japdeva, al fondo del canon de explotación y desarrollo regional de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva), previsto en la Ley 3091, Ley Orgánica de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva), de 18 de febrero de 1963, los montos indexados a la fecha de reintegro, indicados en el artículo único de la presente ley, provenientes del fondo. Estos recursos deberán ser destinados, en su totalidad, al desarrollo regional de la provincia de Limón.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los diez días del mes de marzo del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
+<span style='font-size:12.0pt; </body>
