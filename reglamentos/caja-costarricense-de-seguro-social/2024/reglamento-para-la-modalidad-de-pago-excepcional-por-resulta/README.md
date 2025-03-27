@@ -14,3 +14,4 @@ Reglamento para la modalidad de pago excepcional por resultados para la atenció
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-02-29 | la propia norma |
+| 2 | 2025-03-27 | Reglamento 9507 (2025-03-27) |
