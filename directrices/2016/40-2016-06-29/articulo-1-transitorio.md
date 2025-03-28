@@ -1,2 +1,0 @@
-Transitorio único. Los funcionarios que al momento de entrada en vigencia de esta normativa, caucionen por primera vez, contarán con un plazo de 20 días hábiles para gestionar la caución y presentar una copia a la Dirección de Recursos Humanos. Además dicho plazo también aplicará para aquellos funcionarios que ya rinden garantías de caución mediante póliza de fidelidad a efectos de que estos puedan realizar los ajustes necesarios.
-Dado en el despacho del señor Ministro a.i, a las diez horas del veintinueve de junio del dos mil dieciséis.

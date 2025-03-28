@@ -1,1 +1,0 @@
-Artículo 6. Revisión del listado de funcionarios obligados a caucionar. Es responsabilidad de la Dirección de Recursos Humanos, mantener actualizados los listados de funcionarios, por Dependencia, obligados a caucionar a fin de determinar si se encuentran al día con el pago de las pólizas.

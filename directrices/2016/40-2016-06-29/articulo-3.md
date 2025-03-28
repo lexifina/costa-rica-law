@@ -1,1 +1,0 @@
-Artículo 3. Forma de rendir la caución. La caución en favor del Ministerio de Educación Pública, se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, u otro ente asegurador.
