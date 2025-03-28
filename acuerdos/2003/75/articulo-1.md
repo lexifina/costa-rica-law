@@ -1154,10 +1154,15 @@ Anexo 64. Suficiencia Patrimonial para Grupos Financieros o Conglomerados.xlsx.
 b) Se modifica el medio de envío de los estados financieros auditados, cuando corresponda a Estados financieros del garante y/o fideicomisos de garantía de emisiones de oferta pública.
 INFORME O REPORTE | Medio de Envío Vigente | Medio de Envío Propuesto
 6.a Estados financieros auditados | Sistema Ingresador | MENDOCEL SGV-A-188
-“)
+")
 (Nota de Sinalevi: Mediante el artículo 3° inciso c) del acuerdo N° SGV-A-278 del 23 de mayo de 2023, se reformó los anexos 50 y 60 de las Bolsas de Valores y Centrales de Valores. Al no contener el mismo los anexos ya que no fueron publicados se transcribe la reforma:
 Anexo 50. Estados Financieros de Bolsa de Valores.xlsx.
-Anexo 60. Estados Financieros de Centrales de Valores.xlsx.”)
+Anexo 60. Estados Financieros de Centrales de Valores.xlsx.")
+(Nota de Sinalevi: Mediante el acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025, se reformó el anexo N° 64. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma: "A.- Modificar el Anexo 64 "Reporte de Superávit o déficit patrimonial" para que en adelante se lea de la forma que se indica en el archivo siguiente:
+")
+(Nota de Sinalevi: Mediante el acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025, se reformó el anexo N° 31. Al no contener esta norma dicho anexo ya que no fueron publicados se transcribe la reforma: B.- Modificar el Anexo 31 "Reporte de Superávit o déficit patrimonial" para que en adelante se lea de la forma que se indica en el archivo siguiente:
+")
+(Nota de Sinalevi: Mediante el acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025, se acordó derogar la periodicidad, contenido y medios de remisión de los siguientes anexos: Anexo 44. Informe de participaciones significativas, Anexo 48. Información sobre Ofertas y Transacciones y Anexo 37. Reporte trimestral de inversiones en títulos internacionales)
 SGV-A-75.-Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.

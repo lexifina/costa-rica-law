@@ -7,11 +7,11 @@ d. Cuadro resumen de títulos valores recibidos o entregados al portador, Anexo 
 e. Carta de Gerencia y Hoja de consolidación de los estados financieros auditados de las empresas emisoras y sujetos fiscalizados.
 f. Reporte de suficiencia patrimonial y control de límites, Anexo 31.
 g. Reporte de superávit o déficit patrimonial de grupos financieros.
-h. Informe sobre participaciones significativas que reportan los emisores accionarios, Anexo 44.
+h. (Derogado por acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025)
 i. Reporte del auxiliar de custodia. Anexo 45.
-j. Reporte trimestral de inversiones en títulos internacionales, Anexo 37.
+j. (Derogado por acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025).
 k. Traspasos no onerosos, Anexo 42.
-l. Información sobre ofertas y transacciones, Anexo 48.
+l. (Derogado por acuerdo N° SGV-A-3-2025 del 28 de marzo de 2025).
 m. El Archivo No. 3 - Plantilla de Morosidad y el campo "Cédula del Inquilino" del Archivo No. 2 - Plantilla de Inquilinos del "Reporte de composición de cartera de fondos inmobiliarios", Anexo 22.
 (Así reformado el inciso anterior por el artículo 4° del acuerdo SGV-269-A-2022 del 20 de julio de 2022)
 n. La sección II. Inquilinos y el campo "Terceras partes: agente" de la sección I. Inmuebles, del reporte "Cambio en la información inmobiliaria, Anexo 36.
