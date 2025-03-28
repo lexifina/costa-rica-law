@@ -24,3 +24,4 @@ Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia P
 | 9 | 2019-11-25 | Reglamento 1545 (2019-11-25) |
 | 10 | 2020-12-04 | Acuerdo 4222 (2020-12-04) |
 | 11 | 2023-05-23 | Resolución 1286 (2023-05-23) |
+| 12 | 2025-03-28 | Resolución 722 (2025-03-28) |

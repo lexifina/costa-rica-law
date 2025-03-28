@@ -5,11 +5,12 @@ Considerando:
 3. Que para este efecto los Lineamientos Generales deben definir los aspectos necesarios para la aplicación del Reglamento 3-06 según lo establecido en esa normativa.
 4. Que de conformidad con el Artículo 131, inciso b) de la Ley Orgánica del Banco Central de Costa Rica (Ley 7558) corresponde al Superintendente tomar las medidas necesarias para ejecutar los acuerdos del Consejo Nacional de Supervisión.
 Por tanto dispone:
-Emitir los “Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras, Acuerdo SUGEF 3-06”, según el siguiente texto:
+Emitir los "Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras, Acuerdo SUGEF 3-06", según el siguiente texto:
 ACUERDO DEL SUPERINTENDENTE
 SUGEF-A-002
 LINEAMIENTOS GENERALES PARA LA APLICACIÓN DEL REGLAMENTO SOBRE LA SUFICIENCIA PATRIMONIAL DE ENTIDADES FINANCIERAS, ACUERDO SUGEF-3-06
-Objetivo general: Determinar la metodología de cálculo del Valor en Riesgo (VeR), la metodología para la homologación de las calificaciones otorgadas por agencias calificadoras autorizadas por la Superintendencia General de Valores (SUGEVAL), presentar las cuentas contables y datos adicionales utilizadas en el cálculo de la suficiencia patrimonial y las deducciones al resultado del periodo que por ley corresponde
+Objetivo general: Establecer detalles metodológicos y orientaciones para la aplicación de las disposiciones establecidas en el "Reglamento sobre la suficiencia patrimonial de entidades financieras", Acuerdo SUGEF-3-06."
+(Así reformado el párrafo anterior mediante resolución N° SGF-0722-2025 del 28 de marzo de 2025)
 I. METODOLOGÍA DE CÁLCULO DEL VALOR EN RIESGO
 Objetivo: Presentar la metodología de cálculo de valor en Riesgo (VeR) con simulación histórica.
 A. Datos requeridos:
@@ -37,7 +38,7 @@ Q 1 = cantidad de participantes o acciones (instrumento de capital) o valor faci
 ME
 P I = precio de la emisión I en moneda extranjera.
 TC = tipo de cambio de referencia para la compra según el Banco Central de Costa Rica (*) para la fecha de corte, del colón con respecto a la moneda extranjera en la cual está denominada la emisión I.
-(Nota de Sinalevi: Mediante sesión N° 1545-2019 del 25 de noviembre del 2019 se reforma la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: “tipo de cambio indicado en el Reglamento de Información Financiera”. )
+(Nota de Sinalevi: Mediante sesión N° 1545-2019 del 25 de noviembre del 2019 se reforma la referencia al tipo de cambio compra de referencia del BCCR para reexpresar los importes en moneda extranjera, para que se lea: "tipo de cambio indicado en el Reglamento de Información Financiera".)
 Nota: Para calcular el tipo de cambio del colón con respecto a una moneda extranjera diferente al dólar estadounidense, se debe multiplicar el tipo de cambio de referencia para la compra del dólar estadounidense con el tipo de cambio del dólar estadounidense con respecto a la moneda extranjera en la cual está denominada la emisión I según el Banco Central de Costa Rica, todo para la fecha de corte. La unidad de Desarrollo debe tratarse como moneda extranjera para efectos de este cálculo.
 2. Identificar la serie de precios para cada emisión que conforma la cartera de inversiones. Cuando una emisión no cuenta con una serie de precios completa para las 521 observaciones, se debe completar la serie con el primer precio de la serie.
 3. Calcular la variación relativa a 21 días para cada emisión según la siguiente fórmula:
