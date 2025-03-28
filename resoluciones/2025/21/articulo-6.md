@@ -1,0 +1,3 @@
+Artículo 6º-Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Es conforme.
+Publíquese.
