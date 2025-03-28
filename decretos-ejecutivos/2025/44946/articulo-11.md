@@ -1,0 +1,4 @@
+CAPÍTULO II
+Sobre Materia Presupuestaria
+Artículo 11º.- Las entidades del Sector Público no Financiero que se encuentran en el ámbito de la AP, deberán atender lo dispuesto por el MH de conformidad con lo ordenado en el Título IV (Responsabilidad Fiscal de la República) de la Ley Nº 9635, Fortalecimiento de las Finanzas Públicas, publicada en el Alcance Nº 202 a La Gaceta Nº 225 del 04 de diciembre de 2018 y sus reformas, en adelante Ley Nº 9635 y su Reglamento.
+El MH, atendiendo lo dispuesto en los artículos 176 y 177 de la Constitución Política, 32 y 35 de la Ley Nº 8131, 38 de su Reglamento y sus reformas, comunicará a los ministerios a más tardar el 08 de abril 2025, el monto del gasto presupuestario máximo para el 2026, determinado según los parámetros establecidos en el Título IV de la Ley Nº 9635, sus reformas y su Reglamento

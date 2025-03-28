@@ -1,0 +1,1 @@
+Artículo 29° .-Las entidades públicas y sus órganos desconcentrados cubiertos por el ámbito de la AP que administren o custodien recursos y/o ingresos públicos y que se encuentren excluidos de la Ley 10.495, deberán cumplir con las disposiciones de este capítulo, salvo que exista normativa superior en contrario.

@@ -1,0 +1,1 @@
+Artículo 51 º.-Toda propuesta de un nuevo manual o modificaciones a los manuales existentes de las instituciones, deberán cumplir con el procedimiento y requisitos establecidos para su valoración y aprobación, por parte del ente competente.

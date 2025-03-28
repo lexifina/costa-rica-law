@@ -1,0 +1,1 @@
+Artículo 35°.-La DGGDP, deberá comunicar a la AP, si la Política de Endeudamiento Público requiere de ajustes o actualización. En caso de generarse un ajuste o actualización, se procederá de conformidad con el artículo 83 de la Ley N.º 8131.

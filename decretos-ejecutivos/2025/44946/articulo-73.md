@@ -1,0 +1,1 @@
+Artículo 73 º.-Los ministerios, las entidades públicas y sus órganos desconcentrados, en aras de cumplir el principio de publicidad del presupuesto, deberán divulgar en sus sitios web los presupuestos, su programación de metas y resultados de cada periodo ante la sociedad civil. Asimismo, deberán crear los mecanismos que propicien la participación ciudadana.
