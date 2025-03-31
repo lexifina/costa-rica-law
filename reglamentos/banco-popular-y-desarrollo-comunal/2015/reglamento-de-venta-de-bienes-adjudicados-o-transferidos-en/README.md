@@ -19,3 +19,4 @@ Reglamento de venta de bienes adjudicados o transferidos en pago de obligaciones
 | 4 | 2020-03-11 | Reglamento 5716 (2020-03-11) |
 | 5 | 2021-03-01 | Reglamento 5808 (2021-03-01) |
 | 6 | 2023-02-07 | Reglamento 5975 (2023-02-07) |
+| 7 | 2025-03-31 | Reglamento 6197 (2025-03-31) |
