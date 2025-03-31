@@ -14,3 +14,4 @@ Condiciones técnicas para la interconexión de recursos distribuidos para autoc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-02 | la propia norma |
+| 2 | 2025-03-31 | Reglamento 0 (2025-03-31) |
