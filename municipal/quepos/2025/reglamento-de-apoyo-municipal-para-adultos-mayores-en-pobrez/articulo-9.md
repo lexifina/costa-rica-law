@@ -1,0 +1,1 @@
+Artículo 9º-Propiedades en Derechos. Cuando se trate de propiedades con más de un derecho, la exención únicamente abarcará al adulto mayor solicitante en condición de pobreza o pobreza extrema con deudas por tributos municipales a partir del segundo trimestre del 2023 de forma retroactiva.

@@ -1,0 +1,1 @@
+Artículo 6º-Análisis de la Administración. La administración municipal deberá realizar un estudio técnico-financiero anual para evaluar la viabilidad de la condonación. Este análisis incluirá el número de personas adultas mayores en condición de pobreza o pobreza extrema en el cantón y el impacto financiero de la condonación sobre los ingresos municipales.

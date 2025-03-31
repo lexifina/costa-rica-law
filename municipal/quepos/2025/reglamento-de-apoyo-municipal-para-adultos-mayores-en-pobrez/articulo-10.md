@@ -1,0 +1,1 @@
+Artículo 10.-Procesos en Cobro Judicial. Si la cuenta se encuentra en cobro judicial, los deudores deberán cancelar los honorarios del abogado externo, gastos de perito, costas procesales y saldos no condonados para finalizar el proceso de cobro judicial antes de acogerse al beneficio.

@@ -1,0 +1,1 @@
+Artículo 3º-Beneficiarios. Serán beneficiarios de este reglamento las personas adultas mayores de 65 años, en condición de pobreza o pobreza extrema, que estén debidamente registradas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE) o certificadas por el Instituto Mixto de Ayuda Social (IMAS).

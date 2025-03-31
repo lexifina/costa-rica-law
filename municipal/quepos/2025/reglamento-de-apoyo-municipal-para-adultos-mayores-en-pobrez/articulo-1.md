@@ -1,0 +1,6 @@
+MUNICIPALIDAD DEL CANTÓN DE QUEPOS
+Artículo Quinto, Lectura de Correspondencia, Sesión Ordinaria N° 069-2025, celebrada el día martes 11 de marzo del 2025, Ratificado en la Sesión Ordinaria 071-2025, celebrada el martes 18 de marzo del 2025, acuerda lo siguiente:
+Acuerdo N° 14: EL CONCEJO ACUERDA: Autorizar la segunda publicación en el diario oficial La Gaceta para entrada en vigencia el texto completo sin cambios del Reglamento de Apoyo Municipal para Adultos Mayores en Pobreza Ley N° 10.359 de la Municipalidad de Quepos, así aprobado según acuerdo 07, artículo único", de la Sesión Extraordinaria N° 0502024, celebrada el 05 de diciembre 2024, que fue debidamente publicado por primera vez en el diario oficial La Gaceta 10 del 17 de enero de 2025. Se acuerda lo anterior por unanimidad (cinco votos). Moción de orden del Presidente Municipal, para que sea dispensado de trámite de comisión. Se aprueba (cinco votos). Acuerdo dispensado de trámite de comisión.
+REGLAMENTO DE APOYO MUNICIPAL PARA ADULTOS MAYORES EN POBREZA LEY N° 10.359
+MUNICIPALIDAD DE QUEPOS
+Artículo 1º-Objetivo. El presente reglamento tiene por objetivo establecer las directrices para la aplicación de la Ley N° 10.359, denominada "Apoyo Municipal para Adultos Mayores en Pobreza", en la jurisdicción de la Municipalidad de Quepos, según el marco normativo vigente de la República de Costa Rica.

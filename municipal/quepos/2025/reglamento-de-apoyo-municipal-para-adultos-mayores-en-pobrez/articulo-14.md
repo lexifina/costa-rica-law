@@ -1,0 +1,3 @@
+Artículo 14.-Publicidad. Para garantizar el conocimiento y la aplicación efectiva de este reglamento, se divulgará ampliamente a través de diversos medios como la página web de la municipalidad, redes sociales, banners, mensajes por WhatsApp, correos electrónicos, y perifoneo.
+[imagen]
+(Mediante Fe de Erratas y publicada en La Gaceta N° 232 del 10 de diciembre de 2025, página N° 2, se acordó sustituir el texto “Impuesto sobre Bienes Inmuebles” por el texto “condonación total del pago de recargos, intereses y multas que adeude la persona contribuyente adulta mayor por concepto del impuesto sobre bienes inmuebles (no incluye monto principal).

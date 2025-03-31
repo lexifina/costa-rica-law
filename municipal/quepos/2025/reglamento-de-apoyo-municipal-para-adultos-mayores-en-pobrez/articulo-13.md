@@ -1,0 +1,1 @@
+Artículo 13.-Pérdida del Beneficio. En caso de que la municipalidad verifique la falsedad de la información, se procederá con la pérdida del beneficio y se reiniciarán las acciones de cobranza de los adeudos tributarios correspondientes.

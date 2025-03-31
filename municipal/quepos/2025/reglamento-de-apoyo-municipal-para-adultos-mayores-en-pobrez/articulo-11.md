@@ -1,0 +1,1 @@
+Artículo 11.-Arreglos de Pago Vigente. Si la cuenta tiene un arreglo de pago vigente, el contribuyente puede solicitar la aplicación del beneficio sobre los saldos pendientes, pero no se permitirá la devolución de pagos ya realizados.
