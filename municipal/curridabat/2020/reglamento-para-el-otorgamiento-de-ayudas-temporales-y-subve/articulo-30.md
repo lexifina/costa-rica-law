@@ -1,2 +1,1 @@
-Artículo 30.- Sobre el giro de los recursos. Una vez que se reciba por parte de la Contraloría General de la República el comunicado de aprobación de los recursos, la Municipalidad podrá efectuar la transferencia al Sujeto privado.
-Esta aprobación por parte del Órgano Contralor del presupuesto del beneficio patrimonial, que autoriza la transferencia del beneficio al sujeto privado, no constituye una obligación de giro.
+Artículo 30.- Sobre el giro de los recursos. (Derogado por el artículo 33 del Reglamento para el Otorgamiento de Beneficios Patrimoniales y Subvenciones Otorgados mediante Transferencia a Centros Educativos Públicos y Sujetos Privados de la Municipalidad de Curridabat, aprobado mediante sesión ordinaria N.º 48-2025, celebrada el 1 de abril de 2025)

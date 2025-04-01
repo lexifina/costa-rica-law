@@ -1,2 +1,1 @@
-Artículo 35.- Sobre los intereses generados. Los eventuales “intereses generados” sobre los beneficios otorgados deben ser utilizados en la finalidad establecida por las partes, salvo disposición o acuerdo distinto que así se establezca en la autorización otorgada por el Concejo Municipal y así se plasme en el convenio.
-Dicho uso así deberá reflejarse en el respetivo informe de liquidación.
+Artículo 35.- Sobre los intereses generados. (Derogado por el artículo 33 del Reglamento para el Otorgamiento de Beneficios Patrimoniales y Subvenciones Otorgados mediante Transferencia a Centros Educativos Públicos y Sujetos Privados de la Municipalidad de Curridabat, aprobado mediante sesión ordinaria N.º 48-2025, celebrada el 1 de abril de 2025)

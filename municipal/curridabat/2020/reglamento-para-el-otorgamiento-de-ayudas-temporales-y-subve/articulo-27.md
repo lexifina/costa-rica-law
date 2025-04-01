@@ -1,3 +1,1 @@
-Artículo 27.- Aprobación de la subvención. La Alcaldía vía moción, trasladará el expediente junto con el proyecto de convenio para estudio y aprobación de la subvención al Concejo Municipal, para lo cual deberá emitirse el acuerdo respectivo por el que se autoriza la transferencia de fondos al
-solicitante.
-Una vez recibida la moción junto con el expediente, el mismo estará a cargo de la Secretaría del Concejo Municipal, la que, una vez sea aprobado la suscripción del convenio deberá devolver el expediente a la Asesoría Legal junto con la certificación del acuerdo de aprobación de la subvención.
+Artículo 27.- Aprobación de la subvención. (Derogado por el artículo 33 del Reglamento para el Otorgamiento de Beneficios Patrimoniales y Subvenciones Otorgados mediante Transferencia a Centros Educativos Públicos y Sujetos Privados de la Municipalidad de Curridabat, aprobado mediante sesión ordinaria N.º 48-2025, celebrada el 1 de abril de 2025)
