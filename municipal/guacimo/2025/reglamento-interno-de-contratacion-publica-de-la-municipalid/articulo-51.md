@@ -1,0 +1,1 @@
+Artículo 51.-Caja chica. El proceso de fondos de caja chica se regulará mediante reglamento interno específico, así mismo de conformidad con lo establecido en el artículo 12 del Reglamento a la Ley General de Contratación Pública las misma se registrarán en el Sistema Integrado de Compras Públicas.

@@ -1,0 +1,17 @@
+Artículo 11.-Obligaciones del Encargado General del Contrato.
+a) Emitir la orden de inicio del proyecto en el plazo establecido en el pliego de condiciones, o en su defecto dentro del mes siguiente a la firma del contrato u orden de compra.
+b) Aprobar el pliego de condiciones, en lo que respecta a especificaciones técnicas del bien, servicio u obra, cuando este sea sometido a su consideración.
+c) Atender oportunamente las consultas que presenten los proveedores, oferentes, adjudicatarios y contratistas.
+d) Atender las solicitudes de criterio técnico que le realice la Proveeduría Institucional para resolver las aclaraciones y/o modificaciones al pliego de condiciones que se presenten en el proceso, en relación con los aspectos técnicos y generales del objeto a contratar.
+e) Atender las solicitudes de criterio técnico que le realice la Proveeduría Institucional para resolver los recursos de objeción, revocatoria y apelación que se presenten en el proceso.
+f) Deberá informar a la Proveeduría Institucional acerca del incumplimiento de las obligaciones contractuales que se presenten y solicitar la aplicación de la garantía de cumplimiento, cláusulas penales, multas y sanciones, siempre y cuando se hayan dispuesto en el pliego de condiciones, así como las solicitudes de prórroga de entrega de bienes y servicios.
+g) Elaborar un informe técnico que incluya el análisis de la(s) oferta(s), la justificación amplia y detallada de la razonabilidad de precio con indicación expresa según los dispuesto en este reglamento en el artículo de razonabilidad de precios y la recomendación de la(s) oferta(s) a adjudicar. En aquellos casos que exista una metodología de evaluación por factores, se deben visualizar los cálculos de cada factor.
+h) Llevar un control de los contratos que tenga a su cargo, para velar que los mismos se ejecuten dentro de la vigencia contractual, y condiciones originalmente pactadas.
+i) Valorar, de acuerdo con la necesidad institucional, la prórroga de los contratos y comunicar la decisión a la Proveeduría Institucional con una antelación de al menos dos meses previos a la fecha de vencimiento del contrato.
+j) Realizar el cálculo de las multas y cláusulas penales de los contratos que se encuentran bajo su fiscalización.
+k) Controlar que la contratación con sus respectivas prórrogas no supere el umbral máximo presupuestario del tipo de procedimiento del concurso que dio origen al bien, servicio u obra a contratar, y según la modalidad del contrato.
+l) Atender las gestiones de prórroga en la entrega de bienes, servicios u obras que realicen los contratistas, así como otorgarlas o denegarlas por los medios que indique la Ley General de Contratación Pública y su respectivo reglamento.
+m) Gestionar ante la Proveeduría los trámites de modificación unilateral del contrato, suspensión de contratos, resolución de contratos y rescisión de contratos, mediante la emisión de informes y actos motivados.
+n) Suscribir el acta de recepción provisional y definitiva del objeto contractual para que la Proveeduría Institucional pueda realizar el trámite de pago de la obligación.
+o) Gestionar ante la Proveeduría el finiquito de los contratos de obra en los cuales funja como contraparte técnica.
+p) Corresponderá igualmente a esta unidad llevar a cabo el cobro de multas o sanciones a los contratistas que se deriven de los procedimientos de contratación, previa resolución fundada emitida por el Jerarca.

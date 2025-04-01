@@ -1,0 +1,1 @@
+Artículo 8º-Del Departamento de Gestión Jurídica. Corresponde a la Unidad Jurídica Interna de la Municipalidad otorgar la aprobación interna de aquellos contratos que así lo requieran, además emitir criterios y brindar asesoría en materia de contratación pública.

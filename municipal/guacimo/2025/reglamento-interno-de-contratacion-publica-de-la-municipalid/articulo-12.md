@@ -1,0 +1,1 @@
+Artículo 12.-De la Unidad de Tesorería. Corresponde a la Unidad de Tesorería realizar los pagos respectivos a los proveedores de bienes y servicios no personales una vez que la Unidad técnica o solicitante haya informado sobre el recibido a satisfacción de estos; además deberá registrar el pago en el SDU.
