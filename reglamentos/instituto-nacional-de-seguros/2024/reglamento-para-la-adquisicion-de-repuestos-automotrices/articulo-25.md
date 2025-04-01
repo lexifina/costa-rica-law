@@ -1,1 +1,0 @@
-Artículo 25.-Confidencialidad. Las empresas contratadas deben guardar absoluta confidencialidad sobre los datos a que tenga acceso como parte de los servicios que ofrece a la Institución. En caso de que se logre comprobar incumplimiento de esta cláusula, será suficiente motivo para suspender la contratación e iniciar el proceso de resolución.
