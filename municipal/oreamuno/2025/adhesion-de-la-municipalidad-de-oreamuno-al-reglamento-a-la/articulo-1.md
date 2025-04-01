@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE OREAMUNO
+La Municipalidad de Oreamuno, informa que según el inciso 1° del artículo VIII°, acuerdo N° 444-2025, estipulado en la sesión ordinaria N° 065-2025, celebrada por el Concejo Municipal, el 18 de febrero del 2025, aprueba que la Municipalidad de Oreamuno declara su adherencia en todos los extremos al Decreto 44335-MICITT, basados en el Informe Técnico realizado por la Comisión Técnica Municipal de Análisis.
