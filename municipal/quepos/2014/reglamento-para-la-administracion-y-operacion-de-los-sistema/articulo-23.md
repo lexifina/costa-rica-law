@@ -1,2 +1,0 @@
-Artículo 23.—Recargo. La falta de pago en el plazo señalado, ocasionará un recargo mensual equivalente al 2% hasta un máximo del 24% del monto adeudado.
-Las multas o acumulación de multas no canceladas por un período de un año, constituirán gravamen sobre el vehículo con el cual se cometió la infracción, el que responderá además por los gastos que demande la eventual acción judicial. Dicho gravamen se anotará mediante oficio que enviará la Municipalidad al Registro de la Propiedad de Vehículos.

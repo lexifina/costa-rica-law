@@ -1,1 +1,0 @@
-Artículo 34.—Anulación de boletas de infracción. La competencia para la anulación de boletas de parte será, respectivamente, de la Unidad Técnica y Gestión Vial al resolver los recursos de revocatoria y del alcalde al resolver los recursos de apelación presentados en el respectivo plazo señalado por ley.

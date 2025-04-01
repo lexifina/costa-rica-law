@@ -1,1 +1,0 @@
-Artículo 13.—Destino del impuesto. Lo que se recaude por concepto de los impuestos autorizados por la Ley de Instalación de Estacionómetros (Parquímetros) y de este Reglamento, será invertido preferentemente en el mantenimiento y administración de los sistemas de estacionamiento, en la construcción y mantenimiento de vías públicas y en obras de sanidad municipal.

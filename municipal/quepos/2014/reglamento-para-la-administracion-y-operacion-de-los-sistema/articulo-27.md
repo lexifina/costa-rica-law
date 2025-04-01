@@ -1,1 +1,0 @@
-Artículo 27.—De los inspectores. Corresponderá a los inspectores de estacionamiento, vigilar en funciones propias de sus puestos, el adecuado cumplimiento de las disposiciones de este Reglamento. Será competencia de estos funcionarios confirmar las infracciones a este Reglamento y aplicar las sanciones correspondientes, en el cual estarán investidos como autoridad competente.

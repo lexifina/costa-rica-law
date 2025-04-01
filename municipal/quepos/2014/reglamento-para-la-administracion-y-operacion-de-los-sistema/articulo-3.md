@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. Las disposiciones del presente Reglamento serán aplicadas a todos los vehículos automotores que sean estacionados en las vías públicas donde exista demarcación para el estacionamiento y no estacionamiento.

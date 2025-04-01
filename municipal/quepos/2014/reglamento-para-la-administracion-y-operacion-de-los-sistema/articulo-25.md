@@ -1,1 +1,0 @@
-Artículo 25.—Recursos. Contra las boletas de infracción, cabrán los recursos de revocatoria ante la Unidad Técnica y Gestión Vial y la apelación para ante el Alcalde, fundados en motivos de legalidad y oportunidad. La interposición deberá producirse dentro de los cinco días hábiles, siguientes a la imposición de la sanción que se recurre y suspenderá la ejecución del acto.

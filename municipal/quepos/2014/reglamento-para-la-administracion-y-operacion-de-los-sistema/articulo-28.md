@@ -1,1 +1,0 @@
-Artículo 28.—Vigilancia limitada. La Municipalidad no será responsable por el valor de los vehículos que sean sustraídos o por los daños, deterioros, destrucciones, hurtos o robos que realicen a los vehículos, ni por el costo de reparaciones en razón de accidentes de tránsito.

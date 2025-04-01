@@ -1,1 +1,0 @@
-Artículo 7º—Áreas de no estacionamiento. Tanto en la zona céntrica como en la no céntrica, se podrán demarcar áreas de no estacionamiento de vehículos en todas aquellas vías que por sus medidas y condiciones de tránsito, sean aptas para ese fin. Cada área se le demarcará claramente con la señalización horizontal y vertical la prohibición para el estacionamiento de los vehículos.

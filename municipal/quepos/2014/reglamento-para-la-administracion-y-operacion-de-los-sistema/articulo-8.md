@@ -1,1 +1,0 @@
-Artículo 8º—Áreas destinadas al estacionamiento especial. Las paradas de autobuses, taxis y taxi carga serán por competencia demarcadas bajo el criterio técnico de la Dirección de Transporte Público y de la Dirección General de Ingeniería de Tránsito del MOPT.

@@ -1,1 +1,0 @@
-Artículo 31.—Vehículos sin matrícula. Será absolutamente prohibido estacionar vehículos en las áreas de estacionamiento, cuando no posean sus concernientes placas de circulación. En tales casos, la Municipalidad, por medio de la Unidad Técnica y Gestión Vial, podrá coordinar con las autoridades de tránsito, el retiro del vehículo que no porte placas de identificación.

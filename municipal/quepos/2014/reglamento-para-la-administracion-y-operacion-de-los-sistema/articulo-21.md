@@ -1,1 +1,0 @@
-Artículo 21.—Sanciones. En caso de incurrirse en las infracciones tipificadas en la Ley Nº 3580 del 13 de noviembre de 1965, Ley de Instalación de Estacionómetros, se aplicarán las sanciones contempladas en esa misma ley, mediante la respectiva boleta de infracción que será confeccionada por los inspectores autorizados.
