@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 44835-H del 06 de diciembre de 2024, publicado en el Alcance 204 a La Gaceta número 23 7 del 17 de diciembre de 2024 mediante el cual se actualizó el impuesto a partir del 1 º de enero de 2025, a partir de la vigencia del presente decreto.
