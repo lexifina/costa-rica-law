@@ -1,0 +1,1 @@
+Artículo 6°.- Se ratifica la derogatoria de las Directrices 027-MIDEPLAN-MTSS-MOPT, 042-MP-MIDEPLAN-MTSS-MOPT, 034-MIDEPLAN-MTSS-MOPT, 035-MIDEPLANMTSS- MOPT, conforme lo señalado en el artículo 5 de la Directriz 046-MIDEPLAN-MTSSMOPT.
