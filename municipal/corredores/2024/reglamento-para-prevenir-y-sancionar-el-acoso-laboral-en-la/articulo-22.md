@@ -1,0 +1,7 @@
+Artículo 22.-Medidas preventivas y cautelares. Se considerarán medidas preventivas y cautelares, aquellas acciones que tienen como objetivo facilitar la investigación y la paralización inmediata de la situación de conflicto. Podrán ser solicitadas en cualquier etapa del proceso, de oficio o a instancia de parte y se ejecutarán previa recomendación de la Comisión Instructora a la Alcaldía o Concejo Municipal. La medida podrá acordarse sin previa audiencia y su duración no podrá superar el plazo dispuesto para la instrucción del procedimiento. Se tomarán como medidas preventivas y cautelares las siguientes:
+a. Abstenerse de amenazar, perturbar, intimidar a la persona denunciante y testigos.
+b. Suspensión con goce de salario del funcionario o la funcionaria denunciados en caso de ser personal remunerado.
+c. Reubicación temporal de la persona denunciada o de la persona denunciante, siempre y cuando no resulte en revictimización.
+d. Cambio en la supervisión de las labores de la persona denunciante, cuando la persona denunciada sea su superior inmediato.
+e. Otras medidas que recomiende la Comisión Instructora, siempre que garanticen los derechos de las partes, guarden proporcionalidad y legalidad, y siempre que no afecte el servicio público que se brinda.
+La interposición de las medidas se realizará mediante resolución motivada que demuestre la existencia de motivos suficientes y contra ella cabrán los recursos ordinarios establecidos en la Ley General de la Administración Pública.

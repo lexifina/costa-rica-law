@@ -1,0 +1,1 @@
+Artículo 13.-De la abstención y recusación. Cuando de conformidad con lo dispuesto en la Ley General de la Administración Pública, un integrante de la Comisión Instructora se inhiba o sea recusado en un caso determinado, se sustituirá por otro que tenga la especialidad profesional requerida.

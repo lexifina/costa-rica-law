@@ -1,0 +1,1 @@
+Artículo 16.-Cuando de la lectura de la denuncia no se infieran con claridad los hechos denunciados o estos resultaren confusos, se prevendrá a la persona denunciante aclarar la denuncia en un plazo de tres días hábiles, a partir de la notificación.

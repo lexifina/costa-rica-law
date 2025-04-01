@@ -1,0 +1,1 @@
+Artículo 30.-Sanciones disciplinarias. Las sanciones disciplinarias por acoso laboral comprobado se aplicarán según la gravedad del hecho y la condición jerárquica de la persona denunciada, en concordancia con lo dispuesto en el Código Municipal y Reglamento Autónomo de Organización y Servicios de la Municipalidad de Corredores.

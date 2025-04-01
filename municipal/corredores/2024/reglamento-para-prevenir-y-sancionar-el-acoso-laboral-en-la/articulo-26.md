@@ -1,0 +1,1 @@
+Artículo 26.-Rechazo de la recomendación. Si la Alcaldía o Concejo Municipal según corresponda, rechaza la recomendación, deberá expresar por escrito y dejar constancia en el expediente dentro del plazo establecido en la Ley General de la Administración Pública, los motivos por los cuales se opone a aplicar la sanción.
