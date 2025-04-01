@@ -1,1 +1,0 @@
-Artículo 102. Disposición Final de Residuos Peligrosos o de Manejo Especial. Los residuos peligrosos o de manejo especial, los residuos infecto-contagiosos y otros residuos generados en el Cantón podrán ser depositados solamente si se cumple lo establecido en el Artículo 7 del Reglamento sobre Rellenos Sanitarios Nº 38928-S u otra regulación pertinente que se encuentre vigente.
