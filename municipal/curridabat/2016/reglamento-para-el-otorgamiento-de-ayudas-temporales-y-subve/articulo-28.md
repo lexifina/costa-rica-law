@@ -1,5 +1,0 @@
-Artículo 28.—Sobre la condición jurídica de los subsidiados para con la Municipalidad de Curridabat y la empresa participante. Los beneficiarios del subsidio deberán firmar un acuerdo con la Municipalidad de Curridabat, en el que, además de las calidades de las partes, se deberá estipular el puesto, plazo, la empresa donde se desempeñará el beneficiario, monto del subsidio, así como sobre la inexistencia de una relación laboral, pues al tratarse de un subsidio no representará trabajo remunerado.
-El municipio, y la empresa participante, no asumen ni asumirán responsabilidad alguna en el orden laboral. La persona joven beneficiaria deberá pagar, la respectiva póliza de riesgos de conformidad con el puesto que éste ocupe. El beneficiado deberá respetar las normas, reglamentos, lineamientos y/o directrices de la empresa.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
-(Así adicionado mediante sesión ordinaria N° 53-2017 del 2 de mayo del 2017)
-(Así reformado mediante sesión ordinaria N° 082-2017 del 21 de noviembre del 2017)

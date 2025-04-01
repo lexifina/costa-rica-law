@@ -1,1 +1,0 @@
-Artículo 8º—Alquiler de vivienda. Como una excepción calificada, podrá autorizarse una ayuda para el pago de alquiler de vivienda por un máximo de tres meses. Previo a esta instancia, se deberán agotar todas y cada una de las opciones que pueda ofrecer la sociedad en general.

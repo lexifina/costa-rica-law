@@ -1,2 +1,0 @@
-Donaciones y ayudas en especie
-Artículo 13.—Sobre los beneficiarios de las donaciones o ayudas en especie. Podrán ser beneficiadas con una donación o ayuda en especie, aquellos Centros Educativos Públicos del Cantón, organizaciones de emprendedores debidamente registradas con domicilio legal en el Cantón de Curridabat, y las organizaciones de beneficencia o servicio social que se ajusten a lo establecido en el Artículo 4º de este reglamento y que realicen la solicitud según se establece en el Artículo 5º del mismo.

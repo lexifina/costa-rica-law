@@ -1,2 +1,0 @@
-Artículo 36.—Sobre la documentación de las personas no admitidas al programa. La documentación presentada por las personas jóvenes que no sean admitidas, será devuelta a la persona postulante. Se le notificará por medio del correo electrónico suministrado para atender notificaciones, para que dentro del plazo de 10 días hábiles la retire. Una vez transcurrido dicho plazo, y no habiendo retirado el interesado la documentación, se procederá a su destrucción.
-(Así adicionado mediante sesión ordinaria N° 001-2020 del 5 de mayo del 2020)
