@@ -1,1 +1,1 @@
-ARTÍCULO 69.- Forma de pago. Excepto si se decreta especial condenatoria en costas, los honorarios de los árbitros serán pagados, en montos iguales, por las partes del proceso. Se pagarán una vez dictado el laudo arbitral.
+ARTÍCULO 69.- Forma de pago. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

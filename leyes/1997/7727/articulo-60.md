@@ -1,2 +1,1 @@
-ARTÍCULO 60.- Laudo público. Una vez firme, el laudo será público excepto si las partes han convenido lo contrario.
-El tribunal arbitral notificará el laudo a las partes.
+ARTÍCULO 60.- Laudo público. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

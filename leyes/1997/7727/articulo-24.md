@@ -1,3 +1,3 @@
 SECCIÓN II
 COMPOSICIÓN DEL TRIBUNAL ARBITRAL
-ARTÍCULO 24.- Número de árbitros del tribunal. Los tribunales arbitrales podrán ser unipersonales o colegiados; en este último caso, deberán estar integrados por tres o más miembros, siempre que sea un número impar. Si las partes no han convenido en el número de árbitros el tribunal se integrará con tres.
+ARTÍCULO 24.- Número de árbitros del tribunal. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

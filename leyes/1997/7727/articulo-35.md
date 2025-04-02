@@ -1,1 +1,1 @@
-ARTÍCULO 35.- Sustitución de árbitro por otras causas. En caso de muerte, incapacidad o renuncia de un árbitro o impedimento sobreviniente durante el proceso arbitral, se nombrará o elegirá a un árbitro sustituto de conformidad con el procedimiento aplicable al nombramiento o la elección del árbitro sustituido.
+ARTÍCULO 35.- Sustitución de árbitro por otras causas. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

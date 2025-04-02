@@ -1,1 +1,1 @@
-ARTÍCULO 41.- Idioma. El idioma del arbitraje será el español. Cualquier escrito o prueba documental que se presente en otro idioma durante las actuaciones, irá acompañado de la traducción.
+ARTÍCULO 41.- Idioma. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

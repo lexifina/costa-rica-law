@@ -1,1 +1,1 @@
-ARTÍCULO 70.- Aceptación de nombramiento. Los árbitros designados podrán condicionar la aceptación de su nombramiento al otorgamiento de garantías de pago de los honorarios.
+ARTÍCULO 70.- Aceptación de nombramiento. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

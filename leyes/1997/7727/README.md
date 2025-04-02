@@ -1,6 +1,6 @@
 # Resolución Alterna de Conflictos y Promoción de la Paz Social RAC
 
-Ley N° 7727 del 1997-12-09. SINALEVI, ficha 26393: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26393&param2=130570&param3=1>.
+Ley N° 7727 del 1997-12-09. SINALEVI, ficha 26393: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26393&param2=145436&param3=1>.
 
 Publicada en La Gaceta N° 9 del 1998-01-14.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1998-01-14 | Ley 7727 | 1997-12-09 |
 | 2 de 4 | 2001-06-30 | Ley 7 | 1997-12-09 |
 | 3 de 4 | 2022-05-31 | Ley 10257 | 2022-05-06 |
+| 4 de 4 | 2025-04-02 | Ley 10535 | 2024-09-18 |
