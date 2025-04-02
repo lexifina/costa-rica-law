@@ -1,5 +1,5 @@
-ARTÍCULO 112.- Para ser Director de Sede Regional se requiere ser ciudadano costarricense, tener al menos treinta años de edad y el rango de catedrático o profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer a Régimen Académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes en la Asamblea de Sede.51
-51 Modificación aprobada en Asamblea Colegiada Representativa 115, del 18 de marzo y 12 de abril de 2004. Publicada en Gaceta Oficial 111, del 08-06-04.
+Artículo 112.- Para ser directora o director de sede regional se requiere tener al menos 30 años de edad y el rango de catedrático o profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer al régimen académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes de la Asamblea de Sede.
+(Así reformado el párrafo anterior en sesión N° 154 del 2 de abril de 2025)
 Podrá ser candidato a la reelección inmediata una sola vez consecutiva, según las normas que determinan este Estatuto y el Reglamento de Elecciones Universitarias.
 En ausencias temporales del Director y mientras duren estas, el cargo será ejercido por el Subdirector de la Sede.
 (Así reformado el párrafo anterior mediante sesión N° 147 del 27 de abril del 2022)
@@ -9,7 +9,7 @@ Corresponde al Director de Sede:
 a) Ejecutar los acuerdos y las políticas emanadas de la Asamblea de Sede y de los órganos superiores de la Universidad.
 b) Servir de medio obligatorio de comunicación entre la Sede y las autoridades de la Universidad.
 c) Representar a la Sede en todas las actividades que favorezcan el desarrollo de la Universidad.
-ch) Ejercer en la Sede las potestades de superior jerárquico inmediato de los funcionarios y su autoridad sobre los estudiantes.
+ch) ch)Ejercer en la Sede las potestades de superior jerárquico inmediato de los funcionarios y su autoridad sobre los estudiantes.
 d) Proponer al Rector las medidas que estime necesarias para el mejor desarrollo de las actividades de la Sede.
 e) Convocar a la Asamblea de Sede y presidirla, en su ausencia presidirá el Subdirector y en ausencia de ambos, el miembro que en el acto se designe.
 f) Convocar y presidir las reuniones de Departamento de la Sede, cuando se trate de la elección del Director de Departamento y del nombramiento de personal en Régimen Académico.

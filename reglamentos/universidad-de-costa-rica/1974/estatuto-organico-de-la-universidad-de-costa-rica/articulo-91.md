@@ -1,2 +1,2 @@
-ARTÍCULO 91.- Para ser Decano se requerirá ser ciudadano costarricense, tener al menos treinta años y el rango de catedrático o de profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer a Régimen Académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes.40
-40Modificación aprobada en Asamblea Colegiada Representativa 115, del 18 de marzo y 12 de abril de 2004. Publicada en Gaceta Oficial 111, del 08-06-04.
+Artículo 91.- Para ser decana o decano se requerirá tener al menos 30 años de edad y el rango de catedrático o de profesor asociado. Se podrán levantar los requisitos, con excepción de pertenecer al régimen académico, mediante votación secreta, si así lo acuerdan no menos del 75% de los miembros presentes.
+(Así reformado en sesión N° 154 del 2 de abril de 2025)

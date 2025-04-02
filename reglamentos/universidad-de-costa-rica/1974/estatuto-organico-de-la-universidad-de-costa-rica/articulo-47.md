@@ -1,1 +1,2 @@
-ARTÍCULO 47.- Para ser nombrado Vicerrector se requiere ser ciudadano costarricense, haber cumplido treinta años de edad y tener al menos el rango de Profesor Asociado en Régimen Académico18. 18Modificación aprobada en la Asamblea Colegida Representativa No. 49 del 25 de marzo de 1988 y publicada en la Gaceta Oficial No. 62 del 29 de marzo de 1990.
+Artículo 47.- Para ser nombrado vicerrector se requiere haber cumplido 30 años de edad y tener al menos el rango de profesor asociado en régimen académico.
+(Así reformado en sesión 154 del 2 de abril de 2025)

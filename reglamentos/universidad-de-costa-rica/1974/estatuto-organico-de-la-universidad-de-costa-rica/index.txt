@@ -121,7 +121,7 @@ articulo-111.md
 articulo-111-bis.md
 articulo-111-ter.md
 articulo-111-quater.md
-articulo-111-quinquies.md
+articulo-111-2.md
 articulo-112.md
 articulo-113.md
 articulo-113-bis.md
@@ -138,9 +138,9 @@ articulo-122.md
 articulo-122-bis.md
 articulo-122-ter.md
 articulo-122-quater.md
-articulo-122-quinquies.md
-articulo-122-sexies.md
-articulo-122-septies.md
+articulo-122-2.md
+articulo-122-3.md
+articulo-122-4.md
 articulo-123.md
 articulo-124.md
 articulo-125.md
