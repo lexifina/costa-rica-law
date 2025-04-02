@@ -1,2 +1,1 @@
-ARTÍCULO 34.- Sustitución de árbitro por recusación. Si la otra parte no aceptare la recusación y el árbitro recusado no renunciare, la decisión será tomada por el tribunal arbitral.
-Si se acogiere la recusación, se designará a un árbitro sustituto, de conformidad con el procedimiento aplicable al nombramiento o la elección del árbitro recusado.
+ARTÍCULO 34.- Sustitución de árbitro por recusación. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

@@ -1,1 +1,1 @@
-ARTÍCULO 45.- Representación o asesoramiento a las partes. Las partes deberán estar representadas o asesoradas por abogados, a quienes podrá otorgárseles un poder especial, en los mismos términos y condiciones que rigen para un poder especial judicial.
+ARTÍCULO 45.- Representación o asesoramiento a las partes. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

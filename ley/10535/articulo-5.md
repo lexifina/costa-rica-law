@@ -1,0 +1,7 @@
+ARTÍCULO 5- Adiciónense los artículos 7A y 35 a la Ley 8937, Ley sobre Arbitraje Comercial Internacional basada en la Ley Modelo de la Comisión de las Naciones Unidas para el Derecho Mercantil Internacional (CNUDMI), de 27 de abril de 2011. Los textos son los siguientes:
+Artículo 7 A.- Extensión del convenio arbitral
+Los efectos del convenio arbitral se extienden a aquellos cuyo consentimiento de someterse a arbitraje, según la buena fe, se determina por su participación y de manera determinante en la negociación, celebración, ejecución o terminación del contrato que comprende el convenio arbitral o al que el convenio arbitral está relacionado. Se extiende también a quienes pretendan derivar derechos o beneficios del contrato, según sus términos.
+Artículo 35.- Ejecución judicial
+1) La parte interesada podrá solicitar la ejecución del laudo, ante la autoridad judicial competente, acompañando copia de este y de sus rectificaciones, Interpretaciones, integraciones y exclusiones y, en su caso, de las actuaciones de ejecución efectuadas por el tribunal arbitral.
+2) Para la ejecución judicial del laudo arbitral se tramitará conforme a las disposiciones de ejecución de las sentencias judiciales, conforme a la normativa procesal aplicable a la materia objeto del laudo arbitral.
+3) La interposición de la petición de anulación contemplada en el artículo 34 no suspenderá el cumplimiento del laudo.

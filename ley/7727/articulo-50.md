@@ -1,2 +1,1 @@
-ARTÍCULO 50.- Pruebas. Corresponde a cada parte la carga de la prueba de los hechos en que fundamente sus pretensiones o defensas.
-En cualquier momento, el tribunal podrá exigir, dentro del plazo que determine, que las partes presenten documentos u otras pruebas.
+ARTÍCULO 50.- Pruebas. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

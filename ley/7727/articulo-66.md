@@ -1,2 +1,1 @@
-ARTÍCULO 66.- Requisición del expediente. Interpuesto el recurso, la Sala requerirá el expediente al Presidente del tribunal arbitral si fuere colegiado, o al árbitro que dictó el laudo en caso de que sea unipersonal. Una vez recibido el expediente, la Sala procederá a resolverlo en cuanto a su admisibilidad y al fondo, sin dilación ni trámite alguno.
-La interposición del recurso no suspenderá el cumplimiento del laudo.
+ARTÍCULO 66.- Requisición del expediente. (Derogado por el artículo 7° de la Ley para armonizar la normativa del Arbitraje Costarricense, N° 10535 del 18 de setiembre de 2024)

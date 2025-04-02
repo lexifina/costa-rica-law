@@ -1,0 +1,1 @@
+ARTÍCULO 6- Adiciónese un capítulo IX, Disposiciones Finales, a la Ley 8937, Ley sobre Arbitraje Comercial Internacional basada en la Ley Modelo de la Comisión de las Naciones Unidas para el Derecho Mercantil Internacional (CNUDMI), de 27 de abril de 2011. Este capítulo contendrá los artículos 37 y 38 de dicha ley.

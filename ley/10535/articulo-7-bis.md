@@ -1,0 +1,6 @@
+ARTÍCULO 7 bis.- Adiciónese el artículo 71 bis a la Ley 7727, Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, de 9 de diciembre de 1997. El texto es el siguiente:
+71 bis.- Requisitos de las personas árbitras
+Pueden ser árbitros o árbitras todas las personas físicas que se encuentren en pleno ejercicio de sus derechos civiles y no tengan nexo alguno con las partes o sus apoderados y abogados.
+Tratándose de arbitrajes de derecho, las personas árbitras deberán ser siempre profesionales del derecho y tener como mínimo cinco años de incorporados al Colegio de Abogados y Abogadas. Asimismo, deberán acreditar su formación y experiencia en arbitraje. Para tal efecto, deberán contar con la autorización correspondiente por parte del Ministerio de Justicia y Paz.
+Las personas jurídicas que administren institucionalmente procesos de arbitraje podrán designar su propia lista de personas árbitras de consciencia y personas árbitras de derecho, los cuales deberán cumplir con los requisitos establecidos en la presente ley.
+El presente artículo aplicará para arbitrajes domésticos, siendo que los arbitrajes Internacionales y las personas árbitras internacionales se sujetan a la normativa, tratados y estándares internacionales en la materia.
