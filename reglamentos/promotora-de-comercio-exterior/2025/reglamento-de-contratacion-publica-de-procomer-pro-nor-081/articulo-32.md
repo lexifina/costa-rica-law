@@ -1,0 +1,2 @@
+Artículo 32.- Prevalencia de la economía de escala
+Todos los departamentos de PROCOMER deberán consolidar sus requerimientos de consumo con el Departamento de Contratación Pública, a fin de que se promuevan procedimientos de compra que aseguren los mejores precios y las mejores condiciones de eficiencia, eficacia y economía. Se exceptúan de lo anterior los convenios marco regionalizados y las compras que propicien la promoción económica o social de una región.

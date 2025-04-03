@@ -1,0 +1,4 @@
+Artículo 56.- Presentación
+La oferta deberá presentarse en el sistema digital, firmada digitalmente por quien tenga poder suficiente para ello, dentro del plazo previsto para tal efecto en el pliego de condiciones. La oferta será confidencial hasta la hora y la fecha señaladas en el pliego de condiciones para la apertura de ofertas, garantizándose en el sistema digital.
+Con el solo sometimiento de la oferta en tiempo, se entiende aceptado el plazo de vigencia de la oferta establecido en el pliego de condiciones y durante las diferentes etapas del procedimiento. Si hubiera alguna inconsistencia, la Administración hará la prevención durante la fase de subsanación de las ofertas.
+La oferta participará únicamente en el concurso para el que fue presentada, asumiendo el oferente las consecuencias que se puedan generar por su falta de cuidado o cualquier error imputable a él en el momento de ingresar su oferta y la documentación complementaria, en el sistema digital.

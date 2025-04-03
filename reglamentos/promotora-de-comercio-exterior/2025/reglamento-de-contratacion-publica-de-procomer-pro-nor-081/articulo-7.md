@@ -1,0 +1,6 @@
+Artículo 7.- Pago
+Una vez recibida a satisfacción la obra, el bien o el servicio y presentada la factura conforme a derecho, la Administración procederá con el pago.
+La Administración, indicará en su pliego de condiciones el plazo máximo para pagar, el cual en ningún caso podrá ser superior a treinta días naturales. El plazo indicado en el párrafo anterior correrá a partir de la presentación de la factura, previa verificación del cumplimiento a satisfacción, de lo indicado en el contrato por parte del contratista.
+El pago podrá realizarse en la moneda fijada en la contratación, o bien, en colones costarricenses, salvo lo dispuesto en el artículo 49 de la Ley N°7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995.
+Para efectos del pago en colones, en contrataciones pactadas parcial o totalmente en moneda extranjera, la Administración deberá utilizar el tipo de cambio de referencia para la venta emitido por el Banco Central de Costa Rica, vigente al día en que se efectuará el pago, de conformidad con el artículo 48 de la citada Ley N°7558.
+En el caso de una devolución de un pago realizado en moneda extranjera, para su reintegro se deberá utilizar el tipo de cambio de referencia para la venta del Banco Central de Costa Rica del día en que se realizó la transacción de pago.

@@ -1,0 +1,6 @@
+Artículo 46.- Precio
+El precio deberá ser cierto y definitivo, sin perjuicio de eventuales reajustes o revisiones. Si el oferente no señala los tributos que afectan su propuesta, se presume que el monto total cotizado los contiene, incluyendo tasas, sobretasas, aranceles de importación y demás impuestos del mercado local.
+Los oferentes podrán cotizar en cualquier moneda. En caso de recibir propuestas en distintas monedas, se deberán convertir a una misma para efectos de comparación, aplicando las reglas previstas en el pliego de condiciones o, en su defecto, al tipo de cambio de referencia para la venta calculado por el Banco Central de Costa Rica, vigente al momento de la apertura de las ofertas.
+En todos los casos, la Administración debe realizar un estudio de razonabilidad del precio, según lo dispuesto por los instructivos internos.
+El oferente podrá ofrecer descuentos y mejoras en su precio. Bajo ningún supuesto la mejora implicará disminución de cantidades, desmejora de la calidad y condiciones de lo originalmente ofrecido o el otorgamiento de una ventaja indebida para el proponente, ni podrá ser mayor a la utilidad establecida en el precio original.
+El pliego de condiciones podrá establecer un porcentaje de utilidad mínimo o máximo, previo acto motivado.

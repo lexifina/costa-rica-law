@@ -1,0 +1,3 @@
+Artículo 57.- Apertura de ofertas
+La apertura de las ofertas se realizará en la hora y fecha señalada al efecto. Una vez que se realice la apertura estarán disponibles para todos los interesados y el sistema digital registrará y generará un acta electrónica de apertura de las ofertas recibidas, la cual se podrá visualizar en la sección correspondiente del respectivo expediente electrónico.
+Los oferentes podrán efectuar observaciones únicamente a través del sistema digital dentro del plazo establecido en el pliego de condiciones y a falta de indicación, en el día hábil siguiente al día de apertura de las ofertas. En caso de que se presenten observaciones éstas se consignarán en el expediente electrónico y serán valoradas por la Administración.

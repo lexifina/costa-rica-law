@@ -1,0 +1,4 @@
+Artículo 53.- Multas y cláusulas penales
+PROCOMER podrá establecer en el pliego de condiciones multas por defectos en la ejecución del bien o servicio contratado, o cláusulas penales por la entrega tardía del o servicio contratado. Todo lo anterior, con arreglo a criterios de proporcionalidad y razonabilidad.
+Para el cobro de las multas o la cláusula penal, no será necesario demostrar la existencia del daño o perjuicio, pero sí debe acreditarse fehacientemente el cumplimiento defectuoso o tardío de la prestación, según corresponda. El cobro de estos rubros se realizará sobre las sumas pendientes de pago. De igual forma, si no hubiera pagos pendientes, el monto correspondiente a la multa o la cláusula penal podrá ser rebajado de la garantía de cumplimiento.
+El cobro por concepto de multas o cláusulas penales no podrá superar el veinticinco por ciento del precio total.

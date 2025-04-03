@@ -1,0 +1,14 @@
+Artículo 12.- Obligaciones del oferente y del contratista
+Serán obligaciones de los oferentes y de los contratistas las siguientes:
+a) Someterse plenamente al ordenamiento jurídico costarricense.
+b) Presentar una oferta completa a partir de las reglas del pliego de condiciones.
+c) Ser diligente en la atención de cualquier requerimiento y ser proactivo y dirigir todas sus actuaciones a la ejecución del contrato.
+d) Cumplir con lo ofrecido en su propuesta y en cualquier manifestación formal documentada que hayan aportado adicionalmente en el curso del procedimiento o en la formalización del contrato.
+e) Aportar a la Administración, si resultara adjudicatario, los contratos que acuerde con los subcontratistas, así como cualquier otra información que requiera la Administración para la toma de decisiones, según la etapa del procedimiento de contratación en la que se encuentre. El tratamiento de la información suministrada se regirá por el principio de transparencia.
+f) Cumplir con las obligaciones de la seguridad social, tanto de la Caja Costarricense de Seguro Social (CCSS) y el Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf), así como con los impuestos nacionales;
+g) Verificar que los subcontratistas se encuentren al día con las obligaciones de la seguridad social, tanto de la Caja Costarricense de Seguro Social y el Fondo de Desarrollo Social y Asignaciones Familiares.
+h) Abstenerse de realizar acuerdos colusorios o contra el ordenamiento jurídico.
+i) El contratista tiene la obligación de ejecutar plenamente y sin obstáculo lo pactado en el respectivo contrato, salvo cuando se produce alguna de las circunstancias eximentes previstas en el presente Reglamento, o cuando acuerde con PROCOMER suspender temporalmente la ejecución del contrato.
+j) El contratista se encuentra obligado a ofrecer a PROCOMER las facilidades necesarias para la fiscalización del contrato. La ausencia de fiscalización por parte de PROCOMER, no exime al contratista de cumplir a cabalidad con sus deberes, ni de la responsabilidad que por incumplimiento se derive.
+En caso de que un participante considere que existe información confidencial, así deberá indicarlo de modo expreso en el sistema digital, al momento mismo de presentar o facilitar la documentación, haciendo señalamiento claro de los folios o archivos que se estima confidenciales y de los motivos y su sustento jurídico.
+Dentro de los cinco días hábiles siguientes a la advertencia de confidencialidad, mediante acto motivado suscrito por funcionario competente y con apego al principio de transparencia, la Administración deberá señalar si procede o no la declaratoria de confidencialidad y, en caso de que así proceda, realizará un resumen del contenido de los documentos sin revelar los aspectos confidenciales e indicará por cuánto plazo ha de mantenerse esta. Durante el lapso de los cinco días antes señalado, la información se tendrá como confidencial.

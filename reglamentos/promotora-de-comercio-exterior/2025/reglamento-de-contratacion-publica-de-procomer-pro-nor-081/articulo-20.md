@@ -1,0 +1,2 @@
+Artículo 20.- Mecanismos de identificación
+Por medio del uso de la firma digital certificada o del mecanismo electrónico a través del cual se acredite la identidad del firmante y la integridad del mensaje, el sistema digital garantizará la vinculación jurídica de la firma del emisor con el documento electrónico e identificará a su receptor, de manera tal que se certifique la no alteración y la conservación del contenido original de cada documento que se reciba y se envíe por medio del sistema.

@@ -1,0 +1,2 @@
+Artículo 22.- Compra pública innovadora
+La compra pública innovadora de bienes, obras, servicios, procesos, métodos comerciales u organizativos, tiene por objeto la adquisición de una solución que no existe a nivel del mercado, o bien de adaptaciones significativamente mejoradas, que impliquen la incorporación de elementos innovadores, en aspectos tales como sus procesos de producción, de construcción, diseño de productos o nuevos métodos para su realización y que brinden una nueva solución que satisfaga de una mejor forma el interés público.
