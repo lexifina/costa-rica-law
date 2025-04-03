@@ -1,0 +1,1 @@
+Artículo 46.-Las manifestaciones propias de los señores Concejales hechas en la sesión, no será necesario que consten en el acta, salvo que estos así lo deseen, lo harán saber así con anticipación a la secretaria. Si la previsión anterior no se hace, la secretaria no deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.

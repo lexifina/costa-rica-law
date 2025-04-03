@@ -1,0 +1,2 @@
+Artículo 118.-Las Comisiones Ordinarias y Extraordinarias se reunirán , ya sea de forma presencial o virtual, cuando así lo ameriten, en fecha y hora acordados por sus miembros a conveniencia de estos una vez conformados por la presidencia municipal.
+Salvo casos de legalidad u oportunidad por los cuales se requiera rendir un dictamen en menos tiempo las comisiones podrán celebrar sesiones extraordinarias, previa solicitud a la presidencia o por acuerdo municipal.

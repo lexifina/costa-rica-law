@@ -1,0 +1,1 @@
+Artículo 5°-El Concejo tendrá un presidente y un vicepresidente; cumplirá las funciones que establece el artículo 34 del Código Municipal, este reglamento, y aquellas que determine el Concejo, la forma de elección y sustitución se apega a los articulo 29 y 33 del Código Municipal.

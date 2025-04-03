@@ -1,0 +1,1 @@
+Artículo 68.-La Presidencia del Concejo recibirá con la debida anticipación la lista de audiencias solicitadas, con el objeto de que los concejales se preparen debidamente para esta o citen al funcionario municipal que conozca la materia para que los asesore debidamente.

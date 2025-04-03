@@ -1,0 +1,1 @@
+Artículo 115.-A los miembros del Gobierno Local no se les permitirá participar en más de dos Comisiones de Trabajo Ordinarias, así como será obligatoria su participación en las Comisiones que sean designadas.

@@ -1,0 +1,1 @@
+Artículo 120.-El quórum para que las comisiones sesionen válidamente será la mitad más uno de sus miembros, quórum que deberá completarse dentro de los quince minutos siguientes a la hora acordada para la sesión. En caso de no sesionar por falta de quórum, los asistentes, a la sesión deberán informarlo al Concejo Municipal para que éste tome las acciones correspondientes.

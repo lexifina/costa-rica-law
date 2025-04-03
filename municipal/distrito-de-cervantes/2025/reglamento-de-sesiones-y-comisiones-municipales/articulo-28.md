@@ -1,0 +1,1 @@
+Artículo 28.-Podrá modificarse o alterarse el orden del día, luego de conocido por los miembros del Concejo, mediante acuerdo tomado, salvo el caso de las sesiones extraordinarias que deberán votar todos los concejales propietarios.

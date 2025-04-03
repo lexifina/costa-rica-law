@@ -1,0 +1,1 @@
+Artículo 96.-Los acuerdos consignados en el acta, quedarán definitivamente aprobados luego del refrendo del acta, salvo aquellos que en la misma sesión en que fueron tomados sean declarados definitivamente aprobados.

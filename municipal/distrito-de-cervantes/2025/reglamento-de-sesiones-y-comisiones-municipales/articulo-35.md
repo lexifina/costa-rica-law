@@ -1,0 +1,1 @@
+Artículo 35.-El quórum para sesionar válidamente será el número de concejales propietarios que la ley fije, en este caso y según el artículo 37 del Código Municipal serán 3 concejales propietarios. Dicha cantidad deberá estar presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

@@ -1,0 +1,1 @@
+Artículo 116.-Corresponderá al presidente de la comisión presidir, abrir, suspender y cerrar las sesiones, recibir las votaciones y anunciar si hay aceptación o rechazo del asunto tratado, conceder y quitar el uso de la palabra, vigilar el orden de las sesiones, así como los dictámenes que se remitan al Concejo.

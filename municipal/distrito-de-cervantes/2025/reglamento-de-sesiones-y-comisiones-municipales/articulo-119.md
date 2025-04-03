@@ -1,0 +1,1 @@
+Artículo 119.-El día de reunión acordado por las diferentes comisiones, tanto ordinarias como extraordinarias, deberá ser del conocimiento del Concejo y la secretaría municipal y no podrá ser variado salvo casos de excepción y por acuerdo calificado de sus integrantes.

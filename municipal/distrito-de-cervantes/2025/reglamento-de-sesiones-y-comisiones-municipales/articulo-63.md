@@ -1,0 +1,1 @@
+Artículo 63.-Todo acuerdo del Concejo Municipal una vez aprobado, y que se requiera ser puesto a conocimiento de los interesados deberá ser trascrito por la secretaría del Concejo en los tantos que sean necesarios, así como enumerarlos en forma consecutiva y constante, agregando a cada número y después de un guión, el año en que se tomó.

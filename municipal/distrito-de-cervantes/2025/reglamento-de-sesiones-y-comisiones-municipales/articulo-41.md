@@ -1,0 +1,1 @@
+Artículo 41.-Cualquier miembro del Concejo podrá solicitar la palabra por el orden, con el fin de llamar la atención sobre algún asunto, en todo caso dicha intervención no será mayor a dos minutos, y será conocido de manera inmediata.

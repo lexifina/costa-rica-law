@@ -1,0 +1,1 @@
+Artículo 124.-Queda facultado la Presidencia del Concejo Municipal del Distrito de Cervantes. por sí o a solicitud de uno o más concejales por fuerza mayor u otro motivo a reestructurar las comisiones de trabajo cuando así se amerite.

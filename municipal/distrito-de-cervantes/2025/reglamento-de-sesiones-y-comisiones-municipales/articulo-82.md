@@ -1,0 +1,1 @@
+Artículo 82.-Toda moción será leída por el o la secretario (a) del Concejo en el capítulo de la agenda correspondiente, y posterior a la lectura de esta podrá ser ampliada por el proponente, contando este con un tiempo máximo de cinco minutos para tal fin, cuando así lo haya solicitado y sea autorizado por la presidencia.

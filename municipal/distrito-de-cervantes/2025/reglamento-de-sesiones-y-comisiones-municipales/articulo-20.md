@@ -1,0 +1,1 @@
+Artículo 20.-Cuando se presenten al Concejo en sesiones ordinarias, vecinos interesados en un tema específico, será facultad exclusiva de la presidencia del Concejo, delegar la representación del colegio en tres miembros de este para que en comisión especial puedan atender a los vecinos.

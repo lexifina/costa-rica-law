@@ -1,0 +1,1 @@
+Artículo 92.-Corresponde al secretario, bajo su responsabilidad, levantar el acta, cuando un Concejal desee que su deliberación conste textualmente en el acta deberá solicitarlo antes de iniciar su deliberación.

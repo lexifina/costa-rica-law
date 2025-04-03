@@ -1,0 +1,1 @@
+Artículo 72.-Cuando otra persona diferente al que expuso desee aclarar o adicionar algo a lo ya expuesto, deberá levantar su mano y pedir la palabra a la presidencia, para que ésta defina si procede debido al tema o del tiempo es atendible o no su solicitud.

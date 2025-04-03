@@ -1,0 +1,3 @@
+CAPÍTULO V
+Inicio y cierre de las sesiones
+Artículo 21.-Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada al efecto, conforme con el reloj del local donde se lleve a cabo la sesión, en caso de que este sufra algún desperfecto o no hubiese, se desarrollará con el reloj que posea el presidente.

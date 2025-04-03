@@ -1,0 +1,1 @@
+Artículo 107.-A las comisiones especiales el presidente les dará un plazo para rendir su dictamen, quedaran disueltas o serán reestructuradas cuando no rindan su informe en el plazo establecido o por falta de sesionar.

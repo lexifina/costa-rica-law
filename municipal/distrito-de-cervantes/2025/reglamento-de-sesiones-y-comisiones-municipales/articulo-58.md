@@ -1,0 +1,1 @@
+Artículo 58.-Tal como lo dispone la ley todo acuerdo que tome el Concejo por iniciativa de alguno de los Concejales o de la Intendencia municipal se tomará previo proyecto de moción escrita y firmada por el proponente.
