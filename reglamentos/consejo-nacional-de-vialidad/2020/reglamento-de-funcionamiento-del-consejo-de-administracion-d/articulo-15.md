@@ -1,6 +1,7 @@
 Artículo 15.-Funciones y Deberes de la persona encargada de la Secretaría de Actas mismas acordes con la clase Profesional según el Manual de Cargos de la Dirección General del Servicio Civil y entre otras labores desempeñará..
 (Así reformado el párrafo anterior mediante acta 65-2024 de la sesión ordinaria del 18 de noviembre de 2024.)
-a. Grabar - cuando sea dispuesto por el Consejo - y elaborar las actas de las sesiones del Consejo.
+a. Grabar las sesiones del órgano y levantar las actas correspondientes.
+(Así reformado el inciso anterior mediante acta 16-2025 de la sesión ordinaria del 3 de abril de 2025)
 b. Presentar en la sesión todos los documentos, informes y antecedentes relacionados con los asuntos que figuren en el Orden del Día.
 c. Transcribir las actas al libro correspondiente y gestionar la firma de la presidencia.
 d. Llevar el seguimiento y control de la ejecución de los acuerdos y resoluciones del Consejo e informar periódicamente a las personas miembros sobre su estado de tramitación.
@@ -14,7 +15,8 @@ k. Levantar y conformar expediente de cada sesión, en el que se incorpora toda 
 l. Recibir, revisar y tramitar correspondencia.
 m. Extender certificaciones de acuerdos y documentos que consten en los archivos de la Secretaría.
 n. Gestionar la legalización de los Libros Oficiales de Actas del Consejo.
-o. Firmar el Libro de Actas, en ausencia de la Secretaría del Consejo, en conjunto con la Presidencia.
+o. Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente.
+(Así reformado el inciso anterior mediante acta 16-2025 de la sesión ordinaria del 3 de abril de 2025)
 p. Llevar un registro actualizado de la dirección física o electrónica donde recibirán agendas y documentación las personas miembros del Consejo, así como y número de teléfonos donde localizarles.
 q. Comunicar y firmar en su oportunidad los acuerdos adoptados por el Consejo.
 r. Presentar declaración jurada de bienes según la normativa vigente.
