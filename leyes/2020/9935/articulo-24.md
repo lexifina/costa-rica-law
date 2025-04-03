@@ -1,2 +1,4 @@
-ARTÍCULO 24- Multa por omisión de presentación de la declaración para el pago del impuesto de patente o presentación extemporánea
-Al sujeto pasivo que omita presentar la declaración de autoliquidación de obligaciones tributarias, dentro del plazo legal establecido, se le impondrá una multa equivalente al cincuenta por ciento (50%) del salario base, establecido en el artículo 2 la Ley 7337, de 5 de mayo de 1993.
+Artículo 24- Multa por omisión de presentación de la declaración para el pago del impuesto de patente o presentación extemporánea
+Al sujeto pasivo que omita presentar la declaración de autoliquidación de obligaciones tributarias, dentro del plazo legal establecido, se le impondrá una multa equivalente al cincuenta por ciento (50%) del salario base, establecido en el artículo 2 de la Ley 7337, de 5 de mayo de 1993. Dicha multa se reducirá en un 75% cuando el contribuyente presente la declaración de forma espontánea, sin que medie ninguna actuación de la administración tributaria municipal tendiente a conminarlo a su presentación y antes de que se le notifique el acto determinativo del tributo.
+Si además de la presentación de la declaración se autoliquida y paga la sanción en el momento de subsanar el incumplimiento, la reducción será del ochenta por ciento (80%).
+(Así reformado por el artículo 1° de la ley N° 10635 del 12 de febrero del 2025)
