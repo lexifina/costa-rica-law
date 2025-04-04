@@ -209,3 +209,18 @@ Martes | 29/04/2025 | 4932 | 3 MONAZOS | lunes, 30 de junio de 2025
 Miércoles | 30/04/2025 | 4933 | 3 MONAZOS | lunes, 30 de junio de 2025
 Miércoles | 30/04/2025 | 4934 | 3 MONAZOS | lunes, 30 de junio de 2025
 Miércoles | 30/04/2025 | 4935 | 3 MONAZOS | lunes, 30 de junio de 2025
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 64 del 4 de abril de 2025, la Junta de Protección Social, acordó en relación al Programa de la Rueda de la Fortuna lo siguiente:
+Información general
+El programa La Rueda de la Fortuna se realiza en las instalaciones de la Junta de Protección Social, u otro lugar que previamente determine la Institución, en presencia del público que desee asistir al acto.
+A todos los sorteos asistirán los fiscalizadores indicados en el artículo Nº 75 del reglamento a la Ley de Loterías.
+Del resultado de cada sorteo se levanta un Acta que da origen a la Lista Oficial. El horario de celebración de los sorteos es el siguiente:
+Rueda de la Fortuna
+Se efectúa los sábados a las 5:30 p.m.
+SORTEOS DE RUEDA DE LA FORTUNA ABRIL 2025
+ABRIL 2025
+DÍA | FECHA | TIPO DE LOTERÍA
+Sábado | 05/04/2025 | Rueda de la Fortuna
+Sábado | 12/04/2025 | Rueda de la Fortuna
+Sábado | 19/04/2025 | SEMANA SANTA NO HAY SORTEO DE LA RUEDA
+Sábado | 26/04/2025 | Rueda de la Fortuna
+)

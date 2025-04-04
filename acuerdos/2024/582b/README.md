@@ -14,3 +14,4 @@ Calendario de sorteos y planes de premios de loterías Abril 2025
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-03-25 | la propia norma |
+| 2 | 2025-04-04 | Acuerdo 0 (2025-04-04) |
