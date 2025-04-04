@@ -1,0 +1,1 @@
+ARTÍCULO 86. Competencia. La potestad de imponer sanciones disciplinarias corresponderá a la Presidencia Ejecutiva; asimismo, a la Junta Directiva, respecto a las personas funcionarias que ésta nombra.

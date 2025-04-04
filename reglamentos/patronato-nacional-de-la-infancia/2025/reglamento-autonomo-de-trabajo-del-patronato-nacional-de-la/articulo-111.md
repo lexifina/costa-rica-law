@@ -1,0 +1,1 @@
+Artículo 111. Representación. A efecto de que sus intereses sean debidamente tutelados, las personas trabajadoras del PANI, afiliadas a una organización sindical, tendrán derecho a hacerse representar o acompañar de una persona representante sindical, para sus gestiones individuales o colectivas, conforme a las disposiciones del artículo 360 del Código de Trabajo.

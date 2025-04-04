@@ -1,0 +1,2 @@
+SECCIÓN III. DEL ACOSO LABORAL
+ARTÍCULO 103. Concepto. Se entenderá por acoso laboral al conjunto de omisiones y/o acciones, agresivas, hostiles y reiteradas que un empleado o un grupo de empleados ejercen sobre otro trabajador en el entorno laboral. Este tipo de acoso puede incluir conductas como insultos, humillaciones, aislamiento social, intimidación, amenazas, sobrecarga de trabajo injustificada, o cualquier acción que cause un daño emocional o físico a la víctima.

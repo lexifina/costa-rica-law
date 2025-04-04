@@ -1,0 +1,5 @@
+ARTÍCULO 64. Solicitud. Los permisos deberán ser solicitados por escrito, debidamente fundamentados y presentados ante la Presidencia Ejecutiva o a la Junta Directiva según corresponda, con al menos un mes de antelación a la fecha pretendida para el inicio de su disfrute, salvo que las circunstancias de hecho no lo permitan, situación que corresponderá demostrar a la persona trabajadora.
+Recibida la solicitud, la Presidencia Ejecutiva o la Junta Directiva según sea el caso, solicitará al Departamento de Recursos Humanos las certificaciones, atestados, informes y/o recomendaciones que estime necesarios para la valoración del asunto.
+Asimismo, solicitará a la jefatura inmediata de la persona trabajadora su criterio en cuanto a lo solicitado, específicamente si al otorgarse el permiso se afectará la gestión de la dependencia.
+Tanto el Departamento de Recursos Humanos como la jefatura inmediata, tendrán que presentar lo que les sea requerido en el plazo de tres días hábiles.
+Una vez que la Presidencia Ejecutiva o la Junta Directiva, cuente con los insumos necesarios, tendrá el plazo de quince días hábiles para comunicar la resolución a la persona solicitante.

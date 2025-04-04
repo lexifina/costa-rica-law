@@ -1,0 +1,1 @@
+ARTÍCULO 90. Apertura del procedimiento disciplinario. Cuando existan elementos para ello, la Presidencia Ejecutiva o la Junta Directiva según corresponda, ordenará a la brevedad la apertura del procedimiento administrativo disciplinario que proceda, nombrando al órgano director que se encargará de la instrucción.

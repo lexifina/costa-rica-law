@@ -1,0 +1,1 @@
+ARTÍCULO 73. Deberes del Departamento de Recursos Humanos. El Departamento de Recursos Humanos será el responsable de velar por el cumplimiento de las anteriores normas, de las disposiciones del reglamento interno sobre la materia y demás normas vigentes y aplicables.

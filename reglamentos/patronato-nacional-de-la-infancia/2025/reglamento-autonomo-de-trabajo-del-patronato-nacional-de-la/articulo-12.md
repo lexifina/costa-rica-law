@@ -1,0 +1,2 @@
+ARTÍCULO 12. Base de elegibles. Luego de cada concurso, el Departamento de Recursos Humanos deberá mantener una base de datos de personas que tengan condición de elegibles, con el consentimiento informado de quienes concursan, para efectos de facilitar y agilizar los futuros procesos de reclutamiento, de conformidad con la Ley de Protección de la Persona frente al tratamiento de sus datos personales.
+La condición de elegible, tendrá una validez de un año a partir del momento en que se adquiere dicha condición.

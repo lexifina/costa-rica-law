@@ -1,0 +1,1 @@
+ARTÍCULO 29. Acumulación de vacaciones. Queda prohibido acumular más de dos periodos de vacaciones. La jefatura inmediata velará porque las personas trabajadoras a su cargo, no acumulen periodos vacacionales.

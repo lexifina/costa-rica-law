@@ -1,0 +1,15 @@
+SECCIÓN III. DE LAS PROHIBICIONES EN GENERAL
+ARTÍCULO 57. Prohibiciones de las personas trabajadoras. Sin perjuicio de otras que establezca el presente reglamento y demás disposiciones internas o externas aplicables, el contrato de trabajo y aquellas que se desprendan de la relación de empleo, las personas trabajadoras del Patronato tendrán las siguientes prohibiciones:
+1. Cometer actos de abuso, maltrato, acoso o cualquier tipo de violencia, contra las personas menores de edad con las que tengan contacto en el desarrollo de sus labores o fuera de ellas; ya sea físico, psicológico, sexual o de cualquier otra naturaleza.
+2. Tener acercamientos afectivos y corporales inadecuados, coquetear, seducir o realizar cualquier acto que demuestre interés sexual, con respecto a las personas menores de edad, sus progenitores o encargados.
+3. Cometer actos contrarios a la ética, la moral, las buenas costumbres o al ordenamiento jurídico, que puedan afectar de forma negativa la imagen institucional frente a terceros.
+4. Cometer actos discriminatorios o de violencia en perjuicio de las personas usuarias del Patronato con los que tengan contacto con ocasión de sus labores, en especial personas menores de edad y sus progenitores o encargados.
+5. Presentarse al trabajo bajo los efectos de licor o sustancias adictivas.
+6. Presentarse a laborar en condiciones contrarias a las normas básicas de higiene, seguridad, salud ocupacional y de vestimenta dispuestas por el Patronato.
+7. Alterar o sustraer los equipos, archivos o documentos físicos o digitales para control de asistencia, marcar los registros de asistencia de otras personas trabajadoras o consentir que marquen por ellas.
+8. Alterar o sustraer suministros, mobiliario, archivos físicos o digitales, tangibles o intangibles, valores y equipos suministrados por la institución para efectuar las labores del puesto.
+Exhibir, difundir o mostrar material pornográfico o de contenido sexual dentro de los edificios, albergues o cualquier otra planta física institucional, ya sea que se utilice equipo o herramientas electrónicas o informáticas institucionales o personales, tanto en horario laboral como no laboral.
+9. Implementar, como medida disciplinaria, el castigo físico de las personas menores de edad con las que tengan relación en el ejercicio de sus funciones.
+10.Medicar sin receta médica o modificar la dosis sin indicación médica o autorización, a las personas menores de edad que se encuentran en programas de protección residencial del Patronato.
+11.Violentar el deber de discreción y confidencialidad regulado en el presente reglamento y cualquier otra normativa que resulte vigente y aplicable, sobre información institucional o relativa a las personas menores de edad y sus familias, salvo que lo anterior sea requerido para procesos y/o fines propios de la Institución, en investigaciones realizadas por el Ministerio Público o en otros procedimientos judiciales, cuando así se requiera.
+12. Asumir atribuciones que no les corresponden o competen, de conformidad con el puesto que ocupan.

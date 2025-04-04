@@ -1,0 +1,6 @@
+CAPITULO VIII DE LOS VIÁTICOS
+ARTÍCULO 45. Reconocimiento de viáticos. Las personas trabajadoras que, en el ejercicio de sus funciones, deban desplazarse a lugares diferentes al de su sede habitual, tendrán derecho a que el Patronato les reconozca los viáticos, consistentes en pasajes o transporte, alimentación y/o hospedaje, según corresponda.
+Los viáticos serán otorgados según las regulaciones vigentes para el sector público que dicte la Contraloría General de la República y estarán sujetos a liquidación por parte de las personas trabajadoras.
+Los requisitos para la debida liquidación serán los establecidos por el Patronato.
+Las sumas que pague el Patronato por concepto de viáticos no se considerarán salario para ningún efecto legal, salvo que haya norma legal que indique lo contrario.
+Es improcedente el pago de viáticos a favor de personas funcionarias que tienen asignadas tareas de campo, que les demanda un constante desplazamiento que responde a la circunscripción territorial fijada como centro de trabajo y a que la naturaleza de sus labores así lo requiera, siendo indispensable para la prestación de su servicio, salvo que en sus labores exceda la competencia territorial de su centro de trabajo.

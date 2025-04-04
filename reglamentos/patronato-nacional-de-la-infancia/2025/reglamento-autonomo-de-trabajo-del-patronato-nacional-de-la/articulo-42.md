@@ -1,0 +1,3 @@
+SECCIÓN III. DE LAS AUSENCIAS A LABORES
+ARTÍCULO 42. Ausencias por enfermedad. Las ausencias por enfermedad serán justificadas y darán derecho a subsidio, según corresponda, cuando la persona trabajadora presente el comprobante de incapacidad emitido por un médico autorizado de la Caja Costarricense del Seguro Social o del Instituto Nacional de Seguros.
+Las recomendaciones de reposo emitidas por médicos privados podrán justificar las ausencias, pero no habilitarán el pago de subsidio por enfermedad, para lo cual será requerida la homologación por parte de la Caja Costarricense del Seguro Social.

@@ -1,0 +1,2 @@
+CAPÍTULO XVII DE LOS PERMISOS, FACILIDADES Y GARANTÍAS SINDICALES
+Artículo 110. Garantías y derechos sindicales. El Patronato será respetuoso de todas las garantías y derechos que en materia sindical otorguen a las personas trabajadoras, organizaciones sindicales y sus representantes, la Constitución Política, los Convenios Internacionales ratificados por Costa Rica y la legislación laboral vigente y aplicable.

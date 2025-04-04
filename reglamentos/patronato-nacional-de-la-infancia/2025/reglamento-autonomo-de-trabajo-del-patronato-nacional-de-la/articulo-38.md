@@ -1,0 +1,1 @@
+ARTÍCULO 38. Lineamientos en materia de registro y control de asistencia. El Departamento de Recursos Humanos, será la instancia competente para dictar los lineamientos a seguir sobre la materia de registro y control de asistencia.

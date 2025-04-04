@@ -1,0 +1,1 @@
+ARTÍCULO 63. Competencia. La persona que ocupe el cargo de Presidente Ejecutivo, será competente para otorgar licencias o permisos al personal del Patronato. Lo anterior, con excepción de aquellas personas trabajadoras nombradas por Junta Directiva, respecto a las cuales ésta última será la competente para otorgar los permisos contemplados en los artículos anteriores.

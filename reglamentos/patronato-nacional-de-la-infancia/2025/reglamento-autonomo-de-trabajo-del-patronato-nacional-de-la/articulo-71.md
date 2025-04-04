@@ -1,0 +1,1 @@
+ARTÍCULO 71. Denegatoria. La concesión de permisos con goce de salario y su eventual prorroga, podrá ser denegada por el Patronato por razones de necesidad, oportunidad o conveniencia, debidamente justificado, según el Reglamento de Capacitación, Adiestramiento y Becas.

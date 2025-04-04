@@ -1,0 +1,1 @@
+ARTÍCULO 99. Regulación. Los procedimientos disciplinarios tendientes a determinar si existe falta por acoso sexual o laboral, se regularán mediante los reglamentos específicos que para ello se encuentren vigentes en el Patronato, por las leyes especiales sobre la materia y cualquier otra normativa que resulte vigente y aplicable.

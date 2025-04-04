@@ -1,0 +1,1 @@
+ARTÍCULO 48. Otros componentes salariales. En caso de necesidad y conveniencia institucional, el PANI valorará el pago de otros componentes salariales tales como disponibilidad y prohibición, en concordancia con la normativa nacional y los lineamientos o directrices del Servicio Civil vigentes al momento de la aprobación de dichos componentes salariales.

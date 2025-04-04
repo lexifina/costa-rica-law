@@ -1,0 +1,1 @@
+ARTÍCULO 85. Faltas simultáneas. Cuando la persona trabajadora haya cometido simultáneamente dos o más faltas que merezcan sanción disciplinaria distinta, se podrá aplicar la sanción correspondiente a la falta de mayor gravedad. No obstante, la sanción se podrá ver agravada por dicha concurrencia.

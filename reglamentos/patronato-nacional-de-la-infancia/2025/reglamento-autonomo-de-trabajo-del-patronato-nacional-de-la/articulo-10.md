@@ -1,0 +1,1 @@
+ARTÍCULO 10. Regulación interna. El procedimiento de reclutamiento y selección de personal, será regulado mediante el Reglamento de Reclutamiento, Selección y Nombramientos por competencias del Recurso Humano del Patronato Nacional de la Infancia, que establecerá los lineamientos para seleccionar a los funcionarios del Patronato, el cual debe ser aprobado por la Junta Directiva.

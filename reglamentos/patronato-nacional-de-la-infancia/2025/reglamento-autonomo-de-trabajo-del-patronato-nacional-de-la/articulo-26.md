@@ -1,0 +1,1 @@
+ARTICULO 26. Cómputo del disfrute. Para el cómputo de disfrute de vacaciones, solo se tomarán en cuenta los días que resulten hábiles según la jornada de cada persona trabajadora. No podrán ser computados como vacaciones los días feriados, los asuetos y las incapacidades, aun cuando éstos se presenten dentro del disfrute del período vacacional.

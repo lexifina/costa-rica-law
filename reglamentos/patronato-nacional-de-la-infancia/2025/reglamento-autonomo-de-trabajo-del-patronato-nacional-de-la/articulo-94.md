@@ -1,0 +1,1 @@
+ARTÍCULO 94. Deber de las jefaturas. Es deber de las jefaturas, dentro de su ámbito de competencia, enviar copia al expediente personal de sus subalternos, de aquellas gestiones referentes a las condiciones de la relación laboral y demás movimientos, según lo contemplado en el artículo anterior.
