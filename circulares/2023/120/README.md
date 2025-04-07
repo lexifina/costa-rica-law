@@ -13,3 +13,4 @@ Actualización Tabla de Plazos de Conservación de Documentos de la Secretaría 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-05-25 | la propia norma |
+| 2 | 2025-04-07 | Circular 62 (2025-04-07) |
