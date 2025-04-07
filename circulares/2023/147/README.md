@@ -13,3 +13,4 @@ Actualización de la Tabla de Plazos de Conservación de Documentos del Macropro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-19 | la propia norma |
+| 2 | 2025-04-07 | Circular 64 (2025-04-07) |
