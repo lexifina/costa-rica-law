@@ -1,1 +1,0 @@
-Artículo 12.—En el evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente de la Municipalidad, confeccionando el respectivo recibo de ingreso. Efectuar las revisiones pertinentes para determinar su origen. En caso de no poder determinarlo la suma sobrante será liquidada al finalizar el ejercicio anual.
