@@ -1,1 +1,0 @@
-Artículo 2°- Deróguese el Decreto Ejecutivo número 44723-H de fecha 21 de octubre de 2024, publicado en el Alcance 177 a La Gaceta número 203, de fecha 30 de octubre de 2024, a partir de la vigencia del presente decreto.
