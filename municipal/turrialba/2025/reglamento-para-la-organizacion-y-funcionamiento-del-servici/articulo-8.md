@@ -1,0 +1,1 @@
+Artículo 8. Será obligación del agente de Policía Municipal de Turrialba, también ejercer adecuadamente el control vial en el cantón, en apego de lo que establece el Reglamento de Operación del Sistema de Control y Seguridad Vial autorizado en Turrialba y la Ley de Tránsito por Vías Públicas terrestres y seguridad vial.

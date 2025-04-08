@@ -1,0 +1,1 @@
+Artículo 39. Fuera de la jornada laboral queda terminantemente prohibido el uso del uniforme, chaleco de seguridad y arma de fuego e implementos suministrados por la Institución para el desempeño policial.

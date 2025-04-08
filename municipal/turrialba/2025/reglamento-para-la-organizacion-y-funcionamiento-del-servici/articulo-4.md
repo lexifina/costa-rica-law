@@ -1,0 +1,1 @@
+Artículo 4. Corresponderá a la Policía Municipal de Turrialba las mismas potestades y facultades establecidas en la normativa actual y futura para la Fuerza Pública y la Policía de Tránsito, en calidad de auxiliares de estos cuerpos policiales.

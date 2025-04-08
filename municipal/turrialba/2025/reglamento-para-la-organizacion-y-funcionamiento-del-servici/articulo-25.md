@@ -1,0 +1,2 @@
+Artículo 25. Los agentes de la Policía Municipal de Turrialba deben asumir la responsabilidad económica, civil, penal y administrativa por el cuidado y uso del equipo, chaleco, arma, funda, radio, esposas, cargador, cinturón y demásaccesorios suministrados.
+Durante el tiempo que permanezcan bajo su cuidado, responderán por cualquier pérdida o daño ocasionado por culpa o dolo. De igual manera cuando se le imputen delitos penales.
