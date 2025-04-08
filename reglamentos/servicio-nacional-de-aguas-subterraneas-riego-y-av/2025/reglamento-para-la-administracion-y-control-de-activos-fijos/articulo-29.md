@@ -1,0 +1,1 @@
+Artículo 29.-La Gerencia, previa recomendación debidamente motivada de la Dirección Administrativa, deberá dictaminar sobre la solicitud, considerando entre otros aspectos que los bienes que serían objeto de donación, debidamente inventariados, no son útiles o necesarios para la institución.

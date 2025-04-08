@@ -1,0 +1,1 @@
+Artículo 9º-Registro Contable. La Unidad Financiero Contable realizará el respectivo registro contable, además del registro de depreciación, revaluación y deterioro de activos de acuerdo con las Normas Internacionales de Contabilidad del Sector Público (NICPS 17).

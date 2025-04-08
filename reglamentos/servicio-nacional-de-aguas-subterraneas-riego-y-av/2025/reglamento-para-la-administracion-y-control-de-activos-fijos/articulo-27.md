@@ -1,0 +1,1 @@
+Artículo 27.-Recepción y registro de activos donados: Los activos recibidos por donación serán recibidos conforme, por el funcionario que va tener a cargo el activo. La Unidad de Servicios Administrativos oficinas centrales y DRAT según corresponda, será la encargada del registro correspondiente en el sistema ERP.

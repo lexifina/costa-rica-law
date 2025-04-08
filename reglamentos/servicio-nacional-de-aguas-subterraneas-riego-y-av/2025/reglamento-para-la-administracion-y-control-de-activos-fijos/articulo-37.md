@@ -1,0 +1,1 @@
+Artículo 37.-El superior inmediato en un plazo no mayor de tres días hábiles siguientes al momento que tuvo conocimiento del daño causado al activo, notificará a la Unidad de Servicios Administrativos con el fin de que inicie una investigación a efectos de recabar información para sentar las bases de una eventual responsabilidad.
