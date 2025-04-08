@@ -1,1 +1,0 @@
-Artículo 19.-EI conductor de un vehículo oficial previo a conducir el mismo, deberá realizar un chequeo general del estado del mismo (nivel de líquido de frenos, dirección, luces, lubricantes, combustible, presión y estado de llantas y del repuesto, nivel de agua del radiador, electrolito de batería y herramientas).

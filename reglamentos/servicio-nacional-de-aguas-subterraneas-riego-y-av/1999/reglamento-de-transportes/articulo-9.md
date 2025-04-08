@@ -1,1 +1,0 @@
-Artículo 9°-Es prohibido a los funcionarios del SENARA, el conducir vehículos de la Institución bajo los efectos de bebidas alcohólicas o de cualquier droga que disminuya la capacidad física o mental del conductor.

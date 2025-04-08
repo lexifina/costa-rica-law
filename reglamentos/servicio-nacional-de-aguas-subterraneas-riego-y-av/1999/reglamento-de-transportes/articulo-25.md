@@ -1,1 +1,0 @@
-Artículo 25.-Cada conductor será responsable de la custodia y conservación del vehículo que se le asigne para cumplir su trabajo. Cualquier daño debe ser informado y debidamente justificado y responderá por el mismo cuando medie culpa, negligencia o impericia, sin perjuicio de las sanciones administrativas, civiles o penales que correspondan.

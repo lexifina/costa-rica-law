@@ -1,1 +1,0 @@
-Artículo 20.-EI conductor es responsable del apropiado y legítimo uso del combustible que se le confíe, debiendo exigir del vendedor la respectiva factura a nombre del SENARA, que será el comprobante que presentará ante la administración.

@@ -1,2 +1,0 @@
-Artículo 34.-La custodia de los vehículos en horas y días no hábiles, es responsabilidad exclusiva de la Unidad de Transportes. Todos los vehículos de uso administrativo deberán quedar aparcados en los parqueos que al efecto tiene el SENARA.
-Le corresponde también ejercer la custodia de los vehículos que no se encuentren en servicio. Su responsabilidad sobre determinada unidad se traslada al conductor cuando éste retira el vehículo a través de los mecanismos establecidos en el presente Reglamento y la retoma cuando el vehículo regresa a su lugar de origen.

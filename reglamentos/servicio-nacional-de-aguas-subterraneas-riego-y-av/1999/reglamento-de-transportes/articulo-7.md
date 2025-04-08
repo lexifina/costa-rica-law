@@ -1,1 +1,0 @@
-Artículo 7°-Los vehículos destinados a determinada gira deberán sujetarse estrictamente al plan de gira, el cual sólo podrá ser modificado si existe necesidad institucional, en cuyo caso el servidor encargado deberá informar a su superior al momento de regresar de la gira.

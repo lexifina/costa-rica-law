@@ -1,2 +1,0 @@
-Artículo 3°-Los vehículos de uso discrecional no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la unidad. Estos vehículos pueden portar placas particulares y no requieren tener marcas visibles que los distinguen como vehículos oficiales.
-A los vehículos de uso discrecional le serán aplicables las disposiciones de este Reglamento en todo aquello que sea compatible con su naturaleza.

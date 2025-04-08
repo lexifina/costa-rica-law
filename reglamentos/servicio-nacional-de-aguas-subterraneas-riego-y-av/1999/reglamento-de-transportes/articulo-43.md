@@ -1,1 +1,0 @@
-Artículo 43.-EI incumplimiento de las disposiciones contempladas en este Reglamento, hará acreedor al servidor culpable de las medidas disciplinarias que correspondan, sin perjuicio de otro tipo de responsabilidades, que conforme al ordenamiento jurídico, le sean aplicables.

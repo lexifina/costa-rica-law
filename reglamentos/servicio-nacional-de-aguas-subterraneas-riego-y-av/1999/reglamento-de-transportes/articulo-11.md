@@ -1,3 +1,0 @@
-CAPITULO III
-Del uso de los vehículos
-Artículo 11.-Cualquier servidor del SENARA que tenga la licencia de conductor vigente extendida por autoridad competente, podrá ser facultado para conducir los vehículos de la entidad, en funciones de su cargo. Para ello basta que satisfaga los requisitos pertinentes y necesarios que se detallan en el presente Reglamento, y se le otorgue el carné respectivo que lo acredita como autorizado para conducir vehículos del SENARA, salvo que, amerite la suspensión como conductor por causas tales como conducir irresponsablemente, un número de accidentes inaceptable y otras que a criterio de los superiores o la gerencia sean suficientes para suspender el permiso de conducir los vehículos del SENARA. .

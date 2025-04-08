@@ -1,1 +1,0 @@
-Artículo 36.-Mientras el conductor tenga bajo su responsabilidad el vehículo, y se vea en la necesidad de aparcarlo en sitios públicos para atender diligencias propias de trabajo, deberá hacerlo en lo posible en un parqueo público. El SENARA realizará las previsiones necesarias para cubrir el costo de este servicio.

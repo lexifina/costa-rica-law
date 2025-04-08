@@ -1,1 +1,0 @@
-Artículo 41.-Corresponde al Director del Área Administrativa Financiera, a través del Encargado del Proceso de Servicios Administrativos, velar por el cabal cumplimiento de todas las normas contenidas en el presente Reglamento y cualesquiera otras que las leyes, decretos, reglamentos y manuales le asignen.

@@ -1,2 +1,0 @@
-Artículo 24.-Los. accesorios, repuestos, herramientas u otros implementos de los vehículos, que por culpa o negligencia del responsable del mismo, sean extraviados, el funcionario culpable deberá reemplazarlos o resarcir al SENARA el costo de reposición en un plazo no mayor de 30 días naturales, contados a partir del hecho.
-Además no podrá intercambiar accesorios entre las unidades sin la debida autorización del encargado de la Unidad de Transportes.

@@ -1,3 +1,0 @@
-Artículo 12.-La circulación de vehículos en horas no hábiles requiere de una autorización expresa emitida por la Gerencia, Directores de Área o Jefes Regionales. Esta autorización deberá ser específica y justificada en una necesidad institucional. Podrá otorgarse mediante un formulario especial o bien mediante la consignación respectiva en el formulario de Solicitud de Servicio de Transporte.
-Para efectos de circulación de los vehículos oficiales de SENARA, se define como horas hábiles las comprendidas entre las 5,00 horas a las 18,00 horas, de lunes a viernes exceptuando los días feriados que coincidan con esos días.
-(Corregido mediante FE DE ERRATAS publicada en La Gaceta N° 58 del 24 de marzo de 1999).

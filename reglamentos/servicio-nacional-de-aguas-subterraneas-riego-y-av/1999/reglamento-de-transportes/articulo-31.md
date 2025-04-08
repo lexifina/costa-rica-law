@@ -1,1 +1,0 @@
-Artículo 31.-Los vehículos de uso administrativo quedarán centralizados en la Unidad de Transportes, tanto en oficinas centrales como en las regionales, y deberán estar sujetos estricta y totalmente a los controles estipulados en el presente Reglamento.

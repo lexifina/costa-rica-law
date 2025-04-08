@@ -1,1 +1,0 @@
-Artículo 21.-Es absolutamente prohibido transportar combustible en depósitos distintos del tanque propio del vehículo, excepto cuando se trate de combustible destinado a equipo estacionario que se regulará por disposiciones especiales.

@@ -1,1 +1,0 @@
-Artículo 8°-Es absolutamente prohibido utilizar los vehículos automotores, el tiempo de trabajo de los choferes o del personal subalterno en asuntos no oficiales. El servidor que reciba y acepte órdenes ilegales de su superior se convierte en corresponsable para los efectos disciplinarios correspondientes; cometerá falta tanto quien da la orden como quien la ejecuta.

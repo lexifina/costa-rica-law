@@ -1,2 +1,0 @@
-Artículo 14.-No se asignará ningún vehículo de uso administrativo a determinada dependencia o funcionario. Todas las unidades formarán un conjunto destinado a llenar las necesidades del SENARA.
-En las Oficinas Regionales, los vehículos serán administrados por el coordinador administrativo de cada Región, en coordinación con la Unidad de Transportes de la Institución, quien además deberá llevar los debidos controles de uso, mantenimiento y reparación de cada unidad.

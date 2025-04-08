@@ -1,1 +1,0 @@
-Artículo 4°-Todas las unidades automotoras de uso administrativo llevarán un rótulo en los costados de la carrocería en el cual se indique con claridad el emblema, nombre de la Institución y la leyenda "USO OFICIAL". Este distintivo deberá fijarse con pintura.
