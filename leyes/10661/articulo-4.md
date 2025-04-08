@@ -1,0 +1,1 @@
+ARTÍCULO 4- El Ministerio de Seguridad Pública y la Policía de Tránsito colaborarán con la Municipalidad de Pérez Zeledón para garantizar la seguridad de los asistentes y la adecuada coordinación vial durante la realización del Festival Luces del Valle.
