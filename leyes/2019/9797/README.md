@@ -1,6 +1,6 @@
 # Ley General sobre el VIH SIDA
 
-Ley N° 9797 del 2019-12-02. SINALEVI, ficha 90243: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=90243&param2=129503&param3=1>.
+Ley N° 9797 del 2019-12-02. SINALEVI, ficha 90243: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=90243&param2=145500&param3=1>.
 
 Publicada en La Gaceta N° 238 del 2019-12-13.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2019-12-23 | Ley 9797 | 2019-12-02 |
 | 2 de 3 | 2022-03-23 | Ley 10156 | 2022-03-18 |
+| 3 de 3 | 2025-04-08 | Ley 10664 | 2025-03-10 |
