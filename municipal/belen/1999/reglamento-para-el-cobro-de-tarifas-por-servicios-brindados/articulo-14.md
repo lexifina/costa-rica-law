@@ -1,1 +1,0 @@
-Artículo 14.—La Municipalidad bajo ninguna circunstancia suministrará los servicios enunciados en el artículo uno de este reglamento de forma gratuita, ni exonerará total o parcialmente el pago de cualquier multa, intereses o cuenta, a no ser que exista disposición legal que la autorice para ello.
