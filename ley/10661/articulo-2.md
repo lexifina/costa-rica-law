@@ -1,0 +1,1 @@
+ARTÍCULO 2- El Ministerio de Cultura y Juventud y el Instituto Costarricense de Turismo colaborarán con la Municipalidad de Pérez Zeledón para garantizar la divulgación y promoción de dicha actividad.

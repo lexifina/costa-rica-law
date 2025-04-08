@@ -1,0 +1,1 @@
+ARTÍCULO 3- El Ministerio de Educación Pública (MEP) colaborará, con la Municipalidad de Pérez Zeledón, promoviendo la participación de escuelas y colegios locales en actividades con fines educativos que se presenten dentro del evento.

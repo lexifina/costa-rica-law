@@ -1,0 +1,1 @@
+ARTÍCULO 5- La Municipalidad de Pérez Zeledón fomentará la participación activa de la comunidad local en la organización y el desarrollo del Festival Luces del Valle. Se propiciarán espacios de consulta y participación ciudadana, para recoger sugerencias y enriquecer la planificación de futuras ediciones del evento.
