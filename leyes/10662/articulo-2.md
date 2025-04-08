@@ -1,0 +1,3 @@
+ARTÍCULO 2- Premio Nacional Policial Juan Santamaría. Se crea el Premio Nacional Policial Juan Santamaría, que será otorgado en manos del presidente de la República, una única vez al año, a una persona que integre alguno de los cuerpos de policía costarricenses, quien se haya destacado en su labor y como reconocimiento a su supremo cumplimiento del deber en favor de los habitantes de la nación y la patria.
+Se autoriza al Poder Ejecutivo para que fije un reconocimiento al oficial que sea acreedor del Premio Nacional Policial Juan Santamaría.
+Los criterios y procedimientos de elección del oficial a reconocer se definirán vía reglamento.
