@@ -1,0 +1,2 @@
+ARTÍCULO 14- Rendición de cuentas. La Dirección General presentará al Consejo un informe anual de labores en donde se detallen las actividades realizadas y todos los aspectos que sean relevantes para el funcionamiento del CCCA. La fecha de presentación la determinará el Consejo.
+El Consejo además podrá, cuando lo estime conveniente, solicitar los informes que considere oportunos sobre cualquier otro aspecto relativo al funcionamiento del CCCA.

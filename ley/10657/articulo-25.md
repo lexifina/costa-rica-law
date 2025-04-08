@@ -1,0 +1,2 @@
+ARTÍCULO 25- Límite. Las obras cinematográficas y audiovisuales costarricenses beneficiarias del Fondo de Fomento podrán recibir como máximo el ochenta y cinco por ciento (85%) del presupuesto de origen costarricense a utilizarse en la producción de dicha obra.
+El conjunto de incentivos aquí previstos se asignará exclusivamente en proporción a la participación nacional en el proyecto que se trate y según sea el caso específico, de acuerdo con lo estipulado en el reglamento de esta ley.

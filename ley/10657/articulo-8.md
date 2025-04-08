@@ -1,0 +1,1 @@
+ARTÍCULO 8- Sesiones. El consejo sesionará ordinariamente dos veces al mes y extraordinariamente cada vez que sea convocado por su presidente. Las convocatorias a las sesiones ordinarias y extraordinarias se harán por escrito o por medios electrónicos.

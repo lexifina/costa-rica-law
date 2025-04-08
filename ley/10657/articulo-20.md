@@ -1,0 +1,1 @@
+ARTÍCULO 20- Dirección de la Cinemateca Nacional. El Centro Costarricense de Cine y Audiovisual contará con un director o directora de la Cinemateca Nacional que, administrativa y disciplinariamente, responderá ante la dirección general del CCCA. Será una persona funcionaria de confianza, de reconocida idoneidad para el cargo.

@@ -1,0 +1,1 @@
+TRANSITORIO I- Todos los bienes, obligaciones y personal del Centro Costarricense de Producción Cinematográfica serán trasladados al nuevo Centro Costarricense de Cine y Audiovisual. El personal trasladado no será afectado en ninguno de sus derechos laborales.
