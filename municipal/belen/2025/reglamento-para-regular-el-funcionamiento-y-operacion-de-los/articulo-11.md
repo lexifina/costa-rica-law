@@ -1,0 +1,1 @@
+Artículo 11.-Horario de lactancia. Cuando los niños y niñas se encuentren en periodo de lactancia, las madres tendrán acceso en el horario que sea preciso, previa comunicación a la Dirección del Centro. Para la debida alimentación de las y los lactantes, la Dirección de cada Centro de Cuido Infantiles habilitará el espacio físico con los requerimientos pertinentes.

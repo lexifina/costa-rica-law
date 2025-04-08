@@ -1,0 +1,1 @@
+Artículo 23.-Derogatorias. El presente cuerpo normativo, deroga el Reglamento para regular el funcionamiento y operación del Centro Infantil Modelo del cantón de Belén y el Reglamento para regular el funcionamiento y operación del Centro de Cuido y Desarrollo Infantil - CECUDI del cantón de Belén, distrito de la Ribera.

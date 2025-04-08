@@ -1,0 +1,5 @@
+Artículo 3°-Población beneficiada. Serán admitidos niños y niñas en la cantidad que se determine técnicamente de conformidad con las Normas de Habilitación de los Centros de Atención Integral y, así sea establecido por el Consejo de Atención Integral, quien emitirá la respectiva habilitación del Centro.
+Los Centros Infantiles Municipales, brindarán los servicios de cuidado a familias en condiciones de vulnerabilidad, pobreza y pobreza extrema, que sean subsidiadas por el IMAS, el PANI o la Municipalidad.
+Se atenderá de manera prioritaria a la población infantil que provenga de comunidades y zonas aledañas a la ubicación geográfica de cada Centro de Cuido y que se encuentre en una situación de pobreza y pobreza extrema.
+Las y los beneficiarios del servicio, serán seleccionados de acuerdo con los criterios técnicos que emplea el IMAS y el PANI, además de lineamientos propios que la Municipalidad defina para la valoración socioeconómica.
+Los montos de referencia del costo del servicio, serán los establecidos por la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil, en el subsidio mensual para cada año.
