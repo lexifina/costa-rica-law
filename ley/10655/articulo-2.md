@@ -1,0 +1,1 @@
+ARTÍCULO 2- Declárese de interés público y relevancia cultural el Encuentro Nacional de Swing y Bolero Criollos, realizado por la Asociación Red Costarricense de Gestores, Promotores y Artistas Embajadores del Swing y el Bolero Criollos (Asoresc).
