@@ -1,0 +1,1 @@
+Artículo 7º-Cobro Judicial: Agotado el proceso de cobro administrativo, el área de financiamiento informará al Directorio de la CPCA sobre las operaciones morosas y éste a su vez le indicará al INFOCOOP si procede con el cobro judicial.

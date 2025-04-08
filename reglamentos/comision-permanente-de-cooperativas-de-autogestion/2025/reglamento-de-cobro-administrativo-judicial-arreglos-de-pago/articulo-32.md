@@ -1,0 +1,1 @@
+Artículo 32. -Designación de depositario judicial. Para realizar un embargo sobre bienes muebles o inmuebles, el abogado/a encargado/a del cobro deberá coordinar con el Área de Financiamiento, a fin de solicitar al juzgado el depósito judicial a favor del INFOCOOP, y designar el funcionario que fungirá como depositario judicial.

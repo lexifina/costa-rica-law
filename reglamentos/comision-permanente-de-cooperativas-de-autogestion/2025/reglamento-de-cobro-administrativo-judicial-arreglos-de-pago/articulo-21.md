@@ -1,0 +1,17 @@
+Artículo 21. -A partir del momento de entrega del expediente con la documentación completa para c obro judicial, se procederá según el siguiente orden:
+a) Emisión de Criterio Legal. El abogado/a dispone de tres días a partir del traslado del expediente mencionado, para estudiar el caso, y justificar por escrito a satisfacción del INFOCOOP su opinión legal sobre la directriz jurídica que recibió para tramitar el juicio y las garantías a ejecutar, en este caso se debe notificar al Directorio de la CPCA.
+El abogado/a de cobro judicial deberá inhibirse de atender la dirección de cualquier proceso judicial, cuando tenga vínculos de parentesco o prohibición por afinidad, consanguinidad o cualquier otra causa que le genere un conflicto de intereses con el deudor. Esta situación será comunicada por escrito, de forma inmediata al Gerente de Financiamiento.
+El Área de Financiamiento tendrá la potestad de aceptar o no sus criterios jurídicos.
+b) Presentación de la demanda; el abogado/a cargo dispone de quince días a partir de la recepción del expediente para presentar la demanda judicial.
+Para cada proceso judicial se deberá otorgar poder especial judicial para representar al INFOCOOP. Estará prohibido usar dicho poder en las siguientes situaciones:
+. Para fijar el monto con que participará el actor en el remate.
+. Para definir el funcionario/a del INFOCOOP que fungirá como depositario judicial.
+. Para escoger al Notario Público respectivo.
+En los casos señalados anteriormente, deberá coordinar por escrito las instrucciones respectivas con el Área de Financiamiento.
+c) Notificación del traslado de la demanda. Es requisito indispensable que la demanda contenga con exactitud y precisión las direcciones de los demandados.
+De no ser posible la notificación por problemas con el domicilio del demandado, el abogado/a solicitará al Juzgado a la mayor brevedad, que aplique en lo que corresponda, la Ley de Notificaciones Judiciales, y el Código Procesal Civil de Costa Rica.
+d) El abogado/a del proceso de cobro judicial no podrá, por ninguna razón, recibir por parte de los demandados: pagos o abonos a la deuda, ni llegar a arreglos de pago, ni recibir sumas de dinero para aplicarlas a los honorarios o gastos, ni renunciar a gestiones recursivas que pudieran beneficiar al INFOCOOP. Todo ello deberá tramitarse ante el INFOCOOP.
+e) Atrasos que sufra la tramitación del juicio. Cualquier atraso, que surgiere el abogado/a deberá comunicarlo inmediatamente por escrito al Área de Financiamiento con copia a la Dirección Ejecutiva.
+En el evento de que un juicio presente seria dificultad para recuperar la deuda, es responsabilidad del abogado/a comunicarlo por escrito al Área de Financiamiento, justificar el criterio y proponer alternativas.
+f) Retiro de dinero. Las sumas de dinero retenidas en los Juzgados a favor del INFOCOOP para ser aplicadas a operaciones en estado irregular, deberán ser retiradas por la persona que autorice la Dirección Ejecutiva del Instituto.
+g) La presentación de una declaración jurada donde el abogado/a encargado del proceso de cobro judicial manifieste que no tiene relación de amistad, relación consanguínea o de afinidad, ni negocios, sociedad, representación, o trabajos, ni interés personal con los afiliados y dirigentes de las cooperativas y otros que se demandarán en ese juicio, se exigirá para los casos de abogado/as externos que se mantienen con el INFOCOOP y que pertenecían al Rol de Abogado/as Externos para los casos de Cobro Judicial, o en los casos que así se considere.

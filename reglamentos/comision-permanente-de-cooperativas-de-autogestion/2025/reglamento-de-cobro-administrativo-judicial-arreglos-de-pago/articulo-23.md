@@ -1,0 +1,2 @@
+Artículo 23. -Informes de procesos. El abogado/a encargado del proceso de cobro judicial estará obligado a presentar un informe trimestral al Área de Financiamiento y éste lo remitirá al Directorio del CPCA, sobre el estado de todos los procesos judiciales bajo su dirección, deberá emitir su criterio jurídico y medidas a aplicar.
+Para emitir el informe de los procesos, deberá utilizarse el formato y procedimiento establecidos por el Área de Financiamiento para estos efectos, el cual deberá ser entregado durante los primeros tres días de finalizado cada trimestre.

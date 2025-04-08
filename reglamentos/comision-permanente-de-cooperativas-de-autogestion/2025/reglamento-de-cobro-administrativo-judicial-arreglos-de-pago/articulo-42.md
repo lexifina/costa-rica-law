@@ -1,0 +1,1 @@
+Artículo 42. -Posesión efectiva del bien. Corresponderá al abogado/a encargado/a del cobro, efectuar todos los trámites y diligencias que resulten necesarios para que INFOCOOP obtenga la posesión efectiva del bien adjudicado.

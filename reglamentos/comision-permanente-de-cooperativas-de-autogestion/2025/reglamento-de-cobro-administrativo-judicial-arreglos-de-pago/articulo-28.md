@@ -1,0 +1,3 @@
+VIII CAPÍTULO
+Proceso de ejecución de los fideicomisos de garantía
+Artículo 28. -De la ejecución de los fideicomisos de garantía. Le corresponde al Área de Financiamiento, ejercer el control, seguimiento y autorización a los fiduciarios respectivos, para dar inicio a los procesos de ejecución de los fideicomisos de garantía que mantenga el INFOCOOP (derivados de la cartera del FNA), en caso de incumplimiento por parte de las cooperativas (agostados proceso de cobro administrativo y aprobación del Directorio del CPCA para la ejecución). En todo caso, dicha dependencia deberá solicitar las autorizaciones que correspondan, informar y emitir recomendaciones al Directorio de la CPCA sobre las situaciones que se presenten en estos procesos y que así estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 44. -Condiciones crediticias aplicables. Las condiciones crediticias que se den en este tipo de arreglo, se ajustarán a lo establecido en el "Reglamento General de Crédito del Fondo Nacional de Autogestión.

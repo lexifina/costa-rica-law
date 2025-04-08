@@ -1,0 +1,1 @@
+Artículo 40. -Adjudicación a INFOCOOP. Cuando el bien fuere adjudicado al INFOCOOP en remate, el abogado/a encargado/a del proceso de cobro solicitará a la autoridad judicial competente la aprobación del mismo, y procederá a comunicar de inmediato, de forma escrita al Área de Financiamiento y este comunicará al Directorio de la CPCA.

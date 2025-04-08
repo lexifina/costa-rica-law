@@ -1,0 +1,1 @@
+Artículo 20. -El área de Financiamiento, posterior a la aprobación del Directorio de la CPCA, preparará y trasladará a la asesoría Jurídica del INFOCOOP, un expediente que contendrá toda la información necesaria para el inicio de la acción judicial. Asimismo, girará las instrucciones escritas, claras y precisas que estime conveniente.
