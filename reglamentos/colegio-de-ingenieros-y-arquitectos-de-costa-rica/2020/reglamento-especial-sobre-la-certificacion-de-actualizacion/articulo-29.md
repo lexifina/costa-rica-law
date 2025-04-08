@@ -1,1 +1,2 @@
-Artículo 29.—En el caso que un profesional no renueve la CAPDEE, tendrá que solicitar el trámite de acuerdo con los requisitos establecidos en el artículo 19 del presente reglamento.
+Artículo 29. Vigencia y derogatoria. El presente Reglamento empieza a regir a partir de su publicación en el Diario Oficial La Gaceta. Asimismo, deroga toda la normativa interna anterior a la promulgación que se le oponga.
+(Así modificada su numeración mediante sesión N° 18-24/25- G.E del 08 de abril de 2025, que lo traspasó del antiguo artículo 30 al artículo 29, ya que en dicha sesión se ordenó derogar el numeral 29 y correr la numeración del artículo 30)
