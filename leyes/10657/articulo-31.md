@@ -1,0 +1,1 @@
+ARTÍCULO 31- Procedimiento sancionatorio. Las responsabilidades serán declaradas de acuerdo con los principios constitucionales relativos al debido proceso y con observancia del procedimiento administrativo ordinario señalado en la Ley 6227, Ley General de la Administración Pública, del 2 de mayo de 1978, sin perjuicio de las medidas cautelares procedentes.

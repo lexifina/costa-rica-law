@@ -1,0 +1,2 @@
+ARTÍCULO 24- Contrato. Las personas físicas o jurídicas beneficiarias de recursos del Fondo de Fomento deberán constituir a favor del CCCA las garantías correspondientes a efectos de asegurar la correcta utilización de los fondos en la ejecución de los proyectos seleccionados. Para estos efectos deberá suscribirse un contrato de acuerdo con el reglamento respectivo en el cual se establecerán las condiciones financieras.
+El reglamento a esta ley fijará los mecanismos y auditorías para el control y evaluación de los beneficios dispuestos.

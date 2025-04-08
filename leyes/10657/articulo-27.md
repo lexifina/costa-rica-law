@@ -1,0 +1,6 @@
+ARTÍCULO 27- Inelegibilidad. El CCCA como entidad gubernamental no apoyará por medio de este Fondo de Fomento proyectos cuya finalidad sea fomentar o incitar al odio, ni cualquier forma de discriminación. Tampoco podrán beneficiarse del Fondo de Fomento:
+a) Las personas jurídicas en que figuren como socios o representantes funcionarios del Ministerio de Cultura y Juventud, del CCCA o sus parientes hasta el tercer grado de consanguinidad o afinidad.
+b) Las personas jurídicas a las que pertenezcan los miembros del Consejo Nacional de Cinematografía y Audiovisual o sus parientes hasta el tercer grado de consanguinidad o afinidad.
+c) Las personas jurídicas a las que pertenezcan los miembros del jurado seleccionador del Fondo de Fomento, en el caso de que se nombre un jurado o comité técnico para la asignación de fondos, o sus parientes hasta el tercer grado de consanguinidad o afinidad.
+d) Las personas físicas o jurídicas que se encuentren en mora con alguno de los programas de becas o fondos concursables del Ministerio de Cultura y Juventud, sus órganos desconcentrados o programas administrados por la Conferencia de Autoridades Cinematográficas y Audiovisuales Iberoamericanas.
+e) Las personas jurídicas cuyos representantes legales o socios con capital accionario tengan cualquiera de las condiciones descritas en los incisos anteriores.
