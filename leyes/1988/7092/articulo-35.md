@@ -12,7 +12,9 @@ sus funcionarios extranjeros domiciliados en el país, en razón de sus funcione
 d) (Derogado por el artículo 20 de la ley No. 7293 de 31 de marzo de 1992 y por el artículo 37 de la ley No. 7302 del 15 de julio de 1992).
 e) Las comisiones, cuando para su obtención sea necesario incurrir en gastos. En este caso la actividad se considerará como de carácter lucrativo.
 f) El monto total que reciben, por concepto de salario escolar, los trabajadores.
-(Así adicionado el inciso anterior por el artículo 1° de la Ley N° 8665 de 10 de setiembre de 2008).
+(Así adicionado el inciso anterior por el artículo 1° de la Ley N° 8665 de 10 de setiembre de 2008)
+g) Las ganancias recibidas por personas físicas o jurídicas, nacionales o extranjeras, vinculadas a la preproducción, producción y postproducción de obras cinematográficas y audiovisuales debidamente registrados en el Centro Costarricense de Cine y Audiovisual.
+(Así adicionado el inciso anterior por el artículo 32 inciso 1) de la Ley de Cinematografía y Audiovisual, N° 10657 del 10 de marzo del 2025)
 Los únicos ingresos no sujetos al impuesto sobre la renta de acuerdo con el presente título son los mencionados en los incisos a y d). Por ello, no se les hará ningún otro tipo de liberaciones, descuentos o excepciones contenidos en leyes dictadas con anterioridad a la fecha de vigencia de esta Ley.
 (Así reformado, este último párrafo, por el artículo 20 de la ley No. 7293 de 31 de marzo de 1992)
 (Nota: Existe evidente error en esta ley N° 7293 de 31 de marzo de 1992, Ley Reguladora de las Exoneraciones Vigentes, su derogatoria y excepciones, ya que por disposición del artículo 20, primero suprime los incisos a) y d) del presente artículo y de inmediato reforma su párrafo último, citando como vigentes los referidos incisos)
