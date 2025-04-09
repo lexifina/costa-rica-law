@@ -1,0 +1,1 @@
+Artículo 34.-Traslado para denuncia. El Coordinador de Inspección de Control Urbano de la Dirección de Desarrollo y Control Urbano deberá trasladar copia del expediente a la Dirección Jurídica Municipal para que se gestione la denuncia penal correspondiente. Paralelamente, se continuará con el proceso según el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 71.-Plazo de pago. Al ser un costo efectivo el propietario tendrá un año de plazo para el pago total, mismo que podrá realizar en cuotas o en un solo pago, previo trámite con el Departamento de Cobros.

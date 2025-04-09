@@ -1,0 +1,1 @@
+Artículo 38.-De la notificación del acto. Corresponde a la Dirección de Desarrollo y Control Urbano, notificar el Acto de Apertura al proceso de regularización, según lo indicado por el ordenamiento jurídico costarricense.

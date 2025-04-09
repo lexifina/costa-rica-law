@@ -1,0 +1,1 @@
+Artículo 72.-Incumplimiento de pago. En caso de incumplimiento del pago, el Departamento de Gestión de Cobro realizará el procedimiento en función del Reglamento para el procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de La Unión.

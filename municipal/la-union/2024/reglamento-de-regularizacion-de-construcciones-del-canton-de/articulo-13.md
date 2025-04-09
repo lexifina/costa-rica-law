@@ -1,0 +1,1 @@
+Artículo 13.-Expediente único. Toda actuación durante el trámite, desde la denuncia, inspección, hasta el otorgamiento de la licencia de construcción, de demolición o aplicación de otra sanción urbana se consignará en un solo expediente.

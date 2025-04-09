@@ -1,0 +1,5 @@
+Artículo 10.-Funciones del Departamento Ambiental.
+a. Coadyuvar al Departamento de Inspección de Control Urbano de la Dirección de Desarrollo y Control Urbano de la Municipalidad en el desarrollo de estrategias de vigilancia, inspección, fiscalización, y control que sirvan para la preservación, conservación y protección del ambiente y del desarrollo sustentable.
+b. Apoyar técnicamente en la defensa jurídica institucional, en materia de su competencia, las acciones de inconstitucionalidad, recursos de amparo, demandas, y/o entablar las gestiones o acciones ante instancias administrativas como el Tribunal Administrativo Ambiental (TAA), el Ministerio de Salud, SETENA, MINAE, MAG, así como ante las autoridades jurisdiccionales del Poder Judicial según se amerite y corresponda.
+c. Brindar colaboración a las dependencias municipales por medio de inspecciones, elaboración de informes u otros medios de colaboración solicitados, en materia ambiental.
+d. Realización de estudios técnicos que brinden el conocimiento para una mejor toma de decisiones en materia ambiental.

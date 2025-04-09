@@ -1,0 +1,1 @@
+Artículo 15.-Traslado expediente. Se deberá ejercer por la persona encargada de la Dirección de Desarrollo y Control Urbano un estricto control en el traslado de los expedientes, constando en el expediente la respectiva solicitud de traslado y remisión de este.

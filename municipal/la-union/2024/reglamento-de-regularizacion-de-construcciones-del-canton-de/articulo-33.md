@@ -1,0 +1,1 @@
+Artículo 33.-Desobediencia a la autoridad. En caso de que el administrado no acate estas órdenes en evidente confrontación con la autoridad Municipal, esta acudirá a los Tribunales de Justicia a efecto de interponer las denuncias correspondientes por el delito de desobediencia de acuerdo con el Código Penal.

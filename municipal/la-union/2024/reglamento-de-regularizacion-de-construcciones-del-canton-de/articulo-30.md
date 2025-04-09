@@ -1,0 +1,1 @@
+Artículo 30.-Acatamiento a las órdenes emitidas. Cuando se emitan órdenes escritas a los administrados, estas serán de acatamiento obligatorio, y en caso de no acatarse serán sancionados por desobediencia a la autoridad una vez que estén firmes y conformes al ordenamiento jurídico.

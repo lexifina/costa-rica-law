@@ -1,0 +1,1 @@
+Artículo 46.-Notificación de renuencia. La resolución indicada en el artículo anterior deberá notificarse en el lugar o medio designado por el propietario para notificaciones o en su defecto, aplicará lo dispuesto en la Ley de Notificaciones.

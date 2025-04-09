@@ -1,0 +1,1 @@
+Artículo 52.-Notificación de resolución final. Esta resolución final deberá notificarse en el lugar o medio designado por el propietario para recibir notificaciones o en su defecto, aplicará lo dispuesto por el ordenamiento jurídico costarricense.

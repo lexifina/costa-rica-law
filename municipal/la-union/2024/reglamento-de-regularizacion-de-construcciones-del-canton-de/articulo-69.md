@@ -1,0 +1,1 @@
+Artículo 69.-Del procedimiento para el cobro. Se realiza el oficio con el costo efectivo de los trabajos realizados por parte de la Municipalidad (Traslado de Cargos), se procede a notificar a los propietarios y se otorga el plazo estipulado para recursar.
