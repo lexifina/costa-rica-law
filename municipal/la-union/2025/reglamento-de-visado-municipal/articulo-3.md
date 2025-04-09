@@ -1,0 +1,1 @@
+Artículo 3°-Visado de planos. Corresponde a la Dirección de Desarrollo y Control Urbano, la implementación y dirección de los procedimientos correspondientes para el visado único digital; en la funcionalidad de un Ingeniero Topógrafo.

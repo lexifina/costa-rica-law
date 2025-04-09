@@ -1,0 +1,1 @@
+Artículo 19.-Inspección de campo. El funcionario a cargo del proceso de revisión realizará una visita al sitio, para determinar las condiciones del lote con respeto a lo indicado, elabora una minuta de los hallazgos.

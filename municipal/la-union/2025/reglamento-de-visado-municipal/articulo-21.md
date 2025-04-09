@@ -1,0 +1,1 @@
+Artículo 21.-Respuesta. Se emitirá la respuesta al trámite; si se aprueba el Visado se emitirá la documentación respectiva; en caso contrario se debe indicar los elementos que justifican el acto y las acciones de mejora. Se enviará al correo definido para notificaciones.

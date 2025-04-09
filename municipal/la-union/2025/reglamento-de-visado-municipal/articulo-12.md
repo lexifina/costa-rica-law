@@ -1,0 +1,1 @@
+Artículo 12.-Profesionales de la agrimensura. Al ser necesario que los trabajos de medidas y preparación de dichos planos sean efectuados por profesionales autorizados por el Colegio de Ingenieros Topógrafos de Costa Rica; es que el trámite de Visado para efectos de inscripción ante el Registro Inmobiliario Nacional debe ser tramitado por el profesional que realizó el plano.

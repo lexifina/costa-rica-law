@@ -1,0 +1,1 @@
+Artículo 18.-Condiciones de la finca a segregar. Dentro del análisis que se realiza la finca que se pretende fraccionar, segregar debe encontrarse al día con los impuestos municipales, no tener pendientes de cumplimiento procesos por permisos de construcción municipal, denuncias por afectaciones ambientales. (artículo 36 LP)

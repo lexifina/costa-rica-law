@@ -1,0 +1,1 @@
+Artículo 20.-Análisis. El Ingeniero Topógrafo a cargo de otorgar los visados, realizará el análisis de la información existente y del informe de campo y definirá la aprobación o rechazo de la solicitud.

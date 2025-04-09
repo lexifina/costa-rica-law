@@ -1,0 +1,1 @@
+Artículo 15.-Plazo de tramitación. Los planos que se presenten en la Municipalidad serán tramitados dentro de un plazo no mayor de diez días hábiles. En casos excepcionales, previa valoración y justificación, la Dirección de Desarrollo y Control Urbano, podrá ampliar el plazo indicado.

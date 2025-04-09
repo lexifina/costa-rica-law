@@ -1,0 +1,1 @@
+Artículo 10.-Debe aportar disponibilidad de agua, de la Institución o Asada que brinda el servicio. En los casos que el servicio lo brinde el Acueducto Municipal debe aportar el número de oficio de emisión de la disponibilidad de agua o capacidad hídrica.

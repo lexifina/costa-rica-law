@@ -1,0 +1,1 @@
+Artículo 22.-Subsanación. Una vez emitida la respuesta de rechazo el interesado tendrá un plazo de diez días hábiles para presentar las correcciones o ampliar la información; caso contrario se procede al cierre del trámite y a su archivo. Esto no es un impedimento para que se presente el trámite nuevamente.

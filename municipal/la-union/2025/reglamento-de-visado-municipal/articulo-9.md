@@ -1,0 +1,1 @@
+Artículo 9°-Cuando se solicite el Visado para efectos de inscripción ante el Registro Inmobiliario Nacional debe indicar el número de presentación, fecha de presentación y adjuntar croquis a escala donde se indiquen todas las porciones resultantes cuando corresponda.
