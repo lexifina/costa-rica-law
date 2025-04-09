@@ -1527,6 +1527,19 @@ Para el financiamiento de un segundo vehículo con recursos de la Junta, deben h
 . El contenido del material de divulgación será responsabilidad de la organización.
 . Las Organizaciones deben haber trabajado al menos un proyecto en dicha temática y demostrar el efecto obtenido con el mismo.
 2.1.3.6. En el caso de cuidados paliativos se atenderán proyectos y necesidades que busquen mejorar las condiciones de las unidades de conformidad con los lineamientos de atención que defina el Ministerio de Salud en cada periodo presupuestario.
+2.1.3.7. Fortalecimiento de capacidades en un grupo poblacional.
+. Se podrá incluir el pago de recurso humano necesario para la ejecución del proyecto (por ejemplo, un coordinador o administrador, profesionales, técnicos, personal capacitado que brinden atención directa) previa definición del alcance, el tiempo y el costo del proyecto y adjuntando un cronograma de actividades para cada recurso humano.
+. El personal anterior, se podrá contratar por planilla o servicios profesionales según necesidad de la organización y criterio de la profesional responsable de la valoración del proyecto.
+. En cuanto a salarios, se tomará como referencia los salarios establecidos por el Ministerio de Trabajo y Seguridad Social (no se apoyará el pago de pluses salariales).
+. Se podrá incluir el pago de servicios profesionales para cubrir el costo del contador requerido para la elaboración de la liquidación del proyecto.
+. Se podrá incluir el financiamiento de mobiliario, equipo, materiales e insumos necesarios para la ejecución del proyecto, previa definición del alcance, el tiempo y costo del proyecto.
+. En caso de ser necesario para el desarrollo del proyecto, se podrá incluir el pago total o parcial de alquileres de locales necesarios para dar la atención, durante la ejecución de este.
+. En caso de incluir gastos por concepto de viáticos dentro del país, deberá regirse por la Tabla de Viáticos aprobada por la Contraloría.
+. Deben estar enmarcados en un periodo no superior a un año, en caso de trascender, deberá ser formulado por etapas.
+. Las organizaciones deberán demostrar capacidad para la administración de recursos financieros del Estado, a través de sus estados financieros.
+. Las organizaciones deberán presentar documento de aval o refrendo de la entidad donde se va a ejecutar el proyecto.
+. Los recursos de los proyectos que sean aprobados se transferirán en tractos con el fin de dar seguimiento al mismo. Las organizaciones deberán remitir informes técnicos y liquidaciones del tracto ejecutado en la periodicidad especificada en el Manual de Criterios para la Distribución de Recursos. La presentación y aprobación de informes es requisito indispensable para el desembolso de los tractos subsiguientes.
+(Así adicionado el punto 2.1.3.7. Fortalecimiento de capacidades en un grupo poblacional anterior y publicado en La Gaceta N° 73 del 24 de abril de 2025)
 2.2. Disposiciones generales.
 2.2.1. Se financian proyectos únicamente a organizaciones e instituciones sin fines de lucro. No se tendrán en cuenta proyectos de entidades privadas que venden servicios a la CCSS.
 2.2.2. Cuando las organizaciones soliciten recursos para la adquisición de bienes o servicios y el monto de lo aprobado por la Junta no cubra la totalidad del costo, de previo a la aprobación del proyecto, deben aportar documentación que demuestre de manera indubitable, las fuentes de financiamiento para cubrir la diferencia.
@@ -1610,7 +1623,8 @@ a) Infraestructura: construcciones, adiciones, remodelaciones y mejoras.
 b) Mobiliario y equipo: reemplazo o nuevas adquisiciones.
 c) Capacitación, prevención, atención e investigación.
 d) Proyectos productivos y de autogestión.
-e) Capacitación, fortalecimiento de capacidades en un grupo poblacional.
+e) Fortalecimiento de capacidades en un grupo poblacional.
+(Así reformado el inciso anterior y publicado en La Gaceta N° 73 del 24 de abril de 2025)
 f) Compra de terreno
 g) Compra de inmueble
 h) Equipo médico especializado
@@ -1812,6 +1826,13 @@ Requisitos:
 4. Aval del Ente Rector y del Jerarca del sector, según corresponda.
 Las organizaciones privadas sin fines de lucro que perciben recursos del programa de apoyo a la gestión interesadas en recursos mediante este artículo deberán cumplir los requisitos establecidos en el apartado 2.2. Requisitos proyectos específicos.
 Para aquellas organizaciones que no reciben beneficios del programa de apoyo a la gestión, deberán cumplir con los requisitos de admisibilidad que se señalan en el apartado 1.4.1. de requisitos para ingreso al programa de apoyo a la gestión, si el proyecto es admitido se presentan los requisitos según el tipo de proyecto para la valoración técnica y documentos adicionales, en caso necesario.
+2.7.2.12. Fortalecimiento de capacidades en un grupo poblacional
+1. Presupuesto detallado que incluya como mínimo el alcance, tiempo y costo.
+2. Aval o refrendo de la entidad donde se va a ejecutar y/o con la cual se va a coordinar el proyecto, en caso de que corresponda.
+3. Si se va a desarrollar en varias zonas geográficas, los costos deben estar debidamente identificados por cada una de estas, así como el período de ejecución.
+4. Perfil de proyecto que defina objetivos, metas, indicadores de impacto y gestión, población meta, ubicación geográfica del proyecto, justificación, metodología, recursos humanos (perfil y tareas a desarrollar) y materiales, costos, tiempo y cronograma de actividades a desarrollar, así como la evaluación final del proyecto.
+5. En los casos que requiera el financiamiento para la adquisición de equipo, mobiliario, material didáctico, educativo y de apoyo, entre otros, deben presentar la factura proforma a nombre de la organización.
+(Así adicionado el inciso 2.7.2.12. Fortalecimiento de capacidades en un grupo poblacional anterior y publicado en La Gaceta N° 73 del 24 de abril de 2025)
 2.8. Requisitos previos a la transferencia de fondos para proyectos específicos.
 1. Contar con el expediente completo el cual debe contener al menos:
 ✓ Lista de condiciones. (Conforme con las reglas de lógica, justicia y conveniencia)
