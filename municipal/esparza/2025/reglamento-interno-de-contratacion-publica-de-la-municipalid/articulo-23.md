@@ -1,0 +1,6 @@
+Artículo 23.-Comisión de Recomendaciones de Adjudicación y Otros. La CRAO, en apoyo y validación de las actuaciones de la Proveeduría, tendrá las siguientes funciones:
+a) Recomendar al Proveedor, AM, CM y a el CCDRE la aprobación de los pliegos de licitación de todas las contrataciones dentro de sus rangos de acción, donaciones y autorizaciones de procedimientos de remate y subasta.
+b) Recomendar al Proveedor, AM, CM y a el CCDRE los actos de adjudicación de todas las contrataciones dentro de sus rangos de acción, donaciones y autorizaciones de procedimientos de remate y subasta.
+c) Recomendar las modificaciones y adiciones contractuales conforme con el derecho de modificación unilateral que le otorga la LGCP y el RLGCP, de las contrataciones amparadas a procedimientos de contratación.
+d) Conocer, revisar y aprobar la recomendación de resolución final para resolver los diferentes tipos de recursos que se interpongan contra el pliego de condiciones y al acto final de los diferentes procesos de contratación pública en observancia con el procedimiento que contempla el RLGCP.
+Todas las recomendaciones señaladas en los acápites anteriores, deberán tramitarlas los integrantes de la CRAO en el SDU.

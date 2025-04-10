@@ -1,0 +1,1 @@
+Artículo 5º-Ámbito de aplicación: Los procedimientos de contratación pública ordinarios, extraordinarios y especiales, así como las excepciones que se requieran tramitar en la ME y el CCDRE, serán gestionadas por la Proveeduría y a través de caja chica por el funcionario competente según la regulación existente.

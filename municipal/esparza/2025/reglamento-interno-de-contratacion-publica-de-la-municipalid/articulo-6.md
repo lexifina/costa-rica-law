@@ -1,0 +1,1 @@
+Artículo 6º-Cobertura: El presente Reglamento será de acatamiento obligatorio para todas las dependencias, funcionarios y las autoridades superiores de la ME y CCDRE, salvo norma de rango superior que se le llegue a contraponer.

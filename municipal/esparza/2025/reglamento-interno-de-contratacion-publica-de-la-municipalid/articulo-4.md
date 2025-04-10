@@ -1,0 +1,1 @@
+Artículo 4°-Deber de Probidad: Durante todo el proceso de un procedimiento de contratación pública, los funcionarios municipales y de CCDRE responsables de cada una de las etapas deben actuar en apego al Deber de Probidad, cumpliendo con los plazos establecidos en la legislación y en el cronograma de la contratación.

@@ -1,0 +1,3 @@
+Artículo 3º-Exclusión de adquisición de servicios utilizando el sistema: No será necesario que la Proveeduría trámite en el sistema digital unificado, en adelante SDU, la contratación de los siguientes servicios:
+a) Compra de combustible.
+b) Las compras realizadas con fondos de caja chica de conformidad con lo estipulado en el Artículo 3, inciso g) de la Ley General de Contratación Pública, en adelante LGCP y el Artículo 12 del RLGCP, sin embargo, a más tardar el día hábil siguiente de realizada la liquidación del respectivo vale de caja chica, la Tesorería por medio del funcionario designado para tal fin deberá ingresar la información de las compras realizadas en el SDU.

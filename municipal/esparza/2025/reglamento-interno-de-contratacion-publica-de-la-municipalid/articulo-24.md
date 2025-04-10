@@ -1,0 +1,1 @@
+Artículo 24.-Quórum Comisión de Recomendaciones de Adjudicación y Otros. El cuórum queda válidamente constituido por cuatro de los miembros que integran la CRAO. La CRAO será presidida a la Gestión Administrativa, en caso de ausencia, debe presidir el funcionario que esté presente de acuerdo con el orden de integración que se establece en el Artículo 22 de este Reglamento.

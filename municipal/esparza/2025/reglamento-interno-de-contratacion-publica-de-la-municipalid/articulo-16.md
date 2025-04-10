@@ -1,0 +1,1 @@
+Artículo 16.-Solicitud de estudios costo beneficio y evaluación de riesgo de la contratación. La unidad solicitante debe realizar un estudio de costo beneficio, así como una evaluación de riesgos, previo a iniciar un procedimiento de contratación pública para la adquisición de bienes y servicios.

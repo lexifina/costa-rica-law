@@ -1,0 +1,1 @@
+Artículo 38.-Del reajuste de precios. Todo reajuste de precios a los contratos suscritos por la Administración, deberán contener la correspondiente validación del administrador del contrato, de la Gestión Financiera y la autorización final de la Alcaldía Municipal.

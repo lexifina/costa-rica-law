@@ -1,0 +1,1 @@
+Artículo 45.-De la resolución de controversias. Si durante la ejecución de un contrato surgen una o varias controversias no susceptibles de solución por negociación directa entre las partes, dicha controversia podrá ser sometida a un comité de expertos sin que la ejecución del contrato se vea suspendida, esto de conformidad con lo que dispone la LGCP y el RLGCP.

@@ -1,0 +1,1 @@
+Artículo 51.-De la atención de asuntos relacionados. La Proveeduría en asocio con la Gestión Administrativa y la Gestión Jurídica, en lo previsto en el presente Reglamento, como órgano especializado en la materia de contratación pública tendrán plena competencia para resolver y tramitar los diferentes asuntos conforme a la LGCP y el RLGCP.
