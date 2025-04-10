@@ -1,0 +1,1 @@
+Artículo 51 º- Eventual inexistencia de contrato de mantenimiento. En caso de que no exista un contrato de rnantenimiento y reparación vigente. la GSA promoverá ante la DAF y sin mayor dilación. la contratación inmediata de esos servicios requeridos. en los términos contemplados por la Ley de Contratación Pública y su Reglamento.

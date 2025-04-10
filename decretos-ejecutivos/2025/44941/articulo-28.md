@@ -1,0 +1,1 @@
+Artículo 28º- Acreditación de funcionarios. Es deber de todo usuario del servicio de transporte en vehículos de la DGME, portar el carné que lo acredita corno funcionario institucional. El conductor debe verificar dicha portación, previo al inicio del viaje.

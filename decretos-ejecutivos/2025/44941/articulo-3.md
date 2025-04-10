@@ -1,0 +1,1 @@
+Artículo 3º- Inscripción de vehículos. Los vehículos de la DGME serán inscritos en el Registro Nacional, a nombre del Ministerio de Gobernación y Policía. para uso de la Dirección General de Migración y Extranjería.

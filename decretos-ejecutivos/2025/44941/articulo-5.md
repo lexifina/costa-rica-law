@@ -1,0 +1,1 @@
+Artículo 5 º- Prohibición de uso ele vehículos para fines personales. Los vehículos de la DGME son estrictamente de uso administrativo o policial. y no podrán ser empleados para asuntos personales o conducidos por personas no autorizadas por la GSA. de conformidad con el artículo 241 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

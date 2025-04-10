@@ -1,0 +1,1 @@
+Artículo 31 º- Obligación de respetar el lugar de destino. Ningún usuario podrá comprometer al operador de equipo móviI o servidor autorizado para conducir. para que lo transporte a lugares distintos a los previamente autorizados a la salida o gira. salvo permiso otorgado por la jefatura de la oficina a la cual está asignado el vehículo.

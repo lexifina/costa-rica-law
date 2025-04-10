@@ -1,0 +1,1 @@
+Artículo 44º- Coordinación de Revisión Técnica Vehicular. Las dependencias que tienen vehículos institucionales asignados. deberán coordinar con la GSA, con un mes de antelación al vencimiento de la revisión técnica vehicular. la renovación correspondiente.

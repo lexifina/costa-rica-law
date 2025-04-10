@@ -1,0 +1,1 @@
+Artículo 54º- De la responsabilidad del conductor. El funcionario que conduzca vehículos institucionales e incumpla las disposiciones del presente reglamento y demás normativa conexa. estará sujeto al procedimiento y régimen de responsabilidad establecido en la Ley General de la Administración Pública.

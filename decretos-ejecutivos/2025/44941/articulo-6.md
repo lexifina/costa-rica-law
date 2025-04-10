@@ -1,0 +1,2 @@
+Artículo 6°- Administración de vehículos. La GSA será la unidad responsable de la Administración. por el buen uso, control y mantenimiento de los vehículos de la DGME. bajo la supervisión directa de la persona que ocupe el cargo de Director Administrativo Financiero de la DGME.
+La asignación de vehículos estará a cargo de la GSA, bajo instrucción de la DGME. teniendo en cuenta el uso y conservación racional de los bienes y el erario. garantizando en todo momento el deber de probidad.

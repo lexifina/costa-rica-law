@@ -1,0 +1,1 @@
+Artículo 29°- Prohibición de fumado y otras sustancias. Ningún usuario podrá fumar o ingerir bebidas alcohólicas o sustancias psicotrópicas dentro de un vehículo institucional. salvo aquellos debidamente autorizados por un profesional de la salud.

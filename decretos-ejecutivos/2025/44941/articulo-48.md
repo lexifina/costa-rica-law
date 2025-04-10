@@ -1,0 +1,3 @@
+Artículo 48º- Del inventario de los vehículos, herramientas y otros bienes muebles.
+A efecto de verificar la existencia, localización y el estado físico y mecánico de los vehículos de la DGME, la dependencia que los tenga asignados, deberá realizar inventarios físicos cada tres meses. Los resultados deberán ser remitidos a la GSA, dentro de los primeros 5 días hábiles del mes en que se realiza, con el objetivo de que sean comprobados con los registros e inventarios que constan en esa unidad.
+Asimismo, la GSA podrá realizar un control aleatorio, para verificar la información proporcionada. En caso necesario, deberá proponer las medidas administrativas pertinentes para lograr la continuidad y eficiencia en los controles de los inventarios físicos.

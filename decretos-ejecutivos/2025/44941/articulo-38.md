@@ -1,0 +1,1 @@
+Artículo 38º- De la programación de las solicitudes de transporte. La programación planificación y distribución de las solicitudes de servicio, deberán ser atendidas en estricto orden cronológico de presentación, salvo en caso fortuito o de fuerza mayor comprobado, prioridades que serán establecidas por la Administración.

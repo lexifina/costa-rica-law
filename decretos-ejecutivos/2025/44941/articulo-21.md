@@ -1,0 +1,1 @@
+Artículo 21 °- Del carné de conducción. En caso de que la GSA considere apto al funcionario para la conducción de vehículos de la DGME, así se lo comunicará. con copia a su jefe inmediato y a la DGME y procederá a la entrega del carné de conducción correspondiente.

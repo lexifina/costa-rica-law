@@ -1,0 +1,3 @@
+Artículo 10º- De los distintivos y portación de placas. Los vehículos de la DGME deberán portar placas propias del Poder Ejecutivo. debidamente asignadas por el Registro Nacional. conforme a su respectiva inscripción.
+Sin embargo. previa autorización de la DGME, en razón de la naturaleza de las funciones de las personas que los utilizarán, los vehículos de uso policial podrán portar placas particulares. así como omitir marcas o rotulación visible que los distingan como automotores oficiales.
+El vehículo que haya sido designado corno policial y que posteriormente se pretenda utilizar en labores administrativas, de previo a su utilización deberá ser rotulado y se le deberá asignar placa del Poder Ejecutivo.

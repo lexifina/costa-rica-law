@@ -1,0 +1,1 @@
+Artículo 2 º- Alcances del Reglamento. Las disposiciones contenidas en este reglamento serán aplicables a todos los funcionarios administrativos y policiales que, en el desempeño de sus actividades laborales, conduzcan vehículos institucionales. utilicen los recursos de transporte de la DGME o ejerzan control y supervisión sobre los mismos.

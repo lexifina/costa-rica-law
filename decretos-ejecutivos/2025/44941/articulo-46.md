@@ -1,0 +1,1 @@
+Artículo 46º- Del control e inventario de los vehículos, herramientas y otros bienes muebles. Las dependencias que tengan vehículos institucionales asignados, deberán llevar un control e inventario detallado de las herramientas. llanta de repuesto u otras piezas complementarias con que cuente cada uno de los automotores a su cargo.

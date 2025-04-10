@@ -1,0 +1,1 @@
+Artículo 30º- Reporte de anomalías. Todo usuario de los vehículos institucionales. deberá reportar a la jefatura inmediata, con copia a la GSA, toda anomalía que se pueda presentar con el operador de equipo móvil o persona autorizada para conducir.

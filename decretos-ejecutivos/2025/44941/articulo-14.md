@@ -1,0 +1,2 @@
+Artículo 14°- Improcedencia de asignación permanente de vehículos. Ninguna oficina gozará de asignación indefinida de vehículos. salvo casos de urgencia. interés institucional, o razones de conveniencia u oportunidad debidamente justificados, en los que la DGMI: podrá hacer las excepciones necesarias por un período determinado.
+Excepcionalmente. el Director General podrá asignar de forma permanente vehículos administrativos a las unidades Staff de la DGME, cuando así sea requerido rara el adecuado desempeño de las funciones de dichas oficinas.

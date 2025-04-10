@@ -1,0 +1,1 @@
+Artículo 4º- Rotulación de vehículos. Todos los vehículos de la DGME llevarán distintivos visibles en sus costados, que los identifica claramente como de su propiedad y uso exclusivo. salvo aquellos que sean destinados para el ejercicio de labores policiales de inteligencia. con el fin de lograr el éxito de las operaciones.

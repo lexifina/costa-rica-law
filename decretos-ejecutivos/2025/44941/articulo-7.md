@@ -1,0 +1,1 @@
+Artículo 7º- Limitación geográfica del uso de vehículos. El uso de vehículos regulado en el presente reglamento, queda restringido al territorio nacional, salvo que exista autorización expresa de la DGME, para la salida temporal del país. previo cumplimiento de los requisitos y trámites exigidos por la legislación aplicable.
