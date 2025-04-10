@@ -1,1 +1,0 @@
-Artículo 7º -Para los efectos correspondientes, deben tenerse como reformados los artículos de todo reglamento en donde se indique "Ingeniero Calderero" o "Ingeniero Inspector", y en el presente "Reglamento de Calderas", para que se lea, correctamente: "Persona Profesional Inspectora de Calderas".
