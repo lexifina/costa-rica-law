@@ -1,0 +1,1 @@
+Artículo 23.- Resolución. La DPE comunicará al centro educativo la resolución del trámite de solicitud del subsidio según corresponda, en un plazo de hasta cincuenta días conforme a lo establecido en el artículo 256 de la Ley General de Administración Pública.

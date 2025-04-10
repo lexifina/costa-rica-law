@@ -1,0 +1,1 @@
+Artículo 35.- Monto del subsidio. La DPE definirá el monto del subsidio de acuerdo con la disponibilidad presupuestaria, para que las juntas realicen las contrataciones del personal y cumplan con sus responsabilidades obrero patronales de conformidad con el decreto N° 38249-MEP, Reglamento General de Juntas de Educación y Juntas Administrativas.

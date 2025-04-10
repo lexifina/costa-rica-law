@@ -1,0 +1,1 @@
+Artículo 24.- Liquidación presupuestaria por tipo de subsidio. Las juntas deberán realizar la liquidación de los recursos recibidos de la DPE, según ciclo presupuestario y por tipo de subsidio, ante la Dirección Regional de Educación correspondiente, según sus disposiciones. Así como mantener la información disponible en caso de ser solicitada por la DPE

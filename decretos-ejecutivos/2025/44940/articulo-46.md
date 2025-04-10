@@ -1,0 +1,1 @@
+Artículo 46.- Equipamiento de comedores nuevos. En centros educativos con infraestructura nueva, corresponde a la Dirección de Infraestructura Educativa (DIE) contemplar los insumos requeridos para el funcionamiento del servicio de comedor, de forma integral dentro del proceso de contratación y la entrega de la obra.

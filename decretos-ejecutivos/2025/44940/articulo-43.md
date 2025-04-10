@@ -1,0 +1,1 @@
+Artículo 43.- Del plaqueo de los activos adquiridos. La administración del centro educativo debe realizar el plaqueo del equipo y mobiliario adquirido con recursos otorgados por el PANEA, de acuerdo con el procedimiento establecido por el Departamento de Administración de Bienes de la Dirección de Proveeduría Institucional del MEP.

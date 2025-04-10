@@ -1,0 +1,1 @@
+Artículo 15.- Condiciones físicas. Para el ingreso al PANEA el centro educativo debe reunir las condiciones básicas de infraestructura y equipamiento, según los criterios técnicos de la DIE y la DPE, que permita garantizar el servicio de comedor estudiantil en la modalidad definida por el DAN.

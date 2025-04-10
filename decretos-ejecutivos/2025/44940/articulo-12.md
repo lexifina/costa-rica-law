@@ -1,0 +1,1 @@
+Artículo 12.- Transferencia de recursos económicos. De conformidad con el Decreto Ejecutivo N° 38170-MEP, del 30 de enero de 2014, denominado "Organización administrativa de las oficinas centrales del Ministerio de Educación Pública", la Dirección Financiera del MEP es la encargada de tramitar la transferencia de recursos económicos ante la Tesorería Nacional.

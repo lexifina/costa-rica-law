@@ -1,0 +1,1 @@
+Artículo 45.- De la administración de los insumos. La junta es responsable por la buena administración de los insumos adquiridos con el subsidio asignado por el PANEA, que incluye su mantenimiento preventivo y correctivo.

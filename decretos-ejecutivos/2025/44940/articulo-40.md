@@ -1,0 +1,1 @@
+Artículo 40.- De la asignación del subsidio. Para otorgar este subsidio del PANEA, se realiza un análisis integral que considera la disponibilidad presupuestaria anual en las partidas correspondientes, el orden de ingreso de la solicitud, el cumplimiento de requisitos y la valoración técnica del tipo de insumos solicitados y su pertinencia en el servicio de alimentación.

@@ -1,0 +1,2 @@
+Artículo 42.- Del proceso de compra de bienes. Para la adquisición de los insumos del comedor estudiantil, la junta debe aplicar el proceso de contratación que es definido por la Ley N° 9986, Ley General de Contratación Pública, del 27 de mayo de 2021- y los límites económicos de contratación pública establecidos por la CGR para el período correspondiente.
+Una vez adquiridos los bienes y recibidos conforme, la junta debe mantener resguardado en sus archivos el expediente de contratación.

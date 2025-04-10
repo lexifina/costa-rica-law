@@ -1,0 +1,1 @@
+Artículo 32.- Trámite de solicitud. La junta de educación o administrativa que requiera subsidio para la contratación de personal para las tareas en los comedores estudiantiles deberá enviar al DAN el formulario. "Solicitud de subsidio para persona trabajadora del comedor" vigente, el cual estará disponible en el sitio web del MEP.

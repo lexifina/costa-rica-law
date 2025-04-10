@@ -1,0 +1,1 @@
+Artículo 28.- Asignación ordinaria del subsidio. Una vez autorizada la asignación del subsidio para la compra de los alimentos, el PANEA gestionará mensualmente las transferencias de los recursos de manera ininterrumpida, según las fechas establecidas cada año por la Tesorería Nacional.

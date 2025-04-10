@@ -1,0 +1,1 @@
+Artículo 20.- Cantidad de beneficiarios. Para definir la cantidad de beneficiarios del programa, el PANEA utiliza los datos de matrícula de cada centro educativo registrada en el TCTE y reportada por el Departamento de Análisis Estadístico, de la Dirección de Planificación Institucional.

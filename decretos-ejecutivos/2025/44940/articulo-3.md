@@ -1,0 +1,1 @@
+Artículo 3.- Ejecución. El PANEA es ejecutado por el Departamento de Alimentación y Nutrición, en adelante DAN, perteneciente a la Dirección de Programas de Equidad (en adelante DPE) del MEP, en beneficio de la población estudiantil que cumpla con los requisitos estipulados en el capítulo VI de este reglamento.

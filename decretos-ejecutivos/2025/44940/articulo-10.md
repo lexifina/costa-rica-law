@@ -1,0 +1,1 @@
+Artículo 10.- De la disponibilidad presupuestaria. Con base en la disponibilidad presupuestaria anual, el PANEA asigna los recursos económicos de cada uno de los subsidios que otorga y valora las solicitudes presentadas por los centros educativos, de acuerdo con los principios de razonabilidad y proporcionalidad.

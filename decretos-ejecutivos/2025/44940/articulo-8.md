@@ -1,0 +1,1 @@
+Artículo 8.- Gestión. De conformidad con el Decreto Ejecutivo N° 38249-MEP, del 10 de febrero de 2014, denominado Reglamento General de Juntas de Educación y Juntas Administrativas, la gestión de los subsidios del PANEA y la prestación del servicio de alimentación, le corresponde a las juntas en coordinación con la dirección del centro educativo.

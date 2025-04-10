@@ -1,0 +1,1 @@
+Artículo 7.- Cobertura. El PANEA otorga un servicio de alimentación complementaria y nutritiva a la persona beneficiaria, matriculada en los centros educativos públicos de preescolar, primaria, secundaria y educación de personas adultas y que asiste de manera regular al sistema educativo.

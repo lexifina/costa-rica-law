@@ -1,0 +1,2 @@
+Artículo 77.- Del control de entrega de paquetes. La dirección del centro educativo deberá llevar un control mensual y custodiar esa documentación referente a la entrega de paquetes de alimentos a la población estudiantil que recibe el beneficio.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 74 del 25 de abril de 2025, página N° 2. Posteriormente mediante Fe de Erratas y publicada en el Alcance Digital N° 102 a La Gaceta N° 149 del 12 de agosto de 2025, se corrigió la Fe de Erratas publicada en La Gaceta N° 74 del 25 de abril de 2025, anteriormente indicada.)

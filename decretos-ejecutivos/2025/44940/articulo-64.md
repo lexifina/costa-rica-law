@@ -1,0 +1,5 @@
+Artículo 64.- Condiciones para la prestación del servicio de alimentación en esta modalidad. Para la preparación de alimentos en el comedor estudiantil se requiere de:
+a) Un espacio físico acondicionado para el desarrollo de las actividades de un servicio de alimentación como lo son el recibo, almacenamiento y preparación de alimentos, así como la atención a la población estudiantil que recibe el beneficio.
+b) La contratación del servicio de aprovisionamiento de alimentos.
+c) La contratación de personas servidoras del comedor estudiantil, de acuerdo con lo indicado en el artículo 30 de este reglamento, a fin de que los alimentos sean preparados, servidos y consumidos en el comedor estudiantil.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 74 del 25 de abril de 2025, página N° 2. Posteriormente mediante Fe de Erratas y publicada en el Alcance Digital N° 102 a La Gaceta N° 149 del 12 de agosto de 2025, se corrigió la Fe de Erratas publicada en La Gaceta N° 74 del 25 de abril de 2025, anteriormente indicada.)

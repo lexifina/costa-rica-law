@@ -1,0 +1,1 @@
+Artículo 6.- Propósito. El PANEA es un complemento al servicio educativo que tiene como objetivo coadyuvar con la permanencia de la población estudiantil en el sistema educativo, con énfasis en la población en situación de extrema pobreza, pobreza y vulnerabilidad.

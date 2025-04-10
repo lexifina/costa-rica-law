@@ -1,0 +1,1 @@
+Artículo 27.- Monto del subsidio. La metodología de costos empleada por la DPE para asignar el monto del subsidio a cada centro educativo estará determinada por el costo de la materia prima, la cantidad de matrícula, el tiempo de alimentación y la modalidad de prestación del servicio.
