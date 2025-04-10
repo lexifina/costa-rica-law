@@ -1,1 +1,0 @@
-Artículo 31. Del reajuste de precios. Todo reajuste de precios a los contratos suscritos por la Administración, deberán contener la correspondiente validación del AC y la GF, mismo que deberá ser autorizado por la AM.

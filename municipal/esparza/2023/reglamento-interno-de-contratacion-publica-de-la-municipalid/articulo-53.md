@@ -1,1 +1,0 @@
-Artículo 53. De la atención de asuntos relacionados. La PI en asocio con la GA y la Gestión Jurídica, en lo previsto en el presente Reglamento, como órgano especializado en la materia de contratación pública, tendrán plena competencia para resolver y tramitar los diferentes asuntos conforme a la LGCP y el RLGCP.

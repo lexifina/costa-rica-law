@@ -1,1 +1,0 @@
-Artículo 12. Vinculación con la Estrategia Institucional. La US debe indicar de manera expresa, en la decisión inicial el objetivo estratégico, el código, la partida presupuestaria y cualquier otra información que sea importante y que esté relacionada con lo que requieren contratar, además de establecer el plan al cual corresponde.

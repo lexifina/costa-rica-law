@@ -1,1 +1,0 @@
-Artículo 46. Del cuórum de la Comisión de Recomendaciones de Adjudicación y Otros. El cuórum queda válidamente constituido por cuatro de los miembros que integran la CRAO. La CRAO será presidida por el Proveedor Municipal, debe presidir el funcionario que esté presente de acuerdo con el orden de integración que se establece en el Articulo 45 anterior.

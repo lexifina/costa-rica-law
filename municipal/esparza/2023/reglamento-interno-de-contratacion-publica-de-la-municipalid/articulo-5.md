@@ -1,1 +1,0 @@
-Artículo 5. Competencias. La PI, dependencia adscrita a la GA de la ME, conforme se establece en LGCP y el RLGCP, constituye en exclusiva la unidad competente para realizar los trámites de contratación pública para la adquisición de los bienes y servicios y de obra pública que requiera la ME y el CCDRE; incluyendo aquellos que se tramiten por caja chica.

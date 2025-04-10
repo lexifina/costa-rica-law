@@ -1,6 +1,0 @@
-Artículo 45. De las funciones de la Comisión de Recomendaciones de Adjudicación y Otros. La CRAO, en apoyo y validación de las actuaciones de la PI, tendrá las siguientes funciones:
-a) Recomendar a la AM, CM y a el CCDRE la aprobación de los carteles de licitación de todas las contrataciones dentro de sus rangos de acción, donaciones y autorizaciones de procedimientos de remate y subasta.
-b) Recomendar al CM, AM y a el CCDRE los actos de adjudicación de todas las contrataciones dentro de sus rangos de acción, donaciones y autorizaciones de procedimientos de remate y subasta.
-c) Recomendar en el caso que así lo requieran las diferentes instancias adjudicatarias las modificaciones y adiciones contractuales conforme con el derecho de modificación unilateral que le otorga la LGCP y el RLGCP, de las contrataciones amparadas a procedimientos de contratación.
-d) Conocer, revisar y aprobar la recomendación de resolución final para resolver los diferentes tipos de recursos que se interpongan contra el pliego de condiciones y al acto final de los diferentes procesos de contratación pública en observancia con el procedimiento que contempla el RLGCP.
-Todas las recomendaciones señaladas en los acápites anteriores, deberán tramitarlas los integrantes de la Comisión de Contratación Publica en el SDU.
