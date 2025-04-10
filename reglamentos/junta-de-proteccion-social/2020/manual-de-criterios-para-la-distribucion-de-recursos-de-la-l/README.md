@@ -18,3 +18,4 @@ Manual de criterios para la distribución de recursos de la Ley N° 8718 (Artíc
 | 3 | 2022-12-08 | Reglamento 63 (2022-12-08) |
 | 4 | 2023-04-11 | Reglamento 19 (2023-04-11) |
 | 5 | 2025-04-09 | Reglamento 0 (2025-04-09) |
+| 6 | 2025-04-10 | Reglamento 22 (2025-04-10) |

@@ -1923,8 +1923,9 @@ Las organizaciones que reciben fondos de la Junta sean por transferencia o giro 
 Para formalizar la firma, es deber de las organizaciones realizar la gestión ante la Asesoría Jurídica, a partir de la tercera semana del mes de noviembre de cada año y hasta el 31 de marzo del año siguiente. En casos de excepción dicho plazo podrá ser prorrogado por la Gerencia de Desarrollo Social, previa solicitud del interesado antes de la fecha de vencimiento.
 El representante legal, para firmar el convenio debe cumplir con los siguientes requisitos:
 . Certificación literal de la personería jurídica vigente.
-. Estar al día en el pago de las cuotas obrero-patronales, condición que será verificada
-por la Asesoría Jurídica en la página WEB de la CCSS.
+. Estar al día en el pago de las cuotas obrero-patronales, condición que será verificada por la Asesoría Jurídica en la página WEB de la CCSS.
+Si la información para verificar la vigencia de los anteriores requisitos se encuentra en bases de datos de acceso público, la Junta, por medio de la Asesoría Jurídica y el Departamento de Gestión Social, verificará lo correspondiente. En caso contrario, la organización debe comprobar su vigencia.
+(Así adicionado el párrafo anterior en sesión N° 22 del 10 de abril de 2025)
 3. Sobre el Uso de los Recursos.
 El uso correcto de los recursos será fiscalizado por la UFRT, para ello las organizaciones deben observar y atender lo siguiente:
 1) Toda organización beneficiaria de los recursos institucionales deberá permitir a cualquier dependencia de la Junta de Protección Social tener acceso a la documentación financiera, los libros legales y la demás información que revele aspectos sobre la administración y uso de los bienes y recursos otorgados por la Institución, en apego al destino que le dio origen.
