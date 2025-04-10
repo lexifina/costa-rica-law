@@ -1,0 +1,14 @@
+Circular No. 52-2025
+Asunto: Modificación de la circular N° 41-2020 "Procedimiento para disponer de los vehículos a la orden de los Juzgados Penales cuyas causas se encuentran fenecidas y mantengan gravámenes ordenados por Juzgados Civiles".
+A TODAS LAS AUTORIDADES PENALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 17-2025 celebrada el 4 de marzo de 2025, artículo LVII, acordó modificar la circular N° 41-2020 del 11 de marzo del 2020, denominada "Procedimiento para disponer de los vehículos a la orden de los Juzgados Penales cuyas causas se encuentran fenecidas y mantengan gravámenes ordenados por Juzgados Civiles" para que en adelante se lea de la siguiente manera:
+I. En los supuestos de devolución de bienes decomisados no sujetos a comiso del artículo 490 del Código Procesal Penal sobre los cuales registralmente pese un embargo por un proceso civil o de cobro judicial, no se deberá poner a la orden de los Juzgados de Cobro Judicial o Juzgados Civiles el bien, pues esta figura procesal no existe en la normativa civil para la ejecución de obligaciones.
+II. Consecuentemente, la devolución de un bien decomisado no dependerá del decreto de embargo de lo civil o de cobro judicial, pues en estos casos la ejecución del embargo civil depende exclusivamente de la parte embargante de lo civil, quien asegura su derecho por medio de la publicidad registral o por medio del embargo material practicado por la persona ejecutora.
+III. El bien embargado por deuda civil o comercial, no estará a la orden del Juzgado Civil o Cobratorio, sino a disposición de la parte embargante, el cual según el artículo 154.2 del Código Procesal Civil, se tendrá por practicado con la anotación electrónica, siendo que la práctica material del embargo es optativa a solicitud del ejecutante, quien cuenta con la publicidad registral para que se proceda con la fase de ejecución a fin de hacer efectiva la cancelación de la obligación.
+IV. Para tal efecto, solamente se deberá de comunicar por los medios oficiales autorizados al Juzgado de Cobro Judicial o al Juzgado Civil según corresponda, sobre la devolución del bien decomisado a quien corresponda según el artículo 490 del Código Procesal Penal, con el fin de que el Juzgado de Cobro Judicial o de Civil pongan en conocimiento a la parte interesada la devolución del bien decomisado para lo que tenga por gestionar el embargante del proceso civil o de cobro judicial.
+V. Para estos fines, esa resolución del Juzgado de Cobro Judicial y Civil tendrán prioridad en los mismos términos que lo establece la circular 21-2024 del Consejo Superior sobre Prioridades de Resolución de Cobro Judicial.
+Esta circular deja sin efecto las circulares 41-2020, 56-2021 y 87-2021.
+Rige a partir de su publicación.
+Publíquese una vez en el Boletín Judicial.
+San José, 20 de marzo de 2025
