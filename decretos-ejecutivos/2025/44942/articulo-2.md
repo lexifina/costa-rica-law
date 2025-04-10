@@ -1,0 +1,1 @@
+Artículo 2º-Colaboración. Las instituciones del Sector Público y del Sector Energético, dentro de su marco legal respectivo, podrán colaborar con el evento "Encuentro de la Asociación Iberoamericana de Entidades Reguladoras de la Energía (ÁRIÁE) 2025 "Liderando el Cambio: Innovación y Descarbonización como Pilar del Desarrollo" mediante charlas o asistencia técnica.
