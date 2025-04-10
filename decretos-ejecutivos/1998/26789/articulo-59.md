@@ -1,1 +1,0 @@
-Artículo 59.—Las calderas que han estado apagadas, por tratarse de calderas de reserva o aquellas que han estado fuera de servicio durante periodos prolongados, deberán ser inspeccionadas cuidadosamente tanto interior como exteriormente, para prevenir la corrosión y para asegurar el buen funcionamiento de sus accesorios dispositivos de seguridad y controles.

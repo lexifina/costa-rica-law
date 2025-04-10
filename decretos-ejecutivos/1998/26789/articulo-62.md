@@ -1,1 +1,0 @@
-Artículo 62.—Una inspección externa deberá incluir el examen de la caldera, sus accesorios y conexiones mientras la caldera está en servicio. Esta es una forma de examen que se hace inicialmente para observar las prácticas de operación y mantenimiento.

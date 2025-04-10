@@ -1,1 +1,0 @@
-Artículo 35.—No se permitirá la operación de una caldera a una presión mayor que la presión máxima de trabajo indicada en los Informes y Tarjetas de Revisión. Cualquier cambio en la presión máxima de trabajo requerirá una nueva Inspección en la que se darán las razones para dicho cambio.

@@ -1,2 +1,0 @@
-Artículo 15. -Una caldera que se haya notificado fuera de servicio, no podrá usarse de nuevo hasta que se autorice su operación. El Usuario deberá solicitar al Ministerio de Salud, el Permiso de Renovación, acompañando la solicitud con un Informe de Inspección realizado por la Persona Profesional Inspectora de Calderas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

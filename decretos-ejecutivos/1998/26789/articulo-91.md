@@ -1,1 +1,0 @@
-Artículo 91.—El interior de los tubos deberá ser examinado para determinar incrustaciones y sedimentos. Los extremos de los tubos deberán ser examinados para determinar el desgaste del metal, fragilidad y acortamiento en los tubos.

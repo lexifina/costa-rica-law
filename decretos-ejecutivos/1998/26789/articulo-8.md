@@ -1,2 +1,0 @@
-Artículo 8°-El Ministerio de Salud otorgará el Permiso de Operación con base en el estudio del informe rendido por la Persona Profesional Inspectora de Calderas, incluyendo la visita de alguno de sus funcionarios, para verificar la adecuada instalación de la caldera o calderas acorde a la normativa vigente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

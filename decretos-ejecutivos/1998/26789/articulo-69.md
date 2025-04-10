@@ -1,1 +1,0 @@
-Artículo 69.—La disposición de las conexiones de las líneas individuales de suministro de las calderas al cabezal, deberán observar especialmente para ver cualquier cambio de posición con respecto a caldera, debido a asentamientos y otras causas no localizadas por esfuerzos inconvenientes en la tubería.

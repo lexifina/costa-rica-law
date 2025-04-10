@@ -1,1 +1,0 @@
-Artículo 103.—Se deberá realizar un examen de la válvula o válvulas de seguridad, sus conexiones a la caldera, tubería de escape, drenajes y soportes. Todos los orificios deberán estar libres y limpios. Las válvulas se deberán probar de acuerdo con las instrucciones dadas para cada planta en particular.

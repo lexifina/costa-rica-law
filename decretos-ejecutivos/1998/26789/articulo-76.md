@@ -1,2 +1,0 @@
-Artículo 76.—El Persona Profesional Inspectora de Calderas(*) deberá informar del mantenimiento inadecuado del local. No se deberán almacenar materiales para reparación o mantenimiento de manera que puedan obstruir el acceso adecuado a la unidad generadora de vapor, el conjunto o el equipo combustión.
-(*) (Así modificada su denominación por el artículo 7° del Reglamento de Calderas aprobado mediante decreto ejecutivo N° 40306 del 13 de febrero del 2017. Anteriormente se indicaba: “Ingeniero Inspector”.)

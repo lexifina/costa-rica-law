@@ -1,1 +1,0 @@
-Artículo 106.—El usuario deberá realizar todos los tratamientos químicos que sean necesarios a efecto de que las calderas se encuentren en las mejores condiciones de operación y se prevengan emergencias tecnológicas por este concepto.

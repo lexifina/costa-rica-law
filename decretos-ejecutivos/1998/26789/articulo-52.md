@@ -1,2 +1,0 @@
-Artículo 52. -Si se presentara una situación dudosa o anormal de la caldera, el Usuario está obligado a comunicarlo la Persona Profesional Inspectora en Calderas para que se realice una Inspección Extraordinaria, con el fin de determinar con exactitud la falla y realizar la corrección necesaria. La Persona Profesional Inspectora en Calderas está obligado a presentar un nuevo Informe al Ministerio de Salud, con todos los detalles, anotándolos también en la Bitácora.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

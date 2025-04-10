@@ -1,2 +1,0 @@
-Artículo 114. -Toda Persona Profesional Inspectora en Calderas, que ejerza como Inspectora Autorizada, está en la obligación de dar aviso por escrito al Ministerio de Salud sobre la existencia de calderas o conjunto de ellas sin los respectivos permisos, dentro de los tres días naturales siguientes a la fecha en la que tuvo conocimiento de ello.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

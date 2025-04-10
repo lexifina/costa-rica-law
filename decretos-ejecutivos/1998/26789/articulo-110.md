@@ -1,2 +1,0 @@
-Artículo 110. -Toda reparación debe conservar, en la medida de las posibilidades, las características de identificación de fábrica indicadas en el cuerpo de la caldera. No obstante, si tales indicaciones deben eliminarse para realizar la reparación, el propietario del taller se debe poner en contacto con el Ministerio de Salud, a efecto de conservar y asignar las características a su nuevo Usuario.
-(Así reformado pro el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

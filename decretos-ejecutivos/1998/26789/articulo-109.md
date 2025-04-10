@@ -1,1 +1,0 @@
-Artículo 109.—Toda reparación efectuada en dichos talleres deberá realizarse de conformidad con las indicaciones del fabricante o bajo las normas de seguridad establecidas por la Sociedad Americana de Ingenieros Mecánicos (ASME).

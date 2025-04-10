@@ -1,1 +1,0 @@
-Artículo 78.—La inspección deberá cubrir el estado general de caldera, sobrecalentador, recalentador y economizador con sus accesorios, si existen, así como las conexiones de vapor, purgas y conexiones de agua con sus accesorios y las válvulas según corresponda.

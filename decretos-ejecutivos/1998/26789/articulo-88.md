@@ -1,1 +1,0 @@
-Artículo 88.—Deberá examinarse el estado en que se encuentra internamente la tubería de alimentación y el canal bajo ella, si es que existe, para verificar que sus orificios y perforaciones están libres de sedimentos. Todas las uniones interiores deberán ser examinadas para determinar conexiones flojas y empaques dañados o perdidos.

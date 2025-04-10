@@ -1,2 +1,0 @@
-Artículo 117. -Tanto el Ministerio de Salud, como la Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social, deben velar por el fiel cumplimiento de las disposiciones del presente decreto reglamentario, contando para ello, cuando fuere necesario y procedente, con la colaboración de otras autoridades, tales como las de policía, fiscales y sanitarias; así como con la colaboración de otros órganos del Estado en alguna forma relacionados con los problemas a resolver.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

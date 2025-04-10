@@ -1,1 +1,0 @@
-Artículo 40.—Para disminuir el peligro de incendios en el área de las calderas, no se permitirá el almacenamiento de materiales combustibles, inflamables o explosivas en los cuartos o comportamientos de calderas, ni en los pasadizos cercanos.

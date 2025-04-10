@@ -1,2 +1,0 @@
-Artículo 45.—Queda prohibido que el Persona Profesional Inspectora de Calderas(*) realice las inspecciones a las calderas de la empresa en la que labora, o aquellas calderas que hayan pasado por su taller de mantenimiento y reparación.
-(*) (Así modificada su denominación por el artículo 7° del Reglamento de Calderas aprobado mediante decreto ejecutivo N° 40306 del 13 de febrero del 2017. Anteriormente se indicaba: “Ingeniero Inspector”.)

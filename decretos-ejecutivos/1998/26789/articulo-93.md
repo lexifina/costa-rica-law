@@ -1,1 +1,0 @@
-Artículo 93.—Se dará particular atención a los extremos del tubo, a las placas de los tubos y domos. El inspector notará cualquier corrosión o agrietamiento en las placas de los tubos, extremos de los mismos, fogones o domos, señales de fugas en los tubos, adelgazamiento excesivo de los tubos por repetido rolado y la existencia de fragmentos metálicos dentro de los domos.

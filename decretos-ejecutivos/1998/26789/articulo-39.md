@@ -1,1 +1,0 @@
-Artículo 39.—Los dispositivos de las calderas, tales como niveles, columnas de aguas, controles de nivel y de presión, conexiones de los manómetros, etc., serán probados a intervalos regulares, y drenadas sus tuberías para asegurarse de que están libres de sedimentos que impidan su correcto funcionamiento.

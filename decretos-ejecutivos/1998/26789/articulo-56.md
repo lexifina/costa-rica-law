@@ -1,1 +1,0 @@
-Artículo 56.—El informe y registro indicado en el Capítulo Sexto deben hacerse de una manera uniforme tal que cualquier cambio de condición pueda ser notado con precisión y comparado, especialmente con referencia al espesor de la incrustación, corrosión, erosión, grietas y otras condiciones no comunes, tanto internas como externas.

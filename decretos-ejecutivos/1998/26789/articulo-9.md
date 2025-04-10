@@ -1,2 +1,0 @@
-Artículo 9°-No se permitirá la Instalación ni la operación de ninguna caldera en el país, a menos que haya sido construida con materiales y bajo las normas señaladas por la Sociedad Americana de Ingenieros Mecánicos, (American Society of Mechanical Engineers), ASME (por sus siglas en inglés), o por las normas del país de origen, a criterio de la Persona Profesional Inspectora de calderas, lo cual debe ser considerado en el informe indicado en d artículo 8° anterior.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

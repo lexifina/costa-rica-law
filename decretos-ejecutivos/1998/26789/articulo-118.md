@@ -1,1 +1,0 @@
-Artículo 118.—Cuando de conformidad con las disposiciones del presente Reglamento se ordene la suspensión del funcionamiento de una caldera o conjunto de ellas, el usuario responderá en los mismos términos en él prescritos, sin perjuicio, para casos parecidos de aplicación que puedan establecerse en otro cuerpo normativo nacional, para el caso del incumplimiento.

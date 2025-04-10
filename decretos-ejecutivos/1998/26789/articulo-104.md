@@ -1,1 +1,0 @@
-Artículo 104.—Cualquier fuga de vapor o agua deberá ser corregida. Si la fuga proviene de la envolvente, domo o un tubo o junta de tubería, se deber (sic) parar de inmediato la caldera para su investigación.

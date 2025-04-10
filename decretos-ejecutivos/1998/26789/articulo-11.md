@@ -1,2 +1,0 @@
-Artículo 11. -En caso de extravío de la placa oficial, el Ministerio de Salud, con el número de la caldera, procederá a sustituirla por números de no menos de un centímetro, estampados en parte visible y permanente. La alteración, cambio o falta del número oficial, dará motivo para clausurar de inmediato la instalación y funcionamiento de la caldera.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

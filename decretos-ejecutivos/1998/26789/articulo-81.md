@@ -1,1 +1,0 @@
-Artículo 81.—Luego de la inspección interna del lado del agua y habiéndose determinado sedimentos e incrustaciones, todas estas superficies si fuera necesario se limpiarán según lo defina el inspector, ya sea por lavado, por medios mecánicos o por métodos químicos para proporcionar una superficie de metal limpio.

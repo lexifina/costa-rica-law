@@ -1,2 +1,0 @@
-Artículo 121. -Cuando exista conflicto de intereses, los funcionarios de la Dirección de Protección al Ambiente Humano del Ministerio de Salud, deben inhibirse de participar en la toma de decisiones que involucren aspectos relacionados con lo aquí regulado, por lo cual, si se incumpliera con esta disposición, se estará a lo dispuesto por la Ley General de la Administración Pública, sin perjuicio de las sanciones penales y civiles que sean aplicables.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

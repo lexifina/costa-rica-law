@@ -1,1 +1,0 @@
-Artículo 100.—Cuando haya alguna interrogante o duda acerca de la magnitud de una falla encontrada en una caldera, el inspector, con el fin de lograr una decisión lo más acertada posible acerca de la peligrosidad de dicha falla, deberá ordenar la aplicación de pruebas hidrostáticas de acuerdo con las previsiones del Código.

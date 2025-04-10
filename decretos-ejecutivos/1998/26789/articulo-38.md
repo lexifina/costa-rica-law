@@ -1,1 +1,0 @@
-Artículo 38.—Se permite el uso de desincrustadores mecánicos, los que se podrán usar tanto en las calderas de tubos de agua, como en las calderas de tubos de humos, aunque su empleo se debe limitar a lo mínimo posible, prefiriendo siempre el uso del tratamiento químico al agua de la caldera y al combustible.
