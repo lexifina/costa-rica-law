@@ -1,1 +1,0 @@
-Artículo 20.-Sobre los faltantes de dinero. Si realizado el arqueo, se determinara un faltante de dinero, éste deberá reponerse de inmediato al fondo fijo y si fuera un sobrante de dinero deberá depositarse a la cuenta general de la Municipalidad de Jiménez, una vez concluido el arqueo.

@@ -1,4 +1,0 @@
-Artículo 29.-Funciones de Alcaldía. La Alcaldía como máxima dependencia administrativa tendrá a su cargo las siguientes funciones relacionadas con procesos de contratación utilizando los fondos de caja chica:
-a. Procurar que todos los funcionarios de la institución que tengan relación directa o indirecta con los procesos de contratación de bienes, servicios y obras por medio de caja chica tengan acceso a la capacitación, acompañamiento y asesoría en materia de contratación pública.
-b. Solicitar el desarrollo de investigaciones preliminares o los procedimientos disciplinarios correspondiente a efectos de determinar la existencia de una eventual responsabilidad por parte de los funcionarios frente a incumplimientos de las obligaciones durante los procesos de compra por medio de la caja chica.
-c. Cualquier otra derivada de la Ley General de Contratación Pública, N° 9986, su Reglamento y cualquier otra normativa aplicable.
