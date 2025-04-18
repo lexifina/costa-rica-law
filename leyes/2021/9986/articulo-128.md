@@ -19,6 +19,11 @@ iii) Para propiciar el desarrollo regional, la innovación, la inclusión, la so
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 10659 del 10 de marzo del 2025, "Reforma Ley General de Contratación Pública, con el fin de equiparar la participación de Cooperativas con las PYMES en materia de contratación pública")
 iv) Para la profesionalización, certificación de idoneidad y la capacitación continua del personal dedicado a la contratación pública y acreditación de las unidades de compra.
 d) Emitir los lineamientos para los sujetos privados, conforme a lo previsto en el artículo 1 de esta ley, que serán de acatamiento obligatorio para ellos.
-e) Diseñar las políticas públicas para garantizar la participación ciudadana efectiva en los procedimientos de compras de bienes y servicios conforme a la presente ley.
-f) Emitir las fórmulas para el mantenimiento del equilibrio financiero de los contratos.
-g) Las demás funciones establecidas en la presente ley.
+e) Confeccionar y publicar, en los medios de comunicación oficiales, el listado de tecnologías y metodologías que cumplen con los criterios establecidos en el artículo 22 bis de la presente ley, que permitan a las administraciones contratantes instruirse sobre las tecnologías existentes, sus costos y características, para lo cual podrán consultar a colegios profesionales, universidades, cámaras empresariales y cualquier otra organización experta en materia de obras públicas, metodologías y tecnología.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para la mejora tecnológica y metodológica de las contrataciones en materia de obra pública, N° 10654 del 10 de marzo de 2025)
+f) Diseñar las políticas públicas para garantizar la participación ciudadana efectiva en los procedimientos de compras de bienes y servicios conforme a la presente ley.
+(Así modificada la numeración del inciso anterior por el artículo 2° de la Ley para la mejora tecnológica y metodológica de las contrataciones en materia de obra pública, N° 10654 del 10 de marzo de 2025, que lo traspaso del antiguo inciso e) al inciso f))
+g) Emitir las fórmulas para el mantenimiento del equilibrio financiero de los contratos.
+(Así modificada la numeración del inciso anterior por el artículo 2° de la Ley para la mejora tecnológica y metodológica de las contrataciones en materia de obra pública, N° 10654 del 10 de marzo de 2025, que lo traspaso del antiguo inciso f) al inciso g))
+h) Las demás funciones establecidas en la presente ley.
+(Así modificada la numeración del inciso anterior por el artículo 2° de la Ley para la mejora tecnológica y metodológica de las contrataciones en materia de obra pública, N° 10654 del 10 de marzo de 2025, que lo traspaso del antiguo inciso g) al inciso h))
