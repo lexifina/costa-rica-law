@@ -1,0 +1,1 @@
+TRANSITORIO I- La Autoridad de Contratación Pública deberá publicar el listado de las tecnologías y metodologías, según los criterios establecidos en el inciso e) del artículo 128 de Ley 9986, Ley General de Contratación Pública, de 27 de mayo de 2021, seis meses después de la entrada en vigencia de la presente ley.
