@@ -1,2 +1,1 @@
-Artículo 29: De los solicitantes de pensión que no estén asegurados
-Cuando el Área de Salud detecte que un solicitante no posee seguro de salud, procederá de inmediato a gestionar el Seguro por el Estado, por un período de un año.
+Artículo 29: De los solicitantes de pensión que no estén asegurados. Cuando el Área de Salud detecte que un solicitante no posee seguro de salud, procederá de inmediato a gestionar el Seguro por el Estado, por un período de un año.

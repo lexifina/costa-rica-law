@@ -1,2 +1,1 @@
-Artículo 35: De la emisión del criterio por la Comisión Calificadora del Estado de Invalidez del RNC
-A la Comisión Calificadora del Estado de Invalidez para el RNC, le corresponderá emitir el criterio final, tanto para la primera como para la segunda instancia, con fundamento en lo establecido en el artículo 6 inciso b. del Reglamento del RNC.
+Artículo 35: De la emisión del criterio por la Comisión Calificadora del Estado de Invalidez del RNC. A la Comisión Calificadora del Estado de Invalidez para el RNC, le corresponderá emitir el criterio final, tanto para la primera como para la segunda instancia, con fundamento en lo establecido en el artículo 6 inciso b. del Reglamento del RNC.

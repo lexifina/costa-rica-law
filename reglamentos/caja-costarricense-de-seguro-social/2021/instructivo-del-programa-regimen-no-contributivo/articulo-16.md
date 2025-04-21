@@ -1,5 +1,4 @@
-ARTICULO 16.- De la Resolución Administrativa
-Con base en lo indicado en la recomendación final (denegatoria o aprobación) se deberá elaborar en todos los casos, una Resolución Administrativa, en la que debe considerarse lo siguiente:
+ARTICULO 16.- De la Resolución Administrativa. Con base en lo indicado en la recomendación final (denegatoria o aprobación) se deberá elaborar en todos los casos, una Resolución Administrativa, en la que debe considerarse lo siguiente:
 a. La Resolución será firmada por la Jefatura Administrativa de la dependencia que tuvo a cargo el trámite de la solicitud de pensión.
 b. La Jefatura Administrativa debe verificar que la resolución cuente con todos los elementos que sustenten su validez, según las disposiciones contenidas en el Reglamento del RNC, el presente Instructivo y supletoriamente en la Ley General de la Administración Pública.
 c. En el caso de las resoluciones donde se aprueba la solicitud de pensión, éstas deberán contener al menos: datos de la persona solicitante, cumplimiento de los requisitos reglamentarios, fecha de vigencia y monto de la pensión, entidad de pago, persona a quien se endosará la pensión (si corresponde), motivos de suspensión o cancelación del beneficio.

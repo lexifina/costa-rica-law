@@ -1,4 +1,3 @@
-Artículo 32: De los ausentes a cita médica y recomendación
-En caso de que el solicitante de pensión no se presente a la cita médica, el médico indicará en el dictamen, en el apartado de observaciones, la leyenda "Ausente a cita médica".
+Artículo 32: De los ausentes a cita médica y recomendación. En caso de que el solicitante de pensión no se presente a la cita médica, el médico indicará en el dictamen, en el apartado de observaciones, la leyenda “Ausente a cita médica”.
 La sucursal deberá corroborar que conste en el expediente la correcta comunicación de las citas por parte del Área de Salud. En caso contrario, se debe devolver el expediente al Área de Salud para el trámite correspondiente.
 En la resolución, la dependencia administrativa deberá indicar que no fue posible determinar si el solicitante se encuentra inválido, en virtud de que no se presentó a la cita médica correspondiente y no fue posible su valoración.

@@ -1,3 +1,2 @@
-ARTICULO 4 - Condición de pobreza acreditada en la ficha del SINIRUBE
-La Ficha de Inclusión Social del SINIRUBE, (FIS) debe indicar que el solicitante se encuentra en Pobreza (Pobreza Básica) o Pobreza Extrema, caso contrario será causal para que la Administración proceda a denegar el beneficio solicitado.
-En caso de que la condición en el SINIRUBE sea "Por investigar", se considerará que no se puede determinar su clasificación de pobreza, por lo que no se cumple con lo dispuesto en el artículo 3 inciso b del Reglamento del RNC; por lo tanto, el solicitante deberá acudir al IMAS para que se le actualice la información.
+ARTICULO 4 – Condición de pobreza acreditada en la ficha del SINIRUBE. La información del SINIRUBE debe indicar que el solicitante se encuentra en Pobreza (Pobreza Básica) o Pobreza Extrema. Si no se encontrara en esa condición, la Administración procederá a denegar el beneficio solicitado.
+En caso de que la condición en el SINIRUBE sea “Por investigar” o se tengan indicios de que la información no es correcta, las dependencias que tienen a su cargo el trámite de pensiones del RNC podrán actualizar los datos correspondientes.
