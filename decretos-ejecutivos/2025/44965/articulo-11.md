@@ -1,0 +1,6 @@
+Artículo 11. Acreditación de certificadores. Los regentes forestales que opten por fungir como certificadores del sistema de certificación "Madera Legal Costa Rica" deberán acreditarse ante la AFE, para lo cual la CNSF realizará, en primera instancia, la recomendación respectiva previo al cumplimiento de los siguientes requisitos:
+a) Ser regente forestal acreditado ante el CIAGRO, en cumplimiento con todas sus obligaciones para ejercer la regencia y que no esté descontando alguna suspensión en su figura como regente.
+b) Haber aprobado la capacitación de la nueva modalidad de regencia forestal ligada a la certificación de legalidad de la madera a cargo de la ONF, CIAGRO y SINAC.
+c) No poseer sanciones por faltas que procedan a la suspensión como regente por un periodo mayor o igual a 9 meses, en los últimos 5 años de ejercicio de la regencia forestal de acuerdo con las disposiciones de la Ley Orgánica del CIAGRO, Reglamento de la Ley Orgánica del ClAGRO y el Código de ética profesional del CIAGRO, esto con el fin de garantizar la idoneidad de los certificadores forestales.
+En caso de que se aplique esta sanción, se procederá a la suspensión de la acreditación de certificador forestal por un lapso de 5 años.
+Las capacitaciones para los regentes forestales interesados en acreditarse como certificadores serán realizadas por la ONF.

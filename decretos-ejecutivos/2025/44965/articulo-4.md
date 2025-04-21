@@ -1,0 +1,1 @@
+Artículo 4. Inclusión de la certificación en las compras públicas sustentables. Las instituciones de la administración central y descentralizada deberán incluir como requisito para las compras sustentables de productos maderables la certificación "Madera Legal Costa Rica". Lo anterior aplicará para aquellos productos que formen parte del alcance de esta certificación.

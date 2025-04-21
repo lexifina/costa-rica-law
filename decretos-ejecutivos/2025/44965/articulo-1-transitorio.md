@@ -1,0 +1,1 @@
+Transitorio I. En un plazo no mayor a 3 meses a partir de la publicación del presente decreto, el Sistema Nacional de Áreas ele Conservación (SINAC), deberá formalizar el convenio específico con la Oficina Nacional Forestal para efectos de ejecutar las acciones dispuestas en el presente Decreto Ejecutivo.
