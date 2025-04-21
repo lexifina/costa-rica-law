@@ -1,0 +1,1 @@
+Artículo 23. - Jornada laboral del Auditor Interno y SubAuditor Interno. La jornada laboral del Auditor Interno y SubAuditor Interno será de tiempo completo y estará sujeta a lo indicado en el numeral 30 de la Ley de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 71. - Derogatoria. Deróguese el Decreto Ejecutivo n.0 35227-MICITT, publicado en el diario oficial La Gaceta n.0 92 de fecha 14 de mayo del 2009, Reglamento de Organización y Funciones de la Auditoría Interna del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones.

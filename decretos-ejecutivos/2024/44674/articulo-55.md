@@ -1,0 +1,1 @@
+Artículo 55. - Supervisión. El Auditor Interno y los funcionarios de la Auditoría Interna, según proceda, deben supervisar todas las labores de la Auditoría Interna, según corresponda de acuerdo con el tamaño y organización de la Auditoría Interna, para asegurar el logro de sus objetivos, la calidad de sus servicios y el desarrollo profesional de sus funcionarios.

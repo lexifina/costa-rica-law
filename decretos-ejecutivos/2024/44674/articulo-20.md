@@ -1,0 +1,1 @@
+Artículo 20. - Delegación de funciones. El Auditor Interno podrá delegar en el SubAuditor Interno funciones, de conformidad con lo dispuesto en el numeral 89 y siguientes de la Ley General de la Administración Pública.

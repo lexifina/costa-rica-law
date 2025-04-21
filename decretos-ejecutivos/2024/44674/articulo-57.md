@@ -1,0 +1,1 @@
+Artículo 57. - Identificación de la información. Los auditores internos deben identificar información suficiente, fiable, relevante y útil de manera tal que les permita alcanzar los objetivos del trabajo, esto en concordancia con las Normas Internacionales para el Ejercicio Profesional de la Auditoría Interna.

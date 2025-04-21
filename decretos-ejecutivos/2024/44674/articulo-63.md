@@ -1,0 +1,1 @@
+Artículo 63. - Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará a criterio del Auditor Interno, mediante documentos u oficios de "asesoría" o de "advertencia", remitidos a quien le corresponde tomar acciones o conocer, sobre una determinada situación.

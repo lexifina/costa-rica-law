@@ -1,0 +1,1 @@
+Artículo 19. - Pericia y cuidado profesional. El Auditor Interno y el SubAuditor Interno deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio. Además, vigilarán porque el personal bajo su cargo actúe de igual manera.

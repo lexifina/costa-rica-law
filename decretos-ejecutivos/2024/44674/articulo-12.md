@@ -1,0 +1,1 @@
+Artículo 12. - Evaluación independiente de la Auditoría Interna. La Auditoría Interna sólo será objeto de evaluaciones por un ente cualificado e independiente y que no exista conflictos de intereses, externo a la institución, el cual informará los resultados al Jerarca y al Auditor Interno.

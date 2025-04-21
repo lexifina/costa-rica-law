@@ -1,0 +1,1 @@
+Artículo 29. - Actualización del ámbito de acción. El Auditor Interno definirá y mantendrá actualizado el ámbito de acción de la Auditoría Interna, denominado universo auditable, considerando los sujetos privados que administren o custodien fondos públicos provenientes del Ministerio.

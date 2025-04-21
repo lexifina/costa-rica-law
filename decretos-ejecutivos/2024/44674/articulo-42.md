@@ -1,0 +1,1 @@
+Artículo 42. - Ejecución del presupuesto y del plan de adquisiciones. Corresponderá al Auditor Interno o a quien delegue, autorizar los documentos de ejecución presupuestaria que procedan-y todo requerimiento de modificación al presupuesto anual asignado y al plan anual de adquisiciones de la Auditoría Interna.

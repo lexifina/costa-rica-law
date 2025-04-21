@@ -1,0 +1,1 @@
+Artículo 54. - Ejecución del trabajo de los estudios de auditoría. El Auditor Interno y los funcionarios de la Auditoría Interna, según proceda, deben realizar las actividades necesarias de acuerdo con los objetivos y el alcance de cada servicio que se brinden, las cuales deben documentarse de conformidad con las políticas y procedimientos establecidos en la Auditoría Interna.

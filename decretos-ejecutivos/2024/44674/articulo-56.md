@@ -1,0 +1,1 @@
+Artículo 56.- Desempeño del trabajo. Según las Normas Internacionales para el Ejercicio Profesional de la Auditoría Interna, los auditores internos deben identificar, analizar, evaluar y documentar suficiente información de manera tal que les permita cumplir con los objetivos del trabajo.

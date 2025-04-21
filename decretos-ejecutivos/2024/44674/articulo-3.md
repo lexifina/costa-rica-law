@@ -1,0 +1,1 @@
+Artículo 3. - Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y los funcionarios de la Administración Activa del Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones, en la materia que les resulte aplicable.

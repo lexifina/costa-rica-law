@@ -1,0 +1,1 @@
+Artículo 35. - Colaboración y asesoramiento: De conformidad con el artículo 33 inciso c), de la Ley General de Control Interno, n. 0 8292, en caso de ser necesario, se solicitará, a funcionarios de cualquier nivel jerárquico de la institución, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la Auditoría Interna.
