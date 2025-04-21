@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Minist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-21 | la propia norma |
+| 2 | 2025-04-21 | Decreto Ejecutivo 44947 (2025-02-26) |
