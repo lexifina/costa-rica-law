@@ -1,0 +1,2 @@
+Artículo 29.- Colaboración en la etapa de investigación. El Titular Subordinado del área donde se origine una denuncia, que da inicio a una investigación preliminar, debe facilitar, dentro del plazo estipulado, toda información requerida por el N1SE, durante las distintas fases del proceso de investigación.
+En caso de que la denuncia realizada incluya una presunta responsabilidad del titular subordinado, la solicitud de información debe gestionarse con el superior inmediato.

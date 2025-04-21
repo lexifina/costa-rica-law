@@ -1,0 +1,1 @@
+Artículo 34.-Información declarada confidencial. El personal del N1SE debe tener acceso a aquella información que por razones de competencia haya sido declarada confidencial y que puede ser requerida en una investigación preliminar, según lo establecido en la Política Corporativa de Confidencialidad de la Información.

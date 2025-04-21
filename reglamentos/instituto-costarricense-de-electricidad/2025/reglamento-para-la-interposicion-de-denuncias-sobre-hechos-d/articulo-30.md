@@ -1,0 +1,1 @@
+Artículo 30.-Independencia del Investigador. En todos los casos, el investigador tiene independencia de realizar las diligencias que considere necesarias bajo la supervisión y coordinación del Titular Subordinado inmediato cuando así lo requiera, en acatamiento a lo establecido por el ordenamiento jurídico existente.

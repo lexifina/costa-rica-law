@@ -1,0 +1,1 @@
+Artículo 26.-Denuncias por daño o robo a las Redes de Servicios. Cuando un funcionario tenga conocimiento de un incidente de ataque, robo, hurto, daño, sabotaje, a las Redes de Servicio debe denunciarlo de forma inmediata por medio de los canales de denuncia estipulados en este reglamento.

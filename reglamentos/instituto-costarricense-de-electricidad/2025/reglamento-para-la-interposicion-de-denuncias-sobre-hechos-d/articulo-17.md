@@ -1,0 +1,1 @@
+Artículo 17.-Registro de la interposición de denuncias. El área de Soporte Administrativo-DCPE traslada el contenido de las denuncias que ingresan por los canales oficiales al formulario "Remisión de la denuncia" (Anexo N°1), para su respectivo análisis y valoración, lo anterior en caso de que la denuncia haya ingresado sin haber completado el formulario.

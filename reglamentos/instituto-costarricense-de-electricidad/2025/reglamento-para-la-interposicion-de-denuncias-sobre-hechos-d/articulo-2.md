@@ -1,0 +1,2 @@
+Artículo 2º-Alcance. El presente reglamento es de acatamiento obligatorio para todo el personal de la Institución que tenga conocimiento de presuntas faltas, irregularidades administrativas y/o hechos delictivos que deben ser denunciados ante la Dirección Ciberseguridad y Protección Empresarial.
+Este documento normativo no resulta de aplicación para la atención de denuncias por parte de la Auditoria Interina del ICE, toda vez que dicha dependencia cuenta con una normativa especial, para tal efecto.

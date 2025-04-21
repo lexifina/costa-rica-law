@@ -1,0 +1,3 @@
+Artículo 38.-Seguimiento y control de recomendaciones. El titular subordinado de la dependencia solicitante, una vez transcurrido el periodo de adición y aclaración, debe comunicar en un plazo de 30 días naturales al N1SE, las acciones llevadas a cabo, producto de las recomendaciones emitidas en los informes de investigación.
+Así mismo el N1SE debe llevar un seguimiento sobre la atención de los informes resultantes de la investigación de las denuncias tramitadas, para verificar la debida atención de las recomendaciones emitidas.
+Además, el N1SE debe remitir a Soporte Administrativo- DCPE, con una periodicidad trimestral, el informe ejecutivo con el estado de cada uno de los casos de investigación, así como, el seguimiento de los informes resultantes.

@@ -1,0 +1,1 @@
+Artículo 24.-Priorización de las denuncias. Una vez que se concluye el proceso de admisibilidad de la denuncia, el N1SE debe priorizar la atención de las denuncias con base en la valoración de riesgo establecida en el modelo facultativo de organización, prevención de delitos, gestión y control.

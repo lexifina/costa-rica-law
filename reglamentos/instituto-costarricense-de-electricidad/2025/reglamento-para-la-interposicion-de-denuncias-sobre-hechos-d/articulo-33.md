@@ -1,0 +1,1 @@
+Artículo 33.-Técnicas de Investigación. Durante el desarrollo de la Investigación Preliminar, el investigador en el ejercicio de sus competencias y facultades debe efectuar la investigación, utilizando para tales efectos los medios científicos, técnicos y empíricos necesarios según lo amerita cada caso, con la utilización de mejores prácticas.

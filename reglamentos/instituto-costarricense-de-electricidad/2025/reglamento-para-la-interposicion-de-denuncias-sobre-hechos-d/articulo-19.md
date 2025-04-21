@@ -1,0 +1,1 @@
+Artículo 19.-Oficiosidad. Una vez presentada la denuncia, el denunciante puede desistir en cualquier momento de su solicitud; sin embargo, el N1SE de estimarlo pertinente, puede continuar de oficio con la valoración de la denuncia presentada.
