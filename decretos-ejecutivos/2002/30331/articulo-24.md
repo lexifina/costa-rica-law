@@ -1,1 +1,0 @@
-Artículo 24.—Para su normal desempeño la COMCURE podrá establecer una o varias cuentas bancarias o similares, que necesariamente funcionarán bajo la modalidad de firma mancomunada y con los límites de suma establecidos por la COMCURE mediante acuerdo firme.

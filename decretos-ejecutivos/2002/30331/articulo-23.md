@@ -1,1 +1,0 @@
-Artículo 23.—La COMCURE, por medio del Director Ejecutivo, en su calidad de representante, judicial y extrajudicial, firmará convenios, recibirá donaciones, contratará bienes y servicios, administrará fideicomisos y en general realizará las gestiones pertinentes para dotar de contenido económico a los proyectos que ejecute la COMCURE.

@@ -1,1 +1,0 @@
-Artículo 29.—Para los representantes del sector privado, en el caso de fallecimiento, de renuncia, de impedimento absoluto o de tres ausencias consecutivas injustificadas o cinco alternas de un miembro de la COMCURE en un período de seis meses será comunicado al Comité Consultivo para que designe su sustituto.

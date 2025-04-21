@@ -1,1 +1,0 @@
-Artículo 14.—El Secretario del Comité Consultivo preparará en un plazo no mayor de 10 días naturales, el acta correspondiente la que será firmada conjuntamente por el Presidente y el Secretario, previa lectura y aprobación por los participantes de la siguiente reunión.
