@@ -1,0 +1,1 @@
+Artículo 17.-Revisión. La Política de Sostenibilidad de RACSA debe ser revisada anualmente por la Alta Gerencia de RACSA y en caso de ser necesario se actualizará y someterá a conocimiento y aprobación de la Junta Directiva.

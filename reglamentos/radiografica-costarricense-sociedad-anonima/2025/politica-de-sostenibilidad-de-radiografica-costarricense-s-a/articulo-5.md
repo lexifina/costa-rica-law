@@ -1,0 +1,1 @@
+Artículo 5°-Compras. Ajustar los procesos de compras al Reglamento para los Procesos de Contratación de las Empresas del ICE y demás normativa corporativa e interna relacionada con compras públicas para garantizar la sostenibilidad de las compras institucionales de RACSA mediante los lineamientos de compras que establezca la Empresa.

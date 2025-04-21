@@ -1,0 +1,1 @@
+Artículo 13.-Comunidad. Promover la participación de la comunidad en la definición de sus expectativas e intereses de desarrollo sostenible, propiciando la comunicación con las partes interesadas, buscando el equilibrio entre los valores empresariales y las expectativas y necesidades sociales.

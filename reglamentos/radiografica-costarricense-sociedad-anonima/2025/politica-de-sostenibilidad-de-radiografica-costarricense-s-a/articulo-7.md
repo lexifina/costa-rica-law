@@ -1,0 +1,1 @@
+Artículo 7°-Derechos Humanos. Promover el respeto de los derechos humanos como base de las prácticas institucionales, garantizando relaciones laborales basadas en la igualdad de oportunidades, la no discriminación y el respeto a la diversidad, en un entorno seguro y saludable, el desarrollo humano integral y la mejora en la calidad de vida de sus colaboradores.

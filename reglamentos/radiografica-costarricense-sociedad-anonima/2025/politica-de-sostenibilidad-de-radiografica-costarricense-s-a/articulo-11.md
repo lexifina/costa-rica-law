@@ -1,0 +1,1 @@
+Artículo 11.-Gestión Ética. Asegurar la transparencia, rendición de cuentas y las prácticas de gestión éticas, rechazando toda acción que busque o propicie obtener ventajas indebidas, injustas e ilegales.

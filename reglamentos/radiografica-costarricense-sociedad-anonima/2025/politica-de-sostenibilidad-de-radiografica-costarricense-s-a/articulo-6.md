@@ -1,0 +1,1 @@
+Artículo 6°-Acuerdos. Promover en los Acuerdos de Asociación Empresarial, establecidos en el Reglamento Corporativo de Asociaciones Empresariales del ICE y sus Empresas, la inclusión de criterios que aseguren la sostenibilidad ambiental y social de los negocios a desarrollar.

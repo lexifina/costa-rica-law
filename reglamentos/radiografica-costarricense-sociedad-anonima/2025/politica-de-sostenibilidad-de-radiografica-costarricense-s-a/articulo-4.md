@@ -1,0 +1,1 @@
+Artículo 4°-ODS y Directrices de OCDE. Fortalecer la implementación de los Objetivos de Desarrollo Sostenible de la agenda 2030 y las directrices establecidas por la OCDE en relación con derechos humanos, prácticas laborales, medio ambiente entre otros.

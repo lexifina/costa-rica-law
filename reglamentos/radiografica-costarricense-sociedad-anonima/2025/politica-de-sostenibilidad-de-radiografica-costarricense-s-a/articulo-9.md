@@ -1,0 +1,1 @@
+Artículo 9°-Gestión Ambiental. Fortalecer el respeto y protección de la naturaleza, mitigando los impactos ambientales de la Empresa, mediante la implementación del Plan de Gestión Integral de Residuos y el Plan de Gestión Ambiental Institucional (PGAI).

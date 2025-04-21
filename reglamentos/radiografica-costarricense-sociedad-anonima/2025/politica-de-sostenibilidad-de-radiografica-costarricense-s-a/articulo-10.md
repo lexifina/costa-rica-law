@@ -1,0 +1,1 @@
+Artículo 10.-Riesgos. El Área de Riesgo y Cumplimiento del Departamento de Estrategia e Innovación debe establecer y mantener los sistemas de gestión y control que permitan evaluar y atender los riesgos ambientales, sociales y de gobernanza que presente la Empresa, de forma eficiente.
