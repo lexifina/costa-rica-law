@@ -1,0 +1,1 @@
+TRANSITORIO I. -El Ministerio de Educación Pública mediante sus dependencias ministeriales competentes, realizará en el plazo de seis meses a partir de la publicación de este reglamento, la actualización de sus protocolos en concordancia con este reglamento.

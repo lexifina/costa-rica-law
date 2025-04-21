@@ -1,0 +1,1 @@
+ARTÍCULO 38. -NORMA SUPLETORIA. A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias, el Estatuto de Servicio Civil y su Reglamento, el Código de la Niñez y la Adolescencia Ley N° 7739, Reglamento de la Carrera Docente Decreto Ejecutivo N° 2235 y todas aquellas conexas.

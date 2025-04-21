@@ -1,0 +1,1 @@
+ARTÍCULO 21. -TRÁMITE DE LA DENUNCIA. Recibida la denuncia en la forma dicha y por alguno de los órganos indicados en el artículo 17 de este reglamento, deberá ser remitida por cualquier medio disponible, que salvaguarde la confidencialidad en este tipo de casos, dentro de tercer día, al Departamento de Asuntos Disciplinarios.

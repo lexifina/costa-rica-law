@@ -1,0 +1,1 @@
+ARTÍCULO 16. -DESIGNACIÓN DE PERSONA QUE SUSTITUYE. De concurrir alguna de las causales de impedimento, excusa o recusación dispuestas dispuesto en el Título II de la Ley N° 6227, Ley General de Administración Pública, corresponderá al superior de alzada dictar lo que proceda conforme a derecho.

@@ -1,0 +1,1 @@
+ARTÍCULO 15. -IMPEDIMENTOS, EXCUSAS Y RECUSACIONES. En los casos de impedimento, excusa o recusación del órgano instructor o cualquier otro órgano que tuviere participación activa en la tramitación o resolución de una causa disciplinaria, se cumplirá con lo dispuesto en el Título II de la Ley N° 6227, Ley General de Administración Pública.

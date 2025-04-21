@@ -1,0 +1,1 @@
+ARTÍCULO 2. -ALCANCE DE LA NORMA. El presente reglamento regirá para todas las personas servidoras regulares o interinas, docentes, administrativo docentes, técnico-docentes o administrativos, del Ministerio de Educación Pública (MEP), según las definiciones establecidas en el artículo 4 del presente Reglamento.
