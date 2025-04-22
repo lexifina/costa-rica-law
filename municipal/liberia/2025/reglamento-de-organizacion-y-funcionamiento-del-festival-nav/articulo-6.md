@@ -1,0 +1,1 @@
+Artículo 6º-Ejecución de los gastos. Para la ejecución de los gastos deberán observarse las regulaciones establecidas en la Ley General de Contratación Pública y su Reglamento, Reglamento de Caja Chica de la Municipalidad de Liberia, y tras que le resulten aplicables.

@@ -1,0 +1,2 @@
+Artículo 11.-De las atracciones municipales en el festival. La Municipalidad, además de su acción en la organización del Festival, podrá presentar en el festival cualquier elemento acorde con nuestros valores.
+El Concejo, al inicio de la organización anual de cada Festival, atenderá la recomendación de la Comisión, sobre las representaciones municipales que propone llevar al evento y los eventuales costos de montaje de cada una de ellas y mediante acuerdo el Concejo Municipal aprobará lo que corresponda.
