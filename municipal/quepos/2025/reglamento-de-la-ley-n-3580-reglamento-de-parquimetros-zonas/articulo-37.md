@@ -1,0 +1,1 @@
+Artículo 37.-De la intimidación, fuerza o violencia contra el Notificador de Parquímetros: De conformidad con las disposiciones del Código Penal, incurre en Delito contra la Autoridad; quién amenazare a un Notificador de Parquímetros, a causa de sus funciones o con la intención de evadir la aplicación de este reglamento.

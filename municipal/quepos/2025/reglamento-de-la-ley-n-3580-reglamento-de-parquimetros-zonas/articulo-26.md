@@ -1,0 +1,1 @@
+Artículo 26.-Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. Np obstante; el sistema exige una publicación consecutiva por lo que se ha creado el mismo, pero sin texto.

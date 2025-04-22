@@ -1,0 +1,1 @@
+Artículo 34.-Apelación: Contra las multas de infracción, cabrán los recursos de revocatoria y apelación ante la alcaldía municipal, fundados en motivos de legalidad y oportunidad. La interposición deberá producirse dentro de los cinco días hábiles, siguientes a la imposición de la sanción que se recurre y suspenderá la ejecución del acto, con base al Código Municipal
