@@ -1,0 +1,1 @@
+Artículo N° 17. Presentación al Concejo Municipal. Las modificaciones se presentarán al Concejo Municipal con un plazo de anterioridad de 3 días naturales antes de la sesión salvo casos de emergencia debidamente demostrados.

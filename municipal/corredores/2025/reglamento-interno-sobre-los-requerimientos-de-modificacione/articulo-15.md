@@ -1,0 +1,1 @@
+Artículo N° 15. Plazos de presentación de modificaciones. Las modificaciones debidamente articuladas, serán remitidas al superior inmediato con un plazo máximo de 3 días antes de los 15 de cada mes, salvo casos de emergencia debidamente documentados en los cuales se remitirá de forma inmediata a la realización de la misma para su análisis.

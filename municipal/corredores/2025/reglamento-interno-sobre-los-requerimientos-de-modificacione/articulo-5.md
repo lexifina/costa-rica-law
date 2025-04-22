@@ -1,0 +1,2 @@
+Artículo N° 05. Mecanismos. Las modificaciones presupuestarias serán solicitadas, formuladas y presentadas por las jefaturas mediante los formularios debidamente entregados y oficializados por el departamento de presupuesto, sin variaciones en su formato y contexto. Remitidas de manera física o virtual debidamente aprobadas por cada uno de los autorizados vinculados en el proceso.
+No podrán remitirse formularios en los que existan firmas físicas y digitales en un solo documento.

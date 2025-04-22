@@ -1,0 +1,1 @@
+Artículo N° 20. Adjuntos a presentar en el SIPP. Dentro de los documentos que deben ser remitidos a la Contraloría General de la República se incluye: Nota de remisión, acuerdo del Concejo Municipal, justificaciones de la modificación.

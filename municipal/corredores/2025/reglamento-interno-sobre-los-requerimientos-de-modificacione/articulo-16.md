@@ -1,0 +1,1 @@
+Artículo N° 16. Registro de modificaciones. Las modificaciones deben ser debidamente incluidas en el sistema informático definido por la institución e incluido el informe dentro del documento de modificación que se remitirá al Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo N° 13. De la obligatoriedad del uso de formularios. Con el fin de mantener la igualdad en la presentación de la información, será de carácter obligatorio el uso del formulario debidamente establecido por el Departamento de Presupuesto. El mismo no puede ser modificado o alterado por los usuarios.
+Solamente el Departamento de Presupuesto podrá realizar cambios y ajustes al formulario oficial, siempre y cuando estos sean aprobados por el superior inmediato y debidamente comunicado a cada una de las jefaturas usuarias.

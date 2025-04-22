@@ -1,0 +1,1 @@
+Artículo N° 24. Obligatoriedad de lo establecido en el reglamento. Lo establecido en este reglamento es de carácter obligatorio y vinculante para la Municipalidad de Corredores en su ámbito de aplicación.
