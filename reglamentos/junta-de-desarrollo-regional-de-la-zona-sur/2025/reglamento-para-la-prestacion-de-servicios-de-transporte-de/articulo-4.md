@@ -1,0 +1,1 @@
+Artículo 4º-Las prestatarias deberán presentar un informe trimestral a JUDESUR detallando la cantidad de servicios prestados, tiempos de entrega promedio y cualquier incidencia que haya afectado la operación.

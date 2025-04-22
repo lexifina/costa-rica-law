@@ -1,0 +1,1 @@
+Artículo 9º-Las prestatarias deberán de dotar de uniformes y gafetes a las personas que contraten, con el objetivo de que sean bien identificados por parte de las personas usuarias del servicio. El gafete deberá incluir nombre y número de cedula de los trabajadores.

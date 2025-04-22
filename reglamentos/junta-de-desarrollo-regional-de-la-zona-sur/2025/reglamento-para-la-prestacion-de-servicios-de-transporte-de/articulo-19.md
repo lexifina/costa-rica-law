@@ -1,0 +1,2 @@
+Artículo 19.-Para modificación de la tarifa regulada a solicitud de parte, deberá la prestataria presentar ante JUDESUR, solicitud por escrito con las formalidades de Ley, donde se justifique mediante datos estadísticos, informes técnicos y prueba respectiva, dicha solicitud de modificación de la tarifa regulada.
+Lo anterior será conocido en el seno de la Junta Directiva de JUDESUR quien valorará la procedencia o no de lo solicitado.

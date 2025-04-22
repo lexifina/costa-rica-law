@@ -1,0 +1,1 @@
+Artículo 11.-Será responsabilidad de los propietarios de las prestatarias, el velar por que el servicio concesionado se preste guardando todos los cuidados y prevenciones requeridas para estos efectos. En caso de accidentes, extravíos o pérdidas de la mercancía, la prestataria asume la responsabilidad antes los usuarios del servicio.

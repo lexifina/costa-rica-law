@@ -1,0 +1,1 @@
+Artículo 14.-Las prestatarias autorizadas por JUDESUR para el traslado de mercancías compradas dentro del Depósito a cualquier parte del país; deberán ingresar las unidades de transporte (UT) a las instalaciones del Depósito completamente vacías.

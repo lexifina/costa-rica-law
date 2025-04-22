@@ -1,0 +1,2 @@
+Artículo 27.-Cualquier situación no prevista en el presente reglamento se regirá por lo establecido en la Ley General de la Contratación Pública N° 9986 y su Reglamento, el Decreto Nº 30251-PH, Ley Nº 9356 Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), y normativa concordante y aplicable.
+Asimismo, el presente Reglamento formará parte integral de los contratos de concesión que sobre estos servicios suscriba JUDESUR.

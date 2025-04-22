@@ -1,0 +1,1 @@
+Artículo 16.-Las prestatarias autorizadas por JUDESUR deberán entregar al funcionario aduanero copia del reporte con el detalle de la mercancía que se transporta y el número del marchamo colocado en la UT.

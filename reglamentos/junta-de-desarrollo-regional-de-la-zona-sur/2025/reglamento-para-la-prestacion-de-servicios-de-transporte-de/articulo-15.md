@@ -1,0 +1,1 @@
+Artículo 15.-Las prestatarias autorizadas por JUDESUR deberán solicitar al Puesto Aduanero de Golfito, previo al inicio de la carga que asigne un funcionario aduanero para verificar el proceso de carga y la colocación del marchamo.

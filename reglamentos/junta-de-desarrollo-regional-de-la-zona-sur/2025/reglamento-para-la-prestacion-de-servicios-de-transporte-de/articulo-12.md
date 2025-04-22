@@ -1,0 +1,1 @@
+Artículo 12.-Cada uno de los prestatarios de estos servicios se comprometen a mantener en condiciones óptimas de limpieza, mantenimiento y conservación adecuada, el espacio cedido por JUDESUR, asimismo a recoger la basura que producto de su labor pueda originarse y asignar espacios para reciclaje, en condición de orden y limpieza cuando así proceda.

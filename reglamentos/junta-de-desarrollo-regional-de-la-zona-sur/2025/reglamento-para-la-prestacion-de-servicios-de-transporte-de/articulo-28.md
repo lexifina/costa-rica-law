@@ -1,0 +1,1 @@
+Artículo 28.-Este contrato podrá ser rescindido por JUDESUR cuando el prestatario incumpla lo estipulado en el presente contrato y se demuestre que se está afectando la prestación de estos servicios para los compradores del Depósito, y asimismo cuando se produzca el atraso en más de diez días en el pago de una mensualidad de arriendo para JUDESUR.

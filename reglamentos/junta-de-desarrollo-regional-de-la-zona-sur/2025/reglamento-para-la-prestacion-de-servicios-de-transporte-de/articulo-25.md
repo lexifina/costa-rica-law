@@ -1,0 +1,1 @@
+Artículo 25.-Los pagos deben efectuarse en las cuentas corrientes que al efecto indique JUDESUR. De lo cual se dejará constancia, siendo que el monto a pagar corresponde única y exclusivamente por concepto de canon por derecho de concesión.

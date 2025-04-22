@@ -1,0 +1,2 @@
+Artículo 24.-El canon a pagar a JUDESUR, se compondrá de la suma base indicada en el artículo 22, más el porcentaje regulado en el artículo 6° de este reglamento como componente variable del canon en favor de JUDESUR.
+La prestataria debe cobrar el 1% indicado y lo trasladará a JUDESUR en el término de 8 días hábiles después del último día del mes. Para ello deberá presentar ante la Administración de JUDESUR una liquidación del monto total recaudado por servicios en el mes. JUDESUR podrá hacer verificaciones contables de dicha liquidación.
