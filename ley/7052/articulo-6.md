@@ -12,4 +12,6 @@ j) Determinar la política financiera general del Sistema.
 k) Garantizar, si lo considerara conveniente, los préstamos hipotecarios otorgados por las entidades autorizadas, para asegurar al acreedor hipotecario, o al cesionario de los derechos, el cobro íntegro del capital, de los intereses y de las demás obligaciones accesorias de la hipoteca, incluidos los gastos del juicio de ejecución.
 l) Establecer, por medio de las entidades autorizadas, programas que vinculen los créditos para vivienda al ahorro simultáneo de las familias beneficiarias.
 m) Las demás que le correspondan de acuerdo con esta ley y sus reglamentos.
-(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, “Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media”)
+n) Realizar una planificación estratégica que considere la coordinación interinstitucional para facilitar el acceso a la vivienda de las poblaciones vulnerables, de los distritos con mayor incidencia de pobreza y pobreza extrema.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 10679 del 22 de abril del 2025)
+(Así reformado por el artículo 1° de la Ley N° 10538 del 2 de octubre del 2024, "Reforma Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), para reformar el Fondo Nacional de Vivienda y Promover el Acceso a Vivienda para la clase media")
