@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento es aplicable a todas las personas servidoras públicas de la Municipalidad de Sarchí que, por necesidades excepcionales y justificadas, deban laborar horas extraordinarias.

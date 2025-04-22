@@ -1,0 +1,1 @@
+Artículo 12.-Lineamientos para el personal de la Alcaldía. La persona que funja en el puesto de asesoría del alcalde podrá ajustar el horario al puesto de confianza que ostenta a cargo del Alcalde Municipal, si se requiere su participación en determinadas actividades, considerando que estas personas no estarán obligadas a permanecer más de doce horas diarias en su trabajo.
