@@ -1,0 +1,1 @@
+Artículo 2º-La Dirección Nacional de Desarrollo de la Comunidad, una vez efectuada la publicación gacetaria del presente decreto, solicitará la anotación en el Sistema de Registro de Dinadeco y acreditará a la Dirección General de Tributación del Ministerio de Hacienda, el otorgamiento del beneficio para los efectos respectivos.
