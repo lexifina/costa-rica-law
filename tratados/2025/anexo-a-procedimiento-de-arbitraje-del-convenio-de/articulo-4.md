@@ -1,0 +1,5 @@
+ARTÍCULO IV
+PROCEDIMIENTO
+(a) El Tribunal sólo tendrá competencia para conocer los puntos de la controversia. Adoptará su propio procedimiento (que podrá ser el procedimiento de una asociación de arbitraje de renombre) y podrá, por propia iniciativa, designar los peritos que estime necesarios. En todo caso, deberá dar a las partes la oportunidad de presentar exposiciones orales en audiencia.
+(b) El Tribunal fallará ex aequo et bono, basándose en los términos del Convenio de Administración del FOMIN III, y pronunciará su fallo aún en el caso de que alguna de las partes actúe en rebeldía.
+(c) El laudo se hará constar por escrito y se adoptará con el voto concurrente de por lo menos dos de los miembros del Tribunal. Éste deberá expedirse dentro del plazo aproximado de sesenta (60) días contados a partir de la fecha del nombramiento del Dirimente, a menos que el Tribunal determine que, por circunstancias especiales e imprevistas, dicho plazo deba ampliarse. El laudo será notificado a las partes mediante comunicación suscrita al menos por dos miembros del Tribunal.
