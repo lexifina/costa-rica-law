@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Dirección de Inteligencia y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-29 | la propia norma |
+| 2 | 2025-04-23 | SINALEVI (sin norma nombrada) |
