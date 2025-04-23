@@ -15,3 +15,4 @@ Regulaciones sobre el Certificado Internacional de Vacunación contra la Fiebre 
 | --- | --- | --- |
 | 1 | 2016-11-03 | la propia norma |
 | 2 | 2025-03-05 | Decreto Ejecutivo 44935 (2025-03-05) |
+| 3 | 2025-04-23 | Decreto Ejecutivo 44975 (2025-04-23) |
