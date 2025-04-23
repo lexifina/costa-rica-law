@@ -1,0 +1,4 @@
+ARTÍCULO XVIII. El Comité encomendará sus estudios especiales, investigaciones experimentales y trabajos de laboratorio a los departamentos competentes de los Estados miembros, previa obtención de su aceptación formal. Si este tipo de tareas implican ciertos gastos, el acuerdo debe especificar qué proporción de los gastos correrá a cargo de la Organización.
+El Director de la Oficina se encarga de la coordinación e integración de estos trabajos.
+El Comité puede encomendar determinadas tareas, con carácter permanente o temporal, a grupos de trabajo o a expertos técnicos o jurídicos, quienes deben actuar conforme a las metodologías establecidas. Si estas funciones implican el pago de algún tipo de remuneración o indemnización, el Comité debe determinar sus montos.
+El Director de la Oficina asumirá las funciones de Secretaría de estos grupos de trabajo o de expertos.

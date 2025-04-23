@@ -1,0 +1,4 @@
+ARTÍCULO XXI. El personal de la Oficina estará integrado por un Director y asistentes designados por el Comité, además de personal o representantes, permanentes o temporales, reclutados por el Director.
+El personal de la Oficina y, si corresponde, los expertos a que se refiere el artículo XVIII, percibirán un salario. El Comité determinará los montos de los sueldos, salarios o indemnizaciones.
+El Comité determinará los estatutos del Director, de los asistentes y demás personal o representantes, en particular en lo que respecta a las condiciones de contratación, trabajo, disciplina y pensión.
+El nombramiento, cese o destitución del personal y los representantes de la Oficina estará a cargo del Director, excepto en el caso de asistentes designados por el Comité, quienes sólo podrán ser objeto de este tipo de medidas por decisión del Comité.

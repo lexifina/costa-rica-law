@@ -1,0 +1,6 @@
+ARTÍCULOVIII. La Conferencia decidirá sobre las Recomendaciones presentadas en relación con acciones comunes de los Estados Miembros en las áreas que señala el Artículo l.
+Las decisiones de la Conferencia solo podrán entrar en vigor si el número de Estados miembros presentes es de por lo menos dos tercios del número total de Estados miembros, y si obtienen un mínimo de cuatro quintas partes de los votos emitidos. El número de votos emitidos debe ser, como mínimo, de cuatro quintas partes del número de Estados miembros presentes.
+No se considerarán votos emitidos las abstenciones y los votos en blanco o nulos.
+Las decisiones se comunicarán inmediatamente a los Estados Miembros para su información, consideración y recomendación.
+Estos últimos asumen la obligación moral de implementar, en la medida de lo posible, estas decisiones.
+No obstante, en las votaciones relativas a la organización, la dirección, la administración y los reglamentos internos de la Conferencia, del Comité y de la Oficina y cualquier asunto análogo, la mayoría absoluta será suficiente para que la decisión en cuestión sea ejecutoria, el número mínimo de Miembros presentes y de votos emitidos tendrán igual efecto. El voto del Estado Miembro cuyo delegado ocupe la presidencia será decisivo en caso de empate en la votación.

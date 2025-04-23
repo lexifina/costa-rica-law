@@ -1,0 +1,2 @@
+ARTÍCULO X. La Conferencia debe reunirse, como mínimo, cada seis años previa convocatoria del Presidente del Comité o en caso de impedimento, por convocatoria del Director de la Oficina, si éste recibe la solicitud de hacerlo por parte de, como mínimo, la mitad de los Miembros del Comité.
+La Conferencia debe fijar, al finalizar sus tareas, el lugar y la fecha de su próxima reunión, o delegará esta responsabilidad en el Comité.

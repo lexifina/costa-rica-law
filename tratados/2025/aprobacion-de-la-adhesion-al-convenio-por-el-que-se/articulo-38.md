@@ -1,0 +1,1 @@
+ARTÍCULO XXXVIII. Si el número de las partes del presente Convenio disminuyera hasta una cantidad inferior a 16, la Conferencia podrá consultar a los Estados miembros con el fin de decidir si se fundamenta considerar caducado el Convenio.

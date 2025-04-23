@@ -1,0 +1,1 @@
+ARTÍCULO XXIII. Los Gobiernos de los Estados miembros declaran que reconocen la utilidad pública de la Oficina, la cual estará dotada de personalidad jurídica, y que en general se beneficiará de los privilegios y facilidades que comúnmente concede la legislación en vigor en cada uno de los Estados miembros a los órganos intergubernamentales.

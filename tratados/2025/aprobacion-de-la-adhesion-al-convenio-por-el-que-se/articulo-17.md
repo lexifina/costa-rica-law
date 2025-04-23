@@ -1,0 +1,6 @@
+ARTÍCULOXVII. Los miembros del Comité que no puedan asistir a una reunión pueden delegar su voto en uno de sus colegas, quien será su representante. En tal caso, un miembro no podrá tener más de dos votos además del suyo.
+Las decisiones solo se considerarán válidas si el número de personas presentes y representadas es de, por lo menos, dos tercios del número de personas designadas como miembros del Comité y si reciben, como mínimo, cuatro quintas partes de los votos emitidos. El número de votos emitidos debe ser, como mínimo, de cuatro quintas partes del total de personas presentes y representadas en la sesión.
+No se considerarán votos emitidos las abstenciones y los votos en blanco y nulos.
+Entre una sesión y otra, y en ciertos casos especiales, el Comité podrá consultar por correspondencia.
+Los acuerdos adoptados de esta forma sólo se considerarán válidos si, en cada caso, se invitó a todos los miembros del Comité a expresar su opinión y si los acuerdos se aprueban por unanimidad por todos los votantes, con la condición de que el número de votos emitidos sea, por lo menos, de dos terceras partes del número de Miembros designados.
+No se considerarán votos emitidos las abstenciones y los votos en blanco y nulos. La falta de respuesta en el plazo fijado por el Presidente se considerará como abstención.

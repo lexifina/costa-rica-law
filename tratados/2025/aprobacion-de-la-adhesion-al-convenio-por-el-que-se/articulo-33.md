@@ -1,0 +1,1 @@
+ARTÍCULO XXXI. En caso de disolución de la Organización, los activos se distribuirán entre los Estados miembros en proporción al total de sus aportaciones previas, sujeto a la existencia de acuerdos existentes entre los Estados miembros que no tengan pagos pendientes a la fecha de la disolución y a los derechos contractuales o adquiridos del personal activo o jubilado.

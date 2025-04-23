@@ -1,0 +1,1 @@
+ARTÍCULO XIV. Por decisión del Comité, las personas que hayan participado en la ciencia o la industria metrológica, así como antiguos miembros del Comité, podrán recibir el título de Miembros de Honor. Estos miembros podrán participar en las reuniones en calidad de asesores.

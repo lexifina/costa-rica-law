@@ -1,0 +1,2 @@
+ARTÍCULO XXX. Un Estado miembro que haya dimitido voluntariamente puede ser readmitido si así lo solicita. En ese caso se le considerará como un nuevo Estado miembro, pero su derecho de entrada solo será pagadero si su dimisión se hubiera producido hace más de cinco años.
+Un Estado miembro dimitido de oficio puede ser readmitido si así lo solicita, a condición de que liquídelas contribuciones que tenía pendientes de pago en el momento de su dimisión. Estas contribuciones retrospectivas se calcularán sobre la base de las contribuciones de los años anteriores a su readmisión.

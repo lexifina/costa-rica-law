@@ -1,0 +1,4 @@
+ARTÍCULO XXIX. Un Estado miembro que no haya pagado sus contribuciones durante tres años consecutivos será considerado de oficio como dimitido y será eliminado de la lista de Estados miembros.
+Sin embargo, la situación de determinados Estados miembros que se encontrasen en un período de dificultades financieras y que, por el momento, no pudiesen hacer frente a sus obligaciones, será evaluada por la Conferencia y está podrá, en determinados casos, concederles prórrogas o reducciones.
+La insuficiencia de ingresos resultante de la eliminación de un Estado miembro se compensará mediante un retiro de los fondos de reserva constituidos conforme al Artículo XXIV.
+Los Estados miembros que dimitan voluntariamente y los Estados miembros cuya dimisión se defina de oficio perderán todos los derechos de copropiedad sobre la totalidad de los bienes de la Organización.

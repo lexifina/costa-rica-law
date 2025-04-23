@@ -1,0 +1,1 @@
+ARTÍCULO VI. Los Estados miembros se comprometen a facilitar a la Conferencia toda la documentación de que dispongan que, a su juicio, permita a la Organización llevar a cabo las tareas que le han sido encomendadas.
