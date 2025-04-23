@@ -1,1 +1,0 @@
-Artículo 24.—Con el fin de promover el intercambio de experiencias se llevará a cabo cada dos años un Congreso Nacional de los Foros, que permita el análisis, estudio y propuestas acerca del accionar del sector agropecuario. El mismo se efectuará a partir del año 2017.

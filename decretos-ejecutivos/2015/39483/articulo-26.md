@@ -1,1 +1,0 @@
-Artículo 26.—En lo no regulado por el presente Decreto, en relación con el funcionamiento del Foro Nacional Mixto y los Foros Regionales Mixtos, rige lo dispuesto por la Ley General de la Administración Pública en materia de Órganos Colegiados.

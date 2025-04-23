@@ -1,1 +1,0 @@
-Artículo 21.—El acuerdo donde se designa al representante ante el Foro Nacional Mixto será tomado en firme y para acreditar al miembro electo, el Presidente certificará el mismo y el Coordinador Sectorial enviará la respectiva acta con el nombramiento al (la) Ministro (a) de Agricultura y Ganadería, por ser quién preside el Foro Nacional Mixto.

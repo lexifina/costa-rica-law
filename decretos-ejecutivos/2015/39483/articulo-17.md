@@ -1,1 +1,0 @@
-Artículo 17.—Para la elección de cada representante regional, se realizara una Asamblea General Regional en la que participarán todas las organizaciones inscritas, para ello la Dirección Regional realizara una convocatoria con al menos quince días naturales de anticipación, a través de un medio de comunicación regional que permita difundirla.

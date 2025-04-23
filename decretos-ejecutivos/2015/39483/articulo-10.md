@@ -1,1 +1,0 @@
-Artículo 10.—El Foro Nacional Mixto, contara con el apoyo en materia legal, de un representante de la Asesoría Jurídica del Ministerio de Agricultura y Ganadería en las sesiones que requiera su presencia.

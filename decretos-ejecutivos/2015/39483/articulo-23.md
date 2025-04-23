@@ -1,1 +1,0 @@
-Artículo 23.—El acta que se levante en dicha sesión, debe indicar las personas asistentes, así como las circunstancias de lugar y tiempo que se han celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.

@@ -1,1 +1,0 @@
-Artículo 22.—Las Asambleas son privadas y sólo con la aprobación de la mayoría de los miembros presentes, pueden tener acceso a ellas el público en general. Los funcionarios del Ministerio de Agricultura y Ganadería u otra institución pública que asistan a la misma, lo serán únicamente con carácter de asesores.
