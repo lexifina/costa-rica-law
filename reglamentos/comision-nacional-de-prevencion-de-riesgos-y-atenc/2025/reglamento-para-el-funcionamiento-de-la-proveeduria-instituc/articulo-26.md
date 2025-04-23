@@ -1,0 +1,2 @@
+Artículo 26.-Todas las contrataciones se formalizarán a través de contrato mediante el sistema digital unificado del Estado.
+La firma digital de los contratos por parte de los funcionarios facultados para ello constituirá la autorización para que el mismo se ejecute. Sera responsabilidad del personal designado como administrador de la contratación o del proyecto la verificación del cumplimiento de lo ahí estipulado en concordancia con el ordenamiento jurídico aplicable.

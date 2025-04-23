@@ -1,0 +1,6 @@
+Artículo 18.-Las Funciones específicas de la Unidad Administrativa de Almacenamiento y Distribución, se pueden citar:
+a. Recibir de forma provisional los bienes para que las unidades respectivas verifiquen que lo entregado cumpla con las condiciones de cantidad, calidad y especificaciones técnicas acordadas, para que procedan a dar la recepción definitiva.
+b. En caso de que los bienes recibidos no cumplan con lo solicitado, la Unidad solicitante deberá tramitar mediante el Sistema digital unificado en el módulo dispuesto para este fin, en un plazo no mayor a dos días hábiles, el procedimiento administrativo que corresponda, en el supuesto de incumplimientos de los contratistas, previa observancia del debido proceso en cada caso, por quien corresponda.
+c. Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiada bajo un adecuado sistema de control e inventario, los bienes adquiridos a través de los diferentes procedimientos de contratación pública.
+d. Distribuir, con apego a un sistema de control eficiente y oportuno y en óptimas condiciones de traslado, los bienes señalados en el párrafo anterior. En acatamiento de lo dispuesto en la normativa vigente.
+e. Las demás funciones que le asignen sus superiores jerárquicos o el ordenamiento jurídico.

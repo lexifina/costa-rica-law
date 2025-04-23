@@ -1,0 +1,1 @@
+Artículo 31.-En todo lo no regulado en el presente reglamento se aplicará de forma supletoria la Ley General de Contratación Pública y su Reglamento, así como los principios generales de la Contratación pública.

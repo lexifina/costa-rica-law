@@ -1,0 +1,9 @@
+Artículo 14.-El Área Administrativa de Programación y Control, será la encargada de ejecutar los denominados Subsistemas de Normalización y de Control, que comprenden:
+a. La definición y establecimiento de los patrones técnicos, las condiciones generales, las especificaciones y los procedimientos para la adquisición de los bienes, obras y servicios que la Institución requiera.
+b. Programar, dar seguimiento y apoyo a los procesos de contratación pública desarrollados por la institución.
+14.1 Las Funciones del Área Administrativa de Programación y Control, tendrán entre otras, acordes con su naturaleza, las siguientes funciones en detalle:
+a. Planificar y programar todas las contrataciones requeridas por las unidades institucionales, estableciendo con precisión las condiciones generales, las normas de calidad correspondientes, las especificaciones técnicas serán responsabilidad de la unidad solicitante, quien deberá asesorarse, investigar y actualizarse respecto al bien o servicio a adquirir, la Proveeduría Institucional podrá recomendar sin embargo prevalece el criterio técnico de la unidad que solicita.
+b. Controlar y fiscalizar tanto la correcta utilización de los procedimientos de contratación pública por parte de los funcionarios competentes, como el correcto funcionamiento del Subsistema de Almacenamiento y Distribución de Bienes.
+c. Realizar evaluaciones del funcionamiento y operación de la Proveeduría Institucional y formular, al Proveedor Institucional, las recomendaciones que al efecto estime pertinente, todo sin perjuicio de las funciones que le competen a la unidad de Auditoría Interna de la Institución.
+d. Asesorar y dar apoyo en cuanto a los controles sobre las contrataciones en ejecución, la responsabilidad del cumplimiento de fechas y plazos en la etapa de ejecución del contrato es responsabilidad de la unidad Encargada del Contrato.
+e. Las demás funciones que le asignen sus superiores jerárquicos o el ordenamiento jurídico.

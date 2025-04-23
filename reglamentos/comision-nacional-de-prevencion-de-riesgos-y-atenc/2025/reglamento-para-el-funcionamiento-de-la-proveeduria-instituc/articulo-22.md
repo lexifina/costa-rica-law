@@ -1,0 +1,2 @@
+Artículo 22.-El Comité de recomendación de Adjudicaciones estará conformado por la Jefatura de Proveeduría, quien lo preside, la Jefatura de la Asesoría Legal y la Jefatura de la Unidad o Proceso solicitante del bien o servicio. En caso de ausencia de cualquiera de estos funcionarios serán sustituidos por quien quede a cargo de la Unidad de manera oficial.
+Cuando la contratación sea solicitada por el Jefe de la Asesoría Legal o de la Proveeduría, el Comité se conformará además por el superior de cada uno de ellos.

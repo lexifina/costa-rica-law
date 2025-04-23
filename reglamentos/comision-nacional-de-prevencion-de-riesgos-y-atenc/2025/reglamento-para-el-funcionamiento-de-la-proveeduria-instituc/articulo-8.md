@@ -1,0 +1,1 @@
+Artículo 8°-Sobre la Decisión Inicial de los Procedimientos de Contratación, los Directores de área, Jefaturas de Unidades y Encargados de Procesos, salvo disposición en contrario del máximo Jerarca, serán los competentes y responsables para emitir la decisión inicial en cada procedimiento de contratación pública en el Sistema digital unificado en el módulo correspondiente.
