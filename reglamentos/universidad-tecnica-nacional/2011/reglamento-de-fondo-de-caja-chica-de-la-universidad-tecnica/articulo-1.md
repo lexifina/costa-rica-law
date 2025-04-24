@@ -1,4 +1,6 @@
+(Derogado)
 UNIVERSIDAD TÉCNICA NACIONAL
+(Esta norma fue derogada por el artículo 32 del Reglamento General de Caja Chica de la Universidad Técnica Nacional, aprobado mediante sesión ordinario N° 10-2025 del 24 de abril del 2025)
 REGLAMENTO DEL FONDO DE CAJA CHICA
 Se comunica que mediante el acuerdo Nº 7 de la sesión ordinaria Nº 9 del 04 de octubre del 2011, el Consejo Universitario de la Universidad Técnica Nacional aprobó el Reglamento del Fondo de Caja Chica, el cual se encuentra en su versión completa en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr. Sección Normativa Universitaria.
 Rige a partir de su publicación.
