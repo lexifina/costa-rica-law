@@ -1,5 +1,5 @@
 CIRCULAR N° 331-2023
-(Mediante aviso N° 1-2025 del 27 de enero de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma. Dicho levantamiento rige a partir del 5 de febrero del 2025 y hasta el 15 de marzo del 2025)
+(Mediante aviso N° 1-2025 del 27 de enero de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma. Dicho levantamiento rige a partir del 5 de febrero del 2025 y hasta el 15 de marzo del 2025. Posteriormente mediante aviso N° 5-2025 del 24 de abril de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma, dicho levantamiento rige por el plazo de dos meses.)
 Asunto: Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Laboral y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA LABORAL
 SE LES HACE SABER QUE:
