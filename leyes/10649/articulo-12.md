@@ -1,0 +1,5 @@
+CAPÍTULO III
+Donación de sangre
+ARTÍCULO 12-Naturaleza de la donación. La donación de sangre es un acto voluntario, libre y altruista; es un procedimiento que garantiza el derecho a la vida y el derecho a la salud de las personas y su fuente de obtención está limitada a las personas que cumplan con los requisitos de salud para que sean consideradas personas sanas, de acuerdo con los protocolos establecidos, dentro de un rango de edad específico, sin que se comprometa su salud física y mental, y sin que medie retribución económica ni en especie, para ser utilizada con fines terapéuticos.
+La donación habitual y periódica es un acto de libre disposición, realizado sin que medie lucro o coacción, por el que una persona se presenta a un banco de sangre, o a la institución autorizada por el Ministerio de Salud, para solicitar la extracción de su sangre o sus componentes, que previamente analizados serán transfundidos a receptores no específicos.
+Debe procurarse y asegurarse el uso adecuado de la sangre, hemocomponentes para defender los intereses y derechos de todos los potenciales receptores y del donante.

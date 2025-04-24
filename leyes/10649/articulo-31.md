@@ -1,0 +1,1 @@
+ARTÍCULO 31- Plasma para procesamiento. Con el fin de garantizar la calidad final del producto, el plasma que se destina para el procesamiento industrial debe ser procesado en aplicación de las buenas prácticas de manufactura y cumplir, como mínimo, con las pruebas de tamizaje establecidas en las normas técnicas.

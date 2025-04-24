@@ -1,0 +1,1 @@
+ARTÍCULO 17- Deber del donante. Para preservar la salud del donante y la máxima protección de los receptores y del personal de salud, el donante debe suministrar información fidedigna cuando se le solicite, la cual deberá manejarse con absoluta confidencialidad.

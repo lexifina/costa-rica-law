@@ -1,0 +1,3 @@
+ARTÍCULO 37- Actuación dolosa del trabajador de salud. Se impondrá prisión de tres a nueve años al trabajador de la salud público o privado que, conociendo que el producto por transfundir o el artículo por utilizar está o podría estar infectado por una enfermedad transmisible por transfusión, lo utilice en una persona y esta resulte infectada.
+Se impondrá pena de ocho a doce años a los trabajadores de la salud, públicos o privados, que faciliten alguna de las conductas previstas en el párrafo primero.
+Quedan facultados los jueces para imponer, además de las penas consignadas en cada caso, la pena de inhabilitación absoluta o especial en el tanto estimen pertinente, de acuerdo con la gravedad del hecho y dentro de los límites fijados para esta pena.

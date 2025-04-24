@@ -1,0 +1,1 @@
+ARTÍCULO 30- Funcionamiento. Los laboratorios de hemoderivados solo podrán funcionar bajo autorización y registro expreso del Ministerio de Salud, en concordancia con la Ley 5395, Ley General de Salud, de 30 de octubre de 1973.
