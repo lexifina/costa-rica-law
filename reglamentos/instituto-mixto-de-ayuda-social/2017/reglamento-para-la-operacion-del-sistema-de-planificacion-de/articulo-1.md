@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO MIXTO DE AYUDA SOCIAL
+(Esta norma fue derogada por el artículo 52 del Reglamento para la operacionalización del Sistema de Planificación del Instituto Mixto de Ayuda Social, aprobado mediante acuerdo CD N° 88-04-2025 con fecha 24 de abril del 2025)
 REGLAMENTO PARA LA OPERACIONALIZACIÓN DEL SISTEMA DE PLANIFICACIÓN
 DEL INSTITUTO MIXTO DE AYUDA SOCIAL
 CAPÍTULO 1

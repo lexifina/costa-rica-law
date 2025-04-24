@@ -14,3 +14,4 @@ Reglamento para la operación del sistema de planificación del Instituto Mixto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-30 | la propia norma |
+| 2 | 2025-04-24 | Reglamento 0 (2025-04-24) |
