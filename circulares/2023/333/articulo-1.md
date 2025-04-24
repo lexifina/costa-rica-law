@@ -1,5 +1,5 @@
 CIRCULAR N° 333-2023
-(Mediante aviso N° 1-2025 del 27 de enero de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma. Dicho levantamiento rige a partir del 5 de febrero del 2025 y hasta el 15 de marzo del 2025)
+(Mediante aviso N° 1-2025 del 27 de enero de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma. Dicho levantamiento rige a partir del 5 de febrero del 2025 y hasta el 15 de marzo del 2025. Posteriormente mediante aviso N° 5-2025 del 24 de abril de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma, dicho levantamiento rige por el plazo de dos meses.)
 (Nota de Sinalevi: Mediante circular N° 72-2024 del 8 de abril de 2024, se acordó modificar la presente norma en el entendido que los Juzgados Penales Juveniles de San José, dado el modelo de tramitación, se autoriza a cada persona juzgadora la posibilidad de trabajar un día a la semana en la modalidad de teletrabajo.")
 Asunto: Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Penal y cantidad de días máximos que se puede teletrabajar.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN MATERIA PENAL
