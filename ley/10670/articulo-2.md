@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorizaciones. Se autoriza al Ministerio de Economía, Industria y Comercio (MEIC), para que promueva el desarrollo de diferentes actividades de interés que fomenten la cultura emprendedora, el apoyo y el fortalecimiento del emprendimiento.
+Las instituciones públicas, con competencias relacionadas con el emprendimiento, podrán apoyar y brindar recursos financieros y/o no financieros para la realización de las actividades vinculadas con la celebración del Día Nacional de la Persona Emprendedora. Se insta al sector privado a formar parte de este apoyo.
