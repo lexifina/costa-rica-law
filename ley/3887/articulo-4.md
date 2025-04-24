@@ -1,1 +1,2 @@
-Artículo 4º.- Los caseríos que forman el nuevo distrito son: Pejibaye, como cabecera; Hacienda Joya, Yolanda, Chucuyo, Oriente, Juray, Omega, Tepemechín, Esperanza, Cantarrana, Ceiba, Gato, Humo, Alto de Humo, Taus, San Gerardo y Cacao.
+Artículo 4- Los caseríos que forman el nuevo distrito son: Pejivalle como cabecera; Hacienda Joya, Yolanda, Chucuyo, Oriente, Juray, Omega, Tepemechín, Esperanza, Cantarrana, Ceiba, Gato, Humo, Alto de Humo, Taus, San Gerardo y Cacao.
+(Así reformado por el artículo único de la ley N° 10694 del 24 de abril de 2025, “Ley para modificar la nomenclatura del Distrito 3°, Pejibaye y su cabecera de Distrito, del cantón IV, Jiménez de la provincia de Cartago, para el Fortalecimiento de la Identidad Local”)
