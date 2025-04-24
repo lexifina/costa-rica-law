@@ -1,0 +1,4 @@
+ARTÍCULO 36- Actuación culposa del trabajador de salud. Se impondrá de uno a tres años de prisión, al trabajador de la salud público o privado que, por impericia, imprudencia o negligencia, faltando al debido deber de cuidado y responsabilidad, realice a una persona una transfusión de sangre o sus hemoderivados infectada por una enfermedad transmisible por transfusión.
+La pena será de cuatro a diez años de prisión si, como resultado de la conducta descrita en el párrafo anterior, se comprueba que una persona resultó infectada.
+Las mismas penas se aplicarán a las personas que, con impericia, imprudencia o negligencia, faciliten alguna de las actividades anteriores.
+Quedan facultados los jueces para imponer, además de las penas consignadas en cada caso, la pena de inhabilitación absoluta o especial en el tanto estimen pertinente, de acuerdo con la gravedad del hecho y dentro de los límites fijados para esta pena.

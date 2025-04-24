@@ -1,0 +1,1 @@
+ARTÍCULO 2- Orden público. Se declara de orden público y de interés nacional la disponibilidad oportuna de sangre segura. El Estado debe fomentar la práctica de la donación voluntaria, altruista y recurrente de sangre segura, como uno de los mecanismos garantes de la protección y seguridad de la vida y de la salud, para garantizar su acceso en condiciones de equidad y dignidad.

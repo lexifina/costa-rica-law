@@ -1,0 +1,7 @@
+ARTÍCULO 14- Derechos del donante. El donante de sangre tiene los siguientes derechos:
+1- A recibir la información de manera accesible, inclusiva, comprensible, oportuna y congruente con sus necesidades particulares, sobre los procedimientos a los que será sometido y los riesgos asociados a la donación de sangre, previo a decidir de manera libre, informada y sin presión si dona su sangre y a brindar su consentimiento escrito.
+2- A disponer de tiempo laboral para donar sangre, al menos dos veces por año, sin verse afectado por pérdida o disminución salarial o en su calificación personal. Deberá presentar el comprobante o el correspondiente carné de donación o control de tiempo.
+3- A ser informado, personalmente de manera oportuna, presencialmente o por medios alternativos a consideración del médico, de los resultados de sus pruebas de laboratorio en caso de que estas tengan un resultado positivo, un resultado alterado o que requiera verificación, para lo cual existirán procedimientos de consejería, atención y seguimiento.
+4- A la confidencialidad y anonimato del donante y el receptor.
+5- A la atención, durante todo el proceso de donación, por personal de salud calificado y autorizado para el ejercicio de la profesión y a la práctica por parte de un técnico de laboratorio clínico, bajo la responsabilidad de un microbiólogo regente de un banco de sangre.
+6- A recibir atención, cuando se vean afectados debido a la donación de sangre, por cuenta de la institución, sea pública o privada, que autorizó la donación.

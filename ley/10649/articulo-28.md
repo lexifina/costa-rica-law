@@ -1,0 +1,1 @@
+ARTÍCULO 28- Descarte de sangre y productos derivados de la sangre. El descarte de sangre y sus derivados, una vez que estos hayan superado su fecha de expiración o no cumplan con las pruebas de control de calidad, será responsabilidad de los bancos de sangre, mediante protocolos establecidos para ese fin y con la debida supervisión y auditoría.

@@ -1,0 +1,1 @@
+ARTÍCULO 21- Almacenamiento y distribución de sangre y sus componentes. La sangre y sus componentes deben ser almacenados, controlados y transportados en las condiciones establecidas por el ente rector, con la finalidad de preservar su beneficio terapéutico.
