@@ -16,3 +16,4 @@ Disposiciones sobre la aplicación del teletrabajo en la Jurisdicción Civil y c
 | 2 | 2024-02-06 | Circular 30 (2024-02-06) |
 | 3 | 2024-02-22 | Circular 44 (2024-02-22) |
 | 4 | 2025-01-27 | Aviso 1 (2025-01-27) |
+| 5 | 2025-04-24 | Aviso 5 (2025-04-24) |
