@@ -36,9 +36,9 @@ Los anexos con el registro de los datos diarios, fotos, figuras, protocolos, cro
 número 402 OCDE). Este estudio se requerirá a menos que:
 2.1. El producto sea un gas o sea altamente volátil.
 2.2. El producto sea corrosivo para la piel o presente un pH menor a 2 o mayor a 11,5.
-3. Concentración letal media aguda por inhalación (CL50), expresada en mg/l de aire o mg/m3, por 4 horas de exposición (Guía Técnica número 403 OCDE). Esto se solicitará cuando:
-El producto sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor, sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 50 micrómetros, se aplique desde una aeronave, contenga sustancias activas con presión de vapor mayor a 1 x 10-2 Pa y se vaya a utilizar en lugares cerrados, se vaya a aplicar de modo tal que genere partículas o gotas
-de diámetros menor a 50 micrómetros.
+3. Concentración letal media aguda por inhalación (CL50), expresada en mg/l de aire o mg/m3, por 4 horas de exposición (Guía Técnica número 403 OCDE). Esto se solicitará cuando se cumpla con alguna de las siguientes características:
+El producto sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor, sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 100 ?m. Para justificar la no presentación del ensayo, se debe demostrar que el producto no cumple las ropiedades citadas.
+(Así reformado el punto 3) anterior por el artículo 12° del decreto ejecutivo N° 45007 del 24 de abril del 2025)
 4. Irritación dérmica (Guía Técnica número 404 OCDE). Este estudio se requerirá a menos que:
 4.1. El producto sea un gas o sea altamente volátil.
 4.2. El producto sea corrosivo para la piel o presente un pH menor a 2 o mayor a 11,5.
@@ -64,7 +64,9 @@ El interesado podrá justificar, basado en información técnica y/o científica
 9.1.4 Estudio dérmico de 90 días (Guía Técnica OCDE 411).
 9.1.5 Estudio de inhalación de 28 días (Guía Técnica OCDE 412).
 9.1.6 Estudio de inhalación de 90 días (Guía Técnica OCDE 413).
-10. Estudios genotóxicos (mutagenicidad):
+10. Estudios genotóxicos (mutagenicidad)*:
+* El SFE puede requerir otros estudios de mutagenicidad, previa justificación técnica y debidamente razonada en caso de resultados positivos, siendo esta información indispensable para poder proseguir con el trámite de registro.
+(Así reformado el punto 10) anterior por el artículo 12° del decreto ejecutivo N° 45007 del 24 de abril del 2025)
 10.1. Ensayo de mutación reversa en bacterias (Guía Técnica OCDE 471).
 10.2. Ensayo mutación de gen en células mamíferas (Guía Técnica OCDE 476).
 10.3. Ensayo de micronúcleos (Guía Técnica OCDE 474).
@@ -108,6 +110,8 @@ Con respecto a las guías indicadas en este apartado son las recomendadas y se c
 1.11. Estudio de inmobilización aguda en Daphnia magna. Debe cumplir lo indicado en las guías OCDE 202 y OCSPP 850.1010.
 1.12. Estudio de toxicidad crónica en Daphnia magna. Debe cumplir lo indicado en las guías OCDE 211 y OCSPP 850.1300.
 1.13. Estudio de toxicidad en algas. Debe cumplir lo indicado en las guías OCDE 201 y OCSPP 850. 5400.
+Nota. Para cumplir con los requisitos 1.6 y 1.7 se pueden presentar los estudios elaborados con el IAGT o con el plaguicida sintético formulado que lo contiene, los cuales deben realizarse con la concentración máxima de IAGT que se aplicará en el campo.
+(Así adicionada la nota anterior por el artículo 3° del decreto ejecutivo N° 45007 del 24 de abril del 2025)
 2. Estudios de destino ambiental:
 2.1. Estudio sobre degradación aeróbica en el suelo. Debe cumplir lo indicado en las guías OCDE 307 y OCSPP 835.4100 o cualquier otra internacionalmente reconocida.
 2.2. Estudio sobre adsorción y desorción. Debe cumplir lo indicado en las guías OCDE 106 y OCSPP 835. 1230 o cualquier otra internacionalmente reconocida.

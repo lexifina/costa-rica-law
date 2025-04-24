@@ -50,7 +50,8 @@ REQUISITOS TOXICOLÓGICOS
 2. Dosis letal dérmica aguda (DL50), expresada en mg/kg de peso corporal (Guía Técnica número 402 OCDE). Este estudio se requerirá a menos que:
 2.4 El producto sea un gas o sea altamente volátil.
 2.5 El producto sea corrosivo para la piel o presente un pH menor a 2 o mayor a 11,5.
-3. Concentración letal media aguda por inhalación (CL50), expresada en mg/1 de aire o mg/m3, por 4 horas de exposición (Guía Técnica número 403 OCDE). Esto se solicitará cuando el producto sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor, sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 50 micrómetros, se aplique desde una aeronave, contenga sustancias activas con presión de vapor mayor a 1 x 10-2 Pa y se vaya a utilizar en lugares cerrados, se vaya a aplicar de modo tal que genere partículas o gotas de diámetros menor a 50 micrómetros.
+3. Concentración letal media aguda por inhalación (CL50), expresada en mg/l de aire o mg/m3, por 4 horas de exposición (Guía Técnica número 403 OCDE). Esto se solicitará cuando se cumpla con alguna de las siguientes características: El producto sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor, sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 100 m. Para justificar la no presentación del ensayo, se debe demostrar que el producto no cumple las propiedades citadas.
+(Así reformado el punto 3) anterior por el artículo 17° del decreto ejecutivo N° 45007 del 24 de abril del 2025)
 4. Irritación dérmica (Guía Técnica número 404 OCDE). Este estudio se requerirá a menos que:
 4.1 El producto sea un gas o sea altamente volátil.
 4.2 El producto sea corrosivo para la piel o presente un pH menor a 2 o mayor a 11,5.
