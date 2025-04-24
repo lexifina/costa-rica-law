@@ -1,0 +1,1 @@
+ARTÍCULO 3- Coordinación en el ámbito local. El Ministerio de Economía, Industria y Comercio (MEIC) articulará y apoyará la gestión de las municipalidades en su rol dinamizador del desarrollo económico local, mediante acciones de fomento, promoción y apoyo al emprendimiento.
