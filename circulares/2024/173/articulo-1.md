@@ -1,6 +1,5 @@
-(Derogado)
 CIRCULAR No. 173-2024
-(Esta circular fue derogada mediante circular N° 196-2024 del 26 de setiembre del 2024, Renovación de las disposiciones sobre la aplicación del teletrabajo para las materias que componen la Jurisdicción de Familia y cantidad de días máximos que se puede teletrabajar)
+(Mediante aviso N° 5-2025 del 24 de abril de 2025, se acordó levantar temporalmente las disposiciones indicadas en esta norma, dicho levantamiento rige por el plazo de dos meses.)
 Asunto: Modificación de las disposiciones sobre la aplicación del teletrabajo para las materias que componen la Jurisdicción de Familia y cantidad de días máximos que se puede teletrabajar. Se deja sin efecto lo establecido mediante circular 332-2023.
 A TODOS LOS DESPACHOS JUDICIALES QUE CONOCEN SOBRE MATERIA DE FAMILIA, PENSIONES ALIMENTARIAS, VIOLENCIA DOMÉSTICA, NIÑEZ Y ADOLESCENCIA
 SE LES HACE SABER QUE:

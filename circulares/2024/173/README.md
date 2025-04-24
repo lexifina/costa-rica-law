@@ -14,3 +14,4 @@ Modificación de las disposiciones sobre la aplicación del teletrabajo para las
 | --- | --- | --- |
 | 1 | 2024-08-14 | la propia norma |
 | 2 | 2024-09-26 | Circular 196 (2024-09-26) |
+| 3 | 2025-04-24 | Aviso 5 (2025-04-24) |
