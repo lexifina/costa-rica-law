@@ -16,3 +16,4 @@ Reglamento para el juego nuevos tiempos
 | 1 | 2024-07-31 | la propia norma |
 | 2 | 2024-09-02 | Reglamento 47 (2024-09-02) |
 | 3 | 2025-03-20 | Reglamento 18 (2025-03-20) |
+| 4 | 2025-04-24 | Reglamento 24 (2025-04-24) |
