@@ -1,0 +1,4 @@
+Artículo 36 Presentación de informes sobre los impactos de las actividades autorizadas
+Las Partes, actuando individual o colectivamente. informarán periódicamente sobre los impactos de la actividad autorizada y los resultados ele la supervisión prevista en el artículo 35.
+Los informes de supervisión se harán públicos, entre otras vías a través del Mecanismo de Intercambio de Información, y el Órgano Científico y Técnico podrá examinar y valorar los informes de supervisión.
+El Órgano Científico y Técnico examinará los informes de supervisión. sobre la base de las prácticas, los procedimientos y los conocimientos pertinentes en virtud del presente Acuerdo, con miras a la elaboración de directrices sobre la supervisión de los impactos de las actividades autorizadas, incluida la determinación de mejores prácticas.

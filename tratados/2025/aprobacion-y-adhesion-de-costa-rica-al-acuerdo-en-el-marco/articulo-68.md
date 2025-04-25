@@ -1,0 +1,4 @@
+Artículo 68 Entrada en vigor
+1. El presente Acuerdo entrará en vigor 120 días después de la fecha en que se haya depositado el sexagésimo instrumento de ratificación, aprobación, aceptación o adhesión.
+2. Respecto de cada Estado u organización regional de integración económica que ratifique, apruebe o acepte el presente Acuerdo o se adhiera a él después de haberse depositado el sexagésimo instrumento de ratificación. aprobación. aceptación o adhesión, el presente Acuerdo entrará en vigor el trigésimo día siguiente a la fecha en que hayan depositado su instrumento de ratificación, aprobación, aceptación o adhesión, con sujeción a lo dispuesto en el párrafo 1 del presente artículo.
+3. A los efectos de los párrafos 1 y 2 del presente artículo, los instrumentos depositados, por una organización regional de integración económica no se considerarán adicionales a los depositados por los Estados miembros de esa organización.

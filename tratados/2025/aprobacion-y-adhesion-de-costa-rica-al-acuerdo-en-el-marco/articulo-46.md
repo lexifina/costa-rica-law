@@ -1,0 +1,4 @@
+Artículo 46 Comité de creación de capacidad y transferencia de tecnología marina
+1. Queda establecido un comité de creación de capacidad y transferencia de tecnología marina.
+2. El comité estará integrado por miembros con cualificaciones y conocimientos adecuados que actuarán con objetividad en el mejor interés del presente Acuerdo, propuestos por las Partes y elegidos por la Conferencia de las Partes, teniendo en cuenta el equilibrio de género y una distribución geográfica equitativa y velando por que en el comité estén representados los países menos adelantados, los pequeños Estados insulares en desarrollo y los países en desarrollo sin litoral. La Conferencia de las Partes decidirá las atribuciones y las modalidades de funcionamiento del comité en su primera reunión.
+3. El comité presentará informes y recomendaciones que la Conferencia de las Partes examinará y sobre los que adoptará las medidas que corresponda.

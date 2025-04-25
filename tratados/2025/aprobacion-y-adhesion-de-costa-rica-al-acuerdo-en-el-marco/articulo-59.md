@@ -1,0 +1,2 @@
+Artículo 59 Controversias de índole técnica
+Cuando una controversia se refiera a una cuestión de índole técnica, las Partes concernidas podrán remitirla a un panel de expertos ad hoc establecido por ellas. El panel consultará con las Partes concernidas y procurará resolver la controversia sin demora, sin recurrir a los procedimientos obligatorios de solución de controversias previstos en el artículo 60 del presente Acuerdo.

@@ -1,0 +1,2 @@
+Artículo 66 Ratificación, aprobación, aceptación y adhesión
+El presente Acuerdo estará sujeto a ratificación. aprobación o aceptación por los Estados y las organizaciones regionales de integración económica. Estará abierto a la adhesión de los Estados y las organizaciones regionales de integración económica a partir del día siguiente a la fecha en que quede cerrado a la firma. Los instrumentos de ratificación, aprobación. aceptación y adhesión se depositarán en poder del/la Secretario/a General de las Naciones Unidas.

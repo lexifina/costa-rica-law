@@ -1,0 +1,11 @@
+Artículo 50 Secretaría
+1. Queda establecida una secretaría. La Conferencia de las Partes adoptará, en su primera reunión, las disposiciones necesarias para el funcionamiento de la secretaría. incluida una decisión sobre su sede.
+2. Hasta que la secretaría comience a desempeñar sus funciones, el/la Secretario/a General de las Naciones Unidas, por conducto de la División de Asuntos Oceánicos y del Derecho del Mar de la Oficina de Asuntos Jurídicos de la Secretaría de las Naciones Unidas, desempeñará las funciones de secretaría establecidas en el presente Acuerdo.
+3. La secretaría y el Estado anfitrión podrán celebrar un acuerdo de sede. La secretaria disfrutará de capacidad jurídica en el territorio del Estado anfitrión y el Estado anfitrión le concederá los privilegios e inmunidades que sean necesarios para el ejercicio de sus funciones.
+4. La secretaría:
+a) Prestará apoyo administrativo y logístico a In Conferencia de las Partes y sus órganos subsidiarios a efectos de la implementación del presente Acuerdo:
+b) Organizará las reuniones de la Conferencia de las Partes y de cualquier otro órgano que se establezca en virtud del presente Acuerdo o que establezca la Conferencia de las Partes y prestará servicios a dichas reuniones:
+c) Divulgará oportunamente información relativa a la implementación del presente Acuerdo y, entre otras cosas. hará públicas las decisiones de la Conferencia de la Partes y las transmitirá a todas las Partes, así como a los instrumentos y marcos jurídicos pertinentes y a los órganos mundiales, regionales, subregionales y sectoriales competentes:
+d) Facilitará la cooperación y la coordinación, según proceda, con las secretarías de otros órganos internacionales pertinentes y, en particular, concertará los arreglos administrativos y contractuales que puedan ser necesarios a tal fin y para el desempeño eficaz de sus funciones, que estarán sujetos a la aprobación de la Conferencia de las Partes:
+e) Preparará informes sobre el desempeño de sus funciones en virtud del presente Acuerdo y los presentará a la Conferencia de las Partes:
+f) Prestará asistencia para la implementación del presente Acuerdo y desempeñará las demás funciones que determine la Conferencia de las Partes o que le asigne el presente Acuerdo.

@@ -1,0 +1,2 @@
+Artículo 6 Sin perjuicio
+El presente Acuerdo, incluida cualquier decisión o recomendación de la Conferencia de las Partes, de sus órganos subsidiarios, y cualesquiera actos, medidas o actividades realizados sobre la base de este, se entenderán sin perjuicio de cualesquiera reclamaciones de soberanía, derechos soberanos o jurisdicción, incluida cualquier controversia en esos ámbitos, y no podrán invocarse corno fundamento para hacer valer o negar tales reclamaciones.

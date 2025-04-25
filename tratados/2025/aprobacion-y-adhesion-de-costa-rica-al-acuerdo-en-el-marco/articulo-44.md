@@ -1,0 +1,12 @@
+Artículo 44 Tipos de creación de capacidad y de transferencia de tecnología marina
+1. Los tipos de creación de capacidad y de transferencia de tecnología marina en apoyo de los objetivos enunciados en el artículo 40 podrán consistir, entre otros, en el apoyo a la creación o el fortalecimiento de las capacidades de las Partes en materia de recursos humanos. De gestión financiera, científicos, tecnológicos, organizativos. institucionales y de otra índole. como:
+a) El intercambio y la utilización de datos, información, conocimientos y resultados de investigación pertinentes:
+b) La difusión de información y la sensibilización, incluyendo en lo que respecta a los conocimientos tradicionales pertinentes de los Pueblos Indígenas y las comunidades locales, respetando el consentimiento libre, previo e información de esos Pueblos Indígenas y, según proceda, comunidades locales:
+c) El desarrollo y fortalecimiento de la infraestructura pertinente, incluido el equipo y la capacidad del personal para su uso y mantenimiento:
+d) El desarrollo y fortalecimiento de la capacidad institucional y de los marcos o mecanismos reguladores nacionales;
+e) El desarrollo y fortalecimiento de las capacidades en materia de recursos humanos y de gestión financiera y de los conocimientos técnicos mediante intercambios, colaboración en materia de investigación, apoyo técnico, educación y formación y transferencia de tecnología marina:
+f) La elaboración y el intercambio de manuales, directrices y normas:
+g) La creación de programas técnicos. científicos y de investigación y desarrollo;
+h) El desarrollo y fortalecimiento de las capacidades y las herramientas tecnológicas para la supervisión, el control y la vigilancia eficaces de las actividades comprendidas en el ámbito del presente Acuerdo.
+2. En el anexo II figura información más detallada sobre los tipos de creación de capacidad y de transferencia de tecnología marina mencionados en el presente artículo.
+3. La Conferencia de las Partes, teniendo en cuenta las recomendaciones del comité de creación de capacidad y transferencia de tecnología marina, examinará. evaluará y seguirá desarrollando y proporcionando periódicamente, según sea necesario, orientaciones sobre la lista indicativa y no exhaustiva de los tipos de creación de capacidad y de transferencia de tecnología marina que figura en el anexo II a fin de reflejar la innovación y los avances tecnológicos y responder y adaptarse a la evolución de las necesidades de los Estados, las subregiones y las regiones.

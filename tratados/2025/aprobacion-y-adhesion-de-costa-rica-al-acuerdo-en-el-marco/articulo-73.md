@@ -1,0 +1,3 @@
+Artículo 73 Denuncia
+1. Toda Parte podrá denunciar el presente Acuerdo mediante notificación escrita dirigida al/la Secretario/a General de las Naciones Unidas, e indicar las razones en que funde la denuncia. La omisión de esas razones no afectará a la validez de la denuncia. La denuncia surtirá efecto un año después de la fecha en que haya sido recibida la notificación, a menos que en ésta se señale una fecha ulterior.
+2. La denuncia no afectará en modo alguno al deber de la Parte de cumplir toda obligación enunciada en el presente Acuerdo a la que esté sometida en virtud del derecho internacional independientemente del presente Acuerdo.
