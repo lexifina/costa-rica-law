@@ -42,7 +42,7 @@ c. Reforma al Anexo 1. Plan de cuentas para las entidades supervisadas por SUGEF
 "SUBCUENTA
 121.99 Otros instrumentos financieros al valor razonable con cambios en resultados CONCEPTO: En esta subcuenta se registran las inversiones realizadas por la entidad en participaciones en fondos de inversión abiertos y cerrados en entidades del país y del exterior e incluye otros activos para negociar no comprendidas en las subcuentas anteriores.
 CUENTAS ANALÍTICAS
-[…]
+[.]
 No. CUENTA | CONCEPTO | SUGEF | SUGEVAL | SUPEN
 12199M03 | Participaciones fondos inversión cerrados del país | x | x |
 12199M04 | Participaciones fondos inversión cerrados del exterior | x | x |
@@ -100,27 +100,27 @@ f. Reforma al Reglamento sobre autorizaciones de entidades supervisadas por la S
 Este Reglamento es aplicable a las entidades supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) y para las entidades que pretenden iniciar actividades de intermediación financiera en Costa Rica, dentro de estas últimas se incluyen a los bancos extranjeros que pretendan operar en Costa Rica por medio de sucursales bancarias.
 (...)"
 4. Reforma al segundo párrafo del artículo 4, en los siguientes términos:
-"(…)
+"(.)
 Toda solicitud debe presentarse por escrito ante la SUGEF, debe estar firmada por el representante legal de la entidad o por quien ejercerá la representación de la entidad que presenta la solicitud y cumplir con la totalidad de los requisitos establecidos en la legislación y en este Reglamento.
-(…)"
+(.)"
 5. Reforma al artículo 5, en los siguientes términos:
 "Para las solicitudes que se indican en este reglamento, el órgano supervisor responsable es la SUGEF."
 6. Reforma al segundo párrafo del artículo 8, en los siguientes términos:
 "(...)
 Cuando el órgano resolutivo sea el CONASSIF, la SUGEF debe remitir a éste, dentro del plazo indicado en el párrafo anterior, un dictamen previo con su recomendación sobre la solicitud, con base en la información recibida y los criterios de valoración establecidos en este Reglamento.
-(…)"
+(.)"
 7. Reforma al primer párrafo del artículo 17, en los siguientes términos:
 "En el caso de una solicitud de autorización para fusión, el Plan Operativo de Integración a que se refiere el anexo 3 de este Reglamento, debe presentarse a la SUGEF dentro del plazo de tres meses contados a partir de la fecha de comunicación de la autorización de la fusión. El Plan Operativo de Integración deberá garantizar la integración plena de las entidades participantes en un plazo de doce meses a partir de la presentación del plan de integración.
-(…)"
+(.)"
 8. Reforma al inciso a) del artículo 28, en los siguientes términos:
-"(…)
+"(.)
 a) Cuando la Ley que regula sus actividades, faculta expresamente a la entidad supervisada en el territorio costarricense a participar en el capital social de otras sociedades. La totalidad de las empresas en las que participe la entidad financiera forman parte del grupo o conglomerado financiero al que pertenezca la entidad, con excepción de lo establecido en el Reglamento sobre Supervisión Consolidada.
-(…)"
+(.)"
 9. Reforma al primer párrafo del artículo 46, en los siguientes términos:
 "La valoración de la solicitud de autorización de entidades financieras supervisadas por la SUGEF, se realiza considerando las siguientes áreas de análisis según corresponda:
 (...)"
 10. Reforma al inciso a) y el último párrafo del artículo 47, en los siguientes términos:
-"(…)
+"(.)
 a) Solvencia económica: El socio cuenta con un patrimonio neto que cubre el monto de los aportes de capital que le corresponde realizar para la constitución de un nuevo intermediario.
 (...)
 No se autorizará la constitución de un nuevo intermediario cuando para alguno de sus socios, persona física, se presente en el plazo indicado cualquiera de los actos detallados en la Sección II "Antecedentes disciplinarios y judiciales" del anexo 13 de este Reglamento."
@@ -165,8 +165,8 @@ Disposición final única. Entrada en vigor.
 La vigencia de este reglamento es:
 a. El Título I, II y V rigen a partir del 1ero de enero del 2023.
 b. El Capítulo I, II y III del Título III Supervisión, Organización y Funcionamiento, rigen a partir del 1ero de enero del 2023.
-c. El Capítulo IV, V y VI del Título III Supervisión, Organización y Funcionamiento, rige a partir del 1° de julio de 2025. Antes de esta fecha, las entidades financieras y los grupos o conglomerados financieros supervisados por Sugef continúan aplicando lo dispuesto en el Reglamento sobre límites a las operaciones activas, directas e indirectas, de una entidad supervisada, Acuerdo Sugef 4-22.
-(Así reformado el inciso anterior mediante sesión N° 1847-2024 del 11 de marzo del 2024)
+c. El Capítulo IV, V y VI del Título III Supervisión, Organización y Funcionamiento, rige a partir del 30 de setiembre del 2026. Antes de esta fecha, las entidades financieras y los grupos o conglomerados financieros supervisados por Sugef continúan aplicando lo dispuesto en el Reglamento sobre límites a las operaciones activas, directas e indirectas, de una entidad supervisada, Acuerdo Sugef 4-22..
+(Así reformado el inciso anterior mediante sesiones N° 1932-2025 y 1933-2025, del 28 de abril del 2025)
 d. El Título IV rigen a partir del 1ero de enero del 2025. Antes de esta fecha, los grupos o conglomerados financieros supervisados continúan aplicando lo dispuesto en el Reglamento sobre suficiencia patrimonial de grupos y conglomerados financieros, Acuerdo SUGEF 21- 16.
-e. Título VI Información para la supervisión consolidada: rige a partir del 1° de enero del 2023, excepto por los incisos c, d, e, f, i del artículo 116 que rigen a partir el 1° de julio del 2025.
-(Así reformado el inciso anterior mediante sesión N° 1847-2024 del 11 de marzo del 2024)
+e. Título VI Información para la supervisión consolidada: rige a partir del 1° de enero del 2023, excepto por los incisos c), d), e), f), i) del artículo 116 que rigen a partir del 30 de setiembre del 2026".
+(Así reformado el inciso anterior mediante sesiones N° 1932-2025 y 1933-2025, del 28 de abril del 2025)
