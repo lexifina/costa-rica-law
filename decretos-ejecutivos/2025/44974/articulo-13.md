@@ -1,0 +1,2 @@
+Artículo 13: Modifíquese el artículo 36 del Decreto Ejecutivo 36093 -S, Reglamento sobre el manejo de residuos sólidos ordinarios, del 15 de julio del 2010, leyéndose en delante de la siguiente forma:
+"Artículo 36.-Cuando se utilice la técnica de disposición final por medio de relleno sanitario se debe cumplir con lo señalado en el Decreto Ejecutivo 44421 -S, Reglamento de parques ambientales para la separación, tratamiento, aprovechamiento y disposición final de residuos sólidos, publicado el 25 de abril del 2024."
