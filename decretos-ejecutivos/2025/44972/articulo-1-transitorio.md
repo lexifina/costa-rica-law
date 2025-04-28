@@ -1,0 +1,1 @@
+Transitorio único: El Ministerio de Salud tendrá un plazo de seis meses contado a partir de la publicación del presente Decreto Ejecutivo para la implementación de la modificación de la estructura organizativa la Dirección de Regulación de Productos de Interés y Riesgo Sanitario.
