@@ -1,3 +1,1 @@
-SECCIÓN IX
-De las finanzas
-Articulo 55. —Periodo fiscal. Para los efectos de EL COMITÉ, el año económico se inicia el 1° de enero y finaliza el 31 de diciembre de cada año.
+Artículo 55.-Adquisición de bienes y servicios. La adquisición de bienes y servicios, y en general, la construcción, reparación y mantenimiento de las instalaciones deportivas, se regirá por los procedimientos que al efecto establece la Ley General de Contratación Pública y su Reglamento. Adicionalmente, el Comité Cantonal de Deportes y Recreación de Escazú, podrá aplicar supletoriamente el Manual de Procedimientos de la Proveeduría Municipal, o bien, promulgar su propio manual de procedimientos para este propósito, y ser asistido por la Proveeduría Municipal en todo procedimiento de contratación administrativa que requiera efectuar, quedando facultado para utilizar el Registro de Proveedores de la Municipalidad.

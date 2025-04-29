@@ -1,15 +1,7 @@
-Artículo 53.—Del contador. El Comité contará con un contador, con cargo al presupuesto ordinario anual de la Municipalidad y que formará parte de la estructura administrativa de ésta y tendrá las siguientes funciones:
-a) Asistir al Tesorero de la Junta Directiva de El Comité en todas sus funciones.
-b) Custodiar los dineros del comité.
-c) Fiscalizar y recaudar los ingresos económicos, ordinarios, y extraordinarios que ingresen a la cuenta corriente del comité.
-d) Llevar la contabilidad al día.
-e) Llevar un estricto control de las cuotas, participaciones, donaciones y demás valores que ingresen a los fondos del comité y extender el correspondiente recibo.
-f) Suministrar toda la información financiera necesaria para la elaboración de los planes anuales.
-g) Preparar el informe económico mensual que debe presentar el Tesorero a la Junta Directiva.
-h) Llevar los libros del manejo de la caja chica autorizados por el comité.
-i) Preparar un informe semestral sobre la relación ingreso-gasto de El Comité.
-j) Llevar los siguientes libros: Diario, Mayor, General, Caja y Bancos Inventarios y Balances, los cuales deberán estar debidamente sellados, foliados y autorizados por la Auditoria Municipal.
-k) Fiscalizar los dineros correspondientes a la caja chica que se regirá por el Reglamento que al efecto emita El Comité.
-l) Presentar los informes que le sean solicitados y en la fecha indicada.
-m) Cualquier otra función que se le asigne por parte de la Junta Directiva de El Comité o del Tesorero de este órgano.
-(Así reformado en sesión N° 259 del 13 de abril de 2015)
+Artículo 53.-Ingresos. Para el cumplimiento de sus objetivos y metas Comité Cantonal de Deportes y Recreación de Escazú contará con los siguientes recursos:
+a) Ordinarios. Las municipalidades deberán asignarles un mínimo de un tres por ciento (3%) de los ingresos ordinarios anuales municipales para el desempeño de las funciones del Comité Cantonal de Deportes y Recreación; de este porcentaje, un diez por ciento (10%), como máximo, se destinará a gastos administrativos y el resto, a programas deportivos, recreativos, de estilos de vida saludable, al mantenimiento y construcción de instalaciones. Este porcentaje destinado a gasto administrativo podrá aumentar en otros diez puntos porcentuales (10 p.p.), siempre y cuando se demuestre que dicho recurso es necesario para el desarrollo y continuidad de los planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales, así como para construir, administrar y mantener sus instalaciones deportivas o recreativas.
+b) Extraordinarios. Son aquellos provenientes de la generación de recursos financieros, económicos, en efectivo y en especie, originados mediante el usufructo de sus instalaciones, colocación financiera del superávit, superávits provenientes de la ejecución presupuestaria de años anteriores, y cualquier otro, generado por fuentes externas.
+c) Cualquier partida adicional del presupuesto municipal que el Concejo Municipal desee transferirles, ya sea para la participación en los Juegos Deportivos Nacionales, construcción, reconstrucción y mejoras a las instalaciones deportivas.
+d) Ingreso por cuotas o tarifas, originadas en rubros de alquiler de instalaciones deportivas.
+e) Cualquier partida específica destinada por la Asamblea Legislativa para construcción o mejoras de instalaciones, actividades deportivas o recreativas, o compra de equipo o implementos deportivos.
+f) Recursos provenientes de ingresos, generados mediante el Plan de Mercadeo que ejecute el Comité Cantonal de Deportes y Recreación de Escazú.

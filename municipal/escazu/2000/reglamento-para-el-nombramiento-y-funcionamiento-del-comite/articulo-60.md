@@ -1,1 +1,3 @@
-Artículo 60.—Órganos dependientes EL COMITÉ suministrará a todos los órganos de su dependencia, un libro de tesorería y recibos por dinero, que deberán usarse en todas las gestiones de cobro que se realicen.
+SECCIÓN XI
+Reconocimientos y Beneficios
+Artículo 60.-Reconocimiento. Para gozar de cualquier reconocimiento, beneficio, uso de instalaciones e implementos deportivos, así como para participar en juegos oficiales, federados, cantonales y juegos deportivos nacionales, toda organización deportiva o recreativa del cantón deberá afiliarse al Comité Cantonal de Deportes y Recreación de Escazú o a sus órganos adscritos, tales como a los Comités Comunales. Para los efectos anteriores, el Comité Cantonal de Deportes y Recreación de Escazú emitirá los reglamentos, lineamientos y/o manuales correspondientes donde se establecerán los requisitos para cada caso.

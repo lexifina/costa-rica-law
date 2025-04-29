@@ -1,1 +1,1 @@
-Artículo 29.—Dietas o Remuneración. Los miembros de la Junta Directiva no devengaran dietas ni remuneración alguna, ya que el cargo es totalmente ad honorem. Sin embargo, podrán gozar de reconocimiento de gastos de viaje y de representación hasta un máximo de seis ocasiones por año, y adicionalmente, se les reconocerán dichos gastos para su participación en los juegos nacionales.
+Artículo 29.-Dietas o Remuneración. Los miembros de la Junta Directiva no devengaran dietas ni remuneración alguna, ya que el cargo es totalmente ad honorem.

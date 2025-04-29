@@ -1,1 +1,3 @@
-Articulo 79.—Mantenimiento de instalaciones El mantenimiento de las instalaciones deportivas en cada una de las comunidades estará a cargo del respectivo Comité. Este mantenimiento debe darlo el Comité Comunal por lo menos una vez al año, en cualquiera de sus meses, debiendo permanecer totalmente cerradas las instalaciones durante el tiempo necesario para la realización del mismo, para lo cual deberán comunicarlo a los interesados y usuarios de estas.
+CAPÍTULO VII
+Disposiciones Finales
+Artículo 79.-Reformas. Cualquier reforma que proponga el Comité Cantonal de Deportes y Recreación de Escazú a este Reglamento, se pondrá en conocimiento del Concejo Municipal para su valoración, revisión, discusión y eventual aprobación.

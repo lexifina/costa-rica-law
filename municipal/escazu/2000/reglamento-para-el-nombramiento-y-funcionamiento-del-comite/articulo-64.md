@@ -1,7 +1,6 @@
-Articulo 64.—Régimen disciplinario de directivos de Comisiones, Comités, Atletas y Entrenadores. EL COMITÉ podrá imponerle a los miembros de los Comités Comunales de Deportes y/o Recreación, a los entrenadores, atletas, directivos de comisiones y a cualquier otra persona que se encuentre relacionada con ni. COMITÉ pero sin mediar relación laboral, las siguientes sanciones.
-a) Prevención.
-b) Amonestación verbal.
-c) Amonestación escrita.
-d) Inhabilitación temporal.
-e) Expulsión o resolución contractual.
-Para la aplicación de éstas sanciones se deberá seguir el debido proceso, y adicionalmente, de ser procedente EL COMITÉ podrá exigir la reparación integral del daño causado y el pago de los daños y perjuicios producidos por la actuación del infractor.
+CAPÍTULO V
+Comités Distritales y/o Comunales
+Artículo 64.-Integración de los Comités Distritales o Comunales. Los Comités Distritales y/o Comunales estarán integrados por siete miembros residentes del distrito del cantón respectivo, nombrados en asamblea general, convocada para tal efecto por el Comité Cantonal de Deportes y Recreación de Escazú. La Asamblea General estará conformada por personas vecinas del distrito o comunidad.
+Al menos dos de las personas integrantes de cada comité distrital o comunal deberán ser mayores de 15 años y menores de 35 años cumplidos. En caso de que alguno de estos miembros se trate de una persona menor de edad, esta no podrá ostentar la representación judicial o extrajudicial del comité, ni podrá contraer obligaciones en nombre del comité. Ver articulo arriba
+Se deberá respetar la paridad de género, publicidad y transparencia en la designación de dichos miembros. Estos se organizarán como Junta Directiva, por lo que de entre sus miembros nombraran a un presidente, vicepresidente, secretario, tesorero, tres vocales, los cuales tendrán en lo que proceda, las mismas obligaciones y deberes que establezca la ley y este reglamento.
+El Comité Cantonal de Deportes y Recreación de Escazú decidirá, conforme a criterios técnicos, la creación de comités distritales o comunales para el adecuado desempeño de sus funciones.

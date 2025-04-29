@@ -1,1 +1,1 @@
-Articulo 44.—Entrega de actas. El provecto de acta de cada sesión se entregará a los directivos de EL COMITÉ a más tardar dos horas antes de la sesión ordinaria con que serán aprobadas.
+Artículo 44.-Entrega de actas. El proyecto de acta de cada sesión se entregará a los directivos del Comité Cantonal de Deportes y Recreación de Escazú a más tardar cuatro horas antes de la sesión ordinaria con que serán aprobadas.

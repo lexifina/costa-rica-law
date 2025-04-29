@@ -1,7 +1,2 @@
-Articulo 63. —Régimen disciplinario de los funcionarios de EL COMITÉ. Para efectos disciplinarios y según la gravedad del caso, EL COMITÉ podrá imponer previo debido proceso, a los miembros de EL COMITÉ y a sus funcionarios, las siguientes sanciones:
-a) Prevención.
-b) Amonestación verbal.
-c) Amonestación escrita.
-d) Suspensión de trabajo sin goce de salario.
-e) Despido sin responsabilidad patronal.
-Las anteriores sanciones se regirán de conformidad con lo que establecen los artículos 149 y 150 del Código Municipal.
+Artículo 63.-Donaciones económicas. El Comité Cantonal de Deportes y Recreación de Escazú podrán donar recursos económicos mediante transferencias bancarias a las organizaciones deportivas del cantón, aprobadas por el Instituto Costarricense del Deporte y la Recreación, que se encuentren debidamente inscritas en el Registro de Asociaciones, para contribuir con los planes, proyectos y programas deportivos, recreativos y de estilos de vida saludable cantonales que el comité respalde.
+Las donaciones de recursos económicos deberán estar justificadas y la Municipalidad deberá definir los mecanismos de rendición de cuentas y liquidación en su respectivo reglamento, hasta que no está debidamente aprobado dicho reglamento no podrá aplicarse este artículo.

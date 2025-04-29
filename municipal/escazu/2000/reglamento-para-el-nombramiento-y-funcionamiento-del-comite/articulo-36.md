@@ -1,1 +1,1 @@
-Articulo 36.—Mayoría simple. Los acuerdos y fallos quedan firmes con votación de mayoría simple de los miembros de EL COMITÉ, igual cantidad de votos se requiere para modificar un acuerdo o fallo que haya quedado en firme.
+Artículo 36.-Mayoría simple. Los acuerdos y fallos quedan firmes con votación de mayoría simple de los miembros del Comité Cantonal de Deportes y Recreación de Escazú, igual cantidad de votos se requiere para modificar un acuerdo o fallo que haya quedado en firme.

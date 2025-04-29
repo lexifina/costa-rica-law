@@ -1,1 +1,7 @@
-Articulo 58.—Adquisición de bienes y servicios. La adquisición de bienes y servicios, y en general, la construcción, reparación y mantenimiento de las instalaciones deportivas, se regirá por los procedimientos que al efecto establece la Ley de Contratación Administrativa y su Reglamento. Adicionalmente, EL COMITÉ, podrá aplicar supletoriamente el Manual de Procedimientos para la Proveeduría Municipal, o bien, promulgar su propio manual de procedimientos para este propósito, y ser asistido por la Proveeduría Municipal en todo procedimiento de contratación administrativa que requiera efectuar, quedando facultado para utilizar el Registro de Proveedores de la Municipalidad.
+Artículo 58. -Régimen disciplinario de los funcionarios del Comité Cantonal de Deportes y Recreación de Escazú. Para efectos disciplinarios y según la gravedad del caso, el Comité Cantonal de Deportes y Recreación de Escazú podrá imponer previo proceso administrativo, a los funcionarios, las siguientes sanciones:
+a) Amonestación verbal.
+b) Amonestación escrita.
+c) Suspensión de trabajo sin goce de salario.
+d) Despido sin responsabilidad patronal.
+Las sanciones disciplinarias a los miembros de Junta Directiva serán aplicadas por el Concejo Municipal.
+Las anteriores sanciones se regirán de conformidad con lo que establecen los artículos 159 y 160 del Código Municipal.

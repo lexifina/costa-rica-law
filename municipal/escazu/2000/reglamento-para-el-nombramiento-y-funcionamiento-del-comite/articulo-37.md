@@ -1,1 +1,1 @@
-Articulo 37.—Votación. Existen dos tipos de votación; Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto, es secreta aquella velación que se haga mediante voto secreto.
+Artículo 37.-Votación. Existen dos tipos de votación; Nominal y Secreta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto, es secreta únicamente para la elección de los puestos dentro de la Junta Directiva del Comité.

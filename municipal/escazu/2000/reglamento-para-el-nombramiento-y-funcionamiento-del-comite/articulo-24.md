@@ -1,8 +1,7 @@
-Articulo 24.—Estructura Orgánica. EL COMITÉ estará constituido por la siguiente estructura:
-a) Una Junta Directiva que será constituida por los mismos miembros del COMITÉ.
-b) Las comisiones ordinarias, que serán; la de Juegos Deportivos Nacionales, de Mantenimiento y Uso del Estadio de San Antonio, de Mantenimiento y Uso del Estadio Nicolás Macis Quesada de Escazú, de Mantenimiento y Uso del Polideportivo de Guachipelín, de Mantenimiento y Uso de Implementos Deportivos, Organización de Eventos Deportivos Locales, y de Organización de Eventos Recreativos Locales.
+Artículo 24.-Estructura Orgánica. El Comité Cantonal de Deportes y Recreación de Escazú, estará constituido por la siguiente estructura:
+a) Una Junta Directiva que será constituida por siete miembros.
+b) Las comisiones ordinarias serán: Juegos Deportivos Nacionales, Mantenimiento y uso de las instalaciones deportivas y recreativas bajo su administración, Mantenimiento y Uso de Implementos Deportivos, Organización de Eventos Deportivos Locales, y de Organización de Eventos Recreativos Locales.
 c) Las comisiones especiales que se requieran.
-d) Un Órgano Administrativo conformado por un secretario y un contador.
-(Así reformado el inciso anterior en sesión N° 259 de 13 de abril de 2015)
+d) Un Órgano Administrativo conformado por un Gerente Administrativo y un contador.
 e) Los Comités Comunales de Deportes.
 f) Los Comités Comunales de Recreación.

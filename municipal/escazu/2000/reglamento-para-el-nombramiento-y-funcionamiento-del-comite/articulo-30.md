@@ -1,12 +1,11 @@
 SECCIÓN III
 De las funciones de la Junta Directiva
-Articulo 30.—Funciones del Presidente. Son funciones del Presidente (a) las que a continuación su detallan:
+Artículo 30.-Funciones del Presidente. Son funciones del Presidente (a) las que a continuación su detallan:
 a) Presidir las sesiones de la Junta Directiva.
 b) Firmar junto con el Secretario las actas de las sesiones de Junta Directiva
-c) Convocar a sesiones extraordinarias, conforme las disposiciones de este Reglamento.
-d) Velar por el cumplimiento de las obligaciones y objetivos de EL COMITÉ.
-e) Nombrar a los miembros de las Comisiones Ordinarias y Especiales de EL COMITÉ.
+c) Convocar a sesiones extraordinarias con veinticuatro horas de antelación y se deberá establecer por acuerdo los asuntos a tratar. En las sesiones extraordinarias solo podrán conocerse los asuntos incluidos en la convocatoria, además de los que, por unanimidad, acuerden conocer los miembros de la Junta Directiva.
+d) Velar por el cumplimiento de las obligaciones y objetivos del Comité Cantonal de Deportes y Recreación de Escazú.
+e) Nombrar a los miembros de las Comisiones Ordinarias y Especiales del Comité Cantonal de Deportes y Recreación de Escazú.
 f) Coordinar la ejecución de labores del personal administrativo y de las comisiones.
-g) Firmar los convenios o contratos que celebre EL COMITÉ.
-h) Firmar conjuntamente con el Tesorero, los cheques contra las cuentas de EL COMITÉ.
-i) Firmar los carnés extendidos a diferentes órganos, atletas y personas en general que realicen actividades deportivas y/o recreativas en el Cantón.
+g) Firmar los convenios o contratos que celebre el Comité previamente autorizadas por la Junta Directiva.
+h) Firmar conjuntamente con el Tesorero, los comprobantes de egresos contra las cuentas del Comité Cantonal de Deportes y Recreación de Escazú.

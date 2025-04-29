@@ -1,3 +1,1 @@
-SECCIÓN XI
-Reconocimientos y beneficios para atletas
-Articulo 65.—Reconocimiento. Para gozar de cualquier reconocimiento, beneficio, uso de instalaciones e implementos deportivos, así como para participar en juegos oficiales, federados, cantonales, y juegos deportivos nacionales, toda organización deportiva o recreativa del Cantón deberá afiliarse a los órganos dependientes de EL COMlTÉ. Para los efectos anteriores, EL COMITÉ emitirá el reglamento correspondiente donde se establecerán los requisitos para cada caso.
+Artículo 65.-Prohibiciones. Los regidores, el alcalde, los vicealcaldes, el director financiero municipal, tesorero municipal, el auditor municipal y el contador municipal, funcionarios del Comité Cantonal de Deportes y Recreación de Escazú, sus cónyuges o parientes hasta tercer grado por afinidad y/o consanguinidad están inhibidos para integrar estos comités.
