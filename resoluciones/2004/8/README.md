@@ -14,3 +14,4 @@ Dirección General de Servicio Civil emite resoluciones DG-076-2004, DG-079-2004
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-30 | la propia norma |
+| 2 | 2025-04-29 | Resolución 128 (2025-04-29) |
