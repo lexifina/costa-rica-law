@@ -15,3 +15,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | --- | --- | --- |
 | 1 | 1997-10-01 | la propia norma |
 | 2 | 2024-07-02 | Resolución 166 (2024-07-02) |
+| 3 | 2025-04-29 | Resolución 128 (2025-04-29) |
