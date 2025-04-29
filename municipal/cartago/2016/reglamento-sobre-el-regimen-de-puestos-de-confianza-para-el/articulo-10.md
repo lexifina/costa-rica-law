@@ -1,2 +1,1 @@
-Artículo 10.-Acceso a puestos de confianza. Las personas que se nombraren exclusivamente para ocupar un puesto de confianza estarán exentas de cumplir con el proceso de reclutamiento y selección de personal y demás normas que al respecto existan vigentes en la Municipalidad de Cartago. La responsabilidad de la idoneidad recaerá sobre la autoridad de la fracción política o del Regidor propietario separado de su Fracción, que solicite su nombramiento.
-(Así reformado mediante acta 70-2021, de la sesión ordinaria del 06 de abril del 2021)
+Artículo 10.-Partida para el pago. La Municipalidad de Cartago utilizará para el pago de salarios, las partidas de sueldos por servicios especiales.

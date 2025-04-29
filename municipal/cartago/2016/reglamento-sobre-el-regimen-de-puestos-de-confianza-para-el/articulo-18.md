@@ -1,1 +1,1 @@
-Artículo 18.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 18.-Aplicación normativa supletoria. En lo no previsto en este reglamento, los funcionarios de confianza se regirán por las disposiciones del Reglamento Autónomo Interno de Trabajo de la Municipalidad de Cartago y por las disposiciones administrativas dirigidas a las personas funcionarias regulares, en lo que sean aplicables dada su condición de tales.

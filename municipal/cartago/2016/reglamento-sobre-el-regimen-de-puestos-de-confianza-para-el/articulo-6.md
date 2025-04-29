@@ -1,1 +1,1 @@
-Artículo 6º—Cantidad de puestos de confianza. El número de puestos de confianza para cada fracción política se encuentra supeditado a la inclusión de recursos financieros en el presupuesto municipal de cada año. La Secretaria del Concejo, coordinará a satisfacción de las fracciones, la asignación del personal.
+Artículo 6º-Prohibición de nombramiento o traslado. No podrá nombrarse o trasladarse una persona funcionaria de confianza de fracciones para laborar en un departamento o dependencia municipal distinta de la fracción política correspondiente del Concejo Municipal.

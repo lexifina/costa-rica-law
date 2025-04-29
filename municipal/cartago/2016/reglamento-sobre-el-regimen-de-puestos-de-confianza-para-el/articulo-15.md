@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Financiamiento de las plazas
-Artículo 15.—Partida para el pago. La Municipalidad de Cartago utilizará para el pago de salarios, la partida de remuneraciones eventuales (Jornales ocasionales).
+Artículo 15.-Restricción participativa. Los contratados bajo el régimen de confianza no podrán acogerse a los beneficios de un programa de movilidad, ni participar en procesos de transformación organizacional o de concurso interno.

@@ -1,4 +1,5 @@
-CAPÍTULO III
-Condiciones para el nombramiento y la terminación
-del contrato de los puestos de confianza
-Artículo 8º—Sobre el nombramiento. Los nombramientos en puestos de confianza recaerá en personas externas a la Municipalidad de Cartago. Serán por tiempo determinado, no mayor a un ejercicio económico, salvo interrupción por parte de la instancia encargada de su selección o renuncia del titular, de acuerdo con el régimen de empleo aplicable a estos casos y descrito en este articulado.
+Artículo 8º-Libre remoción. Las personas funcionarias de confianza no gozarán de estabilidad laboral o derecho a la inmovilidad en el cargo.
+La remoción de las personas funcionarias de confianza será acordada por la Alcaldía en los siguientes casos:
+a) Por acuerdo formal de la respectiva fracción, en cualquier momento, discrecional y libremente.
+b) Cuando la persona funcionaria incurra en alguna de las conductas sancionadas con despido sin responsabilidad patronal en el Código de Trabajo, el Código Municipal, el Reglamento Autónomo Interno de Trabajo o el ordenamiento jurídico vigente, previo cumplimiento del debido proceso.
+c) En el caso de las fracciones políticas unipersonales, por el cese en el cargo de la persona funcionaria de elección popular que solicitó su nombramiento.
