@@ -1,1 +1,0 @@
-Artículo 10.-Juramentación. Los representantes de las organizaciones de sociedad civil designadas, deberán ser juramentados por el presidente de la Asamblea Legislativa, de previo a asumir sus funciones, el primero de setiembre del año en que fueron designados, o el día hábil inmediato posterior.
