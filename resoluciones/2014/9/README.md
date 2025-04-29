@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-29 | la propia norma |
+| 2 | 2025-04-29 | Resolución 128 (2025-04-29) |
