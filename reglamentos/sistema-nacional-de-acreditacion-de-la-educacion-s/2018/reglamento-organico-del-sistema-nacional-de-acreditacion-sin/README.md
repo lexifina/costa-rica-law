@@ -14,3 +14,4 @@ Reglamento orgánico del Sistema Nacional de Acreditación (SINAES)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-20 | la propia norma |
+| 2 | 2025-04-29 | Reglamento 1849 (2025-04-29) |
