@@ -1,0 +1,1 @@
+ARTÍCULO 22.- DEFENSAS PROCESALES CONTRA LOS ACTOS QUE IMPONEN MULTA ECONÓMICA, SUSPENSIÓN O CANCELACIÓN DE LICENCIAS. En materia recursiva la resolución que imponga una multa económica o la que ordene suspensión o cancelación de una licencia será recurrible bajo los remedios señalados por el Código Municipal.

@@ -1,0 +1,4 @@
+TRANSITORIO UNICO
+ARTÍCULO 28: Todas aquellas solicitudes de licencias para la comercialización de bebidas con contenido alcohólico que estén pendientes de aprobación y que se encuentren para resolución de fondo por parte del Concejo Municipal de Moravia al momento de entrar en vigencia las reformas introducidas al Reglamento, serán trasladadas de inmediato la Alcaldía Municipal para que esta proceda a dictar la resolución de fondo correspondiente. De la misma manera, todas aquellas solicitudes de licencia que hayan cumplido con todos los requisitos exigidos, pero no han sido puestas en conocimiento del Concejo Municipal, serán dirigidas a la Alcaldía Municipal para que esta tome la resolución de fondo que en Derecho corresponda.
+Rige a partir de su publicación.
+<span style='font-family:"Arial",sans-serif; </body>

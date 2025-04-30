@@ -1,0 +1,1 @@
+ARTÍCULO 12.- VIGENCIA DE LA LICENCIA. Conforme el artículo 5 de la ley n.°9047, toda licencia de comercialización de bebidas con contenido alcohólico tendrá una vigencia de cinco años, prorrogable de forma automática por períodos iguales, siempre y cuando los licenciatarios cumplan todos los requisitos legales y reglamentarios establecidos al momento de otorgar la prórroga.
