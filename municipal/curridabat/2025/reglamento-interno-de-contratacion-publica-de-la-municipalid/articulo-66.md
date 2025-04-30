@@ -1,0 +1,1 @@
+Artículo 66-Los egresos que se realicen por Caja Chica, se reembolsarán al Fondo por medio del trámite de reintegro de Caja Chica que prepara el Tesorero Municipal como encargado del fondo fijo, amparado en los comprobantes respectivos.

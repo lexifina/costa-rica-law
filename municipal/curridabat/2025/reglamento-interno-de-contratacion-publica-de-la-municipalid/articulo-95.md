@@ -1,0 +1,1 @@
+Artículo 95 - Recurso de Revocatoria: Tratándose del recurso de revocatoria contra el acto de adjudicación, la Dirección Jurídica será la encargada de conducir el trámite y emitirá una recomendación a la Alcaldía o Concejo según corresponda para que este emita la resolución final.

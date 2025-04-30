@@ -1,0 +1,1 @@
+Artículo 2- Objetivo: El presente reglamento tiene como objetivo regular el sistema de adquisición de bienes, servicios y obra pública de la Municipalidad de Curridabat, así como la competencia de las diversas dependencias internas de esta entidad municipal.

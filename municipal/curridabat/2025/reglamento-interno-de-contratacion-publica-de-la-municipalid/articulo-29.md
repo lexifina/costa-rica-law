@@ -1,0 +1,1 @@
+Artículo 29 - El Departamento de Proveeduría podrá solicitar la colaboración y asesoría de instancias técnicas, legales o administrativas, que tengan conocimiento especializado o que tendrán participación en la ejecución, supervisión, o verificación de la contratación.

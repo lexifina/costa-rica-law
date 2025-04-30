@@ -1,0 +1,3 @@
+CAPITULO VIII
+Fondo de Caja Chica
+Artículo 43 - Fondo de Caja Chica: Fondo que contiene recursos que como excepción de los procedimientos ordinarios de la Ley General de Contratación Pública N° 9986, se usa para las compras indispensables e impostergables, siempre que no excedan el diez por ciento (10%) del monto previsto para la licitación reducida aplicable a la Municipalidad de Curridabat. Se entenderá que esta excepción resulta aplicable únicamente para la contratación de bienes, obras o servicios, cuya solución sea impostergable y que no corresponda a gastos que sean susceptibles de ser planificados o bien, que la adquisición que se pretende no resulte más onerosa que el procedimiento ordinario de contratación a realizar.

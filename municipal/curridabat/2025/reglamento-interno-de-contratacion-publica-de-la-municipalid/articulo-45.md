@@ -1,0 +1,1 @@
+Artículo 45-El monto del Fondo de Caja Chica será equivalente a 10 veces la suma del Vale de Caja Chica y su custodia será responsabilidad del Tesorero Municipal quién deberá actuar de conformidad con la normativa vigente y este Reglamento.

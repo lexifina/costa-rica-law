@@ -1,0 +1,1 @@
+Artículo 73 - No autorizado: No podrán hacer uso del Fondo de Caja Chica las personas que no presten servicio regular en la Municipalidad nombrados en plaza fija y en consecuencia, no sean funcionarios de la Municipalidad.

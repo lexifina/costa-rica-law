@@ -1,0 +1,1 @@
+Artículo 8- Objetivo General del Departamento de Proveeduría: Dirigir y mejorar la gestión municipal en materia de compras públicas para generar procesos eficientes, bajo el principio de valor por dinero, para la adquisición de bienes, servicios, suministros y obras públicas.

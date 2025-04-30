@@ -1,0 +1,2 @@
+Artículo 102 - Se podrá rescindir del contrato por mutuo acuerdo cuando existan razones de interés público y no se presenten causas de resolución contractual imputables al contratista.
+Para ello, la Proveeduría Institucional, con base en la motivación dada por el encargado general del contrato, coordinará el procedimiento a seguir según involucre indemnización o no al contratista, o posibles reclamos a futuro.

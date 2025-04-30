@@ -1,0 +1,1 @@
+Artículo 16 - Planificación de las contrataciones: Todas las contrataciones que realice la Municipalidad deben estar contenidas en el Plan Anual de Compras y obedecerán a las metas ahí indicadas, además contarán con los estudios técnicos y financieros necesarios para asegurar el cumplimiento del fin público perseguido.

@@ -1,0 +1,1 @@
+Artículo 67-Se confeccionarán reintegros de Caja Chica cuando se haya gastado el 50% del fondo establecido por este reglamento, además si en el plazo máximo de un mes no se ha alcanzado el 50%, el encargado deberá tramitar el reintegro de lo gastado. En el mes de diciembre el Fondo deberá quedar reintegrado en su totalidad de previo al cierre anual.

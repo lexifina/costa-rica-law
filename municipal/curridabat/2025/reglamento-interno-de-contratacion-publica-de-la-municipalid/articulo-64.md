@@ -1,0 +1,1 @@
+Artículo 64-Todo arqueo de Caja Chica se realizará en presencia del Tesorero Municipal, quién es el funcionario responsable del fondo, según lo dispuesto en el Código Municipal o en presencia del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

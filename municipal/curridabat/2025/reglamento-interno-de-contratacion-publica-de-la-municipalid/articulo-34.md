@@ -1,0 +1,1 @@
+Artículo 34 - Contenido / Obra Pública: La decisión inicial de la contratación de Obra Pública deberá contemplar, además de lo previsto en el artículo 37 de la LGCP y el artículo 86 de la RLGCP, lo señalado en el artículo 172 del RLGCP.

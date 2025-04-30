@@ -1,0 +1,1 @@
+Artículo 36 - Formalización Contractual: Únicamente requerirán formalización los contratos derivados de procedimientos de contratación correspondientes a la prestación de un servicio o en el caso de obra pública. Se aplicará conforme con lo regulado en el Reglamento de Refrendos de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 56-Cuando por algún motivo la compra no se pueda efectuar, el funcionario que ha recibido el dinero del Vale deberá reintegrar el dinero al responsable del Fondo de Caja Chica en un plazo máximo de un día hábil y observando que no se exceda el plazo máximo de tres días de la liquidación del Vale.

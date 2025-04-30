@@ -1,0 +1,1 @@
+Artículo 54-Los Vales generados en el Sistema de Caja Chica y autorizados por el Departamento de Presupuesto con un tiempo mayor a 5 días hábiles y que no hayan sido retirados, serán anulados por la Tesorería Municipal.

@@ -1,0 +1,1 @@
+Artículo 25 - Representación en las audiencias previas: Por parte de la Municipalidad deberán asistir a las audiencias previas: la persona que ejerza como jefatura de la unidad solicitante, funcionario técnico de la materia objeto de la contratación, funcionario que fungirá como administrador general del contrato y el proveedor institucional o un representante de dicha unidad.

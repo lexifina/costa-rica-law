@@ -1,0 +1,1 @@
+Artículo 63-De constatarse, por medio de la realización de arqueos, que existe un faltante en el Fondo de Caja Chica, el custodio deberá reintegrarlo de inmediato de su peculio. En el evento de que se destermine un sobrante, el monto que corresponda, deberá ser depositado por el custodio mediante la emisión de un recibo en las Cajas Municipales.
