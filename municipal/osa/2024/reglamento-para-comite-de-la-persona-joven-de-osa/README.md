@@ -14,3 +14,4 @@ Reglamento para Comité de la Persona Joven de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-11-11 | la propia norma |
+| 2 | 2025-04-30 | Reglamento municipal 51 (2025-04-30) |
