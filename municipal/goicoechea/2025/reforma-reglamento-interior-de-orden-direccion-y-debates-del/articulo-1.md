@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GOICOECHEA
+Concejo Municipal
+El Concejo Municipal del cantón de Goicoechea, en sesión ordinaria N° 15-2025, celebrada el día 14 de abril de 2025, artículo IX. V acordó:
+"Se autoriza publicar en el Diario Oficial La Gaceta el siguiente texto: Con el propósito de garantizar que los funcionarios municipales de elección popular puedan gozar del feriado correspondiente al 01 de mayo durante el segundo y cuarto año de su mandato, se deroga el inciso b) del artículo 5° del Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del cantón de Goicoechea; en todo lo demás dicho artículo permanece incólume. Lo anterior, en virtud de que en dichas sesiones no se realiza la instalación de un nuevo Concejo Municipal, sino únicamente intervenciones protocolarias por parte de la Presidencia y las distintas fracciones políticas, sin que se afecten funciones sustantivas ni se configure impedimento legal alguno para dicha modificación normativa."
+<span style='font-size:12.0pt; </body>
