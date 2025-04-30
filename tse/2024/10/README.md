@@ -14,3 +14,4 @@ Reglamento para atender el ejercicio del derecho de objeción de conciencia en e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-19 | la propia norma |
+| 2 | 2025-04-30 | Decreto TSE 7 (2025-04-30) |
