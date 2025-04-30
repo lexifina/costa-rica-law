@@ -14,3 +14,4 @@ Normas de reclutamiento y selección de los servidores de la Universidad Técnic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2021-05-25 | la propia norma |
+| 2 | 2025-04-30 | Reglamento 11 (2025-04-30) |
