@@ -22,3 +22,4 @@ Reglamento Complementario de Contratación Administrativa del Conglomerado Banco
 | 7 | 2019-02-13 | Reglamento 5616 (2019-02-13) |
 | 8 | 2019-09-16 | Reglamento 5671 (2019-09-16) |
 | 9 | 2023-03-08 | Reglamento 5984 (2023-03-08) |
+| 10 | 2025-04-30 | Reglamento 6205 (2025-04-30) |
