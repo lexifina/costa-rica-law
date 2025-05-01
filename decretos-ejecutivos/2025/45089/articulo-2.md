@@ -1,0 +1,1 @@
+Artículo 2.- Deróguese el Considerando X del Decreto Ejecutivo Nº 37821-COMEX del 05 de septiembre de 2013, publicado en el Diario Oficial La Gaceta Nº 190 del 03 de octubre de 2013, denominado: Reglamento para la emisión de los Certificados de Exportación de Banano y de Productos Textiles de Confección a la Unión Europea y al Reino Unido.
