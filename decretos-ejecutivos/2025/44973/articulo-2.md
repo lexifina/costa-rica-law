@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Ejecutivo número 44866-H de fecha 9 de enero de 2025, publicado en el Alcance 12 a La Gaceta número 17, de fecha 28 de enero de 2025, a partir de la vigencia del presente decreto.
