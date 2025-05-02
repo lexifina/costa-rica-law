@@ -1,0 +1,2 @@
+II.-De Las Actividades Programadas Anualmente
+Artículo 3º-Planificación anual. Las personas Jerarcas y titulares subordinados, del Ministerio de Cultura y Juventud y de sus Órganos Desconcentrados, que dentro de su gestión administrativa requieran adquirir servicios de alimentación, deberán planificar dicho gasto anualmente, incluirlo en el plan de compras y disponer del contenido presupuestario correspondiente.

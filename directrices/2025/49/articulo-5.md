@@ -1,0 +1,1 @@
+Artículo 5º-Prohibición. No se podrá utilizar el Fondo Fijo de Caja Chica para la adquisición de alimentos y bebidas para actividades protocolarias y sociales, en concordancia con los artículos 3 y 4 de la presente directriz.
