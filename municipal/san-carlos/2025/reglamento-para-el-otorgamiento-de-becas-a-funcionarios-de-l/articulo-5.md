@@ -1,0 +1,1 @@
+Artículo 5°-Órgano Competente Para Otorgamiento de Becas. La Comisión de Becas es la responsable de planificar, coordinar, implementar y evaluar los planes de BECAS para funcionarios de la Municipalidad de San Carlos, según los términos y condiciones del presente reglamento.

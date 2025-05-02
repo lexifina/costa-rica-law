@@ -1,0 +1,1 @@
+Artículo 27.-De la custodia de los documentos. Todas las solicitudes de los becados, estarán bajo la custodia de la oficina Administrativa de Sitramusca, para lo cual se elaborarán expedientes personales por cada funcionario que solicite y le sea otorgado el beneficio.

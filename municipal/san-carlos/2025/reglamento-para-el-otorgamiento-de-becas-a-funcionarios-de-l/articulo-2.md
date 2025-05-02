@@ -1,0 +1,2 @@
+Artículo 2°-Principios. Lo regulado por el presente reglamento se regirá por los principios de: probidad, objetividad, equidad, legalidad, razonabilidad, eficiencia, discrecionalidad, conveniencia, transparencia, proporcionalidad, oportunidad y buena fe; sin perjuicio de cualquier otro aplicable.
+Los principios indicados inspiran este reglamento y deben orientar su aplicación e interpretación.

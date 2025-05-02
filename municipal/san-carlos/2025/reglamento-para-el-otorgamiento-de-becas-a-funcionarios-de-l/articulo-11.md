@@ -1,0 +1,8 @@
+Artículo 11.-Del Procedimiento para Tramitar Solicitudes de Becas. Para tramitar una solicitud de beca, el funcionario interesado deberá:
+a) Presentar el formulario de solicitud de becas realizado por la Comisión de Becas.
+b) Presentar la acción de personal vigente.
+c) Copia de constancia de estudios y/o recibo de matrícula debidamente sellado por la Institución.
+d) Presentar el plan de estudio en caso de contar con el mismo, emitido por la institución donde se habrá de estudiar.
+e) Presentar las calificaciones según corresponda (trimestral, cuatrimestral o semestral) en la oficina del Sindicato, de no ser presentado este requisito se suspenderá el beneficio, y en caso de reprobar cursos o materias, se analizará el porcentaje a rebajar de la beca o su totalidad proporcional a la matrícula. Esto será analizado por la comisión de becas y oportunamente se comunicará la resolución al funcionario. En caso de recibir beca de estudio por primera vez, se exonera este requisito.
+f) Deberá el beneficiario de beca de estudio presentar comprobante de los gastos directos autorizados para el beneficio de beca de estudio y que corresponde únicamente: pago de matrícula, pago de materias, compra de material didáctico y útiles escolares con sus facturas correspondientes para evidenciar el monto total de gastos y así aplicar los siguientes porcentajes para determinar el monto de la beca. Si se cuenta con el beneficio de útiles escolares no aplica para ese tipo de gastos la beca de estudios.
+g) Dichos requisitos pueden ser presentados de manera digital a la Comisión, con los mecanismos que demuestren la autenticidad de los mismos.

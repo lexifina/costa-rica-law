@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Obligaciones del Becario
+Artículo 19.-Otorgamiento de Compromiso o Promesa de Cumplimiento del Beneficiario de Beca de Estudio. El funcionario beneficiado con el otorgamiento de una beca de estudio, deberá para hacer efectiva la misma, suscribir un contrato o acuerdo de partes donde habrá de constar los compromisos, obligaciones y beneficios que contrae, el porcentaje de beca de estudio otorgada y los detalles de la misma, así como el porcentaje de la tabla de compromiso que corresponde según el porcentaje de la beca de estudio aprobada. El responsable de la confección y ejecución del contrato o acuerdo de partes será la alcaldía municipal, en coordinación con el Departamento de Servicios Jurídicos de la Municipalidad.
+Todo lo relacionado con incumplimientos del presente reglamento será competencia de la alcaldía municipal.

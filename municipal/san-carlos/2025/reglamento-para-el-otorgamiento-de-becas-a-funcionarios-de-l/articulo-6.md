@@ -1,0 +1,4 @@
+Artículo 6°-Recursos Financieros Para Becas. La Municipalidad de San Carlos al amparo de lo estipulado en su convención colectiva facilitara becas de estudio para los funcionarios, dichos estudios deben obedecer necesariamente a la realización de una actividad en beneficio de la institución y tener relación con su puesto de trabajo o carrera administrativa.
+Estas se establecerán en relación directa al nivel de ejecución de los ingresos presupuestarios de la Municipalidad a fin de asegurar el adecuado equilibrio financiero de la Institución.
+La Municipalidad no destinará recursos económicos adicionales para el subsidio de estudios a los funcionarios municipales más allá de los establecidos en la Convención Colectiva de Trabajadores de la Municipalidad de San Carlos.
+Es responsabilidad de la Comisión de Becas administrar el presupuesto disponible de BECA DE ESTUDIO para toda la Municipalidad.
