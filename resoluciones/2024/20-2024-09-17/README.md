@@ -14,3 +14,4 @@ Resolución conjunta de alcance general para el registro de transparencia y bene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-19 | la propia norma |
+| 2 | 2025-05-02 | Resolución 6 (2025-05-02) |
