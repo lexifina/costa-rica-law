@@ -1,0 +1,1 @@
+Transitorio III.- Los Carnés de Manipuladores de Alimentos impresos de aquellas personas que no deseen realizar su cambio por el carné digital, conservarán su vigencia por el periodo establecido en dicho documento y su renovación deberá tramitarse obligatoriamente de manera digital, según el procedimiento establecido en el artículo 8 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 14.- Idioma. Cuando los cursos sean impartidos en un idioma diferente al español, el contenido del programa del curso deberá traducirse al español a efecto de verificar el contenido señalado en el artículo 13 del presente reglamento.

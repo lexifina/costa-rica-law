@@ -1,0 +1,1 @@
+Artículo 12.- Registro de capacitadores oficializados. El INA deberá mantener en su página Web (https://www.ina.ac.cr/empresas/SitePages/Unidad%20Acreditaci%C3%B3n.aspx) la lista actualizada de las personas físicas o jurídicas que cuenten con servicios acreditados por el INA como capacitadores en manipulación de alimentos.

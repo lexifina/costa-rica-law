@@ -1,0 +1,1 @@
+Artículo 4.- Vigencia del carné digital. El carné digital de manipulador de alimentos tendrá una vigencia de cinco años, contados a partir de la fecha de aprobación del Curso de Manipulación de Alimentos; una vez vencido debe realizar el correspondiente trámite de renovación conforme lo indicado en el artículo 8 del presente reglamento, el que tendrá la misma vigencia.
