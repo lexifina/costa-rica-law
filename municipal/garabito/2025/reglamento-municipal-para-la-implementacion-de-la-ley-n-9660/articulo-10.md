@@ -1,0 +1,1 @@
+Artículo 10.-Participación Ciudadana. Se establecerán mecanismos para la participación ciudadana en la planificación, evaluación y mejora de proyectos relacionados con la movilidad ciclística, a través de consultas, talleres y espacios de diálogo con las comunidades y asociaciones locales.

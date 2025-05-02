@@ -1,0 +1,1 @@
+Artículo 5º-Red de Ciclo vías y Conexión Turística. Se impulsará la planificación y construcción de una red de ciclovías que conecte los principales puntos de interés del cantón, incluyendo zonas residenciales, centros educativos, áreas comerciales, sitios recreativos y destinos turísticos destacados como Jacó y otras comunidades costeras.

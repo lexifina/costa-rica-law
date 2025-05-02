@@ -1,0 +1,1 @@
+Artículo 6º-Parqueo para Bicicletas. Se dispondrá de espacios seguros y adecuados para el parqueo de bicicletas en edificios municipales, áreas públicas, y zonas de alta concurrencia, priorizando sitios turísticos y comerciales de gran afluencia.

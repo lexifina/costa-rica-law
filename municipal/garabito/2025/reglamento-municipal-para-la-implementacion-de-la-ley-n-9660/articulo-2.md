@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Este reglamento es de aplicación obligatoria para todas las instituciones públicas, organizaciones privadas, habitantes y visitantes del cantón de Garabito, en cuanto a las disposiciones relacionadas con la movilidad, seguridad ciclística y promoción del ciclo turismo.

@@ -1,0 +1,1 @@
+Artículo 9º-Campañas de Sensibilización. Se llevarán a cabo campañas dirigidas a residentes, turistas y comerciantes sobre la importancia de la movilidad sostenible, el uso seguro de la bicicleta y la integración de la bicicleta como medio de transporte cotidiano y turístico.

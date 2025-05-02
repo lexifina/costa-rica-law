@@ -1,0 +1,1 @@
+Artículo 7º-Promoción del Ciclo turismo. La Municipalidad trabajará en conjunto con el Instituto Costarricense de Turismo (ICT), cámaras de comercio y otras organizaciones locales para desarrollar proyectos específicos que fomenten el ciclo turismo en el cantón, con énfasis en actividades recreativas, rutas ciclísticas y eventos relacionados.

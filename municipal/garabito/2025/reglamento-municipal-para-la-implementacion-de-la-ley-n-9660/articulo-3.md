@@ -1,0 +1,1 @@
+Artículo 3º-Principios Rectores. Este reglamento se fundamenta en los principios de sostenibilidad, equidad, accesibilidad, seguridad vial, respeto al medio ambiente, promoción del turismo sostenible y participación ciudadana.
