@@ -1,5 +1,7 @@
-Artículo 27. Requisitos para solicitar la prescripción de tributos municipales. El sujeto pasivo que solicite la declaratoria de prescripción de tributos municipales debe argumentar claramente en la nota de solicitud lo siguiente:
-a) Tributo municipal por declarar prescrito, indicando el número de finca o en su efecto el número del servicio que se brinda.
-b) Normativa vigente en la cual se fundamenta la solicitud.
-c) Indicar los periodos en los cuales aplicaría la declaratoria de prescripción.
-d) Señalar un medio tecnológico para atender notificaciones de conformidad con las disposiciones que establece la ley especial en dicha materia.
+Artículo 27. De las obligaciones de los abogados y abogadas.
+a) Excusarse de asumir la dirección de un proceso cuando se encuentre en alguna de las causas de impedimento, recusación o excusa, establecidas en la normativa.
+b) Trasladar a la oficina de la Gestión de Cobro en un plazo no mayor de 10 días hábiles posterior al traslado del expediente de gestión, el comprobante de envío de la demanda.
+c) Presentar un informe cada seis meses a inicio de mes a la Administración Tributaria de la Municipalidad de Puriscal, sobre el estado de los procesos judiciales a su cargo.
+d) Dar aviso a la oficina de la Gestión de Cobro del Subproceso de Administración Tributaria, para la publicación de los edictos de ley, con el fin de que se cumpla con lo indicado en el artículo 9, incisos b) y c), del presente Reglamento
+e) En caso de contratarse un abogado y abogada para este fin, será responsabilidad directa del abogado y abogada cobrarle directamente al sujeto pasivo los honorarios del proceso ejecutivo, con base al arancel de honorarios vigente, así como asumir los gastos de la tramitación del proceso y la respectiva publicación de los edictos.
+(Así modificada la numeración sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, que lo traspaso del antiguo artículo 30 al artículo 27. Lo anterior ya que en dicha sesión se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

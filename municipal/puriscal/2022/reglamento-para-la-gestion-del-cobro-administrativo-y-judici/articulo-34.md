@@ -1,4 +1,1 @@
-Artículo 34. Sanciones por incumplimiento. En caso de incumplimiento por parte de los funcionarios en algunas de las acciones contempladas en éste Reglamento se procederá de la siguiente manera:
-a) Según el Reglamento Autónomo de Trabajo de la Municipalidad, se procederá tal y como el mismo lo estipule.
-b) Según lo establece la Ley General de Administración Pública y leyes conexas que se pronuncien sobre la materia, iniciando con la investigación por parte del jefe del departamento en el momento que descubra la anomalía.
-c) En caso de contratar abogados o abogadas externas, se procederá con la resolución automática del contrato por servicios profesionales.
+Artículo 34. (Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 31, ya que en sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

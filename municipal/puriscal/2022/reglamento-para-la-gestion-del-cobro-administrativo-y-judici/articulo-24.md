@@ -1,6 +1,6 @@
-Artículo 24. Deberes de la Oficina de Cobros de la Municipalidad, en la etapa administrativa externa. Deberá cumplir en la etapa administrativa externa:
-a) Presupuestará y solicitará la contratación de la empresa externa para cobro administrativo.
-b) Se trasladará copia certificada del expediente para efectos de iniciar la etapa administrativa externa, el cual deberá de contener la notificación de cobro administrativa realizada al contribuyente, junto con toda la información de localización, de no contarse con ella, los abogados externos deberán utilizar diferentes medios para su localización.
-c) Fiscalizar la labor del cobro administrativo externo, para ello, compete a ésta oficina recibir los informes mensuales que realicen todos sus gestores externos.
-d) Gestionar ante el Alcalde, dando aviso a la Proveeduría Institucional, la aplicación de las sanciones que establece la Ley de Contratación Administrativa, a la empresa y personas externas que incumplan con sus obligaciones establecidas en el cartel.
-e) Garantizar que la empresa externa cobre directamente al sujeto pasivo los gastos administrativos en los cuales ha incurrido la Municipalidad durante el proceso administrativo
+Artículo 24. Requisitos para solicitar la prescripción de tributos municipales. El sujeto pasivo que solicite la declaratoria de prescripción de tributos municipales debe argumentar claramente en la nota de solicitud lo siguiente:
+a) Tributo municipal por declarar prescrito, indicando el número de finca o en su efecto el número del servicio que se brinda.
+b) Normativa vigente en la cual se fundamenta la solicitud.
+c) Indicar los periodos en los cuales aplicaría la declaratoria de prescripción.
+d) Señalar un medio tecnológico para atender notificaciones de conformidad con las disposiciones que establece la ley especial en dicha materia.
+(Así modificada la numeración sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, que lo traspaso del antiguo artículo 27 al artículo 24. Lo anterior ya que en dicha sesión se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

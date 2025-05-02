@@ -1,1 +1,1 @@
-Artículo 32. Terminación del proceso Judicial. Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado con base a lo estipulado en el artículo 10, artículo 15, siguientes y concordantes del presente reglamento.
+Artículo 32. (Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 29, ya que en sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

@@ -1,4 +1,2 @@
-Artículo 26. Requisitos para solicitar compensaciones o devoluciones de dinero. El sujeto pasivo que tenga créditos líquidos y exigibles a su favor, en el cual proceda la respectiva compensación o devolución de dinero, deberá presentar los documentos:
-a) Nota de solicitud en donde argumente claramente los hechos sucedidos y el motivo que justifica la respectiva compensación o devolución.
-b) Pruebas de descargo que comprueben los hechos.
-c) Señalar un medio tecnológico para atender notificaciones de conformidad con las disposiciones que establece la ley especial en dicha materia. En caso de no tener un medio tecnológico para atender notificaciones, deberá señalar alguna dirección fiscal dentro del cantón de Puriscal.
+Artículo 26.Coordinación institucional. Con el fin de cumplir con los objetivos del presente reglamento, se mantendrá una coordinación entre el Subproceso de Administración Tributaria por medio de la oficina de la Gestión de Cobro y el Proceso de Servicios Jurídicos.
+(Así modificada la numeración sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, que lo traspaso del antiguo artículo 29 al artículo 26. Lo anterior ya que en dicha sesión se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

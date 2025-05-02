@@ -1,3 +1,5 @@
-CAPÍTULO IV
-DEL COBRO ADMINISTRATIVO EXTERNO
-Artículo 18. De la designación. La figura encargada del cobro administrativo externo, será designado en virtud de concurso externo que realizará la Municipalidad, a través de la Proveeduría Institucional, para su contratación, en cumplimiento con la Ley de Contratación Administrativa y su Reglamento. En el cartel se establecerán las condiciones específicas que deberá de cumplir los oferentes, de acuerdo a las necesidades que presente el departamento a la hora de la contratación.
+Capítulo IV
+Del cobro administrativo y/o judicial externo
+(Así adicionado el capítulo anterior en sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025. Anteriormente mediante esta misma sesión sesión se había derogada este capítulo)
+Artículo 18.-Del objetivo general del cobro administrativo y/o judicial externo: La Municipalidad de Puriscal estará facultada para implementar metodologías para el cobro administrativo y/o judicial por la vía externa, mediante los procedimientos de contratación que la Ley establezca. El objetivo general será contribuir con la disminución del pendiente de cobro institucional, así como consecuentemente con el aumento de la recaudación de tributos Municipales.
+(Así adicionado en sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025. Anteriormente mediante esta misma sesión se había derogada este numeral)

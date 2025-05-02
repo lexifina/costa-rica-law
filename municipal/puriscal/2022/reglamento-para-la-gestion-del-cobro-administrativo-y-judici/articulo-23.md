@@ -1,4 +1,5 @@
-Artículo 23. Prohibiciones. Se prohíbe a los Abogados Externos incurrir en lo siguiente:
-a) Negociar políticas de arreglo pago con el sujeto pasivo diferentes a las establecidas en los parámetros del artículo 18 de este reglamento para los arreglos de pago, a menos que se realice en conjunto con la Municipalidad.
-b) Solicitar por concepto de sus honorarios profesionales una suma mayor, ni menor a la estipulada en el presente reglamento.
-c) Aceptar realizar acciones judiciales o administrativas contra la Municipalidad.
+Artículo 23.Requisitos para solicitar compensaciones o devoluciones de dinero. El sujeto pasivo que tenga créditos líquidos y exigibles a su favor, en el cual proceda la respectiva compensación o devolución de dinero, deberá presentar los documentos:
+a) Nota de solicitud en donde argumente claramente los hechos sucedidos y el motivo que justifica la respectiva compensación o devolución.
+b) Pruebas de descargo que comprueben los hechos.
+c) Señalar un medio tecnológico para atender notificaciones de conformidad con las disposiciones que establece la ley especial en dicha materia. En caso de no tener un medio tecnológico para atender notificaciones, deberá señalar alguna dirección fiscal dentro del cantón de Puriscal.
+(Así modificada la numeración sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, que lo traspaso del antiguo artículo 26 al artículo 23. Lo anterior ya que en dicha sesión se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)

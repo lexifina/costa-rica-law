@@ -1,3 +1,5 @@
-Artículo 31. Prohibiciones. Se prohíbe a los abogados y abogadas incurrir en lo siguiente:
-a) Realizar ningún tipo de arreglo extrajudicial con el sujeto pasivo, en concordancia con el artículo 11 del presente reglamento.
-b) El abogado no podrá solicitar por concepto de sus honorarios profesionales una suma mayor, ni menor a la estipulada en el Arancel, en concordancia al art. 20 de este reglamento.
+Artículo 31. Sanciones por incumplimiento. En caso de incumplimiento por parte de los funcionarios en algunas de las acciones contempladas en éste Reglamento se procederá de la siguiente manera:
+a) Según el Reglamento Autónomo de Trabajo de la Municipalidad, se procederá tal y como el mismo lo estipule.
+b) Según lo establece la Ley General de Administración Pública y leyes conexas que se pronuncien sobre la materia, iniciando con la investigación por parte del jefe del departamento en el momento que descubra la anomalía.
+c) En caso de contratar abogados o abogadas externas, se procederá con la resolución automática del contrato por servicios profesionales.
+(Así modificada la numeración sesión N° 74 del acuerdo N° 010-74-2025 del 2 de mayo de 2025, que lo traspaso del antiguo artículo 34 al artículo 31. Lo anterior ya que en dicha sesión se ordenó derogar los numerales del 18 al 24, y adicionar los artículos 18 al 21, y modificar la numeral de los restantes artículos de este reglamento municipal)
