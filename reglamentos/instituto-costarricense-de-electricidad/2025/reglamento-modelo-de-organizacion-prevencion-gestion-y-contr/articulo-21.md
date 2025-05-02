@@ -1,0 +1,1 @@
+Artículo 21.-La Dirección Ciberseguridad y Protección Empresarial organizará su funcionamiento interno considerando la organización de los Procesos Nivel 1 a su cargo, siempre que no impliquen cambios de estructura organizacional, los cuales están sujetos a la disposiciones legales, reglamentarias y procedimentales vigentes.

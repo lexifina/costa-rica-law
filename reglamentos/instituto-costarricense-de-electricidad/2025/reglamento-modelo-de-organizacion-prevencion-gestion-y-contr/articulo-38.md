@@ -1,0 +1,2 @@
+Artículo 38.-El área de Soporte Administrativo de Atención de Denuncias será liderada por un profesional con amplia experiencia en evaluación de riesgos, investigaciones administrativas y administración de personal.
+El encargado del área de Soporte de Atención de Denuncias de la DCPE tendrá un grupo de funcionarios para ejecutar la gestión de las denuncias por presuntas conductas administrativas irregulares en el ICE, y canalizarlas, cuando corresponda, con la dependencia institucional competente para llevar a cabo una investigación preliminar.

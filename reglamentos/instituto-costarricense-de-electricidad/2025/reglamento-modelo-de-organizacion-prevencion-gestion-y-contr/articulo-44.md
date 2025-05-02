@@ -1,0 +1,1 @@
+Artículo 44.-La Alta Gerencia del ICE debe asignar los recursos apropiados y necesarios para la debida gestión e investigación de las denuncias, de conformidad con las recomendaciones, debidamente fundamentadas, de la Dirección Ciberseguridad y Protección Empresarial.

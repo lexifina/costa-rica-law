@@ -1,0 +1,2 @@
+Artículo 48.-El N1SE, a más tardar el 30 de noviembre de cada año, elevará para aprobación de la Dirección Ciberseguridad y Protección Empresarial, los correspondientes planes de capacitación y el de divulgación asociados al Modelo.
+El N1SE informará semestralmente, a la DCPE, durante la primera quincena de los meses de julio y enero de cada año, sobre el cumplimiento de los planes de divulgación y capacitación de actividades asociadas al Modelo.

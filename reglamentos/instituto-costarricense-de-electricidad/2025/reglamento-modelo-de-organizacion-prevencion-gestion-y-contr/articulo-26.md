@@ -1,0 +1,1 @@
+Artículo 26.-Cualquier dependencia del ICE, podrá ser objeto de un estudio de fiscalización de conformidad con las potestades que otorga el artículo 8 de la Ley N°9699 a la Dirección Ciberseguridad y Protección Empresarial como encargado del Modelo de Organización, Prevención de Delitos, Gestión y Control.

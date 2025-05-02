@@ -1,0 +1,2 @@
+Artículo 11.-El Modelo Organización, Prevención de Delitos, Gestión y Control del ICE, debe asegurar que la normativa interna a nivel disciplinario contemple adecuadamente sanciones proporcionales por el incumplimiento de las medidas que prescriba el Modelo.
+Asimismo, deberá verificar que las normativas en materia laboral, de gestión de riesgos, ética, conducta y anticorrupción contemplen todos los mecanismos necesarios para la prevención de los delitos identificados en el artículo 1 de la Ley N° 9699.

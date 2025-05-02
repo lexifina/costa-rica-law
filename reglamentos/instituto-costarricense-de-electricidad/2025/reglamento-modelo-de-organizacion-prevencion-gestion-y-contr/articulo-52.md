@@ -1,0 +1,1 @@
+Artículo 52.-La Dirección Ciberseguridad y Protección Empresarial, bajo los principios de eficiencia, economía y oportunidad, podrá coordinar con la Gerencia de Finanzas la contratación de una sola Auditoría Externa que contemplen los alcances del artículo anterior, y en la medida que no perjudique la autonomía funcional de la DCPE como encargada del Modelo.

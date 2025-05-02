@@ -1,0 +1,1 @@
+Artículo 4º-Las disposiciones del Modelo de Organización, Prevención de Delitos, Gestión y Control son de acatamiento obligatorio para el Consejo Directivo, Presidencia Ejecutiva, Alta Gerencia, jefes de División, directores, coordinadores Nivel 1 personas trabajadoras del ICE, proveedores del ICE y todo aquel tercero que sostenga relaciones con la Institución.

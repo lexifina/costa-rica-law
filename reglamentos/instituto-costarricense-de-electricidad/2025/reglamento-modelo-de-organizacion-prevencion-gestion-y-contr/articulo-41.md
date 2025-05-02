@@ -1,0 +1,1 @@
+Artículo 41.-El encargado del área de Soporte de Atención de Denuncias debe verificar que todo denunciante tenga acceso a información veraz y actualizada sobre la gestión de su denuncia asegurando en todo momento la confidencialidad de la información y protección de los derechos de las personas denunciantes.

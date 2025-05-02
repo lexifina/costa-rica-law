@@ -1,0 +1,1 @@
+Artículo 53.-La Proveeduría Institucional deberá brindar el acompañamiento necesario a la Gerencia de Finanzas y a la Dirección Ciberseguridad y Protección Empresarial en el procedimiento de contratación de la auditoría externa para asegurar que se pueda realizar periódicamente dentro del plazo de cada dos años.

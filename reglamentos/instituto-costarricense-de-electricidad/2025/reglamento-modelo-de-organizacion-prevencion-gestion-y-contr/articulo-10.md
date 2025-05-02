@@ -1,0 +1,2 @@
+Artículo 10.-El Modelo Organización, Prevención de Delitos, Gestión y Control del ICE, debe tener identificadas y establecer las coordinaciones entre las distintas áreas que por sus competencias intervienen en la identificación, prevención y control de las conductas o figuras delictivas que pueden generar responsabilidad penal para el ICE como persona jurídica.
+La Dirección Ciberseguridad y Protección Empresarial coordinará con la Dirección Centro Coordinador de Operación de Emergencia Corporativo, según los modelos y protocolos que al efecto se emitan.

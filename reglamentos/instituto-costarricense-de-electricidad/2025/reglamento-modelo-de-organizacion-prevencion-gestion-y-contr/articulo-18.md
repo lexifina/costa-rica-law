@@ -1,0 +1,1 @@
+Artículo 18.-Los Gestores de Control Interno deberán como parte del componente de ambiente de control y a sus funciones establecer acciones de control preventivas que permitan minimizar la comisión de delitos que generen responsabilidad al ICE como persona jurídica.
