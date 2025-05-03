@@ -14,3 +14,4 @@ Reglamento para uso, control y mantenimiento de la flotilla vehicular de Unión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-01-23 | la propia norma |
+| 2 | 2025-05-03 | Reglamento 16 (2025-05-03) |
