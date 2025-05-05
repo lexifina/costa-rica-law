@@ -1,0 +1,1 @@
+Artículo 3º-Del alcance. Este reglamento se aplica de forma vinculante a las personas, físicas o jurídicas, que pretendan obtener una licencia comercial para realizar comercio sobre ruedas en jurisdicción del cantón de Moravia. De igual forma, este instrumento se constituye en un límite de actuación para la Municipalidad de Moravia.

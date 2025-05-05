@@ -1,0 +1,1 @@
+Artículo 12.-De la instancia competente para la revocación. La revocación de la licencia y emisión de medidas cautelares, será competencia exclusiva del Departamento de Licencias de Explotación Comercial.

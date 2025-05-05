@@ -1,0 +1,10 @@
+Artículo 11.-De las causas de revocación de la licencia comercial en espacios privados. Serán causales que justifican la revocación de las licencias para comercio sobre ruedas en espacios privados, las siguientes:
+a) Uso de la licencia por persona que no es el beneficiario original de la misma. En este caso, la revocación aplicara de pleno derecho y de forma automática, procediendo la clausura inmediata de la actividad comercial.
+b) Arrojar en las vías públicas y/o en espacios públicos, colindantes, desechos tradicionales o no tradicionales generados por la actividad comercial, propia o generada por los clientes.
+c) Disponer de las aguas residuales en el cordón de caño de las vías públicas, colindantes.
+d) Limitar total o parcialmente, el derecho al libre tránsito de las personas y vehículos, como consecuencia de la instalación de las unidades de comercio sobre ruedas, el mobiliario accesorio al mismo o el estacionamiento de vehículos en vías aledañas.
+e) Variar la actividad comercial para la cual fue expedida licencia comercial. En este supuesto, la revocación aplicara de pleno derecho y de forma automática, procediendo la clausura inmediata de la actividad comercial.
+f) La pérdida o el vencimiento de alguna de las condiciones objetivas que se constituyen como parte de los requisitos para el otorgamiento de la licencia.
+g) Hacer un inadecuado manejo de los desechos que produzca la actividad comercial sobre ruedas.
+h) Irrespetar el horario establecido por la Municipalidad para el ejercicio del comercio sobre ruedas.
+Salvo las excepciones citadas en este artículo, de previo a la revocación de la licencia, deberá notificársele al licenciatario sobre la causal respectiva y se le concederá un plazo de 24 horas para que presente de forma escrita el respectivo descargo, luego de lo cual, sin más trámite se resolverá en definitiva sobre la revocación. No obstante, en condición de media cautelar, la Municipalidad podrá, antes del dictado del acto final, ordenar la clausura de la actividad comercial.

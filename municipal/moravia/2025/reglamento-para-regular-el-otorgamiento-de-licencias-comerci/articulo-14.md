@@ -1,0 +1,1 @@
+Artículo 14.-Del horario. Para el desarrollo del comercio sobre ruedas se establece un horario semanal desde las 11:00 a.m. y hasta las 8:00 pm, a excepción de los viernes, sábados, domingos y feriados de ley, que el horario de cierre podrá extenderse hasta las 10:00 pm.

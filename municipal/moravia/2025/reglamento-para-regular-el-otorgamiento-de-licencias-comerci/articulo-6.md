@@ -1,0 +1,1 @@
+Artículo 6º-El plazo para la emisión del dictamen. El dictamen técnico señalado en el artículo anterior deberá ser emitido en el plazo máximo de doce días naturales, contados a partir del momento en que el interesado presente la solicitud.
