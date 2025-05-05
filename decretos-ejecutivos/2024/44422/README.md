@@ -14,3 +14,4 @@ Reglamento Técnico: RTCR 510:2023 Productos eléctricos. Series de luces, adorn
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-26 | la propia norma |
+| 2 | 2025-05-05 | Decreto Ejecutivo 45045 (2025-05-05) |

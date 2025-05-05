@@ -36,9 +36,12 @@ Establecer los requisitos técnicos que deben cumplir las series de luces, adorn
 2.2.4 Series de luces, adornos navideños y figuras decorativas de uso doméstico alimentadas con baterías.
 2.3 Los productos objeto de este reglamento técnico se clasifican en las siguientes partidas arancelaria:
 Tabla 1: partidas arancelarias aplicables
+Tabla 1: partidas arancelarias aplicables
 Producto | Clasificación Arancelaria | Descripción según Arancel
 series de luces, adornos navideños y figuras decorativas de uso doméstico | 940531000000 | diseñadas para ser utilizadas únicamente con Fuentes luminosas de diodos emisores de luz (LED)
 940539000000 | - - las demás
+950510000010 | - Adornos navideños y figuras decorativas de uso doméstico, con luz cuya tensión asignada no es mayor a 120 v nominales
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 45045 del 5 de mayo de 2025)
 Las partidas arancelarias podrán ser modificadas por la Autoridad Aduanera Nacional, para lo cual publicará la respectiva resolución administrativa.
 3. DEFINICIONES.
 3.1 Adorno: unidad que se provee con un adaptador para portalámpara o guías para la entrada y un adaptador que se destina para tomar el lugar de una lámpara de inserción en una serie de luces conectada en serie o una unidad decorativa. Un adorno puede funcionar o no de forma electrónica.
