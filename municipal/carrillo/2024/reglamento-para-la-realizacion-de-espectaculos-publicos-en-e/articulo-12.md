@@ -1,0 +1,2 @@
+Artículo 12.-La persona física o jurídica que realice actividades reguladas en este Reglamento sin la debida autorización se verá sancionada con la clausura de las mismas y si la Municipalidad lo considera pertinente se harán acompañar de efectivos de la Delegación de la Fuerza Pública Cantonal para realizar dicha clausura.
+Además, no se autorizará realizar actividad alguna regulada en este reglamento, hasta tanto no cumpla dos años de sanción, a partir de la fecha en que incurrió en la irregularidad.
