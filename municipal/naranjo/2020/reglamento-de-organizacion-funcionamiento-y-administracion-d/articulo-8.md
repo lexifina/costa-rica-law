@@ -1,2 +1,2 @@
-Artículo 8º-Todo adjudicatario de un local, podrá contratar los dependientes que estime necesarios para la atención de su actividad. Quienes atiendan en el local, en todo momento deberán portar el cané o gafete que para estos efectos se les suministrará. En ningún caso se permitirá el trabajo de personas menores de edad en los locales del mercado. Todo adjudicatario deberá cumplir con los otros requisitos exigidos para el funcionamiento del local por el Ministerio de Salud.
-(Así reformado en sesión N° 29 del 19 de julio de 2021)
+Artículo 8º-Todo adjudicatario de un local, podrá contratar los dependientes que estime necesarios para la atención de su actividad. En ningún caso se permitirá el trabajo de personas menores de edad en los locales del mercado. Todo adjudicatario deberá cumplir con los requisitos exigidos para el funcionamiento del local por el Ministerio de Salud.
+(Así reformado en sesión N° 83 del 5 de mayo de 2025)
