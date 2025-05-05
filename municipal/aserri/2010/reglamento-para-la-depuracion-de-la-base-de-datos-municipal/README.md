@@ -14,3 +14,4 @@ Reglamento para la Depuración de la Base de Datos Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-06 | la propia norma |
+| 2 | 2025-05-05 | Reglamento municipal 53 (2025-05-05) |
