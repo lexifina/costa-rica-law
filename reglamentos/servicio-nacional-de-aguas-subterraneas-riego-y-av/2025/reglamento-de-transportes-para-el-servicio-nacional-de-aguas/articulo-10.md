@@ -1,0 +1,1 @@
+Artículo 10.-Solicitudes de transporte. La solicitud de vehículo deberá efectuarse a través del formulario correspondiente vigente, autorizado por la Unidad de Transportes de Oficinas Centrales. Las solicitudes se atenderán de acuerdo con la programación de giras y a disponibilidad de vehículo.

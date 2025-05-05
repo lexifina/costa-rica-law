@@ -1,0 +1,1 @@
+Artículo 13.-Personas autorizadas para conducir vehículos. Únicamente podrán conducir vehículos de uso administrativo del SENARA los funcionarios autorizados por la Unidad de Transportes correspondiente.

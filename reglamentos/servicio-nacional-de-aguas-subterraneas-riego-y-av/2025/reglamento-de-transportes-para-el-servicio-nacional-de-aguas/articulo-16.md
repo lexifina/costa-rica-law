@@ -1,0 +1,1 @@
+Artículo 16.-Acatamiento de instrucciones. Los funcionarios que debido a la circulación por las vías públicas con vehículos del SENARA se vean involucrados en un accidente de tránsito, deben seguir los procedimientos incluidos en este Reglamento. De los accidentes de tránsito

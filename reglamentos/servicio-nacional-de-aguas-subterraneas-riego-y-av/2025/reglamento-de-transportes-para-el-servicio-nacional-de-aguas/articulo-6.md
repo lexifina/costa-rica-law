@@ -1,0 +1,1 @@
+Artículo 6°-Lugar de permanencia de vehículos. Cuando los vehículos de uso administrativo no estén en servicio, deberán permanecer en un lugar seguro en el parqueo de la dependencia a la que está asignado. Cuando el vehículo se halle realizando una gira deberá aparcarse o permanecer en el lugar que brinde las mejores condiciones de seguridad.

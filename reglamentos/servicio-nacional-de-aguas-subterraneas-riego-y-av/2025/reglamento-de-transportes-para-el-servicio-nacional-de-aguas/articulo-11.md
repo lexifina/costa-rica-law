@@ -1,0 +1,1 @@
+Artículo 11.-Uso, control y mantenimiento de vehículos. El uso, control y mantenimiento de los vehículos administrativos de la Institución es responsabilidad de los encargados de la Unidad de Transporte de oficina Central, oficina DRAT y Coordinadores de oficinas Regionales.

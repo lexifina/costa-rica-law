@@ -1,0 +1,1 @@
+Artículo 5°-Uso de placas y distintivos oficiales. Todos los vehículos deberán tener impreso en forma permanente y visible la Marca SENARA en ambos costados, deberá acompañarse con la leyenda "USO OFICIAL", todo lo anterior de conformidad con lo establecido en el libro de marca de la Institución. Asimismo, deberán portar placas oficiales.

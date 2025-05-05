@@ -1,0 +1,2 @@
+Artículo 7°-Seguros. Todos los vehículos deberán estar asegurados de conformidad con lo dispuesto en la Ley de tránsito por vías públicas, terrestres y seguridad vial y Ley Reguladora del Mercado de Seguros. Asimismo, deberán encontrarse al día con la Revisión Técnica Vehicular.
+Todos los funcionarios del SENARA que viajen dentro del vehículo, estarán cubiertos por la Póliza de Riesgos del Trabajo.
