@@ -1,0 +1,2 @@
+Artículo 10.-Actualización de declaración jurada. Cada tres años, en el mes de febrero, quienes hayan obtenido validación municipal para instalar una oficina o consultorio de profesional liberal, como actividad secundaria, en un inmueble destinado a vivienda, deberán presentarse ante el Departamento de Licencias de Explotación Comercial a actualizar la declaración jurada señalada en el artículo 8.
+En caso de no tramitarse la actualización la validación municipal se tendrá por extinta.

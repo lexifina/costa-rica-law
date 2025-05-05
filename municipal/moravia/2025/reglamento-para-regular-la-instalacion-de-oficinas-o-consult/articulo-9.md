@@ -1,0 +1,1 @@
+Artículo 9º-De la fiscalización. Le corresponderá al Departamento de Licencias de Explotación Comercial, por medio de los inspectores de inspección tributaria, realizar las inspecciones a efecto de fiscalizar que las actividades validadas al amparo del presente reglamento no sean desnaturalizadas.

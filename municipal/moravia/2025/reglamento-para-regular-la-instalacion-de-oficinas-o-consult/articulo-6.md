@@ -1,0 +1,1 @@
+Artículo 6º-Rotulación. En caso de que se pretenda la instalación de un rótulo o anuncio del servicio profesional, el mismo no podrá ser mayor en área a 20.000 centímetros cuadrados (dos metros cuadrados).

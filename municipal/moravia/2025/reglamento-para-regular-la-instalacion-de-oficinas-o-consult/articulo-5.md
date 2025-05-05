@@ -1,0 +1,1 @@
+Artículo 5º-Del no pago de impuesto de patentes. Los profesionales liberales no deben pagar el impuesto de patentes de la Municipalidad de Moravia, esto por estar así dispuesto en el artículo 1 in fine de la Ley Reguladora de Licencias Comerciales del Cantón de Moravia.

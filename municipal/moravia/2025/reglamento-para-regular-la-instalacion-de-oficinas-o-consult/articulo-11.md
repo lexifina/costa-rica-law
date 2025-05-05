@@ -1,0 +1,2 @@
+Artículo 11.-Desnaturalización. En caso de que la validación municipal para instalar una oficina o consultorio de profesión liberal, como actividad secundaria, en un inmueble destinado a vivienda, llegare a desnaturalizarse o contraviniere lo dispuesto por este reglamento, se levantará acta municipal en la cual se procederá a clausurar la actividad económica no autorizada.
+Rige a partir de su publicación.

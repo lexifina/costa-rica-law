@@ -1,0 +1,1 @@
+Artículo 7º-Cantidad máxima de colaboradores. Dado que el área destinada a oficina de profesión liberal está limitada a 80 m2 (ochenta metros cuadrados) no podrán ubicarse más de cinco personas colaboradoras del profesional, incluyendo a este.

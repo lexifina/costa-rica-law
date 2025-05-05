@@ -1,0 +1,10 @@
+Artículo 8º-Requisitos. Quien pretenda una validación y registro municipal para instalar una oficina o consultorio de profesión liberal, como actividad secundaria, en un inmueble destinado a vivienda, podrá tramitarla ante el Departamento de Licencias de Explotación Comercial, para lo cual, deberá completar una declaración jurada simple, preestablecida en formato que le proporcionara la Municipalidad, en la cual se declare bajo fe de juramento, que cumple con lo siguiente:
+a) Que está al día con todos los tributos municipales consignados a su nombre en el cantón de Moravia, así como también el propietario del inmueble.
+b) Que es el titular del inmueble, arrendatario, comodatario o titular de condición legal que le permite hacer uso efectivo del inmueble.
+c) Que posee permiso sanitario de funcionamiento vigente otorgado por el Ministerio de Salud, cuando así le corresponda.
+d) Que se encuentra habilitado para el ejercicio de la profesión liberal por parte del respectivo colegio profesional.
+e) Que está inscrito y al día como trabajador independiente ante la Caja Costarricense Seguro Social.
+f) Que está al día con las obligaciones materiales y formales ante la Dirección General de Tributación Directa.
+g) Que acepta que la validación municipal se extiende en relación con el ejercicio de su profesión liberal y que no puede ejercer ninguna actividad económica sin la licencia comercial respectiva.
+h) Que la oficina o consultorio donde se desarrollara la actividad profesional se ajusta al área máxima establecida en este instrumento.
+Los requisitos señalados en este artículo se tendrán por cumplidos con la presentación de la declaración jurada a la que se hace referencia, sin demerito de que el contenido del inciso a) sea verificado internamente en el municipio y en el caso de los requisitos señalados en los incisos c), d), e) y f), estos podrán ser verificados por medio de coordinación interinstitucional entre la municipalidad y el ente con competencia para llevar el registro relacionado, siempre que exista la capacidad técnica instalada para la emisión de la información en tiempo real.
