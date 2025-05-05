@@ -1,0 +1,3 @@
+Artículo 5º-Competencia: Corresponderá al Concejo, el otorgamiento de los permisos para el cierre total o parcial de las rutas cantonales o de tramos de vía, que estén bajo su administración absoluta, ello previa emisión de criterio no vinculante de la UTGV.
+Si el permiso de cierre, además de vías cantonales, involucra el cierre parcial o total de un tramo de carretera nacional, la persona interesada deberá de realizar la gestión de autorización de cierre de esa carretera nacional ante el MOPT, por medio de la DGIT y DGPT.
+Cuando para un mismo evento se pretenda el cierre parcial o total de vías cantonales y vías nacionales, la autorización la otorgara el MOPT, previa coordinación técnica con la Municipalidad.

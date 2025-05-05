@@ -1,0 +1,1 @@
+Artículo 10.-Eficacia del permiso. Los permisos otorgados por el Concejo Municipal para el cierre parcial o total de vías públicas cantonales serán eficaces hasta tanto el organizador del evento haya cancelado lo correspondiente a impuesto de patentes y costos operativos, cuando proceda.

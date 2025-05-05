@@ -1,0 +1,1 @@
+Artículo 8º-Modificación de Plazos. Los plazos establecidos en este reglamento, son de orden imperativo, no obstante, de forma excepcional, en situaciones de emergencia, interés público o necesidad institucional, podrían modificarse, únicamente en el contexto de esas situaciones.

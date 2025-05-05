@@ -1,0 +1,1 @@
+Artículo 11.-Responsabilidad por daños. Los organizadores del evento para el cual se extendió el permiso por parte del Concejo serán responsables por todos los daños que se ocasionen como consecuencia de la preparación o realización de la actividad, sin que la municipalidad asuma, de ninguna manera, dicha responsabilidad.
