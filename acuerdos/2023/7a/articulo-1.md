@@ -4,20 +4,39 @@ N° 2023-007. El Ente Costarricense de Acreditación (ECA), en cumplimiento de l
 San José, 04 de abril del 2023.
 (Nota de Sinalevi: Por tener articulado propio el Procedimiento ECA-MC-C05 y ECA-MP-P10 deben ser consultados en el Sistema de forma independiente)
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación y se transcribe a contnuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante acuerdo publicado en La Gaceta N° 91 del del 5 de mayo del 2025, donde se actualiza la versión 21 existente y se publica la versión 22, que se transcribe a continuación:)
 [imagen] |
-CRITERIOS PARA LA EVALUACIÓN DE LA NORMA INTE-ISO/IEC 17021-1 | Código N°: ECA-MC-C05 | Páginas: 1 de 79
-Fecha de entrada en vigencia: 2023.12.07 | Versión: 21
-1. OBJETIVO...................................................................................................................... 2
-2. ALCANCE...................................................................................................................... 2
-3. DEFINICIONES GENERALES.......................................................................................... 2
-4. DOCUMENTOS MANDATORIOS..................................................................................... 2
-5. ELEGIBILIDAD DE UNA ORGANIZACIÓN MULTISITIO PARA CERTIFICACIÓN............... 8
-6. METODOLOGÍA............................................................................................................. 9
-7. AUDITORÍA Y CERTIFICACIÓN..................................................................................... 12
-8. COMUNICACIÓN........................................................................................................... 73
-9. Anexos.......................................................................................................................... 74
-10. TRANSITORIO............................................................................................................. 79
-11. IDENTIFICACIÓN DE CAMBIOS.................................................................................. 79
+CRITERIOS PARA LA EVALUACIÓN DE OC Y OVV | Código N°: ECA-MC-C05 | Páginas: 1 de 76
+Fecha de entrada en vigencia: 2025.05.05 | Versión: 22
+TABLA DE CONTENIDO
+1. OBJETIVO ................................................................................................................. 2
+2. ALCANCE ................................................................................................................. 2
+3. DEFINICIONES .......................................................................................................... 2
+4. DOCUMENTOS MANDATORIOS .............................................................................. 2
+MD 01 DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN DE
+UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO .....3
+MD 02: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE
+GESTIÓN ...................................16
+MD 04: "DOCUMENTO MANDATORIO DE IAF PARA EL USO DE INFORMACIÓN Y TECNOLOGÍA DE COMUNICACIÓN (TIC) PARA PROPÓSITOS DE AUDITORÍA /
+EVALUACIÓN"..................................21
+MD 05: DETERMINACIÓN DEL TIEMPO DE AUDITORÍA DE LOS SISTEMAS DE GESTION
+DE SEGURIDAD Y SALUD EN EL TRABAJO, SISTEMAS DE GESTION AMBIENTAL Y
+SISTEMAS DE GESTION DE LA CALIDAD......................26
+MD 11 APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE GESTIÓN
+INTEGRADOS.................................54
+CRITERIO ECA PARA EVALUAR EL APARTADO 2.2. DEL MD 17 ACTIVIDADES DE TESTIFICACIÓN PARA LA ACREDITACIÓN DE ORGANISMOS DE CERTIFICACIÓN DE
+MD 23. DOCUMENTO MANDATORIO CONTROL DE ENTIDADES OPERANDO EN NOMBRE DE UN ORGANISMO DE CERTIFICACIÓN DE SISTEMAS ACREDITADO..64
+MD 28. DOCUMENTO OBLIGATORIO DE LA IAF PARA LA CARGA Y EL MANTENIMIENTO
+DE DATOS EN LA BASE DE DATOS DE LA IAF...................67
+CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y
+CERTIFICACIÓN DE SISTEMAS DE GESTIÓN ANTISOBORNO............82
+CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE LA SEGURIDAD DE LA INFORMACIÓN
+- SGSI.....................................83
+5. TRANSITORIO ..............................83
+6. ANEXO: LISTADO DE DOCUMENTOS MANDATORIOS Y DOCUMENTOS
+INFORMATIVOS DE IAF Y A QUIEN LE
+APLICA....................................84
+7. IDENTIFICACIÓN DE CAMBIOS ............................................................................. 86
 1. OBJETIVO
 Establecer criterios de cumplimiento obligatorio para los Organismos de Certificación de Sistemas de Gestión (Calidad y/o Ambiental) acreditados o solicitantes de acreditación ante el ECA. Los criterios aquí definidos se pueden complementar con otros criterios de carácter específico para sistemas de gestión concretos como, por ejemplo: certificación de Firma
 Digital.
@@ -37,10 +56,9 @@ Nota. Para las organizaciones con más de una unidad operativa, una sola unidad 
 Este documento incluye los documentos mandatorios de IAF aprobados a la fecha, todos ellos de aplicación obligatoria en las evaluaciones realizadas bajo los requisitos de la Norma INTEISO/IEC 17021-1.
 A efectos de clarificar la estructura del presente documento se entiende que, la palabra "debería" se utiliza para indicar disposiciones que son consideradas como un medio reconocido para cumplir con los requisitos de la norma. Un OEC puede cumplir estos requisitos por un modo equivalente siempre que esto pueda ser demostrado a un Organismo de Acreditación. La palabra "debe" es usada en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.
 En esta sección de este documento se incluyen los correspondientes documentos mandatorios de IAF, de cumplimiento obligatorio para aquellos Organismos de Certificación de Sistemas a los cuales aplique.
-MD 01. DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN
-DE UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO
+MD 01. DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN DE UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO
 (OBLIGATORIO)
-(Tomado del Documento Mandatorio de IAF MD 1:2023 versión 3)
+(Tomado del Documento Mandatorio de IAF MD 01:2023 versión 3)
 TABLA DE CONTENIDOS
 INTRODUCCIÓN
 ALCANCE
@@ -54,13 +72,13 @@ INTRODUCCIÓN
 Este documento está destinado a la auditoría y certificación de sistemas de gestión de organizaciones multisitio con un único sistema de gestión. Dependiendo del sistema de certificación, puede haber requisitos específicos relacionados con el muestreo permitido, en particular el muestreo en centros. El objetivo de este documento es garantizar que la auditoría proporcione la confianza adecuada en la implementación del sistema de gestión conforme a la norma pertinente en todos los centros enumerados en el documento de certificación y que la auditoría sea práctica y factible en términos económicos y operativos.
 Este documento mandatorio está destinado a ser aplicado a organizaciones con varias sedes que cumplan los criterios establecidos a continuación. Hace referencia a otros documentos obligatorios pertenecientes a IAF, en particular el IAF MD 5; Determinación del tiempo de auditoría de los sistemas de gestión de calidad, el medio ambiente y la salud y seguridad en el trabajo.
 Esta previsto que la certificación de las organizaciones con una única sede siga aplicando el MD 5 de IAF, pero en caso de conflicto entre el MD 1 y el MD 5 para las organizaciones con varias sedes, los requisitos del MD 1 tendrán prioridad hasta que se revise el MD 5.
-ALCANCE
+1. ALCANCE
 Este documento es obligatorio para los Organismos de Certificación de Sistemas de Gestión para la aplicación coherente de la sección 9 de la norma INTE-ISO/IEC-17021-1:2015, para todas las situaciones, distintas de las especificadas en la documentación del sistema, que impliquen la auditoría y certificación de Sistemas de Gestión operados por organizaciones con varios centros con un único sistema de gestión. Todas las cláusulas de la norma INTE-ISO/IEC-17021-1:2015 siguen siendo de aplicación, y este documento no sustituye a ningún requisito de dicha norma.
 Nota: Un único sistema de gestión puede satisfacer los requisitos de varias normas de sistemas de gestión.
-No obstante, los requisitos o normas relacionadas también pueden establecer requisitos específicos para la auditoría y la certificación en multisitios (por ejemplo la norma ISO/IEC 27006 o la norma ISO 22003-1, ISO 50003. En estos casos, los requisitos específicos tendrán prioridad sobre los requisitos pertinentes del presente documento.
+No obstante, los requisitos o normas relacionadas también pueden establecer requisitos específicos para la auditoría y la certificación en multisitios (por ejemplo la norma ISO/IEC 27006-1 o la norma ISO 22003-1, ISO 50003. En estos casos, los requisitos específicos tendrán prioridad sobre los requisitos pertinentes del presente documento.
 Este documento no cubre las organizaciones con múltiples sedes en las que se despliegan múltiples sistemas de gestión en toda la organización, en cuyo caso cada sede se considerará igual que una organización con una única sede y se auditará en consecuencia.
 Este documento no se utilizará para situaciones en las que las organizaciones independientes sean reunidas por potra organización independiente (por ejemplo, una empresa de consultoría o una organización artificial) bajo el paraguas de un único sistema de gestión.
-DEFINICIONES
+2. DEFINICIONES
 2.1 Organización
 Persona o grupo de personas que tienen sus propias funciones con responsabilidades, autoridades y relaciones para lograr sus objetivos. (Fuente: Definición 3.1 del Anexo SL de las Directivas ISO / IEC).
 2.2 Sitio permanente
@@ -84,7 +102,7 @@ Nota: El alcance de un solo sitio puede ser el mismo que el alcance completo de 
 Nota: La definición anterior de "sub alcance" se usará para los propósitos de implementar los requisitos de este documento (en contraste con el uso del término en la página 2 de este documento, donde se hace referencia al "sub alcance" "En el contexto de la acreditación y no de la certificación).
 2.8 Alta dirección
 Persona o grupo de personas que dirige y controla una organización al más alto nivel. (Fuente: ISO 9000: 2015 Sistemas de gestión de calidad - Fundamentos y vocabulario).
-APLICACIÓN
+3. APLICACIÓN
 Sitio
 3.1.1 Un sitio podría incluir todo el espacio en el que se llevan a cabo procesos / actividades bajo el control de una organización en un lugar determinado, incluido cualquier almacenamiento conectado o asociado de materias primas, subproductos, productos intermedios, productos finales y material de desecho y cualquier equipo o infraestructura involucrada en los procesos / actividades, sean o no fijas. Alternativamente, cuando lo exija la ley, se aplicarán las definiciones establecidas en los regímenes de licencias nacionales o locales.
 3.1.2 Cuando no sea posible definir una ubicación (por ejemplo, para servicios), la cobertura de la certificación debería tener en cuenta los procesos / actividades de la sede de la organización, así como la prestación de sus servicios. Cuando corresponda, el organismo de certificación puede decidir que la auditoría de certificación se llevará a cabo únicamente donde la organización entrega sus servicios. En tales casos, todas las interfaces con su función central se identificarán y auditarán.
@@ -92,7 +110,7 @@ Sitio
 3.2.1 Los sitios temporales que están cubiertos por el sistema de gestión de la organización estarán sujetos a auditorías basadas en muestras para proporcionar evidencia del funcionamiento y la eficacia del sistema de gestión. Sin embargo, pueden estar incluidos dentro del alcance de una certificación de sitios múltiples e incluidos en el documento de certificación, sujeto a un acuerdo entre el Organismo de certificación y la organización del cliente. Cuando los sitios temporales se muestran en los documentos de certificación, dichos sitios se identificarán como temporales.
 3.3 Organización multisitio
 3.3.1 Una organización multisitio no necesita ser una entidad legal única, pero todos los sitios deberán tener un vínculo legal o contractual con la función central de la organización y estar sujetos a un sistema de gestión único, que se establece, establece y a la vigilancia continua y auditorías internas por la función central. Esto significa que la función central tiene el derecho de exigir que los sitios implementen acciones correctivas cuando sea necesario en cualquier sitio. Cuando corresponda, esto debería establecerse en el acuerdo formal entre la función central y los sitios.
-JUSTIFICACIÓN DEL ENFOQUE PROPUESTO
+4. JUSTIFICACIÓN DEL ENFOQUE PROPUESTO
 4.1 Este documento trata de la auditoría de una organización multisitios con un solo sistema de gestión.
 4.2 Cualquier sitio puede realizar total o parcialmente los procesos / actividades cubiertos por el alcance del sistema de gestión y los diferentes sitios pueden pertenecer a la misma entidad legal o no.
 4.3 Cualquier consideración legal concerniente al sistema de gestión de la organización que se extienda sobre una sola entidad legal o múltiples entidades legales generalmente es irrelevante para la auditoría del sistema de gestión y salvo que se indique lo contrario, no se trata en este documento.
@@ -131,16 +149,16 @@ Nota: La función central es donde el control operativo y la autoridad de la alt
 6.1.2.2 Al menos el 25% de la muestra deberá ser seleccionada al azar.
 6.1.2.3 Teniendo en cuenta las disposiciones mencionadas a continuación, el resto se seleccionará de modo que las diferencias entre los sitios seleccionados durante el período de validez del certificado sean lo más amplio posible.
 6.1.2.4 La selección del sitio deberá considerar, entre otros, los siguientes aspectos: ? resultados de auditorías internas del sitio y revisiones de la administración o auditorías de certificación previas;
-· registros de quejas y otros aspectos relevantes de la acción correctiva y preventiva;
-· variaciones significativas en el tamaño de los sitios;
-· variaciones en los patrones de turno y procedimientos de trabajo;
-· complejidad del sistema de gestión y los procesos realizados en los sitios;
-· modificaciones desde la última auditoría de certificación;
-· madurez del sistema de gestión y conocimiento de la organización;
-· problemas ambientales y extensión de los aspectos e impactos asociados para los sistemas de gestión ambiental;
-· diferencias en cultura, idioma y requisitos normativos;
-· dispersión geográfica;
-· si los sitios son permanentes, temporales o virtuales.
+registros de quejas y otros aspectos relevantes de la acción correctiva y preventiva;
+variaciones significativas en el tamaño de los sitios;
+variaciones en los patrones de turno y procedimientos de trabajo;
+complejidad del sistema de gestión y los procesos realizados en los sitios;
+modificaciones desde la última auditoría de certificación;
+madurez del sistema de gestión y conocimiento de la organización;
+problemas ambientales y extensión de los aspectos e impactos asociados para los sistemas de gestión ambiental;
+diferencias en cultura, idioma y requisitos normativos;
+dispersión geográfica;
+si los sitios son permanentes, temporales o virtuales.
 6.1.2.5 Esta selección no tiene que hacerse al comienzo del proceso de auditoría. También se puede hacer una vez que se haya completado la auditoría de la función central. En cualquier caso, se deberá informar a la función central de los sitios que se incluirán en la muestra. Esto puede ser con un aviso relativamente corto, pero deberá permitir un tiempo adecuado para la preparación de la auditoría.
 6.1.3 Tamaño de la muestra
 6.1.3.1 El organismo de certificación deberá tener un procedimiento documentado para determinar el tamaño de la muestra. Esto deberá tener en cuenta todos los factores descritos en esta sección.
@@ -151,24 +169,23 @@ Auditoría inicial: el tamaño de la muestra deberá ser la raíz cuadrada del n
 . Auditoría de recertificación: el tamaño de la muestra deberá ser el mismo que para una auditoría inicial. Sin embargo, cuando el sistema de gestión ha demostrado ser efectivo durante el ciclo de certificación, el tamaño de la muestra podría reducirse a, y = 0.8 ?x, redondeado al siguiente número entero.
 6.1.3.4 La función central (como se detalla en la Sección 5) deberá ser auditada durante la certificación inicial y cada auditoría de recertificación y al menos una vez por año calendario como parte de la vigilancia.
 6.1.3.5 El tamaño o frecuencia de la muestra deberá ser incrementado cuando el análisis de riesgos del proceso de la entidad de certificación cubierto por el sistema de gestión sujeto a certificación indique circunstancias especiales con respecto a factores tales como:
-· el tamaño de los sitios y la cantidad de empleados;
-· la complejidad o el nivel de riesgo del proceso / actividad y del sistema de gestión;
-· variaciones en las prácticas de trabajo (por ejemplo, turnos de trabajo);
-· variaciones en el proceso / actividades emprendidas;
-· registros de quejas y otros aspectos relevantes de la acción correctiva y preventiva;
-· cualquier aspecto multinacional;
-· resultados de auditorías internas y revisión de la administración.
+el tamaño de los sitios y la cantidad de empleados;
+la complejidad o el nivel de riesgo del proceso / actividad y del sistema de gestión;
+variaciones en las prácticas de trabajo (por ejemplo, turnos de trabajo);
+variaciones en el proceso / actividades emprendidas;
+registros de quejas y otros aspectos relevantes de la acción correctiva y preventiva;
+cualquier aspecto multinacional;
+resultados de auditorías internas y revisión de la administración.
 6.1.3.6 Cuando la organización tiene un sistema jerárquico de sucursales (por ejemplo, la oficina principal (central), las oficinas nacionales, las oficinas regionales, las sucursales locales), el modelo de muestreo para la auditoría inicial como se define arriba se aplica a cada nivel.
 Por ejemplo:
-· 1 oficina central: visitado en cada ciclo de auditoría (inicial o vigilancia o recertificación)
-· 4 oficinas nacionales: muestra = 2: mínimo 1 al azar
-· 27 oficinas regionales: muestra = 6: mínimo 2 al azar
-· 1700 sucursales locales: muestra = 42: mínimo 11 al azar
+1 oficina central: visitado en cada ciclo de auditoría (inicial o vigilancia o recertificación)
+4 oficinas nacionales: muestra = 2: mínimo 1 al azar
+27 oficinas regionales: muestra = 6: mínimo 2 al azar
+1700 sucursales locales: muestra = 42: mínimo 11 al azar
 La muestra de oficinas regionales debería incluir al menos una oficina regional controlada por cada oficina nacional. La muestra de sucursales locales debería incluir al menos una sucursal local controlada por cada oficina regional. Esto puede hacer que el tamaño de la muestra en cada nivel exceda el tamaño mínimo de muestra calculado de acuerdo con el párrafo 6.1.3.3.
 6.1.3.7 El proceso de muestreo debería ser parte de la gestión del programa de auditoría. En cualquier momento (es decir, antes de planificar la auditoría de vigilancia, o cuando cualquier sitio de la organización cambie su estructura, o en caso de adquisición de nuevos sitios que se agregarán en el límite de certificación), el organismo de certificación deberá revisar el muestreo previsto en el programa de auditoría para establecer la necesidad de ajustar el tamaño de la muestra antes de auditar la muestra con miras a mantener la certificación.
 6.1.4 Sitios adicionales
-6.1.4.1 En la aplicación de la inclusión de nuevos sitios o un nuevo grupo de sitios para unirse a una organización multisitios ya certificada, el organismo de certificación deberá determinar las actividades requeridas que se realizarán antes de incluir los sitios nuevos en el certificado.
-Esto deberá incluir la consideración de si se auditan los nuevos sitios o no. Después de la inclusión de los nuevos sitios en el certificado, se determinará el tamaño de la muestra para futuras auditorías de vigilancia o recertificación.
+6.1.4.1 En la aplicación de la inclusión de nuevos sitios o un nuevo grupo de sitios para unirse a una organización multisitios ya certificada, el organismo de certificación deberá determinar las actividades requeridas que se realizarán antes de incluir los sitios nuevos en el certificado. Esto deberá incluir la consideración de si se auditan los nuevos sitios o no. Después de la inclusión de los nuevos sitios en el certificado, se determinará el tamaño de la muestra para futuras auditorías de vigilancia o recertificación.
 6.2 Metodología para la auditoría de organizaciones multisitios donde muestreo utilizando la sección 6.1 no es apropiado
 6.2.1 El programa de auditoría deberá incluir una auditoría inicial y auditoría de recertificación de todos los sitios. En las auditorías de vigilancia, el 30% de los sitios, redondeados hasta el número completo, estarán cubiertos en un año calendario. Cada auditoría incluirá la función central. Los sitios seleccionados para la segunda auditoría de vigilancia normalmente serán diferentes de los sitios seleccionados para la primera auditoría de vigilancia.
 6.2.2 El programa de auditoría deberá diseñarse para garantizar que todos los procesos cubiertos por el alcance de certificación se auditen en cada ciclo.
@@ -180,18 +197,22 @@ El programa de auditoría se establecerá utilizando la Sección 6.1 para aquell
 El Organismo de Certificación deberá tener procedimientos documentados para tratar las auditorías bajo su procedimiento de sitios múltiples. Dichos procedimientos deberán establecer la forma en que el Organismo de Certificación se satisfaga a sí mismo que el sistema de gestión único gobierna los procesos / actividades en todos los sitios y se aplica realmente a todos los sitios. El Organismo de Certificación deberá justificar y registrar los fundamentos para proceder con cualquier enfoque a la auditoría y certificación de una organización multisitios.
 7.1 Aplicación y revisión de la aplicación
 7.1.1 El organismo de certificación deberá obtener la información necesaria sobre la orga1] nización solicitante para:
-· confirmar que se implementa un único sistema de gestión en toda la organización; ? determinar el alcance del sistema de gestión que se está operando y el alcance solicitado de la certificación y, si corresponde, los sub-ámbitos; ? comprender los arreglos legales y contractuales para cada sitio;
-· entender "qué sucede donde", es decir, procesos / actividades proporcionados en cada sitio e identificar la función central;
-· determinar el grado de centralización de procesos / actividades que se entregan a todos los sitios (por ejemplo, compras);
-· determinar las interfaces entre los diferentes sitios;
-· determinar qué sitios pueden ser aplicables para el muestreo (es decir, donde se proporcionan procesos / actividades muy similares) y aquellos que no son elegibles; ? tomar en consideración otros factores relevantes (ver también IAF MD 4, IAF MD 5, IAF MD 11: IAF Documento obligatorio para la aplicación de ISO / IEC 17021 para auditorías de sistemas de gestión integrados (IMS), ISO / CEI TS 17023);
-· determinar el tiempo de auditoría para la organización;
-· determinar la competencia del (de los) equipo (s) de auditoría requerido;
-· identificar la complejidad y la escala de los procesos / actividades (por ejemplo, uno o muchos) cubiertos por el sistema de gestión.
+confirmar que se implementa un único sistema de gestión en toda la organización;
+determinar el alcance del sistema de gestión que se está operando y el alcance solicitado de la certificación y, si corresponde, los sub-ámbitos;
+comprender los arreglos legales y contractuales para cada sitio;
+entender "qué sucede donde", es decir, procesos / actividades proporcionados en cada sitio e identificar la función central;
+determinar el grado de centralización de procesos / actividades que se entregan a todos los sitios (por ejemplo, compras);
+determinar las interfaces entre los diferentes sitios;
+determinar qué sitios pueden ser aplicables para el muestreo (es decir, donde se proporcionan procesos / actividades muy similares) y aquellos que no son elegibles;
+tomar en consideración otros factores relevantes (ver también IAF MD 4, IAF MD 5, IAF MD 11: IAF Documento obligatorio para la aplicación de ISO / IEC 17021 para auditorías de sistemas de gestión integrados (IMS), ISO / CEI TS 17023);
+determinar el tiempo de auditoría para la organización;
+determinar la competencia del (de los) equipo (s) de auditoría requerido;
+identificar la complejidad y la escala de los procesos / actividades (por ejemplo, uno o muchos) cubiertos por el sistema de gestión.
 7.2 Programa de auditoría
 7.2.1 Además del requisito de ISO / IEC 17021-1: 2015 cláusula 9.1.3, el programa de auditoría deberá incluir al menos o se referirá a lo siguiente:
-· procesos / actividades proporcionados en cada sitio;
-· identificación de aquellos sitios que pueden ser muestreados, y que no lo son; ? identificación de sitios que están cubiertos por muestreo y que no lo son.
+procesos / actividades proporcionados en cada sitio;
+identificación de aquellos sitios que pueden ser muestreados, y que no lo son;
+identificación de sitios que están cubiertos por muestreo y que no lo son.
 7.2.2 Al determinar el programa de auditoría, el organismo de certificación deberá permitir suficiente tiempo adicional para las actividades que no forman parte del tiempo de auditoría calculado, como viajar, comunicarse entre los miembros del equipo de auditoría, reuniones posteriores a la auditoría, etc. debido a la especificidad configuración de la organización a ser auditada
 Nota: Se pueden utilizar técnicas de auditoría remota, siempre que los procesos a auditar sean de tal naturaleza que la auditoría remota sea apropiada (consulte ISO / IEC 17021-1 y IAF MD 4).
 7.2.3 Cuando se utilicen equipos de auditoría compuestos por más de un miembro en cualquier punto, deberá ser responsabilidad del Organismo de Certificación, junto con el líder del equipo, identificar la competencia técnica requerida para cada parte de la auditoría y para cada sitio y para asignar a los miembros del equipo apropiados para cada parte de la auditoría.
@@ -202,14 +223,16 @@ Por ejemplo, 30% es la reducción máxima en el tiempo de auditoría permitido p
 El tiempo de auditoría por sitio seleccionado (si proviene de muestreo como en 6.1, de no muestreo como en 6.2 o de metodología mixta como en 6.3), incluidos los elementos de la función central, si corresponde, se calculará para cada sitio utilizando el Documentos de la IAF (por ejemplo, IAF MD 5 para sistemas de gestión ambiental y de calidad, IAF MD 11 para sistemas de gestión integrados) y, cuando sea necesario, cualquier requisito de esquema sectorial aplicable para el cálculo de días / hombre.
 7.4 Plan de auditoría
 7.4.1 Además del requisito en ISO / IEC 17021-1: 2015 cláusula 9.2.3, El organismo de certificación deberá considerar al menos lo siguiente al preparar el plan de auditoría:
-· alcance y sub-ámbitos de certificación para cada sitio;
-· norma del sistema de gestión para cada sitio, si se están considerando varias normas del sistema de gestión;
-· procesos / actividades para ser auditados; ? tiempo de auditoría para cada sitio; y ? equipo de auditoría asignado.
-· 7.5 Auditoría inicial. Etapa 1
-· Durante la Etapa 1, el equipo de auditoría deberá completar la información para:
-· confirmar el programa de auditoría;
-· planear la Etapa 2, teniendo en cuenta los procesos / actividades a ser auditados en cada sitio; y
-· confirmar que el equipo de auditoría de la Etapa 2 tiene la competencia requerida.
+alcance y sub-ámbitos de certificación para cada sitio;
+norma del sistema de gestión para cada sitio, si se están considerando varias normas del sistema de gestión;
+procesos / actividades para ser auditados;
+tiempo de auditoría para cada sitio; y
+equipo de auditoría asignado.
+7.5 Auditoría inicial. Etapa 1
+Durante la Etapa 1, el equipo de auditoría deberá completar la información para:
+confirmar el programa de auditoría;
+planear la Etapa 2, teniendo en cuenta los procesos / actividades a ser auditados en cada sitio; y
+confirmar que el equipo de auditoría de la Etapa 2 tiene la competencia requerida.
 7.6 Auditoría inicial: Etapa 2
 En el resultado de la auditoría inicial, el equipo de auditoría deberá documentar qué procesos fueron auditados en cada sitio visitado. Esta información se utilizará para modificar el programa de auditoría y los planes de auditoría para auditorías de seguimiento posteriores.
 7.7 No conformidades y certificación
@@ -221,10 +244,10 @@ En el resultado de la auditoría inicial, el equipo de auditoría deberá docume
 7.8.1 El documento de certificación deberá reflejar el alcance de la certificación y los sitios y / entidades legales (cuando corresponda) cubiertos por la certificación de sitios múltiples.
 7.8.2 Los documentos de certificación deberán contener el nombre y la dirección de todos los sitios, que reflejen la organización a la que se refieren los documentos de certificación. El alcance u otra referencia en estos documentos deberá dejar en claro que las actividades certificadas son realizadas por los sitios en la lista. Sin embargo, si las actividades de un sitio solo incluyen un subconjunto del alcance de la organización, el documento de certificación deberá incluir el sub-ámbito del sitio. Cuando los sitios temporales se muestran en los documentos de certificación, dichos sitios se identificarán como temporales.
 7.8.3 Cuando se emitan documentos de certificación para un sitio, deberá incluir:
-· que es el sistema de gestión de toda la organización el que está certificado;
-· Las actividades realizadas para cada sitio / entidad jurídica específica, están cubiertas por esta certificación
-· Trazabilidad con el certificado principal, por ejemplo, un código y
-· Una declaración que diga "la validez de este certificado depende de la validez del certificado principal.
+que es el sistema de gestión de toda la organización el que está certificado;
+Las actividades realizadas para cada sitio / entidad jurídica específica, están cubiertas por esta certificación
+Trazabilidad con el certificado principal, por ejemplo, un código y
+Una declaración que diga "la validez de este certificado depende de la validez del certificado principal.
 Bajo ninguna circunstancia, este documento de certificación puede emitirse a nombre del sitio/entidad legal ni sugerir que este sitio/entidad legal está certificado (el certificado es la organización cliente), ni incluirá una declaración de conformidad del sitio. procesos/actividades al documento normativo central.
 7.8.4 La documentación de certificación se retirará en su totalidad si alguno de los centros no cumple las disposiciones necesarias para el mantenimiento de la certificación.
 7.9 Auditoría de vigilancia
@@ -233,7 +256,8 @@ Bajo ninguna circunstancia, este documento de certificación puede emitirse a no
 7.10 Auditoría de recertificación
 7.10.1 La recertificación de las organizaciones con varios sitios que puedan someterse a muestreo se auditará de conformidad con el apartado 6.1. El tiempo de auditoría por sitio se calculará de acuerdo con el apartado 7.3
 7.10.2 La recertificación de las organizaciones con varios sitios que no puedan someterse a muestreo, se auditará como en la auditoría inicial, es decir, se auditará todos los sitios más la función central. El tiempo de auditoría por sitio y función central se calculará de acuerdo con el apartado 7.3.
-MD 02: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE GESTIÓN(OBLIGATORIO)
+MD 02: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE GESTIÓN
+(OBLIGATORIO)
 (Tomado del Documento Mandatorio de IAF MD 2:2023)
 TABLA DE CONTENIDOS
 Este documento es obligatorio para la aplicación coherente de la cláusula 9.1.3 de la norma ISO/IEC 17021-1:2015. Todas las cláusulas de la norma ISO/IEC 17021-1:2015 siguen siendo de aplicación y este documento no sustituye a ninguno de los requisitos de dicha norma.
@@ -244,7 +268,7 @@ Este documento proporciona los criterios mínimos para la transferencia de certi
 1. DEFINICIÓN
 1.1 Transferencia de la certificación: La transferencia de una certificación se define como el reconocimiento de una certificación de Sistema de Gestión vigente y válida, concedida por un Organismo de Certificación acreditado (de aquí en adelante denominado como "el OC emisor"), por otro OC acreditado (de aquí en adelante denominado "el OC receptor") con el fin de emitir su propia certificación.
 En esta definición no se incluye el caso de certificación múltiple (certificación simultánea por más de un OC). IAF no fomenta este tipo de certificación.
-2. REQ ISITOS MÍNIMOS
+2. REQUISITOS MÍNIMOS
 2.1 Elegibilidad de una certificación para transferencia
 2.1.1 Solo la certificación que esté cubierta por una acreditación de un IAF o signatario regional de MLA en el nivel 3 y, cuando corresponda, en los niveles 4 y 5, podrá ser transferida. Las organizaciones que posean una certificación que no esté cubierta por tales acreditaciones serán tratadas como nuevos clientes.
 2.1.2 Solo se transferirá la certificación acreditada válida. La certificación que se sabe que está suspendida no será aceptada para transferencia.
@@ -283,59 +307,66 @@ Cuando el organismo de certificación receptor haya tenido que tratar al cliente
 2.4.4 El organismo de acreditación debe tener un proceso para abordar la situación, incluida la suspensión o retiro de la acreditación, cuando el organismo de certificación emisor no coopera con el organismo de certificación receptor o suspende o retira la certificación del cliente que realiza la transferencia sin causa.
 2.4.5 Una vez que el OC receptor haya emitido la certificación, deberá informar al OC emisor.
 En caso del Ente Costarricense de Acreditación si recibe información de no colaboración de un Organismo de Certificación de Sistemas de Gestión para la transferencia de Certificados se tomará como el no cumplimiento del dueño del Esquema y será tratado como supuesta falta grave del procedimiento ECA-MC-P16.
-MD 04: "Documento mandatorio de IAF para el uso de información y tecnología de comunicación (TIC) para propósitos de auditoría / evaluación".
+MD 04: "DOCUMENTO MANDATORIO DE IAF PARA EL USO DE INFORMACIÓN Y TECNOLOGÍA DE COMUNICACIÓN (TIC) PARA PROPÓSITOS DE AUDITORÍA / EVALUACIÓN".
 (OBLIGATORIO)
-(Tomado del Documento Mandatorio de IAF MD 4:2023)
+(Tomado del Documento Mandatorio de IAF MD 4:2025); entra en vigencia enero 2026
 TABLA DE CONTENIDOS
-0. INTRODUCCIÓN
-A medida que la tecnología de la información y la comunicación (TIC) se vuelve más sofisticado, es importante poder utilizar las TIC para optimizar la eficacia y eficiencia de la auditoría / evaluación, y para apoyar y mantener la integridad del proceso de auditoría / evaluación
-Las TIC son el uso de tecnología para recopilar, almacenar, recuperar, procesar, analizar y transmitir información. Incluye software y hardware como teléfonos inteligentes, dispositivos portátiles, computadoras portátiles, computadoras de escritorio, drones, cámaras de video, tecnología portátil, inteligencia artificial y otros. El uso de las TIC pueden ser apropiadas para la auditoría / evaluación tanto local como remota.
-Los ejemplos del uso de las TIC durante las auditorías / evaluaciones pueden incluir, pero no limitarse a:
-. reuniones; por medio de instalaciones de teleconferencia, que incluyen audio, video e intercambio de datos
-. Auditoría / evaluación de documentos y registros mediante acceso remoto, ya sea sincrónicamente (en tiempo real) o asincrónicamente (cuando corresponda)
-. Grabación de información y evidencia mediante grabaciones de video, video o audio.
-. Proporcionar acceso visual / de audio a ubicaciones remotas o potencialmente peligrosas.
-Los objetivos para la aplicación efectiva de las TIC con propósito de auditoría / evaluación son:
-i) Proporcionar una metodología para el uso de las TIC que sea lo suficientemente flexible y no prescriptiva por naturaleza para optimizar lo convencional del proceso de auditoría / evaluación ii) Asegurar que existan controles adecuados para evitar abusos que puedan comprometer la integridad del proceso de auditoría / evaluación iii) Apoyar los principios de seguridad y sostenibilidad.
-También se tomarán medidas para garantizar que se mantenga la seguridad y la confidencialidad en todas las actividades de auditoría / evaluación.
-Otros esquemas, documentos normativos y estándares de evaluación de la conformidad podrían imponer limitaciones en el uso de las TIC para auditoría / evaluación y podrían tener prioridad sobre este documento.
-1. ALCANCE
-Este documento obligatorio prevé la aplicación coherente en auditorías / evaluaciones, para el uso de tecnología de información y comunicación como parte de la metodología. El alcance de este documento es para la auditoría / evaluación de sistemas de gestión, personas y productos y es aplicable a los organismos de evaluación de la conformidad y organismos de acreditación. El uso de las TIC no es obligatorio y puede usarse para otros tipos de actividades de evaluación de la conformidad, pero si se usa como parte de la metodología de auditoría / evaluación, es obligatorio cumplir con este documento.
-2. REFERENCIAS NORMATIVAS
-Para los fines de este documento, se aplican las referencias normativas que se proporcionan a continuación, según la actividad de evaluación de la conformidad. Para las referencias con fecha, sólo se aplica la edición citada. Para referencias sin fecha, se aplica la última edición del documento referenciado (incluidas las enmiendas). Limitado a:
-· AF MD 5. Documento mandatorio de IAF para la determinación del tiempo de auditoría de sistemas de gestión de calidad, medio ambiente y seguridad y salud laboral.
-· INTE/ISO 17011 Evaluación de la conformidad. Requisitos de evaluación para los organismos que realizan la acreditación de organismos de evaluación de la conformidad. ? INTE/ISO/IEC 17021-1 Evaluación de la conformidad. Requisitos para los organismos ? que realizan auditoría y la certificación de sistema de gestión. Parte 1: Requisitos. ? INTE/ISO/IEC 17065 Evaluación de la conformidad - Requisitos para ? organismos que certifican productos, procesos y servicios.
-· INTE/ISO/IEC 17024 Evaluación de la conformidad - Requisitos generales para los organismos que realizan certificación de personas
-Este MD también se puede considerar para su uso con otros estándares de evaluación de la conformidad, tales como:
-· INTE ISO 14065 Gases de efecto invernadero Requisitos para los organismos que realizan la validación y la verificación de gases de efecto invernadero, para su uso en acreditación u otras formas de reconocimiento.
-· INTE/ISO/IEC 17020 Evaluación de la conformidad - Requisitos para el funcionamiento de diferentes tipos de organismos que realizan la inspección
-· INTE/ISO/IEC 17025 Requisitos generales para la competencia de los laboratorios de ensayo y calibración. Requisitos.
-Además, se puede obtener orientación sobre auditoría / evaluación utilizando las TIC de:
-· INTE/ISO/IEC 17020 Evaluación de la conformidad - Requisitos para el funcionamiento de diferentes tipos de organismos que realizan la inspección
-· INTE/ISO/IEC 17025 Requisitos generales para la competencia de los laboratorios de ensayo y calibración. Requisitos.
-· ISO / IAF Grupo de Prácticas de Auditoría - "Sistemas electrónicos de información documentada": www.iso.org/tc176/ISO9001AuditingPracticesGroup
-· IAF ID 12 - Principios sobre evaluación remota
-· ISO 19011 - Directrices para la auditoría de sistemas de gestión
-3. DEFINICIONES
+Introducción
+Alcance
+Referencias normativas
+Definiciones
+Requisitos
+1. INTRODUCCIÓN
+A medida que las tecnologías de la información y la comunicación (TIC) se vuelven más sofisticadas, es importante poder utilizarlas para optimizar la eficacia y la eficiencia (efectividad) de la evaluación, para apoyar y mantener la integridad del proceso de evaluación. Las TIC son el uso de la tecnología para recopilar, almacenar, recuperar, procesar, analizar y transmitir información, incluye software y hardware como teléfonos inteligentes, Tabletas, computadoras, drones, cámaras de video, inteligencia artificial, entre otros. El uso de las TIC puede ser apropiado para la evaluación tanto in situ como remota.
+Algunos ejemplos del uso de las TIC durante las evaluaciones pueden ser, entre otros, los siguientes:
+. Reuniones: mediante instalaciones de teleconferencia, incluyendo audio, video y datos compartidos. Skype, WebEx, ZOOM, Google meet
+. Evaluación de documentos y registros mediante acceso remoto, ya sea de forma sincrónica (en tiempo real) o asincrónica (cuando proceda). Llenado de listas de comprobación y cuestionarios
+. Registro de información y pruebas mediante grabaciones fijas de video o audio. Documentos en la web
+. Proporcionar acceso visual y sonoro a lugares remotos para evitar lugares potencialmente peligrosos. Uso de drones, transmisiones en vivo
+El anexo A, provee una lista de posibles TIC, riesgos y oportunidades que puede ser consideradas por la Secretaría o Equipo Evaluador.
+Los objetivos para la aplicación efectiva de las TIC con fines de evaluación son:
+I. Proporcionar una metodología para el uso de las TIC que sea lo suficientemente flexible y no prescriptiva para optimizar el proceso convencional de evaluación.
+II. Garantizar la existencia de controles adecuados para evitar abusos que puedan comprometer la integridad del proceso de evaluación III. Apoyar los principios de seguridad y sostenibilidad.
+También se tomarán medidas para garantizar el mantenimiento de la seguridad y la confidencialidad durante las actividades de evaluación.
+2. ALCANCE
+Este documento obligatorio establece la aplicación coherente en la auditoría/evaluación, para el uso de la tecnología de la información y la comunicación como parte de la metodología. El ámbito de aplicación de este documento es la auditoría/evaluación de los sistemas de gestión, de las personas y del producto y es aplicable a los organismos de evaluación de la conformidad y a los organismos de acreditación. El uso de las TIC no es obligatorio y puede utilizarse para otros tipos de actividades de evaluación de la conformidad, pero si se utiliza como parte de la metodología de auditoría/evaluación, es obligatorio ajustarse a este documento.
+3. REFERENCIAS NORMATIVAS
+A efectos de este documento, se aplican las referencias normativas que se indican a continuación, en función de la actividad de evaluación de la conformidad. Para las referencias con fecha, sólo se aplica la edición citada. Para las referencias sin fecha, se aplica la última edición del documento referenciado (incluidas las modificaciones). Limitado a:
+. IAF MD 5 - Determinación del tiempo de auditoría de los sistemas de gestión de la calidad, el medio ambiente y la seguridad y salud en el trabajo
+. ISO/IEC 17011 - Evaluación de la conformidad - Requisitos para los organismos de acreditación que acreditan organismos de evaluación de la conformidad
+. ISO/IEC 17021-1 - Evaluación de la conformidad - Requisitos para los organismos de auditoría y certificación de sistemas de gestión - Parte 1: Requisitos
+. ISO/IEC 17065 - Evaluación de la conformidad - Requisitos para los organismos de certificación de productos, procesos y servicios
+. ISO/IEC 17024 - Evaluación de la conformidad - Requisitos generales para los organismos de certificación de personas
+Este documento mandatorio también puede considerarse para su uso con otras normas de evaluación de la conformidad, como por ejemplo
+. ISO 14065 - Gases de efecto invernadero - Requisitos para los organismos de validación y verificación de gases de efecto invernadero para su uso en la acreditación u otras formas de reconocimiento
+. ISO/IEC 17020 - Evaluación de la conformidad - Requisitos para el funcionamiento de los distintos tipos de organismos que realizan la inspección
+. ISO/IEC 17025 - Requisitos generales para la competencia de los laboratorios de ensayo y calibración
+Además, pueden obtenerse orientaciones sobre la auditoría/evaluación mediante el uso de las TIC:
+. ISO/IEC 17020 - Evaluación de la conformidad - Requisitos para el funcionamiento de los distintos tipos de organismos que realizan la inspección
+. ISO/IEC 17025 - Requisitos generales para la competencia de los laboratorios de ensayo y calibración
+. Grupo de Prácticas de Auditoría ISO/IAF - "Sistemas de información documentados electrónicamente" https://committee.iso.org/home/tc176/iso-9001-auditing- practices- group.html
+. IAF ID 12 - Principios sobre la evaluación a distancia
+. ISO 19011 - Directrices para la auditoría de sistemas de gestión
+4. DEFINICIONES
 3.1 Sitio virtual
-Ubicación virtual en el que una organización cliente realiza un trabajo o presta un servicio a través de un entorno en línea (on-line) permitiendo a las personas independientemente de su ubicación física, ejecutar procesos.
-Nota 1: No se puede considerar un sitio virtual donde los procesos deben ejecutarse en un entorno físico, por ejemplo, almacenamiento, fabricación, laboratorios de pruebas físicas, instalación o reparación de productos físicos.
-Nota 2: Un sitio virtual (por ejemplo, intranet de la empresa) se considera un sitio único para el cálculo del tiempo de auditoría / evaluación.
-4. REQUISITOS
-4.1 Seguridad y confidencialidad
-4.1.1 La seguridad y confidencialidad de la información electrónica o transmitida electrónicamente es particularmente importante cuando se utilizan las TIC para fines de auditoría / evaluación.
-4.1.2 El uso de las TIC para fines de auditoría / evaluación debe ser acordado mutuamente por el organismo que se audita / evalúa y el organismo que realiza la auditoría / evaluación de acuerdo con las medidas de seguridad de la información, protección de datos y regulaciones antes de que las TIC se utilicen para fines de auditoría / evaluación.
-4.1.3 En caso de incumplimiento de estas medidas o incumplimiento de las medidas de seguridad de la información y protección de datos, el organismo que realiza las actividades de auditoría / evaluación deberá utilizar otros métodos para realizar la auditoría / evaluación.
-4.1.4 Cuando no se llegue a un acuerdo sobre el uso de las TIC para la auditoría / evaluación, se utilizarán otros métodos para cumplir los objetivos de auditoría / evaluación.
-4.2 Requisitos del proceso
-4.2.1 El organismo debe identificar y documentar los riesgos y las oportunidades que pueden afectar la eficacia de la auditoría / evaluación para cada uso de las TIC en las mismas condiciones, incluida la selección de las tecnologías y cómo se gestionan.
-4.2.2 Cuando se proponen las TIC para las actividades de auditoría / evaluación, la revisión de la solicitud debe incluir una verificación de que el cliente y el organismo de auditoría / evaluación tienen la infraestructura necesaria para respaldar el uso de las TIC propuestas.
-4.2.3 Considerando los riesgos y oportunidades identificados en 4.2.1, el plan de auditoría / evaluación debe identificar cómo se utilizarán las TIC y el grado en que las TIC se utilizarán con fines de auditoría / evaluación para optimizar la eficacia y eficiencia de la auditoría / evaluación, manteniendo la integridad del proceso de auditoría / evaluación.
-4.2.4 Al utilizar las TIC, los auditores / evaluadores y otras personas involucradas (por ejemplo, pilotos de drones, expertos técnicos) deben tener la competencia y la capacidad de comprender y utilizar las tecnologías de información y comunicación empleadas para lograr los resultados deseados de auditoría (s) / evaluación (s) El auditor / evaluador también debe ser consciente de los riesgos y oportunidades de las tecnologías de información y comunicación utilizadas y los impactos que pueden tener en la validez y objetividad de la información recopilada.
-4.2.5 Si las TIC se utilizan con fines de auditoría / evaluación, estas contribuyen al tiempo total de auditoría / evaluación, ya que puede ser necesaria una planificación adicional que podría afectar la duración de la auditoría / evaluación.
-Nota: Al determinar el tiempo y la duración de la auditoría / evaluación, consulte las referencias normativas para conocer los requisitos adicionales que pueden afectar la aplicación de las TIC. El impacto sobre la duración de la auditoría / evaluación utilizando las TIC no está limitado por este MD.
-4.2.6 Los informes de auditoría / evaluación y los registros relacionados deben indicar en qué medida se han utilizado las TIC para llevar a cabo la auditoría / evaluación y la efectividad de las TIC en el logro de los objetivos de auditoría / evaluación.
-4.2.7 Si los sitios virtuales se incluyen dentro del alcance, la documentación de certificación / acreditación debe indicar que los sitios virtuales están incluidos y se deben identificar las actividades realizadas en los sitios virtuales.
+Lugar virtual en el que una organización cliente realiza un trabajo o presta un servicio utilizando un entorno en línea que permite a las personas, independientemente de su ubicación física, ejecutar procesos.
+Nota 1: No se puede considerar un sitio virtual cuando los procesos deben ejecutarse en un entorno físico, por ejemplo, el almacenamiento, la fabricación, los laboratorios de pruebas físicas, la instalación o las reparaciones de productos físicos.
+Nota 2: Un sitio virtual (por ejemplo, la intranet de la empresa) se considera un solo sitio para el cálculo del tiempo de auditoría/evaluación.
+5. REQUISITOS
+5.1. Seguridad y confidencialidad
+5.1.1. La seguridad y confidencialidad de la información electrónica o transmitida electrónicamente es especialmente importante cuando se utilizan las TIC con fines de evaluación.
+5.1.2. El uso de las TIC con fines de evaluación deberá ser acordado mutuamente por el ECA y el OEC de acuerdo con las medidas y normas de seguridad de la información y de protección de datos antes de utilizar las TIC con fines de evaluación.
+5.1.3. En el caso de que no se cumplan estas medidas o no se acuerdan medidas de seguridad de la información y de protección de datos, el organismo que realice las actividades de evaluación utilizará otros métodos para llevar a cabo la evaluación.
+5.1.4. Cuando no se llegue a un acuerdo para el uso de las TIC para la evaluación, se utilizarán otros métodos para cumplir los objetivos de la evaluación.
+5.2. Requisitos del proceso
+5.2.1. El organismo identificará y documentará los riesgos y oportunidades que puedan afectar a la eficacia de la auditoría/evaluación para cada uso de las TIC en las mismas condiciones, incluida la selección de las tecnologías, y cómo se gestionan.
+5.2.2. Cuando se propongan TIC para las actividades de auditoría/evaluación, la revisión de la solicitud incluirá una comprobación de que el cliente y el organismo de auditoría/evaluación disponen de la infraestructura necesaria para apoyar el uso de las TIC propuestas.
+5.2.3. Teniendo en cuenta los riesgos y oportunidades identificados en el apartado 4.2.1, el plan de auditoría/evaluación deberá identificar cómo se utilizarán las TIC y en qué medida se utilizarán para fines de auditoría/evaluación para optimizar la eficacia y la eficiencia de la auditoría/evaluación, manteniendo al mismo tiempo la integridad del proceso de auditoría/evaluación.
+5.2.4. Cuando se utilicen las TIC, los auditores/evaluadores y otras personas implicadas (por ejemplo, pilotos de aviones no tripulados, expertos técnicos) deberán tener la competencia y la capacidad de comprender y utilizar las tecnologías de la información y la comunicación empleadas para lograr los resultados deseados de la(s) auditoría(s)/evaluación(es). El auditor/evaluador también deberá ser consciente de los riesgos y oportunidades de las tecnologías de la información y la comunicación utilizadas y de las repercusiones que pueden tener en la validez y objetividad de la información recopilada.
+5.2.5. Si las TIC se utilizan con fines de auditoría/evaluación, contribuyen al tiempo total de auditoría/evaluación, ya que puede ser necesaria una planificación adicional que puede afectar a la duración de la auditoría/evaluación.
+Nota: A la hora de determinar el tiempo y la duración de la auditoría/evaluación, consulte las referencias normativas para conocer los requisitos adicionales que pueden afectar a la aplicación de las TIC. El impacto sobre la duración de la auditoría/evaluación utilizando las TIC no está limitado por esta DM.
+5.2.6. Los informes de auditoría/evaluación y los registros correspondientes indicarán en qué medida se han utilizado las TIC en la realización de la auditoría/evaluación y la eficacia de las TIC para alcanzar los objetivos de la auditoría/evaluación.
+5.2.7. Si los sitios virtuales están incluidos en el ámbito de aplicación, la documentación de certificación/acreditación deberá señalar que los sitios virtuales están incluidos y se identificarán las actividades realizadas en los sitios virtuales.
 MD 05: DETERMINACIÓN DEL TIEMPO DE AUDITORÍA DE LOS SISTEMAS DE
 GESTION DE SEGURIDAD Y SALUD EN EL TRABAJO, SISTEMAS DE GESTION AMBIENTAL Y SISTEMAS DE GESTION DE LA CALIDAD.
 (OBLIGATORIO)
@@ -421,7 +452,8 @@ Este problema normalmente sólo se da en países con un bajo nivel de la tecnolo
 Esta cuestión sólo se aplica normalmente a las organizaciones con un bajo nivel de tecnología en las que se puede emplear personal temporario no cualificado en un número considerable para sustituir a los procesos automatizados.
 En estas circunstancias, en el caso de los SGSST y los sistemas de gestión de los recursos humanos se puede reducir el personal efectivo. Dado que la auditoría de los procesos es más importante que el número de empleados, esta reducción es inusual y la justificación para ello se registrará y pondrá a disposición del organismo de acreditación.
 Para SGSST esta reducción debe considerarse en principio no aplicable, ya que el empleo de personal temporario no cualificado puede ser una fuente de riesgos SGST. Si, en casos excepcionales, se efectúa una reducción, la justificación para ello se registrará y pondrá a disposición del organismo de acreditación.
-3. METODOLOGÍA PARA DETERMINAR LA DURACIÓN DE LA AUDITORÍA DE SISTEMAS DE GESTIÓN
+3. METODOLOGÍA PARA DETERMINAR LA DURACIÓN DE LA AUDITORÍA DE
+SISTEMAS DE GESTIÓN
 3.1. La metodología utilizada como base para el cálculo del tiempo de auditoría de los sistemas de gestión para una auditoría inicial (etapa 1 + etapa 2) implica la comprensión de las tablas y cifras del anexo A para los sistemas de gestión de riesgos, el anexo B para los sistemas de gestión de riesgos y el anexo C para las auditorías de los sistemas de gestión de riesgos y gestión, respectivamente. El anexo A (SGC) se basa en el número efectivo de funcionarios (véase la cláusula 2.3 para la orientación sobre el cálculo del número efectivo de funcionarios) y el nivel de riesgo, pero no proporciona un tiempo mínimo o máximo de auditoría. Además del número efectivo de personal, el anexo B (SGA) se basa también en la complejidad ambiental de la organización y no proporciona un tiempo mínimo o máximo de auditoría, el anexo C (SGSST) se basa en el número efectivo de personal y en la categoría de complejidad del riesgo de SGST asociado al sector empresarial de la organización y no proporciona un tiempo mínimo o máximo de auditoría. La tabla SGSST 2 muestra el vínculo entre los sectores empresariales y las categorías de complejidad de SGST basadas en sobre riesgos SGST
 Nota: La práctica normal es que el tiempo empleado en la Etapa 2 exceda el tiempo dedicado a la Etapa 1.
 3.2. Utilizando un multiplicador adecuado, podrán utilizarse las mismas tablas y cifras que la base para calcular el tiempo de auditoría de las auditorías de vigilancia (cláusula 5) y las auditorías de recertificación (cláusula 6).
@@ -529,7 +561,7 @@ Número efectivo de personal | Duración de la auditoría etapa 1 + etapa 2 (dí
 126-175 | 8 | 5451-6800 | | 20
 176-275 | 9 | 6801-8500 | | 21
 276-425 | 10 | 8501-10700 | | 22
-426-625 | 11 | >10700 | Seguir la progresión
+426-625 | 11 | >10700 | | Seguir la progresión
 Nota 1. Nota 1: El número de personal de la Tabla 1 SGC debe ser visto como continuo en lugar de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender partes de un día.
 Nota 2. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10.700. Dicha duración de auditoría debería seguir la progresión en la tabla SGC 1 de forma consistente.
 Nota 3. Puede ver también la cláusula 1.9 y 2.3
@@ -566,17 +598,16 @@ Númer o efectiv o de person al | Duración de la auditoría etapa 1 + etapa 2 (
 126175 | 12 | 9 | 6 | 4.5 | 5451-6800 | 30 | 23 | 17 | 12
 176275 | 13 | 10 | 7 | 5 | 6801-8500 | 32 | 25 | 19 | 13
 276425 | 15 | 11 | 8 | 5.5 | 8501 - 10700 | 34 | 27 | 20 | 14
-426625 | 16 | 12 | 9 | 6 | >10700 | Seguir la progresión |
+426625 | 16 | 12 | 9 | 6 | >10700 | Seguir la progresión
 Nota 1. La duración de la auditoría es mostrada para auditorías de complejidad alta. Media, baja y limitada.
 Nota 2. El número de empleados en la tabla SGA 1 debería ser visto como un continuo en vez de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender días fraccionados.
 Nota 3. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10 700. Dicha duración de auditoría debería seguir la progresión en la tabla SGA 1 de forma consistente.
 Tabla SGA 2 - Ejemplos de relaciones entre los sectores y las categorías de complejidad de los aspectos ambientales
 Categoría de Complejidad | Sector
-Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo
-| Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
-Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
-Baja | Hoteles/restaurantes Madera y productos de madera Productos de papel excluyendo impresión, pasta de papel y fabricación de papel Moldeado por inyección de goma y plástico. Conformado y ensamble. Moldeado en caliente y en frío y fabricación de metal
-| Ensamble de maquinaria y equipo mecánico Venta al por mayor y al por menor Ensamble de equipo eléctrico y electrónico de circuitos impresos
+Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
+Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc.
+| Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
+Baja | Hoteles/restaurantes Madera y productos de madera Productos de papel excluyendo impresión, pasta de papel y fabricación de papel Moldeado por inyección de goma y plástico. Conformado y ensamble. Moldeado en caliente y en frío y fabricación de metal Ensamble de maquinaria y equipo mecánico Venta al por mayor y al por menor Ensamble de equipo eléctrico y electrónico de circuitos impresos
 Limitada | Actividades corporativas y de gestión, sedes centrales y gestión de sociedades Transporte y distribución - únicamente servicios de gestión, sin una flota real Telecomunicaciones Servicios generales a los negocios Servicios de enseñanza/educación
 Casos especiales | Nuclear Generación nuclear de electricidad Almacenamiento de grandes cantidades de material peligroso Administración pública Autoridades locales Organizaciones con productos o servicios medioambientalmente sensibles
 Categorías de complejidad de los aspectos ambientales:
@@ -594,7 +625,7 @@ Tabla SGSST 1 - Sistemas de gestión de la seguridad y salud en el trabajo Relac
 [imagen]
 TABLA SGSST 2 - Ejemplos de vinculación entre sectores empresariales y categorías de complejidad de riesgos SST
 Complejidad categoría Riesgo de SST | Sector Empresarial
-- ALTO | - pesca (mar adentro, dragado costero y buceo) - minería y explotación de canteras - fabricación de coque y productos petrolíferos refinados - extracción de petróleo y gas - curtido de cuero y productos de cuero - teñido de textiles y prendas de vestir - parte de la pulpa de la fabricación de papel, incluido el proceso de - reciclado de papel - refinado de petróleo - productos químicos (incluidos los plaguicidas, la fabricación de baterías acumuladores) y productos farmacéuticos - fabricación de fibra de vidrio - producción, almacenamiento y distribución de gas - generación y distribución de electricidad - nuclear - almacenamiento de grandes cantidades de material peligroso - transformación no metálica y productos que cubran cerámica, hormigón cemento, cal, yeso, etc. - producciones primarias de metales - formación en caliente y frío y fabricación de metales - fabricación y montaje de estructuras metálicas - astilleros (dependiendo de las actividades que se realicen) - industria aeroespacial - industria automotriz - fabricación de armas y explosivos - reciclado de residuos peligrosos - tratamiento de residuos peligrosos y no peligrosos, por ejemplo, incinera - tratamiento de efluentes y alcantarillado - construcción y demolición industrial y civil (incluidos las actividades de edificios de terminación con instalación eléctrica, hidráulica y de aire aco - rastros - transporte y distribución de mercancías peligrosas (por tierra, aire y agua - actividades de defensa/gestión de crisis - asistencia sanitaria/hospitales/veterinarios/trabajos sociales
+- | ALTO | - pesca (mar adentro, dragado costero y buceo) - minería y explotación de canteras - fabricación de coque y productos petrolíferos refinados - extracción de petróleo y gas - curtido de cuero y productos de cuero - teñido de textiles y prendas de vestir - parte de la pulpa de la fabricación de papel, incluido el proceso de - reciclado de papel - refinado de petróleo - productos químicos (incluidos los plaguicidas, la fabricación de baterías acumuladores) y productos farmacéuticos - fabricación de fibra de vidrio - producción, almacenamiento y distribución de gas - generación y distribución de electricidad - nuclear - almacenamiento de grandes cantidades de material peligroso - transformación no metálica y productos que cubran cerámica, hormigón cemento, cal, yeso, etc. - producciones primarias de metales - formación en caliente y frío y fabricación de metales - fabricación y montaje de estructuras metálicas - astilleros (dependiendo de las actividades que se realicen) - industria aeroespacial - industria automotriz - fabricación de armas y explosivos - reciclado de residuos peligrosos - tratamiento de residuos peligrosos y no peligrosos, por ejemplo, incinera - tratamiento de efluentes y alcantarillado - construcción y demolición industrial y civil (incluidos las actividades de edificios de terminación con instalación eléctrica, hidráulica y de aire aco - rastros - transporte y distribución de mercancías peligrosas (por tierra, aire y agua - actividades de defensa/gestión de crisis - asistencia sanitaria/hospitales/veterinarios/trabajos sociales
 ,
 MEDIO | . . . . . . . . . . . . . | acuicultura (cría, crianza y cosecha de plantas y animales en todo tipo de animales pesca (la pesca en alta mar es alta) agricultura/silvicultura (dependiendo de las actividades que puedan ser) alimentos, bebidas y tabaco - procesamiento textiles y prendas de vestir, excepto tinte cuero y productos de cuero, excepto el curtido fabricación de madera y productos de madera, incluida la fabricación de tableros, tratamiento/impregnación de madera producción de papel y productos de papel, excepto la pulpa transformación no metálica y productos de vidrio, cerámica, arcilla, etc. conjunto general de ingeniería mecánica fabricación de productos metálicos tratamiento de superficie y otro tratamiento químico para metales fabricados excepto la producción primaria y para ingeniería mecánica general
 | . | tratamiento y del tamaño del componente podría ser alto)
@@ -621,8 +652,7 @@ Las disposiciones especificadas en este documento se basan en tres categorías d
 . . Bajo - Riesgos de SST con naturaleza y gravedad baja (normalmente basados en oficinas organizaciones).
 Tabla SGSST 1 abarca las tres categorías de complejidad de los riesgos de SST. Tabla SGSST 2 proporciona el vínculo entre las tres categorías de complejidad de los riesgos de SST y los sectores de la industria que normalmente se incluirían en esa categoría.
 El OEC debería reconocer que no todas las organizaciones de un sector específico estarán siempre en la misma categoría de riesgo de SST. El OEC debería permitir flexibilidad en su procedimiento de examen de contratos para garantizar que las actividades específicas de la organización se tengan en cuenta al determinar las categorías de complejidad de los riesgos de SST.
-Por ejemplo, aunque muchas empresas de construcción naval deberían clasificarse como de "alto riesgo", una organización que sólo tendría pequeñas embarcaciones de fibra de carbono con actividades de menor complejidad podría clasificarse como "mediana".
-El OEC debe documentar todos los casos en que hayan reducido la categoría de complejidad de los riesgos SST de una organización en un sector empresarial específico. Nota: La categoría de complejidad del riesgo de SST de una organización también puede estar asociada con las consecuencias de una falla del SGSST para controlar el riesgo:
+Por ejemplo, aunque muchas empresas de construcción naval deberían clasificarse como de "alto riesgo", una organización que sólo tendría pequeñas embarcaciones de fibra de carbono con actividades de menor complejidad podría clasificarse como "mediana". El OEC debe documentar todos los casos en que hayan reducido la categoría de complejidad de los riesgos SST de una organización en un sector empresarial específico. Nota: La categoría de complejidad del riesgo de SST de una organización también puede estar asociada con las consecuencias de una falla del SGSST para controlar el riesgo:
 . . Alto - en los casos en que la falta de gestión del riesgo pueda poner en peligro la vida o dar lugar a lesiones o enfermedades graves,
 . . Medio - cuando la falta de gestión del riesgo pueda dar lugar a lesiones o enfermedades, y
 . . Baja - cuando la falta de manejo del riesgo puede dar lugar a lesiones o enfermedades menores.
@@ -648,7 +678,8 @@ Nota: La intención de los criterios para auditoría es la de utilizar las norma
 2.1.4 La auditoría sea gestionada por un líder de equipo, competente en por lo menos una de las normas/especificaciones auditadas.
 2.1.5 Se disponga de suficiente tiempo para cumplir con una auditoría completa y efectiva del sistema de gestión de la organización para las normas/especificaciones del sistema de gestión cubiertas por el alcance de la auditoría.
 2.1.5.1 Para determinar el tiempo de la auditoría para una auditoría de un SGI, que cubra dos o más normas/especificaciones del sistema de gestión, ej. A + B + C, el Organismo de Certificación deberá:
-a) Calcular el tiempo requerido para la auditoría de cada norma/especificación del sistema de gestión por aparte (aplicando todos los factores relevantes proporcionados por los documentos de aplicación y/o las reglas del esquema para cada norma, ej., IAF MD5, ISO/TS 22003, ISO/IEC 27006);
+a) Calcular el tiempo requerido para la auditoría de cada norma/especificación del sistema de gestión por aparte (aplicando todos los factores relevantes proporcionados por los documentos de aplicación y/o las reglas del esquema para cada norma, ej., IAF MD5, ISO/TS 22003, ISO/IEC 27006-1
+);
 b) Calcular el punto de inicio T para la duración de la auditoría del SGI por la suma de la cantidad de las partes individuales (por ejemplo T = A + B + C);
 c) Ajustar la cifra de punto de inicio tomando en cuenta los factores que puedan incrementar o reducir el tiempo requerido para la auditoría (ver Anexo 1).
 Los factores para la reducción deberán incluir pero no limitarse a:
@@ -676,7 +707,8 @@ Anexo 1- Reducción del tiempo de auditoría
 Figura 1: Esta imagen ilustra la reducción (%) en la duración de una auditoría integrada y su relación con:
 Eje vertical: el nivel de integración de un sistema de gestión de una organización (ver abajo), que debería incluir una consideración de las habilidades del auditado para responder preguntas sobre aspectos múltiples. Un Sistema de Gestión Integrado resulta cuando una organización utiliza un solo sistema de gestión para manejar múltiples aspectos del desempeño organizacional. Se caracteriza por (pero no se limita a):
 1. Un conjunto de documentación integrado, que incluya instrucciones de trabajo a un buen nivel de desarrollo, según sea apropiado;
-2. Revisiones por la Dirección que consideren la estrategia y plan de negocios en general; 3. Un enfoque integrado para las auditorías internas;
+2. Revisiones por la Dirección que consideren la estrategia y plan de negocios en general;
+3. Un enfoque integrado para las auditorías internas;
 4. Un enfoque integrado para la política y los objetivos;
 5. Un enfoque integrado para los procesos de sistemas;
 6. Un enfoque integrado para los mecanismos de mejora, (acción preventiva y correctiva; medida y mejora continua); y,
@@ -729,7 +761,7 @@ Nota: Esta información proporcionaría al OA aportaciones sobre la eficacia de 
 3.5 Número de auditorías realizadas
 Nota: Auditor en día se ha de entender cómo se indica en la IAF MD5*. Esta información proporcionaría al OA, con indicación de los recursos utilizados por el Organismo de Certificación y debe ser comparado con los otros indicadores. El número informado debe oscilar hasta el período del informe anterior.
 *La duración de un día auditor es normalmente 8 horas, y puede o no incluir el tiempo de viaje o almuerzo dependiendo de la legislación local.
-5. IMPLEMENTACIÓN
+0. IMPLEMENTACIÓN
 Cada organismo de acreditación deberá brindar orientación a los Organismos de Certificación en cómo los datos sobre indicadores deberán ser proporcionados. Los organismos de acreditación también pueden considerar las certificaciones multi-sitio emitidas por un Organismo de Certificación y en consecuencia decidir sobre la utilidad de la recopilación de información sobre las certificaciones multi-sitio. Los organismos de acreditación pueden considerar si cualquier acuerdo contractual con un Organismo de Certificación puede abordar específicamente la prestación de estos indicadores periódicamente, al menos una vez al año.
 Fin del Documento Obligatorio IAF, Recopilación de datos para proporcionar indicadores de rendimiento de sistema de gestión de Organismos de Certificación.
 Apéndice A (normativo): Como Reportar el Número Total de Certificados Válidos
@@ -758,7 +790,8 @@ El OC debe establecer un acuerdo legalmente ejecutable con la entidad candidata 
 i) Que la entidad candidata debe cumplir con los requisitos aplicables, incluidos el estatus legal, imparcialidad, los requisitos de competencia, los requisitos de proceso y el sistema de gestión del OC, esto, en la medida en que la entidad candidata participe en la prestación de servicios de certificación.
 ? La entidad candidata debe operar dentro del sistema de gestión del OC y / o bajo su propia acreditación;
 ? En función de la evaluación de riesgos, se deben definir e implementar controles adicionales; según sea necesario.
-ii) La entidad está sujeta a una auditoría interna in situ por parte del OC de forma continua. Las auditorías deben incluir todas las actividades realizadas por la entidad en nombre del OC. La frecuencia de la auditoría debe depender de la evaluación de riesgos y los resultados de auditorías anteriores; iii) Informe anual obligatorio sobre indicadores clave de rendimiento (KPI), incluidos los especificados en IAF MD 15: Documento obligatorio de IAF Recopilación de datos para proporcionar indicadores de rendimiento del sistema de gestión de un OC. iv) Según lo considere necesario, acceso al control y monitoreo por parte del Organismo de
+ii) La entidad está sujeta a una auditoría interna in situ por parte del OC de forma continua. Las auditorías deben incluir todas las actividades realizadas por la entidad en nombre del OC.
+La frecuencia de la auditoría debe depender de la evaluación de riesgos y los resultados de auditorías anteriores; iii) Informe anual obligatorio sobre indicadores clave de rendimiento (KPI), incluidos los especificados en IAF MD 15: Documento obligatorio de IAF Recopilación de datos para proporcionar indicadores de rendimiento del sistema de gestión de un OC. iv) Según lo considere necesario, acceso al control y monitoreo por parte del Organismo de
 Acreditación (OA) del OC;
 v) Detalles de las actividades que proporciona la entidad; vi) Responsabilidades, autoridad y responsabilidad de cada parte; vii) Provisión de recursos, capacitación, desarrollo profesional continuo; viii) Propiedad intelectual y protección; ix) Antes de ejecutar cualquier actividad en nombre del OC, la entidad deberá obtener el acuerdo del OC.
 Los OC deben informar a ECA todas las operaciones de las entidades establecidas y los mercados en los que operan.
@@ -778,8 +811,7 @@ El OA del OC podría iniciar visitas a las entidades para investigar situaciones
 ? El planteamiento de problemas y preocupaciones sistémicos por parte de la entidad durante la evaluación presenciada por el OA para un cliente cuando no se registraron tales hallazgos en auditorías anteriores del mismo cliente, especialmente por el mismo auditor / equipo;
 ? Evidencia de que los requisitos reglamentarios, especialmente en los sistemas de gestión sensibles a la regulación, como FSMS, EMS u OHSMS, no se auditan adecuadamente, especialmente si hay un impacto directo en la salud o la seguridad de las personas.
 ? Nota: El Anexo 2 puede usarse para ayudar a la investigación de tales situaciones.
-MD 28. DOCUMENTO OBLIGATORIO DE LA IAF PARA LA CARGA Y EL
-MANTENIMIENTO DE DATOS EN LA BASE DE DATOS DE LA IAF
+MD 28. DOCUMENTO OBLIGATORIO DE LA IAF PARA LA CARGA Y EL MANTENIMIENTO DE DATOS EN LA BASE DE DATOS DE LA IAF
 (OBLIGATORIO)
 (Tomado del documento mandatorio IAF MD 28:2023), Vigencia en octubre de 2024
 Este documento es obligatorio para la aplicación coherente de las normas ISO/IEC 17011 e ISO/IEC 17021-1. Todas las cláusulas de ISO/IEC 17011 e ISO/IEC 17021- 1 siguen siendo de aplicación y este documento no elimina ninguno de los requisitos de las normas mencionadas. Este documento obligatorio (DM) se aplica a todos los OA firmantes del MLA del IAF que proporcionen acreditación bajo el alcance principal ISO/IEC 17021-1 y a sus Organismos de Certificación (OC) acreditados bajo este alcance.
@@ -812,8 +844,7 @@ ii) Datos analíticos anonimizados: datos cotejados o derivados de Datos de Enti
 iii) Entidad certificada significa una entidad a la que un organismo de certificación acreditado por un organismo de acreditación signatario del MLA del IAF ha expedido certificación(es) acreditada(s) del sistema de gestión bajo el ámbito principal ISO/IEC 170211.
 iv) Datos de la Entidad Certificada significa la información relativa a una Entidad Certificada que el IAF requiere que el Organismo de Certificación cargue en la Base de Datos IAF para permitir a los usuarios confirmar la información contenida en un certificado y a la que se hace referencia en la cláusula 4.2.1.
 Nota: Los Datos de Entidades Certificadas no incluyen los Datos Analíticos Anonimizados.
-v) El administrador de la base de datos es el responsable de la gestión diaria de la base de datos del IAF.
-vi) Base de datos de IAF: la base de datos del IAF, propiedad del IAF o mantenida por este o en su nombre, para almacenar y procesar los datos del organismo de acreditación de los firmantes del MLA ISO/IEC 17021-1 y los datos de la entidad certificada de su organismo de certificación acreditado, así como los datos analíticos y los datos analíticos anonimizados de los organismos de acreditación y de los organismos de certificación.
+v) El administrador de la base de datos es el responsable de la gestión diaria de la base de datos del IAF. vi) Base de datos de IAF: la base de datos del IAF, propiedad del IAF o mantenida por este o en su nombre, para almacenar y procesar los datos del organismo de acreditación de los firmantes del MLA ISO/IEC 17021-1 y los datos de la entidad certificada de su organismo de certificación acreditado, así como los datos analíticos y los datos analíticos anonimizados de los organismos de acreditación y de los organismos de certificación.
 vii) Comité de Gestión de la Base de Datos del IAF/IAF DMC significa el comité que incluye representantes de los Organismos de Acreditación miembros del IAF, regionales de acreditación, asociaciones de organismos de certificación y grupos de usuarios usuarios, responsables de supervisar al administrador de la base de datos y proporcionar gobernanza de acuerdo con IAFDB PL 1 para garantizar que la La base de datos del IAF satisface las necesidades de los usuarios y las partes interesadas participantes. El DMC del IAF es responsable de revisar y determinar la aceptación de las justificaciones de exclusión del OA y de informar de los resultados al Consejo de Administración del IAF. El DMC de IAF informa al Consejo Administración e IAF.
 4. REQUISITOS DE DATOS
 4.1. Obligaciones en materia de datos OA
@@ -835,7 +866,8 @@ Nota: Si un OA ha vinculado correctamente su base de datos con la base de datos 
 i) Nombre de la entidad certificada (razón o razones sociales legales o nombre secundario según conste en el registro nacional oficial de sociedades).
 ii) Entidad certificada Domicilio social.
 Nota: Cuando una entidad certificada no tenga una dirección registrada, la EC puede cargar una dirección para recibir correspondencia legal o la dirección de una oficina/agente registrado.
-iii) Ubicación geográfica de cada cliente certificado o ubicación geográfica de la sede central y de todos los centros dentro del alcance de una certificación de varios centros. iv) Número de certificado (un código de identificación único).
+iii) Ubicación geográfica de cada cliente certificado o ubicación geográfica de la sede central y de todos los centros dentro del alcance de una certificación de varios centros.
+iv) Número de certificado (un código de identificación único).
 v) Norma y esquema del sistema de gestión y/u otro documento normativo.
 vi) Códigos de sector IAF (cuando proceda).
 Nota: Otros códigos sectoriales, como los códigos NACE u otros sectores industriales, pueden cargarse y asignarse a los códigos sectoriales del IAF cuando sea necesario.
@@ -849,17 +881,18 @@ xiii) Identificadores únicos especificados por el organismo de certificación q
 a. ID de cliente: El ID único que identifica a la Entidad Certificada en la Base de Datos del IAF.
 b. ID de certificación: ID único que identifica la certificación en la base de datos del IAF.
 Nota: el organismo de certificación podrá utilizar el mismo identificador de certificación que el número de certificado al que se hace referencia en la cláusula 4.2.1 iv) si se cumplen los criterios de formato.
-xiv) Otra información de registro legal definitiva "según sea necesario" (por ejemplo, el número de registro de la empresa) cuando pueda haber un conflicto de nombres (es decir, dos empresas diferentes que comparten el mismo nombre) o un error con el nombre cargado o cuando el nombre de la entidad certificada no pueda encontrarse en el registro nacional oficial de constitución.
+xiv) Otra información de registro legal definitiva "según sea necesario" (por ejemplo, el número de registro de la empresa) cuando pueda haber un conflicto de nombres (es decir, dos empresas diferentes que comparten el mismo nombre) o un error
+con el nombre cargado o cuando el nombre de la entidad certificada no pueda encontrarse en el registro nacional oficial de constitución.
 xv) Cualquier otra información exigida por la norma y/u otro documento normativo utilizado para la certificación.
 Nota: Los OC pueden cargar la información requerida en la cláusula 4.2.1 en su lengua local o en varias lenguas.
 Nota: La información adicional enumerada en el ANEXO B.3 puede ser cargada voluntariamente por el OC.
 4.2.2 Cuando un organismo de certificación carga datos de entidades certificadas a través de una base de datos del organismo de acreditación o del propietario del esquema que esté integrada en la base de datos IAF, las entidades certificadoras son responsables de garantizar que la información de la cláusula 4.2.1 se incluya en la base de datos del IAF.
-1.2.3 El administrador de la base de datos proporcionará un proceso en el que el OC pueda determinar la prioridad de la fuente de datos en los casos en que el OC, el OA y/o el sistema estén cargando los mismos datos.
-1.2.4 El OC cargará datos en la base de datos de IAF al menos una vez al mes, de modo que la información cargada en la Base de Datos de IAF represente la versión vigente en ese momento de todos los datos de las entidades certificadas en posesión del Organismo de Certificación o bajo su control.
-1.2.5 Mensualmente se enviarán correos electrónicos a la EC solicitando que cargue nuevos datos o actualice los existentes, o cuando no sea necesario realizar cambios, que haga clic en un enlace para confirmar que la información está actualizada.
+4.2.3 El administrador de la base de datos proporcionará un proceso en el que el OC pueda determinar la prioridad de la fuente de datos en los casos en que el OC, el OA y/o el sistema estén cargando los mismos datos.
+4.2.4 El OC cargará datos en la base de datos de IAF al menos una vez al mes, de modo que la información cargada en la Base de Datos de IAF represente la versión vigente en ese momento de todos los datos de las entidades certificadas en posesión del Organismo de Certificación o bajo su control.
+4.2.5 Mensualmente se enviarán correos electrónicos a la EC solicitando que cargue nuevos datos o actualice los existentes, o cuando no sea necesario realizar cambios, que haga clic en un enlace para confirmar que la información está actualizada.
 Nota: Si un OC o un OA ha integrado con éxito su base de datos de certificados con la base de datos del IAF utilizando uno de los métodos de carga automática, es decir, la API, y su base de datos de certificados está actualizada, se considera que ha cumplido las obligaciones de las cláusulas 4.2.4 y 4.2.5.
 Nota: La fecha en que los datos fueron actualizados/confirmados por última vez por el OC aparecerá en la base de datos IAF.
-1.2.6 Si se detecta un error y/o una omisión en los datos del organismo de certificación, éste cargará los datos modificados, completados y corregidos en un plazo de dos semanas.
+4.2.6 Si se detecta un error y/o una omisión en los datos del organismo de certificación, éste cargará los datos modificados, completados y corregidos en un plazo de dos semanas.
 5 JUSTIFICACIÓN DE LA EXCLUSIÓN
 5.1 AB Justificación de la exclusión
 5.1.1 De conformidad con el principio 11 de los Principios de la base de datos de la IAF (IAFDB PL 1 Anexo 1), es posible que un OA no pueda cumplir algunas o todas sus obligaciones en materia de datos de la cláusula 4.1.1 por motivos justificados.
@@ -869,24 +902,21 @@ i) Requisitos reglamentarios o gubernamentales locales/nacionales.
 ii) Leyes nacionales o regionales de privacidad de datos o leyes de seguridad de datos. iii) Ausencia de mandato para hacerlo (si es un organismo gubernamental).
 5.1.3 Si, por un caso excepcional, un OA no puede cumplir alguna de sus obligaciones de carga de datos establecidas en la cláusula 4.1.1 del presente documento, el OA presentará una justificación por escrito al DMC de la IAF que incluya:
 i) La obligación de datos que el OA considera que debe excluirse de realizar.
-ii) Los motivos por los que el OA considera que debe ser excluido del cumplimiento de la obligación de datos de la cláusula 5.1.2. iii) Pruebas (por ejemplo, enlace web al requisito reglamentario y destacando la cláusula pertinente) de una exclusión justificada en la cláusula 5.1.2.
-iv) Si los datos pueden tratarse como "confidenciales" en lugar de excluirlos de la base de datos del IAF.
+ii) Los motivos por los que el OA considera que debe ser excluido del cumplimiento de la obligación de datos de la cláusula 5.1.2. iii) Pruebas (por ejemplo, enlace web al requisito reglamentario y destacando la cláusula pertinente) de una exclusión justificada en la cláusula 5.1.2. iv) Si los datos pueden tratarse como "confidenciales" en lugar de excluirlos de la base de datos del IAF.
 5.1.4 El DMC del IAF será responsable de revisar todas las justificaciones de exclusiones del OA para determinar si la justificación es aceptable o no y de notificar al OA el resultado de la revisión. El DMC del IAF informará periódicamente de la justificación y el resultado de las revisiones al Consejo de Administración del IAF.
 5.1.5 Los OA cuya exclusión haya sido aceptada figurarán en la base de datos del IAF como "no participantes" (véanse en el ANEXO A A.2 los campos relativos al estado de participación). Con ello se pretende que los usuarios de la base de datos del IAF sepan que para confirmar una acreditación deberán ponerse en contacto directamente con el OA.
 Nota: Cuando una EC tenga una justificación de exclusión aceptada por el OA (véase más abajo), ello no afectará al estatus de participación del OA.
 5.1.6 Si se acepta la justificación de un organismo de acreditación para la exclusión total o parcial de la carga de datos con arreglo a la cláusula 4.1.1, el organismo de acreditación deberá asegurarse de que sus organismos de certificación acreditados se ajustan a la presente DM y, si el organismo de certificación solicita la exclusión de la carga de datos con arreglo a la cláusula 5.2, deberá seguir el proceso previsto en la cláusula 5.2.2 siguiente.
 5.1.7 En caso de que el OA haya aceptado la exclusión de la carga de datos con arreglo a la cláusula 4.1.1, el Administrador de la Base de Datos se basará en la información sobre acreditación que sea de dominio público (incluida la que aparezca en el sitio web del OA en relación con los datos de acreditación de los OC).
-5.2 Justificación de la exclusión del OC
+0.2 Justificación de la exclusión del OC
 5.2.1 De acuerdo con el Principio 12 de los Principios de la Base de Datos de la FAI (PL1 Anexo 1 de la Base de Datos de la IAF), un BC puede no estar en condiciones de cumplir algunas o todas sus obligaciones en materia de datos de la cláusula 4.2.1 por razones justificadas.
 5.2.2 Las exclusiones del OC de las obligaciones de suministro de datos pueden justificarse de conformidad con el anexo 1 del PL1 de la BD IAF, sobre la base siguiente:
 i) Requisitos reglamentarios o gubernamentales locales/nacionales.
 ii) Leyes nacionales o regionales de privacidad de datos o leyes de seguridad de datos. ii) Ausencia de un mandato para hacerlo (si es un organismo gubernamental).
 Nota: Cuando un BC es un organismo gubernamental y su mandato gubernamental le impide participar en la base de datos IAF.
 5.2.3 Si, por un caso excepcional, un OC no puede cargar toda o parte de la información indicada en la cláusula 4.2.1, el OC presentará una justificación por escrito al OA cuya acreditación posea que incluya:
-i) La obligación que el OC considera que debe excluirse de ejecutar.
-ii) Los motivos por los que el OC considera que debe ser excluido del cumplimiento de la obligación identificada en la cláusula 5.2.2.
-iii) Si procede, en caso de carga de información, si los datos pueden tratarse como "confidenciales" en lugar de excluirse de la base de datos del IAF.
-iv)Pruebas (por ejemplo, enlace web al requisito reglamentario y destacando la cláusula pertinente) de una exclusión justificada en la cláusula 5.2.2.
+i) La obligación que el OC considera que debe excluirse de ejecutar. ii) Los motivos por los que el OC considera que debe ser excluido del cumplimiento de la obligación identificada en la cláusula 5.2.2.
+iii) Si procede, en caso de carga de información, si los datos pueden tratarse como "confidenciales" en lugar de excluirse de la base de datos del IAF. iv)Pruebas (por ejemplo, enlace web al requisito reglamentario y destacando la cláusula pertinente) de una exclusión justificada en la cláusula 5.2.2.
 5.2.4 Los OA serán responsables de revisar todas las justificaciones del OC y determinar si cada una de ellas reúne los requisitos para ser aceptada.
 5.2.5 El examen del OA y la decisión relativa a las justificaciones de la OC se someterán a examen mediante el proceso de evaluación inter pares.
 5.2.6 Cuando una EC posea más de una acreditación, la justificación se facilitará al OA para la acreditación incluida en la certificación. Cuando haya más de una acreditación incluida en la certificación, la EC se pondrá en contacto con todos los OA incluidos.
@@ -905,8 +935,7 @@ Iii) Cuando exista un requisito gubernamental o reglamentario de que dicha infor
 6.3 Cuando un organismo de certificación marque como "confidenciales" en la base de datos FAI datos de entidades certificadas o parte de ellos, deberá facilitar a su organismo de certificación, previa solicitud, pruebas que justifiquen el carácter "confidencial" de esa información. Tales pruebas deben cumplir los requisitos de la cláusula 6.2 e incluir una solicitud escrita de la Entidad Certificada del BC al BC de que su información se mantenga confidencial, junto con las razones que la justifiquen. La solicitud expondrá los motivos por los que la información debe mantenerse confidencial, aportando pruebas de la confidencialidad justificada en 6.2 (por ejemplo, enlace web al requisito normativo y destacando la cláusula pertinente). También se indicará si las razones justificadas impiden que se publique toda o parte de la información y/o que determinados campos queden excluidos de la carga en la Base de Datos IAF. Las EC deberán demostrar las solicitudes confidenciales de Entidad Certificada detallando la razón justificada anterior, si así lo exige su OA. Una Entidad Certificada puede distinguir si toda la información sobre la certificación debe mantenerse confidencial o sólo determinados campos, por ejemplo, la ubicación o el alcance.
 6.4 Cuando los datos de la entidad certificada estén marcados como "confidenciales" y la entidad certificadora haya indicado que se puede buscar el nombre de la entidad certificada y/o el número de certificado, los usuarios que busquen en la base de datos IAF el nombre o el número de certificado de la entidad certificada sólo obtendrán los siguientes datos:
 i) Confirmación del Organismo de Certificación que certifica a la Entidad Certificada. ii) Una declaración que informa al usuario de que la información relativa a la certificación o a la Entidad Certificada es confidencial.
-iii) Cualquier otro campo que el OC haya solicitado que sea visible, es decir, Norma, Ámbito.
-iv) Un formulario de consulta del Organismo de Certificación que concedió la certificación, que permite al usuario ponerse en contacto con el Organismo de Certificación y recibir una respuesta a través de la Base de Datos IAF en caso de que el verificador necesite más información.
+iii) Cualquier otro campo que el OC haya solicitado que sea visible, es decir, Norma, Ámbito. iv) Un formulario de consulta del Organismo de Certificación que concedió la certificación, que permite al usuario ponerse en contacto con el Organismo de Certificación y recibir una respuesta a través de la Base de Datos IAF en caso de que el verificador necesite más información.
 7. CUMPLIMIENTO Y SANCIONES
 7.1Si se detectan problemas en relación con los datos facilitados por el OA para la base de datos del IAF, pueden aplicarse una o varias de las siguientes medidas:
 i) El administrador de la base de datos del IAF puede ponerse en contacto con el OA y emprender acciones específicas (por ejemplo, asistencia en la carga) con el OA participante para facilitar las cargas.
@@ -924,7 +953,6 @@ Nota: No se iniciará ninguna sanción si el motivo de la no conformidad de un O
 7.6 Cuando se descubra que una EC ha hecho un uso indebido de la Base de Datos IAF, el DMC informará al OA, que investigará e iniciará las sanciones de acuerdo con sus políticas si fuera necesario.
 8. COMUNICACIÓN
 8.1 Todas las justificaciones aceptadas para la exclusión (a menos que sean confidenciales) y el estado de participación en la base de datos de los OA y los OA se anotarán en la base de datos del IAF para informar a los usuarios de por qué puede faltar información en la base de datos del IAF. Esta información permite la verificación de la certificación directamente con la EC que ha emitido la certificación, en lugar de a través de la Base de Datos. Consulte el ANEXO A.2 y el ANEXO B.2 para obtener información sobre el estado de participación de los organismos de certificación y los organismos de certificación, respectivamente.
-9. Anexos
 ANEXO A
 A.1 MÉTODOS DE CARGA ELECTRÓNICA AB
 El OA cargará los datos utilizando uno de los métodos electrónicos disponibles en la base de datos del IAF:
@@ -989,21 +1017,43 @@ Esquema para la certificación de Sistemas de Gestión Antisoborno. | INTE/ISO 3
 CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y
 CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE LA SEGURIDAD DE LA
 INFORMACIÓN - SGSI
-Los OCSG que se acrediten para certificar bajo la norma INTE/ISO 27001 Seguridad de la información, ciberseguridad y protección de la privacidad. Sistemas de gestión de la seguridad de la información. Requisitos, en su versión vigente, les será obligatorio el cumplimiento expreso de todos los requisitos dispuestos en la norma ISO/IEC 27006 en su versión vigente
+Los OCSG que se acrediten para certificar bajo la norma INTE/ISO 27001 Seguridad de la información, ciberseguridad y protección de la privacidad. Sistemas de gestión de la seguridad de la información. Requisitos, en su versión vigente, les será obligatorio el cumplimiento expreso de todos los requisitos dispuestos en la norma ISO/IEC 27006-1 en su versión vigente
 Con la transición de la norma a su versión 2022, IAF emitió el IAF MD 26:2023 Requisitos de transición para ISO/IEC 27001:2022 Número 2. Sin embargo, ECA, no brindaba el servicio antes de la transición, por lo que el OCSG que desee acreditarse para este alcance debe hacerlo bajo la nueva normativa. Por otro lado, los OCSG:
 . El OEC tiene hasta el 31 de octubre 2025 para terminar la transición de todos clientes en esta nueva versión de norma.
-. El OEC tiene hasta 30 de abril 2024 para prepararse y empezar a ofrecer sus servicios de auditorías iniciales y de recertificación con la nueva versión de la norma.
 No existe un Documento mandatorio específico a este esquema para los OCSG, sin embargo, aplican los documentos mandatorios generales que sea aplicables, ejemplo MD 1, MD 2, MD 4, entre otros, establecidos en este criterio.
 En cuanto al alcance de acreditación, este esquema no trabaja bajo sectores, subsectores o clústers, por lo que el alcance se regirá bajos los siguientes lineamientos:
-ISO/IEC 27006 Tecnología de la información. Técnicas de seguridad. Requisitos para los organismos que realizan auditorías y certificaciones de sistemas de gestión de seguridad de la información.
+ISO/IEC 27006-1 Seguridad de la información, ciberseguridad y protección de la privacidad -Requisitos para los organismos que proporcionan auditoría y certificación de sistemas de gestión de seguridad de la información -Tecnología de la información. Parte1: General
 Esquema de Certificación | Alcance
 Esquema para la | INTE/ISO/IEC 27001 Seguridad de la información, ciberseguridad y protección de la privacidad. Sistemas de gestión de la seguridad de la información. Requisitos.
 certificación de Sistemas
 de Gestión de la Seguridad
 de la Información - SGSI
-10. TRANSITORIO
-El transitorio será de acuerdo a lo indicado en cada criterio.
-11. IDENTIFICACIÓN DE CAMBIOS
+5. TRANSITORIO
+El transitorio será de acuerdo a lo indicado en cada criterio /Documento mandatorio.
+6. ANEXO
+LISTADO DE DOCUMENTOS MANDATORIOS APLICABLES A ECA
+MD | Nombre del documento | Link del documento | A quien aplica | Documento ECA
+MD 01 | Documento obligatorio de IAF Certificación de sitios múltiples basada en el muestreo | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD1_Issue_3_1810202 3.pdf | OCSG | ECA-MC-C05
+MD 02 | Documento obligatorio de IAF Transferencia de la certificación acreditada de Sistemas de Gestión | IAF MD 2:2023 IAF Mandatory Document for the Transfer of Accredited Certification of Management Systems | OCSG | ECA-MC-C05
+MD 04 | Documento obligatorio de IAF para el uso de información y tecnología de comunicación para propósitos (TIC) para auditoría / evaluación. | IAF MD 4:2023 IAF Mandatory Document for the Use of Information and Communication Technology (ICT) for Auditing/Assessment Purposes | OCSG; OVV; OCP; OCH; ECA | ECA-MC-C05
+MD 05 | Determinación del tiempo de auditoría de sistemas de gestión de calidad, medio ambiente y seguridad y salud laboral | IAF MD 5:2023 Determination of Audit Time of Quality, Environmental, and Occupational Health & Safety Management Systems | OCSG | ECA-MC-C05
+MD 06 | Documento obligatorio de MD 6 Aplica norma ISO 14065:2020 | IAF MD 6:2024 IAF Mandatory Document for the Application of ISO OVV 14065:2020 | ECA-MC-C10
+MD 07 | Documento obligatorio de IAF para la armonización de sanciones a aplicar a Organismos de Evaluación de la Conformidad | IAF MD 7:2023 IAF Mandatory Document for the Harmonization of Sanctions and Dealing with Fraudulent Behaviour | ECA | ECA-MC-P16
+MD 11 | Aplicación de 17021 para la auditoría de Sistemas de Gestión Integrados | IAF MD11:2023 IAF Mandatory Document for the Application of ISO/IEC 17021-1 for Audits of Integrated Management Systems | OCSG | ECA-MC-C05
+MD 12 | Evaluación de la acreditación de organismos de evaluación de la conformidad con actividades en varios países | IAF MD12:2023 Accreditation Assessment of Conformity Assessment Bodies with Activities in Multiple Countries | ECA | ECA-MC-P11 y ECA-MCC04
+MD 14 | Aplicación de la norma ISO/IEC 17011 en la validación y verificación de gases de efecto invernadero (ISO 14065:2013) | IAF MD14:2023 Application of ISO/IEC 17011 in Greenhouse Gas ECA Validation and Verification (ISO 14065:2013) | Documento interno ECA
+MD 15 | Recopilación de datos para proporcionar indicadores de rendimiento del sistema de gestión de OC | IAF MD15:2023 IAF Mandatory Document for the Collection of Data to Provide Indicators of Management System Certification Bodies' Performance | OCSG; OVV; OCP; OCH; ECA | ECA-MC-C05
+MD 17 | Actividades de testificación para la acreditación de organismos de Sistemas de Gestión | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD17_Issue_2_Version 2_14062023.pdf | ECA | ECA-MC-P11
+MD 22 | IAF MD 22: 2018 Aplicación de ISO / IEC 17021-1 para la Certificación de Sistemas de Gestión de Seguridad y Salud Ocupacional (OH y SMS) | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD22_Issue_2_Version 2_14062023.pdf | OCSG | ECA-MC-C22
+MD 23 | IAF MD 23: 2018 Control de entidades operando en nombre del organismos de certificación de sistemas acreditado | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD23_Control_of_Entiti es_14062023.pdf | OCSG | ECA-MC-C05
+MD 25 | IAF MD 25: 2022 Criterios de evaluación de los sistemas de evaluación de la conformidad | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD_25_Criteria_for_the _Evaluation_of_CAS_Issue1_Versio n2_13062023.pdf | ECA | ECA-MPP02, ECA- MC-P19
+MD 26 | Requerimientos de transición de la norma ISO/IEC 27001:2022 | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD26_Issue_2_150120 23.pdf | OCSG | ECA-MC-C05
+MD 28 | IAF MD28:2023 IAF Mandatory Document for the Upload and Maintenance of Data on IAF Database | https://iaf.nu/iaf_system/uploads/doc uments/IAF_MD_28_Issue1_261020 23.pdf | OCSG | ECA-MC-C05
+MD 29 | Requisitos para la transición de la norma ISO/IEC 27006-1:2024 | chrome- extension://efaidnbmnnnibpcajpcglcl efindmkaj/https://iaf.nu/iaf_system/up loads/documents/IAF_MD_29_27006 -1_Transition_21052024.pdf | OCSG | Plan de transición
+7. IDENTIFICACIÓN DE CAMBIOS
 Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2023- 037
-Se modifican y/o actualizan Se modifican todos los documentos mandatorios, por la actualización realizada por IAF de forma administrativa. Se actualiza el MD 1 Y el MD 5 Se eliminan Se elimina el ANEXO VII: CRITERIO ECA para evaluar el apartado 8.3.3 de la norma INTE-ISO/IEC 17021-1 Se elimina el ANEXO X. CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE LA ENERGÍA Nuevos Se agrega el CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE LA SEGURIDAD DE LA INFORMACIÓN - SGSI por apertura del esquema. Se agrega el MD 28 DOCUMENTO OBLIGATORIO DE LA IAF PARA LA CARGA Y EL MANTENIMIENTO DE DATOS EN LA BASE DE DATOS DE LA IAF
+Refiérase a la solicitud de elaboración o modificación del documento número 2025- 025
+Se modifican y/o actualizan Se modifica el MD 04, entra en vigencia enero 2026 y se agrega anexo con el listado de los documentos mandatorios.
+Se modifica el CRITERIO ECA PARA EVALUAR A LOS OCSG QUE REALIZAN AUDITORIA Y CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE LA SEGURIDAD DE
+LA INFORMACIÓN - SGSI. Se actualiza la referencia a la norma ISO/IEC 27006-1:2024
+Se ajusta la tabla de contenidos para que indique los criterios correspondientes y la página correspondiente

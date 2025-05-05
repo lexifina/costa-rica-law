@@ -14,3 +14,4 @@ Reforma ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/ IEC 17021
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-07 | la propia norma |
+| 2 | 2025-05-05 | Acuerdo 0 (2025-05-05) |
