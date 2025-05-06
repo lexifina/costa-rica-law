@@ -1,0 +1,1 @@
+Artículo 10.-Direccionamiento de las denuncias. La Auditoría Interna procurará que el jerarca de la Municipalidad y los titulares subordinados, atiendan las denuncias que les sean remitidas por este órgano fiscalizador relacionadas con sus competencias específicas, de conformidad con lo establecido en la Ley General de Control Interno y demás normativa vigente.

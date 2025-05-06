@@ -1,0 +1,1 @@
+Artículo 11.-Seguimiento. La Auditoría Interna, de acuerdo con los procedimientos establecidos, determinará los casos en que dará el seguimiento de las denuncias que remita a las diferentes unidades de la administración Municipal, con el fin de que cumplan la obligación de atenderlas.

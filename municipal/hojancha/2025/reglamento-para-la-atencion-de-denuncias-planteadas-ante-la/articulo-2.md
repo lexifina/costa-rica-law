@@ -1,0 +1,1 @@
+Artículo 2°-Ámbito de Competencia. La Auditoría Interna de la Municipalidad de Hojancha dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos o que afecten la Hacienda Pública y lo regulado por la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422.
