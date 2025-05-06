@@ -1,0 +1,2 @@
+Artículo 9-bis: Requisitos para la postulación de la Orden Carmen Lyra. Podrán ser postuladas a la Orden Carmen Lyra mujeres nacidas o avecindadas en el Cantón Central de San José, que cuenten con una trayectoria comprobada de compromiso y aportes relevantes en cualquiera de las áreas descritas en el artículo cinco-bis. Las candidaturas deberán ser presentadas de conformidad con el procedimiento establecido en el presente reglamentos.
+(Así adicionado en sesión N° 053 del 6 de mayo de 2025)

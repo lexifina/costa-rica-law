@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de las Ordenes Cleto Gonzalez Viquez, Tomas Lope
 | --- | --- | --- |
 | 1 | 1993-02-05 | la propia norma |
 | 2 | 2008-10-28 | Reglamento municipal 131 (2008-10-28) |
+| 3 | 2025-05-06 | Reglamento municipal 53 (2025-05-06) |

@@ -1,0 +1,2 @@
+Artículo 20-bis: La Orden Carmen Lyra, que confiera la Municipalidad de San José, a las mujeres que hayan contribuido de manera sobresaliente al Cantón, se les otorgará un pergamino y una medalla de oro con una leyenda alusiva a la misma, como "Por su invaluable aporte a la transformación justa y equitativa de nuestra sociedad, siguiendo la huella de Carmen Lyra, pionera de la educación, la literatura y la lucha social en Costa Rica.
+(Así adicionado en sesión N° 053 del 6 de mayo de 2025)
