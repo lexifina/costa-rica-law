@@ -1,7 +1,2 @@
-ARTÍCULO 10.- Sesiones
-El Consejo sesionará ordinariamente una vez a la semana como mínimo
-y podrá celebrar hasta ocho sesiones por mes, entre ordinarias y
-extraordinarias. Para poder sesionar válidamente, deberá contar con un
-quórum de cinco integrantes. Los miembros del Consejo recibirán una
-remuneración equivalente a la fijada para los miembros de la Junta
-Directiva del Banco Central de Costa Rica.
+Artículo 10- Sesiones. El Consejo sesionará ordinariamente una vez a la semana como mínimo y podrá celebrar hasta ocho sesiones por mes, entre ordinarias y extraordinarias. Para poder sesionar válidamente, deberá contar con un cuórum de cinco integrantes. Los miembros del Consejo recibirán una remuneración equivalente al setenta y cinco por ciento (75%) de la remuneración fijada para los miembros de la Junta Directiva del Banco Central de Costa Rica.
+(Así reformado por el artículo único de la ley N° 10676 del 25 de marzo de 2025)
