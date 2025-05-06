@@ -1,1 +1,0 @@
-ARTÍCULO 2.- Tendrá su domicilio legal, en el Distrito Central, Estado Lito Monge, pudiendo variar la sede de manera temporal, para realizar actividades especiales, siempre dentro del cantón de Curridabat o bien temporalmente en actividades como Juegos Nacionales, en donde se asienten los equipos del cantón.
