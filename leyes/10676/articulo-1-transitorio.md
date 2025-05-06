@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- En un plazo de tres meses, a partir de la publicación de esta ley, el Poder Ejecutivo deberá emitir el reglamento para la inscripción y acreditación de las organizaciones que han sido adicionadas en el artículo único de esta ley, a efectos de garantizar el debido proceso, publicidad y trans parencia a los interesados en optar por la representación en el Consejo.
