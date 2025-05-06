@@ -1,2 +1,5 @@
-Artículo 2.-
-Son beneficiarios de este Fondo los costarricenses y extranjeros residentes legales del país, así como las personas menores de edad, quienes a pesar de carecer de una condición migratoria regular en el territorio nacional, se encuentren en situación de pobreza o pobreza extrema, de acuerdo con los requisitos que se establezcan en esta y las demás leyes vigentes y sus reglamentos.
+Artículo 2-Solo podrán ser beneficiarios de este Fondo los costarricenses, los extranjeros residentes legales, las personas adultas mayores, las personas con discapacidad y mujeres jefas de hogar.
+También podrán ser beneficiarias las personas menores de edad en el territorio nacional, independientemente de su situación migratoria.
+Las situaciones de pobreza básica y pobreza extrema, así como el alcance del concepto vulnerabilidad económica, serán determinados en función de los datos estadísticos anuales aportados por el Instituto Nacional de Estadística y Censos (INEC), el cual define la línea anual de pobreza.
+La atención que se realice con recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf), solo se dirigirá a personas en pobreza extrema, pobreza básica o vulnerabilidad económica, cuya atención será progresiva, priorizando la atención de las personas en situaciones más críticas de pobreza.
+(Así reformado por el artículo 1° de la Ley para la dinamización de la atención de la población vulnerable en Costa Rica, N° 10705 del 6 de mayo de 2025)
