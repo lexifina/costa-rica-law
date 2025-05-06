@@ -15,3 +15,4 @@ Reglamento para el reclutamiento y selección de personal de la Municipalidad de
 | --- | --- | --- |
 | 1 | 2022-06-06 | la propia norma |
 | 2 | 2024-02-08 | Reglamento municipal 9 (2024-02-08) |
+| 3 | 2025-05-06 | Reglamento municipal 86 (2025-05-06) |
