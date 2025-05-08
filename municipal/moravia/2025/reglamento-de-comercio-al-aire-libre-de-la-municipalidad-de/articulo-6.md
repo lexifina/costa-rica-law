@@ -1,0 +1,2 @@
+Artículo 6º-Horarios de utilización de la autorización de comercio al aire libre.
+Esta autorización se permitirá en un horario de las 11:00 horas a las 20:00 horas. Si se tiene un tipo de licencia municipal para comercialización de bebidas con contenido alcohólico, el horario se regirá según lo establecido en el artículo 11 de la Ley de Regulación y Comercialización de bebidas con contenido alcohólico Ley N° 9047, según el tipo de licencia que se tenga. Todo mobiliario deberá ser retirado diariamente al finalizar la actividad comercial.
