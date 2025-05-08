@@ -14,3 +14,4 @@ Reglamento del procedimiento de incorporación y otros procesos afines del Coleg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-21 | la propia norma |
+| 2 | 2025-05-08 | Reglamento 12 (2025-05-08) |
