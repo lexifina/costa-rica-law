@@ -1,0 +1,1 @@
+Artículo 64.-La Secretaría remitirá a la presidencia en orden presentación, las solicitudes que presenten las personas particulares. La presidencia decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.
