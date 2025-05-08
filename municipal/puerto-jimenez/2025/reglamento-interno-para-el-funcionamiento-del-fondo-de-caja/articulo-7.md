@@ -1,0 +1,1 @@
+Artículo 7º-De la naturaleza. El Fondo Fijo de Caja Chica es un procedimiento de excepción, por lo tanto, la ejecución del gasto queda limitada a las compras establecida en el Artículo Nº 8, siempre y cuando se cumpla con lo dispuesto en el Articulo Nº10, dichos artículos mencionados corresponden a este Reglamento.

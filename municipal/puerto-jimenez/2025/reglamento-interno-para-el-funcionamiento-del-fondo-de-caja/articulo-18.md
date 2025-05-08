@@ -1,0 +1,7 @@
+Artículo 18.-De los requisitos para las compras. En atención a las erogaciones autorizadas para el Fondo Fijo de Caja Chica N° 2 los funcionarios responsables, deberán observar los siguientes requisitos, sin perjuicio de otros establecidos en la normativa vigente sobre la materia:
+a) Evaluar la necesidad y urgencia de realizar la compra por el mecanismo del Fondo Fijo de Caja Chica.
+b) Requerir a la proveeduría Municipal, la solicitud de exoneración del pago del IVA. No se reconocerá el importe por concepto de impuesto, cuando éste sea cancelado por funcionario encargado de realizar la compra, debido a que la Municipalidad está exenta del pago de toda clase de tributos.
+c) Seleccionar el proveedor de los bienes, obras o servicios, con tres cotizaciones como mínimo de los proveedores que se requieren en procura del mayor beneficio institucional en cuanto a precio y calidad, basados en accesibilidad, cercanía y disponibilidad.
+Estas cotizaciones deben ser de diferente proveedor de la misma naturaleza del bien o el servicio requerido y se debe acreditar la razonabilidad de los precios y consignar la justificación de la oferta o cotización seleccionada.
+d) En caso excepcional que únicamente se cuente con una cotización deberá ser justificado por el solicitante y autorizados por la Alcaldía Municipal.
+e) Verificar que la compra de los bienes y servicios hayan sido recibidos a satisfacción y cumplan en cuanto a precio y calidad.

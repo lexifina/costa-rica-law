@@ -1,0 +1,1 @@
+Artículo 6º-Prohibición. Las compras de bienes y servicios pagadas por medio del Fondo Fijo de Caja Chica están sujetas al régimen de prohibición establecido en el Capítulo V "Régimen de prohibiciones" de la Ley General de Contratación Pública.

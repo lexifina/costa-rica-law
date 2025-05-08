@@ -1,0 +1,1 @@
+Artículo 16.-De la compra de activos fijos. Los activos fijos que se adquieren mediante este mecanismo y que estén sujetos a depreciación, deberán ser debidamente plaqueados de acuerdo con el procedimiento establecido para tal fin.

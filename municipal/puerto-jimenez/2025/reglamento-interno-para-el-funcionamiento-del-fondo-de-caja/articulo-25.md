@@ -1,0 +1,1 @@
+Artículo 25.-De la liquidación pendiente. No se entregará un segundo Vale de Caja Chica, a funcionarios que tengan pendiente la liquidación del primero. Se exceptúa cuando los vales correspondan a diferentes fondos de caja chica.

@@ -1,0 +1,1 @@
+Artículo 20.-De la prohibición de variar el objeto de la compra. Por ningún motivo se podrá variar el objeto inicial de una compra, a menos de que pertenezca a la misma partida presupuestaria. No se pagarán aquellos bienes, obras o servicios que fueron adquiridos previos a la autorización de un vale de Caja Chica.

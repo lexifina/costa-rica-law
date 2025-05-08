@@ -1,0 +1,1 @@
+Artículo 29.-De la periodicidad. Se confeccionarán los reintegros de los Fondos Fijos de Caja Chica, cuando se haya gastado no más del 30% del fondo fijo, con el propósito de darle rotación óptima a los recursos y mantener la liquidez de los fondos.

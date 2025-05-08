@@ -1,0 +1,2 @@
+Artículo 14.-Del vale de caja chica. El formulario que se utilizarán para efectuar compras por medio de los Fondos Fijos de Caja Chica estará a disposición por medio del formulario creado por la Tesorería Municipal.
+El vale de caja chica deber ser complementado con el formulario para la compra excepcionada por caja chica según la Ley General de Contratación Pública y su Reglamento (Artículos Nº 3, inciso g) de la LGCP y Nº 4 del RLGCP), el cual se encuentra a disposición en la unidad de Proveeduría.
