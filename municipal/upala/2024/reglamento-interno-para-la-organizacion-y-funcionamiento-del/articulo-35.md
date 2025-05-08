@@ -1,0 +1,2 @@
+Artículo 35.-Del uniforme de la Policía Municipal de Upala. El uniforme de la Policía Municipal de Upala será proporcionado por la institución, este deberá ser conforme a las tendencias existentes en el ámbito policial municipal. La Alcaldía y el jefe de la Policía, definirán los componentes, materiales, texturas y colores del mismo.
+El uniforme deberá estar conformado por al menos por los siguientes elementos: zapatos, gorra, pantalón y camisa, un chaleco de seguridad y una chaqueta impermeable con bandas reflectivas, todos debidamente identificados con el logo municipal.

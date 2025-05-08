@@ -1,0 +1,1 @@
+Artículo 38.-Fuera de la jornada laboral queda prohibido el uso del uniforme, chaleco de seguridad y arma de fuego e implementos suministrado por la Institución para el desempeño policial.

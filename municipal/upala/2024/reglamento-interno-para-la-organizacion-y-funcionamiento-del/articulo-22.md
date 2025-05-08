@@ -1,0 +1,1 @@
+Artículo 22.-La Municipalidad de Upala, mediante la Alcaldía Municipal, podrá realizar convenios de cooperación, con instituciones públicas y privadas, personas físicas y jurídicas, a fin de obtener y utilizar los mejores recursos tecnológicos y equipos para la vigilancia y operación de la Policía Municipal de Upala.

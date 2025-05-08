@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE UPALA
+REGLAMENTO INTERNO PARA LA ORGANIZACIÓN Y FUNCIONAMIENTO DEL SERVICIO DE SEGURIDAD CIUDADANA Y CONTROL VIAL, DE LA MUNICIPALIDAD DE UPALA
+Con base en las potestades constitucionales establecidas en los artículos 169 y 170 de la Constitución Política de la República de Costa Rica, y las disposiciones de los artículos 1, 4, 21, 47 y 61 al 69 del Código Municipal, el Concejo Municipal de Upala, emite el presente Reglamento Interno para la organización y funcionamiento del Servicio de Seguridad Ciudadana y Control Vial, de la Municipalidad de Upala.
+Capítulo I
+Servicio de Seguridad Ciudadana y Control Vial
+Artículo 1º-Se establece el Servicio de Seguridad Ciudadana y Control Vial de la Municipalidad de Upala, denominado Policía Municipal de Upala, como un cuerpo policial municipal uniformado, de carácter preventivo y administrativo, adscrito a la Alcaldía Municipal de Upala; cuyo objetivo es contribuir a mejorar la seguridad y calidad de vida de los munícipes, contribuyentes y visitantes del cantón de Upala, mediante una gestión efectiva y eficiente en materia de Seguridad Ciudadana, vigilancia, educación, y control vial, coordinada con las Autoridades Nacionales.

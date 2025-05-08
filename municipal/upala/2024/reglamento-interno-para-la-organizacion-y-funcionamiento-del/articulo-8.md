@@ -1,0 +1,1 @@
+Artículo 8º-Será obligación del agente de Policía Municipal de Upala, ejercer adecuadamente el control vial en el cantón, en apego de lo que establece el Reglamento de Operación del Sistema de Estacionómetro autorizado en Upala y la Ley de Tránsito por Vías Públicas Nacional.
