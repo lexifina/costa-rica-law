@@ -1,0 +1,1 @@
+Artículo 7º-Comportamiento ético y el deber de respeto a la imagen de la Municipalidad de Moravia. Los servidores municipales deben actuar dentro de un marco de respeto, rectitud y buena fe en estricto apego a la ética, tanto dentro como fuera del centro de trabajo.

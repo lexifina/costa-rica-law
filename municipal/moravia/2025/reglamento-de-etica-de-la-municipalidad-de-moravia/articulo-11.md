@@ -1,0 +1,2 @@
+Artículo 11.-Confidencialidad. Durante todo el proceso de investigación se debe guardar la confidencialidad sobre la identidad del denunciante, así como de toda aquella información y evidencia que pueda llegar a sustentar la apertura de un procedimiento administrativo o proceso judicial. La identidad del denunciante deberá protegerse aún después de concluida la investigación y el procedimiento administrativo, si lo hubiera.
+Rige a partir de su publicación.
