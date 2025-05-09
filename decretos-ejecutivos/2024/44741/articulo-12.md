@@ -1,0 +1,5 @@
+CAPÍTULO VI
+PROGRAMA DE RED UCCIÓN DE RIESGOS Y RESPUESTA ANTE
+ACCIDENTES QUÍMICOS.
+Artículo 12. Inspección del Benemérito Cuerpo de Bomberos de Costa Rica. La inspección debe ser solicitada por la empresa y por escrito a la Unidad de Ingeniería del BCBCR en un término no mayor a un mes después de otorgado el PSF, el CVO o su renovación y actualización de registro anual. El BCBCR realizará la inspección a más tardar seis meses de recibida la solicitud de inspección, con el fin de evaluar el cumplimiento del Programa de Reducción de Riesgos y Respuesta ante Accidentes Químicos, de acuerdo con los elementos establecidos en el Anexo 4 de este reglamento. Posterior a la inspección, el BCBCR presentará el informe a la DARS a más tardar 15 días hábiles.
+Los costos de la inspección correrán por cuenta del establecimiento de acuerdo con lo establecido en los artículos 85 y 86 del Decreto Ejecutivo Nº 37615-MP "Reglamento a la Ley Nº 8228 del Benemérito Cuerpo· de Bomberos de Costa Rica". Estos montos estarán publicados en la siguiente dirección electrónica: www.bomberos.go.cr.

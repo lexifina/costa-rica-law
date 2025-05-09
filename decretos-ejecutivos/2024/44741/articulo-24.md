@@ -1,0 +1,1 @@
+Artículo 24. Seguimiento. La DARS correspondiente o SENASA (nivel local) dará seguimiento al informe presentado y al cumplimiento de las mejoras indicadas en el mismo, conforme a los procedimientos establecidos en los artículos 13, 14, 15, 16, 17, 18 y 19 del presente Reglamento.
