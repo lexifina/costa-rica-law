@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil (D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-18 | la propia norma |
+| 2 | 2025-05-09 | Resolución 148 (2025-05-09) |
