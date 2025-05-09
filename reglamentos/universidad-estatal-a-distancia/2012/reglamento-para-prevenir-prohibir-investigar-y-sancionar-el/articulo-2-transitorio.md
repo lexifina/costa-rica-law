@@ -1,2 +1,0 @@
-Transitorio N° 2.—Este Reglamento entrará a regir en un plazo de seis meses, o hasta que esté conformada la Junta Especial contra el Hostigamiento Sexual, se hayan realizado las capacitaciones respectivas y se publique en el Diario Oficial La Gaceta. Hasta tanto, se procederá de conformidad con lo que determinen las leyes nacionales para ese efecto. / Aprobado por el Consejo Universitario en sesión N° 2195, artículo VI, inciso 2) de 13 de setiembre del 2012/.
-San José, 16 de julio del 2013.—Mag. Luis Guillermo Carpio Malavasi, Rector.—

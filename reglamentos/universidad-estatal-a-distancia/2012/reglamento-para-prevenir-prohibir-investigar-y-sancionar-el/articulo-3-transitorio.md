@@ -1,2 +1,0 @@
-Transitorio 3: al momento de llevarse a cabo los nombramientos de los nuevos miembros de la Junta Especial contra el Hostigamiento Sexual, cuya designación rige a partir del 09 de junio del 2018, el período de uno de los representantes de carrera profesional y del representante de los centros universitarios, será de tres años por una única vez.
-(Así adicionado mediante sesión N° 2651 del 21 de marzo del 2018)

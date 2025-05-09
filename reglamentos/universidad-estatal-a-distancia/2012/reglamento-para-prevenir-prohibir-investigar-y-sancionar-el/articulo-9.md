@@ -1,1 +1,0 @@
-Artículo 9º—Deber de colaboración. Toda persona miembro de la comunidad universitaria de la UNED está en la obligación de brindar la colaboración necesaria cuando así se solicite por la Junta, para facilitar su labor y el cabal desempeño del procedimiento.

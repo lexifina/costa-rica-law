@@ -1,1 +1,0 @@
-Artículo 16.—Asesoramiento jurídico y apoyo emocional. En el procedimiento, las partes podrán hacerse representar por patrocinio letrado y hacerse acompañar del apoyo emocional o psicológico de su confianza.
