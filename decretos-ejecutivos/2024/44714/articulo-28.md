@@ -1,0 +1,1 @@
+Artículo 28.- Custodia de las recetas impresas: Las recetas impresas generadas como medida de contingencia, por las circunstancias previstas en el artículo 19 del presente reglamento, deberán conservarse por 5 años por parte del profesional en farmacia a cargo de la dispensación de estas, sin ningún tipo de alteración.

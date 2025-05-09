@@ -1,0 +1,1 @@
+Transitorio III. - Los servicios de salud públicos tendrán en forma gradual hasta doce meses a partir de la entrada en funcionamiento de la plataforma del Sistema de Receta Digital de Antimicrobianos, para el envío de la información relacionada con la prescripción, inventario y dispensación de medicamentos antimicrobianos sistémicos en el SRDAS.

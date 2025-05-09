@@ -1,0 +1,1 @@
+Artículo 23. - Obligaciones: Será obligación de las personas profesionales en medicina, odontología y enfermería obstétrica, prescribir las recetas de antimicrobianos sistémicos en el SRDAS o utilizar otros sistemas que interoperen con el SRDAS.

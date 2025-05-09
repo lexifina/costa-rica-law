@@ -1,0 +1,1 @@
+Artículo 25.- Plazo de notificaciones en el SRDAS. Los plazos de las notificaciones que realice el SRDAS empezarán a correr a partir del día hábil siguiente de la notificación efectuada a todas las partes.

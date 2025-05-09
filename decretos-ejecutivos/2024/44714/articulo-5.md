@@ -1,0 +1,2 @@
+Artículo 5.- Despacho de medicamentos antimicrobianos sistémicos: Para asegurar la eficacia, seguridad y calidad de los medicamentos que lleguen a la población, solamente se podrán dispensar medicamentos antimicrobianos sistémicos en las farmacias que cuenten con permiso de habilitación vigente, así como las respectivas regencias al día.
+Además, estos medicamentos deben contar con un registro sanitario vigente otorgado por el Ministerio de Salud.

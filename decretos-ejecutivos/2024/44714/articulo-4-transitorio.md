@@ -1,0 +1,1 @@
+Transitorio IV. – Las políticas de uso del sistema y los protocolos de acceso a la información, deben ser emitidos en un plazo de seis meses a partir de la publicación del presente reglamento en el diario oficial La Gaceta.

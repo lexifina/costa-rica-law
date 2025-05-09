@@ -1,0 +1,2 @@
+Artículo 11.- Prescripción y despacho de medicamentos antimicrobianos sistémicos: Los medicamentos antimicrobianos sistémicos sólo podrán ser prescritos y dispensados mediante recetas digitales incluidas en el SRDAS u otros sistemas interoperables.
+Se exceptúan de esta disposición las recetas prescritas y despachadas en forma impresa en los casos establecidos en el artículo 19 del presente reglamento.

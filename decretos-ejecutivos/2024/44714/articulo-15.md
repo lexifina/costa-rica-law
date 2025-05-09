@@ -1,0 +1,1 @@
+Artículo 15.- Vigencia de la receta digital: La vigencia del código emitido por el sistema para el despacho del medicamento antimicrobiano sistémico, será de tres días hábiles desde la emisión de la prescripción por parte del profesional en ciencias de la salud facultado para tal fin.

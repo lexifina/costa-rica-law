@@ -1,0 +1,1 @@
+Artículo 8.- Dispensación de medicamentos antimicrobianos sistémicos: El control y almacenamiento de medicamentos antimicrobianos sistémicos en las farmacias, así como la dispensación de las recetas que se prescriben, corresponderá exclusivamente a los regentes farmacéuticos, los que deberán utilizar el Sistema de Receta Digital u otros sistemas interoperables.
