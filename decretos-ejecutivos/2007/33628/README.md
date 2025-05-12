@@ -14,3 +14,4 @@ Reglamento de Servicio del Comité Gerencial de Informática del Ministerio de E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-19 | la propia norma |
+| 2 | 2025-05-12 | Decreto Ejecutivo 45015 (2025-05-12) |
