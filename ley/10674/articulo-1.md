@@ -1,0 +1,5 @@
+N° 10674
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DEL DÍA NACIONAL CONTRA LA VIOLENCIA OBSTÉTRICA
+ARTÍCULO 1- Declaratoria. Declárese el 9 de enero de cada año Día Nacional contra la Violencia Obstétrica.
