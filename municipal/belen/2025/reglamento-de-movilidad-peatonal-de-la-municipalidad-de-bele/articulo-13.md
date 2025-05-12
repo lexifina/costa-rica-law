@@ -1,0 +1,1 @@
+Artículo 13.-Acceso a predios, condominios y otros. En ningún caso los accesos a los predios interrumpirán los niveles y la continuidad de las aceras, incluyendo su acabado, excepto las urbanizaciones de carácter público.

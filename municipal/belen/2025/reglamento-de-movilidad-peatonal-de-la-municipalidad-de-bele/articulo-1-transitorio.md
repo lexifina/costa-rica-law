@@ -1,0 +1,4 @@
+Transitorio I.-Único. Considerando la entrada en vigencia de la Ley N°9976 y la obligatoriedad de sus disposiciones la Municipalidad ha venido ejecutando los planes de movilidad y aceras, de tal manera que se comenzará a cobrar las tasas correspondientes de períodos vencidos al año 2025, empezando con el año 2022 y así s sucesivamente hasta que el monto de inversión según lo establecido por ley se fije en el 1% del Impuesto de Bienes Inmuebles para el año quinto; momento en el cual se podrá realizar en años posteriores un cobro bianual hasta alcanzar el último año de inversión.
+Se acuerda por unanimidad: Solicitar a la Secretaría realizar la segunda publicación en el Diario Oficial La Gaceta.
+21 de Abril del 2024.-San Antonio de Belén, Heredia.
+<span style='font-family:"Arial",sans-serif; </body>
