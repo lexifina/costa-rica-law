@@ -1,0 +1,1 @@
+Artículo 20.-Transitorio. Los trabajadores del BN que no cuenten con la póliza de robo del vehículo y hurto, según lo establecido en el Artículo 5º Requisitos para el reconocimiento del pago de kilometraje en su inciso d), a partir de la publicación del presente Reglamento, cuentan con tres (3) meses para suscribir la póliza mencionada.

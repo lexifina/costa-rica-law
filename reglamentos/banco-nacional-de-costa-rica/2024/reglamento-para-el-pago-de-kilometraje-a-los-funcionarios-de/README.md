@@ -14,3 +14,4 @@ Reglamento para el pago de kilometraje a los funcionarios del Banco Nacional de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-05-12 | la propia norma |
+| 2 | 2025-05-12 | Reglamento 12740 (2025-03-04) |

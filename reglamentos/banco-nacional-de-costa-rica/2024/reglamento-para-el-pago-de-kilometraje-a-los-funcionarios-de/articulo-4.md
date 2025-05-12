@@ -1,1 +1,1 @@
-Artículo 4º Exclusiones. Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de la Junta Directiva, toda persona o asesor contratado por el BNCR sin que medie relación laboral con la institución.
+Artículo 4°-Exclusiones. Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de las Juntas Directivas, toda persona o asesor contratado por el BN sin que medie relación laboral con la institución.
