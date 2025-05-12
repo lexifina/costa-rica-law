@@ -1,0 +1,4 @@
+Artículo 2º-Subpartida presupuestaria de gastos de alimentación y bebidas. Se autoriza a disponer de una subpartida presupuestaria de alimentos y bebidas a los efectos de sufragar los siguientes gastos:
+2.1. Gastos de alimentación y bebidas para capacitaciones de personal, reuniones presenciales de trabajo y sesiones presenciales de órganos colegiados y equipos de trabajo de la Administración.
+2.2. Gastos de alimentación y bebidas para la atención de clientes, contrapartes y actividades protocolarias.
+2.3. Gastos de Alimentación y bebidas para la atención del personal que sea llamado con carácter de emergencia a presentarse al banco o alguna de sus subsidiarias derivado de un hecho de fuerza mayor o caso fortuito y se requiera brindarles alimentación y, en el caso del banco, no se les otorgue órdenes de alimentación conforme a lo regulado en la Convención Colectiva.

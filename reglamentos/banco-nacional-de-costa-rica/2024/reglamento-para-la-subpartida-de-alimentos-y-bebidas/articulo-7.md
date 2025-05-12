@@ -1,0 +1,1 @@
+Artículo 7º-Exclusiones. Se excluyen de este reglamento aquellas partidas dispuestas en la Convención Colectiva vigente, no obstante, queda estrictamente prohibido cobrar gastos de alimentación en los casos en que el banco, en aplicación del presente reglamento, hubiere brindado el servicio de alimentación al funcionario.

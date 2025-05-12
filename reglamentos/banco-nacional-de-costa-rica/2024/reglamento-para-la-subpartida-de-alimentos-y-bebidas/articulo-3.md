@@ -1,0 +1,1 @@
+Artículo 3º-Excepcionalidad, eficiencia, y razonabilidad del gasto. La Administración deberá velar por que los recursos de la subpartida presupuestaria de gastos de alimentación y bebidas se ejecuten de forma eficiente, excepcional y en estricto apego a principios de razonabilidad y austeridad.
