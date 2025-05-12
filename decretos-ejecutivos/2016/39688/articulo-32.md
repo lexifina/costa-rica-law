@@ -1,1 +1,2 @@
-Artículo 32°- Modificación de Canon: Los CÁNONES establecidos para todo contrato de concesión podrán ser modificados cuando se autoricen prórrogas, o se acuerden ajustes al contrato de concesión por variación en el área concesionada.
+Artículo 32°- Modificación de Canon: El canon establecido en el contrato de concesión podrá ser modificado cuando se autoricen prórrogas, cambios de uso, se acuerden ajustes al contrato de concesión por variación en el área concesionada y cuando se den actualizaciones en el mapa de valores de terrenos de zonas homogéneas del Órgano de Normalización Técnica de la Dirección General de Tributación del Ministerio de Hacienda.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45076 del 12 de mayo del 2025)

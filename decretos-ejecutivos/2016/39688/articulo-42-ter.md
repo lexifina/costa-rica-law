@@ -1,0 +1,2 @@
+Artículo 42 ter.- Presentada la solicitud del o los herederos, la oficina de Desarrollo Territorial correspondiente, emitirá el informe respectivo y lo trasladará junto con el expediente a la Asesoría Legal Regional en un plazo de quince días hábiles. Listo el expediente la asesoría legal lo trasladará a la Región de Desarrollo, quien procederá a recomendar si aprueba o imprueba la solicitud y lo remitirá al Fondo de Tierras, para su trámite.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45076 del 12 de mayo del 2025)

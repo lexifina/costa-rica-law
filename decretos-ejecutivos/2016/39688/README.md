@@ -14,3 +14,4 @@ Reglamento al otorgamiento de concesiones en franjas fronterizas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-19 | la propia norma |
+| 2 | 2025-05-12 | Decreto Ejecutivo 45076 (2025-05-12) |

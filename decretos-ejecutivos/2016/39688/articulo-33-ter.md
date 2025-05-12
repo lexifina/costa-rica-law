@@ -1,0 +1,2 @@
+Artículo 33 ter. - Cuando por razones justificadas el concesionario deba realizar una modificación al uso otorgado en el contrato de concesión este deberá presentar por escrito la respectiva solicitud de autorización ante la oficina Territorial donde se encuentre el inmueble concesionado, acompañada de los requisitos indicados en los incisos a), b), d), e), f), g), h), i), todos del artículo 19 del presente Reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45076 del 12 de mayo del 2025)
