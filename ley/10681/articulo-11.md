@@ -1,0 +1,1 @@
+ARTÍCULO 11- Transcurrido el plazo de un año contado a partir de la entrada en vigencia de esta ley, el Ministerio de Educación Pública informará a la Asamblea Legislativa sobre la aplicación de las disposiciones contenidas.

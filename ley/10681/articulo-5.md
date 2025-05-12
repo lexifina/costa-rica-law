@@ -1,0 +1,7 @@
+ARTÍCULO 5- Plan de Salud Mental Escolar. El Consejo Superior de Educación y el Ministerio de Educación Pública, en el ámbito de sus competencias, aprobarán, implementarán y diseñarán el plan de salud mental, así como los lineamientos para garantizar su inclusión de forma transversal en los programas de estudio de los diferentes niveles del sistema educativo. El plan generado deberá contener los siguientes aspectos mínimos:
+a) Introducir educación sobre salud mental mediante herramientas accesibles y prácticas.
+b) Implementar medidas preventivas, efectivas para la intervención temprana y oportuna, reducción de los factores de riesgo y fomento de mecanismos para su protección.
+c) Promover un ambiente escolar que asegure la inclusión y prevención de acoso escolar para mejorar el bienestar mental de toda la comunidad educativa.
+d) Implementar actividades que aumenten la conciencia sobre los trastornos mentales, eduquen a la comunidad sobre su impacto y reduzcan el estigma asociado, a través de campañas informativas e iniciativas participativas.
+e) Involucrar al entorno familiar y comunidades en programas educativos sobre salud mental que amplíen el apoyo a estudiantes y sus familias.
+f) Implementar campañas educativas, charlas, talleres y actividades que permitan reducir el estigma que existe entorno a los trastornos mentales, creando un ambiente de empatía, apoyo y respeto en la comunidad escolar.

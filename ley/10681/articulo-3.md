@@ -1,0 +1,1 @@
+ARTÍCULO 3- Declaratoria de interés público. Se declara de interés público la promoción de la enseñanza en salud mental mediante un plan específico y su inclusión gradual en los programas de estudio de los centros educativos públicos y privados del sistema de educación costarricense.

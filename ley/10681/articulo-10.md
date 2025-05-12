@@ -1,0 +1,1 @@
+ARTÍCULO 10- Confidencialidad. Se garantizará la protección de datos y la confidencialidad en la gestión de información relacionada con la salud mental de los estudiantes, de conformidad con lo que establece la Ley 8968, Protección de la Persona frente al Tratamiento de sus Datos Personales, del 7 de julio de 2011.
