@@ -1,0 +1,2 @@
+ARTÍCULO 8- Convenios. Se autoriza al Ministerio de Educación Pública a suscribir convenios con entidades gubernamentales, fundaciones y organizaciones internacionales para el cumplimiento de los fines y objetivos de la presente ley.
+Estos convenios podrán incluir la colaboración en la implementación de programas, provisión de recursos y realización de actividades que fortalezcan la educación en salud mental.

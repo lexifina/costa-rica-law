@@ -1,0 +1,1 @@
+ARTÍCULO 9- Investigación y mejora continua. Se fomentará la evaluación continua en el ámbito de la salud mental escolar para medir la efectividad de las intervenciones y estrategias implementadas. Esta evaluación será realizada por el Ministerio de Educación Pública en coordinación con la Secretaría Técnica de Salud Mental del Ministerio de Salud.

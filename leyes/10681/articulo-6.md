@@ -1,0 +1,1 @@
+ARTÍCULO 6- Capacitación docente. El Ministerio de Educación Pública implementará programas de capacitación y actualización continua para docentes en el área de salud mental, con el objetivo de garantizar la promoción de la enseñanza adecuada y efectiva.
