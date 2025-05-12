@@ -1,0 +1,1 @@
+Artículo 8º-El alcalde, vicealcaldes, los regidores, los síndicos, los concejales de distrito y sus respectivos suplentes; el contador, tesorero y auditor municipal se encuentran inhibidos para integrar los Comités Cantonales o Comunales.

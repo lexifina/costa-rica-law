@@ -1,0 +1,3 @@
+Transitorio III.-Para los efectos del artículo 49, el Comité será el administrador general de todas las instalaciones deportivas y recreativas municipales del cantón. Lo anterior sin perjuicio de que aquellas instalaciones deportivo-recreativas a las cuales actualmente la Municipalidad les brinda mantenimiento se les deba seguir brindando por parte de la Corporación Municipal.
+Para el fiel cumplimiento de este transitorio, el Comité junto con la Administración.
+Municipal realizará un estudio con el fin de identificar dichas instalaciones y se incluirá en convenio respectivo la situación.

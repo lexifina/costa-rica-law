@@ -1,0 +1,1 @@
+Artículo 25.-Las sesiones deberán iniciarse a más tardar veinte minutos después de la hora señalada para que sean válidas. En caso de falta de quórum se tendrá por suspendida la sesión, haciendo constar en el acta la situación acaecida para los efectos del artículo 28 de este Reglamento.

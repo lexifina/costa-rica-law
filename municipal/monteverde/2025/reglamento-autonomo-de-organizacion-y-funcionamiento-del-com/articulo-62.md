@@ -1,0 +1,1 @@
+Artículo 62.-Cualquier reforma que se presente a este Reglamento deberá ser propuesta por el Comité Cantonal y aprobada por el Concejo Municipal. En caso de que la propuesta emane del Concejo Municipal o cualquier otro órgano de la Administración Municipal deberá ser obligatoriamente consultada al Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 16.-Los miembros de la Junta Directiva no devengarán dieta ni remuneración alguna. Así mismo es permitido el pago de viáticos para los miembros de junta directiva del comité para lo cual se aplicará el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos (viáticos) de la Contraloría General de la República.

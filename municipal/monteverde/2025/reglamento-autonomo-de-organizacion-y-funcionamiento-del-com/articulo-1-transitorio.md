@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.-El Reglamento de caja chica a que hace referencia el artículo 20, inciso e) deberá ser aprobado por el Honorable Concejo Municipal. Hasta tanto dicho Reglamento no haya sido emitido, el uso de la caja chica del Comité se regirá por los principios y procedimientos aplicables que resulten del Reglamento para el Funcionamiento del Fondo de Caja Chica de la Municipalidad de Monteverde.

@@ -1,0 +1,3 @@
+Artículo 46.-De los incentivos económicos o becas. El Comité Cantonal podrá incluir en su presupuesto ordinario hasta un 20%, para otorgar los siguientes tipos de incentivos económicos:
+a) Incentivo por condición socioeconómica para atletas: Este incentivo será asignado a aquellos atletas, los cuales por su condición socioeconómica se les dificulta el poder realizar los entrenamientos y participar en las competencias de la disciplina deportiva que practica. Además, el atleta debe comprometerse con la institución aportando horas para la formación de nuevos valores, brindando todo su conocimiento y experiencia, no solo con los entrenadores e instructores, sino realizando proyectos de extensión y colaborando con el Comité Cantonal.
+b) Becas para entrenadores y asistentes.
