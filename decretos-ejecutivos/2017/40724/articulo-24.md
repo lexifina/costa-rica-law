@@ -7,7 +7,8 @@ De la Dirección General de Salud dependen los siguientes consejos y equipos ase
 a) Consejo de Gestión Institucional.
 b) Consejo de Gestión Regional de Rectoría de la Salud.
 c) Equipo Técnico de Gestión del Riesgo
-d) Dirección de Protección Radiológica y Salud Ambiental.
+d) Dirección de Salud Ambiental.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45051 del 12 de mayo del 2025)
 e) Dirección de Regulación de Productos de Interés Sanitario.
 f) Dirección de Vigilancia de la Salud.
 g) Dirección de Servicios de Salud.
