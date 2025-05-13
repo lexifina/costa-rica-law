@@ -1,4 +1,4 @@
-ARTICULO 345.- Sin perjuicio de las demás atribuciones inherentes a su cargo, corresponde especialmente al Ministro en representación del Poder Ejecutivo:
+Artículo 345- Sin perjuicio de las demás atribuciones inherentes a su cargo, corresponde especialmente al ministro en representación del Poder Ejecutivo:
 1. Declarar el estado de peligro de epidemia y fijar las zonas de endemia o infectadas por enfermedades transmisibles en el país.
 2. Declarar cuáles enfermedades transmisibles y zoonosis son de denuncia obligatoria.
 3. Declarar obligatorios la vacunación contra ciertas enfermedades así como ciertos exámenes o prácticas que se estimen necesarios para prevenir o controlar enfermedades.
@@ -14,3 +14,5 @@ ARTICULO 345.- Sin perjuicio de las demás atribuciones inherentes a su cargo, c
 13. Dictar, oyendo el criterio del Instituto Nacional de Vivienda y Urbanismo, las normas sanitarias para la vivienda y otros establecimientos de habitación y trabajo.
 14.Promover la creación de grupos de apoyo comunal para las personas que se encuentren afectadas en su salud mental y sus familiares. Para esto deberá coordinar con las juntas de salud, los Ebais y las clínicas de la Caja Costarricense de Seguro Social. También, deberá elaborar los manuales de capacitación para el personal de todos los establecimientos de salud, especialmente en el primero y segundo nivel.
 (Así adicionado el numeral 14) anterior por el artículo 2° de la ley N° 9213 del 4 de marzo de 2014, "Creación de la Secretaría Técnica de Salud Mental")
+15- Garantizar el personal especializado en el Despacho de Apoyo Psicológico para la atención de incidentes relacionados con el riesgo de ideación suicida o de comportamiento suicida.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para garantizar la atención psicológica de personas con ideación suicida por medio del Sistema de Emergencia 9-1-1, N° 10725 del 13 de mayo del 2025)
