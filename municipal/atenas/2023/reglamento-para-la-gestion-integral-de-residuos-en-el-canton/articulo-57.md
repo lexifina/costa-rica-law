@@ -1,0 +1,1 @@
+Artículo 57. Puestos Estacionarios de Venta. Los vendedores de puestos estacionarios están obligados a mantener limpia el área que ocupen y el área circundante donde los usuarios pudieran arrojar residuos. Deben contar con un recipiente para la disposición de residuos.

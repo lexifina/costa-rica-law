@@ -1,0 +1,2 @@
+Artículo 119. Cobro de la Tasa. La Municipalidad realizará el cobro del servicio para todo predio, conforme al Artículo 83 del Código Municipal N.º 7794 y sus reformas. El cobro de la tasa por este servicio se realizará a la persona propietaria o poseedora, de acuerdo con la cantidad de unidades habitacionales, patentados o entes estatales, ubicados dentro de la propiedad, sin importar si se encuentran en uso o no.
+La Gestión Tributaria de la Municipalidad instalará un sistema eficiente de cobro de la tasa por los servicios brindados.

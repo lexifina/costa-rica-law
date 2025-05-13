@@ -1,0 +1,1 @@
+Artículo 84. Innovación en Aprovechamiento de Residuos Valorizables. La Municipalidad trabajará activamente para ampliar la diversidad de materiales valorizables a gestionar, según los avances en la tecnología, las oportunidades del mercado y los cambios en la capacidad municipal para la adecuada gestión de residuos.

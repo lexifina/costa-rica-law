@@ -1,0 +1,1 @@
+Artículo 107. La Gestión de Ornato y Aseo de Vías. En coordinación con el Proceso de Servicios Generales y otros, deberán levantar un inventario de los sitios de disposición clandestinos, a fin de elaborar las políticas de control y erradicación de estas áreas.
