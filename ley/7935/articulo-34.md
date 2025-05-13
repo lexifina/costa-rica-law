@@ -1,6 +1,7 @@
-ARTÍCULO 34.- Fines
-El Consejo Nacional de la Persona Adulta Mayor tendrá los siguientes fines:
+ARTÍCULO 34.- Fines. El Consejo Nacional de la Persona Adulta Mayor tendrá los siguientes fines:
 a) Propiciar y apoyar la participación de la comunidad, la familia y la persona adulta mayor en las acciones para su desarrollo.
 b) Impulsar la atención de las personas adultas mayores por parte de las entidades públicas y privadas y velar por el funcionamiento adecuado de los programas y servicios destinados a ellas.
 c) Velar porque los fondos y sistemas de pensiones y jubilaciones mantengan su poder adquisitivo, para que cubran las necesidades básicas de sus beneficiarios.
 d) Proteger y fomentar los derechos de las personas adultas mayores referidos en esta ley y en el ordenamiento jurídico en general.
+e) Se faculta al Conapam y al Conapdis como entes rectores, cada uno dentro de su ámbito de competencia, para que puedan coadyuvar con la red familiar, con la finalidad de que cumpla con la obligación alimentaria para los adultos mayores y personas con discapacidad en condición de abandono. Para el cumplimiento de este inciso, se autoriza al Conapam y al Conapdis, de acuerdo con la Ley 4775, Ley de Consultorios Jurídicos, 21 de junio de 1971, para que soliciten apoyo a las facultades de derecho de las universidades del país, para que, por medio de estos consultorios jurídicos, puedan colaborar en los diferentes procesos legales que requieran sus servicios.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 10719 del 13 de mayo de 2025, “Reforma de varias leyes para fortalecer las organizaciones de bienestar social, en beneficio de la persona adulta mayor”)
