@@ -1,0 +1,1 @@
+Artículo 33.-No se permitirá la construcción de nuevos cobertizos, salvo que medie autorización formal de la GSRE en coordinación con la GG, mediante estudio técnico presentado por el N1GI en conjunto con la DL.

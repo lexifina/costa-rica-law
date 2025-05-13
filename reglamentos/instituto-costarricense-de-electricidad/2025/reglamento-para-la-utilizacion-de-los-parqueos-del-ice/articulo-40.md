@@ -1,0 +1,3 @@
+SECCIÓN IlI
+Descripción detallada
+Artículo 40.-En el caso de uso de estacionamientos para personas con discapacidad, de conformidad con lo establecido en la Ley N° 7600, su reglamento y demás normativa nacional e internacional aplicable, del total de espacios disponibles para estacionamiento, de clientes externos y funcionarios, se asignará un 5% o mínimo 2 espacios para cada una de estas áreas de parqueo de forma separada. Para su uso, operará el concepto de primero en llegar, primero en usar el espacio o estacionamiento. Los espacios citados, deben cumplir con las especificaciones técnicas, estipuladas en la normativa de cita.

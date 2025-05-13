@@ -1,0 +1,2 @@
+Artículo 2º-Alcance. Es aplicable en todos los inmuebles, ya sean propios o arrendados, con que cuenta el ICE en el territorio nacional y es de acatamiento obligatorio para todas las personas que utilizan estas zonas.
+Según lo establecido en el Reglamento de la Política para la Administración de Bienes Inmuebles, la rectoría de los espacios de los parqueos, incluyendo la asignación por excepción, des asignación, creación y eliminación de espacios le corresponde a la DSG mediante el N1GI.

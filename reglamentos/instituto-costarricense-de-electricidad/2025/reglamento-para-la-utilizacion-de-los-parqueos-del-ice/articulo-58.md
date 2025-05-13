@@ -1,0 +1,1 @@
+Artículo 58.-En caso de surgir una necesidad inmediata de recargar un vehículo institucional y ante la ausencia de otros cargadores disponibles, el funcionario debe retirar de inmediato su vehículo particular del centro de recarga.

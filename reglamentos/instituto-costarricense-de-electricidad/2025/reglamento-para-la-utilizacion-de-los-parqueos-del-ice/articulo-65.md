@@ -1,0 +1,1 @@
+Artículo 65.-Derogatoria. Este documento Reglamento para la utilización de los parqueos del ICE, código E.49.001.2025, versión 5 deroga el Reglamento para la utilización de los parqueos del ICE, código 39.00.001.2006, versión 4.

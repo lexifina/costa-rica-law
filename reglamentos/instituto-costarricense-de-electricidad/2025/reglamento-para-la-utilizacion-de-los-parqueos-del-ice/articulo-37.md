@@ -1,0 +1,1 @@
+Artículo 37.-En los casos en que un vehículo particular sufra daños, hurto, robo dentro de las instalaciones de la institución sin la intervención de otro vehículo, será la División Jurídica la encargada de brindar asesoría y guiar sobre la forma de proceder según la solicitud de criterio que le remita el encargado o administrador del inmueble según corresponda.

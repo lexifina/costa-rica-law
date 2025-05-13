@@ -1,0 +1,1 @@
+Artículo 25.-El N1GI, previa asesoría de la DL, y de conformidad con el presente reglamento, procederá a demarcar, rotular y dar mantenimiento a las zonas de estacionamiento, las zonas de seguridad y los sentidos de circulación en los parqueos de la Institución, con la finalidad de que el N1SE tenga un mejor control de su utilización.

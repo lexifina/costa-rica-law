@@ -1,0 +1,1 @@
+Artículo 38.-La administración del Centro de Formación Infantil del ICE debe brindar al N1SE oportunamente, el padrón de autorización a las instalaciones ICE, para las gestiones respectivas de los menores de edad matriculados en el Centro de Formación Infantil.

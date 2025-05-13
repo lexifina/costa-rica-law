@@ -1,0 +1,1 @@
+Artículo 35.-Los daños causados o costos incurridos a la Institución, como resultado de la culpa o dolo en un incidente dentro de las instalaciones del ICE, deben ser asumidos por el conductor responsable, en casos tales como: pago de grúas, rompimiento de plumas de acceso electrónicas, golpes a paredes, barandas o vehículos institucionales y otros.

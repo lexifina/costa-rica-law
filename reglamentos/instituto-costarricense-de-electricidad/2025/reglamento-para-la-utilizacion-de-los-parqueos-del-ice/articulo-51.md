@@ -1,0 +1,1 @@
+Artículo 51.-En caso de fuerza mayor en que un particular requiera ingresar a las instalaciones ICE a retirar un vehículo de un funcionario, este último debe gestionar de previo ante el personal de seguridad respectivo la autorización correspondiente.

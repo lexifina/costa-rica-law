@@ -1,0 +1,1 @@
+Artículo 43.-Los parqueos que cuentan con cobertizo serán para uso prioritario de vehículos institucionales y aquellos que establezca la GSRE. Le corresponde al N1SE asegurar el cumplimiento de esta disposición, por lo que cualquier incumplimiento o anomalía debe reportarlo para su respectiva tramitación ante el Titular Subordinado del funcionario que transgrede el Reglamento.

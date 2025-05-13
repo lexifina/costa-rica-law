@@ -1,0 +1,1 @@
+Artículo 31.-Las disposiciones indicadas en este reglamento son de acatamiento obligatorio por parte de los funcionarios ICE, por lo que ante cualquier incumplimiento o anomalía se faculta al N1SE a remitir un reporte al Titular Subordinado del funcionario, para que realice los trámites administrativos y procedimientos disciplinarios que correspondan.

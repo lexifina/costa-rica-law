@@ -1,0 +1,1 @@
+Artículo 54.-Los parqueos espacios azules en ningún caso podrán sustituir o reemplazar los dispuestos para las personas con discapacidad, regulados en la Ley N° 7600 de Igualdad de Oportunidades para las Personas con Discapacidad.

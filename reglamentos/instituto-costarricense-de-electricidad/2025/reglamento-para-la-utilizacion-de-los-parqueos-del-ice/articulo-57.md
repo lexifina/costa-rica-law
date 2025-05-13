@@ -1,0 +1,1 @@
+Artículo 57.-El plazo máximo de recarga para estos vehículos particulares en dichos cargadores será de 3 horas; cumplido este plazo debe proceder con el retiro inmediato del vehículo, caso contrario, el personal de seguridad notificará a la jefatura del funcionario para las acciones correctivas o disciplinarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 18.-Es obligatorio que las zonas reservadas para los vehículos institucionales, alquilados del ICE, espacios azules y los de la Ley N° 7600 sean respetados, y que no se permita estacionar vehículos de funcionarios, proveedores, clientes ni de particulares.

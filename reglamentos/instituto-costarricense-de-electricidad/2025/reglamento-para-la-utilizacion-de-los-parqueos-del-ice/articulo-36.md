@@ -1,0 +1,1 @@
+Artículo 36.-El ICE no asumirá ninguna responsabilidad por colisión que ocurra entre vehículos particulares de los funcionarios que estuvieran en alguna zona de estacionamiento institucional, salvo sentencia judicial que lo indique.

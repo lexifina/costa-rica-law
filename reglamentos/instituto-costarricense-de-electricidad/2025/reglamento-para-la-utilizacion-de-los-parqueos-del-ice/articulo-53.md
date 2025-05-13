@@ -1,0 +1,1 @@
+Artículo 53.-Los parqueos espacios azules solo podrán ser utilizados por vehículos que sean considerados como transporte eficiente de conformidad con la Ley N° 9518 de Incentivos y Promoción para el Transporte Eléctrico.

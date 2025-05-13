@@ -1,0 +1,1 @@
+Artículo 28.-La DL será la dependencia responsable de revisar periódicamente las zonas de estacionamiento para verificar el cumplimiento de lo dispuesto en este Reglamento, así como de canalizar ante el N1GI, la necesidad de demarcar espacios nuevos.

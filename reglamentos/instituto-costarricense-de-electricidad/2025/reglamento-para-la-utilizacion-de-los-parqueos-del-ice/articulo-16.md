@@ -1,0 +1,11 @@
+Artículo 16.-Funcionarios
+1. Brindar los datos de identificación (carné de identificación, dependencia donde labora, nombre del Titular Subordinado, números telefónicos solicitados y cualquier otro dato pertinente), cuando personal de seguridad se lo solicite o para el levantamiento y actualización de bases de datos de usuarios de parqueos en instalaciones ICE.
+2. Las personas con discapacidad, para hacer uso los espacios designados de conformidad con la Ley N°7600 de forma permanente, deberán portar: la placa tipo "D" emitida por el MOPT o la certificación o carné emitido por el CONAPDIS. En el caso del documento emitido por la CONAPDIS, se debe colocar de forma visible en el parabrisas del vehículo para la verificación por parte del Oficial de Seguridad u otro interesado, o mostrar el carné al Oficial de Seguridad para su conocimiento.
+3. Las personas que tengan una situación evidente de discapacidad temporal pueden hacer uso de los espacios designados de conformidad con la ley 7600, para ello deben presentar evidencia médica.
+4. Asumir la responsabilidad por el pago de los daños y gastos en que incurra la Administración como resultado del incumplimiento a este reglamento o de una acción dolosa o culposa, según lo descrito en los artículos No 28 y 32 de este Reglamento.
+5. Para el uso de los espacios de parqueo de las instalaciones del ICE, los funcionarios únicamente deben utilizar la identificación institucional (carné), que le ha sido asignado.
+6. Gestionar ante la Administración del Centro de Formación Infantil del Grupo ICE, la respectiva credencial vehicular.
+7. Gestionar ante el área Seguridad Operativa del N1SE, la debida autorización y con suficiente antelación, para aquellos casos que un particular requiera retirar un vehículo de su propiedad de las instalaciones ICE.
+8. Aparcar los vehículos de manera centrada con respecto a la señalización horizontal y en posición de salida.
+9. Estacionar el vehículo hasta que las llantas traseras contacten el tope de piso; y en aquellos casos de ausencia de tope, velar porque el vehículo no obstruya el paso peatonal o vehicular o incluso haga contacto con una barrera.
+10. Acreditar el derecho de uso de los espacios de parqueo de conformidad con la ley N° 7600, ante el personal institucional que corresponda y de conformidad con la documentación requerida.

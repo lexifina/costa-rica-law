@@ -1,0 +1,1 @@
+Artículo 42.-El derecho de uso de los espacios reservados de conformidad con lo establecido en la Ley No. 7600, aplica solo para la persona con discapacidad y no para terceros que conduzcan el automotor en su ausencia.
