@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las disposiciones de esta resolución son de cumplimiento obligatorio para todas las empresas prestadoras del servicio público de GLP, que desempeñen actividades como envasado, almacenamiento, distribución, transporte y comercialización de cilindros en el territorio nacional.

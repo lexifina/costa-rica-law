@@ -1,0 +1,1 @@
+Artículo 10. Presentación de declaraciones y reportes. Las empresas envasadoras de GLP, así como los distribuidores y comercializadores, estarán obligadas a presentar las declaraciones, reportes, solicitudes y demás documentos señalados en esta resolución, a partir de la fecha de su publicación oficial.

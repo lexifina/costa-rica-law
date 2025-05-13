@@ -1,0 +1,2 @@
+Artículo 12. Comunicación a las autoridades competentes. Comuníquese la presente resolución al Ministerio de Ambiente y Energía (MINAE), al Viceministerio de Ambiente y Energía, y a la Dirección General de Transporte y Comercialización de Combustibles, para los fines pertinentes conforme a sus competencias.
+Asimismo, ordénese la comunicación de esta resolución al Ministerio de Salud y a las Áreas Rectoras de Salud en todas las regiones del territorio nacional.

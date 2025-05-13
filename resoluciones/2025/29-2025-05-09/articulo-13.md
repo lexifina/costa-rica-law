@@ -1,0 +1,6 @@
+Artículo 13. Derogatoria de normativa previa. Se deroga la resolución RE-0037-IE-2021, emitida el 8 de junio de 2021, así como cualquier disposición de la ARESEP que contradiga lo establecido en esta resolución.
+II. Tener como respuesta a la posición presentada en la consulta pública celebrada, lo indicado por la Intendencia de Energía en el considerando II de la presente resolución, así como, agradecer al Concejero del Usuario de la Aresep por sus aportes.
+III. Establecer que la presente resolución rige a partir del 1 de julio de 2025
+En cumplimiento de lo que ordenan los artículos 245 y 345 de la Ley General de la Administración Pública (LGAP), se informa que contra esta resolución pueden interponerse los recursos ordinarios de revocatoria y de apelación, y el extraordinario de revisión. Los recursos ordinarios podrán presentarse ante la Intendencia de Energía, de conformidad con los artículos 346 y 349 de la LGAP.
+De acuerdo con el artículo 346 de la LGPA., los recursos de revocatoria y de apelación deberán interponerse en el plazo de tres días hábiles contado a partir del día hábil siguiente al de la notificación y, el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de dicha ley.
+PUBLÍQUESE Y NOTIFÍQUESE
