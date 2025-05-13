@@ -1,0 +1,1 @@
+TRANSITORIO III. Las renovaciones de registro sanitario de productos de interés sanitario que se tramiten después de la entrada en vigencia del presente reglamento deben cumplir con las condiciones establecidas en los numerales 7.4, 7.5, 7.6, 7.7, 7.8, 7.10, 8.4, y el artículo 3, según el tipo de producto.
