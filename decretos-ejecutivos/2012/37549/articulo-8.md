@@ -1,3 +1,0 @@
-CAPÍTULO II
-Prohibiciones y otras disposiciones
-Artículo 8º—Queda totalmente prohibido la instalación de programas de cómputo que no cuenten con la respectiva licencia de uso legal en ninguna oficina del Gobierno Central e instituciones adscritas. Los programas solamente podrán ser instalados por el experto en informática autorizado o por quien este determine para el buen desempeño de las funciones designadas. Cualquier violación a las normas de derechos de autor por parte de los funcionarios de los Ministerios e Instituciones adscritas al Gobierno Central, se procederá con la apertura del debido proceso con el fin de aplicar la sanción de carácter administrativo disciplinario que corresponda.
