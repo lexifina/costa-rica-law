@@ -7,3 +7,5 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44936 del 12 de marzo de 2025)
 (Modificado por el artículo 3° del decreto ejecutivo N° 44936 del 12 de marzo de 2025)
 (Modificado por el artículo 4° del decreto ejecutivo N° 44936 del 12 de marzo de 2025)
+(Modificado por el artículo 1° del decreto ejecutivo N° 44984 del 12 de mayo de 2025)
+(Modificado por el artículo 3° del decreto ejecutivo N° 44984 del 12 de mayo de 2025)
