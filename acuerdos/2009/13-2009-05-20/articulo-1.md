@@ -475,8 +475,9 @@ Capacitación en el uso y manejo de paquetes de cómputo.
 Experiencia mínima de dos años en labores relacionadas con el cargo o el área de actividad.
 TRABAJADOR ESPECIALIZADO (niveles 1, 2)
 Objetivo del trabajo: Comprometerse responsablemente con el desarrollo de actividades de carácter rutinario, en la Asamblea Legislativa, que ameritan la aplicación de conocimientos específicos de un determinado oficio y experiencia específica.
-Ubicación:
-Los puestos y cargos contemplados en esta clase se ubican en los departamentos: Proveeduría, Servicios Generales, Relaciones Públicas, Prensa y Protocolo y Servicios Parlamentarios.
+(*)Ubicación:
+Los puestos y cargos contemplados en esta clase se ubican en los departamentos: Proveeduría, Servicios Generales, Prensa Institucional, Protocolo, Servicios Parlamentarios u otro Departamento.
+(*)(Así reformado el párrafo anterior mediante sesión ordinaria N° 136-2025 del 14 de mayo del 2025)
 Actividades generales:
 Ejecución de labores específicas en los departamentos de la Asamblea Legislativa.
 ACTIVIDADES ESPECÍFICAS:
@@ -506,14 +507,18 @@ RADIO OPERADOR: Transmitir información en programas radiales; mensajes a los ag
 Transmitir, por medio de enlaces, las sesiones del Plenario o las comisiones plenas; mantener el control sobre la calidad del sonido; colaborar con los diputados, jefes departamentales, de sección o coordinadores de área los mensajes de actividades.
 Llevar control de los móviles; confeccionar un informe sobre lo acontecido en el día; colaborar en la reparación y limpieza del equipo.
 Realizar otras funciones relacionadas con el cargo.
-PROVEEDURÍA Y BODEGA: Realizar labores de adquisición y suministro de bienes y servicios.
-Controlar el ingreso y la distribución de mercaderías y velar por el buen estado de los materiales y equipos en bodega.
-Confeccionar solicitudes de mercancías de acuerdo con las facturas proformas y realizar los trámites institucionales e interinstitucionales sobre las solicitudes de mercadería y órdenes de compra.
-Custodiar la documentación de contrataciones y velar por la distribución y acomodo de las mercaderías y equipos.
-Realizar inventarios y colocarles la placa distintiva a los equipos antes de que se entreguen a los destinatarios.
-Confeccionar y archivar las solicitudes de adquisiciones y hacer cuadros comparativos de las adquisiciones.
-Realizar trámites de exoneración y desalmacenaje.
-Realizar otras funciones relacionadas con el cargo.
+(*) PROVEEDURÍA, BODEGA Y TRÁMITES ADMINISTRATIVOS:
+. Realizar labores de adquisición y suministro de bienes y servicios.
+. Controlar el ingreso y la distribución de mercaderías y velar por el buen estado de los materiales y equipos en bodega.
+. Confeccionar solicitudes de mercancías de acuerdo con las facturas proformas y realizar los trámites institucionales e interinstitucionales sobre las solicitudes de mercadería y órdenes de compra.
+. Custodiar documentación interna o externa, de contrataciones u otro tipo y velar por la distribución y acomodo de las mercaderías, equipos y documentos.
+. Realizar inventarios y colocarles la placa distintiva a los equipos antes de que se entreguen a los destinatarios.
+. Confeccionar y archivar las solicitudes de adquisiciones y hacer cuadros comparativos de las adquisiciones.
+. Realizar trámites de exoneración y desalmacenaje.
+. Trámite y clasificación de correspondencia física y digital.
+. Escaneo y digitalización de documentación interna o externa.
+. Realizar otras funciones relacionadas con el cargo.
+(*)(Así reformada la actividad anterior mediante sesión ordinaria N° 136-2025 del 14 de mayo del 2025)
 TÉCNICO EN GRABACIÓN Y SONIDO: Ejecutar labores de instalación de equipo de sonido en el salón del Plenario legislativo y grabación de tractos o respaldos de las sesiones del Plenario, utilizando los medios disponibles.
 Grabar sesiones, seminarios, conferencias y colaborar en el control de asistencia de los diputados a las sesiones del Plenario y coordinar con el Departamento Financiero lo correspondiente.
 Brindar un adecuado uso y mantenimiento a los respaldos efectuados de las diferentes sesiones de los diputados; colaborar en el control del tiempo de uso de la palabra de los diputados, rompimiento del quórum o recesos en el salón de sesiones.
@@ -527,10 +532,12 @@ Por equipo, materiales y valores
 Es responsable por el adecuado empleo y conservación del equipo, los materiales, las herramientas y la maquinaria que se le asigne y, si es del caso, por la custodia y el mantenimiento de documentación o materiales asignados.
 Por relaciones de trabajo
 En el desempeño de los cargos se establecen relaciones en razón del servicio que se brinda, motivo por el cual debe observarse responsabilidad, tacto, discreción y respeto.
-CONDICIONES DE TRABAJO
+(*) CONDICIONES DE TRABAJO
 Las actividades que caracterizan estos puestos pueden exponer a sus ocupantes a las inclemencias del tiempo, contacto con sustancias tóxicas, ruido excesivo, polvo, fatiga y adopción de posiciones incómodas entre otros, por lo cual requieren una excelente condición física.
 La actividad implica diversos grados de riesgo físico, los funcionarios que los ocupen están expuestos a posibles accidentes laborales por los materiales y las condiciones propias de la labor que desempeñan. Esto implica la observancia ineludible de normas de seguridad e higiene y exige la realización de las labores con sumo cuidado y en forma oportuna.
 Pueden ocurrir intoxicaciones, producirse disminución en la capacidad auditiva y caídas graves, entre otros. En la ejecución de las actividades es indispensable la disposición para trabajar sin límite de horario cuando las circunstancias lo ameriten, o bien, en jornadas diurnas, nocturnas o mixtas.
+Además, dichas labores se pueden ejecutar en un entorno de oficina.
+(*)(Así reformado el párrafo anterior mediante sesión ordinaria N° 136-2025 del 14 de mayo del 2025)
 CONSECUENCIAS DEL ERROR
 Los errores cometidos son corregibles en las diferentes etapas del proceso. No obstante, estos pueden ocasionar pérdidas económicas y atrasos en el trabajo propio y de otros, lo que repercute en el servicio brindado a la Institución y por la Institución. Una incorrecta ejecución de actividades puede causar daños a la integridad física del funcionario ejecutor y a la de otras personas.
 CARACTERÍSTICAS PERSONALES
@@ -1509,8 +1516,7 @@ institución en coordinación con el Gerente de Desarrollo Estratégico Instituc
 Gestionar la reubicación, de forma temporal, al personal de los departamentos, según lo demande la carga de trabajo de cada uno de ellos, así como supervisar los movimientos interdepartamentales del personal, de común acuerdo con las gerencias de cada departamento.
 Realizar estudios periódicos de evaluación sobre el cumplimiento de los objetivos de la gestión institucional; así como formular anualmente y en colaboración con los Gerentes de Departamento el presupuesto y los planes de trabajo.
 Coordinar con el personal subalterno el cumplimiento de la normativa jurídica que rige el ámbito de su competencia. Mantener controles permanentes sobre el cumplimiento de los planes y los programas institucionales.
-Brindar asesoría y apoyo al Directorio legislativo en materia de gestión administrativa institucional, de
-acuerdo con el ordenamiento jurídico.
+Brindar asesoría y apoyo al Directorio legislativo en materia de gestión administrativa institucional, de acuerdo con el ordenamiento jurídico.
 Asistir a las sesiones del Directorio legislativo con derecho a voz, pero no de voto, cuando la naturaleza de los asuntos que se conozcan así lo requieran.
 Velar porque las instancias correspondientes brinden la adecuada atención a las necesidades institucionales.
 Establecer mecanismos para simplificar, sistematizar y automatizar los procedimientos de la gestión administrativa de la Asamblea Legislativa.
