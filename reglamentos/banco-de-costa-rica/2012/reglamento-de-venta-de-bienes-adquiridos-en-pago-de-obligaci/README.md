@@ -20,3 +20,4 @@ Reglamento de Venta de Bienes Adquiridos en Pago de Obligaciones
 | 5 | 2023-01-05 | Reglamento 5 (2023-01-05) |
 | 6 | 2023-10-02 | Reglamento 34 (2023-10-02) |
 | 7 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
+| 8 | 2025-05-14 | Reglamento 24 (2025-05-14) |
