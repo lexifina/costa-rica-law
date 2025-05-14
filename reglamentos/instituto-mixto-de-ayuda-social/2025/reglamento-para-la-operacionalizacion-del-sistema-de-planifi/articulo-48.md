@@ -1,0 +1,1 @@
+Artículo 48.-De la regulación y gobernanza del Control Interno. Todo lo concerniente con el Sistema de Control Interno, así como su gobernanza estará regulado en un reglamento específico en la materia.

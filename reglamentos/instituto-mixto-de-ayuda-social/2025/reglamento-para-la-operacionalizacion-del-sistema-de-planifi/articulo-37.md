@@ -1,0 +1,1 @@
+Artículo 37.-Alcance del Subsistema de Seguimiento y Evaluación. Se deberá dar seguimiento y realizar la evaluación de las metas contenidas en el PEI, POI y POGE, así como a todos aquellos instrumentos de planificación en los que la institución tenga compromisos en su cumplimento. También compete el seguimiento de la calidad de los servicios prestados.

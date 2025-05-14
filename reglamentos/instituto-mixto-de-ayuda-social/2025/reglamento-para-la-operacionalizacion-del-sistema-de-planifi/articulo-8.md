@@ -1,0 +1,4 @@
+Artículo 8º-De los ámbitos del Sistema de Planificación. El Sistema de Planificación en el IMAS tiene como alcance tres ámbitos de carácter jerárquico asociados a sus competencias y acciones, acordes con su estructura orgánica, estos son:
+a) Estratégico o político: Corresponde a la conducción de la institución. Está compuesto por el Consejo Directivo, Presidencia Ejecutiva y Gerencia Gerencial.
+b) Funcional Directivo: constituye el mando medio de la dirección institucional, le compete la coordinación de las acciones de las diferentes Áreas temáticas de la organización y de la trasmisión y desagregación de las directrices emanadas del nivel estratégico. Está integrado por las tres direcciones de la institución.
+c) Operativo: le corresponde el accionar operativo institucional, para el logro de sus objetivos y metas. Está comprendido por los departamentos y diferentes Unidades del nivel operativo institucional.

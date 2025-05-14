@@ -1,0 +1,1 @@
+Artículo 44.-Recepción de información y elaboración de informes. Una vez recibida la información solicitada a las unidades, se deberá revisar, procesar y analizar, para proceder con la elaboración de los informes correspondientes, en tiempo, forma y calidad requerida.

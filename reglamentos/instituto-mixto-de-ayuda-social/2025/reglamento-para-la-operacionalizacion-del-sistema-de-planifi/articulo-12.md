@@ -1,0 +1,5 @@
+Artículo 12.-Funciones de la Gerencia General. Es la máxima autoridad administrativa. Le corresponde el cumplimiento de los resultados que se obtengan en los distintos ámbitos de la institución, ya sean éstos de carácter estratégico u operativo se ubica en el ámbito estratégico, bajo la coordinación de la Presidencia Ejecutiva. En el Sistema de Planificación tendrá las siguientes funciones:
+a) Constituir el medio de enlace entre la Presidencia Ejecutiva y las Direcciones, los Departamentos y las Unidades Administrativas que las conforman, asumiendo la competencia de velar por la ejecución de las políticas, planes, programas y proyectos institucionales.
+b) Presentar el informe de labores trimestral de cada Dirección y demás dependencias al Consejo Directivo.
+c) Emitir las directrices para el inicio de los procesos de formulación, seguimiento y evaluación de los planes, programas y proyectos institucionales.
+d) Asesor a la Presidencia Ejecutiva sobre las medidas preventivas y correctivas que se considera necesario tomar, producto del seguimiento y la evaluación del cumplimiento de los planes, programas y proyectos institucionales.

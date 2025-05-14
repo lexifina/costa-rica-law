@@ -1,0 +1,1 @@
+Artículo 43.-Solicitud de información para el seguimiento y evaluación. Le corresponde a la Unidad de Planificación Institucional solicitar a las unidades los datos e información sobre la ejecución de los diferentes planes, programas y proyectos, estas deberán suministrar dicha información en el plazo establecido por la Unidad de Planificación Institucional.

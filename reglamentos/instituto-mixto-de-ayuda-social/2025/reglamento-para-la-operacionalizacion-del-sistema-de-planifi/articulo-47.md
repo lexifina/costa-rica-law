@@ -1,0 +1,1 @@
+Artículo 47.-Alcance del Control Interno en los instrumentos del Sistema de Planificación. Tanto las políticas, planes, programas, proyectos y demás instrumentos de planificación que forman parte del sistema de planificación deben ser sujetos a los procesos de control interno, con la finalidad de un efectivo cumplimiento de los objetivos.

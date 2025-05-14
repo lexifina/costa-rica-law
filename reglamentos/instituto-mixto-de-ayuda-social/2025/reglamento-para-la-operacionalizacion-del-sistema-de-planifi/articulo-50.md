@@ -1,0 +1,1 @@
+Artículo 50.-Toma de decisiones sobre los resultados. Es competencia del Consejo Directivo, Gerencia General y Direcciones, establecer acciones correctivas o preventivas sobre los resultados del seguimiento y las diferentes evaluaciones. Les corresponde a las unidades acatar y cumplir con dichas disposiciones.
