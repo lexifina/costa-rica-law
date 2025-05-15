@@ -4,7 +4,7 @@ La aprobación del "Manual de Atinencias y Especialidades Docentes", mediante Ac
 El manual anterior rige a partir de su publicación.
 El Manual de Atinencias y Especialidades Docentes, en su versión completa y actualizada, se encuentra disponible en el portal electrónico de la Universidad Técnica Nacional www. utn.ac.cr, sección "Normativa Universitaria".
 (Nota de Sinalevi: El presente Manual de Atinencias y Especialidades Docentes fue proporcionado por la Universidad Técnica Nacional y se transcribe a continuación:)
-(Nota de Sinalevi: El presente manual fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria N° 38-2024 del 6 de diciembre del 2024, publicada en La Gaceta N° 6 del 13 de enero del 2025 y se transcribe a continuación:)
+(Nota de Sinalevi: El presente manual fue reformado parcialmente y reproducido su texto de forma íntegra mediante Sesión Ordinaria N° 12-2025 del 15 de mayo de 2025, publicada en La Gaceta N° 102 del 5 de junio del 2025 y se transcribe a continuación:)
 MANUAL DE ATINENCIAS Y ESPECIALIDADES DOCENTES
 Aprobado por el Consejo Universitario en la Sesión ordinaria 28-2018 del 19 de diciembre de 2018, mediante acuerdo 8-28-2018.
 Reformado mediante Acuerdos 7-9-2019, 7-10-2019, 8-10-2020, 7-11-2020, 7-12-2020, 14-13-2020 y 24-20-2020 tomados por el Consejo Universitario.
@@ -20,8 +20,7 @@ Ordinaria No. 12-2023, celebrada el jueves 25 de mayo de 2023, a las nueve horas
 Reformado mediante acuerdo 11 tomado por el Consejo Universitario en la
 Sesión Ordinaria No. 32-2023, celebrada el jueves 07 de diciembre de 2023, a las nueve horas, según el Artículo 21 del Capítulo X. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 8 del miércoles 17 de enero del 2024.
 Reformado mediante Acuerdo 9- 2- 2024, tomado por el Consejo
-Universitario en la Sesión Ordinaria No. 2-2024, Artículo 23, celebrada el jueves 25 de enero de 2024, publicado en el diario oficial La Gaceta número
-95 del martes 28 de mayo del 2024. "Reforma tanto en el apartado de atinencias de la carrera de Ingeniería del Software (ISW) como de las
+Universitario en la Sesión Ordinaria No. 2-2024, Artículo 23, celebrada el jueves 25 de enero de 2024, publicado en el diario oficial La Gaceta número 95 del martes 28 de mayo del 2024. "Reforma tanto en el apartado de atinencias de la carrera de Ingeniería del Software (ISW) como de las
 atinencias de apartado de la carrera de Ingeniería en Salud Ocupacional y Ambiente (ISOA) del "Manual de Atinencias y Especialidades Docentes de la
 Universidad Técnica"
 Reformado mediante Acuerdo 13 tomado por el Consejo Universitario en la
@@ -32,6 +31,8 @@ Reformado mediante Acuerdo 16 tomado por el Consejo Universitario en la
 Sesión Ordinaria No. 15-2024, celebrada el jueves 16 de mayo de 2024, a las ocho horas con treinta minutos, según el Artículo 23 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024.
 Reformado mediante Acuerdo 10 tomado por el Consejo Universitario en la
 Sesión Ordinaria No. 38-2024, celebrada el viernes 06 de diciembre de 2024, a las ocho horas con treinta minutos, según el Artículo 18 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 6 del lunes 13 de enero del 2025.
+Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la
+Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025.
 Presentación
 El presente Manual es un instrumento de consulta, en el que se incluyen las atinencias de las disciplinas o especialidades atinentes a los cursos que conforman las estructuras curriculares de las diferentes carreras y áreas de servicios de la Universidad Técnica Nacional. La información provista pretende servir como insumo en los procesos de contratación del personal académico, mismo que requiere del análisis de las ofertas de servicios y atestados de las personas interesadas en incorporarse a la Universidad.
 En el documento, se compila el trabajo realizado por las Direcciones de las carreras y coordinaciones de áreas de servicios, quienes con sus equipos de trabajo llevaron a cabo una labor de identificación y correlación de las especialidades que son atinentes a los diferentes cursos que se imparten en cada carrera.
@@ -40,7 +41,7 @@ Nota técnica
 Es importante destacar que el contenido de este manual no constituye un instrumento rígido, puesto que las especialidades, a nivel nacional e internacional, son muy variadas y existe la posibilidad de no haber contemplado alguna al momento de la elaboración de este instrumento.
 Asimismo, en caso que surjan dudas sobre especialidades no contempladas en este documento, es posible tomar en cuenta la experiencia comprobada como un elemento sustantivo para determinar la atinencia en la especialidad requerida y se debe proceder a remitir la consulta a la Coordinación General de Carrera, a la Dirección de Carrera o a la Coordinación de Áreas de Servicio según corresponda, mediante el procedimiento que para este efecto defina la Vicerrectoría de Docencia.
 Por otro lado, al ser la actualización definitiva del Manual una competencia del Consejo Universitario, se hace necesario remitir la justificación técnica para la inclusión de la nueva especialidad a dicho órgano para su ratificación, sin demérito de que se haya actuado de previo, conforme al criterio técnico del órgano académico correspondiente para no entorpecer ni retrasar los procesos de contratación del personal docente.
-Indice
+Índice
 Contenido
 Presentación 3
 Nota técnica 4
@@ -55,39 +56,36 @@ Guía de turismo y Gestión ecoturística 86
 Administración y gestión de recursos humanos 106
 Asistencia administrativa 116
 Comercio exterior 121
-Contabilidad y finanzas /Contaduría Pública 132
-Gestión y administración empresarial 152
-Enseñanza de la especialidad técnica / Mediación pedagógica 171
-Diseño gráfico 175
-Inglés como lengua extranjera 185
-Tecnología de la imagen 189
-Ingeniería eléctrica 196
-Ingeniería electromecánica 211
-Ingeniería electrónica 224
-Ingeniería en procesos y calidad 240
-Ingeniería en producción industrial 247
-Ingeniería del software 254
-Ingeniería en tecnologías de información 267
-Ingeniería en gestión ambiental 283
-Ingeniería en tecnología de alimentos 301
-Ingeniería en manejo del recurso hídrico 319
-Ingeniería en salud ocupacional y ambiente 328
-Asistencia veterinaria 337
-Ingeniería en agricultura integrada bajo riego con énfasis en riego y drenaje 351
-Ingeniería en Ciencias forestales y vida silvestre 364
-Ingeniería en sistemas de producción animal 378
-Administración Agroindustrial (Diplomado) 390
-Ciencias básicas 400
-Área de formación humanística 410
-Área cultural y deportiva 414
+Contabilidad y finanzas /Contaduría Pública 133
+Gestión y administración empresarial 179
+Enseñanza de la especialidad técnica / Mediación pedagógica 198
+Diseño gráfico 202
+Inglés como lengua extranjera 212
+Tecnología de la imagen 216
+Ingeniería eléctrica 223
+Ingeniería electromecánica 238
+Ingeniería electrónica 251
+Ingeniería en procesos y calidad 267
+Ingeniería en producción industrial 274
+Ingeniería del software 281
+Ingeniería en tecnologías de información 296
+Ingeniería en gestión ambiental 310
+Ingeniería en tecnología de alimentos 328
+Ingeniería en manejo del recurso hídrico 346
+Ingeniería en salud ocupacional y ambiente 355
+Asistencia veterinaria 364
+Ingeniería en agricultura integrada bajo riego con énfasis en riego y drenaje 378
+Ingeniería en Ciencias forestales y vida silvestre 391
+Ingeniería en sistemas de producción animal 405
+Administración Agroindustrial (Diplomado) 417
+Ciencias básicas 427
+Área de formación humanística 437
+Área cultural y deportiva 441
 Administración aduanera
 Propósito de la carrera
 La carrera de Administración Aduanera tiene como propósito formar a estudiantes que intervienen en las operaciones y trámites aduaneros, producto de las exportaciones e importaciones de bienes y servicios, conforme a los acuerdos comerciales vigentes, cambios tecnológicos, jurídicos, políticos, económicos y sociales.
 Cursos que conforman la carrera
-Recursos Informáticos; Matemática General; Métodos de Investigación; Introducción al Sistema Aduanero; Arancel Aduanero; Estadística Descriptiva e Inferencial; Microeconomía; Principios del Comercio Internacional; Introducción al Derecho y
-Derecho Aduanero; Principios de Administración; Merceología I, II, III, y IV; Inglés I,
-II, III, IV, V Y VI; Regímenes y Procedimientos aduaneros I y II; Valor Aduanero I y
-Valor II; Contabilidad Básica; Laboratorio Tecnológico; Mercadeo Internacional; Logística Internacional; Formación Humanística; Normas de Origen; Área Deportiva y Área Cultural; Gestión del Riesgo Aduanero; Derecho Administrativo y Tributario; Auditoría de Sistemas; Macroeconomía; Procesos de Verificación y Fiscalización; Negociaciones Comerciales; Taller de Desarrollo Humano; Organismos de Cooperación Internacional; Práctica Profesional; Administración de Puertos; Gerencia de Recursos Humanos; Análisis y Gestión Financiera Empresarial; Gerencia y Negociación Aduanera; Aduana Verde; Gerencia de Proyectos; Economía Internacional; Taller de Investigación; Planeamiento Estratégico; Ética Profesional para la Gestión Aduanera; Administración de Acuerdos Internacionales.
+Recursos Informáticos; Matemática General; Métodos de Investigación; Introducción al Sistema Aduanero; Arancel Aduanero; Estadística Descriptiva e Inferencial; Microeconomía; Principios del Comercio Internacional; Introducción al Derecho y Derecho Aduanero; Principios de Administración; Merceología I, II, III, y IV; Inglés I, II, III, IV, V Y VI; Regímenes y Procedimientos aduaneros I y II; Valor Aduanero I y Valor II; Contabilidad Básica; Laboratorio Tecnológico; Mercadeo Internacional; Logística Internacional; Formación Humanística; Normas de Origen; Área Deportiva y Área Cultural; Gestión del Riesgo Aduanero; Derecho Administrativo y Tributario; Auditoría de Sistemas; Macroeconomía; Procesos de Verificación y Fiscalización; Negociaciones Comerciales; Taller de Desarrollo Humano; Organismos de Cooperación Internacional; Práctica Profesional; Administración de Puertos; Gerencia de Recursos Humanos; Análisis y Gestión Financiera Empresarial; Gerencia y Negociación Aduanera; Aduana Verde; Gerencia de Proyectos; Economía Internacional; Taller de Investigación; Planeamiento Estratégico; Ética Profesional para la Gestión Aduanera; Administración de Acuerdos Internacionales.
 Atinencias para los cursos de recursos informáticos, laboratorio tecnológico:
 1. Ciencias de la Computación
 2. Ciencias de la Computación con énfasis en Administración Informática
@@ -144,7 +142,8 @@ Atinencias para los cursos de recursos informáticos, laboratorio tecnológico:
 53. Sistemas Computacionales
 54. Sistemas de Computación
 55. Sistemas de Información
-56. Sistemas de Información con énfasis en Gestión de Proyectos Informatices 57. Sistemas Informatices
+56. Sistemas de Información con énfasis en Gestión de Proyectos Informatices
+57. Sistemas Informatices
 58. Tecnología Estratégicas de Información y Comunicación
 59. Telemática Nota Técnica:
 El curso de Laboratorio Tecnológico, se asignará a un especialista del área de Administración de Aduanas o de Comercio Internacional, por ser un curso puntual de especialidad.
@@ -512,9 +511,7 @@ Administración de compras y control de inventarios
 Propósito de la carrera
 El propósito de las carrera es formar profesionales capaces de responder a las nuevas tendencias de las necesidades del mercado laboral con una visión integral del área administrativa de las compras y control de inventarios; con los conocimiento necesarios, las herramientas, las técnicas, los métodos, los procedimientos, con capacidades y destrezas para desarrollar de manera efectiva las funciones y tareas en el campo de trabajo que se desempeña; en concordancia con los cambios que se dan en los campos económico, social, cultural, científico y tecnológico.
 Cursos que conforman la carrera
-Introducción al Aprovisionamiento; Recursos Informáticos; Matemática General; Métodos de Investigación; Sistema de Compras; Principios de Administración; Estadística Descriptiva; Inglés Técnico I y II; Sistema de Compras Internacionales; Gestión de Calidad I y II; Regulaciones Legales I y II; Contratación y Compra Pública;
-Técnicas de Almacenaje; Contabilidad básica; Economía I y II; Control de Inventarios; Medios de Transporte y Seguros; Matemática Financiera; Introducción a la
-Administración de Recursos Humanos; Programación de Inventarios; Presupuesto; Procedimientos Aduaneros I y II; Formación Humanística; Área Cultural y Área Deportiva; Gestión de Almacenamiento; Estrategia Logística; Cadena de Abastecimiento; Regulaciones en el Comercio Exterior; Anteproyecto; Comercio Electrónico; Contratación Administrativa Aplicada; Ética Profesional; Práctica Profesional; Logística Global; Gestión de Transporte y Distribución; Gerencia de Negocios Sustentables; Finanzas para Logística y Gestión del Riesgo; Administración Estratégica de Negocios; Estrategias de Negociación Logística; Inteligencia de Mercados; Gerencia por Categorías; Investigación de Operaciones; Formulación y Evaluación de Proyectos; Opción de Graduación, Mercadeo Internacional.
+Introducción al Aprovisionamiento; Recursos Informáticos; Matemática General; Métodos de Investigación; Sistema de Compras; Principios de Administración; Estadística Descriptiva; Inglés Técnico I y II; Sistema de Compras Internacionales; Gestión de Calidad I y II; Regulaciones Legales I y II; Contratación y Compra Pública; Técnicas de Almacenaje; Contabilidad básica; Economía I y II; Control de Inventarios; Medios de Transporte y Seguros; Matemática Financiera; Introducción a la Administración de Recursos Humanos; Programación de Inventarios; Presupuesto; Procedimientos Aduaneros I y II; Formación Humanística; Área Cultural y Área Deportiva; Gestión de Almacenamiento; Estrategia Logística; Cadena de Abastecimiento; Regulaciones en el Comercio Exterior; Anteproyecto; Comercio Electrónico; Contratación Administrativa Aplicada; Ética Profesional; Práctica Profesional; Logística Global; Gestión de Transporte y Distribución; Gerencia de Negocios Sustentables; Finanzas para Logística y Gestión del Riesgo; Administración Estratégica de Negocios; Estrategias de Negociación Logística; Inteligencia de Mercados; Gerencia por Categorías; Investigación de Operaciones; Formulación y Evaluación de Proyectos; Opción de Graduación, Mercadeo Internacional.
 Atinencias para el curso introducción al aprovisionamiento, cadena de abastecimiento, gestión de almacenamiento, técnicas de almacenaje, contratación administrativa aplicada, programación de inventarios y control de inventarios, sistema de compras, sistema de compras internacionales, contratación y compra pública, estrategia logística; logística global; estrategias de negociación logística, medios de transporte y seguros; gestión de transporte y distribución.
 1. Administración
 2. Administración Aduanera
@@ -950,10 +947,9 @@ Gestión de empresas de hospedaje y gastronómicas con salida lateral en adminis
 Propósito de la carrera
 La Carrera Gestión de Empresas de Hospedaje y Gastronómicas, con salida lateral al diplomado en Administración en Servicios de Alimentos y Bebidas, tienen como propósito formar profesionales en la gestión en servicios de hospedaje y alimentos y bebidas, capaces de utilizar las herramientas gerenciales, financieras, legales, en la gestión de las organizaciones turísticas, con altos valores éticos, morales, ecológicos, cívicos que promuevan el desarrollo de proyectos innovadores, creativos fundamentados en los principios de sostenibilidad social, ambiental y económica.
 Cursos que conforman la carrera administración en servicios de alimentos y bebidas
-Inglés Introductorio I, II, III; Inglés Técnico IV, V, VI para A Y B; Introducción al Turismo; Recursos Informáticos; Relaciones Humanas; Servicio al Cliente; Seguridad y Primeros Auxilios; Principios de Administración; Estadística Descriptiva; Administración en Servicios de A y B; Higiene y Sanidad; Matemática General; Uso y Mantenimiento de Equipo; Contabilidad Básica; Gastronomía I y II; Nutrición Dietética; Contabilidad de Costos de A y B; Matemática Financiera; Diseño de Menús; Operación de Servicios de A y B; Preparación de Bebidas I y II; Etiqueta y Protocolo; Banquetes y Eventos Especiales; Formación Humanística; Legislación Laboral; Estadística II; Economía General; Cocina Internacional; Área Deportiva y Área Cultural; Marketing de Hospedaje y Gastronómico; Finanzas I; Gestión en la Operación de Empresas de Hospedaje y Gastronómicas; Enología y Barismo; Gestión de la Calidad en Empresas de Hospedaje y Gastronómicas; Creatividad
-Corporativa; Nuevas Tecnologías Aplicadas a los Establecimientos Turísticos;
-Liderazgo Empresarial; Formulación y Evaluación de Proyectos Turísticos Sostenibles; Práctica Profesional; Presupuesto para Empresas de Hospedaje y Gastronómicas; Gastronomía Sostenible; Ferias, Congresos y Convenciones; Expresión Oral Técnica I, II y III; Investigación de Mercados para Empresas de Hospedaje y Gastronómicas; Proyectos de Inversión; Tendencias Actuales de la Panificación; Elementos De Arquitectura en Empresas de Hospedaje y
-Gastronómicas; Taller de Investigación; Auditoría para Empresas de Hospedaje y Gastronómicas; Gestión del Talento Humano, Gerencia de Hospedaje y Gastronómica; Opción de Graduación.
+Inglés Introductorio I, II, III; Inglés Técnico IV, V, VI para A Y B; Introducción al Turismo; Recursos Informáticos; Relaciones Humanas; Servicio al Cliente; Seguridad y Primeros Auxilios; Principios de Administración; Estadística Descriptiva; Administración en Servicios de A y B; Higiene y Sanidad; Matemática General; Uso y Mantenimiento de Equipo; Contabilidad Básica; Gastronomía I y II; Nutrición Dietética; Contabilidad de Costos de A y B; Matemática Financiera; Diseño de Menús; Operación de Servicios de A y B; Preparación de Bebidas I y II; Etiqueta y Protocolo; Banquetes y Eventos Especiales; Formación Humanística; Legislación Laboral; Estadística II; Economía General; Cocina Internacional; Área Deportiva y Área Cultural; Marketing de Hospedaje y Gastronómico; Finanzas I; Gestión en la
+Operación de Empresas de Hospedaje y Gastronómicas; Enología y Barismo;
+Gestión de la Calidad en Empresas de Hospedaje y Gastronómicas; Creatividad Corporativa; Nuevas Tecnologías Aplicadas a los Establecimientos Turísticos; Liderazgo Empresarial; Formulación y Evaluación de Proyectos Turísticos Sostenibles; Práctica Profesional; Presupuesto para Empresas de Hospedaje y Gastronómicas; Gastronomía Sostenible; Ferias, Congresos y Convenciones; Expresión Oral Técnica I, II y III; Investigación de Mercados para Empresas de Hospedaje y Gastronómicas; Proyectos de Inversión; Tendencias Actuales de la Panificación; Elementos De Arquitectura en Empresas de Hospedaje y Gastronómicas; Taller de Investigación; Auditoría para Empresas de Hospedaje y Gastronómicas; Gestión del Talento Humano, Gerencia de Hospedaje y Gastronómica; Opción de Graduación.
 Atinencias para los cursos inglés introductorio I, II y III, inglés técnico IV, V y
 VI para a y b; expresión oral en inglés I, II y III
 1. Enseñanza de Inglés
@@ -1613,10 +1609,12 @@ Gestión del turismo rural y Gestión ecoturística
 Propósito de la carrera
 El propósito fundamental de esta carrera es formar profesionales en este campo, capaces de satisfacer las necesidades del sector empresarial, a partir del desarrollo de destrezas, habilidades y valores propios de su área de especialización, que le permitan ejecutar diversas actividades y tareas, basadas en los principios de la sostenibilidad y con una visión crítica y analítica de su entorno mediato e inmediato. Además que el profesional desarrolle la capacidad de organizar, dirigir y evaluar diversas acciones propias del sector turístico, generando procesos de gestión enmarcados en los más altos estándares de calidad y aplicando las nuevas tecnologías a dichos procesos.
 Cursos que conforman la carrera
-Inglés Integrado para Turismo I, II, III, IV; Ingles Conversacional I y II; Principios de Ecología Tropical; Recurso Turístico; Geografía Turística; Gestión del Talento Humano para el Turismo; Recursos Informáticos; Flora Silvestre de Costa Rica
-Primeros Auxilios y RCP; Historia de Costa Rica; Fauna Silvestre de Costa Rica;
-Fauna Silvestre de Costa Rica; Historia Natural de Costa Rica; Legislación Turística; Principios de Ecología Tropical; Ética Profesional en Turismo; Formación Humanística; Administración General; Contabilidad I; Contabilidad Gerencial; Principios de ordenamiento Territorial; Estadística Descriptiva; Área Deportiva y Cultural; Administración de Capital Humano; Gestión Ambiental Aplicada al Turismo; Estrategia Empresarial; Gestión de Espacios Naturales y Eco Turísticos; Gestión del Turismo Rural; Marketing de Productos Turísticos; Gestión de la Calidad de Empresas Turísticas; Formulación y evaluación de proyectos turísticos; Práctica
-Profesional; Métodos y Técnicas de Investigación; Programación y Operación de Tours; Principios de Gestión Administrativa; Contabilidad Gerencial Turística; Sostenibilidad Ambiental; Economía para Turismo; Seminario de Turismo Rural; Evaluación del Impacto Ambiental; Mercadotecnia Turística; Formulación y Evaluación de Proyectos Turísticos Rurales; Innovación Tecnológica para el Turismo; Gestión de Empresas Turísticas.
+Inglés Integrado para Turismo I, II, III, IV; Ingles Conversacional I y II; Principios de Ecología Tropical; Recurso Turístico; Geografía Turística; Gestión del Talento Humano para el Turismo; Recursos Informáticos; Flora Silvestre de Costa Rica Primeros Auxilios y RCP; Historia de Costa Rica; Fauna Silvestre de Costa Rica;
+Fauna Silvestre de Costa Rica; Historia Natural de Costa Rica; Legislación Turística; Principios de Ecología Tropical; Ética Profesional en Turismo; Formación Humanística; Administración General; Contabilidad I; Contabilidad Gerencial; Principios de ordenamiento Territorial; Estadística Descriptiva; Área Deportiva y Cultural; Administración de Capital Humano; Gestión Ambiental Aplicada al Turismo; Estrategia Empresarial; Gestión de Espacios Naturales y Eco Turísticos; Gestión del Turismo Rural; Marketing de Productos Turísticos; Gestión de la Calidad de
+Empresas Turísticas; Formulación y evaluación de proyectos turísticos; Práctica
+Profesional; Métodos y Técnicas de Investigación; Programación y Operación de
+Tours; Principios de Gestión Administrativa; Contabilidad Gerencial Turística;
+Sostenibilidad Ambiental; Economía para Turismo; Seminario de Turismo Rural; Evaluación del Impacto Ambiental; Mercadotecnia Turística; Formulación y Evaluación de Proyectos Turísticos Rurales; Innovación Tecnológica para el Turismo; Gestión de Empresas Turísticas.
 Atinencias para los cursos inglés integrado para turismo I, II, III y IV; inglés conversacional para turismo I y II
 1. Educación con énfasis en Didáctica del Ingles
 2. Educación con mención en Aprendizaje del Ingles
@@ -2986,7 +2984,8 @@ Guía de turismo y Gestión ecoturística
 Propósito de la carrera
 El propósito fundamental de esta carrera es formar profesionales en este campo, capaces de satisfacer las necesidades del sector empresarial, a partir del desarrollo de destrezas, habilidades y valores propios de su área de especialización, que le permitan ejecutar diversas actividades y tareas, basadas en los principios de la sostenibilidad y con una visión crítica y analítica de su entorno mediato e inmediato. Además, que el profesional desarrolle la capacidad de organizar, dirigir y evaluar diversas acciones propias del sector turístico, generando procesos de gestión enmarcados en los más altos estándares de calidad y aplicando las nuevas tecnologías a dichos procesos.
 Cursos que conforman la carrera
-Inglés I II III IV V y VI; Fundamentos del Turismo; Geografía de Costa Rica; Turismo accesible; Recursos Informáticos; Técnicas de Primeros Auxilios y RCP; Flora I II; Fauna I II III; Historia de Costa Rica; Fundamentos de Ecología; Cultura y arquitectura de Costa Rica; Interpretación ambiental; Ética Profesional; Formación Humanística; Administración general; Contabilidad I; Contabilidad Gerencial; Principios de ordenamiento territorial; Estadística Descriptiva; Área Deportiva y cultural; Administración de capital humano; Gestión ambiental aplicada al turismo; Estrategia Empresarial; Gestión de espacios naturales y eco turísticos; Gestión del turismo rural; Marketing de productos turísticos; Gestión de la calidad de empresas turísticas; Formulación y evaluación de proyectos turísticos; Práctica Profesional; Expresión oral y escrita; Métodos y Técnicas de investigación; Sostenibilidad; Técnicas de montañismo; Planeación y Conducción de Tour
+Inglés I II III IV V y VI; Fundamentos del Turismo; Geografía de Costa Rica; Turismo accesible; Recursos Informáticos; Técnicas de Primeros Auxilios y RCP; Flora I II; Fauna I II III; Historia de Costa Rica; Fundamentos de Ecología; Cultura y arquitectura de Costa Rica; Interpretación ambiental; Ética Profesional; Formación Humanística; Administración general; Contabilidad I; Contabilidad Gerencial; Principios de ordenamiento territorial; Estadística Descriptiva; Área Deportiva y cultural; Administración de capital humano; Gestión ambiental aplicada al turismo; Estrategia
+Empresarial; Gestión de espacios naturales y eco turísticos; Gestión del turismo rural; Marketing de productos turísticos; Gestión de la calidad de empresas turísticas; Formulación y evaluación de proyectos turísticos; Práctica Profesional; Expresión oral y escrita; Métodos y Técnicas de investigación; Sostenibilidad; Técnicas de montañismo; Planeación y Conducción de Tour
 Atinencias para los cursos de inglés I, II, III, IV, V y VI
 1. Educación con énfasis en Didáctica del Inglés
 2. Educación con mención Aprendizaje del Inglés
@@ -3741,7 +3740,9 @@ Administración y gestión de recursos humanos
 Propósito de la carrera
 El propósito de la carrera es el estudio de los recursos humanos, constituidos estos en las potencialidades que poseen las personas y que son requeridos por las organizaciones públicas y privadas.
 Cursos que conforman la carrera
-Administración General; Matemática General y Matemática Financiera; Recursos Informáticos; Métodos de investigación; Introducción a la Sociología de las Organizaciones; Economía I y II; Estadística Descriptiva e Inferencial; Comunicación Administrativa; Psicología General; Fundamentos de Mercadeo; Contabilidad Básica y Contabilidad de costos; Introducción a la Administración de Recursos Humanos; Introducción a la Salud Ocupacional; Derecho Laboral I y II; Presupuesto; Análisis Administrativo; Clasificación de Puestos; Capacitación y Desarrollo; Valoración de Puestos; Reclutamiento y Selección; Seminario Integrado de Recursos Humanos; Administración de Remuneraciones; Normas y Estándares de Calidad; Cultura y Clima organizacional; Formación Humanística; Investigación de Operaciones; Área Deportiva y Cultural; Planificación de Recursos Humanos; Administración de la Producción; Auditoria de Recursos Humanos; Gerencia de Recursos Humanos; Gestión por Competencias; Práctica Profesional.
+Administración General; Matemática General y Matemática Financiera; Recursos Informáticos; Métodos de investigación; Introducción a la Sociología de las Organizaciones; Economía I y II; Estadística Descriptiva e Inferencial; Comunicación Administrativa; Psicología General; Fundamentos de Mercadeo; Contabilidad Básica y Contabilidad de costos; Introducción a la Administración de Recursos Humanos;
+Introducción a la Salud Ocupacional; Derecho Laboral I y II; Presupuesto; Análisis
+Administrativo; Clasificación de Puestos; Capacitación y Desarrollo; Valoración de Puestos; Reclutamiento y Selección; Seminario Integrado de Recursos Humanos; Administración de Remuneraciones; Normas y Estándares de Calidad; Cultura y Clima organizacional; Formación Humanística; Investigación de Operaciones; Área Deportiva y Cultural; Planificación de Recursos Humanos; Administración de la Producción; Auditoria de Recursos Humanos; Gerencia de Recursos Humanos; Gestión por Competencias; Práctica Profesional.
 Atinencias para los cursos de administración general; cultura y clima organizacional; análisis administrativo
 1. Administración
 2. Administración con énfasis en Auditoria Informática
@@ -3945,6 +3946,12 @@ Atinencias para el curso de comunicación administrativa
 15. Publicidad con sus diferentes énfasis
 16. Enseñanza del Castellano y la Literatura
 17. Filología Española
+18. Administración de Oficinas
+19. Lingüística con Énfasis en Español
+20. Enseñanza del Español
+21.Literatura y Lingüística con concentración en Español
+22. Literatura y Lingüística con Énfasis en Español
+23. Ciencias de la Educación con Énfasis en Administración Educativa
 Atinencias para el curso de psicología general
 1. Estudios en Psicología Grupal
 2. Investigación Psicológica
@@ -3976,6 +3983,8 @@ Atinencias para el curso de fundamentos de mercadeo
 16. Dirección Empresarial con énfasis en Mercadeo, Promoción y Ventas
 17. Mercadeo
 18. Mercadeo y Ventas
+19. Administración de empresas con énfasis en mercadeo
+20. Administración de Negocios
 Atinencias para los cursos de introducción a la administración de recursos humanos; planificación de recursos humanos; gerencia de recursos humanos; gestión por competencias; seminario integrado de recursos humanos; reclutamiento y selección; valoración de puestos; clasificación de puestos; capacitación y desarrollo; administración de remuneraciones
 1. Administración con énfasis en Gestión de Recursos Humanos
 2. Administración con énfasis en Recursos Humanos
@@ -4015,6 +4024,11 @@ Atinencias para el curso de auditoría de recursos humanos
 17. Gestión del Talento Humano
 18. Recursos Humanos
 19. Administración y Gestión de Recursos Humanos
+20. Contaduría Pública
+21. Administración de Empresas con énfasis en Contaduría
+22. Administración de Empresas con énfasis en Contaduría Pública
+Nota técnica:
+El curso de Auditoría de Recursos Humanos, además de las atinencias anteriores, requiere experiencia demostrada en labores de auditoría.
 Atinencias para el curso de introducción a la salud ocupacional
 1. Administración de Empresas con énfasis en Salud Ocupacional
 2. Administración en Salud Ocupacional
@@ -4053,6 +4067,7 @@ Atinencias para el curso de práctica profesional
 Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
 (Reformado mediante Acuerdo 16 tomado por el Consejo Universitario en la Sesión Ordinaria No. 15-2024, celebrada el jueves 16 de mayo de 2024, a las ocho horas con treinta minutos, según el Artículo 23 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024).
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Asistencia administrativa
 Propósito de la carrera
 La carrera de Asistencia Administrativa busca promover la formación de profesionales integrales, competentes en la especialidad, con sólidos conocimientos propios de su campo, con habilidades y destrezas para utilizar herramientas tecnológicas y comunicarse efectivamente en español e inglés; capaces de adaptarse y responder oportunamente a los retos y demandas del mercado empresarial y, con ello, coadyuvar al desarrollo sostenible del país y de la sociedad.
@@ -4205,8 +4220,9 @@ Propósito de la carrera
 El propósito de esta carrera es formar profesionales con conocimientos sólidos en comercio exterior, con actitudes y habilidades que les permita aplicar los conocimientos en esta materia con estricto apego a la realidad y a las exigencias externas, que demandan a un país y a una casa de estudios superiores cuya responsabilidad social es formar el adecuado recurso humano, utilizando las herramientas técnicas y metodológicas donde se pone en práctica y ejecutan los conocimientos de la disciplina, acordes con las tendencias regionales y mundiales.
 Cursos que conforman la carrera
 Comercio Internacional I y II; Matemática General; Principios de Administración; Métodos de Investigación; Aspectos Generales del Derecho Comercial;
-Microeconomía; Recursos Informáticos; Medios de Pago Internacional; Medios de Transporte Internacional; Inglés I, II, III, IV, V, VI; Estadística Descriptiva e Inferencial; Logística internacional; Contabilidad Básica; Técnicas de Importación I y II; Acuerdos
-Comerciales; Técnicas de Exportación I y II; Mercadeo I y II; Laboratorio Tecnológico; Formación Humanística; Organismos de Cooperación Internacional; Área Cultural y Deportiva; Macroeconomía; Comercio y Servicios; Técnicas de Negociación; Legislación Comercial Internacional; Taller de Desarrollo Humano; Marketing y Transferencias Electrónicas; Comercio y Ambiente; Propiedad Intelectual; Práctica Profesional; Acceso y administración de mercados internacionales; Planificación y Análisis Administrativo; Ética Profesional en los negocios internacionales; Análisis y gestión financiera Empresarial; Gestión gerencial de la información; Taller de investigación; Economía Internacional; Gerencia de Recursos Humanos; Administración y evaluación de proyectos; Geografía económica mundial; Gerencia y liderazgo empresarial; Innovación y emprendedurismo para el Comercio Exterior; Investigación Dirigida
+Microeconomía; Recursos Informáticos; Medios de Pago Internacional; Medios de Transporte Internacional; Inglés I, II, III, IV, V, VI; Estadística Descriptiva e Inferencial; Logística internacional; Contabilidad Básica; Técnicas de Importación I y II; Acuerdos Comerciales; Técnicas de Exportación I y II; Mercadeo I y II; Laboratorio Tecnológico; Formación Humanística; Organismos de Cooperación Internacional; Área Cultural y Deportiva; Macroeconomía; Comercio y Servicios; Técnicas de Negociación;
+Legislación Comercial Internacional; Taller de Desarrollo Humano; Marketing y
+Transferencias Electrónicas; Comercio y Ambiente; Propiedad Intelectual; Práctica Profesional; Acceso y administración de mercados internacionales; Planificación y Análisis Administrativo; Ética Profesional en los negocios internacionales; Análisis y gestión financiera Empresarial; Gestión gerencial de la información; Taller de investigación; Economía Internacional; Gerencia de Recursos Humanos; Administración y evaluación de proyectos; Geografía económica mundial; Gerencia y liderazgo empresarial; Innovación y emprendedurismo para el Comercio Exterior; Investigación Dirigida; Estadística Inferencial.
 Atinencias para los cursos principios del comercio internacional, comercio internacional I y II, acuerdos comerciales; técnicas de exportación I y II, técnicas de importación I y II, medios de pago internacional; medios de transporte internacional; logística internacional; organismos de cooperación internacional; comercio y servicios; técnicas de negociación; acceso y administración de mercados internacionales
 1. Administración Aduanera
 2. Administración de Aduanas
@@ -4215,7 +4231,7 @@ Atinencias para los cursos principios del comercio internacional, comercio inter
 5. Administración de Negocios con énfasis en Dirección de Empresas y Comercio Internacional
 6. Administración de Negocios con énfasis en Negocios Internacionales
 7. Administración Empresas con énfasis en Mercadeo y Comercio Internacional
-8. Administración en Comercio Exterior
+8. Administración del Comercio Exterior
 9. Comercio Internacional
 10. Comercio y Negocios Internacionales
 11. Negocios Internacionales
@@ -4225,6 +4241,7 @@ Atinencias para los cursos principios del comercio internacional, comercio inter
 15. Relaciones Internacionales con énfasis en Cooperación Internacional
 16. Relaciones Internacionales con énfasis en Finanzas Internacionales
 17. Relaciones Internacionales con énfasis en Relaciones Económicas Internacionales
+18. Administración Aduanera y Comercio Exterior
 Nota Técnica:
 Para el curso de Medios de Pago Internacional se consideran atinentes todas las especialidades citadas, así como la especialidad de Contabilidad, Contaduría Pública, Banca o Finanzas.
 Atinencias para el curso de comercio y ambiente
@@ -4234,12 +4251,13 @@ Atinencias para el curso de comercio y ambiente
 4. Administración de Aduanas y Comercio Exterior
 5. Administración de Negocios con énfasis en Comercio Internacional
 6. Administración de Negocios con énfasis en Negocios Internacionales
-7. Administración en Comercio Exterior
+7. Administración del Comercio Exterior
 8. Comercio Internacional
 9. Comercio y Negocios Internacionales
 10. Gestión Ambiental y Ecoturismo con énfasis en Impacto Ambiental
 11. Ingeniería Ambiental
 12. Ingeniería en Gestión Ambiental
+13. Administración Aduanera y Comercio Exterior
 Atinencias para el curso organismos de cooperación internacional
 Son atinentes todas las especialidades que se describen en el primer ítem y las que se citan a continuación: 1. Administración Aduanera
 2. Administración de Aduanas
@@ -4282,9 +4300,9 @@ Atinencias para los cursos de principios de administración; gerencia y liderazg
 14. Administración de Empresas con énfasis en Dirección de Empresas
 15. Administración de Empresas con énfasis en Emprendedurismo y Creación de Empresas
 16. Administración de Empresas con énfasis en Finanzas Internacionales
-17. Administración de Empresas con énfasis en Gerencia Internacional
+17.Administración de Empresas con énfasis en Gerencia Internacional
 18. Administración de Empresas con énfasis en Gerencia, Finanzas y Mercadeo
-19.Administración de Empresas con énfasis en Gestión Organizacional
+19. Administración de Empresas con énfasis en Gestión Organizacional
 20. Administración de Empresas con énfasis en Gestión y Servicios de Información
 21. Administración de Empresas con énfasis en Gestión y Servicios de Información
 22. Administración de Empresas con énfasis en Mercadeo y Comercio Internacional
@@ -4300,28 +4318,32 @@ Atinencias para los cursos de principios de administración; gerencia y liderazg
 32. Administración de Negocios con énfasis en Negocios Internacionales
 33. Administración de Negocios con énfasis en Relaciones Económicas Internacionales
 34. Administración de Proyectos
-35. Administración en Comercio Exterior
+35. Administración del Comercio Exterior
 36. Administración Pública con énfasis en Administración Aduanera y Comercio Internacional
 37. Administración Pública con énfasis en Aduanas
 38. Administración y Dirección de Empresas
 39. Administración y Gerencia de Empresas
 40. Ciencias de la Administración y Gerencia
 41. Relaciones Internacionales con Énfasis en Cooperación Internacional
+42. Administración de Empresas con énfasis en Banca y Finanzas
 Atinencias para los cursos métodos de investigación; taller de investigación, investigación dirigida 1. Administración Aduanera
 2. Administración con énfasis en Negocios Internacionales
 3. Administración de Aduanas
 4. Administración de Comercio Internacional
-5. Administración en Comercio Exterior
+5. Administración del Comercio Exterior
 6. Comercio Exterior
 7. Desarrollo Social
 8. Economía
 9. Planificación
 10. Planificación Económica Social
 11. Relaciones Internacionales con Énfasis en Comercio Exterior
-12. Relaciones Internacionales con Énfasis en Cooperación Internacional
+12.Relaciones Internacionales con Énfasis en Cooperación Internacional
 13. Sociología
 14. Sociología con énfasis en Investigación
-15.Sociología con énfasis en Metodología
+15. Sociología con énfasis en Metodología
+16. Orientación
+17. Administración Aduanera y Comercio Exterior
+18. Relaciones Internacionales con énfasis en Comercio Internacional
 Nota Técnica:
 Para los cursos de Taller de Investigación, e Investigación Dirigida, se podrá asignar a un profesional en una especialidad determinada dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
 Atinencias para los cursos aspectos generales del derecho comercial; legislación comercial internacional y propiedad intelectual
@@ -4339,6 +4361,9 @@ Atinencias para los cursos aspectos generales del derecho comercial; legislació
 12. Derecho Internacional
 13. Derecho Publico
 14. Derecho Tributario
+15. Administración Aduanera y Comercio Exterior
+16. Administración del Comercio Exterior
+17. Administración Aduanera
 Atinencias para el curso microeconomía; macroeconomía; economía internacional; geografía económica mundial
 1. Ciencias Económicas y Empresariales
 2. Ciencias Económicas y Empresariales énfasis en Contaduría
@@ -4349,7 +4374,7 @@ Atinencias para el curso microeconomía; macroeconomía; economía internacional
 7. Ciencias Económicas y Sociales con énfasis en Economía
 8. Economía
 9. Economía del Desarrollo
-10. Economía Empresarial
+10.Economía Empresarial
 11. Economía con énfasis en Banca y Mercado de Capitales
 12. Economía con énfasis en Economía de la Regulación
 13. Economía con énfasis en Economía Empresarial
@@ -4358,7 +4383,7 @@ Atinencias para el curso microeconomía; macroeconomía; economía internacional
 16. Economía y Planificación Regional con énfasis en Economía
 17. Economía y Planificación Regional con énfasis en Banca y Mercado de Capitales
 18. Política Económica
-19.Política Económica con mención en Desarrollo Sostenible y Economía Ecológica
+19. Política Económica con mención en Desarrollo Sostenible y Economía Ecológica
 20. Política Económica con mención en Economía de Los Recursos Humanos
 21. Política Económica con mención en Economía Internacional
 22. Política Económica con mención en Recursos Humanos y Políticas de Empleo
@@ -4389,7 +4414,7 @@ Atinencias para el curso recursos informáticos; laboratorio tecnológico
 21. Control de Procesos de Informática
 22. Gestión de la Tecnología
 23. Informática
-24. Informática Administrativa
+24.Informática Administrativa
 25. Informática con énfasis en Sistemas de Información
 26. Informática de Sistemas
 27. Informática de Sistemas de Información
@@ -4399,7 +4424,7 @@ Atinencias para el curso recursos informáticos; laboratorio tecnológico
 31. Ingeniería de Sistemas
 32. Ingeniería de Sistemas Computacionales
 33. Ingeniería de Sistemas en Computación
-34.Ingeniería de Sistemas Informáticos
+34. Ingeniería de Sistemas Informáticos
 35. Ingeniería de Tecnologías de Información
 36. Ingeniería de Tecnologías de Información con mención en Administración de Proyectos
 37. Ingeniería en Computación
@@ -4420,7 +4445,7 @@ Atinencias para el curso recursos informáticos; laboratorio tecnológico
 52. Sistemas de Información
 53. Sistemas de Información con énfasis en Gestión de Proyectos Informáticos Tecnología Estratégicas de Información y Comunicación
 Nota Técnica:
-El curso de Laboratorio Tecnológico, se asignará a un especialista del área de Administración de Aduanas o de Comercio Internacional, por ser un curso puntual de especialidad.
+El curso de Laboratorio Tecnológico, se asignará a un especialista del área de Administración Aduanera y Comercio Exterior, de Aduanas, de Comercio Internacional, Administración del Comercio Exterior y afines por ser un curso puntual de especialidad.
 Atinencias para el curso contabilidad básica y análisis y gestión financiera empresarial
 1. Administración con énfasis en Contabilidad
 2. Administración con énfasis en Contabilidad y Finanzas.
@@ -4436,7 +4461,7 @@ Atinencias para el curso contabilidad básica y análisis y gestión financiera 
 12. Administración de Empresas con énfasis en Contaduría y Gerencia
 13. Administración de Empresas con énfasis en Administración Financiera
 14. Administración de Empresas con énfasis en Banca y Finanzas
-15.Administración de Empresas con énfasis en Contabilidad
+15. Administración de Empresas con énfasis en Contabilidad
 16. Administración de Empresas con énfasis en Finanzas y Mercadeo
 17. Administración de Empresas con énfasis en Finanzas y Contabilidad
 18. Administración de Empresas con énfasis en Finanzas y Recursos Humanos
@@ -4465,9 +4490,8 @@ Atinencias para los cursos mercadeo I y II; marketing y transferencias electrón
 6. Administración Empresas con énfasis en Mercadeo
 7. Administración Empresas con énfasis en Mercadeo y Comercio Internacional
 8. Administración Negocios con énfasis en Mercadeo Gerencial
-9. Administración Negocios con énfasis en Mercadeo y Publicidad
-10. Comercio Internacional
-11. Comercio y Negocios Internacionales
+9. Administración Negocios con énfasis en Mercadeo y Publicidad 10. Comercio Internacional
+11.Comercio y Negocios Internacionales
 12. Dirección de Empresas con énfasis en Negocios Internaciones
 13. Gerencia de la Cooperación Internacional
 14. Gerencia y Negociaciones Internacionales
@@ -4477,7 +4501,7 @@ Atinencias para los cursos mercadeo I y II; marketing y transferencias electrón
 18. Relaciones Internacionales con énfasis en Administración y Gerencia de la Cooperación Internacional
 19. Relaciones Internacionales con énfasis en Comercio Exterior
 20. Relaciones Internacionales con énfasis en Comercio Internacional
-21.Relaciones Internacionales con énfasis en Cooperación Internacional
+21. Relaciones Internacionales con énfasis en Cooperación Internacional
 22. Relaciones Internacionales con Énfasis en Política Internacional
 23. Relaciones Internacionales con énfasis en Relaciones Económicas Internacionales
 Nota técnica: además de las especialidades indicadas, se considera como atinente la especialidad de administración de empresas, siempre que se cuente con experiencia comprobada en el área de mercadeo.
@@ -4538,7 +4562,7 @@ Atinencias para el curso geografía económica mundial
 14. Comercio Internacional
 15. Desarrollo Económico Local
 16. Economía
-17. Economía Agrícola
+17.Economía Agrícola
 18. Economía con énfasis en Banca y Gestión
 19. Economía con énfasis en Banca y Mercado de Capitales
 20. Economía con énfasis en Economía de La Regulación
@@ -4546,8 +4570,7 @@ Atinencias para el curso geografía económica mundial
 22. Economía con énfasis en Economía Internacional
 23. Economía del Desarrollo
 24. Economía Empresarial
-25. Economía y Planificación Regional con énfasis en Banca y Mercado de
-Capitales
+25. Economía y Planificación Regional con énfasis en Banca y Mercado de Capitales
 26. Economía y Planificación Regional con énfasis en Economía
 27. Política Económica
 28. Política Económica con mención en Desarrollo Sostenible y Economía Ecológica
@@ -4559,14 +4582,57 @@ Capitales
 34. Relaciones Económicas Internacionales
 35. Relaciones Internacionales con énfasis Economía Internacional
 36. Relaciones Internacionales con Énfasis Economía Internacional
+Atinencias para el curso estadística inferencial
+1. Administración del Comercio Exterior
+2. Administración de Empresas
+3. Administración de Negocios
+4. Ciencias Actuariales
+5. Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+6. Ciencias Económicas con énfasis en Estadística
+7. Ciencias Económicas y Sociales con énfasis en Estadística
+8. Ciencias Económicas y Sociales con énfasis en Matemática y Estadística
+9. Didáctica de la Matemática
+10. Docencia en Enseñanza de las Matemáticas
+11. Economía
+12. Educación con énfasis en Matemática
+13. Enseñanza de la Matemática
+14. Enseñanza de la Matemática Asistida por Computadora
+15. Enseñanza de Matemática
+16. Estadística
+17. Estadística con énfasis en Administración de Negocios
+18. Estadística con énfasis en Biología
+19. Estadística con énfasis en Ciencias del Hombre
+20. Estadística con énfasis en Economía
+21. Estadística con énfasis en Informática
+22. Estadística con énfasis en Investigación de Mercados
+23. Estadística con énfasis en Matemática
+24. Estadística con énfasis en Población
+25. Estadística con énfasis en Población y Salud
+26. Ingeniería en Mantenimiento Industrial
+27. Ingeniería en Producción Industrial
+28. Ingeniería Industrial
+29. Matemática
+30. Matemática Aplicada
+31. Matemática Aplicada a la Computación
+32. Matemática con énfasis en Matemática Aplicada
+33. Matemática con énfasis en Matemática Educativa
+34. Matemática con énfasis en matemática pura
+35. Matemática Pura
+Atinencias para el curso Ética Profesional en los negocios internacionales
+1. Administración Aduanera y Comercio Exterior
+2. Administración del Comercio Exterior
+3. Administración Aduanera
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Contabilidad y finanzas /Contaduría Pública
 Propósito de la carrera
 El propósito de la carrera de Contabilidad y Finanzas es formar a profesionales con una formación integral cognoscitiva y competitiva en el área de la contabilidad, administración financiera, auditoría y otras áreas complementarias, que permitan al egresado insertarse en un mercado laboral competitivo en el corto plazo y de este modo pueda planear, organizar, dirigir y controlar la organización pública o privada, con altos estándares de eficiencia y eficacia en la toma de decisiones.
 Cursos que conforman la carrera
-Herramientas para Análisis y Presentación de la Información Contable; Matemática para Contabilidad; Gestión Administrativa Emprendedurismo e Innovación; Contabilidad I (Plan B10 ); Contabilidad I (Plan B08), II, III, IV y V; Principios de Administración; Matemática General; Matemática Financiera; Recursos Informáticos; Derecho Laboral; Economía I y II; Finanzas I, II ,III y IV; Derecho Comercial y Tributario; Estadística Descriptiva; Contabilidad de Costos I y II; Sistemas Contables Computarizados; Inglés I, Inglés II, Inglés III, Inglés IV, Inglés V, Inglés VI; Elementos de Auditoría I II; Trámites y Procedimientos Tributarios; Presupuesto; Práctica Profesional; Administración de Recursos Humanos; Cálculo; Estadística Inferencial; Formación Humanística; Actividad Cultural; Actividad Deportiva; Comportamiento Organizacional; Mercadeo I y II; Investigación de Operaciones; Formación Humanística; Gestión de la Producción; Metodología del Control Interno; Normativa Contable I; Formación Humanística; Estrategia Empresarial; Formulación y Evaluación de Proyectos; Análisis Administrativo; Métodos y Técnicas de Investigación; Formación Humanística. Muestreo Estadístico para Auditoría; Normativa Contable; Auditoría
-Tributaria; Negocios Internacionales; Riesgos e Instrumentos Financieros; Auditoría de
-Tecnologías de Información; Tópicos Avanzados de Contabilidad; Taller de Investigación; Desarrollo Económico; Consultoría e informes Profesionales; Auditoría de Gestión; Ética profesional, Investigación Dirigida y Trabajo Final de Graduación.
+Herramientas para Análisis y Presentación de la Información Contable; Matemática para Contabilidad; Gestión Administrativa Emprendedurismo e Innovación; Contabilidad I
+(Plan B10 ); Contabilidad I (Plan B08), II, III, IV y V; Principios de Administración; Matemática General; Matemática Financiera; Recursos Informáticos; Derecho Laboral; Economía I y II; Finanzas I, II ,III y IV; Derecho Comercial y Tributario; Estadística
+Descriptiva; Contabilidad de Costos I y II; Sistemas Contables Computarizados; Inglés I, Inglés II, Inglés III, Inglés IV, Inglés V, Inglés VI; Elementos de Auditoría I II; Trámites y Procedimientos Tributarios; Presupuesto; Práctica Profesional; Administración de Recursos Humanos; Cálculo; Estadística Inferencial; Formación Humanística; Actividad Cultural; Actividad Deportiva; Comportamiento Organizacional; Mercadeo I y II; Investigación de Operaciones; Formación Humanística; Gestión de la Producción;
+Metodología del Control Interno; Normativa Contable I; Formación Humanística; Estrategia Empresarial; Formulación y Evaluación de Proyectos; Análisis Administrativo; Métodos y Técnicas de Investigación; Formación Humanística. Muestreo Estadístico para Auditoría; Normativa Contable; Auditoría Tributaria; Negocios Internacionales; Riesgos e Instrumentos Financieros; Auditoría de Tecnologías de Información; Tópicos Avanzados de Contabilidad; Taller de Investigación; Desarrollo Económico; Consultoría e informes Profesionales; Auditoría de Gestión; Ética profesional, Investigación Dirigida y Trabajo Final de Graduación, Introducción al análisis descriptivo, Introducción a la investigación, Trámites y procedimientos tributarios, Análisis fiscal y tributario, Análisis de datos para la toma de decisiones, Fundamentos de la gestión del capital humano para contabilidad, Fundamentos de mercadeo, Fundamentos de la producción, Normativa contable
+PYMES, Finanzas avanzadas, Gestión de riesgos, Finanzas corporativas, Electivo I, Auditoría Forense, Finanzas sociales, Softwares para la presentación y gestión de datos, Negocios electrónicos, Modelos predictivos en contabilidad y finanzas, NIC SP, Planificación financiera con enfoque al bienestar, Electivo II.
 Atinencias para los cursos de contabilidad I (Plan B08), II, III, y V; contabilidad de costos I, II; sistemas contables computadorizados; presupuesto; consultoría e informes profesionales; auditoría de gestión; elementos de auditoría i y ii; tópicos avanzados de contabilidad; normativa contable; normativa contable i; auditoria de gestión; auditoria de tecnología de información, auditoria tributaria y consultoría e informes profesionales; práctica profesional; ética profesional
 1. Administración con énfasis en Contabilidad
 2. Administración con énfasis en Contabilidad y Finanzas
@@ -4582,6 +4648,38 @@ Atinencias para los cursos de contabilidad I (Plan B08), II, III, y V; contabili
 12. Contabilidad y Finanzas
 13. Contaduría Pública
 14. Administración de Empresas con énfasis Contaduría
+15. Maestría Profesional en Asesoría Fiscal
+16. Administración con énfasis en Finanzas
+17. Administración con énfasis en Gestión Financiera
+18. Administración de Empresas con énfasis Finanzas y Gerencia
+19. Administración de Empresas con énfasis Administración Financiera
+20. Administración de Empresas con énfasis Banca y Finanzas
+21. Administración de Empresas con énfasis en Finanzas y Mercadeo
+22. Administración de Empresas con énfasis Finanzas y Contabilidad
+23. Administración de Empresas con énfasis Finanzas y Recursos Humanos
+24. Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+25. Administración de Negocios con énfasis en Banca y Finanzas
+26. Administración de Negocios con énfasis en Finanzas
+27. Administración de Negocios con énfasis Entidades Financieras
+28. Administración de Negocios con énfasis Finanzas
+29. Administración de Negocios con énfasis Gerencia Financiera
+30. Administración y Dirección de Empresas con énfasis en Finanzas
+31. Banca y finanzas
+32. Dirección de Empresas con Énfasis en Banca y Finanzas
+33. Finanzas
+34. Gerencia Financiera
+35. Gestión y Finanzas Públicas
+36. Posgrado en Administración de empresas con énfasis en Finanzas
+37. Administración con énfasis en Contaduría Pública
+38. Administración con énfasis en Contaduría
+39. Administración con énfasis en Finanzas
+40. Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+41. Ciencias Económicas con énfasis en Estadística
+42. Economía
+43. Enseñanza de la Matemática
+44. Estadística
+45. Estadística con énfasis en Administración de Negocios
+46. Administración de Empresas con énfasis Contaduría
 Para el curso de presupuesto se consideran atinentes todas las especialidades anteriores, así como las que se indican a continuación:
 1. Posgrado en Administración de Empresas con énfasis en Finanzas.
 2. Administración de Negocios con énfasis Dirección de Empresas
@@ -4636,7 +4734,46 @@ Atinencias para los cursos matemática financiera; finanzas I, II, III y IV; rie
 26.Gerencia Financiera
 27.Gestión y Finanzas Públicas
 28.Posgrado en Administración de empresas con énfasis en Finanzas
-29.Administración de Empresas con énfasis en Contaduría 30.Administración con énfasis en Contaduría Pública 31.Administración con énfasis en Finanzas.
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31.Administración con énfasis en Finanzas
+30.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+31. Ciencias Económicas con énfasis en Estadística
+32. Economía
+33. Enseñanza de la Matemática
+34. Estadística
+35. Estadística con énfasis en Administración de Negocios
+36. Estadística con énfasis en Biología
+37. Estadística con énfasis en Ciencias del Hombre
+38. Estadística con énfasis en Economía
+39. Estadística con énfasis en Informática
+40. Estadística con énfasis en Investigación de Mercados
+41. Estadística con énfasis en Matemática
+42. Estadística con énfasis en Población
+43. Estadística con énfasis en Población y Salud
+44. Ingeniería en Producción Industrial
+45. Ingeniería Industrial
+46. Matemática
+47. Matemática Aplicada
+48. Matemática Aplicada a la Computación
+49. Matemática con énfasis en Matemática Aplicada
+50. Matemática con énfasis en Matemática Educativa
+51. Matemática Pura
+52. Maestría Profesional en Asesoría Fiscal
+53. Administración con énfasis en Contabilidad
+54. Administración con énfasis en Contabilidad y Finanzas
+55. Administración con énfasis en Contaduría Pública y Finanzas
+56. Administración de Empresas con énfasis Contabilidad
+57. Administración de Empresas con énfasis Contaduría Pública
+58. Administración de Empresas con énfasis Contaduría y Finanzas
+59. Administración de Empresas con énfasis Contaduría y Gerencia
+60. Administración de Empresas con énfasis en Contabilidad
+61. Administración de Negocios con énfasis en Contabilidad
+62. Administración de Negocios con énfasis en Contabilidad y Dirección de
+Empresas
+63. Contabilidad
+64. Contaduría Pública
+65. Administración de Empresas con énfasis en Contaduría
 Atinencias para el curso principios de administración; análisis administrativo; metodología del control interno; comportamiento organizacional; formulación y evaluación de proyectos y estrategia empresarial
 1. Administración con énfasis en Compras y Recursos Materiales
 2. Administración con énfasis en Contabilidad
@@ -4646,7 +4783,8 @@ Atinencias para el curso principios de administración; análisis administrativo
 6. Administración con énfasis en Empresas
 7. Administración con énfasis en Finanzas
 8. Administración con énfasis en Gestión Financiera
-9.Administración de Empresas con énfasis en Administración Financiera 10.Administración de Empresas
+9.Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas
 11.Administración de Empresas con énfasis en Administración de la Producción
 12.Administración de Empresas con énfasis en Administración Financiera
 13.Administración de Empresas con énfasis en Alta Gerencia
@@ -4657,8 +4795,7 @@ Atinencias para el curso principios de administración; análisis administrativo
 18.Administración de Empresas con énfasis en Contaduría y Gerencia
 19.Administración de Empresas con énfasis en Contratación Administrativa
 20.Administración de Empresas con énfasis en Dirección de Empresas
-21.Administración de Empresas con énfasis en Emprendedurismo y Creación de
-Empresas o Gerencias de Proyectos
+21.Administración de Empresas con énfasis en Emprendedurismo y Creación de Empresas o Gerencias de Proyectos
 22.Administración de Empresas con énfasis en Finanzas
 23.Administración de Empresas con énfasis en Finanzas Internacionales
 24.Administración de Empresas con énfasis en Finanzas y Contabilidad
@@ -4716,6 +4853,9 @@ Empresas
 75. Administración de Empresas con énfasis en Contaduría
 76. Contaduría Pública
 77. Administración de Negocios con énfasis en Mercadeo
+78. Administración y Gestión de Recursos Humanos
+79. Administración de Recursos Humanos
+80. Administración de Empresas con énfasis en Recursos Humanos
 Atinencias para el curso derecho laboral
 1. Administración de la Justicia
 2. Administración de la Justicia con énfasis en Administración de Justicia Civil
@@ -4851,7 +4991,9 @@ Atinencias para el curso economía I y II, desarrollo económico
 28. Política Económica con mención en Economía de los Recursos Humanos
 29. Política Económica con mención en Economía Internacional
 30. Política Económica con mención en Recursos Humanos y Políticas de Empleo
-31. Política Económica con mención en Sector Externo y Relaciones Internacionales 32. Economía Agrícola con énfasis en Extensión y Gestión Agrícola
+31. Política Económica con mención en Sector Externo y Relaciones Internacionales
+32. Economía Agrícola con énfasis en Extensión y Gestión Agrícola
+33. Fundamentos de la gestión del capital humano para contabilidad
 Nota Técnica:
 Se podrá asignar a un profesional economista con especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
 Atinencias para el curso de Estadística Inferencial
@@ -5088,7 +5230,7 @@ Atinencias para el curso; Herramientas para el análisis y presentación de la i
 53. Informática con énfasis en Sistemas de Información
 54. Informática de Sistemas
 55. Informática de Sistemas de Información
-56. Informática Empresarial
+56.Informática Empresarial
 57. Informática en Información
 58. Ingeniería de la Computación Administrativa
 59. Ingeniería de Sistemas
@@ -5118,6 +5260,20 @@ Atinencias para el curso; Herramientas para el análisis y presentación de la i
 83. Sistemas de Información con énfasis en Gestión de Proyectos Informatices
 84. Sistemas Informatices
 85. Tecnología Estratégicas de Información y Comunicación
+86. Estadística con énfasis en Biología
+87. Estadística con énfasis en Ciencias del Hombre
+88. Estadística con énfasis en Economía
+89. Estadística con énfasis en Matemática
+90. Estadística con énfasis en Población
+91. Estadística con énfasis en Población y Salud
+92. Ingeniería en Producción Industrial
+93. Ingeniería Industrial
+94. Enseñanza a la Matemática
+95. Matemática Aplicada
+96. Matemática Aplicada a la Computación
+97. Matemática con énfasis en Matemática Aplicada
+98. Matemática con énfasis en Matemática Educativa
+99. Matemática Pura
 Atinencias para el curso, Contabilidad I (Plan B10)
 1. Administración con énfasis en Contabilidad
 2. Administración con énfasis en Contabilidad y Finanzas
@@ -5145,6 +5301,36 @@ Atinencias para el curso, Matemática para Contabilidad
 9. Matemática Pura
 10. Docencia en enseñanza de las matemáticas
 11. Educación Matemática
+12. Administración con énfasis en Contabilidad y Finanzas.
+13. Administración con énfasis en Contaduría Pública y Finanzas
+14. Administración con énfasis en Finanzas
+15. Administración con énfasis en Gestión Financiera
+16. Administración de Empresas con énfasis Finanzas y Gerencia
+17. Administración de Empresas con énfasis Administración Financiera
+18. Administración de Empresas con énfasis Banca y Finanzas
+19. Administración de Empresas con énfasis Contaduría y Finanzas
+20. Administración de Empresas con énfasis en Administración Financiera
+21. Administración de Empresas con énfasis en Banca y Finanzas
+22. Administración de Empresas con énfasis en Finanzas y Mercadeo
+23. Administración de Empresas con énfasis Finanzas y Contabilidad
+24. Administración de Empresas con énfasis Finanzas y Recursos Humanos
+25. Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+26.Administración de Negocios con énfasis en Banca y Finanzas
+27. Administración de Negocios con énfasis en Finanzas
+28. Administración de Negocios con énfasis Entidades Financieras
+29. Administración de Negocios con énfasis Finanzas
+30. Administración de Negocios con énfasis Gerencia Financiera
+31. Administración y Dirección de Empresas con énfasis Finanzas
+32. Administración y Dirección de Empresas con énfasis en Finanzas
+33. Banca y Finanzas
+34. Contabilidad y Finanzas
+35. Dirección de Empresas con énfasis Banca y Finanzas
+36. Finanzas
+37. Gerencia Financiera
+38. Gestión y Finanzas Públicas
+39. Posgrado en Administración de empresas con énfasis en Finanzas
+40. Administración de Empresas con énfasis en Contaduría 41. Administración con énfasis en Contaduría Pública 42. Administración con énfasis en Finanzas.
+43. Ingeniería Industrial
 Atinencias para el curso, Gestión administrativa, emprendedurismo e innovación
 1. Administración con énfasis en Compras y Recursos Materiales
 2. Administración con énfasis en Contabilidad
@@ -5168,9 +5354,8 @@ Atinencias para el curso, Gestión administrativa, emprendedurismo e innovación
 20. Administración de Empresas con énfasis en Contaduría y Gerencia
 21. Administración de Empresas con énfasis en Contratación Administrativa
 22. Administración de Empresas con énfasis en Dirección de Empresas
-23. Administración de Empresas con énfasis en Emprendedurismo y Creación de
-24. Empresas o Gerencias de Proyectos
-25. Administración de Empresas con énfasis en Finanzas
+23. Administración de Empresas con énfasis en Emprendedurismo y Creación de 24. Empresas o Gerencias de Proyectos
+25.Administración de Empresas con énfasis en Finanzas
 26. Administración de Empresas con énfasis en Finanzas Internacionales
 27. Administración de Empresas con énfasis en Finanzas y Contabilidad
 28. Administración de Empresas con énfasis en Finanzas y Gerencia
@@ -5216,7 +5401,7 @@ Atinencias para el curso, Gestión administrativa, emprendedurismo e innovación
 68. Administración de Negocios con énfasis en Reingeniería Administrativa
 69. Administración de Proyectos
 70. Administración Pública
-71. Administración Pública con énfasis en Administración de Contratos
+71.Administración Pública con énfasis en Administración de Contratos
 72. Administración Pública con énfasis en Gestión Pública
 73. Administración y Dirección de Empresas
 74. Administración y Dirección de Empresas con énfasis en Finanzas
@@ -5307,17 +5492,948 @@ Control Interno
 159. Administración de Negocios con énfasis en Mercadeo
 Administración de empresas con énfasis en mercadeo
 160. Economía Agrícola
+Atinencias para el curso, Introducción al análisis descriptivo
+1. Administración de Empresas con énfasis Finanzas y Contabilidad
+2. Administración de Empresas con énfasis Finanzas y Recursos Humanos
+3. Administración de Negocios con énfasis en Dirección de empresas y Finanzas
+4. Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+5. Ciencias Económicas con énfasis en Estadística
+6. Economista
+7. Enseñanza de la Matemática
+8. Estadística
+9. Estadística con énfasis en Administración de Negocios
+10.Estadística con énfasis en Biología
+11. Estadística con énfasis en Ciencias del Hombre
+12.Estadística con énfasis en Economía
+13.Estadística con énfasis en Informática
+14.Estadística con énfasis en Investigación de Mercados
+15.Estadística con énfasis en Matemática
+16.Estadística con énfasis en Población
+17.Estadística con énfasis en Población y Salud
+18.Ingeniería en Producción Industrial
+19.Ingeniería Industrial
+20.Matemática
+21.Matemática Aplicada
+22.Matemática Aplicada a la Computación
+23.Matemática con énfasis en Matemática Aplicada
+24.Matemática con énfasis en Matemática Educativa
+25.Matemática Pura
+26.Administración con énfasis en Contaduría Pública y Finanzas
+27.Administración con énfasis en Finanzas
+28.Administración con énfasis en Gestión Financiera
+29.Administración de Empresas con énfasis Finanzas y Gerencia
+30.Administración de Empresas con énfasis Administración Financiera
+31.Administración de Empresas con énfasis Banca y Finanzas
+32.Administración de Empresas con énfasis Contaduría y Finanzas
+33.Administración de Empresas con énfasis en Administración Financiera
+34.Administración de Empresas con énfasis en Banca y Finanzas
+35.Administración de Empresas con énfasis en Finanzas y Mercadeo
+Nota Técnica: Se consideran atinentes, otras carreras o especialidades relacionadas, a saber:
+1. Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+2. Economía Agrícola con énfasis en Extensión y Gestión Agrícola
+3. Docencia en enseñanza de las matemáticas
+Atinencias para el curso, Introducción a la investigación
+1. Administración con énfasis en Contabilidad
+2. Administración con énfasis en Contabilidad y Finanzas
+3. Administración con énfasis en Contaduría Pública y Finanzas
+4. Administración con énfasis en Finanzas Administración con énfasis en Gestión Financiera
+5. Administración de Empresas
+6. Administración de Negocios
+7. Antropología
+8. Contaduría Pública
+9. Planificación
+10.Planificación Económica Social
+11. Promoción Social con énfasis en Planificación Social
+12.Sociología
+13.Sociología con sus diferentes énfasis
+14.Trabajo Social
+15.Trabajo Social con énfasis en Investigación
+Nota Técnica:
+Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
+Atinencias para el curso, Trámites y procedimientos tributarios
+1. Administración de la Justicia
+2. Administración de la Justicia con énfasis en Administración de Justicia Civil
+3. Administración de la Justicia con énfasis en Administración de Justicia Laboral
+4. Administración de la Justicia con énfasis en Administración de Justicia Penal 5. Administración de la Justicia con énfasis en Administración de Justicia de la Justicia de Relaciones Familiares
+6. Administración y Derecho Empresarial
+7. Ciencias Penales
+8. Derecho
+9. Derecho Administrativo
+10.Derecho Agrario
+11. Derecho Agrario y Ambiental
+12.Derecho Ambiental
+13.Derecho Comercial
+14.Derecho Comunitario y Derechos Humanos
+15.Derecho con énfasis en Derecho Empresarial
+16.Derecho con énfasis en Derecho Internacional
+17.Derecho con énfasis en Derecho Penal
+18.Derecho con énfasis en Derecho Privado
+19.Derecho con énfasis en Derecho Público
+20.Derecho con énfasis en Derecho Público Externo
+21.Derecho con énfasis en Derecho Público Interno
+22.Derecho con énfasis en Derecho Social
+23.Derecho con énfasis en Derecho Tributario
+24.Derecho con énfasis en Derechos Humanos
+25.Derecho con mención en Ciencias Forenses
+26.Derecho con mención en Derecho Ambiental
+27.Derecho con mención en Derecho Comercial
+28.Derecho con mención en Derecho de Bolsa
+29.Derecho con mención en Derecho Laboral
+30.Derecho con mención en Formación de Jueces
+31.Derecho con mención en Tecnología, Comercio Electrónico y Telecomunicaciones
+32.Derecho Constitucional
+33.Derecho de Familia
+34.Derecho del Trabajo y Seguridad Social
+35.Derecho Económico mención Comercio Internacional
+36.Derecho Empresarial
+37.Derecho Internacional
+38.Derecho Notarial y Registral
+39.Derecho Penal
+40.Derecho Público
+41.Derecho Público con énfasis en Derecho Público Interno
+42.Derecho Público con énfasis en Derecho Urbanístico y Municipal
+43.Derecho Registral
+44.Derecho Tributario
+45.Derechos Humanos
+46.Derechos Humanos y Educación para la Paz
+47.Justicia Constitucional
+48.Legislación Ambiental
+49.Leyes
+50.Notario Público
+51.Maestría Profesional en Asesoría Fiscal
+52.Administración con énfasis en Contabilidad
+53.Administración con énfasis en Contabilidad y Finanzas
+54. Administración con énfasis en Contaduría Pública y Finanzas
+55.Administración de Empresas con énfasis Contabilidad
+56.Administración de Empresas con énfasis Contaduría Pública
+57.Administración de Empresas con énfasis Contaduría y Finanzas
+58.Administración de Empresas con énfasis Contaduría y Gerencia
+59.Administración de Empresas con énfasis en Contabilidad
+60.Administración de Negocios con énfasis en Contabilidad
+61.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+62.Contabilidad
+63. Contabilidad y Finanzas
+64. Contaduría Pública
+65.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Análisis fiscal y tributario
+1. Maestría Profesional en Asesoría Fiscal
+2. Administración con énfasis en Contabilidad
+3. Administración con énfasis en Contabilidad y Finanzas
+4. Administración con énfasis en Contaduría Pública y Finanzas
+5. Administración de Empresas con énfasis Contabilidad
+6. Administración de Empresas con énfasis Contaduría Pública
+7. Administración de Empresas con énfasis Contaduría y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Gerencia
+9. Administración de Empresas con énfasis en Contabilidad
+10.Administración de Negocios con énfasis en Contabilidad
+11. Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+12.Contabilidad
+13. Contabilidad y Finanzas
+14. Contaduría Pública
+15.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Análisis de datos para la toma de decisiones 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9.Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11.Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31.Administración
+32.Administración de Empresas
+33.Administración de Negocios
+34.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+35.Ciencias Económicas con énfasis en Estadística
+36.Economía
+37.Enseñanza de la Matemática
+38.Estadística
+39.Estadística con énfasis en Administración de Negocios
+40.Estadística con énfasis en Biología
+41.Estadística con énfasis en Ciencias del Hombre
+42.Estadística con énfasis en Economía
+43.Estadística con énfasis en Informática
+44.Estadística con énfasis en Investigación de Mercados
+45.Estadística con énfasis en Matemática
+46.Estadística con énfasis en Población
+47.Estadística con énfasis en Población y Salud
+48.Ingeniería en Producción Industrial
+49.Ingeniería Industrial
+50.Matemática
+51.Matemática Aplicada
+52.Matemática Aplicada a la Computación
+53.Matemática con énfasis en Matemática Aplicada
+54.Matemática con énfasis en Matemática Educativa
+55.Matemática Pura
+Atinencias para el curso, Fundamentos de la gestión del capital humano para contabilidad
+1. Administración con énfasis en Compras y Recursos Materiales
+2. Administración con énfasis en Contabilidad
+3. Administración con énfasis en Contabilidad y Finanzas
+4. Administración con énfasis en Contaduría Pública y Finanzas
+5. Administración con énfasis en Dirección Empresarial
+6. Administración con énfasis en Empresas
+7. Administración con énfasis en Finanzas
+8. Administración con énfasis en Gestión Financiera
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas
+11. Administración de Empresas con énfasis en Administración de la Producción
+12.Administración de Empresas con énfasis en Administración Financiera
+13.Administración de Empresas con énfasis en Alta Gerencia
+14.Administración de Empresas con énfasis en Banca y Finanza
+15.Administración de Empresas con énfasis en Compras y Materiales
+16.Administración de Empresas con énfasis en Contabilidad
+17.Administración de Empresas con énfasis en Contaduría y Finanzas
+18.Administración de Empresas con énfasis en Contaduría y Gerencia
+19.Administración de Empresas con énfasis en Contratación Administrativa
+20.Administración de Empresas con énfasis en Dirección de Empresas
+21.Administración de Empresas con énfasis en Emprendedurismo y Creación de
+Empresas o Gerencias de Proyectos
+22.Administración de Empresas con énfasis en Finanzas
+23.Administración de Empresas con énfasis en Finanzas Internacionales
+24.Administración de Empresas con énfasis en Finanzas y Contabilidad
+25.Administración de Empresas con énfasis en Finanzas y Gerencia
+26.Administración de Empresas con énfasis en Finanzas y Mercadeo
+27.Administración de Empresas con énfasis en Gerencia
+28.Administración de Empresas con énfasis en Gerencia de la Calidad
+29.Administración de Empresas con énfasis en Gerencia de Operaciones
+30.Administración de Empresas con énfasis en Gerencia General
+31.Administración de Empresas con énfasis en Gerencia Internacional
+32.Administración de Empresas con énfasis en Gerencia, Finanzas y Mercadeo
+33.Administración de Empresas con énfasis en Gestión Organizacional
+34.Administración de Empresas con énfasis en Gestión Pública
+35.Administración de Empresas con énfasis en Gestión y Servicios de Información
+36.Administración de Empresas con énfasis en Mercadeo y Gerencia
+37.Administración de Empresas con énfasis en Negocios Internacionales
+38.Administración de Empresas con énfasis en Producción
+39.Administración de Negocios
+40.Administración de Negocios con énfasis en Administración Industrial
+41.Administración de Negocios con énfasis en Alta Gerencia
+42.Administración de Negocios con énfasis en Banca y Finanzas
+43.Administración de Negocios con énfasis en Contabilidad
+44.Administración de Negocios con énfasis en Contabilidad y Dirección de
+45.Empresas
+46.Administración de Negocios con énfasis en Contaduría Pública
+47.Administración de Negocios con énfasis en Desarrollo de Propia Empresa
+48.Administración de Negocios con énfasis en Dirección de Empresas
+49.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+50.Administración de Negocios con énfasis en Dirección de Empresas y Control Interno
+51.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+52.Administración de Negocios con énfasis en Dirección Empresarial
+53.Administración de Negocios con énfasis en Dirección Empresas y Finanzas
+54.Administración de Negocios con énfasis en Dirección Empresas y Gerencia
+55.Administración de Negocios con énfasis en Entidades Financieras
+56.Administración de Negocios con énfasis en Finanzas
+57.Administración de Negocios con énfasis en Gerencia
+58.Administración de Negocios con énfasis en Gerencia de Proyectos
+59.Administración de Negocios con énfasis en Gerencia Estratégica
+60.Administración de Negocios con énfasis en Gerencia Financiera
+61.Administración de Negocios con énfasis en Gerencia General
+62.Administración de Negocios con énfasis en Gerencia Industrial
+63.Administración de Negocios con énfasis en Gerencia Tributaria
+64.Administración de Negocios con énfasis en Gerencia y Evaluación de Proyectos
+65.Administración de Negocios con énfasis en Reingeniería Administrativa
+66.Administración de Proyectos
+67.Administración Pública
+68.Administración Pública con énfasis en Administración de Contratos
+69.Administración Pública con énfasis en Gestión Pública
+70.Administración y Dirección de Empresas
+71.Administración y Dirección de Empresas con énfasis en Finanzas
+72.Administración y Dirección de Empresas con énfasis en Gerencia
+73.Administración y Gerencia de Empresas
+74.Ciencias de la Administración y Gerencia
+75.Dirección de Empresas
+76.Administración de Empresas con énfasis en Contaduría
+77.Contaduría Pública
+78.Administración de Negocios con énfasis en Mercadeo
+Atinencias para el curso, Fundamentos de mercadeo
+1. Administración con énfasis en Mercadeo
+2. Administración con énfasis en Mercadeo y Comercio Internacional
+3. Administración con énfasis en Mercadeo y Publicidad
+4. Administración con énfasis en Mercadeo y Ventas
+5. Administración con énfasis en Recursos Humanos
+6. Administración de Empresas con énfasis en Administración Financiera
+7. Administración de Empresas con énfasis en Comercio Internacional
+8. Administración de Empresas con énfasis en Comercio y Mercadeo Internacional
+9. Administración de Empresas con énfasis en Mercadeo y Comercio Internacional
+10.Administración de Empresas con énfasis en Mercadeo y Publicidad
+11. Administración de Empresas con énfasis en Mercadeo y Ventas
+12.Administración de Negocios con énfasis en Mercadeo y Publicidad
+13.Administración de Negocios con énfasis, mención o concentración en Mercadeo
+14.Administración de Negocios con mención en Gerencia de Mercadeo y Ventas
+15.Comunicación de Mercadeo
+16.Dirección de Empresas con énfasis en Mercadeo
+17.Dirección Empresarial con énfasis en Mercadeo, Promoción y Ventas
+18.Mercadeo y Negocios Internacionales
+19.Mercadeo y Ventas
+20.Administración de Negocios con énfasis en Mercadeo
+Atinencias para el curso, Fundamentos de la producción
+1. Administración de Empresas con énfasis en Gerencia de Operaciones
+2. Administración de Empresas con énfasis en Mejoramiento de Calidad y
+Productividad
+3. Administración de Empresas con énfasis en Producción
+4. Administración de la Producción
+5. Ingeniería en Industrial
+6. Ingeniería en Industrial con sus énfasis
+7. Ingeniería en Mantenimiento Industrial
+8. Ingeniería en Procesos y Calidad
+9. Ingeniería en Producción Industrial
+10.Ingeniería en Supervisión de Producción
+11. Producción Industrial
+12.Sistemas Modernos de Manufactura
+13.Supervisión de Producción
+14.Ciencia e Ingeniería de los Materiales
+15.Ciencia e Ingeniería de los Materiales con énfasis en Procesos Industriales
+Nota Técnica:
+Por ser un curso multidisciplinario se podrá asignar a un profesional con especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
+Atinencias para el curso, Normativa contable PYMES 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Finanzas avanzadas
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas 22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Gestión de riesgos
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11.Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34.Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Finanzas corporativas 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Electivo I
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera 10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos 14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas 16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras 18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Auditoría Forense
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis
+7. Administración Financiera
+8. Administración de Empresas con énfasis Banca y Finanzas
+9. Administración de Empresas con énfasis Contaduría y Finanzas
+10.Administración de Empresas con énfasis en Administración Financiera
+11. Administración de Empresas con énfasis en Banca y Finanzas
+12.Administración de Empresas con énfasis en Finanzas y Mercadeo
+13.Administración de Empresas con énfasis Finanzas y Contabilidad
+14.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas 21.Administración y Dirección de Empresas con énfasis en Finanzas Banca y Finanzas
+22.Contabilidad y Finanzas
+23.Dirección de Empresas con énfasis Banca y Finanzas
+24.Finanzas
+25.Gerencia Financiera
+26.Gestión y Finanzas Públicas
+27.Posgrado en Administración de empresas con énfasis en Finanzas
+28.Administración de Empresas con énfasis en Contaduría 29.Administración con énfasis en Contaduría Pública 30.Administración con énfasis en Finanzas.
+31.Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34.Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43.Contabilidad y Finanzas
+44.Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Electivo II
+1. Maestría Profesional en Asesoría Fiscal
+2. Administración con énfasis en Contabilidad
+3. Administración con énfasis en Contabilidad y Finanzas
+4. Administración con énfasis en Contaduría Pública y Finanzas
+5. Administración de Empresas con énfasis Contabilidad
+6. Administración de Empresas con énfasis Contaduría Pública
+7. Administración de Empresas con énfasis Contaduría y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Gerencia
+9. Administración de Empresas con énfasis en Contabilidad
+10.Administración de Negocios con énfasis en Contabilidad
+11. Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+12.Contabilidad
+13. Contabilidad y Finanzas
+14. Contaduría Pública
+15.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Finanzas sociales
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Softwares para la presentación y gestión de datos
+1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría
+30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas. Maestría Profesional en Asesoría Fiscal
+32.Administración con énfasis en Contabilidad
+33.Administración con énfasis en Contabilidad y Finanzas
+34. Administración con énfasis en Contaduría Pública y Finanzas
+35.Administración de Empresas con énfasis Contabilidad
+36.Administración de Empresas con énfasis Contaduría Pública
+37.Administración de Empresas con énfasis Contaduría y Finanzas
+38.Administración de Empresas con énfasis Contaduría y Gerencia
+39.Administración de Empresas con énfasis en Contabilidad
+40.Administración de Negocios con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+42.Contabilidad
+43. Contabilidad y Finanzas
+44. Contaduría Pública
+45.Administración de Empresas con énfasis Contaduría
+46.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+47.Ciencias Económicas con énfasis en Estadística
+48.Economía
+49.Enseñanza de la Matemática
+50.Estadística
+51.Estadística con énfasis en Administración de Negocios
+52.Estadística con énfasis en Biología
+53.Estadística con énfasis en Ciencias del Hombre
+54.Estadística con énfasis en Economía
+55.Estadística con énfasis en Informática
+56.Estadística con énfasis en Investigación de Mercados
+57.Estadística con énfasis en Matemática
+58.Estadística con énfasis en Población
+59.Estadística con énfasis en Población y Salud
+60.Ingeniería en Producción Industrial
+61.Ingeniería Industrial
+62.Matemática
+63.Matemática Aplicada
+64.Matemática Aplicada a la Computación
+65.Matemática con énfasis en Matemática Aplicada
+66.Matemática con énfasis en Matemática Educativa
+67.Matemática Pura
+Atinencias para el curso, Negocios electrónicos 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría 30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas.
+32.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+33.Ciencias Económicas con énfasis en Estadística
+34.Economía
+35.Enseñanza de la Matemática
+36.Estadística
+37.Estadística con énfasis en Administración de Negocios
+38.Estadística con énfasis en Biología
+39.Estadística con énfasis en Ciencias del Hombre
+40.Estadística con énfasis en Economía
+41.Estadística con énfasis en Informática
+42.Estadística con énfasis en Investigación de Mercados
+43.Estadística con énfasis en Matemática
+44.Estadística con énfasis en Población
+45.Estadística con énfasis en Población y Salud
+46.Ingeniería en Producción Industrial
+47.Ingeniería Industrial
+48.Matemática
+49.Matemática Aplicada
+50.Matemática Aplicada a la Computación
+51.Matemática con énfasis en Matemática Aplicada
+52.Matemática con énfasis en Matemática Educativa
+53.Matemática Pura
+Atinencias para el curso, Modelos predictivos en contabilidad y finanzas 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría 30.Administración con énfasis en Contaduría Pública
+31. Administración con énfasis en Finanzas.
+32.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+33.Ciencias Económicas con énfasis en Estadística
+34.Economía
+35.Enseñanza de la Matemática
+36.Estadística
+37.Estadística con énfasis en Administración de Negocios
+38.Estadística con énfasis en Biología
+39.Estadística con énfasis en Ciencias del Hombre
+40.Estadística con énfasis en Economía
+41.Estadística con énfasis en Informática
+42.Estadística con énfasis en Investigación de Mercados
+43.Estadística con énfasis en Matemática
+44.Estadística con énfasis en Población
+45.Estadística con énfasis en Población y Salud
+46.Ingeniería en Producción Industrial
+47.Ingeniería Industrial
+48.Matemática
+49.Matemática Aplicada
+50.Matemática Aplicada a la Computación
+51.Matemática con énfasis en Matemática Aplicada
+52.Matemática con énfasis en Matemática Educativa
+53.Matemática Pura
+Atinencias para el curso, NIC SP
+1. Maestría Profesional en Asesoría Fiscal
+2. Administración con énfasis en Contabilidad
+3. Administración con énfasis en Contabilidad y Finanzas
+4. Administración con énfasis en Contaduría Pública y Finanzas
+5. Administración de Empresas con énfasis Contabilidad
+6. Administración de Empresas con énfasis Contaduría Pública
+7. Administración de Empresas con énfasis Contaduría y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Gerencia
+9. Administración de Empresas con énfasis en Contabilidad
+10.Administración de Negocios con énfasis en Contabilidad
+11. Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+12.Contabilidad
+13. Contabilidad y Finanzas
+14. Contaduría Pública
+15.Administración de Empresas con énfasis Contaduría
+Atinencias para el curso, Planificación financiera con enfoque al bienestar 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas 17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría 30.Administración con énfasis en Contaduría Pública 31. Administración con énfasis en Finanzas.
+Atinencias para el curso, Muestreo estadístico para auditoría 1. Administración con énfasis en Contabilidad y Finanzas.
+2. Administración con énfasis en Contaduría Pública y Finanzas
+3. Administración con énfasis en Finanzas
+4. Administración con énfasis en Gestión Financiera
+5. Administración de Empresas con énfasis Finanzas y Gerencia
+6. Administración de Empresas con énfasis Administración Financiera
+7. Administración de Empresas con énfasis Banca y Finanzas
+8. Administración de Empresas con énfasis Contaduría y Finanzas
+9. Administración de Empresas con énfasis en Administración Financiera
+10.Administración de Empresas con énfasis en Banca y Finanzas
+11. Administración de Empresas con énfasis en Finanzas y Mercadeo
+12.Administración de Empresas con énfasis Finanzas y Contabilidad
+13.Administración de Empresas con énfasis Finanzas y Recursos Humanos
+14.Administración de Negocios con énfasis en Dirección de Empresas y Finanzas
+15.Administración de Negocios con énfasis en Banca y Finanzas
+16.Administración de Negocios con énfasis en Finanzas
+17.Administración de Negocios con énfasis Entidades Financieras
+18.Administración de Negocios con énfasis Finanzas
+19.Administración de Negocios con énfasis Gerencia Financiera
+20.Administración y Dirección de Empresas con énfasis Finanzas
+21.Administración y Dirección de Empresas con énfasis en Finanzas
+22.Banca y Finanzas
+23.Contabilidad y Finanzas
+24.Dirección de Empresas con énfasis Banca y Finanzas
+25.Finanzas
+26.Gerencia Financiera
+27.Gestión y Finanzas Públicas
+28.Posgrado en Administración de empresas con énfasis en Finanzas
+29.Administración de Empresas con énfasis en Contaduría 30.Administración con énfasis en Contaduría Pública
+31.Administración con énfasis en Finanzas.
+32.Maestría Profesional en Asesoría Fiscal
+33.Administración con énfasis en Contabilidad
+34.Administración con énfasis en Contabilidad y Finanzas
+35. Administración con énfasis en Contaduría Pública y Finanzas
+36.Administración de Empresas con énfasis Contabilidad
+37.Administración de Empresas con énfasis Contaduría Pública
+38.Administración de Empresas con énfasis Contaduría y Finanzas
+39.Administración de Empresas con énfasis Contaduría y Gerencia
+40.Administración de Empresas con énfasis en Contabilidad
+41.Administración de Negocios con énfasis en Contabilidad
+42.Administración de Negocios con énfasis en Contabilidad y Dirección de Empresas
+43.Contabilidad
+44. Contabilidad y Finanzas
+45. Contaduría Pública
+46.Administración de Empresas con énfasis Contaduría
+47.Ciencias de la Educación con énfasis en la enseñanza de la Matemática
+48.Ciencias Económicas con énfasis en Estadística
+49.Economía
+50.Enseñanza de la Matemática
+51.Estadística
+52.Estadística con énfasis en Administración de Negocios
+53.Estadística con énfasis en Biología
+54.Estadística con énfasis en Ciencias del Hombre
+55.Estadística con énfasis en Economía
+56.Estadística con énfasis en Informática
+57.Estadística con énfasis en Investigación de Mercados
+58.Estadística con énfasis en Matemática
+59.Estadística con énfasis en Población
+60.Estadística con énfasis en Población y Salud
+61.Ingeniería en Producción Industrial
+62.Ingeniería Industrial
+63.Matemática
+64.Matemática Aplicada
+65.Matemática Aplicada a la Computación
+66.Matemática con énfasis en Matemática Aplicada
+67.Matemática con énfasis en Matemática Educativa
+68.Matemática Pura
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
 (Reformado por el Consejo Universitario en sesión ordinaria realizada el 14 de mayo de 2020 mediante acuerdo 8-10-2020, según artículos 8 y 9).
 (Reformado mediante Acuerdo 12 tomado por el Consejo Universitario en la Sesión Ordinaria No. 28-2024, celebrada el jueves 12 de setiembre de 2024, a las catorce horas, según el Artículo 15 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 183 del miércoles 2 de octubre del 2024).
 (Reformado mediante Acuerdo 10 tomado por el Consejo Universitario en la Sesión Ordinaria No. 38-2024, celebrada el viernes 06 de diciembre de 2024, a las ocho horas con treinta minutos, según el Artículo 18 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 6 del lunes 13 de enero del 2025).
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Gestión y administración empresarial
 Propósito de la carrera
 La Carrera de Gestión Empresarial tiene como propósito preparar profesionales capaces de establecer o dirigir empresas, desarrollando en el estudiantado el conocimiento integral, que le permita adaptarse a las necesidades actuales del mercado laboral y de vanguardia, a través de la investigación, la acción social, el emprendedurismo empresarial y el desarrollo sostenible, para una proyección integral en la sociedad.
 Cursos que conforman la carrera
 Administración Empresarial; Recursos Informáticos; Matemática General;
 Comunicación Administrativa; Derecho Laboral; Contabilidad I y II; Inglés I, II, III, IV, V y VI; Sistemas de Información Empresarial; Economía General; Matemática Financiera; Métodos de Investigación; Psicología de las Organizaciones; Gestión de
-Ventas y Servicios; Administración de los Recursos Empresariales; Estadística Descriptiva; Mercadotecnia; Finanzas I y II; Liderazgo y Habilidades en la Gestión Empresarial; Derecho Mercantil y Tributario; Cambio y desarrollo Organizacional; Gestión del Talento Humano; Control Interno en las Empresas; Gestión de la Producción y la Estrategia Empresarial; Contabilidad de Costos I y II; Práctica Profesional; Gestión de la Calidad, Gestión de la Innovación; Auditoría Empresarial; Formación Humanística; Planificación Estratégica; Área Cultural y Deportiva; Emprendedurismo Empresarial I y II; Seguridad e Higiene Ocupacional; Mercadeo II; Ética y Sostenibilidad Ambiental en las Empresas; Derecho Empresarial; Informática para Emprendedores; Gestión de Proyectos; Negociación para la Competitividad Empresarial; Gestión Tecnológica de las Empresas; Entorno Económico Mundial; Contabilidad Gerencial; Gerencia del Talento Humano; Sistema de Diagnóstico y Desarrollo Empresarial; Finanzas Internacionales; Taller de Investigación; Estrategia de Innovación y Competitividad; Administración Estratégica de Operaciones; Bioética y Sostenibilidad Empresarial; Gerencia Estratégica de Mercadeo; Comercio Internacional; Gerencia Estratégica de Mercadeo; Investigación Dirigida; Gestión de la Sostenibilidad Empresarial; Gerencia de Proyectos Empresariales; Administración de Recursos Empresariales.
+Ventas y Servicios; Administración de los Recursos Empresariales; Estadística
+Descriptiva; Mercadotecnia; Finanzas I y II; Liderazgo y Habilidades en la Gestión Empresarial; Derecho Mercantil y Tributario; Cambio y desarrollo Organizacional;
+Gestión del Talento Humano; Control Interno en las Empresas; Gestión de la
+Producción y la Estrategia Empresarial; Contabilidad de Costos I y II; Práctica Profesional; Gestión de la Calidad, Gestión de la Innovación; Auditoría Empresarial; Formación Humanística; Planificación Estratégica; Área Cultural y Deportiva;
+Emprendedurismo Empresarial I y II; Seguridad e Higiene Ocupacional; Mercadeo II; Ética y Sostenibilidad Ambiental en las Empresas; Derecho Empresarial; Informática para Emprendedores; Gestión de Proyectos; Negociación para la Competitividad Empresarial; Gestión Tecnológica de las Empresas; Entorno Económico Mundial; Contabilidad Gerencial; Gerencia del Talento Humano; Sistema de Diagnóstico y Desarrollo Empresarial; Finanzas Internacionales; Taller de Investigación; Estrategia de Innovación y Competitividad; Administración Estratégica de Operaciones; Bioética y Sostenibilidad Empresarial; Gerencia Estratégica de Mercadeo; Comercio Internacional; Gerencia Estratégica de Mercadeo; Investigación Dirigida; Gestión de la Sostenibilidad Empresarial; Gerencia de Proyectos Empresariales; Administración de Recursos Empresariales.
 Electivas de Bachillerato: Prospectiva de Análisis Administrativo; Gestión de las Empresas Globalizadas; Estrategia Digital Empresarial.
 Electivas de Licenciatura: Métodos para la Toma de Decisiones Gerenciales; Negociación y Liderazgo Empresarial; Gerencia Financiera.
 Atinencias para los cursos de administración empresarial, Cambio y desarrollo organizacional, control interno en las empresas, emprendedurismo empresarial I y II, gestión de proyectos, sistema de diagnóstico y desarrollo empresarial, diagnóstico para el desarrollo empresarial, estrategia de innovación y competitividad, gestión de la innovación; auditoría empresarial, negociación para la competitividad empresarial, planificación estratégica, prospectiva de análisis administrativo, gestión de la empresas globalizadas, métodos para la toma de decisiones gerenciales, gestión de ventas y servicios, liderazgo y habilidades en la gestión empresarial, gerencia de proyectos empresariales y negociación y liderazgo empresarial, sistemas de información empresarial, administración de recursos empresariales.
@@ -6446,8 +7562,7 @@ Taller de investigación
 Nota Técnica:
 Se debe dar prioridad a los funcionarios de la especialidad de Diseño Gráfico que ostenten experiencia en el campo de la Investigación.
 Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
-Atinencias para el curso práctica profesional y opción de graduación.
-Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
+Atinencias para el curso práctica profesional y opción de graduación. Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
 Atinencias para el curso mercadeo; medios de comunicación y publicidad
 1. Administración con énfasis en Mercadeo
 2. Administración con énfasis en Mercadeo y Comercio Internacional
@@ -6481,8 +7596,7 @@ Inglés como lengua extranjera
 Propósito de la carrera
 La carrera de Inglés como Lengua Extranjera tiene como objeto promover la formación integral de profesionales en el área del idioma inglés con habilidades y conocimientos en las cuatro áreas de dominio del idioma: expresión oral, comprensión auditiva, expresión escrita y comprensión de lectura, y con cualidades humanas, éticas, afectivas, socioculturales, técnicas e intelectuales, facilitándoles una formación integral que les provea de conocimientos teórico-prácticos que les permitan desarrollar la competencia comunicativa necesaria para atender las demandas del mercado laboral que permitan contribuir con el desarrollo del país.
 Cursos que conforman la carrera de inglés como lengua extranjera
-Inglés Integrado I, II, III y IV; Expresión Oral I y II; Lectura Básica, Lectura I y Lectura y Composición, Composición I y II, Escritura Creativa; Gramática I, II, III, IV, V y VI; Comprensión Auditiva y Pronunciación Básica;, Pronunciación I, II y III; Expresiones Idiomáticas y Perífrasis Verbales I y II; Comunicación Comercial I y II; Recursos
-Informáticos; Comunicación Oral I y II; Gramática Aplicada; Fonología Inglesa; Optativa I, II y III según área; Comunicación Intercultural I y II; Composición Académica; Literatura Inglesa I Y II; Lingüística General; Práctica Profesional; Formación Humanística; Área Deportiva; Área Cultural.
+Inglés Integrado I, II, III y IV; Expresión Oral I y II; Lectura Básica, Lectura I y Lectura y Composición, Composición I y II, Escritura Creativa; Gramática I, II, III, IV, V y VI; Comprensión Auditiva y Pronunciación Básica;, Pronunciación I, II y III; Expresiones Idiomáticas y Perífrasis Verbales I y II; Comunicación Comercial I y II; Recursos Informáticos; Comunicación Oral I y II; Gramática Aplicada; Fonología Inglesa; Optativa I, II y III según área; Comunicación Intercultural I y II; Composición Académica; Literatura Inglesa I Y II; Lingüística General; Práctica Profesional; Formación Humanística; Área Deportiva; Área Cultural.
 Atinencias para los curso inglés integrado I, II, III y IV; expresión oral I y II; lectura básica, lectura I y lectura y composición, composición I y II, escritura creativa; gramática I, II, III, IV, V y VI; comprensión auditiva y pronunciación básica; pronunciación I, II y III; expresiones idiomáticas y perífrasis verbales I y II; comunicación comercial I y II; comunicación oral I y II; gramática aplicada; fonología inglesa; optativa I, II y III según área; comunicación intercultural I y II; composición académica; literatura inglesa I y II; lingüística general; práctica profesional
 1. Didáctica del Inglés
 2. Enseñanza de Inglés con mención en Dirección y Evaluación de Programas de 3. Inglés
@@ -6549,8 +7663,7 @@ Atinencias para el curso lingüística general
 15. Licenciatura en Docencia en Inglés
 16. Licenciatura en Inglés con Énfasis en Traducción
 17. Licenciatura En docencia con énfasis en inglés
-Atinencias para los cursos Optativa I, II y III: INGLÉS PARA COMERCIO Y
-NEGOCIOS I. II y III.; INGLÉS PARA TECNOLOGÍA I, II y III; INGLÉS PARA
+Atinencias para los cursos Optativa I, II y III: INGLÉS PARA COMERCIO Y NEGOCIOS I. II y III.; INGLÉS PARA TECNOLOGÍA I, II y III; INGLÉS PARA
 TURISMO I, II y III.
 1. Licenciatura en Ciencias de la Educación con Énfasis en Didáctica del Inglés
 2. Licenciatura en Docencia en Inglés
@@ -6577,7 +7690,8 @@ Tecnología de la imagen
 Propósito de la carrera
 La carrera de Tecnología de la Imagen tiene como propósito formar a profesionales con los conocimientos integrales para el diseño y la producción de mensajes fotográficos, videográficos y multimediales así como el desarrollo de habilidades y actitudes que garanticen su inserción en la industria creativa basada en la imagen y de la sociedad del conocimiento.
 Cursos que conforman la carrera
-Diseño I II III; Técnica Fotográfica; Comunicación Oral y Escrita; Teoría de la Imagen; Iluminación I II III; Fotografía B y N; Historia del Arte y la Cultura; Laboratorio Digital I II III; Historia de la Fotografía; Laboratorio a Color; Proyectos Visuales; Gestión de la Empresa Fotográfica; Retrato; Legislación para Emprendimientos Fotográficos; Fundamentos de Mercadeo para la Empresa fotográfica Mercadeo; Fotografía Comercial; Fotografía Social; Paisaje; Estrategia Promocional; Formación Humanística; Fotografía Arquitectónica; Animación Fotográfica I; Historia de la Imagen en Movimiento; Ética profesional; Formación Humanística; Actividad Deportiva; Producción; Imagen y Narración; Video I II III; Formación Humanística; Actividad Cultural; Reportaje Fotográfico; Fotografía de Naturaleza; Diseño Web I II; Propiedad Intelectual; Práctica Profesional.
+Diseño I II III; Técnica Fotográfica; Comunicación Oral y Escrita; Teoría de la Imagen;
+Iluminación I II III; Fotografía B y N; Historia del Arte y la Cultura; Laboratorio Digital I II III; Historia de la Fotografía; Laboratorio a Color; Proyectos Visuales; Gestión de la Empresa Fotográfica; Retrato; Legislación para Emprendimientos Fotográficos; Fundamentos de Mercadeo para la Empresa fotográfica Mercadeo; Fotografía Comercial; Fotografía Social; Paisaje; Estrategia Promocional; Formación Humanística; Fotografía Arquitectónica; Animación Fotográfica I; Historia de la Imagen en Movimiento; Ética profesional; Formación Humanística; Actividad Deportiva; Producción; Imagen y Narración; Video I II III; Formación Humanística; Actividad Cultural; Reportaje Fotográfico; Fotografía de Naturaleza; Diseño Web I II; Propiedad Intelectual; Práctica Profesional.
 Atinencias para los cursos diseño I
 1. Arte y Comunicación Visual
 2. Arte y Comunicación Visual con énfasis en Cerámica
@@ -6610,8 +7724,7 @@ Atinencias para los cursos diseño I
 30. Producción Audiovisual
 31. Tecnología de la Imagen
 32. Video
-Atinencias para los cursos diseño ii; técnica fotográfica; iluminación I, II y III; laboratorio digital I, II y III; proyectos visuales; retrato; fotografía b y n; laboratorio a color; fotografía comercial; fotografía social; fotografía arquitectónica; fotografía de naturaleza; paisaje; reportaje fotográfico
-Se consideran atinentes todas las especialidades citadas en el ítem anterior, siempre y cuando adicionalmente ostenten conocimientos y experiencia demostrada en el área de la Fotografía.
+Atinencias para los cursos diseño ii; técnica fotográfica; iluminación I, II y III; laboratorio digital I, II y III; proyectos visuales; retrato; fotografía b y n; laboratorio a color; fotografía comercial; fotografía social; fotografía arquitectónica; fotografía de naturaleza; paisaje; reportaje fotográfico Se consideran atinentes todas las especialidades citadas en el ítem anterior, siempre y cuando adicionalmente ostenten conocimientos y experiencia demostrada en el área de la Fotografía.
 Atinencias para los cursos diseño III
 1. Arte y Comunicación Visual con énfasis en Diseño Gráfico
 2. Artes Plásticas con énfasis en Diseño Gráfico
@@ -6807,13 +7920,7 @@ Ingeniería eléctrica
 Propósito de la carrera
 La carrera de Ingeniería Eléctrica tiene como propósito formar recurso humano con una base integral sólida en el campo de la ingeniería eléctrica, gestión, liderazgo, humanidades y con capacidad investigativa que satisfaga las necesidades técnicas de la industria costarricense, en materia de mantenimiento preventivo y correctivo de equipos eléctricos y electrónicos de amplia utilización en la industria.
 Cursos que conforman la carrera de ingeniería eléctrica
-Matemática General para Ingeniería; Expresión Oral y Escrita; Salud Ocupacional; Circuitos Eléctricos en Corriente Directa; Laboratorio de Circuitos Eléctricos en
-Corriente Directa; Cálculo Diferencial e Integral I y II; Cálculo Superior; Física I, II y
-III; Laboratorio de Física I, II y III; Circuitos Eléctricos en Corriente Alterna; Laboratorio de Circuitos Eléctricos en Corriente Alterna; Ecuaciones Diferenciales;
-Instalaciones Eléctricas; Laboratorio de Instalaciones Eléctricas; Dispositivos
-Semiconductores; Máquinas Eléctricas I y II; Laboratorio de Máquinas Eléctricas I y II; Laboratorio Dispositivos Semiconductores; Circuitos Digitales; Laboratorio de
-Circuitos Digitales; Control Eléctrico Industrial; Electroneumática; Automatización;
-Laboratorio de Control Eléctrico y Automatización; Práctica Profesional; Formación Humanística; Área Cultural; Área Deportiva; Química I; Laboratorio de Química l; Álgebra Lineal; Programación; Teoría Electromagnética; Métodos Numéricos; Probabilidad y Estadística; Sistemas de Potencia; Electrónica Industrial; Laboratorio de Electrónica Industrial; Hidráulica; Laboratorio de Neumática e Hidráulica; Análisis de Sistemas; Calidad de la Energía; Equipos Industriales; Control Automático; Fuentes Alternativas de Energía; Diseño de Instalaciones Eléctricas I, II y III; Ética Profesional, Gestión del Mantenimiento, Fotometría y Diseño de Iluminación, Taller de Investigación, Desarrollo Empresarial, Electrónica Industrial, Investigación Dirigida
+Matemática General para Ingeniería; Expresión Oral y Escrita; Salud Ocupacional; Circuitos Eléctricos en Corriente Directa; Laboratorio de Circuitos Eléctricos en Corriente Directa; Cálculo Diferencial e Integral I y II; Cálculo Superior; Física I, II y III; Laboratorio de Física I, II y III; Circuitos Eléctricos en Corriente Alterna; Laboratorio de Circuitos Eléctricos en Corriente Alterna; Ecuaciones Diferenciales; Instalaciones Eléctricas; Laboratorio de Instalaciones Eléctricas; Dispositivos Semiconductores; Máquinas Eléctricas I y II; Laboratorio de Máquinas Eléctricas I y II; Laboratorio Dispositivos Semiconductores; Circuitos Digitales; Laboratorio de Circuitos Digitales; Control Eléctrico Industrial; Electroneumática; Automatización; Laboratorio de Control Eléctrico y Automatización; Práctica Profesional; Formación Humanística; Área Cultural; Área Deportiva; Química I; Laboratorio de Química l; Álgebra Lineal; Programación; Teoría Electromagnética; Métodos Numéricos; Probabilidad y Estadística; Sistemas de Potencia; Electrónica Industrial; Laboratorio de Electrónica Industrial; Hidráulica; Laboratorio de Neumática e Hidráulica; Análisis de Sistemas; Calidad de la Energía; Equipos Industriales; Control Automático; Fuentes Alternativas de Energía; Diseño de Instalaciones Eléctricas I, II y III; Ética Profesional, Gestión del Mantenimiento, Fotometría y Diseño de Iluminación, Taller de Investigación, Desarrollo Empresarial, Electrónica Industrial, Investigación Dirigida
 Atinencias para el curso expresión oral y escrita
 1. Administración de Medios de Comunicación
 2. Administración de Medios de Comunicación con énfasis en Administración de Empresas de la Comunicación
@@ -7366,7 +8473,9 @@ Propósito de la carrera
 El objeto de estudio de la carrera de Ingeniería Electromecánica, la cual consiste en el estudio y aplicación híbrida que surge de la combinación sinérgica de distintas áreas del conocimiento como el electromagnetismo, la electrónica, la electricidad y la mecánica. Se aplica principalmente en mecanismos eléctricos, máquinas industriales, generación y transformación de energía. Es la responsable de realizar el análisis, diseño, desarrollo, manufactura y mantenimiento de sistemas y dispositivos electromecánicos, y son estos los que combinan partes eléctricas y mecánicas para conformar su mecanismo.
 Cursos que conforman la carrera de ingeniería electrónica
 Química I, Laboratorio de Química I, Computación para Ingeniería, Introducción a la Ingeniería, Expresión Oral y Escrita, Matemática General para Ingeniería, Física I, Laboratorio de Física I, Química II, Laboratorio de Química II, Cálculo Diferencial, Dibujo Técnico, Física II, Laboratorio de Física II, Cálculo Integral, Ciencias de los Materiales, Dibujo Industrial, Álgebra Lineal, Electrónica Industrial, Circuitos Eléctricos I, Laboratorio de Circuitos Eléctricos, Física III, Metrología Dimensional, Equipos Auxiliares, Circuitos Eléctricos II, Laboratorio de Circuitos Eléctricos II, Procesos de Soldadura y Maquinado, Salud, Seguridad e Higiene Ocupacional, Electrohidráulica, Electroneumática, Instalaciones Eléctricas Industriales, laboratorio de Instalaciones Eléctricas Industriales, Mantenimiento I, Práctica Profesional, Formación Humanística, Ecuaciones Diferenciales, Máquinas
-Eléctricas, Laboratorio de Máquinas Eléctricas, Mecánica de Fluidos, Laboratorio de Mecánica de Fluidos, Formación Humanística, Cálculo Superior, Control Eléctrico, Laboratorio de Control Eléctrico, Termodinámica, Estática, Formación Humanística, Cálculo Superior II, Automatización, Mantenimiento II, Dinámica, Mecánica de Sólidos, Formación Humanística, Administración de Empresas, Métodos Numéricos, Turbo Máquinas, Laboratorio de Turbo Máquinas, Diseño Mecánico I, Actividad Cultural, Administración del Recurso Humano, Diseño de Instalaciones Eléctricas, Sistemas de Vapor, Laboratorio de Sistemas de Vapor, Diseño Mecánico II,
+Eléctricas, Laboratorio de Máquinas Eléctricas, Mecánica de Fluidos, Laboratorio de Mecánica de Fluidos, Formación Humanística, Cálculo Superior, Control Eléctrico,
+Laboratorio de Control Eléctrico, Termodinámica, Estática, Formación Humanística,
+Cálculo Superior II, Automatización, Mantenimiento II, Dinámica, Mecánica de Sólidos, Formación Humanística, Administración de Empresas, Métodos Numéricos, Turbo Máquinas, Laboratorio de Turbo Máquinas, Diseño Mecánico I, Actividad Cultural, Administración del Recurso Humano, Diseño de Instalaciones Eléctricas, Sistemas de Vapor, Laboratorio de Sistemas de Vapor, Diseño Mecánico II,
 Actividad Deportiva, Emprendedurismo, Refrigeración, Climatización,
 Laboratorio de Refrigeración y Climatización, Electiva I, Formulación y Planificación de Proyectos, Confiabilidad, Electiva II, Taller de Investigación, Ingeniería Económica y Financiera, Ética para Ingenieros, investigación Dirigida, Electiva III.
 Atinencias para el curso de computación para ingeniería
@@ -7789,8 +8898,7 @@ Ingeniería electrónica
 Propósito de la carrera
 El objeto de estudio de la carrera es la electrónica, la cual consiste en el estudio y aplicación del comportamiento de los electrones en diversos medios, como el vacío, los gases y los semiconductores, sometidos a la acción de campos eléctricos y magnéticos empleando sistemas cuyo funcionamiento se basa en la conducción y el control del flujo microscópico de dichas partículas cargadas eléctricamente. Trata sobre el aprovechamiento y utilidad del comportamiento de las cargas eléctricas en los diferentes materiales y elementos tales como los semiconductores.
 Cursos que conforman la carrera de ingeniería electrónica
-Matemática General para Ingeniería; Expresión Oral y Escrita; Circuitos Eléctricos I y II; Laboratorio de Circuitos Eléctrico I y II; Cálculo I Cálculo Diferencial e Integral II y III; Física I, II y III; Electrónica I y II, Ecuaciones Diferenciales; Laboratorio de Electrónica I y II; Máquinas Eléctricas I y II; Programación I, II; Electrónica Digital I y
-II; Taller de Electrónica; Automatización I y II, Electrohidráulica; Laboratorio de Electrónica Digital; Electro neumática; Salud Ocupacional, Formación Humanística; Álgebra Lineal; Química I; Área Deportiva; Área Cultural; Cálculo Superior; Teoría Electromagnética; Probabilidad y Estadística; Aplicaciones de Microcontroladores; Análisis de Sistemas; Electrónica de Potencia; Control Automático; Administración del Mantenimiento; Práctica Profesional. Laboratorio de Química I, Laboratorio de Física I, II, y III; Taller de Instalaciones Eléctricas, Laboratorio de Máquinas Eléctricas I, Dispositivos de Lógica Programable, Métodos Numéricos, Ingeniería Económica, Laboratorio de Control Automático, Aplicación de FPGA, Redes I, II, III, y IV; Sistemas de Comunicaciones I y II, Proyecto Electrónico, Laboratorio de Sistemas de Comunicaciones, Laboratorio de Electrónica Industrial, Desarrollo Empresarial, Taller de Investigación, Ética Profesional, Administración de Proyectos, Investigación Dirigida, Optativas según Área.
+Matemática General para Ingeniería; Expresión Oral y Escrita; Circuitos Eléctricos I y II; Laboratorio de Circuitos Eléctrico I y II; Cálculo I Cálculo Diferencial e Integral II y III; Física I, II y III; Electrónica I y II, Ecuaciones Diferenciales; Laboratorio de Electrónica I y II; Máquinas Eléctricas I y II; Programación I, II; Electrónica Digital I y II; Taller de Electrónica; Automatización I y II, Electrohidráulica; Laboratorio de Electrónica Digital; Electro neumática; Salud Ocupacional, Formación Humanística; Álgebra Lineal; Química I; Área Deportiva; Área Cultural; Cálculo Superior; Teoría Electromagnética; Probabilidad y Estadística; Aplicaciones de Microcontroladores; Análisis de Sistemas; Electrónica de Potencia; Control Automático; Administración del Mantenimiento; Práctica Profesional. Laboratorio de Química I, Laboratorio de Física I, II, y III; Taller de Instalaciones Eléctricas, Laboratorio de Máquinas Eléctricas I, Dispositivos de Lógica Programable, Métodos Numéricos, Ingeniería Económica, Laboratorio de Control Automático, Aplicación de FPGA, Redes I, II, III, y IV; Sistemas de Comunicaciones I y II, Proyecto Electrónico, Laboratorio de Sistemas de Comunicaciones, Laboratorio de Electrónica Industrial, Desarrollo Empresarial, Taller de Investigación, Ética Profesional, Administración de Proyectos, Investigación Dirigida, Optativas según Área.
 Atinencias para los cursos de Física III, Laboratorio de Física III
 1. Astrofísica
 2. Enseñanza de las Ciencias con énfasis en Física
@@ -8401,9 +9509,12 @@ Ingeniería en procesos y calidad
 Propósito de la carrera
 La carrera de Ingeniería en Procesos y Calidad, tiene como propósito la formación de ingenieros que diseñen sistemas de gestión de la calidad mediante el uso de metodologías innovadoras que permitan la planificación, el control y aseguramiento de la calidad de los procesos, para el aprovechamiento óptimo de los recursos de la organización.
 Cursos que conforman la carrera de ingeniería en procesos y calidad
-Matemática General para Ingeniería; Metrología Industrial; Control de Calidad I, II y III; Administración de la Producción; Procesos Industriales; Estadística Descriptiva;
+Matemática General para Ingeniería; Metrología Industrial; Control de Calidad I, II y
+III; Administración de la Producción; Procesos Industriales; Estadística Descriptiva;
 Química I y II; Laboratorio de Química I y II; Control Estadístico de Calidad I y II;
-Liderazgo; Aplicaciones Informáticas; Seguridad Industrial; Introducción a la Industria Química; Laboratorio Introducción a la Industria Química; Investigación de Operaciones; Costos de Producción; Introducción a la Industria Alimentaria; Laboratorio de Introducción a la Industria Alimentaria; Productividad; Formación Humanística; Administración General; Gestión de Procesos; Física I y II; Cálculo I y II; Área Deportiva; Área Cultural; Taller de Máquinas y Herramientas; Álgebra Lineal; Gestión de Servicio al Cliente; Mapeo de Procesos; Procesos de Innovación; Estadística Inferencial; Ingeniería Económica; Diseño de Experimentos; Sistemas de Información de Procesos; Simulación de Procesos; Administración de Proyectos; Optimización de Procesos; Práctica Profesional; Laboratorio de Física I y II; Aplicaciones Metrológicas; Experiencia de Cliente; Diseño y Análisis de Procesos; Administración Gerencial; Logística, TPM Procesos; Seis Sigma Integrado; Integración Gestión de Normas; Taller de Investigación; Desarrollo de Emprendedores; Gestión y Tecnología Ambiental, Ética Profesional; Investigación Dirigida.
+Liderazgo; Aplicaciones Informáticas; Seguridad Industrial; Introducción a la Industria Química; Laboratorio Introducción a la Industria Química; Investigación de
+Operaciones; Costos de Producción; Introducción a la Industria Alimentaria; Laboratorio de Introducción a la Industria Alimentaria; Productividad; Formación Humanística; Administración General; Gestión de Procesos; Física I y II; Cálculo I y II; Área Deportiva; Área Cultural; Taller de Máquinas y Herramientas; Álgebra Lineal; Gestión de Servicio al Cliente; Mapeo de Procesos; Procesos de Innovación; Estadística Inferencial; Ingeniería Económica; Diseño de Experimentos; Sistemas de Información de Procesos; Simulación de Procesos; Administración de Proyectos; Optimización de Procesos; Práctica Profesional; Laboratorio de Física I y II; Aplicaciones Metrológicas; Experiencia de Cliente; Diseño y Análisis de Procesos;
+Administración Gerencial; Logística, TPM Procesos; Seis Sigma Integrado; Integración Gestión de Normas; Taller de Investigación; Desarrollo de Emprendedores; Gestión y Tecnología Ambiental, Ética Profesional; Investigación Dirigida.
 Atinencias para el curso de aplicaciones informáticas
 1. Ingeniería Industrial
 2. Ingeniería Industrial con sus diferentes énfasis
@@ -8607,11 +9718,11 @@ Para los cursos de práctica docente se considerarán atinentes todas aquellas e
 Ingeniería en Producción Industrial
 Propósito de la carrera
 La carrea de ingeniería en Producción Industrial tiene como propósito formar profesionales con conocimientos, habilidades y actitudes vinculadas con procesos de manufactura, métodos de trabajo y herramientas de análisis, mediante la gestión de funciones productivas y la creación de proyectos innovadores, para la respuesta efectiva a las demandas en el ámbito socio-laboral.
-Cursos que conforman la carrera de ingeniería en producción industrial Fundamentos de Producción; Cálculo II; Análisis Gráfico; Probabilidad y Estadística I y II; Control de Producción I y II; Administración de Capital Humano; Gestión de Inventarios I y II; Metrología; Gestión de Calidad I y II; Medición del Trabajo;
-Laboratorio de Medición del Trabajo; Ingeniería de Métodos; Costos de Producción; Productividad; Operaciones Industriales; Distribución en Planta; Seguridad
-Industrial; Estudio y Diseño de Puestos de Trabajo, Ecuaciones Diferenciales;
-Mecánica de Fluidos; Procesos de Manufactura I y II; Energía Aplicada; Cinemática;
-Logística; Diagnóstico Industrial; Taller de Investigación, Diseños Estadístico de Experimentos; Automatización; Investigación Dirigida; Investigación de
+Cursos que conforman la carrera de ingeniería en producción industrial Fundamentos de Producción; Cálculo II; Análisis Gráfico; Probabilidad y Estadística
+I y II; Control de Producción I y II; Administración de Capital Humano; Gestión de Inventarios I y II; Metrología; Gestión de Calidad I y II; Medición del Trabajo;
+Laboratorio de Medición del Trabajo; Ingeniería de Métodos; Costos de Producción;
+Productividad; Operaciones Industriales; Distribución en Planta; Seguridad
+Industrial; Estudio y Diseño de Puestos de Trabajo, Ecuaciones Diferenciales; Mecánica de Fluidos; Procesos de Manufactura I y II; Energía Aplicada; Cinemática; Logística; Diagnóstico Industrial; Taller de Investigación, Diseños Estadístico de Experimentos; Automatización; Investigación Dirigida; Investigación de
 Operaciones; Diseño de Procesos; Simulación de Procesos; Procesos Industriales; Mantenimiento Productivo Total; Ingeniería Económica; Gerencia de Proyectos; Ética Profesional; Algebra lineal; Termodinámica; Gestión de la innovación; Calidad Ambiental; Desarrollo de Emprendedores; Practica Profesional.
 Atinencias para los cursos Fundamentos de Producción; Control de
 Producción I y II; Gestión de Inventarios I y II; Gestión de calidad I y II; Procesos industriales; Ingeniería de Métodos; Medición del Trabajo; Laboratorio de Medición del Trabajo; Distribución en Planta; Productividad; Simulación de Procesos; Investigación de Operaciones; Diseño de Procesos; Procesos de Manufactura I y II; Logística; Diseño Estadístico de Experimentos
@@ -8788,17 +9899,16 @@ Atinencias para el curso práctica profesional
 Para los cursos de práctica docente se considerarán atinentes todas aquellas especialidades que tengan relación directa con la práctica que desarrolla el estudiante.
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
 (Reformado por el Consejo Universitario en sesión ordinaria realizada el 14 de mayo de 2020 mediante acuerdo 8-10-2020, según artículos 8 y 9).
-(Reformado por el Consejo Universitario en sesión ordinaria realizada el 10 de setiembre de 2020 mediante acuerdo 24-20-2020, según artículos 31) (Reformado mediante Acuerdo 16 tomado por el Consejo Universitario en la Sesión Ordinaria No. 15-2024, celebrada el jueves 16 de mayo de 2024, a las ocho horas con treinta minutos, según el Artículo 23 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024).
+(Reformado por el Consejo Universitario en sesión ordinaria realizada el 10 de setiembre de 2020 mediante acuerdo 24-20-2020, según artículos 31)
+(Reformado mediante Acuerdo 16 tomado por el Consejo Universitario en la Sesión Ordinaria No. 15-2024, celebrada el jueves 16 de mayo de 2024, a las ocho horas con treinta minutos, según el Artículo 23 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024).
 Ingeniería del software
 Propósito de la carrera
 La Ingeniería del Software tiene como objetivo formar profesionales competitivos y especializados en el campo de las tecnologías informáticas, capaces de ejecutar las funciones de programación y diseño de software, tal como lo demanda el entorno organizacional y laboral costarricense, así como, todo el proceso involucrado en la ingeniería y diseño de sistemas de información acorde con las necesidades del mercado costarricense.
 Cursos que conforman la carrera
-Introducción a la Ingeniería del Software, Redes Computacionales, Desarrollo de la lógica Matemática para Informática, Técnicas de Comunicación Oral y Escrita, Introducción a la programación, Calidad del Software, Fundamentos de la Matemática
-Discreta para Informática, Programación Orientada a Objetos, Introducción a la Arquitectura del Software, Estructura de la Matemática Discretas para Informática, Estructuras de Datos, Cálculo Diferencial para informática, Cálculo Integral para informática, Diseño de Arquitectura de Software, Pruebas de Software, Base de Datos Avanzadas, Estadística y Probabilidad para Informática, Inglés I, Inglés II, Inglés III,
-Inglés IV, Inglés V, Inglés VI, Programación en Ambiente WEB III, Ingeniería de Requerimientos, Estadística Inferencial para Informática, Programación de Aplicaciones Móviles, Herramientas y Técnicas para la Ingeniería del Software, Economía y Finanzas para Informática, Gestión de Proyectos Informáticos I, Ética
-Profesional para Informática, Electivas I y II, Gestión de Proyectos Informáticos II, Formulación de Anteproyectos de Ingeniería del Software, Seguridad de la Información, Práctica Profesional, Principios de Programación; Fundamentos de Informática; Matemáticas Discretas; Técnicas de Comunicación Oral y Escrita; Programación I, II, III; Matemática II; Matemática General para Ingeniería, Fundamentos de Bases de Datos; Circuitos Electrónicos; Telemática y Redes;
-Aplicación de Base de Datos; Arquitectura y Sistemas Operativos; Inglés Técnico;
-Inglés Gramatical; Inglés Conversacional I, II; Diseño e Implementación de Redes; Diseño de Aplicaciones Web; Contabilidad; Ingeniería del Software I, II; Administración de Sistemas Operativos de Red; Programación en Ambiente WEB I, II; Probabilidad y Estadística; Formación Humanística; Actividad Cultural; Actividad Deportiva; Evaluación de Proyectos Informáticos; Aplicaciones WEB utilizando Software Libre; Estadística Inferencial; Minería de Datos; Administración de Proyectos Informáticos; Investigación de Operaciones; Configuración de Dispositivos de Red; Auditoria de Sistemas; Calidad del Software; Práctica Profesional; Gestión para el Departamento de Tecnologías de Información; Desarrollo Empresarial; Diseño de Interfaces de Usuario; Desarrollo de Aplicaciones Móviles; Ética Profesional; Optimización de Bases de Datos; Servicios Web Aplicados a Dispositivos Móviles; Taller de Investigación; Gestión de la Calidad y Validación de Software; Arquitectura Innovadora del Software; Implantación de Metodologías Agiles; Investigación Dirigida.
+Introducción a la Ingeniería del Software, Redes Computacionales, Desarrollo de la lógica Matemática para Informática, Técnicas de Comunicación Oral y Escrita, Introducción a la programación, Calidad del Software, Fundamentos de la Matemática Discreta para Informática, Programación Orientada a Objetos, Introducción a la Arquitectura del Software, Estructura de la Matemática Discretas para Informática, Estructuras de Datos, Cálculo Diferencial para informática, Cálculo Integral para informática, Diseño de Arquitectura de Software, Pruebas de Software, Base de Datos Avanzadas, Estadística y Probabilidad para Informática, Inglés I, Inglés II, Inglés III,
+Inglés IV, Inglés V, Inglés VI, Programación en Ambiente WEB III, Ingeniería de Requerimientos, Estadística Inferencial para Informática, Programación de Aplicaciones Móviles, Herramientas y Técnicas para la Ingeniería del Software, Economía y Finanzas para Informática, Gestión de Proyectos Informáticos I, Ética Profesional para Informática, Electivas I y II, Gestión de Proyectos Informáticos II,
+Formulación de Anteproyectos de Ingeniería del Software, Seguridad de la Información, Práctica Profesional, Principios de Programación; Fundamentos de Informática; Matemáticas Discretas; Técnicas de Comunicación Oral y Escrita; Programación I, II, III; Matemática II; Matemática General para Ingeniería, Fundamentos de Bases de Datos; Circuitos Electrónicos; Telemática y Redes; Aplicación de Base de Datos; Arquitectura y Sistemas Operativos; Inglés Técnico; Inglés Gramatical; Inglés Conversacional I, II; Diseño e Implementación de Redes; Diseño de Aplicaciones Web; Contabilidad; Ingeniería del Software I, II; Administración de Sistemas Operativos de Red; Programación en Ambiente WEB I, II; Probabilidad y Estadística; Formación Humanística; Actividad Cultural; Actividad Deportiva; Evaluación de Proyectos Informáticos; Aplicaciones WEB utilizando Software Libre;
+Estadística Inferencial; Minería de Datos; Administración de Proyectos Informáticos; Investigación de Operaciones; Configuración de Dispositivos de Red; Auditoria de Sistemas; Calidad del Software; Práctica Profesional; Gestión para el Departamento de Tecnologías de Información; Desarrollo Empresarial; Diseño de Interfaces de Usuario; Desarrollo de Aplicaciones Móviles; Ética Profesional; Optimización de Bases de Datos; Servicios Web Aplicados a Dispositivos Móviles; Taller de Investigación; Gestión de la Calidad y Validación de Software; Arquitectura Innovadora del Software; Implantación de Metodologías Agiles; Investigación Dirigida.
 Atinencias para los cursos telemática y redes; diseño e implementación de redes; administración de sistemas operativos de red; configuración de dispositivos de red, redes computacionales.
 1. Computación con énfasis en Telemática
 2. Computación con opción Telemática
@@ -8875,8 +9985,7 @@ Atinencias para los cursos de: fundamentos de bases de datos; Aplicación de bas
 41. Ingeniería de Gestión de la Calidad de Software
 42. Licenciatura en Tecnologías de Información para la Gestión de los Negocios
 43. Licenciatura en Ingeniería en Sistemas Computacionales con énfasis en Gerencia Informática.
-Atinencias para los cursos de: Principios de programación; Programación I, II y III; Diseño de aplicaciones web; Arquitectura y sistemas operativos; Programación en ambiente web I y II; Aplicaciones web utilizando software libre;
-Calidad del software; Diseño de interfases de usuarios; Desarrollo de aplicaciones móviles; Arquitectura innovadora del software; Servicios web aplicados a dispositivos; Gestión de calidad y validación de software, Introducción a la programación; Programación Orientada a Objetos;
+Atinencias para los cursos de: Principios de programación; Programación I, II y III; Diseño de aplicaciones web; Arquitectura y sistemas operativos; Programación en ambiente web I y II; Aplicaciones web utilizando software libre; Calidad del software; Diseño de interfases de usuarios; Desarrollo de aplicaciones móviles; Arquitectura innovadora del software; Servicios web aplicados a dispositivos; Gestión de calidad y validación de software, Introducción a la programación; Programación Orientada a Objetos;
 Programación en Ambiente web III; Programación de aplicaciones móviles; Pruebas de software
 1. Ciencias de la Computación
 2. Ciencias de la Computación Desarrollo y Aplicaciones Informáticas
@@ -9207,7 +10316,8 @@ Atinencias para los cursos probabilidad y estadística, estadística inferencial
 32. Licenciatura en Docencia en Enseñanza de las Matemáticas
 33. Licenciatura en Economía
 Nota Técnica. Por ser un curso multidisciplinario, también se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
-Atinencias para los cursos Matemáticas discretas, Desarrollo de la lógica Matemática para Informática; Fundamentos de la Matemática Discreta para Informática; Estructura de la Matemática Discretas para Informática; Cálculo Diferencial para informática; Cálculo Integral para informática
+Atinencias para los cursos Matemáticas discretas, Desarrollo de la lógica Matemática para Informática; Fundamentos de la Matemática Discreta para
+Informática; Estructura de la Matemática Discretas para Informática; Cálculo Diferencial para informática; Cálculo Integral para informática
 1. Educación con énfasis en Matemática
 2. Enseñanza de la Matemática Asistida por Computadora
 3. Enseñanza de Matemática
@@ -9316,8 +10426,10 @@ Ingeniería en tecnologías de información
 Propósito de la carrera.
 La carrera de Ingeniería en Tecnologías de la Información tiene como objetivo formar profesionales competitivos en la utilización, el diseño, creación y administración de las tecnologías de información y comunicación, mediante una preparación sólida, rigurosa e integral en la adquisición de los conocimientos, con el fin de una integración, aplicación, y administración de las tecnologías computacionales que satisfagan los requerimientos de los usuarios inmersos en el entorno organizacional costarricense. Además de contribuir con el desarrollo de nuestro país, mediante la formación de profesionales responsables y creativos, capaces de ofrecer las soluciones informáticas requeridas por las organizaciones.
 Cursos que conforman la carrera.
-Fundamentos de Tecnologías de Información; Fundamentos de Programación; Comunicación Técnica y Profesional; Comunicación Oral y Escrita; Matemática General para Ingeniería; Matemática para Computación I; Programación I, II y III; Diseño de Experiencias de Usuario; Plataformas Tecnológicas I, II; Matemáticas Discreta; Cálculo y Algebra Lineal I; Introducción a las Base de Datos; Fundamentos de Bases de Datos; Contexto Organizacional; Fundamentos de las Organizaciones; Cálculo Diferencial e Integral; Matemática para Computación II; Administración de Base de Datos; Administración y Mantenimiento de Plataformas Tecnológicas; Administración de Servidores y Virtualización; Ingeniería de Requerimientos y Modelado de Software; Tecnologías y Sistemas Web I, II y III; Fundamentos de Redes; Seguridad y Aseguramiento de la Información; Estadística Descriptiva; Enrutamiento de Redes; Principios de Enrutamiento y Comunicación de Redes; Computación en la Nube;
-Proyecto integrador I: Desarrollo de Software I; Diseño de Redes; Desarrollo de Aplicaciones para Dispositivos Móviles I; Desarrollo de Aplicaciones para Dispositivos Móviles II; Probabilidad y Estadística para Computación I; Proyecto Integrador II: Infraestructura de TI; Calculo y Algebra Lineal II; Métodos de Investigación; Principios de Seguridad de TI; Metodologías Agiles de Desarrollo de Software; Proyecto Integrador III: Desarrollo de software II; Seguridad de TI I; Probabilidad y Estadística para Computación II; Seguridad de TI II; Ética y Responsabilidad social en TI; Ética y Responsabilidad social en TI; Formación Humanística; Diseño de Redes de Área Local; Álgebra Lineal; Área Deportiva; Área Cultural; Gestión y Seguridad de Redes; Gestión de Proyectos de TI; Métodos Numéricos; Emprendedurismo de TI; Administración de Base de Datos Avanzadas; Estadística Inferencial; Comercio Electrónico; Ética profesional; Investigación de Operaciones; Administración de Proyectos de TI I y II; Analítica de Negocios; Ingeniería Económica; Seguridad del Entorno Informático; Desarrollo de Aplicaciones para Dispositivos Móviles; Base de Datos Avanzada; Seguridad de Redes; Auditoría Informática; Auditoría de TI; Administración de Servidores; Taller de Investigación; Legislación Informática; Calidad y Pruebas de Software; Administración de Servicios de Tecnologías de Información I y II; Seguridad de Tecnologías Emergentes; Investigación Dirigida; Internet de las Cosas; Diseño de Centro de Datos; Redes Programables; Realidad Aumentada; Automatización Programable de Procesos; Administración de Centro de Datos; Analítica de Datos Masivos de Sistemas de Internet de las Cosas (IoT); Aprendizaje Automático Avanzado con Tensor Flow; Data Lake; Block Chain y Dinero Digital; Inteligencia Artificial; Procesos Criptográficos.
+Fundamentos de Tecnologías de Información; Fundamentos de Programación; Comunicación Técnica y Profesional; Comunicación Oral y Escrita; Matemática General para Ingeniería; Matemática para Computación I; Programación I, II y III; Diseño de Experiencias de Usuario; Plataformas Tecnológicas I, II; Matemáticas Discreta; Cálculo y Algebra Lineal I; Introducción a las Base de Datos; Fundamentos de Bases de Datos; Contexto Organizacional; Fundamentos de las Organizaciones; Cálculo Diferencial e Integral; Matemática para Computación II; Administración de Base de Datos; Administración y Mantenimiento de Plataformas Tecnológicas; Administración de Servidores y Virtualización; Ingeniería de Requerimientos y Modelado de Software; Tecnologías y Sistemas Web I, II y III; Fundamentos de Redes; Seguridad y Aseguramiento de la Información; Estadística Descriptiva; Enrutamiento de Redes; Principios de Enrutamiento y Comunicación de Redes; Computación en la Nube; Proyecto integrador I: Desarrollo de Software I; Diseño de Redes; Desarrollo de Aplicaciones para Dispositivos Móviles I; Desarrollo de Aplicaciones para Dispositivos
+Móviles II; Probabilidad y Estadística para Computación I; Proyecto Integrador II: Infraestructura de TI; Calculo y Algebra Lineal II; Métodos de Investigación; Principios de Seguridad de TI; Metodologías Agiles de Desarrollo de Software; Proyecto Integrador III: Desarrollo de software II; Seguridad de TI I; Probabilidad y Estadística para Computación II; Seguridad de TI II; Ética y Responsabilidad social en TI; Ética y Responsabilidad social en TI; Formación Humanística; Diseño de Redes de Área Local; Álgebra Lineal; Área Deportiva; Área Cultural; Gestión y Seguridad de Redes; Gestión de Proyectos de TI; Métodos Numéricos; Emprendedurismo de TI; Administración de Base de Datos Avanzadas; Estadística Inferencial; Comercio Electrónico; Ética profesional; Investigación de Operaciones; Administración de Proyectos de TI I y II; Analítica de Negocios; Ingeniería Económica; Seguridad del Entorno Informático;
+Desarrollo de Aplicaciones para Dispositivos Móviles; Base de Datos Avanzada;
+Seguridad de Redes; Auditoría Informática; Auditoría de TI; Administración de Servidores; Taller de Investigación; Legislación Informática; Calidad y Pruebas de Software; Administración de Servicios de Tecnologías de Información I y II; Seguridad de Tecnologías Emergentes; Investigación Dirigida; Internet de las Cosas; Diseño de Centro de Datos; Redes Programables; Realidad Aumentada; Automatización Programable de Procesos; Administración de Centro de Datos; Analítica de Datos Masivos de Sistemas de Internet de las Cosas (IoT); Aprendizaje Automático Avanzado con Tensor Flow; Data Lake; Block Chain y Dinero Digital; Inteligencia Artificial; Procesos Criptográficos.
 Atinencias para los cursos: fundamentos de redes, enrutamiento de redes, diseño de redes de área local, gestión y seguridad de redes, seguridad de redes, Principios de Enrutamiento y Comunicación de Redes, Diseño de Redes, Redes Programables.
 1. Ciencias de la Computación con énfasis en Desarrollo de Aplicaciones Informáticas
 2. Computación con énfasis en Investigación de Operaciones
@@ -9437,7 +10549,7 @@ Proyectos Administración de la Tecnología con énfasis o mención en Administr
 38. Computación Empresarial
 39. Desarrollo de Software
 40. Ingeniería del Software
-41.Ingeniería Informática
+41. Ingeniería Informática
 42. Ingeniería en Sistemas
 43. Internet de las cosas.
 44. Redes y Telemática
@@ -9474,7 +10586,7 @@ Oral y Escrita
 13. Comunicación
 14. Comunicación con énfasis en Mercadeo
 15. Comunicación con mención en Comunicación Organizacional Comunicación con mención en Comunicación Organizacional
-16.Comunicación con mención en Publicidad
+16. Comunicación con mención en Publicidad
 17. Comunicación de Masas
 18. Comunicación de Mercadeo
 19. Comunicación Política
@@ -9505,6 +10617,7 @@ Oral y Escrita
 44. Literatura y Lingüística con énfasis en Español como Segunda Lengua
 45. Literatura y Lingüística con énfasis en Literatura
 46. Periodismo (con todos sus énfasis)
+47. Administración de Oficinas
 Atinencias para los cursos: Contexto organizacional, Emprendedurismo de TI, Fundamentos de las Organizaciones.
 1. Administración
 2. Administración con énfasis en Auditoria Informática
@@ -9731,14 +10844,14 @@ Atinencias para el curso: taller de investigación, investigación dirigida, Mé
 20. Sociología con énfasis en Investigación
 21. Sociología con énfasis en Metodología
 22. Sociología con énfasis en Salud
-23. Sociología con mención en Gestión Social del Desarrollo Humano Sostenible
-24. Sociología Rural
+23. Sociología con mención en Gestión Social del Desarrollo Humano Sostenible 24. Sociología Rural
 25. Trabajo Social
 Nota Técnica: Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
 (Reformado por el Consejo Universitario en sesión ordinaria 13-2020, celebrada el 25 de junio de 2020, mediante acuerdo 14-13-2020, según artículo 13).
 (Agregar reforma si se aprueba en CU del 12 de mayo)
 (Reformado mediante Acuerdo 10 tomado por el Consejo Universitario en la Sesión Ordinaria No. 38-2024, celebrada el viernes 06 de diciembre de 2024, a las ocho horas con treinta minutos, según el Artículo 18 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 6 del lunes 13 de enero del 2025).
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Ingeniería en gestión ambiental
 Propósito de la carrera
 La carrera de Ingeniería en Gestión Ambiental, tiene como propósito formar a profesionales con conocimientos ambientales, habilidades investigativas y actitudes emprendedoras, mediante un proceso formativo integral e innovador para evaluar, diseñar e implementar sistemas de gestión ambiental.
@@ -10155,8 +11268,7 @@ Atinencias para el curso administración general
 119. Ingeniería Agronómica
 120. Ingeniería en Gestión Ambiental
 121. Ingeniero Industrial
-122. Maestría en administración de empresas con énfasis en alta gerencia.
-Atinencias para el curso emprendedurismo y gestión del desarrollo local:
+122. Maestría en administración de empresas con énfasis en alta gerencia. Atinencias para el curso emprendedurismo y gestión del desarrollo local:
 1. Administración
 2. Administración con énfasis en Auditoría Informática
 3. Administración con énfasis en Compras y Recursos Materiales
@@ -10282,7 +11394,8 @@ Atinencias para el curso emprendedurismo y gestión del desarrollo local:
 123. Economía agrícola con énfasis en gestión y extensión
 124. Maestría en gerencia de proyectos de desarrollo
 125. Maestría en gestión ambiental y desarrollo local
-126. Maestría en administración de proyectos Atinencias para el curso formulación y evaluación de proyectos:
+126. Maestría en administración de proyectos
+Atinencias para el curso formulación y evaluación de proyectos:
 1. Administración
 2. Administración con énfasis en Auditoría Informática
 3. Administración con énfasis en Compras y Recursos Materiales
@@ -10508,8 +11621,7 @@ Por ser un curso multidisciplinario se podrá asignar a un profesional en una es
 Ingeniería en tecnología de alimentos
 Propósito de la carrera
 La carrera de ingeniería en tecnología de alimentos tiene como objeto de estudio los alimentos, su transformación y producción eficiente e inocua, mediante la utilización de herramientas tecnológicas.
-Cursos que conforman la carrera de ingeniería en tecnología de alimentos Inglés Técnico; Matemática General; Manipulación de Alimentos; Química I; Química Orgánica; Introducción a la Tecnología de Alimentos; Laboratorio de Química I; Laboratorio de Química Orgánica; Biología para Tecnología de Alimentos; Cálculo Diferencial e Integral; Tecnología de Productos Lácteos; Tecnología de Productos Cárnicos; Comunicación Oral y Escrita; Fundamentos de Administración; Procesamiento de Frutas y Vegetales y Manejo Pos Cosecha; Bioquímica de los Alimentos; Principios de Informática; Semillas, Amiláceas y Oleaginosas; Principios Análisis Financiero; Confitería y Chocolatería; Principios de Microbiología de Alimentos; Química de Alimentos I y II; Estadística Aplicada; Laboratorio de Química de Alimentos I y II; Formulación y Evaluación de Proyectos; Aseguramiento de la Calidad; Desarrollo de Productos; Bebidas Naturales, Destiladas y Carbonatadas; Formación Humanística; Nutrición Humana; Química Analítica; Laboratorio de Química Analítica; Microbiología Aplicada; Área Deportiva; Actividad Cultural; Física; Formación Humanística; Gestión Ambiental; Ecuaciones
-Diferenciales; Análisis de Alimentos; Planeamiento y Control de la Producción;
+Cursos que conforman la carrera de ingeniería en tecnología de alimentos Inglés Técnico; Matemática General; Manipulación de Alimentos; Química I; Química Orgánica; Introducción a la Tecnología de Alimentos; Laboratorio de Química I; Laboratorio de Química Orgánica; Biología para Tecnología de Alimentos; Cálculo Diferencial e Integral; Tecnología de Productos Lácteos; Tecnología de Productos Cárnicos; Comunicación Oral y Escrita; Fundamentos de Administración; Procesamiento de Frutas y Vegetales y Manejo Pos Cosecha; Bioquímica de los Alimentos; Principios de Informática; Semillas, Amiláceas y Oleaginosas; Principios Análisis Financiero; Confitería y Chocolatería; Principios de Microbiología de Alimentos; Química de Alimentos I y II; Estadística Aplicada; Laboratorio de Química de Alimentos I y II; Formulación y Evaluación de Proyectos; Aseguramiento de la Calidad; Desarrollo de Productos; Bebidas Naturales, Destiladas y Carbonatadas; Formación Humanística; Nutrición Humana; Química Analítica; Laboratorio de Química Analítica; Microbiología Aplicada; Área Deportiva; Actividad Cultural; Física; Formación Humanística; Gestión Ambiental; Ecuaciones Diferenciales; Análisis de Alimentos; Planeamiento y Control de la Producción;
 Maquinaria Industrial; Operaciones Unitarias I y II; Laboratorio de Operaciones Unitarias I y II; Contabilidad de Costos; Mercadeo de Alimentos; Legislación
 agroindustrial; Formación Humanística; Actividad Deportiva
 Biotecnología Industrial; Gestión de Proyectos; Análisis Sensorial; Normativa para el diseño de plantas agroindustriales; Sistemas de gestión de inocuidad de los alimentos; Herramientas de Informática para la gestión de proyectos; Taller de Investigación; Desarrollo de Habilidades Gerenciales; Diseño de Procesos Agroindustriales; Gestión Tecnológica en la Industria Alimentaria; Investigación Dirigida
@@ -11486,11 +12598,8 @@ Ingeniería en salud ocupacional y ambiente
 Propósito de la carrera
 La carrera de Ingeniería en Salud Ocupacional y Ambiente tiene como objetivo formar profesionales con conocimientos, habilidades, destrezas y valores en el campo de la salud ocupacional, seguridad y ambiente, que le permita trabajar en empresas u organizaciones tanto públicas como privadas, a nivel nacional como internacional.
 Cursos que conforman la carrera de licenciatura en ingeniería en salud ocupacional y ambiente.
-Fundamentos de Anatomía y Fisiología Humana, Fundamentos de Salud Ocupacional y Ambiente; Métodos de investigación; Matemática General para
-Ingeniería; Física I, II y III; Higiene Ocupacional I, II, Higiene III y IV; Seguridad
-Ocupacional I, II, III, y IV; Química I, ll; Laboratorio de Química I; Análisis Estadístico ;Ergonomía I y II; Química Orgánica; Biología General; Medicina del Trabajo; Epidemiología; Toxicología; Biología General, Legislación en Salud Ocupacional; Sistemas de Gestión en Salud y Seguridad; Primeros Auxilios; Formación
-Humanística; Seguridad Ambiental Agropecuaria; Gestión de Residuos; Seguros de
-Riesgos del Trabajo; Gestión Integral de Residuos, Interpretación de planos, Legislación ambiental, Estudios de evaluación del Impacto Ambiental; Factores Psicosociales; Sistemas de Conservación Energético; Práctica Profesional; Actividad Cultural; Actividad Deportiva; Calculo l ,ll; Investigación Dirigida; Manejo Integrado de Emergencias; Energías Limpias; Emprendedurismo; Taller de Investigación; Biotecnología; Investigación Cualitativa en Salud Ocupacional; Evaluación de proyectos de Inversión; Gerencia en Salud Ocupacional y Ambiente; Auditorías Ambientales; Bioestadística; Formación Humanística, Trabajo
+Fundamentos de Anatomía y Fisiología Humana, Fundamentos de Salud Ocupacional y Ambiente; Métodos de investigación; Matemática General para Ingeniería; Física I, II y III; Higiene Ocupacional I, II, Higiene III y IV; Seguridad
+Ocupacional I, II, III, y IV; Química I, ll; Laboratorio de Química I; Análisis Estadístico ;Ergonomía I y II; Química Orgánica; Biología General; Medicina del Trabajo; Epidemiología; Toxicología; Biología General, Legislación en Salud Ocupacional; Sistemas de Gestión en Salud y Seguridad; Primeros Auxilios; Formación Humanística; Seguridad Ambiental Agropecuaria; Gestión de Residuos; Seguros de Riesgos del Trabajo; Gestión Integral de Residuos, Interpretación de planos, Legislación ambiental, Estudios de evaluación del Impacto Ambiental; Factores Psicosociales; Sistemas de Conservación Energético; Práctica Profesional; Actividad Cultural; Actividad Deportiva; Calculo l ,ll; Investigación Dirigida; Manejo Integrado de Emergencias; Energías Limpias; Emprendedurismo; Taller de Investigación; Biotecnología; Investigación Cualitativa en Salud Ocupacional; Evaluación de proyectos de Inversión; Gerencia en Salud Ocupacional y Ambiente; Auditorías Ambientales; Bioestadística; Formación Humanística, Trabajo
 Comunal Universitario; Laboratorio de Fisca l, ll, Ecuaciones Diferenciales
 Atinencias para los cursos: fundamentos de salud ocupacional y ambiente; seguridad ocupacional I, II, III y IV; higiene ocupacional I y II; higiene III y IV; sistemas de gestión en salud y seguridad ocupacional; ergonomía I y II; seguros de riesgos del trabajo, gerencia de salud ocupacional y ambiente, primeros auxilios, sistemas de gestión en salud y seguridad ocupacional, seguridad ambiental agropecuaria, manejo integrado de emergencias; investigación dirigida, práctica profesional
 1. Ingeniería en Salud Ocupacional y Ambiente
@@ -11522,8 +12631,7 @@ Atinencias para el curso: taller de investigación:
 8. Medicina y Cirugía, que cuenten con posgrados (maestrías o doctorados) en:
 ? Epidemiología con énfasis en Epidemiología de Campo
 ? Epidemiología con énfasis en Epidemiología Aplicada a los Sistemas de Salud Pública con énfasis en Epidemiología.
-9. Medicina General y Cirugía, que cuenten con posgrados (maestrías o doctorados) en:
-? Epidemiología con énfasis en Epidemiología de Campo
+9. Medicina General y Cirugía, que cuenten con posgrados (maestrías o doctorados) en: ? Epidemiología con énfasis en Epidemiología de Campo
 ? Epidemiología con énfasis en Epidemiología Aplicada a los Sistemas de Salud Pública con énfasis en Epidemiología.
 10. Salud Ambiental
 Nota Técnica: Por ser los cursos de Taller de Investigación aplicada se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso.
@@ -12318,9 +13426,9 @@ Ingeniería en agricultura integrada bajo riego con énfasis en riego y drenaje
 Propósito de la carrera
 La carrera de Agricultura Integrada Bajo Riego, tiene como propósito la aplicación de prácticas compatibles con la protección y mejora del medio ambiente, los recursos naturales, la diversidad genética y la conservación del suelo y el paisaje, mediante la aplicación racional de las prácticas.
 Cursos que conforman la carrera de ingeniería en agricultura integrada bajo riego y la ingeniería en agronomía con énfasis en riego y drenaje
-Biología General; Laboratorio de Química I; Laboratorio de Biología General; Química I; Física I; Matemática General para Ingeniería; Métodos y Técnicas de Investigación; Laboratorio de Física 1; Edafología; Estructura y Función de la Planta; Cálculo I; Estructura y Función Animal; Hidráulica; Fertilización de Suelos; Alimentación Animal; Química Orgánica; Laboratorio de Química Orgánica; Identificación y Control de Arvenses; Estadística Descriptiva; Manejo de Aguas para Riego I y II; Hidrometría; Dibujo Ingenieril Agrícola; Estadística Inferencial Agropecuaria; Formulación y Evaluación de Proyectos Agropecuarios; Hortalizas, Entomología y Fitopatología; Granos Básicos; Producción Animal I y II; Acuicultura; Instalación de Sistemas de Riego; Frutales y Perennes; Manejo Post-Cosecha y Comercialización de Productos Agropecuarios; Derecho Agrario y Ambiental; Agro- climatología; Gestión del Recurso Hídrico; Agricultura Orgánica; Estadística Experimental Agropecuaria; Administración de Empresas Agropecuarias; Aplicaciones de Topografía y GPS;
-Manejo en Conservación de Suelos y Aguas; Hidrología; Mecanización Agrícola;
-Tecnologías de Sistemas de Riego; Diseño de Sistemas de Tratamientos de Agua; Drenaje Agrícola I y II; Sistemas de Información Geográfica; Manejo de Cuencas Hidrográficas; Ingeniería Económica; Taller de Investigación; Agricultura de Precisión; Sistema de Riego y Obras Hidráulicas; Gestión de la Calidad y Certificaciones; Investigación Dirigida; Formación Humanística; Actividad Cultural; Actividad Deportiva.
+Biología General; Laboratorio de Química I; Laboratorio de Biología General; Química I; Física I; Matemática General para Ingeniería; Métodos y Técnicas de Investigación; Laboratorio de Física 1; Edafología; Estructura y Función de la Planta; Cálculo I;
+Estructura y Función Animal; Hidráulica; Fertilización de Suelos; Alimentación Animal; Química Orgánica; Laboratorio de Química Orgánica; Identificación y Control de Arvenses; Estadística Descriptiva; Manejo de Aguas para Riego I y II; Hidrometría; Dibujo Ingenieril Agrícola; Estadística Inferencial Agropecuaria; Formulación y
+Evaluación de Proyectos Agropecuarios; Hortalizas, Entomología y Fitopatología; Granos Básicos; Producción Animal I y II; Acuicultura; Instalación de Sistemas de Riego; Frutales y Perennes; Manejo Post-Cosecha y Comercialización de Productos Agropecuarios; Derecho Agrario y Ambiental; Agro- climatología; Gestión del Recurso Hídrico; Agricultura Orgánica; Estadística Experimental Agropecuaria; Administración de Empresas Agropecuarias; Aplicaciones de Topografía y GPS; Manejo en Conservación de Suelos y Aguas; Hidrología; Mecanización Agrícola; Tecnologías de Sistemas de Riego; Diseño de Sistemas de Tratamientos de Agua; Drenaje Agrícola I y II; Sistemas de Información Geográfica; Manejo de Cuencas Hidrográficas; Ingeniería Económica; Taller de Investigación; Agricultura de Precisión; Sistema de Riego y Obras Hidráulicas; Gestión de la Calidad y Certificaciones; Investigación Dirigida; Formación Humanística; Actividad Cultural; Actividad Deportiva.
 Atinencias para el curso métodos y técnicas de investigación
 1. Antropología
 2. Biología
@@ -12805,13 +13913,16 @@ Por ser un curso multidisciplinario se podrá asignar a un profesional en una es
 (Aprobado por el Consejo Universitario, sesión ordinaria realizada el 19 de diciembre de 2018 mediante acuerdo 8-28-2018, según artículo 10).
 Ingeniería en Ciencias forestales y vida silvestre
 Propósito de la carrera
-La carrera de Ingeniería en Ciencias Forestales y Vida Silvestre con salida lateral al Bachillerato en Ingeniería en Ciencias Forestales y Vida Silvestre y salida lateral al Diplomado en Manejo Forestal y Vida Silvestre, tiene como objetivo proporcionar a la sociedad costarricense, graduados con un perfil ocupacional que responda a las necesidades del campo laboral en el Manejo forestal, vida silvestre y ambiental. Esto, en virtud del cumplimiento y requerimiento de las exigencias de las organizaciones productivas y conservacionistas nacionales; que se ven sometidas a las exigencias de los mercados internacionales, siendo Costa Rica uno de los países pioneros en el manejo de la biodiversidad, desarrollo forestal y gestión ambiental.
+La carrera de Ingeniería en Ciencias Forestales y Vida Silvestre con salida lateral al
+Bachillerato en Ingeniería en Ciencias Forestales y Vida Silvestre y salida lateral al Diplomado en Manejo Forestal y Vida Silvestre, tiene como objetivo proporcionar a la sociedad costarricense, graduados con un perfil ocupacional que responda a las necesidades del campo laboral en el Manejo forestal, vida silvestre y ambiental. Esto, en virtud del cumplimiento y requerimiento de las exigencias de las organizaciones productivas y conservacionistas nacionales; que se ven sometidas a las exigencias de los mercados internacionales, siendo Costa Rica uno de los países pioneros en el manejo de la biodiversidad, desarrollo forestal y gestión ambiental.
 Cursos que conforman la carrera de ingeniería en manejo forestal y vida silvestre
-Recursos informáticos; Identificación de Fauna; Análisis Cartográfico; Suelos Tropicales; Matemática General para Ingeniería; Viveros y Semillas; Mediciones e Inventarios Forestales; Manejo de Plantaciones; Comunicación Oral y Escrita; Primeros Auxilios; Estadística Aplicada; Anatomía y Fisiología de Animales Silvestres; Fundamentos de Administración; Mantenimiento de Equipo y Maquinaria
+Recursos informáticos; Identificación de Fauna; Análisis Cartográfico; Suelos Tropicales; Matemática General para Ingeniería; Viveros y Semillas; Mediciones e Inventarios Forestales; Manejo de Plantaciones; Comunicación Oral y Escrita; Primeros Auxilios; Estadística Aplicada; Anatomía y Fisiología de Animales
+Silvestres; Fundamentos de Administración; Mantenimiento de Equipo y Maquinaria
 Forestal; Técnicas de Monitoreo y Captura de Animales Silvestres; Principios de
-Manejo de Desechos I; Manejo de Desechos II; Principios de Nutrición para Fauna Silvestre; Industrialización Forestal; Aprovechamiento Forestal Mejorado; Manejo
-Veterinario para Fauna Silvestre; Principios de Análisis Financiero; GPS y Arc View
-Básico, Manejo de Áreas Protegidas, Formulación y Evaluación de Raciones para Fauna Silvestre; Formulación y Evaluación de Proyectos; Elaboración y Evaluación de Planes de Manejo en Vida Silvestre (Zoo criaderos); Seminario de Práctica Profesional; Sistemas de Información Geográfica II; Bioestadística; Biología de la Conservación; Administración y Manejo de Centros de Vida Silvestre; Ordenamiento Territorial; Arboricultura Urbana; Proyecto de Investigación Forestal; Proyecto de Investigación de Vida Silvestre; Evaluación de Impacto Ambiental; Servicios Ambientales; Formación Humanística; Área Deportiva; Área Cultural; Práctica Profesional.
+Manejo de Desechos I; Manejo de Desechos II; Principios de Nutrición para Fauna
+Silvestre; Industrialización Forestal; Aprovechamiento Forestal Mejorado; Manejo Veterinario para Fauna Silvestre; Principios de Análisis Financiero; GPS y Arc View
+Básico, Manejo de Áreas Protegidas, Formulación y Evaluación de Raciones para Fauna Silvestre; Formulación y Evaluación de Proyectos; Elaboración y Evaluación de Planes de Manejo en Vida Silvestre (Zoo criaderos); Seminario de Práctica Profesional; Sistemas de Información Geográfica II; Bioestadística; Biología de la Conservación; Administración y Manejo de Centros de Vida Silvestre; Ordenamiento Territorial; Arboricultura Urbana; Proyecto de Investigación Forestal; Proyecto de
+Investigación de Vida Silvestre; Evaluación de Impacto Ambiental; Servicios Ambientales; Formación Humanística; Área Deportiva; Área Cultural; Práctica Profesional.
 Atinencias para el curso de recursos informáticos
 1. Ciencias de la Computación
 2. Ciencias de la Computación con énfasis en Administración Informática
@@ -13377,12 +14488,12 @@ Propósito de la carrera
 La carrera de Sistemas de Producción Animal tiene como propósito formar profesionales zootecnistas con conocimientos que contribuyan al diseño, rediseño y gestión de los sistemas de producción animal, mediante el desarrollo de procesos de investigación apoyados en tecnologías de la información y la comunicación, fortaleciendo acciones de emprendedurismo sustentables con el ambiente, con el fin de que los profesionales incrementen la rentabilidad y competitividad en las empresas primarias y sus agro-industrias derivadas.
 Cursos que conforman la carrera de ingeniería en producción animal
 Biología General; Laboratorio de Biología General; Química I; Laboratorio de Química I; Introducción a la Producción Animal; Laboratorio de Introducción a la Producción Animal; Matemática para Ingeniería; Anatomía y Fisiología Animal; Suelos Tropicales; Química para las Ciencias Agronómicas; Cálculo I; Estadística Descriptiva; Física I; Laboratorio Física I; Reproducción de Animales Domésticos;
-Laboratorio de Reproducción animal; Genética; Nutrición Animal; Laboratorio de Nutrición Animal; Mecanización Agrícola; Taller de Mecanización Agrícola; Mejoramiento Genético; Alimentación Animal; Salud Animal; Producción de Forrajes; Rumiantes Menores; Práctica de campo en Rumiantes menores; Producción de
-Ganado Lechero; Práctica de Campo en Ganado Lechero; Producción Porcina; Práctica de Campo en Producción Porcina; Producción de Ganado Tipo Carne;
+Laboratorio de Reproducción animal; Genética; Nutrición Animal; Laboratorio de Nutrición Animal; Mecanización Agrícola; Taller de Mecanización Agrícola; Mejoramiento Genético; Alimentación Animal; Salud Animal; Producción de Forrajes; Rumiantes Menores; Práctica de campo en Rumiantes menores; Producción de Ganado Lechero; Práctica de Campo en Ganado Lechero; Producción Porcina; Práctica de Campo en Producción Porcina; Producción de Ganado Tipo Carne;
 Práctica de Campo en Ganado Tipo Carne; Recursos Informáticos; Producción Avícola; Práctica Profesional; Actividad Deportiva; Formación Humanística; Análisis
 de los Sistemas de Producción Animal; Administración
 Agropecuaria; Electiva; Actividad Cultural; Formación Humanística; Sistemas de
-Producción Animal Sostenible; Mercadeo y Ventas; Principios de Análisis Financiero; Formación Humanística; Agromática; Formulación y Evaluación de Proyectos; Estadística II; Formación Humanística; Emprendedurismo e innovación; Ética y Liderazgo; Gestión bioeconómica de sistemas productivos; Sistemas de Gestión de calidad; Sistemas de Información Geográficos; Base y consultas de datos; Diseños experimentales; Modelaje de Sistemas de Producción; Seminario de Producción de Animal; Métodos Estadísticos; Optimización de la Producción y el uso de Recursos; Taller de Investigación; Diseño de Sistemas de
+Producción Animal Sostenible; Mercadeo y Ventas; Principios de Análisis Financiero; Formación Humanística; Agromática; Formulación y Evaluación de Proyectos; Estadística II; Formación Humanística; Emprendedurismo e innovación; Ética y Liderazgo; Gestión bioeconómica de sistemas productivos; Sistemas de Gestión de calidad; Sistemas de Información Geográficos; Base y consultas de datos; Diseños experimentales; Modelaje de Sistemas de Producción; Seminario de Producción de Animal; Métodos Estadísticos; Optimización de la
+Producción y el uso de Recursos; Taller de Investigación; Diseño de Sistemas de
 Producción Animal Sostenible; Inteligencia de Negocios; Investigación Dirigida Atinencias para el curso introducción a la producción animal; laboratorio de introducción a la producción animal; anatomía y fisiología animal; reproducción de animales domésticos; laboratorio de reproducción de animal; genética; nutrición animal; mejoramiento genético; alimentación animal; salud animal; rumiantes menores; práctica de campo en rumiantes menores; producción de ganado de lechero; práctica de campo en ganado lechero; producción porcina; práctica de campo en producción porcina; producción de ganado tipo carne; práctica de campo en ganado tipo carne; producción avícola; análisis de los sistemas de producción animal; sistemas de producción animal sostenible; gestión bio-económica de sistemas productivos; seminario de producción de animal
 1. Asistencia Veterinaria
 2. Ciencias Veterinarias Tropicales
@@ -13815,9 +14926,7 @@ Administración Agroindustrial (Diplomado)
 Propósito de la carrera
 Formar recurso humano competitivo con conocimientos en administración agroindustrial preparado para la ejecución de labores propias de la administración, industrialización y comercialización de productos de origen agropecuario, forestal y medioambiental.
 Cursos que conforman la carrera de Administración agroindustrial
-Metodología de la Investigación; Principios de Agroindustria; Recursos Tecnológicos, Aplicaciones y Herramientas Informáticas; Inglés para Administración Agroindustrial I,
-II, III, IV, V y VI; Aspectos Legales y Contractuales de Comercio; Administración para Agroindustria I y II; Laboratorio de Diseño de Productos; Contabilidad para Agroindustria I y II; Principios de Tecnología de Alimentos; Principios de Economía Agrícola; Mercadeo para Agroindustrias; Introducción a Modelos de Calidad, Normas y Reglamentos Técnicos; Finanzas aplicadas a la agroindustria; Negociaciones
-Comerciales y la Agroindustria; Taller de Comunicación Efectiva; Logística Agroindustrial; Gestión de Cadena de Suministros para Empresas Agroindustriales; Gestión de Proyectos en Agroindustria; Práctica Profesional.
+Metodología de la Investigación; Principios de Agroindustria; Recursos Tecnológicos, Aplicaciones y Herramientas Informáticas; Inglés para Administración Agroindustrial I, II, III, IV, V y VI; Aspectos Legales y Contractuales de Comercio; Administración para Agroindustria I y II; Laboratorio de Diseño de Productos; Contabilidad para Agroindustria I y II; Principios de Tecnología de Alimentos; Principios de Economía Agrícola; Mercadeo para Agroindustrias; Introducción a Modelos de Calidad, Normas y Reglamentos Técnicos; Finanzas aplicadas a la agroindustria; Negociaciones Comerciales y la Agroindustria; Taller de Comunicación Efectiva; Logística Agroindustrial; Gestión de Cadena de Suministros para Empresas Agroindustriales; Gestión de Proyectos en Agroindustria; Práctica Profesional.
 Atinencias para el curso metodología de la investigación
 1. Administración Aduanera
 2. Administración Aduanera y Comercio Exterior
@@ -14061,7 +15170,9 @@ Atinencias para el curso Negociaciones Comerciales y Agroindustria:
 14. Negocios Internacionales
 15. Relaciones Internacionales con énfasis en Comercio Exterior
 16. Relaciones Internacionales con énfasis en Comercio Exterior
-17. Relaciones Internacionales con énfasis en Comercio Internacional 18. Relaciones Internacionales con énfasis en Comercio Internacional
+17. Relaciones Internacionales con énfasis en Comercio Internacional
+18. Relaciones Internacionales con énfasis en Comercio Internacional
+19. Administración Aduanera
 Nota Técnica: Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para el curso, además considerando experiencia en las ramas agrícola y/o agroindustrial.
 Atinencias para el curso Taller de Comunicación Efectiva:
 1. Enseñanza del Castellano y Literatura
@@ -14170,6 +15281,7 @@ Atinencias para el curso Gestión de Práctica Profesional:
 Nota Técnica: Por ser un curso multidisciplinario se podrá asignar a un profesional en una especialidad determinada, dependiendo del enfoque, naturaleza, contenido y objetivos propuestos para la práctica profesional supervisada, además considerando experiencia en la rama agroindustrial.
 Reformado mediante Acuerdo 6 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2023, celebrada el jueves 25 de mayo de 2023, a las nueve horas, según el Artículo 9 del Capítulo V. Vicerrectoría de Docencia. Publicado en el diario
 oficial La Gaceta No. 114 del 26 de junio del año 2023, sección de Reglamentos.
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Ciencias básicas
 Propósito de las ciencias básica
 Las ciencias básicas forman parte del plan de estudio de las carreras universitarias y que tienen como propósito fomentar el desarrollo de las capacidades de los estudiantes, para atender el medio natural en que viven, razonar sobre los fenómenos naturales que los rodean y tratar de explicar las causas que los provocan y con ello, encaminan la evolución de las concepciones y el desarrollo de una actitud científica en su pensamiento.
@@ -14543,6 +15655,7 @@ Atinencias para los cursos de la subárea de filosofía y pensamiento
 13. Inteligencia emocional y sus variantes
 14. Inteligencias múltiples y sus variantes
 15. Antropología
+16. Derecho
 Atinencias para los cursos de la subárea de historia de la cultura
 1. Historia
 2. Historia y sus énfasis
@@ -14583,6 +15696,10 @@ Atinencias para los cursos de la subárea de comunicación y lenguaje
 23. Literatura latinoamericana
 24. Educación con énfasis en enseñanza de los estudios sociales (*)
 25. Enseñanza de los Estudios (*) Sociales
+26. Sociología
+27. Antropología
+28. Estudios de la Sociedad y la Cultura
+29. Etnografía
 Atinencias para los cursos de la subárea de realidad social
 1. Administración de Áreas Protegidas
 2. Administración y Manejo del Recurso Hídrico
@@ -14624,8 +15741,10 @@ Atinencias para los cursos de la subárea de realidad social
 Notas técnicas:
 1. Cabe mencionar que las atinencias del personal académico, son correlativas a los Profesores-Coordinadores, por tanto, cualquier académico que cumpla con las mismas, podría ser Coordinador de Área. Si bien es cierto, se ha dado una clasificación de atinencias por subáreas, en virtud de la inter, multi y transdisciplinariedad de las Humanidades, los profesores pueden trabajar de manera colegiada, de tal modo que profesionales de una subárea con competencias comprobadas, pueden ejercer en otra de acuerdo a la conveniencia académica, a circunstancias pedagógicas y curriculares del momento.
 2. Las especialidades con un asterisco (*) se aceptan solamente para personal que tiene la condición de estabilidad impropia, traslado horizontal o ambas antes de agosto de 2023 inclusive y no aplica para personal nuevo que ingrese posterior a dicha fecha.
+3. Las Ciencias Sociales son inherentes a la Formación Humanística, por tanto, el Derecho, la Sociología, Antropología y un universo de disciplinas académicas afines están incluidas en esta categoría.
 (Aprobado por el Consejo Universitario mediante acuerdo 7-12-2020. Sesión ordinaria No 12-2020 del jueves 11 de junio de 2020, artículo 7.)
 (Reformado mediante Acuerdo 10 tomado por el Consejo Universitario en la Sesión Ordinaria No. 38-2024, celebrada el viernes 06 de diciembre de 2024, a las ocho horas con treinta minutos, según el Artículo 18 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 6 del lunes 13 de enero del 2025).
+(Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025).
 Área cultural y deportiva
 Propósito
 Los cursos del Área Cultural y Deportiva, adscritos al Área de Formación Humanística, tienen como propósito la formación integral de los educandos en los diferentes ámbitos de aprendizaje que se asocian a la adquisición de conocimientos, habilidades y destrezas para su desarrollo humano y profesional. Cursos que conforman el área cultural y deportiva
@@ -14724,3 +15843,5 @@ Reformado mediante Acuerdo 16 tomado por el Consejo Universitario en la
 Sesión Ordinaria No. 15-2024, celebrada el jueves 16 de mayo de 2024, a las ocho horas con treinta minutos, según el Artículo 23 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 208 del miércoles 6 de noviembre del 2024.
 Reformado mediante Acuerdo 10 tomado por el Consejo Universitario en la
 Sesión Ordinaria No. 38-2024, celebrada el viernes 06 de diciembre de 2024, a las ocho horas con treinta minutos, según el Artículo 18 del Capítulo V. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 6 del lunes 13 de enero del 2025.
+Reformado mediante Acuerdo 20 tomado por el Consejo Universitario en la
+Sesión Ordinaria No. 12-2025, celebrada el jueves 15 de mayo de 2025, a las ocho horas con treinta minutos, según el Artículo 22 del Capítulo VI. Vicerrectoría de Docencia, publicado en el diario oficial La Gaceta número 102 del jueves 05 de junio del 2025.
