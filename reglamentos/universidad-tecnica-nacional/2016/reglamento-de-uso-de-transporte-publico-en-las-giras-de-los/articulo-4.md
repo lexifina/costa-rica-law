@@ -1,1 +1,0 @@
-Artículo 4. Los funcionarios tendrán derecho a que se le reconozca el gasto por la utilización de servicios de transporte fluvial, marítimo o aéreo cuando no exista servicio de transporte público remunerado en las modalidades de autobús o taxi, o la utilización de esos otros medios de transporte resulte conveniente para la institución.
