@@ -1,1 +1,0 @@
-Artículo 10.—El Concejo de Distrito deberá reunirse ordinariamente cuando menos dos veces al mes, debiendo comunicar a la Municipalidad, el día, hora y lugar que designe para tal efecto, pudiendo celebrar sesiones extraordinarias previa convocatoria del presidente cuando así lo convoquen tres de sus miembros.
