@@ -1,0 +1,1 @@
+Artículo 2º-Los efectivos convocados mediante este acto quedarán subordinados al Ministro de Seguridad Pública, quien dispondrá de todo lo pertinente para tal efecto, de conformidad con la normativa jurídica vigente.
