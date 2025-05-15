@@ -1,1 +1,0 @@
-Artículo 29: DEROGACIONES: El presente reglamento deja sin efecto los Reglamentos de Caja Chica de las Instituciones fusionadas en la Universidad Técnica Nacional, conforme al mandato de la Ley Orgánica de la UTN, No.8638 del 14 de mayo del 2008.”

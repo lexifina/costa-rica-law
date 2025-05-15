@@ -1,1 +1,0 @@
-Artículo 5: TOPE MAXIMO: El máximo a pagar por factura será el monto establecido por la Dirección General de Tributación sobre el cual no se aplica la retención del 2% de impuesto sobre la renta (actualmente el salario base del Auxiliar Administrativo 1 del Poder Judicial).

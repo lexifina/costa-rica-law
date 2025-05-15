@@ -1,2 +1,0 @@
-Artículo 8: ADMINISTRACION DE FONDOS: La administración del fondo de Caja Chica estará a cargo de la persona designada para tal fin, bajo la supervisión directa del Jefe del Área de Tesorería o en su ausencia por el Director de Gestión Financiera, quienes velarán por su correcto funcionamiento en lo referente a los procedimientos de compras y de la razonabilidad del gasto.
-(Reformado según el Acuerdo No.220 de la Sesión Ordinaria No.27 del Consejo Universitario del jueves 10 de diciembre de 2015.)

@@ -1,1 +1,0 @@
-Artículo 18: RESPALDO DE PAGO POR MEDIO DE FACTURA COMERCIAL: Todo pago realizado por medio de Caja Chica, por compra de bienes o servicios, estará respaldado por una factura, recibo, tiquete o comprobante debidamente emitido conforme los requisitos exigidos por la Dirección General de Tributación.

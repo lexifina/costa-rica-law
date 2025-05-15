@@ -1,1 +1,0 @@
-Artículo 22: REQUISITOS PARA ADQUISIONES DE REPUESTOS, MATERIALES Y SUMINISTROS: Cuando se trata de compra de repuestos o materiales y suministros, la factura deberá contener el número de recepción de bodega, y el número de placa del activo en que se utilizará la compra.

@@ -1,2 +1,0 @@
-Artículo 9: RENDICION DE GARANTIAS O CAUSIONES: El funcionario encargado de custodiar el fondo de caja chica, así como el supervisor directo de éste estarán en la obligación de mantener de su propio peculio una Póliza de Fidelidad Individual a favor de la Universidad Técnica Nacional por el equivalente a los fondos custodiados o administrados.
-Estos documentos deberán ser remitidos a la Dirección de Gestión Financiera, para su custodia.

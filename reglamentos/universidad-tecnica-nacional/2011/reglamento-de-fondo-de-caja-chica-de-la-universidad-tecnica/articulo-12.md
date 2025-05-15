@@ -1,1 +1,0 @@
-Artículo 12: RESPONSABLES POR EL DESTINO DE ADQUISIONES: El destino de los bienes y servicios adquiridos mediante el fondo de caja chica son responsabilidad de la persona que solicita la erogación del gasto y de la persona que lo autorizó.

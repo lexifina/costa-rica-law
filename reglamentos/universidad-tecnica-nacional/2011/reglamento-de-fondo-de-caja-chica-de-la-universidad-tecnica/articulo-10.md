@@ -1,2 +1,0 @@
-Artículo 10: RESPONSABILIDAD DEL CONTROL: La responsabilidad del control de los fondos de Caja Chica le compete al Jefe del Área de Tesorería, quien será responsable de la correcta operación y uso de esos fondos ante la Dirección de Gestión Financiera. Además comunicarán por escrito al custodio del fondo de Caja Chica, las responsabilidades establecidas por el presente reglamento.
-(Reformado según el Acuerdo No.220 de la Sesión Ordinaria No.27 del Consejo Universitario del jueves 10 de diciembre de 2015.)

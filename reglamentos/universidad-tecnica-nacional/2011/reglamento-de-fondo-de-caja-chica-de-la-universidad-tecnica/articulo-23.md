@@ -1,1 +1,0 @@
-Artículo 23: PLAZO PARA LA LIQUIDACION DE DINEROS AUTORIZADOS, SIN ADELANTO: En los casos en que se realicen erogaciones sin que medie adelanto de dinero, se pagarán los comprobantes que tengan una antigüedad no mayor a cinco días hábiles a partir de su fecha de emisión, siempre que se cuente con el respectivo contenido presupuestario.

@@ -1,2 +1,0 @@
-Artículo 3: ADQUISIONES MEDIANTE CAJA CHICA: Los fondos de Caja Chica se destinarán a solventar única y exclusivamente la adquisición de bienes y servicios urgentes e imprevistos o como medida para evitar gastos innecesarios en la compra directa, siempre que no se incurra en fraccionamiento ilícito.
-Los fondos de caja chica no podrán ser utilizados en gastos diferentes a los que fueron previamente autorizados.
