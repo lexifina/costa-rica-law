@@ -1,1 +1,0 @@
-Artículo 13.—Los acuerdos y resoluciones del Concejo de Distrito serán ejecutados por su presidente, o en su ausencia, por su vicepresidente.
