@@ -1,0 +1,1 @@
+Artículo 104. Certificación de la Disposición Final. La Municipalidad o la empresa encargada de la disposición final de los residuos deberá presentar un certificado de disposición como respaldo de una adecuada gestión.

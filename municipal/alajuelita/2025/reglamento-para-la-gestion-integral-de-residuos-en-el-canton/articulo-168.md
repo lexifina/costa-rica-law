@@ -1,0 +1,1 @@
+Artículo 168. Fondo para la Gestión Integral de Residuos. Los fondos provenientes de las multas que indica el Artículo 25 de la Ley para la Gestión Integral de Residuos Nº 8839, una vez girados por la Tesorería Nacional a la Municipalidad, ingresarán directamente al presupuesto municipal.

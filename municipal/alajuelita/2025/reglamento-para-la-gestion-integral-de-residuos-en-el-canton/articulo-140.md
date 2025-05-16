@@ -1,0 +1,1 @@
+Artículo 140. Asignación de los Incentivos. El Departamento de Gestión Ambiental establecerá el procedimiento técnico para la asignación de los incentivos y recurso indicado en el artículo 140 del presente reglamento, de forma que se corrobore y evalúe la idoneidad de los candidatos y sus propuestas.

@@ -1,0 +1,1 @@
+Artículo 51. Planes de Gestión de Residuos. Para el otorgamiento de permisos de funcionamiento sanitario que expide el Ministerio de Salud, se deben de elaborar los planes de gestión de residuos, y deben incluir los residuos declarados de peligrosos y de manejo especial, que obligatoriamente deben de separarse de la corriente normal de los residuos.

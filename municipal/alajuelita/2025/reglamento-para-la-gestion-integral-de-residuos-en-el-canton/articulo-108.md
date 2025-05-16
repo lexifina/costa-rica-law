@@ -1,0 +1,7 @@
+Artículo 108. Tasa por el Servicio. El servicio de parques y ornatos se cobrará a cada bien inmueble localizado en el cantón de Alajuelita, se facturará al propietario, poseedor y/o copropietario del bien proporcionalmente al factor de copropiedad y se calculará de forma equitativa entre los contribuyentes de cada distrito, según el valor de la propiedad.
+La Municipalidad calculará esta tasa en forma anual y la cobrará en tractos trimestrales sobre saldo vencido. El cobro por la disposición final de los residuos generados por este servicio estará incluido dentro de los costos a considerar dentro de la tarifa y se debe trasferir al departamento que realiza el servicio.
+El cálculo del monto de la tarifa se realizará acorde con lo establecido en el artículo 83 del Código Municipal y sus reformas, por lo que considerará lo siguiente:
+a) El costo efectivo del servicio que incluye el pago de remuneraciones, servicios, materiales y suministros, maquinaria, equipo y mobiliario, inversiones futuras, costo de recolección, tratamiento y disposición final. Todo ello con relación al número de unidades servidas, entre otros costos directos e indirectos.
+b) Un 10% sobre el costo real por recolección, tratamiento y disposición final de los residuos sólidos;
+c) Hasta un 10% adicional sobre los costos directos correspondiente a gastos de administración.
+d) Un 10% adicional de utilidad para el desarrollo del servicio.

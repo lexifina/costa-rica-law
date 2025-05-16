@@ -1,0 +1,3 @@
+Transitorio Único. Para los efectos del Capítulo VII, se otorga un plazo de seis meses a partir de la publicación de este reglamento para que los generadores que estén obligados a construir o realizar mejoras a los sistemas de almacenamiento colectivo de residuos se ajusten a las disposiciones indicadas en dicho capítulo.
+La Municipalidad de Alajuelita avisa que en Sesión Ordinaria número 45 celebrada el 01 de abril del año 2025, el Concejo Municipal acordó APROBAR POR UNANIMIDAD la segunda publicación del Reglamento para la Gestión Integral de Residuos en el Cantón de Alajuelita en el Diario oficial La Gaceta. Rige a partir de su publicación.
+<span style='font-family:"Arial",sans-serif; </body>
