@@ -1,0 +1,3 @@
+CAPÍTULO IX
+EJECUCIÓN CONTRACTUAL DE LOS CONTRATOS
+Artículo 24.- Eficacia del Contrato. Los contratos alcanzarán su eficacia, hasta que cuenten con el Refrendo Contralor, Aprobación Interna o - cumplimiento de las condiciones de formalización de la relación contractual para los contratos restantes, según corresponda, todo de conformidad con el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública y los lineamientos internos que para los efectos hayan sido establecidos por la UP o la Asesoría Jurídica. En ningún caso podrá un contrato ser ejecutado sin el debido cumplimiento de lo indicado.

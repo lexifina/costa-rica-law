@@ -1,0 +1,1 @@
+Artículo 70.- Autorización de otorgamiento o recepción vía donación de bienes inmuebles. Para el otorgamiento o recepción de toda donación de bienes inmuebles hacia o desde instituciones de la Administración Pública o lo estipulado en el artículo 134 a) de la LGCP, la autorización debe ser emitida, por el Consejo Directivo.

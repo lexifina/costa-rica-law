@@ -1,0 +1,1 @@
+Artículo 50.- De los medios de pago. Las compras realizadas por medio del fondo de caja chica se cancelarán utilizando tarjeta de institucional o mediante transferencia electrónica de fondos, lo anterior de conformidad con lo establecido en las Disposiciones para Pagos por Bancos y Medios Electrónicos.

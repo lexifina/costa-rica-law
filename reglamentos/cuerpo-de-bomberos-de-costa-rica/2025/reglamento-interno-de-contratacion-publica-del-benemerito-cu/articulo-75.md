@@ -1,0 +1,1 @@
+Artículo 75.- Normativa supletoria. En todo aquello no previsto en el presente instrumento se aplicará la Ley General de Contratación Pública y su Reglamento, la Ley General de la Administración Pública, lineamientos y directrices emitidas por la Autoridad de Contratación Pública y la Dirección de Contratación Pública, así como toda otra normativa conexa que resulte aplicable.

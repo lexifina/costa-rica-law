@@ -1,0 +1,1 @@
+Artículo 43- De la fragmentación. No se podrá realizar compras por medio de fondos de caja chica, cuando estas impliquen que su realización se da para evadir procedimientos de contratación más rigurosos o que las mismas no obedezcan a compras debidamente planificadas.

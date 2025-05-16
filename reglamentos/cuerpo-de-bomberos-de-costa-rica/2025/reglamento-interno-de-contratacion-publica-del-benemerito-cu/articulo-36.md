@@ -1,0 +1,1 @@
+Artículo 36.- Sobre la recepción de servicios. La Unidad Usuaria será la responsable de la recepción provisional y definitiva de los servicios adquiridos, para lo cual debe considerar la misma dinámica del procedimiento señalado en el artículo anterior, siendo necesario dejar constancia en el acta respectiva de su validación.

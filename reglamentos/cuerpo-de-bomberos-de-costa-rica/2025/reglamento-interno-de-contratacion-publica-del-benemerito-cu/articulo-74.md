@@ -1,0 +1,1 @@
+Artículo 74.- Sistema Digital Unificado Los procesos de contratación pública serán tramitados en el Sistema Digital Unificado. Se exceptúa de lo anterior únicamente lo referido en la Ley 9986 y su Reglamento y expresamente dispensado por la DCoP.

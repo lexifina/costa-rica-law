@@ -1,0 +1,1 @@
+Artículo 11.- Requisitos de control de Unidades Usuarias. Será responsabilidad exclusiva de cada Jefatura de las Unidades Usuarias, establecer los mecanismos de control necesarios y asignar las responsabilidades que corresponda a sus colaboradores, a efecto de que se cumpla lo dispuesto en la presente normativa.

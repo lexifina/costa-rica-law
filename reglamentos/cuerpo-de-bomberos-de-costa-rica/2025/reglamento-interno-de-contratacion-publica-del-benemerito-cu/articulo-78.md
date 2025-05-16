@@ -1,0 +1,1 @@
+Artículo 78.- Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. De manera adicional, debe constar en la página web institucional, sistema digital unificado y Bomberos INSIDE.

@@ -1,0 +1,1 @@
+Artículo 64.- Trámite del procedimiento administrativo. La Unidad de Proveeduría instaurará el correspondiente procedimiento administrativo, siguiendo al efecto el procedimiento que contempla la LGAP.

@@ -1,0 +1,1 @@
+Artículo 22.- Rescate y supresión de servicios. Cuando por razones de interés público se determine la necesidad de rescatar o suprimir la prestación de un servicio, se delega en el Director General la facultad de emitir, motivadamente, los actos para tales fines. Lo anterior sin perjuicio de la potestad de avocación del Consejo Directivo de estas decisiones.

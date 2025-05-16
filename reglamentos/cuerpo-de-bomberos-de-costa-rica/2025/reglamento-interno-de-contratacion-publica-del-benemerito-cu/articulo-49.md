@@ -1,0 +1,2 @@
+Artículo 49.- Recepción y pago. La recepción de los bienes, servicios u obras que se adquieran por medio del fondo de caja chica la realizará la Dependencia beneficiada o la que gestiona la compra, según corresponda. Una vez recibida a conformidad la compra se deberá confirmar a la dependencia que autorizó el presupuesto la recepción satisfactoria.
+Con relación al pago de los bienes, servicios u obras, este se deberá tramitar según las disposiciones establecidas al efecto, una vez se dé el recibo a conformidad y se cuente con la factura debidamente confeccionada.

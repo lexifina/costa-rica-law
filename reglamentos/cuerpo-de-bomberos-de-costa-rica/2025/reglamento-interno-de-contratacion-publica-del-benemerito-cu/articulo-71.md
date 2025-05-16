@@ -1,0 +1,1 @@
+Artículo 71.- Autorización de otorgamiento o recepción vía donación de bienes muebles En el caso de otorgamiento o recepción de bienes muebles, se delega la autorización en la jefatura de la Dirección General. Todo lo anterior de conformidad con lo establecido en Ley General de Contratación Pública y su Reglamento.

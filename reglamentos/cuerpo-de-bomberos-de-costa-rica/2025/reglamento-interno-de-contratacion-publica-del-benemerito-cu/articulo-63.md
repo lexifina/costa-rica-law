@@ -1,0 +1,1 @@
+Artículo 63.- Encargado de instar el inicio del procedimiento. Corresponde a la Jefatura de la Unidad Usuaria, solicitar a la Unidad de Proveeduría el inicio del procedimiento administrativo que corresponda, para lo cual en cualquier caso debe aportar la respectiva prueba que respalde su solicitud.

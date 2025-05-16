@@ -1,0 +1,1 @@
+Artículo 60.- Registro de sanciones. Todas las sanciones impuestas a los particulares, dentro del día hábil siguiente a su firmeza, le serán comunicadas a la DCoP, por parte de la Unidad de Proveeduría incluyendo en el módulo correspondiente de sanciones en el sistema digital unificado, en este mismo plazo la información correspondiente, por el plazo de la sanción.

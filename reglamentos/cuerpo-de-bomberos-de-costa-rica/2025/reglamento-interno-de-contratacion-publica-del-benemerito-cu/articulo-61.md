@@ -1,0 +1,2 @@
+Artículo 61.- Nulidad Absoluta evidente y manifiesta. El órgano director del procedimiento será nombrado por la Dirección General y estará integrado como mínimo por una persona colaboradora de la Asesoría Jurídica.
+Cuando se den los presupuestos, de acuerdo con lo dispuesto en la Ley N°9986, Ley General de Contratación Pública y su Reglamento, se tramitará el procedimiento administrativo ordinario conforme al régimen de nulidades de la Ley N°6227, Ley General de la Administración Pública. La resolución final será emitida por la Dirección General.

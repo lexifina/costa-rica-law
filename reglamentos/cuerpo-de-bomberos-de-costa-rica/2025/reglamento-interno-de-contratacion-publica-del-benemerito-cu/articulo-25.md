@@ -1,0 +1,2 @@
+Artículo 25.- Obligación de las Unidades Usuarias en contratos. Las Unidades Usuarias están en la obligación de informar a la UP la fecha de inicio, renovación y finalización de los contratos continuados bajo su control, así como solicitar la devolución de las garantías de cumplimiento.
+También deben llevar el estricto control y planificación, para evitar que, ante el vencimiento contractual, y de requerirse un bien y/o servicio; no se den interrupciones producto de la no tramitación oportuna del nuevo proceso contractual.

@@ -1,0 +1,1 @@
+Artículo 2.- Gestor del proceso de contratación. Toda contratación pública que realice el BCBCR debe tramitarse por medio de la Unidad de Proveeduría, siendo la instancia competente para tramitar y conducir esos procedimientos, todo conforme lo señalado en la Ley General de Contratación Pública y su Reglamento.

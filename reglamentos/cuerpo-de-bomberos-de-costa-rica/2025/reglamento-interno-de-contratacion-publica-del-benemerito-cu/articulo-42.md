@@ -1,0 +1,1 @@
+Artículo 42.- Del costo beneficio. Toda compra que se realice por medio de fondos de caja chica debe incluir referencia del beneficio que se obtiene de su concreción y la relación con el costo de obtener el bien, servicio u obra que se va a adquirir. En este análisis se deben evaluar los beneficios tangibles e intangibles asociados a la adquisición.

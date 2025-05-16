@@ -1,0 +1,1 @@
+Artículo 53.- Del control general e individual del uso del fondo. Cada dependencia que realice compras debe mantener un control efectivo de las compras realizadas por medio de fondos de caja chica. El control general de las compras realizadas por este medio será mantenido por el Área de Soporte Administrativo.

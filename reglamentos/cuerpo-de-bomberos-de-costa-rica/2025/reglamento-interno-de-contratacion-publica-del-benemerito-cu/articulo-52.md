@@ -1,0 +1,1 @@
+Artículo 52.- De los respaldos de las compras. La documentación generada producto de la realización de cada compra por medio de fondos de caja chica debe contar con los respaldos esenciales que validen la compra realizada, permita tener trazabilidad del requerimiento y las autorizaciones, este control será llevado en cada Unidad que ejecute compras por este medio.
