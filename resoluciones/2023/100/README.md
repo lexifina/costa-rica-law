@@ -14,3 +14,4 @@ Requisitos de admisibilidad para toda solicitud de fijación de tarifas que se p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-11-07 | la propia norma |
+| 2 | 2025-05-19 | Resolución 68 (2025-05-19) |
