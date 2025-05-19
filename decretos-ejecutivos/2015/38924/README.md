@@ -19,3 +19,4 @@ Reglamento para la calidad del Agua Potable
 | 4 | 2018-11-29 | Decreto Ejecutivo 41499 (2018-11-29) |
 | 5 | 2020-03-06 | Decreto Ejecutivo 42332 (2020-03-06) |
 | 6 | 2023-02-09 | Decreto Ejecutivo 44220 (2023-02-09) |
+| 7 | 2025-05-19 | Decreto Ejecutivo 45019 (2025-05-19) |

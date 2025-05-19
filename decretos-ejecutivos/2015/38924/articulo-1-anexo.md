@@ -58,14 +58,16 @@ Plomo ( Pb ) | --- | 0,01
 Selenio (Se) | --- | 0,01
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)
 CUADRO 5. Parámetros de Calidad del Agua Nivel Cuarto (N4)
-RESIDUOS DE PLAGUICIDAS
-PARAMETRO | Valor Máximo Admisible (VMA) μg/L
-Plaguicidas. (a) | 0,1
-Plaguicidas organoclorados(b) | 0,03
-Total de plaguicidas. (c) | 0,5
-(a) Por "Plaguicidas" se entiende: insecticidas orgánicos, herbicidas orgánicos, fungicidas orgánicos, nematocidas orgánicos, acaricidas orgánicos, alguicidas orgánicos, rodenticidas orgánicos, molusquicidas orgánicos, productos relacionados (reguladores de crecimiento) y sus pertinentes metabolitos y productos de degradación y reacción. Sólo es preciso controlar aquellos plaguicidas que sea probable que estén presentes en un suministro dado. De estar presentes en el suministro e implementado el sistema de tratamiento; estos deben ser evaluados con una frecuencia mensual.
-(b) Sustancias de uso prohibido en el país, pero que debido a su persistencia en Costa Rica podrían encontrarse en aguas dada su larga vida media en el ambiente y su uso extensivo en épocas anteriores.
-(c) Por "Total de plaguicidas", se entiende la suma de todos los plaguicidas detectados y cuantificados en el procedimiento de control.
+(*)
+Parámetro | Valor de Alerta (VA) μg/L
+Plaguicidas (a) | 0,10
+Plaguicidas organoclorados (b) | 0,03
+Total de plaguicidas (c) | 0,50
+Notas:
+(a) Por "Plaguicidas" se entiende: insecticidas orgánicos, herbicidas orgánicos, fungicidas orgánicos, nematocidas orgánicos, acaricidas orgánicos, alguicidas orgánicos, rodenticidas orgánicos, molusquicidas orgánicos, productos relacionados (reguladores de crecimiento) y sus pertinentes metabolitos y productos de degradación y reacción. Solo es preciso controlar aquellos plaguicidas que sea probable que estén presentes en un suministro dado. En caso de alcanzarse el valor de alerta de 0,10 μg/L, el Ministerio de Salud, en coordinación con los entes operadores y con el apoyo de la OPS u otras instituciones de relevante experiencia nacional o internacional referentes a salud pública, deberá realizar un análisis de riesgo específico para definir el valor máximo admisible ajustado por riesgo (VMAAR) para el plaguicida identificado.
+(b) Sustancias de uso prohibido en el país, pero que debido a su persistencia en el ambiente podrían encontrarse en aguas de consumo.
+(c) Por "Total de plaguicidas" se entiende la suma de todos los plaguicidas detectados y cuantificados en el procedimiento de control. En caso de alcanzarse el valor de alerta de 0,50 μg/L, el Ministerio de Salud, en coordinación con los entes operadores y con el apoyo de la OPS u otras instituciones avaladas, deberá realizar un análisis de riesgo específico para definir el valor máximo admisible ajustado por riesgo (VMAAR) para cada plaguicida identificado.
+(*) (Así reformado la parte primera del cuadro 5) anterior por el artículo 1° del decreto ejecutivo N° 45019 del 19 de mayo de 2025)
 SUSTANCIAS ORGÁNICAS
 PARÁMETRO | Valor Máximo Admisible. (VMA) μg/L
 Alcanos Clorados
@@ -151,3 +153,15 @@ Giardia intestinalis | Ausencia
 Cyclospora cayetanensis | Ausencia
 Helmintos Huevecillos | Nemátodos intestinales | Ausencia
 (Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)
+Cuadro 6: Valores Máximos Admisibles para Metabolitos de Clorotalonil en Agua Potable", con los siguientes valores:
+Metabolito de Clorotalonil | VMAAR (?g/L)
+R182281 - 4-hidroxi -2,5,6-tricloro-1,3- diacianobenceno (4-hidroxiclorotalonil) | 64
+SYN546872 - 1,3-dicarbamoil-2,4,5,6- tetraclorobenceno | 80
+SYN507900 - 2,3,6-tricloro-3-ciano-4- hidroxibenzamida | 40
+Metabolito de Clorotalonil | VMAAR (?g/L)
+R417888 - ácido 2-cabamoil-3,5,6-tricloro-4- cianobencenosulfónico | 12
+R611968 - 2,4,5-tricloro-3-ciano-6- hidroxibenzamida | 80
+SYN548580 - 2,4,5-tricloro-6-hidroxibenceno- 1,3-dicarboxamida | 80
+R471811 - ácido -2,4-dicarbamoil-3,5,6- tricloro-bencenosulfónico | 80
+R611965 - ácido - 3-carbamoil-2,4,5- triclorobenzoico | 80
+(Así adicionado el cuadro 6) anterior por el artículo 1° del decreto ejecutivo N° 45019 del 19 de mayo de 2025)
