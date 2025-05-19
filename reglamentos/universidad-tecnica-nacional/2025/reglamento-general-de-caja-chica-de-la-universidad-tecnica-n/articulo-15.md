@@ -1,0 +1,1 @@
+Artículo 15. Responsabilidad de las personas designadas en la Dirección de Control de Bienes e Inventario. Es responsabilidad de las personas designadas en la Dirección de Control de Bienes e Inventarios, realizar la asignación de los activos comprados y emitir la boleta que lo acredite.

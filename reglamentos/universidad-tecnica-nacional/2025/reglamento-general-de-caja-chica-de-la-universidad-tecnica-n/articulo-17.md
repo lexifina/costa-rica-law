@@ -1,0 +1,1 @@
+Artículo 17. Rendición de Garantías o Cauciones. Las personas servidoras indicadas en el Reglamento de Garantías y Cauciones para Funcionarios de la Universidad Técnica Nacional deben adquirir, de su propio peculio, una póliza de fidelidad Individual a favor de la Universidad Técnica Nacional.

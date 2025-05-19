@@ -1,0 +1,2 @@
+CAPÍTULO III DE LAS SOLICITUDES Y LOS DESEMBOLSOS
+Artículo 18. Compras por medio del fondo de caja gastos mayores. Las compras al crédito las realiza la Dirección Proveeduría Institucional a solicitud de la persona responsable de una unidad ejecutora, mediante la presentación del formulario “Decisión Administrativa”; para luego emitir una orden de compra, debiendo los proveedores entregar los bienes en los almacenes de la Universidad.

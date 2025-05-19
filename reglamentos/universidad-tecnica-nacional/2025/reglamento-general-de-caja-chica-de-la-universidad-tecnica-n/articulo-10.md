@@ -1,0 +1,1 @@
+Artículo 10. Responsabilidad del Director o Directora de Proveeduría Institucional. Es responsabilidad del Director o Directora de Proveeduría Institucional, el establecimiento e implementación de normativa y controles de los gastos mayores.

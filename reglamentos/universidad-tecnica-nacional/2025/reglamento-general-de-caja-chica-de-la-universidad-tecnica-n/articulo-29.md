@@ -1,0 +1,2 @@
+CAPITULO VII DE LOS ARQUEOS
+Artículo 29. Arqueos sorpresivos. Los fondos mixtos de caja gastos menores están sujetos a la realización de arqueos sorpresivos, al menos una vez al mes, por parte del Área de Control y Seguimiento o de las personas autorizadas para ejecutar arqueos en las Sedes y el Centro de Formación Pedagógica y Tecnología Educativa, autorizadas por el Director de Gestión Financiera, así como por los entes fiscalizadores internos y externos debidamente autorizados.

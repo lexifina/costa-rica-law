@@ -1,0 +1,2 @@
+Transitorio II. La Dirección de Proveeduría Institucional tendrá un plazo de doce meses naturales, a partir de la entrada en vigencia del presente reglamento, de emitir un mecanismo para que se acredite que la adquisición no resulta más onerosa que el procedimiento ordinario de contratación por realizar.
+(Aprobado por el Consejo Universitario, en Sesión Ordinaria No.10 del 24 de abril de 2025, Acta No.10-2025, Acuerdo 9, publicado en el Diario Oficial La Gaceta No.89 del 19 de mayo de 2025).

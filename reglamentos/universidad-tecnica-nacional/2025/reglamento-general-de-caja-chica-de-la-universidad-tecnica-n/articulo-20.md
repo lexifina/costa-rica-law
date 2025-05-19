@@ -1,0 +1,2 @@
+CAPÍTULO IV DE LAS LIQUIDACIONES
+Artículo 20. Liquidación de compras realizadas por medio del fondo de caja gastos mayores. La Dirección de Proveeduría Institucional recibe los Página | 10 bienes en el almacén (a excepción de los servicios y la obra), registra la entrada de inventario, servicios y obra, coordina con el Área de Contabilidad para la recepción de la factura electrónica, sube al Sistema Digital Unificado la información, elabora la boleta de trámite de pago y pasa la documentación a Tesorería para el pago respectivo.

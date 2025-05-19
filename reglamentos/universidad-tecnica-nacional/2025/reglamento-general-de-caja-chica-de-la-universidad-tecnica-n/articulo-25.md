@@ -1,0 +1,1 @@
+Artículo 25. Revisión de reintegros. La Dirección de Gestión Financiera define y comunica a las personas responsables de revisar los reintegros generados por las personas responsables de caja en las Sedes, Centro y Administración Universitaria.

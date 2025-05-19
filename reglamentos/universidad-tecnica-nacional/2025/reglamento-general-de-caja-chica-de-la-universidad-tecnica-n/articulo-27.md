@@ -1,0 +1,1 @@
+Artículo 27. Prohibición de cambio de dineros o valores. Bajo ninguna circunstancia, la persona cajera, puede cambiar cheques personales o de terceras personas con estos fondos, ni mezclar los fondos mixtos de la caja de gastos menores con dineros o cuentas bancarias personales.

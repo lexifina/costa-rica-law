@@ -1,0 +1,1 @@
+Artículo 6. Creación, cierre y montos de los fondos mixtos de caja gastos menores. La creación y cierre de los fondos mixtos de caja gastos menores para cada una de las Sedes, Centro, Administración Universitaria y otros que se requieran, así como la asignación, ampliación o reducción del monto, son establecidos por resolución motivada de la Dirección de Gestión Financiera.

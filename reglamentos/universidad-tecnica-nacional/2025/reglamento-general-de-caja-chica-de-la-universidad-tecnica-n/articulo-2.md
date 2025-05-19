@@ -1,0 +1,1 @@
+Artículo 2. Finalidad. La caja chica es un procedimiento de excepción cuya finalidad es la adquisición de bienes, obras y servicios; siempre y cuando sean indispensables e impostergables, se acredite el costo - beneficio, no haya fragmentación y la adquisición no resulte más onerosa que el procedimiento ordinario de contratación por realizar.
