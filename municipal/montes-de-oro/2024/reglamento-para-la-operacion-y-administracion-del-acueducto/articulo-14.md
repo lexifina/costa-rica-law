@@ -1,6 +1,8 @@
 Artículo 14- De los requisitos para nuevos servicios para trámite de permisos de construcción: Se establecen los siguientes requisitos para la solicitud de disponibilidad de agua potable para nuevas edificaciones:
 a) Solicitud del servicio debidamente completa y firmada por el propietario registral, apoderado, o el albacea, según corresponda. En dicha solicitud deberá indicarse el destino que va a dar al servicio, para su respectiva calificación.
 b) En caso de persona física, presentar cédula de identidad, de residencia o pasaporte vigente para su verificación.
+En caso de persona física, debe presentar cédula de identidad, de residencia o pasaporte vigente para su verificación.
+(Así adicionado el párrafo anterior en sesión N° 55 del 20 de mayo de 2025)
 c) En caso de personas jurídicas, certificación de personería vigente con un máximo de 30 días de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva.
 d) Presentación de cédula de identidad de su representante legal para su verificación.
 e) Certificación vigente del inmueble con un máximo de 30 días de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva.
@@ -9,3 +11,5 @@ g) Verificación del funcionario competente que demuestre que el propietario no 
 h) Plano de catastro con el Visado Municipal.
 i) En el caso de Proyectos Urbanísticos o edificaciones que requieran el caudal mayor de 4 pajas de agua el solicitante deberá aportar el diseño de sitio de la obra y la memoria de cálculo para dotación de servicios.
 Los requisitos detallados en los incisos e), f), g) y h) serán gestionados a lo interno de la institución en cumplimiento de la Ley N°8220 y el Decreto Ejecutivo N°43665-MP-MEIC; por esa razón, no deben ser presentados por el propietario para la realización del trámite.
+La Municipalidad dispondrá de 30 días naturales, para resolver las disponibilidades de agua que se le presenten, conforme lo establece el artículo 256 de la Ley General de la Administración Pública. No obstante, no aplica el Silencio positivo, y una vez otorgado tiene una vigencia de 1 año. La Municipalidad podrá verificar a través de las plataformas virtuales oficiales y disponibles, las siguientes condiciones Certificaciones registrales o administrativas de personerías jurídicas vigentes, apoderados con facultades de representantes judiciales y extrajudiciales o facultados al efecto, albaceas, tutores, curadores; en caso de no tener acceso a estas plataformas, queda la administración facultada para solicitarlo al usuario correspondiente.
+(Así adicionado el párrafo anterior en sesión N° 55 del 20 de mayo de 2025)

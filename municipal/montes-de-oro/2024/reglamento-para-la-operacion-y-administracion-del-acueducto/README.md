@@ -14,3 +14,4 @@ Reglamento para la operación y administración del acueducto de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-01-15 | la propia norma |
+| 2 | 2025-05-20 | Reglamento municipal 55 (2025-05-20) |
