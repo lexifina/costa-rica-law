@@ -1,1 +1,0 @@
-Artículo 8º—Informe a la Junta Directiva. El Comité de Auditoría deberá rendir un informe semestral de labores, en los meses de enero y julio, a la Junta Directiva, además de los informes particulares que se requieran para dar cumplimiento a las funciones señaladas en este Reglamento.

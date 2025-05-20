@@ -1,1 +1,0 @@
-Artículo 12.—Quórum. El quórum quedará válidamente constituido por dos de las personas que conformen el Comité de Auditoría. Los acuerdos se adoptarán por mayoría absoluta y se harán constar en un libro de actas, el cual estará en custodia de la Secretaría de Actas de la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento será de aplicación general y obligatoria para las personas que integren el Comité de Auditoría. Adicionalmente, estarán sujetas a las disposiciones contenidas en el Reglamento de Junta Directiva.
