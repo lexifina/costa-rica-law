@@ -1,0 +1,1 @@
+Artículo 7º-Custodia de los fondos. Cada fondo de caja chica estará bajo la custodia de un funcionario cajero, quien será el responsable directo del uso de estos fondos, conforme a este Reglamento. El funcionario será dependiente del Coordinador del Proceso de Tesorería.

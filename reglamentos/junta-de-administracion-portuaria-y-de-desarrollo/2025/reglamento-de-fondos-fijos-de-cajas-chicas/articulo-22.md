@@ -1,0 +1,1 @@
+Artículo 22.-Reembolso de Fondos de Caja Chica. Solicitud de efectivo al banco mediante cheques, formulario u otro mecanismo y numero de oficio para reembolsar los fondos fijos de caja chica con firma digital del Coordinador de Tesorería, Jefe Unidad Financiero Contable o personas asignadas en caso de estar ausente algunos de los anteriores.
