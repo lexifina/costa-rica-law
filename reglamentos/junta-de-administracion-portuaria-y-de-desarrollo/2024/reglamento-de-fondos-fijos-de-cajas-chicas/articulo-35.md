@@ -1,2 +1,0 @@
-Artículo 35.-Violación al Reglamento.
-El servidor que viole algún artículo de este Reglamento será sancionado conforme a los procedimientos y disposiciones legales establecidas, sin perjuicio de que inmediatamente se detecte la falta y previamente a la aplicación de la sanción que corresponda, se le obligue a liquidar el vale correspondiente.

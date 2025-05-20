@@ -1,2 +1,0 @@
-Artículo 33.-Límite de compra cantidad de artículos.
-Las compras de materiales no podrán excederse de tres (3) unidades de medida (unidad, docenas, galones, litros), por artículo. La Presidencia Ejecutiva y Gerencias podrán comprar comestibles para atender reuniones de trabajo. En casos de excepción, por necesidades mayores de tres unidades de un mismo artículo, su autorización quedará sujeta a juicio y discreción del Gerente General, o de la Presidencia Ejecutiva.

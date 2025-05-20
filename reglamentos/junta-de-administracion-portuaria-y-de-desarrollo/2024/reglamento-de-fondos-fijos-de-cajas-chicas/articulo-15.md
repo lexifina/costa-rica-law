@@ -1,2 +1,0 @@
-Artículo 15.-Medio de pago y contenido presupuestario.
-Los desembolsos se realizarán en efectivo. Los adelantos o desembolsos que se realicen con el Fondo deberán contar con el correspondiente contenido presupuestario y se respaldarán con el justificante comprobante original. Para la compra de bienes y servicios o Adelantos y Liquidación de Gastos de Viaje y Transporte, la existencia del contenido presupuestario debe ser verificada por la Oficina de Presupuesto.

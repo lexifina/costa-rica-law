@@ -1,2 +1,0 @@
-Artículo 25.-Liquidación de adelantos.
-Todo desembolso o adelanto para gastos por Caja Chica deberá ser liquidado dentro de las ocho horas del mismo día en que se entregue la Caja Chica, caso contrario, no se tramitarán adelantos de caja chica a funcionarios que tengan adelantos pendientes de liquidar. El encargado de los fondos deberá reportar al Coordinador de Tesorería y éste gestionará el cobro respectivo. El encargado de los fondos será solidariamente responsable sino comunica tal incumplimiento al finalizar la jornada laboral respectiva.
