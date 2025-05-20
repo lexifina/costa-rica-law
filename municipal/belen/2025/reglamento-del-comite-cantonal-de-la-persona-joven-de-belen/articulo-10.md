@@ -1,0 +1,1 @@
+Artículo 10.-El Comité tendrá como objetivo fundamental, presentar, elaborar y ejecutar proyectos de interés local o nacional en los que se promueva la igualdad con perspectiva de género y equidad, y promover propuestas que contribuyan a la construcción de las políticas públicas de la Persona Joven, en aplicación de los principios contenidos en la Ley General de la Persona Joven.
