@@ -1,0 +1,1 @@
+Artículo 14.-Solicitud de retiro de montos distintos. Las operadoras no podrán devolver sumas diferentes de las solicitadas por el afiliado en el formulario D-407 (ver anexo 1 ). En aquellos casos en que éste manifieste verbalmente el interés de retirar un monto distinto del solicitado, procede la aplicación del artículo siguiente y la presentación de una nueva solicitud.

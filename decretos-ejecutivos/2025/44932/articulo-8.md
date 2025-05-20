@@ -1,0 +1,1 @@
+Artículo 8º-Hecho generador. El hecho generador de la retención correspondiente a la devolución de los incentivos disfrutados se configura en el momento en que se pague o se acredite el monto del retiro solicitado.

@@ -1,0 +1,1 @@
+Artículo 24.-Cálculo del beneficio fiscal del artículo 72 de la Ley Nº 7983. Para efectos del cálculo del beneficio fiscal establecido en el artículo 72 de la Ley Nº 7983 disfrutado por el afiliado, la operadora deberá aplicar la proporcionalidad del retiro con respecto a la totalidad del fondo, al monto total de la exención del impuesto sobre la renta del fondo.

@@ -1,0 +1,4 @@
+SECCIÓN V
+Facultad de comprobación de la Administración Tributaria
+y responsabilidad solidaria de las operadoras
+Artículo 27.-Diferencias en los incentivos fiscales liquidados. Si con base en las actuaciones programadas por la Administración Tributaria para verificar el monto de los incentivos fiscales disfrutados por el afiliado, se determinan diferencias respecto a los beneficios fiscales liquidados, podrá la Administración Tributaria programar actuaciones adicionales, incluido un proceso de liquidación previa por comprobación abreviada, para determinar el monto real de los beneficios fiscales disfrutados por el afiliado. En este caso, será de aplicación el plazo de prescripción indicado en el artículo 51 del Código de Normas y Procedimientos Tributarios, siendo que la Administración actuará de acuerdo con las facultades y deberes que dicha normativa dispone.

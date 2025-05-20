@@ -1,0 +1,9 @@
+Artículo 19.-Requisitos para trabajadores en relación de dependencia y personas físicas con actividad lucrativa. Todos los trabajadores en relación de dependencia (asalariados), deben presentar además los siguientes documentos:
+1. Trabajadores en relación de dependencia:
+a) Afiliados que no han disfrutado de los beneficios fiscales: deben aportar certificaciones de sus patronos en las que se haga constar el no disfrute del incentivo.
+b) Afiliados que han disfrutado de beneficios fiscales: deben aportar certificaciones de los patronos en que se detalle el monto de los salarios devengados, deducciones aplicadas por aportes al fondo de pensiones complementarias, créditos familiares e impuesto retenido, para cada uno de los meses
+en que haya disfrutado del incentivo. (ver anexo Nº3)
+En los casos en que no sea posible determinar el monto del beneficio fiscal, se presume que la deducción del aporte afectó el cálculo del impuesto sobre la renta en el tramo más alto del impuesto al salario, por lo tanto, el monto del beneficio se obtendrá de multiplicar el aporte por el respectivo porcentaje.
+2. Personas físicas con actividad lucrativa.
+Este tipo de contribuyente debe de encontrase al día con las obligaciones tributarias y con la Caja Costarricense del Seguro Social, de conformidad con lo estipulado en el artículo 74 de la ley Nº 7983 denominada Ley de Protección al Trabajador.
+La Administración Tributaria, realizará la verificación de los incentivos fiscales disfrutados, comprobando la información suministrada en las declaraciones autoliquidativas del Impuesto sobre las Utilidades presentadas. En caso de que se considere necesario contar con información adicional que no conste en las declaraciones del Impuesto sobre las Utilidades, o el afiliado se encontrara omiso en la presentación de alguna declaración, podrá la Administración Tributaria notificar el requerimiento de información para determinar el disfrute de los incentivos fiscales.
