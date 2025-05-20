@@ -1,6 +1,6 @@
 # Ley de Protección al Trabajador
 
-Ley N° 7983 del 2000-02-16. SINALEVI, ficha 43957: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43957&param2=128064&param3=1>.
+Ley N° 7983 del 2000-02-16. SINALEVI, ficha 43957: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43957&param2=145867&param3=1>.
 
 Publicada en La Gaceta N° 35 del 2000-02-18.
 
@@ -20,3 +20,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 13 | 2020-04-04 | Ley 9839 | 2020-04-03 |
 | 11 de 13 | 2020-10-05 | Ley 9906 | 2020-10-05 |
 | 12 de 13 | 2021-12-01 | Ley 9957 | 2021-04-14 |
+| 13 de 13 | 2025-05-20 | Ley 10707 | 2025-05-07 |
