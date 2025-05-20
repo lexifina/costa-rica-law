@@ -1,0 +1,1 @@
+Artículo 2º-El Ministerio de Hacienda, deberá velar por el cumplimiento de lo dispuesto en el artículo 109 del Reglamento del Estatuto de Servicio Civil, así como promover el diseño y/o actualización de los cargos institucionales propios de su actividad.
