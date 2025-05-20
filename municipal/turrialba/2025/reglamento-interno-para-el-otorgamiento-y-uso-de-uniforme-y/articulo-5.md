@@ -1,0 +1,1 @@
+Artículo 5°-El uso del uniforme contribuye a identificar al funcionario dentro y fuera de las instalaciones, le permite proyectar una imagen de orden y presentación, lo cual fortalece la identidad institucional.

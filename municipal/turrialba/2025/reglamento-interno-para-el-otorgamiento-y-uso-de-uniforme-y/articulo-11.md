@@ -1,0 +1,1 @@
+Artículo 11.-La aplicación de este Reglamento corresponde a las jefaturas y funcionarios o funcionarias, que deben velar por ello y rige para todas las personas funcionarias municipales receptores de este beneficio.

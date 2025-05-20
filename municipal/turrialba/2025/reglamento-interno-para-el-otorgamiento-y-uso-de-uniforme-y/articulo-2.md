@@ -1,0 +1,1 @@
+Artículo 2°-El presente reglamento regulará la entrega y el uso de los uniformes y zapatos que la Municipalidad de Turrialba proporcionará a las personas funcionarias, con ocasión o razón del trabajo.

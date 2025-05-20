@@ -1,0 +1,1 @@
+Artículo 4°-El uso de los uniformes y los zapatos, es de uso obligatorio para todas aquellas personas funcionarias que lo reciban, salvo casos excepcionalmente calificados, que deberán contar para tales efectos con el respectivo visto bueno por parte de la jefatura directa avalada por Salud Ocupacional.

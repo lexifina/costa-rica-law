@@ -1,0 +1,1 @@
+Artículo 3°-Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento y las políticas que se originan de los mismos, son de aplicación obligatoria para todas las personas funcionarias destinatarias de estos beneficios durante toda la jornada de trabajo, incluso en horas extraordinarias.

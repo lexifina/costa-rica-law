@@ -1,0 +1,1 @@
+Artículo 23.-Las prendas devueltas por los funcionarios que se encuentren en buen estado serán utilizadas por aquellos funcionarios que ingresen de manera interina, suplencia, servicios especiales o como jornales. Los funcionarios deben devolver las prendas lavadas.

@@ -1,0 +1,1 @@
+Artículo 18.-Cuando finalice una relación laboral, el trabajador o trabajadora deberá devolver los uniformes e implementos brindados por la Administración Municipal, en el caso de los uniformes deben devolverlos lavados.
