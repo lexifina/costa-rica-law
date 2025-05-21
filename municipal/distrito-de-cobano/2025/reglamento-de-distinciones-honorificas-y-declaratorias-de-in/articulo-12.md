@@ -1,0 +1,1 @@
+Artículo 12.-No podrán otorgarse distinciones a personas físicas o jurídicas que se encuentren en relación directa o indirecta de fiscalización respecto de la Corporación Municipal, como tampoco a los Jerarcas en ejercicio de éstas y del mismo Municipio o a funcionarios de diferentes funciones públicas en el ejercicio propio de su labor.

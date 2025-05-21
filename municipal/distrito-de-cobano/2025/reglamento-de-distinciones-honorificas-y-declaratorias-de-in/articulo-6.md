@@ -1,0 +1,1 @@
+Artículo 6º-El Concejo de distrito contará con medallas u otros insumos a fin de premiar los actos o labores destacables y deberá realizarse un certificado donde se plasmarán las firmas del o la Intendente en ejercicio y el o la síndico en ejercicio.

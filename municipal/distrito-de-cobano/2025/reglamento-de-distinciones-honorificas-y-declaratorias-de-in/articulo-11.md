@@ -1,0 +1,1 @@
+Artículo 11.-Podrá otorgarse igualmente la declaratoria de interés ambiental, cultural o Distrital, como una distinción honorífica, a aquellas actividades o proyectos que impliquen un aporte a la cultura, el arte, la ciencia, el ambiente, la salud o la tecnología del Distrito de Cóbano.

@@ -1,0 +1,1 @@
+Artículo 3º-La solicitud de menciones honoríficas podrá presentarse mediante moción o proyecto escrito suscrito por la persona titular de la Intendencia, por los concejales o síndicos del Concejo Municipal o mediante solicitud por escrito de munícipes, con indicación de las razones y aportando según sea el caso un historial de la persona, organización o institución.
