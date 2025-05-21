@@ -1,3 +1,0 @@
-CAPÍTULO II
-Ideas rectoras, enunciados y códigos éticos
-Artículo 3º—Concepto funcional de la Auditoría Interna. La Auditoría interna es la actividad independiente, objetiva y asesora que como parte del sistema de control interno y de la estructura organizacional del Archivo Nacional; creada para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección, proporcionando a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.

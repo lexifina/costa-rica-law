@@ -1,1 +1,0 @@
-Artículo 7º—Código ético de la auditoría interna. Los funcionarios de la actividad de Auditoría Interna se adherirán al Código Ético del Colegio de Contadores Públicos de Costa Rica y a cualquier otra norma jurídica atinente o disposición técnica emitida por el ente contralor.

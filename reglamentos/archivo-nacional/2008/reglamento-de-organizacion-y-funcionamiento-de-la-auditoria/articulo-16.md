@@ -1,1 +1,0 @@
-Artículo 16.—Registro separado de la ejecución presupuestaria. El responsable del control del presupuesto institucional mantendrá un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.

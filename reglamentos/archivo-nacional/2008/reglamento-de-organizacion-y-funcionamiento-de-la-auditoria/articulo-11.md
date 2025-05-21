@@ -1,2 +1,0 @@
-Artículo 11.—Nombramiento y nivel jerárquico del subauditor. La Junta Administrativa realizará el nombramiento del Subauditor por tiempo indefinido en estricto apego a lo dispuesto tanto en el artículo 31 de la Ley 8292, como en el “Reglamento de concurso público para la selección y nombramiento del auditor y subauditor interno del Archivo Nacional”
-Al subauditor interno le corresponderá apoyar al auditor interno en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

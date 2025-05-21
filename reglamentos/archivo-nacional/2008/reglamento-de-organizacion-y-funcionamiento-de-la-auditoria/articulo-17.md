@@ -1,1 +1,0 @@
-Artículo 17.—Coordinación con la Asesoría Legal. La Asesoría Legal deberá brindar el servicio oportuno y efectivo mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la Ley Nº 8292.

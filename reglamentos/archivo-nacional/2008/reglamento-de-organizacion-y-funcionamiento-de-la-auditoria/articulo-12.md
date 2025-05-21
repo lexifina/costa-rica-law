@@ -1,1 +1,0 @@
-Artículo 12.—Suspensión o remoción. El auditor y subauditor internos sólo podrán ser removidos del cargo por justa causa, conforme a dictamen previo y vinculante de la Contraloría General de la República, en aplicación de las disposiciones del artículo 15 de la Ley Orgánica de la Contraloría General de la República.

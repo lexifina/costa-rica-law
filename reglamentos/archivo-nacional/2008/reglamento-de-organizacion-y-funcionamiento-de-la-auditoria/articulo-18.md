@@ -1,1 +1,0 @@
-Artículo 18.—Apoyo de funcionarios expertos. Ante el requerimiento del Auditor Interno en estudios que así lo requieran, la Administración proveerá, en la medida de lo posible, profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Audioría Interna.

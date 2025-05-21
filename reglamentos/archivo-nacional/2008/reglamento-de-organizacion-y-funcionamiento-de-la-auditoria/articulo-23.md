@@ -1,1 +1,0 @@
-Artículo 23.—Objetividad individual y ética profesional. Los funcionarios de la Auditoría Interna deben tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia.
