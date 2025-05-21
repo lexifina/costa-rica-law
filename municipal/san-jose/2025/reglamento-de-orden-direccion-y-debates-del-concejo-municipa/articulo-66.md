@@ -1,0 +1,2 @@
+ARTÍCULO 66. CONVOCATORIA PERSONAS FUNCIONARIAS MUNICIPALES
+Las personas funcionarias municipales podrán ser convocadas para que asistan a sesiones ordinarias o extraordinarias del Concejo, cuando este, mediante acuerdo, así lo disponga, con el fin de que informen sobre asuntos propios de su cargo, sin que por ello deba pagárseles remuneración alguna. La Auditoría Municipal debe acudir a todas las sesiones del Concejo. Estas personas funcionarias harán ingreso al salón sin necesidad de que las regidurías se pongan de pie.

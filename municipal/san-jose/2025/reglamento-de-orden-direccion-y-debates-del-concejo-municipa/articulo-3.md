@@ -1,0 +1,2 @@
+ARTÍCULO 3. INSTALACIÓN DEL DIRECTORIO PROVISIONAL
+Las regidurías tomarán posesión de sus cargos, el primer día del tercer mes posterior a la elección correspondiente, a las doce horas en el recinto de sesiones de la Municipalidad, previa juramentación que se realizará ante el Directorio Provisional, una vez que este se haya juramentado ante el Concejo. Este Directorio estará integrado por las regidurías propietarias presentes de mayor edad que hayan resultado electas, en ese orden, y según comunicado oficial del Tribunal Supremo de Elecciones.

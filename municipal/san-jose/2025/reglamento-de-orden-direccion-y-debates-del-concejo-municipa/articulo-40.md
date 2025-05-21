@@ -1,0 +1,5 @@
+ARTÍCULO 40. EXCUSA Y RECUSACIONES
+Una persona miembro de comisión podrá excusarse, ante la Presidencia de la comisión y por causa justa, de participar en la discusión y votación de un determinado asunto. La decisión de aceptar o no las razones la adoptará la Presidencia en el mismo acto, resolución que se hará constar en el acta respectiva.
+Los motivos para excusarse del conocimiento de un asunto serán los que establece el Código Municipal, la Ley de la Contratación Pública y su Reglamento y cualquier otra disposición legal que así lo ordene.
+En caso de que quien se excuse de conocer o dictaminar un asunto sea la Presidencia, quien resolverá la excusa será la Vicepresidencia.
+Cualquier integrante de una comisión podrá ser recusado, por cualquier persona, para que no conozca o dictamine sobre un asunto, por causa justa. Esa recusación la presentará por escrito ante la Presidencia de la comisión, quien de inmediato pondrá la solicitud en conocimiento de la persona recusada para su defensa o aceptación. La Presidencia resolverá el asunto de inmediato y hará constar lo dicho por las partes en el acta respectiva.

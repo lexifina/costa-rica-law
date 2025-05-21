@@ -1,0 +1,4 @@
+ARTÍCULO 73. FORMALIDAD APROBACIÓN REGLAMENTOS
+Toda iniciativa tendiente para adoptar, reformar, suspender o derogar disposiciones reglamentarias, deberá ser presentada o acogida para su trámite por alguna de las regidurías y/o por la Alcaldía.
+El Concejo mandará a publicar el proyecto de los reglamentos externos en La Gaceta y lo someterá a consulta pública, no vinculante, por un plazo mínimo de diez días hábiles, luego del cual, a solicitud de la instancia administrativa interesada, se pronunciará sobre el fondo del asunto. En el caso de reglamentos internos, bastará su publicación en La Gaceta.
+Toda disposición reglamentaria deberá ser publicada en La Gaceta y regirá a partir de su publicación o de fecha posterior que indique el propio Reglamento. La Administración deberá proceder a la publicación respectiva en un plazo máximo de 10 (diez) días hábiles.

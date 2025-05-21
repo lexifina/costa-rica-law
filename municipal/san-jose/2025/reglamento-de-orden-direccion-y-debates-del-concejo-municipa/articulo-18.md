@@ -1,0 +1,2 @@
+ARTÍCULO 18. CONVOCATORIA SESIONES EXTRAORDINARIAS
+En cumplimiento del inciso m), del artículo 17 del Código Municipal, la Alcaldía deberá hacer la convocatoria a sesiones extraordinarias por escrito, a viva voz en sesión municipal, o por medios digitales, cuando lo considere necesario o cuando así se lo solicite por lo menos la tercera parte de las regidurías propietarias del Concejo y con veinticuatro horas de anticipación. Constituirá prueba de la solicitud de dicha convocatoria, la firma de recibido en la hoja respectiva.

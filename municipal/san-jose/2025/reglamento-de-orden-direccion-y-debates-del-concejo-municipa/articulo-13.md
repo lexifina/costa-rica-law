@@ -1,0 +1,5 @@
+ARTÍCULO 13. DERECHOS. Además de los derechos y facultades que establece el artículo 27 del Código Municipal, las regidurías, tienen derecho a:
+a) Pedir a la Presidencia municipal la palabra para emitir el criterio sobre los asuntos en discusión, según los lineamientos establecidos en este Reglamento.
+b) Solicitar que sus palabras, o las de cualquiera otro miembro del Concejo, la Alcaldía, las asesorías, o cualquier otra persona que haya intervenido en una sesión, consten en el acta. Esta solicitud debe ser acatada, sin necesidad de acuerdo específico, con la salvedad expresa contenida en el artículo 47 del Código Municipal en cuanto a nombramientos o elecciones, cuyas deliberaciones, por imperativo legal, no podrán ser incluidas en el Acta, solo en cuanto al Acuerdo tomado.
+c) Asistir libremente a cualquier sesión de las comisiones ordinarias o especiales, de las que no sea integrante, lo que hará con derecho a voz, pero sin derecho a voto.
+La Alcaldía Municipal y las sindicaturas, en lo conducente, tienen los mismos derechos y facultades expresados en los incisos a), b) y c) anteriores.

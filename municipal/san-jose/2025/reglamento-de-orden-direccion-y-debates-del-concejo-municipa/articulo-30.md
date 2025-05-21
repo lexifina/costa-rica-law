@@ -1,0 +1,2 @@
+ARTÍCULO 30. ASISTENTES A SESIONES
+Los funcionarios municipales administrativos, la Alcaldía, las asesorías del Concejo y personas vecinas del cantón podrán participar, si así lo dispone la Presidencia de la comisión respectiva, en calidad de asistentes, sin derecho a voto, en las comisiones permanentes o especiales. La comisión según sus necesidades podrá hacerse asesorar por peritos o expertos en la materia, en calidad de ad honorem

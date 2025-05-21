@@ -1,0 +1,2 @@
+ARTÍCULO 21. NOMBRAMIENTO
+El nombramiento del titular de la Secretaría Municipal lo realizará el Concejo, en el artículo de asuntos de trámite urgente, previo proceso administrativo interno de nombramiento o en caso de inopia, por concurso externo. Los requisitos profesionales, académicos y personales, que debe cumplir un postulante al cargo, serán fijados por el Concejo Municipal, previo análisis y dictamen de una comisión especial nombrada al efecto, la que se hará asesorar por la Dirección de Talento Humano de la Municipalidad.

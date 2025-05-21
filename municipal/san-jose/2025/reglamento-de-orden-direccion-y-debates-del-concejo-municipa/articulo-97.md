@@ -1,0 +1,5 @@
+ARTÍCULO 97. EMPLAZAMIENTO A DIFERENTES INSTANCIAS JUDICIALES
+Si el Concejo no reforma o revoca un acuerdo que ha sido recurrido mediante apelación o veto razonado, emplazará a las partes, y el expediente respectivo, salvo los acuerdos que por su naturaleza deba conocer otra jurisdicción, pasará al Tribunal Contencioso Administrativo, el cual, de conformidad con la ley resolverá, en definitiva:
+-Para el caso de la valoración y avalúos de bienes inmuebles, se emplazará ante el Tribunal Fiscal Administrativo, de acuerdo con el artículo 19 de la Ley N°7509 del Impuesto sobre Bienes Inmuebles.
+-En el caso de contrataciones públicas, le corresponderá a la Contraloría General de la República agotar la vía administrativa, en aquellos supuestos en que deba conocer y resolver los recursos de objeción al pliego de condiciones y el recurso de apelación o revocatoria en contra del acto de adjudicación, el que declare desierto o declare
+infructuoso el concurso y los otros que establezca la Ley N°9986 de Contratación Pública y su Reglamento.

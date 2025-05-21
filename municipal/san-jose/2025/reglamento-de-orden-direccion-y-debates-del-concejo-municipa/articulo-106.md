@@ -1,0 +1,5 @@
+ÍTULO VI DISPOSICIONES VARIAS
+ARTÍCULO 106. ELECCIÓN DE JEFATURAS DE FRACCIÓN
+Para la elección de las jefaturas de las fracciones políticas representadas en el Concejo, figura a la que hace alusión este Reglamento en varios acápites, y con el objeto de que sea aceptada su representación por éste, deberán acatarse los siguientes lineamientos:
+Las regidurías propietarias o suplentes deberán haber sido elegidas por representación popular, como miembro del partido político que se pretenda representar; elección que deberá haber sido así confirmada mediante resolución del Tribunal Supremo de Elecciones.
+Las fracciones contarán con el derecho de elegir a su jefatura de fracción, o vocería, y representante ante el Concejo Municipal. Las jefaturas deberán ser única y exclusivamente personas integrantes de su misma fracción política, elegidas mediante voto popular como representantes del partido para el cual son escogidas como jefatura de fracción; y en ninguna circunstancia disidentes de otras fracciones políticas, representadas o no en el seno del Concejo Municipal.

@@ -1,0 +1,4 @@
+ARTÍCULO 42. CORRECCIÓN DE ERRORES
+Si en la discusión de un dictamen en el Concejo Municipal se detectaren errores materiales, cuya corrección no afecte el fondo del dictamen, estos podrán corregirse si la Presidencia de la comisión estuviese de acuerdo. La corrección se consignará al pie del documento y debe ser firmada por la Presidencia o Vicepresidencia de esta.
+Si en la discusión de un dictamen en el Concejo Municipal, se detectaren errores de fondo, estos podrán corregirse, cuando las personas integrantes de la comisión estuviesen de acuerdo. El que no estuviese de acuerdo podrá retirar su firma del Dictamen.
+En caso de no encontrarse acuerdo para hacer la corrección, la Presidencia de la Comisión podrá retirarlo del conocimiento del Concejo para someterlo a nuevo análisis en el seno de ésta. El regreso del asunto a comisión es por un plazo máximo de ocho días hábiles.
