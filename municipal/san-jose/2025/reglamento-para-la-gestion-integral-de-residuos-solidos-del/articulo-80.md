@@ -1,0 +1,3 @@
+CAPÍTULO XII
+GESTIÓN DE RESIDUOS ORGÁNICOS
+Artículo 80.- Gestión de los Residuos Orgánicos. Los residuos orgánicos se gestionarán según las capacidades de la Municipalidad para su adecuado manejo y bajo un esquema de mejora constante de los servicios brindados en apego a la legislación vigente. Por esta razón, las características del servicio podrán estar sujetas a modificaciones que deberán informarse oportunamente a los generadores. El generador debe apegarse de manera estricta al programa de gestión establecido y comunicado por la Municipalidad a través de su página oficial de internet, sea esta la siguiente www.msj.go.cr, o cualquier otra que se ponga a disposición por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 66.- Fiscalización. La Municipalidad, a través del Departamento de Servicios Ambientales, fiscalizará su operación y funcionamiento en conjunto con el Ministerio de Salud y establecerá un registro de los centros de recuperación de residuos valorizables localizados en el Cantón.

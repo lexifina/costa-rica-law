@@ -1,0 +1,1 @@
+TRANSITORIO II.- Derogación. Se derogan permanentemente los reglamentos municipales que anteceden, emitidos con anterioridad sobre disposición de residuos en la Municipalidad de San José, u cualquiera otra norma contenida en otro reglamento municipal en lo que contradiga a lo dispuesto en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 110.- Departamento encargado. El Departamento de Servicios Ambientales establecerá el procedimiento técnico para la asignación de los incentivos y recursos indicados en el presente reglamento, de forma que se corrobore y evalúe la idoneidad de los candidatos y sus propuestas, así como su debida reglamentación o política.

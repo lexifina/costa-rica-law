@@ -1,0 +1,1 @@
+Artículo 53.- Obligación del pago. El uso de un servicio de carácter privado no inhibe la obligación al pago por la prestación del servicio público municipal, según se estipula en el presente Reglamento.

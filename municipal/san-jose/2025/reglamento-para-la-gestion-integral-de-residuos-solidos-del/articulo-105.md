@@ -1,0 +1,1 @@
+Artículo 105.- Validez de tarifa diferenciada. La tarifa diferenciada se otorgará por un lapso de 6 meses calendario desde su aprobación. El interesado tiene la responsabilidad de demostrar con prueba física y documental el cumplimiento de las condiciones establecidas en cada programa durante el período que gozó de la tarifa diferenciada

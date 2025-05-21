@@ -1,0 +1,10 @@
+CAPÍTULO III
+OBLIGACIONES Y COMPETENCIAS DE LA MUNICIPALIDAD
+Artículo 7. -Obligaciones Generales de la Municipalidad. La Municipalidad en cumplimiento de la legislación vigente relacionada con la Gestión Integral de Residuos y otros servicios municipales de su competencia, deberá coordinar y ejecutar las siguientes acciones:
+a. Promover el servicio de recolección de residuos sólidos en forma selectiva, accesible, periódica, eficiente y diferenciada, así como los centros de recuperación, con especial énfasis en las PYMES u organizaciones de tipo social, que cuenten con certificado de gestor autorizado de residuos del Ministerio de Salud, para su posterior valorización y comercialización.
+b. Prevenir y eliminar los vertederos y botaderos a cielo abierto en el cantón, los acopios no autorizados, así como los tratamientos inadecuados de residuos, tales como enterramiento, incineración, depósitos en cauces de aguas, entre otros.
+c. Fijar las tasas para los servicios de manejo de residuos sólidos que permitan realizar una gestión integral de los mismos.
+d. Promover la participación ciudadana de todas las personas del Cantón en forma activa, consciente, informada y organizada en la gestión integral de residuos.
+e. Fomentar la capacitación y realizar campañas educativas de sensibilización de los habitantes del Cantón.
+f. Establecer convenios con microempresas, cooperativas u otras organizaciones y/o empresas locales, con el fin de que participen en la gestión integral de los residuos sólidos.
+g. Establecer un protocolo de implementación para programas de residuos y el tratamiento de incentivos para los generadores del Cantón Central San José, mediante programas, como sellos, banderas o galardones ambientales, los cuales tendrán una validez de dos años a partir de su otorgamiento. Si en esos dos años se comprueba alguna falta a este reglamento o su protocolo por parte del generador, la Municipalidad tendrá la potestad de suspender el incentivo previa investigación e inspección, siguiendo el debido proceso que se establezca en el protocolo o reglamento de cada programa.

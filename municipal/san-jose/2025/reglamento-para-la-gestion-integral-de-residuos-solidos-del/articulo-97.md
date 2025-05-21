@@ -1,0 +1,1 @@
+Artículo 97.- Recargo por Morosidad. En caso de que el pago se realice fuera del término establecido, generará el cobro de los intereses, el cual será fijado según lo dispuesto en el Código Municipal N° 7794 y el Código de Normas y Procedimientos Tributarios N° 4755.

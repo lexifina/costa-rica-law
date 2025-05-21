@@ -1,0 +1,1 @@
+Artículo 125. - Principio de legalidad. Toda aquella persona física o jurídica, acreedora de una sanción por una Infracción leve o grave o conjuntamente, se le deberá respetar el Principio del Debido Proceso y Derecho de Defensa.

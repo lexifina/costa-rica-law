@@ -1,0 +1,1 @@
+Artículo 13.- La gestión operativa del plan de gestión integral de residuos. La persona responsable de la gestión operativa para la prevención y el manejo integral de los residuos sólidos será quien ostente la titularidad de jefe del Departamento de Servicios Ambientales.

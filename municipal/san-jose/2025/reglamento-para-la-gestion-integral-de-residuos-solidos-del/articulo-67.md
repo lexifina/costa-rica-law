@@ -1,0 +1,1 @@
+Artículo 67.- Prohibición de Mezcla de Residuos. Queda Prohibido el almacenamiento de residuos sólidos valorizables en los mismos sitios que los residuos sólidos peligrosos o de manejo especial dentro del Cantón.

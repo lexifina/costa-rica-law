@@ -1,0 +1,3 @@
+CAPÍTULO XVI
+PROMOCIÓN DE LA PARTICIPACIÓN CIUDADANA
+Artículo 113.- Participación Ciudadana. La Municipalidad fomentará la participación ciudadana en los procesos de gestión integral de residuos, ya sea por medio de la elaboración de actividades de capacitación e información, la solicitud de voluntariado en actividades ambientales, la coadministración de puntos estratégicos de recolección a través de asociaciones de desarrollo integral de la comunidad y otros grupos organizados.

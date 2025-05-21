@@ -1,0 +1,1 @@
+Artículo 63.- Cumplimento de requisitos. Los centros de recuperación públicos o privados que se encuentren dentro del territorio del cantón deberán cumplir con las disposiciones establecidas en el Reglamento de Centros de recuperación de Residuos valorizables (Decreto Ejecutivo No. 35906-S).

@@ -1,0 +1,1 @@
+Artículo 48.- Obligación de cumplimiento. El contar con un contrato firmado por un servicio privado y autorizado, no exime al generador de residuos de separar los residuos según lo establecido en el presente Reglamento.

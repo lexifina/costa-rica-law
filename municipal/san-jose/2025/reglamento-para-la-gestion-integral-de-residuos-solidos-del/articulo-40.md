@@ -1,0 +1,1 @@
+Artículo 40.- De los Programas de manejo de residuos de los generadores. El programa de manejo de los residuos por parte de los generadores deberá cumplir con lo dispuesto en la Política de Gestión de Residuos, la Ley para la Gestión Integral de Residuos y su reglamento, así como lo establecido en el Plan Municipal para la Gestión Integral de los Residuos Sólidos. (PMGIRS).

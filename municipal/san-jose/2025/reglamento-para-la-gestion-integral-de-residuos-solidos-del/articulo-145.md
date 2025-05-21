@@ -1,0 +1,1 @@
+Artículo 145.- Del cobro de la multa. El cobro de los montos adeudados por concepto de multas de este reglamento se realizará conforme el procedimiento establecido en los artículos 79, 80, 81, 82, 83, 83 bis, 84, 85, 85 bis y 85 ter del Código Municipal.

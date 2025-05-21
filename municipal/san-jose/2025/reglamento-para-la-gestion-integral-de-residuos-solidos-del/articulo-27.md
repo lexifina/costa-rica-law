@@ -1,0 +1,7 @@
+Artículo 27.- Tipos de Generadores. Los generadores en el Cantón Central San José se clasifican de la siguiente manera:
+a. Domiciliar: Es todo generador que no exceda el valor de generación per cápita aportado por el estudio de caracterización más reciente de residuos y que los residuos generados sean clasificados como ordinarios valorizables y no valorizables
+b. Comercial: Es todo aquel generador cuyos residuos provengan de la realización de actividades de venta de bienes o servicios, cuya generación puede o no exceder un 1.00 kg por persona diario y pueden contener residuos ordinarios valorizables y no valorizables, de manejo especial y/o peligrosos, según la actividad realizada.
+c. Industrial: Es todo aquel generador físico o jurídico, público o privado que mantiene una actividad productiva o industrial cuya generación de residuos es cinco o más veces mayor a la generación domiciliar del Cantón, y en el que los residuos generados pueden ser conformados por residuos ordinarios valorizables y no valorizables, de manejo especial y/o peligrosos, según la actividad realizada.
+d. Gran Generador: Se consideran grandes generadores de residuos los edificios de apartamentos, condominios, supermercados, centros comerciales, centros educativos, centros médicos, instituciones públicas y privadas. Los residuos
+e. generados pueden ser ordinarios valorizables y no valorizables y pueden estar conformados por residuos ordinarios, de manejo especial y/o peligrosos, según la actividad realizada.
+f. Mixto: Unidad habitacional donde existe una actividad comercial.

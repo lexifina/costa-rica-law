@@ -1,0 +1,2 @@
+Artículo 122.- Tránsito de Residuos. Se prohíbe la introducción al Cantón de residuos ordinarios y voluminosos generados fuera del territorio del Cantón Central de San José, en especial escombros de construcciones, residuos peligrosos o de manejo especial, y todos aquellos residuos que contaminen el suelo, los ríos, el aire o el ambiente en general.
+Se exceptúa el tránsito de gestores autorizados en ruta a realizar la disposición final de residuos en rellenos sanitarios u otros sitios autorizados.

@@ -1,0 +1,1 @@
+Artículo 24.- El Gestor no autorizado. Tiene absolutamente prohibido en el Cantón Central de San José, entregar los residuos de cualquier tipo a gestores autorizados o no autorizados por el Ministerio de Salud y esta Municipalidad.

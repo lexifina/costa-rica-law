@@ -1,0 +1,1 @@
+Artículo 128.- Infracciones Leves. Cometerá Infracciones Leves, quien gestione los residuos ordinarios en condiciones contrarias a las establecidas en las disposiciones municipales sobre el servicio de recolección, de disposición de residuos y en sí, de gestión integral de residuos estipuladas en el presente Reglamento.

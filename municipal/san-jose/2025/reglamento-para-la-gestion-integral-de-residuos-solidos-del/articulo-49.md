@@ -1,0 +1,1 @@
+Artículo 49.- Fiscalización. La Municipalidad realizará las denuncias y gestiones respectivas en caso de que se incumpla con la legislación vigente durante los procesos de recolección, transporte, valorización, tratamiento y disposición final de los residuos recolectados de forma privada.

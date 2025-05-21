@@ -1,0 +1,1 @@
+Artículo 117.- Otras Actividades. Se podrán coordinar otro tipo de actividades educativas y de sensibilización que no estén contempladas en este reglamento o el Plan Municipal de Gestión Integral de Residuos.

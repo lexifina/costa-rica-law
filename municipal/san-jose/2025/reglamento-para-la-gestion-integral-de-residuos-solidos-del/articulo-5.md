@@ -1,0 +1,13 @@
+Artículo 5.- Principios Generales. El presente Reglamento se rige por los siguientes principios:
+a. Gradualismo: las obligaciones para prevenir la generación de residuos y fomentar su reutilización, reciclaje y otro tipo de valorización serán establecidas o exigidas de manera progresiva, atendiendo a la cantidad y peligrosidad de los residuos, las tecnologías disponibles, el impacto económico y social y la situación geográfica, entre otros.
+b. Jerarquía en el manejo de residuos: orden de preferencia de manejo, que considera como primera alternativa la prevención en la generación de residuos, luego la reutilización, el reciclaje de estos o de uno o más de sus componentes, dejando como última alternativa su eliminación.
+c. Responsabilidad compartida: la gestión integral de los residuos es una corresponsabilidad social, requiere la participación conjunta, coordinada y
+d. diferenciada de todos los productores, importadores, distribuidores, consumidores, gestores de residuos, tanto públicos como privados.
+e. Responsabilidad extendida del productor: los productores o importadores tienen la responsabilidad del producto durante todo el ciclo de vida de este, incluyendo las fases posindustrial y posconsumo.
+f. Internalización de costos: es responsabilidad del generador de los residuos el manejo integral y sostenible de estos, así como asumir los costos que esto implica en proporción a la cantidad y calidad de los residuos que genera.
+g. Prevención en la fuente: la generación de residuos debe ser prevenida prioritariamente en la fuente y en cualquier actividad.
+h. Precautorio: cuando exista peligro de daño grave o irreversible, la falta de certeza científica absoluta no deberá utilizarse como razón para postergar la adopción de medidas eficaces en función de los costos para impedir la degradación del ambiente o la salud.
+i. Acceso a la información: todas las personas tienen derecho a acceder a la información que tengan las instituciones públicas y las municipalidades sobre la gestión de residuos.
+j. Deber de informar: las autoridades competentes y las municipalidades tienen la obligación de informar a la población, por medios idóneos, sobre los riesgos e impactos a la salud y al ambiente asociados a la gestión integral de residuos.
+k. Asimismo, los generadores y gestores estarán obligados a informar a las autoridades públicas sobre los riesgos e impactos a la salud y al ambiente asociados a estos.
+l. Participación ciudadana: el Estado, las municipalidades y las demás instituciones públicas tienen el deber de garantizar y fomentar el derecho de todas las personas que habitan la República a participar en forma activa, consciente, informada y organizada en la toma de decisiones y acciones tendientes a proteger y mejorar el ambiente.

@@ -1,0 +1,2 @@
+Artículo 127.- Tipos de infracciones administrativas. De conformidad con la Ley 8839, la Ley Orgánica del Ambiente y el Código Municipal y sus reformas, las Infracciones Administrativas se clasifican en Leves, Graves y Gravísimas.
+Las Sanciones de las Infracciones Leves y Graves, serán competencia de la Municipalidad del Cantón Central de San José. Las Sanciones Gravísimas serán de competencia del Tribunal Ambiental y las mismas se regirán con lo ya normado por la Ley 8839 y su Reglamento.

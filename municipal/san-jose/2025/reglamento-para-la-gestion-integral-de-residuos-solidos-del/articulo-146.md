@@ -1,0 +1,1 @@
+Artículo 146.- Del destino de lo recaudado por las infracciones. De conformidad con lo establecido en la Ley 8839 y sus reformas, todos los ingresos recaudados por las infracciones impuestas y sus intereses, tendrán por destino financiar actividades del Plan Municipal para la Gestión Integral de Residuos. Estos recursos no serán sujetos de ningún rebajo administrativo.

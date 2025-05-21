@@ -1,0 +1,5 @@
+Artículo 18.- Tipos de gestores. En la Municipalidad del Cantón Central San José, los gestores se clasifican de la siguiente forma:
+a. Gestores de residuos Ordinarios. Son aquellos que realizan el manejo de los residuos ordinarios, valorizables y no valorizables; a nivel domiciliario, comercial e industrial.
+b. Gestores de residuos electrónicos. Son aquellos especializados en el manejo de residuos electrónicos, según lo dispone el Decreto Ejecutivos 35933-S y cualquier otro vigente, relacionado al tema.
+c. Gestores de residuos Voluminosos o No tradicionales. Son aquellos que se encargan de los residuos voluminosos de hogar, dispuestos por sus propietarios al haber terminado su vida útil.
+d. Gestores de residuos de manejo especiales y/o peligrosos. Son aquellos gestores especializados en la gestión del manejo de residuos de manejo especial y residuos peligrosos, acorde con la Ley para la Gestión Integral de Residuos (Ley 8839) y su reglamento, el Reglamento para la Declaratoria de Residuos de Manejo Especial No.38272-S, el Reglamento General para la Clasificación y Manejo de Residuos Peligrosos No.41527-S-MINAE, sí como cualquier otro a fin vigente.
