@@ -12,11 +12,12 @@ Sin perjuicio de lo anterior, hasta que sea aprobada y se esté impartiendo en e
 i. Haber obtenido y reconocido por parte de este Colegio el grado académico de Maestría en Administración de Servicios de Salud, Maestría en Gerencia de la Salud y Maestría en Economía de la Salud, el cual debe ser emitido por una entidad académica competente o bien en caso de provenir del extranjero obtener la equiparación del grado académico respectivo por la autoridad nacional competente.
 ii. Aportar certificación del Departamento de Recursos Humanos del centro de salud respectivo, de haber ocupado durante al menos 3900 horas, durante los últimos 5 años previos a la solicitud, en puestos de dirección o subdirección de hospital, jefatura o subjefatura de consulta externa, dirección o subdirección de área de salud, dirección o subdirección regional o dirección o subdirección de clínica, jefatura o subjefatura de sección clínica, jefatura o subjefatura de departamento clínico o jefatura o subjefatura de servicio, expedida por el departamento de recursos humanos
 (*) (Así reformado la especialidad anterior mediante sesión ordinaria 2021-10- 20 del 20 de octubre del 2021)
-14.3. Especialidad Médica en Alergología Clínica.
-Se reconoce como sinónimo de esta Especialidad, el siguiente término: Alergología.
+(*)14.3. Especialidad Médica en Alergología Clínica.
+Se reconoce como sinónimo de esta Especialidad, el siguiente término: Alergología, Alergología e Inmunología Clínica.
 Requisitos específicos:
 a. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Medicina Interna, Dermatología o Neumología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad. O estar debidamente inscrito y acreditado como Especialista en Pediatría en el Colegio de Médicos y Cirujanos.
 b. Aprobación de un programa de estudios de posgrado (residencia médica) de dos (2) años en la Especialidad de Alergología Clínica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así reformada la especialidad anterior mediante sesión N° 2025-05-21, celebrada el 21 de mayo de 2025)
 14.4. Especialidad Médica en Anatomía Patológica.
 Requisitos específicos:
 Aprobación de un programa de estudios de posgrado (residencia médica) de cuatro (4) años en la Especialidad de Anatomía Patológica, en un Hospital de Tercer Nivel, Regional o Periférico, perteneciente o adscrito a una Universidad.
