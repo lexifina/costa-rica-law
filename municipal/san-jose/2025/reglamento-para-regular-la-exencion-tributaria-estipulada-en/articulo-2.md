@@ -1,0 +1,2 @@
+Artículo 2- Habilitación
+Se habilita a la Municipalidad de San José para que, a través de la administración, con fundamento en un estudio técnico en materia financiera, realizado de previo por la Dirección Financiera, pueda valorar el impacto en las finanzas municipales al brindar la exención que señala la Ley 10.359. La Administración determinará con los estudios financieros si se encuentran dentro de la capacidad financiera de acoger la solicitud.

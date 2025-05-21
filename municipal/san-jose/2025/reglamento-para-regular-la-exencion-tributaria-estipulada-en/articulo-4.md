@@ -1,0 +1,2 @@
+Artículo 4- Requisitos
+La persona contribuyente adulta mayor o su representante autorizado legalmente, bajo poder o autorización autenticada por un abogado, que posea la responsabilidad tributaria, deberá presentar la solicitud de exención ante la Plataforma de Servicios de la Municipalidad, mediante el formulario correspondiente, en el mismo trámite deberá señalar un medio de notificación idóneo, (correo electrónico preferiblemente).
