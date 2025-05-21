@@ -1,0 +1,9 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+POLO TURÍSTICO GOLFO DE PAPAGAYO
+El Instituto Costarricense de Turismo, hace del conocimiento de los señores Concesionarios de Polo Turístico Golfo de Papagayo, Guanacaste, el comunicado de acuerdo de Junta Directiva SJD-123-2025, tomado en la Sesión Ordinaria Virtual N° 6330 realizada por la Junta Directiva del Instituto Costarricense de Turismo, en el apartado 5 "Dirección y Supervisión", inciso I, celebrada el lunes 26 de mayo del 2025, se tomó el siguiente acuerdo que textualmente dice:
+Se acuerda:
+A) De conformidad con los oficios N° PGP- 0336-2025 y N° PGP- 0320-2025 elaborados por la Dirección Ejecutiva del PTGP y con fundamento en el comunicado de acuerdo N° CDP-49-2025, tomado por el Consejo Director de Papagayo en la Sesión Ordinaria Presencial Nº 8-2025 realizada el 19 de mayo del 2025, aprobar lo siguiente:
+1. El ajuste por indexación anual del canon de cesión parcial o total siendo el nuevo valor por metro cuadrado de terreno cedido la suma de US$ 1,76 (un dólar con setenta y seis centavos, moneda en curso legal de los Estados Unidos de América), el cual rige para el año que corre del 21 de mayo del 2025 al 20 de mayo del 2026 inclusive. Lo anterior con fundamento en el artículo 12 Del Reglamento a la Ley N° 6758, Ley Reguladora Del Polo Turístico Golfo de Papagayo.
+2. El ajuste por indexación anual del canon de concesión siendo el nuevo valor por metro cuadrado de terreno concesionado la suma de US$ 3,55 (tres dólares con cincuenta y cinco centavos, moneda en curso legal de los Estados Unidos de América), el cual rige para el año que corre del 21 de mayo del 2025 al 20 de mayo del 2026 inclusive. Lo anterior con fundamento en el artículo 14 bis Del Reglamento a la Ley N° 6758, Ley Reguladora Del Polo Turístico Golfo de Papagayo.
+B) Instruir a la Dirección Ejecutiva proceda a publicar en el Diario Oficial La Gaceta el presente acuerdo.
+Acuerdo firme
