@@ -1,0 +1,2 @@
+Artículo 4º-Formulario para Cobro de Viáticos: La solicitud de pago de viáticos por excepción, se tramitará mediante un formulario realizado por la Administración, con los requisitos establecidos en el Reglamento de Gastos de Viaje y de Transporte para funcionarios Públicos de la Contraloría General de la República, que se titulará «Cobro de Viáticos por Excepción»
+Este formulario de cobro de viáticos deberá contar con la autorización del Líder encargado de atender las labores y del director de Negocio.

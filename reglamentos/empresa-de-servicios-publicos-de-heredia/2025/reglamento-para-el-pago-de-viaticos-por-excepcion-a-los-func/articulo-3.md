@@ -1,0 +1,3 @@
+Artículo 3º-Del Reconocimiento de Viáticos por Excepción:
+Procederá el reconocimiento de viáticos por excepción, cuando un (a) funcionario (a) de la ESPHSA, por disposición de su superior, deba prestar sus servicios en funciones estratégicas, funciones de apoyo o en las situaciones especiales, conforme al artículo 2 de este reglamento.
+La prestación de servicios en tales casos deberá estar debidamente justificada, razonada y contar con la aprobación del Líder encargado de la coordinación de las labores. Previo al pago de los viáticos, se deberá contar con la aprobación por parte del director del Negocio.

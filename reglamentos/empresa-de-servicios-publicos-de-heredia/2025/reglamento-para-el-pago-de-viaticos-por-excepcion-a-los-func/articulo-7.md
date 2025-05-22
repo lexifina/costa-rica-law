@@ -1,0 +1,1 @@
+Artículo 7º-Exclusión: El reconocimiento de viáticos por excepción no aplica cuando el funcionario asista a actividades de capacitación, ni para el desarrollo de las funciones ordinarias para las cuales ha sido contratado.
