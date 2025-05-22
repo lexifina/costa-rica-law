@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. El presente reglamento es de acatamiento y aplicación obligatoria para el ICE y sus empresas que tengan a cargo la aprobación, planificación, ejecución, seguimiento y control de inversiones asociadas y no asociadas a proyectos.
