@@ -1,0 +1,2 @@
+Artículo 7º-Identificación de los medios de transporte Todos los vehículos de la empresa de seguridad privada, llevarán estampados el logotipo de la empresa, de tamaño visible que las identifique con facilidad; toda modificación al parque automotor deberá ser comunicada a la DSSP.
+Los vehículos utilizados para los servicios a cargo de las empresas de seguridad privada, además de los registros y habilitaciones normales, deberán estar registrados y habilitados por la DSSP.

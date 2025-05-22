@@ -1,0 +1,7 @@
+Artículo 5º-Vehículos. Los vehículos utilizados para la prestación del servicio de seguridad privada de vigilancia y protección, deberán estar acondicionados y equipados, para las actividades a las que están destinados y ostentarán con fines de identificación, visiblemente, los colores y símbolos de la persona física y/o jurídica a la cual pertenece, los que, en ningún caso, podrán ser iguales a las utilizadas por los organismos de seguridad del Estado.
+Los traslados se pueden efectuar por tierra, en vehículos de carrocería blindada o, con vehículos auto motores no blindados, debidamente registrados ente la DSSP.
+Los traslados se pueden efectuar por vía marítima, en naves con especificaciones idóneas o, sean blindados o no, debidamente registrados ente la DSSP.
+Los traslados se pueden efectuar por vía aérea, en naves con especificaciones idóneas o, sean blindados o no, debidamente registrados ente la DSSP.
+Las Compañías de Transporte de Valores, podrán utilizar los medios, vehículos o equipos necesarios, previa autorización de la DSSP, para el desplazamiento o movimiento de los valores.
+Cualquier otra característica especial de Transporte de valores, como son transporte aéreo de valores u otro medio técnico estarán regulados por la DSSP, conforme a lo establecido en la presente Ley, su reglamento y las directrices que se generen.
+La escolta de Bienes en Tránsito: Es la actividad realizada por personas físicas y/o jurídicas autorizadas, destinada a garantizar la protección de mercancías en tránsito.
