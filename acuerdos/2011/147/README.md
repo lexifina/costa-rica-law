@@ -14,3 +14,4 @@ Disposiciones para la tramitación y entrega del Fondo de Capitalización Labora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-24 | la propia norma |
+| 2 | 2025-05-22 | Acuerdo 284 (2025-05-22) |
