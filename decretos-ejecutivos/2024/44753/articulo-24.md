@@ -1,0 +1,1 @@
+Artículo 24. Caducidad. Las concesiones del servicio público de transporte de combustibles y la de distribuidor de combustibles sin punto fijo de venta, caducarán por los motivos expuestos en el artículo 15 de la Ley de la Autoridad Reguladora de los Servicios Públicos Nº7593.

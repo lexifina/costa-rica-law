@@ -1,0 +1,2 @@
+Artículo 22. Incumplimiento. Los incumplimientos a la presente regulación serán sancionados por las autoridades judiciales y administrativas competentes, según la normativa que tutela la materia.
+La DGTCC remitirá las denuncias respectivas a dichas autoridades para el trámite correspondiente. El administrado podrá presentar su defensa legal y técnica ante las autoridades judiciales y administrativas competentes, en el plazo de ley, respaldado por los profesionales atinentes.

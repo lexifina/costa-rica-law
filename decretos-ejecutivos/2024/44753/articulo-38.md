@@ -1,0 +1,1 @@
+Artículo 38. Derogatoria. Deróguese el Decreto Ejecutivo N°36983-MINAET del 11 de noviembre de 2011 denominado "Manual de procedimientos para las empresas autorizadas por el MINAE que realizarán las pruebas técnicas descritas en el cuadro N°1 del artículo 7° del Decreto Ejecutivo N° 36627" y sus reformas.

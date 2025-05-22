@@ -1,0 +1,1 @@
+Artículo 12. Requisitos. El solicitante deberá aportar la información requerida en el formulario digital que al efecto se establece en el anexo II de este reglamento y que se encuentra publicada en el sitio web https://energía.minae.go.cr o en el que lo sustituya.

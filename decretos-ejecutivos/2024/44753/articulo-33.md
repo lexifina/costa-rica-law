@@ -1,0 +1,5 @@
+Capítulo XI
+De la normativa técnica aplicable para las reparaciones de las unidades de transporte
+de combustible.
+Artículo 33. Reparación de equipos y tuberías a presión. La reparación de equipos y tubos a presión, en sus aspectos generales, reparaciones soldadas, reparaciones mecánicas, reparaciones no metálicas y adhesivas e inspección y ensayos se deberán realizar conforme la norma ASME estándar PCC-2, código de post construcción por sus siglas en inglés, o conforme la norma NBIC o conforme alguna otra norma técnica reconocida que elija el profesional responsable, todas en su versión vigente. Es responsabilidad del profesional elegir una de estas normas y cumplir con ella en su totalidad, no podrá utilizarse más de una norma.
+Los profesionales responsables de realizar dichas reparaciones, deberán contar con el aval del colegio profesional respectivo conforme la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos N°3663 y la Ley Orgánica del Colegio de Ingenieros Químicos y de Profesionales Afines N°8412.

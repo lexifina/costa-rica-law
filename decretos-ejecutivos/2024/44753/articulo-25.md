@@ -1,0 +1,5 @@
+Capítulo VII
+Renovaciones
+Artículo 25. De la Renovación de las concesiones del servicio público de transporte de combustibles y del servicio público de distribuidor de combustibles sin punto fijo de venta. La concesión de servicio público de transporte y la de distribución de combustibles sin punto fijo de venta, podrán ser renovadas por un nuevo plazo de 10 años y las veces que se requiera, siempre y cuando se cumpla con la normativa vigente a la fecha de solicitud de la renovación. Para tales efectos, el solicitante deberá aportar la información requerida en el formulario digital que se establece en el anexo IV de este reglamento y que se encuentra publicado en el sitio web https://energia.minae.go.cr o en el que la sustituya.
+El procedimiento para la renovación es el establecido en el artículo 9 del presente reglamento.
+De existir procedimientos sancionatorios pendientes de resolución, relativos a la prestación del servicio público de suministro de combustibles en contra del concesionario, la renovación si procede, pero quedará condicionada a lo que se resuelva en dichos procedimientos.

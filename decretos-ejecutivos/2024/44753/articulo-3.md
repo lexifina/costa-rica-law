@@ -1,0 +1,2 @@
+Artículo 3. Competencias. Es competencia del Ministerio de Ambiente y Energía otorgar y fiscalizar las concesiones del servicio público de transporte de combustibles y de distribución de combustibles sin punto fijo de venta, así como emitir las autorizaciones de cualquier cambio en su titularidad o en las condiciones en que se presta.
+Corresponde a la ARESEP, establecer la tarifa y verificar la calidad del servicio público autorizado por parte del MINAE.

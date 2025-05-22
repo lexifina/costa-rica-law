@@ -1,0 +1,1 @@
+Artículo 39. Derogatoria. Deróguese el Decreto Nº31502-MINAE-S del 29 de setiembre de 2003 denominado "Crea Reglamento para la distribución de combustibles derivados de hidrocarburos sin punto fijo de venta (Peddlers)"

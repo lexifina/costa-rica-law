@@ -1,0 +1,1 @@
+Transitorio I. Las concesiones o autorizaciones de unidades de transporte otorgadas conforme al Decreto Ejecutivo Nº36627-MINAE Reglamento para la Regulación del Transporte de Combustible y sus reformas, serán consideradas como permisos de operación de las unidades y mantendrán su vigencia en los mismos términos en las que fueron otorgadas.

@@ -1,0 +1,1 @@
+Transitorio II. La DGTCC contará con un plazo de tres meses a partir de la publicación de este Reglamento para emitir una lista de los requisitos técnicos establecidos en el Decreto 32921-COMEXMINAE- MEIC, que permita la estandarización de la inspección y el informe para la autorización de las cisternas y el otorgamiento del permiso de operación.

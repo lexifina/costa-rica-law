@@ -1,0 +1,7 @@
+Artículo 41. Reforma. Refórmense los artículos 9, 22, 31, y 32 inciso d) del Reglamento general para la regulación del suministro de gas licuado de petróleo, Decreto Ejecutivo N°41150-MINAE-S del 4 de mayo de 2018, para que se lean de la siguiente manera:
+"Artículo 9°- Fiscalización y control. El MINAE por medio de la DGTCC realizará inspecciones aleatorias y periódicas de fiscalización y control a las instalaciones, independientemente de su capacidad de almacenamiento, con el fin de verificar y fiscalizar la protección ambiental, la seguridad de las personas y el cumplimiento de las normas aplicables al GLP.
+La fiscalización y control será aplicable a toda persona física o jurídica que brinde el servicio público de GLP o sean prestatarios del servicio público".
+"Artículo 22°-Cadena de suministro. La cadena de suministro de GLP está integrada por las actividades indicadas en el presente reglamento, y son las siguientes: almacenamiento, envasado, distribución y comercialización y expendio de GLP para vehículos que utilicen GLP de automoción en su sistema de propulsión"
+"Artículo 31°-Agentes. Son las personas físicas o jurídicas autorizadas por el MINAE para ejecutar actividades en la cadena de suministro de GLP, y son las siguientes: concesionario operador de plantas envasadoras, distribuidor y comercializador."
+"Artículo 32°-Obligaciones generales. Son las siguientes:
+d) Operar y mantener las instalaciones según lo establecido en la NFPA 58 o la norma que la sustituya".

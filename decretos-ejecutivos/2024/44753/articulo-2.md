@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este reglamento es aplicable a toda persona física o jurídica, que participe en el servicio público de transporte de combustibles o en la distribución sin punto fijo de venta de los combustibles.
