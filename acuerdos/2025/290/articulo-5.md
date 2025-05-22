@@ -1,0 +1,1 @@
+Artículo 5°-El presente acuerdo podrá ser revisado por la Junta Directiva de Incopesca, en caso de que en el seno de la CIAT se adopten medidas de conservación que puedan afectar el contenido de este acuerdo.
