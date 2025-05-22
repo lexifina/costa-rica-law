@@ -1,0 +1,3 @@
+Transitorio Único.-La COMIPA sustituirá a la CIPA una vez aprobado el presente reglamento para lo cual tendrá que entenderse en todo aquel documento aprobado por el Directorio o instancias administrativas que se refieran a la CIPA como COMIPA, en lo que resulte aplicable.
+La conformación de la COMIPA será la establecida según el artículo 5 del presente reglamento a partir del 1 de mayo del 2026, manteniendo la conformación aprobada mediante el artículo 19 de la sesión ordinaria número 118-2024, celebrada el 6 de noviembre del 2024, hasta el 30 de abril del 2026.
+Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo Firme.

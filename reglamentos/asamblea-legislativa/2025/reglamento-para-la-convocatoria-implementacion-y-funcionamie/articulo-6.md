@@ -1,0 +1,2 @@
+Artículo 6°-Duración en el cargo.
+Las personas integrantes durarán en el cargo hasta el 30 de abril del periodo constitucional en el que fueron nombrados, a excepción de los miembros indicados en el inciso a) y b) del artículo 5 de este reglamento quienes cambiarán cada legislatura. En el caso de las organizaciones se aplicará lo estipulado en el artículo 18. En relación con los incisos d) y f) del artículo 5, estos mantendrán un cupo permanente.

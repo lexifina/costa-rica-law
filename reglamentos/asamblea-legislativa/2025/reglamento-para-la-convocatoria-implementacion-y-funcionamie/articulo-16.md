@@ -1,0 +1,4 @@
+Artículo 16.-Inscripción.
+Las organizaciones dispondrán de un mes posterior a la convocatoria, para presentar sus postulaciones con la totalidad de los requisitos establecidos en este reglamento. La presentación de los documentos en su totalidad se hará mediante un único envío por organización participante, de forma electrónica, al correo señalado en la convocatoria.
+El Departamento de Participación Ciudadana, como secretaría técnica, será el responsable del registro de todas las candidaturas, de la confirmación de la recepción documental y la conformación de los expedientes respectivos para ser entregados a los miembros de la COMIPA. Los documentos podrán ser entregados con firma digital.
+En caso de no contar con esta, los interesados deberán remitir los documentos debidamente firmados y copia de la cédula de identidad vía correo electrónico.

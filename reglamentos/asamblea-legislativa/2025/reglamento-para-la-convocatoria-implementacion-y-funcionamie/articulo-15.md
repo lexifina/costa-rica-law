@@ -1,0 +1,3 @@
+Artículo 15.-Convocatoria de postulaciones.
+La convocatoria dirigida a las organizaciones se hará en el Diario Oficial La Gaceta, durante la última legislatura de cada período constitucional, a más tardar el 15 de febrero. Dicha publicación indicará los requisitos de participación establecidos en el presente reglamento y el correo electrónico donde se recibirá la información requerida. Se dará publicidad al proceso de postulación a través de los medios de comunicación internos y externos que la administración de la Asamblea Legislativa de la República de Costa Rica establezca para tal efecto.
+La convocatoria se hará en forma coordinada entre la Gerencia General, los Departamentos de Participación Ciudadana y Prensa institucional.

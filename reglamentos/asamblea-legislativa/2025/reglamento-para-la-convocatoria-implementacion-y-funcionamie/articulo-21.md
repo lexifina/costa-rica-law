@@ -1,0 +1,2 @@
+Artículo 21.-Recurso de revocatoria contra la designación.
+Contra el acto de designación de las organizaciones candidatas a representantes ante la COMIPA y contra el nombramiento de las organizaciones electas, únicamente se dará la interposición del recurso de revocatoria ante el Directorio Legislativo, dentro del plazo de tres días hábiles, contando a partir del día siguiente a la notificación del acto recurrible.

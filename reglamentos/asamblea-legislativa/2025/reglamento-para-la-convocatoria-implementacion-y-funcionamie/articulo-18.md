@@ -1,0 +1,4 @@
+Artículo 18.-Designación.
+La designación de tres organizaciones (dos representantes de la sociedad civil y un representante de la academia y/o el sector empresarial) como miembros representantes en la COMIPA es una facultad exclusiva del Directorio Legislativo, que realizará y notificará durante la primera legislatura del período constitucional.
+El Directorio Legislativo valorará, para su decisión, la recomendación que al efecto y en forma razonada, los miembros que integran la COMIPA. La designación será por cuatro años, pudiendo ser reelectos, por una única vez. La participación en la COMIPA no generará remuneración alguna.
+Para procurar la paridad de género en la designación, el Directorio Legislativo podrá definir, libremente, quienes serán representantes propietarios y quienes suplentes de las postulaciones presentadas por las organizaciones. La persona suplente deberá pertenecer a la misma organización de la persona representante titular.

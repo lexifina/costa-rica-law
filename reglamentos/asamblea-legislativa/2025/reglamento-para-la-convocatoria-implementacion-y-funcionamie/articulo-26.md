@@ -1,0 +1,2 @@
+Artículo 26.-Derogatoria.
+Derógase el acuerdo contenido en el artículo 12 de la sesión ordinaria N° 146-2021, celebrada por el Directorio Legislativo el 4 de marzo del 2021, en el que se aprobó el "REGLAMENTO PARA LA CONVOCATORIA DE LOS REPRESENTANTES, PROPIETARIOS Y SUPLENTES DE SOCIEDAD CIVIL ANTE LA COMISIÓN INSTITUCIONAL DE PARLAMENTO ABIERTO DE LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA"
