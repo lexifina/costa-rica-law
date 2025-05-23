@@ -1,0 +1,1 @@
+Artículo 3º-Plazos de resolución. Para cualquier trámite el plazo de resolución será de 90 días naturales. Si el solicitante no presenta los requisitos completos se hará una prevención otorgándole un plazo de 15 días hábiles para que subsane la situación, de no atender la prevención en el tiempo otorgado, se procederá con el cierre del trámite.

@@ -1,0 +1,1 @@
+Artículo 15.-Lote con uso residencial. Para poder concretar el proceso de titulación, el lote debe ser apto para uso habitacional y estar habilitado para construir, para lo cual, el terreno debe cumplir con lo dispuesto en el plan regulador del cantón, la Ley de Planificación Urbana si no existiera plan regulador y la norma específica que las municipalidades apliquen.

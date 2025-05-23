@@ -1,0 +1,1 @@
+Artículo 14.-Reunión de fincas. Para los casos donde existan estructuras construidas en dos o más lotes, se deberá realizar previamente la reunión de fincas y el plano de catastro que permita ubicar correctamente la vivienda.

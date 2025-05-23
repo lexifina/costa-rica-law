@@ -1,0 +1,1 @@
+Artículo 13.-Fraccionamiento de lotes. Los inmuebles con un área superior a la mínima establecida según lo normado en el Reglamento de Fraccionamiento y Urbanizaciones del INVU, cuando técnica y físicamente sea viable, deberán ser segregados con el fin de generar lotes adicionales que permitan a INVU continuar cumpliendo sus finalidades institucionales.

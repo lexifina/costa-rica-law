@@ -1,0 +1,1 @@
+Artículo 29.-Derogatorias. El presente Reglamento deroga los lineamientos de titulación emitidos mediante acuerdo de Junta Directiva, según consta en el artículo II, inciso 4), del acta de la Sesión Ordinaria N° 6407 del 3 de octubre del 2019, y su modificación según consta en el artículo VI, inciso 2) del Acta de la Sesión Ordinaria N° 6496 del 13 de mayo de 2021.

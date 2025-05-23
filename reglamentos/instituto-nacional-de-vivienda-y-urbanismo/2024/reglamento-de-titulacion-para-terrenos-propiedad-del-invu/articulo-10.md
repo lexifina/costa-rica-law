@@ -1,0 +1,1 @@
+Artículo 10.-Precio del lote. El INVU cobrará el precio del lote a valor de mercado, para lo cual se realizará el avalúo respectivo, por parte de un profesional designado por el Instituto. Para proyectos donde existan acuerdos de Junta Directiva, Leyes o Decretos específicos, se aplicará el instrumento de valoración que corresponda.

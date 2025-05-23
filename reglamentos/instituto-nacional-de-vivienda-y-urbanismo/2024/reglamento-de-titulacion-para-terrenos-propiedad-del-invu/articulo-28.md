@@ -1,0 +1,1 @@
+Artículo 28.-Silencio positivo. No aplicará el silencio positivo para ninguno de los trámites descritos, dado que no cumplen con lo estipulado en el artículo 7 de la Ley N° 8220 y el artículo 42 del Decreto Ejecutivo N° 37045-MP-MEIC.

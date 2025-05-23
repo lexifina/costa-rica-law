@@ -1,0 +1,1 @@
+Artículo 6º-Eximente de grupo familiar. Se exime del requisito de grupo familiar a aquellas personas que por diferentes circunstancias hayan quedado solas viviendo en los lotes, como es el caso de adultos mayores solos o personas que por causas fortuitas estén solas.
