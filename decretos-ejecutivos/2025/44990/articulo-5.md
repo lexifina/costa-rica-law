@@ -1,0 +1,2 @@
+Artículo 5°- Creación del Comité Experto. Se crea el Comité Experto con el objetivo de conducir técnicamente el proceso de priorización de las líneas de trabajo en investigación y transferencia de tecnología agropecuaria del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA).
+La Dirección Ejecutiva del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INT A) asumirá la coordinación y la secretaría de este comité, de manera que realice las convocatorias, elabore las actas y dé seguimiento a los acuerdos.
