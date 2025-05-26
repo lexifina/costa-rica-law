@@ -1,1 +1,0 @@
-Artículo 17.—De un sobrante. De resultar un sobrante en el momento de aplicar el arqueo, es obligación del Encargado del Fondo de Caja Chica reportarlo y debe confeccionar el comprobante de ingreso a caja, para su respectivo depósito en las arcas de la Institución. Debe dejar constancia escrita, previas las revisiones pertinentes de las posibles causas que le dieron origen.

@@ -1,1 +1,0 @@
-Artículo 23.—Garantías. El Encargado del Fondo de Caja Chica deberá rendir de su propio peculio, garantía o póliza de fidelidad, por un suma igual al monto del Fondo, a favor de la Institución, de conformidad con el Artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos N° 8131.

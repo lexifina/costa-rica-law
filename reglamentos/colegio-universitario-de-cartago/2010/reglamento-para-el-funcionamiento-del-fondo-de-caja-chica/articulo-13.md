@@ -1,6 +1,0 @@
-Artículo 13.—Liquidación de los vales. La liquidación de los vales a través de facturas o recibos de dinero por las adquisiciones de mercancías o servicios, se debe efectuar el mismo día o a más tardar al día siguiente hábil en que se hizo la solicitud de dinero.
-Los adelantos o vales de viáticos y transportes dentro del país se deben liquidar a más tardar dos días hábiles posteriores, con respecto a la fecha final de la gira, indicada en el vale provisional de caja chica.
-Por excepción, si los sujetos beneficiarios de viáticos y transportes dentro del país tienen que reiniciar una nueva gira y aún cuentan con un vale pendiente de liquidar, quedarán sujetos a lo establecido en el artículo 10 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
-Cuando por alguna circunstancia no se realiza la adquisición del bien o las compras requeridas a través del Fondo de Caja Chica, el colaborador solicitante deberá hacer el reintegro del dinero entregado en forma inmediata.
-En ningún caso se dará trámite a liquidaciones parciales del vale.
-Los vales que se tramitan el último día hábil de la semana deben ser liquidados ese mismo día, en el entendido de que bajo ninguna circunstancia se entregarán dineros del Fondo el último día hábil de la semana, con el objetivo de realizar compras de bienes y servicios el fin de semana.
