@@ -1,0 +1,4 @@
+Artículo 4.- Refórmese el Artículo 23 del Decreto Ejecutivo No. 38620-C, Reglamento de Audiciones para Ingresar a la Orquesta Sinfónica Nacional de Costa Rica, publicado en el Diario Oficial La Gaceta No. 190 del 03 de octubre de 2014, y sus reformas, para que se lea de la siguiente forma:
+''Artículo 23.- De la notificación de los resultados: La comunicación de los resultados de la primera fase se hará vía correo electrónico por la Gestión de Recursos Humanos Auxiliar del Centro Nacional de la Música, dentro de las 24 (veinticuatro) horas naturales posteriores a la audición.
+Los resultados finales de la segunda fase se entregarán a la Gestión de Recursos Humanos Auxiliar del Centro Nacional de la Música, por el Jurado Calificador en un acta debidamente firmada.
+Posteriormente. la Gestión de Recursos Humanos Auxiliar tendrá como máximo veinticuatro horas para comunicarle a los participantes, los resultados de dicha audición".
