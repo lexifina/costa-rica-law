@@ -1,0 +1,1 @@
+Artículo 27.-Auditoría del Fondo Rotatorio de Compras Institucionales. La Auditoría Interna podrá incluir en el programa de trabajo una auditoría al fondo autorizado, con el fin de evaluar la suficiencia y la efectividad de estos controles.

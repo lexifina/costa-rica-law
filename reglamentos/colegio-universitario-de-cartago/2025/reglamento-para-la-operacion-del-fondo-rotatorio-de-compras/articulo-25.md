@@ -1,0 +1,1 @@
+Artículo 25.-Revisión Periódica. El encargado de Tesorería del Departamento Financiero, semanalmente realizará una revisión de los movimientos de las tarjetas asignadas con carga al Fondo Rotatorio de Compras, con la finalidad de supervisar los movimientos realizados por los responsables de las tarjetas.

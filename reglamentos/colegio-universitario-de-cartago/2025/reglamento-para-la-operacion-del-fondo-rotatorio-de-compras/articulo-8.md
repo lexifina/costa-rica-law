@@ -1,0 +1,1 @@
+Artículo 8º-Justificación del desembolso: Toda compra o pago que se realice por medio de tarjeta de débito institucional, deberá contar con justificación de la compra, donde se indique en cual actividad se utilizará el bien o servicio y la subpartida correspondiente. Además, la solicitud deberá ser debidamente incluida en el sistema de información disponible para tal fin.

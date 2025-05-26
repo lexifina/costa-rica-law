@@ -1,0 +1,1 @@
+Artículo 11.-Definición del monto para la Dirección Administrativa. El Consejo de Decanatura será el autorizado para la apertura, cierre, aumento o disminución del fondo rotatorio para compras, así como para el establecimiento de los límites económicos permitidos para compras, del fondo rotatorio para compras de la Dirección Administrativa

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Mecanismos de control
+Artículo 23.-Responsable del control interno. Será competencia de la Jefatura del Departamento de Financiero, verificar el cumplimiento, la validez y la suficiencia del Sistema de Control Interno, así como darle seguimiento y examinar regularmente la operación efectiva del fondo rotatorio de Compras Institucionales, sus registros, la custodia y el buen uso de los recursos, en concordancia con la Ley General de Control Interno, las Normas de Control Interno para el Sector Público emitidas por la Contraloría General de la República, en este Reglamento y en los lineamientos que al efecto emita la Dirección Administrativa del Colegio Universitario de Cartago.

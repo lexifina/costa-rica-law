@@ -1,0 +1,1 @@
+Artículo 12.-Responsable del Procedimiento del Fondo Rotatorio. El procedimiento del Fondo Rotatorio de Compras es responsabilidad de la Jefatura del Departamento de Financiero, quién deberá documentar por escrito la entrega del fondo al funcionario responsable.

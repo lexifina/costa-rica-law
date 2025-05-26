@@ -1,0 +1,1 @@
+Artículo 19.-Plazo de presentación de gastos pagados con tarjeta: Los funcionarios responsables de tarjetas de débito institucionales deben entregar semanalmente la liquidación de los gastos realizados con ellas, en los primeros 2 días hábiles de la semana siguiente al gasto, deberán presentar los comprobantes de las compras realizadas.

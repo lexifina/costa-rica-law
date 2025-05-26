@@ -1,0 +1,1 @@
+Artículo 7º-Prohibiciones de gasto: Queda totalmente prohibido la compra de bienes y adquisición de servicios que no estén debidamente autorizados por la unidad solicitante, por el encargado de presupuesto o por la Proveeduría Institucional.

@@ -1,0 +1,1 @@
+Artículo 18.-Presentación de gastos pagados con tarjeta. Los funcionarios responsables de las tarjetas de débito institucionales presentarán al encargado de cuentas por pagar del Departamento Financiero, los comprobantes de la compra realizada por medio de tarjeta, de acuerdo con el artículo 9 del presente reglamento.

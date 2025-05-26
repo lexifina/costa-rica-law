@@ -1,0 +1,1 @@
+Artículo 10.-Definición del monto. La Dirección Administrativa es la autorizada para la apertura, cierre, aumento o disminución del fondo rotatorio para compras, así como para el establecimiento de los límites económicos permitidos para compras.
