@@ -14,3 +14,4 @@ Reglamento de control interno de la Municipalidad de San Carlos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-10-30 | la propia norma |
+| 2 | 2025-05-26 | Reglamento municipal 0 (2025-05-26) |

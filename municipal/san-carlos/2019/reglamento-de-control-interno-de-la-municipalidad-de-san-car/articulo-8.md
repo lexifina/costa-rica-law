@@ -13,6 +13,7 @@ j) Promover el desarrollo de sistemas de información y comunicaciones de confor
 k) Vigilar el cumplimiento, la validez y la suficiencia de todos los controles que integran el SCI, así como girar las instrucciones necesarias para que estos se apliquen.
 l) Velar porque los titulares subordinados y los funcionarios, cumplan sus responsabilidades inherentes al SCI, hacer los reportes a la Alcaldía Municipal y solicitar las medidas necesarias para el cumplimiento de este punto.
 m) Brindar la asesoría que, por su especialización, le sea solicitada formalmente por los titulares de departamento en temas de interés para el buen funcionamiento del SCI, de conformidad con las regulaciones establecidas en el presente reglamento.
-n) Recibir, analizar y realizar las recomendaciones que sean necesarias sobre las quejas y denuncias que presenten los interesados, sobre las actuaciones de los funcionarios municipales o la administración en el ejercicio de las labores y que tiendan a poner en riesgo la consecución de los objetivos y metas de la Municipalidad y del SCI
+n) Recibir, analizar y realizar las recomendaciones que sean necesarias sobre las denuncias derivadas de actos de fraude o corrupción que se reciban, y que tiendan a poner en riesgo la consecución de los objetivos y metas de la Municipalidad y del SCI.
+(Así reformado el inciso anterior mediante acta N° 32 del 26 de mayo de 2025)
 o) Las demás que le sean asignadas por la Alcaldía Municipal para el logro de los objetivos institucionales y del SCI.
 p) Las demás que por su naturaleza le correspondan sobre el SCI
