@@ -1,0 +1,2 @@
+Artículo 3º- Adiciónese la siguiente Nota al final del numeral 1 del Apartado REQUISITOS ECOTOXICOLOGICOS Y DE DESTINO AMBIENTAL del Anexo B, del Decreto Ejecutivo N° 43838-MAG-S-MINAE del 14 de diciembre del 2022 y sus reformas, para que se lea así:
+"Nota. Para cumplir con los requisitos 1.6 y 1.7 se pueden presentar los estudios elaborados con el IAGT o con el plaguicida sintético formulado que lo contiene, los cuales deben realizarse con la concentración máxima de IAGT que se aplicará en el campo."

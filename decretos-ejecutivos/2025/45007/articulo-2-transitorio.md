@@ -1,0 +1,1 @@
+TRANSITORIO DOS: Una vez publicada la "Lista de Moléculas no autorizadas para registrarse por la modalidad de homologación" los ministerios (MINAE-MS-MAG) deberán realizar los estudios técnicos indicados en el artículo 16.11 e iniciar los trámites respectivos como máximo 6 meses posterior a la publicación del decreto.

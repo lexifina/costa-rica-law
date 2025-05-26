@@ -1,0 +1,1 @@
+TRANSITORIO UNO: En un plazo máximo de tres meses a partir de la publicación de este decreto el MINAE, MS y SFE elaborarán en conjunto y publicarán en la página del SFE la "Lista de Moléculas no autorizadas para registrarse por la modalidad de homologación".

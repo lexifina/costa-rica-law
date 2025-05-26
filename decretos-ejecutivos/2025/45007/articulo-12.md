@@ -1,0 +1,5 @@
+Artículo 12°- Refórmese los numerales 3 y 10 de los Requisitos Toxicológicos del Anexo B, del Decreto Ejecutivo N° 43838-MAG-S-MINAE del 14 de diciembre del 2022 y sus reformas, para que en lo sucesivo se lea así:
+"3. Concentración letal media aguda por inhalación (CL50), expresada en mg/l de aire o mg/m3, por 4 horas de exposición (Guía Técnica número 403 OCDE). Esto se solicitará cuando se cumpla con alguna de las siguientes características:
+El producto sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor, sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 100 ?m. Para justificar la no presentación del ensayo, se debe demostrar que el producto no cumple las ropiedades citadas."
+"10. Estudios genotóxicos (mutagenicidad)*:
+* El SFE puede requerir otros estudios de mutagenicidad, previa justificación técnica y debidamente razonada en caso de resultados positivos, siendo esta información indispensable para poder proseguir con el trámite de registro."
