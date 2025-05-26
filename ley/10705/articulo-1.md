@@ -1,0 +1,15 @@
+N° 10705
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+LEY PARA LA DINAMIZACIÓN DE LA ATENCIÓN DE LA
+POBLACIÓN VULNERABLE EN COSTA RICA
+ARTÍCULO 1- Refórmense los artículos 2, 3, inciso f), y 5 de la Ley 5662, Ley de Desarrollo Social y Asignaciones Familiares, de 23 de diciembre de 1974. Los textos son los siguientes:
+Artículo 2-Solo podrán ser beneficiarios de este Fondo los costarricenses, los extranjeros residentes legales, las personas adultas mayores, las personas con discapacidad y mujeres jefas de hogar.
+También podrán ser beneficiarias las personas menores de edad en el territorio nacional, independientemente de su situación migratoria.
+Las situaciones de pobreza básica y pobreza extrema, así como el alcance del concepto vulnerabilidad económica, serán determinados en función de los datos estadísticos anuales aportados por el Instituto Nacional de Estadística y Censos (INEC), el cual define la línea anual de pobreza.
+La atención que se realice con recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf), solo se dirigirá a personas en pobreza extrema, pobreza básica o vulnerabilidad económica, cuya atención será progresiva, priorizando la atención de las personas en situaciones más críticas de pobreza.
+Artículo 3-
+( ... )
+f) Al Instituto Nacional de las Mujeres (lnamu) se destinará un dos por ciento (2%) de todos los ingresos anuales, ordinarios y extraordinarios, percibidos por el Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf), para el cumplimiento de los fines y las atribuciones establecidos en su ley de creación, incluyendo el financiamiento de los programas de formación humana para mujeres en situaciones de pobreza básica, pobreza extrema, vulnerabilidad económica o situaciones de violencia, y la articulación de los intereses y las necesidades de las mujeres en la oferta institucional.
+( ... )
+Artículo 5- Las instituciones y los programas que reciban recursos del Fondo, por medio de ley específica o convenio, deberán seleccionar a dichos beneficiarios con una metodología de selección definida y aprobada por los organismos jerárquicos superiores de cada institución involucrada, definiendo criterios específicos de atención según su ámbito de acción, de conformidad con las leyes y el reglamento aplicables, para atender a la mayor cantidad posible de población en situaciones de vulnerabilidad económica, pobreza y/o pobreza extrema. Cada institución y programa financiado, por medio de ley o convenio, con recursos del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf) deberá hacerle llegar al Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (Sinirube), con la periodicidad que se defina en el reglamento de esta ley, la lista completa de beneficiarios de ese período, seleccionados mediante la metodología antes mencionada. Con esa información, el Sinirube levantará una única base de datos para evitar la duplicación en el otorgamiento de beneficios por parte de cualquier entidad pública.
