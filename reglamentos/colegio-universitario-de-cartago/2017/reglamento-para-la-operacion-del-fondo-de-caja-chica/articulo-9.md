@@ -1,1 +1,0 @@
-Artículo 9º—Responsable. El procedimiento del fondo fijo de caja chica es responsabilidad de la jefatura del Departamento de Financiero, quién deberá documentar por escrito la entrega del fondo al encargado de la caja chica.
