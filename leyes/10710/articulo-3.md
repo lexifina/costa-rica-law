@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se autoriza a la Notaría del Estado para que, si es del caso, pueda realizar las correcciones necesarias en los procesos de formalización de la escritura de donación y, además, de constitución de derechos de servidumbre.
