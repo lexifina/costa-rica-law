@@ -1,1 +1,0 @@
-Artículo 4°- Acatamiento obligatorio. Las disposiciones establecidas en este documento son de carácter y acatamiento obligatorio, por parte de todos los funcionarios de RECOPE que poseen una cuenta de CEE.
