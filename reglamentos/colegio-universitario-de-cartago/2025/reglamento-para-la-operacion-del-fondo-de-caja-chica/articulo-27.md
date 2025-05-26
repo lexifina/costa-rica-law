@@ -1,0 +1,1 @@
+Artículo 27.-Deróguese el anterior Reglamento para el Funcionamiento del Fondo de Caja Chica del Colegio Universitario de Cartago, publicado en el Diario Oficial La Gaceta N° 164, del 24 de agosto de 2010 y toda otra normativa que regule y se le oponga sobre la misma materia.

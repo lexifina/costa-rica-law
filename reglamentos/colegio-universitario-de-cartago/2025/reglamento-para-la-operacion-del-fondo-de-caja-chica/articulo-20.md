@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Mecanismos de control
+Artículo 20.-Responsable del control interno. Compete a la Jefatura del Departamento de Financiero, establecer y verificar el cumplimiento, la validez y la suficiencia del Sistema de Control Interno, así como darle seguimiento y examinar regularmente la operación efectiva del fondo fijo de caja chica, sus registros, la custodia y el buen uso de los recursos, en concordancia con las sanas prácticas de control interno, establecidas en la Ley General de Control Interno, las Normas de Control Interno para el Sector Público emitidas por la Contraloría General de la República, en este Reglamento y en los lineamientos que al efecto emita la Dirección Administrativa del Colegio Universitario de Cartago.

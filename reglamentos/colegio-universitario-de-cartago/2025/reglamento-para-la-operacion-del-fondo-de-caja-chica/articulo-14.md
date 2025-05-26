@@ -1,0 +1,1 @@
+Articulo14.-El monto máximo del fondo fijo de caja chica establecido a cada Unidad Ejecutora, podrá ser utilizado siempre y cuando no exista un vale pendiente de liquidar de la misma Unidad o funcionario solicitante.

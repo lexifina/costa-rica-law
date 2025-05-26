@@ -1,0 +1,1 @@
+Artículo 10.-Definición del monto. La Dirección Administrativa es la única autorizada para la apertura, cierre, aumento o disminución del fondo fijo de caja chica, así como para el establecimiento de los límites económicos permitidos para compras por caja chica.

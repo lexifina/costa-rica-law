@@ -1,0 +1,1 @@
+Artículo 6º-Gastos menores. Se considerarán gastos menores aquellos que no excedan el monto máximo fijado por la Dirección Administrativa y que corresponden a la adquisición de bienes y servicios que no se encuentren en la bodega institucional.
