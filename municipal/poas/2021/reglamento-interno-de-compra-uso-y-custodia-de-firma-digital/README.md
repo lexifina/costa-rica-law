@@ -15,3 +15,4 @@ Reglamento interno de compra, uso y custodia de firma digital en la Municipalida
 | --- | --- | --- |
 | 1 | 2021-07-01 | la propia norma |
 | 2 | 2024-02-20 | Reglamento municipal 198 (2024-02-20) |
+| 3 | 2025-05-27 | Reglamento municipal 81 (2025-05-27) |
