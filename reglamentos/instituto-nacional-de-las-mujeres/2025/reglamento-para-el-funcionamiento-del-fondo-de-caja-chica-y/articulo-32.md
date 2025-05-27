@@ -1,0 +1,4 @@
+Artículo 32.-Requisitos de los documentos que respaldan la liquidación: Los comprobantes electrónicos que respaldan los desembolsos que se efectúen por medio del fondo de caja chica y caja auxiliar, deberán cumplir con lo siguiente:
+a) Comprobante electrónico a nombre del INAMU, con indicación de los bienes y servicios adquiridos, la fecha de adquisición, impuesto al valor agregado y monto total. Asimismo, deberá cumplir con las disposiciones establecidas por la Administración Tributaria.
+b) Emitidos con fecha igual o posterior a la fecha de la emisión del adelanto.
+c) En el caso de los contribuyentes acogidos al Régimen Simplificado, las facturas deben indicar el nombre, la dirección, el número de cédula de la persona física o jurídica que suministra el bien o servicio, número de teléfono, e indicar que están acogidos al Régimen simplificado, de conformidad con la normativa vigente al respecto.

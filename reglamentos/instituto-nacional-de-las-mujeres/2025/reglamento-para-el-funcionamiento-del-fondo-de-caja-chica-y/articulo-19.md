@@ -1,0 +1,1 @@
+Artículo 19.-Personas que pueden hacer uso de estos fondos. Únicamente las personas funcionarias del INAMU que forman parte de la planilla institucional podrán hacer uso del fondo de caja chica y cajas auxiliares.

@@ -1,0 +1,1 @@
+Artículo 23.-Posesión de fondos de caja chica. Ninguna persona funcionaria del Instituto, podrá mantener en su poder fondos de caja chica por más de tres días hábiles, a excepción de las personas responsables del fondo de caja chica y de las cajas auxiliares.

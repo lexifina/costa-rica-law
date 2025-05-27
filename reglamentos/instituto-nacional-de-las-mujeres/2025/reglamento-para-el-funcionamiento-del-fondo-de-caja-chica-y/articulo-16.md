@@ -1,0 +1,1 @@
+Artículo 16.-Instrumentos y comprobación de requisitos: La Dirección Administrativa Financiera, facilitará a las unidades usuarias aquellos instrumentos para solicitar adelantos y liquidaciones de fondos de caja chica y cajas auxiliares que sean necesarios para facilitar la comprobación del cumplimiento de los requisitos señalados en los artículos anteriores.

@@ -1,0 +1,11 @@
+Artículo 11.-Requisitos para gastos menores por medio del fondo de caja chica y cajas auxiliares. Las personas funcionarias al solicitar un adelanto de caja chica y cajas auxiliares deben atender el cumplimiento de estos requisitos:
+a) Justificación de la necesidad o urgencia de realizar la compra.
+b) Aprobación del Departamento de Proveeduría que demuestre que en el Almacén Institucional no haya existencia del bien, o que está en proceso la correspondiente contratación Pública, o por su naturaleza impide ubicarlos en el almacén o bien, que no esté contemplado en las adquisiciones normales de la institución.
+c) Justificación que resulta más oneroso realizar un procedimiento de contratación Pública para adquirirlo que, por medio del fondo de caja chica y cajas auxiliares, en virtud de su bajo costo.
+d) Aprobación correspondiente que exista contenido presupuestario disponible y que el gasto corresponda a las subpartidas presupuestadas y autorizadas para realizar erogaciones por esta vía. Para determinar las partidas con cargo a las cuales pueden realizarse gastos por caja chica y cajas auxiliares, se utilizará como referente el Clasificador por objeto de gasto para compras por medio de Caja Chica y cajas auxiliares emitido por la Tesorería Nacional.
+e) Que, en el caso de servicios, ninguna dependencia o persona funcionaria del Instituto según sus funciones, esté en posibilidad de prestar el servicio.
+f) Seleccionar la persona proveedora de los bienes o servicios que más convenga a los intereses institucionales, en cuanto a precio y calidad. Deben presentarse las respectivas cotizaciones, de la siguiente forma:
+1. Hasta un 10% del monto máximo autorizado para los adelantos de caja chica y cajas auxiliares se requerirá una cotización.
+2. De un 10.1% a un 50% del monto máximo autorizado para los adelantos de caja chica y cajas auxiliares se requerirán dos cotizaciones.
+3. De un 50.1% hasta un 100% del monto máximo autorizado para los adelantos de caja chica y cajas auxiliares se requerirán tres cotizaciones.
+Lo anterior, salvo en los casos en que se justifique claramente, con la autorización de la jefatura inmediata y de manera excepcional, la no presentación de cotizaciones.

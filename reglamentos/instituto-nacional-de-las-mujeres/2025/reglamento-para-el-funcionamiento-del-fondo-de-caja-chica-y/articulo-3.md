@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación: Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las personas funcionarias del INAMU, así como para aquellas que se encuentran comprendidas en los supuestos de la norma al respecto.

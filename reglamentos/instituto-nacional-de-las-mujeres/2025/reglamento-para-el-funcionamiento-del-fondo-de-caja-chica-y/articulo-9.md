@@ -1,0 +1,1 @@
+Artículo 9º-Monto máximo de adelanto: La Dirección Administrativa Financiera definirá el monto máximo de los adelantos de caja chica para cada dependencia usuaria del servicio y los montos correspondientes a las cajas auxiliares, previo estudio técnico.

@@ -1,0 +1,21 @@
+Artículo 2º-Definiciones: Para la correcta aplicación de este reglamento se tendrán en cuenta las siguientes definiciones:
+a) Adelanto de caja chica: Es el monto solicitado por las Dependencias usuarias del servicio, para hacer uso del Fondo de Caja Chica.
+b) Arqueo: Análisis y conteo de las transacciones, del dinero en efectivo y comprobantes de gastos, durante un lapso determinado, con el objeto de comprobar la exactitud e integridad del fondo de caja chica.
+c) Autorizaciones técnicas: Son las otorgadas por las unidades técnicas especializadas, que son requisito indispensable para la compra de un bien o servicio por medio del fondo de caja chica.
+d) Bienes y servicios: Son los bienes y servicios de uso periódico utilizados en las operaciones regulares y normales del Instituto y que deben adquirirse por los procesos ordinarios de contratación.
+e) Caja Chica: Mecanismo que se considera como una excepción a los procedimientos de contratación administrativa para gastos menores autorizados, conforme se establece en el artículo 3º inciso g) de la Ley de Contratación Pública.
+f) Dependencia usuaria del servicio: Se denomina como tal a la Dirección, Departamento o Unidad del Instituto que requiere fondos de caja chica para atender gastos, en los términos establecidos en el presente Reglamento.
+g) Fondo de Caja Chica: Monto asignado y administrado por el Departamento Financiero Contable del INAMU, para gestionar gastos menores, solicitados por las dependencias usuarias del servicio para atender situaciones que no pueden preverse de forma oportuna; así como para adquirir bienes y servicios indispensables y urgentes que no pueden esperar la dilación en tiempo y trámites que requieren otros procedimientos de compra, pero que resultan excepcionales.
+h) Fondo de Cajas auxiliares: Monto asignado y administrado por las unidades autorizadas, que por su ubicación y necesidades específicas no pueden hacer uso directo del fondo de caja chica de la institución, de la forma célere requerida.
+i) Gastos menores: Aquellos bienes y servicios que no excedan el monto máximo autorizados para adelantos de caja chica y cajas auxiliares. Dentro de estos gastos se consideran los correspondientes a viáticos y transporte para personas funcionarias y los gastos de representación ocasionales de la Presidencia Ejecutiva del INAMU.
+j) Gastos de representación: Erogaciones ocasionales en que incurra la Presidencia Ejecutiva o quien ella autorice previamente para realizarlas, con motivo de atenciones de carácter oficial que le dispensen a personas o entidades ajenas, según lo establece la normativa para este fin.
+k) INAMU o Instituto: Instituto Nacional de las Mujeres.
+l) Jefatura inmediata: La Jefatura de la dependencia solicitante.
+m) Monto de adelanto de caja chica: Monto máximo, autorizado por la Dirección Administrativa Financiera a las dependencias usuarias de los servicios del fondo de caja chica.
+n) Liquidación: Es la rendición de cuentas que efectúa la dependencia usuaria del servicio mediante la entrega de comprobantes originales que sustentan las adquisiciones, los servicios recibidos y los gastos efectuados.
+o) Persona responsable del fondo de caja chica y fondo de cajas auxiliares: Es la persona que custodia, administra y controla el fondo de caja chica o cajas auxiliares del INAMU.
+p) Persona funcionaria: Las personas funcionarias del INAMU que forman parte de la planilla institucional y que requieran un adelanto de caja chica.
+q) POI: Plan Operativo Institucional del Instituto Nacional de las Mujeres.
+r) Reintegro del fondo de caja chica o cajas auxiliares: Conjunto de documentos con sus respectivos comprobantes electrónicos, que la persona responsable del fondo de caja chica o cajas auxiliares presentan ante las personas autorizadas para solicitar el reembolso de los montos erogados.
+s) Viáticos y transporte: Son los gastos de hospedaje, alimentación y transporte en el interior y exterior del país y los gastos relacionados, en que incurren las personas funcionarias del INAMU.
+t) Caución: Garantía a favor de la Hacienda Pública, por el desempeño de sus funciones, lo que se deberá realizar de conformidad con lo establecido en el "Reglamento sobre la rendición de garantías o causiones a favor del Instituto Nacional de las Mujeres".

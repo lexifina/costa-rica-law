@@ -1,0 +1,1 @@
+Artículo 25.-Utilización del adelanto. Será responsabilidad de la jefatura superior inmediata que autoriza el adelanto de caja chica y cajas auxiliares, velar que los gastos realizados hayan sido utilizados para el fin que se solicitó.

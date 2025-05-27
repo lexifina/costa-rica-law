@@ -1,0 +1,2 @@
+Artículo 18.-Prohibición Compras de uso común. No podrán tramitarse, por medio del fondo de caja chica y cajas auxiliares, las compras correspondientes a bienes y servicios utilizados en las operaciones regulares y normales del Instituto, que pueden planificarse, y que deben adquirirse por los procesos ordinarios de contratación.
+El Departamento de Proveeduría Institucional debe asegurarse de tener siempre en existencias este tipo de bienes, materiales y suministros y prever con suficiente anticipación las necesidades institucionales.

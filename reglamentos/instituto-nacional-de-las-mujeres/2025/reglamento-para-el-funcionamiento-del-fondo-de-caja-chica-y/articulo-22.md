@@ -1,0 +1,2 @@
+Artículo 22.-Resguardo inapropiado de documentación. La persona responsable del fondo de caja chica y cajas auxiliares no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para el resguardo del fondo de caja chica y cajas auxiliares.
+Los fondos de caja chica y cajas auxiliares deberán custodiarse en forma separada de los ingresos que sean recaudados por medio de la Unidad de Tesorería y de cualesquiera otros fondos.

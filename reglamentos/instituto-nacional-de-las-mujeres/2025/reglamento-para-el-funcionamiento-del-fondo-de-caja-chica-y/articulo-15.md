@@ -1,0 +1,4 @@
+Artículo 15.-Requisitos para el pago de gastos de representación por medio de caja chica. Las personas funcionarias autorizadas de solicitar un adelanto de caja chica deben atender el cumplimiento de estos requisitos; no será necesario la presentación de cotizaciones:
+a) Que se trate de gastos de la Presidencia Ejecutiva originados en la celebración de recepciones oficiales de carácter institucional, en el interior del país y siempre que no se trate de gastos fijos.
+b) Que se trate de gastos de representación ocasionales en el exterior, para lo cual se aplicará supletoriamente lo dispuesto por la Contraloría General de la República respecto al tema.
+c) Que exista contenido presupuestario disponible y que el gasto corresponda a las subpartidas presupuestadas y autorizadas para realizar erogaciones por esta vía. Debiendo darse la validación correspondiente de la persona encargada de presupuesto.

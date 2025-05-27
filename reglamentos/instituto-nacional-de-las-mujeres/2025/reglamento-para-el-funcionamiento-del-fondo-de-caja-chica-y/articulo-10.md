@@ -1,0 +1,1 @@
+Artículo 10.-Solicitudes de adelanto de caja chica. Para que la dependencia usuaria del servicio solicite un adelanto del fondo de caja chica deberá cumplir todos los requisitos establecidos en los artículos siguientes de este reglamento, según sea el tipo de gasto.

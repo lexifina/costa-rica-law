@@ -1,0 +1,2 @@
+Artículo 46.-Responsables del fondo de las cajas auxiliares. Las cajas auxiliares estarán bajo la responsabilidad de las Jefaturas y específicamente de la persona competente según sus funciones o en su defecto, la persona que asigne la Dirección de Áreas Estratégicas o Administrativa Financiera según corresponda.
+Una vez que haya recibido a satisfacción la entrega formal de los recursos, la persona responsable deberá cumplir con la correcta operación de las cajas auxiliares, de la custodia del efectivo y de los respectivos comprobantes.
