@@ -1,0 +1,2 @@
+Transitorio II: La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE) contará con plazo de 4 meses a partir de la publicación de esta resolución para el desarrollo e implementación del Web Service, que permitirá operativizar la venta directa exenta de combustibles de RECOPE para el "Programa de Emergencia para la Reconstrucción Integral y Resiliente de Infraestructura (PROERI), suscrito entre la República de Costa Rica y el Banco Centroamericano de Integración Económica (BCIE).
+Es conforme. Publíquese
