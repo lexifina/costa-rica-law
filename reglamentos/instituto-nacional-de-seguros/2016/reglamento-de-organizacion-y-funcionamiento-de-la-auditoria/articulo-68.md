@@ -1,1 +1,1 @@
-Artículo 68°-Fundamentación del acto de desestimación, archivo o traslado de las denuncias. Deberá existir un acto debidamente motivado en donde se acrediten los argumentos valorados para desestimar, archivar o trasladar una denuncia. Cuando se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada.
+Artículo 68°-Admisión de denuncias anónimas. Cuando la denuncia anónima traiga consigo elementos de prueba que den mérito a una investigación, esta será admitida, cuando falten tales elementos la Auditoría debe hacer indagaciones.

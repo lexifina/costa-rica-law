@@ -1,1 +1,4 @@
-Artículo 27°-Pericia y debido cuidado profesional. El personal de la Auditoría Interna debe ejecutar sus funciones con el debido cuidado, pericia, juicio y ética profesional, con apego a la normativa legal y técnica aplicable, a los procedimientos e instrucciones emitidas por el Auditor Interno, debiendo mantener y perfeccionar sus capacidades y competencias profesionales mediante la participación en programas de capacitación continua.
+SECCIÓN V
+Del personal de la Auditoría Interna
+Artículo 27°-Del personal. El Auditor Interno es el jefe de los funcionarios de la Auditoría Interna y le concierne todas las labores administrativas correspondientes.
+Deberá el personal de la Auditoría Interna acatar las disposiciones emitidas por sus superiores directos e inmediatos, mediante orden verbal o escrita, siempre y cuando esta no sea extraña a sus competencias, no sea arbitraria, no constituya un abuso de autoridad o la comisión de un eventual delito.

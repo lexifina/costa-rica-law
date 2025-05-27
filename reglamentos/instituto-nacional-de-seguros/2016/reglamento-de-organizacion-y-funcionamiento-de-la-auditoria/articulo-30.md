@@ -1,3 +1,2 @@
-SECCIÓN VI
-Relaciones y coordinaciones
-Artículo 30°-Relaciones y coordinaciones a lo interno: Es obligación del Auditor Interno establecer y regular a lo interno de la Auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de la Auditoría con los clientes de auditoría y con los Auditores Externos del Grupo INS.
+Artículo 30°-Sanciones administrativas. Según la gravedad, las faltas se sancionarán según lo que establece la Ley General de Control Interno, Ley Nº 8292 y demás normativa aplicable.
+Sobre la Adopción de Medidas Cautelares en contra de la Persona Auditora y Sub auditora interna y sobre la autorización del Auditor Interno para la ejecución de movimientos y la aplicación de sanciones al personal de la Auditoría Interna

@@ -1,1 +1,3 @@
-Artículo 40°-Servicios preventivos. Los servicios preventivos comprenden asesoría, advertencia y autorización de libros. La asesoría y la advertencia deben versar sobre asuntos que sean estrictamente de la competencia de la Auditoría Interna y deberán darse sin que se comprometa su independencia y objetividad en el desarrollo posterior de sus competencias. Además, la Administración activa podrá o no responder con acciones a esas asesorías y advertencias pues no tienen carácter vinculante, asumiendo su responsabilidad.
+SECCIÓN II
+De los servicios de la Auditoría Interna del INS
+Artículo 40°-Servicios de Auditoría Interna del INS. Los servicios que presta la actividad de Auditoría Interna conforme a sus competencias se clasifican en servicios de auditoría (aseguramiento), servicios de investigación y servicios preventivos.

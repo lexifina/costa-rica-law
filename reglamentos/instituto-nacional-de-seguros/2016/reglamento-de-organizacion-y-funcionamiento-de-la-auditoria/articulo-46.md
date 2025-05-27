@@ -1,1 +1,1 @@
-Artículo 46°-Sobre la evidencia suficiente. Los funcionarios de la Auditoría Interna deben registrar información suficiente que les permita apoyar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.
+Artículo 46°-Autorización de libros. La Auditoría Interna autorizará tanto la apertura como el cierre de los libros de Junta Directiva, de contabilidad y otros necesarios para el fortalecimiento del Sistema de Control Interno, de conformidad con lo señalado en la Ley General de Control Interno.

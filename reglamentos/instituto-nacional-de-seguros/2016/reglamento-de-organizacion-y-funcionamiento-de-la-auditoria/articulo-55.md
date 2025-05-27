@@ -1,3 +1,1 @@
-SECCIÓN VI
-PROGRAMA DE ASEGURAMIENTO DE LA CALIDAD
-Artículo 55°-Establecimiento del programa. La Auditoría Interna mantendrá un programa de aseguramiento de la calidad para la actividad de auditoría interna que incluya evaluaciones continuas, autoevaluaciones anuales y evaluaciones externas.
+Artículo 55°-Responsabilidad de la Administración sobre el programa de seguimiento de recomendaciones. Es responsabilidad del Jerarca o titular subordinado ordenar y asegurar la oportuna implementación y seguimiento de las recomendaciones formuladas por la Auditoría Interna. En el caso de verificarse un incumplimiento injustificado deberá ordenarse el inicio del procedimiento disciplinario correspondiente, por medio del cual se podría atribuir a los encargados de su atención la respectiva responsabilidad, de conformidad con la Ley General de Control Interno y demás normativa aplicable.

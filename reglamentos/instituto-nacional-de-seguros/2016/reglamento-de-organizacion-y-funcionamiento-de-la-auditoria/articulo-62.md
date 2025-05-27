@@ -1,1 +1,6 @@
-Artículo 62°-Requisitos de las denuncias. Como requisitos deseables que deben reunir las denuncias que se presenten a la Auditoría Interna está que los hechos denunciados deberán ser expuestos por escrito en forma clara, precisa y circunstanciada, brindando un detalle suficiente que permita realizar la investigación, el momento y lugar en donde ocurrieron los hechos y el sujeto que presuntamente los realizó y las posibles pruebas y/o evidencias, o al menos la indicación de su localización, así como la posible situación irregular que se solicita investigar.
+Artículo 62°-Principios. En concordancia con el marco jurídico aplicable, para la realización de investigaciones de presuntos hechos irregulares, la Auditoría Interna deberá cumplir con los siguientes principios:
+a) Principio de legalidad.
+b) Principio de celeridad.
+c) Principio de independencia.
+d) Principio de objetividad.
+e) Principio de oficiosidad.

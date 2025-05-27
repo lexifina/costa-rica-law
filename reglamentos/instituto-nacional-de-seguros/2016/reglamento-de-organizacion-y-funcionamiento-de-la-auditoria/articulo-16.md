@@ -1,3 +1,1 @@
-SECCIÓN IV
-Del Auditor y Subauditor Internos
-Artículo 16°-Del Auditor Interno. El Auditor ejerce el máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna del Instituto Nacional de Seguros. El Auditor Interno responderá por su gestión ante la Junta Directiva y en lo conducente ante el Comité de Auditoría Corporativo del Grupo INS y la Contraloría General de la República.
+Artículo 16°-Sobre la dotación de recursos. La solicitud de recursos para la Auditoría Interna del Instituto Nacional de Seguros (INS) se regirá conforme lo dispuesto en los "Lineamientos sobre gestiones que involucran a la Auditoría Interna presentados ante la Contraloría General de la República". En consecuencia, cualquier requerimiento de recursos debe fundamentarse conforme a lo establecido en dicho instrumento normativo.

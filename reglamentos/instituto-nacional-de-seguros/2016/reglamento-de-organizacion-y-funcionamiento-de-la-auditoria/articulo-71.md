@@ -1,6 +1,4 @@
-SECCIÓN II
-DE LAS RELACIONES DE HECHOS
-Artículo 71°-Sobre las Relaciones de Hechos. Cuando como parte de los estudios de auditoría programados, se detecten actos o hechos irregulares o ilegítimos que pongan en peligro o causen un daño a la Hacienda Pública, la Auditoría Interna deberá someter a conocimiento de la Administración Activa o del Jerarca lo sucedido.
-La comunicación se llevará a cabo mediante un informe de relación de hechos, el cual servirá de insumo a la Administración para determinar la existencia de eventuales responsabilidades administrativas, civiles y penales, este informe se debe realizar de acuerdo con los Lineamientos Generales para el análisis de presuntos hechos irregulares, resolución R-DC-102-2019 publicado en La Gaceta No. 209 del 04 de noviembre 2019.
-Las investigaciones a cargo de la Auditoría Interna pueden realizarse de oficio, producto de una auditoría, en atención a la denuncia de un tercero, o como respuesta a una solicitud del jerarca o de titulares subordinados, entre otros.
-El procedimiento de investigación es indistinto del eventual procedimiento administrativo.
+Artículo 71°-Comunicación al denunciante en caso de denuncias suscritas. En tanto el denunciante haya especificado su nombre, calidades y lugar de notificación, se le deberá comunicar cualquiera de las siguientes resoluciones:
+a) La desestimación y archivo de la denuncia.
+b) El traslado a otra instancia interna o externa.
+c) El resultado final de la investigación, sin aportar información, documentación u otras evidencias inherentes a la investigación.

@@ -1,3 +1,2 @@
-SECCIÓN III
-Otros aspectos relativos al funcionamiento de la Auditoría
-Artículo 44°-Sobre la información. Los funcionarios de la Auditoría Interna deben identificar información suficiente, confiable, relevante y útil de tal manera que les permita alcanzar los objetivos del trabajo.
+Artículo 44°-Servicios de Asesoría. Los servicios de asesoramiento se realizan a petición del jerarca, de la Administración Activa, o por iniciativa propia de la Auditoría Interna sobre asuntos estrictamente de su competencia y sin que menoscabe o comprometa la independencia y objetividad en el desarrollo posterior de sus demás competencias.
+La asesoría consiste en proveer criterios, opiniones u observaciones que coadyuven a la toma de decisiones sobre asuntos de gobernanza corporativa, gestión de riesgos, temas financieros, operativos, informáticos y/o de seguros y siempre dentro del ámbito de acción de la Auditoría Interna, sin que el Auditor Interno asuma responsabilidades de gestión y no devienen en vinculación para quien los recibe. Puede brindarse en forma oral o escrita.

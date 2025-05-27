@@ -1,1 +1,5 @@
-Artículo 36°-Señalamiento de plazos. La Auditoría Interna señalará en cada caso el plazo en el cual deberá suministrarse lo por ella solicitado. Este plazo será establecido considerando la complejidad del asunto en cuestión, así como la importancia y urgencia que representa para la oportuna ejecución de sus funciones. Tal plazo empezará a contar a partir del día siguiente del recibo de la solicitud por la unidad correspondiente. Cuando la solicitud no pueda ser atendida dentro del plazo establecido, el responsable deberá comunicarlo para su resolución a la Auditoría Interna dentro de los dos primeros días hábiles siguientes al recibo de la petición.
+CAPÍTULO III
+Sobre el funcionamiento de la Auditoría Interna
+SECCIÓN I
+Competencias, funciones, deberes, potestades
+Artículo 36°-Competencias de la Auditoría Interna. Las competencias de la Auditoría Interna se establecen en la Ley General de Control Interno, en la Norma 1.6 de las Normas de Control Interno para el Sector Público, en el artículo 28 del Reglamento sobre los Sistemas de Gestión de Riesgos y de Control Interno Aplicables a Entidades Aseguradoras y Reaseguradoras, Acuerdo SUGESE 09-17, el cual es congruente con las normas de la CGR y demás normativa señalada en el presente Reglamento.

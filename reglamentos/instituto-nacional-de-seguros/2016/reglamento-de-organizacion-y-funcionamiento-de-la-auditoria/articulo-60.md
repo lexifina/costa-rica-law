@@ -1,6 +1,8 @@
-Artículo 60°-Principios. En concordancia con el marco jurídico aplicable, para la realización de investigaciones de presuntos hechos irregulares, la Auditoría Interna deberá cumplir con los siguientes principios:
-a) Principio de legalidad.
-b) Principio de celeridad.
-c) Principio de independencia.
-d) Principio de objetividad.
-e) Principio de oficiosidad
+Artículo 60°-Evaluaciones externas de calidad. La Auditoría Interna deberá someterse por lo menos cada cinco años a una evaluación externa de calidad por un evaluador o equipo de evaluación calificado e independiente.
+Se puede desarrollar alguna de las siguientes modalidades:
+a) Revisión externa de la calidad.
+b) Autoevaluación de la calidad con validación independiente. Es aquella que determina si de conformidad con las regulaciones aplicables, el proceso de autoevaluación efectuado por la Auditoría Interna es adecuado y las afirmaciones sobre el grado de cumplimiento de la normativa son razonables.
+Cuando selecciona el evaluador o equipo de evaluación, el Auditor Interno debe asegurar que al menos una persona del equipo cuente con la designación activa de "Certified Internal Auditor".
+Los miembros del equipo externo no deben presentar conflictos de intereses, de hecho, o en apariencia.
+El Auditor Interno debe considerar los potenciales impedimentos a la independencia de los evaluadores por sus relaciones previas, presentes o previstas con la Institución, sus empleados/colaboradores o con la Función de Auditoría Interna. En el caso de que el evaluador sea un exempleado de la entidad, se debería valorar el tiempo transcurrido desde que haya sido independiente.
+Las personas provenientes de otro departamento de la Institución, aunque dicho departamento se halle organizativamente separado de la Función de Auditoría Interna, no se consideran independientes a los efectos de la realización de una Evaluación Externa. Igualmente, las personas provenientes de una organización relacionada (por ejemplo, una organización matriz, una filial en el mismo grupo financiero de entidades, con respecto a la organización sujeta a evaluación) no se consideran independientes.
