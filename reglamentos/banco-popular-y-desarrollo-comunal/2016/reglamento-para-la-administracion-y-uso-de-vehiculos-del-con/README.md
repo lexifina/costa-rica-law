@@ -15,3 +15,4 @@ Reglamento para la Administración y Uso de Vehículos del Conglomerado Financie
 | --- | --- | --- |
 | 1 | 2016-10-05 | la propia norma |
 | 2 | 2018-11-28 | Reglamento 5599 (2018-11-28) |
+| 3 | 2025-05-27 | Reglamento 6212 (2025-05-27) |
