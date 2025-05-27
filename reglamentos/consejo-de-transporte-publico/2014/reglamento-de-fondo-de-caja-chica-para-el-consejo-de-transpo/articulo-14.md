@@ -1,1 +1,1 @@
-Artículo 14.—Seguridad del fondo fijo caja chica: la Unidad de Tesorería deberá disponer de los medios de protección y seguridad adecuados para la custodia del dinero, valores y documentos que en la misma se manejen.
+Artículo 14.-Seguridad del fondo fijo caja chica: el Departamento Financiero deberá disponer de los medios de protección y seguridad adecuados para la custodia del dinero, valores y documentos que en la misma se manejen.

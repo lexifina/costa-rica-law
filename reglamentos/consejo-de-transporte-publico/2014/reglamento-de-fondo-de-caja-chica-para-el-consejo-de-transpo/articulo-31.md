@@ -1,3 +1,3 @@
-Artículo 31.—Informe de arqueos: El responsable del Fondo de Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones, conciliaciones bancarias, arqueos internos, para el fondo de caja chica. Al efecto, y cuando le sea solicitado, remitirá al Jerarca la siguiente información:
-a. Informe con arqueos realizados con los anexos correspondientes, el cual deberá remitirse al Jerarca por medio de oficio, firmado por el Responsable del fondo y por el superior inmediato. Este informe se mantendrá disponible en caso de ser solicitado.
-b. Los arqueos que se realicen deberán contar con el nombre, firma y sello de la dependencia correspondiente.
+Artículo 31.-Informe de arqueos: El responsable del Fondo de Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones, conciliaciones bancarias, arqueos internos, para el fondo de caja chica. Al efecto, y cuando le sea solicitado, remitirá al Jerarca la siguiente información:
+a) Informe con arqueos realizados con los anexos correspondientes, el cual deberá remitirse al Jerarca por medio de oficio, firmado por el Responsable del fondo y por el superior inmediato. Este informe se mantendrá disponible en caso de ser solicitado.
+b) Los arqueos que se realicen deberán contar con el nombre, firma y sello de la dependencia correspondiente.

@@ -1,1 +1,1 @@
-Artículo 19.—La unidad de Tesorería será responsable de suministrar los formularios denominados: “Vale de Caja Chica” y “Liquidación de Caja Chica”.
+Artículo 19.- El Departamento Financiero será responsable de suministrar los formularios denominados: Vale de Caja Chica, Liquidación de Caja Chica, Decisión Inicial Trámite de Excepciones, Decisión Administrativa.

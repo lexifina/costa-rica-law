@@ -14,3 +14,4 @@ Reglamento de fondo de caja chica para el Consejo de Transporte Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-27 | la propia norma |
+| 2 | 2025-05-27 | Reglamento 31 (2025-05-27) |

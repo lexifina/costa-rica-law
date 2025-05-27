@@ -1,2 +1,2 @@
-Artículo 37.—Este Reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
-17 de julio del 2014.—
+Artículo 37.-Este Reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
+Firma el Licenciado Rafael Herrera García, Director Ejecutivo a.i, del Consejo de Trasporte Público.
