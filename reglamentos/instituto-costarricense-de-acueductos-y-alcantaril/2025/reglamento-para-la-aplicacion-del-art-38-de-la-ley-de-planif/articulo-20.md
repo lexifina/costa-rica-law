@@ -1,0 +1,1 @@
+Artículo 20 De la recopilación de la documentación para el expediente administrativo del Convenio. Es responsabilidad del administrador del convenio recopilar los estudios técnicos realizados indicados previamente, así como incorporarlos al expediente administrativo oficial del convenio.

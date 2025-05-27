@@ -1,0 +1,1 @@
+Artículo 21 Del análisis legal de traspaso de terrenos o de constitución de servidumbres. El administrador del Convenio remitirá a la Dirección Jurídica el expediente técnico relacionado con terrenos y servidumbres por traspasar al AyA o ASADAS, con el fin de analizar su factibilidad legal y emitir el criterio correspondiente, para lo cual contará con un mes para su emisión.

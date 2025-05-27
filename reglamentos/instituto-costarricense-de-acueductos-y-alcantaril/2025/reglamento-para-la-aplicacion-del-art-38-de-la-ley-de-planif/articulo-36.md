@@ -1,0 +1,1 @@
+Artículo 36 Reforma por reestructuración. En caso de modificación de los órganos o de la distribución de competencias contenidas en el presente reglamento, por reestructuración total o parcial, se deberán realizar los ajustes normativos correspondientes y su respectiva publicación.

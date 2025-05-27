@@ -1,0 +1,2 @@
+Artículo 16 De la Garantía. Como parte de los compromisos asumidos por el urbanizador, desarrollador o fraccionador, deberá aportar una garantía que responda por el cumplimiento de la ejecución de las obras asumidas. El monto de la garantía deberá de representar un 10% del valor de las obras a ejecutar y deberá ser rendida por el plazo que inicia con la fecha de formalización del convenio y hasta el finiquito formal de éste.
+La garantía podrá ser rendida mediante dinero en efectivo, fideicomisos, cartas de garantía y/o certificados bancarios de depósito a plazo.

@@ -1,0 +1,1 @@
+Artículo 24 Del registro contable de terrenos y/o servidumbres. Una vez inscritos los terrenos y servidumbres a nombre del AyA, la Dirección Jurídica lo comunicará por escrito a la Dirección de Finanzas para su registro contable.

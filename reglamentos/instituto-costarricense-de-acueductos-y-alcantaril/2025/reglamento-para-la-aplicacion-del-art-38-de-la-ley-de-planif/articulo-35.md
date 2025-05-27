@@ -1,0 +1,1 @@
+Artículo 35 Normas supletorias. En mejoras, ampliaciones y/o modernización en sistemas de ASADAS, puede la Administración invocar como norma supletoria lo dispuesto en el Reglamento de ASADAS, Decreto Ejecutivo 42582-S-MINAE y sus procedimientos.
