@@ -1,3 +1,0 @@
-MUNICIPALIDAD DE ESPARZA
-Habiéndose cumplido con el plazo de Ley para someter a consulta pública la derogatoria del Reglamento General para Licencias Municipales en Telecomunicaciones de la Municipalidad de Esparza y el Acogimiento al Reglamento de Construcciones del INVU Vigente, en lo correspondiente a la Materia de Telecomunicaciones, y sin haberse recibido observaciones al respecto, este Concejo Municipal acuerda ratificar la derogatoria definitiva, así como el acogimiento definitivo al Reglamento del INVU vigente, en lo correspondiente a la materia de Telecomunicaciones y a su vez ordenar que se realice su publicación definitiva en el Diario Oficial La Gaceta.
-Espíritu Santo de Esparza, 7 de junio de 2018.
