@@ -1,2 +1,1 @@
-Artículo 11.-De las sanciones disciplinarias. El régimen disciplinario, en caso de incumplimiento de alguna de las disposiciones contenidas en el presente Reglamento, será aplicado de acuerdo con lo establecido en el Reglamento Autónomo de Servicio de la Asamblea Legislativa. Rige a partir de su publicación.
-Rige a partir de su publicación. Acuerdo firme.
+Artículo 11 - De las sanciones disciplinarias. El régimen disciplinario, en caso de incumplimiento de alguna de las disposiciones contenidas en el presente Reglamento, será aplicado de acuerdo con lo establecido en el Reglamento Autónomo de Servicio de la Asamblea Legislativa.

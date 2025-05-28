@@ -14,3 +14,4 @@ Reglamento de la Comisión Institucional para la adopción e implementación de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-07 | la propia norma |
+| 2 | 2025-05-28 | Reglamento 138 (2025-05-28) |
