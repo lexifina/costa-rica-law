@@ -1,1 +1,2 @@
-ARTÍCULO 32.- Ningún costarricense podrá ser compelido a abandonar el territorio nacional.
+Artículo 32- Ningún costarricense podrá ser compelido a abandonar el territorio nacional, salvo que en casos de tráfico internacional de drogas o terrorismo haya sido concedida la extradición por los Tribunales de Justicia, con estricto apego a los derechos fundamentales y garantías procesales reconocidos en esta Constitución, en los tratados internacionales y en las leyes.
+(Así reformado por el artículo único de la Ley para permitir la extradición de nacionales, N° 10730 del 20 de mayo de 2025)
