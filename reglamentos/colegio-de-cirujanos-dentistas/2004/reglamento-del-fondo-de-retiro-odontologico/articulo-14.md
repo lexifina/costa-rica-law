@@ -1,4 +1,2 @@
-Artículo 14:
-El miembro que incurra en atrasos de más de dos meses podrá perder sus derechos como tal, sin responsabilidad alguna para el Fondo y el Colegio. En este caso, la Junta Directiva actuará conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
-En caso de suspensión del colegiado y revocatoria de la misma, el interesado deberá pagar las cuotas adeudadas con una tasa de interés igual a la obtenida por el Fondo en el periodo que tuvo el atraso.
-(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)
+Artículo 14.El miembro que incurra en atrasos de más de tres meses perderá sus derechos como tal, sin responsabilidad alguna para el Fondo y el Colegio. En este caso, la Junta Directiva actuará conforme se indica en el artículo 10 de la Ley Orgánica del Colegio, en relación con el numeral 12 inciso d) de esa ley orgánica. En caso de suspensión del colegiado y revocatoria de la misma, el interesado deberá pagar las cuotas adeudadas con una tasa de interés igual a la obtenida por el Fondo en el periodo que tuvo el atraso.
+(Así reformado mediante Asamblea General Ordinaria y Extraordinaria del Colegio Cirujanos Dentistas de Costa Rica, celebrada el 28 de mayo del 2025)

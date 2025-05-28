@@ -1,4 +1,2 @@
-Artículo 12:
-El pago de la cuota de colegiatura mensual es obligatorio conforme a la Ley Orgánica para todos los miembros del Colegio.
-En caso de atrasos, se aplicará lo que dispone el artículo 35 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.
-(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)
+Artículo 12.El pago de la cuota de colegiatura mensual es obligatorio conforme a la Ley Orgánica para todos los miembros del Colegio. En caso de atrasos, se aplicará lo que dispone el artículo 10 de la Ley Orgánica del Colegio de Cirujanos y Cirujanas Dentistas de Costa Rica, en concordancia con el numeral 12 inciso d) de la misma ley.
+(Así reformado mediante Asamblea General Ordinaria y Extraordinaria del Colegio Cirujanos Dentistas de Costa Rica, celebrada el 28 de mayo del 2025)

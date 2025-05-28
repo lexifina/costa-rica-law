@@ -1,3 +1,2 @@
-Artículo 13:
-Cuando alguno de los miembros del Fondo debe ausentarse del país, deberá seguir cubriendo la cuota que señala el artículo 33 de la Ley Orgánica por el tiempo que dure su ausencia. En el caso de que el colegido se atrase más de dos meses, se procederá conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
-(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)
+Artículo 13. Cuando alguno de los miembros del Fondo debe ausentarse del país, deberá seguir cubriendo la cuota de colegiatura, sin perjuicio de alguna modalidad de pago que le hubiese sido aprobada de conformidad con la reglamentación vigente y por el tiempo que dure su ausencia. En el caso de que el colegido se atrase más de tres meses, se procederá conforme se indica en artículo 10 de la Ley Orgánica del Colegio, en relación con el numeral 12 inciso d) de esa misma ley.
+(Así reformado mediante Asamblea General Ordinaria y Extraordinaria del Colegio Cirujanos Dentistas de Costa Rica, celebrada el 28 de mayo del 2025)
