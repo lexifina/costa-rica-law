@@ -18,3 +18,4 @@ Reglamento del fondo de mutualidad y subsidios
 | 3 | 2017-08-10 | Reglamento 79 (2017-08-10) |
 | 4 | 2021-07-29 | Reglamento 91 (2021-07-29) |
 | 5 | 2023-05-17 | Reglamento 0 (2023-05-17) |
+| 6 | 2025-05-28 | Reglamento 0 (2025-05-28) |
