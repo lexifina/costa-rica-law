@@ -1,3 +1,0 @@
-CAPÍTULO XI
-Reparación de bienes muebles
-Artículo 44.—Reparación de bienes muebles. Cuando un bien mueble requiera reparación, la jefatura deberá solicitarlo por escrito a la Proveeduría mediante el formulario respectivo, uno por cada bien a reparar, a fin de que ésta, conforme al procedimiento de contratación que corresponda, contrate el servicio de reparación. En lo relativo al equipo de cómputo, se deberá seguir además el procedimiento establecido en el Reglamento para el uso de los equipos de cómputo y programas informáticos. Toda reparación de bienes muebles deberá contar con la autorización de la Dirección Ejecutiva.

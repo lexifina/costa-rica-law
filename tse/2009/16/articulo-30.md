@@ -1,6 +1,0 @@
-Artículo 30.—Baja de bienes muebles por desmantelamiento y aprovechamiento de sus partes. Se podrá dar de baja por desmantelamiento toda maquinaria, mobiliario, equipo o similares, cuyas partes utilizables se puedan aprovechar, previo cumplimiento de los siguientes requisitos:
-a) Solicitud escrita al Director Ejecutivo por parte del Proveedor, que contenga una justificación del desmantelamiento de bienes muebles y su descripción, la cual tendrá como fundamento el criterio de los técnicos respectivos.
-b) El Director Ejecutivo, previa coordinación con la Proveeduría, Servicios Generales y el Departamento de Tecnologías de la Información y Comunicaciones, según corresponda, valorará la petición y si la aprueba, designará a los técnicos que tendrán a cargo el desmantelamiento.
-c) El técnico designado suscribirá un informe en el que indique a la Proveeduría las partes utilizables y sujetas a inventario. En caso de que se haya reconstruido un bien, informará lo propio a la Proveeduría a fin de que se efectúe su alta.
-d) Traspaso de los bienes muebles a la Proveeduría, cuando corresponda, para que efectúe la baja, en caso de que no estén en su custodia.
-Las partes sobrantes no reutilizables se podrán destruir, desechar o donar de conformidad con lo establecido en el presente Reglamento.

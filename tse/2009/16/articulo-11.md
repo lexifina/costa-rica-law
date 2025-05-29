@@ -1,1 +1,0 @@
-Artículo 11.—Del sistema informático de bienes muebles. El sistema informático de bienes muebles que se utilice deberá contar con las opciones correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo, baja de bienes y cualquier otra operación necesaria a juicio de la Proveeduría, aspectos que serán verificados por dicha dependencia.

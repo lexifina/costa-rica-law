@@ -1,2 +1,0 @@
-Artículo 9º—Utilización de los bienes muebles en general. Los bienes muebles serán utilizados solamente por los funcionarios de la Institución y por personas debidamente autorizadas por el Tribunal, la Dirección Ejecutiva o la Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos, ésta última en lo que respecta al desarrollo del Plan General de Elecciones propiamente.
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 21 del 5 de noviembre de 2009)

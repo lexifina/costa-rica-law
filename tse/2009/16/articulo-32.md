@@ -1,1 +1,0 @@
-Artículo 32.—Baja de bienes muebles por donación. La Proveeduría dispondrá la baja de los bienes muebles que el Tribunal autorice donar de acuerdo con lo establecido en este reglamento y con base en el acta que levantará al momento de concretarla.
