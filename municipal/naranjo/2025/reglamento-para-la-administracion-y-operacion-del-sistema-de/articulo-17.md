@@ -1,0 +1,2 @@
+Artículo 17.-De la sanción por el no pago de la multa: Si no se hiciere la cancelación dentro del plazo mencionado la multa será impuesta por la Municipalidad de Naranjo y tendrá un recargo del 2% mensual que no podrá exceder, en ningún caso, del 24% del monto adeudado.
+La multa o la acumulación de multas no canceladas, durante un período de un año o más, constituirá gravamen sobre el vehículo con el cual se cometió la infracción el que responderá además por los gastos que demande la eventual acción judicial.

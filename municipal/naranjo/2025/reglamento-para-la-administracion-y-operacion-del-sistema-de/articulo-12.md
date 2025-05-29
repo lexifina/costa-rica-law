@@ -1,0 +1,1 @@
+Artículo 12.-Prórrogas al plazo de uso: Los usuarios de este servicio podrán ocupar los lugares de estacionamiento por el tiempo que hayan pagado; de igual forma los usuarios podrán prorrogar el tiempo mediante el pago adicional correspondiente, utilizando para ello los mecanismos de pago establecidos.

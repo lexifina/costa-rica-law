@@ -1,0 +1,1 @@
+Artículo 16.-Aplicación en el tiempo y costos de remoción vehicular: Una vez infraccionado un vehículo por aplicación de las presentes disposiciones normativas, la Municipalidad de Naranjo coordinará con las autoridades de tránsito la remoción del vehículo de la zona respectiva y se aplicarán los costos y medidas establecidas por la normativa correspondiente.

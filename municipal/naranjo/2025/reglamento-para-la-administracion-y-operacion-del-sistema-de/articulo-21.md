@@ -1,0 +1,1 @@
+Artículo 21.-Transitorio único. Previo a la entrada en vigencia del presente reglamento, la Municipalidad de Naranjo realizará una campaña de divulgación para informar debidamente a los ciudadanos sobre la puesta en operación del sistema de estacionamientos autorizados y los principales aspectos para su adecuada utilización,

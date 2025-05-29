@@ -1,0 +1,2 @@
+Artículo 10.-Horario de operación del sistema de zonas de estacionamiento: El horario de funcionamiento de las zonas de estacionamiento será de lunes a sábado de las cero seis horas a las dieciocho horas. Se exceptúan los domingos y feriados de ley.
+Los cambios de horario para el funcionamiento y uso de las zonas de estacionamiento corresponderá efectuarlas a través de acto administrativo al Alcalde Municipal o quien ocupe su puesto y, entrarán en funcionamiento previa publicación en diario oficial La Gaceta.

@@ -1,0 +1,2 @@
+Artículo 7º-Tarifa: El estacionamiento de cualquier tipo de vehículo que utilice los espacios demarcados deberá cancelar la tarifa fijada por el Concejo Municipal; la cual no podrá en ningún caso ser menor de un 75% del valor que cobren los estacionamientos privados por servicios similares según lo establecido en el artículo 2º de la Ley Nº 3580.
+La tarifa del impuesto deberá ser revisada y ajustada al menos una vez al año, previo estudio emitido por la Dirección Financiera de la Municipalidad de Naranjo.

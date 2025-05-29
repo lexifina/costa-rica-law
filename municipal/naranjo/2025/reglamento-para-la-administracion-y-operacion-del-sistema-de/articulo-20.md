@@ -1,0 +1,1 @@
+Artículo 20.-De los entes colaboradores: Para el cumplimiento de las disposiciones de este reglamento la Municipalidad de Naranjo y la Dirección General de Tránsito tomarán las medidas pertinentes en estrecha y efectiva colaboración, al efecto sus delegados estarán investidos de la autoridad para lo que atañe a las actuaciones oficiales a ese respecto.
