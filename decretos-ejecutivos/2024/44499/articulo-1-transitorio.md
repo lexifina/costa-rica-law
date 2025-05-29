@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. - Los trámites pendientes no finalizados y en espera de resolución final, a la entrada en vigencia de este Decreto Ejecutivo continuarán siendo tasados en la moneda de dólares de los Estados Unidos de América (USA) o bien, en la moneda de colones costanicenses, según sea la voluntad del administrado.
