@@ -1,6 +1,0 @@
-CAPÍTULO III
-De la aprobación y formalización
-Artículo 12.—Aprobación de la alianza, asociación empresarial o acuerdo de colaboración. Una vez que se cuente con el caso de negocio junto con la viabilidad técnica, financiera y legal correspondientes, la Gerencia General procederá con el análisis respectivo y decidirá, si así fuere procedente, el traslado del expediente a la Junta Directiva para su autorización.
-De contarse con la autorización de la Junta Directiva, la Unidad Estratégica de Negocios que corresponda trasladará el mismo a aprobación ante la Junta de Adquisiciones, de conformidad con los topes y niveles establecidos por la Junta Directiva al efecto.
-Una vez aprobada la asociación empresarial o acuerdo de colaboración en todos sus detalles, la Asesoría Jurídica Institucional procederá a homologar el acuerdo y colaborar con la Unidad Estratégica de Negocios que corresponda en la confección del documento de formalización correspondiente.
-Formalizada la asociación empresarial o acuerdo de colaboración, la Asesoría Jurídica Institucional asesorará durante la etapa de ejecución, de conformidad con los requerimientos formulados por la Unidad Estratégica de Negocios que corresponda.

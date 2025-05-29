@@ -1,1 +1,0 @@
-Artículo 11.—Viabilidad jurídica de la alianza, asociación o colaboración empresarial. La Unidad Estratégica de Negocios, de previo a enviar el caso de negocio a la Gerencia General, deberá contar con un dictamen preliminar favorable de viabilidad jurídica por parte de la Asesoría Jurídica Institucional.
