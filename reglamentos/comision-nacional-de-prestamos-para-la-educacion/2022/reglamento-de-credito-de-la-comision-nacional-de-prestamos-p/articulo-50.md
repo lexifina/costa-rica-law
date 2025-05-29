@@ -1,5 +1,5 @@
 50. ARTÍCULO De los requisitos del préstamo.
 Los requisitos y trámites para gestionar y desembolsar los préstamos respaldados por el FAC, serán los mismos que para el resto de las solicitudes de préstamo que reciba CONAPE, sin embargo, el Consejo Directivo podrá establecer en el PAGC condiciones diferenciadas con el propósito de lograr una administración eficiente de los recursos del FAC.
-Los beneficiarios de cualquiera de los programas del FAC no deberán presentar procesos de juicios de cobro judicial, lo cual será verificado por CONAPE utilizando los medios que tenga a su disposición.
+Los beneficiarios de cualquiera de los programas del FAC no deberán presentar procesos de juicios de cobro judicial, lo cual será verificado por CONAPE utilizando los medios que tenga a su disposición. Quedan excluidos de esta revisión los beneficiarios menores de edad.
 (Así adicionado el párrafo anterior en sesión ordinaria N° 03-2025 del 6 de febrero de 2025. En esta misma sesión se indica que la modificación es al artículo 49. No obstante; del análisis se deduce que en realidad es al numeral 50)
-(Así reformado mediante sesión N° 19-2023 del 7 de setiembre de 2023)
+(Así reformado el párrafo anterior mediante sesión N° 13-2025 del 29 de mayo de 2025 que ordena reformar el párrafo final al artículo 49. No obstante del análisis se deduce que en realidad es al artículo 50)

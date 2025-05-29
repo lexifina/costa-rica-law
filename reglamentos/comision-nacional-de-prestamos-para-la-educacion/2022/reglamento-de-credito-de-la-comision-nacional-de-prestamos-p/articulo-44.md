@@ -1,2 +1,17 @@
-44. ARTÍCULO De la actualización del FAC.
-Una vez que el prestatario finalice su fase de ejecución y la operación crediticia se traslade a la fase de Cobro, el fondo se actualizará considerando el saldo real de la deuda, siendo que se liberará la diferencia sobrante de recursos del FAC. Esta información la comunicará la Sección de Cobro a las Jefaturas de los Departamentos de Crédito y Financiero, dentro de los primeros cinco días hábiles de cada mes.
+44. ARTÍCULO De la designación de beneficiarios del fondo.
+El FAC Programa Indígenas Vulnerabilidad y Pobreza (FAC PIVP) será dirigido a los beneficiarios que cumplan al menos uno de los siguientes requisitos, en orden de prelación:
+a. Proceder de una zona de desarrollo relativo bajo o muy bajo, de acuerdo con el Índice de Desarrollo Social (IDS) vigente de MIDEPLAN y en condición de pobreza básica, pobreza extrema y vulnerabilidad socioeconómica, según la Ficha de Inclusión Social (FIS) y el Índice de Focalización de Pobreza que facilite SINIRUBE.
+b. Ser una persona indígena (originario) y que así se pueda verificar, según constancia de la entidad correspondiente.
+c. Las personas que independientemente de la zona de procedencia se encuentren en condición de pobreza, pobreza extrema y vulnerabilidad socioeconómica de acuerdo a la (FIS) y el Índice de Focalización de Pobreza emitida por SINIRUBE.
+d. Formar parte de algún convenio o alianza estratégica de Empleabilidad que suscriba CONAPE, cuyo ingreso no supere el límite superior al primer intervalo de Factor de Ingreso Neto establecido en el PAGC.
+CONAPE deberá coordinar con DINADECO la verificación del registro de las asociaciones de desarrollo integral de los territorios indígenas y la vigencia de la personería jurídica.
+El FAC Programa Provincias Litorales (FAC PPL) será dirigido a los beneficiarios que cumplan de los siguientes requisitos.
+i. Residir y estudiar en una de las tres provincias litorales, lo cual será verificado por los medios que CONAPE considere satisfactorios.
+ii. Cuando el programa de estudio tenga como requisito el título de bachiller de educación secundaria, el beneficio se otorgará solamente a los graduados de colegios públicos. Este beneficio también podrá otorgarse a graduados de colegios privados que demuestren haber recibido un 100% de beca.
+iii. Estudiantes de programas en carreras clasificadas por CONAPE como Ciencia, Tecnología, Ingenierías o Matemáticas (STEM por sus siglas en inglés) y también en Cursos de Formación.
+Estudiantes que soliciten cambiar su programa de estudios a uno diferente a los incluidos en PPL y lo autorice CONAPE, perderán este beneficio y deberán aportar una nueva garantía de acuerdo con el Reglamento de Crédito.
+iv. El ingreso familiar no podrá sobrepasar el límite superior del segundo intervalo de la Tabla de Factor de Ingreso Neto Familiar establecida en el PAGC.
+El FAC Programa Inglés (FAC PI) será dirigido al financiamiento de todas las personas que estudien programas para el aprendizaje del idioma Inglés o carreras relacionadas con el mismo, a nivel de cursos de formación, pregrados y grados en Costa Rica o el exterior. No incluye ampliaciones en cursos y carreras diferentes a las financiadas con el FAC Programa Inglés (FAC PI).
+Para ser beneficiario del Fondo de Avales CONAPE (FAC) con un nuevo crédito o ampliación, los interesados deberán presentar solicitud expresa dirigida a la Sección de Gestión y Análisis de Crédito, para lo cual pueden utilizar el formulario habilitado en la página web de la institución. Estas solicitudes quedan sujetos a la disponibilidad de recursos en el programa que les corresponda.
+CONAPE se reserva el derecho de solicitar información adicional para verificar o ampliar los datos suministrados por el solicitante del crédito. También, podrá coordinar una visita al hogar para ampliar la información mediante un estudio socio-económico.
+(Así reformado mediante sesión N° 13-2025 del 29 de mayo de 2025)

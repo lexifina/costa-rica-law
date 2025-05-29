@@ -1,4 +1,1 @@
-11. ARTÍCULO De las sesiones del Comité de Crédito.
-A la sesión del Comité de Crédito podrán asistir por invitación, todos los funcionarios que se estimen pertinentes y necesarios conforme el asunto a tratar. En este caso, el Comité podrá acordar concederles el espacio necesario para que presenten los temas o casos de que se trate; previa inclusión del tema en el orden del día.
-No podrá ser conocido y resuelto ningún asunto que no figure en el orden del día, salvo que por mayoría de los presentes se acuerde la urgencia del caso para su conocimiento; de lo cual se dejará constancia en el acta respectiva.
-Las sesiones ordinarias del Comité se realizarán al menos una vez por semana y extraordinariamente cuando así se convoque por el Presidente o al menos dos de sus miembros. Las sesiones se podrán realizar de manera presencial, virtual o por otro medio tecnológico autorizado previamente por el Comité de Crédito.
+Texto de artículo no encontrado

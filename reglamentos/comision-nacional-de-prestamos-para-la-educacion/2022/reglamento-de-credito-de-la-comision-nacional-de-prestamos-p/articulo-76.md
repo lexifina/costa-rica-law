@@ -10,7 +10,8 @@ a. Que la operación de préstamo NO haya sido trasladada a la Sección de Cobro
 b. Que la operación de préstamo en CONAPE no tenga desembolsos pendientes (saldo ¢0.00 colones).
 c. No aplica para cambio de grado (Bachillerato y/o Licenciatura) a posgrados (Maestría, Especialización y Doctorado).
 d. Los cambios del nivel de grado a posgrado se realizarán mediante refundición de crédito.
-e. Los beneficiarios del FAC, que presenten solicitudes de ampliaciones de préstamo, deben contar con la aprobación previa del Comité de Crédito.
+e. Los beneficiarios del FAC que presenten solicitudes de ampliaciones de préstamo estarán sujetos a lo que regule el PAGC y la disponibilidad presupuestaria.
+(Así reformado el inciso anterior mediante sesión N° 13-2025 del 29 de mayo de 2025 que ordena reformar el inciso e) del artículo 75. No obstante del análisis se deduce que en realidad es al artículo 76)
 Los requisitos que debe presentar el prestatario para solicitar una autorización de ampliación del préstamo, son los siguientes:
 Del Estudiante:
 i. Completar la información al dorso del formulario, "SOLICITUD DE AUTORIZACIÓN PARA TRAMITAR AMPLIACIÓN DE PRÉSTAMO".
