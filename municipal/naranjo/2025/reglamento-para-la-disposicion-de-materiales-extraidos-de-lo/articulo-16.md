@@ -1,0 +1,1 @@
+Artículo 16.-Crédito. No se admitirán créditos o deudas a sujetos de derecho privado por concepto de pago de materiales. En el caso de sujetos de derecho público y de no ser posible el pago de contado, se podrá pactar, la forma y plazo para el pago respectivo en el Convenio correspondiente.

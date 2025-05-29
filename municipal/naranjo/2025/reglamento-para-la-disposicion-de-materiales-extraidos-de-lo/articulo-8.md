@@ -1,0 +1,1 @@
+Artículo 8º-Orden en la entrega: La entrega de materiales en el tajo respectivo se realizará de acuerdo al orden de llegada de equipos al sitio de entrega, debiendo el solicitante respetar dicho orden para cargar de materiales.

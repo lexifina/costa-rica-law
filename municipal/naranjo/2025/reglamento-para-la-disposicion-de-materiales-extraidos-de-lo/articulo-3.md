@@ -1,0 +1,1 @@
+Artículo 3º-Para la disposición de materiales extraídos de los tajos concesionados a la Municipalidad de Naranjo, esta tomará en cuenta criterios de equidad social, sostenibilidad ambiental y eficiencia económica, de acuerdo al Plan Nacional de Desarrollo.

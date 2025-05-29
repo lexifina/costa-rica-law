@@ -1,0 +1,1 @@
+Artículo 15.-Ajustes de precio. El precio podrá ser ajustado al menos una vez al año, respondiendo a lo establecido en el artículo anterior y a criterios de proporcionalidad y razonabilidad. Los ajustes de precios deben ser comunicados a la población en general en un medio idóneo para tales fines, a efecto de garantizar la debida transparencia.
