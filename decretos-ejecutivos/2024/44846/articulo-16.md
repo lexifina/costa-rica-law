@@ -1,0 +1,1 @@
+Artículo 16.- Funcionamiento. En lo no regulado en la Ley No. 10.320 del 07 de diciembre de 2022 y el presente Decreto Ejecutivo, rige lo dispuesto en la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", referente a los órganos colegiados.

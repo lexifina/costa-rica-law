@@ -1,0 +1,2 @@
+Artículo 22.- Fomento del emprendimiento en apoyo a las PYMES. La Comisión abogará con las diferentes instituciones, para fortalecer y generar nuevas pequeñas y medianas empresas (PYMES) dedicadas al tema de turismo de salud.
+Asimismo, promoverá el desarrollo de programas de responsabilidad social empresarial por parte de las empresas miembros de la red de prestadores, con el fin de hacer partícipe a las empresas, asociaciones y fundaciones que brinden los servicios de salud que el sector ofrece en el mercado nacional e internacional.

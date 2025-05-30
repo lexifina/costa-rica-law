@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Las disposiciones de este Reglamento resultan de aplicación a nivel nacional que involucra la participación de entidades y organizaciones relacionadas con los servicios de turismo de salud, tanto del sector público como privado.

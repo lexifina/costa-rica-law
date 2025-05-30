@@ -1,0 +1,1 @@
+Artículo 9.- Participación de otros actores. La Comisión, mediante acuerdo tiene la potestad de invitar a las sesiones a otros actores relacionados con la temática, quienes cuentan con derecho a voz, pero sin voto, a fin de promover la cooperación interinstitucional para el desarrollo de programas, planes o proyectos que incentiven los servicios de turismo de salud en Costa Rica.
