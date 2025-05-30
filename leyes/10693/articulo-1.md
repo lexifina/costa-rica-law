@@ -1,0 +1,6 @@
+N° 10693
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARATORIA DE LA CASA DE ADOBES Y BAHAREQUE
+COMO SÍMBOLO NACIONAL
+ARTÍCULO 1- Se declara la casa de adobes y bahareque costarricense como símbolo nacional.
