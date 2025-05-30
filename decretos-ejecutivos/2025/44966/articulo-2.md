@@ -1,0 +1,1 @@
+Artículo 2.- Modifíquese el Decreto Ejecutivo Nº 36317-COMEX del 04 de noviembre de 2010, que publicó la Resolución Nº 06-2010 (CEIE) de fecha 03 de septiembre de 2010 y su Anexo, de conformidad con el numeral 1 de la parte dispositiva de la Resolución Nº 11-2024 (CEIE) de fecha 24 de julio de 2024 y su Anexo, que se publican mediante el presente Decreto Ejecutivo.
