@@ -1,0 +1,2 @@
+Objetivo
+Artículo 2. Los presentes lineamientos orientan las funciones del Comité de Presupuesto, en adelante el Comité, en la revisión de la formulación del presupuesto anual de funcionamiento integral de la Secretaría, de conformidad con la normativa interna de la Secretaría y del Subsistema Económico. Lo no regulado por estos Lineamientos o cualquier asunto relacionado con su interpretación e implementación, será decidido por el COMIECO.
