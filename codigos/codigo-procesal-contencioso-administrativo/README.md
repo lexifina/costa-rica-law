@@ -1,6 +1,6 @@
 # Código Procesal Contencioso-Administrativo
 
-Ley N° 8508 del 2006-04-28. SINALEVI, ficha 57436: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=57436&param2=118784&param3=1>.
+Ley N° 8508 del 2006-04-28. SINALEVI, ficha 57436: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=57436&param2=146091&param3=1>.
 
 Publicada en La Gaceta N° 120 del 2006-06-22.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2018-08-23 | Sala Constitucional, resolución 13705 (2018-08-23) | 2018-08-23 |
 | 6 de 8 | 2019-12-16 | Ley 9762 | 2019-10-29 |
 | 7 de 8 | 2019-12-16 | Ley 9784 | 2019-11-12 |
+| 8 de 8 | 2025-05-30 | Ley 10702 | 2025-05-06 |
