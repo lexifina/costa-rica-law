@@ -1,0 +1,1 @@
+ARTÍCULO 5- La elección de los miembros del concejo de distrito y síndicos del distrito de Cabagra será organizada y dirigida por el Tribunal Supremo de Elecciones, seis meses después de que entre en vigencia la presente ley.
