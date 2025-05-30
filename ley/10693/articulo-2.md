@@ -1,0 +1,4 @@
+ARTÍCULO 2- Se insta al Ministerio de Educación Pública (MEP) para que incluya, en los programas de estudio correspondientes, la casa de adobes y bahareque como símbolo nacional. El Ministerio de Cultura y Juventud incentivará el desarrollo de programas y diferentes iniciativas dirigidas a fortalecer la conservación de las estructuras de la casa de adobes y bahareque, sin que esto signifique una afectación a los derechos de propiedad establecidos en el artículo 45 de la Constitución Política. El Instituto Costarricense de Turismo (ICT) podrá promover campañas dirigidas a turistas nacionales e internacionales, que incentiven el turismo y el comercio de las actividades relacionadas con la casa de adobes y bahareque.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de mayo del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
