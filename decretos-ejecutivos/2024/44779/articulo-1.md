@@ -1,0 +1,23 @@
+Nº 44779 -C
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en el artículo 121 inciso 4), 140 inciso 10) y 146 de la Constitución Política, 25.1, 27.1 y 28.2.b) de la Ley General de la Administración Pública, (Ley número 6227, del 2 de mayo de 1978), la Ley de Creación del Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud), (Ley número 4 788 del 5 de julio de 1971 ), la Ley de Creación del Centro Costarricense de Producción Cinematográfica (Ley número 6158 del 25 de noviembre 1977), y,
+CONSIDERANDO:
+l. Que el Ministerio de Cultura y Juventud es la entidad gubernamental encargada de establecer directrices generales en materia de Cultura y Juventud, fomentando y preservando la pluralidad y diversidad cultural y facilitando la participación de todos los sectores sociales, en los procesos de desarrollo cultural, turístico y recreativo sin distingo de etnia, raza, edad, religión, afiliación política, ideología, preferencia deportiva, nacionalidad, género, orientación sexual o identidad de género, ubicación geográfica o cualquier otra condición social o personal; mediante la apertura de espacios y oportunidades que propicien la revitalización de las tradiciones y manifestaciones culturales, así como la creación y apreciación artística en sus diversas manifestaciones.
+II. Que por Ley Nº 615 8 del 25 de noviembre de 1977, se creó el Centro Costarricense de Producción Cinematográfica -en adelante denominado el CCPC-, como institución técnica y cultural especializada del Estado, adscrita al Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud), encargada de fomentar y desarrollar la producción y cultura cinematográfica nacionales.
+III. Que por Decreto Ejecutivo Nº 34024-C del 31 de julio de 2007, se declaró de Interés Público Nacional la industria cultural cinematográfica y audiovisual en Costa Rica.
+IV. Que por Decreto Ejecutivo Nº 35384 del 24 de junio de 2009, se creó la Comisión Fílmica de Costa Rica, con participación de distintas entidades y organizaciones del sector público y privado, como instancia del Poder Ejecutivo encargada de la unión de esfuerzos para la atracción de inversiones y promoción de exportación de servicios de la industria audiovisual y cinematográfica.
+V. Que de conformidad con los párrafos segundo y tercero del artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo número 37045-MP-MEIC, del 22 de febrero de 2012; el presente Decreto no crea ni modifica trámites, requisitos o procedimientos por lo que no requiere del Trámite de Mejora Regulatoria.
+POR TANTO,
+DECRETAN:
+OFICIALIZACIÓN ACUERDO EN MATERIA DE COPRODUCCIÓN
+CINEMATOGRÁFICA ENTRE EL GOBIERNO DE LA REPÚBLICA DE CHILE Y EL
+GOBIERNO DE LA REPÚBLICA DE COSTA RICA
+ARTÍCULO 1. Se oficializa el acuerdo de coproducción cinematográfica entre el gobierno de la República de Chile y el gobierno de la República de Costa Rica que establece lo siguiente:
+El Gobierno de la República de Costa Rica y el Gobierno de la República de Chile en adelante "Las Partes"
+CONSIDERANDO la conveniencia de establecer un marco para las relaciones audiovisuales y, en particular, para las coproducciones de filmes, televisión y video;
+CONSCIENTES de que una mayor colaboración en el área de las coproducciones audiovisuales puede constituir un apo1ie importante para el desarrollo de la industria audiovisual de ambos Estados, así como para mejorar la distribución de obras audiovisuales de ambos Estados y mejorar el intercambio económico y cultural entre ambos Estados; y
+DECIDIDOS a fomentar el desarrollo de la colaboración en el área audiovisual, Acuerdan lo siguiente:
+Artículo 1
+Definiciones
+(Nota de Sinalevi: Por tener articulado propio el Acuerdo en materia de coproducción cinematográfica entre el Gobierno de la República de Chile y el Gobierno de la República de Costa Rica, puede ser consultado en el siguiente Enlace)
