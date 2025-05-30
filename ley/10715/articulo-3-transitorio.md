@@ -1,0 +1,2 @@
+TRANSITORIO III- Las áreas registrales de terrenos que se consignan en los artículos 1 y 2 de la presente ley, de ser el caso, serán rectificadas mediante un nuevo plano catastrado, cuya elaboración será responsabilidad del adquiriente privado de la permuta.
+Para esos efectos, una vez sancionada y publicada la presente ley, el adquirente privado y el Ministerio de Obras Públicas y Transportes dispondrán de un plazo de hasta seis meses para la confección y presentación de los planos catastrados, con sus respectivas rectificaciones ante el Registro Nacional.
