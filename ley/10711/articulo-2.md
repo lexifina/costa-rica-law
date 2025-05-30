@@ -1,0 +1,1 @@
+ARTÍCULO 2- El terreno descrito en el artículo uno se afecta a uso y dominio público de la Municipalidad de San José, con una nueva naturaleza, para la construcción de un espacio para el aprovechamiento cultural y facilidades comunales para los ciudadanos del cantón Central de San José.
