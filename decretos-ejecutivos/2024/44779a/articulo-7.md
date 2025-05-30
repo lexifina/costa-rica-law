@@ -1,0 +1,7 @@
+Artículo 7
+Cooperación
+1. Las autoridades competentes se informarán mutuamente con regularidad acerca de la concesión, el rechazo, la modificación o la revocación del reconocimiento de coproducciones.
+Antes de rechazar una solicitud, la autoridad responsable de su tramitación consultará a la autoridad competente de la otra Parte.
+2. Las autoridades competentes de ambos Estados revisarán los términos de implementación de este Acuerdo, según sea necesario, y podrán presentar sugerencias o posibles modificaciones que sean de interés de las Partes para mejorar la colaboración en el marco de este Acuerdo.
+3. La junta directiva, consejo consultivo o directorio de las autoridades competentes se reunirá, a solicitud de una de las Partes, dentro de los tres (3) meses siguientes a la presentación de una solicitud, especialmente si se modificaran las disposiciones legales nacionales pertinentes de las Partes o si se presentaren dificultades serias en la aplicación de este Acuerdo. La junta directiva, consejo consultivo o directorio de la autoridad competente consultada sugerirá las modificaciones necesarias a este Acuerdo para resolver cualesquiera dificultades que surjan de su aplicación o que fuesen de interés común de ambas Partes y que fomentasen la colaboración en la industria audiovisual.
+4. La aprobación de un proyecto de coproducción por las autoridades competentes de ambos Estados no constituirá un compromiso con uno o con ambos coproductores de que las autoridades gubernamentales otorgarán permiso para exhibir la coproducción.

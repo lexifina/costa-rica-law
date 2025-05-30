@@ -1,0 +1,6 @@
+Artículo 10
+Disposiciones finales
+1. Este Acuerdo entrará en vigor en la fecha de la última Nota en que una de las Partes comunique a la otra, por escrito y a través de vía diplomática, el cumplimiento de los trámites de aprobación interna correspondientes para dicho fin.
+2. Este Acuerdo tendrá una duración de cinco (5) años a contar desde la fecha de su entrada en vigor. El Acuerdo se renovará tácitamente por períodos similares, a menos que una Parte diere aviso por escrito a la otra de su intención de darle término, por vía diplomática, con al menos (6) seis meses de antelación.
+3. La denuncia de este Acuerdo no afectará el fomento ni la culminación de las coproducciones que hubiesen sido aprobadas con anterioridad. Las coproducciones que hayan sido aprobadas por las autoridades competentes y que estén en marcha en la fecha del aviso de terminación de este Acuerdo por cualquiera de las Partes, continuarán beneficiándose plenamente de las condiciones del presente Acuerdo hasta su finalización. Luego del término del Acuerdo, sus disposiciones continuarán aplicándose para la repartición de las ganancias de las coproducciones completadas.
+SUSCRITO en Santiago, República de Chile, el 12 de octubre del 2023, y en San José República de Costa Rica, el 13 de octubre del 2023, en dos ejemplares originales, siendo ambos textos igualmente auténticos.
