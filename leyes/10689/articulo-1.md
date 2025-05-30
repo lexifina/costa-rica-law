@@ -1,0 +1,8 @@
+N° 10689
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA REFINADORA COSTARRICENSE DE
+PETRÓLEO SOCIEDAD ANÓNIMA (RECOPE), PARA QUE
+SEGREGUE Y DONE UN TERRENO DE SU PROPIEDAD A
+LA MUNICIPALIDAD DEL CANTÓN DE TURRIALBA
+ARTÍCULO 1- Se autoriza a la Refinadora Costarricense de Petróleo Sociedad Anónima (Recope), cédula jurídica número tres-uno cero uno- cero cero siete siete cuatro nueve (N.º 3-101-007749), para que segregue y done a la Municipalidad de Turrialba, cédula de persona jurídica número tres- cero uno cuatro- cero cuatro dos cero ocho ocho (N.º 3-014-042088), un lote que mide cuatro mil cuatrocientos cincuenta y seis metros cuadrados (4 456 m2), el cual colinda al norte con el Instituto de Desarrollo Rural y la Refinadora Costarricense de Petróleo Sociedad Anónima; al sur, con la Refinadora Costarricense de Petróleo Sociedad Anónima; al oeste, con la Refinadora Costarricense de Petróleo Sociedad Anónima y, al este, con la Refinadora Costarricense de Petróleo Sociedad Anónima y con camino público, y es parte de una finca madre inscrita en el Registro Público de la Propiedad, con la matrícula tressesenta y tres mil setecientos diecinueve- cero cero cero (3-63719 000), plano catastrado C-cero cinco nueve cinco ocho cinco ocho- uno nueve nueve nueve (C- 0595858-1999), situada en la provincia de Cartago, cantón Turrialba, distrito Peralta, con una medida total de ciento cuarenta y seis mil setecientos cincuenta y cuatro metros con un decímetro cuadrado (146 754, 1 m2) y cuyos linderos son: al norte con Gilberto Bell Arrieta, Guillermo Solano Solano y Pedro Matarrita Matarrita; al sur, con río Torito; al este, con Pedro Matarrita Matarrita y, al oeste, con el río Torito; de naturaleza terreno de potrero.

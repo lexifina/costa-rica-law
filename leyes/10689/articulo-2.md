@@ -1,0 +1,1 @@
+ARTÍCULO 2- A la finca descrita en el artículo anterior se adiciona el uso público de "camino público para la red vial cantonal de Turrialba", de manera que su naturaleza registra! pase a ser terreno de potrero y camino público para la red vial cantonal de Turrialba.
