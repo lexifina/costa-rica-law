@@ -1,0 +1,4 @@
+ARTÍCULO 3- Se adiciona un inciso e) al artículo 34 de la Ley 7935, Ley Integral para la Persona Adulta Mayor, de 25 de octubre de 1999.
+Artículo 34- Fines
+( ... )
+e) Se faculta al Conapam y al Conapdis como entes rectores, cada uno dentro de su ámbito de competencia, para que puedan coadyuvar con la red familiar, con la finalidad de que cumpla con la obligación alimentaria para los adultos mayores y personas con discapacidad en condición de abandono. Para el cumplimiento de este inciso, se autoriza al Conapam y al Conapdis, de acuerdo con la Ley 4775, Ley de Consultorios Jurídicos, 21 de junio de 1971, para que soliciten apoyo a las facultades de derecho de las universidades del país, para que, por medio de estos consultorios jurídicos, puedan colaborar en los diferentes procesos legales que requieran sus servicios.
