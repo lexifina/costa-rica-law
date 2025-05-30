@@ -1,7 +1,6 @@
 CAPÍTULO II
 DEFINICIONES
-ARTÍCULO 2.- Definiciones
-Para los efectos de esta ley, se definen los siguientes términos:
+ARTÍCULO 2.- Definiciones. Para los efectos de esta ley, se definen los siguientes términos:
 Persona adulta mayor: toda persona de sesenta y cinco años o más y toda persona con síndrome de Down mayor de cuarenta años.
 (Así reformada la definición anterior por el artículo 1° de la ley N° 10177 del 25 de abril de 2022)
 Acreditación: Reconocimiento formal de la competencia de una institución, organización o persona física para realizar tareas o tipos de tareas específicas, relacionadas directamente con la temática de la persona adulta mayor.
@@ -10,6 +9,8 @@ Ayudas técnicas: Elementos que una persona con discapacidad requiere para mejor
 Calidad del servicio: Conjunto de características que confieren al servicio la capacidad de satisfacer tanto las necesidades como las demandas actuales y potenciales.
 Hogar privado sustituto: Establecimiento privado donde habitan personas adultas mayores, financiado o no con fondos públicos. Su administración está a cargo de organizaciones no gubernamentales, como asociaciones calificadas de bienestar social.
 Norma: Disposición de uso común y repetitivo, emitida por un órgano reconocido y dirigida al logro de un grado óptimo de orden en los servicios de atención destinados a las personas adultas mayores.
+Persona en situación de abandono sujeta a intervención del Estado: se entenderá como toda aquella persona de 65 años y más, con dependencia calificada como moderada o severa por el Baremo de la Dependencia, o que presente algún síndrome demencial avanzado así calificado por un médico especialista. La persona que esté en situación de abandono deberá también carecer de una red de apoyo familiar, sobre la cual se pueda ejercer una obligación alimentaria. La calificación de la situación de abandono corresponderá a personas profesionales especializadas en el tema de las instituciones públicas encargadas, según los instrumentos que el Consejo Nacional de la Persona Adulta Mayor (Conapam) establezca al efecto.
+(Así adicionada la definición anterior por el artículo 2° de la ley N° 10719 del 13 de mayo de 2025, “Reforma de varias leyes para fortalecer las organizaciones de bienestar social, en beneficio de la persona adulta mayor”)
 Programas para las personas adultas mayores: Servicios de atención general o especializada, institucionalizada, interna o ambulatoria a domicilio, de rehabilitación física, mental o social y de asistencia, en general, para las personas adultas mayores.
 Riesgo social: Situación de mayor vulnerabilidad en que se encuentran las personas adultas mayores cuando presentan factores de riesgo que, de no ser tratados, les producen daños en la salud.
 Seguridad social: Conjunto de prestaciones sanitarias, sociales y económicas que contribuyen a dotar a las personas de una vida digna y plena.
