@@ -1,0 +1,6 @@
+N° 10703
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARATORIA DEL DÍA NACIONAL DE LA PRIMERA
+CONEXIÓN DE COSTA RICA A LA INTERNET
+ARTÍCULO 1- Declárese el día 26 de enero de cada año como el Día Nacional de la Primera Conexión de Costa Rica a la Internet.
