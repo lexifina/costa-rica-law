@@ -4,7 +4,8 @@ Artículo 18.- La escritura constitutiva de toda sociedad mercantil deberá cont
 3) Nombre o razón social de las personas jurídicas que intervengan en la fundación;
 4) Clase de sociedad que se constituye;
 5) Objeto que persigue;
-6) Razón social o denominación;
+6) Razón social o denominación. En la sociedad anónima y en la de responsabilidad limitada, en vez de razón social o denominación, el Registro Nacional asignará de manera oficiosa y automática, al momento de la inscripción, el número de cédula jurídica; salvo lo dispuesto en leyes especiales.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 10729 del 13 de mayo de 2025)
 7) Duración y posibles prórrogas;
 8) Monto del capital social y forma y plazo en que deba pagarse;
 9) Expresión del aporte de cada socio en dinero, en bienes o en otros valores. Cuando se aporten valores que no sean dinero, deberá dárseles y consignarse la estimación correspondiente. Si por culpa o dolo se fijare un avalúo superior al verdadero, los socios responderán solidariamente en favor de terceros por el exceso de valor asignado y por los daños y perjuicios que resultaren.
