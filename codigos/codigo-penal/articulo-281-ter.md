@@ -1,0 +1,3 @@
+Artículo 281 ter- Reclutamiento ilícito de personas menores de edad. Será reprimida con prisión de cuatro a seis años, la persona mayor de edad que, conociendo la minoría de edad de una persona, la reclute para involucrarla como autor, coautor o partícipe en la comisión de delitos dolosos.
+La pena será de cuatro a ocho años de prisión, si el autor del hecho agrede, intimida o amenaza a la persona menor de edad, su núcleo familiar o se aprovecha de las condiciones de pobreza, exclusión del sistema educativo, condición migratoria irregular, para coaccionarlo a participar en la comisión de hechos delictivos.
+(Así adicionado por el artículo único de la Ley para sancionar el reclutamiento ilícito de personas menores de edad, N° 10685 del 9 de abril de 2025)
