@@ -1,0 +1,1 @@
+ARTÍCULO 2- Autorización a la Municipalidad de Talamanca para donar un inmueble de su propiedad. Se autoriza a la Municipalidad de Talamanca para que segregue el terreno plano catastro L-22155-2022 y done dicho inmueble al Instituto Nacional de Aprendizaje, cédula jurídica 4-000-045127. Se habilita al Instituto Nacional de Aprendizaje a recibir la donación del predio en cuestión.
