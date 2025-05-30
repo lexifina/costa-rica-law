@@ -1,2 +1,3 @@
-ARTÍCULO 2.- Beneficiarios del Estado
-Para efectos de la presente ley, se entenderá por beneficiarios a todas las personas que requieran los servicios, las asistencias, los subsidios o los auxilios económicos a cargo del Estado, para la atención de estados y situaciones de necesidad.
+Artículo 2- Beneficiarios del Estado. Para efectos de la presente ley, se entenderá por beneficiarios a todas las personas que requieran los servicios, las asistencias, los subsidios o los auxilios económicos a cargo del Estado, para la atención de estados y situaciones de necesidad.
+En el caso de los programas estatales dirigidos a personas adultas mayores, se entenderán como beneficiarios del Estado a personas adultas mayores que se encuentren en situaciones de pobreza, pobreza extrema y abandono.
+(Así reformado por el artículo 1° de la ley N° 10719 del 13 de mayo de 2025, "Reforma de varias leyes para fortalecer las organizaciones de bienestar social, en beneficio de la persona adulta mayor")
