@@ -1,2 +1,3 @@
-Artículo 108. — Una vez aprobado el presupuesto por la Contraloría General de la República, el original se enviará a la secretaría municipal, donde quedará en custodia, y se remitirá copia al alcalde municipal, al contador o auditor interno, a cada uno de los regidores propietarios, así como a los demás despachos que acuerde el Concejo o indique el reglamento.
-(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 99 al 108)
+Artículo 108- Una vez aprobado el presupuesto, por la Contraloría General de la República, el original se enviará a la secretaría municipal, donde quedará en custodia y se remitirá copia al alcalde municipal, al contador, a cada uno de los regidores propietarios, así como a los demás despachos que acuerde el concejo o indique el reglamento.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018, que lo traspasó del antiguo artículo 99 al 108)
+(Así reformado por el artículo 1° de la ley N° 10714 del 7 de mayo de 2025)
