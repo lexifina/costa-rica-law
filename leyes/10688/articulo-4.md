@@ -1,0 +1,1 @@
+ARTÍCULO 4- La elección de los miembros del Concejo de Distrito y síndicos del distrito de Pijije será organizada y dirigida por el Tribunal Supremo de Elecciones (TSE), cuando corresponda y así lo determine el Tribunal de acuerdo con su calendarización oficial.
