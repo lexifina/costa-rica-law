@@ -1,0 +1,2 @@
+ARTÍCULO 7- Servicios del Sinabi. El Sistema Nacional de Bibliotecas (Sinabi) brinda a la Benemérita Biblioteca Nacional Miguel Obregón Lizano servicios de las Unidades Técnica, Automatización, Administrativa y Financiera, Proyectos de Mantenimiento y Construcción, Dirección General y cualquier otro servicio que se requiera para cumplir sus funciones.
+El Sinabi debe asegurar la dotación de equipos, mobiliario, implementos, útiles de oficina, transporte, infraestructura y otros recursos necesarios para la correcta operación de la institución.
