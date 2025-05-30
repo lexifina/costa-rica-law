@@ -1,3 +1,8 @@
-Artículo 104.- Unidades de la Escuela de Capacitación Penitenciaria. Para lograr brindar el servicio de forma eficiente, la Escuela de Capacitación Penitenciaria cuenta con dos unidades de trabajo con sus respectivas funciones:
-1. Unidad de Desarrollo Académico; y
-2. Unidad de Apoyo Técnico.
+SECCIÓN I
+UNIDAD DE CÓMPUTO DE PENAS
+Artículo 104.- Funciones de la Unidad de Cómputo de Penas. La Unidad de Cómputo de Penas tiene las siguientes funciones:
+1. Realizar la contabilidad de la ejecución de la pena privativa de libertad de la totalidad de la población penitenciaria del país que se encuentra ejecutando una pena o medida alternativa;
+2. Emitir la documentación relativa del cumplimiento de la pena con prisión, el cumplimiento de la pena con descuento, el derecho a libertad condicional, el cumplimiento del tercio de la pena;
+3. Emitir constancias para diferentes fines solicitados por jueces de ejecución de la pena, familiares de las personas privadas de libertad, de los centros penitenciarios, abogados y personas privadas de libertad; y
+4. Confeccionar la ficha de información en que consten las fechas de cumplimiento de la pena de la persona sentenciada.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 101 al artículo 104)

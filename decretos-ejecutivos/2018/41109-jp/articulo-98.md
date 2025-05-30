@@ -1,13 +1,10 @@
-SECCIÓN II
-UNIDAD AGROPECUARIA
-Artículo 98.- Funciones de la Unidad Agropecuaria. La Unidad Agropecuaria tiene las siguientes funciones:
-1. Planear, programar y dirigir la actividad agropecuaria en los centros penitenciarios a nivel nacional, asignando, investigando y actualizando conocimientos para maximizar la utilización de los recursos disponibles;
-2. Planear, formular, dirigir y evaluar proyectos agropecuarios a implementar en el sistema penitenciario nacional, con indicadores de factibilidad económica y ocupacional, con el propósito de generar fuentes de trabajo para la población privada de libertad, como parte de su atención técnica y profesional;
-3. Confeccionar el plan anual de trabajo de las actividades agropecuarias por proyecto y por centro penitenciario;
-4. Determinar el presupuesto requerido para cada proyecto que contempla el programa de trabajo, definiendo los requerimientos de los proyectos, para que sea asignado el mismo, con la finalidad de atender los proyectos respectivos;
-5. Supervisar técnicamente y administrativamente los proyectos agropecuarios que conforme el programa anual se desarrolla en cada centro, realizando el seguimiento oportuno;
-6. Suministrar para cada proyecto los insumos requeridos y contemplados en el programa de trabajo;
-7. Participar en los análisis técnicos que generan los trámites administrativos de compra de los insumos requeridos para el desarrollo de los proyectos;
-8. Coordinar con entidades públicas y privadas, lo relativo al programa y proyectos a su cargo;
-9. Coordinar con la Unidad de Servicios de Alimentación, la colocación dentro del sistema penitenciario nacional de la producción obtenida en los proyectos agropecuarios; y
-10. Ejecutar otras tareas propias del cargo.
+CAPÍTULO IV
+DEPARTAMENTO INDUSTRIAL Y AGROPECUARIO
+Artículo 98.- Funciones del Departamento Industrial y Agropecuario. El Departamento Industrial y Agropecuario depende jerárquicamente de la Dirección General de Adaptación Social y tiene las siguientes funciones:
+1. Elaborar, organizar, dirigir y administrar los proyectos industriales y agropecuarios en los centros del sistema penitenciario nacional;
+2. Orientar, en coordinación con el Departamento Técnico, el trabajo de las personas privadas de libertad;
+3. Gestionar y asesorar todo lo relativo a la adquisición de maquinaria, materiales, herramientas y complementos necesarios para las actividades industriales y agropecuarias del sistema penitenciario nacional;
+4. Gestionar y recomendar el nombramiento de los funcionarios necesarios para el desarrollo de los programas del departamento;
+5. Planificar y ejecutar los proyectos productivos de naturaleza agrícola, industrial o artesanal que se realicen en los centros del sistema penitenciario nacional; y
+6. Ejecutar los procesos de control, producción, inversión y mercadeo de los mismos, definidos por el Departamento Administrativo.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 95 al artículo 98)

@@ -1,13 +1,19 @@
-SECCIÓN IV
-UNIDAD DE DESARROLLO
-Artículo 56.- Funciones de la Unidad de Desarrollo. La Unidad de Desarrollo tiene las siguientes funciones:
-1. Coordinar con instituciones públicas y privadas, programas de capacitación y formación;
-2. Coordinación con el departamento de Escuela de Capacitación Penitenciaria la programación de procesos de capacitación y formación, al personal del Programa 783;
-3. Desarrollar programas de capacitación orientados a mejorar el desempeño laboral;
-4. Implementar metodologías de evaluación, para medir las actividades de capacitación en el personal;
-5. Realizar estudio de necesidades, planificación y reconocimiento de la gestión de la capacitación, formación y especialización;
-6. Analizar y recomendar el reconocimiento de actividades de capacitación y licencias para estudios con goce de salario, según la normativa establecida;
-7. Elaborar el diagnóstico de necesidades de capacitación en los programas presupuestarios 779, 780 y 783;
-8. Elaborar el plan institucional de capacitación para los programas presupuestarios 779, 780 y 783;
-9. Mantener actualizados los registros de facilitadores, programas desarrollados, personal capacitado, con el fin de satisfacer necesidades internas; y
-10. Tramitar y controlar los contratos de estudios.
+SECCIÓN I
+UNIDAD DE ORGANIZACIÓN Y EMPLEO
+Artículo 56.- Funciones de la Unidad de Organización y Empleo. La Unidad de Organización y Empleo tiene las siguientes funciones:
+1. Reclutar y seleccionar el personal requerido por las diversas dependencias institucionales;
+2. Coordinar la aplicación de pruebas psicológicas, médicas y físicas para el reclutamiento y selección del personal de seguridad;
+3. Realizar la inducción a las personas que ingresan a laborar por primera vez a la institución;
+4. Dar seguimiento al personal de nuevo ingreso durante su periodo de prueba;
+5. Diseñar y promocionar la carrera administrativa;
+6. Tramitar la incorporación del personal correspondiente al Estatuto Policial;
+7. Realizar estudios de rotación de personal;
+8. Realizar la movilidad o promoción incluida la funcional (variación de tareas) y la geográfica (reubicación) a las personas;
+9. Realizar la desvinculación de personas de la institución;
+10. Mantener y actualizar el sistema de clasificación de puestos de la institución;
+11. Definir necesidades de clases de puestos que requiera la institución;
+12. Analizar variaciones sustanciales y permanentes de tareas, responsabilidades o condiciones organizacionales, de los puestos propios de la institución;
+13. Ajustar y mantener actualizados los manuales de clasificación de puestos y cargos, que requiera la institución;
+14. Desarrollar estudios de productividad relacionados con optimización del recurso humano, aprovechamiento del tiempo laboral, estudios de cargas de trabajo; y
+15. Generar los perfiles de trabajo y las competencias necesarias para su correcto desempeño.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 53 al artículo 56)

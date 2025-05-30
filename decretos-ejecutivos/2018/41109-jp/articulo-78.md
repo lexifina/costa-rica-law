@@ -1,15 +1,23 @@
-CAPÍTULO VII
-DEPARTAMENTO FINANCIERO
-Artículo 78.- Funciones del Departamento Financiero. El Departamento Financiero depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
-1. Coordinar con las diferentes unidades ejecutoras de presupuesto la elaboración del anteproyecto presupuestario;
-2. Vigilar que la actividad presupuestaria del Ministerio de Justicia y Paz esté acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto y la Contraloría General de la República;
-3. Coordinar, redactar y consolidar el anteproyecto de presupuesto del Ministerio de Justicia y Paz, atendiendo la normativa, vigente y la normativa técnica establecida, y dictada por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices generales y específicos emitidos por la Autoridad Presupuestaria, y la Contraloría General de la República;
-4. Consolidar y presentar a la máxima autoridad institucional la programación de la ejecución física y financiera del presupuesto, una vez autorizada y aprobada por la Dirección General de Presupuesto y velar por su cumplimiento;
-5. Velar por el cumplimiento de la programación física y financiera del presupuesto;
-6. Registrar los documentos de ejecución presupuestaria de cada programa, subprograma, y actividad, mediante los medios informáticos y materiales, que establezca la Contabilidad Nacional, sin perjuicio de la supervisión que esta ejerza y de la fiscalización superior de la Contraloría General de la República y la Auditoria Interna del Ministerio de Justicia y Paz;
-7. Ejercer el control jurídico, contable y técnico de los documentos de ejecución presupuestaria, conforme a la normativa legal, y reglamentaria vigente;
-8. Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respalden las operaciones financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinación con la Contraloría General de la República;
-9. Administrar la caja chica autorizada por la Tesorería Nacional de conformidad con las disposiciones que se establezcan para tal efecto;
-10. Proponer a la Tesorería Nacional los pagos que correspondan por lo bienes y/o servicios adquiridos de conformidad con las regulaciones que al efecto este defina;
-11. Valorar periódicamente los resultados de la ejecución, según los recursos presupuestarios asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad; y
-12. Dar contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los ejecutores, de la estructura presupuestaria.
+SECCIÓN I
+UNIDAD DE DESARROLLO DE APLICACIONES
+Artículo 78.- Funciones de la Unidad de Desarrollo de Aplicaciones. La Unidad de Desarrollo de Aplicaciones tiene las siguientes funciones:
+1. Coordinar, ejecutar, controlar, evaluar y dar seguimiento a todas las fases de desarrollo e implantación de sistemas desarrollados, según recursos internos y externos;
+2. Formular y ejecutar estrategias para minimizar el riesgo que presenten los proyectos, logrando que los mismos rindan los beneficios esperados, satisfagan los requerimientos y cumplan con los términos y costos preestablecidos;
+3. Establecer una metodología de desarrollo e implantación de sistemas y paquetes, basada en estándares y mejores prácticas internacionales;
+4. Administrar la ejecución de los proyectos de tecnologías de información o implementación de paquetes contratados externamente, ya sean para sistemas nuevos o para el mantenimiento de los sistemas existentes;
+5. Brindar criterio técnico respecto a los términos de referencia, en conjunto con los usuarios funcionales, expertos externos para la adquisición de aplicaciones informáticas;
+6. Brindar criterio técnico sobre los dispositivos y programas que requiere el Ministerio de Justicia y Paz para su operación;
+7. Promover la actualización continua del personal, en herramientas de desarrollo, paquetes de aplicación y metodologías de desarrollo, implantación de paquetes y gestión de cambio;
+8. Ejecutar las labores de mantenimiento correctivo, perfectivo o evolutivo, que requieren los sistemas que se encuentran en operación;
+9. Brindar inducción a los usuarios en el uso de los diferentes sistemas en operación;
+10. Administrar los servidores de bases de datos de la institución;
+11. Establecer un ambiente físico, seguro y controlado, con medidas de protección fundamentadas en políticas vigentes y análisis de riesgos, para la continuidad de los sistemas de información;
+12. Ejecutar los procesos de respaldo de las aplicaciones y bases de datos, de las soluciones basadas en tecnología de información;
+13. Administrar las bases de datos utilizadas por las aplicaciones institucionales, para el óptimo desempeño de las mismas;
+14. Monitorear y evaluar el crecimiento de las bases de datos y uso de espacio de almacenamiento;
+15. Crear los diccionarios de las bases de datos nuevas y las existentes;
+16. Instalar y administrar sistemas de administración de base de datos (DBMS);
+17. Instruir al personal en la utilización del sistema administrador de bases de datos, cuando así se requiera;
+18. Recomendar la compra de equipos y aplicaciones para desarrollo y administración de base de datos; y
+19. Atender cualquier otra gestión propia de su competencia.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 75 al artículo 78)

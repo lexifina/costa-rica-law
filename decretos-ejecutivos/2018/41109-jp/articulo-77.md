@@ -1,10 +1,5 @@
-SECCIÓN III
-UNIDAD DE SOPORTE TÉCNICO
-Artículo 77.- Funciones de la Unidad de Soporte Técnico. La Unidad de Soporte Técnico tiene las siguientes funciones:
-1. Definir las normas, procedimientos y estándares a seguir en materia de servicio al usuario;
-2. Brindar monitoreo y evaluación continua de la capacidad resolutiva, previo a trasladar una incidencia a otra unidad de Tecnología de Información;
-3. Definir requerimientos con base en la finalidad y uso del equipo;
-4. Evaluar periódicamente los equipos para determinar su estado y garantizar su adecuado uso;
-5. Supervisar y controlar las labores relacionadas con la instalación de software de automatización de oficinas y del equipo;
-6. Sugerir la distribución de los equipos nuevos o usados, según las necesidades detectadas, mediante la evaluación de los equipos existentes; y
-7. Mantener en buen estado de funcionamiento y operación los equipos informáticos requeridos por la institución.
+Artículo 77.- Unidades del Departamento de Tecnología de Información. El Departamento de Tecnología de Información cuenta con tres unidades de trabajo, con sus respectivas funciones:
+1. Unidad de Desarrollo de Aplicaciones;
+2. Unidad de Infraestructura Tecnológica; y
+3. Unidad de Soporte Técnico.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 74 al artículo 77)

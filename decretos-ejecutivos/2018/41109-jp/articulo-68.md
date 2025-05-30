@@ -1,12 +1,15 @@
-SECCIÓN II
-UNIDAD DE BIENESTAR SOCIO-LABORAL
-Artículo 68.- Funciones de la Unidad de Bienestar Socio-Laboral. La Unidad de Bienestar Socio-Laboral tiene las siguientes funciones:
-1. Realizar actividades de promoción y capacitación en seguridad e higiene ocupacional;
-2. Asesorar y emitir criterio técnico, a las diferentes instancias de la institución, en el campo de salud ocupacional;
-3. Capacitar al personal respecto a los regímenes de pensiones y brindar talleres de sensibilización a quienes estén próximos a acogerse a la jubilación;
-4. Elaborar y coordinar la implementación de planes de emergencia para las diferentes dependencias de la institución;
-5. Identificar y evaluar riesgos y factores de riesgos laborales, en los diferentes centros de trabajo y emitir las recomendaciones técnicas tendientes a eliminarlos o minimizarlos;
-6. Analizar y documentar los accidentes y enfermedades laborales del personal y emitir las medidas correctivas;
-7. Atender y dar seguimiento a las órdenes sanitarias emitidas por el Ministerio de Salud;
-8. Realizar estudios de seguridad e higiene ocupacional; y
-9. Promover la conformación de Comisiones de Salud Ocupacional en el Ministerio de Justicia y Paz.
+CAPÍTULO IV
+DEPARTAMENTO DE SALUD OCUPACIONAL
+Artículo 68.- Funciones del Departamento de Salud Ocupacional. El Departamento de Salud Ocupacional depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
+1. Impulsar el desarrollo de políticas sociales en salud laboral, orientadas a mejorar la calidad de vida laboral;
+2. Realizar la evaluación y monitoreo de las condiciones de trabajo;
+3. Realizar diagnósticos de seguridad e higiene ocupacional;
+4. Promover y mantener el adecuado nivel de bienestar físico, mental y social de los funcionarios y funcionarias del Ministerio de Justicia y Paz, mediante la implementación de la Comisión de Salud Ocupacional de la institución y las Comisiones de Salud Ocupacional en centros penitenciarios;
+5. Desarrollar capacitaciones de promoción en temas de salud, seguridad e higiene ocupacional;
+6. Brindar el servicio de médico de empresa;
+7. Realizar evaluaciones médicas, requeridas por las distintas dependencias de la institución;
+8. Brindar atención a funcionarias y funcionarios, para contribuir al bienestar biopsicosocial;
+9. Evaluar y recomendar el uso de equipo de protección personal para la ejecución del quehacer institucional;
+10. Determinar factores que generen riesgos para la salud e integridad de las funcionarias y funcionarios, recomendando las medidas correctivas correspondientes; y
+11. Emitir criterio técnico, relacionado con la salud ocupacional a las diferentes instancias de la institución, para la toma de decisiones relacionadas, en materia de reubicación, traslado de personal, así como el rediseño de funciones o puestos.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 65 al artículo 68)

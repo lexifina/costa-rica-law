@@ -14,3 +14,4 @@ Reglamento de organización administrativa del Ministerio de Justicia y Paz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-21 | la propia norma |
+| 2 | 2025-05-30 | Decreto Ejecutivo 45152 (2025-05-30) |

@@ -1,14 +1,18 @@
-CAPÍTULO IV
-DEPARTAMENTO DE SALUD OCUPACIONAL
-Artículo 65.- Funciones del Departamento de Salud Ocupacional. El Departamento de Salud Ocupacional depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
-1. Impulsar el desarrollo de políticas sociales en salud laboral, orientadas a mejorar la calidad de vida laboral;
-2. Realizar la evaluación y monitoreo de las condiciones de trabajo;
-3. Realizar diagnósticos de seguridad e higiene ocupacional;
-4. Promover y mantener el adecuado nivel de bienestar físico, mental y social de los funcionarios y funcionarias del Ministerio de Justicia y Paz, mediante la implementación de la Comisión de Salud Ocupacional de la institución y las Comisiones de Salud Ocupacional en centros penitenciarios;
-5. Desarrollar capacitaciones de promoción en temas de salud, seguridad e higiene ocupacional;
-6. Brindar el servicio de médico de empresa;
-7. Realizar evaluaciones médicas, requeridas por las distintas dependencias de la institución;
-8. Brindar atención a funcionarias y funcionarios, para contribuir al bienestar biopsicosocial;
-9. Evaluar y recomendar el uso de equipo de protección personal para la ejecución del quehacer institucional;
-10. Determinar factores que generen riesgos para la salud e integridad de las funcionarias y funcionarios, recomendando las medidas correctivas correspondientes; y
-11. Emitir criterio técnico, relacionado con la salud ocupacional a las diferentes instancias de la institución, para la toma de decisiones relacionadas, en materia de reubicación, traslado de personal, así como el rediseño de funciones o puestos.
+SECCIÓN II
+UNIDAD DE CONTRATACIÓN ADMINISTRATIVA
+Artículo 65.- Funciones de la Unidad de Contratación Administrativa. La Unidad de Contratación Administrativa tiene las siguientes funciones:
+1. Programar, dirigir y tramitar los procedimientos de contratación administrativa;
+2. Recibir, revisar y analizar todo tipo de documentos que amparen o estén relacionados con la actividad de la Proveeduría Institucional, verificando conforme el ordenamiento jurídico la modalidad de contratación que corresponda;
+3. Elaborar o adecuar los carteles o pliegos de condiciones que le someten a su consideración las dependencias requirentes de bienes y servicios, en los distintos procedimientos de contratación administrativa, dándole la publicidad necesaria, en los medios legalmente establecidos;
+4. Llevar un control de los expedientes de cada contratación administrativa y mantener un archivo para la custodia de los mismos;
+5. Poner a disposición de todos los interesados un sistema de consulta expedita;
+6. Recibir, custodiar y dar seguimiento en cuanto a su vigencia, a los documentos de garantías tanto de participación como de cumplimiento y de cualquier otra índole, que presenten los participantes en los procedimientos de contratación administrativa;
+7. Analizar las ofertas recibidas en los procedimientos de contratación con base en los términos que contemple el cartel de licitación y evaluar las elegibles, conforme el sistema y método previsto en aquel, sometiendo sus conclusiones a la Comisión de Recomendación de Adjudicación;
+8. Remitir al órgano interno, la respectiva documentación para que éste elabore el proyecto de formalización contractual, gestione su respectiva suscripción, así como la obtención del refrendo del órgano contralor o la aprobación interna, según el caso;
+9. Generar en el sistema automatizado de contratación, el documento de ejecución presupuestaria denominado "Pedido" únicamente con posterioridad a que el correspondiente acto de adjudicación adquiera firmeza;
+10. Realizar todos los trámites requeridos para el pago de contrataciones con proveedores radicados en el exterior, así como lo relativo a las exenciones de impuestos que resulten aplicables y al desalmacenaje de las mercancías correspondientes;
+11. Controlar las garantías presentadas por las empresas oferentes, en los diferentes concursos que sean promovidos;
+12. Verificar que las garantías que presentan las empresas se ajusten a lo estipulado en la Ley N°7494 del 02 de mayo de 1995, Ley de Contratación Administrativa y el Decreto Ejecutivo N°33411 del 27 de setiembre de 2006;
+13. Registrar y conciliar los movimientos contables referentes a las garantías de participación y cumplimiento, de manera que se garantice la confiabilidad de la información; y
+14. Atender cualquier otra gestión propia de su competencia.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 62 al artículo 65)

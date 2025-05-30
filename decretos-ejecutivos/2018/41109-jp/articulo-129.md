@@ -1,8 +1,2 @@
-Artículo 129.- Oficinas del Nivel de Atención en Comunidad. Las siguientes oficinas, ordenadas por provincia, conforman el Nivel de Atención en Comunidad:
-1. San José: Oficina de Atención en Comunidad San José y Oficina de Atención en Comunidad Pérez Zeledón;
-2. Alajuela: Oficina de Atención en Comunidad Alajuela, Oficina de Atención en Comunidad San Ramón y Oficina de Atención en Comunidad San Carlos;
-3. Cartago: Oficina de Atención en Comunidad Cartago;
-4. Heredia: Oficina de Atención en Comunidad Heredia;
-5. Guanacaste: Oficina de Atención en Comunidad Liberia, Oficina de Atención en Comunidad Santa Cruz y Oficina del Atención en Comunidad Nicoya.
-6. Puntarenas: Oficina de Atención en Comunidad Puntarenas y Oficina de Atención en Comunidad Ciudad Neilly; y
-7. Limón: Oficina de Atención en Comunidad Limón y Oficina de Atención en Comunidad Pococí.
+Artículo 129.- Objetivo principal. El principal objetivo de este nivel es desarrollar acciones de atención profesional, seguimiento y control personal, comunitario y laboral, sobre la población beneficiada, con la participación activa de las redes de apoyo. Se caracteriza por la interacción directa de la persona privada de libertad con el medio familiar, laboral y comunitario, favoreciendo su permanencia en el medio social, y para ello coordinará con otros niveles de atención para la reubicación de esta población.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 126 al artículo 129)

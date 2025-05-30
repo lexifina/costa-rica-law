@@ -1,9 +1,11 @@
-SECCIÓN I
-UNIDAD DE TESORERÍA
-Artículo 80.- Funciones de la Unidad de Tesorería. La Unidad de Tesorería tiene las siguientes funciones:
-1. Administrar los activos y pasivos corrientes de la institución, ejerciendo control de forma y fondo sobre cada operación, recaudando y custodiando los ingresos y valores, y pagando todos los compromisos institucionales que sean legalmente contraídos con cargo a los recursos financieros de la institución;
-2. Planificar, organizar, dirigir y controlar los recursos financieros asignados por la Tesorería Nacional al Fondo General de Caja Chica del ministerio;
-3. Administrar y custodiar los dineros y valores que se generen, así como atender el pago de las obligaciones;
-4. Dar contenido presupuestario a los documentos de ejecución tramitados por medio de las reservas de efectivo de caja chica destinados por cada programa presupuestario para compras menores y urgentes;
-5. Rendir informes propios de la gestión de la Tesorería a nivel institucional; y
-6. Atender cualquier otra gestión propia de su competencia.
+SECCIÓN III
+UNIDAD DE SOPORTE TÉCNICO
+Artículo 80.- Funciones de la Unidad de Soporte Técnico. La Unidad de Soporte Técnico tiene las siguientes funciones:
+1. Definir las normas, procedimientos y estándares a seguir en materia de servicio al usuario;
+2. Brindar monitoreo y evaluación continua de la capacidad resolutiva, previo a trasladar una incidencia a otra unidad de Tecnología de Información;
+3. Definir requerimientos con base en la finalidad y uso del equipo;
+4. Evaluar periódicamente los equipos para determinar su estado y garantizar su adecuado uso;
+5. Supervisar y controlar las labores relacionadas con la instalación de software de automatización de oficinas y del equipo;
+6. Sugerir la distribución de los equipos nuevos o usados, según las necesidades detectadas, mediante la evaluación de los equipos existentes; y
+7. Mantener en buen estado de funcionamiento y operación los equipos informáticos requeridos por la institución.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 77 al artículo 80)

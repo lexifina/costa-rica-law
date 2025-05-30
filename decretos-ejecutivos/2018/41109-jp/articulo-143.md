@@ -1,5 +1,5 @@
-Artículo 143.- Unidades del Departamento de Planes y Operaciones. El Departamento Planes y Operaciones cuenta con cuatro unidades de trabajo, con sus respectivas funciones:
-1. Unidad de Planeamiento Estratégico y Táctico;
-2. Unidad de Monitoreo y Comunicaciones;
-3. Unidad de Intervención Policial; y
-4. Unidad Canina.
+Artículo 143.- Departamentos de la Dirección de la Policía Penitenciaria. La Dirección de la Policía Penitenciaria está conformado por los siguientes departamentos:
+1. Departamento de Supervisión, Custodia y Vigilancia Penitenciaria;
+2. Departamento de Planes y Operaciones; y
+3. Departamento de Información e Inteligencia Penitenciaria.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 140 al artículo 143)

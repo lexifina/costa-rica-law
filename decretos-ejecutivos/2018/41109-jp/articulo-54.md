@@ -1,10 +1,9 @@
-SECCIÓN II
-UNIDAD DE APLICACIONES Y COMPENSACIONES
-Artículo 54.- Funciones de la Unidad de Aplicaciones y Compensaciones. La Unidad de Aplicaciones y Compensaciones tiene las siguientes funciones:
-1. Velar por el correcto trámite y aplicación de las gestiones relacionadas con la administración de salarios derivados de la relación laboral;
-2. Tramitar, ejecutar y controlar el contenido económico para asignar, reasignar, reclasificar, los puestos de la institución;
-3. Administrar el cobro de las sumas acreditadas que no corresponden;
-4. Velar por la correcta aplicación en el sistema de pagos, en acato a las disposiciones que en materia de salario se emitan;
-5. Generar la propuesta de pago, según los cálculos, proyecciones y resoluciones de pago de extremos laborales;
-6. Realizar la administración de salarios y los reconocimientos no monetarios; y
-7. Administración de incentivos y beneficios de los funcionarios del Ministerio de Justicia y Paz.
+CAPÍTULO II
+DEPARTAMENTO DE GESTIÓN INSTITUCIONAL DE RECURSOS HUMANOS
+Artículo 54.- Funciones del Departamento de Gestión Institucional de Recursos Humanos. El Departamento de Gestión Institucional de Recursos Humanos depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
+1. Planear, organizar, dirigir y controlar los procesos de gestión de recursos humanos del Ministerio de Justicia y Paz, además de asesorar y orientar a superiores, jefaturas y funcionarios en dicha materia, considerando especialmente los roles de las autoridades de línea hacia sus colaboradores;
+2. Aplicar las políticas y normativa que en materia de gestión de recursos humanos emitan la Dirección General de Servicio Civil y otras entidades que por ley tengan competencia afín;
+3. Comunicar a la Dirección General de Servicio Civil el resultado de las acciones ejecutadas, coordinando con la instancia competente de dicha Dirección General los aspectos relacionado con el desarrollo y transferencia técnica necesaria en materia de la gestión de recursos humanos en el régimen de Servicio Civil, tanto de orden institucional como aquellos de alcance sectorial;
+4. Suministrar la información que le solicite la Dirección General de Servicio Civil o cualquiera de sus dependencias, referente a las actividades que se desarrollan, cumpliendo con las políticas, directrices y lineamientos necesarios relacionados con el control que requieren los diversos procesos delegados, propios de la gestión de recursos humanos cubiertos por el ámbito del Estatuto de Servicio Civil y su Reglamento; y
+5. Ejecutar la provisión del empleo público específica de ingreso al régimen de Servicio Civil, requerida por el Ministerio de Justicia y Paz, mediante concursos internos y externos, preparación de las tablas de reemplazo o sucesión, conforme lo establece la normativa vigente, así como la planificación que debe realizarse en este campo, en coordinación con la instancia competente de la Dirección General de Servicio Civil, considerando además las reservas presupuestarias requeridas.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 51 al artículo 54)

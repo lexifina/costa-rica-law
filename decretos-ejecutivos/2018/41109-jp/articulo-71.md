@@ -1,12 +1,13 @@
-SECCIÓN I
-UNIDAD DE TRANSPORTES
-Artículo 71.- Funciones de la Unidad de Transportes. La Unidad de Transportes tiene las siguientes funciones:
-1. Ejecutar las medidas de conservación y control, en cuanto al uso de vehículos institucionales;
-2. Velar por el cumplimiento de las disposiciones contenidas en los reglamentos y circulares en la materia;
-3. Implementar un registro en que se incluya el historial, adquisición, medidas de conservación, mantenimiento, seguros, accidentes y cualquier otra información de la flotilla vehicular institucional;
-4. Atender y tramitar los asuntos administrativos relativos al uso de vehículos del Ministerio de Justicia y Paz;
-5. Asignar vehículos y operadores de equipo móvil, tomando en cuenta criterios de utilidad y uso racional de esos recursos, para brindar el servicio de transporte;
-6. Realizar el control del uso y kilometraje de los vehículos institucionales;
-7. Velar por el aseguramiento de los vehículos, el seguimiento de accidentes o denuncias y la atención de aquellas otras gestiones derivadas;
-8. Velar por el adecuado mantenimiento, reparaciones y en general por el buen uso de los vehículos, limpieza y revisiones periódicas; y
-9. Atender cualquier otra gestión propia de su competencia.
+SECCIÓN II
+UNIDAD DE BIENESTAR SOCIO-LABORAL
+Artículo 71.- Funciones de la Unidad de Bienestar Socio-Laboral. La Unidad de Bienestar Socio-Laboral tiene las siguientes funciones:
+1. Realizar actividades de promoción y capacitación en seguridad e higiene ocupacional;
+2. Asesorar y emitir criterio técnico, a las diferentes instancias de la institución, en el campo de salud ocupacional;
+3. Capacitar al personal respecto a los regímenes de pensiones y brindar talleres de sensibilización a quienes estén próximos a acogerse a la jubilación;
+4. Elaborar y coordinar la implementación de planes de emergencia para las diferentes dependencias de la institución;
+5. Identificar y evaluar riesgos y factores de riesgos laborales, en los diferentes centros de trabajo y emitir las recomendaciones técnicas tendientes a eliminarlos o minimizarlos;
+6. Analizar y documentar los accidentes y enfermedades laborales del personal y emitir las medidas correctivas;
+7. Atender y dar seguimiento a las órdenes sanitarias emitidas por el Ministerio de Salud;
+8. Realizar estudios de seguridad e higiene ocupacional; y
+9. Promover la conformación de Comisiones de Salud Ocupacional en el Ministerio de Justicia y Paz.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 68 al artículo 71)

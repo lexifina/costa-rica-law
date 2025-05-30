@@ -1,4 +1,5 @@
-SECCIÓN VIII
-NIVEL DE ATENCIÓN EN COMUNIDAD
-Artículo 128.- Nivel de Atención en Comunidad. El Nivel de Atención en Comunidad, además de las funciones que le otorga el Código Procesal Penal para las penas y medidas alternativas, es responsable de controlar, monitorear y dar seguimiento a las condiciones de cumplimiento de las personas sujetas a medidas de seguridad de consulta externa, libertad condicional, incidente de enfermedad, suspensión condicional de la pena con condiciones específicas, sanciones no privativas de libertad y otros beneficios.
-Este nivel se caracteriza por la atención de la población en su entorno social externo. Su personal debe facilitar la atención de la población en coordinación con entes comunitarios y desplegará acciones tendentes a la sensibilización, movilización y organización de la comunidad.
+SECCIÓN VII
+NIVEL DE ATENCIÓN SEMINSTITUCIONAL
+Artículo 128.- Nivel de Atención Seminstitucional. El Nivel de Atención Seminstitucional atiende y controla el plan de ejecución penal de las personas privadas de libertad sentenciadas, con una modalidad de ejecución de la pena en condiciones de menor contención física y con el soporte de redes externas de apoyo. Para la población penal sin recurso externo idóneo o suficiente, se desarrollarán proyectos alternativos que faciliten su paulatina desinstitucionalización.
+Este nivel se caracteriza por el establecimiento de una red de interacción con instituciones públicas, privadas, organizaciones comunales y grupos de autoayuda, con la finalidad de movilizar recursos de apoyo para favorecer los procesos de atención y seguimiento de la población beneficiada.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 125 al artículo 128)

@@ -1,11 +1,11 @@
-SECCIÓN I
-UNIDAD DE PROGRAMACIÓN Y CONTROL
-Artículo 61.- Funciones de la Unidad de Programación y Control. La Unidad de Programación y Control tiene las siguientes funciones:
-1. Planificar y programar todas las contrataciones de interés del Ministerio de Justicia y Paz, estableciendo con precisión las condiciones generales, las especificaciones técnicas y las normas de calidad correspondientes;
-2. Mantener en coordinación con la Dirección General de Administración de Bienes y Contratación Administrativa, debidamente actualizado el registro de proveedores de la Administración Central;
-3. Tener disponible y accesible a las demás unidades administrativas de la Proveeduría Institucional, el catálogo de mercancías de la Administración Central y precios de referencia;
-4. Controlar y fiscalizar tanto la correcta utilización de los procedimientos de contratación administrativa por parte de los funcionarios competentes, como el correcto funcionamiento del subsistema de almacenamiento y distribución de bienes;
-5. Informar a la Dirección de Bienes y Contratación Administrativa, cuando se tuviere conocimiento de la existencia de personas físicas o jurídicas afectadas por el régimen de prohibiciones, con el fin de que esta actualice sus registros;
-6. Verificar la corrección de la orden de inicio dada en los procedimientos de contratación, incluyendo el cumplimiento de los requisitos previos, lo mismo que sobre los carteles de los diferentes procedimientos de contratación elaborados por la unidad de contrataciones, oferentes invitados cuando corresponda, fecha de apertura de los concursos y sobre la determinación del procedimiento de contratación a seguir según su naturaleza o monto;
-7. Mantener controles sobre las contrataciones que se pacten y velar porque éstas se cumplan, de acuerdo con los programas, fechas establecidas; y
-8. Atender cualquier otra gestión propia de su competencia.
+SECCIÓN VI
+UNIDAD DE RELACIONES LABORALES
+Artículo 61.- Funciones de la Unidad de Relaciones Laborales. La Unidad de Relaciones Laborales tiene las siguientes funciones:
+1. Realizar la evaluación y monitoreo del clima organizativo, políticas y prácticas de comunicación ascendente y descendente, mantenimiento y mejora de la percepción de la satisfacción global de los colaboradores;
+2. Participar en la negociación y mediación de conflictos interpersonales e intergrupales, cuando así se requiera;
+3. Realizar la evaluación y monitoreo de las relaciones entre la organización y actores sociales (sindicatos, gremios, asociaciones);
+4. Realizar evaluaciones de la gestión de recursos humanos, incorporando una revisión sistemática y formalmente estructurada para medir sus costos, beneficios del programa integral de Gestión Institucional de Recursos Humanos en la institución para comprobar su eficiencia, eficacia y calidad, en términos de su contribución con los objetivos organizacionales;
+5. Emisión de criterios legales y atención de consultas, relativas a la materia de relaciones laborales;
+6. Estudios de mejoramiento del clima organizacional y satisfacción laboral; y
+7. Atención de recursos de amparo y/o asesoría, en materia de relaciones laborales.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 58 al artículo 61)

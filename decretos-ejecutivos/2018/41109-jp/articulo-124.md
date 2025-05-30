@@ -1,4 +1,2 @@
-Artículo 124.- Centros del Nivel de Unidades de Atención Integral. Los siguientes centros conforman el Nivel de Unidades de Atención Integral:
-1. Unidad de Atención Integral Reinaldo Villalobos Zúñiga;
-2. Unidad de Atención Integral Pablo Presbere (Pabru Presberi); y
-3. Unidad de Atención Integral 20 de diciembre de 1979.
+Artículo 124.- Centro del Nivel de Atención a la Población Adulta Mayor. El Nivel de Atención a la Población Adulta Mayor lo conforma el Centro Nacional de Atención a la Persona Adulta Mayor.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 121 al artículo 124)

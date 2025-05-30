@@ -1,17 +1,16 @@
-CAPÍTULO III
-DEPARTAMENTO DE PLANES Y OPERACIONES
-Artículo 142.- Funciones del Departamento de Planes y Operaciones. El Departamento de Planes y Operaciones depende jerárquicamente de la Dirección de la Policía Penitenciaria y tiene las siguientes funciones:
-1. Planificar, coordinar, supervisar y participar en los diversos operativos policiales ordinarios y extraordinarios para el mantenimiento de la seguridad y control institucional de los centros penitenciarios del país, velando por el estricto cumplimiento de la normativa vigente y de las políticas, directrices y lineamientos emanadas por la Dirección de la Policía Penitenciaria;
-2. Brindar soporte operacional y técnico a los centros penitenciarios de la Dirección General de Adaptación Social y unidades policiales que conforman la Dirección de la Policía Penitenciaria;
-3. Proveer información a la Dirección de la Policía Penitenciaria sobre situaciones operativas, así como elaborar programas, proyectos e informes orientados a mejorar la función operacional de la Policía Penitenciaria;
-4. Responder a las órdenes generadas de los informes de inteligencia policial mediante acciones operativas que permitan el abordaje táctico, estratégico y oportuno de las situaciones o eventos que se presenten en los centros;
-5. Mantener comunicación y coordinación con organismos privados y públicos, de carácter nacional e internacional, con los cuales la Policía Penitenciaria ejecuta acciones policiales;
-6. Coordinar y participar en la atención de las emergencias de índole natural o antrópica que se presenten en centros penitenciarios;
-7. Asegurar que los recursos técnico-tácticos a nivel de insumos de seguridad previamente dispuestos en el departamento sean suplidos en situaciones operativas;
-8. Supervisar la ejecución de las acciones pertinentes con la finalidad de actualizar los sistemas de radio-comunicación, de acuerdo con las necesidades de las diferentes instancias del ministerio, aplicando criterios de racionalidad y orden en la implementación de los sistemas de comunicación;
-9. Supervisar la administración de las redes de comunicación de la Dirección de la Policía Penitenciaria en los diferentes segmentos del espectro radioeléctrico (VHF, UHF, HF), así como su mantenimiento y la interconexión de frecuencias externas de interés policial;
-10. Representar a la institución en diferentes comisiones interinstitucionales, a solicitud de instancias superiores del ministerio;
-11. Retroalimentar y evaluar las prácticas desarrolladas por la Unidad de Intervención Policial, para la emisión de recomendaciones en pro del mantenimiento de la seguridad en los centros penitenciarios;
-12. Informar de los resultados de operativos y evaluaciones consignadas al Director de la Policía Penitenciaria realizadas a través de sus unidades;
-13. Evaluar e implementar métodos y mecanismos actualizados que mejoren la planificación, operación, comunicación, monitoreo y labores de acción operacional en todos los centros penitenciarios del país; y
-14. Todas aquellas que le encomiende el Director de la Policía Penitenciaria.
+Artículo 142.- Funciones del Proceso de Atención Psicológica. El Proceso de Atención Psicológica tiene las siguientes funciones:
+1. Realizar evaluaciones psicológicas y brindar recomendaciones en los casos que sea necesario una adecuación de funciones al puesto de trabajo
+conforme las coordinaciones que se realicen con la Unidad de Bienestar Socio-Laboral del Departamento de Salud Ocupacional;
+2. Realizar evaluaciones psicológicas para la selección del personal de la Policía Penitenciaria que integrará las unidades especiales;
+3. Realizar evaluaciones de idoneidad mental para la portación de armas de fuego, conforme a lo establecido en la Ley N°7530 del 10 de julio de 1995, Ley de Armas y Explosivos, y el Colegio Profesional de Psicólogos de Costa Rica, en aquellos casos que resulte necesario por la condición mental del funcionario;
+4. Realizar evaluaciones psicológicas o acompañamiento conforme lo solicite la Asesoría Jurídica en casos de posible acoso laboral, moral, psicológico y sexual;
+5. Realizar procesos de intervención psicoterapéuticos de enfoque clínico, mediante atención individual o grupal;
+6. Desarrollar procesos de capacitación a la Policía Penitenciaria sobre aspectos que permitan mejorar su desempeño laboral;
+7. Brindar recomendaciones a la Dirección de la Policía Penitenciaria sobre necesidades en materia de capacitación;
+8. Detectar, mediante visitas periódicas a los centros penitenciarios, factores biopsicosociales que generan riesgo para la salud e integridad de los policías penitenciarios y recomendar las medidas correctivas;
+9. Brindar recomendaciones al Departamento de Gestión Institucional de Recursos Humanos sobre criterios y competencias para el reclutamiento y selección del personal de la Policía Penitenciaria;
+10. Asesorar a las diferentes unidades de la Dirección de Policía Penitenciaria en aspectos que permitan mejorar su funcionamiento y gestión institucional a nivel de desenvolvimiento del clima laboral con un enfoque específico tomado a partir del ambiente donde se desempeñan los funcionarios;
+11. Dar soporte en los operativos que lleve a cabo la Policía Penitenciaria, dando respaldo en el manejo de incidentes críticos;
+12. Asesorar a las diferentes jefaturas, para la toma de decisiones relacionadas con la salud mental en materia de reubicación y traslado del personal, así como la readecuación de funciones y puestos; y
+13. Cualquier otra función que les sea asignada dentro de su ámbito de competencia laboral.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 139 al artículo 142)

@@ -1,10 +1,11 @@
-SECCIÓN VI
-UNIDAD DE RELACIONES LABORALES
-Artículo 58.- Funciones de la Unidad de Relaciones Laborales. La Unidad de Relaciones Laborales tiene las siguientes funciones:
-1. Realizar la evaluación y monitoreo del clima organizativo, políticas y prácticas de comunicación ascendente y descendente, mantenimiento y mejora de la percepción de la satisfacción global de los colaboradores;
-2. Participar en la negociación y mediación de conflictos interpersonales e intergrupales, cuando así se requiera;
-3. Realizar la evaluación y monitoreo de las relaciones entre la organización y actores sociales (sindicatos, gremios, asociaciones);
-4. Realizar evaluaciones de la gestión de recursos humanos, incorporando una revisión sistemática y formalmente estructurada para medir sus costos, beneficios del programa integral de Gestión Institucional de Recursos Humanos en la institución para comprobar su eficiencia, eficacia y calidad, en términos de su contribución con los objetivos organizacionales;
-5. Emisión de criterios legales y atención de consultas, relativas a la materia de relaciones laborales;
-6. Estudios de mejoramiento del clima organizacional y satisfacción laboral; y
-7. Atención de recursos de amparo y/o asesoría, en materia de relaciones laborales.
+SECCIÓN III
+UNIDAD DE REGISTRO Y CONTROL
+Artículo 58.- Funciones de la Unidad de Registro y Control. La Unidad de Registro y Control tiene las siguientes funciones:
+1. Actualizar y controlar el Sistema de Información de Recursos Humanos (SIRH);
+2. Formular, en materia salarial, el anteproyecto de presupuesto;
+3. Controlar la suficiencia presupuestaria;
+4. Elaborar reportes de planilla al Instituto Nacional de Seguros y a la Caja Costarricense de Seguro Social;
+5. Mantener una base de datos actualizados de los incentivos de vacaciones y anualidades;
+6. Implementar los mecanismos de control de asistencia; y
+7. Manejar y controlar los expedientes de personal.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 55 al artículo 58)

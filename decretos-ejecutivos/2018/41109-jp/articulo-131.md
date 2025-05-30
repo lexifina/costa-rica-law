@@ -1,12 +1,5 @@
-CAPÍTULO X
-UNIDAD DE INSERCIÓN SOCIAL
-Artículo 131.- Funciones de la Unidad de Inserción Social. La Unidad de Inserción Social tiene las siguientes funciones:
-1. Coordinar y ejecutar acciones para mantener un sistema de información actualizado de personas privadas de libertad que les reste por descontar un año de prisión en alguno de los centros de atención institucional e identificar situaciones de vulnerabilidad, que limiten su adecuada inserción social;
-2. Elaborar y asesorar mediante la recopilación, revisión, análisis y procesamiento de información, los planes de inserción a desarrollar, para la atención de vulnerabilidades de las personas privadas de libertad, próximas a cumplir su sentencia en un centro del sistema penitenciario nacional, en coordinación con los organismos competentes;
-3. Realizar análisis prospectivos con el propósito de promover la celebración de convenios de cooperación sea a nivel nacional como internacional para fortalecer la inserción de las personas privadas de libertad;
-4. Fungir como enlace entre el Ministerio de Justicia y Paz y los diferentes actores sociales interesados, para la promoción, establecimiento y formalización de alianzas y convenios que fortalezcan la inserción de las personas privadas de libertad;
-5. Conformar, administrar y mantener actualizado un banco de ofertas laborales para personas que hayan cumplido su sentencia en un centro de atención institucional;
-6. Brindar apoyo y orientación a las personas que han cumplido su sentencia en algún centro de atención institucional para que puedan optar por alguno de los beneficios de la seguridad social del país, según corresponda;
-7. Promover, coordinar y apoyar el emprendedurismo y la economía social entre las personas en condición de vulnerabilidad un año antes y un año después del cumplimiento de su sentencia en un centro de atención institucional;
-8. Coordinar, integrar y asesorar redes de apoyo para las personas próximas a cumplir su sentencia, para que una vez egresadas del sistema penitenciario nacional su inserción social sea más favorable; y
-9. Evaluar el impacto de los planes y programas, de la Unidad de Inserción Social, mediante el uso de indicadores claves del proceso de inserción social.
+SECCIÓN VIII
+NIVEL DE ATENCIÓN EN COMUNIDAD
+Artículo 131.- Nivel de Atención en Comunidad. El Nivel de Atención en Comunidad, además de las funciones que le otorga el Código Procesal Penal para las penas y medidas alternativas, es responsable de controlar, monitorear y dar seguimiento a las condiciones de cumplimiento de las personas sujetas a medidas de seguridad de consulta externa, libertad condicional, incidente de enfermedad, suspensión condicional de la pena con condiciones específicas, sanciones no privativas de libertad y otros beneficios.
+Este nivel se caracteriza por la atención de la población en su entorno social externo. Su personal debe facilitar la atención de la población en coordinación con entes comunitarios y desplegará acciones tendentes a la sensibilización, movilización y organización de la comunidad.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 128 al artículo 131)

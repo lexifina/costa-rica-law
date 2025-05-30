@@ -1,8 +1,13 @@
-SECCIÓN I
-UNIDAD DE INVESTIGACIÓN Y ESTADÍSTICA
-Artículo 109.- Funciones de la Unidad de Investigación y Estadística. La Unidad de Investigación y Estadística tiene las siguientes funciones:
-1. Elaborar, publicar y divulgar información estadística sobre la caracterización (jurídico-institucional, socio-demográfica), dinámica y evolución de la población privada de libertad del sistema penitenciario nacional;
-2. Remitir, recibir, compartir y procesar información sobre indicadores de interés, generados por instituciones gubernamentales y no gubernamentales, tales como: Instituto Nacional de Estadística y Censos, Instituto Nacional de las Mujeres, Instituto Costarricense sobre Drogas, Sección de Estadística del Poder Judicial, Ministerio de Seguridad Pública, Programa de las Naciones Unidas para el Desarrollo, Instituto Latinoamericano de las Naciones Unidas para la Prevención del Delito y el Tratamiento del Delincuente, Instituto Interamericano de Derechos Humanos. Inclúyase la información constante a docentes, estudiantes universitarios, medios de información colectiva mediante los canales institucionales vigentes y cualquier otro que la administración superior determine;
-3. Promover la investigación criminológico-penitenciaria académico-institucional, tanto con universidades e institutos de investigación, nacionales e internacionales, como con funcionarios, tendiente al estudio de la cuestión criminal y de la problemática carcelaria del país;
-4. Representar a la institución en actividades relacionadas con la investigación social criminológico-penológica, coordinando esfuerzos con diversas instancias públicas, privadas, fundaciones y organizaciones no gubernamentales, en el fomento y desarrollo de investigaciones con carácter social criminológico-penológico; y
-5. Desarrollar investigaciones relacionadas con la intervención profesional de los funcionarios en los centros penitenciarios y su incidencia en la tasa de reincidencia penitenciaria o criminal.
+SECCIÓN II
+UNIDAD DE APOYO TÉCNICO
+Artículo 109.- Funciones de la Unidad de Apoyo Técnico. La Unidad de Apoyo Técnico tiene las siguientes funciones:
+1. Atender las demandas de producción gráfica y audiovisual que se generan en el trabajo institucional;
+2. Diseñar, gestionar y evaluar en coordinación con las instancias institucionales, la gestión de proyectos de promoción de la imagen institucional y el fomento cultural de la organización;
+3. Realizar estudios para satisfacer las demandas de producción gráfica y audiovisual;
+4. Realizar productos gráficos y audiovisuales como respuesta a las demandas de manejo y gestión de la imagen institucional;
+5. Gestionar la adquisición de materiales diversos en el ámbito de la documentación y la información en temas de interés institucional;
+6. Garantizar la correcta clasificación, registro, almacenamiento y disponibilidad para la consulta de documentación e información en temas atinentes a la gestión institucional de la Dirección General de Adaptación Social;
+7. Realizar las coordinaciones interinstitucionales necesarias para mejorar la gestión de compilación de la documentación, información e investigaciones en temas de interés institucional;
+8. Brindar el servicio de consulta más adecuado al usuario interno y externo para el desarrollo de los programas de capacitación e información así como la atención de las necesidades específicas del usuario en temas de interés institucional; y
+9. Divulgar el conocimiento generado a partir de las investigaciones desarrolladas en el ámbito institucional.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 106 al artículo 109)

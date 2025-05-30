@@ -1,12 +1,11 @@
-SECCIÓN II
-UNIDAD DE APOYO TÉCNICO
-Artículo 106.- Funciones de la Unidad de Apoyo Técnico. La Unidad de Apoyo Técnico tiene las siguientes funciones:
-1. Atender las demandas de producción gráfica y audiovisual que se generan en el trabajo institucional;
-2. Diseñar, gestionar y evaluar en coordinación con las instancias institucionales, la gestión de proyectos de promoción de la imagen institucional y el fomento cultural de la organización;
-3. Realizar estudios para satisfacer las demandas de producción gráfica y audiovisual;
-4. Realizar productos gráficos y audiovisuales como respuesta a las demandas de manejo y gestión de la imagen institucional;
-5. Gestionar la adquisición de materiales diversos en el ámbito de la documentación y la información en temas de interés institucional;
-6. Garantizar la correcta clasificación, registro, almacenamiento y disponibilidad para la consulta de documentación e información en temas atinentes a la gestión institucional de la Dirección General de Adaptación Social;
-7. Realizar las coordinaciones interinstitucionales necesarias para mejorar la gestión de compilación de la documentación, información e investigaciones en temas de interés institucional;
-8. Brindar el servicio de consulta más adecuado al usuario interno y externo para el desarrollo de los programas de capacitación e información así como la atención de las necesidades específicas del usuario en temas de interés institucional; y
-9. Divulgar el conocimiento generado a partir de las investigaciones desarrolladas en el ámbito institucional.
+CAPÍTULO VI
+ESCUELA DE CAPACITACIÓN PENITENCIARIA
+Artículo 106.- Funciones de la Escuela de Capacitación Penitenciaria. La Escuela de Capacitación Penitenciaria depende jerárquicamente de la Dirección General de Adaptación Social y tiene las siguientes funciones:
+1. Propiciar mediante la capacitación del personal, condiciones que faciliten el desarrollo laboral penitenciario con una actitud crítica, creativa y constructiva;
+2. Realizar de forma permanente una detección de necesidades de capacitación para los funcionarios de la administración penitenciaria;
+3. Desarrollar un plan anual de capacitación para los funcionarios de la Dirección General de Adaptación Social acorde a la detección de necesidades de capacitación y en concordancia con los fines, principios, y compromisos institucionales, así como de las directrices del Director General de Adaptación Social;
+4. Establecer y desarrollar un currículo básico para los diferentes sectores laborales que conforman la Dirección General de Adaptación Social;
+5. Atender las necesidades de las actividades académicas y culturales de la Escuela, así como el tema de la imagen institucional mediante la producción de materiales gráficos y audiovisuales;
+6. Disponer un acervo documental y bibliográfico donde se preserve y se divulgue, la experiencia institucional y el conocimiento específico de la materia criminológica, prestando un servicio de consulta al usuario interno y externo; y
+7. Gestionar convenios y programas de cooperación con otras instituciones públicas o privadas para el desarrollo del recurso humano.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 103 al artículo 106)

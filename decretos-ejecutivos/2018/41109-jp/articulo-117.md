@@ -1,4 +1,8 @@
-SECCIÓN IV
-NIVEL DE ATENCIÓN A LA MUJER
-Artículo 117.- Nivel de Atención a la Mujer. El Nivel de Atención a la Mujer es el encargado de coordinar los procesos de atención de orden técnico, profesional y administrativo de la población penal femenina. Los procesos de atención particularizada para las mujeres sujetas a sanción penal serán creados y propuestos por el nivel, para la aprobación del Instituto Nacional de Criminología, y deberán ser puestos en vigencia mediante circulares y otras disposiciones normativas.
-También, le corresponde, en todo el sistema penitenciario nacional, prevenir la discriminación estructural, promover los derechos y atender las necesidades específicas de la población penal femenina, para su inserción social de conformidad con las Reglas de Bangkok y demás instrumentos internacionales.
+Artículo 117.- Centros del Nivel de Atención Institucional. Los siguientes centros, ordenados por provincia, conforman el Nivel de Atención Institucional:
+1. San José: Centro de Atención Institucional San José y Centro de Atención Institucional Antonio Bastida de Paz;
+2. Alajuela: Centro de Atención Institucional Jorge Arturo Montero Castro, Centro de Atención Institucional Luis Paulino Mora Mora, Centro de Atención Institucional Doctor Gerardo Rodríguez Echeverría, Centro de Atención Institucional Nelson Mandela y Centro Nacional de Atención Específica;
+3. Cartago: Centro de Atención Institucional Jorge Debravo;
+4. Guanacaste: Centro de Atención Institucional Calle Real;
+5. Puntarenas: Centro de Atención Institucional 26 de julio;
+6. Limón: Centro de Atención Institucional Limón y Centro de Atención Institucional Carlos Luis Fallas.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 114 al artículo 117)

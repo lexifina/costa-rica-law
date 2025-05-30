@@ -1,18 +1,17 @@
-SECCIÓN II
-UNIDAD DE INFRAESTRUCTURA TECNOLÓGICA
-Artículo 76.- Funciones de la Unidad de Infraestructura Tecnológica. La Unidad de Infraestructura Tecnológica tiene las siguientes funciones:
-1. Implementar y mantener en óptimas condiciones las redes de área local o banda ancha instaladas;
-2. Coordinar el establecimiento y monitorear el estado de los enlaces de comunicación de datos, entre la institución y otros entes públicos o privados;
-3. Investigar y evaluar paquetes de monitoreo y mejoramiento de desempeño de redes;
-4. Investigar y divulgar aspectos de interés en el área de comunicación electrónica, mediante boletines, Web, informes;
-5. Definir y aplicar los estándares técnicos para las redes LAN y WAN, equipos de telefonía IP, incluyendo los elementos de hardware y software;
-6. Diseñar, construir y actualizar las redes LAN, WAN, así como la solución de comunicaciones unificadas;
-7. Definir las métricas de calidad de servicio y mecanismos para la obtención de los datos, para la métrica referente al rendimiento de las redes;
-8. Brindar soporte, monitoreo y evaluación del rendimiento de las redes (WAN y LAN);
-9. Realizar simulaciones y proyecciones para las ampliaciones requeridas en las redes LAN y WAN cuando se incorpora una nueva solución o servicio basado en tecnologías de información;
-10. Administrar los servidores de aplicaciones, servidores de páginas Web, servidores de correo, otros servidores (fax, video conferencias);
-11. Evaluar el rendimiento de la plataforma tecnológica institucional de conformidad con los estándares y metodologías definidas a nivel nacional e internacional en esta materia;
-12. Atender de forma especializada las incidencias de la plataforma técnica;
-13. Fungir como gestor técnico en los contratos relacionados con esta unidad;
-14. Recomendar la compra de equipos y aplicaciones para la comunicación de datos; y
-15. Atender cualquier otra gestión propia de su competencia.
+CAPÍTULO VI
+DEPARTAMENTO DE TECNOLOGÍA DE INFORMACIÓN
+Artículo 76.- Funciones del Departamento de Tecnología de Información. El Departamento de Tecnología de Información depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
+1. Promover la definición de políticas, estrategias y programas de trabajo relacionados con tecnología de información, en coordinación con los órganos y dependencias competentes;
+2. Planear, coordinar y supervisar las actividades administrativas y técnicas de las plataformas tecnológicas, para optimizar la gestión institucional;
+3. Determinar los requerimientos de tecnologías de información de la institución;
+4. Definir y aplicar procedimientos, para el mejor aprovechamiento de los recursos informáticos;
+5. Coordinar y formular las especificaciones técnicas y estratégicas para la adquisición de suministros, dispositivos, equipo y servicios que requiera el ministerio;
+6. Establecer mecanismos de control que aseguren el cumplimiento de las normas estándares establecidos y las medidas de seguridad interna;
+7. Emitir criterio técnico, en el campo de tecnologías de información;
+8. Realizar estudios e investigaciones que permitan instrumentar procedimientos que faciliten el uso de la información contenida en las bases de datos y sistemas de información que resulten de interés para la toma de decisiones a los superiores jerárquicos;
+9. Implementar los proyectos de administración de información que requiera la institución;
+10. Dirigir y coordinar el diseño, desarrollo, implantación y mantenimiento de páginas, portales, y aplicaciones en ambiente Web;
+11. Dar mantenimiento preventivo y correctivo al equipo de cómputo que posee la institución, así como supervisar y controlar esta labor, cuando por necesidad o conveniencia institucional, sea adjudicada a terceros;
+12. Investigar sobre nuevas tecnologías que ofrezca el mercado, a fin de evaluar la factibilidad de su aplicación; y
+13. Participar en el proceso de formulación y presentación de licitaciones, así como en el proceso de análisis relacionados con las tecnologías de información y comunicación para este ministerio, sus unidades y dependencias.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 73 al artículo 76)

@@ -1,13 +1,25 @@
-SECCIÓN II
-PROCESO DE RESOLUCIÓN ALTERNA DE CONFLICTOS
-Artículo 44.- Funciones del Proceso de Resolución Alterna de Conflictos. El Proceso de Resolución Alterna de Conflictos tiene las siguientes funciones:
-1. Brindar información y asesoría a todas aquellas instituciones y personas interesadas en la implementación de métodos de resolución alterna de conflictos;
-2. Autorizar las Casas de Justicia y los centros de resolución alterna de conflictos privados o a la entidad a la cual estos pertenecen, para la administración institucional de métodos de resolución alterna de conflictos;
-3. Abrir Casas de Justicia y Centros de Resolución Alterna de Conflictos Privados;
-4. Autorizar la incorporación de neutrales dentro de las listas que cada Casa de Justicia y Centro de Resolución Alterna de Conflictos Privados que llevan al efecto, así como los cambios o modificaciones de los requisitos exigidos para que administren institucionalmente métodos de resolución alterna de conflictos, de conformidad con lo estipulado en el Decreto Ejecutivo N°32152 del 27 de octubre de 2004;
-5. Desarrollar procedimientos de mediación para la resolución alterna de conflictos;
-6. Controlar y fiscalizar el ejercicio de la actividad de los centros, respetando su autonomía funcional;
-7. Recibir y dar trámite a las quejas y denuncias presentadas en relación con el funcionamiento de las Casas de Justicia y Centros de Resolución Alterna de Conflictos Privados;
-8. Instruir y resolver en primera instancia el procedimiento sancionatorio, de oficio o a instancia de parte, contra las Casas de Justicia y Centros de Resolución Alterna de Conflictos, de conformidad con los artículos 16, 17, 18, 19 y 20 del Decreto Ejecutivo N°32152 del 27 de octubre de 2004;
-9. Mantener el registro actualizado de los centros autorizados para la administración institucional de métodos alternos de solución de conflictos, así como una lista de los neutrales de cada centro; y
-10. Llevar los datos estadísticos sobre el desarrollo de los métodos alternos de resolución de conflictos, remitidos por los centros.
+SECCIÓN I
+UNIDAD TÉCNÍCA DE CONSULTA INDÍGENA
+(Así adicionada la sección I anterior por el artículo 2° del decreto ejecutivo N° 45152 del 30 de mayo del 2025)
+Artículo 44:- Funciones de la Unidad Técnica de Consulta Indígena. La Unidad Técnica de Consulta Indígena tiene las siguientes funciones:
+1. Orientar sobre el procedimiento de consulta; a los interesados u obligados de llevar a cabo un proceso de Consulta a Pueblos Indígenas;
+2. Promover la creación de las Instancias Territoriales en cada Territorio Indígena;
+3. Capacitar de forma intercultural, a las Instancias Territoriales de Consulta Indígena, las instituciones públicas, sujetos de derecho privado y pueblos indígenas, que así lo requieran, sobre él Mecanismo General de Consulta a Pueblos lndígenas;
+4. Emitir criterio técnico sobre la debida aplicación del Mecanismo General de Consulta a Pueblos Indígenas;
+5. Brindar información técnica a las instituciones públicas, empresas privadas y pueblos indígenas sobre el Mecanismo General de Consulta a Pueblos Indígenas;
+6. Tramitar las solicitudes de inicio del proceso de consulta;
+7. Admitir o no, mediante resolución fundada, por razones de forma y de aspectos técnicos y jurídicos las solicitudes de inicio del proceso de consulta.
+8. Notificar, mediante resolución fundada, a las Instancias Territoriales de Consulta Indígena, las resoluciones preliminares de inicio del proceso de Consulta Indígena, con el fin de obtener la validación o no del inicio del Proceso de Consulta y, una vez obtenida esta validación declarar, mediante resolución fundada, la apertura del proceso de consulta;
+9. Revisar y validar en conjunto con la Instancia Territorial de Consulta Indígena respectiva, los acuerdos preparatorios, según la materia que trate la consulta.
+10. Garantizar el correcto intercambio de información, en sujeción a las normas y principios del presente decreto y apercibir a las partes sobre los eventuales incumplimientos;
+11. Facilitar la realización oportuna y adecuada de la etapa evaluativa interna en conjunto con las Instancias Territoriales de Consulta Indígena, en los casos que se solicite su intervención;
+12. Intervenir de forma oportuna, en los casos de solicitud de consulta en que sea inminente un daño irreparable a los derechos colectivos de los pueblos indígenas. Para el cumplimiento de esta atribución. podrá acudir a los mecanismos jurisdiccionales y administrativos correspondientes;
+13. Orientar a las partes durante los diálogos y toma de acuerdos procedentes en el proceso de consulta. así como revisar y validar que cumplan lo establecido según la materia que se encuentre en discusión:
+14. Monitorear el cumplimiento de acuerdos y solicitar informes de cumplimiento de acuerdos a las partes de una consulta cuando lo estime conveniente;
+15. Reglamentar sus procedimientos internos;
+16. Resolver los recursos de revocatoria presentados contra sus resoluciones:
+17. Identificar los puntos de controversia entre las partes y garantizar la resolución transparente, pacífica y de buena fe, de todas aquellas diferencias surgidas en el marco de una consulta, haciendo uso de los mecanismos legales en la materia objeto de estudio, así como en resolución alterna de conflictos y promoción de la paz social, de previo a acudir a la vía jurisdiccional:
+18. Asesorar técnicamente a otras instituciones del Estado, no obligadas al cumplimiento del presente decreto, para sus procesos de consulta indígena, en respeto de las competencias de cada una:
+19. Las que le asigne el Ministro (a) de Justicia y Paz, a la luz de la aplicación del presente Decreto y relacionado a la resolución alterna de conflictos y promoción de la paz social, para los efectos exclusivos de los procesos de Consultas a pueblos indígenas: y
+20. Mantener un Registro actualizado de los Observadores y Garantes de consulta indígena.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 45152 del 30 de mayo del 2025)

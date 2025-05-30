@@ -1,14 +1,16 @@
-SECCIÓN II
-UNIDAD DE CONTABILIDAD
-Artículo 81.- Funciones de la Unidad de Contabilidad. La Unidad de Contabilidad tiene las siguientes funciones:
-1. Ejecutar y supervisar el ciclo presupuestario de conformidad a las normas contables;
-2. Gestionar y contabilizar todos los ingresos y gastos del presupuesto institucional;
-3. Disponer, instituir, dirigir y controlar las actividades contables de la Institución de conformidad con las normas emitidas por los entes rectores en la materia;
-4. Aplicar normas y estándares de control interno financiero como parte del sistema contable;
-5. Supervisar el cumplimiento de las disposiciones legales, las políticas y normas técnicas del control para el sistema de contabilidad;
-6. Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respaldan las operaciones financieras que se realicen de conformidad con los lineamientos emitidos por el ente rector en la materia;
-7. Mantener un adecuado control interno de los montos autorizados en la Ley de Presupuesto de la República y de los saldos disponibles en cada subpartida, conciliando periódicamente las cifras con la Contabilidad Nacional;
-8. Elaborar los informes de contabilidad requeridos internamente y por organismos externos, para información, formulación de planes de acción, programas y la toma de decisiones con fundamento en las normas financieras y de contabilidad vigentes;
-9. Elaborar las certificaciones de retención sobre impuesto de renta del dos por ciento a los proveedores;
-10. Controlar e informar a las autoridades pertinentes sobre la situación patrimonial de la institución; y
-11. Atender cualquier otra gestión propia de su competencia.
+CAPÍTULO VII
+DEPARTAMENTO FINANCIERO
+Artículo 81.- Funciones del Departamento Financiero. El Departamento Financiero depende jerárquicamente de la Oficialía Mayor y tiene las siguientes funciones:
+1. Coordinar con las diferentes unidades ejecutoras de presupuesto la elaboración del anteproyecto presupuestario;
+2. Vigilar que la actividad presupuestaria del Ministerio de Justicia y Paz esté acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto y la Contraloría General de la República;
+3. Coordinar, redactar y consolidar el anteproyecto de presupuesto del Ministerio de Justicia y Paz, atendiendo la normativa, vigente y la normativa técnica establecida, y dictada por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices generales y específicos emitidos por la Autoridad Presupuestaria, y la Contraloría General de la República;
+4. Consolidar y presentar a la máxima autoridad institucional la programación de la ejecución física y financiera del presupuesto, una vez autorizada y aprobada por la Dirección General de Presupuesto y velar por su cumplimiento;
+5. Velar por el cumplimiento de la programación física y financiera del presupuesto;
+6. Registrar los documentos de ejecución presupuestaria de cada programa, subprograma, y actividad, mediante los medios informáticos y materiales, que establezca la Contabilidad Nacional, sin perjuicio de la supervisión que esta ejerza y de la fiscalización superior de la Contraloría General de la República y la Auditoria Interna del Ministerio de Justicia y Paz;
+7. Ejercer el control jurídico, contable y técnico de los documentos de ejecución presupuestaria, conforme a la normativa legal, y reglamentaria vigente;
+8. Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respalden las operaciones financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinación con la Contraloría General de la República;
+9. Administrar la caja chica autorizada por la Tesorería Nacional de conformidad con las disposiciones que se establezcan para tal efecto;
+10. Proponer a la Tesorería Nacional los pagos que correspondan por lo bienes y/o servicios adquiridos de conformidad con las regulaciones que al efecto este defina;
+11. Valorar periódicamente los resultados de la ejecución, según los recursos presupuestarios asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad; y
+12. Dar contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los ejecutores, de la estructura presupuestaria.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 78 al artículo 81)

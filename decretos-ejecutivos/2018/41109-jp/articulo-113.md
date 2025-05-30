@@ -1,4 +1,8 @@
 SECCIÓN II
-NIVEL DE ATENCIÓN INSTITUCIONAL
-Artículo 113.- Nivel de Atención Institucional. El Nivel de Atención Institucional atiende y custodia a la población adulta a la orden de autoridad jurisdiccional con medida cautelar de prisión preventiva, personas sujetas a procesos de extradición y población sentenciada. Su principal característica es la contención física y la atención profesional de las personas ahí ubicadas.
-Este nivel institucional es responsable de la recepción directa de las personas sujetas al cumplimiento de las penas y medidas privativas de libertad dictadas por las autoridades jurisdiccionales.
+UNIDAD DE ACTAS Y ACUERDOS
+Artículo 113.- Funciones de la Unidad de Actas y Acuerdos. La Unidad de Actas y Acuerdos tiene las siguientes funciones:
+1. Manejar permanentemente la documentación que se deriva del trabajo que generan los equipos interdisciplinarios que se encuentran funcionando en los diferentes centros penitenciarios del país;
+2. Recibir, clasificar, asignar los temas relacionados con la valoración técnica de las personas privadas de libertad;
+3. Manejar lo relativo a la colección documental de Actas del Instituto Nacional de Criminología, su organización y remisión a la Auditoria Interna del Ministerio de Justicia y Paz cuando así lo determine la Dirección del Instituto; y
+4. Remitir a los centros penitenciarios institucionales o seminstitucionales, los acuerdos que sobre los asuntos de la valoración haya tomado el Instituto Nacional de Criminología.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 110 al artículo 113)

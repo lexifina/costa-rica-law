@@ -1,10 +1,15 @@
-SECCIÓN ÚNICA
-PROCESO DE GESTIÓN SOCIAL DE ESPECTÁCULOS PÚBLICOS,
-MATERIALES AUDIOVISUALES E IMPRESOS
-Artículo 47.- Funciones del Proceso de Gestión Social de Espectáculos Públicos, Materiales Audiovisuales e Impresos. El Proceso de Gestión Social de Espectáculos Públicos, Materiales Audiovisuales e Impresos tiene las siguientes funciones:
-1. Diseñar estrategias de capacitación, educación, evaluación crítica, promoción y divulgación de los espectáculos públicos, materiales audiovisuales e impresos, especialmente entre la población menor de edad y entre el público en general;
-2. Promover y diseñar espacios de reflexión y opinión, en relación con el impacto que ocasiona en las personas menores los mensajes negativos o nocivos que puedan percibir por medio de espectáculos públicos, materiales audiovisuales e impresos;
-3. Desarrollar acciones de educación para la comunidad nacional, sobre la violencia social, discriminación en todas sus formas, y sobre los valores morales de nuestra sociedad;
-4. Desarrollar e impartir talleres de capacitación sobre el tema de autocalificación de material, con los distintos empresarios;
-5. Tramitar la acreditación de las personas que forman parte del Consejo Nacional de Espectáculos Públicos, la Comisión Nacional de Control y Calificación de Espectáculos Públicos y las Comisiones Auxiliares Cantonales; y
-6. Fomentar la exhibición de películas de alto valor artístico, social, cultural y educativo y otros espectáculos.
+SECCIÓN III
+PROCESO DE RESOLUCIÓN ALTERNA DE CONFLICTOS
+(Así modificada la numeración de la sección anterior por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó de la antigua sección II a la sección III)
+Artículo 47.- Funciones del Proceso de Resolución Alterna de Conflictos. El Proceso de Resolución Alterna de Conflictos tiene las siguientes funciones:
+1. Brindar información y asesoría a todas aquellas instituciones y personas interesadas en la implementación de métodos de resolución alterna de conflictos;
+2. Autorizar las Casas de Justicia y los centros de resolución alterna de conflictos privados o a la entidad a la cual estos pertenecen, para la administración institucional de métodos de resolución alterna de conflictos;
+3. Abrir Casas de Justicia y Centros de Resolución Alterna de Conflictos Privados;
+4. Autorizar la incorporación de neutrales dentro de las listas que cada Casa de Justicia y Centro de Resolución Alterna de Conflictos Privados que llevan al efecto, así como los cambios o modificaciones de los requisitos exigidos para que administren institucionalmente métodos de resolución alterna de conflictos, de conformidad con lo estipulado en el Decreto Ejecutivo N°32152 del 27 de octubre de 2004;
+5. Desarrollar procedimientos de mediación para la resolución alterna de conflictos;
+6. Controlar y fiscalizar el ejercicio de la actividad de los centros, respetando su autonomía funcional;
+7. Recibir y dar trámite a las quejas y denuncias presentadas en relación con el funcionamiento de las Casas de Justicia y Centros de Resolución Alterna de Conflictos Privados;
+8. Instruir y resolver en primera instancia el procedimiento sancionatorio, de oficio o a instancia de parte, contra las Casas de Justicia y Centros de Resolución Alterna de Conflictos, de conformidad con los artículos 16, 17, 18, 19 y 20 del Decreto Ejecutivo N°32152 del 27 de octubre de 2004;
+9. Mantener el registro actualizado de los centros autorizados para la administración institucional de métodos alternos de solución de conflictos, así como una lista de los neutrales de cada centro; y
+10. Llevar los datos estadísticos sobre el desarrollo de los métodos alternos de resolución de conflictos, remitidos por los centros.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 44 al artículo 47)

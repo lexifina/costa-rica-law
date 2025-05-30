@@ -1,4 +1,9 @@
-Artículo 132.- Procesos de la Unidad de Inserción Social. Para el desarrollo de sus funciones, la Unidad de Inserción Social se organizará a lo interno por medio de los siguientes procesos:
-1. Proceso de Gestión de la Cooperación;
-2. Proceso de Diseño y Formulación de Planes, Programas y Proyectos de Inserción Social; y
-3. Proceso de Seguimiento y Evaluación Post-Penitenciaria.
+Artículo 132.- Oficinas del Nivel de Atención en Comunidad. Las siguientes oficinas, ordenadas por provincia, conforman el Nivel de Atención en Comunidad:
+1. San José: Oficina de Atención en Comunidad San José y Oficina de Atención en Comunidad Pérez Zeledón;
+2. Alajuela: Oficina de Atención en Comunidad Alajuela, Oficina de Atención en Comunidad San Ramón y Oficina de Atención en Comunidad San Carlos;
+3. Cartago: Oficina de Atención en Comunidad Cartago;
+4. Heredia: Oficina de Atención en Comunidad Heredia;
+5. Guanacaste: Oficina de Atención en Comunidad Liberia, Oficina de Atención en Comunidad Santa Cruz y Oficina del Atención en Comunidad Nicoya.
+6. Puntarenas: Oficina de Atención en Comunidad Puntarenas y Oficina de Atención en Comunidad Ciudad Neilly; y
+7. Limón: Oficina de Atención en Comunidad Limón y Oficina de Atención en Comunidad Pococí.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 129 al artículo 132)

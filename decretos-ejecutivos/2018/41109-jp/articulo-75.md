@@ -1,22 +1,13 @@
-SECCIÓN I
-UNIDAD DE DESARROLLO DE APLICACIONES
-Artículo 75.- Funciones de la Unidad de Desarrollo de Aplicaciones. La Unidad de Desarrollo de Aplicaciones tiene las siguientes funciones:
-1. Coordinar, ejecutar, controlar, evaluar y dar seguimiento a todas las fases de desarrollo e implantación de sistemas desarrollados, según recursos internos y externos;
-2. Formular y ejecutar estrategias para minimizar el riesgo que presenten los proyectos, logrando que los mismos rindan los beneficios esperados, satisfagan los requerimientos y cumplan con los términos y costos preestablecidos;
-3. Establecer una metodología de desarrollo e implantación de sistemas y paquetes, basada en estándares y mejores prácticas internacionales;
-4. Administrar la ejecución de los proyectos de tecnologías de información o implementación de paquetes contratados externamente, ya sean para sistemas nuevos o para el mantenimiento de los sistemas existentes;
-5. Brindar criterio técnico respecto a los términos de referencia, en conjunto con los usuarios funcionales, expertos externos para la adquisición de aplicaciones informáticas;
-6. Brindar criterio técnico sobre los dispositivos y programas que requiere el Ministerio de Justicia y Paz para su operación;
-7. Promover la actualización continua del personal, en herramientas de desarrollo, paquetes de aplicación y metodologías de desarrollo, implantación de paquetes y gestión de cambio;
-8. Ejecutar las labores de mantenimiento correctivo, perfectivo o evolutivo, que requieren los sistemas que se encuentran en operación;
-9. Brindar inducción a los usuarios en el uso de los diferentes sistemas en operación;
-10. Administrar los servidores de bases de datos de la institución;
-11. Establecer un ambiente físico, seguro y controlado, con medidas de protección fundamentadas en políticas vigentes y análisis de riesgos, para la continuidad de los sistemas de información;
-12. Ejecutar los procesos de respaldo de las aplicaciones y bases de datos, de las soluciones basadas en tecnología de información;
-13. Administrar las bases de datos utilizadas por las aplicaciones institucionales, para el óptimo desempeño de las mismas;
-14. Monitorear y evaluar el crecimiento de las bases de datos y uso de espacio de almacenamiento;
-15. Crear los diccionarios de las bases de datos nuevas y las existentes;
-16. Instalar y administrar sistemas de administración de base de datos (DBMS);
-17. Instruir al personal en la utilización del sistema administrador de bases de datos, cuando así se requiera;
-18. Recomendar la compra de equipos y aplicaciones para desarrollo y administración de base de datos; y
-19. Atender cualquier otra gestión propia de su competencia.
+SECCIÓN II
+UNIDAD DE PLATAFORMA DE SERVICIOS
+Artículo 75.- Funciones de la Unidad de Plataforma de Servicios. La Unidad de Plataforma de Servicios tiene las siguientes funciones:
+1. Brindar información y orientar sobre trámites, procesos, procedimientos y requisitos a los ciudadanos;
+2. Proveer ayuda técnica y brindar asesoría a otros funcionarios y personas usuarias de los servicios que presta la institución en general, en materia propia de su competencia;
+3. Atender los requerimientos o consultas de las personas usuarias en general, así como resolver situaciones relacionadas con los procesos o procedimientos que intervienen en la gestión institucional, en coordinación con las instancias correspondientes;
+4. Gestionar de manera centralizada el trámite de recepción y despacho de la documentación de correspondencia remitida por medio del servicio de mensajería entre las dependencias de la institución que así lo requieran;
+5. Revisar informes, oficios, procedimientos, notas y otros documentos que surgen como consecuencia de las actividades que realiza, presentando las recomendaciones y observaciones pertinentes;
+6. Apoyar los procesos de divulgación de la información sobre la gestión institucional de interés al usuario;
+7. Mantener ordenados y actualizados los sistemas, procesos y procedimientos relativos a la gestión de la Plataforma de Servicios;
+8. Participar en el establecimiento de instrumentos necesarios para la información requerida para los usuarios de la institución; y
+9. Atender cualquier otra gestión propia de su competencia.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 72 al artículo 75)

@@ -1,6 +1,4 @@
-Artículo 118.- Objetivos particulares del Nivel de Atención a la Mujer. Los objetivos particulares de este nivel son:
-1. Impulsar y coordinar el establecimiento de programas y servicios que aseguren la aplicación de la visión de género dentro de las acciones institucionales para la población penitenciaria femenina, que facilite la equiparación de derechos entre privados y privadas de libertad;
-2. Asesorar para que la planificación de la Dirección General de Adaptación Social, anual y estratégica, incorpore la visión de género en planes, programas y proyectos;
-3. Coordinar con la sociedad civil y voluntariado, para la discusión y formulación de propuestas, con el fin de mejorar la situación y condición de las mujeres privadas de libertad;
-4. Impulsar procesos de sensibilización y capacitación dirigidas al personal que atiende a esta población penal sobre la aplicación teórica y metodológica de la visión de género; y
-5. Promover la implementación del enfoque de género en el registro, estadísticas e indicadores que integran los sistemas de información en la Dirección General de Adaptación Social.
+SECCIÓN III
+NIVEL DE ATENCIÓN A LA POBLACIÓN PENAL JUVENIL
+Artículo 118.- Nivel de Atención a la Población Penal Juvenil. El Nivel de Atención a la Población Penal Juvenil atiende, custodia y controla el plan de ejecución penal de las personas sometidas a la justicia penal juvenil. También, le corresponde asegurar el cumplimiento de la detención provisional y las sanciones penales juveniles, garantizando la integridad física, moral y emocional de su población, promoviendo su desarrollo personal y sentido de la responsabilidad para facilitar su inserción en el ámbito comunitario, mediante la participación interinstitucional y de órganos de apoyo.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 115 al artículo 118)

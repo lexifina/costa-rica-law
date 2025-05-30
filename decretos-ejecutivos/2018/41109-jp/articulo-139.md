@@ -1,15 +1,14 @@
-Artículo 139.- Funciones del Proceso de Atención Psicológica. El Proceso de Atención Psicológica tiene las siguientes funciones:
-1. Realizar evaluaciones psicológicas y brindar recomendaciones en los casos que sea necesario una adecuación de funciones al puesto de trabajo
-conforme las coordinaciones que se realicen con la Unidad de Bienestar Socio-Laboral del Departamento de Salud Ocupacional;
-2. Realizar evaluaciones psicológicas para la selección del personal de la Policía Penitenciaria que integrará las unidades especiales;
-3. Realizar evaluaciones de idoneidad mental para la portación de armas de fuego, conforme a lo establecido en la Ley N°7530 del 10 de julio de 1995, Ley de Armas y Explosivos, y el Colegio Profesional de Psicólogos de Costa Rica, en aquellos casos que resulte necesario por la condición mental del funcionario;
-4. Realizar evaluaciones psicológicas o acompañamiento conforme lo solicite la Asesoría Jurídica en casos de posible acoso laboral, moral, psicológico y sexual;
-5. Realizar procesos de intervención psicoterapéuticos de enfoque clínico, mediante atención individual o grupal;
-6. Desarrollar procesos de capacitación a la Policía Penitenciaria sobre aspectos que permitan mejorar su desempeño laboral;
-7. Brindar recomendaciones a la Dirección de la Policía Penitenciaria sobre necesidades en materia de capacitación;
-8. Detectar, mediante visitas periódicas a los centros penitenciarios, factores biopsicosociales que generan riesgo para la salud e integridad de los policías penitenciarios y recomendar las medidas correctivas;
-9. Brindar recomendaciones al Departamento de Gestión Institucional de Recursos Humanos sobre criterios y competencias para el reclutamiento y selección del personal de la Policía Penitenciaria;
-10. Asesorar a las diferentes unidades de la Dirección de Policía Penitenciaria en aspectos que permitan mejorar su funcionamiento y gestión institucional a nivel de desenvolvimiento del clima laboral con un enfoque específico tomado a partir del ambiente donde se desempeñan los funcionarios;
-11. Dar soporte en los operativos que lleve a cabo la Policía Penitenciaria, dando respaldo en el manejo de incidentes críticos;
-12. Asesorar a las diferentes jefaturas, para la toma de decisiones relacionadas con la salud mental en materia de reubicación y traslado del personal, así como la readecuación de funciones y puestos; y
-13. Cualquier otra función que les sea asignada dentro de su ámbito de competencia laboral.
+CAPÍTULO XI
+UNIDAD DE REPATRIACIONES
+Artículo 139.- Funciones de la Unidad de Repatriaciones. La Unidad de Repatriaciones tiene las siguientes funciones:
+1. Mantener un sistema de información actualizado de personas privadas de libertad extranjeras que se encuentran ejecutando sentencias en un centro del Sistema Penitenciario Costarricense;
+2. Analizar proyectos de convenios internacionales para el tema de traslados de personas privadas de libertad y emitir criterios técnicos para la toma de decisiones de las autoridades competentes en la suscripción de los mismos;
+3. Conciliar acuerdos a lo interno del país como en el extranjero en todo lo relacionado en materia de traslados de personas privadas de libertad;
+4. Asesorar a organismos internacionales como nacionales respecto a la implementación de proyectos de trabajo que regulan la materia de traslado de privados de libertad;
+5. Resolver los trámites de solicitudes de traslados de extranjeros hacia su país de origen y de costarricenses que desea regresar a Costa Rica a cumplir la condena que les ha sido impuesta en un país diferente al suyo;
+6. Coordinar con los representantes diplomáticos de Costa Rica en el extranjero y representaciones diplomáticas acreditadas en Costa Rica temas propios de transferencia o repatriación de personas privadas de libertad;
+7. Dar curso o rechazar las solicitudes de transferencia de privados de libertad;
+8. Atención de terceros debidamente autorizados para obtener información sobre trámites de repatriación o transferencia de personas privadas de libertad que se encuentran en curso o trámite ante la unidad;
+9. Propiciar, divulgar, capacitar e investigar en todo lo relacionado a la materia de aplicación de convenios internacionales para la transferencia de personas privadas de libertad; y
+10.Remitir informes técnicos al Director General de Adaptación Social sobre el proceso transferencia de privados de libertad y brindar las recomendaciones para su transferencia.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 136 al artículo 139)

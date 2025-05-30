@@ -1,9 +1,13 @@
-Artículo 155.- Derogatorias. Deróguense las siguientes disposiciones normativas:
-1.Decreto Ejecutivo N°22010-J del 04 de febrero de 1993: Crea la Dirección Jurídica como el órgano asesor, consultor y resolutorio en materia legal de todas las entidades del Ministerio de Justicia y Paz;
-2.Capítulo III (De la Estructura y Organización de la Policía Penitenciaria) del Decreto Ejecutivo N°26061-J del 15 de mayo de 1997: Reglamento General de la Policía Penitenciaria;
-3.Decreto Ejecutivo N°26965-J del 06 de abril de 1998: Crea Departamento de Contraloría de Servicios del Ministerio de Justicia;
-4.Decreto Ejecutivo N°33242 del 10 de julio de 2006: Creación de la Oficina de Planificación Institucional del Ministerio de Justicia;
-5.Artículo 4 del Decreto Ejecutivo N°36495-JP del 16 de noviembre de 2010:Reglamento para el Uso de los Recursos Tecnológicos de Información del Ministerio de Justicia y Paz;
-6.Decreto Ejecutivo N°38045-JP del 11 de noviembre de 2013: Crea Unidad para la Igualdad de Género del Ministerio de Justicia;
-7. Artículo 28 del Decreto Ejecutivo N° 38428-JP del 14 de marzo de 2014: Reglamento para el uso de vehículos del Ministerio de Justicia y Paz; y
-8. Decreto Ejecutivo N° 37360-JP del 27 de junio de 2012: Reglamento de Órganos Jerárquicos Superiores del Ministro de Justicia y Paz.
+SECCIÓN III
+UNIDAD DE SEGUIMIENTO EXTRA PENITENCIARIO
+Artículo 155.- Funciones de la Unidad de Seguimiento Extra Penitenciario. La Unidad de Seguimiento Extra Penitenciario tiene las siguientes funciones:
+1. Revisar los expedientes de los beneficiados;
+2. Diagnosticar la población ubicada en el centro en coordinación con el Departamento de Información e Inteligencia Policial y la Dirección General de Adaptación Social, en conjunto con los entes judiciales que otorgaron el beneficio;
+3. Mapear para ubicar la zona geográfica de toda esta población;
+4. Elaborar el registro fotográfico de los beneficiados en coordinación con la Unidad de Información, Registro y Estadística Penitenciaria;
+5. Realizar investigaciones de emergencias por anomalías presentadas en la comunidad, por parte de la población beneficiada en coordinación con la Unidad de Inteligencia Policial y los demás entes públicos policiales y judiciales;
+6. Elaborar informes de las labores realizadas y de las investigaciones efectuadas a la dirección del centro y equipo técnico del Nivel de Atención Seminstitucional;
+7. Preparar la base de datos con información de las delegaciones policiales de la Fuerza Pública, así como de las fiscalías, para posibles coordinaciones de información e intervención en cuanto se necesiten;
+8. Coordinar e intercambiar información con delegaciones policiales y fiscalías del país; y
+9. Todas las demás que le encomiende el Director de la Policía Penitenciaria.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 152 al artículo 155)

@@ -1,10 +1,13 @@
-SECCIÓN II
-PROCESO DE DISEÑO Y FORMULACIÓN DE PLANES,
-PROGRAMAS Y PROYECTOS DE INSERCIÓN SOCIAL
-Artículo 134.- Funciones del Proceso de Diseño y Formulación de Planes, Programas y Proyectos de Inserción Social. El Proceso de Diseño y Formulación de Planes, Programas y Proyectos de Inserción Social tiene las siguientes funciones:
-1. Realizar estudios para identificar las necesidades de las personas privadas de libertad que descuentan su sentencia en alguno de los centros de atención institucional y que por la naturaleza del delito no pueden optar por un cambio en su modalidad de custodia;
-2. Formular planes, programas o proyectos de atención post-penitenciaria, para la presentación ante la autoridad competente y su correspondiente puesta en operación;
-3. Coordinar con las jefaturas nacionales de las diferentes disciplinas técnicas, la aplicación de los programas y proyectos de previo al egreso de la persona privada de libertad de un centro de atención institucional, con el fin de vincular el quehacer de esta Unidad en el proceso post-penitenciario;
-4. Apoyar el desarrollo de encadenamientos productivos, así como emprendimientos y formación de cooperativas penitenciarias en las comunidades donde operan centros de atención institucional, para que el sector empresarial y productivo local apoye los procesos de capacitación, en actividades productivas para población privada de libertad, de manera que se generen espacios laborales en beneficio de la población y sus familias;
-5. Mantener actualizada una base de datos donde se pueda obtener información para bolsas de empleo regionales. El módulo de oportunidades de empleo de la base de datos deberá estar abierta y compartida con los responsables de los centros de atención institucional, de forma que cuente con esta información, como un recurso externo para la población próxima a egresar del centro penitenciario; y
-6. Además del aspecto laboral, se deberá contemplar el eje de capacitación y educación, trabajando en cooperación sobre esos temas y también se deberá enfocar en oportunidades de colaboración que apoyen los procesos de disminución del daño del consumo problemático de las drogas en la población próxima a su egreso, todo esto con miras a lograr una inserción social exitosa posterior a su atención en un centro de atención institucional.
+CAPÍTULO X
+UNIDAD DE INSERCIÓN SOCIAL
+Artículo 134.- Funciones de la Unidad de Inserción Social. La Unidad de Inserción Social tiene las siguientes funciones:
+1. Coordinar y ejecutar acciones para mantener un sistema de información actualizado de personas privadas de libertad que les reste por descontar un año de prisión en alguno de los centros de atención institucional e identificar situaciones de vulnerabilidad, que limiten su adecuada inserción social;
+2. Elaborar y asesorar mediante la recopilación, revisión, análisis y procesamiento de información, los planes de inserción a desarrollar, para la atención de vulnerabilidades de las personas privadas de libertad, próximas a cumplir su sentencia en un centro del sistema penitenciario nacional, en coordinación con los organismos competentes;
+3. Realizar análisis prospectivos con el propósito de promover la celebración de convenios de cooperación sea a nivel nacional como internacional para fortalecer la inserción de las personas privadas de libertad;
+4. Fungir como enlace entre el Ministerio de Justicia y Paz y los diferentes actores sociales interesados, para la promoción, establecimiento y formalización de alianzas y convenios que fortalezcan la inserción de las personas privadas de libertad;
+5. Conformar, administrar y mantener actualizado un banco de ofertas laborales para personas que hayan cumplido su sentencia en un centro de atención institucional;
+6. Brindar apoyo y orientación a las personas que han cumplido su sentencia en algún centro de atención institucional para que puedan optar por alguno de los beneficios de la seguridad social del país, según corresponda;
+7. Promover, coordinar y apoyar el emprendedurismo y la economía social entre las personas en condición de vulnerabilidad un año antes y un año después del cumplimiento de su sentencia en un centro de atención institucional;
+8. Coordinar, integrar y asesorar redes de apoyo para las personas próximas a cumplir su sentencia, para que una vez egresadas del sistema penitenciario nacional su inserción social sea más favorable; y
+9. Evaluar el impacto de los planes y programas, de la Unidad de Inserción Social, mediante el uso de indicadores claves del proceso de inserción social.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 45152 del 30 de mayo del 2025, que lo traspasó del antiguo artículo 131 al artículo 134)
