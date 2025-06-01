@@ -1,0 +1,1 @@
+Artículo 9º-Anulación en sede judicial. En caso de que el Tribunal, a partir del informe de la Dirección Ejecutiva, determine que el acto contiene un vicio cuya anulación deba ser declarada en un proceso de lesividad, remitirá las diligencias a la Procuraduría General de la República para que lo entable ante la jurisdicción contenciosa administrativa.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 17.-Del régimen supletorio. Los aspectos no contemplados en este reglamento se regirán por la Ley General de la Administración Pública Ley N° 6227, el Reglamento General para el control y recuperación de acreditaciones que no corresponden decreto N° 34574-H-2008 del 25 de junio de 2008, el Código Civil de Costa Rica Ley N° 63, la Ley de la Administración Financiera de la República y Presupuestos Públicos Ley N° 8131, la Ley General de Control Interno Ley N° 8292, el Código Procesal Civil Ley N° 9342, el Código de Trabajo Ley N° 2, la Ley Orgánica del Tribunal Supremo de Elecciones Ley N° 3504, Ley de Salarios y Régimen de Méritos Ley N° 4519 y cualquier normativa conexa.

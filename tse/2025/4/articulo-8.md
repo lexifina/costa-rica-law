@@ -1,0 +1,2 @@
+Artículo 8º-Anulación en sede administrativa. A partir del informe de la Dirección Ejecutiva, el Tribunal podrá disponer la realización de un procedimiento administrativo ordinario para declarar la nulidad absoluta, evidente y manifiesta del acto, a cargo de la Secretaría General del Tribunal, de acuerdo con lo establecido en Ley General de la Administración Pública.
+El Tribunal remitirá las diligencias a la Procuraduría General de la República, a efectos de que dictamine lo correspondiente, en el momento procesal previsto en la normativa correspondiente.
