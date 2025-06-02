@@ -1,1 +1,0 @@
-Artículo 3º—Supervisión del cumplimiento: La Unidad Administrativa encargada de velar por el cumplimiento de las disposiciones establecidas en este reglamento es el Área de Servicios Generales y Transportes.

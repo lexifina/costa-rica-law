@@ -1,2 +1,0 @@
-Artículo 9º—Tarifas a reconocer por el INAMU. El INAMU reconocerá el monto total de la facturación mensual a la Presidencia Ejecutiva, el roaming y de ser necesario el servicio de internet, en razón de su jerarquía y funciones propias de su cargo, por el servicio del celular propiedad de la Institución. A las demás funcionarías se les reconocerá un máximo de hasta tres veces la tarifa básica reconocida y en ningún caso podrán realizar llamadas internacionales.
-El INAMU pagará el total de la facturación directamente a los proveedores del servicio.

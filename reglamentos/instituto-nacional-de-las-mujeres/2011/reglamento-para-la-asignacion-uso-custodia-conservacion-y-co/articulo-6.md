@@ -1,1 +1,0 @@
-Artículo 6º—De la tecnología: La tecnología de los equipos de telefonía celular y radiolocalizadores, deberá ser acorde con las funciones de las personas usuarias del servicio y de estándares de calidad reconocidos en el mercado nacional.

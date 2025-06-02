@@ -1,1 +1,0 @@
-Artículo 16.—Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento se considerará falta grave y será sancionada conforme con lo establecido en el Reglamento Autónomo de Servicios.

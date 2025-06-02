@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación: El presente reglamento es de acatamiento obligatorio para todas las personas funcionarías del INAMU autorizadas a utilizar los servicios de telefonía celular o de radio localizador.

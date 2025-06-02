@@ -1,1 +1,0 @@
-Artículo 7º—Del contrato: Toda persona funcionaría autorizada para utilizar et servicio de telefonía celular o radiolocalizador, previo a la entrega del equipo. Deberá suscribir el contrato que al efecto elaborará la Unidad de Asesoría Legal.
