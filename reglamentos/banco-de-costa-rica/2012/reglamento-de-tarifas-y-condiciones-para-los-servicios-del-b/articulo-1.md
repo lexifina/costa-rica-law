@@ -116,14 +116,14 @@ Llave USD 25,00
 2.9.2 Confección de planillas para ser enviado por transportadora de valores
 USD 18,00 la confección
 2.9.3 Envío de planillas con el servicio de transporte de valores
-1) Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM)
-a) USD 23,00 remeseras propias/recolección.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
-2) Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera de la (GAM):
-a) USD 29,00 remeseras propias/recolección.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+a. Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías ubicadas en el casco metropolitano.
+. El costo servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+b. Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera del casco metropolitano:
+. El costo servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+c. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
 Nota:
-Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la oficina de operaciones de administración de efectivo.
+Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la Gerencia de Administración de Efectivo.
+(Así reformado el numeral 2.9.3) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 2.10 Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros)
 0,10% sobre los fondos utilizados en moneda nacional y moneda extranjera.
 2.11 Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
@@ -145,14 +145,17 @@ Notas:
 . Si el cliente desea llevarse el dinero por medio de cheque para depositarlo en otro banco debe asumir el costo del cheque.
 . Para la compra de un bien mueble o inmueble financiado por el Banco, si el cliente desea un cheque de gerencia debe de asumir el costo.
 2.16 Recolección depósitos especiales con el servicio de transportadora de valores
-1. Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM).
-a. USD 23,00 remeseras propias/recolección.
-b. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
-2. Para clientes cuyos depósitos son recolectados, contabilizados en las tesorerías regionales ubicadas fuera de la (GAM).
-a. USD 29,00 remeseras propias/recolección.
-b. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las empresas trasportadoras privadas. Lo anterior en razón que los contratos poseen cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+2.16.1 Servicio de recolección de depósitos especiales
+a. Para clientes cuyos depósitos son recolectados con remeseras propias BCR y contabilizados en los centros de procesamiento ubicados en el casco metropolitano:
+· El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+b. Para clientes cuyos depósitos son recolectados con remeseras propias BCR y contabilizados en los centros de procesamiento ubicados en las tesorerías regionales:
+· . El costo por servicio deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de estos contratos y sus negociaciones.
+c. Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. El costo deberá ser consultado con la Gerencia de Administración del Efectivo quien es la responsable del control y seguimiento de los contratos con las cláusulas de ajustes de tarifas si el proveedor lo considera pertinente.
+2.16.2 Servicio de recolección a entidades financieras
+Este servicio debe estar respaldados por un contrato, por lo cual la comisión se define mediante análisis de costos y viabilidad considerando las especificaciones del cliente a conveniencia de las partes y se detalla en las cláusulas del contrato suscrito entre el Banco y el cliente al momento de la negociación.
 Nota:
-Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la oficina de Operaciones de Administración de Efectivo.
+Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la Gerencia de Administración de Efectivo.
+(Así reformado el numeral 2.16) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 (*) 2.17 Comisión para la entrega de efectivo para instituciones del sector financiero
 La comisión se debe consultar con la Gerencia de Administración del Efectivo en razón que los precios se establecen por la oferta y la demanda del mercado en el momento de la negociación.
 (*)(Así reformado el punto anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
@@ -258,11 +261,12 @@ Aplica para depósitos por un monto mayor o igual a USD 2.000,00.
 3. Tarjetas de crédito y débito
 3.1 Comisión por reemplazo normal y reposición
 La comisión oscila entre los rangos de USD 10,00 a USD 20,00.
-Excepciones al pago de esta comisión:
+(*)Excepciones al pago de esta comisión:
 a. Reposición de los medios de pago (tarjetas, pulseras y sticker) por deterioro y el mismo no es atribuido al tarjetahabiente.
 b. Reemplazo de la tarjeta por fraude (transacciones no reconocidas por el tarjetahabiente).
-c. Reemplazo de la tarjeta cuando está retenida en un cajero de la red del BCR.
+c. Reemplazo de la tarjeta cuando está retenida en un cajero que no se encuentra en las oficinas comerciales del BCR.
 d. Reposición de la tarjeta de Firma Digital con Medio de Pago por deterioro del certificado digital que no sea atribuible al tarjetahabiente. La garantía de la firma digital debe cubrir su deterioro.
+(*) (Así reformado el párrafo anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Nota:
 Los valores específicos para cada comisión son publicados en el sitio web del Banco y se consultan en el siguiente enlace: https://www.bancobcr.com/wps/portal/bcr/bancobcr/acerca-delbcr/transparencia/reglamentos_institucionales./.
 3.2 Comisión por adelanto de efectivo
@@ -495,7 +499,8 @@ Detalle | Comisión
 Acreditación por transacción | USD 6,00
 Nota:
 De esta tarifa que cobra el BCR, se comparte el 50,00% con el Bank of New York.
-5.6 Envío estado de cuenta corriente por Swift - MT940
+5.6 Envío estado de cuenta corriente por Swift - MT940, CAMT052, CAMT053
+(Así reformado el punto 5.6) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Detalle | Comisión
 Por cada estado de cuenta enviado | USD 3,00
 5.7 Remesas familiares por MoneyGram®
@@ -645,6 +650,8 @@ Del monto existente entre la fecha de la modificación y el vencimiento de la ga
 8. Evaluación de garantías reales
 No aplican reintegros después de 90 días naturales posteriores al registro de cobro al cliente de las comisiones indicadas en este apartado.
 8.1 Cobro de comisiones para cubrir gastos por la realización de avalúos
+Consideraciones para todos los avalúos:
+(Así adicionado el párrafo anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Cuando los avalúos sean realizados por profesionales adscritos al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica (CFIA), la comisión a cobrar será el monto que resulte de aplicar la siguiente fórmula:
 [imagen]
 El exponente n se detalla en el Decreto Ejecutivo Nº 35298-MOPT denominado Aranceles por servicios de peritaje y avalúos del Colegio Federado de Ingenieros y Arquitectos (CFIA) de Costa Rica y se debe emplear el que esté vigente a diciembre del año anterior.
@@ -676,10 +683,12 @@ g) En casos de sustitución de garantías, la comisión a cobrar al cliente se c
 h) En el caso que el avalúo no se realice debido a razones no imputables al Banco o como resultado del análisis realizado no se recomiende aceptar el bien en garantía, siempre y cuando el valuador haya hecho la inspección de campo, para el cálculo de la comisión aplica la tarifa para inspecciones establecida en el apartado 8.3. Si la comisión ya pagada por el cliente es mayor a la tarifa para una inspección para verificar el cumplimiento de alguna condición de la garantía, apartado 8.3, se le devolverá al cliente la diferencia.
 i) Si una vez realizado un avalúo para crédito, el trámite no continúa se debe devolver al cliente la diferencia, resultante del cálculo con base a la tarifa mínima establecida para avalúos incluyendo el costo de administración del servicio y el IVA, versus la comisión cobrada inicialmente correspondiente a ese servicio técnico.
 (Así reformado inciso anterior mediante sesión N° 40-24 del 19 de agosto de 2024)
-j) Si una vez realizado un avalúo para crédito, el trámite no continúa por faltante de garantía, se debe devolver al cliente la diferencia, resultante del cálculo con base al avalúo realizado y de la comisión cobrada inicialmente correspondiente a ese servicio técnico (el monto a pagar debe ser equivalente a la comisión estimada con base en el avalúo). La devolución involucra el respectivo IVA correspondiente a la suma que se le reintegra.
-Si el crédito no continúa por cualquier otra razón, el Banco se abstiene de la devolución de la comisión por avalúo cobrada inicialmente.
+j) Si una vez realizado un avalúo para crédito, el trámite no continúa, se debe devolver al cliente la diferencia, resultante del cálculo con base a la tarifa mínima establecida para avalúos incluyendo el costo de administración del servicio y el IVA, versus la comisión cobrada inicialmente correspondiente a ese servicio técnico.
+(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 k) Cuando se soliciten varios avalúos de una misma operación, el cobro de la comisión debe considerar el monto base del crédito y por cada avalúo adicional se cobra preliminarmente una comisión del mínimo establecida para avalúos. Una vez que se reciban todos los informes si la suma de los pagos por avalúos es menor que el monto de la comisión según el crédito solicitado se paga, utilizando el formulario V9 Auxiliar para el cálculo de honorarios en portafolio, usando como base el resultado de cada avalúo en forma proporcional. Si el monto a pagar por los avalúos es mayor o igual que la comisión calculada con base al monto del crédito, la distribución de los pagos por estos trabajos se realiza en forma proporcional en relación con el total valorado, aplicado a la comisión según monto de crédito. Posteriormente, debe verificarse en todos los casos donde exista un informe de avalúo, que cumpla al menos con el pago mínimo establecido, devolviendo al cliente el sobrante.
+(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 l) En daciones y arreglos de pago, la comisión a cobrar al cliente se calcula sobre el saldo de la operación.
+(Así reformado inciso anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 8.2 Cobro de comisiones para cubrir gastos por evaluaciones de parámetros técnicos
 Las que son requeridas en el estudio y análisis de una solicitud de crédito y son efectuadas por profesionales designados por el Banco. Para la administración del servicio requerido por el Banco por cada inspección, se cobra adicionalmente, una comisión de CRC 13.000,00 + IVA.
 8.2.1 Evaluación de parámetros técnicos de actividades agropecuarias
@@ -783,6 +792,9 @@ Nota:
 La comisión establecida es adicional a la tarifa fijada por el MOPT vía decreto ejecutivo.
 10.4 Comisión por certificación de salida del país de vehículos automotores
 USD 10,00 por trámite de certificación.
+10.5 Comisión por venta de certificaciones RNP Digital
+USD 6,00 por cada certificación.
+(Así adicionado el punto 10.5) anterior mediante sesión N° 27-25 del 2 de junio de 2025)
 Aspectos generales
 1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
 2. Todas las comisiones y tarifas podrán ser pagadas en dólares (USD moneda de curso legal de los Estados Unidos de América) o su equivalente en colones (CRC), al tipo de cambio BCR de venta vigente a la fecha de cancelación.
@@ -799,3 +811,5 @@ Gerente regional banca corporativa y de personas 75%
 Gerente local banca pyme y desarrollo 50%
 Gerente local banca corporativa y de personas 50%
 7. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen personas trabajadoras u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
+8. Para los efectos que se deriven de la aplicación de este documento, el concepto de "casco metropolitano" tiene el siguiente significado: cantones que pertenecen a la provincia de San José, con excepción de Acosta, Turrubares, Dota, León Cortés Castro, Puriscal, Tarrazú y Perez Zeledón.
+(Así adicionado el punto anterior mediante sesión N° 27-25 del 2 de junio de 2025)
