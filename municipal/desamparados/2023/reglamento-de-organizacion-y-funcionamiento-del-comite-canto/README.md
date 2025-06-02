@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento del Comité Cantonal de Deportes y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-12-15 | la propia norma |
+| 2 | 2025-06-02 | Reglamento municipal 35 (2025-06-02) |
