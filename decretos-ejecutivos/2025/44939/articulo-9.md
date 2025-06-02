@@ -1,0 +1,1 @@
+Artículo 9º-De las actas. Corresponderá al representante del Ministerio de Justicia y Paz custodiar las actas, mantenerlas en buen estado y velar porque se encuentren todas debidamente firmadas y foliadas.
