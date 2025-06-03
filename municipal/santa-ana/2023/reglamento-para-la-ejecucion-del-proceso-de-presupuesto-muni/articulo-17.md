@@ -1,1 +1,0 @@
-Artículo 17.-En caso que un Concejo de Distrito se encuentre desarticulado y fuera de funcionamiento, el proyecto se presentará directamente ante el Proceso de Promoción Social de la Municipalidad y esta lo remitirá a la Alcaldía para su análisis y resolución correspondiente.

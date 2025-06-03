@@ -1,1 +1,0 @@
-Artículo 24.-Los Concejos de Distrito también deberán dar seguimiento a la ejecución de proyectos para su distrito y colaborar con la Municipalidad como enlaces ante los vecinos/ as, organizaciones comunales, asociaciones de desarrollo y otros entes presentes en el distrito.

@@ -1,1 +1,0 @@
-Artículo 12.-Toda solicitud de proyecto será valorada legal y técnicamente por los Procesos correspondientes. En caso de que la administración municipal detecte algún incumplimiento que limite la ejecución del proyecto, será suspendido temporal o definitivamente, según lo amerite el tipo de incumplimiento.

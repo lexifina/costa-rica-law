@@ -1,2 +1,0 @@
-Artículo 18.-Los Concejos de Distrito podrán proponer proyectos como una organización más del distrito.
-En este último supuesto, los Concejos de Distrito interesados podrán presentar de forma conjunta un portafolio de proyectos interdistrital para lo cual deberán justificar el impacto del proyecto, solicitar su priorización, así como la utilización del presupuesto destinado a cada distrito para ese proyecto en común. En este caso, la Administración Municipal valorará la solicitud y recomendará lo que corresponda.

@@ -1,4 +1,0 @@
-Capítulo II
-Normas generales del proceso
-Artículo 5º-La asignación de recursos para ejecutar los proyectos de Presupuesto Participativo se realizará en el Presupuesto ordinario y extraordinarios de cada año, de acuerdo a la priorización realizada para cada uno de los Concejos de Distrito y a la disponibilidad presupuestaria; siempre y cuando dichos proyectos no presenten ningún impedimento de orden técnico, legal, financiero o ambiental y respondan a los planes de desarrollo establecidos para el distrito.
-En ningún caso podrá ser inferior al 10% del monto total de presupuesto ordinario de cada año, sin considerar ingresos específicos como son recursos de Ley 8144, recursos provenientes de CONAPAM, FODESAF, superávit, ingresos por préstamos o cualquier otro ingreso especifico que a futuro se incorpore en el presupuesto.
