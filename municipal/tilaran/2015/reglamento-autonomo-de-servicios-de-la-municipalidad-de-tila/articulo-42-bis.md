@@ -1,0 +1,2 @@
+Artículo 42 bis. Todas las personas que laboran para la Municipalidad, tendrán derecho al pago anualizado del salario escolar, correspondiente al monto calculado al 8.33% sobre la totalidad de los salarios o componentes salariales ordinarios y extraordinarios percibidos durante los meses de enero a diciembre previos al pago. Este derecho deberá ser cancelado a más tardar el día 20 de enero de cada año.
+(Así adicionado en sesión N° 57 del 3 de junio de 2025)
