@@ -15,3 +15,4 @@ Reglamento de crédito de INFOCOOP para los recursos propios, juveniles y PL-480
 | --- | --- | --- |
 | 1 | 2022-10-19 | la propia norma |
 | 2 | 2025-04-29 | Reglamento 4387 (2025-04-29) |
+| 3 | 2025-06-03 | Reglamento 4394 (2025-06-03) |
