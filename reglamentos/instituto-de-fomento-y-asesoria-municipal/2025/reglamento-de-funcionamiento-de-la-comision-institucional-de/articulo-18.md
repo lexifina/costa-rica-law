@@ -1,0 +1,2 @@
+Artículo 18.-Acuerdos de trabajo. Los acuerdos de trabajo se tomarán conforme a la votación de las personas integrantes de la comisión que se encuentren presentes en la reunión y será por mayoría simple (mitad más uno).
+Entre los acuerdos de trabajo figuran: visto bueno para remitir informes de trabajo, planes de trabajo, programas de comunicación a la Dirección Ejecutiva, desarrollo de actividades, retransmisión de charlas, organización de talleres, entre otros.

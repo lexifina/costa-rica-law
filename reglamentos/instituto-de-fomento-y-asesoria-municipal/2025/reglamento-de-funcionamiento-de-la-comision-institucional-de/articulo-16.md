@@ -1,0 +1,1 @@
+Artículo 16.-Convocatorias a reuniones ordinarias y extraordinarias. La convocatoria a reunión la realizará la persona designada como coordinadora de la comisión con al menos 24 horas de anticipación. Dicha convocatoria se realizará vía correo electrónico y deberá llevar adjunta la agenda de la reunión.

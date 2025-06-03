@@ -1,0 +1,7 @@
+Artículo 14.-Responsabilidades de la persona titular subordinada. Para el cumplimiento de las funciones establecidas en este reglamento, los siguientes son compromisos de la persona titular subordinada:
+a) Participar activamente de los procesos de la gestión ética.
+b) Proponer al jerarca la designación de la persona representante de la unidad funcional que compone la CIEV, cuando corresponda, y velar porque cumpla con el perfil de las personas integrantes especificadas en este reglamento.
+c) Facilitar el tiempo requerido a su representante, cuando corresponda, para que pueda cumplir con las funciones correspondientes.
+d) Proponer al jerarca, en caso de renuncia de su representante, la persona sustituta que cumpla con el perfil señalado en este reglamento.
+e) Involucrar y fomentar la participación del personal en las actividades promovidas por la comisión para el logro de los objetivos.
+f) Brindar el espacio y tiempo necesarios al personal a su cargo para que participe de las capacitaciones y actividades que realiza la comisión en materia de ética y valores institucionales.
