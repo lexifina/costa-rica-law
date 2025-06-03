@@ -1,0 +1,5 @@
+Artículo 47.- SERVICIOS QUE SE BRINDAN.
+a) Feria Vocacional: Participación en ferias vocacionales, cuyo fin es orientar al estudiante egresado de la educación media, para que conozca las diferentes carreras de Diplomado Parauniversitario a nivel de pregrado ofertadas por la Institución.
+b) Semana Estudiantil: Es obligatorio para los estudiantes de primer ingreso, pudiendo participar todos los estudiantes de la institución. Tiene un enfoque preventivo que incluye conocimiento sobre las distintas instancias y servicios que la Institución brinda. Su finalidad es orientar e informar sobre aspectos específicos de las carreras de Diplomado Parauniversitario a nivel de pregrado, generando conocimiento sobre las oportunidades que cada carrera ofrece.
+c) Orientación Psicopedagógica: Dirigida a todos los estudiantes de la Institución cuando así lo soliciten.
+d) Mediación de Conflictos Estudiantiles: Su finalidad es brindar orientación a estudiantes en la atención y mediación de conflictos académicos e interpersonales.

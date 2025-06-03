@@ -1,0 +1,1 @@
+Artículo 71.- RECURSOS. Sobre la resolución dictada de primera instancia, se podrá interponer, por parte del estudiante, los recursos de apelación que considere necesarios dentro del plazo de tres días hábiles después de notificada la resolución impugnada.

@@ -1,0 +1,2 @@
+Artículo 79.- DE LOS RECURSOS. El estudiante, en ejercicio del derecho de defensa, podrá interponer los recursos de revocatoria con apelación en subsidio para la resolución de primera instancia ante el Coordinador de Carrera como para la resolución de segunda instancia ante la Decanatura.
+Dichos recursos deberán ser presentados en un plazo no mayor de tres días hábiles siguientes al día de la notificación de la resolución respectiva.

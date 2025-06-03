@@ -1,0 +1,1 @@
+Artículo 44.- Los estudiantes recibirán orientación y seguimiento de carácter transversal sobre aspectos tales como: la descripción y objetivos del plan de estudios, perfil de salida, estructura y programación del plan de estudios y cursos, rendimiento académico, titulación, graduación e incorporación laboral de egresados, entre otros.

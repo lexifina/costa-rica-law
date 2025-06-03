@@ -1,0 +1,2 @@
+Artículo 70.- RESOLUCIÓN. El Coordinador de Carrera deberá resolver el proceso en un plazo no mayor a tres días hábiles siguiente a la realización de la audiencia oral. La resolución debe ser fundamentada en razones de hecho y de derecho. Podrá también ordenar el archivo de la causa o bien imponer la sanción disciplinaria.
+La resolución de primera instancia se notificará al estudiante involucrado.

@@ -1,0 +1,1 @@
+Artículo 22.- DEL REPRESENTANTE ESTUDIANTIL. Los estudiantes tendrán derecho a ser representados en aquellos órganos que el presente reglamento y las disposiciones internas señalen. El representante estudiantil será electo por medio del sufragio, universal y secreto de los estudiantes, de acuerdo con el respectivo Reglamento de Elecciones Estudiantiles.

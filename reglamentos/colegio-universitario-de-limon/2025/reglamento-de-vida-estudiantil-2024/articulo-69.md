@@ -1,0 +1,1 @@
+Artículo 69.- AUDIENCIA. En la audiencia oral y privada, el Coordinador de Carrera hará lectura de la denuncia y evacuará la prueba de cargo y de descargo presentada, también podrá solicitar alguna prueba adicional que considere necesaria para la resolución.

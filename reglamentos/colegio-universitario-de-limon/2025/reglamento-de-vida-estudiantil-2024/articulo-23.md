@@ -1,0 +1,1 @@
+Artículo 23.- DE LA ELECCIÓN DEL REPRESENTANTE ESTUDIANTIL. Los estudiantes de las carreras de Diplomado Parauniversitario a nivel de pregrado, tendrán una participación activa y democrática, mediante la elección de su representante.

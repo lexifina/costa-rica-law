@@ -1,0 +1,2 @@
+Artículo 78.- ASESORIA DEL ESTUDIANTE. El estudiante durante el proceso disciplinario, tendrá derecho, a ser asistido por un profesional en derecho o una persona de su confianza, bajo su absoluta responsabilidad a efecto de ejercer el derecho de defensa.
+Las partes involucradas y sus representantes tendrán derecho en cualquier fase del procedimiento a examinar, leer y copiar el expediente bajo su propia responsabilidad.

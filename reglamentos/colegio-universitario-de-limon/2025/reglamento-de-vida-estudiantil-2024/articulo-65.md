@@ -1,0 +1,1 @@
+Artículo 65.- La denuncia formulada, la apertura del expediente, así como la resolución emitida por el Órgano Disciplinario, Coordinador de Carrera y Decanatura, será notificada al estudiante, brindándole el derecho de defensa y debido proceso.

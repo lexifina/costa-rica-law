@@ -1,0 +1,1 @@
+Artículo 49.- Corresponde a las autoridades de la Institución, adoptar y desarrollar las decisiones políticas educativas relativas al fomento de la convivencia, el respeto a los derechos y deberes de los integrantes de la Institución.

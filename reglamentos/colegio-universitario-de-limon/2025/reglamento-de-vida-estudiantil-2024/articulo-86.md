@@ -1,0 +1,1 @@
+Artículo 86. DIVULGACIÓN DE LA NORMATIVA. El Colegio Universitario de Limón garantizará que este Reglamento de Vida Estudiantil, así como el Estatuto Orgánico y el Reglamento de Régimen Académico sean divulgados por los medios que estime pertinentes, para conocimiento de la comunidad educativa.

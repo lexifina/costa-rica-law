@@ -1,0 +1,1 @@
+Artículo 74.- En aquellos casos en que exista conflicto de intereses por la duplicidad de funciones de docente y de Coordinador de Carrera, la Dirección Académica nombrará un Coordinador de Carrera distinto a efecto que éste conozca y resuelva en primera instancia los recursos que se le presenten.

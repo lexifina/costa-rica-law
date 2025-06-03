@@ -1,0 +1,1 @@
+Artículo 24.- La Institución impulsará la participación activa de los estudiantes en los procesos de elección, proporcionando la información, los medios materiales necesarios, fomentando el debate, así como facilitando y promoviendo mecanismos de participación estudiantil.

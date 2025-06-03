@@ -1,0 +1,1 @@
+Artículo 41.- La actividad física y deportiva es un componente de la formación integral del estudiante. Los estudiantes tienen el derecho del uso y el deber de cuidado de las instalaciones y equipamientos que se pongan a su disposición propiedad de la Institución.

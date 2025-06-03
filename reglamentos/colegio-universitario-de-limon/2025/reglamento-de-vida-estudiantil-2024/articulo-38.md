@@ -1,0 +1,1 @@
+Artículo 38.- DEL PROGRAMA DE SALUD Y SEGURIDAD. La comisión de Emergencias y Salud Ocupacional de la Institución calendarizará actividades y programas de prevención sobre la temática de salud, articulada con medidas de seguridad interna y el seguimiento de actividades relacionadas con la atención médica de emergencias dirigidas a la comunidad educativa.

@@ -1,0 +1,1 @@
+Artículo 18.- La Institución desarrollará las actuaciones necesarias para garantizar que los estudiantes puedan alcanzar los conocimientos, las competencias académicas y profesionales programadas en cada cuatrimestre.

@@ -1,0 +1,1 @@
+Artículo 13.- DATOS PERSONALES. Los datos personales de los estudiantes son confidenciales y se utilizarán con respeto y no para fines distintos que los regulados por la Ley de Protección de la persona frente al tratamiento de sus datos personales - Ley N° 8968.

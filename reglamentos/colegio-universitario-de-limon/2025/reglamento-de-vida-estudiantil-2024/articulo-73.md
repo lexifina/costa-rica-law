@@ -1,0 +1,1 @@
+Artículo 73.-COMUNICACIÓN DE LA RESOLUCIÓN EN SEGUNDA INSTANCIA. La resolución de segunda instancia en firme también deberá ser comunicada a los departamentos de Bienestar Estudiantil, de Registro u otra instancia, a efecto de dar seguimiento al cumplimiento de la sanción disciplinaria.

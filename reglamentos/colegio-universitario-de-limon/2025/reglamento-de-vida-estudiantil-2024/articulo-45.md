@@ -1,0 +1,2 @@
+Artículo 45.- La orientación académica consiste en el análisis del expediente académico, que se realiza de forma conjunta entre el estudiante y el Coordinador de Carrera o el departamento de Bienestar Estudiantil, para determinar la carga académica a matricular por el estudiante.
+Únicamente se podrá autorizar matrícula de cursos del Plan de Estudios previamente aprobado por el Consejo Superior de Educación cuando el estudiante cumpla con todos los requisitos previamente establecidos para ello.

@@ -1,0 +1,1 @@
+Artículo 33.- El departamento de Bienestar Estudiantil en conjunto con los Coordinadores de Carrera garantizarán que los procesos de formación lleguen a todos los sectores académicos y estudiantiles, sin ningún tipo de discriminación.

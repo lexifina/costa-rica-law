@@ -1,0 +1,1 @@
+Artículo 62.- El escrito deberá indicar: el nombre completo de la persona denunciante, número de identificación, el lugar dispuesto para la debida atención de las notificaciones, la fecha, la firma, además de una exposición detallada de los aspectos correspondientes a las acciones que dan lugar a la denuncia.

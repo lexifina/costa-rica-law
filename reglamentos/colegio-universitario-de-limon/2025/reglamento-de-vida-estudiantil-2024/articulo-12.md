@@ -1,0 +1,1 @@
+Artículo 12.- OBLIGACIÓN DEL ESTUDIANTE. Es obligación del estudiante reportar al Departamento de Registro y al Coordinador de Carrera algún cambio en los datos personales, sea número telefónico, domicilio, lugar o dirección de correo electrónico para recibir notificaciones o algún otro dato que considere pertinente.

@@ -1,0 +1,2 @@
+Artículo 39.- MEDIOS DE DIVULGACIÓN. Para brindar información a la comunidad educativa y en general de las carreras parauniversitarias, procesos y actividades a desarrollar, la Institución dispone de los siguientes mecanismos de comunicación:
+Redes Sociales - Facebook https://www.facebook.com/cunlimon2?mibextid=ZbWKwL, INSTAGRAM https://www.instagram.com/cun.limon?igsh=bmVld2lha3lsaTlx, Página WEB: www.cunlimon.ac.cr, Sistema de Mensajería Corporativa y el correo info@cunlimon.ac.cr.

@@ -1,0 +1,1 @@
+Artículo 82.- DE LA RECUSACIÓN. El Coordinador de Carrea tendrá impedimento para conocer de una causa cuando tenga un interés directo en el asunto o cuando exista parentesco por consanguinidad o afinidad. Lo mismo se aplicará para la Decanatura.

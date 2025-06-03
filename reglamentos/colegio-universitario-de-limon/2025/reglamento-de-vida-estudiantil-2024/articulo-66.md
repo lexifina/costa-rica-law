@@ -1,0 +1,1 @@
+Artículo 66.- Para el levantamiento de actas de notificación y actas de declaración de testigos, se deberá hacer constar el lugar y la fecha de su realización, la descripción del acto y la firma de quien elabora el acta y las personas que intervinieron en el mismo, previa lectura del documento.

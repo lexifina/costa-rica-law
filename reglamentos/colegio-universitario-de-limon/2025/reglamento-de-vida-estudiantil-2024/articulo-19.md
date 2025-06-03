@@ -1,0 +1,1 @@
+Artículo 19.- Los estudiantes tendrán libertad de expresión, de reunión y asociación en el ámbito parauniversitario, exenta de toda discriminación directa e indirecta, como expresión de la corresponsabilidad en la gestión educativa y del respeto proactivo a las personas y la Institución.

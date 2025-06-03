@@ -1,0 +1,1 @@
+Artículo 5.- DE LAS COMISIONES. La Institución contará con las comisiones que fueren necesarias para el desarrollo de los procesos académicos-administrativos. Será obligación de los funcionarios participar activamente en la comisión para la cual se les nombre, por parte de la Decanatura o autoridad competente.

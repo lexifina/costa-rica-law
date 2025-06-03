@@ -1,0 +1,1 @@
+Artículo 42.- Se promoverá la actividad física y deportiva, los hábitos de vida saludable y el desarrollo de valores como el espíritu de sana competición y juego limpio, de respeto por el adversario, de integración y compromiso con el trabajo y de solidaridad, así como de respeto del reglamento o normas de juego y de quienes las apliquen.

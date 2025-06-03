@@ -1,0 +1,1 @@
+Artículo 61.- DENUNCIA DISCIPLINARIA. La denuncia de una supuesta falta disciplinaria deberá ser presentada de forma escrita por la persona que tenga conocimiento de los supuestos hechos realizados por la persona estudiante ante el Coordinador de Carrera.
