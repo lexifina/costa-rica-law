@@ -1,0 +1,5 @@
+Artículo 22°. De las gestiones para diseñar las pruebas de comprobación de idoneidad. La Oficina de gestión de recursos humanos para definir el diseño y aplicación de las pruebas de comprobación de idoneidad, puede realizar alguna de las siguientes gestiones:
+a) Contratar instancias nacionales o internacionales especializadas en evaluación y medición, siguiendo los mecanismos de contratación dispuestos en los artículos 8 y 9 respectivamente la Ley General de Contratación Pública, Ley N° 9986.
+b) Coordinar con otras instancias nacionales o internacionales especializadas en evaluación y medición, mediante convenios de cooperación u otros mecanismos.
+c) Desarrollar con equipos técnicos internos del MEP, siguiendo una metodología pertinente y técnicamente respaldada.
+Las gestiones anteriores se deben realizar en apego a los procedimientos y garantías asociados a la autodeterminación informativa, establecidos en los artículos 4, 8 y 24 de la Ley N° 8968, Protección de la Persona Frente al Tratamiento de sus Datos Personales

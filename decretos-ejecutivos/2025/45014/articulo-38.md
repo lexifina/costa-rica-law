@@ -1,0 +1,1 @@
+Artículo 38°. De la generación de la calificación de las pruebas para la comprobación de la idoneidad. La Oficina de gestión de recursos humanos determinará el uso de generadores automáticos de calificación que permitan calcular los puntajes de forma automatizada, como parte del proceso de generación de la calificación de las pruebas de comprobación de la idoneidad.

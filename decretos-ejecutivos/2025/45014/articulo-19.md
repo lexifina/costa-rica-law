@@ -1,0 +1,1 @@
+Artículo 19°. De la creación del banco de ítems o reactivos. Las pruebas al ser consideradas cautivas permitirán la conformación de un banco de ítems o reactivos que garanticen el cumplimiento de los principios de validez y confiabilidad.

@@ -1,0 +1,1 @@
+Artículo 18°. Del establecimiento de la prueba cautiva. Se considerarán cautivas aquellas pruebas cuyo acceso esté restringido total o parcialmente al público. Los reactivos de una prueba cautiva pueden ser reutilizados en aplicaciones futuras; por lo tanto, su divulgación podría comprometer las evidencias de validez y la confiabilidad de los resultados.

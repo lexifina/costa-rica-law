@@ -1,0 +1,1 @@
+Artículo 48°. De la anulación de las pruebas de comprobación de la idoneidad a la persona oferente. Se anularán las pruebas de comprobación de la idoneidad en los procesos de selección y nombramiento de la Carrera Docente, a aquella persona oferente que incumpla con las normas, reglas y directrices establecidas para su realización.

@@ -1,0 +1,1 @@
+Artículo 11°. De la remuneración de las personas miembros de la Comisión Técnica para la comprobación de la idoneidad en los procesos de selección y nombramiento de la Carrera Docente. Las personas funcionarias de la Comisión Técnica no gozarán del pago de dietas u otras figuras remunerativas por participar de esta Comisión.
