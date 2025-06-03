@@ -1,0 +1,1 @@
+Artículo 94. EVALUACIÓN PRUEBA FINAL DE GRADUACIÓN. Una vez finalizado el plan de estudios, el estudiante deberá someterse a una prueba final de graduación. La Institución ofrecerá a los estudiantes la modalidad de prueba final de graduación previamente aprobada por el Consejo Superior de Educación para cada carrera.

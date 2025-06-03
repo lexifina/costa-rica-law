@@ -1,0 +1,3 @@
+Artículo 36. ACTOS DE GRADUACIÓN. Es la ceremonia solemne celebrada con el propósito de recibir el juramento de los estudiantes graduados y de entregarles el diploma correspondiente. Habrá al menos dos actos de graduación por año, que deberán programarse en el calendario académico.
+Es deber de todo estudiante graduando asistir al Acto de Graduación. Si por motivos muy calificados no pudiere hacerlo, debe concurrir a un acto de Juramentación en la Decanatura de la Institución. Para ello, deberá consultar ante las instancias respectivas las fechas programas para ese fin.
+DEL SISTEMA DE BECAS DE EXONERACIÓN

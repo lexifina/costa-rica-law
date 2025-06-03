@@ -1,0 +1,7 @@
+Artículo 73. FORMAS DE EVALUACIÓN. Las formas de evaluación se establecen para cada curso en el programa de este y se desarrollan, además, en normativa interna.
+a) Pruebas parciales: Son evaluaciones parciales periódicas sobre temas específicos cuyo objetivo es conocer el grado de desarrollo académico del estudiante y suministrar su retroalimentación. Estas pruebas pueden ser orales o escritas.
+b) Pruebas finales: Son evaluaciones que se presentan al finalizar el período lectivo con el objetivo de comprobar la adquisición de conocimientos planteados para el curso.
+Estas pruebas se aplicarán al final de cada curso y podrán ser orales o escritas. Las pruebas deben ser elaboradas considerando las políticas institucionales y las buenas prácticas en evaluación del proceso enseñanza-aprendizaje. Deberán ser congruentes con la naturaleza del curso y la metodología de enseñanza-aprendizaje desarrollada en el mismo.
+Es obligación de todo el estudiantado presentar un documento de identidad vigente con fotografía.
+El Cronograma de pruebas parciales, finales, extraordinarias y suficiencias, será establecido en el Calendario Académico.
+Las pruebas deben ser elaboradas considerando las políticas institucionales y las buenas prácticas en evaluación del proceso enseñanza-aprendizaje. Deberán ser congruentes con la naturaleza del curso y la metodología de enseñanza-aprendizaje desarrollada en él.

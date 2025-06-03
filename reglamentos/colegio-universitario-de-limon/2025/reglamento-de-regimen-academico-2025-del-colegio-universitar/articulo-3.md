@@ -1,0 +1,1 @@
+Artículo 3. DE LAS COMISIONES. La Institución parauniversitaria creará las Comisiones que sean necesarias. Es obligación de los funcionarios, participar activamente en la Comisión para la cual se les nombra. La composición e integración de las diferentes Comisiones estará a cargo de la Dirección Académica.

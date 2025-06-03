@@ -1,0 +1,1 @@
+Artículo 33. DERECHO AL OBTENER EL TÍTULO. El título parauniversitario da el derecho al ejercicio de la actividad, para la cual se ha formado el estudiante; o bien, en los casos en que tuviera que colegiarse, el referido título tendrá la validez suficiente para lograr la incorporación al colegio profesional respectivo.

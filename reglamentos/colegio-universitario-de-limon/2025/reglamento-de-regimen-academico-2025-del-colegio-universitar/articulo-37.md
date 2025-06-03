@@ -1,0 +1,1 @@
+Artículo 37. DEFINICIÓN. Se entenderá por exoneración el beneficio otorgado a los estudiantes, el cual consiste en la condonación del pago de cursos, matrícula o cualquier otro beneficio estudiantil contemplado en el Reglamento Institucional del Sistema de Exoneraciones.

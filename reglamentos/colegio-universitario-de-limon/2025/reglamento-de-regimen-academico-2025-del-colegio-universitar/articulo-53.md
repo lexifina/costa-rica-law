@@ -1,0 +1,1 @@
+Artículo 53. La Institución debe ofrecer a los estudiantes, en cada cuatrimestre, los cursos que conforman el plan de estudios de cada carrera activa según el orden establecido en la malla curricular, previamente aprobada por el Consejo Superior de Educación, y de manera tal que ningún curso se deje de impartir durante un periodo superior a dos cuatrimestres consecutivos.

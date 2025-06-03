@@ -1,0 +1,1 @@
+Artículo 29. DE LA FALSEDAD DE DOCUMENTOS. Si se determina falsedad en la información o documentación suministrada por el estudiante admitido, la admisión ya otorgada queda anulada. En este orden no se considerará el tiempo de permanencia que tenga el estudiante en la Institución.

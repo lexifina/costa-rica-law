@@ -1,0 +1,2 @@
+Artículo 113. CONSTANCIAS Y CERTIFICACIONES. El Departamento de Registro es el órgano encargado de mantener actualizado el expediente oficial de calificaciones de los estudiantes y es el único competente para certificar o hacer constar la información contenida en él. La documentación se entregará en un plazo no mayor a ocho días hábiles, previo pago y presentación del recibo correspondiente de los derechos. Estas constancias o certificaciones se harán a solicitud del interesado.
+DEPARTAMENTO DE BIENESTAR ESTUDIANTIL

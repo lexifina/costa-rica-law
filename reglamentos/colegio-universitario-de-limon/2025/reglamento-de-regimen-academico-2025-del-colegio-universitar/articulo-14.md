@@ -1,0 +1,1 @@
+Artículo 14. VIGENCIA DE LAS CARRERAS. La entrada en vigencia de las actualizaciones o modificaciones de los planes de estudios de una carrera de Diplomado Parauniversitario nivel pregrado se aplicará a los estudiantes de nuevo ingreso del periodo lectivo siguiente; sin perjuicio de que los estudiantes ya matriculados, decidan voluntariamente someterse a las mismas.

@@ -1,0 +1,5 @@
+Artículo 46. DE LAS FORMAS DE MATRÍCULA. El procedimiento de matrícula se realiza en el Departamento de Registro y se clasificará de la siguiente forma:
+a) Primer ingreso: se considerará matricula de primer ingreso aquellas en las cuales el estudiante haya cumplido con los requisitos admisión y ésta sea su primera experiencia en alguna de las carreras impartidas por la Institución.
+b) Reingreso: se considerará matricula por reingreso aquella que realiza una persona que haya sido estudiante de la Institución y se haya retirado de la misma sin finalizar el plan de estudios.
+c) La persona que reingrese a la Institución podrá continuar con el mismo plan de estudios que venía cursando, siempre y cuando dicho plan esté vigente; caso contrario, deberá ingresar al nuevo plan de estudios vigente, equiparándose lo cursos que ya haya aprobado previamente y que se contemplen en el nuevo plan de la carrera.
+d) Ingreso por Cambio de Carrera: El estudiante que desea cambiar de carrera puede hacerlo de acuerdo a los períodos establecidos en el calendario académico, cuando cumpla con los requisitos establecidos por la Unidad de Registro y de la carrera de interés.

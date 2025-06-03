@@ -1,0 +1,2 @@
+Artículo 31. INDUCCIÓN A LA CARRERA. Cada Coordinación de Carrera deberá brindar el proceso de inducción a los estudiantes de primer ingreso sobre: la Institución, la Carrera, los deberes y derechos y los servicios administrativos que ofrece la Institución.
+TITULACIÓN Y ACTO DE GRADUACIÓN

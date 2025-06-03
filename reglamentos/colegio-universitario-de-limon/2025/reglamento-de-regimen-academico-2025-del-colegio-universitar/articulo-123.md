@@ -1,0 +1,1 @@
+Artículo 123. DIVULGACIÓN DE LA NORMATIVA. El Colegio Universitario de Limón garantizará que este Reglamento Régimen Académico, así como el Estatuto Orgánico y el Reglamento de Vida Estudiantil sean divulgados por los medios que estime pertinentes, para conocimiento de la comunidad educativa.

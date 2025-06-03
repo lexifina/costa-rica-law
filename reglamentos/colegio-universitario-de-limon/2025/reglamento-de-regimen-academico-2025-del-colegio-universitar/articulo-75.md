@@ -1,0 +1,3 @@
+Artículo 75. DE LA SANCIÓN POR ACCIONES FRAUDULENTAS. Cuando en alguna actividad sujeta a evaluación, el docente determine, durante la actividad o al finalizar la misma, que un estudiante ha incurrido en fraude, procederá a levantar el acta correspondiente, retirar la prueba si fuera el caso y comunicar por escrito al Coordinador de Carrera la solicitud de apertura del procedimiento disciplinario. El mismo procedimiento se aplicará cuando se constate una irregularidad similar con posterioridad a la prueba u otras
+actividades de evaluación.
+Toda conducta de carácter fraudulento en que incurra el estudiante durante su estancia en la Institución, se catalogará y sancionara conforme a lo previsto en el Reglamento de Vida Estudiantil y de conformidad con el debido proceso.

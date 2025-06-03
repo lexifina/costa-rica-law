@@ -1,0 +1,1 @@
+Artículo 108. COORDINADOR DE CARRERA. Es el funcionario encargado de la administración académica de la carrera que es designado por el Decano y enlace directo entre los estudiantes y la Institución. Y que cumple con los requerimientos y atestados idóneos afín a la carrera.

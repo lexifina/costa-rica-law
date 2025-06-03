@@ -1,0 +1,1 @@
+Artículo 34. EQUIVALENCIA DEL TÍTULO. Los títulos de Diplomado Parauniversitario tendrán equivalencia con el título del nivel Técnico 5 establecido en el Marco Nacional de Cualificaciones de la Educación y Formación Técnica Profesional.

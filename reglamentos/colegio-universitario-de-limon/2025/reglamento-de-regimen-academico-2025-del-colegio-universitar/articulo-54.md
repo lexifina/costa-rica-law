@@ -1,0 +1,4 @@
+Artículo 54. Para la apertura de los cursos en las diferentes carreras se aplicarán las siguientes condiciones:
+a) En los cursos de primer nivel se requerirá un mínimo de 15 pestudiantes hasta un máximo de 30 estudiantes.
+b) En los cursos regulares, que no sean del primer nivel, se requerirá un mínimo de 10 estudiantes hasta un máximo de 30 estudiantes.
+c) En los cursos del último nivel de la carrera se garantizará la apertura y continuidad de los cursos. Si por razones administrativo-financieras propias de la Institución no fuere viable ofrecer alguno de los cursos en el cuatrimestre correspondiente, estará obligada a hacerlo para los estudiantes que los necesitaren, mediante planes remediales u otra mediación pedagógica alternativa, de manera que ellos no sufran atraso en el avance regular de sus estudios.

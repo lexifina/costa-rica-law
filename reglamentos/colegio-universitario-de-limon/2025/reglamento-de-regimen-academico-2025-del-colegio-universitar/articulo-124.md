@@ -1,0 +1,1 @@
+Artículo 124. MODIFICACIONES. Las modificaciones al Reglamento Régimen Académico y sus reformas deben ser previamente autorizadas mediante acuerdo por el Consejo Directivo del Colegio Universitario de Limón y remitidas al Consejo Superior de Educación para su aprobación final.

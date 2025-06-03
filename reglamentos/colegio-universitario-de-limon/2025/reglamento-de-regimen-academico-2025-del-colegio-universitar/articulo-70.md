@@ -1,0 +1,1 @@
+Artículo 70. DE LA REPETICIÓN DE CURSOS. El estudiante que pierda un curso por segunda vez, solo tendrá derecho a matricular ese curso para el siguiente cuatrimestre y su caso será estudiado integralmente por la Coordinación de Carrera y Bienestar Estudiantil con el propósito de hacer las recomendaciones pertinentes.

@@ -1,0 +1,3 @@
+Artículo 86. DEL RESULTADO DE LA PRUEBA DE SUFICIENCIA. El estudiante que alcanzare una calificación final igual o superior a 70, en una escala de 0 a 100, tendrá una condición de APROBADO en el respectivo curso. La aprobación de la Prueba por Suficiencia implica, además, la asignación de los créditos correspondientes, quedando como nota final del curso la que obtuvo en dicha prueba.
+El estudiante que alcanzaré una calificación final menor a 70, en una escala de 0 a 100, tendrá una condición de REPROBADO. En caso de reprobar el examen de suficiencia, el estudiante no podrá solicitar nuevamente la realización de la Prueba por Suficiencia en la carrera, debiendo matricular dicho curso de forma regular.
+DEL RENDIMIENTO ACADÉMICO

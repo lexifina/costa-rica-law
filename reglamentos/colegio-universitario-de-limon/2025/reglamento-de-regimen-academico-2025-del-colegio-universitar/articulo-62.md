@@ -1,0 +1,5 @@
+Artículo 62. ASISTENCIA. De los estudiantes a todas las actividades académicas a las que fuere convocado.
+a) Si el estudiante no se presenta a una prueba evaluativa por razones justificadas debidamente comprobadas, sea por fuerza mayor o caso fortuito, deberá solicitar reposición de prueba dentro de los tres días hábiles posteriores a la realización de esta ante el docente y en caso de que éste no esté, a la persona coordinadora de carrera. De aprobarse la solicitud de reposición, la prueba se aplicará en los siete días posteriores a la aplicación de la primera prueba.
+b) La prueba de reposición se reprogramará para ser realizada en la siguiente lección.
+c) Si una prueba no se realizara en la fecha establecida en el cronograma del curso por ausencia del docente, los estudiantes harán la solicitud de reposición de la prueba ante la persona coordinadora de carrera, quien coordinará con el docente la reposición de esta. El docente, de común acuerdo con los estudiantes, reprogramará la actividad.
+d) En caso de llegada tardía, el estudiante realizará la prueba con el tiempo restante establecido para ésta.

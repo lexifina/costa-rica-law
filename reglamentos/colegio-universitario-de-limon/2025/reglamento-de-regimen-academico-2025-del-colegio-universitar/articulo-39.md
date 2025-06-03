@@ -1,0 +1,2 @@
+Artículo 39. OTORGAMIENTO DEL BENEFICIO. Para la ejecución de los objetivos establecidos, el Consejo Directivo determinará el porcentaje anual que se asignará al programa de exoneraciones, con respecto de las metas, proporcionalidad y razonabilidad presupuestaria.
+La revisión, estudio y aplicación del beneficio se normará por las disposiciones establecidas en el Reglamento Institucional del Sistema de Exoneración de la Institución, aprobado por el Consejo Directivo en sesión extraordinaria # 306, del 25 de marzo del 2015.

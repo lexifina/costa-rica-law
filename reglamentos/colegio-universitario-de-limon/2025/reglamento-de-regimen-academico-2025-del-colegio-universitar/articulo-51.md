@@ -1,0 +1,1 @@
+Artículo 51. RETIRO INJUSTIFICADO. El estudiante que se retira del curso sin haber presentado la solicitud de retiro justificado ante el Departamento de Registro dentro del periodo establecido para ello en el Calendario Académico. En el curso se consignarán las evaluaciones parciales que haya obtenido hasta el momento de su retiro.

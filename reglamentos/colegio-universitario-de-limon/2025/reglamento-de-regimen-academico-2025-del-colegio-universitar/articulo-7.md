@@ -1,0 +1,1 @@
+Artículo 7. AÑO ACADEMICO. El año académico inicia en enero y finaliza en diciembre, comprende tres periodos cuatrimestrales. Entre el primer y segundo cuatrimestre y el segundo y tercero cuatrimestre, se establece un periodo de descanso estudiantil equivalente a una semana.

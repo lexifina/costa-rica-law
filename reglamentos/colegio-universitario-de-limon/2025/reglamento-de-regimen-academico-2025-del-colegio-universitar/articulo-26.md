@@ -1,0 +1,1 @@
+Artículo 26. DE LA ADMISIÓN. Con el fin de establecer el cumplimiento de los requisitos de admisión la matrícula se regirá por los cupos y requisitos de admisión establecidos. Los estudiantes que cumplan los requisitos exigidos tienen derecho a acceder y a solicitar la admisión en el sistema académico conforme a los procedimientos previstos en la normativa vigente.

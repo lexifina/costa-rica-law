@@ -1,0 +1,1 @@
+Artículo 50. RETIRO JUSTIFICADO. El estudiante podrá hacer retiro justificado de un curso dentro del periodo establecido para ello en el Calendario Académico presentando la solicitud de retiro justificado debidamente firmada ante el Departamento de Registro.
