@@ -1,1 +1,0 @@
-Artículo 9º—La Unidad de Control de Equipo estará adscrita al Departamento Administrativo y será encargada de ejercer las acciones de control de que habla el artículo once de esta misma reglamentación y todas aquellas otras que el Director Ejecutivo y la Junta Directiva del CTP llegaré a emitir en el futuro.
