@@ -1,0 +1,1 @@
+Artículo 3º-Derogatoria. Deróguese el Decreto Ejecutivo Nº 44317-MOPT, Actualización de Tarifas de Acarreo y Custodia de Vehículos Detenidos por Infracciones a la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Nº 9078, para el año 2024, del 30 de octubre de 2023, publicado en el Alcance Nº 257 a La Gaceta Nº 237 del 21 de diciembre de 2023.
