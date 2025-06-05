@@ -1,1 +1,0 @@
-Artículo 5º—Este reconocimiento se dará en todas aquellas actividades que el promotor crea necesario que el concurso tenga interés y conocimiento público como para que la Municipalidad participe con previa invitación del organizador del evento. Eso en razón de no perjudicar e irrespetar la voluntad de la organización que está haciendo el evento.

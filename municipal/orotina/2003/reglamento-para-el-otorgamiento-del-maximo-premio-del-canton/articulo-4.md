@@ -1,1 +1,0 @@
-Artículo 4º—Esta premiación será el reconocimiento a: La originalidad, esfuerzo, creatividad, entrega, interés, que la actividad requiera en ese momento, y que cuyos requisitos serán propuestos a la hora de realizar la actividad.

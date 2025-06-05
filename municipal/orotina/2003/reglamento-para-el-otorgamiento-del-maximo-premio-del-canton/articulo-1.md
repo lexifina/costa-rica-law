@@ -1,9 +1,0 @@
-GALARDÓN DE LAS FRUTAS
-El Concejo Municipal de Orotina en el artículo II, aparte 2 del acta de sesión ordinaria Nº 84, celebrada el día 6-5-2003, tomó el siguiente acuerdo:
-Reglamento para el otorgamiento del máximo premio del cantón de Orotina denominado:
-GALARDÓN DE LAS FRUTAS
-Preámbulo
-En un cantón donde existe el florecimiento de muchos carismas en los diversos sectores de la cultura, es prioridad que la Municipalidad como máxima autoridad que representa el sentimiento de un pueblo, sea realista y esté al lado de su gente, y de que mejor manera que premiando a sus ciudadanos en los esfuerzos diarios de poner en lo más alto el nombre de Orotina, en aquellas actividades competitivas que se realizan dentro de nuestro cantón.
-Así es, cada vez más somos testigos de campeonatos deportivos, concursos de canto, teatro, música, mimo, baile, pintura, fotografía, en fin en todas las disciplinas del deporte y en todos los sectores donde la cultura esté activa, debemos de participar y ser garantes del reconocimiento de nuestros hijos que día a día ponen al servicio de Orotina, sus dones tan preciados en un sin número de actividades.
-Es por eso que este servidor, Marco Alonso Fuentes Umaña, consciente de la realidad de falta de incentivo cultural y deportivo, además de una falta de identidad cívica presente en nuestro cantón, presentó ante la honorable Municipalidad de Orotina, el proyecto de creación del "Galardón de las Frutas", que será regulado de la siguiente manera:
-Artículo 1º—Este proyecto lleva el nombre de "Galardón de las Frutas", original de nuestro cantón, por ser el principal motor de desarrollo y sustento de nuestros ciudadanos, además de ser característica principal que nos identifica bajo el nombre de "Ciudad Nacional de las frutas". Productos que son modelo de belleza natural, y que son premio para el trabajo arduo y responsable de cada agricultor de Orotina.

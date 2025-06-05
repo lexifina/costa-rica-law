@@ -1,1 +1,0 @@
-Artículo 2º—Es el reconocimiento máximo y único que nuestra Municipalidad como principal institución del cantón, otorgará en todas aquellas premiaciones, concursos, talleres, ferias, competencias deportivas, culturales, educativas, promocionales, religiosas, y demás, que en nuestro cantón se realicen.
