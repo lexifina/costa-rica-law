@@ -1,0 +1,1 @@
+Artículo 40. Contenido presupuestario para pago de servicio de transporte. Para que el pago de servicio de transporte público se debe contar con el contenido presupuestario en el sistema informático institucional en la partida correspondiente.

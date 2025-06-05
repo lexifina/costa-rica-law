@@ -1,0 +1,1 @@
+Artículo 41. Formulario para liquidación de gastos de transporte. La persona servidora debe presentar el formulario de liquidación correspondiente con la autorización y firma de la jefatura inmediata.

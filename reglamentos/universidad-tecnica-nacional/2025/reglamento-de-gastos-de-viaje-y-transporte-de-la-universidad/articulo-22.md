@@ -1,0 +1,5 @@
+Artículo 22. Monto de la tarifa. Cuando una persona solicitante realiza una gira, el monto de la tarifa que se reconoce corresponde a los servicios utilizados. Para tales efectos, se considera el inicio de una gira, la hora en que la persona solicitante inicie el viaje hacia el lugar de destino. De la misma forma, se considera concluida, cuando la persona solicitante regresa a su sede o centro de trabajo, o en su defecto, a su domicilio durante el desarrollo de la gira, se contempla lo siguiente según corresponda:
+a. Desayuno: se reconoce cuando la gira se inicia antes de o inclusive a las siete horas.
+b. Almuerzo: se cubre cuando la partida se realiza antes de o inclusive a las once horas y el regreso después de las catorce horas.
+c. Cena: se paga cuando la partida se realiza antes de o inclusive a las dieciocho horas y el regreso después de las veinte horas.
+d. Hospedaje: se reconoce cuando la persona se viere obligado a pernoctar fuera de su domicilio, en razón de la gira y previamente autorizado por la jefatura inmediata.

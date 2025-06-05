@@ -1,0 +1,1 @@
+Artículo 39. Tipos de servicio de transportes. Las personas servidoras tienen derecho a que se le reconozca el gasto por la utilización de servicios de transporte terrestre, fluvial, marítimo o aéreo, cuando no exista servicio de transporte público remunerado en las modalidades de autobús o taxi, debidamente justificado el costo beneficio por parte de la jefatura inmediata.

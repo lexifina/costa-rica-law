@@ -1,0 +1,2 @@
+Artículo 47. Vigencia y derogatoria del Reglamento. Este Reglamento rige a partir de su publicación y deroga el Reglamento de Fondo de Caja Chica de la Universidad Técnica Nacional y Reglamento de Uso de Transporte Público en las Giras de los Funcionarios, así como, la normativa conexa.
+(Aprobado por el Consejo Universitario, en Sesión Ordinaria No.12 del 15 de mayo de 2025, Acta No. 12-2025, Acuerdo 9, publicado en el Diario Oficial La Gaceta No.102 del 05 de junio de 2025.)

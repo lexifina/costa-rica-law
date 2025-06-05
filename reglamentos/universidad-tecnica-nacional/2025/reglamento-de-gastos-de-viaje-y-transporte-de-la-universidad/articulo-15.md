@@ -1,0 +1,1 @@
+Artículo 15. Plazos para la solicitud de viáticos al interior del país. Las solicitudes de viáticos al interior del país se pueden tramitar hasta dos días hábiles antes del inicio de la gira, o bien una vez finalizada y liquidada la gira.

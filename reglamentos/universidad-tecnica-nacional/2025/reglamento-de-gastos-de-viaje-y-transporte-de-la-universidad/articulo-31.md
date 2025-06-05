@@ -1,0 +1,5 @@
+Artículo 31. Reconocimiento de viáticos durante la ida del viaje. Se reconocen el día o días de viaje de ida a partir de la fecha y hora de la salida del país de origen y hasta el destino, para cuyos efectos se aplican los porcentajes establecidos en el artículo anterior de este Reglamento y las siguientes disposiciones:
+a. Desayuno: se reconoce cuando la hora de salida del país (aeropuerto, muelle o cruce de frontera terrestre) se produce antes de o a las seis horas.
+b. Almuerzo: Se reconoce cuando la hora de salida del país (aeropuerto, muelle o cruce de frontera terrestre) se produzca antes de o a las doce horas.
+c. Cena: Se reconoce cuando la hora de salida del país (aeropuerto, muelle o cruce de frontera terrestre) se produzca antes de o a las dieciocho horas.
+d. En caso de viajes de ida que superen más de un día, a partir del segundo día se aplican los viáticos y condiciones dispuestos para el lugar del destino, según la tabla de tarifas en el exterior del país establecida en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República de Costa Rica.

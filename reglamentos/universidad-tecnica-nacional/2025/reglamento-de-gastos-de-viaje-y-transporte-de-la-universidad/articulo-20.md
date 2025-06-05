@@ -1,0 +1,1 @@
+Artículo 20. Giras con permanencia discontinua en días no consecutivos. Cuando las giras sean con permanencia discontinua, pero en días no consecutivos con salidas programadas, la persona solicitante debe presentar la liquidación dentro de los siete días hábiles posteriores al regreso a su sede o centro de trabajo una vez finalizada la gira discontinua no consecutiva.

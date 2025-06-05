@@ -1,0 +1,1 @@
+Artículo 42. Uso de servicio de transporte modalidad taxi. Si la persona servidora utiliza el servicio de taxi, en la liquidación correspondiente, debe adjuntar el formulario correspondiente y el tiquete electrónico emitido por el taxímetro.

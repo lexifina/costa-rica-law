@@ -1,0 +1,1 @@
+Artículo 21. Limitación territorial del gasto de viaje. No se autoriza el pago de viáticos a las personas solicitantes para viajes cuyas distancias sean menores a diez kilómetros de su lugar de trabajo habitual o su domicilio.

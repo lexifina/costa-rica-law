@@ -1,0 +1,1 @@
+Artículo 8. Liquidación de gastos de viaje y de transporte. La información consignada en las liquidaciones de gastos de viaje y la liquidación de gastos de transporte en el interior y exterior del país, tienen el carácter de declaración jurada; es decir, que ésta es una manifestación escrita y veraz de los gastos incurridos en la atención de asuntos oficiales.

@@ -1,0 +1,1 @@
+Artículo 7. Tarifas autorizadas. Las tarifas autorizadas para gastos de viáticos dentro y fuera del país, son las que se encuentren vigentes en el Reglamento para Gastos de Viaje y Transportes para Funcionarios Públicos de la Contraloría General de la República.

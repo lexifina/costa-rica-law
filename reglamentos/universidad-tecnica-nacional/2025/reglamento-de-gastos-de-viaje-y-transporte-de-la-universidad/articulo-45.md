@@ -1,0 +1,3 @@
+Artículo 45. Reconocimiento del servicio de taxi. El servicio de transporte en taxi se reconoce, en los siguientes casos:
+a. Cuando la persona servidora tenga que salir de su domicilio antes de las cinco horas para atender una gira de trabajo y requiera el servicio de taxi para desplazarse a la terminal de transporte público, al recinto de trabajo o al lugar más conveniente, de acuerdo con la ruta del vehículo institucional dispuesto para la gira.
+b. Cuando la gira finalice después de las veintiún horas y la persona servidora requiera el servicio de taxi para desplazarse desde el recinto de trabajo o lugar más conveniente, de acuerdo con la ruta de la gira del vehículo institucional, a su domicilio o una terminal de transporte público.

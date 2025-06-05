@@ -1,0 +1,1 @@
+Artículo 43. Uso de servicio de transporte modalidad autobús o tren. Si la persona servidora utiliza servicio de autobús o tren en la liquidación Página | 17 correspondiente, debe ajustarse a las tarifas oficiales establecidas por la Autoridad Reguladora de Servicios Públicos y no requiere presentación de tiquete.

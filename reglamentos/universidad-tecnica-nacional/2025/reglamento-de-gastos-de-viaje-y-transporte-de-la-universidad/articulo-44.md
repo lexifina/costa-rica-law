@@ -1,0 +1,1 @@
+Artículo 44. Uso de servicio de transporte modalidad ferry o similar. Si la persona servidora utiliza servicio de ferry o cualquier otro medio de transporte similar, debe adjuntar el comprobante original emitido por el prestador del servicio.

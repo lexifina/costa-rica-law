@@ -1,0 +1,1 @@
+Artículo 34. Del Seguro de viaje. La Universidad Técnica Nacional debe contratar un seguro de viaje para cualquier persona solicitante que salga del país, previa autorización de la Rectoría o el Consejo Universitario, salvo en aquellos casos que el mismo sea provisto por sus propios medios o por otra instancia.

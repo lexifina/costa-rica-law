@@ -1,0 +1,6 @@
+Artículo 32. Reconocimiento de viáticos durante el regreso del viaje. Se reconoce el día o días de viaje de regreso a partir de la fecha y hora de la salida del país de destino y hasta el origen, para cuyos efectos se aplican los porcentajes establecidos en el artículo denominado "Desglose de la tarifa" de este Reglamento y las siguientes disposiciones:
+a. Desayuno: se reconoce cuando la hora de llegada al país de origen
+(aeropuerto, muelle o cruce de frontera terrestre) se produzca a las o antes Página | 14 de las diez horas.
+b. Almuerzo: Se reconoce cuando la hora de llegada al país de origen (aeropuerto, muelle o cruce de frontera terrestre) se produzca a las o después de las diez horas y un minuto.
+c. Cena: Se reconoce cuando la hora de llegada al país de origen (aeropuerto, muelle o cruce de frontera terrestre) se produzca a las o después de las veinte horas.
+d. En caso de viajes de regreso que superen más de un día, para el penúltimo día o anteriores según corresponda, se aplican los viáticos y condiciones dispuestos para el lugar del destino, según la tabla de tarifas en el exterior del país establecida en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República de Costa Rica.
