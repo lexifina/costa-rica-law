@@ -1,0 +1,1 @@
+Artículo 8º-El estudiante, al aprobar el plan de estudios de la carrera de Diplomado Parauniversitario nivel de pregrado y la prueba final de graduación obtendrá el título de Diplomado Parauniversitario correspondiente, dándose con ello formalmente finalizada la carrera de que se trate.

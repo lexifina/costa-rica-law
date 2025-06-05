@@ -1,0 +1,1 @@
+Artículo 55.-Son estudiantes de la Institución las personas que reciben formación mediante matricula formal en una de las carreras de Diplomado Parauniversitario nivel pregrado, que se imparten y cumplen la condición de bachiller en educación media, o su equivalencia formalmente reconocida.

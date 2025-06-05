@@ -1,0 +1,1 @@
+Artículo 19.-Los integrantes del Consejo que, por aspectos personales, familiares, de enfermedad o labores deban ausentarse por tiempos prolongados, comunicaran tal situación al presidente del Consejo, el cual notificará y solicitará al Jerarca de la Institución que este representa, la remoción y sustitución del integrante, por el plazo que este deba ausentarse.

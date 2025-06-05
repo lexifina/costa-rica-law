@@ -1,0 +1,2 @@
+Personal docente
+Artículo 58.-Las relaciones laborales del personal docente se regirán por las disposiciones del Reglamento Autónomo de Organización y Servicio en todo aquello referente a la selección, nombramiento, calificación, recalificación, ascensos, permutas, permisos y licencias. Para la selección de personal docente el Colegio Universitario de Limón estará facultado para establecer las normas y procedimientos.

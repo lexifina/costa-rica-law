@@ -1,0 +1,1 @@
+Artículo 7º-Son estudiantes de la Institución las personas que reciben formación mediante matricula formal en una de las carreras de Diplomado Parauniversitario nivel pregrado, que se imparten y tienen el título de Bachiller en Educación Media o su equivalente oficialmente reconocido.

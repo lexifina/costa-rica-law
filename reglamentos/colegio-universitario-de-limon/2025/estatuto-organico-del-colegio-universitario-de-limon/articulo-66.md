@@ -1,0 +1,1 @@
+Artículo 66.-Las Normas de Convivencia se desarrollarán en el Reglamento de Vida Estudiantil y comprenderá, entre otros aspectos, la tipificación de las faltas, las sanciones, el debido proceso, derecho de defensa, pruebas, audiencia, órganos resolutorios, recursos, agotamiento de la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 3º-Como Institución semiautónoma de Educación Parauniversitaria, el Colegio Universitario de Limón gozará de plena capacidad jurídica para adquirir derechos y contraer obligaciones para el cumplimiento de sus fines.

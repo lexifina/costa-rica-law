@@ -1,0 +1,1 @@
+Artículo 67.-Los estudiantes tendrán derecho a que un estudiante les represente dentro del Consejo Directivo, este representante estudiantil será electo por votación directa, universal y secreta de los estudiantes mediante el sufragio. Los procedimientos para la elección del representante estudiantil estarán establecidos en el Reglamento Electoral Estudiantil y normativa interna.

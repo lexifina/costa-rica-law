@@ -1,0 +1,1 @@
+Artículo 63.-Mediante el Reglamento de Vida Estudiantil, se establecerán las acciones correctivas por aplicar ante las faltas, según su gravedad, en que incurran los estudiantes, así como el procedimiento conducente a su aplicación.

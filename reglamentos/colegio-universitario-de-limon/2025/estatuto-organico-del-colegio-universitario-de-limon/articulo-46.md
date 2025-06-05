@@ -1,0 +1,1 @@
+Artículo 46.-El Coordinador de Carrera será nombrado por el Decano, bajo las reglas y políticas de nombramiento de personal señaladas en el Reglamento Autónomo de Organización y Servicio de la Institución.

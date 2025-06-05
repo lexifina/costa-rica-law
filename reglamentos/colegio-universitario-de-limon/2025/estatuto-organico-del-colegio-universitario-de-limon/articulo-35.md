@@ -1,0 +1,1 @@
+Artículo 35.-El CUNLIMON, además del Consejo Directivo y el Decano, quienes ejercen la dirección y administración del Colegio, contará con las direcciones Administrativa Financiera, Académica, Planificación y Desarrollo, Educación Comunitaria y Asistencia Técnica y un Consejo de Decanatura.

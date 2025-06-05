@@ -1,0 +1,1 @@
+Artículo 71.-Modificaciones: Las modificaciones al Estatuto Orgánico y sus reformas deben ser previamente autorizadas mediante acuerdo por el Consejo Directivo del Colegio Universitario de Limón y remitidas al Consejo Superior de Educación para su aprobación final.

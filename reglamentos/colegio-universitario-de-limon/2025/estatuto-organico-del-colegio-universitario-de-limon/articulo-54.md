@@ -1,0 +1,1 @@
+Artículo 54.-Los planes de estudios conducentes a las Carreras de Diplomado Parauniversitario nivel pregrado que brinda el Colegio Universitario de Limón son los aprobados por el Consejo Superior de Educación.

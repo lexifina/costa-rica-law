@@ -1,0 +1,1 @@
+Artículo 23.-Las sesiones serán privadas y se efectuarán en la Sede Central del Colegio Universitario de Limón. Sin embargo, podrán celebrarse sesiones en algunos de los recintos académicos que dispone la Institución en las distintas zonas de la provincia de Limón, cuando vayan a tratarse asuntos relativos a la región.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las sedes regionales
+Artículo 42.-Con previa aprobación del Consejo Superior de Educación, el Colegio Universitario de Limón podrá funcionar y extender sus servicios de docencia, investigación y acción social a los diferentes cantones y distritos de la provincia de Limón, a través de la apertura de sedes regionales, entendiendo esta como una unidad académico-administrativa dependiente de la Sede Central, que desconcentra actividades académico-docentes, debidamente autorizadas; para lo cual deberá contar con los estudios de factibilidad, así como los estudios y planes propuestos dentro de su Plan Institucional y las disposiciones del Consejo Directivo y la Decanatura.

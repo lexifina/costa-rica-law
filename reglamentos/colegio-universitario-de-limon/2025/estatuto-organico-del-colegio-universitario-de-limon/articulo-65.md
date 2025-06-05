@@ -1,0 +1,1 @@
+Artículo 65.-Normas de Convivencia. CUNLIMON aplicará los procedimientos de resolución interna de conflictos en la solución de situaciones que se presenten en la Institución, en aquellos casos en que sea factible, acordes a los parámetros de armonía, la misión y visión de la Institución y la calidad educativa entre la población estudiantil y la Institución.

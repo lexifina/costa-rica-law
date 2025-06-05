@@ -1,0 +1,3 @@
+Artículo 5º-La Institución tendrá entre sus objetivos principales, entre otros, los siguientes:
+a) Ofrecer, de manera continua y regular, a personas con título de Bachiller en Educación Media o su equivalente reconocido por el Ministerio de Educación Pública, carreras autorizadas de Diplomado Parauniversitario nivel de pregrado, completas y terminales, como un servicio permanente al público, de prestación continua, durante el tiempo en que se mantenga activo el centro de Educación Parauniversitaria.
+b) Estas carreras tendrán una duración de dos a tres años, donde se finaliza con la obtención de un título de Diplomado Parauniversitario nivel pregrado, intermedio entre la Educación Diversificada y la Educación Superior Universitaria.

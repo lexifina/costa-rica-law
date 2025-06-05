@@ -1,0 +1,1 @@
+Artículo 39.-El Consejo de Decanatura sesionará en horas hábiles, en la hora y fecha en que sea convocado por la Decanatura, cuando así lo considere necesario. Los integrantes que no asistan a las tres convocatorias por razones injustificadas serán objeto del procedimiento establecido al efecto, en el Reglamento Autónomo de Organización y Servicio de la Institución.

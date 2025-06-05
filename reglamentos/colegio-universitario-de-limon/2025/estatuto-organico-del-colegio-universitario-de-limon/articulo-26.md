@@ -1,0 +1,1 @@
+Artículo 26.-Los acuerdos serán adoptados por mayoría absoluta de los integrantes asistentes. En caso de empate, decidiría quien presida el Consejo Directivo. Los acuerdos tomados por la mayoría absoluta serán de acatamiento obligatorio para el resto de los integrantes.

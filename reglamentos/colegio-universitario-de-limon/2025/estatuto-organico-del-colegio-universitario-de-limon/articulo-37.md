@@ -1,0 +1,1 @@
+Artículo 37.-Cuando el Decano faltare a las obligaciones y funciones inherentes al cargo, podrá ser sancionado o destituido del puesto por acuerdo del Consejo Directivo no inferior a las dos terceras partes del total de los integrantes; previa aplicación de lo establecido en la Ley General de Administración Pública.
