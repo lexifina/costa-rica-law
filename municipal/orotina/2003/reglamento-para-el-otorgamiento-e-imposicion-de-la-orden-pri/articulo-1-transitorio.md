@@ -1,2 +1,0 @@
-Transitorio único.—El período de inscripción de los candidatos, el tamaño de las fotografías que debe ser uniforme para todas, cantidad de veces al mes para reuniones y otro asunto práctico de este Reglamento, será responsabilidad exclusiva en acuerdo tomado por la Comisión Especial de esta ORDEN. Se da un mes a partir de la publicación, para que se realice la convocatoria expuesta en el artículo 4º de este Reglamento.
-(Así ADICIONADO por la Sesión Ordinaria N° 97, celebrada el 24 de junio de 2003, publicada en La Gaceta N° 146 de 31 de julio de 2003.)
