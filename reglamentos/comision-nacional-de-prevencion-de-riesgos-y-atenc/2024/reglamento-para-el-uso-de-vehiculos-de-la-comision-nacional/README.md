@@ -14,3 +14,4 @@ Reglamento para el uso de vehículos de la Comisión Nacional de Prevención de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-05 | la propia norma |
+| 2 | 2025-06-05 | Reglamento 10 (2025-06-05) |
