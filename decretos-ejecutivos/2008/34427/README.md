@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Minist
 | --- | --- | --- |
 | 1 | 2008-04-03 | la propia norma |
 | 2 | 2015-06-02 | Decreto Ejecutivo 39194 (2015-06-02) |
+| 3 | 2025-06-05 | Decreto Ejecutivo 45048 (2025-06-05) |

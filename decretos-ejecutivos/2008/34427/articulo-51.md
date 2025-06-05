@@ -1,0 +1,2 @@
+Artículo 51.-Evaluaciones externas de calidad. Deberán efectuarse una vez cada cinco años, para lo cual podrá optar por la modalidad de una revisión externa de calidad o una autoevaluación de calidad con validación independiente, todo de conformidad con las directrices emitidas por el Órgano Contralor. La comunicación del resultado a la persona Ministra podrá hacerse por medio del informe periódico de labores.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 45048 del 5 de junio del 2025)

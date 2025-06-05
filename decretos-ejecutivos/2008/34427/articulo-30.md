@@ -1,1 +1,2 @@
-Artículo 30.—Situaciones de impedimento. El Auditor Interno deberá establecer formalmente medidas para controlar y administrar las situaciones de impedimento que pudieran presentarse en la actuación del personal de la Auditoría Interna.
+Artículo 30.-Situaciones de impedimento. La persona Auditora Interna (*) deberá establecer formalmente medidas para controlar y administrar las situaciones de impedimento que pudieran presentarse en la actuación del personal de la Auditoría Interna.
+(*)(Así modificada su denominación, por el artículo 2° del decreto ejecutivo N° 45048 del 5 de junio del 2025. Anteriormente indicaba "el Auditor Interno")

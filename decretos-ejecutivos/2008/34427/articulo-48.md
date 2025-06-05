@@ -1,8 +1,5 @@
-CAPÍTULO X
-Derogatorias y Vigencia
-Artículo 48.—Derogatorias y modificaciones. Se deroga cualquier disposición administrativa que se le oponga.
-a) Deróguese el Decreto Ejecutivo Nº 19994-MEP, del 14 de setiembre de 1990, Reglamento de Organización y Funciones de la Auditoría Interna del Ministerio de Educación Pública.
-b) Modifíquese el inciso a) del artículo 90 del Decreto Ejecutivo N° 31024, Reglamento General de Juntas de Educación y Juntas Administrativas, para que se lea así:
-“a) Ejercer fiscalización sobre las operaciones contables, financieras, administrativas y de otra naturaleza que realicen las Juntas con los fondos suministrados por el Ministerio, lo cual incluye verificación de que se cumplan con las prioridades regionales establecidas de acuerdo con la política nacional de educación.”
-c) Modifíquese el inciso d) del artículo 91 del Decreto Ejecutivo N° 31024, Reglamento General de Juntas de Educación y Juntas Administrativas, para que se lea así:
-“d) Evaluar el sistema de control interno de las Juntas y en particular el control de las Direcciones Regionales sobre ellas.”
+CAPÍTULO IX
+Programa de Aseguramiento de la Calidad
+(Así adicionado el capítulo anterior por el artículo 5° del decreto ejecutivo N° 45048 del 5 de junio del 2025)
+Artículo 48.-Aseguramiento de la calidad. El funcionamiento integral de la Auditoría Interna debe ajustarse a los principios científicos y a las prácticas internacionales modernas aplicables en la materia, razón por la cual mantiene un área funcional de desarrollo y mejoramiento continuo tendiente al aseguramiento de la calidad total de los procesos de su gestión operativa y directiva. El diseño del área funcional está orientado a configurar y consolidar el valor público de su intervención, mediante la optimización sistemática de los procedimientos internos relativos a la planificación, investigación y generación de los resultados esperados, dentro del marco normativo ético vigente. El estrato jerárquico (persona Auditora y persona Subauditora Interna y personas Jefaturas de departamentos y unidades) y, en general todos los funcionarios de la Auditoría Interna, según proceda, deben informar que los productos y servicios finales, así como las actividades de intermediación, son '·realizadas de conformidad con el bloque de legalidad aplicable al ejercicio de la auditoría interna"; lo anterior con fundamento en la evaluación satisfactoria de los requerimientos exigidos por el área funcional de aseguramiento de calidad en apego al ordenamiento en vigor.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 45048 del 5 de junio del 2025)
