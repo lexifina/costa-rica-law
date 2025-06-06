@@ -1,0 +1,7 @@
+Artículo 47.- Préstamos de activos a otros entes públicos. El TSE podrá prestar activos a otros entes públicos cuando se cumpla, al menos, con los siguientes requisitos:
+a) La Dirección correspondiente, según sea el tipo de activo, determinará, por mandato del Superior, si la solicitud satisface el interés público y, además, analizará la conveniencia del préstamo para la obtención de los objetivos institucionales.
+b) La unidad administrativa a cargo del activo deberá emitir criterio sobre el préstamo.
+c) El Departamento Legal, a solicitud del Superior, redactará el documento de préstamo, en el que se garantice formalmente la custodia, conservación y oportuna devolución de los bienes. Se debe establecer un período de préstamo acorde con la actividad para la cual se requiera el uso del activo, así como cualquier otra condición que garantice la satisfacción del fin que se persigue y la conservación de este. Entre ellas: descripción, costo o estimación de su valor y, para los activos que se encuentren en garantía, se deberá indicar el período de vigencia y el nombre del contratista.
+d) Este documento deberá ser firmado por los jerarcas de ambas instituciones o por quiénes estos dispongan.
+e) De lo actuado se informará a la Proveeduría para documentar dichos movimientos en los auxiliares correspondientes.
+No procede el préstamo de activos institucionales para actividades con fines lucrativos.

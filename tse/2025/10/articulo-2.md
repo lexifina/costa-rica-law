@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. Las disposiciones de este reglamento son obligatorias para las personas funcionarias del Tribunal Supremo de Elecciones, para las que estén comprendidas en los supuestos de este documento y para el conjunto de unidades administrativas institucionales relacionadas directamente con la administración de los activos.

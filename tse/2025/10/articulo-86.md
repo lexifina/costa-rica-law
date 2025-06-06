@@ -1,0 +1,1 @@
+Artículo 86.- Marcas o Propiedad Intelectual. A este tipo de activos aplicarán las políticas que, al efecto, emitan la Dirección General de Estrategia y Gestión Político-Institucional y sus dependencias.

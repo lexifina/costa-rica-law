@@ -1,0 +1,2 @@
+Artículo 27.- Inscripción o desinscripción de vehículos. La Unidad de Transportes, con la colaboración de los departamentos: Legal, Proveeduría y Contaduría, realizará las gestiones necesarias para inscribir o desinscribir los vehículos institucionales ante el Registro Nacional. En caso de que pese gravamen
+sobre algún vehículo propiedad del Tribunal, que afecte dichos trámites, corresponderá al Departamento Legal llevar a cabo las diligencias respectivas.

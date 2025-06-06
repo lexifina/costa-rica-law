@@ -1,0 +1,1 @@
+Artículo 21.- Inventario: Se aplicará al menos una vez al año una toma física de inventario de recursos, materiales y suministros, cuyos resultados se presentarán formalmente en reporte escrito a la Dirección Ejecutiva.

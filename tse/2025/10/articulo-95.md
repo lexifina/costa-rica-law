@@ -1,0 +1,1 @@
+Artículo 95.- Reposición de activos. Si luego de un proceso instaurado al efecto se determina que una persona funcionaria es responsable por pérdida, extravío, hurto o robo de un activo que le había sido asignado, ésta deberá restituirlo o realizar el pago según el valor de reposición del activo, previa resolución del Tribunal que así lo establezca.

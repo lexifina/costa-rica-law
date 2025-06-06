@@ -1,0 +1,1 @@
+Artículo 91.- Conciliación de diferencias. Con base en el acta de entrega del inventario de activos la Proveeduría realizará la conciliación de diferencias (sobrantes y faltantes). Si, una vez realizada la conciliación, persisten diferencias, ese departamento informará a la Inspección Electoral para los efectos correspondientes.

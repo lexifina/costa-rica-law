@@ -1,0 +1,1 @@
+Artículo 84.- Registro de Software y sistemas informáticos. Los activos indicados en el artículo 83 deberán registrarse en el sistema informático según las políticas contables vigentes, los datos de inscripción se obtendrán del procedimiento de compra correspondiente o bien, de la información que para tal efecto remita la DGET y/o sus dependencias para los desarrollos internos.

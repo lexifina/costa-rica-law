@@ -1,0 +1,1 @@
+Artículo 28.- Inscripción o desinscripción de armas de fuego. La Oficina de Seguridad Integral, con la colaboración de los departamentos: Legal y Proveeduría, realizará las gestiones necesarias para inscribir o desinscribir las armas de fuego, acción que se ejecuta ante el Departamento de Registro de Armas de la Dirección General de Armamento del Ministerio de Seguridad Pública.

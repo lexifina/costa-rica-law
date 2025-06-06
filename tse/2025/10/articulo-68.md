@@ -1,0 +1,1 @@
+Artículo 68- Baja de activos declarados no patrimoniales. La Proveeduría aplicará baja a los activos o familias de activos que se declaren no patrimoniales, mediante directrices contables de la Administración Central o de los entes del TSE competentes.

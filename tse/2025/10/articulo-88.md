@@ -1,0 +1,1 @@
+Artículo 88.- Asignación. Los registros de Marcas o Propiedad Intelectual que adquiera el Tribunal se asignarán por competencia a la Dirección General de Estrategia y Gestión Político-Institucional, que será la encargada de comunicar a la Proveeduría cualquier cambio a efectos de mantener el inventario actualizado.

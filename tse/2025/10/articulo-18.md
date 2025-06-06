@@ -1,0 +1,1 @@
+Artículo 18.- Ajuste en requisiciones: La Unidad de Almacenamiento podrá realizar los ajustes necesarios en las solicitudes de materiales de uso común, con el propósito de no generar un desabastecimiento a otras unidades administrativas.

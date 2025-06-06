@@ -1,0 +1,8 @@
+Artículo 61.- Baja de activos por destrucción o desecho. Para dar de baja activos por destrucción o desecho se debe cumplir con los siguientes requisitos:
+a) Solicitud de la baja del activo por parte de la Proveeduría, con fundamento en una valoración técnica e indicación del valor económico.
+b) Recomendación de baja por parte de la Dirección Ejecutiva.
+c) Autorización de la baja del activo para destrucción o desecho por parte del CDIR.
+d) Para la disposición final y una vez concedida la autorización de destrucción o desecho, la Proveeduría acatará lo establecido en la Ley para la Gestión Integral de Residuos n.° 8839, las políticas que emita el Programa de Gestión Ambiental Institucional y demás normas ambientales atinentes, así como cualquier otra normativa relacionada con la materia.
+e) En caso de requerirse escritura pública para desinscribir el bien mueble o inmueble, la Dirección Ejecutiva remitirá al Departamento Legal, el expediente administrativo levantado al efecto, a fin de que se proceda de conformidad.
+f) La Proveeduría levantará un acta que reúna la siguiente información: número de activo, descripción, autorización de la Dirección Ejecutiva, destino final del activo y firma del encargado del proceso de patrimonio.
+g) En el caso de armas de fuego, se acatarán las directrices emitidas por el Ministerio de Seguridad Pública que regulan el trámite. La Oficina de Seguridad Integral, de previo a la destrucción y desecho, tramitará su desinscripción ante el Departamento de Registro de Armas de ese ministerio. Del acta que se levante al momento se remitirá copia a la Proveeduría para documentar la baja en el sistema informático.

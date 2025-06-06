@@ -1,0 +1,1 @@
+Artículo 96.- Otros incumplimientos. Cuando las jefaturas y personas funcionarias de la institución tengan conocimiento de una posible falta de atención a los deberes y obligaciones establecidos en este reglamento, ajenos a los indicados en el artículo 64 del presente reglamento, deberán informarlo a la Dirección correspondiente para lo que en derecho corresponda.

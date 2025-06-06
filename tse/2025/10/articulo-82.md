@@ -1,0 +1,1 @@
+Artículo 82.- Asignación. Para efectos de control, los bienes inmuebles se asignarán por afinidad a la Sección de Ingeniería y Arquitectura, que será la encargada de comunicar a la Proveeduría cualquier cambio, a efectos de mantener el inventario actualizado.

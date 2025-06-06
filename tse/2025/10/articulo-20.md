@@ -1,0 +1,1 @@
+Artículo 20.- Pruebas selectivas de inventario: Este mecanismo de control se aplicará en el Almacén de la Proveeduría, con la finalidad de comprobar que los saldos del sistema coincidan con el inventario físico existente.

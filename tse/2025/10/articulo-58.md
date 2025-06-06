@@ -1,0 +1,1 @@
+Artículo 58.- Reporte de activos. Las jefaturas de las unidades administrativas y los usuarios en general podrán solicitar a la Proveeduría, cuando lo consideren oportuno, la emisión de informes sobre los activos que les han sido asignados.

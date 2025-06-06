@@ -1,0 +1,1 @@
+Artículo 81.- Registro de bienes demaniales y patrimoniales. Tanto los bienes demaniales como patrimoniales deberán registrarse en el sistema informático, de acuerdo con las políticas contables vigentes, cuyos datos de inscripción deberán ser coincidentes con la información registral y catastral.

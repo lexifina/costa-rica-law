@@ -1,0 +1,1 @@
+Artículo 85.- Asignación. El software y los sistemas informáticos que adquiera el Tribunal se asignarán por competencia a la DGET, que será la encargada de comunicar a la Proveeduría cualquier cambio a efectos de mantener el inventario actualizado.

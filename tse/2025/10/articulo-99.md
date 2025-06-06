@@ -1,0 +1,4 @@
+TÍTULO XIII
+Normas Internacionales de Contabilidad para el Sector Público (NICSP)
+CAPÍTULO ÚNICO
+Artículo 99.- Competencia. La Dirección General de la Contabilidad Nacional del Ministerio de Hacienda, como Órgano Rector del Subsistema de Contabilidad, establecido en la Ley de la Administración Financiera de la República y Presupuestos Públicos, es la que definirá el marco normativo de información financiera contable y la versión oficial que deben observar y aplicar las entidades del sector público, así como las políticas contables generales, directrices y lineamientos que determinan el tratamiento contable para el reconocimiento, medición y revelación referente a activos, según las normas internacionales de contabilidad para el sector público especificas por tipo de activo. La Institución observará las prescripciones normativas dictadas por el ente rector para la presentación de información sobre los activos institucionales en sus estados financieros.

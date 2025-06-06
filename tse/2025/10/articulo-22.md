@@ -1,0 +1,1 @@
+Artículo 22.- Permuta: Corresponderá a la Dirección Ejecutiva autorizar permutas de recursos, materiales y suministros, conforme las normas de control interno aplicables y las que al respecto dicte ese mismo despacho.

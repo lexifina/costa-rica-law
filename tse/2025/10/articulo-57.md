@@ -1,0 +1,1 @@
+Artículo 57.- Verificación del inventario de activos. La Proveeduría, según su capacidad instalada y con la colaboración del personal de las distintas unidades administrativas, verificará la existencia de los activos inventariados, mediante la ejecución de un inventario general anual y corregirá las discrepancias que se presenten con arreglo a lo dispuesto en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 69.- Baja de activos faltantes en informe de inventario general. De acuerdo con el informe que remita la Proveeduría a la Dirección Ejecutiva, producto del inventario general de activos institucionales, esta podrá requerir al CDIR la baja de activos que se encuentren en categoría de faltantes considerando políticas contables aprobadas.

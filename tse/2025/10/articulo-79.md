@@ -1,0 +1,1 @@
+Artículo 79.- Bienes inmuebles demaniales. Los bienes inmuebles demaniales, así como todas las adhesiones (edificaciones, caminos, carreteras, aeropuertos y otros activos considerados bienes inmuebles) construidas dentro de éstos, deberán ser registradas en el sistema informático.

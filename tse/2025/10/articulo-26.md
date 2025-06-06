@@ -1,0 +1,1 @@
+Artículo 26.- Control de garantías. La Unidad de Fiscalización de la Ejecución Contractual (UFEC) llevará el control de las diferentes garantías (de fábrica, agencia o post-venta) otorgadas por los contratistas sobre los bienes.

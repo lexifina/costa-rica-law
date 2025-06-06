@@ -1,0 +1,1 @@
+Artículo 29.- Requisito para alta de activos. Para incluir un activo dentro del inventario institucional se debe cumplir previamente con lo establecido en los artículos 24 y 25 del presente reglamento.

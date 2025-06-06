@@ -1,0 +1,1 @@
+Artículo 17.- Monitoreo de saldos: La Proveeduría monitoreará periódicamente los saldos de inventario de los recursos, materiales y suministros sensibles, que resultan indispensables para ofrecer el servicio público. En los casos en que se requiera llevará el control de la fecha de caducidad, promoviendo la adecuada rotación de sus inventarios.

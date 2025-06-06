@@ -1,0 +1,7 @@
+Artículo 62.- Baja de activos por desmantelamiento y aprovechamiento de sus partes. Se podrá dar de baja por desmantelamiento toda maquinaria, mobiliario, equipo o similares, cuyas partes utilizables se puedan aprovechar, previo cumplimiento de los siguientes requisitos:
+a) Solicitud escrita a la Dirección Ejecutiva por parte de la unidad requirente, que contenga una justificación del desmantelamiento de activos y su descripción, la cual tendrá como fundamento el criterio técnico de la unidad administrativa competente.
+b) La Dirección Ejecutiva, previa coordinación con las unidades administrativas según sea el tipo de activo, valorará la petición y, si la aprueba, designará de entre ellas a la que tendrá a cargo el desmantelamiento.
+c) La unidad administrativa designada suscribirá un informe en el que indique a la Proveeduría las partes utilizables y sujetas a inventario. Si se ha reconstruido un activo, informará lo propio a la Proveeduría para que se efectúe su alta.
+d) En caso de requerirse escritura pública para desinscribir el bien mueble o inmueble, la Dirección Ejecutiva remitirá al Departamento Legal el expediente administrativo levantado al efecto, a fin de que se proceda de conformidad.
+e) Traspaso de los activos a la Proveeduría, cuando corresponda, para que efectúe la baja, en caso de que no estén en su custodia.
+Las partes sobrantes no reutilizables se podrán destruir, desechar según lo establecido en el artículo 61 o donar según lo establecido en el capítulo VII.

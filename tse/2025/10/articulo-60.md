@@ -1,0 +1,1 @@
+Artículo 60.- Valoración técnica para declarar activos en mal estado o en desuso. La Proveeduría solicitará a la unidad administrativa competente la valoración técnica de los activos en desuso o mal estado que reporten las jefaturas, para la declaración de aquellos que sean susceptibles de destrucción, desecho o donación.
