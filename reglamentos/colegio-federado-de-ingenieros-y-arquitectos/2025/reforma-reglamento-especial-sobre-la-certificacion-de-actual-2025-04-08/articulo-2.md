@@ -1,0 +1,2 @@
+Artículo 2º-Como consecuencia de lo anterior, córrase la numeración del artículo 30 del Reglamento Especial sobre la Certificación de Actualización Profesional en Diseño Eléctrico de Edificios del CFIA, de manera que este artículo sea enumerado como artículo 29 y que se leerá de la siguiente forma:
+"Artículo 29. Vigencia y derogatoria. El presente Reglamento empieza a regir a partir de su publicación en el Diario Oficial La Gaceta. Asimismo, deroga toda la normativa interna anterior a la promulgación que se le oponga."
