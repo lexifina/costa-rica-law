@@ -1,0 +1,1 @@
+Artículo 26.- Relación de Hechos. De conformidad con lo dispuesto en los Lineamientos generales para el análisis de los presuntos Hechos Irregulares, la Auditoría Interna tramitará previa investigación, una Relación de Hechos a la persona funcionaria, por omisión o incumplimiento a la implementación de las recomendaciones o acciones de mejora de los informes de auditoría.

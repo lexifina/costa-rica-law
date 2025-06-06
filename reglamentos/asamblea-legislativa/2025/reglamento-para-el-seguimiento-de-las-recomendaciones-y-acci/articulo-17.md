@@ -1,0 +1,8 @@
+Artículo 17.- Solicitud de prórroga. En los casos que por razones debidamente justificadas la Administración no pueda cumplir con la implementación de las recomendaciones o acciones de mejora en el plazo establecido, la Administración podrá solicitar una prórroga, estableciendo un nuevo plazo para la implementación.
+En los casos que la Administración no pueda cumplir con la implementación de las recomendaciones o acciones de mejora en el plazo establecido, por razones debidamente justificadas, la Administración podrá solicitar una prórroga, estableciendo un nuevo plazo para la implementación.
+Para la solicitud de la prórroga, se deberán cumplir con los siguientes requisitos, a saber:
+a) Plantearla mediante oficio remitido por el titular subordinado responsable de su implementación indicando los hechos que impidieron el cumplimiento de la implementación de la recomendación en la fecha prevista.
+b) Que el plazo de implementación propuesto inicialmente no esté vencido (al menos diez días antes del vencimiento).
+c) Indicar el grado de avance en la implementación de la recomendación o acción de mejora adjuntando la evidencia y acciones realizadas a la fecha de la solicitud de ampliación.
+d) Indicar la nueva fecha propuesta para el cumplimiento definitivo de la recomendación.
+En caso de no cumplir con estos requisitos, la Auditoría Interna no aprobará la prórroga solicitada por la Administración. No obstante, se deberá continuar con la implementación de las recomendaciones y la responsabilidad sobre el debilitamiento del sistema de control interno, daño o perjuicio a la Hacienda Pública, podrá ser causal de responsabilidad administrativa a los responsables.

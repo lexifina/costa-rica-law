@@ -1,0 +1,1 @@
+Artículo 29.- Aprobación y publicación del reglamento. El presente reglamento deberá ser aprobado por el Directorio Legislativo, y posteriormente, deberá publicarse en el diario oficial La Gaceta. En cuanto a las modificaciones a este reglamento se seguirá el mismo procedimiento. Lo anterior, de conformidad con la normativa atinente.

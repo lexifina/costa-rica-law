@@ -1,0 +1,1 @@
+Artículo 3.- Contenido. Este reglamento contiene los criterios y las acciones que se deben cumplir para el proceso del seguimiento a las recomendaciones y acciones de mejora emitidas en los informes de auditoría.

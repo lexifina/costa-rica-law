@@ -1,0 +1,1 @@
+Artículo 23.- Informe sobre el estado de cumplimiento de las recomendaciones y acciones de mejora. La Auditoría Interna cuando lo estime pertinente informará al Directorio Legislativo el estado de cumplimiento de las recomendaciones y acciones de mejora emitidas en sus informes, de conformidad con el marco normativo que lo regula.
