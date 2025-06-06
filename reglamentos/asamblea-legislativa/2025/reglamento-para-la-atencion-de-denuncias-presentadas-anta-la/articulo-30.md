@@ -1,0 +1,1 @@
+Artículo 30.-Seguimiento. La Auditoría Interna de la Asamblea Legislativa, dentro del ámbito de sus competencias, definirá las acciones para verificar la atención o cumplimiento razonable de los productos resultantes.

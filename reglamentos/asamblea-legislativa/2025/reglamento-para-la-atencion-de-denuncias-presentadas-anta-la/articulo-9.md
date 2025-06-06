@@ -1,0 +1,1 @@
+Artículo 9º-Uso de medios tecnológicos. La Auditoría Interna de la Asamblea Legislativa utilizará los recursos tecnológicos e informáticos que tenga a su disposición, para mejorar la atención de las denuncias, así como para proteger la identidad de la persona denunciante.

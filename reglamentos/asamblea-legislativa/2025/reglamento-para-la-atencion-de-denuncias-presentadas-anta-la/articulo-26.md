@@ -1,0 +1,1 @@
+Artículo 26.-Resolución interna: Una vez definida la acción a seguir se debe emitir una resolución interna escrita que debe estar adjunta en el expediente respectivo. Esta tendrá como mínimo una sección de resultados, una de considerandos y otra de, por tanto. Esta resolución debe ser firmada por todos los funcionarios que participaron en el proceso.

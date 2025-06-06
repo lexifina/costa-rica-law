@@ -1,0 +1,1 @@
+Artículo 22.-Conformación del expediente. La Auditoría Interna deberá documentar en un expediente las acciones realizadas para la atención de las denuncias, el cual deberá estar foliado y ordenado cronológicamente.

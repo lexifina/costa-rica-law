@@ -1,0 +1,10 @@
+Artículo 25.-Resultados de la investigación: Realizada la investigación, la Unidad de Auditoría Interna deberá generar alguno de los siguientes productos
+a) Relación de hechos: Cuando las diligencias de investigación acrediten la existencia de elementos suficientes para considerar la probabilidad de la ocurrencia de hechos presuntamente irregulares, la Auditoría Interna deberá elaborar una relación de hechos, documento que compila una serie de hechos presuntamente irregulares, acciones u omisiones, que se encuentran ligados por un nexo de causalidad a una falta y a un presunto responsable. Y se pone en conocimiento del jerarca o autoridad competente, para su atención según corresponda.
+b) Informe de investigación preliminar: Cuando concluyan las diligencias de investigación y se determine que no existen elementos suficientes para la atribución de algún tipo de responsabilidad administrativa, civil o penal, procede archivar la investigación, lo que debe quedar documentado mediante acto administrativo motivado, en el cual se expongan los elementos determinados, así como las valoraciones realizadas que fundamentan la decisión.
+c)Denuncia penal: Cuando las diligencias de investigación acrediten la existencia de elementos suficientes para considerar debido a la probabilidad de ocurrencia de un delito, la Auditoría Interna deberá elaborar una denuncia penal, la cual será remitida al Ministerio Público; para lo cual, se podrá coordinar lo correspondiente con dicha instancia en cualquier etapa del proceso. En el expediente que se conforme para cada caso deberá constar un ejemplar original del producto final de la investigación y cuando corresponda, copia del legajo de prueba.
+Cuando la investigación se hubiera originado en atención a una denuncia, o por una solicitud, se debe informar al denunciante el resultado final de la gestión, de conformidad con lo indicado en los artículos anteriores.
+Podría generarse también producto de la investigación:
+a) Noticia Criminis.
+b) Informe de Control Interno.
+c) Asesoría.
+d) Advertencia.

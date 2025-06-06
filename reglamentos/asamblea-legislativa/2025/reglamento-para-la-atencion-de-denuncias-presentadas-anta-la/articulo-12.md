@@ -1,0 +1,1 @@
+Artículo 12.-Registro de las denuncias: Las denuncias presentadas ante la Auditoría Interna serán registradas mediante un número de identificación único, de tal manera que el denunciante y la Auditoría Interna puedan identificarlas y darles seguimiento con facilidad y oportunidad.

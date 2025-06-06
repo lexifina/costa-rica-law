@@ -1,0 +1,2 @@
+Artículo 15.-Solicitud de información adicional. La Auditoría Interna podrá solicitar información a la administración activa y a otras instancias, para complementar el análisis de previo a admitir una denuncia para su trámite; lo cual suspenderá el plazo de análisis de admisibilidad establecido en el artículo 14 del presente reglamento.
+Una vez que se cuente con los elementos necesarios para definir la admisibilidad de la denuncia, se contará con un plazo de dos días hábiles para admitir o archivar la denuncia por no reunir los requisitos mínimos.

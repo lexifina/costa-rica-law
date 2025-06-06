@@ -1,0 +1,1 @@
+Artículo 13.-Denuncias anónimas. Las denuncias anónimas serán atendidas en casos excepcionales, para lo cual se abrirá un análisis inicial, cuando con base en ésta se reciban elementos de prueba que den merito a ello. De lo contrario se procederá a su archivo.
