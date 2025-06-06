@@ -1,0 +1,1 @@
+Artículo 37.-Si transcurridos tres meses desde que se comunicó a la DGSC la forma seleccionada para resolver la plaza vacante (incisos 36.1, 36.2 ó 36,3), este no se ha iniciado, la institución solo podrá resolver mediante solicitud de nómina a la DGSC.

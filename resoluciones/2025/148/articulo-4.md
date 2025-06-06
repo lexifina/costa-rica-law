@@ -1,0 +1,1 @@
+Artículo 4º-El Jerarca de la Institución o en quien este delegue, determinará la procedencia de realizar un concurso interno y quien será su representante, y lo comunicará a la OGEREH para que lo informe a la DGSC.

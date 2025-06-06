@@ -1,0 +1,1 @@
+Artículo 17.-Únicamente aprobarán la comprobación de idoneidad específica (Fase II) las personas oferentes que hayan obtenido una calificación mínima de 70%, quienes tendrán derecho a continuar en el concurso interno.

@@ -1,0 +1,1 @@
+Artículo 43.-Las actuaciones de la Administración deberán estar apegadas a lo dispuesto en el marco legal vigente, garantizando la transparencia, igualdad de trato y de oportunidades para todas las personas que participen en el proceso concursal.

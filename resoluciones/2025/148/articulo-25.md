@@ -1,0 +1,2 @@
+Artículo 25.-La persona concursante que haya sido seleccionada y nombrada en el puesto sometido a concurso interno estará sujeta a un periodo de prueba de hasta tres (3) meses, de conformidad con lo dispuesto en los artículos 30 y 31 del ESC en concordancia con lo dispuesto en el RESC.
+La persona seleccionada y nombrada en el puesto sujeto a concurso interno que no apruebe el período de prueba no podrá ser ratificada en el puesto y quedará excluida únicamente del registro de elegibles para el puesto en que concursó.
