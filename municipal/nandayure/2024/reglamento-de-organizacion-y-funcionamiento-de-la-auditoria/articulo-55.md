@@ -1,0 +1,1 @@
+Artículo 55.-Derogatorias. Deróguese el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad del cantón de Nandayure, publicado en Diario Oficial La Gaceta número 119 del 20 de junio del 2008 y cualquier otra normativa interna aprobada con anterioridad que se oponga a la presente disposición.

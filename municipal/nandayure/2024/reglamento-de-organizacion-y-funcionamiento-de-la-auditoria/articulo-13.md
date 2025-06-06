@@ -1,0 +1,1 @@
+Artículo 13.-Archivo permanente. La Auditoría Interna dispondrá de la información sobre las regulaciones legales, técnicas y de otro tipo que afecten su ámbito de acción y su actividad como tal, mediante los sistemas de información, archivos impresos, digitales, electrónicos o de cualquier otra naturaleza.
