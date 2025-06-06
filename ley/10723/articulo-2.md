@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización para donar un bien afectado
+Se autoriza al Instituto Mixto de Ayuda Social (IMAS), cédula de persona jurídica número cuatro - cero cero cero - cero cuatro dos uno cuatro cuatro (N.º4-000-042144), para que done y traspase el inmueble descrito y desafectado en el artículo 1 de esta ley, a la Asociación Pro-Vivienda Calle La Estefana, cédula de persona jurídica número tres - cero cero dos- uno cinco cuatro nueve ocho seis (N.º 3- 002- 154986).
