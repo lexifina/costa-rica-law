@@ -1,0 +1,1 @@
+Transitorio I.- Los servicios que obtuvieron un permiso de habilitación antes de la entrada en vigor de la presente norma pueden mantener dicha autorización por el tiempo que les fue extendida, debiendo en todo momento cumplir con las condiciones bajo las cuales se otorgó dicha habilitación.
