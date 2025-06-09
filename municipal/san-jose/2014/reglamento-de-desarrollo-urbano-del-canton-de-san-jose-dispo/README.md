@@ -15,3 +15,4 @@ Reglamento de Desarrollo Urbano del Cantón de San José. Disposiciones Generale
 | --- | --- | --- |
 | 1 | 2014-02-11 | la propia norma |
 | 2 | 2023-12-14 | Reglamento municipal 0 (2023-12-21) |
+| 3 | 2025-06-09 | Reglamento municipal 29 (2025-06-09) |
