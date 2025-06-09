@@ -1,1 +1,0 @@
-Artículo 4.- Alcance: Este Código procura fomentar la conducta ética de los colaboradores de la Auditoría Interna, por lo que se desprenden una serie de principios y reglas de conductas que deben formar parte fundamental del quehacer del colaborador, sin menoscabar la independencia funcional y de criterio que regulan la actividad de todo funcionario público.
