@@ -1,0 +1,1 @@
+Artículo 6º-Responsabilidad del Oficial de Seguridad Informática. Velar por el cumplimiento de este reglamento, proponer mejoras al mismo y valorar el cambio con base en el cumplimiento técnico de la seguridad informática.

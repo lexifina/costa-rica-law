@@ -1,0 +1,1 @@
+Artículo 7º-Responsabilidad del Oficial de Seguridad de la Información. Velar por el cumplimiento de este reglamento, proponer mejoras al mismo y valorar el cambio con base en el cumplimiento de la seguridad de la información.

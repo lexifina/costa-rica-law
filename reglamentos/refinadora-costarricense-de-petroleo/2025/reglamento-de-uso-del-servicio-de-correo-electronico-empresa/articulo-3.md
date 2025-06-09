@@ -1,0 +1,1 @@
+Artículo 3º-Ámbito de aplicación. El servicio de CEE se establece como el mecanismo electrónico de mensajería interna y externa, con el fin de brindar una comunicación ágil, eficiente y oportuna entre el personal de las diferentes dependencias de la Empresa o personas externas, para el flujo de información relacionada con las labores asignadas por RECOPE a su personal.
