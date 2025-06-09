@@ -1,1 +1,0 @@
-Artículo 20.- De los procedimientos de auditoría: La Auditoría Interna utilizará en lo procedente el instructivo I-EJE-08 “Atención de denuncias” y el procedimiento P-EJE-019 “Seguimiento a recomendaciones de AI”, establecidos en el Manual de Organización y Funciones de Auditoría.
