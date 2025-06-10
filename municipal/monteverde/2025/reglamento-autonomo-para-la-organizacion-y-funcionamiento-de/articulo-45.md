@@ -1,0 +1,1 @@
+Artículo 45.-El presupuesto debe ser consecuente con los planes en materia deportiva y recreativa y las políticas deportivas del Comité Cantonal, además debe de reflejar las necesidades de las Comisiones que existan, debiendo ser sometido para aprobación del Concejo Municipal, a más tardar en la primera semana del mes de julio de cada año.

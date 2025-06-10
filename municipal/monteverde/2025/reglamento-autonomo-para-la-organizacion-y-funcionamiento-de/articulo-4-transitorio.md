@@ -1,0 +1,1 @@
+Transitorio IV. Para la elaboración y materialización de los convenios a que hace referencia el artículo 49 se establece un plazo de seis meses naturales a partir de la publicación de este Reglamento. Lo anterior sin detrimento de que se puedan elaborar convenios específicos con anterioridad al vencimiento del plazo.

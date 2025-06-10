@@ -1,0 +1,1 @@
+Artículo 4º-El domicilio legal del comité será el cantón de Monteverde en la ciudad de Santa Elena, ubicado en el municipio, pudiendo variar la sede en forma temporal o definitiva y con el aval del comité mediante acuerdo de mayoría absoluta de sus miembros.

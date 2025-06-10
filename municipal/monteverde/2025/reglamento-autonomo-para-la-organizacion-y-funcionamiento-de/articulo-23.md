@@ -1,0 +1,1 @@
+Artículo 23.-En la primera sesión, que se celebrará después de la fecha de su juramentación por el Concejo Municipal, los miembros del Comité Cantonal se reunirán y mediante votación, se designarán los cargos a que se refiere el Artículo 10 del presente Reglamento, por el período de dos años, pudiendo ser reelectos.

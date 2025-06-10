@@ -1,0 +1,1 @@
+Artículo 60.-Para los fines correspondientes a recursos humanos, el Comité Cantonal podrá acudir a la asesoría del Proceso de Recursos Humanos y La Dirección de Gestión y Asesoría Jurídica de la Municipalidad quienes deberán asesorar y acompañar al Comité en lo así le solicite.
