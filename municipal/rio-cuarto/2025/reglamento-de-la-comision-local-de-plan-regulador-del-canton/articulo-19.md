@@ -1,0 +1,3 @@
+Artículo 19.-Convocatoria. Las sesiones de trabajo serán convocadas por la Coordinación de la Comisión Local de Plan Regulador.
+La Comisión podrá sesionar extraordinariamente en cualquier parte del cantón, siempre y cuando así lo decida la comisión internamente por mayoría simple.
+Asimismo, la Comisión podrá sesionar de forma virtual cuando así lo determine por mayoría simple de los miembros, siempre que se garanticen los principios de colegialidad, simultaneidad y deliberación. A estas sesiones deberá tenerse garantía de que toda la Comisión ha sido debidamente notificada de la forma en que se llevará a cabo la sesión. La convocatoria deberá señalar con claridad que la sesión se realizará en forma virtual y la forma de acceso.

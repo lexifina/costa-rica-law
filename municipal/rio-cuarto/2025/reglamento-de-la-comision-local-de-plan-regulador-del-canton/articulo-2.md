@@ -1,0 +1,1 @@
+Artículo 2º-Órgano Especializado. La Comisión Local de Plan Regulador del cantón de Río Cuarto se constituye como el órgano especializado a nivel cantonal en materia urbanística. El cual tiene como objeto participar en la preparación, creación y aplicación del Plan Regulador del cantón.
