@@ -1,3 +1,4 @@
 CAPÍTULO V
 DE LOS REINTEGROS
-Artículo 29.- Los egresos que se realicen por caja chica se tramitarán a través del correspondiente reintegro de caja chica, que preparará el Tesorero Municipal por medio del sistema informático vigente.
+Artículo 29.-Los egresos que se realicen por caja chica se tramitarán a través del correspondiente reintegro de caja chica, que preparará el tesorero municipal por medio del sistema informático vigente. Los reintegros de efectivo se realizarán por medio de retiro de efectivo en cajero automático con la tarjeta de débito empresarial a nombre de la Municipalidad de Moravia en custodia de la Tesorería Municipal y el monto a dispensar será el indicado en la nómina de reintegro de caja chica, siempre fijado en múltiplos de mil colones y con redondeo al aumento. La diferencia del monto aprobado en nómina contra el movimiento de retiro de efectivo será depositada por medio de la valija cerrada con una boleta de depósito.
+(Así reformado mediante acuerdo N° 0762-2025 y publicado en La Gaceta N° 105 del 10 de junio de 2025)
