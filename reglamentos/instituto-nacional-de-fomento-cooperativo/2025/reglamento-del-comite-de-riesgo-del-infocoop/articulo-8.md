@@ -1,0 +1,4 @@
+Artículo 8º-Supletoriedad y revisión del reglamento.
+En ausencia de norma expresa en este reglamento, es de aplicación supletoria la Ley General de Control Interno y la Ley General de la Administración Pública, específicamente el Capítulo 3 del Libro Primero, relativo al régimen jurídico de los órganos colegiados de la Administración Pública; así como la Resolución 9 del 26 de enero de 2009 Normas de control interno para el Sector Público (N-22009-CO-DFOE) y reforma Resoluciones N° R-CO-64-2005, N° R-CO-26-2007, N° R-CO- 10-2007.
+El presente Reglamento deberá ser revisado al menos una vez al año por la Junta Directiva para analizar los cambios o modificaciones que se considere necesarios para su respectiva actualización, ya sea para ampliar, reducir o modificar el Reglamento, mediante simple acuerdo de mayoría.
+Vigencia: El presente reglamento entrará en vigor cinco días posteriores a partir de su publicación en el diario Oficial la Gaceta.
