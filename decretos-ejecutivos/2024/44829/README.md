@@ -14,3 +14,4 @@ Declaratoria de emergencia sanitaria por falta de médicos especialistas en la C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-12-11 | la propia norma |
+| 2 | 2025-06-10 | Decreto Ejecutivo 45040 (2025-06-10) |

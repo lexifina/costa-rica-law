@@ -1,4 +1,5 @@
 Nº 44829-S
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 45040 del 10 de junio del 2025, se acordó prorrogar hasta el 3 de febrero del dos mil 2026, la declaratoria de emergencia sanitaria promulgada mediante este decreto ejecutivo)
 L PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 En uso de las facultades y con fundamento en las atribuciones que les confieren los artículos 21, 50, 140 incisos 6), 8) y 20 y 146 de la Constitución Política; 25, 28 de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, 147, 148, 149, 161, 162, 163, 164, 166, 168,169,337,338,338 bis, 340,341,348,378 de la Ley Nº 5395 de 30 de octubre de 1973 "Ley General de Salud"; 2 y 6 de la Ley Nº 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; Reglamento de vigilancia de la salud,Decreto Ejecutivo Nº 40556-S del 7 de julio de 2017.
