@@ -1,0 +1,3 @@
+Artículo 8º-Revisión del reglamento. El presente Reglamento deberá ser revisado al menos una vez al año por la Junta Directiva para analizar los cambios o modificaciones que se considere necesarios para su respectiva actualización, ya sea para ampliar, reducir o modificar el Reglamento, mediante simple acuerdo de mayoría.
+En lo no previsto aplica supletoriamente en cuanto a operatividad la Ley General de Administración Pública y en cuanto al fondo la Ley General de Control Interno.
+Vigencia: El presente reglamento entrará en vigor cinco días posteriores a partir de su publicación en el Diario Oficial La Gaceta.

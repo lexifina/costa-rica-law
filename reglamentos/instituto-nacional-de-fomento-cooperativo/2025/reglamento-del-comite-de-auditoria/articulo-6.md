@@ -1,0 +1,4 @@
+Artículo 6º-Convocatorias. Las convocatorias de las sesiones, tanto ordinarias como extraordinarias, presenciales o virtuales, serán comunicadas por la Asistente Administrativa designada, mediante correo electrónico, previa autorización del orden del día por parte de la Presidencia del Comité.
+La convocatoria a sesiones se realizará teniendo en cuenta los siguientes parámetros:
+Al principio de cada año, el Comité aprobará un calendario de reuniones ordinarias, previa coordinación de la disponibilidad de los integrantes. En caso de haber cambios en la agenda planeada, será labor de la Asistente coordinar la logística necesaria.
+El orden del día, la información y expedientes de respaldo, se pondrá a consideración del Comité con mínimo tres días hábiles de antelación para el caso de las sesiones ordinarias; y veinticuatro horas para las sesiones extraordinarias, salvo casos de urgencia.
