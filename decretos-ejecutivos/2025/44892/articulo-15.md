@@ -1,0 +1,1 @@
+Artículo -15. Información del análisis de las muertes. La información proveniente del análisis de las muertes será remitida a las autoridades del Ministerio de Salud del nivel local, a fin de dar seguimiento a las conclusiones y recomendaciones emitidas por parte de la comisión, mediante correo electrónico e incluida en el sistema de información vigente.

@@ -1,0 +1,1 @@
+Artículo -17. Del registro de miembros de las comisiones. Todos los miembros de las comisiones deben contar con un expediente digital que debe incluirse: hoja de vida, oficio de nombramiento y el contrato de confidencialidad y conflicto de interés. Esta información la debe custodiar el coordinador de las respectivas comisiones.

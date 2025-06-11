@@ -1,0 +1,1 @@
+Artículo -7. Protección de datos sensibles: El manejo de datos sensibles relacionados con la mortalidad materna e infantil deberá cumplir con las normativas vigentes sobre protección de datos. Los prestadores de servicios implementarán políticas estrictas para garantizar la confidencialidad y seguridad de la información.

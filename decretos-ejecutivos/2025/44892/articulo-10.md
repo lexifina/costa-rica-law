@@ -1,0 +1,1 @@
+Artículo -10. Conflicto de interés. Cuando un miembro de las comisiones de mortalidad materno infantil estuvo involucrado en la atención del caso que se va a analizar, no debe de participar en el mismo.

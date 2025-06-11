@@ -1,0 +1,1 @@
+Artículo -23. Quórum y votaciones. La Comisión Nacional de Evaluación y Análisis de Mortalidad materno Infantil sesionará válidamente con la presencia de la mitad más uno de sus miembros en propiedad o de los suplentes que en ese momento sustituyen al titular. Los acuerdos se tomarán por mayoría simple de los presentes con derecho a voto.

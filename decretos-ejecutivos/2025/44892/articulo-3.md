@@ -1,0 +1,1 @@
+Artículo -3. Ámbito de aplicación. Las disposiciones del presente reglamento se deben aplicar obligatoriamente en los servicios de salud públicos, privados y mixtos que brindan servicios de salud en el territorio nacional.
