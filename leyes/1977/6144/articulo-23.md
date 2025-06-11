@@ -1,10 +1,3 @@
-Artículo 23.- La Junta Directiva se reunirá en forma ordinaria, cada
-quince días y extraordinariamente cuando sea convocada por el Presidente
-o tres de sus miembros, por lo menos. El quórum para las sesiones de la
-Junta Directiva se formará con la asistencia de, por lo menos, cinco de
-sus miembros. Los acuerdos serán tomados por la mayoría de votos de los
-directores presentes y quedarán firmes al aprobarse el acta respectiva en
-la sesión siguiente. Los acuerdos de Junta Directiva no referidos al
-nombramiento de Personal Administrativo del Colegio, ni a designación, de
-día y hora, para celebrar las sesiones, serán recurribles ante la Asamblea
-General, de acuerdo con las disposiciones del inciso d) del artículo 15.
+Artículo 23- La Junta Directiva se reunirá en forma ordinaria dos veces al mes y, extraordinariamente, cuando sea convocada por el presidente o tres de sus miembros por lo menos. El cuórum para las sesiones de Junta Directiva se formará con la asistencia, de por lo menos, cinco de sus miembros. Los acuerdos serán tomados por la mayoría de votos de los directores presentes y quedarán firmes al aprobarse el acta respectiva en la sesión siguiente. Los acuerdos de Junta Directiva no referidos al nombramiento de personal administrativo del Colegio, ni a designación, de día y hora, para celebrar las sesiones, serán recurribles ante la Asamblea General, de acuerdo con las disposiciones del inciso d) del artículo 15.
+Queda facultada la Junta Directiva para celebrar sesiones virtuales, por cualquier medio tecnológico en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros del órgano y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación.
+(Así reformado por el artículo único de la ley N° 10697 del 6 de mayo de 2025)
