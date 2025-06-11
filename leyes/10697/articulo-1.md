@@ -1,0 +1,36 @@
+Nº 10697
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA PARCIAL DE LOS ARTÍCULOS
+16, 23 Y 39 DE LA LEY 6144, LEY DEL
+COLEGIO DE PROFESIONALES EN
+PSICOLOGÍA DE COSTA RICA,
+DE 28 DE NOVIEMBRE DE 1977,
+REFORMADA MEDIANTE LA
+LEY 9572, DE 4 DE
+JUNIO DE 2018
+ARTÍCULO ÚNICO-Se reforman los artículos 16, 23 y 39 de la Ley 6144, Ley del Colegio de Profesionales en Psicología de Costa Rica, de 28 de noviembre de 1977, reformada mediante la Ley 9572, de 4 de junio de 2018. Los textos son los siguientes:
+Artículo 16-La Asamblea General se reunirá ordinariamente una vez al año para lo siguiente:
+a) Analizar y evaluar la marcha general del Colegio.
+b) Aprobar el plan de actividades que le presente la Junta Directiva, para el ejercicio anual siguiente.
+c) Aprobar el presupuesto general de gastos anuales.
+d) Conocer el resultado de las elecciones ordinarias de la Junta Directiva y juramentar a las personas electas. La reunión anual ordinaria se efectuará dentro de los últimos quince días del mes de noviembre.
+e) Nombrar a las personas colegiadas integrantes del Tribunal de Honor.
+f) Nombrar el Tribunal Electoral, el cual estará integrado por cinco personas colegiadas, quienes durarán en sus cargos dos años, pudiendo ser reelegidas únicamente por un período más. En el mismo acto se nombrarán dos suplentes, quienes serán llamados a ocupar las ausencias temporales de los propietarios.
+g) Autorizar que el Tribunal Electoral o el Comité Consultivo celebre sus sesiones de forma virtual, utilizando para ello cualquier medio tecnológico en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros del órgano y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación.
+h) Conocer del resultado de la elección de la persona que ocupará el cargo de fiscal del Colegio, por un período de dos años. Corresponde a la Asamblea General autorizar si, durante el plazo de nombramiento, la persona electa asumirá labores con dedicación de tiempo completo, en cuyo caso deberá establecer el honorario mensual a cancelar. No podrán ser nombrados en el cargo de fiscal personas unidas por parentesco de consanguinidad o afinidad hasta el tercer grado, inclusive, con los integrantes de la Junta Directiva.
+La Asamblea General celebrará reunión extraordinaria cada vez que sea convocada al efecto, con indicación de los asuntos específicos que deberá conocer y resolver.
+Las reuniones de la Asamblea General serán convocadas por la Presidencia y la Secretaría de la Junta Directiva, previo acuerdo tomado por esta o con carácter de extraordinaria por solicitud escrita, dirigida a la Junta Directiva, por al menos el dos por ciento (2%) de las personas activas del Colegio; en este caso, la solicitud debe indicar los puntos a tratar. Recibida la solicitud, la Junta Directiva convocará a la Asamblea en su siguiente sesión ordinaria. La convocatoria se comunicará a través de los medios internos del Colegio, así como mediante publicación, por dos veces consecutivas en La Gaceta y en un medio de comunicación nacional. Entre la publicación y la celebración de la Asamblea deben mediar, como mínimo, ocho días naturales de antelación.
+La Asamblea General se reunirá de ser posible en la sede del Colegio, sin perjuicio de que, por razones de conveniencia y oportunidad, la Junta Directiva, mediante acuerdo debidamente motivado, acuerde que se celebre en forma virtual. En este n último caso, podrá realizarse por cualquier medio tecnológico en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre quien preside y todos aquellos que participen de la Asamblea. Deberán emplearse, además, técnicas que permitan la transmisión simultánea de audio, video y datos, de manera que, además de garantizar la publicidad, deben necesariamente respetarse los principios de simultaneidad, colegialidad y deliberación. En estos casos, la convocatoria deberá indicar, expresamente, que se trata de una asamblea virtual, señalando la forma en que los agremiados podrán acceder y acreditarse para participar la respectiva Asamblea General virtual.
+Artículo 23- La Junta Directiva se reunirá en forma ordinaria dos veces al mes y, extraordinariamente, cuando sea convocada por el presidente o tres de sus miembros por lo menos. El cuórum para las sesiones de Junta Directiva se formará con la asistencia, de por lo menos, cinco de sus miembros. Los acuerdos serán tomados por la mayoría de votos de los directores presentes y quedarán firmes al aprobarse el acta respectiva en la sesión siguiente. Los acuerdos de Junta Directiva no referidos al nombramiento de personal administrativo del Colegio, ni a designación, de día y hora, para celebrar las sesiones, serán recurribles ante la Asamblea General, de acuerdo con las disposiciones del inciso d) del artículo 15.
+Queda facultada la Junta Directiva para celebrar sesiones virtuales, por cualquier medio tecnológico en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros del órgano y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación.
+Artículo 39- El Tribunal de Honor estará integrado por cinco personas como propietarios, quienes serán nombrados por la Asamblea General ordinaria y O durarán en sus cargos dos años, con la posibilidad de ser reelegidos, hasta por un período más. En la misma Asamblea se elegirán cinco suplentes, quienes serán llamados, en el orden en que son elegidos, a sustituir a las personas propietarias en las ausencias temporales o por motivos de incompatibilidad con un caso concreto. El Tribunal tendrá una Presidencia, una Secretaría y tres vocales, cuyos puestos serán designados de su seno en la primera sesión de trabajo que celebren.
+No podrán ser elegidas en el Tribunal de Honor, ni en propiedad ni en suplencias, las personas que hayan sido sancionadas o suspendidas por faltas en el ejercicio profesional durante los dos años anteriores a la fecha en que ha de celebrarse la elección.
+De igual manera, tampoco podrán ser elegidas personas colegiadas que se encuentren con un proceso disciplinario abierto por el Tribunal de Honor, al momento de celebrarse la elección.
+La elección, tanto de las personas propietarias como de las personas suplentes, se hará mediante votación secreta.
+Queda facultado el Tribunal de Honor para celebrar sesiones virtuales por cualquier medio tecnológico, en el tanto se garantice la interacción integral, multidireccional y en tiempo real entre los miembros del órgano y todos aquellos que participen de la sesión. Deberán emplearse técnicas que permitan la transmisión simultánea de audio, video y datos, en observancia de los principios de simultaneidad, colegialidad y deliberación.
+Las sesiones del Tribunal de Honor serán privadas.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de mayo del año dos mil veinticinco.
+EJECÚTESE Y PUBLÍQUESE.
