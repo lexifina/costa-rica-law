@@ -21,3 +21,5 @@ s) Realizar actividades formativas, culturales, recreativas para la comunidad de
 t) Desarrollar talleres y procesos socioeducativos a nivel institucional y comunal dirigidos a la protección de los derechos humanos de las personas con discapacidad.
 u) Elaboración de bancos de información o datos para respaldar o facilitar su labor y la de otras que se le encomienden.
 v) Cualquier otro que solicite la administración, siempre y cuando sea propio de su abordaje y conocimiento profesional.
+w) Realizar valoraciones socioeconómicas para la concesión de ayudas y servicios que se otorgan desde la Ley N°7600 y la Ley N°8661.
+(Así reformado mediante acuerdo N° 0761 y publicado en La Gaceta N° 106 del 11 de junio de 2025)

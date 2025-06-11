@@ -14,3 +14,4 @@ Reglamento para regular el funcionamiento y operación de la Oficina de las pers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-08-28 | la propia norma |
+| 2 | 2025-06-11 | Reglamento municipal 0 (2025-06-11) |
