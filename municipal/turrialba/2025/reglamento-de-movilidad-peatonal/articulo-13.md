@@ -1,0 +1,1 @@
+Artículo 13.-Multa. El impago dentro del plazo del artículo 11; genera multa de un cincuenta por ciento (50%) del valor de la obra, sin perjuicio del cobro de intereses moratorios. Conforme a lo establecido por la ley 7794, Código Municipal y la ley 9976, Ley de Movilidad Peatonal.

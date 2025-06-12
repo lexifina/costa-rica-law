@@ -1,0 +1,1 @@
+Artículo 37.-Plan quinquenal. La planificación, diseño, construcción y mantenimiento de las obras de infraestructura peatonal se realizará de acuerdo con las labores propuestas en el Plan del periodo correspondiente, el mismo debe actualizarse cada 5 años. La municipalidad deberá nombrar una comisión entre las unidades técnicas competentes en el tema, para su ejecución.

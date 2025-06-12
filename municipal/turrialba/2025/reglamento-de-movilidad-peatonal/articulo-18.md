@@ -1,0 +1,1 @@
+Artículo 18.-Notificaciones. En materia de notificaciones aplica la Ley 6227, Ley General de la Administración Pública, y supletoriamente lo dispuesto por la Ley 8687, Ley de Notificaciones Judiciales.

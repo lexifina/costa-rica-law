@@ -1,0 +1,2 @@
+Artículo 14.-Facilidades de pago. Dentro del plazo del artículo 11; la persona interesada, podrá apersonarse ante el Departamento de Cobros a solicitar un arreglo de pago, el cual podrá realizarse en abonos mensuales o trimestrales en el plazo máximo de hasta 24 meses.
+El compromiso de arreglo de pago de la obra realizada contendrá una clara definición de estas, el costo total de las mismas, el plazo y la forma de pago.

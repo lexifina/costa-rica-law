@@ -1,0 +1,1 @@
+Artículo 2º-Alcance: El presente reglamento tiene como alcance la jurisdicción territorial del cantón de Turrialba. Las disposiciones de este reglamento son aplicables a toda persona física, jurídica, propietaria o poseedora por cualquier título de bienes inmuebles ubicados en el cantón de Turrialba.

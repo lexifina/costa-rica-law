@@ -1,0 +1,2 @@
+Artículo 47.-Sobre los inmuebles.
+a. Toda propiedad donde no haya construcciones o existan viviendas deshabitadas o en estado de demolición, que presenten un riesgo para la salud y presenten una capa vegetal que supere una altura de 40cm, materiales orgánicos en estado de descomposición y materiales no orgánicos (basura) deberá ser limpiado ya sea manual o mecánicamente. Conforme al artículo 84 incisos b) y h) del Código Municipal

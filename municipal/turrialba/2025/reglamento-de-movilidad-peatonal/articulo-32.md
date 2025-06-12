@@ -1,0 +1,1 @@
+Artículo 32.-Rebajo por bien único. En el caso de inmuebles que constituyan bien único de las personas físicas sujetos pasivos y tengan un valor máximo equivalente a cuarenta y cinco salarios base, se cobrará un cincuenta por ciento (50%) de esta tasa.

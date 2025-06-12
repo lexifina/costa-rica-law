@@ -1,0 +1,7 @@
+Artículo 8º-Acto administrativo. El acto administrativo que ordene hacer obra nueva de acera contendrá la siguiente información:
+a. Identificación del inmueble mediante número de folio real, nombre y cédula de la persona propietaria o poseedora que conste en el Registro Inmobiliario y/o en la Municipalidad.
+b. Descripción detallada de la obra nueva de acera faltante.
+c. Lineamientos y diseño para realizar la obra.
+d. Que deben iniciarse en 15 días hábiles prorrogables por un tanto más, previo a solicitud del interesado.
+e. Prevención de que, en caso de incumplimiento, la Municipalidad está facultada para suplir la omisión de forma directa y que por la obra realizada cargará el costo efectivo de la misma en la facturación de los tributos municipales, según lo estipula el párrafo segundo del artículo 84 del Código Municipal.
+f. Indicación de que contra lo ordenado caben los recursos ordinarios en la forma y plazo indicada en el artículo 171 del Código Municipal.

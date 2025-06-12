@@ -1,0 +1,1 @@
+Artículo 26.-Permiso de uso temporal por construcciones. Siempre que se respete el ancho mínimo de circulación, el Departamento de Control Constructivo podrá otorgar permiso de uso temporal del espacio de acera para el depósito de materiales producto de una construcción con licencia municipal.
