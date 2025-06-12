@@ -1,0 +1,1 @@
+ARTÍCULO 6- Sanciones. Se sancionará con cinco a treinta días multa, a quien omita cumplir con la obligación de denunciar la desaparición o no localización potencial o no de una mujer mayor de edad y, con uno a cuatro años de inhabilitación, al funcionario público que no realice o retarde las acciones que esta ley le estipule.
