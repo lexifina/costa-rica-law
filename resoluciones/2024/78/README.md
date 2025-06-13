@@ -14,3 +14,4 @@ Suspende parcialmente la aplicación del artículo 5 y 124 del Reglamento Técni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-07-17 | la propia norma |
+| 2 | 2025-06-13 | Resolución 81 (2025-06-13) |
