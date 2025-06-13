@@ -1,0 +1,1 @@
+TRANSITORIO I- El Poder Judicial elaborará el Protocolo para la participación de las personas mentoras en el proceso penal juvenil, dentro de un plazo de tres meses después de la vigencia de esta ley.
