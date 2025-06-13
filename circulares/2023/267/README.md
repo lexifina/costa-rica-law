@@ -13,3 +13,4 @@ Modificación de la Circular N°171-2023, sobre las oficinas autorizadas para br
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-10-18 | la propia norma |
+| 2 | 2025-06-13 | Circular 114 (2025-06-13) |
