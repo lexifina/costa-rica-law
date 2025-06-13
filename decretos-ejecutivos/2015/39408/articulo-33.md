@@ -1,1 +1,0 @@
-Artículo 33.—El informe contendrá una lista de las acciones de investigación de las causas de los riesgos, vigilancia y prevención desarrolladas por la Comisión, así como las gestiones desarrollas por la persona empleadora, según artículo 19 inciso c) del presente reglamento.

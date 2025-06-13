@@ -1,1 +1,0 @@
-Artículo 12.—Las personas empleadoras podrán designar a personas que actúen como su representante, según lo establecido en el artículo 5 del Código de Trabajo, y debe ser comunicado a todas las personas trabajadoras de la empresa o institución, con diez (10) días naturales de anticipación a la elección de los representantes de las personas trabajadoras.

@@ -1,1 +1,0 @@
-Artículo 4°—Las comisiones, como estructuras preventivas bipartitas, constituidas en todo centro de trabajo por personas empleadoras y por personas trabajadoras, tendrán como objetivo garantizar y ofrecer formas participativas de permanente diálogo y concertación en la construcción de soluciones en materia de salud ocupacional.

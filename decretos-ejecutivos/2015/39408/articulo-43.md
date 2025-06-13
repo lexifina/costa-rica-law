@@ -1,1 +1,0 @@
-Artículo 43.—La empresa o institución que no cumpla con lo establecido en el presente reglamento quedará en estado de incumplimiento para el registro de datos del Consejo, lo cual podrá ser subsanado a partir del momento en el que presente el informe requerido ante dicha Institución.

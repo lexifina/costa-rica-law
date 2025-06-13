@@ -1,1 +1,0 @@
-Artículo 18.—La persona empleadora debe informar a todas las personas trabajadoras el nombre y apellidos de los miembros que conforman la Comisión, dentro de un plazo no mayor a los ocho días naturales a partir de su constitución y celebración de la primera sesión, por cualquier medio escrito que disponga la persona empleadora.
