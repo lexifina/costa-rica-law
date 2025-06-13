@@ -1,6 +1,6 @@
 # Ley de Justicia Penal Juvenil
 
-Ley N° 7576 del 1996-03-08. SINALEVI, ficha 19385: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=19385&param2=115376&param3=1>.
+Ley N° 7576 del 1996-03-08. SINALEVI, ficha 19385: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=19385&param2=146244&param3=1>.
 
 Publicada en La Gaceta N° 82 del 1996-04-30.
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 10 | 2011-12-09 | Ley 9021 | 2012-01-03 |
 | 8 de 10 | 2019-01-21 | Ley 9582 | 2018-07-02 |
 | 9 de 10 | 2019-03-06 | Ley 9636 | 2019-01-22 |
+| 10 de 10 | 2025-06-13 | Ley 10641 | 2025-02-14 |
