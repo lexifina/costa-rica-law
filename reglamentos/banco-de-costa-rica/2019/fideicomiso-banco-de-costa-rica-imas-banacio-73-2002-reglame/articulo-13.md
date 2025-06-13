@@ -1,4 +1,3 @@
 CAPÍTULO II
-De las sesiones virtuales
-(Así reformado el capítulo anterior mediante acta 002 del 20 de marzo del 2020)
-Artículo 13.—Sede de sesión. Las sesiones del Comité Director deberán celebrarse en las oficinas del Fideicomiso de la Unidad Ejecutora o en su defecto en cualquier otro lugar que se designe en la convocatoria correspondiente.
+De las sesiones
+Artículo 13. Convocatoria. Las convocatorias las efectuará la (el) Presidente quien preside el Comité o en su defecto, la Unidad Ejecutora. Dichas convocatorias se harán por cualquier medio electrónico, con al menos dos días hábiles de anticipación a la fecha de la reunión correspondiente, plazo dentro del cual no se tomará en cuenta el día de recepción de la comunicación, pero si el día de la reunión. Quien realice la convocatoria, deberá verificar que las comunicaciones correspondientes hayan sido recibidas por sus destinatarios.

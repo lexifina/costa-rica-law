@@ -1,2 +1,1 @@
-Artículo 23.-Mociones. Los acuerdos de Comité Director se tomarán con base en iniciativas o mociones, escritas o verbales, presentadas por las personas miembros proponentes. Las propuestas que no se refieren al tema objeto de deliberación serán eliminadas de la discusión. Las enmiendas a las mociones, deben ser transmitidas verbalmente o por escrito a quien preside, antes de ser puestas a debate.
-(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 22 al artículo 23)
+Artículo 23.-Intervenciones. Se concederá la palabra en el orden en que se haya solicitado y conforme lo autorice el Presidente o quien lidere la sesión.

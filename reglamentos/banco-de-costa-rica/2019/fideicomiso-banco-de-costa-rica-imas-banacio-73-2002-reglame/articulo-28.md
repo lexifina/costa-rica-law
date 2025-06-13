@@ -1,2 +1,2 @@
-Artículo 28.-Dietas. Las personas representantes del Comité Director no devengan dietas.
-(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 27 al artículo 28)
+Artículo 28.-De la votación. La votación será pública, salvo que la persona Presidente o su representante disponga lo contrario o que se trate de asuntos que sean declarados como confidenciales o estratégicos, en cuyo caso deberá consignarse la fundamentación de tal decisión.
+Las abstenciones o los votos en blanco se computarán para efectos de quórum y para determinar el número de votantes, pero no se podrán atribuir ni a la mayoría ni a laminaría.

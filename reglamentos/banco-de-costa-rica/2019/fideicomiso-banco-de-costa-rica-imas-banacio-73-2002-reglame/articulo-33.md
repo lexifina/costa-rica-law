@@ -1,7 +1,6 @@
-Artículo 33.-Desconexión de la persona directora durante la sesión virtual. Cuando por motivos técnicos se pierda la interacción en tiempo real entre los participantes en la sesión superior a diez minutos, se considerará interrumpida la participación de la o las personas que estén participando de manera virtual. Esta circunstancia deberá consignarse en el acta.
-Las desconexiones menores a cinco minutos no se consignarán para efectos de la participación de alguna de las personas directoras
-La sesión se mantendrá mientras permanezca el quórum mínimo requerido.
-2. Se corre la numeración del artículo 28 al artículo 32 correspondiente al Reglamento de Organización y Funcionamiento del Comité Director, para que ahora sean del artículo 33 al artículo 37.
-Esta adición es vigente a partir de la aprobación del Comité Director del citado Fideicomiso, en el acta N° 002-2020 de fecha 20 de marzo 2020.
-(Así adicionado mediante acta N° 002-2020 del 20 de marzo del 2020)
-(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 32 al artículo 33)
+Artículo 33.-Actas de las sesiones virtuales. El acta correspondiente a una sesión virtual deberá cumplir con los requisitos del artículo 14, y se le adicionará lo siguiente:
+A. Documentar los motivos o razones por las cuales la sesión se realiza de esa forma,
+B. La lista de personas integrantes del Comité Director, con la descripción de quienes estuvieron presentes físicamente y quiénes de forma virtual.
+C. Mecanismo tecnológico utilizado por parte de la persona directora para participar en la sesión.
+D. Identificación del lugar donde se encontraba la persona del Comité Director que participó virtualmente.
+E. Cualquier otra circunstancia que se considere oportuna.

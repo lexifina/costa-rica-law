@@ -1,2 +1,7 @@
-Artículo 22.-Intervenciones. Se concederá la palabra en el orden en que se haya solicitado y no deberá a empezar a hablar una persona si no después de que la persona Presidente o su representante le haya concedido la autorización para ello.
-(Así modificada su numeración mediante acta N° 017- 2023 del 13 de setiembre del 2023, que lo traspaso del antiguo artículo 21 al artículo 22)
+Artículo 22.-Desarrollo de las sesiones. Las sesiones del Comité se desarrollarán conforme al orden del día previamente comunicado, el cual sólo podrá ser modificado o alterado en casos de urgencia según lo dispuesto en este reglamento.
+Se tratará en lo posible de ajustarse al siguiente orden:
+a) Aprobación del acta o actas de las sesiones inmediatamente anteriores, que ya hubieren sido estudiadas por los miembros del Comité Director, en los ejemplares distribuidos oportunamente por la Secretaría de Actas.
+b) Lectura, examen y tramitación de la correspondencia.
+c) Los asuntos de la persona Presidente, otros miembros del Comité, Auditoría, Fiduciario y Gerencia Unidad Ejecutora, en ese orden.
+d) Conocimiento, examen y resoluciones sometidos al Comité Director en la agenda correspondiente.
+e) Análisis de los demás asuntos incluidos en el orden del día.
