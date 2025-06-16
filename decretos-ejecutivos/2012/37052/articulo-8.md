@@ -1,1 +1,0 @@
-Artículo 8º—Se declara de interés público la creación del Centro de Respuesta de Incidentes de Seguridad Informática (CSIRT-CR). En virtud de dicha declaratoria, las entidades públicas y privadas quedan autorizadas, para que dentro de sus posibilidades económicas y marco legal respectivo, apoyen las labores de dicho Centro.

@@ -1,1 +1,0 @@
-Artículo 4º—El proceso de gestión administrativa y técnica del CSIRT-CR estará a cargo del Ministerio de Ciencia y Tecnología, quien será el responsable de coordinar, planificar, administrar y ejecutar los acuerdos del Consejo Directivo a través de un coordinador que nombrará para tales efectos.
