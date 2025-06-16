@@ -1,0 +1,2 @@
+Transitorio 2º-La transmisión en vivo de las sesiones de las comisiones se realizará siempre que se cuente con los recursos tecnológicos y operativos necesarios, estableciendo un plazo inicial de tres meses para su implementación. Este plazo podrá extenderse por un periodo adicional de igual duración, previa solicitud debidamente fundamentada por parte de la administración.
+(Así adicionado en sesión N° 24 del 16 de junio de 2025)

@@ -31,7 +31,7 @@ Artículo 62. Las comisiones analizarán, dictaminarán y recomendarán, sobre l
 4. 7 Los relacionados con la cooperación internacional.
 4.8 Los convenios, acuerdos y contratos de cooperación entre la Municipalidad y entidades públicas y privadas, nacionales o internacionales.
 4.9 El enlace con la Junta Administrativa de Cementerios del Cantón para dar seguimiento y apoyo a su labor.
-4.1 O Los relacionados con nombramientos, excepto los de Juntas de Educación de escuelas o Juntas Administrativas de colegios.
+4.10 Los relacionados con nombramientos, excepto los de Juntas de Educación de escuelas o Juntas Administrativas de colegios.
 4.11 Los relacionados con la Planificación Cantonal a excepción de la planificación urbana.
 4.12 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
 5. Comisión de Asuntos Jurídicos
@@ -73,6 +73,16 @@ Artículo 62. Las comisiones analizarán, dictaminarán y recomendarán, sobre l
 9.4 Los asuntos relacionados con el control de las personas que se dedican al cuido de vehículos en las vfas del cantón.
 9.5 Todos aquellos asuntos que requieren coordinación con diferentes autoridades policiales del gobierno.
 9.6 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
+10. Comisión de Asuntos de Discapacidad y Adulto Mayor (Comudam):
+10.1 Políticas locales para la inclusión, accesibilidad y promoción de los derechos de las personas con discapacidad y personas adultas mayores, en coordinación con los planes de desarrollo municipal.
+10.2 Cumplimiento de la normativa nacional e internacional relacionada con los derechos de estas poblaciones, incluyendo la Ley 7600 (Igualdad de Oportunidades para Personas con Discapacidad) y la Ley 7935 (Ley Integral para la Persona Adulta Mayor).
+10.3 Coordinación con instituciones públicas y privadas, así como con organizaciones de la sociedad civil, programas y acciones en beneficio de estas poblaciones.
+10.4 Participación efectiva de personas con discapacidad y personas adultas mayores en los procesos de consulta y toma de decisiones municipales.
+10.5 Campañas de sensibilización y educación, para promover una cultura de respeto, inclusión y valoración de estas poblaciones en el cantón.
+10.6 Uso de recursos municipales destinados a programas, proyectos o servicios dirigidos a estas poblaciones, garantizando su uso eficiente y con enfoque de derechos.
+10.7 Criterios técnicos y recomendaciones al Concejo Municipal y la Administración sobre iniciativas, reglamentos o proyectos que afecten directa o indirectamente a estas poblaciones.
+10.8 Otros temas relacionados con las funciones de la comisión o asignados por el Concejo Municipal para su análisis.
+(Así adicionado el inciso 10) anterior en sesión N° 24 del 16 de junio de 2025)
 11. Comisión de mercado libre
 11.1 Proponer tarifas de los adjudicatarios del Mercado Libre de Goicoechea.
 11.2 Recomendar los lineamientos de salud e higiene que deben acatarse en el Mercado Libre.
@@ -113,8 +123,7 @@ Artículo 62. Las comisiones analizarán, dictaminarán y recomendarán, sobre l
 15.5 La Comisión deberá regirse por el Reglamento de distinciones honoríficas de la Municipalidad de Goicoechea para todos sus efectos y de acuerdo al bloque de la legalidad.
 16 Comisión de Plan Regulador:
 16.1 La Comisión de Plan Regulador se encargará de la Actualización del mismo cuando se disponga debido a cambios que se generan y nuevas necesidades de la población.
-16.2 Legislar sobre las necesidades relacionadas a la definición de usos de suelo, requisitos urbanísticos en nuevas urbanizaciones y fraccionamientos, requisitos de sanidad
-ambiental, evitar el incremento de superficies impermeables en las partes altas.
+16.2 Legislar sobre las necesidades relacionadas a la definición de usos de suelo, requisitos urbanísticos en nuevas urbanizaciones y fraccionamientos, requisitos de sanidad ambiental, evitar el incremento de superficies impermeables en las partes altas.
 16.3 Propiciar la sana ubicación del comercio y las condiciones para que el mismo se desarrolle, sin que eso afecte a las comunidades aledañas.
 16.4 Promover y proteger la economía, comodidad, salud y bienestar de toda la población de Goicoechea con la aprobación de las normas que regular la zonificación del cantón.
 17 Comisión de Turismo:

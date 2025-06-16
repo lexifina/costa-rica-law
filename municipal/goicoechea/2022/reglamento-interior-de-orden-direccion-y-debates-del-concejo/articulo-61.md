@@ -11,7 +11,8 @@ Las comisiones permanentes son las siguientes:
 7. Asuntos Culturales.
 8. Condición de la Mujer
 9. Seguridad Ciudadana
-10. Accesíbilidad (COMAD)
+10. Asuntos de Discapacidad y Adulto Mayor (Comudam). Esta comisión será nombrada conforme lo dispuesto en el Artículo 49 del Código Municipal.
+(Así reformado el inciso anterior en sesión N° 24 del 16 de junio de 2025)
 La Comisión de Accesibilidad será nombrada por acuerdo del Concejo Municipal, en virtud de lo dispuesto en el Artículo 49 del Código Municipal.
 Las comisiones especiales son:
 11. Mercado Libre.
@@ -26,4 +27,4 @@ Las comisiones especiales son:
 20. Estudio y Creación de Reglamentos
 Las comisiones permanentes se integrarán con un mínimo de tres y un máximo de cinco regidurías propietarias.
 Además de las comisiones especiales señaladas en este reglamento el Concejo Municipal podrá crear nuevas comisiones especiales con el fin de estudiar un asunto específico y elaborar un dictamen.
-Las comisiones especiales se integrarán con un mínimo de tres 1ntegrantes de los cuales dos deben ser regidurías propietarias o suplentes, los síndicos que integren dicha comisión tendrán derecho a participar en la votación. Cualquier comisión puede crear subcomisiones.
+Las comisiones especiales se integrarán con un mínimo de tres integrantes de los cuales dos deben ser regidurías propietarias o suplentes, los síndicos que integren dicha comisión tendrán derecho a participar en la votación. Cualquier comisión puede crear subcomisiones.
