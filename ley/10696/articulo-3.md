@@ -1,0 +1,1 @@
+ARTÍCULO 3- Participación del Estado. El Estado apoyará las iniciativas de desarrollo local y las actividades de las micro, pequeñas y medianas empresas vinculadas al desarrollo turístico, ecológico, deportivo y cultural, buscando mantener, proteger y potenciar el patrimonio y los bienes culturales en la zona.
