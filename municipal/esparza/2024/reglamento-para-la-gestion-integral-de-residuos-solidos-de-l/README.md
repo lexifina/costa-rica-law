@@ -14,3 +14,4 @@ Reglamento para la Gestión Integral de Residuos Sólidos de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-27 | la propia norma |
+| 2 | 2025-06-16 | Reglamento municipal 0 (2025-06-16) |
