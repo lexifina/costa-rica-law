@@ -1,1 +1,2 @@
-Artículo 42.—En los colegios técnicos Profesionales los exámenes de bachillerato se realizarán en el mes de setiembre.
+Artículo 42.-En los Colegios Técnicos Profesionales, Institutos Profesionales de Educación Comunitaria (IPEC) y Centros Integrados de Educación de Adultos (CINDEA) que imparten especialidades técnicas, las pruebas nacionales estandarizadas se realizarán en las fechas que serán establecidas y comunicadas por la Dirección de Gestión y Evaluación de la Calidad y publicadas en el Calendario Escolar.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45117 del 16 de junio del 2025)
