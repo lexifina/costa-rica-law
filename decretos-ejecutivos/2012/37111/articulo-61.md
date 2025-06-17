@@ -1,1 +1,0 @@
-Artículo 61. — El Ministerio remitirá al Ministerio Público, para su correspondiente investigación, los casos sospechosos de manejo indebido o desvío hacia canales ilícitos de estupefacientes y psicotrópicos, sin perjuicio de las acciones que puedan tomarse en otras instancias.

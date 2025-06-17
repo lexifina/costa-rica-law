@@ -1,1 +1,0 @@
-Artículo 44. —El Ministerio establecerá los parámetros idóneos para la importación, almacenamiento y distribución de los estupefacientes y los psicotrópicos, con el fin de procurar la disponibilidad nacional de estos medicamentos, al amparo de las disposiciones legales y reglamentarias.

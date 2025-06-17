@@ -1,1 +1,0 @@
-Artículo 47. —Para el tránsito por el territorio nacional de estupefacientes ó psicotrópicos, se requerirá la autorización previa de la Dirección y será obligatorio que el cargamento viaje acompañado de la documentación en que consta esa autorización; de no ser así el cargamento podrá ser retenido o eventualmente decomisado por la Dirección, de comprobarse una situación ilícita.

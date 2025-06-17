@@ -1,1 +1,0 @@
-Artículo 46. —Para establecer las cantidades necesarias de estupefacientes y psicotrópicos para cubrir la demanda nacional, la Dirección realizará el estudio pertinente para conocimiento de la Junta y el posterior trámite de las previsiones correspondientes ante la Junta Internacional de Fiscalización de Estupefacientes (JIFE).

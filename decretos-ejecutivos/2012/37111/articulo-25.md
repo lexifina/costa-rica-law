@@ -1,1 +1,0 @@
-Artículo 25.—Los Colegios de Médicos y Cirujanos de Costa Rica, de Cirujanos Dentistas de Costa Rica, de Farmacéuticos de Costa Rica y de Médicos Veterinarios, deberán notificar inmediatamente a la Dirección los nombres de las personas profesionales que sean suspendidas en su ejercicio profesional, a fin de que ésta tome las medidas correspondientes.

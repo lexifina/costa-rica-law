@@ -1,2 +1,0 @@
-Artículo 67. Se considera falta muy grave la infracción de cualquiera de los artículos 16, 17, 18, 20, 26, 34 y 50 del presente Reglamento; y de los artículos 4, 5, 6, 7, 8, 11, 12 y 27 del Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta Digital, Decreto Ejecutivo No. 39984-S del 01 de setiembre de 2016, publicado en el Alcance No. 252 a La Gaceta No. 215 del 09 de noviembre de 2016.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)

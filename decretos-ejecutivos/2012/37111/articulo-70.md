@@ -1,2 +1,0 @@
-Artículo 70. Las faltas muy graves se sancionarán con una suspensión de cuatro a ocho meses, en la compra y venta de medicamentos psicotrópicos y estupefacientes, en el establecimiento farmacéutico; y con la suspensión de cuatro a ocho meses, en la compra y utilización de recetarios a los profesionales establecidos en el artículo 18 del presente reglamento, si corresponde.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)

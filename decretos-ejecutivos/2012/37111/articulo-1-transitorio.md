@@ -1,1 +1,0 @@
-Transitorio I.- Las farmacias que previo a la vigencia del presente Reglamento manejen psicotrópicos y estupefacientes contarán con un plazo de tres meses a partir de la publicación de este Decreto para presentar debidamente llenos los formularios disponibles en la página Web del Ministerio para dicho fin.

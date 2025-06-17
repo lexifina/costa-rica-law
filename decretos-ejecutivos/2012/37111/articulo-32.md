@@ -1,1 +1,0 @@
-Artículo 32. —La persona profesional que prescribe en las recetas oficiales, es personalmente responsable del uso que se haga de ellas. En caso de extravío o robo la persona profesional deberá notificarlo al ente que el Ministerio de Salud haya delegado la función de la confección y entrega de recetarios, en un plazo máximo de tres días hábiles después de conocido el hecho.

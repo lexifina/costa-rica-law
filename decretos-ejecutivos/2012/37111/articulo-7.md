@@ -1,1 +1,0 @@
-Artículo 7. La Junta sesionará ordinariamente cada dos semanas, y en forma extraordinaria cuantas veces sea necesario, por convocatoria del presidente de la Junta. El día, hora y lugar de sus sesiones serán fijados por acuerdo de la Junta.

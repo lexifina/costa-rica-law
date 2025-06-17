@@ -1,1 +1,0 @@
-Artículo 24. —(Derogado por el artículo 45 del Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta Digital de Psicotrópicos y estupefacientes, aprobado mediante decreto ejecutivo N° 39984 del 1° de setiembre del 2016)

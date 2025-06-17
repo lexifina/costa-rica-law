@@ -1,1 +1,0 @@
-Artículo 54. —Se decomisará y/o destruirá toda mercadería que contenga estupefacientes o psicotrópicos, que haya sido importada, manufacturada, sintetizada o de cualquier forma ingresada o elaborada en el país sin el permiso de la Junta, o que no se ajuste a lo estipulado en este Reglamento.

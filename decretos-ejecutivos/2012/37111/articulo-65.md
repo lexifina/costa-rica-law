@@ -1,2 +1,0 @@
-Artículo 65. Se considera falta leve la infracción de cualquiera de los artículos 31 y 32 del presente Reglamento y del artículo 18 del Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta Digital, Decreto Ejecutivo No. 39984-S del 01 de setiembre de 2016, publicado en el Alcance No. 252 a La Gaceta No. 215 del 09 de noviembre de 2016.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)
