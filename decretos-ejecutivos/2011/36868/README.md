@@ -14,3 +14,4 @@ Reglamento para la autorización y control sanitario de la publicidad de product
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-08 | la propia norma |
+| 2 | 2025-06-17 | Decreto Ejecutivo 45161 (2025-06-17) |

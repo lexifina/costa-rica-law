@@ -1,1 +1,1 @@
-Artículo 21.—Dadas las restricciones en la venta de sustancias psicotrópicas y estupefacientes, no se permitirá la publicidad de las mismas en ningún medio de comunicación; ni se permitirá ninguna promoción de éstas.
+Artículo 21.-(Derogado por el artículo 81 del Reglamento para el control de drogas, estupefacientes y psicotrópicas, aprobado mediante decreto ejecutivo N° 45161 del 17 de junio del 2025. Anteriormente este numeral había sido reformado en su totalidad por el artículo 80 del reglamento antes indicado)
