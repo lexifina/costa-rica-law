@@ -9,16 +9,14 @@ Con la entrada en vigencia del nuevo Código Procesal Civil, los siguientes ser�
 Con la entrada en vigencia del nuevo Código Procesal Civil algunas de las clases y tipos de los procesos actuales variarán o desaparecerán. Por ello, se han realizado dos acciones, por un lado, incluir en el sistema informático las nuevas clases y tipos de procesos; por otro, a las clases y tipos que desaparecen y que no pueden ser convertidos a los del nuevo código se mantendrán en el sistema solo para los expedientes activos lo que permitirá la tramitación hasta su finalización.
 1.1. Conversión de clases y tipos de procesos actuales a los nuevos:
 En el siguiente archivo encontrarán la metodología utilizada para la conversión de las clases y tipos de procesos actuales con la finalidad de ajustarlos a la nueva normativa:
-[imagen]
 1.2. Nuevas clases y tipos de procesos:
 Asimismo, en el documento siguiente se adjuntan las nuevas clases y tipos de proceso que con la implementación del nuevo código estarán disponibles en los sistemas informáticos:
-[imagen]
-2. “Estado” de los procesos en los sistemas informáticos en los Tribunales Colegiados de Primera Instancia, Juzgados Civiles, Juzgados Especializados de Cobro y Juzgado Concursal:
+2. "Estado" de los procesos en los sistemas informáticos en los Tribunales Colegiados de Primera Instancia, Juzgados Civiles, Juzgados Especializados de Cobro y Juzgado Concursal:
 2.1. Procesos contenciosos:
 El estado procesal de los asuntos contenciosos en trámite se deberá dividir en dos; uno para aquellos en etapa de conocimiento y otro para los procesos de ejecución o en etapa de ejecución.
 2.1.1. Trámite en etapa de conocimiento (En trámite):
-Todos los asuntos civiles a excepción de las ejecuciones de sentencia, ejecuciones prendarias, hipotecarias y de garantías mobiliarias, iniciarán en trámite en la etapa de conocimiento. En el sistema informático se mostrará como “En trámite”.
-Finalizará esta etapa, pasando a “Trámite en etapa de ejecución”, cuando se dicte una resolución de los siguientes tipos:
+Todos los asuntos civiles a excepción de las ejecuciones de sentencia, ejecuciones prendarias, hipotecarias y de garantías mobiliarias, iniciarán en trámite en la etapa de conocimiento. En el sistema informático se mostrará como "En trámite".
+Finalizará esta etapa, pasando a "Trámite en etapa de ejecución", cuando se dicte una resolución de los siguientes tipos:
 Renuncia del derecho
 Caducidad del proceso
 Resolución intimatoria firme (sin oposición o cuando se rechace por infundada la oposición)
@@ -36,15 +34,15 @@ Demanda improponible con ejecución posterior
 Sentencia en principal con condena
 Resolución de fondo con condena (Incidente o Tercería)
 Medida cautelar finalizada con ejecución posterior
-En el sistema se mostrará “En trámite” y “trámite de ejecución”, por ende será responsabilidad de los usuarios hacer el cambio de estado manualmente cuando se dicte una resolución de las antes enumeradas.
+En el sistema se mostrará "En trámite" y "trámite de ejecución", por ende será responsabilidad de los usuarios hacer el cambio de estado manualmente cuando se dicte una resolución de las antes enumeradas.
 2.1.2. Trámite en etapa de ejecución:
-Los procesos de ejecución hipotecaria, prendaria, garantías mobiliarias y ejecuciones de sentencia, se ubicarán desde su inicio en la categoría de trámite de ejecución. Tomando en cuenta que el sistema actual incluye los asuntos nuevos en etapa de “En trámite”, el Despacho tendrá la obligación de actualizar manualmente el estado de estos asuntos a “Trámite en etapa de ejecución”.
-También pasarán a este estado aquellos procesos que finalicen el “Trámite en etapa de conocimiento” según lo arriba indicado.
-Cuando un proceso en “Trámite en etapa de ejecución” no se continúe gestionando y el tribunal esté impedido para instar su trámite de oficio, si se cumplen los demás requisitos, el asunto saldrá del circulante como inactivo.
+Los procesos de ejecución hipotecaria, prendaria, garantías mobiliarias y ejecuciones de sentencia, se ubicarán desde su inicio en la categoría de trámite de ejecución. Tomando en cuenta que el sistema actual incluye los asuntos nuevos en etapa de "En trámite", el Despacho tendrá la obligación de actualizar manualmente el estado de estos asuntos a "Trámite en etapa de ejecución".
+También pasarán a este estado aquellos procesos que finalicen el "Trámite en etapa de conocimiento" según lo arriba indicado.
+Cuando un proceso en "Trámite en etapa de ejecución" no se continúe gestionando y el tribunal esté impedido para instar su trámite de oficio, si se cumplen los demás requisitos, el asunto saldrá del circulante como inactivo.
 2.2. Procesos no contenciosos:
 Los procesos no contenciosos, pruebas anticipadas, medidas cautelares y actividades preparatorias, al no tener una etapa de ejecución o ser ésta mínima, se ubicarán en trámite de conocimiento (En trámite) hasta su finalización.
 3. Finalización estadística de la carpeta (terminados):
-El estado de los procesos en “Trámite en etapa de conocimiento” (En trámite) y “Trámite en etapa de ejecución”, finalizarán y cerrarán estadísticamente las carpetas (terminados) por los siguientes motivos:
+El estado de los procesos en "Trámite en etapa de conocimiento" (En trámite) y "Trámite en etapa de ejecución", finalizarán y cerrarán estadísticamente las carpetas (terminados) por los siguientes motivos:
 Demanda inadmisible sin condena en costas
 Conciliación homologada sin ejecución posterior
 Satisfacción extraprocesal sin ejecución posterior
@@ -76,21 +74,21 @@ Los inactivos corresponderán a aquellos expedientes que han salido del circulan
 2. Monitorios y de ejecución, sin embargo practicado, que no hayan sido debidamente gestionados por la parte en el plazo de 6 meses.
 3. Expedientes con sentencia, resolución intimatoria firme, o aquellos con conciliación, satisfacción extraprocesal, desistimiento, transacción o renuncia del derecho con algún tipo de condena en costas, y/o daños y perjuicios, que no hayan sido debidamente gestionados por la parte en el plazo de 6 meses.
 Con la entrada en vigencia del nuevo código, los Despachos tendrán la obligación de realizar depuraciones dos veces al año. Cada oficina procurará que al menos una de estas depuraciones se realice como acto previo al inventario de expedientes.
-Para realizar estas depuraciones, en lo posible los despachos aplicarán la mejora 085-2016 denominada “módulo de inactivos” para determinar aquellos asuntos que no tengan movimientos en los últimos seis meses. Los asuntos deberán ser revisados considerando el impulso procesal de oficio que se les pueda brindar, con el fin de no pasarlos a estado “inactivo” de forma innecesaria
+Para realizar estas depuraciones, en lo posible los despachos aplicarán la mejora 085-2016 denominada "módulo de inactivos" para determinar aquellos asuntos que no tengan movimientos en los últimos seis meses. Los asuntos deberán ser revisados considerando el impulso procesal de oficio que se les pueda brindar, con el fin de no pasarlos a estado "inactivo" de forma innecesaria
 Para una adecuada utilización de la mejora indicada y poder filtrar aquellos asuntos sin movimientos por más de seis meses que presenten embargos, se deberá utilizar tres mejoras informáticas adicionales:
 1) La 358-2016, que agrega un recuadro en datos generales del expediente para indicar si el expediente contiene embargos físicos
 2) La 492-2015, que coloca un botón en datos generales para indicar si el expediente tiene anotaciones o no del SREM
 3) La 280-2014, que alerta cuando un expediente cuenta con depósitos judiciales.
 Cuando se realice la labor de depuración, se deberán revisar todas las sub carpetas que tenga un número único de expediente (NUE) con la finalidad de evitar la salida de carpetas con recursos admitidos o resolver sobre cuestiones que están siendo discutidas en un recurso en trámite.
 5. Trámite a seguir cuando se admitan apelaciones y casaciones:
-En el caso anterior de “Circulante al concluir por estado”, tratándose de apelaciones admitidas, la regla de la nueva normativa procesal es la no suspensión de la competencia del tribunal de primera instancia para seguir tramitando el proceso. Debe el tribunal considerar lo dispuesto en el nuevo Código Procesal Civil respecto a la ejecución provisional de las sentencias.
-Cuando se admita un recurso de apelación o casación, se deberá ejecutar el trámite de admisión y remisión de recurso (RR) cuando sea planteado y admitido, modificando el estado del proceso principal a “En alzada”. No se deberá itinerar el proceso principal.
+En el caso anterior de "Circulante al concluir por estado", tratándose de apelaciones admitidas, la regla de la nueva normativa procesal es la no suspensión de la competencia del tribunal de primera instancia para seguir tramitando el proceso. Debe el tribunal considerar lo dispuesto en el nuevo Código Procesal Civil respecto a la ejecución provisional de las sentencias.
+Cuando se admita un recurso de apelación o casación, se deberá ejecutar el trámite de admisión y remisión de recurso (RR) cuando sea planteado y admitido, modificando el estado del proceso principal a "En alzada". No se deberá itinerar el proceso principal.
 En la remisión el sistema actualmente permite adjunta únicamente un documento, por ello, si se trata de una apelación de derecho o bien un recurso de casación, se deberá adjunta copia de la resolución que emplaza a los interesado. Si lo formulado es una apelación por inadmisión, el documento que se debe adjuntar es el recurso planteado considerando que conformes las reglas del nuevo código, el despacho de primera instancia no se refiere respecto a la admisibilidad del mismo.
 Si se tratare de una apelación admitida en audiencia oral, se adjuntará una constancia que indique los minutos de la grabación donde consta el recurso respectivo.
 La carpeta principal mantendrá su estado y continuará con su trámite a menos que el superior ordene la suspensión total del proceso o que por motivo legal no pueda continuarse, según lo decida así el tribunal de primera instancia.
 Cuando se resuelva una gestión, es obligación de los despachos revisar todas las sub carpetas que tenga un número único de expediente (NUE), con la finalidad de evitar la salida de carpetas con recursos admitidos o resolver sobre cuestiones que están siendo discutidas en un recurso en trámite.
-Para que el tribunal de primera instancia pueda tener conocimiento del estado de los recursos itinerados en apelación o casación ante los Tribunales y estos últimos puedan a su vez consultar los expedientes principales que se tramitan en primera instancia; será obligación de los Tribunales de Apelación y de las oficinas de primera instancia, brindarse accesos de forma recíproca con permisos de consulta como mínimo en el sistema “Escritorio Virtual”. Lo anterior deberá considerarse también en caso de asuntos que lleguen a conocimiento de las Salas de la Corte Suprema de Justicia.
-Además de lo anterior, podrá la oficina que tramite una carpeta principal o recurso, revisar las demás carpetas electrónicas que tenga un número único de expediente (NUE), mediante la utilización de la mejora “Consulta de expedientes en apelación”, la cual permite consultar aquellas carpetas de expedientes donde se admiten apelaciones.
+Para que el tribunal de primera instancia pueda tener conocimiento del estado de los recursos itinerados en apelación o casación ante los Tribunales y estos últimos puedan a su vez consultar los expedientes principales que se tramitan en primera instancia; será obligación de los Tribunales de Apelación y de las oficinas de primera instancia, brindarse accesos de forma recíproca con permisos de consulta como mínimo en el sistema "Escritorio Virtual". Lo anterior deberá considerarse también en caso de asuntos que lleguen a conocimiento de las Salas de la Corte Suprema de Justicia.
+Además de lo anterior, podrá la oficina que tramite una carpeta principal o recurso, revisar las demás carpetas electrónicas que tenga un número único de expediente (NUE), mediante la utilización de la mejora "Consulta de expedientes en apelación", la cual permite consultar aquellas carpetas de expedientes donde se admiten apelaciones.
 Al resolver el recurso, el Tribunal itinerará la resolución con lo resuelto. Las actas de notificación podrán ser revisadas por parte del despacho mediante el sistema de consulta antes citado.
 La Dirección de Tecnología de la Información, está trabajando en una mejora que permita itinerar más documentos en las carpetas de recursos.
 (Así reformado el punto 5) anterior mediante circular N° 42-2019 del 26 de marzo de 2019)
@@ -161,13 +159,13 @@ Tribunales de apelación y Salas
 | | | |
 | | | |
 8. ¿Qué hacer cuando a un expediente deba regresar a un estado anterior?:
-En todos los casos anteriores, si la resolución recurrida se anulare o bien el proceso se retrotrajere a un “estado” anterior, la persona usuaria del sistema deberá modificar manualmente el estado procesal del expediente, según la etapa o estado que corresponda.
+En todos los casos anteriores, si la resolución recurrida se anulare o bien el proceso se retrotrajere a un "estado" anterior, la persona usuaria del sistema deberá modificar manualmente el estado procesal del expediente, según la etapa o estado que corresponda.
 9. Reentrados:
-En el sistema se deberá indicar como “reentrado” aquellos casos donde se ingresa provisionalmente al circulante un proceso que ha salido previamente por “Finalización estadística de la carpeta” (terminados). Se reentrarán aquellos expedientes a los que se les presenten gestiones que ameriten emitir al menos una resolución judicial. No se reentrará un expediente al que se le tuviera que poner únicamente resuelto un escrito, agregar documentación, emitir una copia de un oficio emitido, todo lo anterior que no amerite emitir una resolución.
+En el sistema se deberá indicar como "reentrado" aquellos casos donde se ingresa provisionalmente al circulante un proceso que ha salido previamente por "Finalización estadística de la carpeta" (terminados). Se reentrarán aquellos expedientes a los que se les presenten gestiones que ameriten emitir al menos una resolución judicial. No se reentrará un expediente al que se le tuviera que poner únicamente resuelto un escrito, agregar documentación, emitir una copia de un oficio emitido, todo lo anterior que no amerite emitir una resolución.
 10. Reactivados:
-Los “reactivados” corresponderán a aquellos expedientes inactivos a los cuales se les presenten gestiones para continuar con su trámite o propiciar su futura finalización. Se reactivarán aquellos expedientes a los que se les presenten gestiones que ameriten emitir al menos una resolución judicial. No se reactivará un expediente al que se le tuviera que poner únicamente resuelto un escrito, agregar documentación, emitir una copia de un oficio emitido, todo lo anterior que no amerite emitir una resolución.
+Los "reactivados" corresponderán a aquellos expedientes inactivos a los cuales se les presenten gestiones para continuar con su trámite o propiciar su futura finalización. Se reactivarán aquellos expedientes a los que se les presenten gestiones que ameriten emitir al menos una resolución judicial. No se reactivará un expediente al que se le tuviera que poner únicamente resuelto un escrito, agregar documentación, emitir una copia de un oficio emitido, todo lo anterior que no amerite emitir una resolución.
 La Dirección de Tecnología de la Información está trabajando en una mejora informática que permita crear este motivo de reactivación de carpeta. Mientras la misma no se encuentre implementada en los sistemas informáticos, se utilizará la de reentrados.
-11. “Estado” de los procesos en los sistemas informáticos, en los Tribunales de Apelación
+11. "Estado" de los procesos en los sistemas informáticos, en los Tribunales de Apelación
 11.1. Entrados:
 El estado procesal de los asuntos principales ingresados será en trámite. Ingresados los recursos, su circulante se dividirá según el motivo de ingreso en:
 Apelaciones de autos entradas
@@ -187,7 +185,7 @@ Confirma denegatoria
 Revoca denegatoria
 Rechaza de plano
 Resuelve conflicto
-Si se trata de una revocatoria o confirmación parcial, se deberá indicar el apartado “modificadas”.
+Si se trata de una revocatoria o confirmación parcial, se deberá indicar el apartado "modificadas".
 Para lo anterior se deberá indicar en el registro de resolución si se trata de:
 · Apelaciones de autos resueltas · Apelaciones de sentencias resueltas · Apelaciones por inadmisión resueltas · Conflictos de competencia resueltos
 Es recomendable además considerar lo arriba indicado sobre el trámite a seguir en primera instancia cuando se admitan apelaciones, así como de las otras situaciones de índole procesal que motivan un cambio de estado en los sistemas.
@@ -248,7 +246,6 @@ Otras gestiones cuando la ley indique expresamente que se tramitan por la vía i
 El nuevo código establece además la posibilidad de resolver ciertas cuestiones tanto de forma escrita como oral. Para obtener el número de voto respectivo, los Despachos deberán activar la mejora de voto automático y de voto oral.
 El voto automático permite que al ejecutarse una resolución que debe llevar número, el sistema de forma automática genere la base del registro de resolución así como el número respectivo cuando se firma la misma.
 El voto oral facilita la obtención de números de resolución que serán utilizados al dictarse resoluciones orales que llevan número, durante las audiencias orales. El siguiente es un resumen del manual de ambas mejoras:
-[imagen]
 14. Registro de resolución:
 Todas aquellas resoluciones a las que se les consigna un número de consecutivo en los términos indicados en el inciso anterior, deben contar con un registro de resolución. A las siguientes resoluciones se les deberá realizar un registro de resolución, cada vez que se dicten:
 Tipo | Observaciones
@@ -301,7 +298,7 @@ Los mismos serán:
 Tipo de resolución | Resultado de resolución | Debe llevar número de resolución?
 Juzgados Cobratorios, Civiles, Tribunales de Instancia
 Autos | Auto dictado (Se contabiliza la totalidad de autos dictados en el periodo) | No por ende no se le hace registros.
-Autos que ponen fin al proceso | Si (inciso 1 del apartado “¿Qué debe llevar número de resolución?”
+Autos que ponen fin al proceso | Si (inciso 1 del apartado "¿Qué debe llevar número de resolución?"
 Providencias | Providencia dictada | No por ende no se le hace registros.
 Resolución fondo Conciliación | Homologa conciliación | Si
 Rechaza conciliación | Si
@@ -414,97 +411,9 @@ Con base en lo anteriormente expuesto, en el sistema se indicarán los siguiente
 22. Resuelve conflicto y termina el proceso
 23. Rechaza conflicto
 De esta manera, según el tipo de resolución escogida, el usuario deberá verificar en la lista transanterior indicada que tipo de resultados debe ser utilizados de la lista anterior.
-Se aclara, los motivos “Condena Abstracto, Condena Hacer” etc, corresponden a tipos de condenas y no a resultados de resolución. Por ende, en la medida de lo posible, no deberán ser utilizados.
+Se aclara, los motivos "Condena Abstracto, Condena Hacer" etc, corresponden a tipos de condenas y no a resultados de resolución. Por ende, en la medida de lo posible, no deberán ser utilizados.
 Se recomienda además que cuando se dicte una sentencia donde figuren varias personas accionantes, varias personas accionadas o cuando se resuelve además una contrademanda, intervención excluyente, proceso acumulado, entre otros; se incluyan tales circunstancias en los comentarios de los datos generales del expediente y en el apartado de observaciones de los indicadores de gestión.
-16. Señalamientos en agenda CRONOS:
-Cada señalamiento efectuado en los diferentes expedientes judiciales así como sus modificaciones y resultados, deben ser incorporados correctamente al sistema agenda CRONOS. Es responsabilidad de los servidores judiciales cumplir con lo anterior.
-16.1. Apuntes
-Los siguientes serán los apuntes que se consignarán en el programa agenda CRONOS según los señalamientos efectuados en los expedientes:
-Juzgados Civiles, Tribunales de Instancia y Tribunales de Apelación
-Allanamiento
-Apertura Caja de Seguridad
-Apertura Testamento
-Asamblea Convocatoria Accionistas
-Aseguramiento Bienes
-Audiencia de Conciliación
-Audiencia en Sucesorio
-Servicio Nacional de Facilitadores Judiciales
-Audiencia Única
-Audiencia Preliminar
-Audiencia Complementaria Audiencia Fuera del Tribunal
-Remate
-Junta de Acreedores
-Juzgados Cobratorios
-Audiencia Única
-Remate
-Servicio Nacional de Facilitadores Judiciales
-Audiencia fuera del Despacho
-En el apartado de audiencia única se ubicarán aquellos procesos definidos por el Código para que se realice una sola audiencia como está previsto en los sumarios o monitorios. Se incluirían además aquellos procesos que requieran la realización de una audiencia para su trámite y decisión, como el caso de cuestiones incidentales, tercerías, medidas cautelares, pruebas anticipadas, algunos no contenciosos, entre otros.
-Las audiencias preliminar y complementaria serán propias de los procesos ordinarios. En este tipo de proceso, cuando se esté en el caso de realizarse solamente una audiencia, se computará como única o preliminar, dependiendo de la siguiente situación:
-· Cuando el tribunal programe deliberadamente una sola audiencia en lugar de dos, se tendrá como "Audiencia única".
-· Cuando programada la audiencia preliminar, de manera sobrevenida el tribunal considere que no es necesario celebrar una complementaria, se contabilizará la audiencia como "preliminar".
-Para aquellas actividades que ameriten un traslado del personal del despacho fuera de la oficina para la realización de la audiencia única o complementaria, puestas en posesión, ejecución de medidas cautelares, entre otros; se utilizará el apunte “Audiencia fuera del Despacho”.
-16.2. Estados de los apuntes:
-El resultado de la audiencia deberá ser actualizado en los sistemas tecnológicos una vez finalizada su celebración, según las siguientes opciones:
-Actualmente indicados en el sistema : | ¿En qué consisten?
-Sin efecto | Se deja sin efecto el acto mediante resolución emitida antes de la hora y día señalados.
-Suspendido | Una vez iniciado el acto procesal el mismo se suspende.
-Realizado | El acto procesal se lleva a cabo.
-Continúa | Se fija otra hora y fecha para la continuación del acto procesal.
-No realizado | No se lleva a cabo el día y hora señalados para la realización del acto por un motivo que se presentó en el acto.
-Conciliado // Con acuerdo | Las partes llegan a un acuerdo durante el acto procesal.
-Para una mayor claridad, tratándose de remates, debe considerarse:
-Realizado | Aquellos donde el acreedor privilegiado o un postor se adjudica el bien o bienes en la subasta.
-O cuando una vez realizada la subasta, ninguna persona se adjudica el bien o bienes a rematar.
-No realizados | Aquellos que no se llevan a cabo el propio día de la subasta por motivo de falta de publicación del edicto de ley, falta de notificación de alguna parte, acreedor, anotante u otro, por solicitud del acreedor privilegiado en el acto, por falta de apersonamiento del mismo en aquellos casos que la ley establece como obligatorio que esté presente, acuerdo de partes, entre otros.
-Sin Efecto | Aquellas subastas posteriores que se cancelan por haberse adjudicado el bien o bienes en una subasta previa, o cuando se emite una resolución previo a la subasta dejándola sin efecto por motivo de falta de publicación del edicto de ley, falta de notificación de alguna parte, acreedor, anotante u otro, por solicitud del acreedor privilegiado en el acto, por falta de apersonamiento del mismo en aquellos casos que la ley establece como obligatorio que esté presente, acuerdo de partes, entre otros.
-Suspendido | Una vez iniciado el acto procesal el mismo se suspende por solicitud del acreedor privilegiado, solicitud de ambas partes, caso fortuito o fuerza mayor entre otros.
-En este último apartado, respecto a remates, tomando en consideración que el Código Procesal Civil parte de la base que sea el personal técnico el que realice las subastas, se recomienda gestionar ante la Dirección de Tecnología de la Información la inclusión de los usuarios requeridos para esta labor.
-16.3. Resultados de apuntes:
-Cada estado de los apuntes tiene a su vez un resultado que ayuda a especificarlo. Los siguientes serán los resultados que se deberán escoger según los estados de los apuntes indicados en el sistema informático:
-Estado | Resultado del apunte
-Sin efecto | Actividad Procesal Defectuosa
-Asueto
-Superposición de audiencias
-Proceso Suspendido
-Proceso Terminado
-Cambio Fecha de señalamiento de oficio
-Cambio Fecha de señalamiento a solicitud de parte
-No publicación edicto
-Falta de notificación
-Adjudicación en subasta previa
-Suspendido | Acción de Inconstitucionalidad
-Actividad Procesal Defectuosa
-Inasistencia justificada de la parte o abogado/a
-Caso fortuito o fuerza mayor
-Solicitud de las partes
-Recusación
-Suspensión del proceso
-Solicitud del acreedor privilegiado
-Imposible practicar prueba
-Realizado | Realizado
-Adjudicado en 1° remate
-Adjudicado en 2° remate
-Adjudicado en 3° remate
-Fracasado en 1° remate
-Fracasado en 2° remate
-Fracasado en 3° remate
-Continua | Nuevo Señalamiento
-No Realizado | Acción de Inconstitucionalidad
-Actividad Procesal Defectuosa
-Proceso Terminado
-Incapacidad médica persona juzgadora
-Caso fortuito o fuerza mayor
-Edicto no publicado
-Falta de notificación
-Petición o solicitud de partes
-Por adjudicación en 1° remate
-Por adjudicación en 2° remate
-No apersonamiento del acreedor cuando la ley lo exige
-Conciliado // Con Acuerdo |
-16.4. Grabación y tipificación de audiencias:
-Las audiencias orales serán grabadas con respaldo de audio y cuando la sala cuente con los recursos, mediante grabación de audio y video. Si se debe realizar un reconocimiento judicial, se consultará a cada Administración Regional sobre la disponibilidad de una cámara de video o fotográfica para documentar la actividad y en la medida de lo posible se adjuntará al expediente tales registros. Para el cumplimiento de esta última actividad, el tribunal podrá disponer de otros dispositivos de documentación a su alcance.
-Para la grabación de las audiencias se utilizará el sistema institucional (SIGAO). Es obligación del personal judicial que realiza la grabación, utilizar la mejora de etiquetas para identificar cada acto realizado durante las audiencias. Para lo anterior y otras actividades propias de las audiencias orales, las personas juzgadoras serán asistidas por un(a) técnico(a) judicial.
+16. Señalamientos en agenda CRONOS:(Este apartado se dejó sin efecto mediante circular N° 116-2025 del 17 de junio de 2025, "Actualización de los apuntes y estados, para el uso de la Agenda CRONOS y reglas prácticas para la efectividad de los señalamientos y celebración de audiencias en Materia Civil, Concursal y de Cobro Judicial")
 17. Incidentes
 Tratándose de incidentes, existen aquellos que no se les crea una carpeta adicional (se tramitan dentro del proceso principal) y otros a los que si se les crea. La ley no establece de forma rigurosa ni exhaustiva cuales se tramitan de una forma u otra, lo cual crea el inconveniente de determinar cuáles deben tramitarse de forma separada y por ende ser contabilizados o no como carpetas incidentales.
 Con la finalidad de estandarizar el conteo estadístico de las incidencias presentadas, se deberán tramitar en legajo separado o bien dentro del proceso principal los siguientes incidentes:
@@ -533,15 +442,15 @@ En cuanto a las tercerías, cada gestión de este tipo deberá tramitarse en una
 · Tercería de mejor derecho.
 Las solicitudes de levantamiento sin tercería se tramitarán en el principal o en la carpeta donde se hubiere ordenado el embargo o la anotación.
 19. Legajos:
-El legajo de embargo preventivo y medida cautelar se deberán abrir cuando se presente la gestión en un asunto principal ya en trámite. Caso contrario, es decir cuando se presenten antes de establecerse el proceso principal, deben ingresarse como una carpeta “Principal”. Se procederá de esa forma también ante la solicitud de prueba anticipada que se tramite antes de promoverse el proceso principal.
-Cuando se traslade a un asunto principal un embargo preventivo, una medida cautelar o una prueba anticipada; deberá modificarse la carpeta itinerada de “principal” a “legajo”.
+El legajo de embargo preventivo y medida cautelar se deberán abrir cuando se presente la gestión en un asunto principal ya en trámite. Caso contrario, es decir cuando se presenten antes de establecerse el proceso principal, deben ingresarse como una carpeta "Principal". Se procederá de esa forma también ante la solicitud de prueba anticipada que se tramite antes de promoverse el proceso principal.
+Cuando se traslade a un asunto principal un embargo preventivo, una medida cautelar o una prueba anticipada; deberá modificarse la carpeta itinerada de "principal" a "legajo".
 Se crearán también legajos para aquellas actividades propias de legajos de administración y de créditos.
 20. Asuntos urgentes:
-Deberá cada oficina establecer la metodología para la atención de gestiones urgentes. Para ello, se recomienda utilizar la mejora 256-2016 que permite indicar o alertar en la pantalla de la “administración del buzón” si el expediente de la tarea “Para firmar documentos” es urgente de tal manera, que la persona juzgadora pueda visualizar en su buzón que tiene asuntos urgentes pendientes de firma.
-Tratándose de medidas cautelares, se procederá a habilitar en el apartado de escritos del sistema “escritorio virtual” una opción que se marcará, cuando una gestión contenga una solicitud de este tipo. Ello permitirá por un lado, filtrar las medidas cautelares en trámite, pero por otro, contabilizar estadísticamente la cantidad de este tipo de gestiones presentadas en las oficinas civiles.
+Deberá cada oficina establecer la metodología para la atención de gestiones urgentes. Para ello, se recomienda utilizar la mejora 256-2016 que permite indicar o alertar en la pantalla de la "administración del buzón" si el expediente de la tarea "Para firmar documentos" es urgente de tal manera, que la persona juzgadora pueda visualizar en su buzón que tiene asuntos urgentes pendientes de firma.
+Tratándose de medidas cautelares, se procederá a habilitar en el apartado de escritos del sistema "escritorio virtual" una opción que se marcará, cuando una gestión contenga una solicitud de este tipo. Ello permitirá por un lado, filtrar las medidas cautelares en trámite, pero por otro, contabilizar estadísticamente la cantidad de este tipo de gestiones presentadas en las oficinas civiles.
 21. Casos confidenciales o relevantes:
 Una vez que la persona juzgadora haya dispuesto que el contenido de un proceso sea de carácter restrictivo o confidencial en su totalidad o en parte, se deberán tomar las previsiones necesarias para no incorporar al expediente electrónico lo que corresponda . Lo anterior mientras se crea una mejora que pueda limitar los accesos en estos casos.
-Si el asunto en trámite presenta interés especial para la prensa o bien por el cuidado adicional que debe tenerse en su tramitación en virtud de alguna circunstancia particular, el despacho podrá hacer uso de la mejora 298-2016, la cual agrega una casilla dentro de los datos generales del escritorio virtual para indicar si es o no “relevante” para que se advierta previamente tal situación.
+Si el asunto en trámite presenta interés especial para la prensa o bien por el cuidado adicional que debe tenerse en su tramitación en virtud de alguna circunstancia particular, el despacho podrá hacer uso de la mejora 298-2016, la cual agrega una casilla dentro de los datos generales del escritorio virtual para indicar si es o no "relevante" para que se advierta previamente tal situación.
 22. Tipificación de escritos y escritos que no puedan ser resueltos
 Todo documento que sea agregado al expediente debe tener una tipificación clara que lo describa, si se trata de escritos o documentos se deberá utilizar la mejora 186-2016 que permite no solo su tipificación, sino que el técnico o técnica responsable del asunto la varíe en caso de que sea incorrecta o poco clara. Además deberá tipificación el contenido de las resoluciones y otros documentos generados a lo interno del despacho.
 En el caso que un escrito no pueda ser resuelto por no ser el momento procesal oportuno o impedimento legal, se deberá utilizar la mejora 208-2016 la cual agrega un apartado en los escritos para marcar que se reserva para ser resuelto posteriormente. Lo anterior permitirá estadísticamente depurar los indicadores de escritos pendientes de ser resueltos y al mismo tiempo, filtrar aquellos que se hayan reservado en el sistema.
