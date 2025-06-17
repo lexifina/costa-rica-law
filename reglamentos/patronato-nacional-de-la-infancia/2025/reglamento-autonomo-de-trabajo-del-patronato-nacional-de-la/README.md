@@ -14,3 +14,4 @@ Reglamento autónomo de trabajo del Patronato Nacional de la Infancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-04 | la propia norma |
+| 2 | 2025-06-17 | Reglamento 29 (2025-06-17) |
