@@ -1,0 +1,2 @@
+Artículo 18.-Responsabilidad de la clasificación. El emisor de la información será responsable de clasificarla como restringida en el momento de su generación, siempre que se cumpla con uno o más de los criterios de calificación de información restringida establecidos en el presente Reglamento.
+En cualquier momento, el emisor podrá variar su criterio mediante acto motivado. Es responsabilidad del emisor incorporar el documento en la plataforma tecnológica para la correcta identificación de dicha información como restringida.

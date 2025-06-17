@@ -1,0 +1,1 @@
+Artículo 2°-Alcance del reglamento. Este Reglamento es de aplicación obligatoria para todas las personas trabajadoras de la ESPH S. A. y miembros de su Junta Directiva, así como para cualquier tercero que pretenda acceso a información pública y/o restringida generada o custodiada por la empresa o subsidiarias.

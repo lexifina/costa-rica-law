@@ -1,0 +1,2 @@
+Artículo 21.-Procedimiento de impugnación. Si un ciudadano o persona trabajadora de la ESPH S.A. considera que determinada información ha sido clasificada incorrectamente, podrá presentar una solicitud de revisión ante el Proceso de Gestión Jurídica, quien deberá resolver en un plazo máximo de cinco (5) días hábiles, emitiendo una respuesta debidamente fundamentada. La solicitud de información o aclaraciones suspenderá el cómputo del plazo.
+Contra la resolución procederá recurso de revocatoria y apelación, este último será conocido por la Gerencia General de la ESPH S. A.

@@ -1,0 +1,8 @@
+Artículo 8°-Protocolo de acción.
+a. La persona trabajadora que reciba la solicitud de información por escrito deberá emitir de inmediato un comprobante de acuse de recibo, indicando la fecha de recepción, el nombre de la persona trabajadora que recibe y una descripción de la solicitud.
+b. Si la solicitud se realiza de manera verbal, se deberá registrar un medio para notificaciones.
+c. La persona trabajadora que reciba la solicitud deberá completar los formularios correspondientes en la plataforma tecnológica dispuesta para la documentación, registro y estadísticas de las solicitudes de información pública.
+d. El plazo de la persona trabajadora para atender la solicitud se iniciará a partir del momento en que se tenga por cumplida la prevención.
+e. En cualquier caso, si la persona trabajadora que recibe la solicitud no es la tenedora de la información, deberá remitir en el plazo máximo de dos (2) días hábiles la solicitud a la dependencia correspondiente para que esta proceda a darle atención al solicitante.
+f. Si la solicitud no es clara, la persona trabajadora tenedora de la información tendrá un plazo de tres (3) días hábiles, contados a partir de la fecha en que se realizó la solicitud de información, para solicitar la aclaración correspondiente mediante el medio de notificación que el solicitante haya indicado.
+g. A partir de la notificación de la prevención para aclaración, el solicitante contará con un plazo de cinco (5) días hábiles para responder. En este caso, a partir de la aclaración presentada por el solicitante, la ESPH dispondrá nuevamente del plazo máximo de atención para resolver la solicitud.

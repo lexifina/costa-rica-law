@@ -1,0 +1,3 @@
+Artículo 20.-Denegación de información. La persona trabajadora responsable deberá informar al interesado si la información solicitada no se encuentra en poder de la ESPH S. A.
+Si la información solicitada no puede ser entregada por estar clasificada como restringida, la persona trabajadora responsable de la respuesta deberá comunicar al solicitante el criterio de clasificación que justifica dicha restricción y registrar la denegatoria en la plataforma tecnológica correspondiente.
+En la respuesta, se deberá indicar de manera clara y motivada en los criterios de clasificación aplicados, haciendo referencia expresa al presente Reglamento que respalda la restricción de acceso.

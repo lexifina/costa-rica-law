@@ -1,0 +1,1 @@
+Artículo 3°-Aplicación a subsidiarias y filiales. El presente Reglamento será aplicable en lo sustancial a las subsidiarias o filiales de ESPH S. A., las cuales deberán designar los órganos y/o personal interno encargado de cumplir con las obligaciones establecidas en su propio esquema de organización, asegurando su correcta implementación y observancia.

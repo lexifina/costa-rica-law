@@ -1,0 +1,8 @@
+Artículo 10.-Excepciones justificadas del plazo. Cuando la solicitud de información implique un procesamiento complejo debido a su volumen, nivel de detalle o dificultad en su recopilación, la ESPH S. A., podrá ampliar el plazo de entrega de manera excepcional y debidamente justificada, hasta un máximo un mes calendario. Dicha ampliación incluye los diez días hábiles iniciales, y no son adicionales a estos.
+La persona trabajadora de ESPH S. A., que identifique la necesidad de esta ampliación será responsable de coordinar para comunicar formalmente al solicitante, dentro del plazo ordinario de diez (10) días hábiles la necesidad de la prórroga, la justificación correspondiente y la fecha estimada de entrega.
+Dicha persona trabajadora será responsable de realizar la anotación correspondiente a la ampliación del plazo en la plataforma tecnológica dispuesta para la documentación, registro y estadísticas de las solicitudes de información pública.
+La comunicación deberá incluir una motivación expresa que explique la complejidad del procesamiento de la información requerida. Además, deberá garantizar que la entrega de la información se realice en el menor tiempo posible, procurando que la extensión del plazo sea proporcional y razonable a la dificultad de la solicitud.
+No se podrá ampliar el plazo en los siguientes casos:
+a) Si la información solicitada ya está disponible en los registros físicos o digitales y puede ser entregada de inmediato.
+b) Si la solicitud de información no requiere procesamiento adicional por parte de la ESPH S. A.
+c) Si la prórroga no está debidamente justificada conforme a los criterios establecidos en el presente artículo.

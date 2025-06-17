@@ -1,0 +1,4 @@
+Artículo 15.-Reproducción de la información pública. El acceso a la información pública será gratuito, sin embargo, el costo de las reproducciones y el costo de las especies fiscales cuando sean requeridas, serán asumidos por el solicitante.
+Si se trata de fotocopias, el solicitante podrá elegir a su criterio el centro de fotocopiado que considere oportuno en un radio no superior a un kilómetro de la oficina donde se custodia la información.
+El solicitante deberá acompañar a la persona trabajadora que porta la información original a efectos de que proceda con el pago correspondiente ante el centro de fotocopiado elegido de previo a recibir la reproducción de la información.
+Bajo ningún concepto, el expediente original será entregado al solicitante por lo que estará en todo momento custodiado por la persona trabajadora de la ESPH SA responsable.

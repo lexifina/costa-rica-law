@@ -1,0 +1,1 @@
+Artículo 6°-Derecho de acceso a la información pública. Toda persona, sin explicar los motivos, tiene derecho a acceder a la información pública de ESPH S. A., conforme a los principios constitucionales de transparencia y rendición de cuentas.

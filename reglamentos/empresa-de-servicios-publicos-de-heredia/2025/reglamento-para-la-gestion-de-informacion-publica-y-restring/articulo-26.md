@@ -1,0 +1,2 @@
+Artículo 26.-Transitorio. Toda información solicitada que se encuentre contenida en documentos emitidos antes de la entrada en vigor del presente Reglamento deberá ser previamente calificada como información pública o restringida antes de su entrega al solicitante.
+La evaluación deberá realizarse por el emisor del documento o en su defecto corresponderá al encargado del área que lo haya generado o que actualmente tenga competencia sobre la materia.
