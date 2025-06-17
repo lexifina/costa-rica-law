@@ -17,3 +17,4 @@ Reglamento para la celebración de sesiones de órganos colegiados en forma virt
 | 2 | 2021-08-11 | Reglamento 5849 (2021-08-11) |
 | 3 | 2022-10-05 | Reglamento 5944 (2022-10-05) |
 | 4 | 2023-12-05 | Reglamento 6064 (2023-12-05) |
+| 5 | 2025-06-17 | Reglamento 6218 (2025-06-17) |
