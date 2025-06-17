@@ -1,30 +1,9 @@
-ARTICULO 13.- El pago del impuesto de patente municipal establecido
-en esta Ley, tiene como hecho generador todas las actividades lucrativas
-comprendidas en la clasificación internacional de actividades económicas
-que se señalan seguidamente:
-a) Industria (manufacturera o extractiva):
-Se refiere al conjunto de operaciones materiales ejecutadas para la
-obtención, transformación o transporte de uno o varios productos.
-Comprenderá también la transformación mecánica o química de
-sustancias inorgánicas en productos nuevos, mediante procesos mecanizados
-o no, en fábricas o domicilios.
-Implicará tanto la creación de productos, como los talleres de
-reparación y acondicionamiento.
-Comprenderá la extracción y explotación de minerales, metálicos y no
-metálicos, que se encuentren en estado sólido, líquido o gaseoso, la
-construcción, reparación o demolición de todo tipo de edificios,
-instalación, vías de transporte, imprentas, editoriales y
-establecimientos similares. En general, se referirá a las mercaderías,
-valores, construcciones, bienes muebles e inmuebles, salvo los estatales.
-b) Comercio: Comprenderá la compra y venta de toda clase de bienes:
-mercaderías, propiedades, bonos, moneda y otros. Los actos de valorar
-los bienes económicos, según la oferta y la demanda: esto es casas de
-representación, comisionistas, agencias, corredores de bolsa,
-instituciones bancarias y de seguros, salvo los estatales, instituciones
-de crédito y, en general, todo lo que involucre transacciones de mercado
-de cualquier tipo.
-c) Servicios: Comprenderá los servicios prestados al sector privado
-o al sector público o a ambos, que sean brindados por organizaciones o
-personas privadas.
-También comprenderá el transporte, almacenaje, comunicaciones,
-establecimientos de enseñanza privada y los de esparcimiento.
+Artículo 13- El pago del impuesto de patente municipal, establecido en esta ley, tiene como hecho generador todas las actividades lucrativas, clasificadas y comprendidas en la clasificación internacional de actividades económicas vigentes, y en particular:
+a) Industria: se refiere al conjunto de operaciones materiales ejecutadas para la obtención, transformación o transporte de uno o varios productos.
+Comprenderá también la transformación mecánica o química de sustancias inorgánicas en productos nuevos, mediante procesos mecanizados o no, en fábricas o establecimientos destinados para ese fin. Implicará tanto la creación de productos, como los talleres de reparación y acondicionamiento.
+Comprenderá la extracción y explotación de minerales, metálicos y no metálicos, que se encuentren en estado sólido, líquido o gaseoso, la construcción, reparación o demolición de todo tipo de edificios, instalación, vías de transporte, imprentas, editoriales y establecimientos similares.
+En general, se referirá tanto a los productos finales de alta movilidad como a los que no la tienen; esto es, a las mercaderías, valores, construcciones, bienes muebles e inmuebles.
+b) Comercio: comprenderá la compra y venta de toda clase de bienes: mercaderías, propiedades, bonos, moneda y otros.
+Los actos de valorar los bienes económicos, según la oferta y la demanda: esto es casas de representación, comisionistas, agencias, corredores de bolsa, instituciones bancarias, de seguros, de crédito, sean públicas o privadas y, en general, todo lo que involucre transacciones de mercado de cualquier tipo, incluidas las relativas a operaciones sistemáticas o sustanciales de canje de dinero y transferencias, mediante instrumentos tales como cheques, giros bancarios, letras de cambio o similares, operaciones sistemáticas o sustanciales de emisión, venta, rescate o transferencia de cheques de viajero o giros postales, transferencias sistemáticas sustanciales de fondos, realizadas por cualquier medio, administración de fideicomisos o de cualquier tipo de administración de recursos, efectuada por personas, físicas o jurídicas, que no sean intermediarios financieros, operadoras de tarjetas de crédito que no formen parte de un grupo financiero y medios alternativos de transferencias financieras.
+c) Servicios: comprenderá los servicios prestados al sector privado, al sector público o a ambos, que sean brindados por organizaciones o personas privadas, salvo los profesionales liberales, siempre y cuando ejerzan individualmente su profesión y no bajo una organización colectiva del derecho mercantil. También comprenderá el transporte, almacenaje, comunicaciones, establecimientos de enseñanza privada y los de esparcimiento.
+(Así reformado por el artículo 1° de la ley N° 10733 del 17 de junio de 2025)
