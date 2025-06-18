@@ -17,3 +17,4 @@ Reglamento para la Clasificación y Valoración de Puestos de la Asamblea Legisl
 | 2 | 2015-09-08 | Acuerdo 5 (2015-09-08) |
 | 3 | 2023-12-06 | Reglamento 73 (2023-12-06) |
 | 4 | 2024-02-21 | Reglamento 81 (2024-02-21) |
+| 5 | 2025-06-18 | Reglamento 140 (2025-06-18) |
