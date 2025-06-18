@@ -1,0 +1,1 @@
+ARTÍCULO 10- Destino de los recursos. El veinticinco por ciento (25%) del monto recaudado será destinado a financiar la creación y operación de la Policía Municipal de Matina. El restante será considerado recursos libres para el financiamiento de los diferentes programas de la institución.

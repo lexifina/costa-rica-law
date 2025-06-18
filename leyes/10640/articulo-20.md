@@ -1,0 +1,1 @@
+ARTÍCULO 20- Supervisión. El Concejo Municipal delegará, en los órganos administrativos correspondientes de la Municipalidad, la supervisión del cumplimiento de los requisitos para el otorgamiento de los incentivos.
