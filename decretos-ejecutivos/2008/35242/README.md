@@ -23,3 +23,4 @@ Reglamento a la Ley N° 8591 Reglamento para el Desarrollo, Promoción y Fomento
 | 8 | 2023-08-08 | Decreto Ejecutivo 44201 (2023-08-08) |
 | 9 | 2024-05-30 | Resolución 8 (2024-05-30) |
 | 10 | 2025-02-27 | Decreto Ejecutivo 45095 (2025-02-27) |
+| 11 | 2025-06-18 | Resolución 3 (2025-06-18) |
