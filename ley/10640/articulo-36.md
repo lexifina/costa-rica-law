@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DISPOSICIONES FINALES
+ARTÍCULO 36- Convenios de intercambio de información tributaria. La Municipalidad del cantón de Matina queda autorizada para suscribir convenios de intercambios de información tributaria con los bancos del sistema bancario, la Dirección General de Tributación, con cualquier otra administración tributaria y otras municipalidades. Queda autorizada la Administración Tributaria Nacional a suministrar la información requerida por la Administración Tributaria Municipal, de contribuyentes no domiciliados en el cantón de Matina pero que realicen actividades lucrativas en el territorio.
