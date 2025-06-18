@@ -564,3 +564,9 @@ Requisitos específicos:
 a. Estar debidamente inscrito como Especialista en Urología, o Cirugía General, o Cirugía Pediátrica, o Vascular Periférico, en el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía del Trasplante Renal, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
 (*)(Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2021-07-14 del 14 de julio del 2021)
+(*)16.28. Subespecialidades Médicas de Geriatría y Gerontología
+16.28.1 Geriatría Neurológica
+Requisitos específicos:
+a. Estar debidamente inscrito como especialista en Geriatría y Gerontología, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un programa de estudios de posgrado (residencia médica) de 1 (un) año en la subespecialidad en Geriatría Neurológica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad.
+(*) (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2025-06- 18, celebrada el 18 de junio de 2025)
