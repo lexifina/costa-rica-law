@@ -1,0 +1,18 @@
+Nº 45017-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que les confieren los artículos 11, 43 y 140, incisos 3) y 18) de la Constitución Política; artículos 11 y 27, inciso 3) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; el artículo 2, incisos e) y f) de la Ley para armonizar la normativa del Arbitraje Costarricense, Ley Nº 10535 del 18 de setiembre de 2024; el artículo 2 de la Ley Resolución Alterna de Conflictos y Promoción de la Paz Social RAC, Ley Nº 7727, los artículos 1, 3, inciso a) y 20 de la Ley Orgánica de la Procuraduría General de la República, Ley N°6815 del 27 de setiembre de 1982.
+CONSIDERANDO:
+1°- Que artículo 2 de la Ley Resolución Alterna de Conflictos y Promoción de la Paz Social RAC, - Ley Nº 7727 establecen la posibilidad de que los sujetos de derecho público, incluido el Estado, pueden someter a arbitraje sus controversias de orden patrimonial, fundadas en derechos sobre los cuales las partes tengan plena disposición en concordancia con el artículo 2, incisos e) y f) de la Ley para armonizar la normativa del Arbitraje Costarricense, Ley Nº 10535.
+2° -Que el artículo 27, inciso 3) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978, dispone que corresponde al presidente de la República junto con el ministro respectivo transar y comprometer en árbitros los asuntos del ramo.
+3° -Que de conformidad con lo dispuesto en los artículos 1, 3 inciso a) y 20 de la Ley Orgánica de la Procuraduría la Procuraduría, Ley Nº 6815 del 27 de setiembre de 1982, la Procuraduría General de la República es la Representante Legal y Defensora del Estado en las materias de su competencia, sin embargo, al regular su participación en los asuntos litigiosos, solamente la circunscribe a la representación en los procesos judiciales y no así en los procesos de arbitraje.
+4°-Que el Estado -incluyendo a sus órganos desconcentrados con personalidad jurídica instrumental- ha suscrito, con la Empresa Autopista del Sol S.A., el CONTRATO DE CONCESIÓN DE OBRA PÚBLICA CON SERVICIO PÚBLICO PROYECTO CARRETERA SAN JOSÉ -CALDERA, en el cual de conformidad con las clausulas 3.15, 3.15 .1 y 9.1, 9 .3 y 9 .4, así como los apartados 1.1.4, 1.9.8 y 3.3.5 del Cartel de Licitación Pública Internacional 01-98, el artículo 4 inciso 2 párrafo in fine de la Ley de General de Concesión de Obra Públicas con Servicios Públicos, Ley N° 7762, artículo 43 de la Constitución Política, artículos 18 y 43 de la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, Ley N° 7727, el proceso de Arbitraje ha sido encomendado al Centro Internacional de Conciliación y Arbitraje de la Cámara Costarricense Norteamericana de Comercio (CICA).
+Por tanto,
+Decretan:
+ENCOMIENDAR A LA PROCURADURÍA GENERAL
+DE LA REPÚBLICA LA REPRESENTACIÓN Y DEFENSA DEL ESTADO,
+EN EL PROCESO DE ARBITRAJE DE AUTOPISTAS DEL SOL S.A., CONTRA
+EL CONSEJO NACIONAL DE CONCESIONES Y EL ESTADO, CONTRATO
+DE CONSECIÓN DE OBRA PÚBLICA CON SERVICIO PÚBLICO PROYECTO
+CARRETERA SAN JOSÉ-CALDERA
+Artículo 1 º-Encomendar a la Procuraduría General de la República la representación y defensa del Estado en el proceso de arbitraje establecido por la empresa Autopistas del Sol S.A., cédula jurídica 3-101-428504, proceso que se tramita en el expediente arbitral número 790-2025/AR-CICA ante el Centro Internacional de Conciliación y Arbitraje de la Cámara Costarricense Norteamericana de Comercio (CICA) a efecto de que se le tenga como su representante y defensor legal, con las mismas facultades de un mandatario judicial, en los términos del artículo 1289 del Código Civil.
