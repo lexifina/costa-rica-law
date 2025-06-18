@@ -1,2 +1,0 @@
-Artículo 26.—Arreglos extrajudiciales. En caso de que ocurriera algún accidente con vehículos de la Asamblea Legislativa, ningún conductor autorizado podrá efectuar arreglos extrajudiciales; deberá en cambio indicarle al conductor del vehículo con el que colisionó que se apersone o comunique con la Jefatura de la Unidad de Transportes para efectuar las gestiones correspondientes
-(Así reformado por acuerdo N° 33-10-11 de la sesión N° 050 del 7 de abril del 2011)
