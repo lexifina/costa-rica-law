@@ -1,6 +1,6 @@
 # Ley de Creación del Consejo de Vialidad (CONAVI)
 
-Ley N° 7798 del 1998-04-30. SINALEVI, ficha 44660: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44660&param2=144224&param3=1>.
+Ley N° 7798 del 1998-04-30. SINALEVI, ficha 44660: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44660&param2=146276&param3=1>.
 
 Publicada en La Gaceta N° 103 del 1998-05-29.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 2017-10-27 | Ley 9484 | 2017-10-04 |
 | 6 de 8 | 2021-04-16 | Ley 9953 | 2021-03-03 |
 | 7 de 8 | 2025-01-14 | Ley 10624 | 2024-12-12 |
+| 8 de 8 | 2025-06-18 | Ley 10728 | 2025-05-13 |
