@@ -62,3 +62,4 @@ PUESTO CLASE
 (Así reformado por el artículo 1° de la ley N° 10406 del 4 de diciembre del 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44301 del 6 de diciembre de 2023)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44311 del 14 de diciembre de 2023)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 018758 del 18 de junio de 2025, se declaró la inconstitucionalidad, por omisión, del Título 210-Ministerio de Educación Pública del artículo 2º de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2023 (Ley N° 10331 del 29 de noviembre del 2022), que no permitió cubrir el monto mínimo del 8% de gasto público en educación estatal, de conformidad con el artículo 78, de la Constitución Política.)
