@@ -1102,12 +1102,13 @@ Los relacionados con la utilización de los equipos y los programas que para la 
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipo y materia gerencial.
 (*) CONOCIMIENTOS Y EXPERIENCIA REQUERIDA:
 . Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
-. Experiencia mínima de 12 meses en el manejo y supervisión de personal o 5 años de experiencia continua y a nivel de licenciatura en el Departamento donde se encuentra vacante la plaza o se requiere la sustitución. Para tales efectos, se tomará como experiencia en el Departamento aquellas personas que ejerzan fiscalización o supervisión, sobre dicha dependencia.
-. Experiencia profesional mínima de cinco años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura".
+. Experiencia mínima de 12 meses en el manejo y supervisión de personal o cinco años de experiencia continua a nivel de licenciatura en el departamento donde se encuentra vacante la plaza o se requiere la sustitución. Para tales efectos se tomará como experiencia en el departamento aquellas personas que ejerzan fiscalización o supervisión, sobre dicha dependencia.
+. Experiencia profesional mínima de cinco años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de siete años en labores relacionadas con el área de actividad, a nivel de licenciatura. Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*)(Así reformado el aparte anterior "Conocimientos y experiencia requerida", en sesión N° 140 del 18 de junio de 2025)
 (Nota de Sinalevi: mediante sesión ordinaria N° 098-2024 del 5 de junio de 2024 se establece Modificar el requisito de experiencia fuera de la Asamblea Legislativa en la clase de Profesional Jefe 1, para que en adelante, los diez años de experiencia que se solicitan a nivel externo, se detalle que estos sean a nivel profesional, en razón del perfil del puesto.)
 Requisito legal:
 . Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el aparte anterior "Conocimientos y experiencia requerida mediante sesión ordinaria N° 098-2020 del 10 de marzo del 2020)
 PROFESIONAL JEFE 2 (Niveles A y B)
 Objetivo del trabajo:
 Comprometerse con el eficiente desarrollo de los objetivos departamentales, la misión institucional y, por ende, su gestión sustantiva, mediante el desarrollo eficiente de los procesos de trabajo de las diferentes áreas por razón de la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de una área administrativa o legislativa de la Asamblea Legislativa. Caracteriza a los puestos con esta clasificación la necesidad de una participación más estrecha con la dirección del departamento, bien sea por su estructura organizacional (Divisiones o Dirección Ejecutiva) o por la ausencia del cargo de subdirector de departamento.
@@ -1152,11 +1153,11 @@ CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 (*)Nivel A
 Nivel A
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia profesional mínima de SEIS AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área de académica, a nivel de licenciatura.
-Experiencia mínima de DIECIOCHO MESES en el manejo y supervisión de personal.
+Experiencia profesional mínima de seis años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de ocho años en labores relacionadas con el área académica, a nivel de licenciatura.
+Experiencia mínima de 18 meses en el manejo y supervisión de personal.
 Requisito legal:
 Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
-(*) (Así reformado el aparte anterior " Nivel A" en sesión N° 158 del 14 de marzo de 2017)
+(*) (Así reformado el aparte anterior " Nivel A" en sesión N° 140 del 18 de junio de 2025)
 Nivel B
 Nivel de clase transitorio con objetivo específico (ver el detalle en la descripción de la clase).
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
