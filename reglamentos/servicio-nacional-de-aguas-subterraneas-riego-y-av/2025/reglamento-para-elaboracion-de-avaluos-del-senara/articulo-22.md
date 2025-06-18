@@ -1,0 +1,5 @@
+CAPÍTULO V:
+SOLICITUD DE AVALÚO Y TRÁMITE DE APROBACIÓN:
+Artículo 22.- Definida el área que se requiere para el proyecto según el diseño final, corresponderá al Proceso de Topografía realizar el levantamiento de los planos de terrenos y servidumbres con el área definitiva. Deberá recabar la información registral y catastral, y cualquier otra información complementaria de campo necesaria para catastrar los planos; además, deberá cumplir con las disposiciones legales y planes reguladores, así como a los artículos 13 y 17 de la Ley de Expropiaciones N°9286 que es reforma integral de la Ley de Expropiaciones N°7495.
+El Proceso de Topografía del SENARA, deberá realizar el trámite de inscripción ante el Catastro Nacional, así como obtener los visados municipales y de otras instituciones públicas que se requieran conforme a la ley.
+En todo caso que el plano catastrado no haya sido realizado por el Proceso de Topografía de del SENARA, se requiere un informe suscrito por un profesional de Unidad Promovente avalando que el documento elaborado corresponda al área requerida por el proyecto.

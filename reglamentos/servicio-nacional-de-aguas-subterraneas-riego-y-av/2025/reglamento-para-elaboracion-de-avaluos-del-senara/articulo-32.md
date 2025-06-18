@@ -1,0 +1,1 @@
+Artículo 32.- En el caso de personas físicas, se deberá solicitar documento idóneo en el que se manifieste expresamente la disposición de donar el lote o constituir el derecho de servidumbre, con indicación del plano catastrado, área y número de finca, para tal caso, SENARA deberá contar con los informes técnicos correspondientes.

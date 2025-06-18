@@ -1,0 +1,1 @@
+Artículo 13. Todo avalúo deberá ser firmado digitalmente por el perito encargado mismo y contar con el Visto Bueno del Coordinador de UTV. Incluye los avalúos que desarrollen en las Unidades Ejecutoras.

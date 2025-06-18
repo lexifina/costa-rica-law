@@ -1,0 +1,1 @@
+Artículo 5.- La Gerencia General, establecerá las prioridades de los proyectos de interés institucional; conforme al Plan estratégico institucional y el Plan Operativo Anual. Con forme a lo anterior el plan de trabajo de la UTV se establecerá conforme a las prioridades establecidas.

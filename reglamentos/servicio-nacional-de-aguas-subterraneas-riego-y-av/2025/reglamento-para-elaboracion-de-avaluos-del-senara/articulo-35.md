@@ -1,0 +1,1 @@
+Artículo 35. Con base al informe elaborado por la Unidad Administrativa correspondiente, la gerencia dictará la resolución que corresponda y la misma será notificada al interesado por escrito en un plazo de ocho días hábiles.

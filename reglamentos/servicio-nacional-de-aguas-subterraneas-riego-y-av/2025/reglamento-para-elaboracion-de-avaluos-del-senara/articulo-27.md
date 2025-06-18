@@ -1,0 +1,1 @@
+Artículo 27.- Finalizado el informe del avalúo, el mismo será remitido a la Unidad solicitante, Dirección Jurídica o a la Gerencia según corresponda, por medio de oficio interno firmada por el coordinador de la Unidad Técnica de Valuación.

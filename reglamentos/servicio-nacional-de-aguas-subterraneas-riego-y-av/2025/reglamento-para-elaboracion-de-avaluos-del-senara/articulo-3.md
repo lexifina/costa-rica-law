@@ -1,0 +1,1 @@
+Artículo 3.- Corresponderá a la Unidad Técnica de Valuación, adscrita a la Dirección Administrativa Financiera, investigar, analizar y practicar todos los avalúos de adquisición de fincas, constitución de servidumbres de paso y cualesquiera otros derechos patrimoniales requeridos para los proyectos Institucionales.

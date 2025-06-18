@@ -1,0 +1,1 @@
+Artículo 25.- Los peritos valorarán independientemente, el terreno, sus cultivos, construcciones, arrendamientos, derechos comerciales o patrimoniales, yacimientos en explotación y cualquier otro bien o derecho, susceptibles de indemnización. Para cada propiedad se tramitará expediente separado.

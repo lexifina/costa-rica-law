@@ -1,0 +1,1 @@
+Artículo 4.- La Unidad Técnica de Valuación, se integrará con profesionales idóneos en diversas áreas de la ingeniería; además podrá apoyarse con profesionales de otras ciencias, según sea la naturaleza de la pericia.
