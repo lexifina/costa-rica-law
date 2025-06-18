@@ -1,0 +1,1 @@
+Artículo 8º-Tasación. El Proceso de Control Constructivo será el encargado de determinar el monto imponible del permiso, conforme a lo dispuesto en el artículo 70 de la Ley de Planificación Urbana, para lo que requerirá por parte del encargado responsable, un croquis o plano detallado de la obra. La tasación se consignará en el permiso de construcción respectivo.

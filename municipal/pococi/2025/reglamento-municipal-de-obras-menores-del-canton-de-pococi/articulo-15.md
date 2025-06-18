@@ -1,0 +1,1 @@
+Artículo 15.-Plazo de resolución de la solicitud. La resolución de estas solicitudes se deberá realizar en un plazo máximo de un mes natural, previo cumplimiento de todos los requisitos y pago de los impuestos respectivos.

@@ -1,0 +1,1 @@
+Artículo 6º-Actualización del monto de salarios mínimos. El Proceso de Gestión Humana y Carrera Administrativa de la Municipalidad de Pococí, deberá entregar al Proceso de Control Constructivo cada vez que dicho mínimo sea modificado por decreto, una certificación del monto del salario base establecido en el artículo 2 de la Ley Nº7337.
