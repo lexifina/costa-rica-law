@@ -16,7 +16,7 @@ Punto | Coord. Vert. | Coord. Horiz. | Distancia. Mts
 Tiene una extensión aproximada de 4.000 Has.
 (*) Cerro la Carpintera: Límites de esta área dentro de los linderos definidos a continuación según las hojas cartográficas Patarrá, Carpintera, Ochomogo Edición 1 IGNCR, Escala 1: 10.000, señalados por la des cr ipción que a continuación se detalla.
 Partiendo de un punto de coordenadas 206 000 N, 533.000 E (punto 1) se sigue la siguiente des cr ipción:
-4 210 metros al este franco, coordenadas 206.000 N 537 210 E (punto 2); En este punto se interseca la carretera Coris – Patarrá. A partir de aquí se continúa por esta carretera con rumbo general noroeste hacia Patarrá hasta la intersección con las coordenadas 206.380 N 536.610 E.(punto 3) A continuación se sigue un rumbo N 20 O y una distancia de 120 metros hasta la intersección de las coordenadas 206.490 N 536.570 E.(punto 4) Continúa con rumbo N 33 E y una distancia de 119 metros hasta la intersección de las coordenadas 206.590 N 536.635 E (punto 5) y se llega al camino de lastre que viene desde Patarrá hacia el Alto de Coris. Se continúa por este camino siguiendo una curva cerrada hasta la intersección de las coordenadas 206.620 N 536.780 E (punto 6) Se continúa con rumbo N 58 E una distancia de 37.7 ,metros hasta la intersección de las coordenadas 206.640 N 536.812 E que coincide con el cauce superior del brazo izquierdo de la Quebrada Barahona, (punto 7) A partir de este punto se sigue aguas abajo del brazo izquierdo de la Quebrada Barahona hasta la confluencia con el brazo derecho de esta misma quebrada, en la intersección de las coordenadas 206.450 N 537.320 E, (punto 8) De este punto se continúa en dirección general sureste, aguas abajo de la Quebrada Barahona hasta el VADO que se ubica en el cr uce de un camino lastreado con la quebrada, en la intersección de las coordenadas 206.055 N 537.730 E, (punto 9). Se continúa siempre por el camino de lastre con un rumbo S 61 E y una distancia de 62.6 metros hasta la intersección de las coordenadas 206.000 N 537.760 E, (punto 10). Se continúa hacia el este franco por la coordenada 206.000 una distancia de 1133.13 metros hasta la intersección con las coordenadas 206.000 N 538.893,135 E. (punto 11). A partir de este punto se sigue el siguiente derrotero el cual corresponde al retroazimut, según la des cr ipción siguiente:
+4 210 metros al este franco, coordenadas 206.000 N 537 210 E (punto 2); En este punto se interseca la carretera Coris - Patarrá. A partir de aquí se continúa por esta carretera con rumbo general noroeste hacia Patarrá hasta la intersección con las coordenadas 206.380 N 536.610 E.(punto 3) A continuación se sigue un rumbo N 20 O y una distancia de 120 metros hasta la intersección de las coordenadas 206.490 N 536.570 E.(punto 4) Continúa con rumbo N 33 E y una distancia de 119 metros hasta la intersección de las coordenadas 206.590 N 536.635 E (punto 5) y se llega al camino de lastre que viene desde Patarrá hacia el Alto de Coris. Se continúa por este camino siguiendo una curva cerrada hasta la intersección de las coordenadas 206.620 N 536.780 E (punto 6) Se continúa con rumbo N 58 E una distancia de 37.7 ,metros hasta la intersección de las coordenadas 206.640 N 536.812 E que coincide con el cauce superior del brazo izquierdo de la Quebrada Barahona, (punto 7) A partir de este punto se sigue aguas abajo del brazo izquierdo de la Quebrada Barahona hasta la confluencia con el brazo derecho de esta misma quebrada, en la intersección de las coordenadas 206.450 N 537.320 E, (punto 8) De este punto se continúa en dirección general sureste, aguas abajo de la Quebrada Barahona hasta el VADO que se ubica en el cr uce de un camino lastreado con la quebrada, en la intersección de las coordenadas 206.055 N 537.730 E, (punto 9). Se continúa siempre por el camino de lastre con un rumbo S 61 E y una distancia de 62.6 metros hasta la intersección de las coordenadas 206.000 N 537.760 E, (punto 10). Se continúa hacia el este franco por la coordenada 206.000 una distancia de 1133.13 metros hasta la intersección con las coordenadas 206.000 N 538.893,135 E. (punto 11). A partir de este punto se sigue el siguiente derrotero el cual corresponde al retroazimut, según la des cr ipción siguiente:
 DERROTERO
 PUNTO | AZIMUT | DISTANCIA
 | Grados | Minutos-Seg. | Metros
@@ -61,8 +61,8 @@ Hasta la intersección con las coordenadas 206.000 N 539.474,080 E (punto 47). A
 De este punto se sigue la siguiente descripción:
 Rumbo | Distancia | Coordenadas | Punto
 | (metros) | N E |
-N 56°18’ 36” E | 3.605.55 | 208.000 | 543.000 | 49
-N 63° 26’6” O | 2.236.07 | 209.000 | 541.000 | 50
+N 56°18' 36" E | 3.605.55 | 208.000 | 543.000 | 49
+N 63° 26'6" O | 2.236.07 | 209.000 | 541.000 | 50
 Oeste franco | 3.600.00 | 209.000 | 537.400 | 51
 Sur franco | 600 | 208.400 | 537.400 | 52
 Oeste franco | 3.400.00 | 208.400 | 534.000 | 53
@@ -71,6 +71,56 @@ Oeste franco | 1.000.00 | 209.000 | 533.000 | 55
 | | | | | | |
 A continuación se sigue al sur franco una distancia de 3 000 metros hasta la intersección de las coordenadas 206.000 N y la 533.000 E y se llega al punto de partida (punto 1) cerrando la poligonal.
 (*) (Así reformado por el artículo 1° del decreto ejecutivo N° 29278 del 15 de enero del 2001. Posteriormente mediante resolución de la Sala Constitucional N° 16793 del 4 de setiembre de 2019, se declaró parcialmente con lugar y se anula la reducción del área de la Zona Protectora Cerro de la Carpintera, realizada mediante el Decreto No. 29278-MINAE del 15 de enero de 2001, publicado en La Gaceta No. 30 del 12 de febrero del 2001, quedando este decreto vigente, únicamente en lo que se refiere a la ampliación de la Zona Protectora Cerro de la Carpintera. En virtud de lo anterior, se ordena al Sistema Nacional de Áreas de Conservación que proceda, dentro del plazo de doce meses, contado a partir de la publicación íntegra de este pronunciamiento en el Boletín Judicial, a delimitar el área ampliada mencionada. Esta declaratoria de inconstitucionalidad tendrá efecto declarativo y retroactivo a la fecha de vigencia de la norma, todo sin perjuicio de derechos adquiridos de buena fe. )
+(*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 45077 del 18 de junio de 2025, se acordó reformar los límites de la Zona Protectora Cerros de la Carpintera; quedando los límites de esta área, en su totalidad, dentro de los linderos definidos con base en el sistema de coordenadas CR-SIRGAS / CRTM05 (EPSG 8908) según el siguiente listado de puntos:
+Punto | Este | Norte
+1 | 496651.819 | 1091365.537
+2 | 500861.311 | 1091361.102
+3 | 501411.244 | 1091360.52
+4 | 502557.931 | 1091359.172
+5 | 502539.997 | 1091329.445
+6 | 502536.927 | 1091293.127
+7 | 502544.508 | 1091281.788
+8 | 502529.141 | 1091255.017
+9 | 502534.465 | 1091245.039
+10 | 502515.54 | 1091222.413
+11 | 502520.243 | 1091209.525
+12 | 502499.789 | 1091187.269
+13 | 502486.273 | 1091187.506
+14 | 502479.16 | 1091180.044
+15 | 502569.59 | 1091097.765
+16 | 502664.024 | 1091016.436
+17 | 502679.889 | 1091002.634
+18 | 502699.588 | 1090994.382
+19 | 502683.837 | 1090955.493
+20 | 502663.789 | 1090924.47
+21 | 502646.693 | 1090885.683
+22 | 502628.759 | 1090856.507
+23 | 503223.835 | 1090855.875
+24 | 503206.18 | 1090876.865
+25 | 503215.989 | 1090924.799
+26 | 503204.629 | 1090993.716
+27 | 503193.594 | 1091040.324
+28 | 503192.413 | 1091127.932
+29 | 503207.068 | 1091153.302
+30 | 503208.784 | 1091163.629
+31 | 503228.122 | 1091180.248
+32 | 503236.909 | 1091192.231
+33 | 503237.958 | 1091205.489
+34 | 503189.987 | 1091209.202
+35 | 503173.912 | 1091221.546
+36 | 503047.655 | 1091236.88
+37 | 503089.048 | 1091297.295
+38 | 503122.334 | 1091346.825
+39 | 503129.205 | 1091358.699
+40 | 503650.974 | 1091358.146
+41 | 506652.744 | 1093354.717
+42 | 504654.042 | 1094356.729
+43 | 501054.459 | 1094360.545
+44 | 501053.825 | 1093760.615
+45 | 497654.223 | 1093764.201
+46 | 497654.854 | 1094364.131
+47 | 496654.97 | 1094365.182
+")
 Río Tiribí: Hoja Istarú 3445 IV. En las Coordenadas Lambert.
 Punto | Coord. Vert. | Horizontal | Distancia M
 0 | 539000 | 213000 | 1.800

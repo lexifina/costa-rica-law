@@ -19,3 +19,4 @@ Crea Zonas Protectoras
 | 4 | 1992-12-22 | Decreto Ejecutivo 21837 (1992-12-22) |
 | 5 | 2001-01-15 | Decreto Ejecutivo 29278 (2001-01-15) |
 | 6 | 2019-09-04 | SINALEVI (sin norma nombrada) |
+| 7 | 2025-06-18 | Decreto Ejecutivo 45077 (2025-06-18) |
