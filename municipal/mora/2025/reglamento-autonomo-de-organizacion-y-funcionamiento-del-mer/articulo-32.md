@@ -1,0 +1,1 @@
+Artículo 32: De las multas: Se establecerá una multa al concesionario que cometa una falta leve o una falta grave, de la siguiente manera: Que corresponde para las faltas leve un 30% del monto del alquiler del tramo respectivo. Y en el caso de las faltas graves un 50% del monto del alquiler del tramo respectivo. La multa se cargará en el sistema al mes siguiente por cancelar.

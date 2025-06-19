@@ -1,0 +1,25 @@
+Artículo 3: Definiciones importantes:
+1. Alquiler espacio: Tomar de alguien algo para usarlo por el tiempo, espacio y precio público con su debida autorización.
+2. Arrendamiento: El arrendamiento se da cuando el propietario de un bien cede temporalmente su uso y disfrute a otra persona a cambio del pago de una renta.
+Popularmente se conoce como alquiler, y se formaliza en un contrato.
+3. Bien demanial: Impedimento de los particulares de ejercer posesión con ánimo de dueños sobre los bienes de dominio público. Como anotamos en otra ocasión, la inalienabilidad de los bienes demaniales imposibilita su traspaso, parcial o total, voluntario o forzoso, y la posesión en los términos del Derecho privado.
+4. Concesión o derecho en precario de uso: Negocio jurídico por el cual la Administración cede a una persona facultades de uso privativo de una pertenencia del dominio público en plazo determinado bajo ciertas condiciones. Es el otorgamiento del derecho de explotación, por un período determinado, de bienes y servicios por parte de una Administración pública o empresa a otra, generalmente privada.
+5. Concesionario: Dicho de una persona o de una entidad a la que se hace o transfiere una concesión, la cual deberá dar atención al tramo de manera personalísima.
+6. Contrato de Administración: Un contrato de administración es un contrato de prestación de servicios que implica la gestión y administración de bienes o actividades de interés público o privado. El contrato de administración se rige por un régimen jurídico especial y establece el precio público, las condiciones y las obligaciones de las partes.
+7. Contrato de Alquiler: Un contrato de alquiler o arrendamiento es un documento en el que una parte (el arrendador) cede el uso y disfrute de un bien mueble o inmueble a otra parte (el arrendatario) por un tiempo determinado y a cambio de un pago. El contrato de alquiler establece las condiciones y obligaciones de ambas partes, como el precio, la duración, las garantías, las responsabilidades, etc.
+8. Espacios comunes: Los espacios comunes son aquellos lugares donde todas las personas tienen derecho a estar y a transitar por ser un espacio común que nos pertenece.
+9. Locales: Sitio cerrado y donde se realiza una actividad un local comercial.
+10. Locales comerciales permanentes: Locales comerciales que funcionan permanentemente en el Mercado Nuevo.
+11. Mantenimiento básico: Es el cuidado rutinario que cualquier persona podría hacer sin necesidad de poseer conocimientos técnicos. Todas las acciones que tienen como objetivo mantener el tramo en buen estado para llevar a cabo la función requerida: pintar, mantener las paredes presentables sin huecos, cambiar luminarias tanto en su tramo y como frente a su tramo.
+12. Mantenimiento general: Se entenderá como mantenimiento general, las acciones necesarias diarias para mantener el aseo y el ornato de las instalaciones, producto de uso diario, así como la aplicación de medidas correctivas y preventivas. Todas las acciones tienen como objetivo mantener la edificación en buen estado para llevar a cabo la función requerida.
+13. Mantenimiento mayor: Se entenderá como mantenimiento mayor aquellas obras donde se altere el área, la forma, o se intervengan o modifiquen los sistemas estructurales, mecánicos o eléctricos y requiere la participación obligatoria de un profesional responsable miembro del CFIA.
+14. Mercado Nuevo: Estructura que data de 2008 con tramos para la venta de productos varios.
+15. Mercado Viejo: Estructura que data de 1910-1920 y que es Patrimonio del Estado.
+16. Mercado: El lugar destinado para servir como centro de expendio o abastecimiento de bienes y servicios y de artículos de primera necesidad, de consumo popular o uso doméstico o de aquellas afines a las actividades del Mercado como tal. Es un lugar de compraventa y transacción de bienes y servicios, los controles sanitarios y la calidad del servicio al cliente.
+17. Multa: Sanción administrativa que consiste en la obligación de pagar una cantidad determinada de dinero.
+18. Disposiciones de uso del Mercado Municipal: El reglamento de uso son los lineamientos que tanto inquilinos como público en general deben cumplir para disfrutar de ese espacio.
+19. Personas concesionarias de actividad comercial no permanentes: Son actividades comerciales que se desarrollan, donde personas ofrece sus productos de forma no permanente.
+20. Puesto comercial no permanentes: Locales comerciales que funcionan 1 o varias veces a la semana por unas horas durante el día en el Mercado Viejo.
+21. Uso precario: Los permisos en precarios dados para los locatarios no son vitalicios y están sujetos a lo que disponga el Ente Local en su autonomía, y lejos de constituirse en una relación inquilinaria de tipo civil, se constituyen en un permiso de uso de un espacio público.
+22. Quinquenio: Revisión y actualización del precio público del alquiler de los tramos que se revisa cada cinco años.
+23. Uso de Mesa(s): Determinar el tamaño de cada mesa de venta, el cual se estableció en 2m (5x5 mosaicos del mercado). Una mesa es igual a un puesto comercial en el Mercado Viejo.

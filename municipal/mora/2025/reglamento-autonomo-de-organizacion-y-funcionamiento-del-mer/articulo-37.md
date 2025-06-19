@@ -1,0 +1,2 @@
+Artículo 37: De la Comisión Recalificadora: La Comisión estará integrada por cuatro miembros: dos regidores municipales y dos inquilinos del Mercado. Los inquilinos estarán representados por la correspondiente asociación legalizada o, en su defecto, por la mayoría de ellos, según un memorial autenticado por un abogado, que presentarán.
+Para el caso de los Regidores Municipales, el Concejo Municipal deberá nombrarlos mediante acuerdo.

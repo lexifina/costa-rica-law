@@ -1,0 +1,5 @@
+Artículo 43: Renovación de Contratos:
+1. En caso de cesión o remate de tramos, el nuevo concesionario suscribirá contrato por el plazo del quinquenio restante.
+2. Al iniciar nuevo quinquenio el contrato tendrá una vigencia de cinco años, cada vez que se revisen y entren en vigencia la nueva fijación de precios públicos para las relaciones de sujeción especial existentes entre los concesionarios de locales comerciales del Mercado y podrá ser prorrogado por períodos iguales, si ninguna de las partes notifica a la otra su voluntad de darlo por terminado o bien la inclusión de los ajustes que sean requeridos, esto dentro de los noventa (90) días naturales anteriores a la fecha de su vencimiento.
+3. Lo anterior, sin perjuicio de que las partes de común acuerdo, decidan darlo por terminado en cualquier otro momento, previa notificación a la otra con al menos sesenta días (60) hábiles de antelación.
+4. De esta manera se otorga un plazo perentorio que finalizará en el mes de enero del correspondiente quinquenio a la renovación a fin de que todos los contratos estén renovados y firmados por las partes correspondientes.

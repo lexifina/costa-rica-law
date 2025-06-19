@@ -1,0 +1,1 @@
+Artículo 14: Distribución interna de los locales: El Mercado por ser un inmueble pequeño que está destinado para la venta de bienes y servicios en general, procurándose tener la mayor variedad posible en la oferta de bienes y servicios que pueda brindar cada concesionario.

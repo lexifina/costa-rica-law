@@ -1,0 +1,2 @@
+Artículo 26: Comunicación sobre dependientes: Los dependientes deberán tener contrato laboral suscrito y presentar la copia respectiva para tener en el expediente del local comercial.
+En caso de que sean removidos de su cargo, el concesionario deberá de informarlo inmediatamente a la Administración Municipal e indicar si él o la dependiente/persona será sustituido por otra y actualizar la respectiva información al Encargado de Mercado.

@@ -1,0 +1,6 @@
+Artículo 8: Competencia de la persona titular de la Dirección de Desarrollo y Control Urbano:
+El superior inmediato del Encargado de Mercado definido en el artículo anterior, será el Coordinador de la Dirección de Desarrollo y control Urbano que tendrá las siguientes funciones:
+1. Decidir acerca de los asuntos que competen al Subproceso de Mercado en caso de ausencia de las personas servidor a cargo.
+2. Exigir corrección y cumplimiento de las obligaciones a cargo del Encargado de Mercado, para lo cual gestionará el proceso disciplinario que prescriba el ordenamiento municipal para los servidores del Subproceso de Mercado.
+3. En coordinación con la Encargada de Mercado, formular y ejecutar todos los Proyectos, Programas y Planes institucionales y administrativos, de transformación y remodelación en general de los inmuebles, así como relacionado con aspectos organizacionales, de jerarquía y de toma de decisiones referidos al Inmueble.
+4. Podrá, también en el marco de sus funciones, avocar conocimiento de cualquier asunto o expediente de cada local comercial en el Mercado o expediente administrativo de ser necesario, de conformidad con lo que al respecto establece la Ley General de la Administración Pública.

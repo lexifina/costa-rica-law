@@ -1,0 +1,1 @@
+Artículo 42: Del procedimiento a seguir: Para la realización y aprobación del trámite de quinquenio, se deberá proceder de conformidad con los plazos establecidos en la Ley Sobre Arrendamiento de Locales Municipales.

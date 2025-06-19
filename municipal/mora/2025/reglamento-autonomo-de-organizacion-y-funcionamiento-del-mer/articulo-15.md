@@ -1,0 +1,5 @@
+Artículo 15: Horarios: El mercado funcionarán ordinariamente según el horario que fije la Administración del Mercado en resolución motivada velando porque dicho horario se ajuste a las necesidades de las personas usuarias.
+Ninguna persona podrá permanecer dentro de estos inmuebles, antes o después del horario fijado, exceptuando los empleados del mismo, cuadrillas de aseo o personal de vigilancia, con el objeto de concluir o cumplir con sus labores.
+a) El servicio se debe dar como mínimo de 8 horas sin ninguna excepción, según el giro comercial de cada negocio y como mínimo 6 días a la semana.
+b) Para realizar remodelaciones u obras de reparación, en los locales del Mercado se usarán los horarios en que permanezca cerrado el inmueble municipal, para lo cual deberá mediar autorización escrita de la Administración. y en casos de excepción, el Encargado de Mercado se permitirán este tipo de obras durante las horas hábiles de operación del inmueble.
+c) Cuando la Administración deba realizar obras mayores se coordinará previamente con los concesionarios mediante comunicación formal.

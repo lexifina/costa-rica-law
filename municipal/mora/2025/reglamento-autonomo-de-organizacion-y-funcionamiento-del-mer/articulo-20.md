@@ -1,0 +1,9 @@
+Artículo 20: Procedimiento de aprobación de la cesión de derechos:
+1. Presentada en forma la solicitud de autorización para la cesión de derechos, el Encargado de Mercado, verificará el cumplimiento de todos los requisitos para su tramitación. De la misma manera verificará que la persona física o jurídica cedida satisface los requisitos para obtener la calidad de concesionario del posible derecho.
+2. La Municipalidad realizará una fiscalización del estado del local comercial y le solicitará al titular que lleve a cabo las reparaciones del caso si estas corresponden.
+3. El titular deberá continuar cancelando el alquiler del local hasta que se apruebe la cesión al interesado, se proceda con la firma del contrato y se traslade el servicio a favor del nuevo cesionario.
+4. El Encargado de Mercado está en la obligación, dentro del término improrrogable de tres días hábiles, después de autorizada la cesión por el Alcalde Municipal, para proceder a hacer la anotación correspondiente y generar el nuevo contrato de uso para el nuevo concesionario.
+5. El nuevo cesionario deberá pagar a la Municipalidad el monto equivalente a 2 meses de alquiler correspondientes al trámite de cesión el día que se firma el contrato.
+6. Tendrá exclusivamente la calidad de concesionario quién haya suscrito el contrato respectivo con la Municipalidad en un tiempo máximo de 20 días hábiles luego de aprobada la cesión.
+7. Hasta que haya firmado el contrato el nuevo concesionario podrá hacer posesión del local y realizar las mejoras que considere pertinentes para el establecimiento de su nueva actividad. Dichas mejoras deben tener un aval de la Administración según se aclara en el artículo No. 11.
+8. El nuevo concesionario deberá realizar todos los trámites que se requieren para el nuevo negocio ante las instancias correspondientes.
