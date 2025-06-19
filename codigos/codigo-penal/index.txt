@@ -329,8 +329,8 @@ articulo-279-quinquies.md
 articulo-279-sexies.md
 articulo-280.md
 articulo-281.md
-articulo-281-ter.md
 articulo-281-bis.md
+articulo-281-ter.md
 articulo-282.md
 articulo-283.md
 articulo-284.md
