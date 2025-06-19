@@ -1,4 +1,0 @@
-Artículo 13.—Condiciones para otorgar Arreglos de Pago.
-El arreglo de pago se otorgará por parte del Departamento de Gestión de Cobro Administrativo, para lo cual serán valoradas las siguientes condiciones del sujeto pasivo:
-a. Capacidad económica: El sujeto pasivo debe comprobar al Departamento, que su situación económica impide cancelar, en forma total e inmediata, las obligaciones vencidas.
-b. Monto adeudado: De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente, y el plazo para la cancelación total de la obligación vencida, no podrá exceder de tres años. Solo en casos calificados se podrá otorgar un arreglo de pago con un plazo mayor al indicado, siempre y cuando cuente con la aprobación del Coordinador de Cobro, Director Tributario y/o Alcalde Municipal.

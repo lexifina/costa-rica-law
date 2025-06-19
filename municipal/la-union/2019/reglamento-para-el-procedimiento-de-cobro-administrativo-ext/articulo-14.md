@@ -1,1 +1,0 @@
-Artículo 14.—Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Ventanilla Única, proceso competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicho Departamento y siempre y cuando el sujeto pasivo haya cumplido con los requisitos que se exigen para tales efectos.

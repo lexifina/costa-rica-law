@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Este reglamento será de aplicación obligatoria, tanto para la Dirección Tributaria de la Municipalidad como para los abogados internos y externos que sean contratados por la Municipalidad, para gestionar el cobro administrativo, extrajudicial y judicial de las obligaciones dinerarias que se le adeuden a la Municipalidad.
