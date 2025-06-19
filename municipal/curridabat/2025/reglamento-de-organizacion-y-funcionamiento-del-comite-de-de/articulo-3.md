@@ -1,0 +1,13 @@
+ARTÍCULO 3.- Para la aplicación del presente reglamento y la interpretación del mismo, se entiende:
+- MUNICIPALIDAD: Municipalidad del Cantón de Curridabat
+- ICODER: Instituto Costarricense del Deporte y la Recreación
+- COMITÉ CANTONAL: Comité Cantonal de Deportes y Recreación del Cantón de Curridabat
+- JUNTA DIRECTIVA: Integrantes de la Junta Directiva del Comité de Deportes.
+- PLAN OPERATIVO: Programa anual de actividades, obras e inversión, que deberá ser sometido para su aprobación al Concejo
+- COMITÉ COMUNAL: Comité Comunal de Deportes y Recreación, nombrado en asamblea general, convocada por el Comité Cantonal, en cada uno de los cuatro distritos del Cantón de Curridabat.
+- ASOCIACIÓN DEPORTIVA Y RECREATIVA: Asociaciones que se encuentran inscritas ante el Registro de Asociaciones Deportivas del ICODER y/o el Registro Público, así como en el Registro de la Municipalidad de Curridabat y adscritas al Comité de Deportes, con cédula y personería jurídica al día, cuya sede y radio de acción será el cantón de Curridabat. Estarán encargadas de promover, facilitar, ejecutar y controlar todo lo relacionado con su disciplina en el cantón, en coordinación del Comité.
+- ORGANIZACIONES COMUNALES: Asociaciones de Desarrollo Integral, de Desarrollo Comunal y de Desarrollo Específico (Ley No.218) y las asociaciones de bien social que tengan su radio de acción en el cantón de Curridabat y posean cédula jurídica, personería jurídica al día y se encuentren debidamente inscritas en el Registro de Organizaciones y/o Asociaciones Comunales en la Municipalidad.
+- ATLETA: persona que practica algún deporte.
+- ENTRENADOR: persona con conocimiento técnico en determinado deporte, encargado de dirigir atletas o equipos.
+- EQUIPO: Conjunto de personas que practican o ejecutan una misma disciplina deportiva.
+- DELEGADO: Representante del Comité Cantonal, con atribuciones en aspectos competitivos y disciplinarios según las disposiciones que le apliquen.

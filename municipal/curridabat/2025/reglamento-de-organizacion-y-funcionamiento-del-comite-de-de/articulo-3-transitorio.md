@@ -1,0 +1,2 @@
+TRANSITORIO III.
+En virtud de la emisión de nueva normativa que acredita la necesidad de que un miembro de la Junta Directiva provenga del segmento poblacional de adultos mayores, se propone que el primer suplente a elegir por parte del Concejo Municipal, conforme al reglamento vigente, en estos momentos, sea un representante de la persona adulta mayor y/o bien un representante del sector poblacional de personas con discapacidad.

@@ -1,0 +1,1 @@
+ARTÍCULO 57.- En caso de que, por fuerza mayor, las organizaciones deportivas y recreativas u organizaciones comunales no pudieran nombrar a sus respectivos representantes ante la Junta Directiva del Comité Cantonal, corresponderá al Concejo realizar el nombramiento de los miembros faltantes.

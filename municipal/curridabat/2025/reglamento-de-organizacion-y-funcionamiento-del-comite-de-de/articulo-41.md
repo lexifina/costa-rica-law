@@ -1,0 +1,1 @@
+ARTÍCULO 41.- El presupuesto debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el período que éste cubre de conformidad con las exigencias legales y reglamentarias establecidas al efecto.

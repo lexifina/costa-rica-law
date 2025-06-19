@@ -1,0 +1,3 @@
+ARTÍCULO 52.- Cada Comité Comunal podrá conformar Sub-comités Comunales de Deportes y Recreación en los barrios y caseríos que lo ameriten. Su funcionamiento se limitará a su jurisdicción territorial y para el nombramiento de sus integrantes se regirá por las disposiciones del presente reglamento referentes a los Comités Comunales.
+Los sub-comités dependerán de los Comités Comunales. La Junta Directiva del Comité Cantonal supervisará directamente a aquellos sub-comités donde no haya comité comunal.
+Los sub-comités subordinados a los comités comunales podrán apelar ante la Junta Directiva del Comité Cantonal, cualquier resolución que les afecte emanadas de ellos.

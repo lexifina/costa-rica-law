@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Cuando un miembro incurra en cualquiera de las causales indicadas en el artículo anterior, la Junta Directiva, y/o quien se encuentre informado; deberá comunicarlo por escrito al Concejo Municipal, indicando las razones para hacer efectiva su remoción.
+El Concejo Municipal, procederá de inmediato a la sustitución del miembro separado con el miembro suplente, aplicando lo dispuesto en el artículo 10 de este reglamento; previo debido proceso y mientras se realizan los procedimientos de asambleas y designaciones pertinentes.

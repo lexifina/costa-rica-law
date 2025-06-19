@@ -1,0 +1,1 @@
+ARTÍCULO 51.- La Junta Directiva del Comité Cantonal, podrá sustituir a la Junta Directiva del Comité Comunal o sub-Comité o a alguno(s) de sus miembros, por incumplimiento de los deberes establecidos en este reglamento o de los lineamientos emanados por el Comité Cantonal o el Concejo Municipal.
