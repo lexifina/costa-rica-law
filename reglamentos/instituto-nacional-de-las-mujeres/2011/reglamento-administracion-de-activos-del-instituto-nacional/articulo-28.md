@@ -1,6 +1,0 @@
-Artículo 28.—Baja de activos por desmantelamiento y aprovechamiento de sus partes. Se podrá dar de baja por desmantelamiento todo mobiliario, equipo o similares, cuyas partes utilizables se puedan aprovechar, previo cumplimiento de los siguientes requisitos:
-a) Solicitud escrita a la Directora Administrativa Financiera por parte del Proveedor, que contenga una justificación del desmantelamiento de activos y su descripción, la cual tendrá como fundamento el criterio de técnico respectivo.
-b) La Directora Administrativa Financiera, previa coordinación con la Proveeduría y la Coordinación de Servicios Generales y la unidad de Informática, según corresponda, valorará la petición y si la aprueba, determinará el proceso a seguir para el desmantelamiento.
-c) La persona encargada del desmantelamiento, suscribirá un informe en el que indique a la Proveeduría las partes utilizables y sujetas a inventario. En caso de que se haya reconstruido un activo, informará lo propio a la Proveeduría a fin de que se efectúe su alta.
-d) Traspaso de los activos a la Proveeduría, cuando corresponda, para que efectúe la baja, en caso de que no estén en su custodia.
-Las partes sobrantes no reutilizables se podrán destruir, desechar o donar de conformidad con lo establecido en el presente Reglamento.

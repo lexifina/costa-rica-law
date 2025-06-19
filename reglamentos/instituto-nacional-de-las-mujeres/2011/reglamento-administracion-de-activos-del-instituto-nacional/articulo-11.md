@@ -1,1 +1,0 @@
-Artículo 11.—Del sistema informático de activos. El sistema informático de activos que se utilice deberá contar con las opciones correspondientes para tramitar las altas de activos, asignación, reasignación, préstamo, baja de activos y cualquier otra operación necesaria a juicio de la Proveeduría; aspectos que serán verificados por dicha dependencia.

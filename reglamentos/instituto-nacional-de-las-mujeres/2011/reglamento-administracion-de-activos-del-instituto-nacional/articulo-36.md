@@ -1,1 +1,0 @@
-Artículo 36.—Deber de informar. La institución beneficiada con la donación, deberá comunicar a la Proveeduría en un plazo no mayor de treinta días naturales, contados a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los activos. En caso de que no hacerlo, no se le tomará en cuenta en futuras donaciones.

@@ -1,1 +1,0 @@
-Artículo 29.—Baja de activos por venta, remate, permuta o dación en pago. La venta, remate, permuta o dación en pago de activos se sujetará al trámite establecido en la Ley de Contratación Administrativa y su Reglamento y, una vez concluido, la Proveeduría aplicará la baja en el sistema informático de bienes.

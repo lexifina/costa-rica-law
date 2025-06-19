@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. Las disposiciones de este reglamento son de acatamiento obligatorio para todas las personas funcionarias del Instituto Nacional de las Mujeres, así como para aquellas que se encuentren comprendidas en los supuestos de este Reglamento.

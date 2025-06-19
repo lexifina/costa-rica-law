@@ -1,1 +1,0 @@
-Artículo 51.—Material bibliográfico. También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás material bibliográfico específico propiedad del INAMU, los cuales estarán a cargo de la Unidad de Documentación.

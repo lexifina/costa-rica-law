@@ -1,1 +1,0 @@
-Artículo 16.—Control de activos. Sin perjuicio de los controles que debe ejercer la Proveeduría, cada unidad administrativa llevará un control de los activos asignados, por persona funcionaria, descripción, ubicación, número de identificación y fecha de recibido.

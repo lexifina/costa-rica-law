@@ -1,3 +1,0 @@
-CAPÍTULO IX
-Permiso de uso, arrendamiento y préstamo de activos
-Artículo 38.—Traslado de activos fuera de la Institución. En caso de que los activos propiedad del INAMU deban trasladarse fuera de su sede central o de una oficina regional, la jefatura de la unidad responsable del activo completará el formulario (orden de salida) correspondiente.

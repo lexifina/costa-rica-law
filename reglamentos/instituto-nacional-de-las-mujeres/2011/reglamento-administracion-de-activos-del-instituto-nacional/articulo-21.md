@@ -1,1 +1,0 @@
-Artículo 21.—Alta por aparición de activos dados de baja. Cuando apareciere un activo que anteriormente fue dado de baja, la Proveeduría, previa valoración técnica, deberá inventariarlo nuevamente y darle alta, salvo que se determine que es un activo en desuso o en mal estado en cuyo caso se procederá a su destrucción o desmantelamiento, con la autorización respectiva.

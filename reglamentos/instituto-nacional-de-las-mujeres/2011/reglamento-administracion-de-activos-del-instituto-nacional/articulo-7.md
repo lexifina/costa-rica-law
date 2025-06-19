@@ -1,1 +1,0 @@
-Artículo 7º—De la asignación de activos para uso individual y común. Los activos de uso individual deben ser asignados a cada persona funcionaria para el cumplimiento de sus labores. Los bienes de uso general de cada unidad administrativa serán asignados a la respectiva jefatura, para utilización de todas las personas funcionarias de la unidad.

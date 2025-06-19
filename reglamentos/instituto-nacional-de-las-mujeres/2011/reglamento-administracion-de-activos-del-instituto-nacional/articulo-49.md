@@ -1,1 +1,0 @@
-Artículo 49.—Sanciones aplicables. Las jefaturas, personas usuarias, personas funcionarias de la Proveeduría y personas funcionarias en general, que incumplan las obligaciones y deberes contenidos en este reglamento, serán sancionadas de acuerdo con las disposiciones disciplinarias aplicables, sin perjuicio de la responsabilidad civil o penal que pueda derivarse.

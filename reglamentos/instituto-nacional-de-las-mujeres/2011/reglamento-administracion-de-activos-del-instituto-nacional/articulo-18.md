@@ -1,1 +1,0 @@
-Artículo 18.—Reporte para las unidades administrativas. Las jefaturas de las unidades administrativas podrán solicitar a la Proveeduría, cuando lo consideren oportuno, la emisión de informes sobre activos que les han sido asignados.
