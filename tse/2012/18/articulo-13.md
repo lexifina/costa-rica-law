@@ -1,1 +1,0 @@
-Artículo 13.—Las personas encargadas de centro de votación deberán verificar que dichos centros cuenten con la custodia correspondiente y, de no ser así, advertir lo pertinente a la o el asesor electoral.
