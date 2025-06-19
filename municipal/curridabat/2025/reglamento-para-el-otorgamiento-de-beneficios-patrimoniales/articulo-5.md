@@ -1,0 +1,2 @@
+Artículo 5.- Del otorgamiento de la subvención: La transferencia de un beneficio patrimonial sea para un centro educativo o un sujeto privado, se otorgará una única vez por año presupuestario.
+En caso de tratarse de Juntas Educativas o Juntas Administrativas que representen dos o más centros educativos, éstas pueden realizar solicitudes de subvención para más de uno de ellos siempre que sea de manera consecutiva y que hayan liquidado conforme y satisfactoriamente los recursos asignados en la solicitud precedente.

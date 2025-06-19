@@ -1,0 +1,4 @@
+Artículo 10.- Sobre la conformación del expediente y revisión de la documentación. La información aportada será revisada por la Dirección de Gestión Social, por la Dirección Financiera y la Asesoría Legal por medio de los funcionarios que para dicho efecto se designe, y para dichos efectos deberá conformarse un expediente separado de la solicitud.
+En caso de presentarse incompleta la documentación descrita en el artículo anterior, se prevendrá por una única vez por parte del funcionario asignado de la Dirección de Gestión Social, para lo cual se otorgará el plazo de diez días hábiles al sujeto privado para la corrección.
+En caso de no cumplirse con la corrección dentro del plazo otorgado, o que la misma no cumpla con lo requerido, la Municipalidad denegará la gestión de oficio y archivará la solicitud, lo que será notificado al sujeto privado.
+Al tratarse de un acto de mero trámite, contra dicho archivo no cabrá recurso alguno.

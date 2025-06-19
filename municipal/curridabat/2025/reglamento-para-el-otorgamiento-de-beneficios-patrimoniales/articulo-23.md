@@ -1,0 +1,1 @@
+Artículo 23.- Sobre el giro de los recursos. Una vez se cumpla con los procesos que para dicho efecto establezca la Contraloría General de la República, la Municipalidad podrá efectuar la transferencia al sujeto privado o centro educativo, lo que no constituye una obligación de giro.

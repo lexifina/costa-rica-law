@@ -1,0 +1,2 @@
+Artículo 12.- Sobre la aprobación por parte del Concejo Municipal. El Concejo Municipal a partir de la solicitud, lo que consta en el expediente y la recomendación técnica, determinará por medio de acuerdo municipal, la aprobación o el rechazo de la calificación de idoneidad para administrar fondos públicos al sujeto privado.
+En caso de que se otorgue la calificación de idoneidad a un sujeto privado, deberá indicarse su vigencia, siendo que ésta no podrá exceder los dos años naturales a partir de su declaratoria.

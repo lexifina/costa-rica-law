@@ -1,0 +1,1 @@
+Artículo 15.- Renovación de la Calificación de Idoneidad. El sujeto privado al que se le expire la calificación de idoneidad para administrar fondos públicos deberá cumplir con los requisitos del artículo 9 del presente reglamento.

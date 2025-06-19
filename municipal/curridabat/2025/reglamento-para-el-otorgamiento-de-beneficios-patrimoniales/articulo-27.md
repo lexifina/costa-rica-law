@@ -1,0 +1,3 @@
+Artículo 27.- Sobre los intereses generados. Los eventuales "intereses generados" sobre los beneficios otorgados deben ser utilizados en la finalidad establecida por las partes, salvo disposición o acuerdo distinto que así se establezca en la autorización otorgado por el Concejo Municipal y así se plasme en el convenio.
+El uso de los intereses generados deberá reflejarse en el respetivo informe de liquidación.
+Si del convenio no se establece la autorización de uso de los intereses generados, se deberá proceder a la devolución de estos, de conformidad con el mismo procedimiento establecido en el artículo anterior.

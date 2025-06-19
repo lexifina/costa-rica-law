@@ -1,0 +1,4 @@
+Artículo 20.- Aprobación de la transferencia del beneficio patrimonial. La Alcaldía vía moción, trasladará el expediente para lo cual deberá adjuntar el proyecto de convenio de transferencia de beneficio patrimonial, para estudio y aprobación del Concejo Municipal, así como la solicitud de aprobación del presupuesto requerido.
+El Concejo Municipal aprobará o rechazará la solicitud y el proyecto de convenio de transferencia de beneficio patrimonial por medio de un acuerdo.
+En caso de autorizarse la suscripción del convenio, una vez en firme el acuerdo, la Secretaría del Concejo Municipal remitirá el expediente y el acuerdo a la Dirección de Asesoría Legal para que se proceda con la firma de este.
+En caso de no autorizarse la suscripción del convenio, la Secretaría Municipal comunicará el acuerdo a la parte solicitante, sea el sujeto privado o el centro educativo, por medio del Departamento de Plataforma de Servicios por los medios oficiales para dicho fin.

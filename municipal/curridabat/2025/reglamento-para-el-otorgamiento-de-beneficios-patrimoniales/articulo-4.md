@@ -1,0 +1,3 @@
+Artículo 4.- Asignación presupuestaria. La Municipalidad incluirá en su presupuesto ordinario o mediante los mecanismos de variaciones al presupuesto, las partidas presupuestarias correspondientes para dar contenido a los beneficios patrimoniales objeto del presente reglamento.
+El giro de los recursos por parte de la Municipalidad se debe realizar según su programación financiera, de acuerdo con los requerimientos de gasto y el avance en el cumplimiento de la finalidad.
+En ningún caso podrá girarse un monto que exceda los requerimientos de acuerdo con la periodicidad definida y que, por tanto, aún no requiera ejecutarse.
