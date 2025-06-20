@@ -1,0 +1,6 @@
+Artículo 10.-Protocolo para la expulsión de uno o varios usuarios: En caso de que uno o varios usuarios incumplan con alguna o varias de las disposiciones establecidas en el presente reglamento, se procederá de la siguiente manera:
+a) Advertencia inicial: El encargado o los encargados del control vigilancia y administración del parque o espacio público, conforme al contrato que suscriba con la administración municipal, tendrá la facultad de advertir verbalmente al usuario o usuarios la norma infringida y girar la orden de abstenerse de continuar en infracción o bien del desalojo del lugar. Deberá contar con al menos dos testigos.
+b) Exclusión: Si el comportamiento persiste, el encargado del parque deberá contactarse en primer lugar con la policía municipal, quienes tendrán la autoridad de desalojar al usuario o usuarios.
+c) Levantamiento de acta o parte: Los oficiales encargados de la exclusión deberán anotar una bitácora la descripción de los hechos que incluya: La fecha y hora exacta del incidente, descripción detallada de los eventos ocurridos y las personas involucradas. Los ciudadanos infractores podrán solicitar copia del acta a la Municipalidad.
+El presente reglamento deroga todos los anteriores.
+Rige a partir de su publicación.

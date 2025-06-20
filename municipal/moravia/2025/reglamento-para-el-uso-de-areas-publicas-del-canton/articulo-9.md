@@ -1,0 +1,8 @@
+Artículo 9°-Normas Generales: Los usuarios de todas las áreas que comprende este reglamento deberán de respetar las siguientes normas generales, las cuales son de acatamiento obligatorio para todas las personas que visiten o realicen actividades en las áreas públicas de Moravia,
+1- Deberán actuar con un comportamiento cortes, respetuoso y acorde con buenos modales para con presentes.
+2- Se consideran que se atenta contra la tranquilidad pública cuando la(s) persona(s) incurra en las siguientes conductas: a) Violencia física o verbal. b) Amenazas hacia otras personas. c) Daño a la propiedad. d) Conducta disruptiva que afecte negativamente la convivencia.
+3- En las áreas públicas queda totalmente prohibida la participación de personas que se presenten con armas de fuego o aire comprimido, objetos punzo cortantes, juegos de pólvora o cualquier otro artículo que se considere peligroso para la integridad de las instalaciones y las personas presentes.
+4- Conforme lo establece la Ley N° 9028, se prohíbe fumar o vapear en los espacios públicos municipales donde se estén efectuando actividades organizadas por la institución.
+5- Queda prohibido la presencia de personas bajo los efectos del alcohol u otras sustancias que pongan en riesgo a los presentes o las actividades que se realicen.
+6- En cumplimiento de lo dispuesto en la Ley N° 8204, está estrictamente prohibido consumir estupefacientes o cualquier sustancia prohibida, en las áreas públicas o en los recintos presentes en estas o en las actividades ahí realizadas.
+7- Todas las actividades que se realicen las áreas públicas y el desarrollo de actividades en ellas (sociales, académicas, institucionales o de cualquier otra índole) son espacios libres de violencia o de acoso u hostigamiento sexual.
