@@ -1,0 +1,20 @@
+Nº 10731
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
+DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTICULO 6 BIS Y ADICIÓN DEL ARTÍCULO 6
+TER DE LA LEY 7410, LEY GENERAL DE POLICÍA, DE 26
+DE MAYO DE 1994
+ARTÍCULO 1- Reforma. Se reforma el artículo 6 bis de la Ley 7410, Ley General de Policía, de 26 de mayo de 1994. El texto es el siguiente:
+Artículo 6 bis- Donaciones y prestación de servicios a título gratuito. Las instituciones del Estado, las entidades o los organismos públicos o privados, nacionales o internacionales, las municipalidades, las asociaciones de desarrollo comunal, amparados en la Ley 3859, Ley sobre el Desarrollo de la Comunidad, de 7 de abril de 1967, las personas físicas o jurídicas, podrán efectuar donaciones de bienes inmuebles, muebles y prestación de servicios a título gratuito a favor del Ministerio de Seguridad Pública, de las policías municipales a través de la municipalidad respectiva, así como de los cuerpos policiales que están previstos en esta ley, para la construcción, el mantenimiento, la reparación y el equipamiento de instalaciones policiales, vehículos, capacitación y otros bienes y servicios para el abastecimiento policial, así como en la ejecución de proyectos en seguridad ciudadana y nacional.
+Dichas donaciones no podrán estar condicionadas de ninguna forma y las autoridades del Ministerio de Seguridad Pública, las municipalidades respectivas, así como los otros entes ministeriales que tengan cuerpos policiales adscritos, deberán verificar de previo la procedencia de los bienes.
+No podrán aceptarse donaciones de personas físicas y/o jurídicas que se encuentran relacionadas con alertas de inteligencia confidenciales por la movilización de flujos financieros de dudosa procedencia, o que hayan sido condenadas por narcotráfico, legitimación de capitales o fraude a la Hacienda Pública.
+Las donaciones y la prestación de servicios a título gratuito no deberán representar un riesgo al trabajo de seguridad o a la información que maneja el Ministerio de Seguridad Pública o los cuerpos policiales beneficiarios. Quedarán excluidos de las donaciones:
+a) Servicios que involucren el manejo de datos de la institución, manejo o mantenimiento de equipo tecnológico o acceso a datos sensibles e información confidencial de la institución.
+b) Servicios que comprometan el desarrollo de operaciones cotidianas o especiales de la institución.
+c) Servicios que pretendan brindar personal para operaciones cotidianas o especiales de la institución, relacionadas con la materia de seguridad pública o nacional.
+d) Servicios que pretendan brindar personal para manejo de armamento de la institución.
+e) Otros servicios que puedan comprometer la seguridad pública.
+Además, toda donación o prestación de servicios a título gratuito estará sujeta a una justificación motivada por parte de la institución beneficiaria, explicando los mecanismos de seguridad que se implementarán para garantizar la seguridad de la institución y el interés público que protegen los cuerpos policiales y el Ministerio de Seguridad, a los procedimientos de control interno establecidos en la normativa vigente y aplicable, así como a los lineamientos que al respecto dicte la Dirección General de Administración de Bienes y Contratación Administrativa, y deberá constar la carta de aceptación de la persona representante de la entidad donataria, o bien, de la persona física o jurídica donante o prestadora del servicio.
+En el caso de las prestaciones de servicios a título gratuito, estas no generarán relación laboral entre la institución beneficiaria y quien preste el servicio gratuitamente. Cuando la prestación de servicios a título gratuito involucre o participación de personas físicas, correrá por cuenta de quien brinde el servicio la cobertura de una póliza de seguros contra riesgos de accidentes y enfermedades derivados directamente del ejercicio de la actividad voluntaria.
+Cualquier desafectación de bienes inmuebles de dominio público deberá cumplir con lo dispuesto en el artículo 121, inciso 14), de la Constitución Política.
