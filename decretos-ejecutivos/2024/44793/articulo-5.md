@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Deróguese el inciso 11) del artículo 10 y el párrafo final del artículo 20, todos del "Reglamento para el Registro de Empresas ante la Dirección General de Migración y Extranjería y la Regulación Migratoria de su Personal", Decreto Ejecutivo Nº 36576-G-COMEX del 09 de mayo de 2011, publicado en el Diario Oficial La Gaceta Nº 97 del 20 de mayo de 2011.
