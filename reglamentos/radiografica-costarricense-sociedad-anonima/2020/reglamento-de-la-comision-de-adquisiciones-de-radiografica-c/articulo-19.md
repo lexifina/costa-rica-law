@@ -1,1 +1,1 @@
-Artículo 19.-Vigilancia de la gestión. De conformidad con el artículo 91 de la Ley General de la Administración Pública, la Junta Directiva mantendrá la obligación de vigilar la gestión de la Comisión de Adquisiciones de RACSA, lo cual hará mediante un sistema de control interno.
+Artículo 19. Vigilancia de la Gestión. De conformidad con el artículo 91 de la Ley número 6227, la Junta Directiva mantendrá la obligación de vigilar la gestión de la Comisión de Adquisiciones de RACSA, lo cual hará mediante informes semestrales.

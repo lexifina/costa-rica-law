@@ -1,3 +1,2 @@
-CAPÍTULO III
-Disposiciones finales
-Artículo 20.-Vigencia. El presente Reglamento regirá a partir de su aprobación y publicación en el Diario Oficial La Gaceta.
+.3 CAPÍTULO III – DISPOSICIONES FINALES
+Artículo 20. Solicitud de Información por parte de Particulares. Las solicitudes de información pública por parte de particulares a la Secretaría de la Comisión de Adquisiciones, relacionada con actas u otros documentos propios de este Órgano Colegiado, deberán cumplir con los requisitos establecidos en las leyes número 9097 y número 10554 y atenderse por parte de la Secretaría en el plazo legal dispuesto para esos efectos, todo lo actuado deberá ser informado oportunamente al Órgano Colegiado.

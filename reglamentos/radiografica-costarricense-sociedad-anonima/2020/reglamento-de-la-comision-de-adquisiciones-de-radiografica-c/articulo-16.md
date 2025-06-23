@@ -1,1 +1,1 @@
-Artículo 16.-Voto en Contrario. Los miembros de la Comisión podrán hacer constar en la respectiva minuta, su voto contrario al acuerdo emitido y los motivos que lo justifiquen, quedando exento de las responsabilidades que en su caso pudieren derivarse de los acuerdos.
+Artículo 16. Responsabilidad en Voto Negativo o Disidente. Los miembros de la Comisión podrán hacer constar, en la respectiva acta, su voto negativo o disidente al acuerdo dictado y los motivos que lo justifiquen, quedando exento de las responsabilidades que en su caso pudieren derivarse de los acuerdo

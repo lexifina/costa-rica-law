@@ -15,3 +15,4 @@ Reglamento de la comisión de adquisiciones de Radiográfica Costarricense S.A.
 | --- | --- | --- |
 | 1 | 2020-02-18 | la propia norma |
 | 2 | 2023-03-06 | Reglamento 2436 (2023-03-06) |
+| 3 | 2025-06-23 | Reglamento 2550 (2025-06-23) |

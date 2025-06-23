@@ -1,0 +1,1 @@
+Artículo 21. Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deja sin efecto el Reglamento de la Comisión de Adquisiciones de RACSA aprobado por la Junta Directiva en la sesión ordinaria número 2436 del 06 de marzo de 2023 y publicado en el Diario Oficial La Gaceta número 59 del 30 de marzo de 2023.

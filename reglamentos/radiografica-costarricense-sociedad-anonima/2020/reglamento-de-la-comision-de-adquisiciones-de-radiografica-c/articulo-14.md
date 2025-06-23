@@ -1,1 +1,1 @@
-Artículo 14.-Expediente de las Sesiones. Para cada minuta se conformará un expediente con los documentos que se hayan analizado en el orden del día respectivo. Las grabaciones no formarán parte del expediente.
+Artículo 14. Expediente de las Sesiones. Para cada sesión se conformará un expediente con los documentos que se hayan analizado en el orden del día respectivo. Las grabaciones no formarán parte del expediente, solo el acta aprobada e inscrita en el libro oficial.
