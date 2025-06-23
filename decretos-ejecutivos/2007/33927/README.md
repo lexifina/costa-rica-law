@@ -15,3 +15,4 @@ Reglamento de Viveros, Almácigos, Semilleros y Bancos de Yemas
 | --- | --- | --- |
 | 1 | 2007-10-30 | la propia norma |
 | 2 | 2019-10-29 | Decreto Ejecutivo 42167 (2019-10-29) |
+| 3 | 2025-06-23 | Decreto Ejecutivo 45194 (2025-06-23) |
