@@ -1,0 +1,1 @@
+Artículo 15.-Derogación. Este Reglamento deroga toda disposición anterior relativa a la materia que se le oponga. Así mismo, se derogan el Reglamento para Gastos de Representación e Imprevistos del Sr. Alcalde Municipal de la Municipalidad de Garabito, N° 178 y su Reforma o Modificaciones N° 105.

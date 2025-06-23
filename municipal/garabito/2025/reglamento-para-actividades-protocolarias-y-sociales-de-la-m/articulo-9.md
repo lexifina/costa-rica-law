@@ -1,0 +1,1 @@
+Artículo 9º-Procedimientos. Los procedimientos para las actividades protocolarias y sociales deben ser congruentes con lo establecido en la Ley y el Reglamento de Contratación Pública y en el Reglamento de Fondo de Caja Chica de la Municipalidad de Garabito; por lo que se deberá utilizar el mecanismo que corresponda de conformidad con lo establecido en la normativa citada.

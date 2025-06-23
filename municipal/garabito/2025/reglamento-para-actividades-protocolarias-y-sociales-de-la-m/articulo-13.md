@@ -1,0 +1,1 @@
+Artículo 13.-Obligatoriedad. El acatamiento y aplicación de este Reglamento, es de carácter obligatorio para los encargados de las Direcciones, Departamentos y Unidades de la Municipalidad de Garabito autorizadas en el presente reglamento, que hagan uso de las subpartidas presupuestarias correspondientes para las actividades protocolarias y sociales.
