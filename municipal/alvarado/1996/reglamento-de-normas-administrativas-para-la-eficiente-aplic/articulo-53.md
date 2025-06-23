@@ -1,0 +1,2 @@
+Artículo 53- Reincidencia. Si hay reincidencia en las conductas establecidas en el artículo 50 de este reglamento, la municipalidad ordenará el procedimiento administrativo correspondiente, de acuerdo con el Código Municipal y la Ley General de la Administración Pública, con el fin de proceder a cancelar la licencia otorgada, sin perjuicio de las demás responsabilidades civiles y penales del caso.
+(Así adicionado en sesión N° 089 del 23 de junio de 2025)
