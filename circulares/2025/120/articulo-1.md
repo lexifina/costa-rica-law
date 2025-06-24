@@ -1,0 +1,15 @@
+CIRCULAR No. 120-25
+Asunto: Reiteración de la circular N°138-21 "Procedimiento para el uso y actualización de la Guía de Información de Oficinas (GIO)
+A TODAS LAS OFICINAS Y DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 52-2025 celebrada el 19 de junio de de 2025, artículo LIII, a solicitud de la Dirección de Tecnología de Información y Comunicaciones dispuso reiterar la circular N°138-2021, sobre el "Procedimiento para el uso y actualización de la Guía de Información de Oficinas (GIO)", que dice:
+a. Es responsabilidad de cada oficina y despacho judicial mantener actualizada la información de contacto, así como del personal que labora en el despacho u oficina, en el sistema Guía Integral de Oficinas (GIO), según el Procedimiento para el uso, mantenimiento y actualización de la Guía de Información de Oficinas (GIO). Ver siguiente link:
+https://secretariacorte.poder-judicial.go.cr/index.php/documentos?download=5139:procedimiento-para-el-uso-mantenimiento-y-actualizacion-de-la-guia-de-informacion-de-oficinas-gio
+b. Es responsabilidad de las Administraciones Regionales y de los Órganos Auxiliares (Ministerio Público, Defensa Pública, Organismo de Investigación Judicial y Oficina de Atención y Protección a la Víctima), una vez recibida el Acta de Recepción del Inmueble o se haya tomado un arriendo; actualizar y registrar la información de los edificios propios y alquilados en el sistema Guía Integral de Oficinas (GIO).
+c. En el caso de los edificios de uso exclusivo de las oficinas del Ministerio Público, Defensa Pública, Organismo de Investigación Judicial y Oficina de Atención y Protección a la Víctima, la actualización en el Sistema GIO será responsabilidad de cada área administrativa competente.
+d. En el caso de edificios compartidos entre las oficinas del Ministerio Público, Defensa Pública, Organismo de Investigación Judicial, Oficina de Atención y Protección a la Víctima y oficinas del ámbito jurisdiccional y administrativo, las Administraciones Regionales serán las responsables de actualizar la información en el Sistema GIO y para ello deberán coordinar con las administraciones de los ámbitos involucrados.
+e. El Departamento de Servicios Generales velará porque el registro de la información de los edificios propios y alquilados sean ingresados de manera correcta y sin duplicidades en el Sistema GIO, ya que se puede suscitar cuando en el inmueble se ubiquen dos o más oficinas de diferente programa presupuestario y el registro se realice por ambas administraciones.
+f. Con la implementación de la nueva versión de la GIO, se procedió con la migración de los datos, por tanto, se solicita a las oficinas y despachos judiciales revisar la información registrada, en el caso de presentarse faltantes de datos o inconsistencias proceder con la actualización de la información.
+Publíquese una vez en el Boletín Judicial.
+San José,24 de junio de 2025.
+<span style='font-family:"Arial",sans-serif; </body>
