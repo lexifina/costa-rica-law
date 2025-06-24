@@ -1,0 +1,1 @@
+Transitorio único: El Ministerio de Salud contará con un plazo de seis meses a partir de la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta, para la implementación de las reformas realizadas en la Dirección de Salud Ambiental y en la Dirección de Servicios de Salud.
