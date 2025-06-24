@@ -1,0 +1,1 @@
+TRANSITORIO I- Las municipalidades y el Consejo Nacional de Vialidad (Conavi) deberán contar con los instrumentos para la asignación y transferencia de los recursos, a más tardar seis meses a partir de la publicación de la presente ley.
