@@ -1,0 +1,5 @@
+Artículo 7º-De la Gerencia General.
+La Gerencia General a través de la subgerencia encargada de lo técnico, y esta a su vez, en coordinación con la Gestión Regional, la Gestión Rectora del SINAFOR, la Gestión de Formación y Servicios Tecnológicos, y la Unidad de Planificación y Evaluación, se encargará de construir el criterio técnico que servirá de base para la utilización de los fondos por parte del Fideicomiso. De tal forma:
+a) Se designa a la Gerencia General como el órgano responsable de ejercer que se cumpla con el criterio técnico antes dicho, para que se respalde el traslado de los fondos. Este criterio será uno solo por cada año económico donde se estimaría el traslado de recursos al Fideicomiso.
+Este criterio debe considerar estar -o ser integrado- como parte del análisis que debe ser presentado por el INA -y es aprobado- por el CCI. La Gerencia General debe procurar que este criterio se rinda en plazo expedito.
+b) Cualquier otra función que la Ley Orgánica del Instituto Nacional de Aprendizaje (INA) N° 6868 y sus reformas establezcan en procura de formalizar la atención de necesidades legalmente asignadas a la institución.
