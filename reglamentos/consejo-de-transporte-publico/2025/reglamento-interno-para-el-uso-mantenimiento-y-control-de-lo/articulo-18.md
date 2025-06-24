@@ -1,0 +1,1 @@
+Artículo 18º-Cuando se requiera de un aumento en el monto autorizado de combustible, sea temporal o fijo, deberá presentarse ante el Departamento de Servicios Generales la debida justificación de la cantidad solicitada, para la respectiva aprobación.

@@ -1,0 +1,2 @@
+Artículo 51º-El departamento de Servicios Generales establecerá los servicios de mantenimiento que reciben los vehículos institucionales.
+a) El departamento de Servicios Generales hará las gestiones pertinentes para retirar de operación los vehículos institucionales, que por su restauración o por inseguros, han dejado de ser confiables. Asimismo, concertará la salida de operación de aquellos vehículos que han dejado de ser rentables por su excesivo costo de operación, siempre y cuando se puedan sustituir, prescindir de ellos, de acuerdo con la normativa.

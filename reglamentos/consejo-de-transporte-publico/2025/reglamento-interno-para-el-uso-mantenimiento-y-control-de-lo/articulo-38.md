@@ -1,0 +1,1 @@
+Artículo 38º-Es responsabilidad exclusiva de cada conductor, funcionario autorizado, usuarios y del CTP, en lo que compete a cada uno, el cumplimiento de lo establecido en el presente Reglamento y cualquier acción en contrario será sancionada según la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 25º-Ningún vehículo del CTP podrá circular fuera del territorio nacional sin la autorización del Director Ejecutivo. Y debidamente informado con anticipación a la jefatura del Departamento de Servicio Generales; esto con la finalidad del reporte del GPS que contienen todos los vehículos Institucionales.

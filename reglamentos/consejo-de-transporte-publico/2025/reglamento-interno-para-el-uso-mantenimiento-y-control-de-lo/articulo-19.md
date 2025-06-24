@@ -1,0 +1,1 @@
+Artículo 19º-El Departamento de Servicios Generales, como encargado del proceso de combustible, podrá disponer cuando así lo crea necesario el retiro de la tarjeta de combustible a los funcionarios, indicando el motivo por el cual procede con dicha acción.

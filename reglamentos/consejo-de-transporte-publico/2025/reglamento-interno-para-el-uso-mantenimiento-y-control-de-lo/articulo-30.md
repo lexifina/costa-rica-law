@@ -1,0 +1,1 @@
+Artículo 30º-Será obligatorio para todo funcionario del CTP que desee optar por el permiso de conducir vehículos institucionales, realizar y aprobar un curso atinente, proporcionado por el Instituto Nacional de Seguridad (INS), con gestión del Departamento de Servicios Generales del CTP.
