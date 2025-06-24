@@ -1,0 +1,3 @@
+CAPÍTULO VI
+SEGUIMIENTO Y CONTROL
+Artículo 24.-Control de la habilitación. Las Áreas Rectoras de Salud son los entes competentes para dar seguimiento al cumplimiento de las regulaciones relacionadas con la habilitación de los centros de atención integral, ejercer el control y atender denuncias, de conformidad con las disposiciones establecidas en los artículos 20, 47, 48, 49 y 50 del Decreto Ejecutivo N° 43432-S del 09 de marzo de 2022 "Reglamento general para permisos sanitarios de funcionamiento, permisos de habilitación y autorizaciones para eventos temporales de concentración masiva de personas, otorgados por el Ministerio de Salud",

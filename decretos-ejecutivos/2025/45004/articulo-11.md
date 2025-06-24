@@ -1,0 +1,1 @@
+Artículo 11.-Aplicación supletoria. En lo no regulado en el presente Decreto Ejecutivo en materia de órganos colegiados, el Consejo debe aplicar las disposiciones contenidas en el Capítulo Tercero del Título Segundo de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".

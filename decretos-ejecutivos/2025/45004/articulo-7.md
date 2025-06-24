@@ -1,0 +1,2 @@
+Artículo 7.-Sesiones virtuales del Consejo. Cuando así se considere conveniente, el Consejo puede sesionar ordinaria o extraordinariamente de forma virtual y para tal efecto la persona que preside lo debe comunicar de previo mediante correo electrónico a los demás miembros.
+Las sesiones virtuales deben realizarse en cumplimiento de las disposiciones que para este cometido disponen los artículos 50 siguientes y concordantes de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública" y sus reformas.

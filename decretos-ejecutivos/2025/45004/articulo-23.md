@@ -1,0 +1,3 @@
+Artículo 23.-Póliza de Seguros. Para efectos de lo dispuesto en el inciso b) del artículo 16 de la Ley N° 8017, se establece un monto no menor de (Cinco millones de colones exactos), por concepto de una póliza de responsabilidad civil que cubra eventuales lesiones, accidentes o daños que ocurran en el centro.
+El monto de cobertura de esta póliza debe ser revisado cada 2 años por el Ministerio de Salud y en caso necesario, el monto será actualizado mediante Decreto Ejecutivo.
+Esta póliza se constituye en un requisito para el otorgamiento y mantenimiento del permiso de habilitación por primera vez o por renovación. Los funcionarios de las Áreas Rectoras de Salud son los encargados de verificar durante las visitas de inspección que los centros tengan esta póliza al día.

@@ -1,0 +1,1 @@
+Artículo 8.-Funciones del Consejo: El Consejo debe realizar las funciones que le han sido encomendadas en el artículo 7 de la Ley N° 8017 del 29 de agosto del 2000 "Ley de Centros de Atención Integral" y sus reformas.

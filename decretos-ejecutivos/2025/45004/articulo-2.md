@@ -1,0 +1,14 @@
+Artículo 2.-Definiciones y abreviaturas: Para los efectos del presente reglamento, entiéndase por:
+a) Aprobación del Proyecto del Centro: Documento que emite el Consejo de Atención Integral, para autorizar a los Centros de Atención Integral: públicos, privados y mixtos a solicitar la habilitación ante el Ministerio de Salud.
+b) Atención integral infantil: Serie de actividades dirigidas al desarrollo y mejoramiento integral de las personas menores de edad para que les permita el crecimiento físico adecuado y el desarrollo psicomotor social y afectivo,
+c) Centro de atención integral: Centros que brindan servicio a personas hasta de 12 años de edad, en diferentes jornadas, donde se les garantiza la satisfacción de sus necesidades básicas y se promueve su desarrollo integral. Estos centros pueden ser públicos, privados o mixtos.
+d) Certificado de habilitación: permiso extendido por el Ministerio de Salud para autorizar el funcionamiento a los Centros de Atención Integral: públicos, privados y mixtos.
+e) Consejo: Consejo de Atención Integral creado por el Artículo 6 de la Ley No. 8017 Ley General de Centros de Atención Integral.
+f) Habilitación: Trámite de acatamiento obligatorio, que se realiza ante el Ministerio de Salud, con el fin de solicitar un permiso para que los centros de atención integral puedan funcionar, con el objetivo de que garanticen estándares esenciales para dar la debida atención a los usuarios,
+g) Horario de atención: Es el horario en el que los centros de atención integral modalidad temporal prestan el servicio, sea en jornada horaria diurna o nocturna.
+h) Jornada horaria diurna: Es aquella en la cual se presta el servicio de atención integral a las personas de hasta 12 años de edad, en el periodo comprendido entre las 6:00 am y 6:00pm.
+i) Jornada horaria nocturna: Es aquella en la cual se presta el servicio de atención integral a las personas de hasta 12 años de edad, en el periodo comprendido entre las 6:00pm y 10:00 pm.
+j) Modalidad residencial: Servicio de cuido y atención, público o privado, en una residencia debidamente acondicionada para personas menores de 12 años de edad que se encuentran bajo la tutela del Estado.
+k) Modalidad temporal: Servicio de cuido y atención, público o privado, en un centro para personas menores de 12 años de edad cuyos padres o encargados legales requieren de este servicio durante una parte del día.
+l) Persona hasta de 12 años de edad: Comprende el periodo desde el día del nacimiento hasta el día antes de cumplir los 13 años.
+m) Secretaría Ejecutiva: Secretaría de apoyo técnico al Consejo y también se encarga de ejecutar, de conformidad con la Ley N° 8017 del 29 de agosto del 2000 "Ley General de Centros de Atención Integral", las políticas, lineamientos, acuerdos y las intervenciones que indique el Consejo.

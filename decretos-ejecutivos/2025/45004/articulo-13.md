@@ -1,0 +1,1 @@
+Artículo 13.-Funciones de la Secretaría Ejecutiva: La Secretaría Ejecutiva debe realizar las funciones que le han sido encomendadas en el artículo 13 de la Ley N° 8017 del 29 de agosto del 2000 "Ley de Centros de Atención Integral" y sus reformas.

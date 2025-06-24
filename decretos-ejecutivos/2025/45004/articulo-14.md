@@ -1,0 +1,3 @@
+CAPÍTULO IV
+PROYECTO DE LOS CENTROS DE ATENCIÓN INTEGRAL
+Artículo 14.-Proyecto del centro de atención integral. De acuerdo con lo que establece el artículo 15 de la Ley N° 8017 del 29 de agosto del 2000 "Ley de Centros de Atención Integral", todas las personas físicas o jurídicas que pretendan abrir un centro de atención integral para personas de hasta 12 años de edad, deben contar con la aprobación del proyecto de atención integral por parte del Consejo. La aprobación del Proyecto es un requisito previo a la solicitud de habilitación que se debe presentar ante la Dirección de Área Rectora de Salud,

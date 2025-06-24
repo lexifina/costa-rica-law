@@ -1,0 +1,1 @@
+Artículo 10.-Apoyo al Consejo: Todas las instituciones y organizaciones representadas en el Consejo, dentro de su ámbito de competencia y de acuerdo con sus posibilidades, pueden aportar recursos humanos y materiales, cuando así sea necesario, para el desarrollo de los fines y funciones del Consejo y de la Secretaría Ejecutiva.
