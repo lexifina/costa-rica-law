@@ -1,0 +1,1 @@
+Artículo 12°- Secretaria asignada a la Junta Directiva: La persona secretaria asignada a la Junta Directiva asistirá en todas las funciones destacadas en el artículo 9, 10 y 11 de este Reglamento, relacionadas con las funciones de Presidencia y Secretaría de la Junta Directiva.

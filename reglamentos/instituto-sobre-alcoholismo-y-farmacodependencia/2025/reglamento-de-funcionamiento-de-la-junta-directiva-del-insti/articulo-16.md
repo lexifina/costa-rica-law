@@ -1,0 +1,1 @@
+Artículo 16°-Del Libro de actas. El miembro Secretario con el auxilio de la persona asistente administrativa de la Junta Directiva, indicada en el numeral 12 del presente Reglamento, llevará un libro de actas físico o digital de las sesiones de Junta Directiva. No obstante, lo anterior, la responsabilidad será de manera conjunta de todos los miembros de Junta Directiva.

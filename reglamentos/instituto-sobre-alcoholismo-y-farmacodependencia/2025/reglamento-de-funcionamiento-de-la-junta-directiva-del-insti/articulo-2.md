@@ -1,0 +1,7 @@
+Artículo 2º-Nombramientos. Tal y como lo regula la Ley N° 5412 los miembros de Junta Directiva electos, se regirán por las reglas que se resumen de la siguiente manera:
+a) Serán nombrados por períodos de dos años. En caso de renuncia o remoción sobrevenida de alguno de los miembros del órgano colegiado, quien sea nombrado deberá serlo por el saldo del periodo.
+b) Sesenta días antes del vencimiento del nombramiento de la Junta Directiva, ésta lo comunicará al Ministerio de Salud, con la finalidad de que se proceda a efectuar un nuevo nombramiento.
+c) Cualquiera de los miembros de la Junta Directiva puede ser reelecto.
+d) En todo caso la sustitución y nombramiento por renuncia, remoción o por cualquier otra causa, se hará dentro del término de quince días naturales y para el resto del periodo legal.
+e) La Junta será conformada al menos por un profesional especialista en el campo de la salud mental, uno de las ciencias sociales y uno con conocimientos de la Administración Pública. Asimismo, el jerarca del Ministerio de Salud, a efectos de nombramiento, podrá tomar en consideración cualquier otro aspecto determinante que se incluya en el artículo 11 del Reglamento General del Instituto sobre Alcoholismo y Farmacodependencia, u otras leyes y reglamentos.
+f) La Junta Directiva realizará la designación de los cargos, de su seno, mediante votación secreta y por mayoría absoluta; su presidente ejercerá la representación legal, judicial y extrajudicial de la Institución, con facultades de apoderado generalísimo sin límite de suma.

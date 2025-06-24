@@ -1,0 +1,1 @@
+Artículo 14°-Periodicidad. La Junta se reunirá en sesión ordinaria una vez por semana y designará el día de sesión mediante acuerdo específico. Y extraordinariamente cuando se requiera o sea necesario.
