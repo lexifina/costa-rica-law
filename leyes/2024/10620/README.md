@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la república para el ejercicio económico 2025
 
-Ley N° 10620 del 2024-11-28. SINALEVI, ficha 103424: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=103424&param2=146318&param3=1>.
+Ley N° 10620 del 2024-11-28. SINALEVI, ficha 103424: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=103424&param2=146371&param3=1>.
 
 Publicada en La Gaceta N° 230 del 2024-12-06.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 20 | 2025-03-18 | Decreto Ejecutivo 44936 (2025-03-12) | 2025-03-12 |
 | 6 de 20 | 2025-05-14 | Decreto Ejecutivo 44984 (2025-05-12) | 2025-05-12 |
 | 7 de 20 | 2025-06-20 | Decreto Ejecutivo 45018 (2025-05-21) | 2025-05-21 |
+| 8 de 20 | 2025-06-24 | Decreto Ejecutivo 45044 (2025-06-12) | 2025-06-12 |
