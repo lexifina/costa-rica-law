@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2023-06-09 | la propia norma |
+| 2 | 2025-06-24 | Resolución 204 (2025-06-24) |
