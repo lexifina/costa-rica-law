@@ -1,0 +1,2 @@
+Artículo 2º-Reforma parcial del artículo 8. Se reforma parcialmente el artículo 8 del Reglamento de Control Interno de la Municipalidad de San Carlos, de forma que en adelante indique lo siguiente:
+n) Recibir, analizar y realizar las recomendaciones que sean necesarias sobre las denuncias derivadas de actos de fraude o corrupción que se reciban, y que tiendan a poner en riesgo la consecución de los objetivos y metas de la Municipalidad y del SCI.
