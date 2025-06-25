@@ -1,0 +1,4 @@
+CAPÍTULO III
+Asuntos externos y coordinación
+interinstitucional
+Artículo 10.-Solicitud de información por usuarios, instituciones públicas o privadas y trámite. Todas las solicitudes de información con respecto a la Gestión Vial por parte de usuarios externos, Instituciones Públicas o Privadas, deben presentarse por escrito dirigida al Alcalde Municipal, con el detalle de la información requerida, firmada por el interesado y la indicación del medio para recibir notificaciones. Este brindará una respuesta o lo remitirá a quien corresponda para que emita contestación en el plazo establecido por Ley.
