@@ -17,3 +17,4 @@ Reglamento del Concejo Municipal de Quepos
 | 2 | 2022-10-25 | Reglamento municipal 203 (2022-10-25) |
 | 3 | 2022-12-06 | Reglamento municipal 213 (2022-12-06) |
 | 4 | 2024-06-03 | Reglamento municipal 7 (2024-06-03) |
+| 5 | 2025-06-25 | Reglamento municipal 95 (2025-06-25) |
