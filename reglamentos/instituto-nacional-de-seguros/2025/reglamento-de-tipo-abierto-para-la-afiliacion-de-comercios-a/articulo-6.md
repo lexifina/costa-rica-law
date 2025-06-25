@@ -1,7 +1,0 @@
-Artículo 6. Aceptación del comercio afiliado.
-Una vez recibida la solicitud de afiliación, en un plazo máximo de cinco (5) días hábiles, el contratista revisará el cumplimiento de todos los requisitos establecidos por el INS.
-De requerir información adicional al comercio que solicita la afiliación, el Contratista deberá realizarlo en el plazo máximo de dos (2) días hábiles posterior a la presentación de la solicitud y brindará un plazo máximo de dos (2) días hábiles al comercio para que aporte lo requerido.
-Una vez que el Contratista determine que el comercio solicitante es apto para afiliarlo, deberá remitir la información correspondiente a la contraparte del INS, para que esta en el plazo máximo de cinco (5) días hábiles, emita cualquier consideración que imposibilite su afiliación. Si dentro del plazo dispuesto el INS no emite ninguna consideración, se entenderá que se encuentra satisfecho con el cumplimiento de los requisitos por parte del comercio solicitante.
-El contratista deberá brindar la resolución de aceptación o denegación dentro de un plazo máximo de dos (2) días hábiles posteriores al vencimiento del plazo para la emisión de consideraciones por parte del INS.
-Una vez notificada la afiliación al comercio, el contratista informará al INS en un plazo máximo de tres (3) días hábiles previo al inicio de la prestación del servicio por parte del Comercio Afiliado.
-El INS se reserva el derecho de revisar el cumplimiento de la documentación presentada por el comercio afiliado, en cualquier momento.

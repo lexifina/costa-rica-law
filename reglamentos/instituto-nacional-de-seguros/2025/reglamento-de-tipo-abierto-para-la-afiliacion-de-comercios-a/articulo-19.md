@@ -1,2 +1,0 @@
-Artículo 19. Cambio de razón social o fusión de comercios.
-La desafiliación del comercio afiliado no se extingue por la fusión, transformación o cambio de razón o denominación social de la sociedad o entidad desafiliada, cualquiera que sea su forma de constitución. En caso de fusión que dé origen a una nueva sociedad, o si la empresa desafiliada es absorbida por otra, los efectos de la desafiliación recaerán sobre la sociedad prevaleciente.
