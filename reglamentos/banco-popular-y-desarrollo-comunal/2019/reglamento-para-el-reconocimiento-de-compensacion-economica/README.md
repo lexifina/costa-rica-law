@@ -14,3 +14,4 @@ Reglamento para el reconocimiento de compensación económica por disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-09-05 | la propia norma |
+| 2 | 2025-06-25 | Reglamento 6222 (2025-06-25) |

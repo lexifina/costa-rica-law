@@ -1,2 +1,1 @@
-Artículo 21.-
-Las jefaturas deberán establecer roles de trabajo con la debida antelación para cubrir las necesidades de los diferentes puestos que gocen de esta condición, debiendo comunicarlo oportunamente a los funcionarios correspondientes.
+ARTÍCULO 21. Las jefaturas deberán establecer roles de trabajo con la debida antelación para cubrir las necesidades de los diferentes puestos que gocen de esta condición, debiendo comunicarlo oportunamente al personal correspondiente.

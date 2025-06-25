@@ -1,4 +1,2 @@
-CAPITULO IV
-ELIMINACION Y SUSPENSION DEL PAGO
-Artículo 15.-
-Previo debido proceso, se eliminará el pago por concepto de disponibilidad cuando el trabajador incumpla cualquiera de las obligaciones establecidas en este Reglamento, o cuando sin justa causa, no se presente con la prontitud debida ante el llamado del Banco.
+ARTÍCULO 15. Previo debido proceso, se dará audiencia a la persona trabajadora para que justifique o razone cuando incumpla cualquiera de las obligaciones establecidas en este Reglamento, o cuando sin justa causa, no se presente con la prontitud debida ante el llamado del Banco. De no comprobarse una justificación razonable al incumplimiento se eliminará el contrato de disponibilidad.
+Asimismo, se eliminará el pago por concepto de disponibilidad cuando la Dirección correspondiente no cuenta con el presupuesto o en cualquier momento en que se determine que ha dejado de existir la necesidad que le dio origen al contrato, de conformidad con lo establecido en el artículo 8 del presente Reglamento.

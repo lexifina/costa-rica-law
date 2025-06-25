@@ -1,2 +1,2 @@
-Artículo 9.-
-EI pago del servicio de disponibilidad lo recibirá el trabajador que esté ejerciendo el puesto al que, de acuerdo con lo que indica este Reglamento, se le aplique, ya sea al titular o a quien lo sustituya. El trabajador, al aceptar un puesto para el cual se requiere disponibilidad, estará sujeto a todas las disposiciones de este Reglamento y del contrato, previa aprobación de la instancia correspondiente.
+ARTÍCULO 9. El pago del servicio de disponibilidad lo recibirá la persona trabajadora que esté ejerciendo el puesto al que, de acuerdo con lo que indica este Reglamento, se le aplique, ya sea al titular o a quien lo sustituya.
+La persona trabajadora, al aceptar un puesto para el cual se requiere disponibilidad, estará sujeto a todas las disposiciones de este Reglamento y del contrato, previa aprobación de la instancia correspondiente.
