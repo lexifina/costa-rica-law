@@ -1,1 +1,1 @@
-Artículo 4°—Dependencia: La Comisión Técnica de Asuntos Jurídicos depende de la Junta Directiva Nacional y se apoya en el personal técnico que estime necesario.
+Artículo 4º-Dependencia: La Comisión Técnica de Asuntos Jurídicos depende de la Junta Directiva Nacional y se apoya en el personal técnico que estime necesario.
