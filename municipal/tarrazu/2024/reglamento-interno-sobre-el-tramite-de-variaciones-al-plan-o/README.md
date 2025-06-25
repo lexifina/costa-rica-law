@@ -14,3 +14,4 @@ Reglamento Interno sobre el trámite de variaciones al Plan Operativo Anual y al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-08-09 | la propia norma |
+| 2 | 2025-06-25 | Reglamento municipal 61 (2025-06-25) |
