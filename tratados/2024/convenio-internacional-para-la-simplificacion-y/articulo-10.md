@@ -1,0 +1,5 @@
+Aplicación del
+Convenio
+Artículo 10
+1. Toda Parte Contratante podrá, al momento de suscribir el presente Convenio sin reservas de ratificación o con la presentación de su instrumento de ratificación o de adhesión, o en cualquier momento luego de los mismos, declarar mediante una notificación cursada al depositario, que el presente Convenio se extenderá a todos o a algunos de los territorios de cuyas relaciones internacionales es responsable. La notificación mencionada tendrá vigencia tres meses luego de la fecha de recepción de la misma por parte del depositario. No obstante, el presente Convenio no se aplicará a los territorios mencionados en la notificación antes que el mismo haya entrado en vigencia para la Parte Contratante interesada.
+2. Toda Parte Contratante que hubiera realizado una notificación conforme al párrafo 1 del presente Artículo, informando que el presente Convenio se extendía a un territorio de cuyas relaciones internacionales sea responsable, podrá notificar al depositario, conforme a las condiciones establecidas en el Artículo 19 del presente Convenio, que el territorio mencionado cesará de aplicar el presente Convenio.
