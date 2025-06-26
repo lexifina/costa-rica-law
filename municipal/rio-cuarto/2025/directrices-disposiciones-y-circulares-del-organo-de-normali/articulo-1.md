@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE RÍO CUARTO
+DEPARTAMENTO DE CATASTRO Y VALORACIÓN
+Directrices, disposiciones y circulares del Órgano
+de Normalización Técnica (ONT) del Ministerio de Hacienda
+En atención al artículo 12 de la Ley N° 7509 "Ley de Impuesto sobre Bienes Inmuebles" y sus reformas y para conocimiento de los administrados, esta Municipalidad se apega a las Directrices y Circulares que fueron emitidas desde el año 2020 hasta el año 2024, por el Órgano de Normalización Técnica (ONT) del Ministerio de Hacienda, las cuales son las siguientes:
+a) Directrices, Año 2020, 03-20 Aclaración al Punto A de la Directriz 01-2019. Año 2021 01-21 Metodología Valoración Condominios. Año 2022, 01-2022 Tipos de vía en las plataformas de Valores de terreno por zonas homogéneas. Año 2024, 01-24 Control de calidad de los avalúos elaborados por las Municipalidades para efectos del Impuesto sobre Bienes Inmuebles.
+b) Circulares, Año 2020, 02-20 Vigencia Artículo 2 de la Ley N° 9848. 03-20 Exoneración del INVU del pago del Impuesto sobre Bienes Inmuebles ante Dictamen emitido por la Procuraduría General de la República. 0420 prohibición legal de solicitar certificaciones y otros documentos a los administrados para tramitar sus solicitudes de no afectación. Año 2021, 01-21 Criterio del SINAC sobre la exoneración de construcciones en Áreas Silvestres Protegidas, según Ley Forestal N° 7575. 02-21 No afectación del Impuesto sobre Bienes Inmuebles para las Asociaciones Cooperativas. 03- 21 Aplicación de la Ley N° 10026 al Impuesto sobre Bienes Inmuebles. Año 2022, 01-22 Exoneración del pago del Impuesto sobre Bienes Inmuebles para las Asociaciones Administradoras del Sistema de Acueductos y Alcantarillados Comunales-ASADAS. 02-22 Confirmación de lo expuesto en la Circular ONT- 004-2020 "Prohibición legal de solicitar certificaciones y otros documentos a los administrados para tramitar sus solicitudes de no afectación". Año 2023, 01-23 Conocimiento de apelación en contra de la imposición de la multa del artículo 17 de la Ley 7509.
+Fuente: Normativa Tributaria preparada por Órgano de Normalización Técnica, página web del Ministerio de Hacienda. www.hacienda.go.cr.
+-José Miguel Jiménez Araya, Alcalde Municipal. -
+Art. 12, Ley de ISBI indica:
+".Para pleno conocimiento de los sujetos pasivos, anualmente las municipalidades deberán publicar, en La Gaceta y en un diario de circulación nacional, los criterios y las disposiciones generales que dicte el Órgano de Normalización Técnica."
+Río Cuarto, Alajuela, 30 de mayo de 2025
