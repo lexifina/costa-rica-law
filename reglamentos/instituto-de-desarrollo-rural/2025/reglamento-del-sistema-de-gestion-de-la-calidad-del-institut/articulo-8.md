@@ -1,0 +1,6 @@
+Artículo 8. Naturaleza de los procesos
+La estructura funcional se representa gráficamente en el modelo de gestión por procesos, donde se clasifica según la naturaleza de sus propósitos en:
+a) Procesos Estratégicos: Definen, desarrollan, implantan y despliegan las estrategias y objetivos de la institución; son procesos genéricos, comunes y afectan a la mayor parte de la organización; suelen referir a leyes, reglamentaciones y normativas.
+Intervienen en la formulación de la visión institucional y proporcionan directrices a los demás procesos.
+b) Procesos Sustantivos: También conocidos como procesos primarios, son los que añaden valor a los bienes y servicios ofrecidos a la persona usuaria o inciden directamente en su satisfacción. Los procesos sustantivos representan la razón de ser de la institución, y afectan de modo directo la prestación del producto (bien o servicio) y por tanto a la satisfacción de la persona usuaria.
+c) Procesos de Apoyo: Permiten la operación de las actividades de soporte para la institución. Estos procesos tienen como misión apoyar a uno o más procesos sustantivos. Normalmente están relacionados con requisitos de las normas que establecen modelos de gestión. Estos procesos no intervienen en la visión ni en la misión de la institución.

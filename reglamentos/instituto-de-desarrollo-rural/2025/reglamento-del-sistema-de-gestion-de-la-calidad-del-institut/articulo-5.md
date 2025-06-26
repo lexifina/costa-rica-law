@@ -1,0 +1,2 @@
+Artículo 5. Propósito de la Gestión de la Calidad
+Establecer regulaciones claras y estandarizar los métodos de trabajo para determinar indicadores y métricas de desempeño, con la finalidad de identificar oportunidades de mejora e implementarlas, verificar su efectividad en el tiempo, asegurar la satisfacción de las personas beneficiarias y garantizar el cumplimiento de los requisitos legales y reglamentarios aplicables, y gestionar eficazmente los riesgos y oportunidades que puedan afectar el logro de los objetivos institucionales.

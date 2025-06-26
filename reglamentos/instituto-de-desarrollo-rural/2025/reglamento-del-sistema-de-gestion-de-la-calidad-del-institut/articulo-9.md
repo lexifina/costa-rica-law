@@ -1,0 +1,5 @@
+Artículo 9. Liderazgo de los Procesos
+Los Líderes de Procesos serán nombrados por puestos, designados por la Presidencia Ejecutiva, tomando en cuenta las funciones, responsabilidades y competencias de las unidades administrativas y puestos de trabajo definidos en la estructura orgánica y ocupacional del instituto.
+Estos puestos deben estar ubicados en el nivel central de la institución y poseer la autoridad jerárquica y la competencia técnica requeridas para dirigir y coordinar los procesos bajo su responsabilidad.
+Los líderes de procesos tomarán decisiones en el ámbito de sus competencias, según lo estipulado en este reglamento. Además, coordinarán con otras unidades y líderes de procesos para asegurar la adecuada interrelación y funcionamiento de los procesos institucionales.
+En caso de que el puesto designado se encuentre vacante o la persona funcionaria que lo ocupa no esté habilitada por causa fortuita para ejercer las competencias asignadas en este reglamento, la Presidencia Ejecutiva podrá designar a una persona funcionaria para suplirlo de forma temporal hasta que se designe un nuevo líder de proceso o se restablezca el titular.

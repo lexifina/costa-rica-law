@@ -1,0 +1,7 @@
+CAPÍTULO V
+FUNCIONAMIENTO DEL SISTEMA DE GESTIÓN DE LA CALIDAD
+Artículo 14. Trámites administrativos del SGC
+Todo trámite administrativo del SGC iniciará con la identificación, validación y atención de incidencias de calidad. Las incidencias validadas por la Secretaría Técnica estarán documentadas en un expediente administrativo según lo estipulado en la NORMA TÉCNICA NACIONAL vigente que contenga los "Lineamientos para la conformación de expedientes administrativos".
+El expediente administrativo será conformado por la Secretaría Técnica, y por tanto, todas las personas funcionarias, unidades administrativas y órganos que participen en el proceso de atención de la incidencia tienen la obligación de remitir los documentos que se generen a la Secretaría Técnica para su incorporación y conservación al expediente administrativo.
+Todo acto administrativo dentro de cada trámite del SGC deberá plasmarse por escrito y deberá indicar la fecha de emisión, el órgano agente (la unidad administrativa que produce el documento), el derecho aplicable, la disposición, la firma y el cargo del suscriptor, de acuerdo con lo estipulado en el artículo 134 de la Ley General de la Administración Pública.
+El expediente administrativo estará en custodia de la Secretaría Técnica durante 5 años contados a partir de la finalización del trámite, y posteriormente pasará a custodia final del Centro de Gestión Documental.
