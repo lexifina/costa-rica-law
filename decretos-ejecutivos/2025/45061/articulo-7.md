@@ -1,0 +1,3 @@
+Artículo 7°-. Estructura organizativa de la DC. Para el cumplimiento de sus fines, estratégicos, operativos y técnicos, la Dirección de Ciberseguridad del Micitt tendrá bajo su dependencia el Departamento Centro de Respuesta a Incidentes de Ciberseguridad (CSIRT-CR), y el Departamento Centro de Operaciones de Ciberseguridad (SOC-CR), cuyos objetivos y fines se detallarán.
+El proceso de gestión administrativa y técnica del CSIRT-CR y del SOC-CR estará a cargo de la Dirección de Ciberseguridad del Micitt.
+El funcionamiento, objetivos específicos, atribuciones internas y procedimientos de coordinación del CSIRT-CR y del SOC-CR serán definidos por la DC, y aprobados por la persona jerarca Institucional, en concordancia con los estándares internacionales vigentes.

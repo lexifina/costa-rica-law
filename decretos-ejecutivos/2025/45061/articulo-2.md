@@ -1,0 +1,6 @@
+Artículo 2º-. Definiciones. Para efectos de aplicación de este reglamento se establecen las siguientes definiciones:
+a) Resiliencia cibernética: es la capacidad de una organización para anticiparse, resistir, responder y recuperarse eficazmente de incidentes cibernéticos, asegurando la continuidad operativa y minimizando el impacto negativo sobre sus activos digitales y procesos críticos.
+b) Gobernanza de ciberseguridad: es el conjunto de procesos, políticas, estructuras organizativas y mecanismos establecidos para dirigir, controlar y evaluar la gestión de la ciberseguridad dentro de una organización, con el propósito de proteger sus activos digitales, gestionar los riesgos cibernéticos, asegurar el cumplimiento normativo y apoyar los objetivos estratégicos institucionales.
+c) Incidente de ciberseguridad: Cualquier suceso que afecte o tenga un impacto negativo o comprometa la confidencialidad, integridad y disponibilidad de los activos de información de las organizaciones. Ejemplos: ataques cibernéticos.
+d) Vulnerabilidad de seguridad: Debilidad o fallo de un sistema que puede ser aprovechado con fines maliciosos.
+e) Evento de seguridad: Cualquier suceso u ocurrencia observable en un sistema, red o activo o dispositivo tecnológico.

@@ -1,0 +1,8 @@
+Artículo 13°-. Declaratoria de interés público. Se declaran de interés público todas las acciones, proyectos institucionales orientados al fortalecimiento de la ciberseguridad, la resiliencia cibernética y la protección de la infraestructura digital del país, tanto en el ámbito público como privado.
+En virtud de dicha declaratoria, las entidades públicas y privadas quedan autorizadas, para que, dentro de su disponibilidad presupuestaria y en observancia al marco legal respectivo, apoyen las labores que realice el Micitt en materia de ciberseguridad, a través de:
+1. La participación en mesas técnicas, redes sectoriales, grupos de trabajo, ejercicios de simulación y espacios de coordinación operativa liderados por la Dirección de Ciberseguridad (DC).
+2. El intercambio responsable de información técnica, gestión proactiva de amenazas, buenas prácticas y experiencias que fortalezcan el ecosistema nacional de ciberseguridad.
+3. El desarrollo conjunto de investigaciones, tecnologías, mecanismos de detección temprana o herramientas de gestión de incidentes.
+4. El apoyo logístico, técnico o financiero a programas de capacitación, campañas de concientización, fortalecimiento institucional o adquisición de infraestructura crítica, cuando ello sea posible conforme al marco jurídico aplicable.
+5. Y todas las acciones de fortalecimiento de la ciberseguridad que el marco normativo permita.
+Toda colaboración deberá garantizar el respeto a la soberanía nacional, la protección de datos personales, los derechos fundamentales, y los principios de legalidad, transparencia, proporcionalidad y responsabilidad institucional.

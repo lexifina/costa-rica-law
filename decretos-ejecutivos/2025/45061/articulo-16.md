@@ -1,0 +1,1 @@
+Artículo 16°-. Derogatorias. Se deroga el Decreto Ejecutivo N.° 37052-MICIT "Crea Centro de Respuesta de Incidentes de Seguridad Informática CSIRT-CR" del 9 de marzo de 2012, publicado en el Diario Oficial La Gaceta N.° 72 del 13 de abril de 2012".
