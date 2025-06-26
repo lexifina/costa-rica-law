@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo No. 41742-S del 05 de diciembre del 2018 "Oficialización y declaratoria de interés público y nacional la Norma para la Habilitación de Laboratorios de Microbiología y Química Clínica".
