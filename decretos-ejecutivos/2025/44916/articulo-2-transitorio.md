@@ -1,0 +1,1 @@
+Transitorio II.- Las residencias permanentes o temporales para personas con discapacidad que al momento de la entrada en vigor de la presente norma posean una población mayor a doce (12) personas usuarias, disponen de un plazo de dos años a partir de la entrada en vigor de esta norma para reducir su población al máximo permitido.

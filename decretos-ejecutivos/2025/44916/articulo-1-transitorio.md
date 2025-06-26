@@ -1,0 +1,1 @@
+Transitorio I.- Las residencias permanentes o temporales para personas con discapacidad que obtuvieron un permiso de habilitación antes de la entrada en rigor del presente decreto pueden mantener dicho permiso por el tiempo que les fue extendido, debiendo adaptar las condiciones de su establecimiento a las disposiciones de este decreto previo a renovar el permiso.
