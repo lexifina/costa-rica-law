@@ -1,0 +1,1 @@
+Artículo 2. Alcance: El presente Reglamento es de acatamiento obligatorio para las personas servidoras judiciales del Departamento de Seguridad, y personal de seguridad de las Administraciones Regionales del territorio nacional.

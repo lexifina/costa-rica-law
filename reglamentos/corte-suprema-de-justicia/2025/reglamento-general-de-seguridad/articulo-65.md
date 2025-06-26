@@ -1,0 +1,4 @@
+Artículo 65: Armas del Poder Judicial. La Institución dispondrá en su arsenal de dos tipos de armamento para la protección de sus intereses según las siguientes definiciones.
+a) Se utilizarán armas defensivas no letales como bastones policiales, gases irritantes, chuzos o pistolas eléctricas como medio alterno de protección a las armas de fuego y cualquier otros dispositivo o mecanismo a futuro que sea autorizado en el país por las autoridades correspondientes y que se considere adecuado para mejorar la protección dentro del Poder Judicial.
+b) Las armas letales, o armas de fuego son el último recurso disponible para los cuerpos de seguridad. Su uso se ajustará a las reglas de la legítima defensa y a las obligaciones definidas para los cuerpos de seguridad. Se utilizará tanto revolver 38 spl como pistolas 9 mm, con munición permitida en el país para ambos casos.
+Las armas punzantes, punzocortantes o cortantes, no forman parte del arsenal del Poder Judicial.

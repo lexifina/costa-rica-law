@@ -1,0 +1,2 @@
+Artículo 67: Del tipo de armamento utilizado: El Departamento de Seguridad del Poder Judicial, utilizará como armas de fuego autorizadas para la protección de la seguridad institucional, los revólveres y pistolas en los calibres y con la munición permitidos por la Ley General de Armas y Explosivos.
+No se permitirá el uso de armas largas ni de repetición, calibres mayores a los establecidos en la ley o poder de fuego superior al descrito.

@@ -1,0 +1,3 @@
+CAPITULO VII
+DE LA RELACIÓN FUNCIONAL DEL DEPARTAMENTO DE SEGURIDAD CON LAS ADMINISTRACIONES REGIONALES Y OTRAS DEPENDENCIAS DEL PODER JUDICIAL
+Artículo 71: Del Recurso Humano interno de seguridad: Los oficiales de seguridad internos de las Administraciones Regionales, serán seleccionados por el Administrador o Administradora de la Región, que así lo requiera, según la lista del personal que se encuentra con la condición de elegible, propuesta por la Dirección de Gestión Humana. No obstante, el Departamento de Seguridad como unidad especializada estará en la mayor disposición de colaborar con las entrevistas u otros aspectos que en coordinación con el administrador o administradora regional requiera para tomar la mejor decisión.

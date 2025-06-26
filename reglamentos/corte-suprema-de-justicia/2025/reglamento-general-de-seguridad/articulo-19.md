@@ -1,0 +1,1 @@
+Artículo 19: Ingreso de Miembros Directivos de los Sindicatos: Los dirigentes de las Asociaciones Sindicales del Poder Judicial, tendrán libre acceso a las zonas comunes de la Institución en el horario hábil de lunes a viernes en cumplimiento de sus funciones o cuando deban atender el llamado de sus agremiados.

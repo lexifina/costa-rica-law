@@ -1,0 +1,2 @@
+Sección Tercera
+Artículo 58: Medios de Protección Operativa o Humana. El Departamento de Seguridad del Poder Judicial dispondrá del recurso humano, propio o contratado a un tercero, necesario para operar los elementos físicos, tecnológicos o electrónicos y los procedimientos o controles debidamente aprobados para la protección de las servidoras y servidores judiciales, así como los bienes muebles e inmuebles bajo su responsabilidad.

@@ -1,0 +1,2 @@
+Artículo 54: Del teléfono de emergencia: el Poder Judicial dispondrá del número de atención de emergencias 123 y el 2295-3911, ubicados en el Centro de Operaciones de Seguridad Electrónica, y que estará al servicio de las servidoras y servidores judiciales. Funcionará las veinticuatro horas del día durante todo el año, y el personal colaborará con las emergencias que se reporten y/o presenten dentro de la Institución, o quienes desarrollen sus funciones fuera de la Institución.
+El mal uso o abuso de este recurso será considerado como falta y será reportado según corresponda.

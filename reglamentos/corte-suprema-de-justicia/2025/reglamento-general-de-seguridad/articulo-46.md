@@ -1,0 +1,1 @@
+Artículo 46: Del ingreso de particulares: Los particulares que deban ingresar a las áreas restringidas deben estar debidamente autorizados por la jefatura superior a cargo del área que visitan y deben ser acompañados por una servidora o servidor judicial.

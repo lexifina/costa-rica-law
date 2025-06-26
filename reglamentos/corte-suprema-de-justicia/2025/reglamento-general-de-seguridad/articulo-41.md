@@ -1,0 +1,2 @@
+Artículo 41: Del ingreso de vehículos particulares a los edificios del Poder Judicial.
+Si se trata de vehículos particulares, para la carga o descarga de equipos u otros, la solicitud de ingreso deberá ser remitida por la jefatura superior del despacho que lo requiere, y deberá indicar el número placa del vehículo, nombre de los ocupantes, números de cédula y el motivo de su ingreso. El Departamento de Seguridad definirá el procedimiento y controles a utilizar según las circunstancias y condiciones de cada edificio y a los medios tecnológicos con los cuales se cuente.

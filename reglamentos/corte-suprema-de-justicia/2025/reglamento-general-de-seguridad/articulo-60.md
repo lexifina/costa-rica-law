@@ -1,0 +1,2 @@
+Artículo 60: Del Recurso Humano: El diseño del dispositivo de protección de seguridad indispensable para brindar el servicio de vigilancia, será el que utilice y defina el Departamento de Seguridad del Poder Judicial, en donde se indicará la cantidad, las funciones, los horarios y el tipo de recurso requerido, el cual puede ser interno o bien contratado para la operación de la estación de seguridad o área por atender.
+Sin embargo, dispondrá de las acciones necesarias para que el personal referido sea el mejor calificado para cada una de las funciones definidas.

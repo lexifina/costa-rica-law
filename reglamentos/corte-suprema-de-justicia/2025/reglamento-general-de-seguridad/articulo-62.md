@@ -1,0 +1,1 @@
+Artículo 62: Del Manual de Puestos y Procedimientos: Para cada estación de seguridad permanente, existirá un manual descriptivo de las funciones específicas y de procedimientos propios del puesto, el cual deberá mantenerse actualizado para consulta constante del oficial y entrenamiento básico de los oficiales de nuevo ingreso.

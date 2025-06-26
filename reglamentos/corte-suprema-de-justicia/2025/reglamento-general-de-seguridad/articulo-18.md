@@ -1,0 +1,1 @@
+Artículo 18: Autorizaciones de ingreso especiales por periodos definidos: Las Jefaturas de Sección, Departamento o el superior inmediato de cada despacho podrán autorizar el ingreso de las servidoras y servidores judiciales a su cargo fuera del horario de trabajo designado por Gestión Humana, debido a las funciones que éstos cumplen y que ameriten tal disposición.

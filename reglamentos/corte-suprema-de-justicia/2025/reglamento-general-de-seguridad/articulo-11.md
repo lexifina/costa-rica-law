@@ -1,0 +1,1 @@
+Artículo 11: Auxiliares de Seguridad: Corresponde al Departamento de Seguridad los análisis, valoración y los estudios de riesgo que corresponden para recomendar a las instancias superiores la necesidad de crear un puesto de auxiliar de seguridad, con la finalidad de mejorar los controles de acceso y servicios de vigilancia para los diferentes despachos judiciales del país.

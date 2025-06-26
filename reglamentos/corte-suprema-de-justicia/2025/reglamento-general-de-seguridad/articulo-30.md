@@ -1,0 +1,1 @@
+Artículo 30: De los bienes muebles de Empresas: Para el caso de empresas que brindan servicio de mantenimiento o desarrollo de proyectos dentro del Poder Judicial, se utilizará como documento de verificación la lista de herramientas presentada por la empresa a su ingreso.

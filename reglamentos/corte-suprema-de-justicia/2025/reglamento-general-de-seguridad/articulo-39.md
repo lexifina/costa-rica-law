@@ -1,0 +1,2 @@
+Sección Cuarta
+Artículo 39: INGRESO DE VEHÍCULOS: Del ingreso de vehículos de servidoras y servidores judiciales en horas y días hábiles: Corresponde al personal de seguridad ubicado en las estaciones de trabajo de ingreso a los parqueos acatar las disposiciones emitidas por las administraciones regionales correspondientes o bien la Dirección Ejecutiva en el caso de los edificios de La Corte Suprema de Justicia y el Organismo de Investigación Judicial en San José.

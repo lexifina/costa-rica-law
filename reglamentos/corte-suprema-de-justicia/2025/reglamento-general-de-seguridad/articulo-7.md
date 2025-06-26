@@ -1,0 +1,1 @@
+Artículo 7: Estructura Organizacional: El Departamento de Seguridad forma parte de las dependencias que integran el organigrama y que responden directamente a la Dirección Ejecutiva del Poder Judicial, su estructura interna se basa en la planificación del trabajo y las responsabilidades que le son asignadas desde una perspectiva administrativa, técnica y operativa.

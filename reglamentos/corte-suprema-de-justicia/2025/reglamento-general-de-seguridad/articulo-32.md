@@ -1,0 +1,1 @@
+Artículo 32: Del ingreso de maletines y otros: El oficial de Seguridad de la estación correspondiente está en la obligación de revisar por medio de los equipos electrónicos ubicados en los ingresos de los edificios todo paquete, maletín, bolso o empaque de cualquier género que ingrese a la Institución, sea propiedad de las personas usuarias o visitantes.

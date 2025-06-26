@@ -1,0 +1,2 @@
+Artículo 59: Custodias y servicios especiales: Se ofrecerán custodias o refuerzo de la seguridad del inmueble, cuando se requiera la presencia de personal de seguridad adicional durante la celebración o desarrollo de actividades o procesos que requieran de una mayor protección.
+Éstas se consideran actividades adicionales a los medios de protección rutinarios y por tanto deberán, en la medida de lo posible, ser solicitadas y coordinarse con anterioridad con el Departamento de Seguridad.

@@ -1,0 +1,1 @@
+Artículo 35: Obligación de portar el carné de identificación: Todo funcionario del Poder Judicial, está en la obligación de portar el carné en forma visible para su identificación durante todo el tiempo que permanezca dentro de las instalaciones del Poder Judicial.

@@ -1,0 +1,2 @@
+Artículo 61. De la capacitación especializada. Tratándose de oficiales de seguridad, el Poder Judicial se asegurará que esté en capacidad legal y cognitiva de operar los instrumentos y procedimientos asignados para el ejercicio de sus funciones.
+Para el caso de manejo de armas de fuego y de armas no letales, deberá definirse un plan de entrenamiento constante en coordinación con el subproceso de capacitación de la Dirección de Gestión Humana, que consolide la fiabilidad y manejo seguro de los elementos de defensa mencionados.

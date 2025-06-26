@@ -1,0 +1,1 @@
+Artículo 82: Las sanciones que se puedan imponer a los servidores del Departamento de Seguridad, por las faltas cometidas en el ejercicio del cargo se tramitarán con acuerdo a lo dispuesto en los artículos 195 al 215 de la Ley Orgánica del Poder Judicial.

@@ -1,0 +1,1 @@
+Artículo 28: Del control de órdenes de salida y reingreso de bienes muebles: Es obligación del oficial de seguridad de la estación correspondiente, ejecutar las acciones de control y registro de los bienes muebles que ingresan y salen de los edificios en cumplimiento al procedimiento establecido por el Departamento de Seguridad.

@@ -1,0 +1,1 @@
+Artículo 31: De la salida de bienes muebles de funcionarios: Cuando se trate de bienes propiedad de funcionarios deberán ser reportados en la estación de seguridad quien verificará que el mismo no tenga activo institucional y que porte un oficio en donde la jefatura del despacho da fe que la persona que lo retira es su propietario.

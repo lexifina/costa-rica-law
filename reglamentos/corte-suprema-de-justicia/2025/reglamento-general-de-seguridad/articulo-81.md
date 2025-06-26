@@ -1,0 +1,1 @@
+Artículo 81: Las faltas cometidas por las servidoras y servidores del Departamento de Seguridad, se considerarán y clasificarán con acuerdo a lo dispuesto por los artículos 190 al 194 de la Ley Orgánica del Poder Judicial.

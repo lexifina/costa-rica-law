@@ -1,0 +1,1 @@
+Artículo 29: Salida de bienes muebles en días inhábiles: En casos debidamente justificados en días o horas inhábiles, la salida de bienes podrá ser autorizada por la persona supervisora de Seguridad, siguiendo los preceptos de los artículos 27 y 28 del presente cuerpo normativo.

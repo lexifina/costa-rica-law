@@ -1,0 +1,1 @@
+Artículo 22: Ingreso de personas usuarias o visitantes fuera del horario de atención de público. Cuando se autorice el ingreso fuera del horario de atención normal de público, la Jefatura de la oficina visitada, deberá comunicarlo a la estación de seguridad correspondiente.

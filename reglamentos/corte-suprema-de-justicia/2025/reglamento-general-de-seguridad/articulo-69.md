@@ -1,0 +1,1 @@
+Artículo 69: Variación de la composición del arsenal. La adquisición de tipos diferentes de armamentos, o la variación de la composición del arsenal, estará sujeta al criterio técnico del responsable de la Seguridad Institucional, en donde se establezcan claramente las razones que motivan tal variación.

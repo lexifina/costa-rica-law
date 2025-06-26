@@ -1,0 +1,1 @@
+Artículo 47: De los procedimientos de ingreso. Los auxiliares de seguridad designados para atender los controles de acceso a los edificios deberán cumplir con los procedimientos establecidos de revisión y vigilancia tendientes a minimizar los riesgos a lo interno de las edificaciones.
