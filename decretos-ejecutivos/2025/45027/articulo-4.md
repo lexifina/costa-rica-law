@@ -1,0 +1,1 @@
+Artículo 4.- Le corresponde a la Administración Tributaria controlar y fiscalizar el correcto cumplimiento de las obligaciones tributarias de la asociación, de confo1midad con lo establecido en los artículos 103 y 104 del Código de Normas y Procedimientos Tributarios.

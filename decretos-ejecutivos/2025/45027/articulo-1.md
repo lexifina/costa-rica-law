@@ -1,0 +1,13 @@
+Nº 45027-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones Nº 29496-J, publicado en La Gaceta Nº 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley de Impuesto sobre la Renta N º 7092 y en los artículos 103 y 104 de Código de Normas y Procedimientos Tributarios Nº 4755.
+CONSIDERANDO
+I. Que el artículo 32 de la Ley de Asociaciones Nº 218 de 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la Asociación Virgen de los Ángeles para niños y Ancianos ASVANA, cédula de persona jurídica número 3-002-338388, se inscribió en el Registro de Asociaciones del Registro Público Nacional desde el día 19 de abril del 2002 al tomo 505, asiento 4780.
+III. Que los fines que persigue la Asociación, según sus estatutos son: "(. . .) a) Promover el desarrollo integral y dar una atención personalizada a los niños, jóvenes y ancianos de escasos recursos y sus familias apoyándoles en educación, salud. nutrición. formación humana, capacitación, recreación y creando pequeñas comunidades de compasión solidaria entre las familias beneficiarias de sus programas. crear relaciones de mutuo respeto y apoyo entre cada persona apadrinada y su padrino. b) .. Promover. organizar y ejecutar programas de beneficio comunal. Estimular el desarrollo de las actividades artísticas, deportivas. espirituales, intelectuales y profesionales· de los y las apadrinadas d) Defender el precepto constitucional que señala que toda persona tiene derecho a un ambiente sano ecológicamente equilibrado: e) Apoyar en la divulgación de los valores culturales, históricos, cívicos y sociales, j) Estimular" la participación ciudadana en la consecución de un desarrollo sostenible (. . .)".
+IV. Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense.
+POR TANTO
+DECRETAN DECLARATORIA DE UTILIDAD PÚBLICA DE LA
+ASOCIACIÓN VIRGEN DE LOS ÁNGELES PARA NIÑOS Y ANCIANOS ASVANA
+Artículo 1.- Declárese de utilidad pública para los intereses del Estado la Asociación Virgen de los Ángeles para Niños y Ancianos ASV ANA, cédula de persona jurídica número 3-002-338388.
