@@ -1,0 +1,1 @@
+Artículo 9. Deróguense la Circular N° AGRH-CIR-003-2022 del 23 de noviembre del 2022, el inciso 11.16 del artículo 11 de la Resolución N° DG-RES-64-2023 del 16 de mayo de 2023, el artículo 4 de la Resolución N° DG-RES-150-2023 del 28 de noviembre de 2023 y el artículo 35 de la resolución DG-RES-148-2025 del 9 de mayo de 2025.

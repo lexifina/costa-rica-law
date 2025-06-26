@@ -1,0 +1,9 @@
+Artículo 3. Los nombramientos interinos en puestos del RSC únicamente podrán efectuarse cuando:
+3.1. Un puesto quede vacante, mientras se efectúa el nombramiento de una persona en condición titular mediante alguno de los siguientes procesos:
+3.1.1. Concurso interno.
+3.1.2. Concurso interno ampliado.
+3.1.3. Pedimento de nómina a la DGSC, de conformidad con el artículo 26 del ESC, excepcionalmente se podrá nombrar un interino previa remisión del pedimento de personal, confirmación de inexistencia de registro de elegibles y aval del Área de Reclutamiento y Selección de Personal de la DGSC en casos debidamente razonados y exista riesgo de comprometer el servicio público. El artículo 26 del ESC no es de aplicación para otros supuestos.
+En los casos en los que se autorice nombramiento interino, ese no interrumpirá ni alterará el proceso conducente a la remisión de la nómina para el nombramiento propietario ni su resolución a nivel de la institución.
+3.1.4. Cuando se requiera realizar un concurso externo para la ocupación de un puesto comprendido en los alcances de lo dispuesto en el penúltimo párrafo del artículo 15 del RESC, conforme con separación de clases que para estos efectos se mantenga determinada, la Administración de la respectiva institución valorará y decidirá la pertinencia de efectuar un nombramiento interino mientras se realiza el nombramiento en propiedad en el mismo puesto.
+3.2. Se requiera sustituir una persona servidora regular por haberse suspendido temporalmente la relación de servicio y no medie goce de salario.
+El nombramiento interino deberá efectuarse con apego a lo dispuesto en esta resolución y garantizando que la persona a nombrar cumpla con los requisitos para la clase, especialidad y subespecialidad del puesto en el cual se efectuará el nombramiento, así como los demás dispuestos en el artículo 9 del RESC y cualquier otro establecido para ese nombramiento.

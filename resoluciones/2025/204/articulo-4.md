@@ -1,0 +1,1 @@
+Artículo 4. En el supuesto indicado en el inciso 3.1.1, la Administración podrá nombrar en condición interina, a una persona servidora que mantenga una relación de empleo público en la institución que realice el concurso interno.

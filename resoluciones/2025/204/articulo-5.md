@@ -1,0 +1,1 @@
+Artículo 5. En el supuesto indicado en el inciso 3.1.2, la Administración podrá nombrar en condición interina, a una persona servidora que mantenga una relación de empleo público, sea de la institución en la cual se realiza el concurso o en las instituciones del RSC a las cuales se decida ampliar el concurso.
