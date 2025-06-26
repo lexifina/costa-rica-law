@@ -1,0 +1,6 @@
+Artículo 37 - Pago anticipado:
+Podrán convenirse pagos por anticipado, siempre que sea previamente establecido en el pliego de condiciones, en cuyo caso la Municipalidad valorará efectuarlos, de conformidad con su disponibilidad financiera y para lo cual el adjudicatario debe entregar una garantía real y colateral a favor de la Municipalidad por el monto que se anticipa, y siempre que se cumplan los requisitos establecidos por la LGCP y su reglamento.
+La suma por anticipar será resuelta por la Alcaldía Municipal o el Concejo Municipal, según quien hubiere adjudicado, previo a contar con lo siguiente:
+a) Criterio de la Dirección Administrativa Financiera de poseer el flujo de caja respectivo,
+b) Se cuente con constancia de tenerse recibida en la Tesorería Municipal la garantía colateral emitida en favor de la contratista, la cual será ejecutada conforme lo defina la entidad bancaria que rinde la garantía y en caso de incumplimiento por el adjudicatario.
+c) Criterio del Departamento de Proveeduría, que recomiende el monto por anticipar, y que verifique el cumplimiento de los requisitos definidos por la Ley General de Contratación Pública y su reglamento, para conceder este tipo de anticipos.

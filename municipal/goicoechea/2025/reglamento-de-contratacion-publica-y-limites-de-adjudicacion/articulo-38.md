@@ -1,0 +1,2 @@
+Artículo 38 - Pago por avance de obra:
+La Municipalidad debe definir en el pliego de condiciones la opción de pago por avance de obra, la cual debe ser autorizada por el administrador del contrato según el cronograma de pagos y las actividades por cubrir para tal efecto, siendo responsabilidad de quien autoriza que el avance se ajuste a la programación que se avala para efectos de ejecución de obra y pagos.

@@ -1,0 +1,3 @@
+Artículo 25 - Garantía de Cumplimiento:
+La Proveeduría solicitará siempre en las licitaciones mayor y menor y facultativamente para la licitación reducida, una garantía de cumplimiento de entre un cinco por ciento (5%) y un diez por ciento (10%) del monto adjudicado, lo cual se definirá en el pliego de condiciones, indicando el plazo para presentarlo y las consecuencias de no cumplir el mismo en el plazo dispuesto. Además de lo indicado sobre el porcentaje de garantía de cumplimiento, la Administración se reserva el derecho de definir que la garantía de cumplimiento sea un monto fijo, según el tipo de procedimiento ordinario por ejecutar, debiendo así indicarlo en el pliego de
+condiciones.

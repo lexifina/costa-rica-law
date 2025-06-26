@@ -1,0 +1,2 @@
+Artículo 30 - Plazo y prórrogas del contrato:
+El plazo ordinario del contrato no podrá superar el término de cuatro años, considerando el plazo original y sus prórrogas. En casos excepcionales, en atención a las particularidades del objeto contractual o la modalidad de contratación en las que se requiera de un mayor plazo para recuperar la inversión, podrá recurrirse a vigencias contractuales superiores a dicho plazo máximo, siempre y cuando se cumpla con los supuestos establecidos en el artículo 104 de la Ley.

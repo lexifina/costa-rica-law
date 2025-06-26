@@ -1,0 +1,2 @@
+Artículo 43 - Derogatorias:
+El presente reglamento deroga el Reglamento de Compras de la Municipalidad de Goicoechea, aprobado en Sesión Ordinaria 68-1998 del 3 de agosto de 1998 y publicado en el Diario Oficial La Gaceta, n º 159 del 17 de agosto de 1998, así como las modificaciones que sobre dicho reglamento hubieren operado; dejándose sin efecto, además, cualquier normativa interna o procedimiento emitido anteriormente que se oponga a la nueva normativa reglamentaria.

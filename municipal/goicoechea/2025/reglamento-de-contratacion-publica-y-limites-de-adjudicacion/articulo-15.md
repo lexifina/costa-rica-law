@@ -1,0 +1,10 @@
+CAPÍTULO IV - COM PETENCIAS
+Artículo 15 -Competencia para autorizar:
+La decisión inicial para tramitar un procedimiento ordinario de contratación pública debe ser tramitada por los Directores y Jefes Departamento y Sección, así como, por acuerdo del Concejo Municipal, en cuyo caso se tramitará por la persona titular de la Jefatura del Departamento de Secretaría, conforme la normativa vigente, tanto legal como administrativa.
+Lo anterior incluye Licitación Reducidas, Licitación Menor y Licitación Mayor, así como, las compras realizadas con fondos de caja chica que sean indispensables e impostergables, siempre y cuando no excedan el diez por ciento (10%) del monto fijado para la licitación reducida; se entenderá que esta excepción resulta aplicable únicamente para la contratación de bienes, obras o servicios, cuya solución sea impostergable y que no corresponda a gastos que sean susceptibles de ser planificados o bien, que la adquisición que se pretende, no resulte más onerosa que el procedimiento ordinario de contratación a realizar, debiendo acreditarse el costo beneficio para la Administración, siempre y cuando no haya fragmentación. Con la autorización de la persona que ejerza la Alcaldía se tramitará por los Directores, Jefes Departamento y Sección, lo procedimientos de excepción con su debida justificación técnica:
+a. Licitaciones con proveedor único.
+b. La contratación de bienes o servicios artísticos, culturales e intelectuales, que por su naturaleza intuitu personae y/o especialidad, sean incompatibles con los procedimientos ordinarios establecidos en la LGCP, o su contratación no sea posible llevarla a cabo mediante un registro precalificado de oferentes.
+c. Contratación de medios de comunicación social vinculados con la gestión institucional.
+d. Reparaciones indeterminadas en los supuestos en los que para determinar los alcances de la reparación sea necesario el desarme de la maquinaria, los equipos o los vehículos.
+e. Contratación de capacitación abierta.
+f. El patrocinio.

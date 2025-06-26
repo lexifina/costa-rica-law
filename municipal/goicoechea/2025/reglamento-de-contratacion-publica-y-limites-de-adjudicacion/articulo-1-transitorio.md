@@ -1,0 +1,1 @@
+Transitorio 1: Los procedimientos de contratación y contratos iniciados antes de la vigencia de la Ley 9986, se desarrollarán y concluirán conforme las disposiciones vigentes al momento de adaptarse la decisión inicial del concurso.

@@ -1,0 +1,2 @@
+Artículo 18 - Criterio técnico:
+El administrador del contrato y la jefatura inmediata emitirán el criterio técnico en los siguientes plazos máximos: tres días hábiles para las que por monto correspondan a una licitación reducida, cuatro días hábiles para las que por monto correspondan a una licitación menor, y cinco días hábiles para las que por monto corresponden a una licitación mayor, previa solicitud de la Proveeduría.

@@ -1,0 +1,2 @@
+Artículo 12 - Estudio o sondeo de mercado y estimación:
+Para definir la estimación de la contratación, determinar la existencia de potenciales oferentes y obtener los precios de referencia, debe elaborarse el estudio de mercado, con base en la comparación de precios del catálogo de bienes y servicios del sistema digital unificado y/o cualquier otra fuente, así como en las guías que emite la Dirección de Contratación Pública, las cuales no pueden ser superiores a seis meses en relación con la fecha a partir de la cual se emite el procedimiento ordinario.

@@ -1,0 +1,2 @@
+Artículo 26 - Garantía colateral:
+En los casos en que el contratista solicite la aprobación de pago anticipado previamente habilitado en el pliego de condiciones, o se establezca en las cláusulas del pliego de condiciones una retención porcentual, el administrador del contrato deberá solicitar a la Proveeduría la gestión correspondiente de conformidad con el procedimiento establecido para tal efecto.
