@@ -1,0 +1,13 @@
+Nº 45025-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 11, 140, inciso 18) y 146 de la Constitución Política, en los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de Administración Pública Nº 6227 del 02 de mayo de 1978, en el artículo 32 de la Ley de Asociaciones Nº 218 del 8 de agosto de 193 9 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones Nº 29496-J, publicado en La Gaceta Nº 96 del 21 de mayo del 2001, así como lo establecido en el artículo 3, inciso ch) de la Ley del Impuesto sobre la Renta Nº 7092 y los artículos 103 y 104 del Código de Normas y Procedimientos Tributarios Nº 4755.
+CONSIDERANDO
+l. Que el artículo 3 2 de la Ley de Asociaciones Nº 218 de 8 de agosto de 193 9 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la Asociación Club de Leones de Los Alpes, cédula de persona jurídica número 3- 002-301875, se inscribió en el Registro de Asociaciones del Registro Público Nacional desde el día 13 de julio del 2004, en el tomo 491, asiento 11497.
+III. Que los fines que persigue la Asociación, según sus estatutos son: "a) Crear y fomentar un equipo de entendimiento entre los pueblos del mundo, de Costa Rica y de la comunidad del cantón de Vásquez de Coronado. b) Promover la teoría y la práctica de los principios del buen gobierno y la buena ciudadanía. c) Tomar parte activa en el desarrollo del bienestar cívico, cultural, social y moral de nuestra comunidad d) Unir a los socios en vínculos de amistad., buen compañerismo y entendimiento mutuo. e) Proveer un foro de para la libre y amplia discusión de todo asunto de interés público, con la excepción de asuntos de política partidista y el sectarismo religioso: fj) Alentar a personas con vocación de servicio y responsables s servir en la comunidad sin buscar recompensa financiera personal, estimular la eficiencia y fomentar la práctica de elevadas normas de ética en el comercio, la industria, las profesiones, obras públicas y proyectos privados "
+IV. Que tales fines solventan una necesidad social de primer orden, pot lo cual merecen el apoyo del Estado costarricense.
+Por tanto,
+DECRETAN DECLARATORIA DE UTILIDAD PÚBLICA
+PARA LA ASOCIACIÓN CLUB DE LEONES DE LOS ALPEZ
+Artículo 1.- Declárese de utilidad pública para los intereses del Estado la Asociación Club de Leones de los Alpes, cédula de persona jurídica número 3-002-301875.
