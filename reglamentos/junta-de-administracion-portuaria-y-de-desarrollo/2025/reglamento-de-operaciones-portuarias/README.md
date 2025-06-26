@@ -14,3 +14,4 @@ Reglamento de operaciones portuarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-02-21 | la propia norma |
+| 2 | 2025-06-26 | Reglamento 12 (2025-06-26) |
