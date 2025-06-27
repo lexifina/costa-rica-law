@@ -1,7 +1,0 @@
-Transitorio II.-En el plazo de sesenta días contados a partir de la publicación de este Reglamento, el Comité de Inversiones de la ARESEP deberá someter a conocimiento y aprobación del Regulador General, los lineamientos de inversión.
-II.-Tener como respuesta a la observación realizada, lo señalado en el oficio OF-2373DF-2021, del 10 de noviembre de 2021, de la Dirección de Finanzas y agradecer la participación en este proceso.
-III.-Instruir a la Secretaría de Junta Directiva notificar al funcionario que presentó observación, el oficio OF-2373- DF-2021, del 10 de noviembre de 2021, de la Dirección de Finanzas.
-IV.-Instruir a la Secretaría de la Junta Directiva, para que proceda con el trámite de publicación del "Reglamento de Inversiones Financieras de la Autoridad Reguladora de los Servicios Públicos", en el Diario Oficial La Gaceta.
-En cumplimiento de lo que ordena el artículo 245 de la Ley General de la Administración Pública, contra la presente resolución cabe el recurso ordinario de reposición o reconsideración, el cual deberá interponerse en el plazo de tres días contados a partir del día siguiente a la notificación, y el recurso extraordinario de revisión, el cual deberá interponerse dentro de los plazos señalados en el artículo 354 de la citada ley. Ambos recursos, deberán interponerse ante la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, a quien corresponde resolverlos.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Publíquese y Notifíquese.

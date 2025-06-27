@@ -1,1 +1,0 @@
-Artículo 14.-Redención anticipada de títulos valores. Se realizarán únicamente en situaciones de contingencia o fuerza mayor, previo análisis y aprobación por parte del Comité de Inversiones, y deberán quedar documentadas las razones por las cuales se requiere la redención anticipada de la inversión.

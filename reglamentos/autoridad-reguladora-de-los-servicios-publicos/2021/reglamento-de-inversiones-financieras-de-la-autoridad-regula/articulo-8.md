@@ -1,1 +1,0 @@
-Artículo 8º-Riesgo de liquidez. La Dirección de Finanzas deberá velar por disponer de la liquidez suficiente para cancelar sus obligaciones en el momento de su vencimiento, tanto en condiciones normales como en caso fortuito y fuerza mayor, sin incurrir por ello en pérdidas ni arriesgar la situación financiera de la institución.

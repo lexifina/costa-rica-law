@@ -1,1 +1,0 @@
-Artículo 16.-Cobro de comisiones bancarias. La Dirección de Finanzas cancelará toda comisión que sea cobrada por la emisión o liquidación de inversiones. El costo de la comisión será el que para tales servicios se encuentre vigente al momento de la transacción, conforme con lo dispuesto por el ente emisor.

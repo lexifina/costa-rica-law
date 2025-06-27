@@ -1,1 +1,0 @@
-Artículo 15.-Vencimiento de las inversiones. Toda inversión vencida será depositada en la cuenta bancaria destinada para tal fin. La Dirección de Finanzas, deberá trasladar los fondos de principal más intereses el mismo día que vence la inversión.

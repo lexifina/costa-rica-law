@@ -1,1 +1,0 @@
-Artículo 10.-Riesgo de tipo de cambio. La Dirección de Finanzas deberá velar por mitigar el riesgo de que el valor de las inversiones disminuya producto de fluctuaciones en los tipos de cambio de las monedas que se utilicen en la institución.
