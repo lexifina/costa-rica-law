@@ -14,3 +14,4 @@ Obligatoriedad en el uso del EDDI-7 "Elaboración Digital de Declaraciones de Im
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-01 | la propia norma |
+| 2 | 2025-06-27 | Resolución 11 (2025-06-27) |
