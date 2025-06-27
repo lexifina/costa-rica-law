@@ -1,1 +1,0 @@
-Artículo 5º—Seguridad en el uso de la plataforma tecnológica. La Administración Tributaria del Ministerio de Hacienda, garantiza la individualidad, seguridad e integridad de la información enviada y recibida por el usuario mediante el portal de ATV.

@@ -1,1 +1,0 @@
-Artículo 12.—Avisos. La Administración Tributaria se reserva el derecho de publicar avisos o cualquier otro tipo de comunicado por medio del portal ATV, en el buzón electrónico que se ha dispuesto para cada usuario.

@@ -1,1 +1,0 @@
-Artículo 25.—El sitio Web Administración Tributaria Virtual (ATV) regulado en la presente resolución sustituye el portal web de Tributación Directa regulado mediante resolución N° DGT-R-037-2011 de las catorce horas, treinta y cinco minutos del tres de noviembre del dos mil once publicada en La Gaceta N°233 del 5 de diciembre 2011.

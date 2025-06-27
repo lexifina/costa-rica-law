@@ -1,2 +1,0 @@
-Artículo 26.—El programa de ayuda EDDI-7, seguirá vigente con los formularios D-110 Recibo Oficial de Pago, D-120 Traspaso de Bienes Inmuebles, D-121 Traspaso de vehículos automotores, embarcaciones y aeronaves.
-(Así reformado por el artículo 6 de la resolución N° DGT-R-28-2020 el 15 de setiembre del 2020, “Resolución sobre el uso del formulario D-116, Declaración Jurada de Sanciones por Infracciones Administrativas”)
