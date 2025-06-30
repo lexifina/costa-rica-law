@@ -1,0 +1,1 @@
+Artículo 12.- Designación y juramentación de los miembros del CONASIDA. La designación de los miembros del CONASIDA se realizará mediante Acuerdo Ministerial, que se publicará en el Diario Oficial La Gaceta. Los miembros del CON ASIDA deben ser juramentados al inicio de su gestión por la autoridad del Ministerio de Salud que ocupe la presidencia del CON ASIDA.

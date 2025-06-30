@@ -1,0 +1,1 @@
+Artículo 42.- Medios de comunicación. El CONASIDA será la instancia oficial para la obtención de información referente al VIH, con el fin que los medios de comunicación promuevan la divulgación responsable de estilos de vida saludable, respeto a los derechos de las personas que viven con VIH y velando por su inclusión social.

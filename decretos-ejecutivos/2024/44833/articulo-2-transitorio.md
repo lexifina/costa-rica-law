@@ -1,0 +1,1 @@
+Transitorio II: En un plazo de seis meses contado a partir de la publicación del presente reglamento, las instituciones públicas y privadas y los servicios de salud públicos y privados contemplados en los artículos 24, 36 y 39 del presente Decreto Ejecutivo, deberán contar con los protocolos en ellos establecidos.

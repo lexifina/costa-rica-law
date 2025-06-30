@@ -1,0 +1,1 @@
+Transitorio III: Se otorga un plazo de seis meses a partir de la publicación del presente Decreto Ejecutivo para que la Dirección General de Migración y Extranjería cumpla con la disposición contenida en el artículo 26 inciso f) del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 43.- Sector privado. El Ministerio de Trabajo y Seguridad Social, a través del Consejo de Salud Ocupacional articulará con el sector privado para generar políticas de VIH en el lugar de trabajo que contemplen aspectos de prevención, atención, articulación con otros sectores, capacitación a colaboradores y programas de voluntariado acorde a las capacidades.

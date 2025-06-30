@@ -1,0 +1,1 @@
+Artículo 15.- Miembros invitados. El CONASIDA tendrá la potestad de contar con miembros invitados, con derecho a voz, pero sin voto, con el fin de alcanzar una respuesta nacional e intersectorial ante el VIII.

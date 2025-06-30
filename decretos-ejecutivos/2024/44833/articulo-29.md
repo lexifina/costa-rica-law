@@ -1,0 +1,4 @@
+Artículo 29.- Prohibición de discriminación o estigmatización. Con referencia a la prohibición de discriminación o estigmatización se dispone:
+a) Ninguna institución pública o privada podrá solicitar en alguno de sus trámites, o como requisito para realizar gestiones de su competencia, la presentación de dictámenes o certificaciones relacionadas al VIH, salvo que lo amerite para la gestión de la atención integral del usuario.
+b) Todas las instituciones, públicas y privadas, quedan obligadas a incluir en su régimen disciplinario, las sanciones administrativas correspondientes a las violaciones de prohibición de toda distinción, exclusión o restricción basada en la condición serológica VIH positivo por acción u omisión, que tenga por objeto o por resultado menoscabar o anular el reconocimiento, goce o ejercicio de los derechos fundamentales de las personas que vivan con VIH.
+c) Deberán remitir copia de estas regulaciones al CONASIDA.

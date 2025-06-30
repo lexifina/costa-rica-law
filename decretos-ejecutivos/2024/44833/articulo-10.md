@@ -1,0 +1,4 @@
+Artículo 10.- Plazo de inscripción. El CONASIDA contará con un plazo de veinte días naturales, contado a partir del día hábil siguiente al recibo de la solicitud de inscripción para su resolución.
+CONASIDA deberá verificar la información presentada por el interesado y prevendrá, por una única vez y por escrito, que complete los requisitos omitidos, o que aclare o subsane la información.
+La prevención indicada suspende el plazo de resolución y otorgará al interesado diez días hábiles,
+contados a partir del día hábil siguiente al recibo de dicha prevención para completar o aclarar; transcurridos estos continuarán el cálculo del plazo restante previsto para resolver. Debe quedar claro y entendido que la no inscripción de la organización impedirá su participación en la Asamblea de Elección de Representantes ante el CON ASIDA.

@@ -1,0 +1,1 @@
+Transitorio V: El CONASIDA dispone de un plazo de seis meses contados a partir de la publicación de este reglamento para aprobar el Manual de Procedimientos para la Asamblea de Elección de Representantes en el CONASIDA, tanto de Organizaciones de Sociedad Civil que atienden los Asuntos Relacionados con el VIH y de las Organizaciones de las Personas con VIH.

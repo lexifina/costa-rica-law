@@ -1,0 +1,1 @@
+Transitorio I: El Poder Ejecutivo deberá establecer la normativa específica que permita la habilitación de los albergues de personas que vivan con VIH, dentro del término de seis meses, contado a partir de la publicación del presente reglamento.

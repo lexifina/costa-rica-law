@@ -1,0 +1,1 @@
+Artículo 34.- Derecho a la prueba de VIH. De conformidad con lo estipulado en el artículo 19 de la Ley N º 9797 del 2 de diciembre del 2019 "Ley General sobre VIH", los prestadores de servicios de salud públicos deben tener lineamientos para realizar prueba de VIH a poblaciones de alto riesgo, en absoluta independencia de su condición de aseguramiento.

@@ -1,0 +1,3 @@
+Artículo 30.- Derecho a la simplificación de trámites de denuncia. Con referencia al derecho a la simplificación de trámites de denuncia se dispone:
+a) Las instituciones públicas y privadas deberán contar con procedimientos prontos, cumplidos, expeditos y oportunos para la atención de denuncias por discriminación en perjuicio de personas con VIH y Sida o sus familiares y personas allegadas, en coordinación con la Defensoría de los Habitantes.
+b) Es deber de las instituciones públicas y privadas brindar la orientación a las Organizaciones de Sociedad Civil y personas que viven con VIH, sobre los mecanismos de denuncias ante el incumplimiento de sus derechos.

@@ -1,0 +1,1 @@
+Transitorio IV: Los prestadores de servicios de salud públicos disponen de seis meses contados a partir de la publicación de este reglamento para elaborar los lineamientos para realizar prueba de VIH a poblaciones de alto riesgo, en absoluta independencia de su condición de aseguramiento.

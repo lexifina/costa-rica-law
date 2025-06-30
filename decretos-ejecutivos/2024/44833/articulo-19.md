@@ -1,0 +1,1 @@
+Artículo 19.- Aplicación supletoria. En lo no regulado en el presente Decreto Ejecutivo en materia de órganos colegiados, le será aplicable al CONASIDA, las disposiciones contenidas en el Capítulo Tercero del Título Segundo del Libro I de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".

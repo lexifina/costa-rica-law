@@ -1,0 +1,1 @@
+Artículo 21.- Derecho a la participación en los procesos de toma de decisiones. El Ministerio de Salud como ente rector de CONASIDA promoverá la participación de las organizaciones de sociedad civil que atiendan los asuntos relacionados con el VIH, inscritas en CONASIDA y a las personas que viven con VIH, en procesos de generación de política pública.

@@ -1,0 +1,1 @@
+Artículo 36.- Derecho a la prueba de VIH de las mujeres embarazadas y su pareja. Los servicios de salud deben contar con un protocolo de atención donde se detalle lo establecido en el artículo 21 de la Ley Nº 9797 del 2 de diciembre del 2019 "Ley General sobre VIH".
