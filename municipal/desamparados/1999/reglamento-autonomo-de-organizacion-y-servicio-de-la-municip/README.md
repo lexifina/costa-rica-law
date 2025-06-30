@@ -16,3 +16,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Desampar
 | 1 | 2000-06-20 | la propia norma |
 | 2 | 2007-06-26 | Reglamento municipal 400 (2007-06-26) |
 | 3 | 2007-10-02 | Reglamento municipal 420 (2007-10-02) |
+| 4 | 2025-06-30 | Reglamento municipal 41 (2025-06-30) |
