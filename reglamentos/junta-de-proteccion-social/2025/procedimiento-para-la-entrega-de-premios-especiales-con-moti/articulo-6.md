@@ -1,0 +1,22 @@
+Artículo 6°- Cambio de Premios
+Los ganadores de los premios deberán presentarse en la Plataforma de Servicios en las Oficinas Centrales de la Junta de Protección Social, para validar el premio correspondiente a partir del primer día hábil siguiente a la realización de cada sorteo y en un horario de lunes a viernes de 7:30 am a 3:00 pm., para lo cual se sugiere a los ganadores que previo a presentarse a reclamar el premio correspondiente consulten vía telefónica el dato de las fracciones con las que resultaron ganadores, comunicándose a las siguientes líneas: 4052-2121, 2522-2022, 2522-291, 2522-2010, 2522-2009, 2522-2261, 2522-2260, 2522-2262, puesto que deberán presentar el respectivo coleccionable con la lotería con la que resultaron favorecidos.
+Requisitos para presentar en la Plataforma de Servicios:
+. El coleccionable físico de lotería con el cual salieron favorecidos, mismo que deben traer en perfecto estado, sin alteraciones y debidamente validado y sellado como se indicó en el artículo tercero de este procedimiento.
+. El documento de identidad vigente y en buen estado de conservación.
+. Una constancia de la cuenta IBAN (conocida anteriormente como cuenta cliente).
+En todos los casos, la cuenta bancaria debe estar activa, en colones y a nombre de la persona física ganadora. No se permiten cuentas bancarias a nombre de personas jurídicas ni en entidades bancarias o financieras extranjeras.
+Como se mencionó, los ganadores deben presentar el coleccionable físico validado con toda la lotería con la que resultaron favorecidos en esta promoción.
+La Plataforma de Servicios determinará en cuáles casos podrá otorgar el premio en efectivo, o según lo requiera el cliente en transferencia u orden de pago.
+Si algún ganador no posee cuenta bancaria deberá aperturar una en la entidad bancaria de su preferencia, o bien será la Plataforma de Servicios quien decidirá, según disponibilidad, si realiza el pago en efectivo o no.
+El proceso de validación consiste en la verificación de los documentos y que el coleccionable físico de lotería sea válido.
+No se otorgará el premio, sin excepción, cuando se presente una de las siguientes condiciones:
+. El número de cédula de identidad o documento de identidad que se registró en el sistema no se encuentre vigente.
+. No se presenta el Coleccionable completo que fue validado previamente, como se indicó en el artículo tercero de este procedimiento.
+En caso de que, algún ganador no pueda presentarse a validar y retirar su premio correspondiente a dinero, podrá autorizar a un representante, mediante una carta debidamente firmada, mediante el uso de la firma digital (certificado digital emitido por un organismo a través del cual se valida la propia firma y la identidad del firmante), con la indicación del nombre completo tal como aparece en la cédula y el número de cédula o documento de identidad de la persona autorizada; además, para realizar dicha carta debe también considerarse lo siguiente: 1. Dirigida Señores Junta Protección Social. 2.
+Plataforma Servicio al Cliente. 3. Solo se aceptan documentos originales. Y remitirla al correo psc-premiosespeciales@jps.go.cr Si no cuenta con firma digital, este documento debe presentarse firmada de manera manuscrita y autenticada por un abogado o notario público, en la Plataforma de Servicios, junto con los documentos indicados anteriormente.
+A la persona que figure como representante, solo se le permite realizar la gestión para un máximo de tres ganadores.
+El premio siempre se pagará a una cuenta bancaria a nombre del ganador, por lo cual deberá presentar también la constancia de la cuenta IBAN con máximo un mes de emitida por el banco o entidad, a nombre del ganador.
+Se aclara que, en el caso que para el reclamo de un premio de dinero medie la figura del representante, este se pagará únicamente por transferencia electrónica a la cuenta bancaria del ganador, sin excepción.
+No se permite el depósito del dinero en otra cuenta bancaria que no sea la del ganador.
+Si el ganador del premio solicita el pago en efectivo, corresponde a la Plataforma de Servicios brindar la autorización respectiva, de acuerdo con las disposiciones administrativas vigentes. La solicitud de pago en efectivo no puede ser realizada por un representante del ganador.
+Si alguno de los firmantes de la carta, no cuenta con firma digital, este documento debe presentarse firmada de manera manuscrita y autenticada por un abogado o notario público, en la Plataforma de Servicios, junto con los documentos indicados anteriormente.
