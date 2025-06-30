@@ -1,13 +1,15 @@
+(Derogado)
 Nº 33724
+(Este decreto ejecutivo fue derogado por el artículo 12 inciso b) del Procedimiento para el registro sanitario por notificación, reconocimientos de registro, materias primas, control y vigilancia de alimentos procesados y cosméticos de bajo riesgo; procedimiento para la autorización de importación por terceros de alimentos cosméticos, aprobado mediante decreto ejecutivo N° 45136 del 30 de junio del 2025)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE COMERCIO EXTERIOR, SALUD
 Y ECONOMÍA, INDUSTRIA Y COMERCIO
 De conformidad con las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; el artículo 28, párrafo 2, inciso b) de la Ley 6227, Ley General de la Administración Pública del 2 de mayo de 1978; artículos 1, 7, 15, 26, 36, 37, 38, 46, 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley 7629 del 26 de setiembre de 1996.
 Considerando:
-1º—Que el Consejo de Ministros de Integración Económica, mediante resolución Nº 176-2006 (COMIECO- XXXVIII) de fecha 5 de octubre de 2006, acordó aprobar los siguientes reglamentos técnicos centroamericanos: a) RTCA 67.01.30:06 Alimentos Procesados. Procedimiento para otorgar la Licencia Sanitaria a Fábricas y Bodegas; b) RTCA 67.01.31:06 Alimentos Procesados. Procedimientos para otorgar el Registro Sanitario y la Inscripción Sanitaria; c) RTCA 67.01.32:06 Requisitos para la Importación de Alimentos Procesados con Fines de Exhibición y Degustación; y d) RTCA 67.01.33:06 Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.
-2º—Que en cumplimiento del ordinal anterior, debe publicarse la citada resolución. Por tanto:
+1º-Que el Consejo de Ministros de Integración Económica, mediante resolución Nº 176-2006 (COMIECO- XXXVIII) de fecha 5 de octubre de 2006, acordó aprobar los siguientes reglamentos técnicos centroamericanos: a) RTCA 67.01.30:06 Alimentos Procesados. Procedimiento para otorgar la Licencia Sanitaria a Fábricas y Bodegas; b) RTCA 67.01.31:06 Alimentos Procesados. Procedimientos para otorgar el Registro Sanitario y la Inscripción Sanitaria; c) RTCA 67.01.32:06 Requisitos para la Importación de Alimentos Procesados con Fines de Exhibición y Degustación; y d) RTCA 67.01.33:06 Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.
+2º-Que en cumplimiento del ordinal anterior, debe publicarse la citada resolución. Por tanto:
 DECRETAN:
-Artículo 1º—Publíquese la Resolución 176-2006 (COMIECOXXXVIII), que a continuación se transcribe:
+Artículo 1º-Publíquese la Resolución 176-2006 (COMIECOXXXVIII), que a continuación se transcribe:
 RESOLUCIÓN Nº 176-2006 (COMIECO-XXXVIII)
 EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
 Considerando:
@@ -20,13 +22,13 @@ Que los Estados Parte, concedieron un plazo prudencial a los Estados Miembros de
 Que según el párrafo 12 del artículo 2º del Acuerdo sobre Obstáculos Técnicos al Comercio, interpretado por el numeral 5.2, de la Decisión del 14 de noviembre de 2001 emanada de la Conferencia Ministerial de la OMC de esa fecha, los Miembros preverán un plazo prudencial, no inferior a seis meses, entre la publicación de los reglamentos técnicos y su entrada en vigor, con el fin de dar tiempo a los productores para adaptar sus productos o sus métodos de producción a las prescripciones de los reglamentos, Por tanto,
 Con fundamento en lo dispuesto en los artículos 1º, 3º, 7º, 15, 26, 30, 36, 37, 38, 46, 52 y 55 del Protocolo de Guatemala:
 RESUELVE:
-1º—Aprobar los Reglamentos Técnicos Centroamericanos siguientes:
+1º-Aprobar los Reglamentos Técnicos Centroamericanos siguientes:
 a) RTCA 67.01.30:06 Alimentos Procesados. Procedimiento para otorgar la Licencia Sanitaria a Fábricas y Bodegas.
 b) RTCA 67.01.31:06 Alimentos Procesados. Procedimientos para otorgar el Registro Sanitario y la Inscripción Sanitaria.
 c) RTCA 67.01.32:06 Requisitos para la Importación de Alimentos Procesados con Fines de Exhibición y Degustación.
 d) RTCA 67.01.33:06 Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.
-2º—Los Reglamentos Técnicos Centroamericanos aprobados aparecen como Anexos de esta Resolución y forman parte integrante de la misma.
-3º—La presente Resolución entrará en vigencia seis meses después de la presente fecha y será publicada por los Estados Parte.
+2º-Los Reglamentos Técnicos Centroamericanos aprobados aparecen como Anexos de esta Resolución y forman parte integrante de la misma.
+3º-La presente Resolución entrará en vigencia seis meses después de la presente fecha y será publicada por los Estados Parte.
 San José, Costa Rica, 5 de octubre de 2006
 Marco Vinicio Ruiz Ministro de Comercio Exterior de Costa Rica | Eduardo Ayala Grimaldi Viceministro, en representación de la Ministra de Economía de El Salvador
 Enrique Lacs Viceministro, en representación del Ministro de Economía de Guatemala | Jorge Rosa Viceministro, en representación de la Ministra de Industria y Comercio de Honduras
@@ -60,10 +62,10 @@ Por Honduras
 Secretaría de Salud
 Por Costa Rica
 Ministerio de Salud
-1º—Objeto. El presente reglamento tiene por objeto establecer el procedimiento para otorgar la licencia sanitaria a fábricas y bodegas de alimentos procesados.
-2º—Ámbito de aplicación. Las disposiciones de este reglamento se aplican a las fábricas de los Estados Parte en donde se producen alimentos procesados y a las bodegas de almacenamiento de los mismos. Estas disposiciones no se aplican a los alimentos no procesados.
-3º—Documentos a consultar. RTCA 67.01.33:06, Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.
-4º—Definiciones
+1º-Objeto. El presente reglamento tiene por objeto establecer el procedimiento para otorgar la licencia sanitaria a fábricas y bodegas de alimentos procesados.
+2º-Ámbito de aplicación. Las disposiciones de este reglamento se aplican a las fábricas de los Estados Parte en donde se producen alimentos procesados y a las bodegas de almacenamiento de los mismos. Estas disposiciones no se aplican a los alimentos no procesados.
+3º-Documentos a consultar. RTCA 67.01.33:06, Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales.
+4º-Definiciones
 4.1 Alimento: es toda sustancia procesada, semiprocesada o no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni los productos que se utilizan como medicamentos.
 4.2 Alimento procesado: es el alimento que ha sido sometido a un proceso tecnológico adecuado para su conservación y consumo ulterior.
 4.3 Alimento no procesado: es el alimento que no ha sufrido modificaciones de origen físico, químico o biológico, salvo las indicadas por razones de higiene o por la separación de partes no comestibles.
@@ -73,7 +75,7 @@ Ministerio de Salud
 4.7 Fábrica de alimentos: es aquel establecimiento que produce alimentos por procesos tecnológicos de preparación, conservación y envasado que lo hacen adecuado para su consumo ulterior.
 4.8 Licencia sanitaria, licencia sanitaria de funcionamiento, permiso de funcionamiento o permiso de instalación y funcionamiento: es la autorización para operar un establecimiento donde se producen alimentos procesados, o donde se almacenan dichos alimentos, extendida por la autoridad sanitaria de cada uno de los Estado Parte, de acuerdo a lo establecido en el presente procedimiento.
 4.9 Bodega de alimentos: es el establecimiento que se utiliza para almacenar y distribuir alimentos procesados, empacados o a granel.
-5º—Requisitos y mecanismos para otorgamiento y renovación de la licencia sanitaria.
+5º-Requisitos y mecanismos para otorgamiento y renovación de la licencia sanitaria.
 5.1 Requisitos para otorgamiento y renovación de la licencia sanitaria para fábricas y bodegas de alimentos.
 a) Solicitud que contenga los siguientes aspectos:
 1. Nombre o razón social de la fábrica o bodega.
@@ -99,10 +101,10 @@ b) La autoridad sanitaria revisa la documentación y verifica su cumplimiento.
 c) La autoridad sanitaria procede a realizar la inspección para verificar el cumplimiento de las Buenas Prácticas de Manufactura (BPM). La licencia sanitaria está sujeta al cumplimiento de las BPM.
 5.3 Si la fábrica o bodega cambia de ubicación deberá solicitar nuevamente la licencia sanitaria. Cuando la bodega esté ubicada dentro de la fábrica no se requerirá licencia sanitaria adicional.
 5.4 Para emitir la licencia sanitaria y su renovación se aplicarán los plazos establecidos en las legislaciones de cada Estado Parte.
-6º—Vigencia. La licencia sanitaria para fábricas y bodegas de alimentos tendrán una vigencia de conformidad con la legislación interna de cada Estado Parte.
-7º—Costo. Cada Estado Parte establecerá las tarifas por emisión de licencia sanitaria o renovación.
-8º—Vigilancia y verificación. Corresponde la vigilancia y verificación de este reglamento técnico a las autoridades sanitarias competentes de cada Estado Parte centroamericano.
-FIN DEL REGLAMENTO—
+6º-Vigencia. La licencia sanitaria para fábricas y bodegas de alimentos tendrán una vigencia de conformidad con la legislación interna de cada Estado Parte.
+7º-Costo. Cada Estado Parte establecerá las tarifas por emisión de licencia sanitaria o renovación.
+8º-Vigilancia y verificación. Corresponde la vigilancia y verificación de este reglamento técnico a las autoridades sanitarias competentes de cada Estado Parte centroamericano.
+FIN DEL REGLAMENTO-
 Anexo 2 de la Resolución Nº 176-2006 (COMIECO-XXXVIII)
 RTCA 67.01.31:07
 REGLAMENTO TÉCNICO CENTROAMERICANO
@@ -289,17 +291,17 @@ Por Honduras
 Secretaría de Salud
 Por Costa Rica
 Ministerio de Salud
-1º—Objeto. Este reglamento tiene por objeto establecer los requisitos para autorizar las importaciones de alimentos procesados que no cuenten con registro sanitario, para la exhibición y algunos casos para la degustación de los mismos.
-2º—Ámbito de aplicación. Este reglamento técnico se aplica a toda importación de alimentos procesados que no cuenten con registro sanitario para fines de exhibición y degustación.
-3º—Definiciones:
+1º-Objeto. Este reglamento tiene por objeto establecer los requisitos para autorizar las importaciones de alimentos procesados que no cuenten con registro sanitario, para la exhibición y algunos casos para la degustación de los mismos.
+2º-Ámbito de aplicación. Este reglamento técnico se aplica a toda importación de alimentos procesados que no cuenten con registro sanitario para fines de exhibición y degustación.
+3º-Definiciones:
 3.1 Alimento: es toda sustancia procesada, semiprocesada o no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar, cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo pero no incluye los cosméticos, el tabaco ni las sustancias que se utilizan como medicamentos.
 3.2 Inocuidad de los alimentos: la garantía de que los alimentos no causarán daño al consumidor cuando se preparen y/o consuman de acuerdo con el uso a que se destinan.
-4º—Requisitos. Para la autorización de la importación de los alimentos descrito se deberá cumplir con los siguientes requisitos:
+4º-Requisitos. Para la autorización de la importación de los alimentos descrito se deberá cumplir con los siguientes requisitos:
 4.1 Presentar la solicitud en el formulario respectivo (Anexo A), en original y copia, con los datos requeridos, adjuntando el certificado de libre venta de los productos.
-4.2 Los productos importados con fines de exhibición y degustación deberán llevar en su empaque una etiqueta que indique la siguiente leyenda: “Prohibida su venta”.
+4.2 Los productos importados con fines de exhibición y degustación deberán llevar en su empaque una etiqueta que indique la siguiente leyenda: "Prohibida su venta".
 4.3 Los locales donde se expongan los alimentos deberán cumplir con las condiciones higiénicas sanitarias que garanticen la inocuidad de los mismos.
 4.4 En ningún caso se podrá comercializar los alimentos internados al país para fines de exhibición y degustación.
-4.5 La autorización de la importación de alimentos para los fines establecidos en este procedimiento, no eximen del cumplimiento de los requisitos sanitarios y fitosanitarios cuando procedan. Dicha autorización será resuelta en un plazo máximo de diez días hábiles. 5º—
+4.5 La autorización de la importación de alimentos para los fines establecidos en este procedimiento, no eximen del cumplimiento de los requisitos sanitarios y fitosanitarios cuando procedan. Dicha autorización será resuelta en un plazo máximo de diez días hábiles. 5º-
 Vigilancia y verificación. Corresponde la vigilancia y la verificación de este Reglamento Técnico a las Autoridades Competentes de los países Centroamericanos.
 ANEXO A
 (Normativo)
@@ -321,7 +323,7 @@ Día / mes Día / mes Año
 Comprometiéndome a no comercializar dichos productos.
 ________________________ ____/___/
 Firma del solicitante fecha
----FIN DEL REGLAMENTO—
+---FIN DEL REGLAMENTO-
 Anexo 4 de la Resolución Nº 176-2006 (COMIECO-XXXVIII)
 RTCA 67.01.33:06
 REGLAMENTO TÉCNICO CENTROAMERICANO
@@ -354,10 +356,10 @@ Por Honduras
 Secretaría de Salud
 Por Costa Rica
 Ministerio de Salud
-1.—Objeto y ámbito de aplicación. El presente reglamento tiene como objetivo establecer las disposiciones generales sobre prácticas de higiene y de operación durante la industrialización de los productos alimenticios, a fin de garantizar alimentos inocuos y de calidad.
+1.-Objeto y ámbito de aplicación. El presente reglamento tiene como objetivo establecer las disposiciones generales sobre prácticas de higiene y de operación durante la industrialización de los productos alimenticios, a fin de garantizar alimentos inocuos y de calidad.
 Estas disposiciones serán aplicadas a toda aquélla industria de alimentos que opere y que distribuya sus productos en el territorio de los países centroamericanos. Se excluyen del cumplimiento de este reglamento las operaciones dedicadas al cultivo de frutas y hortalizas, crianza y matanza de animales, almacenamiento de alimentos fuera de la fábrica, los servicios de la alimentación al público y los expendios, los cuales se regirán por otras disposiciones sanitarias.
-2º—Documentos a consultar. Para la interpretación de este reglamento no se requiere de ningún otro documento.
-3º—Definiciones. Para fines de este reglamento se contemplan las siguientes definiciones:
+2º-Documentos a consultar. Para la interpretación de este reglamento no se requiere de ningún otro documento.
+3º-Definiciones. Para fines de este reglamento se contemplan las siguientes definiciones:
 3.1 Adecuado: se entiende suficiente para alcanzar el fin que se persigue.
 3.2 Alimento: es toda sustancia procesada, semiprocesada o no procesada, que se destina para la ingesta humana, incluidas las bebidas, goma de mascar y cualesquiera otras sustancias que se utilicen en la elaboración, preparación o tratamiento del mismo, pero no incluye los cosméticos, el tabaco ni los productos que se utilizan como medicamentos.
 3.3 Buenas prácticas de manufactura: condiciones de infraestructura y procedimientos establecidos para todos los procesos de producción y control de alimentos, bebidas y productos afines, con el objeto de garantizar la calidad e inocuidad de dichos productos según normas aceptadas internacionalmente.
@@ -371,11 +373,11 @@ establecimiento, elaborado por el interesado sin que necesariamente intervenga u
 3.10 Planta: es el edificio, las instalaciones físicas y sus alrededores; que se encuentren bajo el control de una misma administración.
 3.11 Procesamiento de alimentos: son las operaciones que se efectúan sobre la materia prima hasta el alimento terminado en cualquier etapa de su producción.
 3.12 Superficie de contacto con los alimentos: todo aquello que entra en contacto con el alimento durante el proceso y manejo normal del producto; incluyendo utensilios, equipo, manos del personal, envases y otros.
-4º—Símbolos y abreviaturas
+4º-Símbolos y abreviaturas
 4.1 cm. = centímetros
 4.2 lux = candelas por pie cuadrado
 4.3 pH= potencial de Hidrógeno
-5º—Condiciones de los edificios
+5º-Condiciones de los edificios
 5.1 Alrededores y Ubicación
 5.1.1 Alrededores. Los alrededores de una planta que elabora alimentos se mantendrán en buenas condiciones que protejan contra la contaminación de los mismos. Entre las actividades que se deben aplicar para mantener los alrededores limpios se incluyen pero no se limitan a:
 a) Almacenamiento en forma adecuada del equipo en desuso, remover desechos sólidos y desperdicios, recortar la grama, eliminar la hierba y todo aquello dentro de las inmediaciones del edificio, que pueda constituir una atracción o refugio para los insectos y roedores.
@@ -490,14 +492,14 @@ d) Hojas de Seguridad de los productos (cuando se requiera).
 5.7.6 Sólo deben emplearse plaguicidas si no pueden aplicarse con eficacia otras medidas sanitarias. Antes de aplicar los plaguicidas se debe tener cuidado de proteger todos los alimentos, equipos y utensilios para evitar la contaminación.
 5.7.7 Después del tiempo de contacto necesario los residuos de plaguicidas deben limpiarse minuciosamente.
 5.7.8 Todos los plaguicidas utilizados deben almacenarse adecuadamente, fuera de las áreas de procesamiento de alimentos y mantenerse debidamente identificados.
-6º—Condiciones de los equipos y utensilios
+6º-Condiciones de los equipos y utensilios
 6.1 El equipo y utensilios deben estar diseñados y construidos de tal forma que se evite la contaminación del alimento y facilite su limpieza. Deben:
 a) Estar diseñados de manera que permitan un rápido desmontaje y fácil acceso para su inspección, mantenimiento y limpieza.
 b) Funcionar de conformidad con el uso al que está destinado.
 c) Ser de materiales no absorbentes ni corrosivos, resistentes a las operaciones repetidas de limpieza y desinfección.
 d) No transferir al producto materiales, sustancias tóxicas, olores, ni sabores.
 6.2 Debe existir un programa escrito de mantenimiento preventivo, a fin de asegurar el correcto funcionamiento del equipo. Dicho programa debe incluir especificaciones del equipo, el registro de las reparaciones y condiciones. Estos registros deben estar actualizados y a disposición para el control oficial.
-7º—Personal. En toda la industria alimentaria todos los empleados, deben velar por un manejo adecuado de los productos alimenticios y mantener un buen aseo personal, de forma tal que se garantice la producción de alimentos inocuos.
+7º-Personal. En toda la industria alimentaria todos los empleados, deben velar por un manejo adecuado de los productos alimenticios y mantener un buen aseo personal, de forma tal que se garantice la producción de alimentos inocuos.
 7.1 Capacitación
 7.1.1 El personal involucrado en la manipulación de alimentos, debe ser previamente capacitado en Buenas Prácticas de Manufactura.
 7.1.2 Debe existir un programa de capacitación escrito que incluya las buenas prácticas de manufactura, dirigido a todo el personal de la empresa.
@@ -537,7 +539,7 @@ e) Dolor de garganta con fiebre
 f) Lesiones de la piel visiblemente infectadas (furúnculos, cortes, etc.)
 g) Secreción de oídos, ojos o nariz.
 h) Tos persistente.
-8º—Control en el proceso y en la producción
+8º-Control en el proceso y en la producción
 8.1 Materias primas:
 a) Se debe controlar diariamente el cloro residual del agua potabilizada con este sistema y registrar los resultados en un formulario diseñado para tal fin, en el caso que se utilice otro sistema de potabilización también deben registrarse diariamente. Evaluar periódicamente la calidad del agua a través de análisis físico-químico y bacteriológico y mantener los registros respectivos.
 b) El establecimiento no debe aceptar ninguna materia prima o ingrediente que presente indicios de contaminación o infestación.
@@ -574,18 +576,18 @@ e) Deben mantener los alimentos debidamente rotulados por tipo y fecha que ingre
 8.5.3 Los vehículos de transporte pertenecientes a la empresa alimentaria o contratados por la misma deben ser adecuados para el transporte de alimentos o materias primas de manera que se evite el deterioro y la contaminación de los alimentos, materias primas o el envase. Estos vehículos deben estar autorizados por la autoridad competente.
 8.5.4 Los vehículos de transporte deben realizar las operaciones de carga y descarga fuera de los lugares de elaboración de los alimentos, debiéndose evitar la contaminación de los mismos y del aire por los gases de combustión.
 8.5.5 Los vehículos destinados al transporte de alimentos refrigerados o congelados, deben contar con medios que permitan verificar la humedad, y el mantenimiento de la temperatura adecuada.
-9º—Vigilancia y verificación
+9º-Vigilancia y verificación
 9.1 Para verificar que las fábricas de alimentos y bebidas procesados cumplan con lo establecido en el presente reglamento, la autoridad competente del país centroamericano en donde se encuentre ubicada la misma, aplicara la ficha de inspección de buenas prácticas de manufactura para fábrica de alimentos y bebidas procesados aprobada por los países centroamericanos. Esta ficha debe ser llenada de conformidad con la Guía para el Llenado de la Ficha de Inspección de Buenas Prácticas de Manufactura para Fábricas de Alimentos y Bebidas Procesados.
 9.2 Las plantas que soliciten licencia sanitaria o permiso de funcionamiento a partir de la vigencia de este reglamento, cumplirán con el puntaje mínimo de 81, de conformidad a lo establecido en la Guía para el Llenado de la Ficha de Inspección de Buenas Prácticas de Manufactura para Fábricas de Alimentos y Bebidas Procesados.
-10.—Concordancia
+10.-Concordancia
 10.1 CAC/RCP-1-1969. rev. 4-2003. Código Internacional Recomendado de Prácticas de Principios Generales de Higiene de los Alimentos.
-11.—Bibliografía
+11.-Bibliografía
 11.1 Food and Agriculture Organization of the United Nations, World Health Organization. CAC/RCP-1-1969. rev. 4-2003. Código Internacional Recomendado de Prácticas de Principios Generales de Higiene de los Alimentos, 3º Edición, FAO, Roma Italia, 2004, p. 68.
 11.2 Instituto de Normas Técnicas de Costa Rica. Principios Generales de Buenas Prácticas de Manufactura de Alimentos. INTECO, San José Costa Rica, 2003. p. 27.
 11.3 U.S. Department of Health and Human Services. Food Code, Washington, DC, Estados Unidos de América, 2001.
 11.4 Departamento de Sanidad Pesquera de Chile, Pauta de Inspección de Infraestructura y Manejo sanitario para Plantas de Exportación de Productos Pesqueros Destinados al Consumo Humano, Semapesca, Santiago, Chile 2002, p. 14.
 11.5 Canadian Food Inspection Agency. Processed Products establishment. Inspection Manual. Canadian Food Inspection Agency, Otawa, Canadá, 2000, p. 21.
-12.—Anexos
+12.-Anexos
 Anexo A Ficha de inspección de buenas prácticas de manufactura para fábricas de alimentos y bebidas, procesados.
 Anexo B Guía para el llenado de la ficha de inspección de las buenas
 prácticas de manufactura para las fábricas de alimentos y
@@ -619,7 +621,7 @@ FECHA DE LA 1ª. REINSPECCIÓN _______ CALIFICACIÓN _______
 FECHA DE LA 2ª. REINSPECCIÓN _______ CALIFICACIÓN _______
 /100
 _______________________________________________________________________________
-Hasta 60 puntos: Condiciones inaceptables. Considerar cierre. 61 – 70 puntos: Condiciones deficientes. Urge corregir. 71 – 80 puntos: Condiciones regulares. Necesario hacer correcciones. 81 – 100 puntos: Buenas condiciones. Hacer algunas correcciones | 1ª. Inspección | 1ª. Reinspección | 2ª. Reinspección
+Hasta 60 puntos: Condiciones inaceptables. Considerar cierre. 61 - 70 puntos: Condiciones deficientes. Urge corregir. 71 - 80 puntos: Condiciones regulares. Necesario hacer correcciones. 81 - 100 puntos: Buenas condiciones. Hacer algunas correcciones | 1ª. Inspección | 1ª. Reinspección | 2ª. Reinspección
 1. EDIFICIO
 1.1 Alrededores y ubicación
 1.1.1 Alrededores
@@ -963,4 +965,4 @@ NUMERAL | PUNTAJE MÍNIMO
 4.2 | 3
 4.3 | 2
 5 3 |
-FIN DEL REGLAMENTO—
+FIN DEL REGLAMENTO-
