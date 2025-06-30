@@ -15,3 +15,4 @@ Procedimiento para el registro sanitario simplificado por notificación, inscrip
 | --- | --- | --- |
 | 1 | 2022-01-25 | la propia norma |
 | 2 | 2022-06-22 | Decreto Ejecutivo 43622 (2022-06-22) |
+| 3 | 2025-06-30 | Decreto Ejecutivo 45136 (2025-06-30) |
