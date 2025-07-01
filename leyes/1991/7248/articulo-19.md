@@ -1,4 +1,3 @@
-ARTICULO 19.- Los procedimientos establecidos en esta Ley para
-determinar el impuesto de patentes no excluyen aquellas actividades
-sujetas a licencia que por características especiales sean objeto de
-gravámenes impositivos creados por leyes de alcance nacional.
+ARTICULO 19.- Esta Ley deroga la Ley de Patentes del Cantón Central de Cartago No. 6342, del 30 de mayo de 1979 y su adición contenida en la Ley No. 7073 del 29 de julio de 1987, en todas las disposiciones que se le opongan.
+(Así modificada su numeración por el artículo 2° de la ley N° 10733 del 17 de junio de 2025, que lo traspasó del antiguo artículo 20 al artículo 21)
+(Así modificada su numeración por el artículo 3° de la ley N° 10733 del 17 de junio de 2025, que lo traspasó del antiguo artículo 21 al artículo 19, ya que por medio del artículo afectante antes mencionado se ordenó derogar los numeral 14 y 15 y ajustar la numeración de los restantes artículos)

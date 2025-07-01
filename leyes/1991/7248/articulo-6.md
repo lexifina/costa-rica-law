@@ -1,22 +1,7 @@
-ARTICULO 6.- Cada año, a más tardar el 10 de enero, las personas
-referidas en el artículo 1 de esta ley presentarán a la Municipalidad la
-declaración jurada, con indicación del monto de la renta líquida
-gravable, de las ventas o los ingresos brutos y el impuesto trimestral
-que deban pagar por concepto de patente, según el artículo 5 de esta ley.
-Las personas físicas o jurídicas cuyo ejercicio económico difiera
-del comprendido entre el 1º de octubre y el 30 de setiembre del año
-siguiente, deberán presentar sus declaraciones juradas del impuesto de
-patente municipal dentro del plazo de tres meses, contados a partir de la
-fecha de cierre de tal ejercicio económico.
-La Municipalidad de Cartago, en forma directa o por medio de la
-Dirección General de Tributación Directa, enviará los formularios
-requeridos a cada contribuyente para que determine el impuesto de patente
-que le corresponde pagar por trimestre durante el siguiente período
-anual. Los formularios deberán indicar el monto del impuesto de patentes
-y se remitirán a la Municipalidad.
-Los patentados declarantes del impuesto sobre la renta deberán
-presentar, a la Municipalidad, junto con la declaración jurada del
-impuesto de patente municipal, una copia de la declaración de la renta,
-sellada por la Dirección General de Tributación Directa.
-(Así reformado por el artículo 1 de la ley No.7802 de 7 de mayo de
-1998)
+Artículo 6- Cada año, posterior a la fecha establecida para la presentación de la declaración jurada del impuesto sobre la renta, se concederán diez días hábiles a las personas referidas en el artículo 1 de esta ley para presentar a la Municipalidad la declaración jurada del impuesto de patente, con indicación del monto de los ingresos brutos devengados según el artículo 5 de esta ley.
+En el caso de contribuyentes cuyo domicilio social y fiscal se ubique en una jurisdicción distinta a la de este cantón, deberán presentar certificación original reciente emitida por un contador público autorizado (con no más de un mes de emitida) en la que se detallen: los ingresos brutos devengados generados y cancelados en cada una de las municipalidades donde tenga licencia, con indicación de la municipalidad a la que corresponde.
+La declaración de patentes se hará mediante formularios preimpresos que podrán ser habidos en la Municipalidad de Cartago, a partir del primero de diciembre de cada año.
+Sin perjuicio de ello, la Municipalidad pondrá a disposición de los contribuyentes en su página web los indicados formularios para que puedan ser descargados por los contribuyentes. En este caso, los contribuyentes deberán imprimirlos y, debidamente completados, deberán presentarlos ante la Municipalidad en el plazo de ley.
+También, la Municipalidad podrá habilitar medios electrónicos para realizar la declaración digitalmente bajo la modalidad que se disponga.
+Los patentados declarantes del impuesto sobre la renta deberán presentar a la Municipalidad, junto con la declaración jurada del impuesto de patente municipal, una copia de la declaración del impuesto sobre la renta.
+(Así reformado por el artículo 1° de la ley N° 10733 del 17 de junio de 2025)
