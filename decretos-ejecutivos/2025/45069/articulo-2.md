@@ -1,0 +1,1 @@
+Artículo 2 °-Deróguese el Decreto Ejecutivo número 44962-H del 07 de marzo de 2025, publicado en el Alcance 49 a La Gaceta número 69 del 10 de abril de 2025 mediante el cual se actualizó el impuesto a partir del 1° de abril de 2025, a partir de la vigencia del presente decreto.
