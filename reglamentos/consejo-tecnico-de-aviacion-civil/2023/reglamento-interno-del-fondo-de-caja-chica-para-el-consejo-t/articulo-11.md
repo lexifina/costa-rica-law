@@ -1,1 +1,0 @@
-Artículo 11.-Formulario único. La Administración oficializará formularios para la solicitud, liquidación y reintegro de los fondos de caja chica, debidamente incorporados al Sistema de Gestión, los mismos serán electrónicos. Cualquier gestión relacionada con los fondos de caja chica deberá realizarse mediante dichos formularios.

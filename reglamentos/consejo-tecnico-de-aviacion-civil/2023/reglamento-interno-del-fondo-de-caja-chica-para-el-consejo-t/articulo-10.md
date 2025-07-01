@@ -1,1 +1,0 @@
-Artículo 10.-Clasificador por el objeto del gasto del sector público. Las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por fondo fijo caja chica se establecerán atendiendo el clasificador por el objeto del gasto del sector público.

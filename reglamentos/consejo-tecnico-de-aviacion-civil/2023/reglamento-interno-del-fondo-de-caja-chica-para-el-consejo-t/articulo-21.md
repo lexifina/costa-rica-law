@@ -1,8 +1,0 @@
-Artículo 21.-Condiciones de pago a proveedores. Todo pago realizado a los proveedores por parte del responsable del fondo fijo caja chica deberá quedar registrado en el sistema electrónico vigente y contar con el respaldo de una solicitud de pedido de compra por caja chica que se realizará mediante el formulario único, de una factura comercial, tiquete o comprobante y cumplir con los siguientes requisitos para su cancelación:
-a) Factura confeccionada en original a nombre de Cetac, indicando los suministros o servicios adquiridos, la fecha de adquisición. Asimismo, la factura deberá cumplir con las disposiciones establecidas por la Dirección General de Tributación. En relación con la factura, se debe tomar en cuenta la entrada en vigor de la "factura electrónica" para cuando corresponda.
-b) Para los casos de un tiquete de caja u otro tipo de comprobante que sustituya a la factura (el hospedaje debe entregar factura únicamente) estos deberán cumplir con los requisitos establecidos por la Dirección General de Tributación.
-c) No se admitirán facturas con enmiendas, raspaduras, deterioradas o ilegibles. Las facturas no se pueden modificar o corregir de ningún modo con líquido corrector, tachaduras o borrones, ni que tengan diferentes colores de lapiceros.
-d) Toda factura, tiquete o comprobante podrá indicar suministro o servicios de varias partidas y subpartidas presupuestarias autorizadas.
-e) Para su liquidación todas las facturas deberán tramitarse dentro del año en el que estén fechadas, sea durante el período presupuestario vigente.
-f) Disposiciones que la Tesorería Nacional emita.
-g) En cuanto al fraccionamiento de operaciones se deberá cumplir con lo dispuesto en la Ley General de Contratación Pública y su reglamento.
