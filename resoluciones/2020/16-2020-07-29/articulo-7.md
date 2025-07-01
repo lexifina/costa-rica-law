@@ -1,2 +1,0 @@
-Artículo 7.- Independencia de otros reportes correspondientes al intercambio de información automático.
-Las obligaciones surgidas en la aplicación de la presente resolución y sus alcances son independientes del cumplimiento de aquellas que surjan al amparo del Acuerdo Intergubernamental suscrito entre la República de Estados Unidos de Norteamérica y la República de Costa Rica (IGA, por sus siglas en inglés), para el cumplimiento de la Ley de Cumplimiento Tributario sobre Cuentas Extranjeras (FATCA, por sus siglas en inglés).

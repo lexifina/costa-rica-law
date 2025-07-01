@@ -1,3 +1,0 @@
-Artículo 5.- Registro de Entidades Sujetas a Reportar.
-La Dirección General de Tributación no registra entidades financieras como sujetas a reportar, por lo que no realiza inscripción ni desinscripción de estas razón por la cual, cuando una entidad financiera determine por su propia cuenta que se ajusta a la definición de entidad financiera sujeta a reportar o deja de hacerlo, debe comunicarlo con un oficio firmado en digital por el representante legal, dirigido a la Dirección General de Tributación y deberá enviarlo al correo electrónico: info-CRS@hacienda.go.cr
-Lo anterior bajo la responsabilidad de cada Entidad Financiera, en caso de que, mediante una comprobación posterior, se determine que su situación no corresponde a la indicada.
