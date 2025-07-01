@@ -1,1 +1,0 @@
-Artículo 19.-El propietario de las Obras Constructivas será responsable de cualquier daño directo o indirecto que esta o estas puedan causar a los bienes municipales, privados o a terceros, relevando de cualquier responsabilidad a la Municipalidad.

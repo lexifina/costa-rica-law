@@ -1,5 +1,0 @@
-CAPÍTULO VI
-Transitorios
-Transitorio primero.-Las solicitudes de uso de suelo y Licencia de Construcción que se hayan presentado ante la Municipalidad antes de la publicación del presente Reglamento y que no han sido resueltas por la administración municipal, deberán ajustarse a lo establecido en el mismo, una vez este sea publicado en el Diario Oficial La Gaceta, conforme a lo siguiente:
-(a) Una vez presentados los requisitos faltantes según corresponda, la Municipalidad irá resolviendo las solicitudes en un estricto orden, de acuerdo a la hora y fecha de recepción de la solicitud completa.
-(b) En caso que no sea posible determinar cuál solicitud se presentó primero, la Municipalidad otorgará Licencia de Construcción según corresponda a aquel que complete sus requisitos primero. En caso que las partes interesadas también tengan sus requisitos completos, se otorgará la licencia respectiva mediante un sorteo. Para ello la Municipalidad convocará a las partes a una audiencia oral y privada en donde se llevará a cabo dicho sorteo del cual se levantará un acta.

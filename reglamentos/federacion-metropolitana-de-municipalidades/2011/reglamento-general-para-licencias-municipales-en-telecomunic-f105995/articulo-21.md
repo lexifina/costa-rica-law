@@ -1,7 +1,0 @@
-Artículo 21.-El Municipio no otorgará una Licencia de Construcción en los siguientes casos:
-1. Que la altura de la torre sea menor a 30 metros, medida desde la base hasta el final de la torre sin incluir el pararrayo, o que sobrepase la altura máxima establecida por la Dirección General de Aviación Civil.
-2. Que exista una Licencia de Construcción previamente otorgada para una torre ubicada a una distancia que permita el uso compartido o coubicación, conforme al plan de cobertura y calidad que requieren los operadores, y se encuentre dentro del plazo a que se refiere el artículo 22 de este Reglamento.
-Tanto con respecto a lo dispuesto en el artículo 13 de este Reglamento, como en otros supuestos en los que el solicitante alegue razones técnicas para la instalación de torres con requisitos técnicos distintos a los indicados, la corporación municipal o el interesado podrán solicitar el criterio técnico debidamente motivado por parte de la SUTEL.
-(Nota de Sinalevi. En el caso de la Municipalidad de Tilarán, se acogió Reglamento general, con los siguientes cambios, adicionando un inciso 3 y 4 al artículo 21
-3. Que la distancia de la torre este a menos de 100 metros de un centro educativo.
-4. Para la instalación de torres en el casco urbano del Distrito Central.)
