@@ -5,3 +5,5 @@ Artículo 6°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 44936 del 12 de marzo de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 44984 del 12 de mayo de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45018 del 21 de mayo de 2025)
+(Reformado por el artículo 2° de la ley N° 10739 del 1° de julio de 2025)
+(Reformado por el artículo 3° de la ley N° 10739 del 1° de julio de 2025)
