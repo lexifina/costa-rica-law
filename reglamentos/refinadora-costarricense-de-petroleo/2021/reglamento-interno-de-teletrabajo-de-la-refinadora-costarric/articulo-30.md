@@ -1,1 +1,0 @@
-Artículo 30.-La jefatura puede requerir de la realización de actividades presenciales, para lo cual se debe acondicionar un espacio físico que disponga de conectividad y le permita a la persona trabajadora hacer sus funciones de forma transitoria en esos sitios.

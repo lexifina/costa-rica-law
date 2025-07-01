@@ -1,2 +1,0 @@
-Artículo 20.-La persona teletrabajadora deberá cumplir con la jornada laboral oficial de la empresa. Sin embargo, los días y el horario en los que realiza teletrabajo pueden ser flexibles, siempre y cuando sean consensuados con su jefatura y no se afecte ni el normal desarrollo de las actividades de otras personas trabajadoras, ni los procesos de trabajo que reciben o entregan insumos a su gestión.
-La Administración Superior, en coordinación con los titulares subordinados, definirán, según la conveniencia empresarial, los días que serán teletrabajables.

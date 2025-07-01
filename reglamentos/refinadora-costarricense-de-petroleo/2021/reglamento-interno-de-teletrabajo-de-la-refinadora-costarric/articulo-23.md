@@ -1,1 +1,0 @@
-Artículo 23.-La persona teletrabajadora, indistintamente en la modalidad en que se encuentre, previa coordinación con el titular subordinado, podrá hacer uso de los telecentros y salas de videoconferencias disponibles para realizar sus funciones en forma transitoria, acatando las normas de uso que se establezcan.

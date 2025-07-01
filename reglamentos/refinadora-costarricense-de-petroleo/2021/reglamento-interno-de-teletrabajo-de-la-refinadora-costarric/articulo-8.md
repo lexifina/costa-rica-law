@@ -1,1 +1,0 @@
-Artículo 8º-En caso de que se otorgue la modalidad de teletrabajo a una persona que se encuentre ocupando un puesto de manera interina, el acuerdo contractual estará sujeto al plazo en que se desempeñe en dicho puesto.

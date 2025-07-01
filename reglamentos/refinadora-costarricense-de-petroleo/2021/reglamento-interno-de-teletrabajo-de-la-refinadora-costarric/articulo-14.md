@@ -1,1 +1,0 @@
-Artículo 14.-RECOPE facilitará a los equipos móviles provistos el software necesario para garantizar su buen estado, control de acceso, políticas de seguridad, manejo de inventario y actualizaciones. El equipo contará con software de monitoreo para garantizar su integridad, así como el software y herramientas necesarias para poder realizar las actividades de teletrabajo.

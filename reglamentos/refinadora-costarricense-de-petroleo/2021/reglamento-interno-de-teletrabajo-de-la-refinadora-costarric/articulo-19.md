@@ -1,2 +1,0 @@
-Artículo 19.-El reconocimiento del complemento salarial de peligrosidad, será proporcional al tiempo efectivo en que la persona trabajadora se desempeñe en el centro laboral que presenta los grados de peligrosidad contenidos en la norma convencional.
-No se reconocerán sobresueldos, complementos salariales o incentivos económicos incompatibles con el teletrabajo y, en todo caso, no se sufragarán incentivos económicos que no se devengaran antes del otorgamiento de esta modalidad, tales como viáticos o pasajes.

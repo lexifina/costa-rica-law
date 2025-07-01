@@ -1,1 +1,0 @@
-Artículo 26.-En caso de que se dé por finalizado el acuerdo contractual de teletrabajo, la persona teletrabajadora deberá devolver, a la brevedad posible, los activos que le fueron facilitados para el desempeño de sus funciones, conforme a lo establecido en la normativa empresarial.
