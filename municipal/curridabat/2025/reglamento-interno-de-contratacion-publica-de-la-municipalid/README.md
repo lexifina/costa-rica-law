@@ -14,3 +14,4 @@ Reglamento interno de contratación pública de la Municipalidad de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-04-30 | la propia norma |
+| 2 | 2025-07-01 | Reglamento municipal 61 (2025-07-01) |
