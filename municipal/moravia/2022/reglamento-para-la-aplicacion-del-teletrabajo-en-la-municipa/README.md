@@ -14,3 +14,4 @@ Reglamento para la aplicación del teletrabajo en la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-10-25 | la propia norma |
+| 2 | 2025-07-01 | Reglamento municipal 0 (2025-07-01) |
