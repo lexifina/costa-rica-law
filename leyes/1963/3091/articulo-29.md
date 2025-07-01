@@ -1,5 +1,6 @@
-Artículo 29.- JAPDEVA establecerá las tarifas portuarias y
-ferroviarias cuya aprobación final corresponde al organismo competente.
-Si éste no las objeta dentro de un plazo de sesenta días, a partir de su
-recepción, las regulaciones se considerarán aprobadas.
-NOTA: Ver nota del artículo 1 en lo relativo a tarifas ferroviarias.
+Artículo 29- La Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) será el ente encargado de establecer las tarifas portuarias y su aprobación final recaerá en el órgano competente.
+En caso de que este último no objete las tarifas dentro de un plazo de sesenta días, contados a partir de su recepción, las regulaciones se considerarán aprobadas.
+La Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Japdeva) deberá presentar de manera ordinaria, al menos una vez al año, la solicitud formal para la fijación o las modificaciones de tarifas, así como extraordinariamente en las ocasiones que sean necesarias.
+Se considerarán solicitudes extraordinarias aquellas que contemplen variaciones significativas en el entorno económico, ya sea por casos fortuitos, de fuerza mayor, o cuando se cumplan las condiciones de los modelos automáticos de ajuste y variaciones cambiarías en la moneda.
+La persona funcionaria pública que debiendo realizar las gestiones necesarias para la actualización, presentación, revisión y aprobación de las tarifas en los términos de esta ley no lo hiciere, será sancionada con responsabilidades administrativas, civiles y penales.
+(Así reformado por el artículo único de la ley N° 10726 del 13 de mayo de 2025)
