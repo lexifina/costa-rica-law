@@ -1,8 +1,3 @@
-ARTICULO 4.- Salvo los casos en que esta Ley determine un
-procedimiento diferente para fijar el monto del impuesto de patentes, se
-establecen como factores determinantes de la imposición, la renta líquida
-gravable y las ventas o los ingresos brutos, que perciban las personas
-físicas o jurídicas afectas al impuesto durante el ejercicio económico
-anterior al período que se grava. Por ventas se entiende el volumen de
-éstas, hecha la deducción del impuesto que establece la Ley del Impuesto
-sobre las Ventas.
+Artículo 4- Para fijar el monto del impuesto de patentes en las patentes permanentes y temporales se establecen, como factor determinante de la imposición, los ingresos brutos que devenguen las personas físicas o jurídicas afectas al impuesto durante el ejercicio económico anterior al período que se grava y se cobrará conforme a este párrafo y a los numerales 5 y 18 de esta ley.
+Para el caso de las patentes de actividades ocasionales el impuesto se cobrará con base en una declaración jurada previa a la realización de la actividad en la que se presenten los ingresos brutos devengados proyectados, y se cobrará conforme al párrafo anterior y al numeral 5 de esta ley, sin que en ningún caso pueda ser inferior a un doceavo del salario base establecido en la Ley 7337, ley que crea concepto salario base para delitos especiales del Código Penal, del 5 de mayo de 1993.
+(Así reformado por el artículo 1° de la ley N° 10733 del 17 de junio de 2025)

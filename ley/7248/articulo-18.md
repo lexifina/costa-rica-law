@@ -1,7 +1,3 @@
-CAPITULO III
-DISPOSICIONES FINALES
-ARTICULO 18.- Cuando existieran disposiciones legales
-proteccionistas que afecten el pago del impuesto o patente, corresponderá
-al interesado solicitar la exención correspondiente. No obstante, en
-tales casos, se mantiene la obligación de solicitar la respectiva
-licencia municipal.
+Artículo 18- Los procedimientos establecidos en esta Ley para determinar el impuesto de patentes no excluyen aquellas actividades sujetas a licencia que por características especiales sean objeto degravámenes impositivos creados por leyes de alcance nacional.
+(Así modificada su numeración por el artículo 2° de la ley N° 10733 del 17 de junio de 2025, que lo traspasó del antiguo artículo 19 al artículo 20)
+(Así modificada su numeración por el artículo 3° de la ley N° 10733 del 17 de junio de 2025, que lo traspasó del antiguo artículo 20 al artículo 18, ya que por medio del artículo afectante antes mencionado se ordenó derogar los numeral 14 y 15 y ajustar la numeración de los restantes artículos)
