@@ -1,0 +1,28 @@
+INSTITUTO NACIONAL DE SEGUROS
+Reglamento de tipo abierto para la afiliación de comercios a las plataformas
+de servicio de asistencias y planes de lealtad que contrate el
+Instituto Nacional de Seguros.
+La Junta Directiva del INS en sesión ordinaria N.° 9915, artículo II del 25-06-2025, aprobó la reforma del cambio de nombre del Reglamento, considerandos, artículo 3 y artículo 4.
+Esta publicación deroga la reforma del Reglamento de tipo abierto para la afiliación de comercios a las plataformas de servicio de asistencias y planes de lealtad que contrate el Instituto Nacional de Seguros, publicado en el Alcance N° 14 de la Gaceta N° 20 del 31/01/2025, para que, en adelante, se lea de la siguiente manera:
+La Junta Directiva del INS
+En ejercicio de las facultades que le confiere el artículo 5 inciso a.12 de la Ley del INS y
+CONSIDERANDO QUE
+I. El Instituto Nacional de Seguros (INSTITUTO) dentro de los servicios que se asocian a algunas líneas de seguros, ofrece multiasistencias; así como desarrolla planes de lealtad, beneficios o servicios dirigidos a los consumidores de los seguros del INS.
+II. La implementación de una plataforma tecnológica para brindar los servicios de multiasistencias y o planes de lealtad, permitirá al INS mantenerse a la vanguardia en el sector de seguros, ofreciendo servicios innovadores que se alinean con las expectativas de los consumidores modernos.
+III. La contratación de empresas especializadas en servicios de asistencia integral y o planes de lealtad, contribuyen a la optimización de procesos internos, mejorando la eficiencia operativa y reduciendo tiempos de respuesta. La tecnología facilita la gestión de datos y la atención a los asegurados, asegurando una operación más fluida y eficiente.
+IV. Contar con plataformas tecnológicas para el manejo de los servicios de multiasistencias y o planes de lealtad, permitirá una mejor gestión y seguimiento de las asistencias y o planes de lealtad, mejorando la experiencia del cliente al proporcionar un servicio más rápido, accesible y de calidad. La capacidad de interactuar con múltiples canales de comunicación fortalecerá la relación con los asegurados, aumentando la satisfacción y fidelidad.
+V. Las empresas contratadas para suministrar y administrar las plataformas tecnológicas que soporten los servicios de multiasistencias y o planes de lealtad, debe cumplir con los estándares legales y de calidad, garantizando la seguridad y confiabilidad del servicio.
+VI. Para brindar el servicio al INS, los contratistas que el INS contrate para suministrar y administrar las plataformas de los servicios de multiasistencias y o planes de lealtad, deben integrar una red de comercios afiliados.
+VII. El rol de los comercios afiliados es actuar como entidades colaboradoras o participantes dentro del marco del servicio integral de la plataforma tecnológica que se contrata.
+VIII. La Ley General de Contratación Pública (LGCP) establece en el artículo 85, que la Administración podrá emplear cualquier figura contractual no regulada en el ordenamiento jurídico, debiendo para ello cumplirse con los requisitos previstos en dicho artículo.
+IX. El Reglamento a la LGCP en su artículo 239 señala que la Administración podrá emplear cualquier figura contractual no regulada expresamente por el ordenamiento jurídico, ya sea porque constituyan figuras mixtas de tipos de contratos ya regulados o porque su base normativa provenga de la aplicación consuetudinaria de normas surgidas en el derecho privado y en consecuencia, carezcan de regulación legal y hasta de una nominación uniforme; agregando la misma norma reglamentaria que se entenderá que carece de regulación expresa, cualquier figura contractual que no esté contemplada en el ordenamiento jurídico.
+X. Dentro de los requisitos que establece el artículo 85 de la LGCP, está el obtener las autorizaciones y demás requisitos previstos en el ordenamiento jurídico, por lo que mediante oficio MH-DCoP-OF-0901-2024 del 19 de diciembre de 2024 y MH-DCoP-OF-0300-2025 del 10 de junio de 2025, la Dirección de Contratación Pública del Ministerio de Hacienda emitió un dictamen afirmativo no vinculante, al INS para emitir el “REGLAMENTO DE TIPO ABIERTO PARA LA AFILIACIÓN DE COMERCIOS A LAS PLATAFORMAS DE SERVICIO DE ASISTENCIAS Y PLANES DE LEALTAD QUE CONTRATE EL INSTITUTO NACIONAL DE SEGUROS”.
+RESUELVE
+Emitir el siguiente reglamento interno que regulará los términos y condiciones que deben observar los contratistas adjudicados para el servicio de suministro y administración de plataformas de servicios de asistencia y planes de lealtad, con los comercios afiliados para la integración a su red.
+REGLAMENTO DE TIPO ABIERTO PARA LA AFILIACIÓN DE COMERCIOS A
+LAS PLATAFORMAS DE SERVICIO DE ASISTENCIAS Y PLANES DE LEALTAD
+QUE CONTRATE EL INSTITUTO NACIONAL DE SEGUROS
+Capítulo I. Aspectos Generales.
+Artículo 1. Objeto.
+Este Reglamento tiene como objeto regular los términos y condiciones que debe observar el contratista adjudicado para el servicio de suministro y administración de la plataforma de servicios de asistencia y planes de lealtad, con los comercios afiliados para la integración a su red.
+Las negociaciones que celebre el contratista del servicio de suministro y/o administración de las plataformas con los comercios afiliados corresponden a un proceso externo al INS, por lo que el INS no asume ninguna obligación con los comercios afiliados.
