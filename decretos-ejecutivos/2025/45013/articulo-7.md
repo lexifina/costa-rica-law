@@ -1,0 +1,2 @@
+CAPÍTULO III
+Artículo 7.- Las becas de Postsecundaria deben ser utilizadas para carreras cursadas en instituciones educativas nacionales parauniversitarias y universitarias públicas o privadas; por personas estudiantes con documentos de identificación vigentes en el país, con fundamento en su condición socioeconómica, que será determinada por el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado SlNlRUBE.

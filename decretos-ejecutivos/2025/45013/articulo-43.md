@@ -1,0 +1,1 @@
+Artículo 43.- Se valorarán los cambios de centros de estudios en los que la persona beneficiaria se mantenga en la misma carrera, o bien en otra carrera, con excepción de lo indicado en el artículo 41.

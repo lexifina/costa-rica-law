@@ -1,0 +1,1 @@
+Artículo 3.- La Unidad de Becas promueve la permanencia de las personas estudiantes de postsecundaria, en condición de pobreza extrema o pobreza básica y vulnerabilidad, dentro del sistema educativo; con el fin de que a través del estudio puedan ingresar al mercado laboral.

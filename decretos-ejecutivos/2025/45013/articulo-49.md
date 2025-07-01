@@ -1,0 +1,1 @@
+Artículo 49.- La persona estudiante a la que se le practicó un cierre administrativo definitivo por motivo de falsificación de datos o alteración de documentos públicos o privados deberá esperar dos años cronológicos a partir del cierre para volver la solicitar beca.

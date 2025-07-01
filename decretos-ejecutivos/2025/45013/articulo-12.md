@@ -1,0 +1,1 @@
+Artículo 12.- Todas las personas estudiantes que realicen tramites y aporten documentos en las plataformas digitales establecidas, están en la obligación de realizarlo de forma personalísima, sin perjuicio de que la Administración requiera la presencia física cuando sea necesario.

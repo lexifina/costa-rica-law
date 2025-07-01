@@ -1,0 +1,1 @@
+Articulo 51.- Esta vía se aplica ante el acto administrativo de Rechazo de la Solicitud de la Beca Nueva o la Resolución de Cierre Administrativo del beneficio después de analizados los documentos en ambos procesos.

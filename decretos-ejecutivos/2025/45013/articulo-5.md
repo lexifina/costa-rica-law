@@ -1,0 +1,1 @@
+Artículo 5.- La Unidad de Becas aplicará los Principios de Derecho Administrativo que regulan las relaciones entre el Estado y las personas, orientados a asegurar la legalidad. la transparencia, la justicia y el respeto.

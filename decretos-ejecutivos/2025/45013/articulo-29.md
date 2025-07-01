@@ -1,0 +1,1 @@
+Artículo 29. -La Unidad de Becas valorará cualquier otro curso/materia, trabajo final de graduación o similar. que amerite ser analizado de conformidad con lo que establezca el Plan de Estudios presentado.

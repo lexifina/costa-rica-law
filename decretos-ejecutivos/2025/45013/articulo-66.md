@@ -1,0 +1,2 @@
+Artículo 65.- La Unidad de Becas podrá disponer de cualquier tipo de colaboración financiera de entes extranjeros, nacionales, públicos o privados. mientras el ordenamiento jurídico lo permita. Para ampliación de recursos financieros y otorgar más becas.
+(*)(En la publicación de este reglamento se duplica la numeración del artículo 65. Del análisis se deduce que en realidad corresponde al artículo N° 66).

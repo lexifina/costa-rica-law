@@ -1,0 +1,1 @@
+Artículo 65.- La Unidad de Becas podrá proceder con los reajustes que considere necesarios al monto de la beca. con el único fin de garantizar la eficiencia. la eficacia y la economía en la ejecución de los recursos públicos.

@@ -1,0 +1,1 @@
+Artículo 2.- El Programa de Becas de Postsecundaria lo ejecutará el Ministerio de Educación Pública a través de la Unidad de Becas de la Dirección de Programas de Equidad en beneficio de las personas estudiantes que cumplan con los requisitos estipulados en el CAPÍTULO IV, Regulaciones para el otorgamiento de Becas y con documentos de identificación vigentes en el país.

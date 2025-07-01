@@ -1,0 +1,1 @@
+Artículo 16.- Los requisitos serán recibidos por medio de la Plataforma digital que el Ministerio de Educación Pública habilite para ese momento. La Unidad de Becas contará con sesenta (60) días naturales de plazo para dar el resultado a cada solicitud. Podrá ampliar ese tiempo en treinta días naturales, en caso de ser necesario.

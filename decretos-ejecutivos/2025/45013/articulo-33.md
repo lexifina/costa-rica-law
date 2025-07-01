@@ -1,0 +1,1 @@
+Artículo 33.- Este formulario debe contener las razones que sustenten la reprobación, los documentos necesarios que respaldan dicha justificación y la firma de la persona beneficiaria para ser valorado.

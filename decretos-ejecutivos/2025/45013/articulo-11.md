@@ -1,0 +1,1 @@
+Artículo 11.- La Unidad de Becas oficialmente verificará la condición socioeconómica en la Plataforma SINIRUBE una vez al año, sin embargo, podrá hacerlo cuando lo considere necesario, por lo que la persona que disfrute del beneficio está en la obligación de informar sobre cualquier cambio que mejore su situación socioeconómica.

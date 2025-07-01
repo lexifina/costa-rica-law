@@ -1,0 +1,1 @@
+Artículo 62.- La Unidad de Becas podrá modificar unilateralmente el monto del beneficio en función de la condición socioeconómica, carga académica, rendimiento académico de la persona beneficiaria. disponibilidad presupuestaria o alguna otra razón de peso. así estipulado en los lineamientos vigentes emitidos.

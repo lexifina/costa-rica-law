@@ -1,0 +1,1 @@
+Artículo 8.- Los recursos que el Programa de Becas de Postsecundaria otorga a las personas beneficiarias. deben ser destinados para el pago de la matrícula y materias en la carrera en la que está empadronado.

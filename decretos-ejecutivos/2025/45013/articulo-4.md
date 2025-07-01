@@ -1,0 +1,1 @@
+Artículo 4.- La Unidad de Becas otorga el beneficio de becas económicas a la población estudiantil para que inicien y/o culminen sus estudios postsecundarios con grado en diplomado, bachillerato y licenciatura.

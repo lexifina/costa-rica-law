@@ -1,0 +1,1 @@
+Artículo 55.- La persona dispone de tres días hábiles, posteriores a la notificación de Rechazo de la Solicitud de Beca Nueva o la resolución que comunica el Cierre Administrativo de la beca, para presentar el recurso respectivo.

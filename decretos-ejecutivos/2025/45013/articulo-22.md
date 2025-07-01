@@ -1,0 +1,4 @@
+Artículo 22.-Este Proceso de Prórroga no es de oficio. La Unidad de Becas comunicará el tiempo para hacerlo. La persona estudiante debe presentar los requisitos previamente establecidos al inicio de cada período. De este proceso se desprenden los siguientes estados:
+a) Continuidad del beneficio. Quien realice el proceso y cumpla con todos los requisitos; quien esté desestimado y realice el subsane.
+b) Cierre del beneficio. Quien no realice este proceso en el período establecido: quien quedando en estado desestimado no subsane: no gozará de la continuidad del beneficio.
+c) Suspensión del beneficio por un período. Quien realiza el proceso y no presenta toda la información. pero justifica en ese mismo momento, se pasa a valorar por un Profesional de la Unidad de Becas sea en Trabajo Social o Psicología para determinar si se mantiene. o se cierra el beneficio.

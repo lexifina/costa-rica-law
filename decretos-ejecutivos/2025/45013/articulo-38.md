@@ -1,0 +1,1 @@
+Artículo 38.- Cuando el Módulo se encuentre cerrado, ambas solicitudes podrán tramitarse por medio del correo electrónico del Programa de Becas de Postsecundaria, antes de que finalice el ciclo que está cursando.

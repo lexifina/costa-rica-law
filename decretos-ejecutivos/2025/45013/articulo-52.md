@@ -1,0 +1,1 @@
+Artículo 52.-. La Unidad de Becas se regirá conforme lo establecido en los artículos 342 al 352 de la Ley General de Administración Pública (LGAP), para atender y tramitar el recurso que presenten las personas estudiantes.

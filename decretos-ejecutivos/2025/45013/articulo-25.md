@@ -1,0 +1,1 @@
+Artículo 25.- Deberá presentar el formulario de Justificación correspondiente, el cual se encuentra en la página web de este Ministerio con las razones que sustenten el incumplimiento y los documentos necesarios que respaldan dicha justificación.

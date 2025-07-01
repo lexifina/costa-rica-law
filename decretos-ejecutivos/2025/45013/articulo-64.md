@@ -1,0 +1,1 @@
+Artículo 64.- La Unidad de Becas podrá hacer pagos retroactivos mientras el periodo de matrícula esté vigente, solo si la fuente de financiamiento con la que se otorga el beneficio lo permite. y si se cuenta con la disponibilidad de recursos.

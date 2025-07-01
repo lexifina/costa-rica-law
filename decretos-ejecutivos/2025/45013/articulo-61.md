@@ -1,0 +1,1 @@
+Artículo 61.- El monto económico será fijado anualmente, de acuerdo con la cantidad de materias matriculadas y lo estipulado en los Lineamientos vigentes para cada año establecidos por la Unidad de Becas para cada ejercicio presupuestario.
