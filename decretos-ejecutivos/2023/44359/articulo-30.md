@@ -1,0 +1,1 @@
+Artículo 30. Comunicación con entes externos. El Auditor Interno tiene la facultad de solicitar, proveer e intercambiar información con entes externos que conforme a la ley corresponda, sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 21. Pericia y debido cuidado profesional. El Auditor Interno deberá cumplir sus funciones con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio.

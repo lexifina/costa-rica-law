@@ -1,0 +1,1 @@
+Artículo 16. Organización. La Auditoría Interna está organizada en una sola unidad funcional, de acuerdo con la organización del MAC, la cual estará bajo la responsabilidad y dirección inmediata del Auditor Interno.

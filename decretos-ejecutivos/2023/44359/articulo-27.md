@@ -1,0 +1,1 @@
+Artículo 27. Potestades. Los funcionarios de la Auditoría Interna, en el desempeño de sus competencias, ejercerán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno.

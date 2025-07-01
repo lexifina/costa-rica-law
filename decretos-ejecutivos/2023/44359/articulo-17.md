@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del Auditor Interno y del personal de la Auditoría Interna
+Artículo 17. Nombramiento del Auditor Interno. El nombramiento del Auditor Interno lo hará la Junta Administrativa del Museo de Arte Costarricense, instancia de la cual depende orgánicamente la Auditoría Interna. Su nombramiento será por tiempo indefinido y su jornada de trabajo a tiempo completo.
+Este nombramiento se hará mediante concurso público y se considerará lo previsto en el artículo 31 de la Ley General de Control Interno, el artículo 62 de la Ley Orgánica de la Contraloría General de la República, así como lo establecido en los lineamientos sobre requisitos del cargo de Auditor Interno y las condiciones para las gestiones de nombramiento, que al respecto dicte la Contraloría General de la República para las unidades de auditoría interna del Sector Público.

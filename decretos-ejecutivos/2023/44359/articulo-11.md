@@ -1,0 +1,9 @@
+Artículo 11. Impedimentos del personal de la Auditoría Interna. Es obligación del Auditor Interno, cuando su independencia de criterio y objetividad se vean comprometidas, poner en conocimiento del jerarca los detalles del impedimento. Los funcionarios de la Auditoría Interna, en resguardo de su independencia de criterio y objetividad deberán abstenerse de:
+a) Realizar funciones y actuaciones de administración activa, salvo las recesarías para cumplir su competencia. Cuando se solicite al Auditor Interno su participación en este tipo de actividades, se tendrá en cuenta que dicha participación será exclusivamente en función de asesor y no podrá ser con carácter permanente.
+b) Ningún funcionario de la Auditoría Interna podrá fiscalizar actividades específicas de las cuales haya sido previamente responsable.
+c) Ser miembro de órganos colegiados de un sujeto privado que administra fondos públicos que están como tales sujetos a su fiscalización.
+d) Formar parte del órgano director de un procedimiento administrativo.
+e) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre y cuando sea fuera de la jornada laboral.
+f) Participar en todo tipo de actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+g) Revelar información sobre las auditorías o los estudios de carácter especial que conlleven a una posible responsabilidad administrativa, civil o eventualmente penal.
+h) Utilizar su cargo para obtener información con fines distintos al cumplimiento de sus obligaciones y deberes.

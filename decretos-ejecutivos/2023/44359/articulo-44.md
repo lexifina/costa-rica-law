@@ -1,0 +1,1 @@
+Artículo 44. Confidencialidad. Las relaciones de hechos y la documentación que sustenta el estudio son de acceso restringido durante la investigación, la elaboración de la relación de hechos y el traslado al jerarca u órgano competente y aún posterior a ello hasta que se dicte el acto final.

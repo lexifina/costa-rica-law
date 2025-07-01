@@ -1,0 +1,10 @@
+CAPÍTULO V
+De los servicios de la Auditoría Interna
+SECCIÓN A
+Tipos de servicios
+Artículo 35. De los servicios. Dentro del ámbito institucional del MAC, la Auditoría Interna prestará servicios de fiscalización, los cuales se clasifican en dos tipos: servicios de auditoría y servicios preventivos, los que deberán ser ejecutados por los funcionarios de la Auditoría Interna con pericia y debido cuidado profesional, conforme lo establece este reglamento, el Manual de Normas para el Ejercicio de la Auditoría Interna y otra normativa técnica aplicable:
+1) Servicios de auditoría: Comprenden los distintos tipos de auditoría, incluidos los estudios especiales de auditoría. Estos servicios alcanzan a todos los entes definidos en el universo auditable.
+2) Servicios preventivos: Se definen corno servicios preventivos la asesoría, la advertencia y la autorización de libros.
+a. Asesoría. Consiste en proveer criterios, opiniones u observaciones que coadyuven a la toma de decisiones sobre asuntos puntuales y no devienen en vinculante para quien los recibe. Las asesorías se brindarán a solicitud del jerarca. En cuanto a otros niveles, estas podrán darse de oficio o a solicitud de parte y quedando a criterio del Auditor Interno proporcionarla. Las asesorías que se brinden serán de preferencia escritas y podrán ser verbales, dejando constancia de ellas.
+b. Advertencia. Consiste en prevenir a la Administración Activa sobre posibles consecuencias de determinadas conductas o decisiones contrarias al ordenamiento jurídico y técnico, siempre y cuando sean del conocimiento de la Auditoría Interna. Deben ser por escrito. El proceder y la legalidad de lo actuado por la Administración será objeto de seguimiento por parte de la Auditoría.
+c. Autorización de libros. Consiste en autorizar o validar según corresponda, mediante razón de apertura y cierre, los libros de contabilidad y de actas que llevan las diferentes dependencias de la Institución; así como otros libros que a criterio del Auditor Interno sean necesarios para el fortalecimiento del control interno institucional.

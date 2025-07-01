@@ -1,0 +1,1 @@
+Artículo 31. Apoyo legal. La Auditoría Interna deberá contar con la asesoría jurídica con que disponga la Institución de manera oportuna y efectiva, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico conforme lo establece el artículo 33, inciso c) de la Ley General de Control Interno.

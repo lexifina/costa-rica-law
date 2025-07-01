@@ -1,0 +1,4 @@
+Artículo 39. Conferencia final. Los resultados, conclusiones y recomendaciones se comentarán, de previo a su comunicación oficial, con el funcionario a quien se dirigen las recomendaciones, a fin de promover el intercambio y retroalimentación con respecto a estos.
+Las observaciones escritas que al respecto ese funcionario proporcione en la conferencia final, se contemplarán en el respectivo informe de auditoría y sobre ellas se manifestará, de estimarlo necesario, la Auditoría Interna.
+La Auditoría Interna sólo deberá variar su criterio y, si es del caso, modificar el contenido de su informe, cuando así se le demuestre con razones fundadas y a su entera satisfacción.
+Se exceptuarán de esa conferencia final los informes relacionados con el establecimiento de responsabilidades administrativas, civiles o penales.
