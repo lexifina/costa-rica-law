@@ -1,1 +1,0 @@
-Artículo 4º—Cuando en el desempeño de labores propias de JUPEMA, no se cuente con vehículos oficiales disponibles en oficinas centrales y sucursales, se puede contratar el arrendamiento del vehículo propiedad de los trabajadores, de conformidad con la normativa presente en este reglamento.

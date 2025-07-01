@@ -1,2 +1,0 @@
-Artículo 17.—JUPEMA no se hace responsable en caso de robo del vehículo, por lo cual la póliza referida debe tener cobertura contra robo, o en su defecto el trabajador debe rendir la declaración indicada en el procedimiento.
-JUPEMA tampoco es responsable de ningún daño o perjuicio que sobrevenga por robo, hurto, accidentes, o cualquier otra situación que se genere por la utilización del vehículo dentro del sistema de arrendamiento descrito.

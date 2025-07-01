@@ -1,1 +1,0 @@
-Artículo 21.—Cuando se determine que en la ejecución del contrato se incurre en violación de las disposiciones reglamentarias, el trabajador responsable puede ser corregido disciplinariamente por JUPEMA, según corresponda.

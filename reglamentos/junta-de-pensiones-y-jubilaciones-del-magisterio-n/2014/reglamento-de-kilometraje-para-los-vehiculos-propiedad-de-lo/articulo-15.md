@@ -1,1 +1,0 @@
-Artículo 15.—En caso de sustracción o pérdida de los objetos transportados propiedad de JUPEMA, el trabajador debe informarlo a su jefe inmediato una vez concluida la gira o gestión o bien el día posterior que resulte hábil, aportando para ello la denuncia presentada ante las autoridades judiciales correspondientes, según lo estipula el Reglamento de Activos Fijos Institucional.

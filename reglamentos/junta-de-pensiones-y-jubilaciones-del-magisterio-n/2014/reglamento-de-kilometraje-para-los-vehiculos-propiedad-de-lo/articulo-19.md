@@ -1,3 +1,0 @@
-Artículo 19.—JUPEMA puede rescindir unilateralmente y sin responsabilidad de su parte, el contrato de arrendamiento cuando el interés público, criterios de oportunidad, razonabilidad y conveniencia así lo exijan, o bien cuando el incumplimiento a las disposiciones contenidas en el presente reglamento así lo ameriten.
-Toda decisión sobre el particular es formalmente notificada y comunicada al trabajador (a) contratante.
-Los trabajadores que por motivación propia resuelvan retirarse del sistema para el pago de kilometraje, deben comunicarlo formalmente a la jefatura inmediata y ésta al Departamento Administrativo.

@@ -1,1 +1,0 @@
-Artículo 11.—No existe obligación para JUPEMA de garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que solo se reconocen aquellos que hayan sido efectivamente recorridos, que se encuentren debidamente justificados y documentados y se ajusten a las tarifas vigentes.
