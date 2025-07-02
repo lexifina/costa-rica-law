@@ -1,0 +1,6 @@
+CAPÍTULO III
+De las medidas especiales sanitarias, las labores de inspección y las sanciones
+Artículo 13- Medidas especiales sanitarias, labores de inspección y sanciones. El Ministerio de Salud, a través de sus Áreas Rectoras de Salud, según su competencia territorial, debe salvaguardar la protección de la salud pública, en los espacios de lactancia materna regulados en el presente reglamento.
+En caso de incumplimientos que representen un riesgo para la salud humana, el Ministerio de Salud, de oficio o por denuncia, aplicará las medidas sanitarias especiales previstas en los artículos 355, 356 siguientes y concordantes de la Ley General de Salud citada, tales como, pero no limitadas a: la clausura de establecimientos y la cancelación de permisos, según corresponda.
+Las personas inspectoras de la Dirección Nacional de Inspección del Trabajo del Ministerio de Trabajo y Seguridad Social verificarán de oficio o por denuncia, el cumplimiento de la normativa laboral que garantiza el derecho de la lactancia materna en los centros de trabajo.
+Realizarán las prevenciones que estime pertinentes y apegadas a derecho y procederán en caso de incumplimientos con lo establecido en los artículos 396, 397 y 398 del Código de Trabajo mencionado, en cuyo caso se impondrá a la persona empleadora una multa que puede ir de uno a veintitrés salarios base mensuales.

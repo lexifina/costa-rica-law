@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las obligaciones y medidas mínimas en el espacio de lactancia materna
+Artículo 3. Área mínima. A la persona trabajadora en periodo de lactancia se le debe garantizar en el espacio de lactancia materna, como mínimo, un área de superficie libre de dos metros cuadrados (2 m²) para extraer en forma segura y/o amamantar a su hijo (a) sin peligro, excluyendo el área ocupada por los accesorios que dispone el presente reglamento para cada modalidad de espacio de lactancia, a saber: a) sala de lactancia materna; b) cabina de lactancia materna o; c) zona de lactancia materna. Todos los espacios de lactancia materna deben cumplir con las condiciones de higiene y seguridad para su uso, desplazamiento y privacidad, según lo dispuesto en el presente reglamento.

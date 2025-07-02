@@ -1,0 +1,1 @@
+Transitorio III.- A partir de la entrada en vigencia del presente reglamento, los espacios de lactancia materna que estén habilitados sin el visto bueno del Departamento de Seguridad y Salud Laboral del Consejo de Salud Ocupacional, deberán solicitarlo, de conformidad con lo establecido en el artículo 11 de este reglamento.

@@ -1,0 +1,1 @@
+Transitorio I.- Las disposiciones establecidas en el presente Reglamento de condiciones para espacios de lactancia materna en los centros de trabajo, deben ser implementadas dentro de un plazo no mayor a los doce meses, contados a partir de la entrada en vigencia del presente decreto.
