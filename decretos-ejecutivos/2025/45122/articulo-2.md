@@ -1,0 +1,1 @@
+Artículo 2º- Nombrar a la señora María Luisa Ureña Chinchilla, cédula de identidad 1-1351- 0414, como representante del Ministerio de Trabajo y Seguridad Social en la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
