@@ -1,0 +1,3 @@
+Artículo 24.-Finalización del proceso y resolución.
+Una vez que se concluyeron todas las etapas del proceso desde el momento en el que se pone la denuncia, pasando por la presentación de pruebas, ampliación de ser necesario, y terminando con la sentencia en firme y el cumplimiento de la sanción, se entiende concluido el caso.
+Posterior a esto se puede iniciar con el archivo del expediente, una vez que no existan reclamos de ambas partes, este expediente será guardado por al menos un año contado en días naturales en caso de que exista la necesidad de re aperturalo u elevarlo a instancias penales.

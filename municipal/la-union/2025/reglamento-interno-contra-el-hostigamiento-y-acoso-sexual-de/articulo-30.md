@@ -1,0 +1,2 @@
+Artículo 30. -Plazo para interponer la denuncia.
+El plazo para interponer la denuncia, en el ámbito de trabajo y educativo, del sector público y el sector privado, sea ante instancia judicial o no judicial, ya sea en espacios privados de empleo, docencia o educación, en sede administrativa o ante las instancias judiciales, se considerará de ocho años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar.

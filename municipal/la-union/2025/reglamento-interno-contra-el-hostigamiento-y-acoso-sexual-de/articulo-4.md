@@ -1,0 +1,2 @@
+Artículo 4º-Sujetos Regulados.
+Este reglamento y todos los artículos que en él se encuentren, las modificaciones o extensiones que se realicen y la política conjunta serán de aplicación para todas las personas miembros o no que realicen un hecho que pueda ser catalogado como acoso u hostigamiento que se encuentren en cualquiera de las instalaciones o actividades realizadas o gestionadas por el Comité Cantonal de Deportes y Recreación de La Unión o por las asociaciones deportivas que se encuentren adscritas a este.
