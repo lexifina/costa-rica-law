@@ -16,3 +16,4 @@ Reglamento de Gastos de Representación para Funcionarios del Conglomerado del B
 | 1 | 2009-01-12 | la propia norma |
 | 2 | 2009-08-13 | Reglamento 4690 (2009-08-13) |
 | 3 | 2025-07-02 | Reglamento 6224 (2025-07-02) |
+| 4 | 2025-07-02 | Reglamento 6224 (2025-07-02) |
