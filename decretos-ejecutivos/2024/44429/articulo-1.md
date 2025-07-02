@@ -16,8 +16,8 @@ Artículo 1° - Integrar la Junta Directiva del Patronato Nacional de Ciegos con
 . Daisy Alejandra Marín Mora, portadora de la cédula de identidad 1-0916-0735, representante del Ministerio de Salud.
 (Así reformado el nombramiento anterior por los artículos 1 y 2 del decreto ejecutivo N° 44811 del 7 de noviembre de 2024)
 . Abel Augusto Valerio Gómez, cédula de identidad 4 0213 0426, representante de las Organizaciones de personas con discapacidad visual.
-- Marcela María Jiménez Villa, portadora de la cédula de identidad 1-0920-0460, representante del Ministerio de Trabajo y Seguridad Social (MTSS).
-(Así reformado el nombramiento anterior por los artículos 1 y 2 del decreto ejecutivo N° 44811 del 7 de noviembre de 2024)
+- María Luisa Ureña Chinchilla, cédula de identidad 1-1351-0414, como representante del Ministerio de Trabajo y Seguridad Social en la Junta Directiva del Patronato Nacional de Ciegos (PANACI).
+(Así reformado el nombramiento anterior por los artículos 1 y 2 del decreto ejecutivo N° 45122 del 2 de julio del 2025. Así mismo por el artículo 1° del decreto ejecutivo antes mencionado, se ordenó cesar a la señora Marcela María Jiménez Villa, portadora de la cédula de identidad 1-0920-0460 como miembro de la Junta Directiva del Patronato Nacional de Ciegos en representación del Ministerio de Trabajo y Seguridad Social)
 . Marcela Carrillo Chavarría, cédula de identidad: 1-1190-0897, representante de la Caja Costarricense de Seguro Social (CCSS)
 (Así reformado el nombramiento anterior por el artículo 2° del decreto ejecutivo N° 44934 del 26 de febrero de 2025. Asimismo, por el artículo 1° del decreto ejecutivo antes mencionado, se ordenó cesar al señor Carlos Roberto Cob Delgado, cédula de identidad N° 1-1128-0922, como miembro de la Junta Directiva del Patronato Nacional de Ciegos, en representación de la Caja Costarricense de Seguro Social)
 . Johana Andrea Sánchez Guerrero, cédula de identidad 7 0209 0053, representante de las Organizaciones de personas con discapacidad visual.
