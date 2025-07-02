@@ -7,7 +7,9 @@ Artículo 1°: Apruébense los siguientes Ingresos Ordinarios y Extraordinarios 
 INCISO A: DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE
 LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2025 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 197 a La Gaceta N° 230 del 6 de diciembre de 2024)
+(Reformado el inciso a) por el artículo 1° de la ley N° 10739 del 1° de julio de 2025)
 INCISO B:
-DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
-DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2025 (en colones corrientes)
+DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2025 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance Digital N° 197 a La Gaceta N° 230 del 6 de diciembre de 2024)
+(Reformado el inciso b) por el artículo 1° de la ley N° 10739 del 1° de julio de 2025)
+(Reformado el inciso c) por el artículo 1° de la ley N° 10739 del 1° de julio de 2025)

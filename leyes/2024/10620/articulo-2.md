@@ -12,3 +12,6 @@ Artículo 2°: Apruébense los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 45018 del 21 de mayo de 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45044 del 12 de junio del 2025)
 (Modificado por el artículo 1° del decreto ejecutivo N° 45067 del 26 de junio del 2025)
+(Reformado por el artículo 2° de la ley N° 10739 del 1° de julio de 2025)
+(Reformado por el artículo 3° de la ley N° 10739 del 1° de julio de 2025)
+(Reformado por el artículo 4° de la ley N° 10739 del 1° de julio de 2025)
