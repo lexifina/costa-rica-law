@@ -1,1 +1,0 @@
-Artículo 13.—Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la comisión que lo emiten. Cuando no existiere un acuerdo unánime sobre un dictamen, los miembros de la Comisión que no lo aprueben podrán rendir dictamen de minoría por separado.

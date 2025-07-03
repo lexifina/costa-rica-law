@@ -1,1 +1,0 @@
-Artículo 3º—Podrán existir las Comisiones Especiales que decida crear el Concejo; el Presidente del Concejo Municipal se encargará de integrarlas. Cada Comisión Especial estará integrada al menos por tres miembros: dos deberán ser escogidos entre los regidores propietarios y suplentes. Podrán integrarlas los síndicos propietarios y suplentes; estos últimos tendrán voz y voto.

@@ -1,1 +1,0 @@
-Artículo 4º—Una vez nombrados y juramentados los integrantes de las comisiones por el Presidente Municipal, en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, sus miembros nombrarán de su seno a un presidente y un secretario por votación de mayoría simple.

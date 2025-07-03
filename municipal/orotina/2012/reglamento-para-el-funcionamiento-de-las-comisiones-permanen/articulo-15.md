@@ -1,1 +1,0 @@
-Artículo 15.—Podrán nombrarse subcomisiones para facilitar el trabajo de la comisión y asignarles tareas y plazos para entregar informes. Esto será una facultad de la presidencia de la comisión, que deberá respetar los principios de equidad y eficiencia a la hora de realizar las asignaciones.

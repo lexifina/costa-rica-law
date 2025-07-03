@@ -1,1 +1,0 @@
-Artículo 11.—Durante la sesión deben respetarse las reglas para el buen trabajo de grupo. El presidente debe instar al orden y debe actuar bajo los principios de equidad, respeto y eficiencia, preocupándose por mantener las buenas relaciones humanas dentro de la comisión.

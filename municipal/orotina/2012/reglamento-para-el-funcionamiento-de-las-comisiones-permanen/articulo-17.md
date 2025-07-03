@@ -1,1 +1,0 @@
-Artículo 17.—Cada año en la primera semana del mes de Abril, cada comisión deberá levantar un listado de los temas aún no vistos ni dictaminados y deberá dejar una lista de los temas pendientes de ejecución y análisis para el Concejo. Para esto tendrá la ayuda de la Secretaría del Concejo.

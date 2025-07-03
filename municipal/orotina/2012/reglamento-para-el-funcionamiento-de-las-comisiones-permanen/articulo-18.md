@@ -1,1 +1,0 @@
-Artículo 18.—Es un deber del regidor el desempeñar las funciones y comisiones que se le encarguen. En caso de no poder hacerlo debe justificar esta excepcionalidad por escrito y comunicarla al Concejo y su Presidencia.
