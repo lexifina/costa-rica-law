@@ -1,2 +1,0 @@
-Artículo 105.—E1 Artículo 15 de este Reglamento, regula lo concerniente al inicio de las sesiones municipales, para efectos de asistencia comprobada, quórum, inicio o suspensión de la sesión y pago de la dieta correspondiente a los señores regidores y síndicos, en caso que este último proceda dentro del número máximo de sesiones que puedan celebrarse dentro de un mismo mes calendario.
-(Así adicionado en sesión N° 133 del 16 de noviembre de 2007)

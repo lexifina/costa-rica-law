@@ -1,3 +1,0 @@
-SECCIÓN VI
-Del trámite de la correspondencia
-Artículo 50.—La Presidencia, a su total discreción y bajo su entera responsabilidad categorizará todos los asuntos que considere como urgentes y que deben ser conocidos en la respectiva sesión, ordenando a la Secretaría incluirlos en la orden del día, previa calificación, se permite hasta un máximo de seis asuntos para ser tratados en la sesión correspondiente. Debe tenerse claro que este apartado se refiere a toda aquella documentación que llegue al Concejo de entidades externas a la institución, no así los informes de la Alcaldía y de la Administración Municipal, los cuales se verán en forma completa en el punto que al efecto se indica en la orden del día.

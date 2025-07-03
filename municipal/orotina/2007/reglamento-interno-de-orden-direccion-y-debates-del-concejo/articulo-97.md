@@ -1,1 +1,0 @@
-Artículo 97.—Corresponde al Secretario de la Comisión, recibir y ordenar la correspondencia bajo su entera responsabilidad, levantar las actas de las sesiones de Comisión, elaborar y transcribir los dictámenes de Comisión al Concejo, firmar junto con el Presidente dichos dictámenes en caso que los mismos se tengan por unanimidad.

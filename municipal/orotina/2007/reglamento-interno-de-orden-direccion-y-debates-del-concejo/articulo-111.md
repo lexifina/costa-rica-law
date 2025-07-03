@@ -1,2 +1,0 @@
-Artículo 111.—Se autoriza a que la justificación correspondiente sólo pueda ser tramitada ante la Secretaría Municipal, por medios de comunicación de los cuales se tenga constancia escrita: memorial escrito entregado directamente a esa dependencia municipal, envío por facsímil al número de esta dependencia, correo electrónico que permita tener constancia del envío correspondiente, por correo certificado o telegrama.
-(Así adicionado en sesión N° 133 del 16 de noviembre de 2007)

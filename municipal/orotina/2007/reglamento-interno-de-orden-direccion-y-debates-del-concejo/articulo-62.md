@@ -1,1 +1,0 @@
-Artículo 62.—Toda iniciativa que cuente con dictamen de Comisión se conocerá en el capítulo correspondiente, reseñándose la iniciativa y seguido el dictamen correspondiente. Cumplido este trámite, la Presidencia la someterá a discusión entre aquellos regidores que deseen deliberar sobre el asunto para lo cual contarán con un tiempo máximo de tres minutos.

@@ -1,1 +1,0 @@
-Artículo 59.—Cualquier miembro del Concejo podrá solicitar el receso requerido para preparar y presentar ante el seno del Concejo su iniciativa, en forma escrita, cuando durante el desarrollo de la sesión surja la necesidad de tomar un acuerdo respecto al asunto que se conoce.

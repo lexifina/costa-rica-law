@@ -1,2 +1,0 @@
-Artículo 110.—Cuando un regidor, síndico o el alcalde no asista a una sesión municipal y no justifique previamente su ausencia de conformidad con lo indicado en los artículos 107 al 109, ambos inclusive, se le otorgará el plazo perentorio de tres días hábiles inmediatos posteriores a la celebración de dicha sesión para que justifique su ausencia.
-(Así adicionado en sesión N° 133 del 16 de noviembre de 2007)

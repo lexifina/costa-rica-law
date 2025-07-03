@@ -1,2 +1,0 @@
-Artículo 76.—Podrán los señores Regidores o el Alcalde presentar moción verbal, siempre que la misma solo se haga para ordenar el procedimiento y no para tomar acuerdos respecto de un asunto específico o general.
-En cualquier momento del debate podrán presentarse mociones de orden con relación al asunto que se discute.

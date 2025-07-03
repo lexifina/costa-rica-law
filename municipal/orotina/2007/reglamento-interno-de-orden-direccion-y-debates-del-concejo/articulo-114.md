@@ -1,2 +1,0 @@
-Artículo 114.—Para que la justificación por correo electrónico sea válida, el regidor, síndico o alcalde, deberá haber acreditado anticipadamente su cuenta personal de correo electrónico ante la Secretaría Municipal; ello con el fin que en dicha dependencia se conozca anticipadamente y con certeza de que la proveniencia de una justificación se da por parte de la persona interesada.
-(Así adicionado en sesión N° 133 del 16 de noviembre de 2007)

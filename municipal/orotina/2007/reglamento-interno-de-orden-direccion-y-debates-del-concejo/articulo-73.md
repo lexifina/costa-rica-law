@@ -1,1 +1,0 @@
-Artículo 73.—Las manifestaciones propias de los señores regidores que éstos deseen que no consten en actas, lo harán saber así con la debida antelación a la Secretaría. Si la previsión anterior no se hace con la debida antelación, la Secretaría deberá consignarlas en el acta respectiva, sin que sea posible posteriormente, acto en contrario.

@@ -1,1 +1,0 @@
-Artículo 25.—Pasados los quince minutos que indica el Artículo 15, si no hubiere quórum se dejará constancia en el libro de actas, se consignará el nombre de los regidores presentes y la Presidencia llamará a los regidores suplentes que corresponda.

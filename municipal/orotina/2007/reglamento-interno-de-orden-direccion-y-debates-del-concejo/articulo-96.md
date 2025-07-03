@@ -1,2 +1,0 @@
-Artículo 96.—En caso de ausencia del Presidente de la Comisión y teniéndose el quórum mínimo para que la misma funcione, se procederá al nombramiento de un Presidente ad-a.C. el cual será el miembro presente mayor edad. El Presidente ad-a.C. suplirá las ausencias temporales del Presidente de la Comisión, en ocasión de permisos, enfermedad o cualquier
-otra causa de fuerza mayor, y tendrá las misma potestades anotadas en el artículo anterior.

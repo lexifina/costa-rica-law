@@ -1,1 +1,0 @@
-Artículo 52.—Los restante documentos que no fueran remitidos para conocimiento en el seno del Concejo, por no haber sido calificada como urgente y oportunamente tramitada por la Presidencia (a total discreción y responsabilidad), deberá ser incluida en el acta de dicha sesión, indicándose claramente cuál fue el trámite resuelto por la Presidencia.
