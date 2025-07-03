@@ -26,3 +26,4 @@ Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José
 | 11 | 2024-03-12 | Resolución 392 (2024-03-12) |
 | 12 | 2024-12-05 | Resolución 1885 (2024-12-05) |
 | 13 | 2025-04-09 | Resolución 456 (2025-04-09) |
+| 14 | 2025-07-03 | Resolución 831 (2025-07-03) |
