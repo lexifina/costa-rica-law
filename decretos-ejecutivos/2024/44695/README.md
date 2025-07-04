@@ -14,3 +14,4 @@ Reglamento a la ley N° 10113 "Ley del cannabis para uso medicinal y terapéutic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-10-18 | la propia norma |
+| 2 | 2025-07-04 | Decreto Ejecutivo 45165 (2025-07-04) |
