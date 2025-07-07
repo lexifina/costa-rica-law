@@ -1,0 +1,3 @@
+Artículo 9. Aplicación de la exención. La solicitud de exención deberá presentarse durante los primeros dos meses (abril y mayo) del segundo trimestre del año calendario, salvo para el año 2025, en el que se aceptarán solicitudes durante los dos meses posteriores a la entrada en vigencia de este reglamento, sin perjuicio de que en cualquier tiempo y con la debida fundamentación, la persona adulta mayor pueda solicitar el beneficio.
+Durante el año 2025, la exención aplicará una vez aprobada la solicitud a partir del primer día del siguiente trimestre en que la misma fue presentada.
+El plazo de exención regirá hasta el IV trimestre del 2029.

@@ -1,0 +1,1 @@
+Artículo 17. Arreglos de pago vigentes. Los adultos mayores con arreglos de pago vigentes podrán solicitar la anulación de dichos convenios para acogerse a los beneficios de la Ley N.° 10.359, siempre que cumplan los requisitos establecidos.

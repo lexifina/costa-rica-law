@@ -1,0 +1,1 @@
+Artículo 11. Faltante de información requerida. En el caso de que la información aportada esté incompleta, se hará una prevención en el medio señalado para recibir notificaciones otorgando el plazo de 10 días hábiles; en el caso de no recibir respuesta o si el requisito presentado no es el equerido, la solicitud será archivada sin mayor trámite.

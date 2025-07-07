@@ -1,0 +1,1 @@
+Artículo 20. Informe. Dos veces al año, en los meses de agosto y febrero, la Administración deberá presentar ante el Concejo Municipal un informe indicando a cuantas Personas Adultas Mayores han recibo el beneficio, el tipo de beneficio, el monto total de cada beneficio, y a cuantas personas se les ha rechazado o han perdido el beneficio.
