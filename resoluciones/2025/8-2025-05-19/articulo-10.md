@@ -1,0 +1,2 @@
+Artículo 10°- Incumplimiento de prevenciones.
+En caso de que, luego de prevenido, el solicitante no haya corregido su situación dentro del plazo otorgado, se procederá al archivo del expediente, sin necesidad de notificar ese resultado al interesado o representante legal del solicitante, en el tanto se le hubiere advertido en la prevención realizada de tal consecuencia. Esto sin perjuicio de que el interesado pueda gestionar el trámite en fecha posterior.

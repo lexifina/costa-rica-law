@@ -1,0 +1,2 @@
+Artículo 8°-Presentación de gestión por parte de un tercero:
+En caso de que la solicitud la realice un tercero, debe ostentar la condición de legitimado para actuar en nombre del obligado tributario al amparo del artículo 133 del Código de Normas y Procedimientos Tributarios, por lo que deberá estar acreditado en el Registro Único Tributario. En caso de no estar acreditado, la persona deberá demostrar su legitimación mediante la presentación de un poder que le otorgue las facultades suficientes para el acto.

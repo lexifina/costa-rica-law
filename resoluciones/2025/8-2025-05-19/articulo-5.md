@@ -1,0 +1,2 @@
+Artículo 5°- Procedimiento cálculo base imponible e impuestos
+La Dirección de Grandes Contribuyentes Nacionales debe realizar la determinación de la base imponible y los impuestos a que se encuentra afecta la producción nacional y la importación de cigarrillos, cigarros y puros de cualquier marca según lo establecido en el artículo 12 de la Ley 7972 y en los lineamientos generales que se encuentran debidamente estipulados en el capítulo II y Anexo del decreto N°29463-H.

@@ -1,0 +1,2 @@
+Artículo 13°- Realización de cálculo del impuesto por parte de la DGCN:
+En el plazo indicado en el artículo 12 anterior, la Dirección de Grandes Contribuyentes Nacionales realizará la determinación de la base imponible y el cálculo de impuestos, y lo comunicará por escrito a los solicitantes. Adicionalmente, para el caso de las importaciones, una vez obtenido el consecutivo que se genera en ella Dirección de Grandes Contribuyes procederá a ingresar los datos al sistema TICA, para el correspondiente desalmacenaje, de conformidad con el artículo 12 del decreto N° 29463-H.
