@@ -1,0 +1,2 @@
+Artículo 45. Comercialización del servicio. En los casos donde corresponda, la Dirección de
+Comercial y/o Dirección de Operaciones, una vez recibido el servicio o producto desarrollado, iniciará la comercialización del mismo, monitoreando el cumplimiento de las proyecciones de ventas y/e ingresos proyectados en el caso de negocio de la Alianza Empresarial, remitiendo un informe cada tres meses a la Dirección Comercial con copia al Administrador de la Alianza.

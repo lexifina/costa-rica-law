@@ -1,0 +1,1 @@
+Artículo 53. Derogatoria. El presente Reglamento deroga el Reglamento de Alianzas Estratégicas y otras formas de asociación y colaboración empresarial aprobado por Junta Directiva en el artículo 2 de la Sesión Extraordinaria N° 4881 del 13 de marzo de 2014 y sus reformas.

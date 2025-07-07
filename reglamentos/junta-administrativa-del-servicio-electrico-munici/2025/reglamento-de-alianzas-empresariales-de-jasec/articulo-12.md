@@ -1,0 +1,1 @@
+Artículo 12. Obligación de actualización. Los socios registrados están obligados a mantener actualizada la información que hayan aportado al momento de solicitar su inscripción en el Registro. Dicha actualización de información debe de darse, como mínimo, cada doce meses.

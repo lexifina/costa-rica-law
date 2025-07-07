@@ -1,0 +1,8 @@
+CAPÍTULO VI
+ESPECIFICACIONES TÉCNICAS Y PROPUESTA ELECTRÓNICA
+Artículo 28: Pliego de condiciones y especificaciones técnicas, comerciales, legales, económicas y administrativas. Pequeño cartel. Constituyen los alcances del objeto contractual que JASEC brindará al cliente final con el acompañamiento del socio, para lo cual requiere obtener una propuesta técnica, comercial, legal, administrativa y económica del socio. Las especificaciones deberán estar compuestas por un formulario electrónico y sus respectivos anexos.
+Dicho formulario deberá contener cinco (5) tipos de condiciones, de ser necesario a saber: 1) Condiciones Generales y/o administrativas; 2) Condiciones Técnicas, 3) Condiciones Comerciales, 4) Condiciones legales y 5) Condiciones económicas o propuesta económica. Asimismo, contendrá un apartado en el que se indican las declaraciones juradas, multas y las certificaciones que requiera JASEC.
+En la invitación JASEC indicará la fecha y la hora del cierre de recepción de las propuestas,
+así como de la apertura de las mismas.
+Debe constar dentro del expediente para este punto un estudio amplio de mercado y ventas, que incluya beneficios para JASEC, proyecciones de clientes, necesidades institucionales, márgenes de venta y proyecciones de crecimiento, posibles nichos de negocio adicionales que podría generar la propuesta. De igual forma la justificación técnica respectiva, multas entre otros.
+El pliego de condiciones y requerimientos deberá contener un capítulo donde indique las responsabilidades contractuales, técnicas, operativas, comerciales, legales, económicas entre otras, tanto de JASEC como del o los socios, que soportan el servicio entregado al cliente final.

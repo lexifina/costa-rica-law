@@ -1,0 +1,2 @@
+Artículo 50. Finiquito. Luego de finalizado el Acuerdo de Alianza Empresarial y no mediando ningún asunto pendiente, las Partes están facultadas para suscribir un finiquito que las exima de reclamos posteriores de cualquier tipo.
+El documento de finiquito de la Alianza Empresarial será suscrito por los o el director de negocios respectivo, o en su defecto por el Gerente General si fue quien firmó el contrato de alianza inicial.

@@ -1,0 +1,3 @@
+Artículo 44. Entrega de Informes. Durante la etapa de operación del servicio, el Administrador de la Alianza Empresarial debe velar por el cumplimiento de las condiciones establecidas en el Acuerdo de Alianza y en el Contrato con el Cliente, respectivamente, generando las alertas e iniciando las acciones correctivas que sean requeridas.
+Cada tres meses el Administrador de la Alianza Empresarial deberá presentar informes a la
+Gerencia General., sin perjuicio que se requiera un plazo menor.

@@ -1,0 +1,1 @@
+Artículo 24. Criterios financieros. Los criterios o razones financieras, para analizar la factibilidad de cada oportunidad de negocio serán definidos por el área Financiera de JASEC, los que serán revisados en forma periódica a fin de confirmar su vigencia. La Gerencia General deberá emitir la Directriz respectiva para su determinación.

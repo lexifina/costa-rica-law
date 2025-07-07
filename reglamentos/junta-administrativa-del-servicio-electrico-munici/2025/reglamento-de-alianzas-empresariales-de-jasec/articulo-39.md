@@ -1,0 +1,33 @@
+CAPÍTULO VIII
+DE LA FORMALIZACIÓN
+Artículo 39. Formalización
+1. Una vez aprobada la Alianza Empresarial por parte de la Junta Directiva, la Unidad Gestora elaborará el Acuerdo de Alianza Empresarial, posteriormente lo remitirá a la Asesoría Jurídica para visto bueno, para lo cual suministrará el expediente completo, que incluya todos los requisitos establecidos en el presente Reglamento, además de un formulario en el que conste dicho cumplimiento.
+2. El contenido del Acuerdo de Alianza Empresarial se ajustará en razón de la naturaleza del negocio; sin embargo, siempre y cuando resulten aplicables se tomarán en consideración para esa etapa, los siguientes aspectos:.
+a. Antecedentes.
+b. Objeto.
+c. Vigencia (plazo de implementación del servicio más la vigencia de operación)
+d. Garantías:
+e. Garantía Técnica
+f. Garantía de Cumplimiento y forma de ejecución.
+g. Administradores del Acuerdo.
+h. Calidad, grado y disponibilidad del servicio. Planes de continuidad del servicio.
+i. Mantenimiento preventivo, correctivo y atención de incidencias, cambios y peticiones con sus respectivos niveles de servicio.
+a. Obligaciones de las Partes que resulten aplicables al caso y aportes, tales como aportes de capital, gestión y control del negocio, apoyo financiero, suministro de materia prima, licencias, distribución de productos, logística reversa, distribución de los gastos que se originen en la ejecución, destino que se le dará a los bienes aportados al finalizar la relación, quién asume pago de tributos, entre otros aspectos
+del negocio concreto.
+b. Distribución del beneficio económico: la distribución se realizará contra informe de avance en la prestación objeto del Acuerdo por parte del Socio, así como la emisión de la respectiva factura electrónica.
+c. Multas y cláusulas penales, así como el respectivo procedimiento de cobro.
+d. Propiedad intelectual: determinar los derechos de propiedad intelectual de las Partes sobre los productos que sean creados o produzcan, en caso que apliquen, así como lo relativo a licencias, limitaciones de uso, etc.
+e. Confidencialidad de la información.
+f. Resolución de controversias.
+g. Eximentes de responsabilidad.
+h. Límite para la cesión.
+i. Enmiendas al Acuerdo.
+j. Legislación aplicable y jurisdicción.
+k. Información de contacto para notificaciones..
+l. Terminación anticipada.
+m. Aspectos tributarios, según aplique..
+n. Estimación del Acuerdo..
+Si algunos de los criterios anteriores no resultan aplicables, así será consignado por parte de la Unidad Gestora en la justificación correspondiente.
+En todos los casos se debe cumplir con el pago de timbres, obligación que deben sufragar los suscribientes proporcionalmente a sus participaciones.
+La Unidad Gestora, en coordinación con el Comité I + D y la Asesoría Jurídica, realizará un modelo de Acuerdo de Alianza Empresarial que servirá de base para las respectivas negociaciones, de acuerdo a la conveniencia empresarial y la naturaleza del negocio.
+Es importante indicar que cada alianza deberá contener un capítulo donde indique las responsabilidades contractuales, técnicas, operativas, comerciales, legales, económicas entre otras, tanto de JASEC como del o los socios, que soportan el servicio entregado al cliente final.

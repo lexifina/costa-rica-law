@@ -1,0 +1,1 @@
+Artículo 47. Informes del Área Financiera. El jefe del área financiera o quien éste designe, deberá emitir el reporte del cumplimiento de las Proyecciones financieras y entregarlo al Administrador de la Alianza Empresarial cada tres meses.

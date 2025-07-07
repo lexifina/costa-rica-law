@@ -1,0 +1,1 @@
+Artículo 35: Selección del socio. Una vez concluido el análisis respectivo de las propuestas la Unidad Gestora seleccionará al socio según los requerimientos definidos por procedimiento y conforme a lo establecido en el artículo No. 3 de la Ley General de Contratación Pública y el artículo No. 13 del Reglamento a la Ley General de Contratación Pública.
