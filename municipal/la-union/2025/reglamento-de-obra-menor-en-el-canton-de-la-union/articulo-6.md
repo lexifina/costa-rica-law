@@ -1,0 +1,2 @@
+Artículo 06-°Obras no consideradas menores.
+No se considerarán obras menores las obras de construcción que, según el criterio técnico especializado del funcionario municipal competente, incluyan modificaciones o ampliaciones al sistema estructural, eléctrico o mecánico de un edificio, que pongan en riesgo la seguridad de sus ocupantes y que por su tamaño requieren de aumento en la demanda de servicios públicos (agua potable, disposición de aguas residuales, electricidad y afectan las condiciones de habitabilidad o seguridad de sus ocupantes.

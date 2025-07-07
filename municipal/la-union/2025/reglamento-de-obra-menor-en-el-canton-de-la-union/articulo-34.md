@@ -1,0 +1,1 @@
+Artículo 34.-Debe estar al día con las obligaciones Municipales (Artículo 3 y 81 del Código Municipal), además, tener la Declaración de Bienes Inmuebles vigente (Art. 27, Capítulo VIII de la Ley 7509).

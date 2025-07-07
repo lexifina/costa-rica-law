@@ -1,0 +1,1 @@
+Artículo 26. -En caso en el que la Municipalidad, a través del Departamento de Inspección Urbano Constructiva determine que en la propiedad se realizan obras no autorizadas se procederá con lo estipulado en la Ley de Construcciones y esta autorización se revocará.

@@ -1,0 +1,1 @@
+Artículo 33.-En caso de no indicar medio para notificaciones se tendrá por notificado en el término de 24 horas después de la resolución, según lo dispuesto en el Artículo 11 de La Ley de Notificaciones y Citaciones Judiciales.

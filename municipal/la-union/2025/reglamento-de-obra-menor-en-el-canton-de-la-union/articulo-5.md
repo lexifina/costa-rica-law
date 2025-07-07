@@ -1,0 +1,2 @@
+Artículo 05-°Excepción de profesional responsable.
+Las obras menores definidas en el presente Reglamento no tienen necesidad de contar con la autorización del profesional contemplado en el artículo 83 de la Ley de Construcciones, siempre y cuando dichas obras no excedan el equivalente a diez salarios base, calculado conforme a lo dispuesto en el artículo 2 de la Ley N ° 7337, de 5 de mayo de 1993.

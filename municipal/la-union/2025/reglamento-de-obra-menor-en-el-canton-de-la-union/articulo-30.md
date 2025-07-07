@@ -1,0 +1,1 @@
+Artículo 30. -Cualquier documentación adicional que el interesado desee incluir junto con la solicitud, quedará supeditada a revisión y consideración de conservarla en el expediente digital de DIDECU. Caso contrario se le indicará mediante correo electrónico que no formará parte del expediente.

@@ -1,0 +1,2 @@
+Artículo 02-°Alcances del Reglamento.
+Este Reglamento se aplicará en el Cantón de La Unión. Se considerará la protección de la propiedad, la salud pública, la vida humana y animal que lo utilizarán, el respeto absoluto de la sostenibilidad ambiental y todas las regulaciones que considere el municipio, en función del desarrollo integral que garantice el derecho a un ambiente sano y equilibrado, individual y colectivo.
