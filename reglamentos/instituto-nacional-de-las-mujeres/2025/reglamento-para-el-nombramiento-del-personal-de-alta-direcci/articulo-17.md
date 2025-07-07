@@ -1,0 +1,2 @@
+Artículo 17.- Capacitación. El personal de Alta Dirección Pública recibirá capacitación diferenciada que le permita reforzar las competencias y conocimientos técnicos y que aseguren el buen ejercicio de su labor, de conformidad con lo establecido en el artículo 24 de la Ley Marco de Empleo Público.
+El Departamento de Recursos Humanos y la Comisión de Capacitación y Desarrollo Humano, en coordinación con la Presidencia Ejecutiva, establecerá un plan anual de capacitación para el personal de Alta Dirección Pública.

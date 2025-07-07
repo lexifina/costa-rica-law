@@ -1,0 +1,1 @@
+Artículo 15.- Procedimiento para el cese. Cuando la persona funcionaria que ejerza un puesto de Alta Dirección Pública incurriere en cualquiera de las causales establecidas en el artículo anterior se instruirá por parte de la presidencia ejecutiva un procedimiento sumario para su remoción.

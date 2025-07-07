@@ -1,0 +1,1 @@
+Artículo 11.- Periodicidad de la evaluación del Desempeño. La evaluación se realizará anualmente, como requisito para considerar la prórroga del nombramiento, en apego al artículo 17 de la Ley Marco de Empleo Público.

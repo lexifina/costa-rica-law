@@ -1,0 +1,2 @@
+Artículo 9.- Formalización del nombramiento. El nombramiento se formalizará mediante acción de personal, en la que se especificará el período de nombramiento, indicando expresamente que se trata de un nombramiento de carácter temporal, no en propiedad, ni interino.
+Los nombramientos en puestos de Alta Dirección Pública no generarán derechos adquiridos ni expectativas de convertirse en nombramientos en propiedad, de acuerdo con el artículo 18 de la Ley Marco de Empleo Público y el artículo 23 de su reglamento.
