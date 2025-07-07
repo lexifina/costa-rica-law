@@ -1,0 +1,1 @@
+Artículo 22°. Planificación de la investigación preliminar. La Auditoría Interna debe determinar las actividades que le permitirán documentar y alcanzar los objetivos planteados, e identificar y definir las diligencias o pericias de investigación a ejecutar, los recursos necesarios, así como los plazos y los responsables de llevarlas a cabo.

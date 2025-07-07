@@ -1,0 +1,11 @@
+CAPÍTULO II
+TRÁMITE DE LA DENUNCIA
+Artículo 8°. Elementos esenciales de la denuncia. Las denuncias serán atendidas en el tanto aporten elementos suficientes y se encuentren apoyadas con medios probatorios idóneos que permitan iniciar la investigación. Para tal efecto, deberán reunir los siguientes elementos:
+a) Nombre del denunciante, número de teléfono, medio o lugar para recibir notificaciones.
+b) Nombres, apellidos de los posibles responsables, o que al menos se aporten elementos que permitan individualizarlos.
+c) Hechos en que se funda la denuncia, los cuales deberán ser expuestos de forma clara, precisa y circunstanciada, brindando la fecha, el lugar en que ocurrieron los hechos, el sujeto o la entidad que presuntamente los realizó.
+d) Señalar los posibles hechos irregulares o ilegales vinculados con el uso y manejo de fondos públicos que afectan la Hacienda Pública o los que vulneren lo dispuesto en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+e) La prueba documental o pericial debe ser aportada o indicarse donde puede ser ubicada, sea esta física, en soporte digital, electrónico o analógico. Si se trata de prueba testimonial debe indicar el nombre de los posibles testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas que resulten pertinentes.
+f) Las pruebas podrán ser consignadas y aportadas mediante cualquier tipo de soporte documental, electrónico, informático, magnético, óptico, telemático o producido por nuevas tecnologías.
+g) Las denuncias podrán ser presentadas de forma verbal, por escrito o mediante correo electrónico. Para tal efecto, la Auditoría Interna habilitará una dirección de correo electrónico específica, así como un espacio en la página web de JASEC destinado exclusivamente para este propósito. Alternativamente, se podrá utilizar el formulario oficial para la recepción de denuncias, proporcionado por la Auditoría Interna, o bien, apersonarse a las oficinas de la Auditoría Interna para la interposición de la denuncia.
+h) La denuncia deberá estar debidamente firmada a través de cualquier medio válido. La auditoría podrá requerir prueba de la identidad del denunciante cuando considere que existe duda razonable al respecto.

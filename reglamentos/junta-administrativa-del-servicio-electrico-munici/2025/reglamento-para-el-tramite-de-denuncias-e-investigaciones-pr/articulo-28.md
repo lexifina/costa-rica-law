@@ -1,0 +1,2 @@
+Artículo 28°. Identidad de la persona denunciante. Las personas funcionarias, las Auditorías
+Internas, las personas de los servicios externos (Contratados), que colaboran con la Auditoría Interna en la realización de investigaciones de presuntos hechos irregulares no tendrán acceso a la identidad de la persona (s) denunciante (s), por lo que la información a la que accedan durante su colaboración estará sujeta a las reglas de confidencialidad establecidas.

@@ -1,0 +1,1 @@
+Artículo 16°. Planificación y atención de la denuncia admisible. Una vez concluida la investigación administrativa preliminar y determinándose que existe mérito suficiente para tramitar la denuncia, la Auditoría Interna la atenderá en un plazo razonable, acorde con los recursos disponibles y considerando la priorización de actividades que realice anualmente.

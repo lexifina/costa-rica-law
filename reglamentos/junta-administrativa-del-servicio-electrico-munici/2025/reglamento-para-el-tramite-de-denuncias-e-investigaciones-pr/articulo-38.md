@@ -1,0 +1,1 @@
+Artículo 38°. Derogatoria. El presente reglamento deja sin efecto el Reglamento para la atención de denuncias planteadas a la Auditoria Interna de la Junta Administrativa del Servicio Municipal de Cartago (JASEC), publicado en el Diario Oficial La Gaceta N°236 del 24 de setiembre del año 2020.

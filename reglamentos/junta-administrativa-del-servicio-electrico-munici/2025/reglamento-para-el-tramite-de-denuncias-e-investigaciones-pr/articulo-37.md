@@ -1,0 +1,1 @@
+Artículo 37°. Fuentes supletorias. Los casos no previstos en este Reglamento se resolverán de acuerdo con la Ley General de la Administración Pública, la Ley General de Control Interno, directrices emitidas por la Contraloría General de la República, la Convección Colectiva de JASEC y demás leyes conexas.
