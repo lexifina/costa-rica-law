@@ -15,3 +15,4 @@ Uso del formulario para la aplicación de periodo fiscal especial en el impuesto
 | --- | --- | --- |
 | 1 | 2020-08-19 | la propia norma |
 | 2 | 2020-10-16 | Resolución 35 (2020-10-16) |
+| 3 | 2025-07-08 | Resolución 16 (2025-07-08) |

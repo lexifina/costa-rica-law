@@ -1,2 +1,1 @@
-Transitorio Segundo.- Se informa que aquellos contribuyentes inscritos bajo la actividad económica N°154904 descrito previamente como “Fabricación de Café”, fue de oficio modificada su denominación a “Beneficio o procesamiento de café”, la cual incluye el secado del café, así como el tostado de café, para su venta en grano o molido, puro, aromatizado, mezclado, descafeinado, etc., tanto en el mercado nacional como la exportación.
-Publíquese.
+Transitorio Segundo.- (Derogado por el artículo 3° de la resolución N° MH-DGT-RES-0016-2025 del 8 de julio de 2025)
