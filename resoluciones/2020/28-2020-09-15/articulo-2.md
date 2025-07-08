@@ -1,2 +1,1 @@
-Artículo 2.- Disponibilidad del formulario.
-El formulario D-116 Autoliquidación de Sanciones por Infracciones Administrativas, establecido en esta resolución, estará disponible en el sitio web de la “Administración Tributaria Virtual” (ATV) (https://www.hacienda.go.cr/ATV/Login.aspx) accesible desde la página web de la Dirección General de Tributación del Ministerio de Hacienda. Las instrucciones de este formulario se detallan en el Anexo 2 de la presente resolución.
+Artículo 2.- Disponibilidad del formulario. (Derogado por el artículo 5° de la resolución N° MH-DGT-RES-0023-2025 del 8 de julio de 2025, "Uso del formulario de autoliquidación de sanciones por infracciones administrativas")

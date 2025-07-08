@@ -14,3 +14,4 @@ Uso del formulario D-116, Declaración jurada de sanciones por infracciones admi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-10-01 | la propia norma |
+| 2 | 2025-07-08 | Resolución 23 (2025-07-08) |
