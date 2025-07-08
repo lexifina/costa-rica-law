@@ -18,3 +18,4 @@ Uso del formulario Impuesto Solidario
 | 3 | 2012-12-20 | Resolución 41 (2012-12-20) |
 | 4 | 2013-12-19 | Resolución 45 (2013-12-19) |
 | 5 | 2018-05-22 | Resolución 23 (2018-05-22) |
+| 6 | 2025-07-08 | Resolución 21 (2025-07-08) |
