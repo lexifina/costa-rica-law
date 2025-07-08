@@ -25,16 +25,16 @@ Formulario denominado "Declaración jurada de retenciones en la fuente del 2% im
 Formulario denominado "Declaración jurada de retenciones en la fuente del 3% en servicios de transporte, comunicaciones, reaseguros, películas cinematográficas y noticias internacionales, prestados por no domiciliados con representante permanente en el país";
 Formulario denominado "Declaración jurada de retenciones en la fuente por remesas al exterior";
 Formulario denominado "Declaración jurada de retenciones en la fuente por retiros anticipados de pensiones complementarias voluntarias";
-Formulario denominado "Declaración jurada del impuesto único por tipo de combustible";
+Formulario denominado "Declaración jurada del impuesto único por tipo de combustible"; (Derogado por el artículo 6° de la resolución NºMH-DGT-RES-0022-2025 del 8 de julio de 2025; “Uso de los formularios Impuesto selectivo de consumo, Impuesto único por tipo combustible, Impuesto sobre bebidas alcohólicas e Impuesto específico a las bebidas sin alcohol y jabones de tocador”)
 Formulario denominado "Declaración jurada del impuesto especial sobre bancos y entidades financieras no domiciliadas";
 Formulario denominado "Declaración jurada del impuesto a los rendimientos y a las ganancias de capital de los fondos de inversión";
 Formulario denominado "Declaración jurada del impuesto a los casinos y salas de juego";
 Formulario denominado "Declaración jurada del impuesto sobre la renta" (Derogada por el artículo 6 de la resolución N° NºMH-DGT-RES-0020-2025. "Uso de los formularios de declaración del impuesto sobre las utilidades para las personas físicas, personas jurídicas y personas públicas")
 Formulario denominado "Declaración jurada del impuesto general sobre las ventas-liquidación por el sistema general";
 Formulario denominado "Declaración jurada de retención a cuenta del impuesto general sobre las ventas";
-Formulario denominado "Declaración jurada del impuesto selectivo de consumo";
-Formulario denominado "Declaración jurada del impuesto específico sobre bebidas alcohólicas;
-Formulario denominado "Declaración jurada del impuesto específico sobre las bebidas envasadas sin contenido alcohólico y jabones de tocador";
+Formulario denominado "Declaración jurada del impuesto selectivo de consumo"; (Derogado por el artículo 6° de la resolución NºMH-DGT-RES-0022-2025 del 8 de julio de 2025; “Uso de los formularios Impuesto selectivo de consumo, Impuesto único por tipo combustible, Impuesto sobre bebidas alcohólicas e Impuesto específico a las bebidas sin alcohol y jabones de tocador”)
+Formulario denominado "Declaración jurada del impuesto específico sobre bebidas alcohólicas; (Derogado por el artículo 6° de la resolución NºMH-DGT-RES-0022-2025 del 8 de julio de 2025; “Uso de los formularios Impuesto selectivo de consumo, Impuesto único por tipo combustible, Impuesto sobre bebidas alcohólicas e Impuesto específico a las bebidas sin alcohol y jabones de tocador”)
+Formulario denominado "Declaración jurada del impuesto específico sobre las bebidas envasadas sin contenido alcohólico y jabones de tocador"; (Derogado por el artículo 6° de la resolución NºMH-DGT-RES-0022-2025 del 8 de julio de 2025; “Uso de los formularios Impuesto selectivo de consumo, Impuesto único por tipo combustible, Impuesto sobre bebidas alcohólicas e Impuesto específico a las bebidas sin alcohol y jabones de tocador”)
 Formulario denominado "Recibo oficial de pago";
 Formulario denominado "Declaración de modificación de datos del Registro de Contribuyentes; y
 Formulario denominado "Declaración de desinscripción del Registro de Contribuyentes".
