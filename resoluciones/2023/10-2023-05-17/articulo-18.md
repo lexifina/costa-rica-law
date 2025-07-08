@@ -1,1 +1,0 @@
-Artículo 18°. - Derogatoria: Se dejan sin efecto las resoluciones DGT-R-46-2020 de las ocho horas cinco minutos del veintitrés de diciembre de dos mil veinte y DGT-R-18-2021 de las ocho horas y cinco minutos del veinticuatro de mayo de dos mil veintiuno.

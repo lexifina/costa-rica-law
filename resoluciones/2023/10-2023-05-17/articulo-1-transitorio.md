@@ -1,1 +1,0 @@
-TRANSITORIO UNICO.-. Para todas aquellas solicitudes, presentadas antes de la entrada en vigencia de la presente resolución y que se encuentren en estudio, se aplicará lo dispuesto en la resolución DGT-R-46-2020 y sus modificaciones.

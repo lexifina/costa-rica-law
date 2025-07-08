@@ -1,2 +1,0 @@
-Artículo 16°. - Atención presencial. A partir de la entrada en vigencia de la presente resolución, todas las gestiones o trámites mencionados en el Anexo 2 de la presente resolución se recibirán solamente de forma virtual por medio de TRAVI.
-De manera excepcional, aquellos contribuyentes que por alguna circunstancia particular, requieran ser atendidos de forma presencial, podrán acudir a las Administraciones Tributarias más cercanas al domicilio fiscal registrado en el RUT.
