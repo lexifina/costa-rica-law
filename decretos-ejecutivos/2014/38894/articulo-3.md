@@ -11,7 +11,8 @@ i) Asociación Costarricense de Registradores Sanitarios (ASOCORES).
 j) Asociación de Genéricos Farmacéuticos (AGEFAR).
 k) Cámara de Comercio de los Estados Unidos de América (AMCHAM),
 l) Unión Costarricense de Cámaras y Asociaciones del Sector Empresarial Privado (UCCAEP).
-m) Cámara Centroamericana y del Caribe de Cosméticos y Aseo (CACECOS)
+m) Cámara Centroamericana y del Caribe de Cosméticos y Aseo (CACECOS).
 n) Cámara Costarricense de la Salud.
-ñ) Cámara de Comercio Exterior de Costa Rica y de Representantes de Casas Extranjeras (CRECEX)"
-(Así reformado por el artículo 1° del decreto ejecutivo N° 44404 del 30 de enero del 2024)
+ñ) Cámara de Comercio Exterior de Costa Rica y de Representantes de Casas Extranjeras (CRECEX).
+o) Cámara de Expoftadores de Costa Rica (CADEXCO)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45120 del 8 de julio de 2025)
