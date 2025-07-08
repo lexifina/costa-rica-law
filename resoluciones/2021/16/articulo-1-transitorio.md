@@ -1,2 +1,0 @@
-Disposiciones transitorias
-Transitorio I.-Aquellos contribuyentes que a la fecha de publicación de esta resolución tengan una solicitud de cambio de período fiscal presentada ante esta Administración Tributaria, para su aprobación o denegatoria, y que no se haya resuelto, se les aplicará lo indicado en esta resolución, en cuyo caso la Administración Tributaria podrá requerirles, por una única vez, la documentación que se estime necesaria para efectuar adecuadamente el análisis respectivo.
