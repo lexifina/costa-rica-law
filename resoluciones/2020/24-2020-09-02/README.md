@@ -14,3 +14,4 @@ Uso del formulario Declaración Jurada del Impuesto sobre las Utilidades Loterí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-09-17 | la propia norma |
+| 2 | 2025-07-08 | Resolución 19 (2025-07-08) |
