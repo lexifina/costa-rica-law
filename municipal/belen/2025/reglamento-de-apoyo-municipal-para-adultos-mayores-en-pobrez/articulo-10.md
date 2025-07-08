@@ -1,0 +1,1 @@
+Artículo 10.- Impugnación: En caso de no estar conforme con lo resuelto por la Municipalidad, el contribuyente podrá presentar un recurso de revocatoria con apelación en subsidio dentro de los cinco días hábiles posteriores a la notificación de la resolución como lo establece el artículo 171 siguientes y concordantes del Código Municipal.

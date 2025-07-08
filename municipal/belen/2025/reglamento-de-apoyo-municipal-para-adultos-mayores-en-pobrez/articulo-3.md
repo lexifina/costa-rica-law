@@ -1,0 +1,1 @@
+Artículo 3.- Sujeto pasivo: Serán sujetos pasivos de la aplicación de este reglamento aquellas personas adultas mayores de 65 años en condición de pobreza o pobreza extrema debidamente registrados en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE) y que posean sus obligaciones con la Municipalidad de Belén.

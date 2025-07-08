@@ -1,0 +1,1 @@
+Artículo 14: Exención del servicio de agua potable, gestión ambiental y/o alcantarillado sanitario En el caso de los servicios de agua potable, gestión ambiental y/o alcantarillado sanitario, se autoriza a la Municipalidad de Belén a realizar la exención solamente a aquellas personas que consuman 15 m3, no se exonerará del pago a quien consuma más de ese monto.
