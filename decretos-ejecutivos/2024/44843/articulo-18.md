@@ -1,0 +1,1 @@
+Articulo 18.-Notificación a la Municipalidad Toda medida tomada en virtud de este capítulo será notificada inmediatamente a la Municipalidad correspondiente, quien podrá tomar acciones según sus competencias.

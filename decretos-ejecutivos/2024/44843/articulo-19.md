@@ -1,0 +1,7 @@
+Artículo 19.- Prohibiciones Para garantizar la adecuada gestión de residuos y la protección de la salud pública, se prohíben a los propietarios y responsables de actividades de construcción, ampliación, remodelación y demolición, las siguientes prácticas:
+a) Está prohibido la descarga de residuos de la construcción en sitios no autorizados por el Ministerio de Salud o en zonas públicas.
+b) Está prohibida la mezcla de residuos de construcción, ampliación, remodelación o demolición con los residuos ordinarios.
+c) Está prohibido entregar los residuos generados en la obra al servicio de recolección de residuos sólidos ordinarios.
+d) Está prohibido realizar cualquier acción, práctica u operación con los residuos que deteriore el ambiente y amenace la salud humana, como quemar residuos, enterrarlos, mezclar residuos (peligrosos y no peligrosos), sean estos generados por la construcción, remodelación, demolición o generación de residuos por causa natural o antrópica.
+e) Está prohibido entregar residuos de la construcción, ampliación, remodelación y demolición a empresas que no estén debidamente registrados como gestores por parte del Ministerio de Salud.
+f) Está prohibido verter en el suelo, cuerpos de agua o en la red de saneamiento restos de aceites, combustibles o productos peligrosos, cemento u otros productos procedentes de la limpieza de maquinaria y herramientas, que puedan encontrarse en la obra.

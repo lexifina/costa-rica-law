@@ -1,0 +1,1 @@
+Artículo 20.- Deróguese el Decreto Ejecutivo Nº 39704-S del 29 de febrero del 2016 y publicado en La Gaceta Nº 127 del 01 de julio de 2016, " Oficialización de la Norma para mitigar las molestias y riesgos a la salud de las personas por el polvo producido por la construcción de obras, tanto privadas como públicas".

@@ -1,0 +1,5 @@
+CAPITULO V
+MEDIDAS ADMINISTRATIVAS Y PROHIBICIONES
+Artículo 15.- Fiscalización en proyectos de generadores de residuos de construcción, remodelación, ampliación o demolición Los funcionarios del Ministerio de Salud y municipales, debidamente identificados de acuerdo con sus competencias, podrán realizar inspecciones de verificación, seguimiento o cumplimiento de la normativa relativa a la gestión integral de residuos. Para dicho efecto, los inspectores tendrán carácter de autoridad de policía, con fe pública.
+Los funcionarios indicados tendrán libre acceso a las instalaciones o los sitios de inspección y podrán hacerse acompañar de las personas expertas que consideren necesarias, en todo caso, la inspección se realizará garantizando el debido proceso. Lo anterior según lo establecido en el artículo 58 de la Ley para la Gestión Integral de Residuos N°8839.
+En caso de encontrarse indicios de incumplimiento, se le notificará al responsable el inicio del procedimiento respectivo, de acuerdo al artículo 16 y 17 del presente reglamento.

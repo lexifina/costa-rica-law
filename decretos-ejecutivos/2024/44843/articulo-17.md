@@ -1,0 +1,2 @@
+Articulo 17.-Revisión y Ajuste del Proyecto En atención a una suspensión temporal o clausura inmediata, el responsable técnico de la obra de construcción, remodelación, ampliación o demolición deberá presentar en un plazo de 10 días hábiles, un informe detallado sobre las acciones correctivas que realizará para cumplir con las normativas, con sus respectivos cronogramas de implementación.
+Este informe deberá ser revisado y aprobado por el Ministerio de Salud en un plazo de 10 días naturales a partir de su presentación, antes de permitir la reanudación de las actividades.

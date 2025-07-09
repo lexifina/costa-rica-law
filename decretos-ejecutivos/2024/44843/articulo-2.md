@@ -1,0 +1,1 @@
+Artículo 2. - Alcance. El presente reglamento tiene alcance nacional y se aplica a todo Ente Generador de residuos de la construcción inicial, ampliaciones, remodelaciones y demoliciones público o privado. También los residuos de daños a construcciones generados por desastres naturales o antrópicos.
