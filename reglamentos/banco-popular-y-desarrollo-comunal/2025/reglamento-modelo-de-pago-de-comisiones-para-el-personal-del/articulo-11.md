@@ -1,0 +1,1 @@
+Artículo 11° La Subgerencia General de Negocios o la dependencia correspondiente será responsable de proporcionar a la Dirección Corporativa de Capital Humano el acceso a la información y aplicación del reporte de pago de comisiones de los Ejecutivos de Ventas, para su correspondiente aplicación.

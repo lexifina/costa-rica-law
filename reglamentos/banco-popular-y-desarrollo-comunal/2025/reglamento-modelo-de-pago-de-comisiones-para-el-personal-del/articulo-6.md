@@ -1,0 +1,1 @@
+Artículo 6° El modelo de pago de comisión podrá aplicar a productos o servicios adicionales, que sean asignados a los Ejecutivos de Ventas, los cuales serán habilitados por la Administración en función de las estrategias comerciales definidas, por los periodos que considere necesario y que se encuentran contemplados en el Manual Regulatorio Modelo de Pago de Comisiones.

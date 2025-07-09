@@ -1,0 +1,1 @@
+Artículo 9° Todo cambio o ajuste al modelo luego de ser analizado y aprobado por la Alta Gerencia, será comunicado a las dependencias impactadas y a los Ejecutivos de Ventas al menos un mes calendario previo a su entrada en vigencia.

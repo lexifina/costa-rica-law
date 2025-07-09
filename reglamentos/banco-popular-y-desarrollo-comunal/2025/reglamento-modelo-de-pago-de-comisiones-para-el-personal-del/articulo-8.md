@@ -1,0 +1,1 @@
+Artículo 8° La Gerencia General Corporativa o la Subgerencia General de Negocios serán responsables de fijar y aprobar los cálculos y rubros que conforman el modelo de pago de comisiones. Además, deberán revisar periódicamente el modelo establecido, al menos una vez al año, para asegurar que se ajuste a las exigencias económicas tanto del mercado como de la institución.

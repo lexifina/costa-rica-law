@@ -1,0 +1,1 @@
+Artículo 15° Las disposiciones de este reglamento podrán ser revisadas y modificadas por la institución, según el análisis y la determinación de las necesidades institucionales. Los cambios serán notificados, inmediatamente que sean publicados en el Diario Oficinal La Gaceta.

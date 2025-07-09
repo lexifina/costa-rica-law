@@ -1,0 +1,1 @@
+Artículo 10° La Dirección Corporativa de Capital Humano establecerá los procedimientos y formas de pago aplicables a los Ejecutivos de Venta, que se realizarán en la cuenta de ahorro en el Banco Popular. Lo cual quedará debidamente regulado en la normativa interna o procedimientos, de conformidad con el artículo 12 del presente reglamento.
