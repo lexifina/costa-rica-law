@@ -1,1 +1,0 @@
-Artículo 5°. —Sanciones por incumplimiento. El incumplimiento del deber de presentar oportuna y correctamente esta declaración informativa, podrá ser sancionado conforme lo establece el artículo 83 del Código de Normas y Procedimientos Tributarios.
