@@ -1,0 +1,1 @@
+ARTÍCULO 42.- Derogatoria Deróguese el Reglamento Interno para la utilización de vehículos de la Asamblea Legislativa, aprobado mediante acuerdo tomado por el Directorio Legislativo, en la sesión Nº 183-2002 del 16 de abril de 2002, publicado en el diario oficial La Gaceta Nº 116 del 18 de junio de 2002. Rige a partir de su publicación en el diario oficial La Gaceta.

@@ -1,0 +1,5 @@
+ARTÍCULO 20. Adelanto de viáticos en giras consecutivas Cuando un operador de equipo móvil deba realizar giras consecutivas en un periodo menor a dos días hábiles entre una y otra, y no haya tenido oportunidad de liquidar la gira anterior, podrá recibir el adelanto de viáticos correspondiente a la nueva gira sin haber completado la liquidación previa, bajo las siguientes condiciones:
+1. La Jefatura del Área de Transportes o el asistente administrativo encargado de gestionar los viáticos será responsable de identificar los casos en los que se requiera un adelanto sin liquidación previa y remitir la solicitud al Departamento Financiero para su aprobación y ejecución.
+2. El operador deberá realizar la liquidación de todas las giras acumuladas en un plazo máximo de siete días hábiles después de finalizada la última gira consecutiva.
+3. No se girarán más adelantos si existen dos giras sin liquidar.
+4. El incumplimiento de este plazo sin justificación válida podrá generar restricciones en la asignación de futuros adelantos de viáticos y sanciones administrativas, conforme a la normativa vigente.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+SOBRE EL USO DE TARJETAS INSTITUCIONALES PARA LOS GASTOS
+ARTÍCULO 10.- Custodia de las tarjetas institucionales. Cuando los operadores de equipo móvil o usuarios autorizados para realizar giras no sean asignados durante un periodo continuo de 30 días posterior a la última gira, este deberá presentar al Área de Transportes la nota de devolución del plástico de la tarjeta de crédito asignada, asimismo, el Área de Transportes, deberá trasladar el plástico al Departamento Financiero para su custodia, siempre dejando constancia digital del recibido conforme.
+Asimismo, deberán entregarse para custodia, los plásticos de aquellos operadores y usuarios autorizados que se encuentren en las condiciones descritas en el artículo 5° del Reglamento Interno para el Uso de Tarjetas de la Asamblea Legislativa.

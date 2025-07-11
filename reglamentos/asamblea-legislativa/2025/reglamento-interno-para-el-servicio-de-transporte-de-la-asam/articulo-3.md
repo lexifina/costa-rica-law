@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Órganos competentes. La aplicación y cumplimiento del presente reglamento estarán a cargo de la Gerencia General, la Gerencia del Departamento de Servicios Generales, la Jefatura del Área de Transportes, y las Gerencias de los Departamentos de Proveeduría y Financiero.

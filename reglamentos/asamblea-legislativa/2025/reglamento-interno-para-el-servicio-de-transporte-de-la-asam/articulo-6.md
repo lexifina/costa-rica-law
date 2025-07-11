@@ -1,0 +1,3 @@
+ARTÍCULO 6.- Tipos de servicios administrativos. El servicio de transporte para los diputados y las diputadas, y departamentos de la Asamblea Legislativa se clasificará en:
+1. Servicios de transporte de corta duración: Se refiere a los servicios de transporte que se realizan durante la jornada ordinaria de trabajo dentro del Área Metropolitana.
+2. Servicios de transporte de larga duración: Se conceptualizan como giras y se refiere a los servicios de transporte que se realicen a cualquier parte del país y que trascienden la jornada ordinaria de trabajo, que incluyen visitas de carácter institucional o comunal que realizan las personas diputadas o personas funcionarias legislativas en atención de labores propias de su cargo.

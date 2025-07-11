@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Activación de las tarjetas institucionales Si un operador móvil o usuario autorizado se reincorpora en las funciones o se le asigna una gira, el Área de Transportes solicitará al Departamento Financiero la activación y la entrega de la tarjeta institucional, con al menos dos días de anticipación a la fecha en que se realizará la gira.

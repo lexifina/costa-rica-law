@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Sustitución de operadores por caso fortuito o de fuerza mayor Cuando un funcionario asignado a una gira no pueda continuar por algún motivo debidamente justificado, caso fortuito o de fuerza mayor, el Área de Transporte debe gestionar lo correspondiente y asignar a otro funcionario autorizado con total disponibilidad para que culmine la gira, para ello debe garantizar todos los requerimientos de traslado del operador.
+Por ningún motivo un mismo operador o funcionario autorizado debe afrontar dos giras de manera simultánea.

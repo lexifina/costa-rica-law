@@ -1,0 +1,17 @@
+CAPÍTULO IX
+ACCIDENTES DE TRANSITO
+ARTÍCULO 36.- Sobre los accidentes de tránsito:
+a) Investigación administrativa. En caso de accidente, la Jefatura del Área de Transportes deberá realizar la investigación administrativa correspondiente e informar a la Gerencia General el resultado. En caso de que se considere oportuno, se ordenará la apertura del procedimiento disciplinario administrativo, de conformidad con la Ley General de la Administración Pública.
+b) Responsabilidad del conductor. El conductor declarado responsable por los Tribunales de Justicia de ocasionar un accidente con un vehículo de la Asamblea Legislativa deberá pagar el monto correspondiente al deducible, así como los gastos o indemnizaciones que deba cubrir la Asamblea Legislativa en favor de terceros afectados. Lo anterior, sin perjuicio de las sanciones disciplinarias, civiles y penales que se impongan al servidor.
+c) Responsabilidad de otros funcionarios. Se hará responsable solidariamente de las consecuencias que se deriven de la utilización de los vehículos de la Asamblea Legislativa, al funcionario que permita su uso a personas no autorizadas por el Área de Transportes. En caso de accidente de tránsito, deberá asumir las medidas disciplinarias, civiles y penales que correspondan, si la investigación o fallo de la autoridad competente determina culpabilidad del conductor al servicio de la Asamblea Legislativa.
+d) Los conductores y funcionarios que se relacionen con un accidente de tránsito deberán tomar las siguientes medidas:
+d.1). Obtener nombres y direcciones de personas afectadas y de los testigos, incluyendo pasajeros.
+d.2). En lo posible, informar inmediatamente a la autoridad de la Dirección General de Tránsito del lugar.
+d.3). No hacer comentario alguno respecto al detalle del accidente, excepto con las autoridades o representantes del Instituto Nacional de Seguros.
+d.4). Anotar los daños producidos en ambos vehículos.
+d.5). Acatar todo lo dispuesto por las leyes y reglamentos relacionados con la materia, así como lo establecido en el presente Reglamento.
+e) Arreglos extrajudiciales. En caso de que ocurriera algún accidente con vehículos de la Asamblea Legislativa, ningún conductor autorizado podrá efectuar arreglos extrajudiciales; deberá en cambio indicarle al conductor del vehículo con el que colisionó que se apersone o comunique con la Jefatura del Área de Transportes para efectuar las gestiones correspondientes
+f) Deber de informar. El conductor deberá comunicar inmediatamente del accidente a la Jefatura del Área de Transportes por el medio más rápido a su disposición.
+Asimismo, deberá presentarse el día hábil posterior a los hechos, salvo casos justificados, en la Área de Transportes para rendir un informe con los pormenores del accidente y aportar la boleta confeccionada por el oficial de tránsito que haya atendido el percance, cuando proceda, de lo cual se levantará un acta.
+Una vez finalizada la investigación correspondiente, la Área de Transportes informará por escrito a la Gerencia General el resultado de ésta y remitirá copia del acta y del informe al Departamento de Asesoría Legal de la institución.
+g) Denuncia ante los órganos competentes. La Jefatura del Departamento de Servicios Generales, en coordinación con la Área de Transportes y el Departamento de Asesoría Legal, deberán denunciar el accidente de tránsito ante las autoridades competentes.

@@ -1,0 +1,20 @@
+ARTÍCULO 31.- Deberes y responsabilidades de los conductores de los vehículos. Son deberes y responsabilidades de todo conductor y funcionario autorizado para conducir vehículos de uso administrativo, además de lo consignado en el ordenamiento legal vigente, los siguientes:
+a) Conocer y cumplir estrictamente la Ley de Tránsito, las disposiciones que establece el presente reglamento, así como las funciones que establece el Manual Descriptivo de Puestos de la Institución.
+b) Portar la licencia de conducir oficial al día, así como el carné de la Institución que lo acredite como conductor, además antes de brindar el servicio, deberá verificar que la información requerida para solicitar el servicio de transporte esté completa en el respectivo formulario.
+c) Portar y custodiar en el vehículo la tarjeta de derechos de circulación, la revisión técnica, la tarjeta de combustible, el dispositivo de Quick Pass, el carné institucional, así como las herramientas y dispositivos de seguridad necesarios.
+d) Antes de conducir un vehículo deberá revisar frenos, dirección, luces, lubricantes, combustible, presión, estado de llantas y del repuesto, nivel de agua y todos aquellos aspectos que aseguren la prestación de un servicio seguro. Para tal efecto se utilizará un formulario impreso para dejar evidencia de la revisión, en el que conste el visto bueno del jefe inmediato.
+e) Velar porque el vehículo opere en condiciones mecánicas y de carrocería apropiadas y reportar oportunamente los daños que se detecten en el vehículo, así como mantenerlo en óptimas condiciones de limpieza
+f) Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad nominal de pasajeros consignada en la tarjeta de circulación.
+g) Aplicar mientras conduce las mejores técnicas y conocimientos para el buen manejo, evitando daños o el desgaste acelerado de la móvil. Además, deberá mantener encendido el equipo de radiocomunicación asignado al vehículo.
+h) Conservar mientras conduce, la mayor compostura y la debida prudencia de manera que no ponga en peligro su seguridad y la de otras personas, la seguridad del vehículo que conduce y de otros vehículos o bienes.
+i) Seguir la ruta lógica establecida entre los puntos de salida y destino de cada servicio.
+j) Informar al superior inmediato de cualquier alteración que se presente en el transcurso de un viaje.
+k) Cuidar las herramientas, repuestos y otras piezas complementarias de que disponga la unidad móvil.
+l) Guardar el vehículo al finalizar la jornada laboral, en el estacionamiento que la Administración tenga destinado para dicho fin.
+m) Cubrir y asumir las multas por infracciones de tránsito y otras regulaciones que sean penalizadas por los inspectores de tránsito, cuando incurra en ellas.
+n) Estar a las órdenes, en cuanto al servicio de transporte se refiere, de la persona a la cual se autorizó el servicio durante el tiempo concedido e informar a su jefe inmediato de cualquier situación irregular, anormal, especial o extraordinaria que ocurra.
+o) Racionalizar el consumo de combustible, así como liquidar ante la Jefatura del Área de Transportes inmediatamente después de brindado el servicio, presentando la o las facturas correspondientes y la bitácora de la gira con la información totalmente completa.
+p) Informar al Área de Transportes, cada quince días o cuando se amerite del funcionamiento del vehículo asignado.
+q) Presentar ante la Área de Transportes, en caso de requerirse y de forma inmediata después de realizada la gira, un informe con los detalles relativos al servicio brindado.
+r) Mantener un comportamiento cortés con las autoridades institucionales y de Tránsito en todo momento y los usuarios.
+s) En caso de accidente informar a la Jefatura del Área de Transportes y mantenerse, en el sitio del percance, hasta que un oficial de tránsito le extienda la boleta correspondiente, o, en su defecto, que cuente con la autorización expresa de la Jefatura del Área de Transportes para retirarse.
