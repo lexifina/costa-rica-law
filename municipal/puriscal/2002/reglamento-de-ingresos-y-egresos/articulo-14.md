@@ -1,1 +1,0 @@
-Artículo 14.—Pago de pensiones: Se seguirá el mismo trámite de la planilla normal. Para efectos de normalizar el sistema se concederá un plazo de tres meses, a partir de la vigencia del presente Reglamento, para que los interesados procedan a abrir sus cuentas en el banco escogido por la Municipalidad.

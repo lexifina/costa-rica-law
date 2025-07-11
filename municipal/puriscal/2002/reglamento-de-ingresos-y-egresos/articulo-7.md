@@ -1,1 +1,0 @@
-Artículo 7º—Dietas a regidores: El trámite es igual al anterior. La planilla se elaborará en la semana siguiente a la última sesión del mes anterior. Se adjuntará a la misma el original con dos copias de las hojas de asistencia a sesiones, las cuales constituyen el respaldo para el pago respectivo.

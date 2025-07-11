@@ -1,1 +1,0 @@
-Artículo 16º-Niveles de responsabilidad en la autorización y firma de órdenes de compra, órdenes de pago y cheques:-(Derogado por el artículo 35 del Reglamento interno de contratación públicas de la Municipalidad de Puriscal, aprobado mediante sesión N° 228 del 14 de febrero del 2023)
