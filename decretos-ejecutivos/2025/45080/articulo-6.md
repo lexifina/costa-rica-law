@@ -1,0 +1,2 @@
+Artículo 6º.- Deróguese el Decreto Ejecutivo No. 31877-H, Clasificador Económico del Gasto del Sector Público, publicado en La Gaceta No. 140 del 19 de julio del 2004. Dicha derogatoria se hará efectiva a partir de la formulación de los Presupuestos Ordinarios del ejercicio presupuestario del año 2027, según corresponda.
+Para los ejercicios presupuestarios 2025 y 2026 se mantendrá la aplicación de los clasificadores presupuestarios vigentes a la fecha de emisión del presente decreto.

@@ -1,0 +1,2 @@
+Artículo 2°.- Como parte de la normativa técnica básica de aplicación para todo el Sector Público, se procederá a actualizar las "Normas y criterios operativos para la utilización de los Clasificadores Presupuestarios del Sector Público”, y se publicarán en el sitio web del Ministerio de Hacienda (https://www.hacienda.2:o.cr/docs/Clasificadores.pdf).
+(Nota de Sinalevi: Las Normas y criterios operativos para la utilización de los Clasificadores Presupuestarios del Sector Público, pueden ser consultados en el siguiente Enlace)
