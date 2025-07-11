@@ -1,1 +1,1 @@
-Artículo 52.—El presente Estatuto podrá ser reformado por la Asamblea General, por votación de las dos terceras partes de la totalidad de los miembros, en Sesión Extraordinaria convocada exclusivamente para ese propósito.
+ARTÍCULO 52. Estos Estatutos podrán ser reformados por la Asamblea General, por votación de las dos terceras partes de la totalidad de los miembros presentes, en Sesión Ordinaria o Extraordinaria.

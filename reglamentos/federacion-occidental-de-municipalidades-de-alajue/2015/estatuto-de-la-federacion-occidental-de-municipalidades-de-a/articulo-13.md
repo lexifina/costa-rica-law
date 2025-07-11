@@ -1,1 +1,1 @@
-Artículo 13.—Las sesiones ordinarias y extraordinarias se efectuarán en algún local adecuado y en cualquier lugar del país, cuando la índole de los asuntos a tratar así lo requiera y siempre que la convocatoria así lo especifique.
+ARTÍCULO 13. Las sesiones ordinarias y extraordinarias se efectuarán en algún local adecuado y en cualquier lugar del país, cuando la índole de los asuntos a tratar así lo requiera y siempre que la convocatoria así lo especifique.

@@ -1,9 +1,7 @@
-CAPÍTULO II
-De la Asamblea General
-Artículo 10.—De la Asamblea General. La Asamblea General es el Órgano superior de la Federación y estará constituida por:
-1. La Alcaldía de cada municipalidad.
-2. Dos representantes propietarios y dos suplentes, todos
-miembros del Concejo Municipal, nombrados por el
-Concejo Municipal, procurando la equidad de género.
-En caso de ausencia de los Regidores propietarios, estos podrán ser remplazados por los Regidores suplentes, que permanecerán como miembros de la Asamblea durante toda la Sesión y tendrán derecho a voz y voto.
-Los miembros de la Asamblea durarán en sus cargos 4 años en el cumplimiento del periodo para el cual fueron elegidos popularmente y acreditados por el Tribunal Supremo de Elecciones.
+CAPITULO II
+DE LA ASAMBLEA GENERAL
+ARTÍCULO 10. De la Asamblea General. La Asamblea General es el Órgano superior de la Federación y estará constituida por:
+1) La Alcaldía de cada municipalidad e intendencias afiliadas. En ausencia podrá suplirlo la primera vicealcaldía y vice intendencia. La segunda Vice Alcaldía o Segunda Vice Intendencia solamente podrán suplirlo cuando se encuentren en ejercicio de su cargo.
+2) Dos representantes propietarios y dos suplentes de cada Concejo Municipal y Consejos Municipales de Distrito afiliados a la Federación. Dichos representantes los deberán nombrar bajo un acuerdo el Concejo Municipal y Consejo Municipal de Distrito afiliados, procurando la equidad de género. En caso de ausencia de miembro propietario, será remplazado por el representante suplente con todos los derechos. Los representantes propietarios tendrán derecho a voz y voto en las asambleas y los representantes suplentes tendrán derecho a voz.
+Los representantes ante la asamblea, propietarios y suplentes, puede ser cualquier miembro del Concejo Municipal y Consejo Municipal de Distrito en pleno (regidores y Consejales propietarios o suplentes).
+Los miembros de la Asamblea durarán en sus cargos 4 años en el cumplimiento del periodo para el cual fueron elegidos popularmente y acreditados por el Tribunal Supremo de Elecciones. La Asamblea General en su primera sesión de conformación la presidirá el integrante de mayor edad; una vez conformada la Asamblea lo hará el presidente del Consejo Directivo.

@@ -1,1 +1,1 @@
-Artículo 14.—Las sesiones de la Asamblea deberán iniciarse dentro de los quince minutos siguientes de la hora señalada, conforme con el reloj del despacho. En su defecto con el reloj de la Presidencia.
+ARTÍCULO 14. Las sesiones de la Asamblea deberán iniciarse dentro de los quince minutos siguientes de la hora señalada, conforme con el reloj del despacho. En su defecto con el reloj de la Presidencia.

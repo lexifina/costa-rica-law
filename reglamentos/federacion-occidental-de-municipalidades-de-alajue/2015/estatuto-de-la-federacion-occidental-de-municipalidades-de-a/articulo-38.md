@@ -1,2 +1,1 @@
-Artículo 38.-Para cubrir los gastos ordinarios de la Federación, cada Municipalidad signataria le girará el cuatro por mil de su Presupuesto Ordinario, debiéndose desembolsar como máximo en tres tractos proporcionales en los meses de marzo, junio y setiembre, y con fecha máxima al 30 de setiembre, a efecto de posibilitar la operación de la Federación.
-(Así reformado en sesión N° 002 del 8 de julio de 2022)
+ARTÍCULO 38. Para cubrir los gastos ordinarios de la Federación, cada Municipalidad signataria le girará el cuatro por mil de su Presupuesto Ordinario, debiéndose desembolsar como máximo en tres tractos proporcionales en los meses de marzo, junio y setiembre, y con fecha máxima al 30 de setiembre, a efecto de posibilitar la operación de la Federación.

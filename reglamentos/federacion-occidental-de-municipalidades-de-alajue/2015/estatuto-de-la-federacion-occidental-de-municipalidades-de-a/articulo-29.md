@@ -1,3 +1,3 @@
-CAPÍTULO V
-De la Comisión Técnica de Desarrollo Regional
-Artículo 29.—De la Comisión Técnica de Desarrollo Regional. La Comisión Técnica de Desarrollo Regional es un Órgano de apoyo y de asesoría al Consejo y a la Dirección Ejecutiva y estará conformada por al menos una persona designada por cada Alcalde (sa) de las Municipalidades afiliadas a la Federación.
+CAPITULO V
+DE LAS COMISIÓNES
+ARTÍCULO 29. El Consejo Directivo y/o la Administración podrán crear comisiones de trabajo que sean de interés para la Federación, sus afiliadas y la Región de interés; esto con el fin de tener una coordinación interinstitucional; sea dentro de las afiliadas, sector público o privado, buscando maximizar los recursos y mejorar los resultados.

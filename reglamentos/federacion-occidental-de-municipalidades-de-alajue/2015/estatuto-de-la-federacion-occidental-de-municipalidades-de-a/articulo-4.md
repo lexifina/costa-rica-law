@@ -1,1 +1,1 @@
-Artículo 4º—Duración. Esta Federación tendrá duración indefinida.
+ARTÍCULO 4. Duración. Esta Federación tendrá duración indefinida.

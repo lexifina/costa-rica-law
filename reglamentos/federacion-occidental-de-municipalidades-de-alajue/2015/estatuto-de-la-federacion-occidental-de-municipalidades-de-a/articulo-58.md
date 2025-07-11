@@ -1,1 +1,2 @@
-Artículo 58.—Este Estatuto rige a partir de su publicación en el Diario Oficial La Gaceta, excepto la Reforma del Artículo 17, para respetar la elección de las nuevas autoridades. Esta Reforma al Artículo 17 se aplicará a partir de 1º mayo del 2016.
+ARTÍCULO 58.- Se deja sin efecto los Estatutos de la Federación Occidental de Municipalidades de Alajuela publicado en Poás, martes 17 de abril del 2018 y todas sus reformas posteriores.
+Rige a partir de su publicación, en La Gaceta-

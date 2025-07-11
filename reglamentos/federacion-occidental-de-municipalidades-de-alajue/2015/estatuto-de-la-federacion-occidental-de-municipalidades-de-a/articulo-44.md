@@ -1,6 +1,7 @@
 CAPÍTULO IX
-Recursos contra los Actos de la Federación
-Artículo 44.—Recurso Revocatoria del Consejo Directivo. Los actos emanados directamente por el Consejo Directivo serán susceptibles de impugnación por motivos de oportunidad y legalidad del acto.
+RECURSOS CONTRA LOS ACTOS
+DE LA FEDERACION
+ARTÍCULO 44. Recurso Revocatoria del Consejo Directivo. Los actos emanados directamente por el Consejo Directivo serán susceptibles de impugnación por motivos de oportunidad y legalidad del acto.
 Podrán ser impugnados por todo aquel que demuestre tener un interés legítimo, un derecho subjetivo o que pueda resultar directamente afectado, lesionado o satisfecho en virtud del acto final.
 El recurso se presentará dentro de los diez días hábiles posteriores a la firmeza del acto, sobre la presentación, regirán los principios de informalidad de Derecho Administrativo, por lo que bastará para su correcta formulación que de su texto se infiera claramente la petición, en un simple escrito donde conste el motivo de la inconformidad, las referencias del acto recurrido, el nombre y firma de quien lo interpone y el lugar para recibir notificaciones.
 El recurso de revocatoria será presentado ante el Consejo Directivo, quien resolverá sobre la admisibilidad, legitimación y derecho de fondo en el plazo de 30 días hábiles posteriores al recibido del escrito.

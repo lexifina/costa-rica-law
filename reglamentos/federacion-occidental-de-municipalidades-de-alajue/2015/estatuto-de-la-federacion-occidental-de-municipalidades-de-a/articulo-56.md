@@ -1,1 +1,3 @@
-Artículo 56.—De las Comisiones. Las funciones y alcances de las comisiones que designe el Consejo Directivo serán reguladas vía Reglamento.
+CAPÍTULO XIII
+Disposiciones Finales
+ARTÍCULO 56. En todo lo no expresamente establecido por estos Estatutos será de aplicación la legislación vigente que corresponda a esta materia.

@@ -1,1 +1,1 @@
-Artículo 21.—De la Presidencia del Consejo Directivo. La Presidencia será electa por mayoría simple del total de votos presentes, por el Consejo Directivo, por un período de dos años y podrá ser reelecta.
+ARTÍCULO 21. De la Presidencia del Consejo Directivo. La Presidencia será electa por mayoría simple del total de votos presentes, por el Consejo Directivo, por un período de dos años y podrá ser reelecta.

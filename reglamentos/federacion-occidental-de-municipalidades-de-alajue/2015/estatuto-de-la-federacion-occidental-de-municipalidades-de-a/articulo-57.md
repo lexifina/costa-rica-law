@@ -1,3 +1,1 @@
-CAPÍTULO XIII
-Disposiciones Finales
-Artículo 57.—En todo lo no expresamente establecido por este Estatuto será de aplicación la legislación vigente que corresponda a esta materia.
+ARTÍCULO 57. Estos Estatutos rigen a partir de su publicación en el Diario Oficial La Gaceta
