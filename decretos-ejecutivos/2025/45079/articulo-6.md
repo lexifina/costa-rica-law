@@ -1,0 +1,2 @@
+Artículo 6º.-Deróguense los Decretos Ejecutivos No. 33086-H publicado en La Gaceta No. 94 de 17 de mayo de 2006, No. 36585-H publicado en La Gaceta No. 104 de 31 de mayo de 2011 y No. 43108-H publicado en La Gaceta No. 187 del 29 de setiembre del 2021. Dicha derogatoria se hará efectiva a partir de la formulación de los Presupuestos Ordinarios del ejercicio presupuestario del año 2027, según corresponda.
+Para los ejercicios presupuestarios 2025 y 2026 se mantendrá la aplicación de los clasificadores presupuestarios vigentes a la fecha de emisión del presente decreto.
