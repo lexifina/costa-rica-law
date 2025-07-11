@@ -1,0 +1,2 @@
+Artículo 2.- Habilitación del nuevo sistema para el cumplimiento de obligaciones tributarias.
+Se establece el Sistema Integrado de Gestión Tributaria TRIBU-CR, por medio de los diferentes módulos que habilite en forma progresiva la Dirección General de Tributación, como la única plataforma digital tributaria que se utilizará para la gestión de trámites, el cumplimiento de los deberes formales y materiales, los procedimientos de control tributario, como medio para realizar las comunicaciones de la Administración Tributaria a los ciudadanos y obligados tributarios.
