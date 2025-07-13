@@ -1,0 +1,1 @@
+Artículo 8°-Presentada la solicitud sin los requisitos respectivos, el departamento de patentes de la Municipalidad de Corredores, emitirá prevención por escrito por única vez a la persona interesada para que los presente; para tal efecto, dará un plazo prudencial que no podrá exceder de diez días hábiles, de conformidad con lo establecido en la ley 8220 y su reglamento.

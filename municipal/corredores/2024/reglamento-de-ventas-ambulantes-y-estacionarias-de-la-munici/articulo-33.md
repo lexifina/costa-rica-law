@@ -1,0 +1,1 @@
+Artículo 33.-Cuando las circunstancias ameriten un cambio de ubicación de un puesto estacionario, el departamento de patentes elaborará un informe técnico en el que se justifique el cambio, además deberá contar con un informe técnico del departamento de Ingeniería de la Municipalidad de Corredores.

@@ -1,0 +1,1 @@
+Artículo 20.-El área que ocupa un puesto no podrá ampliarse en ninguna forma, salvo mejor criterio del departamento de Ingeniería de la Municipalidad de Corredores, debiendo informar al Departamento de Patentes Municipalidad de Corredores de esta aprobación.

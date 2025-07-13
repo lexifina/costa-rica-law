@@ -1,0 +1,1 @@
+Artículo 10.-La vigencia de las licencias estacionarias o ambulantes es por un periodo de un año. La misma no tendrá prórroga automática, sino que deberá renovarse según condiciones del artículo 11 de este reglamento.

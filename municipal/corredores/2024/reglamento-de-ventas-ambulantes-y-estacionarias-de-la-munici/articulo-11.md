@@ -1,0 +1,3 @@
+Artículo 11.-Renovación de Patente. La renovación deberá realizarse con al menos 30 días naturales de anterioridad a su vencimiento, para esto deberá cumplir con la presentación de los siguientes documentos en la plataforma de servicios o vía digital.
+1. Formulario de renovación de patente estacionaria o ambulante debidamente completo.
+2. Someterse a un estudio de su condición socioeconómica, del cual será realizado por la unidad de Desarrollo Humano Cantonal de la Municipalidad de Corredores, el cual será determinante para el otorgamiento de la renovación o no de la licencia en los mismos términos del artículo 5 y 6 del mismo reglamento.

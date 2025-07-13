@@ -1,0 +1,1 @@
+Artículo 27.-Las personas vendedoras de loterías y chances debidamente autorizadas por la Junta de Protección Social de San José, deberán solicitar la licencia municipal para ejercer la actividad, pero estarán exentas de la presentación del estudio socioeconómico previsto en este Reglamento, así como del pago del impuesto establecido para esta actividad.

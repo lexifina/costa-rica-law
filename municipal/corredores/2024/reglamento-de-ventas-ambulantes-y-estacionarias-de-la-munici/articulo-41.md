@@ -1,0 +1,1 @@
+Artículo 41.-Las resoluciones de la Municipalidad que ordenen la revocación de la licencia por falta de pago, no tendrán recurso alguno y su tramitación no admitirá prueba en contrario salvo la excepción de pago.

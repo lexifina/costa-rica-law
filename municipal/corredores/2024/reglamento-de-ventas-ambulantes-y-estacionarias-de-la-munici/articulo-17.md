@@ -1,0 +1,1 @@
+Artículo 17.-La revocación de la licencia otorgada por el departamento de patentes de la Municipalidad de Corredores por cualquiera de las causales antes descritas se llevará a cabo según lo establecido para el Procedimiento Sumario dispuesto en el Libro Segundo de la Ley General de la Administración Pública.

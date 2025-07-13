@@ -1,0 +1,1 @@
+Artículo 35.-La persona licenciataria podrá renunciar a la licencia otorgada por la municipalidad. Sin embargo, esto no impedirá que la municipalidad ejerza el cobro de las sumas pendientes por las vías que correspondan, así mismo, la persona que renuncia no podrá solicitar otra licencia, hasta haber transcurrido 24 meses después de la renuncia.

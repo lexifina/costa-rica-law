@@ -1,0 +1,1 @@
+Artículo 36.-En caso de revocación o renuncia a la licencia por cualquier motivo, el departamento de patentes de la Municipalidad de Corredores, procederá a la adjudicación de esta licencia a otra persona solicitante por medio del orden en que hayan ingresado las solicitudes.

@@ -1,0 +1,1 @@
+Artículo 6°-Recibido el estudio socioeconómico emitido por parte de la unidad de Desarrollo Humano Cantonal de la Municipalidad de Corredores, la persona solicitante podrá proseguir los trámites tendientes a obtener la licencia, condicionado al resultado favorable de dicho estudio, el estudio socioeconómico deberá emitirse en un plazo máximo de un mes calendario.

@@ -1,0 +1,1 @@
+Artículo 29.-La ubicación de los puestos estacionarios será; cuando una cuadra es de 50 metros o menos se puede ubicar un puesto, y si la cuadra es de 100 metros o más, se puede ubicar 2 puestos espaciados a 50 metros entre ellos, o a 25 metros de cada esquina.

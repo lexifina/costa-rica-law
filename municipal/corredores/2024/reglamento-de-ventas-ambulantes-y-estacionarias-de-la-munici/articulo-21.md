@@ -1,0 +1,1 @@
+Artículo 21.-Los puestos estacionarios deberán ser ubicados a partir del cordón de caño en aceras con un ancho no menor de dos metros veinticinco centímetros, con el fin de cumplir con lo establecido por la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N° 7600.
