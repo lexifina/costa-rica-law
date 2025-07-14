@@ -4,13 +4,13 @@ El suscrito, secretario del Consejo de la Superintendencia de Telecomunicaciones
 Acuerdo Nº 005-054-2014
 Considerando:
 i.Que el artículo 63 de la Ley General de Telecomunicaciones establece que el plazo para presentar la declaración jurada y pago correspondiente al canon de reserva del espectro radioeléctrico vence dos meses y quince días posteriores al cierre del respectivo período fiscal.
-ii.Que mediante oficio DR-DI-14-2013, la Dirección de Recaudación de la Dirección General de Tributación del Ministerio de Hacienda emitió la directriz denominada “Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL”.
+ii.Que mediante oficio DR-DI-14-2013, la Dirección de Recaudación de la Dirección General de Tributación del Ministerio de Hacienda emitió la directriz denominada "Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL".
 iii. Que en el caso del canon de reserva del espectro radioeléctrico, la directriz señalada en el punto anterior define en sus apartados 3 y 4 que la presentación de la declaración y pago debe realizarse dos meses y quince días posteriores al cierre del período fiscal del período para el cual se fijó el canon.
-iv. Que mediante oficio N° 5469-SUTEL-CS-2013 del 29 de octubre de 2013, esta Superintendencia remitió una serie de observaciones a la directriz denominada “Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL”.
+iv. Que mediante oficio N° 5469-SUTEL-CS-2013 del 29 de octubre de 2013, esta Superintendencia remitió una serie de observaciones a la directriz denominada "Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL".
 v. Que mediante oficio N° DR-252-2013 del 21 de noviembre de 2013, la Dirección General de Tributación brindó respuesta a las observaciones formuladas por esta Superintendencia.
 vi. Que en el caso particular del canon de reserva del espectro radioeléctrico, el citado oficio reitera que el período que se cancela con fecha de vencimiento a marzo es el que corresponde a los meses transcurridos entre enero y diciembre del año anterior.
 Acuerdo:
-1. Dar por recibido el oficio DR-DI-14-2013, de fecha 29 de julio del 2013, por cuyo medio la Dirección de Recaudación de la Dirección General de Tributación del Ministerio de Hacienda, hace del conocimiento de la Superintendencia de Telecomunicaciones la directriz denominada “Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL”, mediante el cual la Dirección General de Tributación del Ministerio de Hacienda brindó respuesta a las observaciones formuladas en su oportunidad por esta Superintendencia.
+1. Dar por recibido el oficio DR-DI-14-2013, de fecha 29 de julio del 2013, por cuyo medio la Dirección de Recaudación de la Dirección General de Tributación del Ministerio de Hacienda, hace del conocimiento de la Superintendencia de Telecomunicaciones la directriz denominada "Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL", mediante el cual la Dirección General de Tributación del Ministerio de Hacienda brindó respuesta a las observaciones formuladas en su oportunidad por esta Superintendencia.
 (Nota de Sinalevi: El presente Procedimiento de la Dirección General de Tributación para la administración de tributos de SUTEL y FONATEL fue suministrado por la Superintendencia de Telecomunicaciones y se transcribe a continuación:)
 PROCEDIMIENTO DE LA DIRECCION GENERAL DE TRIBUTACION PARA
 LA ADMINISTRACIÓN DE IMPUESTOS DE SUTEL Y FONATEL
@@ -22,7 +22,7 @@ C. MARCO NORMATIVO 5
 D. TRIBUTOS ADMINISTRADOS 5
 E. COMPETENCIAS 5
 1. SUTEL 6
-2. DIRECCIÓN GENERAL DE TRIBUTACIÓN • 6
+2. DIRECCIÓN GENERAL DE TRIBUTACIÓN . 6
 3. TESORERIA NACIONAL 6
 F. CONTRIBUCIÓN ESPECIAL PARAFISCAL DE OPERADORES Y PROVEEDORES DE
 TELECOMUNICACIONES A FONATEL 7
@@ -147,51 +147,9 @@ Se consideran los ingresos brutos obtenidos de Enero a Diciembre del 2013 ( año
 Antes del 30 de noviembre de 2013, SUTEL fija la tarifa entre un 1. 5% y un 3% de esos ingresos.
 Con cierre a diciembre 2013, se realiza la declaración jurada y se presenta dentro de los 2 meses y 15 días posteriores al cierre ( antes del lunes 17 de marzo 2014 ya que el 15 es sábado).
 6. PLAZO PARA PRESENTAR LA DECLARACIÓN
-El plazo para presentar la declaración vence dos meses y quince días naturales posteriores al cierre del respectivo período fiscal ( Diciembre). El formulario que debe utilizarse para presentar la declaración jurada, es el D- 177 " Declaración contribución especial parafiscal a FONATEL—Ley 8642". Tanto la imagen de formulario como el instructivo para su llenado, se encuentran en el Anexo 2.
-7. PRESENTACIÓN DE LA DECLARACIÓN
-Para presentar la declaración, el contribuyente cuenta con la opción de presentarlo ya sea de forma electrónica o por medio de las entidades bancarias con un formulario impreso.
-7. 1 Declaración electrónica:
-El contribuyente puede realizar la presentación de la declaración por medio del sitio TRIBUNET https://www.haciendadigital.go.cr/tribunet/principal. html), para lo cual deberá primeramente registrar al contribuyente como usuario del sitio:
-Ingresar a la opción " Registro Tributario" y ahí mismo, la opción "Actualización de datos para trámites electrónicos".
-Suministrar los datos que se le solicitan, ya sea de persona física o jurídica, para obtener la clave de usuario para ese contribuyente.
-Una vez registrado, ingresa nuevamente a la página y a la opción " Declaraciones y Pago"-
-Declaración y pago electrónico" para digitar los datos de acceso.
-Dentro del sitio, el usuario " Crea" la declaración y selecciona el tipo de modelo ( D- 177 Declaración Contribución Especial...).
-Para mayores detalles, se adjunta el instructivo para el ingreso y declaración por medio de TribuNet. Ver anexo 3
-7. 2 Declaración en papel:
-El contribuyente puede realizar la presentación de la declaración por medio de un formulario impreso ( papel), el cual se encuentra disponible para su impresión en el sitio web, en la dirección http://dgt.hacienda.qo.crltiposimpuestos/ Publishingimages/ Formulario%20FONATEL.xls 1 dicho formulario se debe imprimir en 3 tantos ( original y 2 copias) para la Administración, el contribuyente y el Banco, respectivamente.
-1 Vinculo del sitio dgt.hacienda.go.cr, activo al 01- 07-2013
-Los 3 tantos de la declaración, deberán ser presentados ante la entidad bancaria autorizada de preferencia.
-8. PAGO DEL TRIBUTO
-El pago de la contribución se distribuirá en cuatro tractos equivalentes, pagaderos al día quince de los meses de marzo, junio, setiembre y diciembre del año posterior al cierre del período fiscal que corresponda. En caso de que el día quince no sea un día hábil, se da una prórroga al día hábil siguiente.
-Vinculo del sitio dgt.hacienda.go.cr, activo al 01- 07-2013
-Dirección de Recaudación
-Subdirección de Programación y Seguimiento de Cobro Administrativo
-Ejemplo: Periodo fiscal 2012
-Presentación de declaración D- 177 y pago del primer tracto: 15 de marzo de 2013.
-Pago del segundo tracto: 17 de junio de 2013 (el día 15 es sábado, se habilita el 17).
-Pago del tercer tracto: 16 de setiembre de 2013 (el día 15 es domingo, se habilita el 16).
-Pago del cuarto tracto: 16 de diciembre de 2013 ( el día 15 es domingo, se habilita el 16).
-Para realizar el pago tanto de la contribución parafiscal como de los tractos respectivos, el contribuyente cuenta con dos opciones: realizando el pago electrónico por el sitio de TRIBUNET o bien presentándose a las entidades bancarias autorizadas.
-8. 1 Pago electrónico:
-Primeramente, se deberá domiciliar ante la entidad bancaria, al menos una cuenta en moneda nacional, para el pago de tributos del contribuyente, para lo cual deberá presentarse debidamente lleno el formulario " Boleta de domiciliación" disponible en TribuNet https:// www.haciendadigital. go.cr/tribunet/principal. html) en " Otros servicios en línea"- Domiciliación de cuentas bancarias".
-Dicho formulario se completa y se presenta ante la entidad bancaria de preferencia. Una vez presentado, el interesado debe apersonarse a la Administración Tributaria correspondiente con el documento de domiciliación debidamente sellado por el banco. Si el trámite fuera realizado vía telefónica, tiene la opción de enviar el documento de domiciliación vía correo electrónico.
-Para mayores detalles, se adjunta el instructivo para la domiciliación de cuentas. Ver anexo 4 Para pagar en línea, se dispone de dos opciones: pago simultáneo con la presentación de la declaración ( sólo para contribuyentes con cuenta domiciliada). Para ello, el sistema abre un cuadro de diálogo, donde aparece la aplicación de pagos, con el monto por pagar. Se escoge la cuenta bancaria y se digita el monto que desea pagar.
-La otra opción es cancelaren TribuNet mediante el recibo oficial de pago electrónico D- 110, luego de haber presentado la declaración.
-8. 2 Pago ante las entidades bancarias:
-Para efectuar el pago ante las entidades bancarias, el contribuyente cuenta con las siguientes opciones:
-Utilizar la declaración D- 177 " Declaración contribución especial parafiscal a FONATEL Ley 8642" ( ver punto 7. 2), de la cual deberán imprimirse 3 tantos, distribuidos entre la Administración Tributaria, Banco y Contribuyente. Este medio se recomienda para realizar de Dirección de Recaudación
-Subdirección de Programación y Seguimiento de Cobro Administrativo forma simultánea la presentación y pago del primer tracto cuya fecha es la misma en ambos casos. Estos formularios no contarán con numeración impresa. Formulario D- 110" Recibo Oficial de Pago" que está disponible para su venta en las entidades recaudadoras autorizadas.
-Formulario D- 110 `Recibo Oficial de Pago" que se puede confeccionar utilizando el programa para elaboración de declaraciones EDDI7. Dicho programa se puede instalar desde la página principal de la Dirección General de Tributación:
-http://dqt.hacienda.qo.cr/oficina/ herramientas/ Paginas/EDDIElaboracionDigitaldeDeclaracione sdelmpuestos.aspx 2
-2 Vínculo del sitio dgt.hacienda.go.cr, activo al 01- 07-2013
-Importante: En el caso de los documentos ` Recibo Oficial de Pago" es muy importante diferenciar correctamente a qué corresponde la cancelación por lo cual, para la contribución parafiscal debe indicarse en las siguientes casillas, estos valores:
-Casilla 20( Nombre del impuesto): Contribución Parafiscal
-Casilla 21 ( Código de impuesto): 23
-Casilla 22 ( Nombre del concepto de pago): Declaración
-Casilla 23 ( Código del concepto de pago): 01
-8. 3 Confección de Recibos EDDI-SUTEL:
-Para facilitar el cumplimiento de la obligación a los operadores, la Dirección General de Tributación diseñó una versión especial del programa EDDI el cual se encuentra disponible en la SUTEL para que los contribuyentes de este tributo que así lo necesiten, se apersonen ahí y confeccionen los recibos de pago para que sean cancelados en las entidades bancarias.
+El plazo para presentar la declaración vence dos meses y quince días naturales posteriores al cierre del respectivo período fiscal ( Diciembre). El formulario que debe utilizarse para presentar la declaración jurada, es el D- 177 " Declaración contribución especial parafiscal a FONATEL-Ley 8642". Tanto la imagen de formulario como el instructivo para su llenado, se encuentran en el Anexo 2.
+7. PRESENTACIÓN DE LA DECLARACIÓN. (Derogado por el artículo 6° de la resolución N° MH-DGT-RES-0031-2025 del 14 de julio de 2025, "Uso del formulario para el canon de reserva del espectro radioeléctrico SUTEL y del formulario para la contribución especial parafiscal FONATEL")
+8. PAGO DEL TRIBUTO. (Derogado por el artículo 6° de la resolución N° MH-DGT-RES-0031-2025 del 14 de julio de 2025, "Uso del formulario para el canon de reserva del espectro radioeléctrico SUTEL y del formulario para la contribución especial parafiscal FONATEL")
 9. INTERESES Y SANCIONES:
 Si se incumple con la obligación de efectuar los pagos en los plazos legalmente establecidos, se aplicarán los intereses establecidos en el artículo 57 del Código mencionado.
 9. 1 Sanciones aplicadas por SUTEL
@@ -223,47 +181,9 @@ El pago del canon abarca de Enero a Diciembre del año 2014.
 Antes del vencimiento para la presentación de la declaración, SUTEL fija y publica el canon para cada sujeto pasivo.
 Se realiza la declaración jurada y se presenta dentro de los 2 meses y 15 días posteriores al cierre antes del lunes 16 de marzo 2015).
 4. PLAZO PARA PRESENTAR LA DECLARACIÓN
-El plazo para presentar la declaración vence dos meses y quince días naturales posteriores al cierre del respectivo período fiscal ( Diciembre). El formulario que debe utilizarse para presentar la declaración jurada, es el D- 176" Declaración Jurada del Canon de Reserva del Espectro Radioeléctrico— Ley N° 8642 Tanto la imagen de formulario como el instructivo para su llenado, se encuentran en el Anexo 5.
-5. PRESENTACIÓN DE LA DECLARACIÓN
-Para presentar la declaración, el contribuyente cuenta con la opción de presentarlo ya sea de forma electrónica o por medio de las entidades bancarias con un formulario impreso.
-Cabe indicar que, por tratarse en este caso de un monto ya predeterminado, la declaración cumple la misma función de un recibo oficial de pago para liquidar una deuda, no para determinarla.
-5. 1 Declaración electrónica:
-El contribuyente puede realizar la presentación de la declaración por medio del sitio TRIBUNET https:// www.haciendadigital.go. cr/tribunet/principal. html), para lo cual deberá primeramente registrar al contribuyente como usuario del sitio:
-Ingresar a la opción "Registro Tributario" y ahí mismo, la opción "Actualización de datos para trámites electrónicos".
-Suministrar los datos que se le solicitan, ya sea de persona física o jurídica, para obtener la clave de usuario para ese contribuyente.
-Una vez registrado, ingresa nuevamente a la página y a la opción " Declaraciones y Pago"- Declaración y pago electrónico" para digitar los datos de acceso.
-Dentro del sitio, el usuario " Crea" la declaración y selecciona el tipo de modelo ( D- 176
-Declaración Jurada del Canon de Reserva...).
-Para mayores detalles, se adjunta el instructivo para el ingreso y declaración por medio de TribuNet. Ver anexo 3
-5. 2 Declaración en papel:
-El contribuyente puede realizar la presentación de la declaración por medio de un formulario impreso ( papel), el cual se encuentra disponible para que sea impreso desde el sitio web, en la siguiente dirección: http://dgt.hacienda.qo.cr/tiposimpuestos/Publishinglmages/ D-176% 20Canon%20de%2Oreserva% 20del% 20espectro%20Ley%20 N% 208642% 20Sutel%2027% 20ene2011. pdf 3, dicho formulario se debe imprimir en 3 tantos ( original y 2 copias) para la Administración, el contribuyente y el Banco, respectivamente.
-3
-Vínculo del sitio dgt,hacienda.go.cr, activo al 01- 07-2013
-Los 3 tantos de la declaración, deberán ser presentados ante la entidad bancaria autorizada de preferencia.
-6. PAGO DEL CANON
-El pago del canon se realizará en un solo tracto, pagadero dentro dé los dos meses y quince días posteriores al cierre del respectivo período fiscal, es decir, el 15 de marzo. En caso de que el día quince no sea un día hábil, se da una prórroga al día hábil siguiente.
-Para realizar el pago, el contribuyente cuenta con dos opciones: realizando el pago electrónico por medio del sitio de TRIBUNET o bien presentándose a las entidades bancarias autorizadas
-6. 1 Pago electrónico:
-Primeramente, se deberá domiciliar ante la entidad bancaria, al menos una cuenta en moneda nacional, para el pago de tributos del contribuyente, para lo cual deberá presentarse debidamente lleno el formulario " Boleta de domiciliación" disponible en TribuNet https://www.haciendadigital.go.cr/tribunetlprincipal. html) en " Otros servicios en línea"- Domiciliación de cuentas bancarias".
-Dicho formulario se completa y se presenta ante la entidad bancaria de preferencia. Una vez presentado, el interesado debe apersonarse a la Administración Tributaria correspondiente con el documento de domiciliación debidamente sellado por el banco. Si el trámite fuera realizado vía telefónica, tiene la opción de enviar el documento de domiciliación vía correo electrónico.
-Para mayores detalles, se adjunta el instructivo para la domiciliación de cuentas. Ver anexo 4 Para pagar en línea, se dispone de dos opciones: pago simultáneo con la presentación de la declaración ( sólo para contribuyentes con cuenta domiciliada). Para ello, el sistema abre un cuadro de diálogo, donde aparece la aplicación de pagos, con el monto por pagar. Se escoge la cuenta bancaria y se digita el monto que desea pagar.
-La otra opción es cancelar en TribuNet mediante el recibo oficial de pago electrónico D- 110, conociendo previamente el monto a cancelar.
-6. 2 Pago ante las entidades bancarias:
-Para efectuar el pago ante las entidades bancarias, el contribuyente cuenta con las siguientes opciones:
-Utilizar la declaración D- 176 " Declaración Jurada del Canon de Reserva del Espectro
-Radioeléctrico — Ley N° 8642" ( ver punto 5. 2), de la cual deberán imprimirse 3 tantos, distribuidos entre la Administración Tributaria, Banco y Contribuyente.
-Formulario D- 110` Recibo Oficial de Pago" que está disponible para su venta en las entidades recaudadoras autorizadas.
-Formulario D- 110 " Recibo Oficial de Pago" que se puede confeccionar utilizando el programa para elaboración de declaraciones EDDI7. Dicho programa se puede instalar desde la página principal de la Dirección General de Tributación:
-http:// dgt.hacienda.go. cr/oficina/ herramientas/ Paginas/ EDDIElaboracionDigitaldeDeclaracione
-sdelmpuestos. aspx 4
-4 Vínculo del sitio dgt.hacienda.go.cr, activo al 01- 07-2013
-Importante: En el caso de los documentos " Recibo Oficial de Pago" es muy importante diferenciar correctamente a qué corresponde la cancelación por lo cual, para el pago del canon de reserva debe indicarse en las siguientes casillas, estos valores:
-Casilla 20 ( Nombre del impuesto): Canon de Reserva
-Casilla 21 ( Código de impuesto): 24
-Casilla 22( Nombre del concepto de pago): Declaración
-Casilla 23( Código del concepto de pago): 01
-6. 3 Confección de Recibos EDDI-SUTEL:
-Para facilitar el cumplimiento del pago del canon a los operadores, la Dirección General de Tributación diseñó una versión especial del programa EDDI el cual se encuentra disponible en la SUTEL para que los contribuyentes de este tributo que así lo necesiten, se apersonen ahí y confeccionen los recibos de pago para que sean cancelados en las entidades bancarias.
+El plazo para presentar la declaración vence dos meses y quince días naturales posteriores al cierre del respectivo período fiscal ( Diciembre). El formulario que debe utilizarse para presentar la declaración jurada, es el D- 176" Declaración Jurada del Canon de Reserva del Espectro Radioeléctrico- Ley N° 8642 Tanto la imagen de formulario como el instructivo para su llenado, se encuentran en el Anexo 5.
+5. PRESENTACIÓN DE LA DECLARACIÓN. (Derogado por el artículo 6° de la resolución N° MH-DGT-RES-0031-2025 del 14 de julio de 2025, "Uso del formulario para el canon de reserva del espectro radioeléctrico SUTEL y del formulario para la contribución especial parafiscal FONATEL")
+6. PAGO DEL CANON. (Derogado por el artículo 6° de la resolución N° MH-DGT-RES-0031-2025 del 14 de julio de 2025, "Uso del formulario para el canon de reserva del espectro radioeléctrico SUTEL y del formulario para la contribución especial parafiscal FONATEL")
 7. INTERESES Y SANCIONES:
 Si se incumple con la obligación de efectuar los pagos en los plazos legalmente establecidos, se aplicarán los intereses establecidos en el artículo 57 del Código mencionado.
 7. 1 Sanciones aplicadas por SUTEL
@@ -299,7 +219,7 @@ En vista de lo anterior, SUTEL deberá suministrar en una primera vez, el listad
 Cabe resaltar la importancia de estos datos ya que entre la información que deberá suministrar la SUTEL, se encuentra los periodos en los cuales el contribuyente ha cumplido con el deber formal de presentar, al menos la declaración. Dado que esta información servirá de insumo para llevar a cabo los planes de cobros y control del cumplimiento, es importante que la misma sea precisa por lo cual es responsabilidad de SUTEL que la misma contenga datos reales que no induzcan a la Administración Tributaria a que lleve a cabo gestiones infructuosas.
 El formato para el suministro de esta información, se encuentra en los anexos 6 y 7 según sean contribuyentes de la contribución parafiscal o del canon de reserva.
 2. REVISIÓN DE PAGOS
-Con la base de datos suministrada según el punto anterior, se realiza un control cruzado contra la base de pagos que genera la Subdirección de Declaraciones, Pagos y Entidades Colaboradoras ( SDPEC) indicada en el punto 2. 1• del tema F de este documento, cuyo resultado será en teoría, aquellos contribuyentes que no presentaron la declaración respectiva en el caso de ambos tributos y por ende, la cancelación del primer tracto o no hayan realizado la cancelación de los demás tractos en el caso de la contribución parafiscal.
+Con la base de datos suministrada según el punto anterior, se realiza un control cruzado contra la base de pagos que genera la Subdirección de Declaraciones, Pagos y Entidades Colaboradoras ( SDPEC) indicada en el punto 2. 1. del tema F de este documento, cuyo resultado será en teoría, aquellos contribuyentes que no presentaron la declaración respectiva en el caso de ambos tributos y por ende, la cancelación del primer tracto o no hayan realizado la cancelación de los demás tractos en el caso de la contribución parafiscal.
 3. GESTIÓN DE COBRO EN LAS ADMINISTRACIONES TRIBUTARIAS
 Del resultado de lá aplicación del punto anterior, se extraen aquellos contribuyentes que según la revisión, se encuentran morosos en el pago de la contribución parafiscal o en el pago del canon de reserva.
 La Subdirección de Programación y Seguimiento de Cobro Administrativo ( SPSCA) se encargará de distribuir los casos entre las distintas Administraciones Tributarias de acuerdo con la jurisdicción de cada una. Cada Administración atenderá los casos de acuerdo a su planeación y dentro de la medida de sus posibilidades.

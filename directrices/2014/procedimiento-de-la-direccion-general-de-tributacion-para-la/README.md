@@ -14,3 +14,4 @@ Procedimiento de la Dirección General de Tributación para la administración d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-29 | la propia norma |
+| 2 | 2025-07-14 | Resolución 31 (2025-07-14) |
