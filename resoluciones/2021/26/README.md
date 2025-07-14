@@ -14,3 +14,4 @@ Uso del formulario Impuesto a la venta y autoconsumo de cemento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-01 | la propia norma |
+| 2 | 2025-07-14 | Resolución 28 (2025-07-14) |
