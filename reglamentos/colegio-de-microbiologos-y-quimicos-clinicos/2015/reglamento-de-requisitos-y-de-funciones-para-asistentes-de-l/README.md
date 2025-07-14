@@ -16,3 +16,4 @@ Reglamento de requisitos y de funciones para asistentes de laboratorio de microb
 | 1 | 2015-04-14 | la propia norma |
 | 2 | 2016-08-30 | Reglamento 22 (2016-08-30) |
 | 3 | 2019-02-26 | Reglamento 47 (2019-02-26) |
+| 4 | 2025-07-14 | Reglamento 18 (2025-07-14) |

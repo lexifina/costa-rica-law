@@ -1,1 +1,2 @@
-Artículo 6º—Funciones del Técnico 2 de Laboratorio Clínico. Asistir en la ejecución de exámenes en el Laboratorio Clínico, de forma manual o automatizada, bajo la orientación, responsabilidad y supervisión del Profesional en Microbiología y Química Clínica debidamente activo en el Colegio.
+Artículo 6. Funciones del Técnico 2 de Laboratorio Clínico.
+Asistir en la ejecución de exámenes en el Laboratorio Clínico, de forma manual o automatizada, bajo la orientación, responsabilidad y supervisión del Profesional en Microbiología y Química Clínica debidamente activo en el Colegio.

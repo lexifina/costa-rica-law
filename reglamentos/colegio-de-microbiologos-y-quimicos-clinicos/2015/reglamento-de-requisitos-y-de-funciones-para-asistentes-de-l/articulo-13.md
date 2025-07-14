@@ -1,1 +1,2 @@
-Artículo 13.—El Colegio de Microbiólogos y Químicos Clínicos, a través de su Junta Directiva, establecerá el número mínimo y máximo de asistentes por cada Profesional en Microbiología, en cada laboratorio, para garantizar un trabajo idóneo y una orientación y supervisión directa de los Asistentes de Laboratorio.
+Artículo 13.
+El Colegio de Microbiólogos y Químicos Clínicos, a través de su Junta Directiva, establecerá el número mínimo y máximo de asistentes por cada Profesional en Microbiología, en cada laboratorio, para garantizar un trabajo idóneo y una orientación y supervisión directa de los Asistentes de Laboratorio.

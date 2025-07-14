@@ -1,2 +1,2 @@
-Artículo 12.—Bis: Los Asistentes de Laboratorio debidamente inscritos en el Colegio estarán habilitados para desempeñar funciones propias de su categoría, así como de categorías inferiores.
-(Así adicionado en sesión 22:2016-2017 del 30 de agosto de 2016)
+Artículo 12 (BIS).
+Los Asistentes de Laboratorio debidamente inscritos en el Colegio estarán habilitados para desempeñar funciones propias de su categoría, así como de categorías inferiores. Todo perfil superior debe claramente estar en capacidad y disposición de realizar todas las tareas autorizadas para un perfil inferior de forma adicional a las determinadas específicamente para el propio perfil en cuestión.
