@@ -18,3 +18,4 @@ Formularios de declaración jurada para Tributación Digital
 | 3 | 2014-08-19 | Resolución 37 (2014-08-19) |
 | 4 | 2025-07-08 | Resolución 20 (2025-07-08) |
 | 5 | 2025-07-08 | Resolución 22 (2025-07-08) |
+| 6 | 2025-07-14 | Resolución 30 (2025-07-14) |

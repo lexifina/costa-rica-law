@@ -28,7 +28,7 @@ Formulario denominado "Declaración jurada de retenciones en la fuente por retir
 Formulario denominado "Declaración jurada del impuesto único por tipo de combustible"; (Derogado por el artículo 6° de la resolución NºMH-DGT-RES-0022-2025 del 8 de julio de 2025; “Uso de los formularios Impuesto selectivo de consumo, Impuesto único por tipo combustible, Impuesto sobre bebidas alcohólicas e Impuesto específico a las bebidas sin alcohol y jabones de tocador”)
 Formulario denominado "Declaración jurada del impuesto especial sobre bancos y entidades financieras no domiciliadas";
 Formulario denominado "Declaración jurada del impuesto a los rendimientos y a las ganancias de capital de los fondos de inversión";
-Formulario denominado "Declaración jurada del impuesto a los casinos y salas de juego";
+Formulario denominado "Declaración jurada del impuesto a los casinos y salas de juego" (Derogada por el artículo 6° de la resolución Nº MH-DGT-RES-0030-2025 del 14 de julio de 2025, "Uso del formulario de los impuestos sobre los casinos)
 Formulario denominado "Declaración jurada del impuesto sobre la renta" (Derogada por el artículo 6 de la resolución N° NºMH-DGT-RES-0020-2025. "Uso de los formularios de declaración del impuesto sobre las utilidades para las personas físicas, personas jurídicas y personas públicas")
 Formulario denominado "Declaración jurada del impuesto general sobre las ventas-liquidación por el sistema general";
 Formulario denominado "Declaración jurada de retención a cuenta del impuesto general sobre las ventas";
