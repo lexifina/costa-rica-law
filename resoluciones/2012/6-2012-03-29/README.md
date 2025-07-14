@@ -14,3 +14,4 @@ Uso del formulario "Impuesto a los Productos del Tabaco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-12 | la propia norma |
+| 2 | 2025-07-14 | Resolución 32 (2025-07-14) |
