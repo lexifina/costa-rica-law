@@ -1,0 +1,3 @@
+Artículo 16.- Sede de las sesiones.
+Las sesiones presenciales ordinarias y extraordinarias, deberán tener lugar en el edificio institucional, excepto cuando el CETIC haya acordado previamente celebrar sus sesiones en otro recinto, en atención a los principios de economía, simplicidad, celeridad, eficiencia o conveniencia.
+Asimismo, podrá realizar visitas a ubicaciones institucionales o externas para verificar en sitio, el estado de los asuntos de su interés, las cuales se considerarán como reunión - y no como una sesión- y se levantará y se firmará una minuta de lo actuado, sin perjuicio de que puedan sesionar en el sitio

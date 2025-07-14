@@ -1,0 +1,2 @@
+Artículo 24.- Plan de formación continua
+Para un adecuado funcionamiento, los miembros del CETIC adquieren el compromiso de actualizarse, mediante un proceso de formación continua, en temas de interés del Comité. Los programas de capacitación podrán contener elementos de conocimiento y de destreza. De acuerdo con lo anterior, el Departamento de TIC, deberá considerar en su planificación el presupuesto respectivo.
