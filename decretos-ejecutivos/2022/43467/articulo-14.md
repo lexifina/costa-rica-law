@@ -1,1 +1,0 @@
-Artículo 14.-Objetivo de la Secretaría Técnica tendrá como objetivo fungir como apoyo operativo y técnico de la Presidencia del Comité Director, mediante el ejercicio de las funciones que se le designen.
