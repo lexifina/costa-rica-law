@@ -14,3 +14,4 @@ Formularios D-181"Declaración de Retenciones por Operaciones con Tarjeta de cr�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-26 | la propia norma |
+| 2 | 2025-07-14 | Resolución 27 (2025-07-14) |
