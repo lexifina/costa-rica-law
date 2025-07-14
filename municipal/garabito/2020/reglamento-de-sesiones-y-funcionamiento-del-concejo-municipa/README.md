@@ -17,3 +17,4 @@ Reglamento de sesiones y funcionamiento del concejo municipal del Cantón de Gar
 | 2 | 2020-09-29 | Reglamento municipal 13 (2020-09-29) |
 | 3 | 2024-10-21 | Reglamento municipal 35 (2024-10-21) |
 | 4 | 2024-10-21 | Reglamento municipal 35 (2024-10-21) |
+| 5 | 2025-07-14 | Reglamento municipal 73 (2025-07-14) |

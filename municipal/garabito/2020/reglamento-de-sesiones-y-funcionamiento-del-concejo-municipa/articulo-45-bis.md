@@ -1,0 +1,2 @@
+Artículo 45 bis.-Los puntos de revisión del quórum, aprobación de actas, Correspondencia recibida del Concejo Municipal, Mociones de los regidores y Alcalde, asuntos varios, oración e informe del alcalde deberán ser tomados en cuenta como puntos fijos a verse por parte de la presidencia, más los que el presidente decida introducir en el orden del día. En cuanto a las audiencias, serán los primeros y terceros lunes de cada mes y deberán ser solicitadas a través de la Plataforma de Servicios Ciudadanos.
+(Así adicionado mediante sesión ordinaria N° 073 del 14 de julio del 2025)
