@@ -1,1 +1,2 @@
-Artículo 20-Digitalización de documentos. Se hará la captura de imágenes por los medios tecnológicos que la Dirección de cada Registro considere pertinentes, con el fin de almacenarlos en las bases de datos del RN, a efecto de garantizar la seguridad jurídica y brindar la publicidad que estos requieren.
+Artículo 20- Digitalización de documentos. La captura de imágenes de los documentos, una vez presentados, se realizará en un plazo máximo de hasta un día hábil, por los medios tecnológicos que la administración defina, con el fin de almacenarlos en las bases de datos del Registro Nacional, a efecto de garantizar la seguridad jurídica y brindar la publicidad que estos requieren.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45275 del 14 de julio de 2025)

@@ -1,1 +1,2 @@
-Artículo 22-Del reparto manual o automático. Los documentos serán asignados a cada persona registradora por los medios así autorizados y disponibles respetando los principios de justicia y equidad.
+Artículo 22- Reparto de documentos. Los documentos serán asignados a cada persona registradora mediante reparto automático, dentro del plazo máximo de hasta un día hábil posterior a su recepción. La asignación se realizará a través de los medios autorizados y disponibles, respetando los principios de justicia y equidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45275 del 14 de julio de 2025)
