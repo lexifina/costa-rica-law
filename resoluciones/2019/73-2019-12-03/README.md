@@ -14,3 +14,4 @@ Uso de los formularios de declaración del Impuesto sobre las utilidades - Régi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-01-01 | la propia norma |
+| 2 | 2025-07-14 | Resolución 29 (2025-07-14) |
