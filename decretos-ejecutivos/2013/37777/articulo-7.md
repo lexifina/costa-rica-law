@@ -1,1 +1,0 @@
-Artículo 7º—Pasajeros. Cuando las necesidades institucionales así lo requieran o en casos excepcionales dicho vehículo podrá trasportar personas ajenas a la Institución, para lo cual deberá contarse con el consentimiento del Procurador General Adjunto, al menos de forma verbal, sin perjuicio de que éste conste por escrito cuando así se estime procedente por dicho funcionario.
