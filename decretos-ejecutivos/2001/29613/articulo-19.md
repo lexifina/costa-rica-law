@@ -1,1 +1,0 @@
-Artículo 19.—Infracciones a la Ley de Tránsito. Las infracciones a la Ley de Tránsito que ameriten ser investigadas a criterio de la Sección de Servicios Generales, serán remitidas a la Asesoría Legal para que se inicie el procedimiento respectivo.
