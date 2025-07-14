@@ -1,3 +1,0 @@
-Artículo 2°.- Obligación de las empresas de enlace de llamadas de apuestas electrónicas.
-Las empresas de enlace de llamadas de apuestas electrónicas deberán suministrar a la Administración Tributaria, la información que se detalla en el Anexo Nº 1 de esta resolución, dentro de los primeros quince días naturales del mes de enero de cada año, con indicación del nombre y número de identificación de los empleados contratados durante el período fiscal inmediato anterior.
-La información deberá remitirse a la Dirección de Recaudación de esta Dirección General, sita en el piso 12 del edificio La Llacuna, avenidas central y primera, calle cinco, San José.
