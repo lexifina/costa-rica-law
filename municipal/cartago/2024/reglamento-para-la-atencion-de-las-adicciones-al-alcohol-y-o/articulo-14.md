@@ -1,0 +1,6 @@
+ARTÍCULO 14. SUPUESTOS Y EFECTOS DE DESESTIMACIÓN DE LA ACCIÓN DISCIPLINARIA.
+Cuando la Alcaldía conozca de la incidencia, directa o indirecta, de una adicción al alcohol o a sustancias psicoactivas en la comisión de una falta disciplinaria, estará facultada para valorar los hechos y, de considerarlo oportuno y procedente, imponer como medida alternativa la obligación de la persona adicta de someterse a un programa de rehabilitación, de inicio inmediato de tratamiento, en el tanto medie su consentimiento.
+En esos casos, la Alcaldía podrá escuchar el criterio técnico de la Jefatura del Departamento de Recursos Humanos, el encargado de Salud Ocupacional y/o el médico de empresa, y deberá analizará los hechos tomando en cuenta el trasfondo humano y social de la persona adicta, el bloque de legalidad vigente y la protección de los intereses institucionales. En igualdad de condiciones, las personas funcionarias adictas deberán recibir igual tratamiento frente a sus faltas disciplinarias.
+El beneficio de la medida alternativa solo podrá otorgarse una única vez a cada persona funcionaria.
+En el caso de las personas que ocupan los cargos de secretario del Concejo, auditor interno y
+contador municipal, las facultades dispuestas en este reglamento a la Alcaldía como superior jerárquico, le corresponderán al Concejo Municipal.

@@ -1,0 +1,2 @@
+ARTÍCULO 16. ABANDONO DEL PROGRAMA DE REHABILITACIÓN SIN VINCULACIÓN CON UNA FALTA LABORAL.
+En caso de que la persona colaboradora incumpla, desatienda o rechace el programa de rehabilitación, sin una causa, no vinculado ello a un proceso laboral en trámite o a una falta laboral que pueda dar lugar a un procedimiento disciplinario, será considerado como incumplido el compromiso adquirido con la Municipalidad de Cartago y se dejará constancia de ello en el expediente social.

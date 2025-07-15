@@ -1,0 +1,3 @@
+ARTÍCULO 8. EFECTOS DE LA NEGATIVA DE LA PERSONA FUNCIONARIA PARA SOMETERSE AL PROGRAMA DE REHABILITACIÓN.
+Cuando la persona colaboradora se niegue a firmar la carta de compromiso para que busque tratamiento y se someta a un programa de rehabilitación, se dejará constancia en el expediente social, sin que ello constituya una falta disciplinaria por sí misma.
+La Alcaldía le indicará a la persona funcionaria que queda apercibida de la necesidad de que busque tratamiento para la adicción que padece, so pena de que, si comete una falta disciplinaria, procede hasta su despido. La negativa sólo podrá ser empleada como prueba dentro de un eventual procedimiento administrativo disciplinario, para demostrar que la Alcaldía le hizo el apercibimiento.

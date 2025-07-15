@@ -1,0 +1,2 @@
+ARTÍCULO 17. PROTECCIÓN DE RESPONSABILIDAD PATRONAL.
+Si la persona colaboradora incumple, abandona, desatiende o rechaza el programa de rehabilitación e incurre en faltas al contrato laboral, podrá ser sujeto de las correcciones disciplinarias pertinentes, sin que la enfermedad o la conducta aislada de ingesta de alcohol o de cualquier sustancia psicoactiva no autorizada sea un eximente de su responsabilidad. Rige a partir de la publicación en el Diario Oficial La Gaceta, de acuerdo con lo dispuesto en el artículo 43 del Código Municipal."
