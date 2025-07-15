@@ -1,0 +1,1 @@
+Artículo 25.- En lo no expresamente regulando en materia de organización y procedimiento parlamentario, se aplicarán supletoriamente a los Concejo de Distrito las reglas establecidas en el Código Municipal y la normativa reglamentaria municipal.

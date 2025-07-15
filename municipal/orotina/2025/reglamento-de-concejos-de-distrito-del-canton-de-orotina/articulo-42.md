@@ -1,0 +1,1 @@
+Artículo 42.- En la primera quincena del mes de noviembre del año presupuestario, en sesión extraordinaria del Concejo Municipal, la Alcaldía expondrá un informe sobre la ejecución de los proyectos participativos.

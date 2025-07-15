@@ -1,0 +1,1 @@
+Artículo 31.- La Alcaldía deberá comunicar, a más tardar el último día hábil del mes de febrero, a los Concejos de Distrito, el monto disponible para cada distrito por concepto de presupuestos participativos.

@@ -1,0 +1,1 @@
+Artículo 27.- La Comisión impulsará programas de capacitación para los miembros de los Concejos de Distrito, especialmente en aspectos legales, organizativos y para la presentación de proyectos en las distintas áreas del desarrollo.

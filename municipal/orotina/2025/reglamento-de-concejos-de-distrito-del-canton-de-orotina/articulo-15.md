@@ -1,0 +1,1 @@
+Artículo 15.- El quórum para las sesiones se formará con tres miembros. En las sesiones podrán participar los suplentes con derecho a voz, teniendo derecho al voto únicamente cuando sustituyan a miembros propietario ausencia o conforme el siguiente artículo.

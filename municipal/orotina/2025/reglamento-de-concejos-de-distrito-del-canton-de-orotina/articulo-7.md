@@ -1,0 +1,1 @@
+Artículo 7.- La persona secretaria del Concejo de Distrito llevará un registro de las organizaciones sociales del distrito, donde constará el tipo de organización, número de cédula jurídica, domicilio social, representantes legales y plazo de su nombramiento, estatutos y cualesquiera otras informaciones útiles en la gestión municipal.

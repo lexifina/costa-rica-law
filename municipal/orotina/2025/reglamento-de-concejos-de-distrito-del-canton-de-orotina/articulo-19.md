@@ -1,0 +1,1 @@
+Artículo 19.- Los acuerdos serán tomados por mayoría absoluta de votos de los miembros presentes. Si hubiera empate se someterá de nuevo a votación y si persistiere el empate, se tendrá por desechado el asunto.

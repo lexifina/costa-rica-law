@@ -1,0 +1,1 @@
+Artículo 43.- Los actores comunales que formaron parte en el proceso de presupuestos participativos y los Concejos de Distrito, tendrán la facultad de controlar y velar por la correcta ejecución de los proyectos desde su inicio y hasta su finalización; para ello la Alcaldía deberá facilitar la información requerida.

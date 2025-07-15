@@ -1,0 +1,1 @@
+Artículo 11.- De su seno, el Concejo de Distrito elegirá un secretario, un vicepresidente y un Presidente, quienes ejercerán sus cargos durante todo el periodo de elección de los concejales de distrito; asimismo, podrá constituir comisiones auxiliares de trabajo necesarias para la mejor atención de los problemas y soluciones de cada comunidad.

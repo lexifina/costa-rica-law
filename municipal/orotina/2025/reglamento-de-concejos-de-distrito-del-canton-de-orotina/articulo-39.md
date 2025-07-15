@@ -1,0 +1,1 @@
+Artículo 39.- La Administración Municipal será la responsable de realizar los procesos de contratación para la ejecución de los proyectos debidamente aprobados por el Concejo Municipal y la Contraloría General de la República, conforme a la normativa vigente.

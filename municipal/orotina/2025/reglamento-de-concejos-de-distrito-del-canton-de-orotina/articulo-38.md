@@ -1,0 +1,1 @@
+Artículo 38.- Una vez que el presupuesto ordinario sea aprobado por la Contraloría General de la República, la Alcaldía comunicará a los actores comunales que participaron en el proceso de dicha aprobación, indicando el nombre y el monto de las partidas aprobadas.
