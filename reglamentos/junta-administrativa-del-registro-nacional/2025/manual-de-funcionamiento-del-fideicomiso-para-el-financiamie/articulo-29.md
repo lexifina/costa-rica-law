@@ -1,0 +1,1 @@
+Artículo 29.- Plazo de las inversiones. El plazo de las inversiones se establecerá conforme a las necesidades de liquidez prevista, buscando el equilibrio entre rentabilidad, liquidez y riesgo. Este deberá estar acorde al Presupuesto Anual aprobado por el Fideicomitente.

@@ -1,0 +1,7 @@
+Artículo 26.- Informe semestral sobre la ejecución del Fideicomiso. El Fiduciario, en los primeros 10 días hábiles una vez finalizado cada semestre, deberá remitir informes semestrales sobre las labores del Fideicomiso, que incluya toda la información relevante sobre las actividades de éste. El informe contendrá al menos la siguiente información:
+a) Informe de ejecución de los fondos del Fideicomiso donde se detalle las erogaciones realizadas durante el semestre (Honorarios, impuestos sobre el Régimen de Rentas de Capital y Ganancias y Pérdidas de Capital, Auditoría Externa, entre otros).
+b) Estado de Flujo de Efectivo proyectado.
+c) Informe sobre el comportamiento de la cartera de créditos que incluya, entre otros aspectos, información completa sobre la composición, monto del crédito, fecha inicio, fecha finalización, plazo, saldo, tasa de interés reporte de la cartera morosa, situación de los créditos en proceso de cobro administrativo, prejudicial y judicial.
+Los informes se tendrán por recibidos siempre que contengan toda la información solicitada.
+El plazo de entrega de estos se suspende por el tiempo que requiera el Comité o a quien este delegue para su revisión, quien dispondrá de 10 días hábiles.
+En caso de que el Fiduciario así lo requiera, podrá solicitar una ampliación del plazo para la presentación de los informes con la respectiva justificación, la cual será valorada por el Fideicomitente para su aprobación.

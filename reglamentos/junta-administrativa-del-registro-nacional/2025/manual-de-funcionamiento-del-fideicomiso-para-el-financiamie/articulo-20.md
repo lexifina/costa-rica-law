@@ -1,0 +1,1 @@
+Artículo 20.- De los requisitos para el otorgamiento de créditos a los Fideicomisarios. Según el contrato de Fideicomiso, el análisis y formalización de los créditos lo efectuará el Fiduciario de acuerdo con la normativa de crédito vigente en el Reglamento General de Crédito del Fideicomiso para el Financiamiento de Vivienda a las personas funcionarias del Registro Nacional.

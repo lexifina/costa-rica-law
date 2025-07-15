@@ -1,0 +1,8 @@
+Artículo 16. Informes semestrales. Con la participación relevante del Departamento Financiero del Registro Nacional, el Comité preparará un informe de avance del plan anual de trabajo, con corte a los meses de junio y diciembre de cada año y lo elevará al Fideicomitente para su conocimiento y aprobación. Dichos informes deberán contener como mínimo los siguientes aspectos:
+a) El Informe de ejecución presupuestaria.
+b) El flujo de caja del período y su comparación con el proyectado en el plan.
+c) El avance físico en la colocación de las modalidades de crédito financiados por el Fideicomiso, y su comparación con lo proyectado por el plan anual de trabajo.
+d) Un análisis del cumplimiento de los supuestos y previsiones del plan anual de trabajo; en caso de que el Fiduciario haya tomado acciones que modifiquen los objetivos, supuestos y previsiones del plan anual de trabajo, deberá explicarlo.
+e) Un informe sobre el comportamiento de la cartera de créditos que incluya, entre otros aspectos, información completa sobre la estructura por plazos e identificación de la cartera morosa, el perfil del cliente moroso, la situación de los bienes en proceso de cobro administrativo y judicial. Esta información es facilitada por el Fiduciario.
+f) El Balance de Situación Financiera y el Estado de Resultados del Fideicomiso al 30 de junio y al 31 de diciembre de cada año, los cuales son remitidos por el Fiduciario.
+Este informe deberá ser preparado con base en la información financiera que remite mensualmente el Fiduciario, la cual debe contener los insumos indicados en el artículo 24 del presente manual.

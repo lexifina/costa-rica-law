@@ -1,0 +1,1 @@
+Artículo 30.- Gestión de la liquidez. El Fiduciario deberá efectuar el control de la liquidez del Fideicomiso, contemplando el plazo de vencimiento de las inversiones y el presupuesto anual del Fideicomiso.

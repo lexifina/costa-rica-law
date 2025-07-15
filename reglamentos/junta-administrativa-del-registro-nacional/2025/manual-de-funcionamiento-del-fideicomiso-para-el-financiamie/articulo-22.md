@@ -1,0 +1,2 @@
+Artículo 22.- De la recuperación de los créditos. Según se regula en el Reglamento General de Crédito del Fideicomiso para el Financiamiento de Vivienda a las personas funcionarias del Registro Nacional, los créditos que otorgue el Fideicomiso deberán ser recuperados por éste y para tal efecto deberán los Fideicomisarios suscribir las garantías y documentos contractuales correspondientes.
+Durante la vigencia del crédito, los préstamos serán cobrados mensualmente, mediante deducciones directas de los salarios de los funcionarios del Registro Nacional en calidad de deudores.

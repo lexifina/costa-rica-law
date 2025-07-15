@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. Este manual de funcionamiento será de acatamiento obligatorio para los colaboradores que participan en los procesos operativos del Fideicomiso, tanto del Banco de Costa Rica en su condición de Fiduciario, como de la Junta Administrativa del Registro Nacional en su condición de Fideicomitente.

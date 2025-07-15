@@ -1,0 +1,1 @@
+Artículo 31.- Registro Contable y Valuación de las inversiones. El registro y la valuación de las inversiones se realizarán con base en las Normas Internacionales de Información Financiera (NIIF'S) y su registro contable conforme lo indicado por la Superintendencia General de Entidades Financieras en su plan de cuentas.

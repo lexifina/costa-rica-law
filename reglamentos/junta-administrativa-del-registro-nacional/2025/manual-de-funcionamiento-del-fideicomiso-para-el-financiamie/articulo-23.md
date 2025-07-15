@@ -1,0 +1,21 @@
+CAPÍTULO VI. DEL FIDUCIARIO
+Artículo 23.- De las labores del Fiduciario. Serán funciones del Fiduciario:
+a) Revisar y ajustar las condiciones de otorgamiento de los créditos en conjunto con el Fideicomitente o a quien éste designe, las cuales serán canalizadas a través del Comité del Fideicomiso.
+b) Administrar, registrar y custodiar los bienes dados en administración, en cumplimiento de lo establecido en el contrato de Fideicomiso, el presente Manual, artículo 633 del Código de Comercio y demás normativa emitida por el Ministerio de Hacienda.
+c) Recibir y custodiar los expedientes físicos o digitales de los créditos aprobados, incluyendo las garantías una vez otorgado el crédito.
+d) Remitir copia al Comité, de los expedientes crediticios formalizados, en formato digital.
+e) Disponer de instrumentos de control y seguimiento para la administración del Fideicomiso.
+f) Realizar el análisis crediticio de las personas funcionarias interesadas para el otorgamiento de un crédito, con sustento en el Reglamento General de Crédito del Fideicomiso.
+g) Realizar visitas periódicas a los Fideicomisarios para monitorear y dar seguimiento a la garantía de los créditos otorgados
+h) Recibir, revisar y acatar las resoluciones de los créditos aprobados que reciba por parte del Comité; no obstante, el Fiduciario podrá realizar las recomendaciones que considere pertinentes sobre créditos preaprobados, las cuales serán valoradas por el Comité o personal designado por éste, no siendo obligatorio su acatamiento.
+i) Informar al Comité, a través del Departamento Financiero sobre las gestiones relacionadas con el cobro judicial, para coadyuvar en la adecuada y diligente administración en la recuperación de los créditos.
+j) Remitir al Comité, una vez formalizado el crédito, una nota informativa debidamente firmada por el funcionario a cargo donde se detallen las condiciones del crédito, sean: calidades completas del deudor y codeudor cuando corresponda, monto del crédito, plazo, tasa de interés corriente y moratorio, forma de pago, comisiones, garantía (copia del plano, estudio de registro y avalúo) y toda aquella información necesaria para el otorgamiento de la escritura de constitución de crédito e hipoteca; para lo cual el Fiduciario según el contrato de Fideicomiso recurrirá a los servicios de los notarios externos que designe el Comité, éstos podrán ser notarios externos vinculados al Fiduciario mediante un contrato de servicios profesionales, con la autorización del Comité.
+En los casos en que se requiera de notarios externos los costos derivados de estos serán asumidos por el deudor.
+k) Elaborar los contratos de crédito.
+l) Dar seguimiento a la adecuada inscripción de las hipotecas.
+m) Formalizar y ejecutar las operaciones de crédito de acuerdo con las instrucciones giradas por el Comité, de conformidad con las aprobaciones que emita el Fideicomitente.
+n) Registrar y controlar las operaciones crediticias.
+o) Velar por la suscripción de las pólizas de vida e incendio para cada deudor cuyo costo inicial y renovación será incluido dentro de la cuota de la operación, asimismo deberá velar porque éstas se mantengan vigentes durante todo el plazo del crédito, aún y cuando el deudor se atrasare en el pago de la cuota, el Fiduciario deberá renovar las pólizas utilizando los recursos del Fideicomiso provenientes de la recuperación crediticia, cuando existieren, previa comunicación al Comité Especial, por medio del Departamento Financiero del Registro Nacional; caso contrario el Fiduciario asumirá la responsabilidad si se determina que el impedimento de renovación es por causas atribuibles a éste.
+p) Gestionar el cobro administrativo, prejudicial y judicial de los créditos.
+q) Formalizar y girar los créditos en un plazo máximo de 15 días hábiles, contados a partir de que ha recibido toda la información necesaria para ejecutar el proceso de formalización, no será responsable si la formalización se atrasa por causas que no le son atribuibles.
+r) Brindar el seguimiento pertinente para mantener informado al Comité sobre la situación de la cartera crediticia, su nivel de riesgo, así como la recuperación oportuna de los créditos, la evaluación periódica del riesgo y las acciones preventivas, correctivas y cobratorias, acciones destinadas a la sanidad de la cartera de crédito.
