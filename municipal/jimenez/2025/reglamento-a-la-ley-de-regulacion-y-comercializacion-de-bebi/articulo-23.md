@@ -1,0 +1,1 @@
+Artículo 23.º-Permanencia de menores en Restaurantes. Los establecimientos autorizados para el giro de restaurante, permitirán la permanencia de menores de edad; quienes no podrán adquirir ni consumir dentro del establecimiento bebidas con contenido alcohólico.

@@ -1,0 +1,3 @@
+Transitorios
+Transitorio I
+En tanto la Municipalidad de Puerto Jiménez, no cuente con los formularios indicados en este reglamento, se autoriza a las personas que requieran realizar alguno de los trámites señalados que suscriban una nota dirigida al Concejo Municipal en caso de solicitud de licencia temporal y para el resto de trámites a la administración municipal a cargo del Alcalde, especificando las calidades del solicitante, número de teléfono, medio de notificación y el trámite que requiere, adjuntando los documentos que se indicaron en este cuerpo normativo, como requisitos del trámite requerido.

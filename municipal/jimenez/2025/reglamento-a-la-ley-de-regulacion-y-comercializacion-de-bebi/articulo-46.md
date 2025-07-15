@@ -1,0 +1,1 @@
+Artículo 46º-Documentos Electrónicos. Cuando los medios tecnológicos a disposición de la municipalidad lo permitan, se habilitará la posibilidad de realizar trámites relacionados con este reglamento y la ley N° 9047 por medios digitales.

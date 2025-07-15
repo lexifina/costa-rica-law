@@ -1,0 +1,1 @@
+Artículo 32º-De la medición de distancias. La medición de las distancias a que se refiere el artículo 9 de la Ley número 9047 se hará de puerta a puerta, entre el establecimiento que pretenda comercializar bebidas con contenido alcohólico y aquel punto de referencia que afecte la instalación del comercio. Considerándose de puerta a puerta la entrada principal del local.

@@ -1,0 +1,19 @@
+Artículo 18 º-Requisitos para licencias temporales. Quien desee obtener una licencia temporal deberá presentar una solicitud ante la secretaria del Concejo Municipal, la cual deberá contener al menos los siguientes requisitos:
+1. Si el solicitante es persona física debe aportar copia de la cédula de identidad al día. En caso de que sea una persona jurídica, la solicitud debe encontrarse firmada por el representante legal de la misma y aportar certificación de la personería de la sociedad, vigente y copia de la cédula de identidad del representante legal al día.
+2. Declaración jurada que indique:
+? Que se encuentra en plena capacidad cognoscitiva y volitiva.
+? Descripción de la actividad a realizar, con indicación de la dirección exacta, fechas y horarios en las que se realizará.
+? Descripción del lugar físico en el que se realizará la actividad, incluyendo un croquis o plano del mismo, en el que expresamente se señale el o los lugares en los que se tiene previsto el expendio de bebidas con contenido alcohólico.
+? En el caso que la ubicación corresponda a un centro deportivo, estadio, gimnasio, o cualquier otro lugar en el que habitualmente se desarrollan actividades deportivas, debe acreditarse no se expenderán bebidas con contenido alcohólico durante la realización del espectáculo deportivo.
+? Manifestación expresa en el sentido de que conoce las prohibiciones establecidas en la Ley, y que se compromete a respetarlas.
+3. En caso de ser a beneficio de alguna institución u organización sin fines de lucro, podrán solicitar la exoneración del pago del impuesto, debiendo señalar el nombre, dirección y el tipo de organización.
+4. En caso que el permiso de espectáculo público esté en trámite, aún si se otorga la licencia, su ejercicio se entenderá siempre condicionado al efectivo otorgamiento del permiso respectivo.
+5. Copia de la cédula de identidad del propietario del inmueble. Si el dueño del inmueble es persona jurídica, aportar certificación de la personería de la sociedad, vigente y copia de la cédula de identidad del representante legal al día.
+6. Además, debe aportarse una nota debidamente firmada por el o los propietarios del Inmueble, en la cual indica que están de acuerdo con el uso de su propiedad para el expendio de bebidas con contenido alcohólico y en los casos en que la propiedad se encuentra en derechos debe aportar copia de la cédula de los copropietarios.
+7. Permiso Sanitario de Funcionamiento emitido de manera expresa, clara y precisa para el evento o actividad por realizarse.
+8. Que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social, de que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares. El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible de forma remota por parte de la Municipalidad.
+9. En los términos del artículo 243 de la Ley General de la Administración Pública, señalar fax, correo electrónico o cualquier otra forma tecnológica que permita la seguridad del acto de notificación.
+10. Es indispensable que se encuentre al día en el pago de las obligaciones municipales, el solicitante y el dueño del inmueble.
+11. Los puestos de bebidas con contenido alcohólico deberán ser administrados por el titular de la licencia, en caso de los puestos sean administrados por un tercero, éste deberá solicitar una licencia temporal ante el Concejo Municipal.
+12. En caso de desarrollarse en espacio público, el Concejo Municipal deberá autorizar mediante acuerdo la realización y ubicación del evento.
+En caso de que la solicitud carezca de algunos de los requisitos o se requiera alguna aclaración, la secretaria se lo hará saber al interesado dentro del plazo de 3 días para que el interesado en el plazo de 5 días hábiles lo subsane.

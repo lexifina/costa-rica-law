@@ -1,0 +1,6 @@
+Artículo 30º-Revocación de licencias. Con estricta aplicación de los Principios del Debido Proceso, de conformidad con el Código Municipal y la Ley General de la Administración Pública, la Municipalidad podrá revocar la licencia para comercialización de bebidas con contenido alcohólico, en los siguientes casos:
+a) Muerte o renuncia de su titular, disolución, quiebra o insolvencia judicialmente declaradas.
+b) Falta de explotación comercial por más de seis meses sin causa justificada.
+c) Falta de pago de los derechos trimestrales por la licencia, después de haber sido aplicada la suspensión establecida en el artículo 10 de la ley N° 9047. Para estos efectos, se aplicará lo dispuesto en el artículo 90 bis del Código Municipal.
+d) Cuando los responsables o encargados de los negocios toleren conductas ilegales, violencia dentro de sus establecimientos, o bien, se dediquen a título personal o por interpuesta persona a actividades distintas de aquellas para las cuales solicitaron su licencia para la comercialización de bebidas con contenido alcohólico.
+e) Cuando los licenciatarios incurran en las infracciones establecidas, de conformidad con lo dispuesto en el capítulo IV de la ley N° 9047 o violen disposiciones, prohibiciones y requisitos establecidos en la Ley, el Código Municipal y la Ley de Patentes de la Municipalidad.

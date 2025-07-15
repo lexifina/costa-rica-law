@@ -1,0 +1,1 @@
+Artículo 24º-Expediente administrativo: Para toda solicitud de una licencia para la comercialización de bebidas con contenido alcohólico, deberá generarse un expediente administrativo, donde deberán constar los requisitos señalados en este reglamento y en la ley N° 9047 y todo aquello que respalde la decisión que se tome en relación a la solicitud.

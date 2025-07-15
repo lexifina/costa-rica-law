@@ -1,0 +1,1 @@
+Artículo 39º-Responsable del procedimiento: El alcalde de cada municipalidad designará el órgano respectivo que se encargará de sustanciar el procedimiento administrativo ordinario y recomendar lo pertinente al alcalde, que resolverá en primera instancia.

@@ -1,0 +1,1 @@
+Artículo 22º- Ingresos de menores de edad en clase A. Los menores de edad podrán ingresar a aquellos establecimientos catalogados en este reglamento bajo la clase A que vendieren complementariamente otros productos sin contenido alcohólico, con el único fin de adquirir tales mercancías; realizada la compra, deberán hacer abandono inmediato del local.

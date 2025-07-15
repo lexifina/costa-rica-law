@@ -1,0 +1,1 @@
+Artículo º-20 Presentación de capital accionario: Las personas jurídicas a las cuales se les otorgue la licencia deberán presentar cada dos años, en el mes de octubre, una declaración jurada bajo fe de juramento de su capital accionario a la municipalidad respectiva.

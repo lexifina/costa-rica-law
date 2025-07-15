@@ -1,0 +1,1 @@
+Artículo 12 º-Horarios: Los horarios autorizados para la comercialización de bebidas con contenido alcohólico, son los establecidos en la ley N° 9047, según las categorías dispuestas en el artículo 9, por lo cual serán las que este reglamento autoriza para el Cantón de Puerto Jiménez.

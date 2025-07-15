@@ -1,0 +1,2 @@
+Artículo 16º-Otorgamiento de licencias temporales. Las licencias temporales se concederán, previo acuerdo adoptado por mayoría simple de los votos presentes del Concejo Municipal, por el plazo máximo de un mes, para habilitar el expendió de bebidas con contenido alcohólico los días en que se realicen fiestas cívicas, populares, ferias, turnos y afines.
+Las licencias temporales que hayan sido aprobadas antes de estar autorizado el espectáculo público, entrarán en vigencia hasta tanto cuenten con la aprobación del evento.
