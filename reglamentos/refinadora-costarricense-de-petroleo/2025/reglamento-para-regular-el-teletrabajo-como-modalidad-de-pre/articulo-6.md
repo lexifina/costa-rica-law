@@ -1,0 +1,7 @@
+Artículo 6.- Características de las actividades teletrabajables: Las características de las actividades teletrabajables deberán cumplir con las siguientes características:
+a) Que el puesto sea teletrabajable, es decir, que el puesto sea susceptible a desempeñarse a través de la modalidad de teletrabajo.
+b) Que las características del puesto de trabajo permitan utilizar las tecnologías de la información y comunicación sin afectar el normal desempeño de otros puestos, de los procesos y de los servicios que se brinda.
+c) Que el trabajador reúna el conjunto de aptitudes, conocimientos, destrezas y habilidades, que el patrono ha determinado de previo, que debe poseer una persona trabajadora para poder desempeñar sus labores de manera remota.
+d) Que se cumplan los requerimientos y especificaciones aquí regulados y que se incluyen en los Anexos que forman parte integral de este Reglamento, para que la persona teletrabajadora pueda desempeñarse en la modalidad de teletrabajo, tales como herramientas tecnológicas mínimas, conectividad y todos aquellos otros requerimientos que resulten indispensables para el correcto desempeño de sus labores.
+e) Que pueda realizar el trabajo utilizando medios telemáticos y las video comunicaciones como medio para interactuar con jefaturas, clientes, usuarios, compañeros con inmediatez.
+f) Que las labores estén asociadas a metas, objetivos y fines claros, específicos y medibles, que permitan una adecuada planificación, seguimiento, supervisión y evaluación por resultados, preestablecido por el Titular Subordinado.

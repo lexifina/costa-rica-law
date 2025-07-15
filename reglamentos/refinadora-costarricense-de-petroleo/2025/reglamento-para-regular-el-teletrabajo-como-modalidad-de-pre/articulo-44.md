@@ -1,0 +1,1 @@
+Artículo 44.- Uso de telecentros o sala de videoconferencias: La persona teletrabajadora, previa coordinación con la persona con cargo de Titular Subordinado, podrá hacer uso de los telecentros y salas de videoconferencias disponibles para realizar sus funciones en forma transitoria, acatando las normas de uso que se establezcan.

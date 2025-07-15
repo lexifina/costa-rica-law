@@ -1,0 +1,3 @@
+Artículo 14.- Finalización por mutuo acuerdo: Durante la vigencia de la Adenda al Contrato de trabajo, las partes podrán de común acuerdo darla por terminada.
+Dicho acuerdo deberá constar por escrito y ser suscrito por ambas partes.
+En los casos en que la modalidad de teletrabajo sea una condición acordada desde el inicio de la relación laboral, la persona teletrabajadora no podrá exigir posteriormente realizar su trabajo en las instalaciones físicas de la persona empleadora, a no ser que las partes de común acuerdo modifiquen lo inicialmente pactado. En estos casos, también podrá eliminarse la modalidad de teletrabajo por cambio en la plaza en la que la persona fue contratada originalmente.

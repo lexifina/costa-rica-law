@@ -1,0 +1,2 @@
+Artículo 39.- Deberes y obligaciones de las personas teletrabajadoras: Las personas teletrabajadoras mantendrán los mismos derechos y obligaciones establecidos en la Convención Colectiva, Reglamento Autónomo de Trabajo, el Contrato de Trabajo y demás normativa laboral vigente que sean aplicables a la modalidad de teletrabajo.
+No se reconocerán sobresueldos, pluses, complementos salariales o incentivos económicos incompatibles con el teletrabajo, así como cualquier otro plus salarial que no se devengara antes del otorgamiento de esta modalidad.

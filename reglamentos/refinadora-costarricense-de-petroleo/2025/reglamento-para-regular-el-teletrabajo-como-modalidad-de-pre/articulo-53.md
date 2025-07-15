@@ -1,0 +1,6 @@
+Artículo 53.- Funciones Dirección de Tecnología: La Dirección de Tecnología tendrá las siguientes funciones con relación al teletrabajo:
+a) Brindar a la persona teletrabajadora asistencia técnica oportuna para la resolución de los problemas de infraestructura tecnológica de los equipos de RECOPE.
+b) Brindar soporte técnico a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Se excluye cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software u otros componentes que no sean requeridos para el teletrabajo o para los cuales la empresa no posea licenciamiento o suscripción.
+c) Verificar la existencia de los inventarios de hardware y software propiedad de RECOPE de forma remota. En caso de que se identifique alguna anomalía, se comunicará a la persona teletrabajadora y a la persona con cargo de titular subordinado, para que se tomen las medidas correspondientes.
+d) Instalar y dar mantenimiento oportuno a las herramientas tecnológicas y servicios requeridos para realizar las labores de teletrabajo, cuando sean propiedad de la empresa.
+e) Definir las medidas y herramientas de ciberseguridad que deberán cumplir indefectiblemente las personas teletrabajadoras.

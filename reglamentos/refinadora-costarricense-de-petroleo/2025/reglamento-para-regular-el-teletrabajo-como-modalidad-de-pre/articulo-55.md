@@ -1,0 +1,1 @@
+Artículo 55. - Derogaciones: Deróguese el Reglamento Interno de Teletrabajo, aprobado en el artículo 7 de la Sesión Ordinaria de la Junta Directiva de la Refinadora Costarricense de Petróleo S. A. N° 5232-204, celebrada el miércoles 28 de abril del 2021 y publicado en el diario oficial La Gaceta N° 88 del 10 de mayo de 2021.

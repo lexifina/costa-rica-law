@@ -1,0 +1,2 @@
+Artículo 45.- Información sobre desempeño: La persona teletrabajadora debe brindar información verídica y oportuna en los procesos de investigación, verificación de cumplimiento de requisitos, evaluación del desempeño, control y medición a los que deba someterse.
+En caso de comprobarse un incumplimiento, se procederá según lo establecido en el artículo 10 de este reglamento, para la revocación unilateral de la modalidad de teletrabajo, sin perjuicio de la responsabilidad disciplinaria que pueda producirse.

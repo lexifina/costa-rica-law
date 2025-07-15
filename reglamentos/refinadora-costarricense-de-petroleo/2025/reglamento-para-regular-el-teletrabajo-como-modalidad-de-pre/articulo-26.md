@@ -1,0 +1,1 @@
+Artículo 26.- Acuerdos: Salvo norma especial en contrario, los acuerdos serán adoptados por mayoría absoluta de los integrantes asistentes a la sesión. Los votos disidentes, con su debida fundamentación, deberán constar en el acta respectiva, a solicitud de la persona interesada.

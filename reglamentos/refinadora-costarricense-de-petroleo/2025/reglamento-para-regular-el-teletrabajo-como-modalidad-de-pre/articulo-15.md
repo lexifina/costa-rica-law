@@ -1,0 +1,5 @@
+Capítulo II
+Tecnologías de la información
+Artículo 15.- Del equipo de cómputo: RECOPE dotará a las personas teletrabajadoras del equipo de cómputo y software para la conexión a la red empresarial, así como las herramientas necesarias para la normal ejecución de sus labores, tales como un equipo en buen estado, control de acceso, políticas de seguridad, manejo de inventario y actualizaciones. Asimismo, el equipo contará con software de monitoreo y ciberseguridad para garantizar su integridad, así como el software y herramientas necesarias para poder realizar las actividades de teletrabajo, los cuales deberán especificarse dentro del acuerdo contractual que se celebre.
+Será un imperativo que las personas teletrabajadoras utilicen para la conexión a la red empresarial los mecanismos e instrucciones de seguridad que la Dirección de Tecnología indique, de tal manera que la comunicación sea segura desde el sitio de teletrabajo hasta los sitios donde resida la información o los sistemas empresariales.
+Se prohíbe a las personas trabajadoras realizar teletrabajo con equipos de cómputo y software ajenos a la empresa.

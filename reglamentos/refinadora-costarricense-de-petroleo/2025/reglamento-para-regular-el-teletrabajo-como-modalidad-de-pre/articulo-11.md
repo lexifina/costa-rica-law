@@ -1,0 +1,2 @@
+Artículo 11.- Teletrabajo en puestos interinos: En caso de que se otorgue la modalidad de teletrabajo a una persona que se encuentre ocupando de manera interina una plaza no vacante, el acuerdo contractual estará sujeto al tiempo en que se desempeñe en dicha plaza.
+En caso de que la persona teletrabajadora que se encuentra ocupando una plaza vacante de manera interina, adquiera en propiedad la plaza, se mantendrá vigente el acuerdo contractual de teletrabajo.

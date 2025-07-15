@@ -1,0 +1,1 @@
+Artículo 30.- Sustituciones por enfermedad: En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el (la) presidente(a) y el (la) secretario(a) de la Comisión serán sustituidos por un(a) presidente(a) ad-hoc y un(a) secretario(a) suplente electos entre los integrantes presentes, respectivamente.

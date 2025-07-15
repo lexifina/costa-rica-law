@@ -1,0 +1,1 @@
+Artículo 9.-Definición de actividades teletrabajables: En caso de conveniencia empresarial, los titulares subordinados con la autorización de sus Gerencias de área, podrán definir las actividades teletrabajables que podrán tener carácter temporal o parcial.
