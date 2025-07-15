@@ -1,1 +1,3 @@
-Artículo 59.-Las comisiones deberán sesionar en forma ordinaria dos veces por mes y extraordinaria cuando sea necesario. Se procurará que las sesiones de una no choquen con las otras en las que también participen algunos de sus integrantes. Las sesiones se realizarán en las instalaciones municipales.
+Artículo 59.—Las Comisiones deberán sesionar en forma ordinaria una vez por mes y Extraordinaria cuando sea necesario. Se procurará que las Sesiones de una Comisión no choquen con las sesiones de otras en las que también participen algunos de sus integrantes.
+Las Sesiones se realizarán en las instalaciones Municipales.
+(Así reformado en sesión N° 097 del 15 de julio de 2025)
