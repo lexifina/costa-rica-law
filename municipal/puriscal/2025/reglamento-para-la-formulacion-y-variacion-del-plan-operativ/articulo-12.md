@@ -1,0 +1,2 @@
+Artículo 12.- Elaboración de las variaciones presupuestarias: la elaboración técnica de la documentación será responsabilidad del encargado(a) de Presupuesto y del encargado(a) de Planificación Municipal.
+El documento de variación presupuestaria y su expediente será remitido a la Alcaldía por medio de un oficio emitido por la Dirección Financiera Administrativa firmado en concurso por encargado(a) de Planificación y encargado(a) de Presupuesto, para que la Alcaldía a la vez, si no tiene observación alguna remita al Concejo Municipal para su aprobación correspondiente.

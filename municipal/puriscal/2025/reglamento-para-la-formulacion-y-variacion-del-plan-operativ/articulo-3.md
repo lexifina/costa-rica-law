@@ -1,0 +1,3 @@
+Capítulo II
+Formulación
+Artículo 3.- Formulación del plan operativo anual: Este deberá realizarse bajo los parámetros de las herramientas de planificación municipal (Objetivos de Desarrollo Sostenible- Plan Cantonal de Desarrollo Humano Local - Plan Estratégico Municipal - Plan de Gobierno, Plan Vial Quinquenal de Conservación y Desarrollo, lineamientos, Políticas y cualquier otra de carácter vinculante), serán revisados y autorizados por la Alcaldía Municipal mediante el mecanismo que se defina para dicha labor, cada año Planificación Municipal entregará la documentación necesaria para que cada área prepare su POA, atendiendo las indicaciones que establece la CGR.

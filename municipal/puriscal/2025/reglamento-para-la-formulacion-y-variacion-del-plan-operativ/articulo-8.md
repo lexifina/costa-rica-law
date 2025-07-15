@@ -1,0 +1,1 @@
+Artículo 8.- Vigencia legal de los presupuestos extraordinarios: Todo presupuesto extraordinario tendrá efecto legal en el presupuesto hasta ser aprobado por el Concejo Municipal y la Contraloría General de la República.

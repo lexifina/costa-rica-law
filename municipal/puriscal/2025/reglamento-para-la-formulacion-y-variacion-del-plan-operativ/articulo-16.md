@@ -1,0 +1,1 @@
+Artículo 16.- Sobre las modificaciones presupuestarias: Se regularán según lo indica el art. 4 del Código Municipal, aunado a esto, las mismas serán de aprobación interna (Concejo Municipal) salvo alguna excepción que llegara a establecer la Contraloría General de la República.
