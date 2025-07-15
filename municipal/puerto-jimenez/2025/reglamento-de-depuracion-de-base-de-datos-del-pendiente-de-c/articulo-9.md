@@ -1,0 +1,1 @@
+Artículo 9º-Del mantenimiento de las cuentas contables. Cada vez que se realice el asiento contable de una depuración general o de rutina, los departamentos de Contabilidad y Cobro Administrativo deberán conciliar los saldos de las cuentas por cobrar. La cual deberá hacerse al momento de realizar cada cierre mensual.
