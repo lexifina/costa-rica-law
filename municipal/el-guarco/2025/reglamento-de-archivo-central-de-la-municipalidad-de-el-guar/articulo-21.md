@@ -1,0 +1,2 @@
+Artículo 21. Requisito para préstamo de documentos a ciudadanos
+Para el préstamo de documentos al ciudadano, el interesado en consultar los documentos deberá: llenar una boleta de préstamo de documentos (o si el sistema vigente lo permite, realizarlo por sistema digital de la municipalidad) y presentar la cédula de identidad, carné de estudiante, pasaporte que lo acredite o carné del colegio profesional, en el caso que el interesado directo no se pueda presentar, puede enviar una carta de autorización, con la copia de ambos documentos de identidad (interesado y autorizado).
