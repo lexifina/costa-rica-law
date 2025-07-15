@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DISPOSICIONES FINALES
+Artículo 10. Normas de aplicación supletoria. En todo aquello no previsto en el presente Reglamento, se aplicará supletoriamente el Código Municipal, la Ley General de Administración Pública, Reglamento Autónomo de Organización y Servicios de la Municipalidad de Naranjo, Código de Trabajo; así como la Ley Integral para la Persona Adulta Mayor, Ley N° 7935, la Ley de Igualdad de Oportunidades de las Personas con Discapacidad, Ley N° 7600 y la Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad, Ley N° 9379, así como otras leyes conexas, vigentes y atinentes.
