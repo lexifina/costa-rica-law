@@ -1,0 +1,1 @@
+Artículo 3º-Aprobación interna de las modificaciones presupuestarias. La aprobación de las modificaciones presupuestarias que se den durante el ejercicio presupuestario, corresponderá al Concejo Municipal.
