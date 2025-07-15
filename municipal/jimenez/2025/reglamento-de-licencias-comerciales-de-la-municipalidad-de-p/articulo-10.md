@@ -1,0 +1,1 @@
+Artículo 10°- Plazo para resolver: El plazo máximo para resolver una solicitud de licencia comercial es de treinta días naturales, contados a partir de la respectiva solicitud, siempre que el interesado hubiere presentado la totalidad de requisitos legales y reglamentarios dispuestos al efecto y que no hubiere imposibilidad legal para ello.

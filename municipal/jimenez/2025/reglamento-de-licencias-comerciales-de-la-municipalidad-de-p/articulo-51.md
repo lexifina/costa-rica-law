@@ -1,0 +1,3 @@
+Artículo 51°-Aprobación de patentes por condiciones excepcionales: No se concederán licencias municipales en casas de habitación, salvo las siguientes excepciones:
+1. Que el interesado demuestre que existe una división material del área que se destinará para comercio con respecto a la actividad residencial.
+2. Que el tipo de actividad que se va a desarrollar no implique una atención de clientes en sitio, si no que la actividad económica se desarrolla por medios tecnológicos u otras formas modernas de vender servicios, dándose el origen de la actividad económica en el Cantón de Puerto Jiménez. Lo anterior, siempre que las regulaciones relativas a ordenamiento urbano lo permitan.

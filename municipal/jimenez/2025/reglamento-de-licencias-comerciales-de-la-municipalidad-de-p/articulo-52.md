@@ -1,0 +1,1 @@
+Artículo 52°-Estar al día con los impuestos y obligaciones: Para cualquier trámite regulado en este reglamento es requisito indispensable que el solicitante y el dueño registral del inmueble o cualquier persona física o jurídica que deba Intervenir en el trámite, se encuentre al día con los impuestos y obligaciones municipales.

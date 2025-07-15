@@ -1,0 +1,3 @@
+TRANSITORIOS
+TRANSITORIO I:
+Para el cumplimiento de lo señalado en el artículo 58, previo a contar con los sistemas y contratos que permitan la emisión del certificado de patente municipal ya sea físico o digital, la administración municipal está autorizada a emitir el certificado en papel blanco tamaño carta e incluir los aspectos que señala el artículo 58 que tenga a disposición en ese momento y una vez que la administración cuente con el sistema para emitir el documento conforme ha sido establecido en el artículo mencionado, deberá emitir el documento a los patentados que hayan sido autorizados hasta el momento de manera inmediata.

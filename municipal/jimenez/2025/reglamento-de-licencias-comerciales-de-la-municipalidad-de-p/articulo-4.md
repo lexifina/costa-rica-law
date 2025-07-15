@@ -1,0 +1,1 @@
+Artículo 4°-Dominio de las patentes municipales: Las patentes o licencias municipales son un activo intangible propiedad de la Municipalidad, a excepción de las patentes de licores, las cuales se rigen por una ley especial.

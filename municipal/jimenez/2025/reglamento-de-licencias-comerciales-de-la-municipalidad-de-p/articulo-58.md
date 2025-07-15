@@ -1,0 +1,1 @@
+Artículo 58°- Característica de la resolución que resuelve los recursos: La resolución que resuelva los recursos señalados en los artículos 54, 55 y el de revocatoria indicado en el artículo 56 de este reglamento, deberá contener los mismos requisitos formales que se describen en el artículo 53 de este Reglamento.

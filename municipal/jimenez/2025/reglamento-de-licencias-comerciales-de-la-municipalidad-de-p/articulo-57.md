@@ -1,0 +1,1 @@
+Artículo 57°-Plazo para resolver los recursos: Recibido el recurso detallado en los artículos 54, 55 y el de revocatoria indicado en el artículo 56 de este reglamento, deberán resolverse por el responsable en el plazo de 8 días hábiles.

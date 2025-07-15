@@ -1,0 +1,2 @@
+Artículo 23°-Inspecciones: El Departamento de Patentes, a través de los (as) inspectores (as) verificarán el correcto uso de los tiquetes o boletos sellados, mediante inspecciones físicas en los locales autorizados.
+Cuando se compruebe que en un local no se está haciendo uso correcto de los tiquetes, el inspector o la inspectora procederá a levantar el acta y la Municipalidad iniciará el procedimiento que corresponde a fin de determinar si procede cancelar la licencia respectiva.

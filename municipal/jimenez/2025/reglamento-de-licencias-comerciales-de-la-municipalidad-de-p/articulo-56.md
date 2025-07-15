@@ -1,0 +1,1 @@
+Artículo 56°-Recurso a lo resuelto por el alcalde en apelación: Lo resuelto por el Alcalde en apelación, tendrá recurso de revocatoria ante el mismo alcalde y recurso de apelación ante el Tribunal Contencioso Administrativo y Civil de Hacienda, en los términos del artículo 171 del Código Municipal, con lo que se dará por agotada la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 8 °-Uso de poderes: Todo trámite regulado en este reglamento se puede hacer por interpuesta persona, siempre que cuenta con los poderes necesarios para realizar la representación y cumpla con los requisitos señalados para el trámite que pretenda realizar.

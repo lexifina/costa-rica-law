@@ -1,0 +1,1 @@
+Artículo 50°- Denegación de la patente: La licencia municipal para ejercer cualquier actividad, sólo podrá ser denegada cuando esta sea contraria a la ley, el orden, la moral o las buenas costumbres, el interés público y/o cuando él o la solicitante no haya cumplido los requisitos legales y reglamentarios.

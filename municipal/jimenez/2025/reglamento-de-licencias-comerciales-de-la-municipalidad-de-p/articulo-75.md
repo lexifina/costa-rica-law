@@ -1,0 +1,1 @@
+Artículo 75°-Vigencia de este reglamento: Este Reglamento deberá ser revisado una vez que se apruebe la Ley de Impuestos Municipales del Cantón de Puerto Jiménez, para adecuarlo a las disposiciones que se aprueben en la ley. En ese sentido, en lo que este reglamento sea omiso o contrario se aplica la ley N° 7505 y el Código Municipal en lo que corresponda.

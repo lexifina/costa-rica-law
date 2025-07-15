@@ -1,0 +1,1 @@
+Artículo 49°-Límites al uso de la patente: La actividad que el patentado desarrollará será únicamente la que la Municipalidad de Puerto Jiménez le ha autorizado mediante la licencia otorgada y solamente deberá ser utilizada en el lugar autorizado al efecto.
