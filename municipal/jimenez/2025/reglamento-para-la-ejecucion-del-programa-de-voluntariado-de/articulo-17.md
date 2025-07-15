@@ -1,0 +1,2 @@
+Artículo 17: Procedimiento para la extensión del acuerdo de voluntariado: El alcalde podrá resolver unilateralmente la extinción del voluntariado justificando las razones que lo llevan a tomar esa decisión. Emitirá un informe a la Comisión de Asuntos Sociales sobre las razones que justifican su decisión, para conocimiento de la comisión.
+Esta resolución no tiene ningún tipo de recurso, por no ser este tipo de convenios generador de derechos para los voluntarios que realizan las labores.

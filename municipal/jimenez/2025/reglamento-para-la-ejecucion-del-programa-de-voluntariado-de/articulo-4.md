@@ -1,0 +1,1 @@
+Artículo 4: Carácter del voluntariado: Consiste en un conjunto de actividades de intereses municipal, desarrolladas por personas físicas o jurídicas, siempre que dichas acciones no se realicen en virtud de una relación laboral, funcionarial, mercantil o cualquier otra actividad retribuida.
