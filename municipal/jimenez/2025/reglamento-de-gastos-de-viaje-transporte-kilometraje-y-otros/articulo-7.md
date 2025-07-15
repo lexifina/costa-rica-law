@@ -1,0 +1,1 @@
+Artículo 7º.- Asignaciones máximas: Las sumas establecidas para gastos a que se refiere este Reglamento son asignaciones máximas; en consecuencia, la Municipalidad de Puerto Jiménez puede aplicar tarifas menores en casos regulados en forma previa, formal y general por la propia Administración.

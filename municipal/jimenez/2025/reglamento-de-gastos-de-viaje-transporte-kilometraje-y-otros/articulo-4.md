@@ -1,0 +1,1 @@
+Artículo 4° - Concepto: Por viático se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que la Municipalidad de Puerto Jiménez le reconoce a los trabajadores de esta Municipalidad, así como a los Regidores, Síndicos, propietarios y/o suplentes que forman parte del Concejo Municipal de la Municipalidad de Puerto Jiménez

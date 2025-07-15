@@ -1,0 +1,1 @@
+Artículo 16 º- De las tarifas: Las sumas para cobrar por los diferentes conceptos de desayuno, almuerzo, cena y hospedaje, quedarán sujetas a lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos de la Contraloría General de la República, con sus respectivas actualizaciones o variaciones.

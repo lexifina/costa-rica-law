@@ -1,0 +1,1 @@
+Artículo 23 °- Falta de presentación de liquidación: No se autorizará un nuevo adelanto al Regidor o Síndico, que no hubiera presentado en el plazo establecido la liquidación del viaje anterior o que no hubiere aportado la información requerida conforme al párrafo segundo del artículo 10 de este Reglamento.

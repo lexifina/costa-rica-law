@@ -1,0 +1,3 @@
+CAPÍTULO IV
+PAGO DE VIÁTICOS A REGIDORES Y SÍNDICOS MUNICIPALES
+Artículo 21º- Viáticos para regidores y síndicos: Cuando algún regidor o síndico municipal sea nombrado por acuerdo municipal, para atender asuntos propios de su investidura y ello implique un desplazamiento fuera del Cantón de Puerto Jiménez, el Concejo Municipal autorizará el pago de viáticos con sustento en lo que se establece en el presente Reglamento, así como lo dispuesto por la Contraloría General de la República al respecto. Estos viáticos se tramitarán por adelantado y la secretaria del Concejo hará la solicitud y transcribirá el acuerdo correspondiente a efecto de que el Señor Alcalde proceda como corresponde.

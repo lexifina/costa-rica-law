@@ -1,0 +1,1 @@
+Artículo 24°- Presentación extemporánea: La solicitud del pago de viáticos referidos en este Reglamento que se presenten después de los siete días hábiles, se considerará extemporánea, no se le dará trámite alguno, con las consecuencias pecuniarias que conlleva.

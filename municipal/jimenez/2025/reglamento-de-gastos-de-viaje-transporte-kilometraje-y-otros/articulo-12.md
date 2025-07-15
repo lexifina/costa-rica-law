@@ -1,0 +1,1 @@
+Artículo 12º- Documentos que acompañan la liquidación: Junto con el formulario de liquidación, el funcionario debe presentar las facturas timbradas de hospedaje u otros gastos debidamente justificados.
