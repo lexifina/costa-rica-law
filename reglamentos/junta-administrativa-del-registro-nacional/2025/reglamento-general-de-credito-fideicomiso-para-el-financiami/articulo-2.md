@@ -1,0 +1,2 @@
+Artículo 2.- Alcance. Este Reglamento General de Crédito será de acatamiento obligatorio para las personas colaboradoras que participan en la atención del proceso de crédito del Fideicomiso, tanto del Banco de Costa Rica en su condición de Fiduciario, como de la Junta Administrativa del Registro Nacional en su condición de Fideicomitente.
+Los miembros del Comité no podrán tener beneficios adicionales ni restricciones distintas al esto de las personas funcionarias de la Institución.

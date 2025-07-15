@@ -1,0 +1,1 @@
+Artículo 23.- De la entrada en vigor. Este Reglamento comenzará a regir a partir de la fecha en que se tome el Acuerdo Firme por parte de los miembros de la Junta Administrativa del Registro Nacional, en calidad de Fideicomitente, en el cual se emita su aprobación.
