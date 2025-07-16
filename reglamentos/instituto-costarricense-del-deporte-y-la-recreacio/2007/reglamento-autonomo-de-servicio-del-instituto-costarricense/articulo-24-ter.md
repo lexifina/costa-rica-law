@@ -1,0 +1,2 @@
+Artículo 24 ter. Las Jefaturas de Departamento y/o Unidad deberán establecer a lo interno de sus respectivos equipos de trabajo los puestos que pueden optar por un horario escalonado, según la naturaleza de las funciones estipuladas en el Manual de Cargos vigentes, siendo una obligación directa de estos/as las labores de coordinación y/o control que se consideren necesarias.
+(Así adicionado en el Alcance Digital N° 88 a La Gaceta N° 131 del 16 de julio del 2025)
