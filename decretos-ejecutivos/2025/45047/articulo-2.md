@@ -1,0 +1,1 @@
+ARTÍCULO 2: Deróguese el artículo 10 del Decreto Ejecutivo N° 37783-MP, de fecha 31 de mayo de 2013 y sus reformas, Creación del Fondo de Fomento de Actividades Productivas y de Organización de las Mujeres (FOMUJERES), publicado en el Diario Oficial La Gaceta N° 138, del 18 de julio del 2013.
