@@ -14,3 +14,4 @@ Plan General de Manejo del Refugio Nacional de Vida Silvestre Mixto Gandoca Manz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-02-28 | la propia norma |
+| 2 | 2025-07-16 | SINALEVI (sin norma nombrada) |
