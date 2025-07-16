@@ -1,0 +1,2 @@
+Artículo 21. Exámenes y controles.
+Todo pensionado por discapacidad, en conformidad con lo establecido en el presente Reglamento, ya sea en calidad de afiliado al Fondo o como derechohabiente, en caso de fallecimiento del bombero, deberá someterse a los exámenes y controles que determine la Gerencia General para confirmar su condición. Los costos asociados a estos procedimientos serán cubiertos conforme a lo estipulado en el artículo "Operación" del presente Reglamento, con el fin de realizar una administración eficiente del Fondo.
