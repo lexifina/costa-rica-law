@@ -1,0 +1,1 @@
+Artículo 5.- Fuentes supletorias. Para interpretar o integrar el presente reglamento, se tendrán como fuentes supletorias las siguientes leyes: No. 10.235, No. 7476, No. 7586, No. 8765, No. 8589, No. 6227y No. 7794.
