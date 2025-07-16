@@ -1,0 +1,1 @@
+Artículo 8.-De la ausencia temporal del presidente: En caso de ausencia temporal del presidente de FONASCAFE, corresponde la representación de éste al vocal 1. Bastará la actuación del vocal 1, para tener por demostrada la ausencia del presidente. En caso de ausencia o impedimento de ambos, el mismo Consejo designará de su seno un Presidente Ad-Hoc para que presida la sesión.

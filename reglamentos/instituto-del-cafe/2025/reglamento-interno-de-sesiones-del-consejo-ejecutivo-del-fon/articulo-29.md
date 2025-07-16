@@ -1,0 +1,1 @@
+Artículo 29.-De la suplencia: La suplencia debe consignarse al inicio de cada sesión, una vez que un miembro suplente haya sido consignado como propietario, continuará actuando como tal por el resto de la sesión. Los miembros propietarios que iniciaron la sesión no podrán ser sustituidos ni delegar sus responsabilidades a su respectivo suplente.

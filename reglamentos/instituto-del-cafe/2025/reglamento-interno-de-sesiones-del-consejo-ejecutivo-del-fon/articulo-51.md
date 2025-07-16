@@ -1,0 +1,1 @@
+Artículo 51.- De la pérdida del derecho de devengar dieta: Los Directivos que se presenten de manera presencial o virtual después de transcurridos quince minutos contados a partir de la hora señalada de inicio de la sesión ordinaria o extraordinaria, podrán participar de la sesión con voz, pero sin voto y perderán el derecho a devengar la dieta.

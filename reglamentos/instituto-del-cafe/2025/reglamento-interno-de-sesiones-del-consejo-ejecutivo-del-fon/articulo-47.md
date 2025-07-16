@@ -1,0 +1,1 @@
+Artículo 47.- De la no exoneración de responsabilidad: Cualquier miembro de Consejo Ejecutivo podrá abstenerse de votar la adopción de un acuerdo, empero, este hecho no lo liberará de la responsabilidad que genera el hecho adoptado.

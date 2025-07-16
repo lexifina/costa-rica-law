@@ -1,0 +1,1 @@
+Artículo 42.- Recurso de revocatoria: Contra los acuerdos tomados en firme por el Consejo Ejecutivo cabrá recurso de revocatoria y se seguirá lo dictado en el capítulo V de la Ley General de Administración Pública, Ley N° 6227.

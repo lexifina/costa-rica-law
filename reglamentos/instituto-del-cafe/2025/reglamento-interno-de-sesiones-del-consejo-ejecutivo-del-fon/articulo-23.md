@@ -1,0 +1,1 @@
+Artículo 23.-De la presentación de mociones de orden: En cualquier momento del debate, los miembros del Consejo Ejecutivo podrán presentar mociones de orden en relación con el asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Consejo Ejecutivo.

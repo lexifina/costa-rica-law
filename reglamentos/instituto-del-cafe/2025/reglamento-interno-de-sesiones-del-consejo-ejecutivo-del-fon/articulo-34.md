@@ -1,0 +1,1 @@
+Artículo 34.- De la aprobación de las actas: Las actas de las sesiones de Consejo Ejecutivo deberán ser aprobadas en la sesión ordinaria siguiente, salvo que circunstancias especiales lo impidan, en cuyo caso la aprobación del acta se pospondrá para la sesión ordinaria siguiente.

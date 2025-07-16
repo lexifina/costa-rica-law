@@ -1,0 +1,1 @@
+Artículo 50.-Del percibimiento de dieta y el retiro anticipado: Si un Directivo se retira antes de finalizar la sesión, tendrá derecho a percibir la dieta, siempre y cuando haya estado presente dos terceras partes de la sesión y el Presidente lo hubiese autorizado a retirarse.

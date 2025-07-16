@@ -1,0 +1,1 @@
+Artículo 43.- Del carácter público y nominal de las votaciones: Como regla general, las votaciones serán públicas y nominales, excepto si la mayoría de los miembros resuelve que sean secretas. Si hubiere empate en la votación, quien preside en ese momento decidirá con su doble voto o voto de calidad, salvo en los casos en que la ley exija mayoría calificada.

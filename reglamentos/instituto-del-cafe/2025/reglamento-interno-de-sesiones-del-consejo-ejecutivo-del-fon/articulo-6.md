@@ -1,0 +1,1 @@
+Artículo 6.- Periodo de nombramiento: Todos los miembros del Consejo Ejecutivo serán nombrados por un período de cuatro años, contado a partir de la promulgación de la Ley N° 9630; tendrán derecho a voz y voto.

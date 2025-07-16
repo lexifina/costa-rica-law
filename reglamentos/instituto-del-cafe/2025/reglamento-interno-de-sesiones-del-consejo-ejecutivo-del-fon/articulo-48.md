@@ -1,0 +1,3 @@
+CAPITULO IV
+DE LAS DIETAS
+Artículo 48.- Del pago de dieta: Las dietas a los miembros del Consejo Ejecutivo de FONASCAFE se pagarán conforme a lo estipulado en la Ley N° 9630, artículo 5°, referenciado el pago a la Ley N° 3065 del 20/11/1962 y sus reformas. Todo conforme las Actas y el Registro de Asistencia a Sesiones del Consejo Ejecutivo.

@@ -1,0 +1,4 @@
+Artículo 20.- De la asistencia permanente e invitados a las sesiones del Consejo:
+De manera permanente, deberán asistir con voz, pero sin voto, quien ostente el cargo de Gerente del FONASCAFE, la Jefatura de la Unidad de Asuntos Jurídicos del ICAFE y de Titular de la Auditoría Interna de FONASCAFE.
+En caso de imposibilidad de asistencia de alguno de los participantes indicados anteriormente, será obligación de éste informar al presidente del Consejo y enviar al funcionario que le proceda en la línea sucesoria.
+A las sesiones del Consejo Ejecutivo podrán asistir por invitación todas aquellas personas que se consideren pertinentes y necesarias para el asunto que se vaya a tratar, para lo cual, se requerirá acordar conceder a los invitados el derecho de participar en las deliberaciones con voz, pero sin voto.

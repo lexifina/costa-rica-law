@@ -1,0 +1,1 @@
+Artículo 17.-De la sede de la sesión: Las sesiones ordinarias y extraordinarias se efectuarán preferentemente en las oficinas del Instituto de Café de Costa Rica. Podrán celebrarse sesiones en diferentes locaciones, previo acuerdo del Consejo Ejecutivo y, siempre que la convocatoria así lo específique.

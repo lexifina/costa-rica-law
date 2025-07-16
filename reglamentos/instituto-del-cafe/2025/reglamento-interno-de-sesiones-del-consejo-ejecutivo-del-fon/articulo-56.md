@@ -1,0 +1,1 @@
+Artículo 56.- De la presentación de resultados: Las comisiones de trabajo elaborarán informes del trabajo ejecutado y será presentado en sesión de Consejo Ejecutivo para conocimiento y aprobación de acuerdos de los miembros Directivos.

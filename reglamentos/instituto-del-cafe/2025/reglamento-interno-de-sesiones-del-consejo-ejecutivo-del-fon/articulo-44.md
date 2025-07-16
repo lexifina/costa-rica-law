@@ -1,0 +1,1 @@
+Artículo 44.-De la fundamentación del voto: Cuando algún miembro del Consejo Ejecutivo desee que consten en forma textual e íntegramente las fundamentaciones y/o consideraciones de su votación, deberá indicarlas al momento de la emisión de su voto.

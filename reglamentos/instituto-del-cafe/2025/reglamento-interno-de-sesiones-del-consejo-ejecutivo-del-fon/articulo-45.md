@@ -1,0 +1,6 @@
+Artículo 45.- De la abstención del voto: Deberán abstenerse de votar y por tanto ausentarse del recinto durante el análisis y votación, los miembros del Consejo Ejecutivo que se encuentren dentro de las siguientes causales.
+A. Aquellos que durante el año anterior a su nombramiento hayan tenido relaciones laborales, servicios de asesorías, consultorías, o que hubieren ostentado alguna representación legal de las personas físicas o jurídicas involucradas en el asunto que se está tratando.
+B. Aquellos que se encuentren ligados entre sí por parentesco de consanguinidad o afinidad hasta tercer grado inclusive, con las personas físicas, o los integrantes de las Juntas Directivas de las personas jurídicas involucradas en el asunto que se está tratando.
+C. Aquellos que se encuentren ligados a la sociedad mercantil privada o asociaciones cooperativas, o formen parte del directorio de la sociedad que se encuentre involucrada en el tema tratado.
+D. Aquellos que integren o hayan integrado en el año anterior a su nombramiento cualquier estructura organizativa o gerencial de las sociedades mercantiles, cualquier tipo de cámaras, cooperativas, asociaciones, u organización social que esté involucrada en el tema tratado.
+Los acuerdos tomados en contravención a lo dispuesto por este artículo estarán viciados de nulidad absoluta y se tendrán por inexistentes.
