@@ -1,0 +1,1 @@
+Artículo 15º-De la periodicidad. Se confeccionarán los reintegros del fondo fijo de caja chica por parte del gestor administrativo cuando se haya utilizado más del 30% del fondo fijo total de cada una de las subcuentas, pero menos del 75%, con el propósito de darle rotación óptima a los recursos y mantener la liquidez de los fondos.

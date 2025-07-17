@@ -1,0 +1,1 @@
+Artículo 7°-Del trámite previo a la solicitud de caja chica. El gestor administrativo, o en ausencia de este el tesorero, verificará previamente la existencia de contenido presupuestario suficiente para soportar el gasto. El monto del gasto deberá ser estimado en forma diligente y responsable.

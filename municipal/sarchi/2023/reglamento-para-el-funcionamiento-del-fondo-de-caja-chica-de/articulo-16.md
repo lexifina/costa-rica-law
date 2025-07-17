@@ -1,0 +1,4 @@
+CAPÍTULO V
+Custodia del fondo de caja chica
+Artículo 16º-Custodia del fondo de caja chica. La custodia del fondo de caja chica será responsabilidad del gestor administrativo o quien lo sustituya temporalmente, quien deberá actuar de conformidad con lo que disponga este Reglamento, la Ley General de Contratación Pública y su reglamento, y demás normativa vigente y aplicable en la materia. El gestor administrativo y la Junta Directiva serán los responsables de velar por el cumplimiento de los procedimientos establecidos en este reglamento para la utilización del fondo de caja chica.
+En ausencia del gestor administrativo del CCDRS por permiso temporal, vacaciones, enfermedad u otra causa, el fondo de caja chica se traspasará transitoriamente a la persona de la Junta que se encuentre en el puesto de Tesorería, previo arqueo por parte del Presidente de la Junta.

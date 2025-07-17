@@ -1,0 +1,5 @@
+CAPÍTULO II
+Funcionamiento fondo de caja chica
+Artículo 4º-Establecimiento del fondo de la caja chica: Se establece un fondo total de la caja chica para el CCDRS por el monto de ¢500 000.00 (quinientos mil colones). Este fondo podrá ser ajustado por la Junta Directiva en función de las necesidades del CCDRS, mediante acuerdo razonado y fundamentado; tal ajuste deberá ser aprobado por el Concejo Municipal bajo el trámite respectivo de modificación.
+Asimismo, mediante acuerdo razonado y fundamentado, el CCDRS podrá autorizar el aumento del fondo de caja chica a efectos de aplicar la excepción prevista en el artículo 3, inciso g) de la Ley General de Contratación Pública N.º 9986 en concordancia con el artículo 12 del Reglamento a la Ley General de Contratación Pública, Decreto Ejecutivo N.° 43808-H.
+En todo caso, el fondo total de la caja chica no podrá exceder el 10% (diez por ciento) del monto fijado para la licitación reducida correspondiente al régimen ordinario regulado en el artículo 36 de la Ley General de Contratación Pública.

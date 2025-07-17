@@ -1,0 +1,1 @@
+Artículo 12º-Conformación del fondo de caja chica. La caja chica mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: suma asignada en efectivo, formularios completos entrega de dinero y liquidación con sus respectivos comprobantes de pago.
