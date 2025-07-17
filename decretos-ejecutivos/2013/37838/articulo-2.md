@@ -1,1 +1,0 @@
-Artículo 2º—De la sede de las sesiones. La sede de las sesiones de la Junta Directiva serán las instalaciones del Parque Recreativo Nacional Playas de Manuel Antonio, salvo que por motivos especiales, deban celebrarse en otras instalaciones del Área de Conservación Pacífico Central (ACOPAC) del Sistema Nacional de Áreas de Conservación (SINAC).
