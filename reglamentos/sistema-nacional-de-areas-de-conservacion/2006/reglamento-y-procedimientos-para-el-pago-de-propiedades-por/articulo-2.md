@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Estas disposiciones se aplicarán en primera instancia dentro del Parque Nacional Manuel Antonio, las Subregiones Aguirre, Parrita y los Santos del Área de Conservación Pacífico Central del Sistema Nacional de Áreas de Conservación.
