@@ -1,1 +1,0 @@
-Artículo 15.- Invitados. El Comité podrá dar audiencia a funcionarios de la Institución que muestren interés en tratar asuntos relacionados con la distribución, mantenimiento, adquisición o manejo del material de naturaleza informático.

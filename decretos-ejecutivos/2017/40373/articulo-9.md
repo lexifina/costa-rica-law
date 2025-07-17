@@ -1,1 +1,0 @@
-Artículo 9.-De la Presidencia. Al Presidente del Comité, le corresponderá ejercer las facultades previstas en el artículo 49 de la Ley General de la Administración Pública. En ausencia del Presidente, el Comité escogerá de su seno, un presidente "ad-hoc".
