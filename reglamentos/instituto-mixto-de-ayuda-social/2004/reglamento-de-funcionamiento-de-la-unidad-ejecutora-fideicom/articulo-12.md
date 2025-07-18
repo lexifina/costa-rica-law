@@ -1,1 +1,0 @@
-Artículo 12.—Modificaciones al Reglamento. Este Reglamento podrá ser modificado en todo o en parte por el Comité Director del Fideicomiso y sus reformas serán vigentes una vez comunicadas a la Fiduciaria y publicadas.
