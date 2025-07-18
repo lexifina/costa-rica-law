@@ -1,0 +1,2 @@
+BANCO DE COSTA RICA
+El Fideicomiso Banco de Costa Rica -IMAS-BANACIO 073-2002, en uso de las facultades conferidas en el contrato de fideicomiso y demás normativa aplicable, deroga en su totalidad el "Reglamento de Funcionamiento de la Unidad Ejecutora del Fideicomiso BICSA - IMAS - BANACIO/73-2002", conforme lo dispone el acuerdo en firme N° 080-2025, adoptado en la sesión ordinaria N° 009-2025 del Comité Director del Fideicomiso.
