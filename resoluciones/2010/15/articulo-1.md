@@ -15,3 +15,7 @@ Estrato | Clase Genérica | Clase Ancha o Institucional | Nivel Salarial | Títu
 03 | 03 | 116 | 376 | Coordinador (a) de Artes Gráficas (G. de E) - Imprenta Nacional
 03 | 03 | 117 | 278 | Encargado (a) de Procesos Técnicos 1 (G. de E.) - Imprenta Nacional
 03 | 03 | 118 | 311 | Encargado (a) de Procesos Técnicos 2 (G. de E.) - Imprenta Nacional")
+(Mediante resolución N° DG-RES-240-2025 del 18 de julio de 2025, se acordó actualizar la estructura de codificación para el sistema clasificado de puestos, creada con la Resolución N° DG-285-2010 del 18 de agosto del 2010 y sus reformas, la clase de puesto Agente Marino contará con el siguiente código:
+ESTRATO | CLASE GENÉRICA | CLASE DE PUESTO | TÍTULO DE LA CLASE
+03 | 02 | 384 | Agente Marino
+")
