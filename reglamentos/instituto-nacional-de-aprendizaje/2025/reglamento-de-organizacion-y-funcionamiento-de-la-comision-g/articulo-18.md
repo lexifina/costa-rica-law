@@ -1,0 +1,1 @@
+Artículo 18. Colaboración de técnicos y especialistas. Para obtener mayores elementos de juicio en sus resoluciones y recomendaciones, la comisión queda autorizada para solicitar el criterio de técnicos y especialistas en distintas materias, así como pedir el asesoramiento que sea necesario.

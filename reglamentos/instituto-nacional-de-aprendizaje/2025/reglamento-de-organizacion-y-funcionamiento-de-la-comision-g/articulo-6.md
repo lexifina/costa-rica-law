@@ -1,0 +1,1 @@
+Artículo 6. Funcionamiento. En todo lo relacionado con su funcionamiento, la Comisión se regirá por las disposiciones de la Ley General de la Administración Pública, en cuanto a la regulación de los órganos colegiados. La Comisión funcionará por medio de sesiones ordinarias y extraordinarias y grupos de trabajo.

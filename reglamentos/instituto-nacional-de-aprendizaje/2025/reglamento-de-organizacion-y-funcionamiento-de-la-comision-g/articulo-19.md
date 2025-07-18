@@ -1,0 +1,1 @@
+Artículo 19. Informes. Los grupos de trabajo presentarán sus informes con ocho días hábiles de antelación, al vencimiento del plazo otorgado de conformidad con el artículo 16 de presente reglamento, vía correo electrónico, para que puedan ser valorados en el seno de la comisión.

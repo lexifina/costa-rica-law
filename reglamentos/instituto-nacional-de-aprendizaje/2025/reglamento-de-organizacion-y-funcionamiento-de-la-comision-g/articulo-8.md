@@ -1,0 +1,1 @@
+Artículo 8. Presidencia. La Comisión sesionará bajo la dirección de la persona designada como Gerente General en su condición de presidente de la comisión, y en ausencia, será presidida por la Subgerencia designada por la Gerencia General.

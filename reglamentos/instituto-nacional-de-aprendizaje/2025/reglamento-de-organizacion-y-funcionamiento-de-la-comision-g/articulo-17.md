@@ -1,0 +1,1 @@
+Artículo 17. Coordinación. Los grupos de trabajo serán coordinados por la persona funcionaria que designe la presidencia de la comisión y serán los responsables ante la comisión de la rendición de informes.

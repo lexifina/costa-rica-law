@@ -1,0 +1,2 @@
+Artículo 12. Asistencia, ausencias y tardías a las sesiones. La persona titular que se excuse de la sesión por una causa justa tendrá la obligación de avisar a la persona presidente con copia a la persona secretaria con al menos veinticuatro (24) horas de antelación y mediante cualquier medio oficializado por la institución, caso contrario no podrá ser sustituida.
+La persona designada como sustituto deberá contar con una jerarquía mínima de jefatura de Núcleo o de Unidad dentro de la Gestión correspondiente.

@@ -1,0 +1,17 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA COMISIÓN GERENCIAL DE INFORMÁTICA
+Considerando
+1°-Que, las tecnologías de la información abarcan el desarrollo de los sistemas de información computarizados, la adquisición de infraestructura tecnológica, la implementación de software, así como; los servicios de telecomunicaciones y seguridad de la información dentro de los cuales se cuenta con una alta inversión de recursos humanos, materiales, financieros y tecnológicos, que se debe hacer en forma ordenada para un mejor aprovechamiento y sana administración de los fondos públicos.
+2°-Que, el Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (MICITT), como ente rector en materia de ciencia, tecnología, telecomunicaciones y gobernanza digital emitió las "Normas Técnicas para la Gestión y Control de las Tecnologías de Información", en el cual se establece la obligatoriedad de contar con un órgano asesor de alto nivel para la gobernanza de las tecnologías de la información de las entidades públicas y su inobservancia generará las responsabilidades que correspondan de conformidad con el marco jurídico.
+3°-Que, mediante lo dispuesto en las Normas Técnicas para la Gestión y Control de las Tecnologías de Información del MICITT, establece la Comisión Gerencial de Informática (CGI), con la funcionalidad de ser un órgano rector, que establezca prioridades estratégicas en TIC y que actué como asesor en la habilitación de objetivos institucionales, en el desarrollo de los sistemas de información computarizados, la adquisición de infraestructura tecnológica, la implementación de software y en los servicios de telecomunicaciones y seguridad de la información en conjunto.
+4°-Que, en acatamiento a lo normado en el Ley 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, en su numeral 12: "Las instituciones señaladas en el artículo 1 de la presente ley están obligadas a realizar una evaluación costo-beneficio antes de emitir cualquier nueva regulación que deba cumplir el administrado ante la Administración y, en todo momento, velarán por que tales regulaciones cumplan, en todos sus alcances, con la presente ley y los principios de la mejora regulatoria que establezca el reglamento a esta ley. Los encargados de velar por el cumplimiento de esta obligación serán el Ministerio de Economía, Industria y Comercio (MEIC) por medio de la Dirección de Mejora Regulatoria."
+POR TANTO,
+La Junta Directiva del Instituto Nacional de Aprendizaje, mediante acuerdo firme número JD-AC-183-2025, tomado en la Sesión Ordinaria 17-2025 del 30 de junio de 2025, acordó aprobar el presente "Reglamento Interno de Organización y Funcionamiento de La Comisión de Informática del Instituto Nacional De Aprendizaje".
+REGLAMENTO INTERNO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA COMISIÓN DE INFORMÁTICA
+DEL INSTITUTO NACIONAL DE APRENDIZAJE.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1. Ámbito de aplicación. El presente Reglamento regula las actividades de la Comisión Gerencial de Informática del INA, en su función de órgano rector, limitando su alcance a establecer las prioridades estratégicas en TIC, asesorando a la Presidencia Ejecutiva y Junta Directiva en temas de Tecnologías de información y comunicación (TIC), así como; la aprobación y supervisión al Plan Estratégico de Tecnologías de la Información y Comunicaciones (PETIC).
+La CGI actuará sometida al bloque de legalidad aplicable, así como a las mejores rácticas internacionales relacionadas con las TIC.

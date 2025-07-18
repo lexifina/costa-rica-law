@@ -1,0 +1,2 @@
+Artículo 7. Sesiones. Se sesionará al menos una vez cada dos meses en el lugar y hora que se indique, previa convocatoria. La sesión se podrá realizar de forma presencial, virtual o mixta, utilizando la plataforma institucional que permita grabar (audio y video) y transcribirla.
+Las sesiones podrán ser ordinarias o extraordinarias convocadas con una antelación mínima de 24 horas salvo casos de urgencia, ambas se convocarán por la persona que ostente el puesto de presidencia de la comisión.
