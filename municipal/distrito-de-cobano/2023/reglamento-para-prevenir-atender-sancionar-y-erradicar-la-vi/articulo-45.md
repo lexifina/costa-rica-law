@@ -1,0 +1,1 @@
+Artículo 45.- Procedimientos aplicables. Para la investigación y medidas cautelares por hechos queconfiguren violencia contra las mujeres en la política, en caso de personas electas popularmente, seobservarán las reglas contenidas en las disposiciones de los capítulos I, Il y IV de este reglamento enlo que fueren compatibles.
