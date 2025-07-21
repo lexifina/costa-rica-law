@@ -15,3 +15,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil (D
 | --- | --- | --- |
 | 1 | 2023-10-18 | la propia norma |
 | 2 | 2025-05-09 | Resolución 148 (2025-05-09) |
+| 3 | 2025-07-21 | Resolución 241 (2025-07-21) |
