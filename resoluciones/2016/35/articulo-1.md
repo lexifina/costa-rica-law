@@ -645,7 +645,6 @@ ii. Comisión de adquirencia: tasa establecida como un porcentaje cobrado por lo
 iii. Tarifa del gestor: tasa establecida como un porcentaje cobrado por el BCCR como integrador y proveedor de la plataforma del sistema de pago electrónico.
 iv. Porcentaje de uso del pago electrónico: porcentaje de los ingresos tarifarios percibidos por el operador mediante sistema de pago electrónico.
 Las comisiones y la tarifa del gestor aplican sobre el volumen monetario de las transacciones efectivamente cobradas mediante el sistema de pago electrónico en un determinado periodo de tiempo, no solo de un operador en particular, sino del conjunto agregado de operadores conectados a la plataforma de pagos de alcance nacional, mientras que el porcentaje de uso del sistema de pago electrónico aplica a un operador en particular, de ahí que el factor de costo de comisión efectiva del sistema de pago electrónico se formula de la siguiente manera:
-[imagen]
 Donde:
 FCEr = Factor de costo de comisión efectiva del sistema de pago de electrónico en la ruta "r". Este rubro estará expresado en porcentaje.
 CPPE = Tasa porcentual de la comisión de pasarela de pagos en el sistema de pago electrónico. Este rubro estará expresado en porcentaje. El valor de la tasa porcentual de la comisión de pasarela de pagos asociado al sistema de pago electrónico se determinará según lo indicado en la sección 4.11.5.a y se usará el valor disponible al día de la audiencia pública de la aplicación de esta metodología.
@@ -662,7 +661,6 @@ CTECr = Costos totales mensuales del servicio excluyendo las comisiones asociada
 FCEr = Factor de costo de comisión de efectiva del sistema de pago de electrónico en la ruta "r". Este rubro estará expresado en porcentaje.
 r = Ruta de transporte remunerado de personas.
 Los costos totales mensuales del servicio excluyendo las comisiones asociadas al sistema de pago electrónico, se obtienen de la siguiente ecuación:
-[imagen]
 Donde:
 CTECr = Costos totales mensuales del servicio excluyendo las comisiones asociadas al sistema de pago electrónico en la ruta "r". Este rubro que estará expresado en colones.
 CDAFr = Costo mensual de depreciación de los activos fijos en la ruta "r". Este rubro estará expresado en colones y se determina según lo indicado en la sección 4.4.1.
@@ -983,7 +981,7 @@ PQ= Porcentaje promedio del capital invertido que se financia con deuda.
 RS = Costo del financiamiento (tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para "Servicios").
 TQ= Porcentaje promedio del capital invertido que se financia con recursos propios.
 RU = Costo de los recursos propios.
-(Nota de Sinalevi: Mediante resolución N° RE-0038-IT-2024 del 1° de julio de 2024, se acordó fijar en 11,81% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
+(Nota de Sinalevi: Mediante resolución N° RE-0043-IT-2025 del 21 de julio de 2025, se acordó fijar en 10,59% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
 La definición de cada una de estas variables y la forma cómo se realiza el cálculo se describe seguidamente, para lo cual se considerarán los operadores del transporte público remunerado de personas, modalidad autobús incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros y que hayan presentado los estados financieros a la Aresep, para el último periodo fiscal correspondiente, a más tardar el quince de diciembre, según lo acordado en la resolución 131-RIT-2015 o el plazo que se determine mediante resolución, o cualquier otro acto administrativo. Los datos que se utilizarán para los cálculos de las variables serán los que provengan de la contabilidad regulatoria o en su defecto, de la información de los estados financieros.
 a. Porcentaje promedio del capital invertido que se financia con deuda (D/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Deuda entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
@@ -1122,7 +1120,6 @@ El plazo establecido para la actualización de los valores de los factores, perm
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 (*) c. Rentabilidad del capital invertido en las instalaciones, maquinaria, equipo y mobiliario. La rentabilidad mensual del capital invertido las instalaciones, maquinaria, equipo y mobiliario (RMEIr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según edad obtenida del año de fabricación y tipo de vehículo utilizado en la ruta, multiplicado por la tasa de rentabilidad correspondiente.
 La rentabilidad mensual del capital invertido en las instalaciones, maquinaria, equipo y mobiliario se estima según la siguiente ecuación:
-[imagen]
 Donde:
 RMEIr = Rentabilidad mensual del capital invertido en instalaciones, maquinaria, equipo y mobiliario en la ruta "r". Este rubro estará expresado en colones.
 crmei = Coeficiente de rentabilidad anual en instalaciones, maquinaria, equipo y mobiliario. Los valores de estos coeficientes serán los que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 34.
@@ -1157,7 +1154,6 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r".
 Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
 La rentabilidad mensual del capital invertido en terrenos de las instalaciones y edificaciones (RTIEr) se calcula multiplicando el área de los terrenos de las instalaciones y edificaciones por su costo unitario y por la tasa de rentabilidad para reglas tipo 2.
 La cantidad de autobuses autorizados por el CTP a cada operador para ruta regular puede ser diferente a la cantidad de autobuses autorizados para la ruta que está siendo objeto de la aplicación de esta metodología. Para determinar la categoría del operador, se considerará la cantidad total de autobuses que el prestador tenga autorizados según la información más reciente que se disponga en la Aresep al momento de la admisibilidad de la solicitud tarifaria o la apertura del expediente tarifario del estudio de oficio.
-[imagen]
 Donde:
 RTIEr = Rentabilidad mensual al capital invertido en terrenos de las instalaciones y edificaciones en la ruta "r". Este rubro estará expresado en colones.
 ATIEr = Área máxima de terrenos de las instalaciones y edificaciones en metros cuadrados en la ruta "r". El área corresponderá a la aplicación de las ecuaciones contenidas en el Cuadro 36 según la categoría del operador según la flota autorizada por el CTP. En los casos que se acredite la utilización de un terreno para la prestación del servicio en la ruta "r", cuya área sea inferior a la máxima calculada según la categoría del operador, se utilizará el valor acreditado en metros cuadrados.
@@ -1205,12 +1201,10 @@ El factor de rentabilidad anual en el caso del capital invertido en el equipo de
 Donde:
 frev = Factor de rentabilidad anual del capital invertido en el equipo de validación requerido para el sistema de pago electrónico.
 fdaev = Factor de depreciación anual acumulada de la inversión en el equipo de validación requerido para el sistema de pago electrónico. Se considera como criterio tarifario que el equipo de validación requerido para el sistema de pago electrónico se encuentra a la mitad de su vida útil indicada en el Cuadro 6, dicho criterio es neutro para el cálculo de la depreciación acumulada al considerar una depreciación lineal para el activo. El factor de depreciación acumulada al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUEV = Vida útil del equipo de validación requerido para el sistema de pago electrónico. Este valor se detalla en el Cuadro 6.
 fdev = Factor de depreciación anual en el equipo de validación requerido para el sistema de pago electrónico. Este factor se detalla en el Cuadro 6.
 De esta forma, la rentabilidad mensual total para el equipo validación requerido para el sistema de pago electrónico se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
 REVr = Rentabilidad mensual del capital invertido en el equipo de validación requerido para el sistema de pago electrónico en la ruta "r". Este rubro estará expresado en colones.
 frev = Factor de rentabilidad anual del capital invertido en el equipo de validación requerido para el sistema de pago electrónico.
@@ -1280,10 +1274,9 @@ Los criterios anteriores podrán ser ampliados o detallados por la Administraci�
 (Nota de Sinalevi: Mediante resolución N°RE-0058-JD-2020 del 12 de mayo de 2020, se acordó suspender temporalmente, hasta el 28 de febrero de 2021, la disposición de la remisión a la Aresep, de la información proveniente de los sistemas automatizados de conteo de pasajeros, por parte de los prestadores de servicio público remunerado de personas modalidad autobús; establecida en la sección 4.7.1, inciso a) "Mecanismo para la determinación del volumen mensual de pasajeros, punto 1: "Estudio técnico de validación de los datos provenientes del Sistema Automatizado de Conteo de Pasajeros (SCP)" de la "Metodología para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús", resolución RJD-035-2016 y sus reformas, ante la situación de emergencia nacional provocada por la pandemia mundial COVID-19. Lo anterior, supeditado a la valoración técnica que realice la Autoridad Reguladora de los Servicios Públicos.)
 (*)(Nota de Sinalevi: Mediante resolución N° RE-0024-IT-2024 del 26 de abril del 2024 se establece lo siguiente: "Acoger el informe IN-0114-IT-2024 del 26 de abril de 2024 y actualizar el volumen mensual de pasajeros aproximado según la categoría de ramal / ruta y el esquema operativo autorizado, tal y como se indica a continuación:
 Percentil 75 de la cantidad de pasajeros por carrera para cada categoría de clasificación
-[imagen]
 II. Establecer los factores de estacionalidad mensual en el volumen de pasajeros por categoría ramal / ruta según el siguiente detalle:
 Factores de estacionalidad mensual por categoría de ramal / ruta
-[imagen] ")
+")
 b. Criterios de decisión para la determinación del volumen mensual de pasajeros
 Debido a que puede existir información simultánea procedente de las fuentes indicadas en los puntos 1 al 4 de la sección a) de este apartado, se establecen las siguientes reglas para la determinación del volumen mensual de pasajeros necesario para la aplicación de esta metodología tarifaria ordinaria.
 i.En caso que el operador esté enviando los registros del SCP según las características señaladas en la sección 4.11.2 Precio del sistema automatizado de conteo de pasajeros, durante el último año, o que haya presentado la información del último año correspondiente al SCP o SIR, se podrá realizar una validación estadística de los registros del SCP, y en segundo lugar, las estadísticas reportadas mediante el SIR.
@@ -2115,7 +2108,7 @@ cki | Coeficiente de ajuste por reconocimiento de kilometraje
 |
 |
 |
-(Nota de Sinalevi; Mediante resolución N° RE RE-0016-IT-2025 del 11 de marzo de 2025, “Determinación de los valores promedio del autobús nuevo modelo 2024 para el servicio de transporte público remunerado, modalidad autobús”, se acordó fijar los valores promedio del autobús nuevo para cada uno de los tipos de autobús con reglas de cálculo tipo 2 con año de fabricación 2024, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús, según lo establecido en esta norma, de la siguiente manera:
+(Nota de Sinalevi; Mediante resolución N° RE RE-0016-IT-2025 del 11 de marzo de 2025, "Determinación de los valores promedio del autobús nuevo modelo 2024 para el servicio de transporte público remunerado, modalidad autobús", se acordó fijar los valores promedio del autobús nuevo para cada uno de los tipos de autobús con reglas de cálculo tipo 2 con año de fabricación 2024, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús, según lo establecido en esta norma, de la siguiente manera:
 Tipo de autobús | Valor promedio
 Interurbano Largo (TIL) | ₡179 610 798
 Urbano No Plano/Montano (TUP) | ₡77 020 488
