@@ -13,3 +13,4 @@ Reglamento de Protección de Datos del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2024-09-02 | la propia norma |
+| 2 | 2025-07-21 | Circular 141 (2025-07-21) |
