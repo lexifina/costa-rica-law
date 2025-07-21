@@ -1,1 +1,2 @@
-Artículo 2.- El Comité Cantonal de Deportes, como órgano adscrito a la Municipalidad de Santa Bárbara de Heredia, deberá acatar las políticas emanadas por el Concejo Municipal.
+Artículo 2º-El Comité Cantonal de Deportes es un órgano adscrito a la Municipalidad de Santa Bárbara de Heredia, el cual se encontrará jerárquicamente dependiente del Concejo Municipal y deberá acatar las políticas que este emane.
+(Así reformado en sesión N° 64 del 21 de julio de 2025)
