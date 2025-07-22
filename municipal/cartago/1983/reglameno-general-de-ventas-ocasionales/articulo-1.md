@@ -1,6 +1,0 @@
-MUNICIPALIDAD DE CARTAGO
-REGLAMENTO GENERAL DE VENTAS OCASIONALES
-La Municipalidad de Cartago, de conformidad con las atribuciones que le confieren los artículos 4°, 6° Y 7°, inciso a) del Código Municipal, dicta el presente reglamento para las ventas varias u ocasionales con la finalidad de adecuarlas y organizarles un funcionamiento, los que se establezcan en un futuro, y que sean administrados por la Municipalidad de Cartago.
-CAPITULO I
-Disposiciones generales
-Articulo 1°-Para los efectos de este reglamento se denominarán ventas ocasionales, los lugares que la Municipalidad destina para el uso de "pisos de mercado" y al efecto dicte el Concejo en cuanto a organización, tarifas y otros, estos puestos serán únicamente para el expendio de artículos y productos netamente agrícolas, tales como toda clase de legumbres, hojas y frutas; en ellos no podrán venderse granos secos de ninguna naturaleza ya que este tipo de agricultores ya está definido y su expendio es dentro del mercado. Tampoco se podrán vender alimentos preparados y animales, ya sean sacrificados o vivos, ni ningún artículo que no sean los señalados aquí, o los que en un futuro autorice el Concejo mediante solicitud debidamente comprobada que hagan los usuarios de los puestos.

@@ -1,1 +1,0 @@
-Artículo 3°-La Municipalidad coordinará y resolverá todos los asuntos pertinentes tales como solicitudes de puestos, sanciones y cancelaciones de derechos por causa justificada, a través de la Administración del mercado.
