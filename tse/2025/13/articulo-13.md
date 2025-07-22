@@ -1,0 +1,4 @@
+Capítulo IV
+PADRÓN REGISTRO
+Artículo 13.- Generalidades: El padrón registro es el documento electoral donde se enlistan las personas electoras inscritas en cada JRV y en el cual deberá dejarse constancia de quienes se presentaron a ejercer ese derecho. En este documento se debe consignar, además, la información del acta de apertura de la votación, las incidencias, el control de asistencia de las personas agentes electorales autorizadas para ingresar y permanecer en la JRV, el acta del cierre y resultado de la votación, el mensaje de transmisión de datos, la certificación de votos y la lista de partidos políticos y coaliciones con las siglas que los identifican.
+Las personas agentes electorales (como fiscales e integrantes de JRV) deberán consignar en las actas de apertura y de cierre, además de su nombre, número de cédula y firma, las siglas del partido político que representan.

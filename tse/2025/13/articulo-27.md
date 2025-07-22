@@ -1,0 +1,5 @@
+Artículo 27.- Cantidad de personas electoras por junta receptora de votos: La cantidad de personas electoras por JRV se establecerá de la siguiente manera:
+a) Considerando los porcentajes de participación de los últimos procesos electorales, se incluirán hasta 600 personas electoras por junta en aquellas zonas donde el porcentaje de participación es mayor al 55%; en aquellas donde ese porcentaje haya sido menor o igual, se permitirán hasta 650 personas electoras por junta.
+b) En los hogares de larga estancia, centros de atención institucional, así como en el Centro de Atención para Personas con Enfermedades Mentales en Conflicto con la Ley (CAPEMCOL), se instalará una única JRV con la cantidad total de personas electoras empadronadas por cada distrito electoral ubicado en estos centros.
+c) Las juntas receptoras de votos que se instalen en el extranjero estarán conformadas por un máximo de 1.200 electores cada una.
+En los casos señalados en los incisos a) y c) se podrá aumentar en 50 personas la cantidad máxima de electores por junta receptora de votos.

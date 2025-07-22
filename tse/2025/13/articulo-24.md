@@ -1,0 +1,1 @@
+Artículo 24.- Traslados de centros de votación: El viernes 16 de enero de 2026 es el último día en que podrán realizarse traslados de centros de votación, salvo fuerza mayor, caso fortuito o los casos de zonas indígenas o lugares de difícil acceso, que por sus condiciones ameritan un tratamiento diferente.
