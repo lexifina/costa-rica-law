@@ -1,1 +1,0 @@
-Artículo 15.-Las personas que disfrutan de un puesto vario o derecho de piso, deberán de estar bien presentadas y contar necesariamente con un carné de identificación elaborado al efecto por la Municipalidad, cuyo costo será a cargo del usuario. Los usuarios de derechos de piso tratarán al público con la consideración y respeto que dicho público se merece.

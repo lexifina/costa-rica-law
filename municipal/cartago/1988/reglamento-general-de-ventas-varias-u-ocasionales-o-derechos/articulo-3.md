@@ -1,1 +1,0 @@
-Artículo 3°-La Municipalidad coordinará y resolverá todos los asuntos pertinentes tales como sanciones y cancelaciones de derechos por causa justificada, a través del ejecutivo municipal, salvo que el Concejo encomiende la labor a otra dependencia municipal.
