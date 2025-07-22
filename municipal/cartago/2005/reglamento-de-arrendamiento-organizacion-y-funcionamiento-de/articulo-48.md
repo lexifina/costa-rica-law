@@ -1,1 +1,0 @@
-Artículo 48.—Nueva adjudicación. En caso de rescisión del contrato por cualquiera de las causas contempladas en el artículo anterior se procederá mediante remate para una nueva adjudicación conforme con la Ley de Contratación Administrativa y su reglamento.

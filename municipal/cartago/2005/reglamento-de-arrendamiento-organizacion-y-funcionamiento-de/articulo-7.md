@@ -1,1 +1,0 @@
-Artículo 7º—Modificación de horarios. En casos especiales y por resolución fundada del alcalde, podrá autorizarse modificaciones temporales al horario establecido para el funcionamiento general del mismo, salvo caso fortuito o fuerza mayor en que bastará una exposición razonada de la administración del mercado con copia al alcalde.
