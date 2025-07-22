@@ -1,0 +1,2 @@
+Artículo 36. Plazos de resolución. De conformidad con el artículo 40 inciso b) del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos Decreto Ejecutivo N°37045, toda solicitud deberá resolverse en el término máximo de quince días naturales contado a partir del día siguiente hábil de su presentación.
+No se computará como parte de dicho plazo, las subsanaciones que sean debidamente notificadas al gestionante por correcciones u omisiones de su solicitud.

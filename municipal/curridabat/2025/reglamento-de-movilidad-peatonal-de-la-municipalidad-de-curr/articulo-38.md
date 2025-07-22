@@ -1,0 +1,1 @@
+Artículo 38. Denegatoria de la autorización. Cualquier solicitud que no se ajuste a lo establecido en la Ley de Movilidad Peatonal N° 9976 y a las condiciones descritas en el presente reglamento, no será autorizada. Para ello se emitirá el oficio con la justificación técnica que sustente el rechazo, lo que será notificado por el medio señalado para dicho fin.

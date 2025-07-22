@@ -1,0 +1,1 @@
+Artículo 30. Obstáculos. Se debe mantener la franja caminable libre de obstáculos sobre la superficie y de manera aérea: a menos de 2,50 m de altura; a más de 0,15 m de un plano lateral y sobre la superficie de tránsito peatonal.

@@ -1,0 +1,7 @@
+Artículo 27. Bajantes y Canoas
+a) La instalación de canoas y bajantes le corresponde a los propietarios o poseedores por cualquier título de los bienes inmuebles que colinden con la vía pública.
+b) Toda edificación deberá instalar canoas y bajantes y colocar tubos para evacuar las aguas pluviales directamente al caño o cuneta, mediante entubado bajo el nivel de acera. Las canoas deberán colocarse a una altura no inferior a 2,50 metros y los bajantes sobre la fachada de las edificaciones, cuyas paredes externas colinden con vía pública, no podrán salir de la pared más de 10 centímetros.
+c) La tubería que conecta el bajante con el cordón y caño deberá tener un recubrimiento de al menos 5cm en concreto.
+d) Para los aleros la altura mínima será de 2,20 metros. El alero terminado con los accesorios incluidos no sobrepasará el borde final de la acera. Todo alero deberá contener su respectiva canoa y bajante y estos elementos deben estar bien sujetos o fijados. Los aleros aplican solo con el permiso correspondiente.
+e) La salida de las aguas de lluvia debe canalizarse al sistema pluvial existente o su proyección. Por ningún motivo se permite la descarga directa a las aceras, ya que se considera un riesgo para los peatones.
+f) Para realizar la salida de las aguas los interesados podrán modificar el sistema de drenaje (cordón de caño, cuneta, espaldón) cuando éste exista, así como las aceras siempre y cuando no se vea afectado su correcto funcionamiento y geometría.

@@ -1,0 +1,1 @@
+Artículo 37. Sobre la aprobación. De ajustarse la solicitud a lo regulado en la Ley de Movilidad Peatonal N° 9976 y a las condiciones descritas en el presente reglamento, se emitirá mediante oficio la autorización respectiva, la que será notificada por el medio señalado para dicho fin.

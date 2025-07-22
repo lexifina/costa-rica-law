@@ -1,0 +1,2 @@
+Artículo 10. El costo efectivo de estas obras nuevas se trasladará al propietario o poseedor por cualquier título de bienes inmuebles.
+El propietario o poseedor por cualquier título de bien inmueble, cuyo acceso se vea comprometido por la construcción de aceras frente a su propiedad, deberá realizar las modificaciones necesarias a lo interno de su propiedad por su cuenta, para habilitar el acceso a la vía pública desde su bien inmueble, respetando la normativa vigente, lo anterior conforme al artículo 15 de la Ley de Movilidad Peatonal N°9976.

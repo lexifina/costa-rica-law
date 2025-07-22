@@ -1,0 +1,1 @@
+Artículo 9. La Municipalidad se encuentra facultada para realizar las labores de construcción e obra nueva de acera de forma directa, con el fin de garantizar la accesibilidad y la seguridad de todas las personas, posterior a la debida notificación al propietario, esto conforme al artículo 83 bis del Código Municipal.
