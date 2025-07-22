@@ -1,0 +1,1 @@
+Artículo 4.- Comunicar al Ministerio de Planificación Nacional y Política Económica, lo resuelto en la presente resolución, para coordinar la determinación del Salario Global de la clase Agente Marino.
