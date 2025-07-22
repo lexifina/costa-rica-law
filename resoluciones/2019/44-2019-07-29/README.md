@@ -14,3 +14,4 @@ Uso del formulario D125 declaración Rentas de capital inmobiliario, D128 declar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-07-30 | la propia norma |
+| 2 | 2025-07-22 | Resolución 35 (2025-07-22) |
