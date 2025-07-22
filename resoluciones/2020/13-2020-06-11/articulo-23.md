@@ -1,7 +1,0 @@
-Artículo 23.—Devolución de percepciones por parte de la Administración Tributaria. Conforme lo establece el párrafo décimo del artículo 30 de la Ley del Impuesto sobre el Valor Agregado, el tarjetahabiente podrá solicitar la devolución del impuesto ante la Administración Tributaria, cuando haya realizado compras con tarjetas de crédito, débito o cualquier otro similar a nivel internacional y se encuentre ante alguna de las siguientes situaciones:
-a) Adquiera servicios por medio de internet o cualquier otra plataforma digital y sobre las que el uso, el disfrute o el consumo se realice totalmente en otra jurisdicción.
-b) Utilice los medios electrónicos de pago para la transferencia o el envío de dinero a personas o entidades ubicadas fuera del territorio nacional, cuyo resultado sea la manutención o el consumo final en una jurisdicción distinta a Costa Rica.
-c) Adquiera servicios a los que se refieren los artículos 8° y 9° de la Ley del Impuesto sobre el Valor Agregado.
-d) Adquiere bienes tangibles por medio de un proveedor o intermediario de servicios digitales transfronterizo sometidos a control aduanero.
-Para tales efectos el tarjetahabiente deberá atenerse a lo dispuesto en el procedimiento de devolución establecido en los artículos 221 y 222 del Reglamento Procedimiento Tributario y la Resolución DGT-R-028-2018 del siete de junio de dos mil dieciocho, por medio del formulario D-402.
-(Así reformado por el artículo 1° de la resolución DGT-27-2020 del 15 de setiembre del 2020)

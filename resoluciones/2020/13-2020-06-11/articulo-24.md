@@ -1,1 +1,0 @@
-Artículo 24.- No obligatoriedad de emitir comprobantes electrónicos autorizados para los emisores de tarjetas de débito y crédito. Los emisores de tarjetas de débito y crédito no estarán obligados a extender comprobantes electrónicos autorizados por la Administración Tributaria por la percepción del impuesto efectuado al tarjetahabiente.
