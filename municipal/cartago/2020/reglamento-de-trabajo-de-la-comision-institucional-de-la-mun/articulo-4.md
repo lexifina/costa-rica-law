@@ -1,0 +1,16 @@
+CAPÍTULO II
+DE LA COMISIÓN NICSP INSTITUCIONAL
+Artículo 4 -De las funciones y atribuciones. La Comisión NICSP tendrá como funciones y atribuciones:
+1. Velar por la implementación y cumplimiento de las NICSP mediante las políticas, procedimientos, controles y registros requeridos por la Contabilidad Nacional del Ministerio de Hacienda, en los diferentes procedimientos y programas financiero - contable de la Municipalidad en la elaboración de los estados financieros institucionales, así como la rendición de cuentas.
+2. Velar por el cumplimiento y aplicación de la ley 9635 y los decretos relacionados con la adopción de las nuevas versiones de las NICSP, a fin de cumplir con las implementaciones solicitadas por la Contabilidad Nacional del Ministerio de Hacienda.
+3. Realizar un F.O.D.A. institucional que considere todos los impactos con respecto a la aplicación de los estándares de las NICSP, las Políticas Generales Contables y el cumplimiento de los demás requerimientos solicitados por parte de la Contabilidad Nacional; este se deberá revisar y actualizar anualmente, por medio de un informe a la Alcaldía.
+4. Analizar y actualizar la Matriz de Autoevaluación de NICSP, con el fin de detectar y cumplir con el cierre de las brechas, que dificultan la aplicación exitosa de dichas normas a nivel institucional, de manera trimestral.
+5. Analizar y dar seguimiento a los planes de acción con el fin de mitigar las brechas, que permitan generar información financiera para toma de decisiones y cumplir con los plazos acorde con lo dispuesto por Contabilidad Nacional, de manera trimestral.
+6. Dar seguimiento a la Estrategia de Adopción e Implementación de NICSP considerando los elementos de control como la coordinación, comunicación, ejecución y seguimiento; por medio de un informe anual sobre lo encontrado en dicho seguimiento.
+7. Incluir dentro de la planificación formal de la institución, el proceso de implementación de las NICSP, con el fin de establecer los recursos técnicos, presupuestarios y financieros necesarios y que faciliten cumplir con las NICSP y con ello emitir estados financieros con un nivel de calidad contable internacional que permitan tomar las mejores decisiones a nivel gerencial.
+8. Velar porque la implementación de las NICSP en la Municipalidad se efectúe según los lineamientos emitidos por el ente rector (Contabilidad Nacional).
+9. Participar activamente en los procesos de capacitación que establezca la Contabilidad Nacional.
+10. Capacitar internamente a los funcionarios de la institución, tanto sobre las disposiciones en NICSP emanadas por la Contabilidad Nacional.
+11. Llevar el control de acuerdos, con el fin de que los mismos se cumplan en tiempo y forma.
+12. Emitir una certificación a la Contabilidad Nacional del funcionamiento de la comisión, y los avances logrados de los planes de acción en forma trimestral para la adopción e implementación de las NICSP e incorporarlos en la revelación del Estado de Notas Contables dentro de los Estados Financieros trimestrales.
+13. Otras labores que la Alcaldía y el Concejo Municipal designe relacionadas con la implementación y cumplimiento de las NICSP.

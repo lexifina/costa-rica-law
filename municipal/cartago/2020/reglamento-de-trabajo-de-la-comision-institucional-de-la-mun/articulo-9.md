@@ -1,0 +1,1 @@
+Artículo 9 - De las sesiones. La Comisión NICSP sesionará la agenda que disponga la Coordinación de la Comisión, de forma virtual o las sesiones serán virtuales únicamente cuando ello se justifique y conforme con las disposiciones contenidas en el artículo 37 bis del Código Municipal, 52 y 53 de la Ley General de la Administración Pública."

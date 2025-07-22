@@ -1,0 +1,1 @@
+Artículo 13- De la designación de equipos de trabajo. La Comisión NICSP como órgano colegiado, designará los equipos de trabajo que sean necesarios para realizar las actividades de análisis y estudio, brindar la asesoría y el apoyo necesario para coadyuvar con la toma de decisiones. Estos equipos de trabajo serán coordinados por la persona que así designe la Comisión.
