@@ -1,1 +1,0 @@
-Artículo 26.—Asesoría. Es obligación de Asesoría y Gestión Jurídica brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera; obligación que es extensiva a los demás órganos de la entidad.

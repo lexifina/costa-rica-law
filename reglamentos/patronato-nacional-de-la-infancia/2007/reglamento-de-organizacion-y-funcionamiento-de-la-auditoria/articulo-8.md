@@ -1,1 +1,0 @@
-Artículo 8º—Manifestación de salvaguarda. Es obligación de los funcionarios de la Auditoría Interna poner por escrito en conocimiento del Auditor Interno los detalles del impedimento, cuando su independencia de criterio y objetividad se vean comprometidas de hecho o en apariencia. Asimismo, es obligación de éste, actuar de igual forma, ante el jerarca de darse esa situación.
