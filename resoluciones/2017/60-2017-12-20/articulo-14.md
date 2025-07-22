@@ -1,1 +1,0 @@
-Artículo 14. Derogatorias. La presente resolución deroga las siguientes resoluciones: DGT-R-067- 2015, del 22 de octubre de 2015, publicada en La Gaceta N° 213 del 3 de noviembre del2015, DGTR- 042 del 26 de setiembre de 2014, publicado en La Gaceta N° 187 del 30 de setiembre de 2014”

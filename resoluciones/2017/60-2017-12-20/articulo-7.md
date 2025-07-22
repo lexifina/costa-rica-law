@@ -1,1 +1,0 @@
-Artículo 7. Trámite presencial en las oficinas tributarias o habilitadas al efecto, o presentación del formulario físico (Derogado por el artículo 5° de la resolución N° DGT-R-043 del 7 de setiembre de 2018, “Uso obligatorio del portal de administración tributaria virtud (ATV) para los trámites del registro único tributario”)
