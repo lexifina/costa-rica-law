@@ -1,1 +1,0 @@
-Artículo 2°.- Derogatoria: Se deroga el numeral 3° del artículo 14 de la resolución N° DGT-R-033-2015 de las ocho horas del veintidós de setiembre de dos mil quince, publicada en el Diario Oficial La Gaceta N° 191, del 01 de octubre del 2015, titulada “Condiciones generales que regulan el uso de la página web denominada “Administración Tributaria Virtual (ATV)”.
