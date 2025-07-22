@@ -1,4 +1,1 @@
-Artículo 3°- Obligados al uso del modelo electrónico D-181.
-Los obligados tributarios que deben presentar este modelo de declaración, son las entidades financieras que procesan los pagos de tarjetas de crédito o débito y deben efectuar una retención del dos por ciento (2%) del monto que paguen, acrediten o en cualquier otra forma, pongan a disposición de los personas físicas o jurídicas, por las transacciones realizadas, independientemente si estos se encuentran inscritos o no ante la Administración Tributaria, conforme al artículo 1° la resolución Nº DGT-R-036-2014 del 18 de agosto de 2014.
-El plazo de presentación de la declaración deberá realizarse al día siguiente a aquel en que se efectúe la retención.
-La información anterior debe suministrarse según se detalla en el Anexo Nº 1 de esta resolución.
+Artículo 3°- Obligados al uso del modelo electrónico D-181. (Derogado por el artículo 16 inciso 2) de la resolución N° Nº MH-DGT-R-0038-2025 del 22 de julio del 2025, "Uso de los formularios de declaración de Retenciones por Operaciones Tarjetas Crédito y Débito - IVA y Retenciones por Operaciones Tarjetas Crédito y Débito - ISU")
