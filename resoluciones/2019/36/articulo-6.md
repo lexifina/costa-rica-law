@@ -1,1 +1,0 @@
-Artículo 6º—Derogatorias. Deróguense las resoluciones N° DGT-R-021-2011 y Nº DGT-32-2001. No obstante, para los periodos correspondientes a 06/2019 y anteriores deberá aplicarse lo establecido en dichas resoluciones cuando corresponda.
