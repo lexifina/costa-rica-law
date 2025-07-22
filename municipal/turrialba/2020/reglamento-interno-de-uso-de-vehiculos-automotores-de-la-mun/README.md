@@ -14,3 +14,4 @@ Reglamento interno de uso de vehículos automotores de la Municipalidad de Turri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2020-06-26 | la propia norma |
+| 2 | 2025-07-22 | Reglamento municipal 65 (2025-07-22) |
