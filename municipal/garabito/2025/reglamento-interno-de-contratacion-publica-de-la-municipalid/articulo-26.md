@@ -1,0 +1,1 @@
+Artículo 26. Plazos Máximos para gestionar el inicio del procedimiento. La fecha límite para que Los Procesos o Subprocesos Municipales gestionen el inicio de un procedimiento con cargo al presupuesto ordinario serán las fechas que por medio de directriz formulará el alcalde.

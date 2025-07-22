@@ -1,0 +1,1 @@
+Artículo 15. Plan de Adquisiciones. Los programas de adquisiciones deberán ser publicitados en el mes de enero de cada año, sin perjuicio que sean ajustados por decisiones fundamentadas, conforme a las necesidades de satisfacción del interés público.

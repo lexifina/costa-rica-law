@@ -1,0 +1,1 @@
+Artículo 6. Objetivo General. Facilitar la gestión institucional mediante efectivos procesos de adquisición de bienes y servicios, almacenamiento y control de bienes y activos, requeridos por los diferentes procesos o subprocesos de la Municipalidad.

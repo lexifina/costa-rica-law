@@ -1,0 +1,1 @@
+Artículo 29. Decisión Final. Será tomada por el alcalde municipal, y podrá ser delegada, así como la firma del pedido u orden de compra y formalización contractual, de acuerdo a lo que establece el artículo 317 del RLGCP.

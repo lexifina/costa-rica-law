@@ -1,0 +1,4 @@
+Artículo 43. Forma de Pago. Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes, etapas de proyecto o avance de obra, a entera satisfacción de la Municipalidad de Garabito, resultando nulo cualquier otra estipulación en contrario.
+En el caso de contratos por servicios continuos, el pago se realizará por mes, trimestre o anualidad vencido según se haya adjudicado, previo visto bueno del funcionario encargado de cada contrato.
+En las contrataciones de obra pública se podrán establecer pagos o anticipos durante la ejecución del contrato con el objeto de cubrir parte de los costos directos de los renglones de trabajo.
+Dicho pago por avance de obra en ningún caso podrá ser superior al 50% del monto contratado. Las condiciones para dichos pagos deberán obligatoriamente ser establecidas en el pliego de condiciones de la licitación.

@@ -1,0 +1,1 @@
+Artículo 2: Objetivo. El presente Reglamento tiene por objetivos: Fijar las competencias de las dependencias internas de esta Municipalidad que en forma permanente u ocasional participan en los procesos de adquisiciones de bienes o servicios en la Ley de General de Contratación Pública y su Reglamento.

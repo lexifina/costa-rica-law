@@ -1,0 +1,1 @@
+Artículo 13. Del Subproceso de Gestión de Pagos. Corresponde al Subproceso de Gestión de pagos del Proceso de Servicios Financieros, realizar los pagos respectivos a los proveedores de bienes y servicios una vez que el Subproceso de Adquisición de bienes y Servicios, haya informado sobre el recibido a satisfacción de éstos; además deberá registrar el pago en el SICOP.

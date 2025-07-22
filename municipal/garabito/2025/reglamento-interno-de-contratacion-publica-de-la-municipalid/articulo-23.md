@@ -1,0 +1,2 @@
+Artículo 23. Elaboración del Pliego de Condiciones. El pliego de condiciones de cada contratación será elaborado por el Subproceso de Adquisición de Bienes y Servicios, con base en los términos de referencia aprobados con la decisión inicial.
+El Subproceso de Adquisición de Bienes y Servicios podrá solicitar la colaboración y asesoría de instancias técnicas, legales o administrativas, que tengan conocimiento especializado o que tendrán participación en la ejecución, supervisión, o verificación de la contratación.

@@ -1,0 +1,2 @@
+Artículo 39. Derecho de Verificación, supervisión y fiscalización. El funcionario a quien se ha encargado el Contrato específico tiene el derecho de verificar, supervisar, fiscalizar y coordinar todo lo necesario para la correcta ejecución contractual.
+El Contratista está en la obligación de facilitar las herramientas, espacio y tiempo necesario para que el funcionario ejerza sus labores, todo lo anterior dentro de límites de razonabilidad y proporcionalidad.

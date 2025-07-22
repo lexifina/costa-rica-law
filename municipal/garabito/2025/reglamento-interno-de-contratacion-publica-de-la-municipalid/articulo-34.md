@@ -1,0 +1,1 @@
+Artículo 34. Decisión de Contratar Directamente. Corresponderá al alcalde la determinación de los supuestos de prescindencia de los procedimientos ordinarios de contratación, y adoptar la decisión sobre el particular bajo su responsabilidad.

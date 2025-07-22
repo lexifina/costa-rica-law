@@ -1,0 +1,1 @@
+Artículo 22. Pliego de Condiciones. Será el reglamento especifico de la contratación que se promueva. Debe corresponder a especificaciones técnicas, claras, suficientes, concretas, objetivas, razonables, proporcionales y amplias que permitan la oportunidad a la mayor cantidad de oferentes de participar en los concursos de contratación pública que se promuevan.

@@ -1,0 +1,2 @@
+Artículo 53. Resolución del contrato. La institución podrá resolver unilateralmente sus contratos por motivo de incumplimiento grave imputable al contratista.
+Para ello, el funcionario a quien se ha encargado el contrato deberá documentar preliminarmente el incumplimiento y coordinar con el Subproceso de Adquisición de Bienes y Servicios la orden de suspensión del contrato. Una vez suspendido el contrato, el Subproceso de Adquisición de Bienes y Servicios tramitará el procedimiento de resolución contractual de conformidad con lo dispuesto en el artículo 114 de la LGCP.

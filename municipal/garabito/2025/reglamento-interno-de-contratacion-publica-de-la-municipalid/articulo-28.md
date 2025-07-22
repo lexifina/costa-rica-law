@@ -1,0 +1,1 @@
+Artículo 28. Contratación de Urgencia. Cuando la Administración enfrente una situación calificada de urgente, independientemente de las causas que la originaron y para evitar lesiones al interés público, daños graves a las personas o irreparables a las cosas, podrá recurrir a la contratación de urgencia, siguiendo el procedimiento establecido en el artículo 166 del RLGCP.

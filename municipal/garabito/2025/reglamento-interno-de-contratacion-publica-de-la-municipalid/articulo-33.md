@@ -1,0 +1,1 @@
+Artículo 33. Trámite. Todos los trámites de contratación por excepción deberán tramitarse n el SICOP. Para el uso de cualquier excepción se deberá cumplir con los requisitos establecidos en el artículo 4 del LGCP y artículo 4 del RLGCP.

@@ -1,0 +1,2 @@
+Artículo 45. Recurso de Revocatoria. Tratándose del recurso de revocatoria contra el acto de adjudicación, el Subproceso de Adquisición de Bienes y Servicios será la encargada de conducir el trámite y emitirá una recomendación a la Alcaldía para que esta emita la resolución final.
+(Nota de Sinalevi: En la publicación de este reglamento se publica dos veces los artículos 45. No obstante del análisis se deduce que en realidad corresponde al artículo 48)

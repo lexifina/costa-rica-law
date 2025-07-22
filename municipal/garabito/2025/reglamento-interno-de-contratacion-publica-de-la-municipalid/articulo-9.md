@@ -1,0 +1,1 @@
+Artículo 9. Del Refrendo Interno de los Contratos. Se regirá por lo dispuesto en el Reglamento de Refrendos de la Contraloría General de la República, R-C-44-2007 o sus reformas, y corresponde su otorgamiento a la Coordinación de la Gestión Jurídica Municipal o al subproceso de refrendos que conforme a dicha disposición se llegue a crear en la Municipalidad.

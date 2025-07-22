@@ -1,0 +1,7 @@
+Artículo 30. Comisión de Recomendación de Adjudicaciones. La Administración podrá contar con una comisión de recomendación de adjudicaciones, que estará integrada por los miembros que designe el alcalde municipal, de acuerdo al Artículo 318 del RLGCP.
+La comisión de recomendación de adquisiciones recomendará la adjudicación de las contrataciones por la naturaleza de la contratación así se requiera.
+Esta comisión estará integrada por miembros que garanticen el carácter técnico y autónomo de sus integrantes. El encargado del Subproceso de Adquisición de Bienes y Servicios será quien la dirigirá.
+Los acuerdos tomados por los miembros de la Comisión de Recomendación de Adjudicaciones se deberán consignar en el expediente electrónico de la contratación.
+La recomendación de esa comisión se trasladará a través del sistema digital unificado, al alcalde o a quien el haya delegado, para tomar la decisión final del procedimiento respectivo, utilizando para ello el módulo respectivo en sistema digital unificado.
+Tanto los miembros de la comisión de recomendación de adjudicaciones y quien adjudica estarán afectos al régimen de prohibiciones establecido en el artículo 28 de la Ley General de Contratación Pública.
+El quórum estará formado por la mayoría absoluta de sus integrantes. La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente autorizada, y justificada ante quien preside la comisión.
