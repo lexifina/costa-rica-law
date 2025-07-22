@@ -15,3 +15,4 @@ Reglamento sobre la formulación, variación y evaluación al plan operativo anu
 | --- | --- | --- |
 | 1 | 2021-06-08 | la propia norma |
 | 2 | 2021-06-08 | Reglamento municipal 55 (2021-05-25) |
+| 3 | 2025-07-22 | Reglamento municipal 64 (2025-07-22) |
