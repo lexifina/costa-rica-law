@@ -14,3 +14,4 @@ Uso del formulario D-149 Declaración Jurada de autoliquidación del impuesto de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-08-20 | la propia norma |
+| 2 | 2025-07-22 | Resolución 35 (2025-07-22) |
