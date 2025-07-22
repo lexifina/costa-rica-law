@@ -1,0 +1,3 @@
+CAPÍTULO II
+Requisitos y trámite del permiso
+Artículo 05.-Del trámite. Los permisos de uso de suelo se otorgarán directamente al solicitante, quien debe gestionar su solicitud personalmente ante la Municipalidad. Para ello, debe presentar un escrito claro y llenar un formulario proporcionado por el departamento de ZMT, indicando el propósito del uso de la parcela. Los formularios deben estrictamente llevar un número consecutivo y, si están deteriorados o mal completados, se anularán y archivarán. La solicitud y la documentación deben entregarse en el departamento de ZMT, y el solicitante debe identificarse con su cédula de identidad. Si no puede hacerlo personalmente o es una persona jurídica, la firma debe estar autenticada notarialmente.

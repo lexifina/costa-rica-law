@@ -1,0 +1,5 @@
+Artículo 40. De los ingresos. Los ingresos que perciba la Municipalidad de Puerto Jiménez, por concepto del presente reglamento por cobro de permiso de uso de suelo dentro de la Zona Marítimo Terrestre, serán distribuidas en la forma complementaria a lo dispuesto en el artículo 59, de la Ley N° 6043, Concordancia: Artículo 48 a 52 y 77 del Reglamento a la Ley N° 6043 y para mantener un control estricto de solicitantes, notificaciones, personal de apoyo e inversión en logística, serán distribuidos de la forma siguiente:
+a) Un cuarenta por ciento para gastos operativos y administrativos del departamento de Zona Marítima Terrestre.
+b) Un cuarenta por ciento será invertido en obras de mejoramiento en las correspondientes zonas turísticas, incluyendo en aquellas todas las inversiones necesarias en servicios de asesoramiento y gastos de administración requeridos para los fines del presente manual.
+c) El veinte por ciento restantes será invertido en obras de mejoramiento del cantón.
+Este Manual rige a partir de su publicación en el Diario Oficial. Publíquese en el Diario Oficial La Gaceta.

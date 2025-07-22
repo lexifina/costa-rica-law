@@ -1,0 +1,1 @@
+Artículo 20. -Precariedad del permiso de uso. El permiso de uso es un acto unilateral de carácter precario en los términos del Artículo Nº 154 de la Ley General de la Administración Pública, mediante el cual la Municipalidad de Puerto Jiménez autoriza a un particular el uso privativo sobre una parcela de dominio público de la Zona Restringida.

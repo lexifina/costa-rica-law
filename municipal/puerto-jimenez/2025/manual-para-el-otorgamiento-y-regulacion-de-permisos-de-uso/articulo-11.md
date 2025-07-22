@@ -1,0 +1,1 @@
+Artículo 11. -Prohibición de ocupar la zona pública. La Zona Pública no puede ser ocupada bajo ningún título. Está destinada para el uso público, nadie puede alegar posesión o usucapión sobre ella, y no se podrán otorgar permisos de uso de suelo, en concordancia con los artículos Nº 10, 11, 12 de la Ley 6043.

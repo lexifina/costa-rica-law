@@ -1,0 +1,1 @@
+Artículo 21. -Temporalidad de los permisos de uso. El carácter de los permisos de uso es temporal y conforme al Artículo Nº 4 de la Ley 9242, no otorgara ningún derecho a favor del permisionario a excepción del derecho de uso concedido conforme al presente reglamento.

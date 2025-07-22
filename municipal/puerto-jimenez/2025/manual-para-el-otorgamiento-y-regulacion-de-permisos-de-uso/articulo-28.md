@@ -1,0 +1,1 @@
+Artículo 28. -Régimen de Sanción. Con base al Artículo Nº13 de la Ley de la Zona Marítimo Terrestre, y el Artículo Nº 22 del Reglamento a la Ley, se aplicarán las sanciones a los permisionarios infractores de la Zona Marítimo Terrestre.

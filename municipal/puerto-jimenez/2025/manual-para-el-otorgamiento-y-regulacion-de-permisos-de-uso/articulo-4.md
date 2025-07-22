@@ -1,0 +1,1 @@
+Artículo 04. -Áreas excluidas de la aplicación del presente Manual. Se excluyen de esta normativa los sectores de la Zona Marítima Terrestre que cuenten con una declaratoria de aptitud turística del ICT que tengan un Plan Regulador vigente, así como las áreas cubiertas de bosque o terrenos forestales en la ZMT, o aquellas que estén clasificadas como Patrimonio Natural del Estado.
