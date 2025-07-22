@@ -1,1 +1,0 @@
-2) Si a la fecha de entrada en vigencia de la presente resolución hubiere algún trámite de inscripción pendiente, la administración tributaria que corresponda deberá adecuar el conocimiento y resolución del caso a las normas, procedimientos y requisitos establecidos en esta resolución.
