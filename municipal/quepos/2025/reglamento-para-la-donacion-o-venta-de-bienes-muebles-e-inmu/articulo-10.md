@@ -1,0 +1,1 @@
+Artículo 10º-Eliminación de los bienes del registro de activos. Una vez verificado el traslado de dominio de los bienes, el departamento de Contabilidad procederá a descargarlos del registro de activos del municipio y dejará constancia del acuerdo municipal que dispuso su donación.

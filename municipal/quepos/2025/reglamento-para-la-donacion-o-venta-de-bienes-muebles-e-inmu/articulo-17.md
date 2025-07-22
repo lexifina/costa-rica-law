@@ -1,0 +1,1 @@
+Artículo 17º- Del mismo modo que se describe en el artículo anterior, deberán proceder aquellos funcionarios municipales que directamente participan en el trámite de la donación, si tienen algún vínculo directo con la o entidades solicitantes.

@@ -1,0 +1,1 @@
+Artículo 14º- Todas las entidades jurídicas y privadas, que puedan ser objeto de donación y así lo soliciten, tendrán que aportar la respectiva personería jurídica al día, y quien haga la solicitud de donación o reciba el bien, por parte de esa entidad, debe tener poder suficiente para dichos actos.

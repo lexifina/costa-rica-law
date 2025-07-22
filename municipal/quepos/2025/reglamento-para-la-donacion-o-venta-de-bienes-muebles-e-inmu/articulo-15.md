@@ -1,0 +1,1 @@
+Artículo 15º- En el caso de entidades que brindan una labor social dentro del cantón, previamente a la donación, la Unidad de Trabajo Social Municipal, brindará un informe que constará en el Expediente Administrativo, respecto de dicha labor.
