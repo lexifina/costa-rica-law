@@ -14,3 +14,4 @@ Uso del formulario VAP01 "Impuesto a los Vapeadores y Accesorios”
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2022-01-21 | la propia norma |
+| 2 | 2025-07-22 | Resolución 34 (2025-07-22) |
