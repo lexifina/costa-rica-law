@@ -1,1 +1,0 @@
-Artículo 15.—Cuando el motivo de abstención afectare a la Junta Directiva o a alguno(s) o de sus miembros, o al Fiscal conocerán del asunto los miembros suplentes escogidos por los colegios asociados.

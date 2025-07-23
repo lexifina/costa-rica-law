@@ -1,4 +1,0 @@
-Artículo 38.—
-a. Los términos se interrumpirán por la presentación de los recursos fijados por el Reglamento.
-b. No importará que el recurso carezca de las autenticaciones, formalidades o especies fiscales necesarias; ni, en general, que padezca cualquier vicio que no produzca su nulidad absoluta, a condición de que se subsanen de conformidad con este reglamento.
-c. El recurso se tendrá como interpuesto correctamente aún si es presentado en cualquier oficina oficial del Colegio de Médicos Veterinarios de Costa Rica, dentro del horario normal de la oficina. En este caso, el funcionario del Colegio de Médicos Veterinarios de Costa Rica que haya recibido el recurso, deberá remitirlo inmediatamente al Tribunal de Honor o a la Junta Directiva según corresponda. Su omisión se considerará como falta grave y podrá ser despedido sin responsabilidad laboral.

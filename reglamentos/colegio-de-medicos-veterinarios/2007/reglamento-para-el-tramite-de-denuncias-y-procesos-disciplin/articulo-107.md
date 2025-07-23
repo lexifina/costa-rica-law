@@ -1,3 +1,0 @@
-Artículo 107.—
-a. En el procedimiento disciplinario además del recurso de revocatoria ante el Tribunal de Honor, cabrá el recurso de apelación ante la Junta Directiva únicamente contra el acto de intimación y contra el que deniega la comparecencia oral o cualquier prueba.
-b. Contra las actuaciones de la Fiscalía no cabrá ningún recurso.
