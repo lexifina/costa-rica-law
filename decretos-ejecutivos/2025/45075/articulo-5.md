@@ -1,0 +1,1 @@
+Artículo 5°- Solicitantes de declaratorias de interés educativo. Toda persona física o jurídica, se encuentra habilitada para plantear la correspondiente solicitud de declaratoria de interés educativo ante el Viceministerio Académico.

@@ -1,0 +1,2 @@
+Transitorio Único: Las declaratorias de interés educativo que se encuentren pendientes de resolución por el Viceministerio Académico a la entrada en vigor de este decreto, serán concluidas siguiendo lo establecido en la Circular DM-030-06-2018 denominada Lineamientos para el trámite de solicitudes y emisión de declaratorias de interés educativo.
+Dado en la Presidencia de la República. -San José, a los trece días del mes de mayo del dos mil veinticinco.
