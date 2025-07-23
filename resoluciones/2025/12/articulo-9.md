@@ -1,0 +1,3 @@
+Artículo 9.- Publicación de criterios objetivos de selección y criterios de riesgo.
+Cada año, la Administración Tributaria publicará, mediante resolución de alcance general, los criterios objetivos de selección que deberán ser diseñados atendiendo a los planes de riesgo que para estos efectos elabore, con el objetivo de evaluar y diagnosticar, mediante la utilización de procesos técnicos, el riesgo de comportamiento irregular o incumplimiento en la aplicación de los procedimientos internos de control, cumplimiento y entrega de la información, así como el acatamiento del estándar relacionado con el tipo de información a reportar.
+También deberá publicar anualmente los criterios de riesgo tomados en cuenta para realizar las evaluaciones de cumplimiento.

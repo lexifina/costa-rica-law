@@ -1,0 +1,3 @@
+Artículo 8.- Ejecución de actuaciones de supervisión, verificación y monitoreo de cumplimiento.
+La Administración Tributaria tendrá la facultad de supervisar, verificar y monitorear, mediante la ejecución de actuaciones anuales, a las Instituciones Financieras de Costa Rica Sujetas a Reportar, en la aplicación de los procedimientos internos de control, cumplimiento y entrega de la información, así como el acatamiento del estándar relacionado con el tipo de información a reportar.
+Con el fin de ejecutar estas actuaciones de control, la Administración podrá requerir la información correspondiente a los procesos de debida diligencia y obtención de auto-certificaciones que respaldan el reporte anual de CRS.
