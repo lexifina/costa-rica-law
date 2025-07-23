@@ -1,1 +1,0 @@
-Artículo 14.- El TEI estará integrado por cinco miembros propietarios y dos suplentes nombrados por la Asamblea General Ordinaria del año que corresponda, por un plazo de tres años. Pueden ser reelectos por períodos iguales. No podrán formar parte del Tribunal Electoral los miembros de la Junta Directiva, del Tribunal de Honor, o Colegiados que sean funcionarios del Colvet.

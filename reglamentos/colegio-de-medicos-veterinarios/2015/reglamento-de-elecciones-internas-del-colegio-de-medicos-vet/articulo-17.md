@@ -1,2 +1,0 @@
-Artículo 17.- Las decisiones del TEI tendrán recurso de revocatoria, el cual deberá de interponerse dentro del tercer día hábil siguiente a la comunicación del acto impugnado. El recurso deberá de estar fundamentado, bajo pena de inadmisibilidad, y deberá presentarse ante la secretaría del TEI, el cual resolverá dentro de las siguientes 24 horas, excepto el día de las elecciones, en cuyo caso conocerá y resolverá, lo que corresponda, antes de comunicar el resultado de la elección.
-Únicamente cabe recurso de apelación contra las resoluciones que denieguen la revocatoria.

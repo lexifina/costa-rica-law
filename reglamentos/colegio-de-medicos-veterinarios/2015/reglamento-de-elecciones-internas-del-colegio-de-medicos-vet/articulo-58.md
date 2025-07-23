@@ -1,2 +1,0 @@
-CAPÍTULO X: De la Apertura y Cierre de la Votación
-Artículo 58.- La votación dará inicio a la hora y fecha señaladas en la convocatoria. Antes de iniciarse el proceso electoral, el Tribunal, sus delegados o auxiliares examinarán los centros de votación, levantará el acta de apertura correspondiente que será firmada por los miembros del recinto. Comprobará igualmente que el recinto cuente con los medios para la realización del acto. En este examen podrán participar los delegados y los fiscales del centro.

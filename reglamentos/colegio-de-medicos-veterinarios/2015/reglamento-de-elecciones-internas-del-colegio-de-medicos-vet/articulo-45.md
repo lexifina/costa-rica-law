@@ -1,1 +1,0 @@
-Artículo 45.- Dentro del centro de votación durante el escrutinio general, solo podrán permanecer los delegados o auxiliares del Tribunal, los fiscales acreditados y los miembros del TEI. Los delegados del TEI resolverán cualquier consulta que se presente el día de las elecciones, sus decisiones podrán ser impugnadas ante el TEI, el cual resolverá lo que corresponda.

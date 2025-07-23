@@ -1,1 +1,0 @@
-Artículo 53.- El voto electrónico se emitirá con la ayuda de un software y hardware que reúnan las condiciones para garantizar que sea emitido en forma libre, técnicamente válido y con los niveles de seguridad requeridos para garantizar que el elector emitirá su voto en forma correcta y secreta.

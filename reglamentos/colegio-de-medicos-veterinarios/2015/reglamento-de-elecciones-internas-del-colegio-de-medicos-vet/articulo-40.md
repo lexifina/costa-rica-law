@@ -1,1 +1,0 @@
-Artículo 40.- Cuando un voto se declare nulo, el Presidente del TEI hará constar la razón al dorso de la papeleta, así como el fundamento que respalda esa decisión y su firma durante el conteo de los votos.

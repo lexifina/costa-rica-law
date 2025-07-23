@@ -1,1 +1,0 @@
-Artículo 16. - El TEI establecerá todo lo referente al diseño de la papeleta impresa o electrónica, incluidas las fotografías y los nombres de los aspirantes. Las papeletas deberán asegurar el voto del elector de forma inequívoca.

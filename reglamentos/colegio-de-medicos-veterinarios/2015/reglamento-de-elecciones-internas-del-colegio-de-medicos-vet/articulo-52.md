@@ -1,1 +1,0 @@
-Artículo 52.- Podrá utilizarse el voto electrónico cuando el TEI determine que los medios electrónicos garanticen, ya sea emitido en forma libre, técnicamente válido y con niveles de seguridad y confiabilidad para que el elector emita su voto en forma segura y secreta.

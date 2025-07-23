@@ -1,1 +1,0 @@
-Artículo 47.- Para sufragar, el elector se presentará con su cédula, carné o certificación que lo acredite como miembro activo del Colegio ante la Junta Receptora correspondiente que verificará su nombre. El elector firmará en el padrón, y cumplido este requisito de admisión, se dirigirá al recinto de votación.

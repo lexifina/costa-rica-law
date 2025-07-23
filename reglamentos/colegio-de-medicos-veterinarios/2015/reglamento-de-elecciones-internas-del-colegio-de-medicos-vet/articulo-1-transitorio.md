@@ -1,1 +1,0 @@
-TRANSITORIO I Los miembros de la actual Junta Directiva juramentados en la pasada Asamblea General Ordinaria de enero del 2015 completarán el período de su cargo según el Reglamento derogado en este acto.

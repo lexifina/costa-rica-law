@@ -1,1 +1,0 @@
-Artículo 8.- En elecciones extraordinarias, la Junta Directiva del Colegio conjuntamente con el TEI tomará el acuerdo de convocatoria y ordenarán la publicación en la forma inmediata, respetando el procedimiento establecido en este reglamento y la Ley Orgánica. Serán aplicables a estas elecciones, las disposiciones de este reglamento que fueren oportunas a juicio del TEI.

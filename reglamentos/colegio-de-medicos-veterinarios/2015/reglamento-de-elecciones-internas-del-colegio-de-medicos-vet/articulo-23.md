@@ -1,2 +1,0 @@
-Artículo 23.- En los casos de elecciones extraordinarias, las nominaciones se harán directamente en la Asamblea General Extraordinaria convocada para esos efectos.
-En estos casos corresponderá al TEI dirigir la Asamblea en el punto de la agenda correspondiente a la elección y verificar el cumplimiento de los requisitos por parte de los candidatos, según el artículo 24 de este Código, así como que la elección se realice de conformidad con las normas de este reglamento.

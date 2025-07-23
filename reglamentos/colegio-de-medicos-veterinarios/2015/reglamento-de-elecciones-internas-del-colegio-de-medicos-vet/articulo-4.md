@@ -1,1 +1,0 @@
-Artículo 4.- La elección extraordinaria se verificará cuando por renuncia o por cualquier otra causa, fuera necesario llenar las vacantes que acontecieren. En cualquiera de estos supuestos debe de comunicarse de forma inmediata de la vacante al Tribunal de Elecciones Internas en adelante TEI, para que regule, de conformidad con este reglamento, el proceso de nombramiento.
