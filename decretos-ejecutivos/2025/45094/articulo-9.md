@@ -1,0 +1,2 @@
+Artículo 9°. - Derogatoria. Deróguese el Decreto Ejecutivo N°43713-MP-MIVAH del 14 de setiembre de 2022.
+Los instrumentos denominados "Especificaciones técnicas para materiales, elementos de la vivienda e infraestructura financiados con recursos del Sistema Financiero Nacional para la Vivienda (SFNV)" y "Tipologías Constructivas para Viviendas Financiadas o subsidiadas por el Sistema Financiero Nacional para la Vivienda" publicados como Anexo 1 y Anexo 2, respectivamente, del Decreto Ejecutivo No. 43713-MP-MIVAH, se mantienen vigentes.

@@ -1,0 +1,1 @@
+Transitorio I.- A partir de la publicación de este Decreto en el diario oficial La Gaceta, los proyectos que no han sido ingresados a la plataforma APC (plataforma y módulos de trámite digital de planos y permisos de construcción administrada por el Colegio Federado de Ingenieros y Arquitectos) deberán ajustarse a lo establecido en el presente instrumento.
