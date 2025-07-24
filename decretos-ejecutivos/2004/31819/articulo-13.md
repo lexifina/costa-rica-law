@@ -1,1 +1,0 @@
-Artículo 13.—De la Comisión de Metrología. La Comisión de Metrología es el máximo Órgano Técnico del LACOMET y sus funciones están otorgadas en el artículo 12 de la Ley Nº 8279 Sistema Nacional par la Calidad.

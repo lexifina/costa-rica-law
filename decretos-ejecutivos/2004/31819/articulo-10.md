@@ -1,2 +1,0 @@
-Artículo 10.—De la aprobación de modelos o prototipos. El LACOMET realizará la aprobación del modelo o prototipo de aquellos instrumentos de medición, cuando este requisito sea parte integral de un reglamento técnico.
-La aprobación del modelo o prototipo de instrumentos para medir, se realizará tomando como base las recomendaciones internacionales de los organismos de metrología legal o el criterio técnico correspondiente, en ausencia de recomendaciones internacionales.

@@ -1,2 +1,0 @@
-Artículo 11.—Del reconocimiento de unidades de verificación metrológica. El LACOMET reconocerá a instituciones públicas o privadas, físicas o jurídicas, como unidades de verificación metrológica, para lo cual deben cumplir con los requisitos que se establecerán vía Decreto Ejecutivo; en lo demás se estará a lo dispuesto por inciso h) del artículo 8 de la Ley Nº 8279.
-Las unidades de verificación metrológica reconocidas, deben informar periódicamente a la autoridad competente las verificaciones realizadas y las conclusiones de los resultados obtenidos.

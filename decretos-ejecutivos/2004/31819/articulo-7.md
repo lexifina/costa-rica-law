@@ -1,2 +1,0 @@
-Artículo 7º—De la responsabilidad de los instrumentos de medición reconocidos como patrón nacional. La custodia y mantenimiento de los patrones nacionales y equipos de medición estarán bajo la responsabilidad de LACOMET y los laboratorios primarios reconocidos.
-Cada patrón antes de ser declarado patrón nacional deberá haber sido trazado directa o indirectamente a patrones primarios que reproduzcan aquella unidad de medida reconocida y aceptada por Conferencia General de Pesas y Medidas (CGPM)

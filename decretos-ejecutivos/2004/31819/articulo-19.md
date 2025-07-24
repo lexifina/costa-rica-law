@@ -1,2 +1,0 @@
-Artículo 19.—Del quórum. El quórum para que la Comisión de Metrología pueda sesionar válidamente será el de la mayoría absoluta de sus miembros.
-Si no hubiere quórum, la Comisión de Metrología podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros.
