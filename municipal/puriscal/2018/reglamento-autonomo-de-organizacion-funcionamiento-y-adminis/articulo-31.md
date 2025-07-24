@@ -1,9 +1,0 @@
-Artículo 31°-. La Municipalidad de Puriscal, se reserva el derecho de terminar, sin lugar a indemnización de ninguna clase, el contrato celebrado con el adjudicatario por las causas establecidas en este reglamento, especialmente:
-a) Por incumplimiento de parte del inquilino de alguna o algunas de las obligaciones que le imponga este Reglamento.
-b) Por embargo judicial del derecho de arrendatario cuando su dueño no obtenga el levantamiento del embargo dentro de un plazo razonable fijado por la Administración.
-c) Por remate de la mercadería que se expenda en el puesto que tenga como consecuencia el cierre del negocio por más de ocho días naturales.
-d) Por incapacidad económica del inquilino, la cual se presume cuando se interponga juicio de insolvencia, o se le compruebe incumplimiento notorio de sus obligaciones comerciales o mala fe en su negocio.
-e) Por cierre y clausura del negocio o puesto sin autorización previa del Administrador.
-f) Por demolición o reforma al mercado, no obstante los inquilinos que por las razones expuestas en este inciso se vean afectadas, conservarán el derecho de prioridad para ocupar nuevamente los locales cuando el mercado se rehabilite. Todo lo anterior desde luego en concordancia con la ley y reglamento vigentes. (ver artículo 7 de la Reforma a la “Ley sobre Arrendamiento de Locales Municipales”)
-g) Aquel inquilino que ceda sus derechos a un tercero sin previa aprobación por parte del Consejo municipal.
-De acuerdo con las sanciones tipificadas en este Reglamento, una vez aplicado el debido proceso anteriormente señalado, con base en la Ley General de la Administración Pública. Si la sanción a aplicar es la rescisión del contrato y desalojo del local, la Municipalidad retomará el local y por medio del Concejo Municipal procederá a adjudicar nuevamente de acuerdo a lo establecido en el artículo 7º de este Reglamento.

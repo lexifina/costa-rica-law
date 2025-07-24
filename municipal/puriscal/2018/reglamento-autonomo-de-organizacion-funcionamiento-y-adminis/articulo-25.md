@@ -1,1 +1,0 @@
-Artículo 25°.- Dentro de los Mercados Municipales no se concederán patentes Municipales para el expendio de bebidas alcohólicas ni objetos que alteren la seguridad pública. Según lo establecido el artículo 8 de la reforma a la ley de sobre arrendamiento de los locales Municipales N° 7027.

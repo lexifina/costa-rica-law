@@ -1,2 +1,0 @@
-DISPOSICIONES TRANSITORIAS
-Transitorio 1°-. A partir de la entrada en vigencia del presente Reglamento, los arrendatarios pagarán por concepto de alquiler lo establecido en la negociación del quinquenio en vigencia, hasta la nueva recalificación del próximo quinquenio, con base a la Ley Nº 2428 del 14 de setiembre de 1959 reformada por la Ley Nº 7027 del 4 de abril de 1986, Ley de Arrendamientos de Locales en Mercados Municipales.

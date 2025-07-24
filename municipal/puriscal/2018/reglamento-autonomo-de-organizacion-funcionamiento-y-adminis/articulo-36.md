@@ -1,1 +1,0 @@
-Artículo 36°-. Este reglamento deroga y deja sin efecto cualquier disposición anterior sobre la materia y rige a partir de su publicación en el diario oficial La Gaceta, siguiendo el procedimiento establecido en el artículo 47 del Código Municipal.

@@ -1,1 +1,0 @@
-Artículo 12º- Para la estimación del precio del arrendamiento se tomará como base el monto de tres mensualidades. De todo acto se levantará un acta que será firmada por el Administrador Municipal y deberá de contener todos los detalles necesarios para la identificación de los favorecidos.

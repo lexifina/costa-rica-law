@@ -1,1 +1,0 @@
-Artículo 11°- Aquellos inquilinos que no cuenten con el respectivo contrato de arrendamiento con la administración y la alcaldía, se procederá al desalojo del local que corresponda, cuando se haya comprobado y hecho de conocimiento al Concejo Municipal.

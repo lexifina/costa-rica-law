@@ -1,1 +1,0 @@
-Artículo 9º-En atención al artículo anterior, el Concejo solicitará a los inquilinos el nombramiento de dos de sus compañeros, para que de ser necesario los representen en una comisión especial integrada por regidores, que éste nombraría para la atención de casos de alta dificultad, no resueltos por la Alcaldía Municipal según sucedan.
