@@ -15,3 +15,4 @@ Reglamento para presentar el informe de fin de gestión en el Conglomerado Finan
 | --- | --- | --- |
 | 1 | 2022-04-21 | la propia norma |
 | 2 | 2024-03-04 | Reglamento 1846 (2024-03-04) |
+| 3 | 2025-07-28 | Reglamento 37 (2025-07-28) |
