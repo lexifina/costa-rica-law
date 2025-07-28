@@ -7,7 +7,8 @@ e) Un representante de la Unidad de Análisis Permanente de Situación de Salud 
 f) Un representante del Área de Investigación y Estadística del Consejo de Seguridad Vial.
 g) Un representante de la Unidad de Información y Estadística del Instituto Costarricense sobre Drogas.
 h) Un representante del Instituto sobre Alcoholismo y Farmacodependencia.
-i) Un representante del Área de Análisis del Desarrollo del Ministerio de Planificación Nacional y Política Económica.
+i) Una persona representante de la Unidad de Investigación del Consejo Nacional de la Persona Joven.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 45153 del 28 de julio del 2025)
 j) Dos representantes de la Sección de Estadística del Departamento de Planificación del Poder Judicial.
 k) Dos representantes de la Oficina de Planes y Operaciones del Organismo de Investigación Judicial.
 Cada uno de los representantes que integran dicha comisión, será designado oficialmente por el jerarca de la institución que representa. En el caso de las personas indicadas en el inciso c) anterior, serán designadas por la Gerencia del Instituto Nacional de Estadística y Censos. Dichos nombramientos serán por un plazo de dos años, al cabo de los cuales el jerarca de la institución deberá ratificarlo o indicar quién asumirá la representación por el nuevo período.

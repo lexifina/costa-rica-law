@@ -14,3 +14,4 @@ Creación de la Comisión Técnica Interinstitucional de Estadísticas de Conviv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-02 | la propia norma |
+| 2 | 2025-07-28 | Decreto Ejecutivo 45153 (2025-07-28) |
