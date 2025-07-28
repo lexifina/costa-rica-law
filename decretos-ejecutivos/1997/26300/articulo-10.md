@@ -1,1 +1,0 @@
-Artículo 10.—Las instituciones de acuerdo con el artículo 3°, una vez publicado el presente Decreto Ejecutivo tendrán un mes de tiempo para la definición del representante, los cuales durarán en sus funciones tres años, pudiendo ser reelectos por las instituciones de acuerdo con el desarrollo de las funciones de COENOS.

@@ -1,1 +1,0 @@
-Artículo 8°— La COENOS gestionará la obtención de recursos financieros y asistencia técnica que permitan realizar actividades de investigación, promoción, capacitación y difusión en materia de comunicación y producción de información sobre el Fenómeno ENOS.

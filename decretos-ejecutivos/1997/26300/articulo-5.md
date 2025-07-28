@@ -1,5 +1,0 @@
-Artículo 5°— La COENOS tendrá como objetivos generales los siguientes:
-a) Coordinar los esfuerzos institucionales para promover la generación y utilización de la información relativa al Fenómeno ENOS, que permita a los diferentes segmentos de la sociedad costarricense, efectuar una adecuada toma de decisiones en la definición de su actividades tendientes a prevenir y mitigar los impactos de este fenómeno.
-b) Apoyar acciones que permitan mejor la calidad de la información relativa al Fenómeno ENOS y sus impactos.
-c) Propiciar el establecimiento de mecanismos de coordinación entre los usuarios y productores de la información referente al Fenómeno ENOS y promover que la información generada y demandada por los diferentes sectores responda a las prioridades nacionales en lo concerniente a la prevención y mitigación de los efectos climáticos y meteorológicos.
-d) Promover el acceso de todos los sectores de la sociedad costarricense a la información relativa al Fenómeno ENOS, con el objetivo de apoyar el desarrollo de acciones y programas que ejecuten estos segmentos en el marco del desarrollo sostenible.
