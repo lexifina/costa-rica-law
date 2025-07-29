@@ -1,1 +1,2 @@
-Artículo 33 —El Área de Transportes del nivel central y regional debe iniciar los trámites correspondientes para la reparación del vehículo.
+Artículo 33- El Área de Transportes del nivel central o la Unidad de Apoyo Logístico y Administrativo según corresponda, debe revisar la información del evento reportado, para proceder a analizar si los daños pueden repararse o por lo contrario ser declarado de baja por los daños del vehículo. Ante cualesquiera de los escenarios se debe iniciar con el procedimiento establecido para dicho fin.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45170 del 29 de julio del 2025)

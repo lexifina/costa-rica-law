@@ -14,3 +14,4 @@ Reglamento para la administración, prestación y utilización de servicios de t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-02 | la propia norma |
+| 2 | 2025-07-29 | Decreto Ejecutivo 45170 (2025-07-29) |

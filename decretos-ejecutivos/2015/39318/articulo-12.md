@@ -1,1 +1,2 @@
-Artículo 12 —El punto de partida y conclusión de una gira de trabajo será el lugar o unidad organizativa donde el vehículo se encuentra destacado.
+Artículo 12 -El punto de partida y conclusión de una salida de trabajo será en el estacionamiento del lugar o unidad organizativa donde el vehículo se encuentra destacado, o que sea un lugar previamente autorizado mediante oficio de la Unidad de Apoyo Logístico y Administrativo o Transportes. Los vehículos del Ministerio tendrán prioridad de estacionamiento en los parqueos de la Institución.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 45170 del 29 de julio del 2025)
