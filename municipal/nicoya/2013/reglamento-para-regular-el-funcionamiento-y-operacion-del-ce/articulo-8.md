@@ -1,1 +1,0 @@
-Artículo 8°—Personal: El Centro estará integrado por una persona Coordinadora Técnica que deberá contar como mínimo con el título de Licenciatura en Preescolar. Además, con una persona profesional docente, con el grado mínimo de bachillerato en Preescolar o carrera afín y una persona asistente con al menos noveno año de escolaridad, por cada grupo de 25 niños o niñas.
