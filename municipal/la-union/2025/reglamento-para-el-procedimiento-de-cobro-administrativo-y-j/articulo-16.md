@@ -1,0 +1,1 @@
+Artículo 16º- Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el Departamento de Servicio al Cliente deberá ser trasladada al departamento de cobro administrativo para su debido resguardo.

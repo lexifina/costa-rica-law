@@ -1,0 +1,3 @@
+Artículo 10º- Plazos para otorgar arreglos de pago de servicios e impuestos de bienes inmuebles:
+Los arreglos de pago se pactarán por un plazo máximo de 36 meses en forma ordinaria, de conformidad con el artículo 11 de este reglamento y sólo en caso de contar con la aprobación de la Jefatura de Cobros o en su ausencia de la Dirección Tributaria se extenderá el plazo hasta los 60 meses.
+Finalmente, el alcalde Municipal extraordinariamente podrá autorizar un arreglo de pago en un rango entre 5 y hasta los 8 años, siendo este el plazo máximo de cualquier arreglo de pago cuando esto se justifique, al tenor de lo dispuesto en el Capítulo de Casos en Estado de Vulnerabilidad.

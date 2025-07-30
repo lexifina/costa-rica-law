@@ -1,0 +1,1 @@
+Artículo 5º- Notificación de las actuaciones. Todas aquellas actuaciones del Departamento de Gestión de Cobro Administrativo, que sean susceptibles de ser recurridas por el interesado, deberán ser notificadas al contribuyente de conformidad con lo establecido en el ordenamiento jurídico costarricense.

@@ -1,0 +1,1 @@
+Artículo 20º- Competencia. Corresponde a la Dirección Tributaria, mediante el estudio respectivo determinar cuáles son los montos que se considerarán exiguos de acuerdo con los lineamientos establecidos al efecto según la normativa vigente.

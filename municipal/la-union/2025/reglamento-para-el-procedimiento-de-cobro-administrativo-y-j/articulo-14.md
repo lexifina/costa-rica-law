@@ -1,0 +1,1 @@
+Artículo 14º- Arreglos de pago autorizados. Se autorizará en una cuenta un máximo de dos arreglos de pago en un año natural, entendiéndose de manera continua a partir de la fecha de la primera formalización.

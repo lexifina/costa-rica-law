@@ -1,0 +1,1 @@
+Artículo 2º- Ámbito de aplicación. La aplicación del presente reglamento se circunscribe al cantón de La Unión y regula los aspectos relacionados con la gestión de Cobro Administrativo y Judicial de la Municipalidad de La Unión.

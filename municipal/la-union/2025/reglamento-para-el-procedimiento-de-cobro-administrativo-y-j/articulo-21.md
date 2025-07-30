@@ -1,0 +1,1 @@
+Artículo 21º- Resolución Administrativa. Una vez determinados los adeudos exiguos la Dirección Tributaria procederá a emitir la Resolución Administrativa por aquellos montos exiguos que no se llevarán a la vía judicial, por no afectar el Principio de la buena gestión.

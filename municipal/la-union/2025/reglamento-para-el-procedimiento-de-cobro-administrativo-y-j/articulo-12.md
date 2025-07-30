@@ -1,0 +1,4 @@
+Artículo 12º- Arreglos de pago relativos de las licencias comerciales:
+Se otorgarán arreglos de pago para adeudos por concepto de licencias comerciales solamente bajo las siguientes circunstancias:Se otorgarán arreglos de pago para adeudos por concepto de licencias comerciales solamente bajo las siguientes circunstancias:
+a) Cuando el licenciatario abandonó la actividad omitiendo su obligación de realizar el retiro formal ante la autoridad respectiva, generando deudas por omisión a la declaración obligada por ley u otras derivadas de este abandono como multas.
+b) Cuando el sujeto pasivo mantiene una licencia comercial activa omitió la declaración obligada por ley generando la multa correspondiente, para lo cual podrá realizar arreglo de pago solamente por dicho rubro, cancelando en primera instancia los trimestres adeudados y una vez que ya no presente el adeudo de los mismos procederá la suscripción del contrato por la multa pendiente.
