@@ -1,0 +1,1 @@
+Artículo 7º.-Cumplimiento normativo. Todas las donaciones estarán sujetas a la normativa vigente, en particular: Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Reglamento para el Registro y Control de Bienes de la Administración Central, Lineamientos del Ministerio de Hacienda y del Ministerio de Seguridad Pública

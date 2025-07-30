@@ -1,0 +1,3 @@
+Artículo 5°.-Implementación y control. La persona encargada de la delegación o instalación policial beneficiada, en coordinación con la Dirección de Infraestructura, supervisarán que las obras o mejoras donadas cumplan con los términos y especificaciones acordadas, con el fin de garantizar su correcta ejecución y mantenimiento.
+Las donaciones quedarán registradas en el sistema de activos del Ministerio, conforme al Reglamento para el Registro y Control de Bienes de la Administración Central. Toda donación estará sujeta a auditoría y fiscalización.
+La persona que ejerce la jefatura de la delegación o instalación policial beneficiada por la donación deberá garantizar el uso correcto y mantenimiento adecuado de los bienes o servicios recibidos.
