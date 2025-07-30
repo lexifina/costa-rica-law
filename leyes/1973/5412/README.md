@@ -1,6 +1,6 @@
 # Ley Orgánica del Ministerio de Salud
 
-Ley N° 5412 del 1973-11-08. SINALEVI, ficha 8204: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8204&param2=143865&param3=1>.
+Ley N° 5412 del 1973-11-08. SINALEVI, ficha 8204: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8204&param2=146946&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 2022-03-09 | Ley 10113 | 2022-03-02 |
 | 7 de 9 | 2023-12-19 | Ley 10412 | 2023-11-29 |
 | 8 de 9 | 2024-12-11 | Ley 10563 | 2024-10-18 |
+| 9 de 9 | 2025-07-30 | Ley 10725 | 2025-05-13 |
