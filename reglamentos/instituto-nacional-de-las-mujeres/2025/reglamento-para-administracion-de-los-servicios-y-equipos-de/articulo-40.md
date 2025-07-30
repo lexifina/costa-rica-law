@@ -1,0 +1,1 @@
+Articulo 40—Acceso a la información. El INAMU se reserva el derecho de acceso a toda la información que requiera cuando el caso lo amerite solicitando al respectivo proveedor del servicio los registros de llamadas, duración y destinos, entre otros, esto al ser servicios tercerizados y no poseer el INAMU el dominio de la Información.

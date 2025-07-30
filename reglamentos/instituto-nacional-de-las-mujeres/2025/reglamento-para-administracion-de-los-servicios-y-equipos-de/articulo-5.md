@@ -1,0 +1,1 @@
+Artículo 5— La asignación y uso de servicios y equipo de comunicación, no constituyen salario en especie, debido a que es un bien suministrado por su utilidad para el ejercicio del cargo y no tiene condición remunerativa, ni derecho adquirido.

@@ -1,0 +1,1 @@
+Articulo 39—Aspectos no contemplados en el presente reglamento. Los casos no previstos en este Reglamento, en esta materia, serán resueltos en primera instancia por la Dirección Administrativa Financiera según lo pertinente, además se tendrá la obligación de informar a la Presidencia Ejecutiva en todos los casos

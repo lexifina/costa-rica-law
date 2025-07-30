@@ -1,0 +1,1 @@
+Artículo 35— Constatación de la veracidad y justificación. Toda persona encargada de autorizar y aprobar con su firma el objeto de este Reglamento estará obligada a constatar la veracidad y justificación de lo requerido y será solidariamente responsable por los perjuicios de cualquier índole que se deriven del incumplimiento de dichas obligaciones.

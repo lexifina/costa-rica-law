@@ -1,0 +1,1 @@
+Artículo 12— Redes Informáticas: Es el proceso de solicitud, administración, registro, asignación y control del conjunto de dispositivos interconectados entre sí, ya sea hardware o software que intercambian información y comparten recursos.

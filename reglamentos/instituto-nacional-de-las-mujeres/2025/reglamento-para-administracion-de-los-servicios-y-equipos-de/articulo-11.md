@@ -1,0 +1,1 @@
+Artículo 11— Comunicación de Datos: Es el proceso de solicitud, administración, registro, asignación y control en la transferencia de información entre dos o más equipos utilizando diferentes medios y tecnologías de comunicación.

@@ -1,0 +1,2 @@
+Artículo 28— Llamadas Internacionales: Tendrán acceso a llamadas telefónicas internacionales salientes, las líneas móviles y con tecnología IP asignadas a las
+Autoridades Superiores del Instituto y las dependencias que autorice la Dirección Administrativa Financiera, siempre y cuando sean realizadas para atender asuntos estrictamente relacionados con el Instituto. Las demás líneas, no especificadas en el párrafo anterior, únicamente tendrán derecho de acceso a llamadas internacionales entrantes, sin que esto genere ningún costo económico para la Administración.

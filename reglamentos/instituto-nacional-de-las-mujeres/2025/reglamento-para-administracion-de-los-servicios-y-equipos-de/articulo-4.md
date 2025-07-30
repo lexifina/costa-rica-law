@@ -1,0 +1,1 @@
+Artículo 4—Servicios de Telecomunicación: Todos los adquiridos, facilitados o transferidos relacionados con telefonía, IP, televisión de paga, datos, redes, internet y geolocalización para el desarrollo de los fines del INAMU, y así cumplir con sus labores ordinarias.

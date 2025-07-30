@@ -1,0 +1,1 @@
+Artículo 13— Internet: Es el proceso de solicitud, administración, registro, asignación y control de la red de redes que permite la interconexión descentralizada entre diferentes computadoras distribuidas en cada sede del INAMU.

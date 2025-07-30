@@ -1,0 +1,1 @@
+Artículo 24— De las Adquisiciones: Para la adquisición de todo tipo de servicios y/o equipo de comunicación a través de planes pospago se deberá tomar en cuenta para la selección del tipo de equipo de comunicación las siguientes categorías: gama media y alta.

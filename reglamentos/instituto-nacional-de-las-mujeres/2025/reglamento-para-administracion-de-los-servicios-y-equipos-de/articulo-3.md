@@ -1,0 +1,1 @@
+Artículo 3—Objeto: El objeto del presente reglamento es establecer las disposiciones para la administración, uso y custodia, de los servicios y equipos de Telecomunicaciones adquiridos por el INAMU, así como los servicios que por este medio puedan utilizar las personas funcionarias.

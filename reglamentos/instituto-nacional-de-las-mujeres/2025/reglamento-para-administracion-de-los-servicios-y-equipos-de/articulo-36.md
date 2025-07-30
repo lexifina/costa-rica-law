@@ -1,0 +1,14 @@
+CAPITULO VII
+DE LAS PROHIBICIONES
+Artículo 36— Prohibiciones. Los equipos de comunicación asignados, así como los accesorios son de uso exclusivo de la persona funcionaria autorizada, para facilitar el mejor desempeño de sus tareas ordinarias y aquellas funciones o actividades oficiales. Por lo tanto, es prohibido para la persona autorizada lo siguiente:
+a) Modificar la configuración del perfil con usuario institucional.
+b) Modificar la configuración del plan, en cuanto a número telefónico, servicios, entre otros, o cualquier otra que dificulte o impida mantener control adecuado sobre su uso.
+c) Ceder, trasladar o facilitar el derecho de uso de la línea o teléfono celular del INAMU, a terceros, a personas funcionarias o dependencias que no estén autorizados formalmente ya sea de manera temporal o permanentemente. Exceptuando los casos donde por necesidad institucional se deban rotar por roles de disponibilidad, las jefaturas deberán llevar un control del estado del equipo de comunicación entre cada cambio, así como el caso de las personas Auxiliares de los Albergues, la persona funcionaria que lo reciba deberá verificar el estado del bien y si es el caso reportar inmediatamente cualquier mal funcionamiento o daño.
+d) Introducir en el equipo de comunicación un SIM con otra línea telefónica distinta a la asignada por la Institución.
+e) Usar y/o descargar aplicaciones o software malicioso o la navegación en sitios que puedan afectar el funcionamiento del dispositivo y comprometa la seguridad de la información institucional.
+f) El uso y descarga de aplicaciones o software que no sean utilizables para el desempeño de sus funciones, y que puedan traer consigo daños al equipo de comunicación o bien lentitud del sistema operativo, además de cargos adicionales en la facturación del plan.
+g) Hacer uso inadecuado de los servicios de valor agregado que son aquellos que implican descarga de datos de internet o aquellos que el funcionario autorizado puede manipular desde el equipo de comunicación móvil, sin que hayan sido previamente justificados y se cuente con la autorización correspondiente.
+h) Acceder a internet y/o sitios a través de redes abierta o inseguras, así como la conexión con fines ajenos a sus labores, desde el equipo de comunicación.
+i) Coordinar cualquier cambio con el DSGT y la DAF, en los términos que se establecen en este Reglamento.
+j) Realizar, en caso de detectarse alguna irregularidad al respecto, las gestiones pertinentes ante las instancias necesarias para sentar las responsabilidades pecuniarias y disciplinarias que correspondan según el caso mediante los mecanismos jurídicamente válidos.
+k) Solicitar a la UIN en caso necesario, que realice revisiones específicas propiamente técnicas de software o hardware que permitan detectar irregularidades o anomalías, respetando el debido proceso.

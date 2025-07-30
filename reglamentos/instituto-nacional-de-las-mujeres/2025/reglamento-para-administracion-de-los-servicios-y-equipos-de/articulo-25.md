@@ -1,0 +1,4 @@
+Artículo 25— Creación de perfiles de usuario:
+Para la creación de los perfiles del tipo de usuario se requiere, que los equipos de comunicación sean trasladados a la UIN para configurar:
+1) Según Marca del equipo de comunicación se deberá incluir las características del modelo dentro de la cuenta de correo electrónico externa en la plataforma correspondiente, así como la cuenta de correo electrónico Institucional
+2) Perfil de persona usuaria: que el solicitante indique los requerimientos de uso, según sus funciones. Para la instalación de aplicaciones que no correspondan con sus labores ordinarias, la persona usuaria deberá presentar la autorización de su jefatura, sin que esto exima de las responsabilidades contempladas en el Reglamento autónomo de servicios y Reglamento de Correo Electrónico y uso de Internet.

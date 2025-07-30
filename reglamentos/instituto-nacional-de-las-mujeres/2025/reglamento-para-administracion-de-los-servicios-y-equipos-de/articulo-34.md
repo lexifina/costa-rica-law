@@ -1,0 +1,1 @@
+Artículo 34— Responsabilidad jerárquica. La jefatura superior inmediata de las personas autorizadas será responsable de velar porque éstas cumplan con las obligaciones, requisitos y condiciones que en el presente Reglamento se disponen, conforme su capacidad legal.

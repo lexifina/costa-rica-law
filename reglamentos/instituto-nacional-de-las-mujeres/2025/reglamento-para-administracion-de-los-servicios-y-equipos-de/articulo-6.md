@@ -1,0 +1,1 @@
+Artículo 6— De la Tecnología: La tecnología de los servicios de telecomunicaciones debe ser actualizados y acorde a las necesidades institucionales, disponibilidad presupuestaria y de estándares de calidad reconocidos en el mercado nacional y de acuerdo con el criterio técnico respectivo.

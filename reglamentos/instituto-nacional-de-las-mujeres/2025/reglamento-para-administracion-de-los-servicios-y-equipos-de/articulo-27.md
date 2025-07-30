@@ -1,0 +1,1 @@
+Artículo 27— Pago: El INAMU pagará el total de la facturación directamente a los proveedores del servicio cuando el contrato de dicho servicio esté únicamente a nombre del INAMU. Caso contrario se someterá a revisión para las resoluciones pertinentes.
