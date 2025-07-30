@@ -1686,6 +1686,17 @@ Licenciado o grado superior en Psicología General y ostentar el post-grado en l
 REQUISITO LEGAL
 Incorporación al colegio profesional respectivo, cuando su ley así lo establezca para el ejercicio del correspondiente grado y área profesional (Resolución DG-331-2011 del 23/06/2011 publicado en La Gaceta N° 141 del 21/07/2011) y tener registrada su especialidad en este.
 (*) (Así adicionada el puesto de Psicólogo Clínico 1 anterior en sesión N° 038-2019 del 6 de marzo del 2019)
+(*) Departamento de Seguridad:
+Conocimientos y Experiencia Requerida
+. Formación profesional a nivel de licenciatura o título superior en una carrera atinente a su área de actividad.
+Experiencia profesional en seguridad mínima de ocho años a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia profesional mínima de diez años en labores relacionadas con el área de seguridad, a nivel de licenciatura.
+. Experiencia mínima de tres años en el manejo y supervisión de personal.
+. Curso teórico-práctico de armas aprobado.
+. Curso de protección de dignatarios.
+Requisito Legal
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*)(Así adicionado el departamento anterior mediante sesión ordinaria N° 145-2025 del 30 de julio del 2025)
+(Nota de Sinalevi: Mediante sesión N° 145-2025 del 30 de julio del 2025, se acordó Transformar el Área de Seguridad y Vigilancia a Departamento de Seguridad Parlamentaria dentro del Macroproceso Gerencial Estratégico y con dependencia jerárquica de la Gerencia General.)
 CATEGORÍAS SEGÚN CLASES SALARIALES
 ESTRATO OPERATIVO
 NOMENCLATURA DE CLASE | NÚMERO DE CLASE | CATEGORÍA SALARIAL
