@@ -1,0 +1,1 @@
+Artículo 22°- Reporte para las dependencias. Las jefaturas de las dependencias podrán solicitar al Departamento de Proveeduría cuando lo consideren oportuno, la emisión de reportes sobre activos que les han sido asignados.

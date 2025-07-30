@@ -1,0 +1,1 @@
+Artículo 56°- Restitución de activos. Si luego del cumplimiento del debido proceso, se determina que una persona funcionaria es responsable disciplinariamente por la pérdida, extravío, hurto o robo del activo que se le había sido asignado, deberá proceder el pago del valor razonable del activo.

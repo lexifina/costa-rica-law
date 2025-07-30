@@ -1,0 +1,1 @@
+Artículo 23°- Seguros: Le corresponderá al Departamento de Servicios Generales y Transportes la gestión relacionada con el aseguramiento de activos, de acuerdo con la Directriz de la Dirección Administrativa Financiera. El Departamento de Proveeduría remitirá mensualmente la información del ingreso de activos, para que procedan al aseguramiento.

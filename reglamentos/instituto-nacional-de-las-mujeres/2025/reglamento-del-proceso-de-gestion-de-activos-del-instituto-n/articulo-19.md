@@ -1,0 +1,2 @@
+Artículo 19°- Control y ejecución de garantías. El Departamento de Proveeduría llevará el control y ejecución de las diferentes garantías (de fábrica, agencia o postventa) otorgadas por los contratistas o proveedor sobre los activos. Con
+respecto al equipo informático le corresponderá a la Unidad de Informática, en cuanto a los vehículos e infraestructura será responsable el Departamento de Servicios Generales y Transportes y los restantes a la Unidad Gestión de activos

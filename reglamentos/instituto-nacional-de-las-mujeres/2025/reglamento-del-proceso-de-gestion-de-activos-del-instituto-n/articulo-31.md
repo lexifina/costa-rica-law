@@ -1,0 +1,1 @@
+Artículo 31°- Ingreso y egreso de activos en arriendo y convenios. Los bienes que ingresen a las instalaciones del INAMU en calidad de arriendo o por medio de convenios deberán reportarse inmediata y obligatoriamente al Departamento de Proveeduría y deberá estar debidamente identificada su procedencia.

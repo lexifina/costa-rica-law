@@ -1,0 +1,1 @@
+Artículo 46°- Baja de activos por pérdida o extravío. Una vez recibida la comunicación por parte de la Jefatura correspondiente al Departamento de Proveeduría procederá de inmediato a dar de baja en el sistema.

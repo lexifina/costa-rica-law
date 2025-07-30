@@ -1,0 +1,1 @@
+Artículo 57°- Reposición de oficio de activos. El trámite del debido proceso para la restitución del bien podrá obviarse cuando la persona funcionaria de manera voluntaria procede al pago del valor de reposición. O proceda con la entrega de un bien en las condiciones del activo que fue perdido, extraviado, hurtado o robado.

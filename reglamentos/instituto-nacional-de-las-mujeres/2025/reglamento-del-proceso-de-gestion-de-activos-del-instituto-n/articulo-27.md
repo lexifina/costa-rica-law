@@ -1,0 +1,1 @@
+Artículo 27°- Traslado de activos entre unidades administrativas. Los traslados de activos que se efectúen entre dependencias o personas funcionarias quedarán consignados en el instrumento respectivo. El original deberá remitirse de inmediato al Departamento de Proveeduría de Activos para los controles propios de esa dependencia.

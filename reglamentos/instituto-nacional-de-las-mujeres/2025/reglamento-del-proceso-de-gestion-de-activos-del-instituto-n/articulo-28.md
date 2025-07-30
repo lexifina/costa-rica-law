@@ -1,0 +1,1 @@
+Artículo 28°- Traslado de activos fuera de la Institución. En caso de que los activos propiedad del INAMU deban trasladarse fuera de sus dependencias, la jefatura de la unidad responsable del activo autorizará la salida del activo correspondiente en el instrumento creado para ello.

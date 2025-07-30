@@ -1,0 +1,1 @@
+Artículo 45°- Baja de activos por hurto o robo. Una vez recibida copia de la denuncia del OIJ el Departamento de Proveeduría procederá de solicitar a la DAF la autorización para dar de baja en el sistema

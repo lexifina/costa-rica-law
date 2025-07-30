@@ -1,0 +1,1 @@
+Artículo 6°- Del Almacén: Es la instancia administrativa encargada de verificar al momento de recepción de activos, por medio de los procesos de compra, que los elementos, cantidades, características solicitadas y valores reportados para el activo adquirido, sean conformes a la factura y a la orden de compra.

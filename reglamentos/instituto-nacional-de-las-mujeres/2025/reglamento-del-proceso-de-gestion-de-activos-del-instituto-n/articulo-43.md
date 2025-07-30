@@ -1,0 +1,1 @@
+Artículo 43°- Bajas de activos por venta, remate, permuta, dación en pago y otras causas de extinción de activos. Se sujetarán al trámite establecido en la normativa vigente. El Departamento de Proveeduría aplicará la baja en el sistema de registro cuando reciba la comunicación oficial.

@@ -1,0 +1,1 @@
+Artículo 20°- Control de activos. Sin perjuicio de los controles que debe ejercer el Departamento de Proveeduría cada Dependencia llevará un control de los activos asignados a cada persona funcionaria.

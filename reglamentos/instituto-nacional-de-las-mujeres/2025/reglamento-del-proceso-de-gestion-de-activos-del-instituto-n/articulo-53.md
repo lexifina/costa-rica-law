@@ -1,0 +1,1 @@
+Artículo 53°- Salida de activos por reparación. Cuando los activos a reparar deban salir temporalmente de la institución, el Departamento de Servicios Generales y Transportes o la Unidad de Informática según corresponda, procederán conforme con lo establecido en este Reglamento.

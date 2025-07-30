@@ -1,0 +1,1 @@
+Artículo 58°- Sanciones aplicables. Las personas funcionarias en general, que incumplan las obligaciones y deberes contenidos en este reglamento, serán sancionadas de acuerdo con las disposiciones disciplinarias aplicables, sin perjuicio de la responsabilidad civil o penal que pueda derivarse.

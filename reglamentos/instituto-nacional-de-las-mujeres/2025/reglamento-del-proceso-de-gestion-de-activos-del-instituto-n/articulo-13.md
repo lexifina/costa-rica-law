@@ -1,0 +1,9 @@
+ARTÍCULO 13°- Del Departamento Financiero Contable. Es la instancia administrativa encargada desde sus competencias de lo siguiente:
+a) Velar por el cumplimiento de las Normas Internacionales de Contabilidad del Sector Público (NICSP) en lo de su competencia.
+b) Definir la Clasificación de las cuentas contables que afectan todos los movimientos de los activos institucionales, y comunicar a las unidades de registro primario.
+c) Verificar que el pago de los activos que adquiera el INAMU, cuenten con la respectiva documentación soporte que acompaña a la orden de pago.
+d) Registrar y verificar contablemente los activos del INAMU a partir de los datos generados desde el Módulo de Activos Fijos, con base en los documentos remitidos por el Departamento de Proveeduría.
+e) Verificar de manera mensual, en coordinación con el encargado del Departamento de Proveeduría, que el auxiliar de activos esté debidamente conciliado con los saldos de las cuentas contables del INAMU.
+f) Mostrar en los estados financieros mensuales el monto total de los activos cumpliendo con la normativa vigente. De igual manera realizar las revelaciones en las notas a los estados financieros de conformidad con los requerimientos establecidos por la Dirección General de Contabilidad Nacional.
+g) Realizar los registros contables de todos aquellos activos del INAMU que sean dados de baja en el Módulo de Activos Fijos, reflejando así estos movimientos en los estados financieros.
+h) Comunicar las políticas, y procedimientos derivados del análisis e implementación de las NICSP, para que cada dependencia cumpla con ejecutar lo que le corresponde y velar por el cumplimiento de esta normativa en lo que es de su competencia. De lo anterior, quedarán debidamente registradas dichas operaciones en los estados financieros, conforme con las políticas y lineamientos establecidos por la Contabilidad Nacional.
