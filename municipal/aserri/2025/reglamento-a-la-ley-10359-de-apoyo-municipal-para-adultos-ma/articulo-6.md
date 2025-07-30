@@ -1,0 +1,1 @@
+ARTÍCULO 6- Igualdad del beneficio. La implementación rige de forma igualitaria para las personas contribuyentes clasificadas en condición de pobreza o pobreza extrema. No podrán establecerse condonaciones ni exenciones diferenciadas, ni aplicar diferenciación de porcentajes entre los contribuyentes.

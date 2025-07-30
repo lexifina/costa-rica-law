@@ -1,0 +1,11 @@
+ARTÍCULO 8- Procedimiento. A fin de conceder los beneficios tributarios, se debe seguir el siguiente procedimiento:
+La persona contribuyente deberá presentar formulario de condonación debidamente firmado ante la plataforma de servicios de esta municipalidad, con copia del documento de identificación respectivo, valido y en buen estado.
+El solicitante de la condonación deberá ser el dueño registral de la propiedad.
+Las propiedades a nombre de los sujetos pasivos deberán estar inscritas en el Registro Nacional de la propiedad con fechas previas a la publicación de la Ley 10359; lo anterior, con la finalidad de evitar delitos fiscales con el traspaso de propiedades.
+El encargado de cobros deberá revisar la información de condición de pobreza o pobreza extrema, mediante el sistema de consultas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado SINIRUBE
+El plazo de resolución será de un mes, se deberá emitir resolución debidamente motivada por parte del área de Cobros, ya sea para aprobación o rechazo, esta será entregada a la plataforma de servicios en el plazo establecido con copia al departamento que administra el rubro a condonar.
+En el caso del acueducto municipal, la resolución que emite el área de cobros será la condonación únicamente en la categoría domiciliar para el bloque de consumo que va desde 0 a 15m³. y se informará al departamento del acueducto, según lo establecido en el presente reglamento.
+En caso de que las personas solicitantes no estén registradas en el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE), no podrá presentar la solicitud y deberán realizar las gestiones ante el IMAS para que sean analizadas y en caso de ser procedente, registradas en dicho sistema, para acreditar oficialmente su calificación.
+Este beneficio no aplica en caso de que los tributos municipales se cobren a una persona fallecida, es decir corresponde a un beneficio personalísimo del adulto mayor en pobreza o pobreza extrema. No es transferible a ocupantes del bien, sucesores, sociedades en las cuales la persona es accionista, o similar.
+Por parte del área de cobros se realizará una inspección al inmueble del solicitante.
+Todos los puntos anteriores figuraran en un expediente físico en custodia del Área de Cobros.

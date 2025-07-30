@@ -1,0 +1,1 @@
+ARTÍCULO 10- En caso de que un contribuyente adulto mayor, en pobreza extrema o pobreza posea cuentas que se encuentren en cobro judicial, para que se aplique la condonación debe cancelar las costas procesales existentes.

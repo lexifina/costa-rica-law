@@ -1,0 +1,1 @@
+ARTÍCULO 7- Divulgación. Para la oportuna divulgación se realizará una adecuada campaña de divulgación, de tal forma que los contribuyentes se enteren de los alcances y los procedimientos de este beneficio, puede ser virtual e impresa, así como solicitar cobertura de medios de comunicación local.
