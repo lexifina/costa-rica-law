@@ -23,3 +23,4 @@ Reglamentación de Características y Condiciones Generales de los vehículos ta
 | 8 | 2019-07-29 | Decreto Ejecutivo 41952 (2019-07-29) |
 | 9 | 2020-09-03 | Decreto Ejecutivo 42622 (2020-09-03) |
 | 10 | 2021-05-25 | Decreto Ejecutivo 43049 (2021-05-25) |
+| 11 | 2025-07-30 | Decreto Ejecutivo 45142 (2025-07-30) |
