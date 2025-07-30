@@ -1,0 +1,1 @@
+Artículo 2.- El reconocimiento Carmen Lyra a la Hermandad Cultural, será promovido por el máximo jerarca Ministerio de Cultura y Juventud, y otorgada junto con quién ejerza la Presidencia de la República. La entrega se podrá realizar en ceremonias oficiales, actos públicos o giras ministeriales, según el contexto.

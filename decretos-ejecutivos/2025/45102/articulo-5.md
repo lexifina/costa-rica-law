@@ -1,0 +1,1 @@
+Artículo 5.- El Ministerio de Cultura y Juventud, por medio del Archivo Nacional de Costa Rica establecerá el registro oficial de las personas distinguidas, resguardando su documentación y motivaciones.
