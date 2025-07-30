@@ -14,3 +14,4 @@ Concede asueto a los empleados públicos del Cantón de Buenos Aires, Provincia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2025-07-30 | la propia norma |
+| 2 | 2025-07-30 | Decreto Ejecutivo 45113 (2025-07-01) |
